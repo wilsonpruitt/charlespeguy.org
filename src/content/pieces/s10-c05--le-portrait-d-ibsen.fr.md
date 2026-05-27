@@ -86,8 +86,7 @@ aux Cahiers de la Quinsaine; LAS
 “grande, maintenant que vous en avez plus besoin, et tit
 qu'au regret de votre perte, mesurant le prix de votre
 présence, Je sens grandir le sentiment de ce que Je Wie
-Je revois votre visage amaigri, où le pouce du mode-
-leur impütoyable cherchait la place du suprême coup
+Je revois votre visage amaigri, où le pouce du modeleur impütoyable cherchait la place du suprême coup
 … d'ongle. Dans votre corps dévasté, je retrouve vos yeux
 quine mentaient pas, mais qui commandérent l'espoir
 et la volonté de tenir bon à l'angoisse, comme un double
@@ -134,9 +133,7 @@ juste, qui est de ne pas mentir à dessein et de ne jamais
 
 … dédaigne infiniment la victoire, mais qui n'accepte a
 
-… point d'être vaincu par ce qu'il n'honore pas. Et main-
-
-tenant, dans la grande défaite de la mort, je viens à
+… point d'être vaincu par ce qu'il n'honore pas. Et maintenant, dans la grande défaite de la mort, je viens à
 
 vous et je prends votre cause. Vous qui füûtes loyal et
 
@@ -155,8 +152,7 @@ et de rochers: tout l'arrière est assis, large et massif,
 éternelles de la vague non moins que ses caresses ont
 . cisaillé tout le bord, en dents de scie. Entre les deux
 mers, la tempête d'automne affourche les ancres du
-bateau, et croise les câbles du vent et de la pluie. L'hi-
-ver, il fait nuit à trois heures; dans le nord, le journe.
+bateau, et croise les câbles du vent et de la pluie. L'hiver, il fait nuit à trois heures; dans le nord, le journe.
 se lève même pas. On vit sous la lampe, dans une
 
 le portrait d'Ibsen HORS ui:?
@@ -218,8 +214,7 @@ libre. (2) Le pays de la nuit polaire et du jour crépuscu- Le
 “aire de minuit; (3) la terre de la pluie, de la pluie
 nelle, où l'homme est malade d'attendre la lumière,;
 où sa folie lui fait réclamer le soleil. (4) Le pays des
-golfes endormis, où la mer pénètre au cœur des mon-
-agnes, s'y frayant un chemin de ruisseau: comme une
+golfes endormis, où la mer pénètre au cœur des monagnes, s'y frayant un chemin de ruisseau: comme une
 la ngue de chimère, comme une flamme liquide et bleue,
 (2) Dame de la mer; Soutiens de La société.
 
@@ -263,8 +258,7 @@ quid lépendent de quelques gros marchands. En Norvège, pee
 “point de noblesse: un petit nombre de parents riches,
 une foule de cousins en médiocrité. De la brusquérie; de
 peu de tendresse. De gros et des muscles à toute na:
-épreuve, métal de gabier qui n'a pas de paille; beau-
-coup de froideur et d'obstination; de la constance; des Rae
+épreuve, métal de gabier qui n'a pas de paille; beaucoup de froideur et d'obstination; de la constance; des Rae
 cœurs fidèles, enfin les vertus de la solidité, mais rien
 dde puissant ni de chaud, qui jaillisse de l'âme. Hommes pie
 aci urnes le plus souvent, avec les éclats violents d'une LES
@@ -306,8 +300,7 @@ contre les autres, où les grands partis de la conscience
 sont aux prises, devait bien tenir son poète de cette
 : race disputeuse, et qui n'aime pas les idées pour ellesmêmes, mais pour les voies où elles font entrer les lois
 et la conduite. Corneille aussi a mis les débats de la polis
-tique sur le théâtre. Depuis, et même sur la scène fran-
-çaise, on trouve partout plus d'avocats que de héros;
+tique sur le théâtre. Depuis, et même sur la scène française, on trouve partout plus d'avocats que de héros;
 mais dans Ibsen seulement les causes sont vivantes.
 Ibsen est ardent, violent, sensuel et passionné.
 C'est la force des grands artistes, dans le Nord, que
@@ -321,8 +314,7 @@ L'ardeur de l'homme dort et se concentre. Le silence
 est la matrice où la passion prend forme. L'avortement; à
 À est innombrable; mais, quand la gestation heureuse Ne
 arrive au terme, il en sort une créature vraiment:
-m…srande. Les peuples qui jouissent de la vie en dila-
-pident la joie; c'est un qu'ils prodiguent. Les gestes
+m…srande. Les peuples qui jouissent de la vie en dilapident la joie; c'est un qu'ils prodiguent. Les gestes
 et les paroles de la foule épuisent le fonds commun:
 — iln''est plus réservé, par droit d'aîresse, à la fortune de
 quelques maîtres. Le peuple du Nord, qui se tait et fait
@@ -343,9 +335,7 @@ naissance. Et Ibsen un peu plus encore, homme à se
 É bannir. Ses livres mêmes ne le rapatrient pas. La SRE
 langue littéraire de la Norvège diffère beaucoup de la
 : É langue parlée: le norvégien d'Ibsen n'est que le pur “ve
-De danois. Sa langue passe pour la plus belle de la litté-
-
-rature scandinave; elle est brève, forte, précise; tendue
+De danois. Sa langue passe pour la plus belle de la littérature scandinave; elle est brève, forte, précise; tendue
 
 à l'excès, et d'une trempe métallique; elle abonde en
 ellipses, en raccourcis rapides; mais elle est aussi
@@ -354,8 +344,7 @@ Si loin que soit l'Italie de la Norvège, le style d'Ibsen
 me rappelle celui de Dante; ce n'est qu'une impression;
 et je sens assez tout ce qu'on y pourrait opposer. Mais,
 
-dans les deux poètes, que d'ailleurs tant de traits sépa-
-rent, il y a la même volonté de tout dire en peu de
+dans les deux poètes, que d'ailleurs tant de traits séparent, il y a la même volonté de tout dire en peu de
 mots; le même ton âpre, la même violence à bafouer;
 
 la même force à tirer des vengeances éternelles. Dante,
@@ -460,9 +449,7 @@ qu'un bord du monde tourne le dos à l'autre, pour se
 
 croire seul du bon côté, et qu'une partie de la terre se
 
-rie de l'autre partie, pour se prendre elle-même au sé-
-
-rieux. Chacun s'estime davantage de ce qu'il méses- à
+rie de l'autre partie, pour se prendre elle-même au sérieux. Chacun s'estime davantage de ce qu'il méses- à
 
 L'abus de la conscience et du libre esprit n'est qu'une
 
@@ -490,7 +477,7 @@ panacées à tous les maux humains: car là, comme
 Alienrs, en le sens presque toujours, qui seule à
 “s'exerce. J'entends que l'égoïsme ait de bonnes raisons ME
 pour lui-même, et lui seulement, Mais il ne faut pasque
-53 Pégoiste se prenne pour un principe, et se donne pour «
+Pégoiste se prenne pour un principe, et se donne pour «
 Qu'on rejette tout l'ordre de la Cité, soit; mais, le TA
 faisant, qu'on ne s'imagine pas d'être le bon citoyen ni
 — l'espoir de la Cité nouvelle. C'est mal se connaître; à
@@ -512,7 +499,7 @@ du moins, la morale aux femmes mécontentes. Voilà
 bien les rhéteurs d'idées: à les en croire, ils ne visent a
 que le droit de-tous les hommes, la vie, l'honneur, le
 droit des femmes, le droit de la conscience. Et, au bout: me
-: du compte, c'est un homme qui a mal au foie, ou qui a; Le
+: du compte, c'est un homme qui a mal au foie, ou qui Le
 _. été trompé dans son ménage; une femme qui s'ennuie
 à la maison, et qui veut voir du pays. de
 
@@ -573,9 +560,7 @@ montrer le mépris de penser. La vie implique infini
 ; ment plus d'idées que tous les esprits ensemble. La vie
 a des pensées que la pensée n'a pas. Les idées du
 
-grand poète tendent de plus en plus à prendre la qua-
-
-lité d'êtres vivants. Le symbole est une idée qui a reçu
+grand poète tendent de plus en plus à prendre la qualité d'êtres vivants. Le symbole est une idée qui a reçu
 
 le souffle divin; elle est rachetée de sa condition
 inférieure; elle a fait le grand pas: elle a pris l'être.
@@ -622,8 +607,7 @@ les hommes; une expérience des mœurs et des passions me;
 qui rend indulgent à toutes; une verve d'ironie ou
 — d'honneur, selon qu'on se moque des hommes ou qu'on
 y a une foi inébranlable: voilà ce qu'on trouve sur la LE
-scène française, comme partout en France. L'intelli-
-gence et la raison y règnent absolument, et la fleur de a
+scène française, comme partout en France. L'intelligence et la raison y règnent absolument, et la fleur de a
 l'esprit les tempère. Quand elles font défaut à un AN
 auteur, il ne lui reste guère rien. Si les autres peuples es.
 n'ont point de théâtre, c'est faute du génie réaliste;
@@ -710,7 +694,7 @@ réelle. Il était fatal qu'Ibsen devint son propre sujet de »
 5 âme si forte et d'un geste si libre. Quand m'était
 encore que peintre réaliste, (1) il n'avait pas rendu la” À
 vie à la réalité; et quand il n'était que poète, (2) la force »
-durable de ce qui vit lui échappait encore. Puis le jour «:
+durable de ce qui vit lui échappait encore. Puis le jour
 est venu où, de la vision, il a fait naître les types, ces
 êtres plus vivants que les vivants. Le don suprême est:
 celui-là. Le poète ajoute alors visiblement à la nature.
@@ -744,8 +728,7 @@ Rien n'est plus décevant pour la foule, elle droit aux AS:
 faits et ne se soucie pas du reste: elle ne sait plus à
 quoi s'en prendre, car le caprice même de l'auteur est
 5 sans éclat, et pourtant elle soupçonne une beauté
-secrète; elle pressent ce qu'on lui cache, une forceadmi-
-le rable et même une fantaisie profonde dans la vérité; à de
+secrète; elle pressent ce qu'on lui cache, une forceadmile rable et même une fantaisie profonde dans la vérité; à de
 et elle s'en irrite: Ibsen, cependant, l'a traitée comme nn,
 si faliait, se bornant à lui rendre la matière qu'il en de
 » avait prise.
@@ -773,21 +756,17 @@ vivant, et fait pour la victoire; il ne survécut pas à sa ne
 sens et de vertu rigide. Il avait des frères et des sœurs;
 il se tenait à l'écart, et ne prenait aucune part à leurs …
 jeux. Il passe pour avoir toujours haï les exercices du
-corps. Enfant, il était brusque, nerveux, brillant quel-
-quefois, et le plus souvent taciturne. Jeune homme, ila
+corps. Enfant, il était brusque, nerveux, brillant quelquefois, et le plus souvent taciturne. Jeune homme, ila
 à gagner son pain, et le moyen de faire ses études. Il
-a tenu le pilon dans une pharmacie. Plus tard, à Chris-
-tiania et à Bergen, il a écrit dans un journal révolution.
+a tenu le pilon dans une pharmacie. Plus tard, à Christiania et à Bergen, il a écrit dans un journal révolution.
 naire, et dirigé deux théâtres. IL a donc vécu dans les; LE
 deux cercles de l'enfer dédiés au mensonge: toutefois,
 comme le mensonge est la première nature des comé- A
 diens, ils y sont bien plus sincères; et il s'en faut que
 le poison de mentir ait la même innocence dans les:
-L'épreuve de la misère, bien ou mal, forme le carac-
-tère d'un homme. Il s'en fait plus sensible à joie,
+L'épreuve de la misère, bien ou mal, forme le caractère d'un homme. Il s'en fait plus sensible à joie,
 quittent plus. Il arrive que, pour avoir souffert trop tôt,
-: un homme porte au fond de l'âme un sens de la souf-
-france, qui finit par créer les occasions de soufirir. Du:
+: un homme porte au fond de l'âme un sens de la souffrance, qui finit par créer les occasions de soufirir. Du:
 reste, presque toutes les âmes puissantes sont doulou-
 : reuses. Le plaisir de vivre n'est qu'un incident: ina
 à pas de profondeur. #3
@@ -885,8 +864,7 @@ chefs-d'œuvre: d'abord, un drame chaque année; puis,
 tous les deux ans. Pendant vingt années ce fut sa règle. A
 Sans doute, il avait autrefois conçu et à demi créé ce
 “qu'il mettait alors au monde. Quoi qu'il en soit, on.:
-aime à se faire d'Ibsen l'idée d'un vieil homme puis-
-mil arrêté aussi à Naples et à Sorrente. De cinquante à RCE
+aime à se faire d'Ibsen l'idée d'un vieil homme puismil arrêté aussi à Naples et à Sorrente. De cinquante à RCE
 soixante ans, il a surtout vécu à Drésde et à Munich. Il doit ses ASS
 remières victoires aux théâtres allemands. è è ne
 
@@ -905,8 +883,7 @@ loué, s'y faire pendre.;
 
 Si l'on regarde au fond de ce solitaire, sous une triple
 cuirasse de froideur indulgente, d'ordre poussé jusqu'aux « minuties, et de politesse, il y d'abord, l'amour ardent à
-de la vie, et l'instinct de la domination. Ces deux pas-
-sions s'assemblent, comme le tenon et la mortaise. Un
+de la vie, et l'instinct de la domination. Ces deux passions s'assemblent, comme le tenon et la mortaise. Un
 appétit insatiable de la vérité tantôt s'y oppose et tantôt
 y sert de levier. En ce sens, et pour qui veut la puissance, la vie n'est pas toujours ce qu'on a de plus cher.
 
@@ -930,8 +907,7 @@ a se faire croire. Le doute est la faiblesse même. Croire
 œuvre à faire ne doit s'arrêter à rien. La forcé et la tes
 volonté du plus fort imposent à la foule ce qu'elle ne
 peut jamais comprendre. Font partie de la foule tous
-ceux qui ne servent pas, corps et âme, à l'œuvre pro-
-posée. Nul lien avec les autres: rien n'est plus amer RATE
+ceux qui ne servent pas, corps et âme, à l'œuvre proposée. Nul lien avec les autres: rien n'est plus amer RATE
 “que de n'être pas compris; mais l'essentiel n'est pas FEES
 l'a qu'on me comprenne: c'est qu'on m'aide. Si mon ami:
 ne croit pas en moi, je n'ai que faire de mon ami; je
@@ -1028,7 +1004,7 @@ hauteurs, « en liberté et devant Dieu ». (r) Il se croit
 sorti des passions et de leur guerre cruelle. Comme on
 doit s'y attendre avec les âmes pures, qui ne sont point
 saintes, l'orgueil est une forte puissance. La pureté
-morale fait ainsi une chaude matrice à l'amour-propre. …:
+morale fait ainsi une chaude matrice à l'amour-propre.
 Elle juge de bien haut tous ceux qui lui semblent moins
 dignes. Les purs, qui croient ne devoir qu'à soi toute
 à leur pureté, n'ont aucune charité. Ils peuvent être aurs,
@@ -1081,8 +1057,7 @@ plupart des hommes. Ils imitent ce qu'ils voient et ce
 qu'ils touchent; le fond leur échappe, qui est la vie. Je
 vois ici la pierre de touche à juger de l'imitation: qu'on
 prenne les termes mêmes de ce qu'on imite, on en est
-le maître si l'on y met la vie. Le commun des anar-
-chistes se donne soi-même, et chacun de son côté, pour
+le maître si l'on y met la vie. Le commun des anarchistes se donne soi-même, et chacun de son côté, pour
 la règle du monde; le commun des auteurs peut aussi
 prétendre à mettre les idées sur le théâtre. Ils oublient
 qu'Ibsen en fait des êtres vivants. Il faut avoir l''étoffe:
@@ -1128,7 +1103,7 @@ ation à la sagesse se détermine plus par le tempéra- Fos.
 Le moi qui juge est impitoyable; il détruit tout ce
 qu'il touche. Rien ne trouve grâce devant lui, que
 songe de la vie. 1 À nee. à
-20 Vie des idées Dee
+Vie des idées Dee
 3 …. Une vue tragique de l'univers, voilà donc la forme où je ES
 es idées s'animent. L'empire de la douleurest livré aux ee.
 4 ssions. Seules, les passions fécondent l'intelligence
@@ -1163,8 +1138,7 @@ et je suis affamé d'être. La séduction de esprit est l'attrait irrésistible 
 donc, puisque je ne puis faire autrement; mais qu'à
 tout le moins je n'ignore pas où je me précipite; que je
 ne me vante pas de courir à une vie plus ample ou plus
-vraie, quand je descends au contraire la pente du déses-
-poir, et d'une mort très profonde.
+vraie, quand je descends au contraire la pente du désespoir, et d'une mort très profonde.
 A moins de la religion, il n'y a que l'art seul qui
 
 . mette de vivre. Je parle pour ceux qui ont un cœur CEE
@@ -1172,8 +1146,7 @@ A moins de la religion, il n'y a que l'art seul qui
 rissent de papier et s'engraissent de formules. Quel?
 - artiste désormais ne se verra point enfermé dans;
 À souffrance, comme dans une cellule, au centre de
-Je soufre, donc je suis: tel est le principe de l'ar-
-tiste. La vie et la douleur sont les deux termes de
+Je soufre, donc je suis: tel est le principe de l'artiste. La vie et la douleur sont les deux termes de
 « l'être. Toutes mes idées sont vivantes et passionnées; se
 ES en elles, c'est la douleur qui met le signe. Si elles ne
 (2 sont désespérées, et chaudes comme la vie même, que
@@ -1185,8 +1158,7 @@ C'est dans le Nord que l'art est un œuf d'aigle couvé L'ETÉ
 des canes. La Réforme a décidément assis la morale
 dans le trône du souverain. il est curieux que, pour;
 ;. mieux repousser l'autorité du pontife romain, les peuples
-. du Nord se soient soumis à une foule de papes de vil-
-lage. La tyrannie des principes paraît peut-être moins:
+. du Nord se soient soumis à une foule de papes de village. La tyrannie des principes paraît peut-être moins:
 Le pesante, parce qu'elle est anonyme; mais enfin Léon
 n'avait pas si tort quand il ne voyait dans la que-
 . relle de Luther avec les légats de Rome qu'une dis-
@@ -1215,8 +1187,7 @@ mais bien plus de le montrer. Dans ces pays, que l'on
 prétend si libres, la moindre liberté du cœur est scandaleuse; et le bonheur que l'on ose goûter à la source, ne.
 qu'on n'a pas honte de découvrir soi-même loin dela
 fontaine commune, ce bonheur est cynique. Les meilleurs …
-sont austères et froids, se faisant de pierre. Là, l''hypo-
-crisie est une forme très pure de la vertu sociale. De à
+sont austères et froids, se faisant de pierre. Là, l''hypocrisie est une forme très pure de la vertu sociale. De à
 même que l'on doit porter le costume de toutle monde,
 chacun a ses gants d'hypocrite vis-à-vis de tous les.
 autres, et jusque dans son lit. Ainsi l'exige l'autorité
@@ -1243,8 +1214,7 @@ consiste la lutte. Mais, pour ceux-là, il leur faut sortir A
 … d'un marécage moral, où la liberté d'âme trouble toutes;
 les habitudes d'un peuple qui se croit libre, parce qu'il
 est asservi à ses propres principes.
-Onne comprend guère Ibsen, ni sa manie d'en appe-
-ler sans cesse aux Vikings, si on ne se le représente
+Onne comprend guère Ibsen, ni sa manie d'en appeler sans cesse aux Vikings, si on ne se le représente
 … pas nageant à grandes brasses, seul, dans son fjord aux
 eaux croupies, où tout le monde, autour de lui, dort de-
 - bout, enfoncé jusqu'aux narines. Ibsen n'atteint la rive
@@ -1297,7 +1267,7 @@ je les fuirais. Dans la pleine lumière, c'est la pleine
 horreur du destin et de l'homme. On ne là-bas que à
 
 pour en revenir, il me semble. On le voit assez bien de
-… dans cet air de vieux maître à mépriser, où Ibsen a,
+… dans cet air de vieux maître à mépriser, où Ibsen
 pris sa retraite de pirate: c'est l'habit d'un docteur
 allemand, et même le dos d'un piétiste; mais ce n'en
 est pas la bonhomie grasse, ni la suprême satisfaction
@@ -1318,15 +1288,13 @@ violents; tantôt enthousiaste et tantôt taciturne, rêveur,
 l'écart. Il semblait étranger aux gens de son pays: à
 — souple, vif, brusque, de teint plus que brun, couleur de
 —.… bronze, les cheveux noirs, il n'avait point la haute taille, a
-la chair rose, et le poil blond des Scandinaves: (1) tout -:
+la chair rose, et le poil blond des Scandinaves: (1) tout
 à ce que Bjoernson représente, au naturel, sans parler
 de l'air doctoral, de la tête carrée, et du maintien qui De
 hésite entre le professeur de théologie et le médecin. res
 … A quarante ans encore, Ibsen n'avait point cet air de
 È (x) « Mince, un homme au teint de schisie, avec une large barbe,
-noire comme du charbon c'est le portrait qu'en a fait Bjoern-
-
-le portrait d'Ibsen
+noire comme du charbon c'est le portrait qu'en a fait Bjoernle portrait d'Ibsen
 docteur, maître en toutes les sciences de l'amertume,
 qu'il a pris, depuis. Son plus beau portrait fait plutôt voir
 caractère commun à toutes les figures de la génération à
@@ -1342,8 +1310,7 @@ dans leur propre rêve. Qui s'étonnerait que le trait …
 dominant sur ces figures füt une forte tristesse?
 Comme l'acier ressemble à une matière tendre quiala
 couleur du métal trempé, Ibsen à quarante ans
-rappelle le peintre Millet. Le front n'est point dispro-
-portionné au reste: il devait se découronner par le
+rappelle le peintre Millet. Le front n'est point disproportionné au reste: il devait se découronner par le
 haut, et mettre en avant le haut crâne, en forme
 d'ouvrage avancé. Une masse épaisse de cheveux se
 mêle à la barbe abondante et carrée; au milieu du
@@ -1465,8 +1432,7 @@ ses œuvres de sa main, qui est grande, ronde, serrée,
 enfin. Il aime les tableaux; et toujours maître de soi, A
 sans boire trop, il boit très dur et sec.
 Ce petit homme, au dos solide, les épaules larges et
-vénérables, marche à pas comptés. Le chapeau forte-
-ment planté sur la tête, la taille encore souple, l'allure
+vénérables, marche à pas comptés. Le chapeau fortement planté sur la tête, la taille encore souple, l'allure
 élégante et ferme, les gants à la main, le pied maigre
 et haut dans un soulier fin, Ibsen s'avance dans la rue
 d'un air circonspect, cossu et mesuré. Qui le voit de
@@ -1485,8 +1451,7 @@ point cette tête de diable à cheveux blanes, soudain
 sortie de la boîte, — ici, le corps vêtu de noir, l'habit À
 correct d'un digne gentilhomme. La douceur de sa jolie
 
-voix, le timbre presque féminin de son accent, l'agré-
-ment menu de ses gesles, tous les soins qu'il donne aux me
+voix, le timbre presque féminin de son accent, l'agrément menu de ses gesles, tous les soins qu'il donne aux me
 gens et qu'il prodigue aux femmes, ne dissimulent pas 4 sa
 à le retrait intérieur, ni le quant à soi farouche d'un cœur:
 é qui a puse livrer, mais ne se livre plus. Le charme des a
@@ -1551,11 +1516,9 @@ réseau de soucis et d'efforts passionnés, couvre d'une
 ._ tempe à l'autre son front sec et anguleux comme d'une
 grille où l'invisible ennemi le retire de nous et déjà veut
 - nous le dérober. Il est terriblement amaigri; Les des à
-pommettes percent les joues; et, sous les sourcils brous-
-sailleux, plus que jamais les yeux se cachent, ces yeux à
+pommettes percent les joues; et, sous les sourcils broussailleux, plus que jamais les yeux se cachent, ces yeux à
 toujours vifs, pâles, violents et doux, ces chasseurs …
-d'images à l'éternel affût du bien et de la vie. Mais sur-
-tout, autant qu'un trait humain peut différer d'un autre,
+d'images à l'éternel affût du bien et de la vie. Mais surtout, autant qu'un trait humain peut différer d'un autre,
 Cest la bouche de Tolstoi qui, de toutes les bouches,
 ressemble le moins à la bouche d'ibsen. Il dresse le
 menton, avec la grande barbe blanche qui pousse en!
@@ -1578,8 +1541,7 @@ climat et la douceur de vivre font les sceptiques. Je
 1 n'en vois de vrais qu'au Midi. Le dur ennui pèse sur
 l'âme du Nord, quand elle doute ou qu'elle nie. Il n'est
 : point de parfait sceptique: la sensation ne doute pas;
-sentir, sur le moment, c'est croire. On ne doute qu'en-
-suite: l'heureux railleur du Midi ne souffre point de la
+sentir, sur le moment, c'est croire. On ne doute qu'ensuite: l'heureux railleur du Midi ne souffre point de la
 contradiction; car, tandis qu'il sent, il jouit. Le Nord,
 soufflant contre l'enclume, le lourd marteau au poing,
 se forge des rêves. Il donne moins aux sensations qu'à
@@ -1616,7 +1578,7 @@ qu'elle la fait passer dans la pratique. A Athènes, à
 4 jouir de la vie au soleil. Mais, dans le Nord, la gravité,
 la propre pureté distille son poison dans l'épais conten-
 j. tement de vertu. La morale paraît toujours croyable,
-“et prête son air à tout. Si l'esprit est le prince de l'anar- -:
+“et prête son air à tout. Si l'esprit est le prince de l'anar-
 chie, c'est qu'il se couronne de morale.
 Plus rebelle à toute loi que personne, plus avide;
 d'être libre et plus féru de morale, tel est Ibsen dans ee.
@@ -1764,8 +1726,7 @@ ainsi la beauté? — Être beau, c'est être ce qui dure. à
 Comme le vol du pétrel qui descend dans le labour
 des vagues, sa pensée abrupte court au fond de cequ'elle
 regarde; elle saisit la vérité, ou s'y précipite, et néglige
-tout le reste. Ibsen a faim du vrai. Il a beau déses-
-pérer: il fait comme s'il pouvait croire encore; il ne
+tout le reste. Ibsen a faim du vrai. Il a beau désespérer: il fait comme s'il pouvait croire encore; il ne
 tombe dans l'abime nul qu'après toute sorte de bonds
 et de sursauts. Il y est lancé de la plus haute cime. Au
 cours de ces routes suprêmes, tantôt un mirage de
@@ -1787,8 +1748,7 @@ son âme sur soi. La neige, les monts, les vents et la
 nuit des pôles les ont réduits à la prison d'eux-mêmes.
 Il ne fallait rien moins pour abattre ces violents.
 
-Quelle loi pouvait avoir raison de ces natures élémen-
-tai es, sinon la contrainte du devoir? — Pour eux, elle PA,
+Quelle loi pouvait avoir raison de ces natures élémentai es, sinon la contrainte du devoir? — Pour eux, elle PA,
 a toujours été sublime, comme pour cet autre d'une
 … race parente, qui en a fait la religion des religions.
 Cette loi, où la splendeur du ciel étoilé se compare, si ne
@@ -1841,10 +1801,9 @@ Il est plus aisé à une grande âme de détruire la
 Tyrennie des atomes ni
 Il faut l'avouer: plus qu'une autre, une pensée très
 . pure est destructrice. Nul ne fait plus la guerre à la à
-morale que l'homme le plus moral, quand il ne guerroie …:
+morale que l'homme le plus moral, quand il ne guerroie
 pas pour elle, ni une guerre plus dangereuse, parce
-armant la sienne contre elle, il lui retire une force irré-
-parable. Un tel homme peut faire le bien sans y croire.
+armant la sienne contre elle, il lui retire une force irréparable. Un tel homme peut faire le bien sans y croire.
 Mais, pour être fait par l'immense foule des hommes,
 le bien doit être cru. C'est une folie naïve à l'homme le - A
 plus libre de se flatter que sa liberté n'a point de danger
@@ -1861,11 +1820,9 @@ qu'elle inventât. L'invention de la plus pure conscience RARES a
 « peut tourner à une habitude de crimes, dans la foule ï “3
 - qui imite. Les hommes sont comme les montres, qui
 se règlent sur le soleil; mais le soleil n'est point du La à
-tout libre de changer ses voies, et de passer ou ne pas-
-ser pas au méridien, selon qu'il le juge bon ou mauvais, Le
+tout libre de changer ses voies, et de passer ou ne passer pas au méridien, selon qu'il le juge bon ou mauvais, Le
 et plus ou moins juste. Et déjà les bonnes montres sont “EE
-: -rares, et il est diflicile de les empécher de varier. En ma-
-tière de morale, l'autorité n'est pas de droit, elle est de
+: -rares, et il est diflicile de les empécher de varier. En matière de morale, l'autorité n'est pas de droit, elle est de
 Le fait. Qui regrette l'autorité est responsable du dénûment
 È où il reste. La pureté de conscience n'est pas plus le
 « partage de tous les hommes que les autres dons du THÉREUES
@@ -1905,8 +1862,7 @@ La liberté d'une grande conscience tourne à Fescla- « vage des moindres. Une 
 de sa morale propre; mais, de cette conscience-là et de
 ses œuvres, la foule des moindres consciences ne retient
 que les coups qu'elle porte, et ne s'occupe jamais de la
-cause qui les fit porter. Les arguments d'un cœur puis-
-sant et libre sont toute la thèse des autres: et le grand. à
+cause qui les fit porter. Les arguments d'un cœur puissant et libre sont toute la thèse des autres: et le grand. à
 cœur leur manque, qui seul n'est pas sophiste. Si le
 : nouvel Ictinos de la morale demande qu'on rase les
 ruines du Parthénon, pour élever à la déesse un temple
@@ -1961,13 +1917,12 @@ et s'il n'est pas de Dieu pour lui faire ce présent, #4
 l''anarchiste qui pense est forcé de s'en faire un de la ka.
 
 mécanique. La fatalité est absolue. Les lois de la Cité
-ne sont pas moins fataies que celles du monde. L'en-
-fant ne détruit rien que l'homme ne doive reconstruire.
+ne sont pas moins fataies que celles du monde. L'enfant ne détruit rien que l'homme ne doive reconstruire.
 
 Ce qu'on a jeté bas, pour être libre, Funivers l'impose À
 
 . à qui se croit libre. Rien ne s'est fait par hasard, ni
-par la volonté d'un seul, ni par la fantaisie d'un autre. »,
+par la volonté d'un seul, ni par la fantaisie d'un autre.
 Les conditions de la vie humaine étant ce qu'elles sont,
 ôtés tous les effets, ils se reproduiraient tous, à la suite
 fatale des mêmes causes. Il n'est pas de théorie si
@@ -2039,14 +1994,12 @@ trembler de crainte pour elle, je serai le premier à
 dédaigner le temple que j'ai construit; et comme j'en
 saurai mieux la faiblesse, je ne l'ébranle pas seule
 ment: je le détruis.
-Déjà, dans les vrais poètes, il y a une sorte de ven-
-geance au fond de tout ce qu'ils inventent: ils se
+Déjà, dans les vrais poètes, il y a une sorte de vengeance au fond de tout ce qu'ils inventent: ils se
 vengent du monde dans le rêve; mais c'est toujours le
 rêve la vie. Le grand artiste n'a pas seulement
 le droit de se contredire: il est forcé d'en passer par là.
 La vie fait le lien entre toutes les opinions. Celui qui
-crée est comme la nature: supérieur à toute contradic-
-tion. Ce n'est pas notre affaire d'être logiques; mais
+crée est comme la nature: supérieur à toute contradiction. Ce n'est pas notre affaire d'être logiques; mais
 d'être tout ce que nous sommes. Eussions-nous cent fois
 tort, l'œuvre vivante a toujours raison.
 La terrible imposture de l'esprit, qui veut faire croire
@@ -2088,8 +2041,7 @@ qui n'ont pas grandi. Les enfants ne se lassent pas de
 jouer; et les savants ne se lassent pas de comp de à
 comme ils disent. lis vantent le jeu de l'Intelligence, TEA
 EUR comme la source de tous les biens. Cela était bon àdire
-sous le couvert de cette fameuse ignorance qui, soi-
-es disant, faisait le deuil sur le monde, et devait faire a Lie
+sous le couvert de cette fameuse ignorance qui, soies disant, faisait le deuil sur le monde, et devait faire a Lie
 jamais le malheur du genre humain. Mais on ne
 prend plus, si l'on sait un peu ce que c'est. J'espère à.
 ? bien davantage, où les savants ne m'avancent point:
@@ -2145,8 +2097,7 @@ L''ivresse du moi: dans sa force il se croit bon; et il” A
 se décide à agir pour donner une preuve de sa force.
 Être soi tout entier ne diffère en rien d'être soi-même.
 On s'en fait un devoir. Tout ou rien, c'est la politique:+44
-de notre morale. Le moi n'a donc pas honte d'être opti-
-miste? Loin de là, quand il n'en sent pas encore l'hor- 0 À
+de notre morale. Le moi n'a donc pas honte d'être optimiste? Loin de là, quand il n'en sent pas encore l'hor- 0 À
 rible nausée, le moi est fanatique du bien qu'il se flaite
 de faire. Nul n'a plus de foi: il la porte dans les ‘Na
 moindres faits de la vie; car une foi semblable n'est
@@ -2195,18 +2146,13 @@ jamais la folie de douter de vous-même. Il faut croire »
 74. en soi. Rien ne nous est bon que ce qui nous y aide; il;
 nest mal, que ce qui nous en éloigne.: Ni
 à La volonté est l'organe de la puissance. Être soi, c'est À
-dominer. On ne veut que pour pouvoir, Puissant en éner-
-
-le portrait d'Ibsen
+dominer. On ne veut que pour pouvoir, Puissant en énerle portrait d'Ibsen
 gie, je ne vis que pour être puissant en actes. Il faudra que (270
 je vous le fasse sentir, Ô mes frères très libres. Le pou- a.
-voir, voilà la vie, l'appétit de l'homme, la propre affi-
-nité de son sang. LA -10]
+voir, voilà la vie, l'appétit de l'homme, la propre affinité de son sang. LA -10]
 Même vaincu, l'homme puissant ne baisse pas la tête.
 Il ne regarde pas sa vie comme perdue: tant qu'il lui
-reste un souflle, c'est une haleine de volonté qu'il res-
-pire. La mort même ne ruine pas toujours cette espé-
-rance. Le grand moi est pareil au phthisique dans la
+reste un souflle, c'est une haleine de volonté qu'il respire. La mort même ne ruine pas toujours cette espérance. Le grand moi est pareil au phthisique dans la
 force de l'âge; quand tout est détruit et que la mort ne
 s'annonce, il connaît une dernière fièvre, un rêve
 suprême, où il s'endort dans son propre poison. À
@@ -2214,8 +2160,7 @@ suprême, où il s'endort dans son propre poison. À
 Ils sont plaisants de prendre la vie antique pour le
 à modèle d'une vie libre.
 Le fait et le moi s'opposent; ils se bravent; et lun
-toujours asservit l'autre. L'art antique est forme, et sou-
-mis au fait. Le moderne est sentiment, et le moi y
+toujours asservit l'autre. L'art antique est forme, et soumis au fait. Le moderne est sentiment, et le moi y
 domine. L'antique est horizontal, surface, si je puis
 dire; le moderne, volume, profondeur et vertical.
 L'ordre et la beauté antiques viennent de ce que le
@@ -2293,8 +2238,7 @@ chaud. Ibsen les tire de ce bon poële, et les traine dans
 Yhiver de la vérité nue, sous les étoiles glaciales. S'ils
 tombent frappés par le vent de la nuit, il reste encore
 un orage de neige sur leur cadavre; et s'ils hésitent au »
-bord du précipice, où il les a conduits, d'un coup vio-
-lent entre les deux épaules, il en hâte la chute. Il ne
+bord du précipice, où il les a conduits, d'un coup violent entre les deux épaules, il en hâte la chute. Il ne
 pleure pas sur eux; parfois, au contraire, il les bafoue.
 ! Sa tristesse est sans douceur; elle aime le sarcasme. à
 est dur; il a l'air cruel; il semble jouir de la catastrophe,
@@ -2434,7 +2378,7 @@ son malade. Prétend-il, lui seul, à créer une cité pure?
 A faire un monde où tous les hommes soient vrais?
 intelligents? sans péché? où toutes les eaux seront de We]
 cristal? où enfin il n'y aït pas un malade? — Ce rêve
-est bien vain: dans le monde qu'il suppose, il n'y a pas A!
+est bien vain: dans le monde qu'il suppose, il n'y a pas
 place à la mort. Dès lors, à quoi bon le médecm?
 lbsen n'a point gardé à l'intelligence le haut rang
 qu'il l'invitait à prendre. Comme beaucoup de très” À
@@ -2545,8 +2489,7 @@ viande crue et du fer aux sangs pauvres, que les faibles
 se nourrissent de rancune et de révolte: ils s'en feront
 plus forts, s'ils peuvent l'être; et ils seront libres, quand
 ils auront force.: Si
-La force est sainte: elle sert d'assise à la cité nou-
-velle. Au besoin, il faut être cynique dans le culte de la
+La force est sainte: elle sert d'assise à la cité nouvelle. Au besoin, il faut être cynique dans le culte de la
 force. On l'a toujours servi, mais sans oser le dire.
 Ibsen invite les hommes à la franchise, dans la parole
 et dans l'action. Où la vérité importe, rien n'importe
@@ -2593,9 +2536,7 @@ Rome une fièvre que la quinine ne prévient pas, — la
 folie de l'empire. Si c'est un mauvais air comme l'autre,
 je le crois; mais l'âme en est avide; elle ne veut pas
 
-“guérir de ses frissons; elle s'y plaît étrangement, jus-
-
-ques à y périr. C'est ici qu'Ibsen, cessant de prêcher et
+“guérir de ses frissons; elle s'y plaît étrangement, jusques à y périr. C'est ici qu'Ibsen, cessant de prêcher et
 
 à de chercher systèmes, s'est saisi dans sa force à pleines:
 
@@ -2609,8 +2550,7 @@ beaux noms aux œuvres où nous ne mettons rien que À à
 de nous, Ibsen appela son parti la guerre de la vérité
 et de la vie contre l'éternelle imposture qui domine
 l'instinct des hommes. Toutes ses œuvres héroïques, il “4
-les a conçues en ce temps-là. Alors, il préférait com-
-battre à vaincre. Cette force hautaine, et sans pitié,
+les a conçues en ce temps-là. Alors, il préférait combattre à vaincre. Cette force hautaine, et sans pitié,
 Rome l'a nourrie. Et cette volonté absolue de réguér
 füt-ce par la destruction, est une fille de la solitude
 romaine. Quoi de plus”? Elle devait finir par se tourner
@@ -2632,7 +2572,7 @@ gens sont forts, parce qu'ils sont égoiïstes et ne croient
 pas l'être. Ils mettent leur amour de soi-même jusque
 dans la foi, les idées et le sacrifice. Le bel âge est
 
-? plus de cinquante ans, et moins de soixante: (1) tout y, NE
+? plus de cinquante ans, et moins de soixante: (1) tout NE
 est tragique; la mort est derrière la toile pour faire le
 dénouement. Il faut avoir cet âge pour jeter d'une main pie
 imperturbable son épée dans la balance de la vie. La
@@ -2643,14 +2583,12 @@ mourir pour une idée vague, et les femmes de tuer
 pour une sensation.
 Trop souvent, le théâtre confie aux vieillards un
 : emploi héroïque: c'est l'erreur qui empêche tant de give
-gens de croire à la tragédie: peu d'hommes se per-
-suadent qu'il y en aït qui veulent mourir pour uneidée, à
+gens de croire à la tragédie: peu d'hommes se persuadent qu'il y en aït qui veulent mourir pour uneidée, à
 ou souffrir pour elle, ou faire souffrir. Que ne leur
 fait-on voir des héros dans la force de l'âge? — Les
 : vieillards ont l'apanage légitime de la sagesse. Mais la
 sagesse n'est pas scénique: elle est pleine de calme, en
-- son essence, sereine et presque indifférente. Elle con-
-temple, qui est le contraire d'agir. Les beaux vieillards À
+- son essence, sereine et presque indifférente. Elle contemple, qui est le contraire d'agir. Les beaux vieillards À
 . ne sont à leur place que sur le théâtre des dieux. La FAU
 - scène humaine est aux fous. Les héros sont des fous
 qu'on admire. Encore ne les admire-t-on pas toujours; ) PAS
@@ -2702,9 +2640,7 @@ même si elle l'était?
 
 Où y a-til, dans le monde, beaucoup mieux que des
 poupées qui parlent, et qui s'imaginent de parler seules,
-de penser et de marcher? — Si rien de plus qu'eux-
-
-mêmes n'anime les automates, en quoi un automate
+de penser et de marcher? — Si rien de plus qu'euxmêmes n'anime les automates, en quoi un automate
 lest-il plus qu'un autre automate?
 
 Gelle-ci se fait un grand deuil d'être la poupée de son
@@ -2733,8 +2669,7 @@ plus rien, s'il leur faut tout aimer. Qui a connu cette
 sorte de femmes, les préfère injustes à impartiales:
 “elles se réservent alors tout ce qu'elles ont de cœur et
 
-de partialité. Qui nous aimera sans beaucoup de par-
-tialité? — Leur esprit égoïse sans retour. Elles se
+de partialité. Qui nous aimera sans beaucoup de partialité? — Leur esprit égoïse sans retour. Elles se
 savent si grand gré de ce qu'elles ont appris, et de
 penser: elles y sacrifieraient bien le monde entier, …
 sinon elles-mêmes trop nécessaires à ce monde: tant
@@ -2813,16 +2748,14 @@ des grilles lançait un éclair morne. Le brouillard s'ac:
 crochaïit aux arbres, et dans les perspectives lointaines,
 entre les arcs de triomphe, on eût dit que l'atmosphère
 aussi fût devenue boueuse. Dans un coin, attendant
-l'omnibus avec patience, quelques petites gens se ser-
-raient sur le trottoir, levant parfois le nez pour augurer
+l'omnibus avec patience, quelques petites gens se serraient sur le trottoir, levant parfois le nez pour augurer
 de la pluie prochaine, ou frissonnant des épaules aux
 bouffées d'un vent aigre, qui soufflait du fleuve.
 Seule, un peu à l'écart, plus patiente que tous, et sou- de
 ï mise depuis bien plus longtemps à l'ennui de l'attente,
 je vis une femme, qui céda l'unique place libre dans la
 voiture, à une petite vieille fort grise, et qui remercia
-en toussant, d'une bouche édentée. L'hamble bienfai-
-trice sourit, aidant de la main sous le coude la petite de
+en toussant, d'une bouche édentée. L'hamble bienfaitrice sourit, aidant de la main sous le coude la petite de
 vieille à monter. Puis, la lourde machine s'ébranla avec,
 un bruit de ferrailles, en lançant de la boue jaune,
 rayons prolongés des larges roues.
@@ -2841,8 +2774,7 @@ d'éternel oubli de soi. Toute sa façon faisait l'aveu d'une )
 extrême fatigue. Ses larges manchettes, roides d'empois, laissaient tomber des mains pâles et maigres.
 Sous le bras, elle tenait son parapluie gonflé d'eau, et
 un paquet ficelé dans un journal. De l'autre main, elle
-relevait sa jupe, et ses cottes de futaine noire: indiflé-
-rente à tout ce qui fait le souci des passants, elle se
+relevait sa jupe, et ses cottes de futaine noire: indiflérente à tout ce qui fait le souci des passants, elle se
 troussait assez haut: on voyait ses pieds chaussés de
 pantoufles en cuir noir, sans boucles ni lacets, et les
 gros bas de laine noire tombaient à plis lourds le long
@@ -2888,8 +2820,7 @@ vivre que d'amour, se remplit d'aigreur et de haïne ‘#4
 confuse, et en paraît plus absurde encore.
 La jeune Norah s'en va, faisant claquer la porte de la
 maison sur un mari ridicule trois enfants délaissés.
-Ibsen montre ailleurs ce qu'elle devient: une demi-
-folle, errante et criminelle, qui tue et prend plaisir à.
+Ibsen montre ailleurs ce qu'elle devient: une demifolle, errante et criminelle, qui tue et prend plaisir à.
 tuer; (1) au cas le plus heureux, c'est encore une crimi- ai
 nelle, qui a horreur de son crime, et qui ne se délivre
 (1) N'est-ce pas Heddah Gabler, et Hilde?
@@ -3041,8 +2972,7 @@ autres. Dans la dernière image qu'on a prise de lui, sie
 
 joie le portrait d'Ibsen AMOANS
 courbé, sur les genoux, maigre et défait, ravagé, la ne
-; taille réduite, les épaules obliques, le corps n'emplis-
-sant plus les vêtements presque vides de chair, le front
+; taille réduite, les épaules obliques, le corps n'emplissant plus les vêtements presque vides de chair, le front
 sec, les tempes brillantes d'un divin chagrin, tout plissé
 de rides comme une terre où le labour de la morta tracé
 des sillons, Tolstoï est tout yeux et tout oreilles;
@@ -3064,8 +2994,7 @@ Tolstoï elles sont toutes asservies. Je voudrais croire À
 comme lui: car j'ai ce que vaut l'homme de foi pour
 vivre et mourir.
 Tolstoï excite un grand amour dars son agonie. La
-pensée de plusieurs se tourne vers lui, et le cherche là-
-bas. Qu'il souffre en paix: pour seul qu'il soit, commen
+pensée de plusieurs se tourne vers lui, et le cherche làbas. Qu'il souffre en paix: pour seul qu'il soit, commen
 sont tous les hommes et les héros plus encore, il ne
 doute pas qu'on ne l'aime; le suprème mirage console}
 l'horizon de sa dernière étape; et selon son vouloir,
@@ -3114,20 +3043,16 @@ La plupart se contentent d'en épeler les termes, comme.
 
 on lit un lexique. Mais d'où vient que les démocratesne
 voient pas leur étrange ressemblance avec les théolo- à
-giens? — Ils ont des dogmes; ils sont assurés de sa-
-voir le fin mot du monde: ils ont la vérité, et ne doutent point que ce ne soit la bonne. C'est les dogmes qui
-font la théologie: mais à la condition de n'être pas va-
-riables. Les démocrates varient comme les appétits. Je.
-suis bien loin de dire qu'il n'y a point de vrais démo-
-craies, sinon les religieux; mais il n'y en a point sans
+giens? — Ils ont des dogmes; ils sont assurés de savoir le fin mot du monde: ils ont la vérité, et ne doutent point que ce ne soit la bonne. C'est les dogmes qui
+font la théologie: mais à la condition de n'être pas variables. Les démocrates varient comme les appétits. Je.
+suis bien loin de dire qu'il n'y a point de vrais démocraies, sinon les religieux; mais il n'y en a point sans
 quelque religion secrète; le plus souvent elle s'ignore.
 Un démocrate n'est pas prudent qui se fonde sur l'esprit.
 Tous, ils ont foi au grand nombre. Telle est leur ido-
 
 à Chaque homme, à son compte, peut croire qu'il est
 fait pour tous les hommes. Vivant pour soi, qu'il vive
-pour le genre humain, je l'admets, dès qu'il s'en pro-
-pose le devoir. Mais que son devoir en soit un pour
+pour le genre humain, je l'admets, dès qu'il s'en propose le devoir. Mais que son devoir en soit un pour
 force. Car est-ce cette liberté fameuse, que je”
 sois forcé de faire contre mon sentiment ce qu'un
 {1) La majorité a toujours tort, en effet, dit Ibsen, — la maudite
@@ -3153,8 +3078,7 @@ pas? — Pratique de ma prison comme je suis, et la LÈR
 … bien forte pour que je ne puisse la défaire. Je suis à la de
 chaîne dans le cachot de ma pensée, et quoi que je PUR
 4 fasse, je n'en sors pas. Si je suis démocrate, le hasard 4 ne
-est heureux, et de ma part c'est bonté pure: car, pour-
-quoi ne serais-je pas toui le contraire, avec le même
+est heureux, et de ma part c'est bonté pure: car, pourquoi ne serais-je pas toui le contraire, avec le même
 … droïît? Le moi sait justifier toutes ses démarches, parce
 qu'au fond il n'en justifie aucune: aveugle et brutal, il
 . ne s'en soucie point; clairvoyant et dans la pleine pos- pese
@@ -3172,8 +3096,7 @@ leurs misères, il ne s'ensuit pas que je fasse passerles
 leurs avant les miennes, ni que je me préfère le genre À
 humain. Car il peut arriver que je n'aime ni lui,
 ni moi. C'est en effet ce qui arrive. Ibsen m'en est
-Dans l'océan des hommes, dans la tourmente de l'in-
-fini, je suis comme la barque à un seul rameur, pour
+Dans l'océan des hommes, dans la tourmente de l'infini, je suis comme la barque à un seul rameur, pour
 tout faire, pour tenir la barre et veiller à la voile; jai
 mis à la cape dans la vie; et je fuis dans le temps. A la.
 vérité, je ne sais pas pourquoi: l'issue est certaine, et
@@ -3255,8 +3178,7 @@ de gagner une ou deux couronnes sur les marchands
 de papiers. Je ne comprends pas un grand homme de”
 cette manière basse.
 
-Non. Je vois dans Ibsen, à l'hôtel, une image taci-
-turne et séduisante du voyageur sédentaire, en son
+Non. Je vois dans Ibsen, à l'hôtel, une image taciturne et séduisante du voyageur sédentaire, en son
 
 exil sans retour. Il porte la vie du solitaire à ces limites
 confuses, où elle cesse presque d'être humaine. Se"
@@ -3297,8 +3219,7 @@ jeunesse est éternelle, et le charme, et la folie: même
 ; les tempêtes, quand elles tuent, emportent la pensée
 dans un tourbillon magnifique. Mais l'intelligence est
 ; un glacier solitaire; et il faut finir la nuit, couché sur …
-: L'orgueil de l'esprit est un artisan d'ennui incompa-
-rable. C'est le tisserand des ténèbres. Partout la nuit, "8
+: L'orgueil de l'esprit est un artisan d'ennui incomparable. C'est le tisserand des ténèbres. Partout la nuit, "8
 la profonde nuit. L'intelligence ne prend connaissance"
 que de la nuit: seule à seul, il ne se peut pas que à
 l'homme la supporte. La nuit est le métier et la soie;
@@ -3369,9 +3290,7 @@ Il importe peu que ce que nous pensons nous
 désespère. Il nous faut penser comme nous sommes.
 
 .: En vertu de quoi nous avons des pensées contraires,
-le qui se combattent sans merci, image de notre contra-
-
-diction. Ibsen se contredit, comme nous sommes tous
+le qui se combattent sans merci, image de notre contradiction. Ibsen se contredit, comme nous sommes tous
 forcés de faire, si l'intelligence ne le cède pas en nous
 à la passion. Couché dans le désert glacé où l'empire
 du moi ne connaît pas de limites, il tremble de tous ses
@@ -3388,13 +3307,11 @@ encore. Le glacier, l'avalanche et la nuit lui font
 horreur; mais dans ce froid nocturne, il persiste à PAR
 croire qu'il a pas de plus belle couche pour un se
 homme. LAPS
-A À Dans les victoires de la raison, quel profond désen-
-chantement de la raison! Qu'elle est morte, dans toute
+A À Dans les victoires de la raison, quel profond désenchantement de la raison! Qu'elle est morte, dans toute
 sa gloire! Que sa parfaite logique est peu persuasive!
 . Qu'elle m'est de peu quand elle est tout! Il est bien
 vrai que je ne vis pas de théorèmes; et, à cet égard, NÉE
-différence du plus juste, du plus étendu en ses consé-
-pare au plus pauvre et sans suite, n'est pas grande. de
+différence du plus juste, du plus étendu en ses consépare au plus pauvre et sans suite, n'est pas grande. de
 è Jai connu tous les jours davantage combien l'amour et
 … la foi vont ensemble: la vie porte là-dessus. La foi est
 vraiment née de l'instinct; et l'instinct fait tourner les
@@ -3433,8 +3350,8 @@ en nombre infini, n'était pas à ne jamais être soi-même,
 supposé qu'il leur fût possible de choisir? — Bien loin
 qu'ils doivent l'être, qu'ils ne vivent au contraire qu'à
 la condition de ne l'être pas. La pire trivialité n'est
-point du tout d'être comme les autres; mais, n'ayant à;
-point recu le don mortel de l'originalité, de prétendre à …;
+point du tout d'être comme les autres; mais, n'ayant
+point recu le don mortel de l'originalité, de prétendre à
 en avoir une. O triste singerie! En vérité, c'est aux
 singes que le royaume des cieux n'est pas promis.
 l'Amertume
@@ -3445,8 +3362,7 @@ succombe. Je tremble à cause que j'aime. Je m'éveille
 dans l'épouvante, à cause de la splendeur du réveoùje!
 m'endors. Et l'horreur du néant se mesure à la beauté
 enivrante de vivre. 443160
-Quand on mesure la passion la plus puissante et l'ef-
-fort le plus noble de l'âme à l'effet qui les suit, le cœur
+Quand on mesure la passion la plus puissante et l'effort le plus noble de l'âme à l'effet qui les suit, le cœur
 se brise de tristesse: la flèche trempée dans le curare
 ne contracte pas les muscles, et ne les frappe pas d'une A
 roideur plus convulsive. La déception est encore plus 4 » tétanique, si l'on compte la force que l'on a pour agir
@@ -3459,8 +3375,7 @@ Quelle vaste dérision! Une moquerie inhumaiïne fait à
 mon immense perspective. Et je n'y puis répondre par
 la raïllerie: même jouée, mon âme ne joue pas. Vouée a
 au rêve, et en sachant la suprême vanité, elle préfère SA
-ses miracles à l'horrible insulte de ce désert. A la déri-
-sion de la vie, répond la grande amertume.
+ses miracles à l'horrible insulte de ce désert. A la dérision de la vie, répond la grande amertume.
 Déception perpétuelle, ennui total, vide au noyau des
 - passions les plus pleines, et, chemin faisant, une joie
 ‘merveilleuse qui n'a pas de sens, — rien ne pourra me
@@ -3593,8 +3508,7 @@ tu en sais bien la fin: ici un souffle; et la lumière est
 
 - le portrait d'Ibsen ste ASIE
 Les sages sont sans doute les médiocres, selon
-l'opinion des anciens. Et les médiocres sont les indiffé-
-rents. Mais les plus tristes aiment le plus la vie. Ils 4]
+l'opinion des anciens. Et les médiocres sont les indifférents. Mais les plus tristes aiment le plus la vie. Ils 4]
 sont l'âme du sablier qui s'écoule. La profonde amer- Fev
 tume est déjà sur la langue des hommes, qui ontbaigné
 de tout leur être dans la lumière du soleil, qui l'ont. 3)
@@ -3757,12 +3671,11 @@ repoussé le meilleur maître et le plus beau de tous, ne “4
 sont pas près de se livrer à la première puissance venue.
 Eût-elle nom « Humanité elle n'est pas si belle que
 son nom; et comme il faut toujours que des hommes
-vivants fassent un corps aux abstractions, pour qu'elles à;
+vivants fassent un corps aux abstractions, pour qu'elles
 aient l'air de vivre, celle-ci leur emprunte une laideur
 par trop insolente, même dans une idole.
 
-Que reste-t-il en cette extrémité? — Une douleur pas-
-sionnée d'avoir vécu, que le désespoir de mourir rend
+Que reste-t-il en cette extrémité? — Une douleur passionnée d'avoir vécu, que le désespoir de mourir rend
 manifeste; et le regret sans fin de l'unique bonheur:
 ? c'est le regret du grand amour; et, ne l'ayant pas recu,
 le remords de ne s'être pas entièrement donné soi-même. à
@@ -3773,10 +3686,8 @@ le plus dédaigneux des vieillards. Au banquet que lui
 offrirent les femmes libres, il fit en deux mots l'éloge de;
 la famille. Ayant dîné avec eux, il dit aux révolutionnaires
 qu'il allaït finir la soirée chez le roi; et aux courtisans
-il annonça, du ton discret ordinaire à son exquise poli-
-tesse, qu'il irait souper chez les anarchistes. Ce grand
-homme ne croit plus guère aux idées. L'artiste seul de-
-meure. Il est fidèle, par tempérament, à la fiction d'une
+il annonça, du ton discret ordinaire à son exquise politesse, qu'il irait souper chez les anarchistes. Ce grand
+homme ne croit plus guère aux idées. L'artiste seul demeure. Il est fidèle, par tempérament, à la fiction d'une
 vie libre et pure. Avant tout, sa fibre est morale: c'est
 elle qui fait le lien entre les contradictions. IL a la
 conscience forte, comme il a de gros os.;
@@ -3828,9 +3739,7 @@ moi, vous l'êtes en vain: je n'y crois plus.
 Je vous le dis amèrement: vous ne m'avez pas connu.
 La force de l'homme qui ne s'emploie ni dans la poli:
 tique, ni dans les journaux, ni dans les affaires, ni dans ni.:
-les armes est ce que l'on connaît le moins. Il n'est mé-
-
-decin où savant ingénieur qui ne se croie bien plus
+les armes est ce que l'on connaît le moins. Il n'est médecin où savant ingénieur qui ne se croie bien plus
 utile qu'un saint ou qu'un grand poète, — et, après
 tout, qui ne le soit. Je n'y contredis plus. Mais quand
 les gens d'affaires, le soir, se mettent au lit, ils se couchent assurés d'avoir donné un effort incomparable,
@@ -3866,7 +3775,7 @@ lauriers. Mais qui aime les tombes? On se glorifie
 le portrait d'Ibsen et
 d'elles, qui ne nous sont rien. En moi, vous ne vaniez.
 que vous. Je n'ai jamais pensé à vous vanter en moi.
-C'est l'amour qu'il me fallait, et quand je pouvais le …:
+C'est l'amour qu'il me fallait, et quand je pouvais le
 rendre, aussi vif, aussi chaud que je l'ai senti: jeune et” LE
 fort, comme j'étais, et comme il me semble si indigne
 de ne plus être. Alors, j'eusse vécu; et tout eût été
@@ -3887,13 +3796,11 @@ ceur de vivre, la joie des passions au soleil, l'ivresse
 de croire et de gravir la montagne, quand on ne pense
 même pas jamais descendre, voilà les biens que vous
 ne pouvez pas me donner. Pourtant vous avez me
-les prendre. Tous vos irésors prodigués ne me les ren-
-draïent pas. La fortune et la gloire, comme vous dites,
+les prendre. Tous vos irésors prodigués ne me les rendraïent pas. La fortune et la gloire, comme vous dites,
 ne sont que la rançon d'an prisonnier, que vous avez
 fait mourir dans sa prison, avant de le délivrer. Je suis
 maintenant captif de la mort. Perdu dans ce terrible
-infini du vide, où l'homme ne tombe peut-être au préci-
-pice que poussé par la désolation, ou pour avoir glissé
+infini du vide, où l'homme ne tombe peut-être au précipice que poussé par la désolation, ou pour avoir glissé
 sur l'arête d'une route glacée, — je roule maintenant
 sur la dernière pente.:
 
@@ -3906,8 +3813,7 @@ Je suis le type du meilleur homme, et du pire: celui EN
 qui ne peut plus vivre et qui vit cependant. L'horreur A
 de chaque vertu m'est présente, et le bien dans chaque )
 crime. Tout est condamné par l'homme, qui ne juge
-qu'en homme. Je suis celui qui sais vouloir et qui dé-
-teste sa volonté.
+qu'en homme. Je suis celui qui sais vouloir et qui déteste sa volonté.
 Je ne me plains pas: car de quoi serait-ce? Je devais
 être ce que je suis. Et vous deviez être ce que vous
 êtes. IL fallait que je finisse dans l'amertume de vos
@@ -3955,9 +3861,7 @@ premier exemplaire de souche, exemplaire du gérant;
 
 deuxième exemplaire de souche, exemplaire de l'ad- pie
 
-troisième exemplaire de souche, exemplaire de lim-
-
-dix exemplaires d'abonnement, numérotés de 1 à 10. De
+troisième exemplaire de souche, exemplaire de limdix exemplaires d'abonnement, numérotés de 1 à 10. De
 
 et sept exemplaires d'auteur numérotés d,e, À
 
@@ -3975,9 +3879,7 @@ sur whatman à cette dixième série est de deux cents à
 francs pour tous pays.:
 
 Les Cahiers de la Quinzaine sont composés à la main,
-en caractères fin dix-huitième siècle (Didot) de la fon-
-derie Mayeur (Allainguillaume et compagnie succes-
-seurs), 21, rue du Montparnasse, à Paris, sixième
+en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume et compagnie successeurs), 21, rue du Montparnasse, à Paris, sixième
 
 Notre catalogue analytique sommaire............
 À Secretside la puissance......:.....1..0

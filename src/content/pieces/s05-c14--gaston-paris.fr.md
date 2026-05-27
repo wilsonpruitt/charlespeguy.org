@@ -100,10 +100,9 @@ Réponse. — Il préférait le célibat (x) etrecommandait
 l'exemple de ceux qui deviennent eunuques (2) pour
 l'amour du Royaume des cieux. (3)
 43. Demande. — Quel était l'enseignement de Jésus
-touchant l'avenir ou le « Royaume des cieux »?
+touchant l'avenir ou le « Royaume des cieux
 Réponse. — Il enseignait que l'autre monde était plus
-important que celui-ci et, au lieu de s'efforcer de substi-
-tuer le bien à l'injustice dès lors et ici-bas, il conseillait
+important que celui-ci et, au lieu de s'efforcer de substituer le bien à l'injustice dès lors et ici-bas, il conseillait
 la non-résistance au mal. (4)
 44. Demande. — Que disait-il à ceux qui pleuraient et
 ; souffraient, et qui étaient persécutés et dépouillés de
@@ -127,8 +126,7 @@ une préférence marquée pour saint Paul, le célibataire.
 demande. Et si quelqu'un t'ôte ce qui est à toi, ne le redemande pas. »
 (Luc, VI, 29-30.) — « Ne résiste pas au mal; et à celui qui te frappe à A
 1 une joue présente lui aussi l'autre. » (Luc, VI, 29.)
-(5) Matthieu, 12; et aussi: « Heureux ceux qui sont dans l'afflic-
-tion, car ils seront consolés. » (Matthieu, 4.) — « Vous êtes bienheuMN) reux, pauvres, parce que le Royaume des cieux est à vous. Vous êtes
+(5) Matthieu, 12; et aussi: « Heureux ceux qui sont dans l'affliction, car ils seront consolés. » (Matthieu, 4.) — « Vous êtes bienheuMN) reux, pauvres, parce que le Royaume des cieux est à vous. Vous êtes
 
 45. Demande. — Quel serait l'effet d'un pareil enseignement?
 
@@ -182,8 +180,7 @@ indignation contre tous ceux qui, sachant le bien, pré-!
 fèrent le mal.;
 53. Demande. — Dans l'ensemble, l'influence de Jésus à
 2 at-elle été bonne ou mauvaise?
-Réponse. — Ses paroles d'amour et de bonté ont par-
-fumé les siècles, mais ses doctrines théologiques ont Le
+Réponse. — Ses paroles d'amour et de bonté ont parfumé les siècles, mais ses doctrines théologiques ont Le
 1 causé beaucoup de haïne et d'effusion de sang.
 
 4. Demande. — Définissez le mot « église ».;
@@ -202,8 +199,7 @@ l'origine, l'Église devint un corps hiérarchisé.
 
 3. Demande. — Quelles sont les plus anciennes
 
-Réponse. — Les églises Catholique, Grecque, Armé-
-nienne et Nestorienne; et les églises modernes sont les
+Réponse. — Les églises Catholique, Grecque, Arménienne et Nestorienne; et les églises modernes sont les
 
 4. Demande. — Existe-t-il d'autres Églises?
 
@@ -213,7 +209,7 @@ LUS le monde! sans Dieu MNPANONPARARNNES
 Unitarienne, Universaliste, et Non-Sectarienne,— Unseca tarian.
 1 5. Demande. — Fraternisent-elles entre elles?
 Les progrès des sciences ont arrêté toutes les persécu-
-à; tions de secte à secte qui ont jadis déshonoré l'humajh nité.
+tions de secte à secte qui ont jadis déshonoré l'humajh nité.
 1 6. Demande. — Coopèrent-elles quelquefois sur le
 51 terrain de la charité et de la réforme des âmes?
 Réponse. — Plus dans ce pays (1) que dans aucun
@@ -281,10 +277,8 @@ cite ces terribles mots d'un prêtre catholique en réponse aux dats qui se plai
 {1 hérétiques: « Tuez, tuez tout réponditle prêtre, « Dieu reconnaîtra
 A les siens. » La joie de l'Europe catholique lors du massacre de la
 4 hi: Saint-Barthélemy fut si grande que le Parlement français décida
-qu'une procession annuelle serait instituée à Paris pour commé-
-morer le fait. Heureusement, cette mesure ne fut jamais exécutée.
-A A Rome, toutefois, Grégoire XIII organisa une procession qui par-
-courut les rues en chantant et louant Dieu pour le massacre des
+qu'une procession annuelle serait instituée à Paris pour commémorer le fait. Heureusement, cette mesure ne fut jamais exécutée.
+A A Rome, toutefois, Grégoire XIII organisa une procession qui parcourut les rues en chantant et louant Dieu pour le massacre des
 A hérétiques, Le même pape commanda aussi une fresque représen-!
 tant les scènes de massacre de la nuit de la Saint-Barthélemy, et
 LE on peut la voir encore aujourd'hui à la Chapelle Sixtine. Dans un
@@ -351,8 +345,7 @@ pied d'égalité avec l'État dans aucun pays? à
 4 subordonnée à l'Etat.
 de son influence pour empêcher le pape d'accorder le divorce.
 Henri se maria six fois, envoya trois femmes à l'échafaud, et fit
-aussi décapiter sir Thomas Moore pour avoir refusé de le recon-
-naître comme le chef suprême de l'Église. Léon a appelé
+aussi décapiter sir Thomas Moore pour avoir refusé de le reconnaître comme le chef suprême de l'Église. Léon a appelé
 Henri VII « le Défenseur de la Foi » pour avoirécrit contre Luther. À
 Henri VIII changea la formule du serment du couronnement
 à qui devint comme il suit: « Le roi jurera alors de mainténiret
@@ -461,10 +454,8 @@ de l'inspiration plénière de la Bible; un diable personnel;
 il 7. Demande. — Citez quelques-unes des doctrines
 4 orthodoxes que l'Église libérale accepte.
 ï Réponse. — Un Dieu personnel; Jésus sans péché;
-il l'immortalité de l'âme: le devoir de la prière; la supé-
-riorité de la Bible sur tout autre livre, et les rites du
-4 baptème et de la communion. Certaines Églises libé-
-rales sont plus rationalistes que d'autres.
+il l'immortalité de l'âme: le devoir de la prière; la supériorité de la Bible sur tout autre livre, et les rites du
+4 baptème et de la communion. Certaines Églises libérales sont plus rationalistes que d'autres.
 8. Demande. — Comment les Églises libérales justi-
 ) fient-elles la position qu'elles ont prise?
 Réponse. — Généralement d'après la Bible. à
@@ -596,9 +587,7 @@ n'existe pas de surnaturel, il est inutile de donner ici un exposé
 
 1 1. Demande. — Qu'est-ce qu'un credo?
 
-à Réponse. — Une règle de foi, c'est-à-dire une expres-
-
-sion autorisée des doctrines d'une Eglise. (1)
+à Réponse. — Une règle de foi, c'est-à-dire une expression autorisée des doctrines d'une Eglise. (1)
 
 ù 2. Demande. — Quelle est l'origine du mot?
 
@@ -685,9 +674,7 @@ Réponse. — La coutume générale a été d'admettre
 4 15. Demande. — Est-ce une bonne coutume?
 Réponse. — C'est une très mauvaise coutume, car
 3] elle nous prive du plus grand privilège de la vie, — la
-poursuite de la vérité; elle fait de la vérité la posses-
-
-ne sion d'une dénomination d'Église ou d'une secte, et la
+poursuite de la vérité; elle fait de la vérité la possesne sion d'une dénomination d'Église ou d'une secte, et la
 
 4 créature du climat ou des limites géographiques; et
 1 elle nous fait croire que tandis que nous sommes nous-
@@ -698,9 +685,7 @@ hommes sont damnés.
 1 46. Demande. — Parlez-moi maintenant du symbole
 
 Réponse. — Celui-ci a été formulé par une assemHN blée de 318 évêques dans la ville de Nicée, près de …
-Constantinople, en l'année 325. Ce concile a excom-
-
-munié les Ariens (1) et a fulminé l'anathème contre
+Constantinople, en l'année 325. Ce concile a excommunié les Ariens (1) et a fulminé l'anathème contre
 eux pour avoir mis en doute le dogme de la Trinité..
 
 17. Demande. — Quel est ensuite le plus important
@@ -777,8 +762,7 @@ paix soient maintenues dans les Églises, pour que toutes
 les hérésies soient supprimées et pour que les abus du
 culte soient empêchés; et l'article 4 du chapitre (5)
 porte: GIls (les hérétiques) peuvent être valablement
-cités à comparaître et poursuivis par le pouvoir sécu-
-lier. » Et le verset 109 du catéchisme porte que les
+cités à comparaître et poursuivis par le pouvoir séculier. » Et le verset 109 du catéchisme porte que les
 
 (1) Les calvinistes modernes admettent la probabilité de salut
 pour tous les enfants. — Schaff, volume page
@@ -873,8 +857,7 @@ grec signifient un tirage au sort ou un mode de votation
 4. Demande. — Que signifie ceci?
 Réponse. — Que les prêtres étaient désignés par un
 1 5. Demande. — Quelle autre explication donne-t-on?
-Réponse. — On a aussi supposé que le mot grec pou-
-vait se traduire par « rang » et que ce terme était
+Réponse. — On a aussi supposé que le mot grec pouvait se traduire par « rang » et que ce terme était
 
 (1) La formule de l'ordination est: « Reçois le Saint Esprit par
 À l'imposition de nos mains. »

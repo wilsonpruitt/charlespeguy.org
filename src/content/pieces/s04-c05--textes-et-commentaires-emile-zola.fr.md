@@ -102,8 +102,7 @@ passions qui les agitent et les gouvernent, et aussi de ses
 vices, de ses tristesses et de ses misères, des souffrances
 de ses déshérités, un tableau si saisissant et si vrai, que de
 sa contemplation se dégage aux yeux de tous, des plus
-aveugles comme des plus clairvoyants, la nécessité de por-
-ter remède à ces souffrances, de combattre ces vices,
+aveugles comme des plus clairvoyants, la nécessité de porter remède à ces souffrances, de combattre ces vices,
 d'adoucir ces tristesses.
 
 Qui donc peut avoir oublié ce foyer de travailleur, si
@@ -225,8 +224,7 @@ brise les idoles et qui fait les révolutions.
 Tandis qu'il posait une par une, avec son calme et sa
 sûreté coutumière, les assises de ce nouvel édifice, son
 imagination devançait encore la tâche d'aujourd'hui et lui
-en préparait d'autres pour demain. Ce passionné de gran-
-deur, qu'on a incriminé de bassesse et de terre à terre,
+en préparait d'autres pour demain. Ce passionné de grandeur, qu'on a incriminé de bassesse et de terre à terre,
 atteignait la chimère et l'utopie. Il avait déjà choisi les titres
 de ces quatre livres d'apostolat qu'il appelait des évangiles:
 Fécondité, Travail, Vérité, Justice. Le troisième est près de
@@ -256,8 +254,7 @@ Lyrique? C'est affaire de tempérament, et ne l'est point qui
 veut. Romantiques, nous le sommes tous, parce que nous
 procédons de ceux qui le furent. Zola connaissait trop bien
 la vraie science de la vie pour ignorer ce qu'on hérite: il a
-déclaré vingt fois qu'il continuait une évolution litté-
-raire et qu'il ne faisait pas une révolution. Certes même, il
+déclaré vingt fois qu'il continuait une évolution littéraire et qu'il ne faisait pas une révolution. Certes même, il
 se défia moins de ce romantisme invétéré, il s'efforça
 
 É moins de s'y dérober que Flaubert, qui écrivit, dit-on,
@@ -350,8 +347,7 @@ ceux qui ont eu-le privilège de pénétrer dans sa vie intime. Cette bonhomie e
 êtres aux choses, qui n'épargnait personne et cependant
 n'était point banale; cette timidité charmante qui faisait
 sa voix brève et embarrassée, son geste hâtif et court;
-cette vertu domestique, qui ne s'asservissait à aucun pré-
-jugé bourgeois, mais qui ne s'affranchissait non plus d'aucune haute obligation morale; enfin, cette simplicité qu'il
+cette vertu domestique, qui ne s'asservissait à aucun préjugé bourgeois, mais qui ne s'affranchissait non plus d'aucune haute obligation morale; enfin, cette simplicité qu'il
 ne cherchait pas, qu'il n'affectait pas, qui était simplement
 simple et qui me faisait toujours songer à cette boutade de
 Banville.: « Le plus simple est d'avoir du génie » — messiéurs, j'en veux rendre témoignage et me hâter; car je
@@ -395,8 +391,7 @@ image de leur œuvre et de leur vie.
 
 L'œuvre littéraire de Zola est immense. Vous venez
 d'entendre le président de la Société des Gens de
-lettres en définir le caractère avec une admirable pré-
-cision. Vous avez entendu le ministre de l'instruction
+lettres en définir le caractère avec une admirable précision. Vous avez entendu le ministre de l'instruction
 publique en développer éloquemment le sens intellectuel et moral. Permettez qu'à mon tour je la considère un moment devant vous.
 
 Messieurs, lorsqu'on la voyait s'élever pierre par
@@ -428,9 +423,7 @@ Telles furent ses haïines. Dans ses derniers livres,
 il montra tout entier son amour fervent de l'humanité. Il s'efforça de deviner et de prévoir une société
 
 Il voulait que sur la terre, sans cesse un plus grand
-nombre d'hommes fussent appelés au bonheur. Il espé-
-
-rait en la pensée, en la science. Il attendait de la force
+nombre d'hommes fussent appelés au bonheur. Il espérait en la pensée, en la science. Il attendait de la force
 nouvelle, de la machine, l'affranchissement progressif
 de l'humanité laborieuse.
 
@@ -463,9 +456,7 @@ justice et la vérité, m'est-il possible de garder le silence
 sur ces hommes acharnés à la ruine d'un innocent et
 qui, se sentant perdus s'il était sauvé, l'accablaient
 
-avec l'audace désespérée de la peur. Comment les écar-
-
-ter de votre vue alors que je dois vous montrer Zola se
+avec l'audace désespérée de la peur. Comment les écarter de votre vue alors que je dois vous montrer Zola se
 dressant, faible et désarmé devant eux? Puis-je taire
 
 leurs mensonges? Ce serait taire sa droiture héroïque.
@@ -632,14 +623,13 @@ suivons — de se contenter en pareil cas de généreuses
 une irrévérence qui me plaît: les rêves en prose ont du
 bon; la comptabilité aussi. Et, d'abord, il faudrait s'entendre... Inutile, ici, d'insister. Mais puisque France,
 avec raison, rapproche Zola de Tolstoi, je veux dire que
-la Cité d'Amour édifiée par le vieux mystique slave —:
+la Cité d'Amour édifiée par le vieux mystique slave
 dont je ne partage pas les doctrines — me paraît tout
 de même autrement sublime, autrement réelle et vivante
 que les Évangiles fumeux et grandiloquents de Zola. Je
 crois qu'elle sera plus chère à la conscience de l'avenir.
 
-Au total, et malgré ces réserves, une puissance indé-
-niable. L'auteur de Germinal vivra... Il n'a pas connu
+Au total, et malgré ces réserves, une puissance indéniable. L'auteur de Germinal vivra... Il n'a pas connu
 l'art suprême de créer à son image des âmes d'hommes,
 secret de quelques demi-dieux. La notion de beauté est
 absente de son épopée matérielle. Il n'a pas suscité de,
@@ -700,8 +690,7 @@ au lendemain de Rennes, l'admirable impression vécue
 lamnistie, quand il la vit acceptée par tous — même
 par Jaurès, « le grand Jaurès! » — quelle âpre douleur
 d'homme libre détaché de tous les partis! Sa dernière
-parole en public, dans un banquet où régnait, au des-
-sert, la fameuse « chaleur communicative fut: « Ne
+parole en public, dans un banquet où régnait, au dessert, la fameuse « chaleur communicative fut: « Ne
 nous félicitons pas... » Voilà l'attitude de l'Artiste en
 face du perpétuel, du nécessaire avortement qu'est
 toute action politique: il maintient les droits du solitaire, la sauvagerie de l'absolu. Qu'il se soit levé de la
@@ -872,10 +861,8 @@ Je ne l'ai plus revu. Mais je l'ai retrouvé dans ses
 actes et dans ses œuvres.
 
 Cette Lettre au Président de la République ne fit
-scandale que parce que le public ne savait rien. A pré-
-sent que nous sommes renseignés, c'est une surprise de
-la relire. Elle n'est pas scandaleuse. Elle est profondé-
-ment révolutionnaire. Mais elle est modeste, et même un
+scandale que parce que le public ne savait rien. A présent que nous sommes renseignés, c'est une surprise de
+la relire. Elle n'est pas scandaleuse. Elle est profondément révolutionnaire. Mais elle est modeste, et même un
 peu humble. Zola lui-même l'a fort bien jugée à son
 retour: « Et voilà que ma pauvre Lettre n'est plus au
 point, apparaît comme tout à fait enfantine, une simple
@@ -934,8 +921,7 @@ formidable insincérité. Les extraits des dernières
 Choses vues que nous avons lus dans les périodiques
 ne sont pas pour effacer cette impression. Le principat
 de Hugo était, en cutre, autoritaire. Le principat libre
-d'Émile Zola est fondé surtout sur sa formidable sincé-
-rité. C'est parce qu'il est sincère, parce qu'il se sent
+d'Émile Zola est fondé surtout sur sa formidable sincérité. C'est parce qu'il est sincère, parce qu'il se sent
 sincère, que Zola se croit réaliste, qu'il est à l'aise dans
 ses actes, un peu gêné dans ses œuvres, et qu'il fut ce
 que Hugo ne fut jamais, un protagoniste.
@@ -1014,8 +1000,7 @@ premier occupant et de la déshérence.
 
 On répond facilement à Sully-Prudhomme: « Il ne
 s'agit pas seulement d'élargir sa place à l'inégal banquet. Il s'agit aussi d'élargir sa place au travail, provisoirement inégal. Et si les nouveaux travailleurs produisent assez pour élargir le banquet lui-même, il n'y a
-plus aucun inconvénient à ce qu'ils occupent à ce banquet non des places empiétées, mais des places nou-
-velles. Que si les nouveaux travailleurs produisent plus
+plus aucun inconvénient à ce qu'ils occupent à ce banquet non des places empiétées, mais des places nouvelles. Que si les nouveaux travailleurs produisent plus
 qu'ils ne consomment, c'est tout avantage pour la
 
 J'abandonne ici cette comparaison du banquet, toujours un peu lourde et un peu inexacte. Je dis: « Si
@@ -1055,8 +1040,7 @@ Marianne enfante une race de bourgeois.
 Aussi louy;temps que Mathieu fait sa terre et sa ferme
 : avec ses bras, le roman peut sembler invraisemblable,
 il énonce un travail légitime, une production légitime,
-une vie légitime. Aussitôt que Mathieu réalise des béné-
-fices sur le travail de ses serviteurs et de ses servantes,
+une vie légitime. Aussitôt que Mathieu réalise des bénéfices sur le travail de ses serviteurs et de ses servantes,
 — et cela ne manque pas d'arriver, bien que le roman
 une immense étendue de terres et fournit de l'argent
 pour acheter l'usine, — aussitôt que Mathieu devient;
@@ -1108,8 +1092,7 @@ finissaient par des victoires. Ce négociant, dont Pactivité féconde gagnait d
 manger les Séguin, oisifs, impuissants, frappés de stérilité. Et, dans la débâcle de leur fortune, dans la dispersion-du ménage et de la famille, il s'était taillé sa part,
 il avait voulu l'hôtel de l'avenue d'Antin... » (1) « Maintenant, l'hôtel entier revivait, plus luxueux encore, empli
 l'hiver d'un bruit de fêtes, égayé du rire des quatre
-enfants, de l'éclat de cette fortune vivante que renouve-
-lait sans cesse l'effort de la conquête. » (2) Je demande
+enfants, de l'éclat de cette fortune vivante que renouvelait sans cesse l'effort de la conquête. » (2) Je demande
 
 simplement quelle différence il y a entre cet Ambroise
 et un homme de proie. Je demande combien cet
@@ -1165,10 +1148,8 @@ dans la gaie journée de printemps, la campagne éclaiante, chantante, odorante,
 triomphale de cette beauté de la mère qui, le sein libre
 sous le soleil, aux yeux du vaste horizon, allaitait son
 enfant. » (2) « De toutes parts, la vie féconde charriaït -
-les germes, créait, enfantait, nourrissait. Et, pour l'éter-
-nelle œuvre de vie, l'éternel fleuve de lait coulait par le
-monde. » (3) Jamais sans doute un hymne aussi écla-
-tant ne fut chanté à la gloire de Vénus perpétuelle, et
+les germes, créait, enfantait, nourrissait. Et, pour l'éternelle œuvre de vie, l'éternel fleuve de lait coulait par le
+monde. » (3) Jamais sans doute un hymne aussi éclatant ne fut chanté à la gloire de Vénus perpétuelle, et
 
 près de cette ardente prière le Sacre de la Femme semblera un excellent exercice de bonne rhétorique. Pourquoi faut-il que les enfants nourris de ce lait, qui au
 commencement de ce livre bondissaient innocemment
@@ -1195,9 +1176,7 @@ dans l'humanité des mœurs conformes à ces lois
 Levons nos regards humains vers les dieux du ciel.
 Vénus ne fut pas une déesse de paix, de bonté. Si
 Iahvèh fut un dieu jaloux, les dieux de l'Olympe étaient
-des dieux envieux. Les dieux d'en haut n'ont pas tou-
-
-cinquième cahier. de la quatrième série
+des dieux envieux. Les dieux d'en haut n'ont pas toucinquième cahier. de la quatrième série
 jours aimé la fécondité humaine. La morne Niobé
 ne s'enorgueillit pas un long temps de ses sept filles
 et de ses sept fils.
@@ -1220,8 +1199,7 @@ charité, il s'arrête beaucoup trop tôt. Mais cela vaut
 assurément beaucoup mieux que de rester bourgeois
 simplement. Fécondité n'est pas un livre de bonté,
 Fécondité n'est pas un livre de paix. prie qu'on le
-relise et que l'on n'oublie pas de voir cette guerre inces-
-sante. Ne nous laissons pas séduire à un nouvel artifice
+relise et que l'on n'oublie pas de voir cette guerre incessante. Ne nous laissons pas séduire à un nouvel artifice
 quelques exceptions près, une victoire si facile, si
 écrasante, si abondante, que la pensée du lecteur ne À
 s'attache pas à la considération de la bataille. Mais les À
@@ -1267,8 +1245,7 @@ succédant à l'usine à son frère Blaise assassiné, veut
 cependant que l'on prélève « sur les bénéfices une pension pour Charlotte, la veuve ». (1) Et l'auteur estime
 que c'est par une honnêteté délicate. Parmi les « cent
 cinquants-huit enfants, petits-enfants, arrière-petitsenfants, sans compter quelques petits derniers-nés, ceux
-de la quatrième génération » (2) qui figurent uniformé-
-ment au grand banquet des noces de diamant, il doit y
+de la quatrième génération » (2) qui figurent uniformément au grand banquet des noces de diamant, il doit y
 avoir, si le livre est conforme aux réalités de la vie,
 sous l'apparente uniformité de la fète en commun, des
 riches et des pauvres. Et même avant, si l'avant-dernier
@@ -1307,9 +1284,7 @@ même le coup de feu ». (2) Des coups de fusil lointains
 sont tout de même des coups de fusil. Tirer un coup de
 fusil ailleurs qu'au stand est une opération grave.
 
-Loin que Fécondité soit un livre d'humanité, de soli-
-
-cinquième cahier de la quatrième série
+Loin que Fécondité soit un livre d'humanité, de solicinquième cahier de la quatrième série
 darité, c'est le livre de la conquête de l'humanité par
 
 les Froment. C'est, en un sens, le recommencement,
@@ -1339,9 +1314,7 @@ le Père et la Mère seront morts. S'ils ne font qu'une
 nation de plus parmi les nations, que m'importe? S'ils
 ne font qu'une jeune nation parmi les vieilles nations,
 que m'importe? Auront-ils des guerres civiles, aurontils entre eux l'horreur des guerres fraternelles? Mais
-toutes les guerres ne sont-elles pas des guerres frater-
-
-nelles? Et quand les Froment seront nombreux comme
+toutes les guerres ne sont-elles pas des guerres fraternelles? Et quand les Froment seront nombreux comme
 les Anglais, quand leur envahissement sera barré,
 feront-ils des expéditions pour passer le Vaal? Feront-ils
 eux-mêmes la guerre? La feront-ils faire à des mercenaires? Auront-ils des esclaves, comme ils ont des salariés? Tout cela finira-t-il par du nationalisme?
@@ -1469,8 +1442,7 @@ presque autant à nous décrire et à nous conter le bonheur et le bien. Mais pr
 bien et le mal, tous les genres du mal et tous les genres
 
 dans la réalité de la vie, ce n'est pas la constante
-juxtaposition du bien et du mal: c'est leur interpéné-
-tration, c'est leur mutuelle incorporation, leur nourriture mutuelle, et, parfois, leur étrange, leur mystérieuse
+juxtaposition du bien et du mal: c'est leur interpénétration, c'est leur mutuelle incorporation, leur nourriture mutuelle, et, parfois, leur étrange, leur mystérieuse
 parenté. La psychologie de Zola est évidemment contemporaine des théories qui voulaient expliquer toute
 l'âme et tout l'esprit par l'association des idées. Elle
 ignore les théories récentes, ou plutôt les constatations
@@ -1479,9 +1451,7 @@ hypothèses étaient grossières encore. C'est pour
 cela que les volitions sont si souvent grossières dans
 les œuvres de Zola. Elles ne sont pas vraiment des
 
-(1) Henri Bergson. — Essai sur les données immédiates de la con-
-
-science. — Matière et mémoire.
+(1) Henri Bergson. — Essai sur les données immédiates de la conscience. — Matière et mémoire.
 
 cinquième cahier de la quatrième série
 volitions, les volitions de personnes humaines qui
@@ -1559,8 +1529,7 @@ le laid comme le Dieu d'Aristoie ignorait le monde
 imparfait. Il est malsain que les enfants emportent
 et gardent dans leur mémoire l'image laide des ilotes
 ivres. Il est malsain que les enfants qui passent rue
-Souflot gardent dans leur mémoire les images d'ivro-
-gnerie que la maison Delagrave exposait derrière les
+Souflot gardent dans leur mémoire les images d'ivrognerie que la maison Delagrave exposait derrière les
 barreaux de ses vitrines. Les images de la laïdeur sont
 laides. Les images de la laideur sont, en un sens, plus
 redoutables que la laideur même, étant pour ainsi dire
@@ -1674,8 +1643,7 @@ francs cinquante. Elle y est précédée, au verso du fauxtitre, de la déclarat
 
 Ces pages ont paru dans l'Aurore, le 13 janvier 1898.
 
-Ce qu'on ignore, c'est qu'elles furent d'abord imprimées en une brochure, comme les deux Letires précé-
-dentes. (1) Au moment de mettre cette brochure en
+Ce qu'on ignore, c'est qu'elles furent d'abord imprimées en une brochure, comme les deux Letires précédentes. (1) Au moment de mettre cette brochure en
 vente, la pensée me vint de donner à ma Lettre une
 publicité plus large, plus retentissante, en la publiant
 dans un journal. Z'Aurore avait déjà pris parti, avec
@@ -1700,8 +1668,7 @@ honteuse, de la plus ineffaçable des taches?
 
 Vous êtes sorti sain et sauf des basses calomnies,
 vous avez conquis les cœurs. Vous apparaissez rayonnant dans l'apothéose de cette fête patriotique que
-l'alliance russe a été pour la France, et vous vous pré-
-parez à présider au solennel triomphe de notre Exposition universelle, qui couronnera notre grand siècle de
+l'alliance russe a été pour la France, et vous vous préparez à présider au solennel triomphe de notre Exposition universelle, qui couronnera notre grand siècle de
 travail, de vérité et de liberté. Mais quelle tache de
 boue sur votre nom — j'allais dire sur votre règne —
 que cette abominable affaire Dreyfus! Un conseil de
@@ -1790,8 +1757,7 @@ sous-chef de l'état-major, le général Gonse, dont la
 conscience a s'accommoder de beaucoup de choses.
 Mais, au fond, il n'y a d'abord que le commandant
 du Paty de Clam, qui les mène tous, qui les hypnotise,
-car il s'occupe aussi de spiritisme, d'occultisme, il converse avec les esprits. On ne croira jamais (x) les expé-
-riences auxquelles il a soumis le malheureux Dreyfus,
+car il s'occupe aussi de spiritisme, d'occultisme, il converse avec les esprits. On ne croira jamais (x) les expériences auxquelles il a soumis le malheureux Dreyfus,
 les pièges dans lesquels il a voulu le faire tomber, les
 enquêtes folles, les imaginations monstrueuses, toute
 une démence torturante.
@@ -1809,13 +1775,10 @@ ici, d'où sortir plus tard le vrai crime, l'épouvantable
 déni de justice dont la France est malade. Je voudrais
 faire toucher du doigt comment l'erreur judiciaire a
 être possible, comment elle est née des machinations
-(4) La Vérité en marche porte: On ne saurait concevoir les expé-
-
-du commandant du Paty de Clam, comment le général
+(4) La Vérité en marche porte: On ne saurait concevoir les expédu commandant du Paty de Clam, comment le général
 Mercier, les généraux de Boisdeffre et Gonse ont s'y
 laisser prendre, engager peu à peu leur responsabilité
-dans cette erreur, qu'ils ont cru devoir, plus tard, impo-
-ser comme la vérité sainte, une vérité qui ne se discute
+dans cette erreur, qu'ils ont cru devoir, plus tard, imposer comme la vérité sainte, une vérité qui ne se discute
 même pas. Au début, il n'y a donc, de leur part, (1) que
 de l'incurie et de l'inintelligence. Tout au plus, les sent-on
 céder aux passions religieuses du milieu et aux préjugés de l'esprit de corps. Ils ont laissé faire la sottise.
@@ -1868,9 +1831,7 @@ Donc, il ne restait que le bordereau, sur lequel les
 experts ne s'étaient pas entendus. On raconte que, dans
 la chambre du conseil, les juges allaient naturellement
 acquitter. Et, dès lors, comme l'on comprend lobstination désespérée avec laquelle, pour justifier la condamnation, on aflirme aujourd'hui l'existence d'une
-pièce secrète, accablante, la pièce qu'on ne peut mon-
-
-trer, qui légitime tout, devant laquelle nous devons
+pièce secrète, accablante, la pièce qu'on ne peut montrer, qui légitime tout, devant laquelle nous devons
 nous incliner, le bon Dieu invisible et inconnaissable! (1)
 Je la nie, cette pièce, je la nie de toute ma puissance!
 Une pièce ridicule, oui, peut-être la pièce où il est
@@ -1878,8 +1839,7 @@ question de petites femmes, et où il est parlé d'un certain D... qui devient t
 doute trouvant qu'on ne lui payait pas sa femme assez
 cher. Mais une pièce intéressant la défense nationale,
 qu'on ne saurait produire sans que guerre fût déclarée demain, non, non! c'est un mensonge! Et (5) cela est
-d'autant plus odieux et cynique qu'ils mentent impuné-
-ment sans qu'on puisse les en convaincre. Ils ameutent
+d'autant plus odieux et cynique qu'ils mentent impunément sans qu'on puisse les en convaincre. Ils ameutent
 la France, ils se cachent derrière sa légitime émotion,
 ils ferment les bouches en troublant les cœurs, en pervertissant les esprits. Je ne connais pas de plus grand
 
@@ -1983,9 +1943,7 @@ Puis, tout d'un coup, il paye d'audace, il étonne Paris
 
 par la violence de son attitude. C'est que du secours lui
 
-était venu, il avait reçu une lettre anonyme l'avertis-
-
-sant des menées de ses ennemis, une dame mystérieuse
+était venu, il avait reçu une lettre anonyme l'avertissant des menées de ses ennemis, une dame mystérieuse
 s'était même dérangée de nuit pour lui remettre une
 pièce volée à l'état-major, qui devait le sauver. Et je ne
 
@@ -2103,8 +2061,7 @@ ministère vraiment fort et d'un patriotisme sage, qui
 osera tout y refondre et tout y renouveler? Que de gens
 je connais qui, devant une guerre possible, tremblent
 d'angoisse, en sachant dans quelles mains est la défense
-nationale! et quel nid de basses intrigues, de commé-
-rages et de dilapidations, est devenu cet asile sacré,
+nationale! et quel nid de basses intrigues, de commérages et de dilapidations, est devenu cet asile sacré,
 où se décide le sort de la patrie! On s'épouvante devant
 le jour terrible que vient d'y jeter l'affaire Dreyfus, ce
 sacrifice humain d'un malheureux, d'un « sale juif
@@ -2196,8 +2153,7 @@ et il est temps de conclure.
 J'accuse le lieutenant-colonel du Paty de Clam d'avoir
 été l'ouvrier diabolique de l'erreur judiciaire, en
 inconscient, je veux le croire, et d'avoir ensuite défendu
-son œuvre néfaste, depuis trois ans, par les machina-
-üons les plus saugrenues et les plus coupables.
+son œuvre néfaste, depuis trois ans, par les machinaüons les plus saugrenues et les plus coupables.
 
 J'accuse le général Mercier de s'être rendu complice,
 tout au moins par faiblesse d'esprit, d'une des plus
@@ -2219,8 +2175,7 @@ esprit de corps qui fait des bureaux de la guerre l'arche
 J'accuse le général de Pellieux et le commandant
 Ravary d'avoir fait une enquête scélérate, j'entends
 par une enquête de la plus monstrueuse partialité,
-dont nous avons, dans le rapport du second, un impé-
-rissable monument de naïve audace.
+dont nous avons, dans le rapport du second, un impérissable monument de naïve audace.
 
 J'accuse les trois experts en écritures, les sieurs
 Belhomme, Varinard et Couard, d'avoir fait des rapports mensongers et frauduleux, à moins qu'un examen
@@ -2349,8 +2304,7 @@ Depuis trois années, je rassemblais les documents de ce
 grand ouvrage et le présent volume était même écrit lorsque
 la chute des Bonaparte, dont j'avais besoin comme artiste,
 et que toujours je trouvais fatalement au bout du drame, sans
-oser l'espérer si prochaine, est venue me donner le dénoüù-
-ment terrible et nécessaire de mon œuvre. Celle-ci est, dès
+oser l'espérer si prochaine, est venue me donner le dénoüùment terrible et nécessaire de mon œuvre. Celle-ci est, dès
 aujourd'hui, complète; elle s'agite dans un cercle fini, elle
 devient le tableau d'un règne mort, d'une étrange époque
 de folie et de honte.
@@ -2400,11 +2354,8 @@ qui ne mente pas et qui ait l'odeur du peuple. Et il ne faut
 point conclure que le peuple tout entier est mauvais, car
 mes personnages ne sont pas mauvais, ils ne sont qu'ignorants et gâtés par le milieu de rude besogne et de misère
 où ils vivent. Seulement, il faudrait lire mes romans, les
-comprendre, voir nettement leur ensemble, avant de porter les jugements tout faits, grotesques et odieux, qui cir-
-
-culent sur ma personne et sur mes œuvres. Ah! si l'on
-savait combien mes amis s'égayent de la légende stupé-
-fiante dont on amuse les foules! Si l'on savait combien le
+comprendre, voir nettement leur ensemble, avant de porter les jugements tout faits, grotesques et odieux, qui circulent sur ma personne et sur mes œuvres. Ah! si l'on
+savait combien mes amis s'égayent de la légende stupéfiante dont on amuse les foules! Si l'on savait combien le
 buveur de sang, le romancier féroce, est un digne bourgeois, un homme d'étude et d'art, vivant sagement dans
 son coin, et dont l'unique ambition est de laisser une
 œuvre aussi large et aussi vivante qu'il pourra! Je ne
@@ -2522,8 +2473,7 @@ ont des nerfs sensibles de jeune fille. Ilest bien évident que
 mon œuvre apparlient à mes juges, et qu'ils peuvent la
 trouver nauséabonde sans que j'aie le droit de réclamer.
 Ce dont je me plains, c'est que pas un des pudiques journalistes qui ont rougi en lisant Thérèse Raquin ne me
-paraît avoir compris ce roman. S'ils l'avaient compris, peut-
-être auraient-ils rougi davantage, mais au moins je goûterais à cette heure l'intime satisfaction de les voir écœurés
+paraît avoir compris ce roman. S'ils l'avaient compris, peutêtre auraient-ils rougi davantage, mais au moins je goûterais à cette heure l'intime satisfaction de les voir écœurés
 à juste titre. Rien n'est plus irritant que d'entendre d'honnêtes écrivains crier à la dépravation, lorsqu'on est intimement persuadé qu'ils crient cela sans savoir à propos de
 quoi ils le crient.
 
@@ -2537,8 +2487,7 @@ personnages souverainement dominés par leurs nerfs et
 leur sang, dépourvus de libre arbitre, entraînés à chaque
 acte de leur vie par les fatalités de leur chair. Thérèse et
 Laurent sont des brutes humaines, rien de plus. J'ai cherché à suivre pas à pas dans ces brutes le travail sourd des
-passions, les poussées de l'instinct, les détraquements céré-
-braux survenus à la suite d'une crise nerveuse. Les amours
+passions, les poussées de l'instinct, les détraquements cérébraux survenus à la suite d'une crise nerveuse. Les amours
 de mes deux héros sont le contentement d'un besoin; le
 meurtre qu'ils commettent est une conséquence de leur
 adultère, conséquence qu'ils acceptent comme les loups
@@ -2567,10 +2516,8 @@ tout entier encore aux graves jouissances de la recherche
 du vrai, d'entendre des gens vous accuser d'avoir pour
 unique but la peinture de tableaux obscènes. Je me suis
 trouvé dans le cas de ces peintres qui copient des nudités,
-sans qu'un seul désir les effleure, et qui restent profondé-
-ment surpris lorsqu'un critique se déclare scandalisé par
-les chairs vivantes de leur œuvre. Tant que j'ai écrit Thé-
-rêse Raquin, j'ai oublié le monde, je me suis perdu dans la
+sans qu'un seul désir les effleure, et qui restent profondément surpris lorsqu'un critique se déclare scandalisé par
+les chairs vivantes de leur œuvre. Tant que j'ai écrit Thérêse Raquin, j'ai oublié le monde, je me suis perdu dans la
 copie exacte et minutieuse de la vie, me donnant tout entier
 à l'analyse du mécanisme humain, et je vous assure que
 les amours cruelles de Thérèse et de Laurent n'avaient pour
@@ -2649,13 +2596,11 @@ tuiles, sans que je sache pourquoi.
 Il n'y a guère, à notre époque, que deux ou trois hommes
 qui puissent lire, comprendre et juger un livre. De ceux-là
 je consens à recevoir des leçons, persuadé qu'ils ne parleront pas sans avoir pénétré mes intentions et apprécié les
-résultats de mes efforts. Ils se garderaient bien de prononcer les grands mots vides de moralité et de pudeur litté-
-raire; ils me reconnaîtraient le droit, en ces temps de
+résultats de mes efforts. Ils se garderaient bien de prononcer les grands mots vides de moralité et de pudeur littéraire; ils me reconnaîtraient le droit, en ces temps de
 liberté dans l'art, de choisir mes sujets où bon me semble,
 ne me demandant que des œuvres consciencieuses, sachant
 que la sottise seule nuit à la dignité des lettres. À coup sùr,
-l'analyse scientifique que j'ai tenté d'appliquer dans Thé-
-rèse Raquin ne les surprendrait pas; ils y retrouveraient
+l'analyse scientifique que j'ai tenté d'appliquer dans Thérèse Raquin ne les surprendrait pas; ils y retrouveraient
 la méthode moderne, l'outil d'enquête universelle dont le
 siècle se sert avec tant de fièvre pour trouer l'avenir.
 Quelles que dussent être leurs conclusions, ils admettraient
@@ -2751,8 +2696,7 @@ une ligne, certain que ces pages sont lexpression complète
 d'un cœur dans lequel il y a plus de lumière que d'ombre.
 Elles ont été écrites par un enfant nerveux et aimant qui
 s'est donné entier, avec les frissons de sa chair et les élans
-de son âme. Elles sont la manifestation maladive d'un tempérament particulier qui a l'âpre besoin du réel et les espé-
-rances menteuses et douces du rêve. Tout le livre est là,
+de son âme. Elles sont la manifestation maladive d'un tempérament particulier qui a l'âpre besoin du réel et les espérances menteuses et douces du rêve. Tout le livre est là,
 dans la lutte entre le songe et la réalité. Si les amours
 honteuses de Claude le font juger sévèrement, qu'on lui
 pardonne au dénoùment, lorsqu'il se relève plus jeune et )
@@ -2888,7 +2832,7 @@ réunissant un jour en un volume, de donner une histoire
 du roman naturaliste, étudié dans les chefs qui en ont suc-.
 cessivement apporté et modifié la formule.
 On se souvient peut-être du vacarme que souleva mon
-étude sur les romanciers contemporains, qu'on trouvera à:
+étude sur les romanciers contemporains, qu'on trouvera
 la fin de ce volume. Aujourd'hui seulement, elle y prend
 son vrai sens, sa valeur exacte. Elle n'est, après les autres
 études, qu'une suite de notes rapides, destinées à rendre;
@@ -3238,8 +3182,7 @@ hurlait: « Pas l'auteur! pas l'auteur! » Mon nom aurait été
 , une indécence, que les honnêtes gens qui étaient là, ne se
 seraient pas fâchés avec une indignation de pudeur plus
 
-Et je ne parle pas de la critique. J'ai collectionné pré-
-cieusement tous les articles publiés, j'ai créé pour chaque
+Et je ne parle pas de la critique. J'ai collectionné précieusement tous les articles publiés, j'ai créé pour chaque
 pièce un dossier, que j'ai mis à mürir dans mon grenier.
 Un jour, je compte en secouer la poussière et faire un petit
 travail. Certaines citations, avec le temps, pourront prendre
@@ -3287,8 +3230,7 @@ Les Soirées de Médan, édition complète en un
 volume, 298 pages, dont 50 de Zola;
 
 Les nouvelles qui suivent ont été publiées, les unes en
-France, les autres à l'étranger. Elles nous ont paru procé-
-der d'une idée unique, avoir une même philosophie: nous
+France, les autres à l'étranger. Elles nous ont paru procéder d'une idée unique, avoir une même philosophie: nous
 les réunissons.
 
 Nous nous attendons à toutes les attaques, à la mauvaise
@@ -3328,8 +3270,7 @@ français, attendait dans un silence voulu et douloureux
 l'heure de la justice, ce travail n'était pas destiné à la
 publicité; il devait être offert à l'auteur des RougonMacquart en un exemplaire unique, comme l'hommage tout
 personnel d'un passant, d'un admirateur inconnu. Mais,
-après examen, on a pensé que le public et le monde litté-
-raire accueilleraient avec faveur cette sorte de table
+après examen, on a pensé que le public et le monde littéraire accueilleraient avec faveur cette sorte de table
 analytique, véritable annexe utile à tous ceux qui, désormais, voudront étudier rationnellement « Histoire naturelle et sociale d'une famille sous le second Empire ». Si,
 en effet, le Docteur Pascal est la conclusion scientifique de
 cette œuvre immense, s'il résume en larges traits la vie
@@ -3355,8 +3296,7 @@ ministres du jour tant de contradictions et de palinodies.
 Et quelle saisissante enquête sociale que ce résumé où les
 représentants des vieilles classes, le marquis de Bohain, le
 comte de Beauvilliers, le marquis de Chouard, se coudoient
-avec le banquier-roi Gundermann, l'actionnaire Léon Gré-
-goire, l'industriel Deneulin, l'avoué des Jésuites Théophile
+avec le banquier-roi Gundermann, l'actionnaire Léon Grégoire, l'industriel Deneulin, l'avoué des Jésuites Théophile
 Venot, Son Altesse Royale le prince d'Écosse, futur souverain étranger, — tous ces dirigeants mélangés aux humbles, aux désespérés, aux vaincus de la terre et dela mine,
 aux révoltés aussi, le logicien Sigismond Busch, l'instituteur
 Lequeu et le plus résolu de tous, l'implacable ennemi des
@@ -3383,8 +3323,7 @@ commun, la pureté de l'idéal, avec la farouche Annouchka,
 qui meurt courageusemient pour sa foi. Et si la critique est
 
 en veine de découvertes, elle doit apercevoir, à travers les
-rudesses des Rougon-Macquart, toute une pléiade d'ado-
-rables femmes, telles que nul auteur féministe n'en imagina À
+rudesses des Rougon-Macquart, toute une pléiade d'adorables femmes, telles que nul auteur féministe n'en imagina À
 jamais. Si elle veut faire une étude sur les Femmes dans
 l'œuvre d'Émile Zola, elle ajoutera à tous ces noms ceux de
 Christine Hallegrain, de madame Caroline, de Clotilde
@@ -3476,8 +3415,7 @@ pages ne sont pas toujours de la méme densité: les
 caractères ne sont pas toujours du même œil ni du
 méme corps, ni les interlignes égales;:
 
-que ces quarante-sept volumes, marqués uniformé-
-ment à trois francs cinquante, font un prix marqué
+que ces quarante-sept volumes, marqués uniformément à trois francs cinquante, font un prix marqué
 total de 164 francs
 
 Nous sommes en mesure d'envoyer les quarante-six
@@ -3492,9 +3430,7 @@ sans compter les exemplaires non millésimés, des
 autres volumes, et sans compter les traductions, qui
 sont, paraît-il, innombrables.
 
-En dehors de la Bibliothèque-Charpentier, Char-
-
-pentier puis Fasquelle ont édité de Zola:
+En dehors de la Bibliothèque-Charpentier, Charpentier puis Fasquelle ont édité de Zola:
 
 pour la première fois à Paris, sur le théâtre de la
 
@@ -3505,9 +3441,7 @@ Les Héritiers Rabourdin, comédie en trois actes,
 représentée pour la première fois à Paris, sur le
 théâtre de Cluny, le 3 novembre 1874, un volume grand
 de 128 pages, avec une préface de pages, datée
-du premier décembre 1874, Paris, Charpentier et Com-
-
-pagnie, libraires-éditeurs, 28, quai du Louvre, 1874,
+du premier décembre 1874, Paris, Charpentier et Compagnie, libraires-éditeurs, 28, quai du Louvre, 1874,
 Renée, pièce en cinq actes, représentée pour la première fois, sur le théâtre du Vaudeville, à Paris, le
 16 avril 1887, un volume grand de 138 pages,
 dont une préface inédite de 32 pages, datée de Médan,
@@ -3547,8 +3481,7 @@ Humanité — Vérité — Justice. — L'affaire Dreyfus.
 Humanité — Vérité — Justice. — L'affaire Dreyfus.
 — Lettre à la France, une plaquette octavo de
 Humanité — Vérité — Justice. — L'affaire Dreyfus.
-— Lettre à M. Félix Faure, président de la Répu-
-blique, une plaquette octavo de 16 pages, Paris,
+— Lettre à M. Félix Faure, président de la République, une plaquette octavo de 16 pages, Paris,
 
 Enfin le catalogue de Fasquelle, février 1902, porte les
 .
@@ -3574,9 +3507,7 @@ Alaux, gravés à l'eau-forte par Manesse,
 
 un volume
 
-Les Soirées de Médan, un volume octavo, illus-
-
-tré de 6 compositions de Jeanniot, gravées à l'eau-forte
+Les Soirées de Médan, un volume octavo, illustré de 6 compositions de Jeanniot, gravées à l'eau-forte
 
 par Muller, et des portraits des six auteurs, eaux-fortes
 
@@ -3758,9 +3689,7 @@ mon dernier volume À bas la caserne!.… dès que j'aurais franchi l'Océan.
 Je ne crois pas que ces promesses aient été tenues.
 Mais j'étais si loin!.…
 
-M. de Pressensé ajouta que notre séparation ne dure-
-
-cinquième cahier de la quatrième série
+M. de Pressensé ajouta que notre séparation ne durecinquième cahier de la quatrième série
 rait pas. Il fut convenu, sur un ton moitié plaisant,
 moitié sérieux, que je trouverais des capitaux chez les
 Yankees, et que nous referions tous les deux la bonne
@@ -3780,8 +3709,7 @@ Nous nous quittâmes fort tard, avec des larmes dans
 les yeux.
 Il n'est donc pas juste d'écrire que M. de Pressensé
 m'a éliminé de l'Aurore. Si j'avais trouvé dans les
-Montagnes Rocheuses, d'où j'arrive, un gisement auri-
-fère, je rentrerais à Aurore par la grande porte et j'y
+Montagnes Rocheuses, d'où j'arrive, un gisement aurifère, je rentrerais à Aurore par la grande porte et j'y
 reprendrais, avec l'approbation de mon loyal ami,
 l'œuvre si nécessaire du nettoyage socialiste. Est-ce la
 faute de mon loyal ami si je n'ai pas trouvé le filon?

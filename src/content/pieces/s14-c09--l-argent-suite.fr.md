@@ -70,7 +70,7 @@ Les premiers chapitres nous donnent des images de
 la nature, de l'âme et de la vie américaines. Voici l'entrée Se
 de New-York, le pays, la ville, d'autres villes et leur
 campagne, quelques parties du Canada, différents types
-,: d'hommes et de femmes, quelques traits saillants du carac- QAR
+d'hommes et de femmes, quelques traits saillants du carac- QAR
 tère et de l'esprit nationaux, quelques formes de la vie;car
 
 toute généralisation hâtive a trop de chances d'être fausse.,
@@ -86,8 +86,7 @@ En étudiant les institutions américaines pour elles-mêmes,
 France est partout dans son livre,au premier plan ou dans;
 le lointain, ni dénigrée ni surfaite, sans optimisme de
 : commande, sans le pessimisme national; ce n'est pas au
-; moment où l'étranger réapprend le chemin de nos Universités et se remet à estimer notre culture qu'il siérait à per-
-sonne de la déprécier, à ceux-là surtout qui en ont rétabli
+; moment où l'étranger réapprend le chemin de nos Universités et se remet à estimer notre culture qu'il siérait à personne de la déprécier, à ceux-là surtout qui en ont rétabli
 le prestige. Un excellent patriotisme, ferme et délicat, anime
 ces pages. Aux forces et faiblesses de l'Amérique font pen-
 . dant, tant dans l'ordre matériel que dans l'ordre moral, nos
@@ -115,9 +114,7 @@ l'argent suite EEE
 é partis, elle n'a pas nos partis pris et nos violences. Elle
 nous enseigne la plus grande relativité de toutes choses, le
 sang-froid, les justes détachements. Regardons non de
-Sirius, lointain et démodé, mais de New-York: que de que-
-
-relles vont s'apaiser, d'antinomies disparaître! Avec sa
+Sirius, lointain et démodé, mais de New-York: que de querelles vont s'apaiser, d'antinomies disparaître! Avec sa
 supériorité dialectique, M. Lanson nous en donne quelques
 exemples frappants, dans des pages dont on peut penser
 qu'elles ne doivent rien à l'Amérique de leur naturelle
@@ -152,8 +149,7 @@ sans savoir pourquoi. Mais il ne s'agit peut-être pas de
 
 Que dirai-je de Sirius, lointain et démodé. Quelle Mer
 ne. vulgarité. Et cet emploi de antinomies est bien hasar- “SR
-deux et risque bien d'être impropre et purement litté-
-raire. Et pareillement cette supériorité dialectique, LE
+deux et risque bien d'être impropre et purement littéraire. Et pareillement cette supériorité dialectique, LE
 à même quand c'est celle de M. Lanson. La dialectique LAS
 est une science très particulière et M. Rudler n'a pas
 
@@ -163,9 +159,8 @@ trompe-t-on. Je demande: Qu'est-ce que la méthode.
 
 qui est faite la méthode. Et si nos maîtres sont lassés LUS
 de la méthode, qu'au moins ils le disent.
-94 C'est nous autres imbéciles, c'est nous écrivains, Ta
-La prosateurs, poètes, chroniqueurs, (et peut-être philo-
-pamphlétaires, portraitistes et animaliers, c'est nous “10
+C'est nous autres imbéciles, c'est nous écrivains, Ta
+La prosateurs, poètes, chroniqueurs, (et peut-être philopamphlétaires, portraitistes et animaliers, c'est nous “10
 
 À qui avons le droit d'aller passer trois mois en Amé- SD) pre
 rique et d'en revenir avec un trois cinquante et de #4
@@ -173,8 +168,7 @@ porter 298 pages chez Hachette, si Hachette veut.: De
 Mais M. Lanson est un scientifique. M. Lanson suit la 2000
 Le méthode. M. Lanson n'a pas le droit. M. Lanson n'aura ‘Xi
 le droit d'écrire un mot sur l'Amérique que quand il LAS
-aura épuisé la documentation et la littérature sur l'Amé-
-rique depuis le commencement des Incas et même avant, (42
+aura épuisé la documentation et la littérature sur l'Amérique depuis le commencement des Incas et même avant, (42
 À depuis toujours, (car chacun sait que l'Amérique du Le:
 Nord tient au Mexique et, par l'Amérique Centrale, à Es
 4 l'Amérique du Sud). C'est nous autres comédiens qui
@@ -251,8 +245,7 @@ fassent, qu'ils donnent un seul exemple contre eux, et
 aussitôt nous passons. Nous passons tous et nous
 passons touts; omnes toti. Si on fait un seul choix,;
 toute l'horizontalité se rompt. S'ils admettent une seule
-valeur, tout le système des valeurs remonte. S'ils choï-
-sissent une fois, nous choisissons toujours. Si sur leur
+valeur, tout le système des valeurs remonte. S'ils choïsissent une fois, nous choisissons toujours. Si sur leur
 océan de plomb ils font émerger une seule vague tout
 le système des valeurs remonte; et la hiérarchie; et
 et Dieu.
@@ -260,8 +253,7 @@ et Dieu.
 M. Rudler s'en est parfaitement aperçu. M. Rudler
 n'est pas aussi bête que M. Lanson le concède. Que
 l'on relise à présent l'article de M. Rudler. Cet article
-n'est qu'une apologie. Cet article n'est qu'une justifica-
-tion. Il est tout à fait évident que M. Rudler a fort bien à
+n'est qu'une apologie. Cet article n'est qu'une justification. Il est tout à fait évident que M. Rudler a fort bien à
 la difficulté. M. Rudler a fort bien qu'il s'agissait
 au fond d'excuser. Il a fort bien qu'il s'agissait de
 justifier M. Lanson d'avoir écrit un livre sur l'Amérique
@@ -292,8 +284,7 @@ envers M. Langlois. Pour nous M. Lavisse pouvait être
 À pas être un historien. Pareillement pour nous M. Lanson
 peut avoir du génie, (si nous voulons, telle est notre
 puissance). Mais ni pour M. Rudler ni pour M. Lanson
-M. Lanson ne peut avoir du génie, c'est-à-dire précisé-
-ment ce qui permet de faire un livre par saisie directe
+M. Lanson ne peut avoir du génie, c'est-à-dire précisément ce qui permet de faire un livre par saisie directe
 ; sur un voyage de trois mois et même de moins, parce
 que s'il y a seulement un génie qui monte à l'horizon;
 toute cette plaine rase de la science est dénivelée. S'il
@@ -361,9 +352,7 @@ enseigne quil faut du génie pour M. Lanson, j'ai peut-
 Nos maîtres ont-ils inventé une méthode pour nous la
 ï mettre dans les jambes et eux-mêmes s'y soustraire
 (5 aussi souvent qu'il leur plairait. Mais pour faire il
-entendre ce qui suivre il faut que j'emprunte moi-
-même la méthode, il faut que j'aie recours aux res-
-sources que nous offre la biographie.
+entendre ce qui suivre il faut que j'emprunte moimême la méthode, il faut que j'aie recours aux ressources que nous offre la biographie.
 Avant de donner cette suite à Plutarque je veux
 toutefois retenir cette phrase de M. Rudler, ou plutôt
 AN ces deux phrases de M. Rudler. J'ai bien le droit de
@@ -390,8 +379,7 @@ une secrète inquiétude. Elle perce dans tous les mots.!
 Cette affirmation presque violente du: C'est assez répond:
 à une incertitüde intérieure ou plutôt à la conviction du
 contraire. Le selon toute apparence est une réserve
-d'une conscience timorée. Le à condition est une contre-
-garantie et une contre-assurance, et nous avertit que
+d'une conscience timorée. Le à condition est une contregarantie et une contre-assurance, et nous avertit que
 nous n'aurions tout de même pas le droit d'en faire
 autant, parce que nous ne sommes pas capables d'un
 tel tour de force, parce que nous n'avons pas l'œil
@@ -427,26 +415,21 @@ ou plutôt qu'elles sont les sciences exactes, on ne veut
 pas dire qu'elles soient vraies; ni qu'elles soient réelles.
 On veut dire qu'elles sont les sciences exactes. On veut «
 dire qu'elles poussent au maximum et au parfait la
-connaissance ou au moins l'étude du point de discer-
-nement. Mais vous êtes libre, monsieur Rudler, de ne
+connaissance ou au moins l'étude du point de discernement. Mais vous êtes libre, monsieur Rudler, de ne
 pas être philosophe. La méthode dispense certainement
 de la philosophie.
 
 C'est encore une contre-assurance que prend M. Rudler
-et une contre-garantie quand il écrit: « car loute g'éné-
-ralisation hâtive a trop de chances d'être fausse. »
+et une contre-garantie quand il écrit: « car loute g'énéralisation hâtive a trop de chances d'être fausse. »
 
-de M. Lanson et de M. Andler. — Dans notre généra-
-
-tion, qui vit l'avènement de la méthode, deux hommes
+de M. Lanson et de M. Andler. — Dans notre génération, qui vit l'avènement de la méthode, deux hommes
 comptaient et furent les introducteurs de la méthode. de
 Ou plutôt les anteurs, les instaurateurs de la méthode.
 ! 6 magna. Ces deux hommes n'étaient pas A
 pas M. Andler et M. Lanson. Ces deux hommes étaient
 ai M. Andier et M. Langlois. Je ne dis pas qu'ils étaient;
 de notre génération. Ils étaient dans notre génération, Se
-génération pour agir immédiatement dans notre géné-
-ration. Ces deux hommes furent les véritables auteurs; à
+génération pour agir immédiatement dans notre génération. Ces deux hommes furent les véritables auteurs; à
 méthode parmi nous. Non point que je confonde ces
 deux hommes, ni même que je les appareiïlle. M. Lan-
 … glois était une tête historique. M. Andler était une tête
@@ -456,7 +439,7 @@ du tout le moment d'avoir envie de rire. AU
 4 est aujourd'hui directeur des Archives Nationales s'est
 fait une fois pamphlétaire pour mon usage personnel..
 
-4 C'est un grand honneur que l'on m'a fait. M. Langlois Ne
+C'est un grand honneur que l'on m'a fait. M. Langlois Ne
 
 Ê. était la tête historique. Rien de moins. Rien de plus. 1-8
 Tout ce qui est pensée, être lui est toujours demeuré CR: » étranger. M. Andler était un tout autre homme.
@@ -554,10 +537,7 @@ premier cours. Qui de nous n'a senti le frémissement de
 
 ce passage de l'enseignement secondaire à l'enseignement supérieur. Qui de nous ne se rappelle, comme
 
-élève, comme ancien élève, cet avènement de la dernière classe au premier cours. Nous croyions que l'en-
-seignement supérieur était encore l'enseignement secon-
-
-daire mais qu'il n'était plus secondaire. Nous croyions
+élève, comme ancien élève, cet avènement de la dernière classe au premier cours. Nous croyions que l'enseignement supérieur était encore l'enseignement secondaire mais qu'il n'était plus secondaire. Nous croyions
 
 que c'était l'enseignement secondaire continué, accru,
 plus haut, plus grand, épuré, plus humain, plus mûr, il
@@ -580,14 +560,11 @@ IL faut croire qu'il y a des hommes pour qui les âges
 n'existent pas, qui n'entendent pas couler le temps,
 succéder le jour, et pour qui ces nobles reposoirs d'une,
 longue existence ne sont jamais que les marches d'un!
-escalier. Ils gravissent toujours. Et jamais ils ne rési-
-
-dent. 11 faut avoir une nature bien ingrate, et une bien
+escalier. Ils gravissent toujours. Et jamais ils ne résident. 11 faut avoir une nature bien ingrate, et une bien
 pauvre âme, (s'il est encore permis de se servir ici et
 
 Es pour un tel sujet de ce beau nom d'âme), pour ne pas
-4 sentir, dans ces moments solennels, le temps irréver-
-sible, pour ne pas au moins enregistrer la date quise … «, marque. M. Lanson fit sa dernière classe. Il adressa à
+4 sentir, dans ces moments solennels, le temps irréversible, pour ne pas au moins enregistrer la date quise … marque. M. Lanson fit sa dernière classe. Il adressa à
 2 ses élèves une espèce d'allocution, d'un tel ton, leur
 disant qu'ils pensaient bien qu'il était bien content de
 
@@ -621,12 +598,10 @@ tout. Si celui-ci avait fait une /phigénie, c'était parce es
 qu'il était petitneveu de l'oncle de celui-ci qui en avait
 
 ébauché une, et il avait justement trouvé cette ébauche À
-dans les papiers de son beau-frère. Une fois s'expli-
-quait par les auteurs, une fois par les comédiens, une
+dans les papiers de son beau-frère. Une fois s'expliquait par les auteurs, une fois par les comédiens, une
 . fois par les gazettes, et une fois par les tréteaux. Tantôt
 ; c'était la faute à la cour, et tantôt c'était la faute à la
-ville. Tantôt c'était la faute aux gens du roi, (et peut-
-être au roi lui-même), et tantôt c'était la faute aux
+ville. Tantôt c'était la faute aux gens du roi, (et peutêtre au roi lui-même), et tantôt c'était la faute aux
 bourgeois du Maraïs. Il y avait aussi l'Église, et l'évêque, Il
 qui avaient affaire aux comédiens. Enfin c'était parfait.
 L'histoire du théâtre français était connue, percée,
@@ -650,8 +625,7 @@ s'encourage; et il essaye de penser à autre chose;
 vainement; ainsi nous nous encouragions et nous
 essayions de nous faire croire que ce Corneille n'était
 peut-être pas Corneille; qui sait; cette capitale qui se
-levait à l'horizon, cette capitale sur laquelle nous débou-
-chions, ce n'était peut-être pas la capitale Corneille.
+levait à l'horizon, cette capitale sur laquelle nous débouchions, ce n'était peut-être pas la capitale Corneille.
 
 Peut-être qu'en essayant de le prendre comme un autre
 33 en effet il serait comme un autre, en effet nous le ferions
@@ -698,10 +672,8 @@ libération souffla sur nous. Ainsi c'était Corneille. Cette
 fois on y était. On savait de quoi on parlait. Alors
 ; c'était lui, Corneille. On essaya bien de quereller encore
 le Cid, en appelant au secours Guilhem de Castro.
-Mais tout le monde avait compris que celui qui com-
-prend le mieux le Cid, c'est celui qui prend Le Cid au
-! ras du texte; dans l'abrasement du texte; dans le déra-
-sement du sol; et surtout celui qui ne sait pas l'histoire
+Mais tout le monde avait compris que celui qui comprend le mieux le Cid, c'est celui qui prend Le Cid au
+! ras du texte; dans l'abrasement du texte; dans le dérasement du sol; et surtout celui qui ne sait pas l'histoire
 du théâtre français.
 Un point d'épreuve aussi grave et sans doute plus
 tragique dans la deuxième carrière de M. Lanson fut
@@ -713,7 +685,7 @@ conter que dans le grave reculement de la vieillesse.
 J'ai commencé un Brunetière il y a quelques années,
 quand il vivait. Je ne pourrai l'achever, et le publier,
 
-à: que quand dix ou quinze ans auront passé sur la mort:
+que quand dix ou quinze ans auront passé sur la mort:
 de ce stoïcien. "8
 Ils devaient tout à Brunetière. Et un seul lui demeura
 fidèle. Je ne sais pas si dans toute l'histoire de ce ONE
@@ -754,15 +726,13 @@ du monde ofliciel. Mais il y eut une deuxième, ou une
 Brunetière. Ce fut ce tour de passe-passe incroyable par
 lequel on mit Brunetière à la porte de l'École Normale
 Supérieure, où il était maître de conférences, et tout ce
-qu'il y avait de plus légitimement, de plus régulièrement, de plus organiquement, de plus réglementaire-
-ment, de plus statutairement maître de conférences. Ce
+qu'il y avait de plus légitimement, de plus régulièrement, de plus organiquement, de plus réglementairement, de plus statutairement maître de conférences. Ce
 TA fut une assez bonne histoire, mon cher Massis. Car on
 fit à l'École Normale, uniquement pour faire sauter
 À Brunetière, le coup de la création discontinue. On ne
 savait pas que le gouvernement de ce temps-là était
 si cartésien. Je m'explique. Il y avait l'ancienne École
-Normale, qui était l'École Normale Supérieure. s'agisfx sait de la faire continuer en cette École Normale Infé-
-rieure, en cette nouvelle École Normale que nous
+Normale, qui était l'École Normale Supérieure. s'agisfx sait de la faire continuer en cette École Normale Inférieure, en cette nouvelle École Normale que nous
 connaissons. Et en outre, (car il n'y a pas de petits
 bénéfices), il s'agissait dans l'opération de semer Brunetière. Voici comment on procéda. Ce fut une assez
 bonne comédie, si tant d'injustice, et tant d'ingratitude,
@@ -776,13 +746,12 @@ mais qu'il se préoccupa vivement de ce qu'allait devenir
 le personnel de l'École Normale. Il fut entendu que le
 personnel de la nouvelle École Normale, introduit en
 
-- Sorbonne de quelque façon, aurait une situation person-
-nelle, si je puis dire, au moins égale à son ancienne es:
+- Sorbonne de quelque façon, aurait une situation personnelle, si je puis dire, au moins égale à son ancienne es:
 RE: situation; et généralement avantagée; et plus d'avenir.
 À Dès lors la réforme devenait excellente. Et comme on dit
 viable. Le tout s'effectuait sous la grosse présidence
 4 morale, (pour ainsi parler), et bientôt effective de
-7 M. Lavisse. C'est tout dire. Ce nom seul était une bonne
+M. Lavisse. C'est tout dire. Ce nom seul était une bonne
 14 garantie de trahison. Maïs il fallait toujours éliminer ce
 Brunetière. Et c'est ici que l'on fit le coup de la création:
 ï discontinue. On ne transporta pas l'École Normale en
@@ -792,8 +761,7 @@ on annihila l'École Normale. Ne pâlissez point, mes
 enfants, on devait la rétablir quelques instants après.
 18 4 Vous pensez bien, si on ne l'avait pas rétablie, l'ayant!
 supprimée, nous ne la verrions pas aujourd'hui.
-3: » Mais dans l'intervalle, dans la coupure entre sa sup-
-pression et son rétablissement elle était passée par un
+3: » Mais dans l'intervalle, dans la coupure entre sa suppression et son rétablissement elle était passée par un
 …_._ temps de néant et dans ce néant on avait perdu
 Re: Je ne sais pas si je me fais bien comprendre. On
 n'avait pas transporté l'École Normale en Sorbonne; on
@@ -812,7 +780,7 @@ on l'en avait retirée. On l'y avait plongée toute avec
 _. de sa faute s'il était resté dans le froid intersidéral. Et À
 de 5% comme il s'était trouvé ou il devait se trouver quelqu'un dE
 pour se présenter contre Brunetière au Collège de
-6 France il se trouva aussi quelqu'un, peut-être un ancien
+France il se trouva aussi quelqu'un, peut-être un ancien
 de élève de Brunetière, pour se faire alors créer par une
 création adventice, par une création supplémentaire, et à
 complémentaire, en somme pour prendre la place de ".
@@ -840,8 +808,7 @@ illustrer une maison et ensuite à manœuvrer sournoise-
 
 à ment pour éliminer cet homme. C'est tellement donner
 
-. et retenir, Mais je vais plus loin. Quand même M. Bru-
-netière n'eût pas été l'homme qu'il était, quand même à
+. et retenir, Mais je vais plus loin. Quand même M. Brunetière n'eût pas été l'homme qu'il était, quand même à
 
 M. Brunetière n'eût pas été Brunetière, quand même il
 
@@ -858,8 +825,7 @@ peut-être montrer un peu d'esprit de corps cette fois
 aussi, cette unique fois où par un tour de passe-passe
 on avait résolu de faire sauter un des leurs. Il est évident qu'ils ne devaient point se prêter à cette procédure,
 qui était une procédure d'escamotage. Il leur était facile
-de saisir l'opinion; et l'opinion, seulement avertie, seu-
-lement éveillée, n'eût pas laissé faire. Il faut avouer
+de saisir l'opinion; et l'opinion, seulement avertie, seulement éveillée, n'eût pas laissé faire. Il faut avouer
 - que ces bourgeois et que ces fonctionnaires et que ces
 ; grands intellectuels et que ces socialistes patentés quèrent singulièrement, cette fois, de syndicalisme. Il y
 a quelque chose de honteux à ce qu'une compagnie
@@ -873,18 +839,15 @@ M. Lanson était un des nourrissons de Brunetière; et
 4 pas croire que M. Lanson est une nature ingrate. Aussi
 ! longtemps que M. Brunetière fut puissant M. Lanson ne
 cacha point aux populations attardées l'admiration, le
-ê: culte, la reconnaissance qu'il avait pour M. Brunetière.
+culte, la reconnaissance qu'il avait pour M. Brunetière.
 È Mais quand l'astre de M. Brunetière commença de
-4 baisser dans les ciels intellectuels et dans les ciels poli-
-tiques, et quand ce grand critique et ce grand historien
-fut entré dans cette pénombre, dans cette grande soli-
-tude stoïcienne de souffrance et d'héroïsme qui fit à ses
+4 baisser dans les ciels intellectuels et dans les ciels politiques, et quand ce grand critique et ce grand historien
+fut entré dans cette pénombre, dans cette grande solitude stoïcienne de souffrance et d'héroïsme qui fit à ses
 
 : fins et à sa mort comme une auréole et comme une
 retraite M. Lanson ne cacha point aux peuples qu'il
 venait de s'apercevoir que ce Brunetière n'était pas
-précisément un critique et un écrivain de défense répu-
-blicaine. La vérité avant tout.
+précisément un critique et un écrivain de défense républicaine. La vérité avant tout.
 
 Je ne dirai pas que M. Lanson avait fait sa fortune
 comme réactionnaire. C'est un mot dont je me méfie;:
@@ -1007,7 +970,7 @@ professeurs de la Sorbonne, futurs électeurs de M. Lan-
 4 son, en effet ne sont pas très fiers de ce que fait
 M. Lanson depuis quelques années. Je m'explique.
 
-1 Las de l'enseignement secondaire M. Lanson s'était
+Las de l'enseignement secondaire M. Lanson s'était
 13 fait de science et d'enseignement supérieur. Las de
 
 science et d'enseignement supérieur M. Lanson s'est
@@ -1026,8 +989,7 @@ deux métiers qui ne sont point des sinécures et qui
 emplissent généralement chacun leur homme. M. Lanson les a pris tous les deux. Il s'est fait chroniqueur
 dramatique. Et il s'est fait chroniqueur littéraire. Deux
 fois par mois il rend compte du théâtre dans la Grande
-Revue. Toutes les semaines il rend compte de la litté-
-rature dans le Matin.
+Revue. Toutes les semaines il rend compte de la littérature dans le Matin.
 De ce qu'il fait dans la Grande Revue je n'ai rien
 encore à dire ici, je veux dire dans cette parenthèse.
 Non seulement la Grande Revue est une maison fort
@@ -1070,10 +1032,9 @@ a Faculté des Lettres de l'Université de Paris. Nous
 de l'avoir), et qui a un aussi gros volume universitaire,
 et qui nous représente tout de même en un certain sens,
 3 qui est en un certain sens et réellement notre manda-
-À: taire envers le grand public, notre représentant, notre
+taire envers le grand public, notre représentant, notre
 avoué envers le gros public, envers le commun public,
-1 et d'autant que lui-même, y allant, avec son titre, solen-
-nellement, annoncé comme tel, allant dans ce journal,
+1 et d'autant que lui-même, y allant, avec son titre, solennellement, annoncé comme tel, allant dans ce journal,
 sous tout son titre, s'y est ofliciellement constitué le
 0 représentant des lettres et de l'Université. Alors nous:
 nous sentons blessés, qu'il se laisse ainsi traiter, dans;
@@ -1097,8 +1058,7 @@ AUS lectuels dans ce journal. Or, par le ministère, par le
 mécanisme de cette représentation nous y sommes vraiment trop maltraités. Sous cette figure, sous cette
 signature on nous y manque un peu trop de respect. Je
 sais qu'un assez grand nombre de professeurs de la
-Faculté des Lettres de l'Université de Paris sont extré-
-mement blessés non pas tant de ce que leur collègue et
+Faculté des Lettres de l'Université de Paris sont extrémement blessés non pas tant de ce que leur collègue et
 À bientôt leur doyen se soit fait journaliste que de ce À
 qu'il se soit fait petit journaliste et de ce qu'ilne se soit
 à pas fait respecter comme journaliste. Il y a en Sorbonne
@@ -1113,8 +1073,7 @@ collègue et bientôt leur doyen, que leur représentant.
 soit traité comme un petit garçon au de tout le
 monde dans un aussi grand journal. Ils ne sont pas
 4 tous des Andler. Il n'y en a qu'un. Mais, à défaut de
-: son talent, à défaut de sa valeur, tous ont cette hon-
-nêteté propre de Andier. Ils travaillent comme lui,
+: son talent, à défaut de sa valeur, tous ont cette honnêteté propre de Andier. Ils travaillent comme lui,
 chacun à sa mesure. Leur méthode est bonne, ou elle
 est mauvaise, c'est une tout autre question,.que nous
 avons traitée, sur laquelle nous reviendrons peut-être.
@@ -1158,8 +1117,7 @@ les patrons. Ils sont ce qu'ils sont. Nous pouvons les
 aimer. Nous pouvons ne pas les aimer. Mais il est déjà
 très notable qu'il y en ait, et c'est une plus grande
 misère encore que dans des sections il n'y en ait même
-pas. Ils valent ce qu'ils valent, mais dans cette énumé-
-ration que nous établissions peu à peu on peut dire que
+pas. Ils valent ce qu'ils valent, mais dans cette énumération que nous établissions peu à peu on peut dire que
 Lanson, comme il est, est le patron du français, que
 Lavisse, (comme il est), est le patron de l'histoire, que
 Brunot est le patron de la grammaire, et éminemment
@@ -1194,9 +1152,7 @@ des situations qui apparaissait dans le cas de M. Lavisse
 (et de M. Langlois) exposé au jugement de M. Langlois.
 A De même que pour nous M. Lavisse peut être un histo-
 4 rien et qu'il ne peut pas en être un pour M. Langlois,
-1 de même que pour nous M. Langlois peut être un pam-
-phlétaire, et qu'il ne peut pas en être un pour M. Lan-
-glois, tout ainsi pour nous M. Lanson a parfaitement
+1 de même que pour nous M. Langlois peut être un pamphlétaire, et qu'il ne peut pas en être un pour M. Langlois, tout ainsi pour nous M. Lanson a parfaitement
 le droit de faire une troisième carrière, et nous la lui
 souhaitons bonne, mais il n'en a pas le droit pour
 M. Lanson et pour M. Rudler.
@@ -1206,13 +1162,10 @@ Nous nous voulons bien que M. Lanson fasse une
 troisième carrière. C'est M. Lanson deuxième carrière,
 c'est M. Rudler qui ne veut pas. À
 Nous nous voulons bien que M. Lanson soit chroni-.
-queur et critique dramatique et littéraire. C'est M. Lan-
-son scientifique, et c'est M. Rudler qui ne veut pas.
+queur et critique dramatique et littéraire. C'est M. Lanson scientifique, et c'est M. Rudler qui ne veut pas.
 Car M. Lanson, quand il fait toutes les quinzaines sa:
-chronique dramatique et toutes les semaines sa chro-
-nique littéraire, il fait comme tout le monde, M. Lanson:
-il n'a point épuisé toute la littérature et toute la docu-
-mentation sur chacune de ces pièces et sur tout ce {il
+chronique dramatique et toutes les semaines sa chronique littéraire, il fait comme tout le monde, M. Lanson:
+il n'a point épuisé toute la littérature et toute la documentation sur chacune de ces pièces et sur tout ce {il
 théâtre ni sur chacun de ces livres et sur toute cette
 littérature. IL fait comme tout le monde, il fait ce qu'il
 . peut. Je ne dis pas que ce soit mal. Mais c'est nous qui À
@@ -1228,8 +1181,7 @@ Qu'il y ait une autre compétence que celle qui résulterait de la méthode d'é
 notre thèse même, mais c'est M. Lanson qui le nie.
 C'est M. Rudler qui le nie. Que M. Lanson puisse avoir
 acquis cette compétence, moi je veux bien. C'est eux
-qui ne veulent pas. Ou plutôt ils voudraient bien peut-
-être. Mais ils ne peuvent pas bien vouloir. Que la
+qui ne veulent pas. Ou plutôt ils voudraient bien peutêtre. Mais ils ne peuvent pas bien vouloir. Que la
 réflexion, les propos, le commerce, la méditation et
 tout un certain climat intellectuel, (et une simple bonne
 lecture des textes), fassent plus qu'un épuisement de
@@ -1260,7 +1212,7 @@ très gentil envers tous les membres de l'Académie
 française. Qu'ils fassent du théâtre, qu'ils fassent des
 romans, ils trouvent le critique dramatique et le critique
 littéraire également bienveillant. Corneille avait pas
-,; toujours trouvé bienveillant le deuxième M. Lanson.
+toujours trouvé bienveillant le deuxième M. Lanson.
 M. Rostand, M. Donnay trouveront toujours bienveil-
 3 lant le troisième M. Lanson.
 Il est évident que, de deuxième, M. Lanson s'est
@@ -1278,8 +1230,7 @@ prend peu à peu le souci d'intérêts communs, d'intérêts
 généraux qui, ci-devant, lui échappaient.
 Car c'est encore un bénéfice de cet accès au public,
 de cette allocution directe au grand public qu'on aper- il
-çoit directement aussi, brusquement, presque brutale-
-ment ces grandes nécessités, ces impérieux besoins,
+çoit directement aussi, brusquement, presque brutalement ces grandes nécessités, ces impérieux besoins,
 ces intérêts généraux auxquels le scientifique dans son
 ; cabinet peut demeurer indifférent. Le troisième M. Lan-;
 son, celui des chroniques dramatiques et des chroniques
@@ -1291,10 +1242,7 @@ il sera le premier je pense à nous l'accorder, puisque,
 pour devenir écrivain, il a été forcé de renoncer à la
 méthode scientifique, comme tout le monde, tout ce que
 nous demandons c'est que dans le même temps on
-n'essaie pas de nous faire croire qu'il est devenu écri-
-vain en gardant la méthode scientifique et par le minis-
-tère de la méthode scientifique, et ainsi que générale-
-ment on peut devenir écrivain en gardant la méthode
+n'essaie pas de nous faire croire qu'il est devenu écrivain en gardant la méthode scientifique et par le ministère de la méthode scientifique, et ainsi que généralement on peut devenir écrivain en gardant la méthode
 scientifique et par le ministère de la méthode scientifique.
 Que nous ayons un nouveau confrère, qui ne s'en
 
@@ -1316,9 +1264,8 @@ au Lycée de Versailles. — Raoul Blanchard, pro- RS:
 professeur au Lycée de Lyon. — L. Cazamian,
 maître de Conférences à la Sorbonne. — A. Cahen,
 inspecteur de l'Académie de Paris. — L. Gallois,
-00 professeur à la Sorbonne. — L. Houllevigne, pro- -:
-2 fesseur à l'Université d'Aix-Marseille. — Ch.-V. Lan-
-glois, professeur à la Sorbonne. — G. Lanson, pro-.
+00 professeur à la Sorbonne. — L. Houllevigne, pro-
+2 fesseur à l'Université d'Aix-Marseille. — Ch.-V. Langlois, professeur à la Sorbonne. — G. Lanson, pro-.
 10 fesseur à la Sorbonne. — J. Marsan, professeur à
 : 48 l'Université de Toulouse. — D. Mornet, professeur à
 au Lycée Carnot. — J. Philippe. — E. Pottier,
@@ -1338,8 +1285,7 @@ ne dans toutes ses manifestations. Et quand M. Lanson fait te
 20 demandons c'est que dans cette revue M. Rudler n'essaie
 pas de nous faire croire que c'est encore de la méthode.
 Si M. Lanson a le droit de voir l'Amérique au lieu
-d'épuiser la littérature et la documentation sur l'Amé-
-rique, j'ai le droit de lire Corneille et de lire Polyeucte, As
+d'épuiser la littérature et la documentation sur l'Amérique, j'ai le droit de lire Corneille et de lire Polyeucte, As
 au lieu d'épuiser la littérature et la documentation sur
 ES: Corneille et sur Polyeucte.
 rique, j'ai le droit de traiter directement Corneille et
@@ -1363,8 +1309,7 @@ un public de droit commun il est notoire qu'il s'est déjà
 beaucoup dépouillé de la méchanceté professorale.
 M. Babut. Tout ce qu'il leur faut, c'est qu'il n'y ait pas
 des héros et des saints. Modernes, ils sont également
-contraires à la grandeur païenne et à la grandeur chré-
-tienne. Tout ce qu'ils demandent c'est que les deux
+contraires à la grandeur païenne et à la grandeur chrétienne. Tout ce qu'ils demandent c'est que les deux
 grandeurs antiques, la grandeur païenne et la grandeur
 chrétienne, la grandeur héroïque et la grandeur de
 sainteté soient également diminuées, soient également
@@ -1411,8 +1356,7 @@ constante revision de tous les procès d'héroïsme et de tous
 les procès de sainteté par une méthode qui est la méthode
 de l'épuisement indéfini du détail historique. Que leur
 méthode puisse aboutir, et qu'elle-même elle saisisse la
-réalité, et qu'elle-même elle donne des résultats épui-
-sants, nous avons assez dit que nous ne le pensons pas.
+réalité, et qu'elle-même elle donne des résultats épuisants, nous avons assez dit que nous ne le pensons pas.
 Mais ce n'est pas aujourd'hui la question. Ce n'est pas
 aujourd'hui le débat. Je les poursuis au second degré.
 Je les poursuis chez eux, dans leur propre système. Je
@@ -1428,8 +1372,7 @@ Si chez eux dans leur système ils étaient constants,:
 si chez eux dans leur système ils étaient sincères avec
 eux-mêmes le hasard ne jouerait pas toujours dans le SAN
 3 même sens, la loi des grands nombres ne jouerait pas: Si
-toujours dans le même sens. Tantôt ils nous démoli-
-raient un héros ou un saint. Et tantôt ils nous dévou-
+toujours dans le même sens. Tantôt ils nous démoliraient un héros ou un saint. Et tantôt ils nous dévou-
 ._ vriraient, ils nous institueraient héros ou saint quelque
 inconnu. Le hasard jouerait dans les deux sens. La loi CAS
 
@@ -1486,8 +1429,7 @@ Le mécanisme est simple; et ils ont beau jeu. Comme Le
 à ce sont dans l'histoire les héros et les saints, (et les 4%
 
 génies), qui ont possession d'état, ils sont comme des a.
-montagnes toutes prêtes devant ces perpétuelles dépré-
-dations. Les héros et les saints (et les génies) sont:
+montagnes toutes prêtes devant ces perpétuelles déprédations. Les héros et les saints (et les génies) sont:
 comme de'grandes belles citadelles sans armes devant
 ces perpétuelles incursions. Ils sont des grands beaux
 êtres sans défense. Tout occupés à produire ils ne gardent rien de leur force pour assurer leur propre sécurité. Ils n'ont aucun goût à plaider leur propre grandeur. Ils y seraient maladroiïits. Ils ne veulent point
@@ -1527,8 +1469,7 @@ taille est gagné pour le commentaire et pour le com- (
 Mercredi 19 février 1913. — J'ouvre le Matin de ce
 matin. Je finis par y apercevoir le Lanson de cette
 
-semaine, Qui le reconnaîtrait dans cette page extraordinaire. C'est une des quatrième, ou sixième, ou cin-
-quième pages, enfin une page sacrifiée. Et alors une
+semaine, Qui le reconnaîtrait dans cette page extraordinaire. C'est une des quatrième, ou sixième, ou cinquième pages, enfin une page sacrifiée. Et alors une
 page tout à fait hurluberlu. C'est un grand tableau en
 art nouveau de l'homme fatal et dela femme fatale. Etil
 y a surtout une femme fatale qui tient un tiers ou un
@@ -1617,8 +1558,7 @@ est un système de valeur nous pouvons les négliger.
 sont trop petits pour toucher cette armure. Mais eux,.
 les malheureux, dans leur système, qui est un système
 monoplan, ils ne peuvent même pas se trouver trop
-petits; pour nous échapper. IL faut qu'ils nous requiè-
-rent de nous occuper d'eux. /ls sont condamnés à se
+petits; pour nous échapper. IL faut qu'ils nous requièrent de nous occuper d'eux. /ls sont condamnés à se
 
 traiter, et à se laisser traiter, et à se faire traiter aussi:
 mal que de simples grands hommes.?
@@ -1642,7 +1582,7 @@ Pourquoi se sont-ils fait, à eux et à leurs critiques, ces
 ; mentaires, de si grosses places temporelles, de sigrosses Are
 $. — Ils veulent bien être gros pour émarger au
 : budget, pour émarger aux honneurs, pour peser de ne
-#1 toute leur grosse masse sur les gloires acquises, sur les
+1 toute leur grosse masse sur les gloires acquises, sur les
 …. réputations faites. Mais ensuite ils veulent être petits
 |. pour ne pas être exposés.
 É é $. — Sans même aller jusqu'aux héros et aux saints,
@@ -1689,9 +1629,7 @@ Mon jeune camarade j'ai de la charité chrétienne pour
 les victimes. Je n'en ai pas dans la même opération, je
 n'en ai pas dans le même temps et sous le même
 rapport pour les bourreaux.
-Vous vous récriez que ce nom de bourreaux est peut-
-être un peu bien gros pour nos hommes; que particu-
-lièrement ce nom de bourreau est peut-être un peu bien
+Vous vous récriez que ce nom de bourreaux est peutêtre un peu bien gros pour nos hommes; que particulièrement ce nom de bourreau est peut-être un peu bien
 gros pour M. Lavisse. Mais, mon jeune camarade, il y
 a des bourreaux mous. Il n'y a pas seulement des
 bourreaux de torture, mon jeune et cher camarade.
@@ -1699,14 +1637,12 @@ La misère aussi est un tourment, nous l'avons assez
 dit; et c'est malheureusement assez vrai. M. Lavisse
 évidemment ne verse pas le sang. Mais il répand la
 ruine, mais il verse la mollesse; et la honte: et le
-ramollissement; et le commun relâchement; et la Me
 
 cahiers de la quinzaine
 ; mune et la basse misère. Sans compter que le sang est:
 ration de M. Lavisse avaient réussi à faire de la France
 ce qu'ils voulaient, c'est-à-dire des gens comme eux,
-des mous comme eux, et si profitant de cette univer-
-selle lâcheté et de cette commune mollesse et de cette
+des mous comme eux, et si profitant de cette universelle lâcheté et de cette commune mollesse et de cette
 commune bassesse huit cent mille Allemands nous
 étaient entrés dedans, il y aurait peut-être du sang
 versé, mon jeune camarade.;
@@ -1716,16 +1652,14 @@ inoffensif parce qu'il est apparemment un homme de
 cabinet. Les plus grands désastres, et par suite les plus
 grands tourments peuvent se préparer dans le silence A
 du cabinet. Celui qui démoralise un peuple peut être,;
-est même certainement l'auteur direct et la cause épui-
-sante des désastres qui peuvent arriver à ce peuple.
+est même certainement l'auteur direct et la cause épuisante des désastres qui peuvent arriver à ce peuple.
 réussi à faire de la France une basse et molle proie,
 eussions-nous penser, mon jeune camarade, eussions-;
 nous continuer à penser que M. Lavisse est un
 inoffensif homme de bureau, un innocent pédagogue.
 $. — Je n'aime pas, mon jeune camarade, et pour dire
 le vrai je ne veux rien savoir d'une charité chrétienne
-qui serait une capitulation perpétuelle devant les puis-
-sants de ce monde, Je ne veux rien savoir d'une
+qui serait une capitulation perpétuelle devant les puissants de ce monde, Je ne veux rien savoir d'une
 charité chrétienne qui serait une capitulation constante
 
 3% (du spirituel) devant les puissances temporelles. Je ne!
@@ -1748,8 +1682,7 @@ mon jeune camarade. Purement et simplement. Ni plus;
 ni moins. Vous avez certainement appris au régiment À
 ce que c'est que la guerre et l'état de guerre; et le fait
 de guerre. Je vous ai en jeune officier. Vous avez
-fait deux ans, je pense, dont six mois de sous-lieute-
-nant de réserve. Vous savez votre théorie. Vous savez te
+fait deux ans, je pense, dont six mois de sous-lieutenant de réserve. Vous savez votre théorie. Vous savez te
 donc ce que c'est que la guerre; et un fait de guerre.
 Tout cela, mon jeune camarade, c'est la guerre et ce FEAT
 . sont des faits de guerre. C'est même une guerre de à
@@ -1757,8 +1690,7 @@ libération. J'avoue que c'est une des guerres de la
 liberté. C'est la vieille résistance à l'oppression. Il s'agit
 écraser ce pays, et de ne pas laisser écraser ce peuple De
 
-Ê. sous la plus basse tyrannie spirituelle et même intellec-
-tuelle et même mentale qui ait jamais voulu s'exercer
+Ê. sous la plus basse tyrannie spirituelle et même intellectuelle et même mentale qui ait jamais voulu s'exercer
 par les moyens de force et notamment par les moyens
 d'un gouvernement temporel. Mon jeune camarade
 m'accordera peut-être que si la France était aujourd'hui
@@ -1778,11 +1710,9 @@ matière diplomatique et militaire. Au moment même!
 où on y renonce universellement en commerce international., S'il s'agit de désarmement, que messieurs les:
 Allemands commencent. Que M. Lavisse cesse d'occuper
 ce poste d'où il peut organiser le désastre. Nous ne
-demandons pas même qu'il renonce à tous ses hon-
-neurs. Nous demandons seulement qu'il renonce à son
+demandons pas même qu'il renonce à tous ses honneurs. Nous demandons seulement qu'il renonce à son
 commandement, à ce commandement. Qu'ensuite on le
-comble d'honneurs, si on veut, tout ce que nous deman-
-dons, c'est que le plus indigne ne soït pas mis, et laissé,
+comble d'honneurs, si on veut, tout ce que nous demandons, c'est que le plus indigne ne soït pas mis, et laissé,
 à la tête, et qu'ensuite on ne le remplace pas par un
 pareil à lui.
 
@@ -1838,14 +1768,11 @@ Normale, contre la France, sous le couvert de M. Lavisse.
 sera faussé, il faut bien que nous constations que cette
 cérémonie même fut faussée dans son principe, étant
 faussée dans son appareil. On y fit en effet venir
-M. Poincaré, pour donner et à la cérémonie et au jubi-
-laire l'éclat d'une haute manifestation nationale. Et
+M. Poincaré, pour donner et à la cérémonie et au jubilaire l'éclat d'une haute manifestation nationale. Et
 aussi pour couvrir et M. Lavisse et la Sorbonne de la
 haute autorité d'un homme qui était déjà sensiblement
 plus qu'un président de la République ordinaire. Je
-veux dire plus qu'un président ordinaire de la Répu-
-blique. M. Poincaré vint à cette dernière. Ce fut évi-
-demment d'une grande habileté, de la part de M. Lavisse
+veux dire plus qu'un président ordinaire de la République. M. Poincaré vint à cette dernière. Ce fut évidemment d'une grande habileté, de la part de M. Lavisse
 et de la part de la Sorbonne. Car ayant parasité tant de
 mouvements, ils parasitaient en outre, ils parasitaient
 aussi, ils parasitaient alors le mouvement unanime qui
@@ -1907,9 +1834,7 @@ de retournement.
 — Car ce que l'on reproche à M. Lavisse ce n'est
 point d'être d'un certain parti, c'est d'avoir successivement et en même temps trahi tous les partis. C'est de
 n'avoir jamais été au fond que du parti de la capitulation, et de l'abandonnement, et de la lächeté, et de
-la désorganisation. Au fond, si l'on veut, il était peut74
-
-être plutôt bonapartiste, et il avait pour l'être des
+la désorganisation. Au fond, si l'on veut, il était peutêtre plutôt bonapartiste, et il avait pour l'être des
 raisons qui pour tout autre eussent été honorables: RUE
 Cela ne l'a pas empêché de soutirer de la République te
 tout ce qu'elle peut conférer d'honneurs. Je dis hon-
@@ -1922,12 +1847,11 @@ en Sorbonne assister et malgré lui présider au cinquan-
 dirigé non pas seulement contre la présidence de
 ; M. Poincaré mais contre le service de trois ans, et
 ainsi, comme d'habitude, contre la France, et aussi,
-comme d'habitude, contre la République. À;
+comme d'habitude, contre la République.
 $. — Je ne veux point entrer incidemment dans un!
 aussi gros débat que celui de la loi militaire. Mes senti- EN
 ments sont assez connus. Et mes répulsions et mes
-4 inquiétudes. Je veux seulement démonter, et en quel-
-ques mots, un certain mécanisme de la domination du à
+4 inquiétudes. Je veux seulement démonter, et en quelques mots, un certain mécanisme de la domination du à
 10 « {. — Nous sommes faits ici pour aller aux points
 
 précis, aux articulations des mécanismes. Pour les
@@ -1943,19 +1867,16 @@ Herr et de Lavisse.
 nement le plus pur et le plus confident. Et il y a dans
 An l'apprentissage une telle vertu que je me rappellerai
 toute ma vie que c'est Herr qui m'a appris à corriger
-des épreuves. Ce que j'en puis dire, et ce que m'accor-
-deront tous ceux qui le connaissent, amis, ennemis,
+des épreuves. Ce que j'en puis dire, et ce que m'accorderont tous ceux qui le connaissent, amis, ennemis,
 partisans, adversaires, c'est qu'il est un fanatique et
 essentiellement, einseitig, un unilatéral. Et d'autre part
 Lavisse est le type même du faible et du double et du
 fourbe et du bilatéral.
-— Que Herr ait des liaisons avec d'autres fana-
-tiques, avec d'autres unilatéraux, c'est tout à fait son
+— Que Herr ait des liaisons avec d'autres fanatiques, avec d'autres unilatéraux, c'est tout à fait son
 droit, je puis le dire. Mais j'ai aussi le droit de dire
 qu'il n'y a rien de si suspect qu'une aussi longue et, il
 faut le dire, une aussi fidèle liaison que celle qui s'est
-établie entre ce fanatique et ce faible, entre cet unila-
-téral et ce bilatéral.
+établie entre ce fanatique et ce faible, entre cet unilatéral et ce bilatéral.
 
 $. — Tout le secret de l'invention et de l'intrusion et
 de la domination du parti intellectuel est là, dans cette
@@ -1979,9 +1900,7 @@ nous voulons bien être gouvernés par M. Lavisse. Nous
 ne voulons pas être combattus par M. Herr sous le
 nom de M. Lavisse. Nous ne voulons pas être gouvernés
 par M. Herr sous le nom de M. Lavisse.
-$. — Il y a une dualité insupportable, une dupli-
-
-cahiers de la quinzaine
+$. — Il y a une dualité insupportable, une duplicahiers de la quinzaine
 cité que nous ne supporterons pas. Herr est un homme?
 qui ne peut pas voir un soldat. C'est une maladie,
 c'est une idée fixe. C'est une phobie, une psychose. Et il
@@ -2001,8 +1920,7 @@ des victimes. Les victimes c'est nous; c'est vous, c'est
 moi; c'est l'excellent troupier de deuxième classe. Ils
 connaissent l'effroyable tyrannie militaire. Quand il voit
 des soldats danser avec des petites bonnes, il souffre
-un autre martyre. Car c'est évidemment une contami-
-nation du civil par le militaire. Mais les petites bonnes
+un autre martyre. Car c'est évidemment une contamination du civil par le militaire. Mais les petites bonnes
 ne peuvent pas danser uniquement avec M. Langlois et
 uniquement le soir du 14 Juillet. Et M. Langlois ne
 peut pas valser uniquement avec moi. M. Lavisse au
@@ -2027,11 +1945,11 @@ sous le mode opportuniste et libéral, et sous le volume
 … alors il peut pénétrer dans l'organisme.;
 $. — Et en outre c'est toujours ce que je nomme ni
 fausser le jeu, jouer double, jouer des deux mains.
-2 Jouer sur les deux tables.
+Jouer sur les deux tables.
 1 $. — Je prends naturellement ce mot de couple au 1"
 
 —._ sens où je pense qu'on l'emploie dans les sciences de la;
-;: 4 mécanique. Ces deux hommes sont tout ce qu'il y a de MA
+4 mécanique. Ces deux hommes sont tout ce qu'il y a de MA
 . plus contraire l'un à l'autre. L'un est un fanatique et (0
 
 l'autre est censément un libéral. L'un est censément un À
@@ -2099,9 +2017,7 @@ gardes républicains. Et il faut sortir les gants à crispin.
 $. — Il y a en Sorbonne (actuelle) et dans la nouvelle
 École Normale un noyau de gens qui ne veulent pas du
 nationalisme, à moins qu'il ne soit allemand; et du
-militarisme, à moins qu'il ne soit allemand; et du capi-
-talisme, à moins qu'il ne soit allemand; et de l'impé-
-rialisme, à moins qu'il ne soit allemand; et du colonialisme, à moins qu'il ne soit allemand. Nous demandons
+militarisme, à moins qu'il ne soit allemand; et du capitalisme, à moins qu'il ne soit allemand; et de l'impérialisme, à moins qu'il ne soit allemand; et du colonialisme, à moins qu'il ne soit allemand. Nous demandons
 seulement que ces gens et que ce noyau ne fassent point
 un corps de l'État français.
 Ce n'est peut-être pas trop demander.
@@ -2109,12 +2025,10 @@ Ce n'est peut-être pas trop demander.
 $. — Et quand ils passent dans les rues dans leurs
 processions premièrement qu'ils ne m'empêchent point
 de passer, (moi l'homme en veste, et qui vais à mes
-affaires), avec leurs escortes, d'honneur, et leurs céré-
-monies et leurs cortèges et leurs soldats et leur service
+affaires), avec leurs escortes, d'honneur, et leurs cérémonies et leurs cortèges et leurs soldats et leur service
 d'ordre. Et deuxièmement, s'ils sont anarchistes, qu'ils
 ne se fassent point régir par le décret de Messidor, et
-surtout par le décret de Messidor modifié. Je suis extrê-
-mement humilié, moi, de ne pas être régi par le décret
+surtout par le décret de Messidor modifié. Je suis extrêmement humilié, moi, de ne pas être régi par le décret
 de Messidor. Tous les droits que le décret de Messidor
 me confère, et encore c'est par prétérition, c'est d'être
 arrêté dans les rues par les haïes de soldats, quand il
@@ -2130,8 +2044,7 @@ tomber des prérogatives que l'État leur confère. Et
 notamment celle, (évidemment négligeable), de passe
 tous les mois à la caisse.:
 A notre caisse.
-$. — Ils ne sont pas seulement anarchistes de gou-
-vernement, ils sont anarchistes de trésorerie. “PTS
+$. — Ils ne sont pas seulement anarchistes de gouvernement, ils sont anarchistes de trésorerie. “PTS
 $. — Ils ne sont pas seulement anarchistes de tréso- NE
 rerie, ils sont anarchistes de magistrature. Au nom de 72 je
 lVÉtat ils délivrent des diplômes qui commandent ne"
@@ -2143,14 +2056,11 @@ exposé ou condamné à mourir ou à ne pas mourir de
 cahiers de la quinzaine SA
 $. — Ces anarchistes sont gros fonctionnaires,
 $. — Et ils ne se dévêtent jamais de leur autorité, de
-leurs honneurs, de leurs cérémonies, de leur magistra-
-ture, de leurs fonctions. Il faut voir dans une compagnie
+leurs honneurs, de leurs cérémonies, de leur magistrature, de leurs fonctions. Il faut voir dans une compagnie
 comme ils regardent celui qui n'est pas universitaire, A
 $. — Et ils n'en ont pas encore assez. Il faut voir ce
-qu'ils font pour ajouter à tous ces commandements spi-
-rituels et temporels ce que donne de commandement
-À spirituel et temporel un fauteuil à l'Institut, dans n'im-
-porte laquelle des sections. Tout disparaît alors, les il
+qu'ils font pour ajouter à tous ces commandements spirituels et temporels ce que donne de commandement
+À spirituel et temporel un fauteuil à l'Institut, dans n'importe laquelle des sections. Tout disparaît alors, les il
 plus grands intérêts, tout n'est rien, tout n'est plus
 : devant une élection académique.,
 $. — Les sections de l'Institut, voilà leur patrie, leur
@@ -2161,12 +2071,10 @@ c'était une affaire, et une affaire d'État.
 $.— Ils sont anarchistes, mais ils veulent bien entrer
 
 : dans les gros mariages d'argent, dans les gros mariages
-bourgeois, dans les gros mariages des dynasties univer-
-sitaires, dans les gros mariages de défense républicaine.
+bourgeois, dans les gros mariages des dynasties universitaires, dans les gros mariages de défense républicaine.
 Et ils ont fait de la Sorbonne une pépinière de gendres,
 1 naturellement n'a pas signé le manifeste des professeurs
-, contre la loi de trois ans. Pour ces sortes de manifes-
-tations c'est, dans le couple, Herr qui fonctionne. Mais
+, contre la loi de trois ans. Pour ces sortes de manifestations c'est, dans le couple, Herr qui fonctionne. Mais
 il a donné une interview au Temps ou une consultation
 ou enfin il s'en est laissé prendre une. Cette interview
 est pleine des protestations, des déclarations familières
@@ -2180,8 +2088,7 @@ retrancher un an à l'enseignement secondaire, qu'il faut
 encore prendre un an à et sur l'enseignement secondaire,
 qu'il faut encore diminuer, tronquer, décapiter d'un an
 l'enseignement secondaire; le: seul enseignement où
-actuellement on apprenne quelque chose, le seul ensei-
-gnement où on donne encore et où on reçoive encore de
+actuellement on apprenne quelque chose, le seul enseignement où on donne encore et où on reçoive encore de
 ? la culture. C'est bien pour cela qu'ils lui en veulent
 tant. Et que depuis quinze ans ils font tout ce qu'ils
 3 peuvent, plus ou moins brutalement, plus ou moins
@@ -2198,8 +2105,7 @@ comme ils regardent l'homme qui n'est pas en place,
 qui n'est pas riche, qui n'est pas universitaire, qui n'est
 pas fonctionnaire, qui n'est pas dans le gouvernement;
 l'écrivain.
-f. — Tel est le point de mécanisme, telle est exacte-
-ment l'articulation. Quand on connaît d'autre part la
+f. — Tel est le point de mécanisme, telle est exactement l'articulation. Quand on connaît d'autre part la
 liaison de Herr et de Jaurès, quand on connaît bien
 tout ce petit monde, grandement dangereux, car il est
 dangereux précisément à la façon d'un virus, on sait
@@ -2244,8 +2150,7 @@ et qui se sont constitués contre le sacré, ils savent que;
 De sacré, et ils veulent représenter ce sacré, et ils veulent
 nous gouverner au nom de ce sacré. Comme si tous les
 laboratoires de pensée n'étaient pas en dehors d'eux et
-comme si eux ils n'étaient pas contre tous les labora-
-toires de pensée. Comme si tout ce qui se pense dans ce
+comme si eux ils n'étaient pas contre tous les laboratoires de pensée. Comme si tout ce qui se pense dans ce
 pays, ne se pensait pas en dehors d'eux. Et contre eux. #1
 LEER Comme si tout ce qui s'élabore de pensée en France ne
 s'élaborait pas en dehors d'eux (et contre eux) et sous
@@ -2268,9 +2173,7 @@ si dans ce grand Paris, dans ce laboratoire de pensée
 
 Tout se fait en dehors d'eux, et ils sont contre tout ce à
 
-qui se fait et ils surveillent jalousement et ils gourman-
-
-dent tout ce qui se fait.. À
+qui se fait et ils surveillent jalousement et ils gourmandent tout ce qui se fait.. À
 
 $.— Dans ce grand Paris qui est la plus merveilleuse
 
@@ -2323,8 +2226,7 @@ passons par-dessus la tête. Un tel mot éclaire tout.
 C'est nous qui sommes leurs pères. Et ils sont de bien
 mauvais fils.
 $.— M. Lavisse a donc fait appeler les trois chefs de
-section (ou les six) et leur a demandé, enfin les a dis-
-suadés, (eux représentant tous leurs camarades), (qui
+section (ou les six) et leur a demandé, enfin les a dissuadés, (eux représentant tous leurs camarades), (qui
 d'ailleurs n'en avaient pas tous envie), (et il s'en faut),
 de signer en corps et ofliciellement cette protestation
 contre le service de trois ans qui a pris naissance, qui
@@ -2332,9 +2234,7 @@ est partie de la Sorbonne et de la Nouvelle École Normale et qui a fait long fe
 duplicité. M. Lavisse ne signe pas et ne veut pas qu'on
 signe cette pétition. Mais il en est l'auteur éminent, il
 en est l'auteur au deuxième degré, car il est l'auteur,
-il est l'endosseur, il est le représentant et réel et res-
-
-ponsable et devant le public et devant le pouvoir de
+il est l'endosseur, il est le représentant et réel et responsable et devant le public et devant le pouvoir de
 4 cette nouvelle sorte d'École Normale d'où ensuite le
 manifeste est naturellement sorti. à À
 $. — Quand on connaît d'autre part la liaison de JE
@@ -2359,7 +2259,7 @@ sait pas un mot d'histoire, (et où l'aurait-elle apprise,
 l'histoire ne s'apprend pas dans les cabinets de travail), À
 
 on serait stnpéfait de voir avec quelle légèretéilsnient
-8 Jœuvre du soldat français. Comme si la quantité
+Jœuvre du soldat français. Comme si la quantité
 
 terre temporelle où on parle français n'était pas
 mesurée d'abord, et n'était pas incessamment mesurée 1}
@@ -2376,8 +2276,7 @@ où un Virgile n'est pas mort, où un Virgile peut espérer
 une temporelle immortalité spirituelle. Car c'est un
 Auguste, (et c'est un Octave), et c'est un César qui
 à fait la quantité de terre romaine, et la quantité de:?
-; terre latine, et la quantité de terre virgilienne. L'ar-
-mature militaire est le berceau temporel où les mœurs
+; terre latine, et la quantité de terre virgilienne. L'armature militaire est le berceau temporel où les mœurs
 et les lois et les arts et la religion même et le langage
 4 et la race peuvent ensuite, mais ensuite seulement, et
 “4 alors seulement, se coucher pour grandir.
@@ -2387,16 +2286,14 @@ puissances sont uniquement financières, premièrement
 on se trompe, car elles ne sont pas uniquement finan-
 4 cières, et il s'en faut, deuxièmement il faut s'entendre,
 ï à car quand on dit que les forces des puissances sont
-financières, on entend l'argent même comme une puis-
-sance militaire, comme une munition de guerre, comme “se
+financières, on entend l'argent même comme une puissance militaire, comme une munition de guerre, comme “se
 une puissance que l'on mobilise.
 $. — C'est la légion romaine et c'est le soldat et c'est
 enfin César qui a fait la quantité du monde où a sonné
 la déclinaison latine, et la conjugaison, et Nisus et
 Euryale, et la descente aux enfers. Et en outre ils ont
 porté la déclinaison grecque, et la conjugaison, et cet
-immense trésor. Et, au fond, ils n'ont point porté la décli-
-naison juive, et la conjugaison, mais ils ont porté le
+immense trésor. Et, au fond, ils n'ont point porté la déclinaison juive, et la conjugaison, mais ils ont porté le
 : tabernacle et le Dieu d'Israël.
 dire. Le soldat mesure la quantité de terre où on parle
 une langue, où règnent des mœurs, un esprit, une âme,
@@ -2509,8 +2406,7 @@ fallait que l'empire fût le monde et le berceau temporel;
 4 cet appui mais cette sorte de retardement propre, de tu
 ‘fs frottement qui est la marque du temporel, du mouletem.
 4 porel, du lit temporel, du berceau temporel. Cette sorte!
-: d'irréversibilité qui a gagné le spirituel parce que lui-
-même glisse mais frotte dans l'irréversibilité du tempok rel. De sorte que le temporel a une irréversibilité propre: ne
+: d'irréversibilité qui a gagné le spirituel parce que luimême glisse mais frotte dans l'irréversibilité du tempok rel. De sorte que le temporel a une irréversibilité propre: ne
 ? et empreignante et que le spirituel en reçoit une irré- 1400
 14 versibilité empreinte. Et que le spirituel enfin est comme
 un fleuve qui glisse mais frotte dans son propre dit,
@@ -2543,8 +2439,7 @@ pour dire le mot jusqu'à ce que son esprit n'eût pas
 besoin d'un corps. Mais quand on les connaît bien, et
 quand on les voit pousser parmi les peuples, et de géné-
 
-4 ration en génération, leur fatal entêtement, leur obsti-
-nation d'une intarissable inquiétude, et leur inépuise- (NS
+4 ration en génération, leur fatal entêtement, leur obstination d'une intarissable inquiétude, et leur inépuise- (NS
 1 ment d'une infortune intarissable, on sait qu'il ne faut
 jamais conclure d'eux à aucun autre, car nul autre
 peuple ne porte aussi évidemment une marque, et en
@@ -2591,7 +2486,7 @@ et elle a prendre le monde que Rome avait fait, le;
 54 monde que tout le monde a pris. Et il n'est point témé-
 o raire de dire que Israël a continué une cité spirituelle
 Ê de dispersion temporelle dans la même forme de monde,
-à; dans le même moule de monde, dans le même berceau
+dans le même moule de monde, dans le même berceau
 de monde où la chrétienté fondait une cité spirituelle
 Au: de resserrement temporel. Ou au moins de condensa-
 14 tion temporelle. Comme en somme la mer et les sables
@@ -2602,7 +2497,7 @@ vécu en dehors de la chrétienté, (pour un historien du;
 monde, pour un historien de l'histoire universelle),
 puisqu'ils ont vécu en marge. Ils s'étaient coulés autre- #4
 ment dans le même moule temporel, dans le même
-monde, dans la même terre mesurée, les uns pour y:
+monde, dans la même terre mesurée, les uns pour
 témoigner dans la communion, et les autres pour y
 témoigner dans la dispersion. Et comme une marge d'in
 octavo n'est essentiellement pas la même qu'une marge
@@ -2616,8 +2511,7 @@ soldat romain qui a jalonné la dispersion d'Israël.
 — Que la Sorbonne le veuille donc ou non, @'est
 le soldat français qui lui mesure la terre. C'est le Ê +48
 soldat français et c'est le canon de 75 et c'est la force
-temporelle qui ont jalonné, qui ont mesuré, qui mesu-
-rent à chaque instant la quantité de terre où on parle 194728
+temporelle qui ont jalonné, qui ont mesuré, qui mesurent à chaque instant la quantité de terre où on parle 194728
 à français. Si le lieutenant d'artillerie coloniale Ernest as
 ‘#4 Psichari ne s'était pas battu en français jusque dans
 Fr. l''Adrar, (ou aux environs), (pardonnez-moi cette impré- “SE
@@ -2643,9 +2537,7 @@ passive, si honnie des Sorbonnards, fait que le soldat
 défend aveuglément la Sorbonne contre tous ses en-
 
 Que $. — Est-ce donc seulement par légèreté, par manque
-de gravité, par manque de réflexion, par manque d'es-
-prit et d'esprit de suite et de philosophie que la Sor-
-bonne en veut ainsi au soldat protecteur. Et au soldat
+de gravité, par manque de réflexion, par manque d'esprit et d'esprit de suite et de philosophie que la Sorbonne en veut ainsi au soldat protecteur. Et au soldat
 toujours pionnier, (pionnier, pion, pedo, fantassin,
 piétaille). Si ignorants qu'ils soient, ils soupçonnent
 tout de même un peu tout ce que je viens de dire. Je:
@@ -2653,19 +2545,15 @@ serais tenté de croire que c'est plutôt qu'ils ont vrai- 3]
 ment tous le tempérament de leur ami Jaurès, le
 même caractère, s'il est permis de nommer un carac- il
 tère, cette bassesse, ce goût de l'avanie, et ce qui
-ensemble, cette basse envie, ce besoin profond d'ingra-
-titude pour qui les sert.
+ensemble, cette basse envie, ce besoin profond d'ingratitude pour qui les sert.
 $. — On se demande s'il n'y a pas plus, (moi qui les
 connais bien): cette secrète pensée qu'un Professor est
 plus qu'un professeur, et un Doktor plus qu'un docteur.
 Et on ne sait quel obscur dessein, que de devenir ProJessor, de professeur qu'on était, ce serait monter; en
 grade. Et Doktor, de docteur.
-$. — Il faut avouer qu'il y a quelque chose de véri-
-
-tablement monstrueux à ce qu'un peuple soit ainsi trahi
+$. — Il faut avouer qu'il y a quelque chose de véritablement monstrueux à ce qu'un peuple soit ainsi trahi
 par sa tête. Puisqu'ils sont pangermanistes, et qu'il
-faut tout faire à l'allemande, enfin pourquoi n'imitent-
-ils pas l'Allemagne de 1813. Un opportun centenaire,. A
+faut tout faire à l'allemande, enfin pourquoi n'imitentils pas l'Allemagne de 1813. Un opportun centenaire,. A
 à et les Allemands l'ont célébré avec assez d'ostentation,
 : pouvait peut-être leur en donner l'idée. Même dans les Le
 - manuels de M. Seignobos nous avons appris que les
@@ -2681,7 +2569,7 @@ je ne les dirai qu'avec une extrême réserve. Car j'ai;
 $.— Elles sont mémorables pour moi, elles ne le sont:
 peut-être pas pour lui. Ces historiens oublient si vite.:
 $. — C'était je pense en 97 ou aux environs. 1897.
-4 Car 1797 c'était le premier Directoire, (celui d'aujour-
+Car 1797 c'était le premier Directoire, (celui d'aujour-
 d'hui étant le deuxième), et nous ne touchons 1797 pré
 cisément que par les livres des historiens. 1897, qui est
 
@@ -2690,8 +2578,7 @@ très loin aussi, nous le touchons dedans notre mémoire.
 et antidreyfusistes avaient, par quelque ruse de guerre,
 et je soupçonne par quelque violence, envahi la Sor-
 ( $. — Ce fut une grande affaire. Ces bandes antisémi- À
-é tiques et antidreyfusistes étaient fort braves, elles étaient 4 » fort bien conduites, elles étaient très allantes et pre-
-naïient les plus vigoureuses offensives, conformément
+é tiques et antidreyfusistes étaient fort braves, elles étaient 4 » fort bien conduites, elles étaient très allantes et prenaïient les plus vigoureuses offensives, conformément
 aux principes de la guerre moderne. Vous êtes trop
 jeunes, mes enfants, pour avoir connu tout ça. Et nous
 - aussi nous étions fort braves, nous les bandes antianti-?
@@ -2732,8 +2619,7 @@ député, par un Juif extrêmement riche et naturellement Nul
 ment honorables au point de vue de la guerre. Égale-
 à ment honorables au point de vue du sport. Il n'y avait En
 que les radicaux qui n'avaient point trouvé place dans Le
-ces deux immenses armées. Ils se préparaient seule-
-ment à ravager le champ de bataille, à dépouiller les FANS
+ces deux immenses armées. Ils se préparaient seulement à ravager le champ de bataille, à dépouiller les FANS
 blessés et les morts.
 
 cahiers de la quinzaine
@@ -2766,8 +2652,7 @@ mieux ne pas être dreyfusards. Chacun son goût. Et en
 folles, tant ils se jettent ensemble au secours de la
 République. Mais en 97 ils préféraient regarder vers Le
 $. — Rassurez-vous toutefois, mes petits agneaux, et
-4 ne tremblez point ainsi dans vos souquenilles. M. Sei-
-gnobos ne fut pas ce jour-là détruit par les bandes anti-;
+4 ne tremblez point ainsi dans vos souquenilles. M. Seignobos ne fut pas ce jour-là détruit par les bandes anti-;
 sémitiques. La preuve c'est qu'il existe encore. Et
 c'est une preuve historique. Ou alors il n'y en a pas.
 Non, il ne fut pas massacré. Car je veillais.
@@ -2783,8 +2668,7 @@ temps-là était merveilleusement outillée au point de vue
 militaire. Non point comme aujourd'hui pour faire des a
 officiers de réserve, mais dans ce temps-là pour faire
 des soldats de cette guerre civile. Nous étions, nous
-. formions une petite bande d'une souplesse, d'une mobi-
-lité, mais d'une fermeté extraordinaire, Notre vitesse de;
+. formions une petite bande d'une souplesse, d'une mobilité, mais d'une fermeté extraordinaire, Notre vitesse de;
 
 À mobilisation avait été portée à un point de précision sa
 "4 inouï. En moins de quelques minutes, (mettons six ou
@@ -2863,8 +2747,7 @@ fonctionnaire et de non Sorbonnard et de Sorbonnard
 tout de même. Elle était fondée sur cette brusquerie
 courte et coupée, verte, sur cette verdeur, sur cet
 humour un peu braque mais d'autant plus singulier,
-; d'autant plus attachant, d'autant plus prenant et sympathique, inattendu, sortant en boutades les plus impré-
-vues, les plus réjouissantes, les plus crues; les plus
+; d'autant plus attachant, d'autant plus prenant et sympathique, inattendu, sortant en boutades les plus imprévues, les plus réjouissantes, les plus crues; les plus
 baroques; censément les plus neuves; les plus maté-;
 
 48 __rielles; souvent les plus terre à terre et les plus réalistes;
@@ -2880,7 +2763,7 @@ jamais croire qu'il n'est pas voulu. Le bégaiement, (on DE
 4 le sait), est la plus grande marque (temporelle) de la
 
 ; $. — Je ne puis vraiment pas ne pas parler de à
-1 M. Seignobos. Il s'est tellement montré dans ce meeting, JE
+M. Seignobos. Il s'est tellement montré dans ce meeting, JE
 dans toute cette action. Ce serait un enfantillage de D'AL
 4 faire semblant de ne pas l'avoir vu. Ce serait luifaire
 injure que de ne pas tenir compte de lui. Et lui-même
@@ -2941,8 +2824,7 @@ Quand M. Seïgnobos officiellement et publique- nie
 4 ment se porte garant qu'il n'y aura pas la guerre, il
 : 14 perd certainement de vue que le métier de l'historien
 dans la République ce n'est pas de prédire l'avenir,
-c'est de prédire le passé. Et encore ils s'y prennent telle-
-ment mal pour prédire le passé, et ils y réussissent:
+c'est de prédire le passé. Et encore ils s'y prennent tellement mal pour prédire le passé, et ils y réussissent:
 évidemment si peu qu'ils feraient un peu mieux d'es-
 3 sayer de se reconnaître dans leur domaine, plutôt que
 de vouloir empiéter sur le domaine réservé.
@@ -2975,10 +2857,8 @@ plus libéral que tous ces libéraux et tous ces libertaires
 est forcé de croire que l'on aura la guerre, mais je dis
 rar LES que c'est une folie de garantir qu'on ne l'aura pas.
 naissance, une ignorance, un oubli incroyable de ce que À
-ee, c'est que la réalité même de l'événement, et de l'événe-
-ment proprement historique. On peut à la rigueur avoir
-A l'opinion qu'il n'arrivera rien, bien qu'il soit extrème-
-ment diflicile de penser que tout cela finira sans qu'il
+ee, c'est que la réalité même de l'événement, et de l'événement proprement historique. On peut à la rigueur avoir
+A l'opinion qu'il n'arrivera rien, bien qu'il soit extrèmement diflicile de penser que tout cela finira sans qu'il
 finisse par arriver quelque chose. Mais enfin c'est à la
 rigueur et pour ainsi dire à la limite une opinion. Ce
 qui est fou, ce qui est une gageure, dans une situation
@@ -2990,8 +2870,7 @@ mieux qu'Auguste et que Napoléon leur a donné cette
 
 ? $.— faut être un professeur, et un professeur d'his-
 . toire, et (croire) avoir saisi dans le passé les lendemains
-de toutes les veilles et les liaisons de tous les lende-
-mains à toutes les veilles pour croire que l'on saisira a
+de toutes les veilles et les liaisons de tous les lendemains à toutes les veilles pour croire que l'on saisira a
 
 aussi la liaison de ce lendemain unique à cette veille
 
@@ -3004,7 +2883,7 @@ ne saisit pas demain.
 M. Seignobos de parier un déjeuner avec M. Marcel “OA
 ; Prévost que nous n'aurons pas la guerre et je comprends
 
-À; l'ahurissement de M. Marcel Prévost et je suis surpris
+l'ahurissement de M. Marcel Prévost et je suis surpris
 4 que M. Seignobos ne le comprenne pas. M. Seignobos
 2 0 dévrait saveir assez d'histoire pour soupçonner que
 
@@ -3027,8 +2906,7 @@ la catégorie du ridicule. Et autant que nous pourrons
 [Le envisagées. S'il n'y a rien, (ce qui est dificile),
 
 ; cahiers de la quinzaine
-bien. S'il y a quelque chose, et que nous soyons vain-
-queurs assez aisément, bien. S'il y a quelque
+bien. S'il y a quelque chose, et que nous soyons vainqueurs assez aisément, bien. S'il y a quelque
 chose et que dans ce balancement des forces sinon des
 vitesses nous soyons vainqueurs malaisément,
 peut-être bien. Mais si les situations, de difliciles
@@ -3056,12 +2934,10 @@ ne mets rien au-dessus de ces excellentes institutions
 d'ancien régime qui se nomment le Tribunal Révolutionnaire et le Comité de Salut public et même je pense
 
 le Comité de Sûreté générale. Ils ont sauvé la France,
-à c'est tout ce qu'on leur demande. Et dans ces moments-
-je ne mets rien au-dessus de Robespierre dans l'anF cien régime et rien au-dessus de Richelieu dans le
+à c'est tout ce qu'on leur demande. Et dans ces momentsje ne mets rien au-dessus de Robespierre dans l'anF cien régime et rien au-dessus de Richelieu dans le
 régime révolutionnaire. Nos maîtres (d'histoire) ont
 peut-être entendu parler d'un nommé Robespierre et
-3 d'un nommé Richelieu, et d'un Tribunal Révolution-
-naire, et d'un Comité de Sûreté générale, et d'un Comité
+3 d'un nommé Richelieu, et d'un Tribunal Révolutionnaire, et d'un Comité de Sûreté générale, et d'un Comité
 À de Salut public. Et sous ces gouvernements-là tout ne
 se paye pas par un déjeuner que l'on a perdu, et on ne
 à joue pas un déjeuner mais on joue sa tête, ou on joue
@@ -3095,8 +2971,7 @@ de laquelle le premier jour de l'autre mobilisation, (de la
 à nôtre), et pendant la première heure les militants fusil-
 . Iéraïent les militaires, c'est-à-dire que l'armée du général
 2% Hervé, (comme on le nomme aujourd'hui non sans
-: quelque apparence), fusillerait tous les officiers, sous-
-officiers, caporaux et soldats de l'armée militaire, plus
+: quelque apparence), fusillerait tous les officiers, sousofficiers, caporaux et soldats de l'armée militaire, plus
 tous les officiers, sous-ofliciers, caporaux et soldats des
 4 pompiers de Paris, plus tous les officiers, sous-officiers,
 « brigadiers et cavaliers, plus tous les officiers, sous-offi-
@@ -3107,8 +2982,7 @@ tous ceux de la territoriale et tous ceux de la réserve
 , de l'armée territoriale, et les volontaires plus jeunes, et
 les volontaires plus vieux, et les recrues, et les vétérans,
 et en outre qu'elle massacrerait les pontonniers, les À
-télégraphistes, tous ces services que j'oublie. Ils n'épar-
-gneraient que les services de santé. Et encore. Il est
+télégraphistes, tous ces services que j'oublie. Ils n'épargneraient que les services de santé. Et encore. Il est
 ; permis de traiter par le mépris une telle imagination. Je
 n'en veux retenir que ceci, c'est qu'il sait très bien de
 quoi on parle, et dans quel plan on se meut. Il sait très
@@ -3186,7 +3060,7 @@ positions et des situations de déséquilibre intellectuel et
 À entendre parler de l'Alsace-Lorraine. Quand je dis que
 4 je l''admets, on entend bien que je l'admets au deuxième
 à degré. Ou si on veut compter autrement, au premier.
-4 Je l''admets une fois qu'on est dans le syndicalisme. Un
+Je l''admets une fois qu'on est dans le syndicalisme. Un
 à syndicaliste est un homme qui dit: Je ne m'occupe pas
 LL. des peuples, je ne m'occupe pas des races, je ne m'oc-:
 2 cupe que des classes. Je ne m'occupe pas des oppressions
@@ -3203,7 +3077,7 @@ revendication soit imprescriptible c'est la doctrine des À
 À "EM Droits de l'Homme et c'est la doctrine de la Déclaration
 des Droits de l'Homme et par suite je pense, (mais c'est
 ici peut-être que je me trompe), c'est la doctrine de la
-1 Ligue des Droits de l'Homme. M. de Pressensé est le
+Ligue des Droits de l'Homme. M. de Pressensé est le
 président de la Ligue des Droits de l'Homme ou enfin il
 est le président du Comité Central ou enfin il est le gros À
 bonnet et le plus gros personnage de la Ligue des
@@ -3214,8 +3088,7 @@ même assez amusant que cette ancienne grande ligue
 censément démocratique et pour tout dire qu'une Ligue À
 2 des Droits de l'Homme soit en réalité monarchisée à ce
 point. Mais cela les regarde. Ce que je veux dire c'est
-que il serait monstrueux, s'il n'était surtout souveraine-
-ment ridicule, tant c'est contradictoire, que ce soit jus- A
+que il serait monstrueux, s'il n'était surtout souverainement ridicule, tant c'est contradictoire, que ce soit jus- A
 « tement une Ligue des Droits de l'Homme qui déclare
 qu'il n'y a pas une question de l'Alsace-Lorraine. 1]
 d'Alsace-Lorraine. Mais le système des Droits de
@@ -3261,8 +3134,7 @@ demande: Pourquoi nous demande-t-on de nous émou-
 , voir pour tous les peuples opprimés, excepté pour un
 seul, qui est comme par hasard un peuple français.
 $. — Je le demande particulièrement et en quelques
-mots à notre collaborateur Félicien Challaye, qui tra-
-vaille beaucoup dans les peuples opprimés et qui en est
+mots à notre collaborateur Félicien Challaye, qui travaille beaucoup dans les peuples opprimés et qui en est
 devenu une sorte de professionnel. Challaye a trouvé
 ici toute latitude pour défendre les peuples opprimés
 qui sont ses clients. Admet-il ou n'admet-il pas qu'on
@@ -3293,8 +3165,7 @@ $. — Ce n'est déjà pas si brillant, ce que nous avons il
 à fait avec eux, ce que nous avons fait d'eux. Et il n'y a
 4 pas à en être fier. À a
 
-$. — Le fond de ma pensée, sur la question d'Alsace-
-ne? Lorraine, c'est que je n'en veux pas aux Prussiens de
+$. — Le fond de ma pensée, sur la question d'Alsacene? Lorraine, c'est que je n'en veux pas aux Prussiens de
 les avoir pris. J'en veux à ces misérables français qui
 les ont lächés. Les Prussiens n'étaient que des soldats,
 dre des vainqueurs et des conquérants. Ils ont fait jouer la
@@ -3305,8 +3176,7 @@ provinces et ensuite sont allés pleurer à l'Assemblée de
 EN $.— Au lieu de continuer la guerre. Ce n'était pas
 seulement le droit, et le devoir, de continuer la guerre;
 (4 et une nécessité de pacte plus forte que tout. Nous
-savons aujourd'hui, nous savons très bien, et les histo-
-riens mêmes, les derniers informés, avouent que les
+savons aujourd'hui, nous savons très bien, et les historiens mêmes, les derniers informés, avouent que les
 Prussiens étaient épuisés et que c'était la victoire.
 
 $.— Et nous savons aussi que c'était l'économie, que
@@ -3356,9 +3226,7 @@ Mais en temps de guerre on ne travaille plus.
 $. — En temps de paix c'est entendu, bien. Et
 tout cela finira par-des affiches et des meetings et des
 discours à la Chambre. Mais en temps de guerre, en
-République, il n'y a plus que la politique de la Conven-
-tion Nationale. Je suis pour la politique de la Conven-
-tion Nationale contre la politique de l'Assemblée de
+République, il n'y a plus que la politique de la Convention Nationale. Je suis pour la politique de la Convention Nationale contre la politique de l'Assemblée de
 Bordeaux, je suis pour les Parisiens contre les ruraux,
 je suis pour la Commune de Paris, pour l'une et l'autre
 Commune, contre la paix, je suis pour la Commune
@@ -3389,12 +3257,9 @@ le moins cher; et en hommes, et en argent. Tous les
 :0 sacres de la population militaire et de la population
 civile. Rien n'est meurtrier comme la faiblesse et la
 lâcheté. Rien n'est humain comme la fermeté. C'est;
-Richelieu qui est humain littéralement et c'est Robes-
-pierre qui est humain. Les régimes de lâcheté sont ceux
+Richelieu qui est humain littéralement et c'est Robespierre qui est humain. Les régimes de lâcheté sont ceux
 . qui coûtent le plus au monde, et en définitive ce sont
-ceux qui peuvent finir et les seuls qui finissent réelle-
-
-ment dans l'atrocité. Et en outre c'est une atrocité de.
+ceux qui peuvent finir et les seuls qui finissent réellement dans l'atrocité. Et en outre c'est une atrocité de.
 turpitude. Il n'y a que deux politiques. En temps de
 NEA guerre les régimes qui ne réduisent pas immédiatement
 ta É les ennemis de l'intérieur sont inévitablement conduits À
@@ -3440,8 +3305,7 @@ méprise d'autant plus que par les jeux des partis politiques il prétendrait s'
 cahiers de la quinzaine
 $. — Quels que soient les partis celui qui ne rend
 pas une place française est le droit héritier de tous
-ceux qui n'ont pas rendu des places françaises. Roche-
-reau dans Béfort (et Masséna dans Gênes) sont les
+ceux qui n'ont pas rendu des places françaises. Rochereau dans Béfort (et Masséna dans Gênes) sont les
 droits héritiers de celle qui fit lever le siège d'Orléans.
 Ils en sont les héritiers spirituels comme ils en sont les:
 successeurs temporels. Ils sont de sa filiation spirituelle
@@ -3464,10 +3328,8 @@ trahir à la fois la prière, le sacrement, et la loi d'obéissance, puisque c'e
 frauduleuse, c'est vouloir faire servir la prière et le
 sacrement à pécher, à commettre le péché de paresse.
 C'est vouloir faire servir la prière et le sacrement
-contre le commandement d'obéissance, contre le com132
-
-mandement de travail, qui est je pense l'un des plus
-vieux commandements sinon le plus vieux, étant lié à;
+contre le commandement d'obéissance, contre le commandement de travail, qui est je pense l'un des plus
+vieux commandements sinon le plus vieux, étant lié
 3 la première loi et au péché d'origine et au pourchas du
 $. — Celui qui fait jouer la prière et le sacrement:
 pour se dispenser de travailler et d'agir, c'est-à-dire en
@@ -3477,8 +3339,7 @@ FE. antique, et il le rompt par trois monstrueuses ruptures,
 car il retourne contre la loi de travail, contre le com-
 4 mandement de travail la prière et le sacrement qui je
 ; 4 pense ne nous ont pas été donnés pour cela; pour nous
-ne encourager, pour nous préparer à désobéir; et à com-
-mettre le péché de paresse; et pour nous y engager;;
+ne encourager, pour nous préparer à désobéir; et à commettre le péché de paresse; et pour nous y engager;;
 14 par un frauduleux balancement du calcul des respon-
 : sabilités; et pour nous permettre de faire l'appoint
 4 quand nous nous préparons à désobéir, et à commettre
@@ -3510,8 +3371,7 @@ SE 0 priaient, mieux que nous, et ensuite, et si je puis dire
 en exécution de leur prière, et presque déjà en couronpement de leur prière ils se battaient, eux-mêmes, tant
 qu'ils pouvaient, de tout leur corps, et eux-mêmes de
 tout leur temporel. Car dans le temporel et pour la conquête du temporel il faut aussi engager le temporel.
-Aide-toi, le ciel t'aidera, ce n'est pas seulement un pro-
-verbe, de chez nous, et une fable de la Fontaine, c'est
+Aide-toi, le ciel t'aidera, ce n'est pas seulement un proverbe, de chez nous, et une fable de la Fontaine, c'est
 une théologie, et l'ordre de marche, et la forme même
 du commandement, Et la seule théologie qui soit orthodoxe, Les autres seraient hérétiques.
 $. — Pareillement Jeanne d'Arc qui assurément ne fit -
@@ -3576,8 +3436,7 @@ de: droîtes filiales de Patay. Elles n'en sont pas seulement
 cahiers de la quinzaine
 , spirituelles. Elles sont de la même race, de la même
 
-famille spirituelles, du même ton, de la même procé-
-dure, du même élan, du même mouvement, de la même
+famille spirituelles, du même ton, de la même procédure, du même élan, du même mouvement, de la même
 
 $. — La place que Sa Majesté m'a confiée. C'est toujours le roi qui leur confie les mêmes places.
 
@@ -3606,8 +3465,7 @@ parler toujours de ces malheureux que nous avons
 les libérer. Ou puisqu'on a le courage de les livrer,
 et puisqu'on n'a pas le courage de les libérer, il vaut
 À $. — J'ai horreur de l'éloquence toujours. Mais que
-4 dire de ceux qui font de l'éloquence dans cette malheu-
-reuse affaire où tout le monde est coupable et certaine-:
+4 dire de ceux qui font de l'éloquence dans cette malheureuse affaire où tout le monde est coupable et certaine-:
 ment criminel, dans cette malheureuse affaire où à l'ori-
 ._._ gine il s'agissait uniquement de garder les armes ou de
 “ne pas les garder, où depuis il s'agit uniquement de
@@ -3632,13 +3490,11 @@ Rat porte dans l'historique et comme disent ces imbéciles “sl
 dans l'objectif. Dans le pur objectif; dans l'impersonnel
 objectif; dans le serein objectif. Je dis que même surce
 É plan, même dans ce registre, même dans ce système et pit.
-peut-être surtout dans ce système la position, la situa-
-tion de M. de Pressensé est intenable.
+peut-être surtout dans ce système la position, la situation de M. de Pressensé est intenable.
 EU. $. — Ou bien que l'on continue à nous parler de tous
 Jubt les peuples opprimés, (c'est mon système et ‘je n'ai pas
 besoin de dire que pour moi c'est beaucoup plus qu'un
-système), et alors que l'on nous parle aussi des Alsa-
-ciens-Lorrains. Ou bien que l'on ne nous parle pas des +5
+système), et alors que l'on nous parle aussi des Alsaciens-Lorrains. Ou bien que l'on ne nous parle pas des +5
 "1 Alsaciens-Lorrains, (c'est le système de M. Francis de
 . Pressensé), mais alors que l'on ne nous parle pas non
 UrTE plus des autres peuples. Et que même en théorie on ne
@@ -3681,8 +3537,7 @@ Il est le frère et le symétrique des trois cahiers de
 Bernus. L'oppresseur est le même, la méthode d'oppres- QUE
 sion est la même, l'oppression est la même.
 $. — Au sens où on dit que la Finlande, au sens où
-on dit que la Pologne est opprimée, il est rigoureu-
-sement vrai de dire que en ce même sens l'AlsaceLorraine est opprimée. Alors comment se fait-il qu'on
+on dit que la Pologne est opprimée, il est rigoureusement vrai de dire que en ce même sens l'AlsaceLorraine est opprimée. Alors comment se fait-il qu'on
 nous parle toujours des autres et qu'on ne nous parle
 jamais de ceux qui demeurent nos frères.
 $. — Pour Jaurès l'explication est extrêmement
@@ -3709,8 +3564,7 @@ d'une malhonnêteté. Pressensé est un honnête homme
 3 $. — Depuis qu'il a été dessaisi et désarmé de la
 guerre de l'affaire Dreyfus, il y a dans Pressensé un )
 È besoin d'incohérence vraiment extraordinaire et qui a
-É fait croire souvent qu'il était malhonnèête. Cette incohé-
-rence a débuté d'une manière retentissante. C'était tout
+É fait croire souvent qu'il était malhonnèête. Cette incohérence a débuté d'une manière retentissante. C'était tout
 4 aussitôt après cette amnistie de l'affaire Dreyfus contre à
 …._ laquelle nous nous étions élevés ensemble, Pressensé
 1 faisait tous les matins dans l'Aurore un article furieux
@@ -3720,8 +3574,7 @@ rence a débuté d'une manière retentissante. C'était tout
 LA arriva dans ce temps-là des élections législatives.
 
 Pressensé partit tout à coup de Paris fougueux anti-
-1 ministérialiste ou si vous préférez fougueux antiministé-
-riel. Mais il faut croire qu'il changea de train aux
+1 ministérialiste ou si vous préférez fougueux antiministériel. Mais il faut croire qu'il changea de train aux
 
 Laumes. Car il arriva à Lyon candidat officiel, élu par
 le préfet. Puis il revint à Paris. A
@@ -3752,9 +3605,7 @@ que c'est qu'un oppresseur qui est fort, on trouverait
 ET le motif précisément d'une tentative de libération). “4
 de $. — De sorte que en dernière analyse on trouverait.
 4 que M. de Pressensé est pour la liberté des peuplesà
-[sp condition qu'il n'y ait pas de risque de guerre, à condi-
-
-tion que la libération des peuples opprimés n'entraîne ne
+[sp condition qu'il n'y ait pas de risque de guerre, à condition que la libération des peuples opprimés n'entraîne ne
 pas, ne comporte pas des risques de guerre.
 À — Ce qui revient enfin à dire que Pressensé est ni
 3 pour le droit contre la force quand la force n'est pas forte. À
@@ -3779,8 +3630,7 @@ l'honneur est plus cher que la vie, Mais d'autant que
 
 cahiers de la quinzaine
 l'honneur est plus cher que le jour: Voilà la formule
-cornélienne; le système cornélien; la doctrine corné-
-lienne; l'échelle des valeurs cornélienne. Le système;
+cornélienne; le système cornélien; la doctrine cornélienne; l'échelle des valeurs cornélienne. Le système;
 Pressensé est le système diamétralement contraire.
 C'est essentiellement le système où l'honneur est moins
 cher que le jour.
@@ -3797,8 +3647,7 @@ de l'Homme. Je ne suis pas chargé de mettre de l'ordre
 dans la cervelle- de M. de Pressensé, mais enfin la
 Déclaration des Droits de l'Homme a justement été
 faite, elle a été justement introduite dans le monde pour
-expliquer que le droit passait avant tout, et par consé-
-quent notamment avant la paix. Les historiens mêmes
+expliquer que le droit passait avant tout, et par conséquent notamment avant la paix. Les historiens mêmes
 
 .— La République une et indivisible, voilà ce qui
 est sorti de la Déclaration des Droits de l'Homme et du
@@ -3984,8 +3833,7 @@ pure et presque la plus schématique, et théorique,
 9 qu'elle est pour ainsi dire portée à son maximum, NE
 qu'elle est littéralement portée à son point de perfection. (
 C'est dans le système des Droits de l'Homme que la
-À question d'Alsace-Lorraine est indéniablement et irré-
-vocablement résolue, et pour éternellement, par la
+À question d'Alsace-Lorraine est indéniablement et irrévocablement résolue, et pour éternellement, par la
 4 déclaration lue à l'Assemblée de Bordeaux.
 4 $. — La Déclaration des Droits de l'Homme est tout
 ce qu'on voudra. Mais elle ne sera jamais la charte de
@@ -4101,8 +3949,7 @@ que demi-mal, ou plutôt il n'y avait qu'un mal plein,
 juste un mal entier; et quand l'anarchie demeurait hors
 1 des conseils du gouvernement. Il n'y avait pas un mal
 un et demi. Sesquipedalia verba. Maïs la liaison de Herr
-avec Lavisse, l'ascendant de Herr sur Lavisse, le gou-
-vernement de Herr sur Lavisse a été la liaison de méca- y
+avec Lavisse, l'ascendant de Herr sur Lavisse, le gouvernement de Herr sur Lavisse a été la liaison de méca- y
 nisme, le couple de mécanisme qui a lié le désordre à
 à l'ordre, qui a fait pénétrer un certain désordre jusque
 
@@ -4120,8 +3967,7 @@ passer sous silence, quand on sait que de l'autre côté,
 par la liaison de Herr avec Jaurès, et avec d'autres, ce
 10 petit groupe normalien est devenu le point d'infection
 politique, le point de contamination, le point d'origine "1
-de virulence qui a corrompu, qui a empoisonné le drey-
-fusisme, le socialisme, l'esprit révolutionnaire même.
+de virulence qui a corrompu, qui a empoisonné le dreyfusisme, le socialisme, l'esprit révolutionnaire même.
 De sorte que le couple Herr-Lavisse, jouant à volonté,
 par l'un ou l'autre de ses deux termes, dans le monde "4
 socialiste ou dans le monde bourgeois, y a obtenu dans Fe.
@@ -4152,8 +3998,7 @@ une excitation des instincts bourgeois dans le monde HAS
 FA. ouvrier, un entraînement des ouvriers à devenir à leur; Fe.
 tour de sales bourgeois; mans à
 c).— par contre ils ont infecté l'État, le gouvernement
-4 de l'État, le gouvernement fonctionnaire, le gouverne-
-ment universitaire et une sorte de gouvernement spiri- Frs.
+4 de l'État, le gouvernement fonctionnaire, le gouvernement universitaire et une sorte de gouvernement spiri- Frs.
 tuel et de gouvernement temporel des esprits d'une Je
 sorte de virus d'anarchie et de goût d'un certain désordre,;
 d'un désordre particulier qui peut être à sa place dans
@@ -4190,8 +4035,7 @@ f). — la force révolutionnaire, qui était l'honneur et
 cette race, et qui consistait essentiellement à vouloir
 que aille bien et à en faire plus que son compte,
 
-l'esprit révolutionnaire, qui était essentiellement géné-
-reux, l'instinct révolutionnaire est devenu en leur temps
+l'esprit révolutionnaire, qui était essentiellement généreux, l'instinct révolutionnaire est devenu en leur temps
 . et sous leur gouvernement et en leurs mains un bas
 esprit de sabotage et de dénigrement et de rancune qui
 consiste essentiellement à se réjouir de ce que aille
@@ -4203,8 +4047,7 @@ de mutuelle liberté entre les peuples est devenu entre
 4 leurs mains une sorte de vague cosmopolitisme bourgeois vicieux et d'autre part et très particulièrement et
 très proprement un pangermanisme, un total asservissement à la politique allemande, au capitalisme alleL mand, à l'impérialisme allemand, au militarisme alle- us.
 $. — Nous touchons ici à leur quatrième sornette, à
-moins que ce ne soit la cinquième: que dans cet équi-
-libre de force entre l'Allemagne et la France, dans cet ons
+moins que ce ne soit la cinquième: que dans cet équilibre de force entre l'Allemagne et la France, dans cet ons
 Le équilibre militaire il y aurait en Allemagne un parti
 3 socialiste qui leur ferait contre-poids, qui ferait la même
 “4 chose en Allemagne que eux en France, et une action
@@ -4231,15 +4074,13 @@ $. — Il faut voir comme ils ont traité Andler parce
 qu'il avait constaté publiquement ce que tout le
 Ne, monde sait: que sur les quatre millions de voix à
 0 socialistes allemandes il y en a trois millions qui ne
-es sont pas sérieuses, qui ne refuseront rien ni au milita-
-risme, ni à l'impérialisme, ni au colonialisme, ni par;.
+es sont pas sérieuses, qui ne refuseront rien ni au militarisme, ni à l'impérialisme, ni au colonialisme, ni par;.
 suite au capitalisme. Trois millions qui ne sont qu'un
 remplissage, un rembourrage de plus ou moins de
 mécontentement. (Et sur le million qui reste il y aurait
 beaucoup à dire, et beaucoup de réserves à faire). (Et À
 beaucoup de déchet encore). En somme l'Humanité a
-refusé de la copie à Andler, ce qui est assez scanda-
-leux, et assez grotesque, et assez cocasse, pour qui
+refusé de la copie à Andler, ce qui est assez scandaleux, et assez grotesque, et assez cocasse, pour qui
 connaît un peu tout ça. Que cette copie fût une lettre ou
 un article ou que ce fût seulement un projet, il est un
 peu raide et assez imprévu que l'Humanité refuse un à
@@ -4284,8 +4125,7 @@ fait en commun avec les Allemands et dont ils partagent
 censément la responsabilité avec le parti socialiste allemand, qui n'a pas senti au contraire tout de suite l'imparité, et ce ton sournois, et ce ton suspect, et cette
 précaution à peine suspecte que les Allemands y ont
 introduite, de faire savoir qu'ils voteraient les impôts
-de renforcement militaire parce que ces impôts fourni-
-raient une excellente occasion d'asseoir un impôt plus
+de renforcement militaire parce que ces impôts fourniraient une excellente occasion d'asseoir un impôt plus
 démocratique. Et de faire payer les bourgeois.
 
 — Je repense à cette formule, la paix par le droit,
@@ -4319,8 +4159,7 @@ enfin le seul point d'appui temporel qu'ait la liberté dans:
 le monde. Il ne fait aucun doute que la France a deux à
 …_._ vocations dans le monde et que si elle est quelquefois
 fatiguée au temporel et même au spirituel et diminuée
-:et quelquefois pauvre de forces c'est qu'elle est dou-
-blement fidèle, c'est qu'elle est fidèle deux fois, c'est
+:et quelquefois pauvre de forces c'est qu'elle est doublement fidèle, c'est qu'elle est fidèle deux fois, c'est
 qu'elle a à pourvoir à deux tâches, et à deux fidélités, AS
 
 La France n'est pas seulement la fille aînée de l'Église, À
@@ -4390,8 +4229,7 @@ même système de gouvernement que nous subissons,.
 gouvernement des esprits et gouvernement temporel. Ils
 sont amis de Lavisse pour empêcher Lavisse de recevoir
 nos coups, mais ils ne sont pas amis de Péguy pour
-empêcher Péguy de recevoir les coups et le gouverne-
-ment de Lavisse. C'est un duel où tous les témoins
+empêcher Péguy de recevoir les coups et le gouvernement de Lavisse. C'est un duel où tous les témoins
 couvrent de leur corps l'un des deux adversaires. Ils
 sont amis d'un côté et eux aussi ils sont irréversibles.
 Ils sont amis de Lavisse pour défendre Lavisse non pas
@@ -4455,8 +4293,7 @@ contre le riche.
 découvert contre le temporel.
 
 $. — Et jamais le puissant n'a été aussi couvert
-contre le faible, et jamais le faible n'a été aussi décou-
-vert contre le puissant. Reposuit potentes sede.
+contre le faible, et jamais le faible n'a été aussi découvert contre le puissant. Reposuit potentes sede.
 
 ; $. — On ne peut pas dire que je persécute Lavisse,
 S'il avait quelque chose à dire, celui-là, il en avait les
@@ -4485,9 +4322,7 @@ que contre nous, elle ne joue pas contre eux. Ils sont
 
 où malades pour que nous ne leur adressions pas la parole,
 
-ils ne sont pas malades pour exercer les grands com-
-
-mandements. Il est malade pour que je ne le mette pas
+ils ne sont pas malades pour exercer les grands commandements. Il est malade pour que je ne le mette pas
 
 cahiers de la quinzaine
 dans les cahiers, il n'est pas malade pour gouverner
@@ -4511,9 +4346,7 @@ carrière M. Lavisse était malade et se retirait se soigner
 au Nouvion en Thiérache toutes les fois qu'il y avait
 des responsabilités à prendre ou même une seule responsabilité et il en revenait solide comme le Pont-Neuf
 toutes les fois que les responsabilités s'étaient évanouies.
-Il faut croire que la Thiérache est un pays particulière-
-
-ment sain, et que le séjour au Nouvion en Thiérache est
+Il faut croire que la Thiérache est un pays particulièrement sain, et que le séjour au Nouvion en Thiérache est
 particulièrement restaurateur. On ferait non pas tout à
 4 fait peut-être toute l'histoire de la troisième République, à
 . mais certainement toute l'histoire des responsabilités
@@ -4549,7 +4382,7 @@ ment et notamment les universitaires de province qui
 74 1 voulaient venir à Paris, j'ai entendu un doyen d'une.
 KYvS Faculté des Lettres d'une Université, (mais vous êtes LA
 de. trop curieux, vous ne saurez ni quel doyen, ni quelle
-à? Faculté, ni quelle Université), dire devant sept ou huit
+Faculté, ni quelle Université), dire devant sept ou huit
 Et tous de rire, je ne sais vraiment pas pourquoi. Ce
 1% n'est pas risible, d'être malade. Alors un imbécile,
 “SR pense que c'était votre serviteur), et qui ne savait pas,
@@ -4609,9 +4442,7 @@ ne peut remplacer. Car de l'athée français il peut sortir
 un saint français. Et de tout le Centre allemand et de
 tous ces Autrichiens il ne sortira jamais un saint
 
-$-. — C'est le mystère même du charnel et du tem-
-porel, mon jeune camarade, et de l'insertion du spiri-
-tuel dans le charnel et de l'insertion de l'éternel dans
+$-. — C'est le mystère même du charnel et du temporel, mon jeune camarade, et de l'insertion du spirituel dans le charnel et de l'insertion de l'éternel dans
 le temporel, et pour tout dire c'est le mystère même de
 . l'incarnation. Nous rejoignons ici ce que nous disions à
 guerre. Nous retrouverons ce mystère dans notre Clio,
@@ -4636,8 +4467,7 @@ attribuer le bénéfice à M. Lavisse.
 Le È ment qui me fait vous répondre. J'ai peur que nous ne
 tombions nous aussi dans des sophismes de paresse.
 (TITRES ne suffit pas de dire: Je suis catholique. a encore
-tout à faire. Il ne suflit pas de dire: 1! y a des catholi-
-ques. Les catholiques ont hermétiquement la vérité en
+tout à faire. Il ne suflit pas de dire: 1! y a des catholiques. Les catholiques ont hermétiquement la vérité en
 À matière de foi. Ils n'ont pas le monopole du relèvement 5 "4
 Pal d'un peuple. En 1813 la Prusse n'était pas catholique.
 Et elle ne l'est pas encore.
@@ -4650,8 +4480,7 @@ ME un bon protestant et de ne pas aimer un mauvais pro
 te testant. Car d'un mauvais protestant on ne fait jamais
 un bon catholique et nous en avons récemment et
 , non loin de nous un exemple retentissant. Le
-4 $. — Et c'est avec les bons athées, mon jeune cama-
-rade, et ceux qui ne s'y attendent pas, que la grâce fait
+4 $. — Et c'est avec les bons athées, mon jeune camarade, et ceux qui ne s'y attendent pas, que la grâce fait
 les bons chrétiens. Et la réserve et le secret et le
 mystère temporel c'est précisément que nous savons
 bien qu'avec les mauvais athées elle ne fera jamais des
@@ -4730,15 +4559,11 @@ sale pelotage avec les libéraux: voilà la turpitude.
 Car c'est cela qui fait les renégats.
 $. — On m'oppose tout ce que Lavisse a fait de bien,
 
-d'heureux choix, notamment d'heureux choix de colla-
-
-borateurs, quelques nominations. Nous avons de nos
+d'heureux choix, notamment d'heureux choix de collaborateurs, quelques nominations. Nous avons de nos
 
 maîtres, en cette démocratie, et du magistère, et de la
 
-magistrature, une idée telle que dès qu'ils ne commet-
-
-tent pas une félonie nous crions au miracle, et à l'émi- À
+magistrature, une idée telle que dès qu'ils ne commettent pas une félonie nous crions au miracle, et à l'émi- À
 
 nence. Au lieu de leur faire un compte régulier, où on
 
@@ -4746,11 +4571,7 @@ mettrait à leur actif ce qu'ils font de bien, et à leur
 
 passif ce qu'ils font de mal, nous avons d'eux et de leur
 
-administration et de leur gouvernement et de leur com-
-
-mandement et de leur tyrannie une idée si extraordi-
-
-naire, (et si juste), que nous commençons par ne rien
+administration et de leur gouvernement et de leur commandement et de leur tyrannie une idée si extraordinaire, (et si juste), que nous commençons par ne rien
 
 mettre à leur passif, quoi qu'ils fassent, parce que nous
 
@@ -4799,13 +4620,12 @@ philosophie de Bergson qui a fait les frais de cette
 :. petite opération. Puis-je avertir les thomistes qui ont
 trouvé bon accueil en Sorbonne qu'on les aime contre
 
-;;: quelqu'un, et que ce n'est point si je puis dire pour les
+quelqu'un, et que ce n'est point si je puis dire pour les
 RES beaux yeux de saint Thomas que la Sorbonne s'est
 subitement senti des tendresses pour la philosophie
 HT: thomiste; et que rien n'est suspect comme une tendresse
 à 4 de Sorbonne; et que rien n'est suspect comme une Y
-4 alliance, fût-elle officieuse, et fût-elle occulte, des catho-
-liques et de la Sorbonne; et que dans ces sortes de
+4 alliance, fût-elle officieuse, et fût-elle occulte, des catholiques et de la Sorbonne; et que dans ces sortes de
 feux ce sont toujours les catholiques qui sont bernés; et que c'est bien fait pour eux; et qu'ils sont exécrables
 NE dans toute politique; et que ce que l'on ne pardonne
 pas à Bergson, c'est d'avoir brisé nos fers.
@@ -4829,16 +4649,14 @@ douteuse opération. La Sorbonne serait assez disposée
 à faire alliance avec les docteurs, et peut-être même à À
 faire une place aux docteurs, pourvu que ce fût contre ne
 - les héros et les saints. Ce serait même, avouons-le, une,
-assez bonne et certainement la meilleure manière d'au-
-thentiquer ses inventions contre les héros et les saints.
+assez bonne et certainement la meilleure manière d'authentiquer ses inventions contre les héros et les saints.
 Car ainsi elle paraîtrait libérale, équitable, que dis-je, à à
 
 44 — Reste à savoir si les docteurs seront disposésà
 lâcher les héros et les saints, pour être eux-mêmes SA
 honorés des faveurs de la Sorbonne, ou, sil'on préfère,
 — pour être favorisés des honneurs de la Sorbonne. Toute
-la question est de savoir si les docteurs, dont person-
-nellement je me passe très bien, débarqueront les saints,; 29)
+la question est de savoir si les docteurs, dont personnellement je me passe très bien, débarqueront les saints,; 29)
 dont nul ne peut se passer. Ce serait mal les connaître,
 
 . (les docteurs), que de ne pas espérer qu'en effet ils: Ne
@@ -4858,8 +4676,7 @@ que l'on habille en Alsaciennes. Quand même elles en?
 ; seraient, ce n'est pas une raison. -
 $. — Monsieur de Pressensé, Constitution de l'an
 — L'an monsieur de Pressensé, pour la Ligue des
-Droits de l'Homme, c'est comme qui dirait le commen-
-cement du monde. Dans la première Déclaration, monsieur de Pressensé, il y avait la résistance à l'oppression.
+Droits de l'Homme, c'est comme qui dirait le commencement du monde. Dans la première Déclaration, monsieur de Pressensé, il y avait la résistance à l'oppression.
 Dans la Constitution de l'an il y avait ce que c'est que
 la résistance à l'oppression.
 33.— La résistance à l'oppression est la conséquence
@@ -4869,9 +4686,7 @@ oppression contre chaque membre lorsque le corps
 social est opprimé.
 
 À 35. — Quand le gouvernement viole les droits du si
-4 peuple, l'insurrection est pour le peuple, et pour cha-
-que portion du peuple, Le plus sacré et le plus indis-
-pensable des devoirs.
+4 peuple, l'insurrection est pour le peuple, et pour chaque portion du peuple, Le plus sacré et le plus indispensable des devoirs.
 Monsieur de Pressensé je ne dis pas que tout rend
 4 le gouvernement commode. Mais je vous demande, ce que tout c'est des moyens d'avoir la paix.
 $. — ne faut point m'accuser de persécuter
@@ -4889,8 +4704,7 @@ rien et les valeurs que j'essaie de défendre contre les
 L. $. — On me dit: C'est un vieillard. Je dis pardon. »
 É Les vieillards ont droit au respect. Ils n'ont pas droit à
 
-Ils ont droit au commandement s'ils savent com-
-paie mander, s'ils sont bons pour commander. Maisils n'ont
+Ils ont droit au commandement s'ils savent compaie mander, s'ils sont bons pour commander. Maisils n'ont
 pas droit au commandement par cela seul qu'ils sont
 des vieillards. NOUS
 Les vieillards, comme tels, parce qu'ils sont vieillards,
@@ -4900,8 +4714,7 @@ dement. Autrement il suflirait de devenir supréêmement
 vieux, dans n'importe quel ordre, pour parvenir, dans es
 à cet ordre, au commandement suprême.
 PRE $. — On admet bien, dans le militaire, et tout le:
-monde admet, pour les militaires, que rien n'est dange-
-reux comme les généraux fatigués. Et loin de donner
+monde admet, pour les militaires, que rien n'est dangereux comme les généraux fatigués. Et loin de donner
 aux généraux vicillis les commandements suprêmes on
 …_._ a créé la limite d'âge. Et on ne parle que de rajeunir
 É les cadres. Et on croit avoir bien fait, et on se félicite,
@@ -4916,10 +4729,7 @@ Ernest Lavisse ne pourrait commander ni l'École de
 Saint-Cyr ni l'École Polytechnique. Mais pourquoi À
 M. Lavisse civil est-il bon pour commander l'École;
 Normale Supérieure. C'est aussi un commandement, le
-commandement de l'École Normale Supérieure. Pour-
-quoi M. Lavisse est-il bon pour garder le commande-
-
-ment de l'École Normale Supérieure. Croit-on qu'il soit
+commandement de l'École Normale Supérieure. Pourquoi M. Lavisse est-il bon pour garder le commandement de l'École Normale Supérieure. Croit-on qu'il soit
 sans inconvénient de laisser à la tête et au commande
 4 ment de toute cette jeunesse un général vieilli, et un
 général fatigué. Et qu'il n'y ait pas dans le civil des ANA
@@ -4928,12 +4738,10 @@ inconvénients comme dans le militaire. Ou alors, si
 1 tel qu'on peut le tenir vieilli et fatigué, alors qu'on
 supprime ce poste et qu'avec cet argent on achète des
 Rimailho. Le secrétaire général de l'École fera trèsbien
-3 le « travail ». Surtout qu'il a lui-même un petit coad-
-juteur. M. Lavisse n'est point un grand écrivain, niun
+3 le « travail ». Surtout qu'il a lui-même un petit coadjuteur. M. Lavisse n'est point un grand écrivain, niun
 grand poète à qui l'État doive assurer le pain de ses
 : vieux jours. D'abord il aurait une excellente retraite,
-“4 Ensuite il a touché toute sa vie des traitements suff-
-sants et chez les éditeurs, généralement pour le travail
+“4 Ensuite il a touché toute sa vie des traitements suffsants et chez les éditeurs, généralement pour le travail
 ,. des autres, des droits d'auteur qui lui ont certainement Tes
 permis de prendre un livret à la caisse d'épargne. Nous
 4 sommes tellement bons, mon jeune camarade, quetout
@@ -4953,8 +4761,7 @@ cahiers de la quinzaine à
 Est-ce trop demander, Nous demandons que ceux
 qui ont mal conduit ne conduisent plus.
 Nous demandons combien de temps on encore
-laisser M. Lavisse à la tête de l'École Normale Supé-
-rieure. Quand le médecin a mal soigné, on le change.
+laisser M. Lavisse à la tête de l'École Normale Supérieure. Quand le médecin a mal soigné, on le change.
 C'est bien simple. Quand le gouverneur a mal gouverné,
 on le change. Quand le directeur a mal dirigé, on le à
 change. Pourquoi faire tant d'affaires. Tout cela est la
@@ -5020,8 +4827,7 @@ AS ments qui se décomposent à chaque instant en temps
 de commandement. il
 
 $. — La situation est fort simple et ce que nous
-1 demandons est fort simple. Nous assistons indéniable4 ment en ce temps-ci à une profonde et violente renais-
-sance française, à une profonde restauration, dans le
+1 demandons est fort simple. Nous assistons indéniable4 ment en ce temps-ci à une profonde et violente renaissance française, à une profonde restauration, dans le
 très beau sens de ce mot si imprudemment discrédité, à
 une profonde et violente révolie et réintégration de la
 race, ce que nous demandons c'est siraplement ceci:
@@ -5031,8 +4837,7 @@ laisser ce même vieux conseil aulique. A toute cette
 ardeur et à toute cette exubérance et à toute cette
 innocence va-t-on continuer d'imposer les mêmes vieillis,
 les mêmes fatigués, le même vieux personnel qui avait;
-. précisément créé cette situation de lassitude et de décré-
-pitude, et de désarmement et de dénégation contre
+. précisément créé cette situation de lassitude et de décrépitude, et de désarmement et de dénégation contre
 lequel et ce pays et cette race et cette jeunesse ont fini
 par se révolter. Laissera-t-on tant de belle jeunesse aux
 mains de ces vieux. Et de si excellentes troupes aux
@@ -5100,9 +4905,7 @@ et pour la paix européenne. MALE
 à Mais à qui la faute si cette alliance existe et persiste? A
 "(4 qui la faute si l'or français soudoie les armées russes, et Le
 4 si le développement de la puissance slave entretient tous les « 4. espoirs de nos chauvins? A qui la faute si, la grande presse de
-aidant, les cocoricos et les battements d'ailes de nos va-l'en-
-
-guerre sont capables, à une heure de passion et date?
+aidant, les cocoricos et les battements d'ailes de nos va-l'enguerre sont capables, à une heure de passion et date?
 1 ment, d'entraîner le pays aux pires folies? FÉES
 A qui, sinon aux crétins pangermanistes qui, en 71,0ont
 commis contre le droit des gens un monstrueux attentat —
@@ -5145,8 +4948,7 @@ armée, pareils au médecin qui combattrait la fièvre par la
 
 quinine, sans voir où sans opérer l'abcès purulént qui est
 À Et cet aveuglement ou ce manque de décision, delapart
-du parti qui devrait être le plus clairvoyant et le plus auda-
-cieux, est bien ce qu'il y a de plus triste dans la criseque
+du parti qui devrait être le plus clairvoyant et le plus audacieux, est bien ce qu'il y a de plus triste dans la criseque
 : traverse l'Europe. LEAVE
 Ah! nous pouvons demander limitation des armements, 1200
 8 la fin du régime de la paix armée! 4)
@@ -5178,8 +4980,7 @@ cahiers de la quinzaine
 exercer les grands commandements.
 $. — Que messieurs les vieillards commencent. Et
 qu'ils commencent par ne pas effectuer ou essayer
-d'effectuer le virement suivant: ils revendiquent le res-
-pect; et quand on leur demande ce que c'est que ce
+d'effectuer le virement suivant: ils revendiquent le respect; et quand on leur demande ce que c'est que ce
 respect, ils précisent que c'est de rester au pouvoir et
 d'exercer les grands commandements.
 $. — Sur un autre point, qui reviendrait aisément au
@@ -5192,10 +4993,9 @@ homme dans le monde moderne et quand on voit tant
 d'honnèêtes gens, notamment dans l'Université, travailler
 comme des forçats du matin au soir, et même plus, et
 même outre, et ne pas arriver à nourrir leurs femmes
-et leurs enfants, on se prend à supposer qu'il y a peut-
-être des misères pires que la misère de M. Lavisse et!
+et leurs enfants, on se prend à supposer qu'il y a peutêtre des misères pires que la misère de M. Lavisse et!
 des sorts plus déplorables que le sort qu'une opportune
-$. — Respecter les vieillards, c'est entendu, mais il y:
+$. — Respecter les vieillards, c'est entendu, mais il
 
 faut tout de même une condition: c'est que les vieillards
 De se respectent eux-mêmes. Mais si les vieillards
@@ -5257,8 +5057,7 @@ notre feu. S'ils étaient nos ennemis, irait bien: nous
 ils nous empêchent de tirer.
 Il est incontestable qu'il y a aujourd'hui, devant nous,
 ï une rangée, une barrière des hommes de soixante4 dix ans qui occupent toutes les têtes de pont et qui
-1 nous empêchent de déboucher non point sur les hon-
-neurs: nous les leur laisserions volontiers; non point
+1 nous empêchent de déboucher non point sur les honneurs: nous les leur laisserions volontiers; non point
 sur les commandements: nous les laisserons volontiers
 6 à d'autres; mais sur l'action de la bataille et sur l'action
 du travail.
@@ -5279,8 +5078,7 @@ ainsi fait qu'on redoute les défaites militaires. Et on a
 raison. Et qu'on ne redoute pas les défaites civiques. Et
 Masquant toutes les avenues: il est bien entendu que.
 ce ne sont pas seulement les avenues des honneurs: on
-les leur laisserait. Mais que c'est aussi et que c'est sur-
-tout les avenues du pouvoir et ainsi de l'action et ainsi
+les leur laisserait. Mais que c'est aussi et que c'est surtout les avenues du pouvoir et ainsi de l'action et ainsi
 tout l'avenir.
 Il y a notamment un parti universitaire des hommes
 de soixante-dix ans et plus notamment une promotion
@@ -5328,8 +5126,7 @@ TE $.— La grandeur du jour de la mort, quiest le même
 jour du jugement est telle que le plus infime accusé,
 que le plus infime destinataire est tout revêtu de cette
 rat grandeur. Et tout homme qui de jour en jour fait ses
-étapes pour arriver à ce jour est revêtu de cette incom-
-parable grandeur. Et nous ne sommes point de ces
+étapes pour arriver à ce jour est revêtu de cette incomparable grandeur. Et nous ne sommes point de ces
 races barbares, et nous ne sommes point de ces races
 romantiques et nous n'avons pas besoin de têtes de
 mort, préalablement dégraissées, pour penser éternelle-
@@ -5353,16 +5150,14 @@ Plus solennel est le jour de la mort, plus solennel est le
 |. sentiment d'une affreuse contrainte, et d'un affreux,
 
 manquement quand on voit un malheureux vieillard
-4 entièrement oecupé de nos misérables querelles. Comme A!
+4 entièrement oecupé de nos misérables querelles. Comme
 on a envie de lui crier: C'est bon pour nous. Mais \AÛ
 4 vous, ne savez-vous donc pas. Quelle détresse, de voir à
 
 54 un vieillard occupé de nos mêmes misérables vanités.
 Quel désastre de voir un vieillard empêtré dans noS
 petitesses, aussi petit que nous. Un vieillard aussi petit
-ji. que nous est incomparablement plus petit. Et fort sotte-
-
-ment plus petit, C'est pour cela que plus le jour de la
+ji. que nous est incomparablement plus petit. Et fort sottement plus petit, C'est pour cela que plus le jour de la
 
 mort est grand et plus le jour de la justice est grand #4 )
 
@@ -5378,9 +5173,7 @@ car à cette heure apparaît la profonde nature et il n'y
 
 a rien d'aussi mesquin qu'un vieillard mesquin, car il \4 A
 
-faut vraiment qu'un être soit au plus profond et incura-
-
-blement mesquin pour demeurer mesquin la veille du
+faut vraiment qu'un être soit au plus profond et incurablement mesquin pour demeurer mesquin la veille du
 
 double jour. Et ainsi quand vous les excusez sur ce, Ut.
 
@@ -5396,9 +5189,7 @@ Eh bien j'y consens. N'allons point si avant,
 
 1 indéfendables, si leur cause est insoutenable dans le Ni
 
-4 langage chrétien, demeurons dans le règne païen. Res-
-
-tons-en à Nestor, cavalier de Gérénie. Celui-là aussifut
+4 langage chrétien, demeurons dans le règne païen. Restons-en à Nestor, cavalier de Gérénie. Celui-là aussifut
 
 cahiers de la quinzaine
 un grand vieillard. Il n'y a que deux Testaments, (1)
@@ -5411,9 +5202,7 @@ quatrième et du quatrième au cinquième qu'entre n'importe lesquels des trois 
 une création dans l'animal et le chrétien dans l'homme
 que l'animal ou que le végétal sont une création dans
 la matière brute. J'y consens, restons dans le païen,!
-demeurons dans Nestor, et dans le conseil des vieil-
-lards. Nul n'est grand comme le vieillard dans la pro-
-sodie païenne, nul n'est grand comme le vieillard dans
+demeurons dans Nestor, et dans le conseil des vieillards. Nul n'est grand comme le vieillard dans la prosodie païenne, nul n'est grand comme le vieillard dans
 
 , la cité antique. Et il serait trop long d'en énumérer les
 raisons. C'est la sagesse; et c'est l'antiquité même.;
@@ -5454,9 +5243,7 @@ d'aller invoquer pour un malheureux homme comme
 
 Lavisse toutes ces idées et les appareils et les idées de
 
-1 tant de grandeurs. Qu'est-ce qu'il peut y avoir de com-
-
-mun entre un pauvre homme ordinaire comme ce Lavisse
+1 tant de grandeurs. Qu'est-ce qu'il peut y avoir de commun entre un pauvre homme ordinaire comme ce Lavisse
 
 4 et les idées de tant de grandeurs que vous évoquez.
 
@@ -5476,13 +5263,10 @@ avec tout cela. Vous créez artificiellement, vous créez
 1 arbitrairement, vous créez gratuitement la plus grosLe sière, la plus sotte des disparates. Vous aussi vous parlez
 
 sur un autre plan. Vous aussi vous parlez au fond sur
-un autre homme. Vous aussi vous parlez un autre lan-
-
-hiors de la quinéaine
+un autre homme. Vous aussi vous parlez un autre lanhiors de la quinéaine
 gage. Vous aussi enfin vous parlez d'autre chose. Quelle XAVIER
 7 manie de faire des rapprochements. Qui ne peuvent SUR
-pas être faits. Qui se défendent, je veux dire qui s'in-
-terdisent d'eux-mêmes. Qui ne peuvent pas aller. Qui «
+pas être faits. Qui se défendent, je veux dire qui s'interdisent d'eux-mêmes. Qui ne peuvent pas aller. Qui «
 protestent d'eux-mêmes. C'est toujours votre manie A Le
 d'aller chercher des grandeurs partout, et où il y en LA
 a le moins. Quelle idée d'aller méler Lavisse avec de
@@ -5494,11 +5278,10 @@ din) f. — Nous allons être entièrement d'accord, mon
 a jeune camarade. Mais si nos maitres n'ont rien de
 commun avec la grandeur, pourquoi ne renoncent-ils
 “3 pas à la grandeur de leurs commandements. Et vous
-m'accuserez encore d'être grossier, mais pourquoi ne «:
+m'accuserez encore d'être grossier, mais pourquoi ne
 (CM renoncent-ils pas à la grandeur du traitement qu'ils
 : touchent; et que nous leur payons. Ils veulent bien
-PUR renoncer aux grandeurs qui conféreraient des respon-
-sabilités. Ils veulent bien renoncer aux grandeurs
+PUR renoncer aux grandeurs qui conféreraient des responsabilités. Ils veulent bien renoncer aux grandeurs
 ; morales, et aux spirituelles, Mais dès qu'il s'agit des
 ; grandeurs temporelles ils ne veulent plus renoncer aux
 grandeurs. Ils veulent bien renoncer aux grandeurs qui
@@ -5517,18 +5300,14 @@ veulent bien ne pas renoncer à la grandeur de leu
 4 deur de leur office, et à la grandeur de leur âge qu'ils
 
 4 veulent bien renoncer.
-Ils veulent bien renoncer à la grandeur de la respon-
-
-sabilité du commandement, mais ils ne veulent pas
+Ils veulent bien renoncer à la grandeur de la responsabilité du commandement, mais ils ne veulent pas
 renoncer à la grandeur du commandement même.
 
 Et de proche en proche et d'année en année ils
 
 ; entendent bien ne pas renoncer au gouvernement. à
 
-Ils renoncent volontiers au gouvernement de soi-
-
-même; mais au gouvernement des autres, jamais. à
+Ils renoncent volontiers au gouvernement de soimême; mais au gouvernement des autres, jamais. à
 
 : $. — Je vais plus loin, mon jeune camarade, et vous
 
@@ -5566,8 +5345,7 @@ caractère, Cette hérésie donc, mais cette hérésie spiri- -
 tuelle et intellectuelle, cette hérésie saisissable et qui
 retombe de notre compétence revenait essentiellement
 à ceci et pouvait se réduire à cette proposition extrêmement dangereuse et d'une gravité capitale que nous
-autres Français de ce temps, Français du commence-
-ment du vingtième siècle, Français du premier tiers du
+autres Français de ce temps, Français du commencement du vingtième siècle, Français du premier tiers du
 vingtième siècle nous vivons une vie d'un prix inférieur
 aux vies que pouvaient vivre des chrétiens des autres
 temps. L'idée de ce laudettisme, (et j'avoue que je les
@@ -5576,8 +5354,7 @@ d'aujourd'hui nous vivons une vie diminuée, une vie
 qui serait pas du même prix que les vies des anciens
 temps. Cette hérésie en matière spirituelle et en matière
 intellectuelle enveloppait tout de même une hérésie en
-matière de foi parce qu'elle enveloppait cette proposi-
-tion que le prix du salut aurait diminué et que le salut
+matière de foi parce qu'elle enveloppait cette proposition que le prix du salut aurait diminué et que le salut
 d'une âme ne vaudrait plus le salut d'une âme et que
 Jésus ne serait plus mort pour des saluts de même prix
 et que la rédemption même irait comme en diminuant
@@ -5586,8 +5363,7 @@ une hérésie en matière de foi, mais une des hérésies
 
 centrales, une des hérésies capitales en matière de foi,
 É puisque c'était cette hérésie que l'on pourrait nommer
-4 par excellence l'hérésie temporelle, qui consiste à pro-
-poser que le temporel, à mesure qu'il passe, et d'année
+4 par excellence l'hérésie temporelle, qui consiste à proposer que le temporel, à mesure qu'il passe, et d'année
 : temporelle en année temporelle, finirait par user
 ; l'éternel, par diminuer le sacramentel. Car il est entendu
 À que tout l'événement est irréversible, mais précisément
@@ -5626,7 +5402,7 @@ feraient mieux de ne pas s'y montrer. Qu'elles n'y sont ‘#4
 plus de leur compagnie. Et par suite qu'elles y sont
 14 mauvaise compagnie. Qu'elles y sont hors de propos.
 à Qu'elles y sont hors de leur place. Et par suiteetenfin
-si qu'il est un peu incongru de vouloir seulement les y;
+si qu'il est un peu incongru de vouloir seulement les
 43 — ce n'est pas nous qui les y méttons, mon À
 jeune camarade, elles y sont, et on se rappelle pent-.
 être tout cela. Ce laudettisme laïque n'est pas moins À
@@ -5694,8 +5470,7 @@ le vieillard doit.
 $. — Ils ne font plus les fiers quand il s'agit d'être
 vieillards pour être confrontés avec la grandeur du
 vieillard. Oh alors ils sont modestes. Ils sont trop petites
-gens. Ils ne veulent plus être confrontés avec les gran-
-deurs de l'humanité. Les grandeurs de l'humanité c'est
+gens. Ils ne veulent plus être confrontés avec les grandeurs de l'humanité. Les grandeurs de l'humanité c'est
 de la littérature et de l'éloquence. Mais ils veulent bien
 être conférés avec les grandeurs du pouvoir.,
 $. — Ils ne font plus les modestes. Et ils veulent bien
@@ -5703,15 +5478,13 @@ refaire les fiers quand il s'agit des triomphes et des
 cérémonies et des compliments oratoires, et des péroraisons universitaires. Ils ne trouvent pas, alors, que
 c'est de l'éloquence.
 
-4 $. — C'est toujours le même vice moderne de dupli-
-cité. Ils veulent jouer deux fois. Ils veulent jouer deux
+4 $. — C'est toujours le même vice moderne de duplicité. Ils veulent jouer deux fois. Ils veulent jouer deux
 jeux étrangers et à volonté contraires. Ils veulent jouer 7"
 3 sur deux tables. Ils veulent jouer des deux mains. Ils
 4 veulent bien être grands pour les situations temporelles.
 Et ils veulent bien ne pas être grands pour les respon- )
 a sabilités que les situations temporelles devraient
-4 $. — Le respect des vieillards n'est qu'un cas parti-
-culier du respect de la patrie. Il est emboîté dans le
+4 $. — Le respect des vieillards n'est qu'un cas particulier du respect de la patrie. Il est emboîté dans le
 à respect de la patrie. Si donc des vieillards corrodent le
 respect de la patrie, ils corrodent par même et dedans
 5 et à plus forte raison le respect que l'on nous demande
@@ -5769,8 +5542,7 @@ $. — Nous aussi nous sommes scientifiques. Nous
 4 qu'une expérience de trente ans, parfaitement conduite, À Ai
 a été faite, il faut au moins que cette expérience soit
 je enregistrée; et qu'on ne la recommence pas indéfiniment;
-et que les résultats de cette expérience soient enregis-
-trés. Nous enfin il faut que nous ayons servi à quelque es LE
+et que les résultats de cette expérience soient enregistrés. Nous enfin il faut que nous ayons servi à quelque es LE
 chose; et que tant de peine ait servi à quelque chose;
 et que tant de manquement ait servi à quelque chose.
 à Il faut au moins que tant de misère ne soit pas perdue;
@@ -5787,10 +5559,7 @@ notre peine même, et dans notre sottise, et dans notre
 
 cahiers de la quinzaine
 
-sotte confiance envers d'indignes maîtres. Nous enten-
-
-dons faire servir au moins à quelque chose les abuse-
-ments mêmes dont nous avons été l'objet. Et les victimes.
+sotte confiance envers d'indignes maîtres. Nous entendons faire servir au moins à quelque chose les abusements mêmes dont nous avons été l'objet. Et les victimes.
 Et les sots auteurs demi-conscients demi-complices.
 Nous voulons, dans nos erreurs mêmes, n'avoir point
 été tout à fait inutiles. L'homme est ainsi. Nous entendons faire servir au moins à quelque chose ces détournements mêmes de la plus sainte confiance auxquels
@@ -5820,14 +5589,12 @@ rentrée, et de volonté, manquée, il la reporte sur ses
 1 de commandement, irrévocable, que prend un sentiment à
 humain quand on sait que c'est la dernière fois qu'on » joue.
 $. — Telle est notre situation. Nous sommes, je lai;
-assez dit, et cela se vérifie de plus en plus, une généra-
-tion sacrifiée. Nous avons été constamment trahis par
+assez dit, et cela se vérifie de plus en plus, une génération sacrifiée. Nous avons été constamment trahis par
 nos maîtres et par nos chefs. À aucun prix nous ne
 souffrirons que nos enfants soient trahis à leur tour, et
 par les mêmes maîtres, et par les mêmes chefs. Nous Lx)
 ; ne souffrirons pas, à aucun prix nous n'endurerons
-; qu'un Jaurès, qu'un Lavisse recommence sur la généra-
-tion suivante les mêmes abusements.
+; qu'un Jaurès, qu'un Lavisse recommence sur la génération suivante les mêmes abusements.
 $. — Nous serons plus courageux pour nos enfants ARR.
 à que nous ne l'avons été pour nous-mêmes et nous nous
 : porterons aux extrémités plutôt que de laisser décevoir
@@ -5875,15 +5642,13 @@ ces tristes années. Combien de fois n'avons-nous pas
 de fois avons-nous mal, ou peu, ou pas défendu notre ARR
 pays. Non point tant par lâcheté sans doute que par un
 relâchement. Il fallait suivre à la piste un homme
-comme Jaurès, il fallait le suivre à la trace et le har-
-celer constamment et ne pas le lâcher et lui demeurer Mec
+comme Jaurès, il fallait le suivre à la trace et le harceler constamment et ne pas le lâcher et lui demeurer Mec
 fidèle et ne pas laisser passer un seul de ses méfaits, #1
 É sans le signaler au moins et sans faire tout ce que nous
 pouvions pour essayer de le compenser, et de l'annuler,;
 et d'en réparer les eflets. L'avons-nous fait. Combien
 4 peu de fois. Quels ménagements n'avons-nous pas eus
-« pour ce Jaurès; quels atermoiements; quels désarme-
-ments nous-mêmes, Quels délais ne lui avons-nous pas À
+« pour ce Jaurès; quels atermoiements; quels désarmements nous-mêmes, Quels délais ne lui avons-nous pas À
 Le Combien de fois lui avons-nous laissé la paix, lui qui à
 
 n'a jamais laissé la paix à son pays. Il fallait le suivre
@@ -5913,8 +5678,7 @@ ne puissent pas même le soupçonner, c'est notre vœu le
 encore nourri du crime et comme le repentir est encore #6
 
 nourri de la faute, et comme la contrition est nourrie
-du péché et comme le regret est tout nourri de l'infor-
-tune, ainsi cette connaissance que nos enfants auraient
+du péché et comme le regret est tout nourri de l'infortune, ainsi cette connaissance que nos enfants auraient
 
 de notre bassesse serait encore nourrie de cette bas-
 à sesse elle-même. Et elle serait un prolongement et un
@@ -5934,8 +5698,7 @@ déteste ce mot devoir autant que je le déteste d'autres
 épreuves, d'autres peines, d'autres misères, des œuvres.
 
 . D'autres disciplines. Mais cette lâcheté que nous avons
-peut-être eue si souvent pour nous-mêmes, nous ne l'au-
-rops certainement pas pour nos enfants. Cette insistance,
+peut-être eue si souvent pour nous-mêmes, nous ne l'aurops certainement pas pour nos enfants. Cette insistance,
 cette constante application dont nous avons peut-être
 
 |. manqué pour nous-mêmes, nous n'en manquerons cer.
@@ -5963,8 +5726,7 @@ l'autre. Et tout ce que l'on ne verra pas, on veut au
 moins que les enfants le voient. Et tout ce que l'on sait À
 hr: bien que l'on ne fera pas, on veut au moins que les
 enfants le fassent. On veut bien avoir été malheureux pos
-soi-même, on ne veut pas que ses enfants soient mal-
-heureux. On veut bien avoir été malheureux pourune
+soi-même, on ne veut pas que ses enfants soient malheureux. On veut bien avoir été malheureux pourune
 . Es fois, on ne veut pas l'avoir été pour deux. C'est dansun À
 
 tout autre ordre, mais avec des accointances À. a
@@ -5981,8 +5743,7 @@ dangereuse parce qu'évidemment elle est la dernière,
 è parce qu'on sent bien, parce qu'on sait bien qu'elle est
 la dernière. Et de n'avoir servi à rien, on veut au:
 : moins que serve à quelque chose. Tout ce qui a élé
-ù Ye) refoulé revient d'autant plus fort, et d'autant plus impé-
-dy: rieux, et d'autant plus irrésistible. Et d'autant plus fort
+ù Ye) refoulé revient d'autant plus fort, et d'autant plus impédy: rieux, et d'autant plus irrésistible. Et d'autant plus fort
 aussi que l'on sent bien que ce sera pour la dernière
 capital et d'uniquement grand dans l'extrême et dans
 le dernier apparaît ici et dernièrement rejaillit. Tout ce
@@ -5990,8 +5751,7 @@ le dernier apparaît ici et dernièrement rejaillit. Tout ce
 y un dernier courage. Moi-même qui me suis constam-
 “. ment si mal défendu et qui à vrai dire ne me suis pour à
 ainsi dire jamais défendu, je mesure très bien jusqu'où
-nous défendrons nos enfants, et que nous les défen-
-drons jusqu'au bout; et que nous tiendrons le coup;et
+nous défendrons nos enfants, et que nous les défendrons jusqu'au bout; et que nous tiendrons le coup;et
 , que nous sommes résolus à emporter le morceau. C'est )
 
 même singulier comme on peut ne pas être courageux
@@ -6053,15 +5813,12 @@ idée fixe qu'on sauvera au moins les enfants; de
 enfin, qui sait, peut-être du courage. Qu'on ne se fie
 donc pas à notre mansuétude et pour ainsi dire que nos
 maîtres ne se fient pas à notre lâcheté. Nous en avons
-beaucoup laissé passer pour nous que nous ne laisse-
-rons peut-être pas passer pour nos enfants. Et ce que
-nous n'avons pas fait pour nous nous le ferons peut-
-être pour empêcher que nos enfants tombent, demeurént dans la même servitude, soient exposés aux mêmes
+beaucoup laissé passer pour nous que nous ne laisserons peut-être pas passer pour nos enfants. Et ce que
+nous n'avons pas fait pour nous nous le ferons peutêtre pour empêcher que nos enfants tombent, demeurént dans la même servitude, soient exposés aux mêmes
 tyrannies, soient victimes des mêmes abusements. à
 $. — Nul sentiment peut-être n'est aussi poignant de
 tous les sentiments de l'homme. Parce que nul sentiment
-peut-être n'est aussi irrévocable, aussi pénétré d'irré-
-vocable, On a l'impression de toucher le point même,
+peut-être n'est aussi irrévocable, aussi pénétré d'irrévocable, On a l'impression de toucher le point même,
 non pas tant seulement le point de raccordement, mais
 le point d'articulation, le point d'insertion même où
 pour la dernière fois le temporel se vient articuler, se
@@ -6147,8 +5904,7 @@ et qui sait pour introduire frauduleusement en France
 è des pièces du pape; c'est du moins pour asseoir en
 France l'autorité du pape. Je ne soupçonnais pas que
 nous fussions si criminels, Je commence à me demander
-si contre le latin Lanson n'est pas un peu mono-
-mane, et comme dit M. Langlois un peu fou. (De sorte
+si contre le latin Lanson n'est pas un peu monomane, et comme dit M. Langlois un peu fou. (De sorte
 que, comme notre camarade Rudler aimait à le répéter, se us.
 il y a le singe qui est quadrumane, l'homme qui est a
 bimane, et Lanson qui serait monomane). J'aimerais NES:
@@ -6170,10 +5926,8 @@ de son auteur pour faire la déclaration suivante. C'est
 une déclaration fort intelligente. On y verra que non
 seulement M. Lanson déclare qu'il y a une question
 d'Alsace-Lorraine, mais qu'il découvre très bien qu'elle
-n'est plus aujourd'hui qu'un premier stade, une pre-
-mière étape de raison et de réalité. Qu'il y a pour le
-monde entier une question allemande. Et que la ques-
-tion d'Alsace-Lorraine pour la France ouvre la question
+n'est plus aujourd'hui qu'un premier stade, une première étape de raison et de réalité. Qu'il y a pour le
+monde entier une question allemande. Et que la question d'Alsace-Lorraine pour la France ouvre la question
 allemande pour la France et pour le monde. Mais je ne
 saurais dire aussi bien que lui. Et c'est même bien
 écrit. Et quand je dis que M. Lanson écrit bien, on peut
@@ -6198,8 +5952,7 @@ la paix que le peuple et le kaiser veulent sincèrement, c'est
 . tions économiques de l'Allemagne; où l'étalage permanent
 : de sa force, la dispensant d'en user, lui assurerait sans
 péril la domination universelle. A nous de décider si nous
-sommes prêts à tout céder, et à toujours céder, si nous vou-
-lons descendre peu à peu à la condition de la Saxe, ou du
+sommes prêts à tout céder, et à toujours céder, si nous voulons descendre peu à peu à la condition de la Saxe, ou du
 moins du Luxembourg. Si nous ne le voulons pas, il est
 évident qu'il faut nous rendre le plus forts possible: nous
 ne diminuerons pas les chances de paix, mais nous chan-
@@ -6210,8 +5963,7 @@ des risques et du gain; moins elle sera assurée de vaincre,
 . moins elle sera disposée à combattre, et plus elle réduira, en
 É conséquence, ses prétentions, quand elle nous verra la
 volonté et les moyens de lui dire des « non » bien fermes.
-L'ouvrage de M. Balignac s'ajoute encore à d'autres témoi-
-gnages pour nous avertir de l'illusion qu'il y aurait à
+L'ouvrage de M. Balignac s'ajoute encore à d'autres témoignages pour nous avertir de l'illusion qu'il y aurait à
 4 penser qu'il n'y a entre la France et l'Allemagne que la ques- à
 1 tion d'Alsace-Lorraine. Ce fut peut-être vrai du temps de
 Bismarck, et tant que la génération qui avait fait la guerre
@@ -6254,9 +6006,7 @@ temps, qui soit diminuée, effacée et comme estompée, A
 4 prix que les vies des hommes des anciens temps, non
 seulement le prix d'une vie, le prix d'une âme, le prix
 d'un salut demeure éternellement le même, mais dans à
-le calcul temporel même il est permis de dire en par-
-
-jant objectivement, comme ils disent, que dans l'histoire
+le calcul temporel même il est permis de dire en parjant objectivement, comme ils disent, que dans l'histoire
 
 de tout le monde on trouverait difficilement une époque à "1
 aussi grave que celle où nous vivons depuis 1905, et par
@@ -6268,8 +6018,7 @@ qui devient une période. Je veux dire que depuis 1905
 nous avons toute la tension et toute la suspension d'une
 
 époque mais que cette suspension, que cette époque se À
-à continue et dure et vient en longueur et prend la dimen-
-sion d'une période. Nous sommes suspendus et l'on
+à continue et dure et vient en longueur et prend la dimension d'une période. Nous sommes suspendus et l'on
 4 n'en voit pas la fin.;
 Le Depuis que nous sommes sous la menace allemande,
 c'est-à-dire depuis 1905, nous avons toute la tension EEE
@@ -6285,7 +6034,7 @@ Je ne dirai pas que nous allons, où que nous arrivons 7:44 si
 
 : c'est un péu une métaphore, deuxièmement parce que » se)
 
-:; c'est une métaphore de chevaux de bois, troisièmement à
+c'est une métaphore de chevaux de bois, troisièmement à
 ; parce que ce n'ést pas à un tournant de l'histoire qu'en {Va
 
 à effet nous arrivons, mais nous avons l'impression très
@@ -6296,15 +6045,12 @@ le tenir encore mieux et le tenir parfaitement jusqu'au Es
 
 $. — Nous sommes tenus de nous mettre, ou plutôt;
 de nous être mis à un point d'exaspération maximum
-et de nous y tenir ferme, et pour ainsi dire commodé-
-ment, et pour ainsi dire aisément comme dans un état
-qui ne serait pas de tension. Sans jamais, sans aucu-
-nement détendre. Sans jamais nous reposer.
+et de nous y tenir ferme, et pour ainsi dire commodément, et pour ainsi dire aisément comme dans un état
+qui ne serait pas de tension. Sans jamais, sans aucunement détendre. Sans jamais nous reposer.
 $. — C'est Le triomphe du comme si. Nous sommes
 priés d'être tendus au maximum et de faire tout le reste
 et de vivre tout le reste comme si nous n'étions pas
-$. — Je ne sais pas, pour continuer à parler objecti-
-vement, jamais un peuple a été soumis à ce régime. À
+$. — Je ne sais pas, pour continuer à parler objectivement, jamais un peuple a été soumis à ce régime. À
 C'est proprement un régime de guerre en temps de
 paix. Il ne faut pas dire que c'est le régime de la paix
 armée. Il faudrait plutôt dire que c'est le régime de la
@@ -6314,9 +6060,7 @@ régime de la paix. Mais je ne serais pas surpris qu'il
 fût plus intenable que le régime de la guerre même.
 Une guerre a tout de même des détentes et pour ainsi
 dire des coups partis et des chutes de potentiel. Je ne
-veux parler de la guerre qu'avec d'extrêmes précautions. Mais enfin j'imagine qu'une guerre a des surve232
-
-nues, des incidences. Des événements. Nous sommes "et
+veux parler de la guerre qu'avec d'extrêmes précautions. Mais enfin j'imagine qu'une guerre a des survenues, des incidences. Des événements. Nous sommes "et
 depuis 1905 à ce régime que l'événement même est res
 4 suspendu. Nous cumulons la crise de la guerre et la me
 durée de la paix. Nous portons en longueur et en habi-
@@ -6332,8 +6076,7 @@ son fils ne soit pas la sienne même, bout pour bout,
 À et bout à bout. Un tel sentiment doit particulièrement
 s'exaspérer dans un temps comme le nôtre. Et parvenir
 ; à ce même point d'exaspération tendue maintenue. Il
-me paraît que je ne crois pas que depuis le commen-
-cement du monde on ait jamais une situation comme
+me paraît que je ne crois pas que depuis le commencement du monde on ait jamais une situation comme
 celle où nous nous mouvons. Être constamment chargé Ne.
 pour la guerre, au sens où un fusil est chargé; et être
 4 constamment chargé des travaux dits de la paix, au
@@ -6379,8 +6122,7 @@ planes de la paix et en même temps d'être constam- FOR
 4 $. — La guerre est la guerre et la paix est la paix.
 Si affreuses que puissent devenir les misères de la
 guerre, au moins elles peuvent être compensées. Il y a à
-guerre. Mais nous cette fois-ci c'est réellement et litté-
-ralement la guerre et la paix. Nous avons toutes les
+guerre. Mais nous cette fois-ci c'est réellement et littéralement la guerre et la paix. Nous avons toutes les
 
 charges de la paix et pour ainsi dire toutes les charges nee
 de la guerre. Et nous n'avons ni l'honneur ni la gran- PRE

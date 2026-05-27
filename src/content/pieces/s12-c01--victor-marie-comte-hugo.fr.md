@@ -14,8 +14,7 @@ ne rue de la Sorbonne, au rez-de-chaussée
 Solvuntur objecta. — J'ai mis dans mon cahier que
 l'affaire Dreyfus avait un virus propre, qu'il y avait
 dans cette affaire, dans le tissu même de cette affaire
-un certain virus propre. Je viens de l'éprouver beau-
-coup plus que je ne m'y attendais. Beaucoup plus aussi
+un certain virus propre. Je viens de l'éprouver beaucoup plus que je ne m'y attendais. Beaucoup plus aussi
 et surtout que je ne l'eusse voulu. Je ne voudrais pourtant pas que ce virus inquiétât l'amitié que depuis dix
 et douze ans j'avais liée avec notre collaborateur
 M. Daniel Halévy. Une amitié peut être orageuse. Elle
@@ -64,9 +63,7 @@ outragé de gaieté de cœur. Je sens, je sais trop bien
 tout ce qu'il y a d'impie dans tout outrage, même juste,
 même inévitable, même commandé, même dû. Je n'ai
 jamais outragé que de très dangereux ennemis publics.
-Ces quelques réprobations n'ont jamais été ni révo-
-
-quées, ni contestées par personne.
+Ces quelques réprobations n'ont jamais été ni révoquées, ni contestées par personne.
 
 Tout autre est l'offense. Ici on ne sait pas bien où
 Von va. Une offense peut échapper. Une offense peut
@@ -176,8 +173,7 @@ tellement incomplet. Comment faire. Garderai-je pour Se à
 moi cette confidence terrible. La tairai-je donc jusqu'à as
 la fin des jours terrestres. Elle me hante tellement. Le
 Depuis elle ne me quitte plus. Nous nous tûmes ensuite
-et jusqu'au bout. Vous me conduisiez, vous me recondui-
-siez de chez vous jusqu'à cette chaussée d'où l'on
+et jusqu'au bout. Vous me conduisiez, vous me reconduisiez de chez vous jusqu'à cette chaussée d'où l'on
 découvre l'étang de Saclay. Ce jour-là c'était vous qui - TEE
 me reconduisiez. Nous ne pouvions pas nous quitler.
 
@@ -225,8 +221,7 @@ irrecommençables, parce qu'ils sont des biens de à
 mémoire et d'histoire, parce qu'ils sont de l'ordre de la … Re.
 mémoire et de l'histoire, parce qu'il y faut l'habitude et a
 l'usage, parce qu'il y entre, parce qu'il y faut, parce
-qu'il y manquerait le lent travail, l'irréversible, l'incom-
-pressible, l'inrecommençable, l'élaboration de l'histoire ES
+qu'il y manquerait le lent travail, l'irréversible, l'incompressible, l'inrecommençable, l'élaboration de l'histoire ES
 propre, l'élaboration, la vieille, l'antique élaboration de à
 l'histoire que l'on ne peut pas hâter. Non seulement que ….
 l'on ne refait pas, que l'on n'improvise pas, que l'onne …
@@ -254,15 +249,13 @@ les miennes. Ou comme je les peux. Car c'est ainsi qu'il
 faut, c'est ainsi que c'est bien. Opus cuique suum. Ce
 que nous perdrions, jamais nous ne le referions, jamais
 nous ne le retrouverions. Dix, douze ans de mémoire et
-É la préparation si laborieusement, si longuement, si chè-
-rement acquise de vingt ou peut-être des trente ans qui
+É la préparation si laborieusement, si longuement, si chèrement acquise de vingt ou peut-être des trente ans qui
 nous restent. Une vie ne se fait pas deux fois, une vie
 ne se joue pas deux fois. Une vie ne se refait pas. Les
 jeunes gens sont jeunes, mon ami, et nous nous sommes
 , des hommes de quarante ans. Un homme qui ferait
 deux fois, qui recommencerait, qui vivrait, qui jouerait
-deux fois sa vie ne serait point un homme, une misé-
-rable créature pécheresse et précaire; un chrétien; il
+deux fois sa vie ne serait point un homme, une misérable créature pécheresse et précaire; un chrétien; il
 serait un être imaginaire, un Faust. Un homme qui
 aurait le droit, qui aurait ce pouvoir exorbitant, de
 recommencer, il ne serait point un homme, il serait
@@ -320,8 +313,7 @@ les vrilles de la vigne, fins comme les sarments et qui
 comme les sarments sont retournés en cendre. Et les
 femmes au battoir, les gros paquets de linge bien
 gonflés roulant dans les brouettes, les femmes qui
-- … lavaient la lessive à la rivière. Ma grand mère qui gar-
-dait les vaches, qui ne savait pas lire et écrire, où
+- … lavaient la lessive à la rivière. Ma grand mère qui gardait les vaches, qui ne savait pas lire et écrire, où
 comme on dit à l'école primaire, qui ne savait ni lire ni }.
 
 écrire, à qui je dois tout, à qui je dois, de qui je tiens: #2
@@ -371,8 +363,7 @@ langage fleuri, ces lèvres amènes, ce veston démocratique mais fin, démocrat
 mais sévère, cette barbe bouclée, ardente blonde,
 flavescente ardescente, flavescente ardente rouge, bien ee.
 taillée quadrangulaire descendante, diminuée descendante, secrètement rutilante, cette moustache non pas
-précisément, non pas vulgairement, non pas grossiè-
-rement conquérante, mais triomphante royale, presque;
+précisément, non pas vulgairement, non pas grossièrement conquérante, mais triomphante royale, presque;
 de même couleur, ce long pantalon sociologue, ces manchettes républicaines, ce fin pli vertical du pantalon.si;
 également, si équitablement rémunérateur, ce fin parler
 haut allemand, ce teint de lys et de roses, il y faut
@@ -387,15 +378,13 @@ impardonnable, ce qui, dans le langage du peuple,
 Halévy, veut dire qu'il ne pardonne rien. Car c'est
 l'âge où nous devenons ce que nous sommes. ce que
 
-regarder, un instant, pour le savoir. Un enfant y pour-
-voirait. J'ai beau faire; j'ai beau me défendre. En moi,:
+regarder, un instant, pour le savoir. Un enfant y pourvoirait. J'ai beau faire; j'ai beau me défendre. En moi,:
 autour de moi, dessus moi, sans me demander mon avis
 tout conspire, au-dessus de moi, tout concourt à faire de:
 moi un paysan non point du Danube, ce qui serait de
 la littérature encore, mais simplement de la vallée de;
 la Loire, un bûcheron d'une forêt qui n'est pas même =.
-l'immortelle forêt de Gastine, puisque c'était la péris-
-sable forêt d'Orléans, un vigneron des côtes et des
+l'immortelle forêt de Gastine, puisque c'était la périssable forêt d'Orléans, un vigneron des côtes et des
 sables de Loire. Déjà je ne sais plus quoi dire, ni
 
 ù même comment me tenir même dans ces quelques
@@ -405,19 +394,16 @@ mais parce que je ne sais pas. J'y suis tout raide. Ce
 qu'il me faut, c'est une chaise, ou un bon tabouret. à
 Plutôt la chaise; pour les reins; le tabouret quand j'étais
 jeune. Les vieux sont malins. Les vieux sont tenaces. Les
-vieux vaincront. Mon vêtement et mon corps, (ce pre-
-mier vêtement, ce déjà vêtement), (et m'étonne, car
+vieux vaincront. Mon vêtement et mon corps, (ce premier vêtement, ce déjà vêtement), (et m'étonne, car
 j'ai les mêmes fournisseurs que tout le monde, pourtant
 j'ai les mêmes fournisseurs que tout le monde), (je ne
 parle pas pour le corps, je" parle pour l'autre, pour le
-deuxième vêtement, je ne parle pas pour le vêtement orga-
-nique, je parle pour le vêtement industriel, ancien organique, en tissu industriel, ancien organique, non plus en
+deuxième vêtement, je ne parle pas pour le vêtement organique, je parle pour le vêtement industriel, ancien organique, en tissu industriel, ancien organique, non plus en
 tissu cellulaire vivant actuellement organique pour ainsi
 dire histologique), mon vêtement, et aussi mon vêtement
 de dessous, mon vêtement le corps, mes souliers, la
 semelle de mes souliers, la terre qui est sous la semelle
-de mes souliers, les deux pieds qui sont dans mes sou-
-liers, les jambes qui sont au bout des pieds, en par-ici,
+de mes souliers, les deux pieds qui sont dans mes souliers, les jambes qui sont au bout des pieds, en par-ici,
 
 a l'homme qui est au bout des deux jambes, toute ma
 tenue, toute mon attitude, le courbement commençant
@@ -448,8 +434,7 @@ travail, (de la journée), comme un réensemencement, Tea
 pour le travail de la journée, de tout ce résidu de tout Sa
 ET le travail antérieur, de toute la vie passée. (Qu'est, pour
 
-la mémoire, la fatigue, notamment pour la mémoire orga-
-nique). On se sent tout à fait comme en manœuvres, où À
+la mémoire, la fatigue, notamment pour la mémoire organique). On se sent tout à fait comme en manœuvres, où À
 on se réveille toujours fatigué. On a les jambesraidesen
 se réveillant, en étant réveillé trop tôt le matin avant
 a jour dans la paille, (quand on a toucher de la paille);
@@ -461,11 +446,9 @@ premières poses. Les pieds vous font mal, vous cuisent,
 dérouillé, une fois décrassé, tout cela n'empêchera pas 11,2
 de chanter au soleil de midi. Car il s'établit une sorte;
 d'équilibre de marche. Et on ne sait comment: les:
-pieds ne sont plus excoriés. Ainsi vont les étapes jour-
-nalières d'écrire à la table de travail. Il s'établit un cer-.
+pieds ne sont plus excoriés. Ainsi vont les étapes journalières d'écrire à la table de travail. Il s'établit un cer-.
 tain équilibre de travail. La fatigue ne revient que le
-soir, au gîte d'étape, juste au moment de quitter.) l'in-
-clinaison de la nuque sur les épaules dans le milieu
+soir, au gîte d'étape, juste au moment de quitter.) l'inclinaison de la nuque sur les épaules dans le milieu
 entre les deux épaules, la plantaison de la tête sur les
 épaules par l'intermédiaire, par le ministère de la nuque, “4.
 toute l'inclinaison (générale) du corps en avant dénonce,
@@ -474,8 +457,7 @@ deviens: un paysan (non) égaré. L'inclinaison commen:- Me
 çante générale vers la terre nourricière, vers la terre
 mère, vers la terre tombeau. L'inclinaison générale en;
 avant. C'est ainsi qu'on finit par se ramasser par terre.
-Je sens déjà l'incurvation, l'incurvaison générale, laté-
-aux reins. Il faut dire aussi que c'est le courbement, la
+Je sens déjà l'incurvation, l'incurvaison générale, latéaux reins. Il faut dire aussi que c'est le courbement, la
 courbure, la courbature, l'inclinaison de l'écrivain sur
 
 sa table de travail. Je sens déjà mes épaules se courber.:
@@ -531,9 +513,7 @@ gens, je m'en irai. Réve des jeunes ans, qu'étes-vous a
 
 devenu? Ces lèvres suaves, ces gestes courtois. Cette
 
-suavité, cette courtoisie bien française. A peine alle-
-
-mande. Je serai un vieux rabougri, ma peau sera
+suavité, cette courtoisie bien française. A peine allemande. Je serai un vieux rabougri, ma peau sera
 
 ridée, ma peau sera une écorce, je serai un vieux
 
@@ -584,13 +564,10 @@ pointe, aristocratique et bourgeoise, ce point, cette
 idéal, (imaginaire), qui n'est pas si grand seulement
 qu'un anneau. Ces demandes et ces réponses si préci- à
 Cette conversation. Je sais très bien la baïonnette, au
-contraire, parce qu'elle est triangulaire, quadrangu-
-laire, (c'est un tiers-point d'acier tout neuf, tout étince-
-lant), parce qu'elle est au bout d'un fusil. c'est une
+contraire, parce qu'elle est triangulaire, quadrangulaire, (c'est un tiers-point d'acier tout neuf, tout étincelant), parce qu'elle est au bout d'un fusil. c'est une
 arme, Tous les bons souvenirs de cette année où nous
 3 en avons fait. C'en était une escrime. Quels com-
-À mandements. Quelles voltes et virevoltes. Quel(s) assou-
-plissement(s). Nous en avons respiré, -de l'air. Quelles;
+À mandements. Quelles voltes et virevoltes. Quel(s) assouplissement(s). Nous en avons respiré, -de l'air. Quelles;
 à passes d'armes. Nous en avons encore le souvenir dans
 6 la mémoire des muscles des cuisses. Et je me serais?
 - si bien battu avec des armes du quinzième siècle. Ces:
@@ -612,7 +589,7 @@ PER d'écraser le fer comme l'ouvrier assomme, comme lou
 vrier martèle, comme l'ouvrier écrase le fer. On se forge,
 comme dit l'autre, et ce n'était point seulement pour les
 4 besoins de la rime:
-100 La cuirasse et le heaume
+La cuirasse et le heaume
 dE. 4 était de fer et de cuir. De part et d'autre, ouvrier,
 A 210 paysan, homme d'armes, la peau même était de cuir.
 Les armes étaient des faux emmanchées. Un ouvrier
@@ -631,8 +608,7 @@ pas avec un fusil Lebel ou un canon de
 
 déjà la terre penche mon front vers la terre. Quand je
 
-; m'en vais déjà, les mains derrière le dos, mon para-
-pluie sous le bras, le dos rond, je sens monter la cour- “4
+; m'en vais déjà, les mains derrière le dos, mon parapluie sous le bras, le dos rond, je sens monter la cour- “4
 
 bure, suivant la terre, pensant à la terre. Je marcherai
 
@@ -683,7 +659,7 @@ me bourgeois faux. Et on perd d'être un authentique
 manquent, des vertus que l'on n'a pas. Et l'on perd
 LE: ce que l'on a de meilleur, mettons que je veux dire
 Le: le peu que nous avons de bon.
-2 Je ne vous parle pas des autres avertissements que
+Je ne vous parle pas des autres avertissements que
 a j'ai reçus, des avertissements que j'ai reçus de toutes
 parts; des sourds avertissements profonds intérieurs;
 Lee des inclinaisons, des courbures, des pentes intérieures; À
@@ -741,8 +717,7 @@ aussi que moi aussi je pense à mon temporel. mon
 temporel dans la représentation de cette grande histoire
 ce n'était pas seulement que cette histoire, la plus grande
 histoire, ce n'était pas seulement que cette grande nil
-histoire éternelle avait la plus grande inscription tempo-
-relle, mais mon point d'appui temporel si je puis dire à
+histoire éternelle avait la plus grande inscription temporelle, mais mon point d'appui temporel si je puis dire à
 moi-même, c'était que cette histoire temporelle, c'est que;
 cette inscription temporelle est une histoire, une inscription de chez nous. C'est mon seul atout, (temporel), dans
 ce terrible jeu. Je serais un grand sot de le jeter, ou de
@@ -786,16 +761,14 @@ je serais un grand sot, moi-même de ne pas me laisser
 . amies, Mengette, Hauviette, madame Gervaise étaient
 des gens comme nous en avons tant connus étant petits,;
 comme nous eussions été nous-mêmes, comme nous
-allions être nous-mêmes, (or si nous pouvions tranquillement le redevenir), étaient exactement, étaient identi-
-
-quement des gens comme tous ceux où nous avo VÉCU A
+allions être nous-mêmes, (or si nous pouvions tranquillement le redevenir), étaient exactement, étaient identiquement des gens comme tous ceux où nous avo VÉCU A
 étant petits. Et que toute cette grande histoire est sort
 Tout ça, monsieur, c'était pour vous dire. Vous recon__ naïssez leur formule habituelle. Tout ça, mon cher -
 Halévy, c'était pour vous dire que ce malentendu qui.
 F'A8SE s'est ému entre nous vient premièrement et pour une à
 RUE, bonne part de ce que je ne me suis point méfié de vous.
 Voici ce que je veux dire. J'ai beau me sentir et sentir
-#3) que je redeviens paysan, ou plutôt à cause même etpar
+3) que je redeviens paysan, ou plutôt à cause même etpar
 cela même que je me sens redevenir paysan, je n'ai
 APREN jamais aucune affaire, aucun malentendu avec les
 Lee messieurs proprement dits. Avec les bourgeois bourNes,: à
@@ -862,8 +835,7 @@ en dois, je vous en fais réparation bourgeoise. Mais moi
 je vous avais dit, je vous avais lancé ces quatre mots
 comme des mots peuple; peuple au point de départ;
 peuple aussi, je le pensais, au point d'arrivée; de peuple
-à peuple; il fallait me répondre du même ton; je m'attendais à tout, mais du même ton; je vous avais mis « ces quatre mots comme des mots d'atelier, entendons-
-nous bien, non pas comme des mots d'atelier de peintre
+à peuple; il fallait me répondre du même ton; je m'attendais à tout, mais du même ton; je vous avais mis « ces quatre mots comme des mots d'atelier, entendonsnous bien, non pas comme des mots d'atelier de peintre
 et de Montmartre, (qui ne sont déjà souvent pas si mal,
 mais enfin c'est (aujourd'hui) un tout autre monde),
 mais comme des mots d'atelier d'ouvrier (j'en ai tant
@@ -884,8 +856,7 @@ sonne sur la lourde enclume. Comme un mot à rebon-
 . régiment. Comme un mot de frère d'armes, comme
 un mot de mess et de chambrée. Comme un mot de
 camarade, de compagnon, (d'atelier); de camarade
-(d'atelier) à camarade (d'atelier); de compagnon à com-
-pagnon; presque comme un mot de compagnonnage. -
+(d'atelier) à camarade (d'atelier); de compagnon à compagnon; presque comme un mot de compagnonnage. -
 Vous ne l'avez pas entendu ainsi. Donc jai tort.
 Je me rends bien compte que pour jouer il faut être
 deux, même aux rudes jeux du travail, et qu'il faut
@@ -915,14 +886,12 @@ C'est celui qui met le jeu en train qui doit prévoir les.
 accidents du jeu. Celui qui engage la partie doit penser
 à tout. Mais est-ce bien moi seulement qui ai engagé la
 
-Vous faites de grands voyages, Halévy. Non pas seu-
-lement par chemin de fer et bateaux. Mais pour
+Vous faites de grands voyages, Halévy. Non pas seulement par chemin de fer et bateaux. Mais pour
 découvrir ce pays de France, (et même découvrir, une
 fois de plus, une fois encore, une fois après tant de fois,
 ce que l'on connaît déjà, ce que l'on connaît si bien, ce « que l'on a déjà découvert tant de fois), mais pour « découvrir ce pays de France sur les routes de France
 vous faites de grands voyages à pied. Comme le vieux
-Quinet, rentrant d'exil, reprenait possession du sol de « France, battant sur toutes les routes de France, Fran-
-çais Juif errant, ainsi vous jeune, et déjà moins jeune,
+Quinet, rentrant d'exil, reprenait possession du sol de « France, battant sur toutes les routes de France, Français Juif errant, ainsi vous jeune, et déjà moins jeune,
 vous prenez possession de tant de terre et de tant de
 route, de cette terre toujours nouvelle. Et nous sommes
 bien en effet, en tant de sens, les élèves du vieux
@@ -932,8 +901,7 @@ Quinet, des jeunes Quinet renaissants, si je puis dire,
 . républicains nationalistes, (ces mots, ce mot ne jouant
 - ici aucunement dans le sens politique, naturellement,
 dans et sur le plan politique, dans le langage politique),
-. enfin des républicains patriotes, foncièrement, profon-
-dément, essentiellement, je dirai substantiellement
+. enfin des républicains patriotes, foncièrement, profondément, essentiellement, je dirai substantiellement
 français. Vous avez écrit, vous avez pour une part
 publié, vous pensez, vous construisez, vous écrirez
 encore des relations de ces voyages, de ces grands
@@ -1018,10 +986,7 @@ que cette année pour ainsi dire c'est encore malheureu-
 Ils n'ont littéralement rien. Ils ont été noyés d'eau. pa:
 - Toute journée d'eau qui vient, (ét Dieu sait s'il en vient),
 leur enlève le peu qui leur reste. Il n'y a pas de fruits,
--. vendre aux gens d'Orléans, aux gens de la ville, et »e. surtout aux enleveurs, (c'est-à-dire aux commission-
-
-naires qui envoyent à Paris, et on dit que jus-
-qu'en Angleterre. Du reste je vous dis ça, vous le savez
+-. vendre aux gens d'Orléans, aux gens de la ville, et »e. surtout aux enleveurs, (c'est-à-dire aux commissionnaires qui envoyent à Paris, et on dit que jusqu'en Angleterre. Du reste je vous dis ça, vous le savez
 mieux que moi. J'Sais pas pourquoi que j'vous dis tout £.
 ça, vous d'vez voir tout ça, vous aut'es, à Paris. Ils ont À
 été noyés d'eau. On n'avait jamais ça. Et pourtant
@@ -1029,8 +994,7 @@ J'commence à (n°) pas étre jeune. Il n'y a pas de fruits.!
 Les bêtes mangent tout; tout le peu qui reste; les
 limaces; les vers. Toutes sortes de bêtes. Il y a pas
 d'danger qu'i se noyent, eux. La vermine, se
-retrouve toujours, se reconnaît toujours, fait tou-
-jours son affaire, retrouve toujours son compte. Il a
+retrouve toujours, se reconnaît toujours, fait toujours son affaire, retrouve toujours son compte. Il a
 beau tomber de l'eau. Il a pas d'danger qu'i se noyent,
 eux. Ah si c'était utile, n'réussirait pas comme ça.
 Mais il n'y a de prospérité que pour la vermine. Vous
@@ -1061,8 +1025,7 @@ trop de vaillance pour être ironiques. Ils sont trop bons
 Français, trop vieux Français pour être ironiques. Ils
 : …. vous parlent donc sérieusement. On dit qu'on vend plus
 — cher. Mais quand il y a rien, on ne vend pas plus cher.
-— On ne vend pas du tout. Tel est leur bon sens. Je pour-
-rais vous tenir tête jusqu'à demain matin, Halévy, je
+— On ne vend pas du tout. Tel est leur bon sens. Je pourrais vous tenir tête jusqu'à demain matin, Halévy, je
 pourrais jusqu'à demain matin vous tenir des propos de
 a paysan(s), des propos vrais, où vous ne saisiriez pas
 4 l'ombre d'une paysannerie. J'ai cette année, sur
@@ -1090,8 +1053,7 @@ NET Et les poils de cette brosse étaient les chaumes innom-.
 brables, les durs chaumes de blé, les durs chaumes
 secs. Et cette râpe, cette brosse aux poils durs vous
 entrait très proprement dans les pieds. Traversant,
-censément, se faisant sentir à travers les plus authen-
-tiques semelles des lourds godillots. Les godillots sont
+censément, se faisant sentir à travers les plus authentiques semelles des lourds godillots. Les godillots sont
 lourds dans le sac. Ces pointes, d'apparence presque
 inoffensives, passaient comme au travers du plus épais;
 godillot. À travers le cuir et malgré les gros clous
@@ -1147,8 +1109,7 @@ CE Et comme il ne faut rien laisser perdre, la terre sera
 ; ils vont labourer leur terre, ils enterreront, ils enfouik ront de l'engrais vert.
 
 ; Ils savent trop combien l'ironie est contraire à leur Le:
-génie, au génie français. Ils vous parlent très sérieuse-
-ment. Il n'y a rien cette année. Ils pensent, continûment,:
+génie, au génie français. Ils vous parlent très sérieusement. Il n'y a rien cette année. Ils pensent, continûment,:
 du même mouvement ils pensent à la vendange de
 2 l'année prochaine. On ne sait pas. sera peut-être:
 bien meilleur. Ce n'est pas eux qui parleraïent, qui
@@ -1219,19 +1180,15 @@ semaine dernière; je suis sûr, je veux croire qu'il l'est
 encore), parce qu'ils soupçonnent que je dois le connaître À
 : à Paris. C'est aussi un professeur. Pour eux je suis un;
 3 professeur. Et c'est tellement vrai. Ils appellent cela
-parler politique. Parler politique, pour eux, c'est tou-
-jours un peu anormal, un peu compromettant, un peu à
-singulier. Un peu dangereux. C'est toujours une opéra-
-tion de grand risque. Il faut se lancer. On se risque. (Et;
-on risque.) (Et le plus fort c'est qu'avec les mœurs (poli-
-tiques) actuelles dans les campagnes, dans les petites
+parler politique. Parler politique, pour eux, c'est toujours un peu anormal, un peu compromettant, un peu à
+singulier. Un peu dangereux. C'est toujours une opération de grand risque. Il faut se lancer. On se risque. (Et;
+on risque.) (Et le plus fort c'est qu'avec les mœurs (politiques) actuelles dans les campagnes, dans les petites
 ; villes, et même dans les grandes, c'est vrai.) Aussi on à
 È n'est tout à fait bien à l'aise, bien hardi, pour parler
 politique, que dans le lieu de toutes les hardiesses, de.
 toutes les audaces, quand on est bien à l'abri, dans la à
 chaleur, dans la fumée, dans la douceur, dans la tiédeur, à
-5 dans les pipes, derrière la porte et les fenêtres fami-
-lières, dans l'abri, dans l'atmosphère familière, abri- À
+5 dans les pipes, derrière la porte et les fenêtres familières, dans l'abri, dans l'atmosphère familière, abri- À
 
 Ke: tante, d'un vieux familier cabaret. Alors on peut se
 Le: lancer. on est hardi, on est couvert, on ne craint.
@@ -1249,8 +1206,7 @@ délicieuse, par une désarmante ironie (sur eux-mêmes),
 par un amusant retour sur soi-même ils appellent en
 effet cela, souriants de connivence, ou sérieux apparem-;
 ment, être (un peu) émus.) ils sortent, non sans peine,
-- des raisonnements serrés, des raisonnements invin-
-cibles, (alors tu vois ben), des raisonnements yvictorieux, des raisonnements généreux, des raisonnements
+- des raisonnements serrés, des raisonnements invincibles, (alors tu vois ben), des raisonnements yvictorieux, des raisonnements généreux, des raisonnements
 sévères, des raisonnements éloquents sur le gouver-
 à nement des peuples, des raisonnements logiques, en;
 tenant la rampe, des raisonnements prodigieux. Ils
@@ -1298,8 +1254,7 @@ que vous fassiez, quelque confiance que vous leur inspiE riez, quelque confiance
 êtes toujours un visiteur (je ne dis certes pas un étranger), un voyageur, comme le voyageur antique, un visiteur, je dis un hôte. C'est un fin peuple, Halévy, vous
 le connaissez, et qui entend merveilleusement l'hospitalité. Les convenances, les devoirs de l'hospitalité. Mais
 les distances de l'hospitalité. Soyez sûr qu'il vous reçoit
-avec une interférence totale de respect, avec une interfé-
-rence totale d'hospitalité. Ces jardins propres, ces vignes
+avec une interférence totale de respect, avec une interférence totale d'hospitalité. Ces jardins propres, ces vignes
 : fières, ces treilles; ces allées sarclées, bien ratissées,
 ces maisons merveilleusement nettes, ces meubles bien
 essuyés, polis, luisants d'avoir été essuyés pendant des
@@ -1335,7 +1290,7 @@ comme par hasard, eh bien j'aime mieux vous le dire:
 eh bien non n'est pas ça. Mais celui d'il y a deux
 ans. Et ils claquent la langue. Mais comme par ce NE
 même hasard il y a toujours une bouteille d'il y a cinq
-ans dans un coin de la cave. Et leur belle malice d'il y:
+ans dans un coin de la cave. Et leur belle malice d'il
 a des siècles: Vous savez, il y a un peu de poussière
 dessus, mais il est bon tout de méme. à
 Je voudrais n'offenser personne. Il faut pourtant bien
@@ -1391,13 +1346,11 @@ derechef il ne reste pas un atome de poussière.
 
 Être plus que mathématiquement sûr. Être laborieusement, ouvrièrement sûr.
 Le singe avec le léopard
-Gagnoient de l'argent à la foire. On a beau-
-coup perfectionné la foire. Le monde fait tant de pro- à
+Gagnoient de l'argent à la foire. On a beaucoup perfectionné la foire. Le monde fait tant de pro- à
 grès, à présent. Les modestes chevaux de bois, gloire En
 de nos enfances, sur lesquels je n'osais pas monter,;
 sont devenus de somptueux manèges, tout rutilants d'or
-et de Cosaques (avec des lances d'or) cause de lal-
-liance russe) (est-ce pour symboliser les emprunts), de
+et de Cosaques (avec des lances d'or) cause de lalliance russe) (est-ce pour symboliser les emprunts), de
 somptueux, mirifiques, de superbes, d'éblouissants manèges, tous plus éblouissants les uns que les autres,
 (car il y a la concurrence), (ça a d'abord été des chevaux
 merveilleux, (qui jetaient loin dans l'ombre nos pauvres
@@ -1412,8 +1365,7 @@ maharajah de Çapour-Tala (je mets deux À absolument
 “au hasard); des girafes; des cochons, beaucoup de gros
 2 cochons qui font rire les peuples; mais à présent)
 aujourd'hui les manèges ce sont des automobiles, d'on
-ne sait combien de chevaux; des ballons, des sphé-
-riques, des sous-marins; demain des aéroplanes; des
+ne sait combien de chevaux; des ballons, des sphériques, des sous-marins; demain des aéroplanes; des
 É … montagnes russes, (aussi); des mals de mer à la portée
 des bourses les plus modestes. On n'a même pas besoin
 d'aller à Plouescat. Des manèges à vapeur et à l'électricité. Tout battants, tout ronflants du bruit des moteurs.
@@ -1485,8 +1437,7 @@ Et alors vous ne lui dites pas: Pardon, je suis mon-
 : sieur Halévy. Je suis ce même peuple, Halévy, je suis
 . ce même garçon de ferme, appuyé sur la même charrue, dessus cette même plaine de Beauce. Je ne vous
 dis donc pas même: Faites-moi l'amitié. Je vous dis:
-Faites-moi aussi la grâce; faites-moi l'égalité, faites-
-moi l'équité; traitez-moi comme eux; puisque en;
+Faites-moi aussi la grâce; faites-moi l'égalité, faitesmoi l'équité; traitez-moi comme eux; puisque en;
 somme vous êtes venu me voir; faites-moi la justice de
 croire non seulement que je ne vous offense pas, mais
 que je ne peux pas vous offenser. Faites-moi l'égal traitement de me traiter comme eux. Puisqu'en somme
@@ -1495,8 +1446,7 @@ vous êtes venu chez moi.
 Mieux encore, et plus, faites-y bien attention, Halévy,
 
 prenez-y garde. Je suis, j'étais la seule maison de paysan
-qui vous fût ouverte comme à un frère, et non pas seu-
-lement comme à un hôte. Plus outre, j'étais, absolument
+qui vous fût ouverte comme à un frère, et non pas seulement comme à un hôte. Plus outre, j'étais, absolument
 parlant, la seule maison de paysan qui vous fût ouverte. Le
 Voulez-vous, de vos propres mains, vous la fermer.
 J'étais la seule maison de paysan qui vous accueillit au
@@ -1505,8 +1455,7 @@ de respect ni d'hospitalité, sans l'ombre d'une interfé-:
 rence. Je ne parle plus de l'amitié, à défaut de l'amitié a.
 j'étais ainsi pour vous la plus précieuse référence, une “4
 référence unique. Cette cordialité amère que nous ee.
-dément nourrie de tristesse, c'était la seule fréquen-
-tation paysanne que vous ayiez. Vous exposez-vous à à
+dément nourrie de tristesse, c'était la seule fréquentation paysanne que vous ayiez. Vous exposez-vous à à
 perdre, allez-vous perdre au moins cette référence
 Cette confidence sombre que nous avions. Ce propos
 de l'immense, de l'universelle conspiration des grandes
@@ -1514,9 +1463,7 @@ gardée. Ayant parcouru ensemble une si longue route,
 si sombre, allons-nous à présent nous séparer. Allons- be.
 nous désormais nous séparer. Allons-nous donc, allons- À
 nous nous séparer. Pour la longue route qui nous reste,
-si sombre, allons-nous, nos voies vont-elles pour éternel-
-lement se séparer. Nous étions l'un à l'autre de pré-
-cieuses, peut-être d'uniques références. Tout ce que
+si sombre, allons-nous, nos voies vont-elles pour éternellement se séparer. Nous étions l'un à l'autre de précieuses, peut-être d'uniques références. Tout ce que
 nous avions de différence, d'écart entre nous donnait À
 
 précisément, était précisément ce qui donnait une
@@ -1531,8 +1478,7 @@ pénétrée intérieure, entrée dans le sang, teinture
 distance de caractère, de tempérament, d'âme (non
 de cœur), cette grande distance intérieure, devenue
 extérieure, sortante extérieure, qui sort par la peau,
-par (tous) les pores de la peau, qui se manifeste socia-
-lement même, qui fait de vous un optimiste si profondément triste, et de moi un optimiste, un pessimiste
+par (tous) les pores de la peau, qui se manifeste socialement même, qui fait de vous un optimiste si profondément triste, et de moi un optimiste, un pessimiste
 quelquefois courageux. Vous êtes un doctrinaire. Plus
 nos tempéraments et nos sociétés sont différentes, plus
 nous avons de distances de base, plus nous nous sommes
@@ -1622,8 +1568,7 @@ qu'on a encore à faire, tout ce qu'on voit, tout ce qu'on
 devant soi comme d'immenses montagnes, fait devant
 soi des montagnes infranchissables. Tout ce qu'on a dit A
 est comme rien. Une eau qui s'écoule, un creux, un rien
-dans le creux de la main. Une eau qui s'est déjà écou-
-lée, dont il n'est plus question. Tout ce qu'on n'a pas À
+dans le creux de la main. Une eau qui s'est déjà écoulée, dont il n'est plus question. Tout ce qu'on n'a pas À
 dit (encore, et tout ce qu'on ne dira jamais) fait devant:
 vous des montagnes infranchissables. Des montagnes
 : et des montagnes. Tout ce qu'on a passé n'est rien.
@@ -1640,8 +1585,7 @@ ce n'est rien. Comme le disaient les bonnes femmes, ce
 n'est pas du drap dans les grandes largeurs. Alors dans
 cette détresse pour se rassurer on parle de ses projets. a.
 On aime avoir quelqu'un à qui on parle de ses projets.
-Une oreille amie, (un cœur ami), une entente, une au-
-dience amie. On ne le fait pas seulement pour se
+Une oreille amie, (un cœur ami), une entente, une audience amie. On ne le fait pas seulement pour se
 consolation anticipée, prématurée. Une consolation À
 d'avant. D'autant meilleure. D'autant plus chère. Ce
 que l'on veut se donner, ce que l'on se donne ainsi, Le
@@ -1671,8 +1615,7 @@ l'art d'écrire, qui fait la loi, on ne sait plus où l'on va,
 on suit fidèlement les modalités, les modulations, les
 ondulations de la réalité). (Les courbes géologiques.)
 : (Les courbes, les plis du terrain.) Si on ne truque pas,
-füt-ce pour des raccourcis (artificiels). On est constam-
-ment épouvanté des exigences de ce développement,
+füt-ce pour des raccourcis (artificiels). On est constamment épouvanté des exigences de ce développement,
 de ce déroulement. C'est exactement comme en montagne. Cette cime, que l'on avait, que l'on tenait sous
 la main, il faut des jours et des jours de ce travail, de
 cette marche forcément linéaire, (et forcément par
@@ -1681,13 +1624,11 @@ avancées. En verra-t-on seulement jamais la fin. La vie
 est brève. Atteindra-t-on seulement ce premier contrefort. On voit très bien la fin de la vie de Péguy. Sur-
 
 : Charles Pépuy Ne due.
-tout celui qui est dedans. On voit, on distingue nette-
-ment la portée, la retombée de cette trajectoire. Alors
+tout celui qui est dedans. On voit, on distingue nettement la portée, la retombée de cette trajectoire. Alors
 on dit, d'un air à qui nul ne se fie: J'ai commencé ma
 réponse à Halévy. — J'ai déjà trois cents pages de
 faites de mon dialogue charnel. — Ces propos
-seraient odieux, si tout le monde n'y sentait la lamen-
-table inquiétude, la sourde détresse. C'est une pauvre,
+seraient odieux, si tout le monde n'y sentait la lamentable inquiétude, la sourde détresse. C'est une pauvre,
 une pitoyable anticipation que l'on veut faire, que l'on
 à se donne, on veut toucher la cime et n'avoir pas fait le
 chemin, on veut s'appuyer, on s'appuie sur et dans la;
@@ -1700,8 +1641,7 @@ Un désir corporel, temporel. On veut vraiment, par ce
 à biais, par ce détour, par cette avancée, par ce coup de
 force et d'anticipation, donner corps avant l'heure à
 une œuvre qui légitimement, naturellement n'en est
-encore qu'à la période de travail, n'est encore organi-
-quement qu'en travail. Et on n'en veut rien laisser.
+encore qu'à la période de travail, n'est encore organiquement qu'en travail. Et on n'en veut rien laisser.
 perdre. Et on ne veut perdre aucun temps. Pas une
 3 miette, pas un temps. Avare on serre les doigts de la
 main. On tient tout nerveusement ramassé d'avance
@@ -1712,8 +1652,7 @@ impossibles, pèsent sur nous éternellement.
 Toutes ces montagnes qu'on a devant soi vous pèsent
 à devant sur les épaules. Il faut les surmonter. Les re-
 
-LE monter des épaules. Y entrera-t-on seulement. Repré-
-senter, rendre ce monde, ces trois dimensions, avec
+LE monter des épaules. Y entrera-t-on seulement. Représenter, rendre ce monde, ces trois dimensions, avec
 cette plume qui gratte régulièrement, qui court sur le
 ; Dore. Quand on est à sa table on trouve, on voit bien
 que la main ne rame pas, la main n'avance pas, la
@@ -1739,8 +1678,7 @@ même, parce que le métier ne perd jamais ses droits),
 vous approchez, vous ne pouvez seulement pas les reNe … connaître. Herbe et avoine. Herbe et seigle. Herbe et blé.
 Tout cela sèche ensemble, parce que, heureusement,
 
-encore, il fait beau, enfin assez beau, depuis une se-
-maine, et on rentre les blés dans de bonnes conditions.
+encore, il fait beau, enfin assez beau, depuis une semaine, et on rentre les blés dans de bonnes conditions.
 On demande seulement, quand ils vont battre, comment
 le bon Dieu reconnaîtra les siens.
 
@@ -1760,8 +1698,7 @@ entre Napoléon et lui, qu'entre 70 et nous, entre Wa-
 terloo et les Châtiments, qu'entre l'Année terrible et
 nous. Il était, dans le temps, à la chute du premier à
 Empire comme nous sommes à la chute du Second.
-Singulières erreurs, singulières tromperies de la per-
-spective temporelle. Comme on a bien raison de le dire, Ne.
+Singulières erreurs, singulières tromperies de la perspective temporelle. Comme on a bien raison de le dire, Ne.
 que ces plaines et ces montagnes du temps sont comme
 les plaines et les montagnes du lieu, aussi incertaines,
 aussi trompeuses. Singulières perspectives. Singulières
@@ -1801,8 +1738,7 @@ la chute du Premier.
 
 Qui, débouchant brusquement de l'immortelle rue
 
-Victor-Cousin, prolongement de notre rue de la Sor-
-bonne, pressé pour aller prendre le train avec vous à
+Victor-Cousin, prolongement de notre rue de la Sorbonne, pressé pour aller prendre le train avec vous à
 cette gare du grand-duché. de Luxembourg, comme
 disait un réserviste de Palaiseau, ce qui prouve que
 Palaiseau n'a point dégénéré depuis Bara, et ce qui
@@ -1840,11 +1776,11 @@ Gloire à ceux qui sont morts pour elle!
 
 25. Aux martyrs! aux vaillants! aux forts!
 
-4 A ceux qu'enflamme leur exemple,
+A ceux qu'enflamme leur exemple,
 
 — Qui veulent place dans le temple,
 Et qui mourront comme ils sont morts!;:
-4 Ainsi, quand de tels morts sont couchés dans la tombe, Se,
+Ainsi, quand de tels morts sont couchés dans la tombe, Se,
 En vain l'oubli, nuit sombre où tout ce qui tombe,
 
 Passe sur leur sépulcre où nous nous inclinons, es
@@ -1876,9 +1812,7 @@ toujours le premier vers, ou les vers conducteurs, qui
 mangent le titre, qui deviennent le titre. Ainsi celui-ci
 
 ; n'est pas Hymne. C'est Ceux qui pieusement sont
-morts pour la patrie, ou Gloire à notre France éter-
-
-nelle! Gloire à ceux qui sont morts pour elle! —
+morts pour la patrie, ou Gloire à notre France éternelle! Gloire à ceux qui sont morts pour elle! —
 
 ù L'Expiation même, c'est beaucoup plus souvent, c'est
 ; beaucoup plus Waterloo! Waterloo! Waterloo! morne
@@ -1903,11 +1837,7 @@ même genre. Un pédant tout de même. Mais qui vous
 
 fera remarquer cette curiosité, cette rareté, de collectionneur, après que Hervé, après Napoléon, et après les
 
-soldats de Napoléon, et après les maréchaux de Napo-
-
-léon, a justement fait un sort, et à Wagram, et au dra-
-
-peau de Wagram, qui tiquera sur ce nom de Wagram
+soldats de Napoléon, et après les maréchaux de Napoléon, a justement fait un sort, et à Wagram, et au drapeau de Wagram, qui tiquera sur ce nom de Wagram
 
 et vous fera tiquer, qui s'amusera à vous faire observer,
 
@@ -1953,8 +1883,7 @@ Ils ne savent donc pas, ces pauvres nains vainqueurs,
 Sautés sur le pavois du fond d'une caverne, À
 à Que lorsque c'est un peuple illustre qu'on gouverne,:
 Un peuple en qui l'honneur résonne et retentit…
-L'honneur c'est Wagram. Qui devant un soleil cou-
-chant, un beau soleil couchant sur le Luxembourg, ee.
+L'honneur c'est Wagram. Qui devant un soleil couchant, un beau soleil couchant sur le Luxembourg, ee.
 au contraire du Panthéon, toujours de la rue Soufflot, 5 “4
 toujours à l'heure du train, ou autrement, à une autre
 heure, qui devant un de ces merveilleux soleils couchants à
@@ -1975,8 +1904,7 @@ Toi qui vas cherchant
 
 nu. =. Prends garde de choir.
 
-Qui à ce seul môt coucher de soleil, ou plus pleine-
-ment au spectacle d'un coucher de soleil vous rendra
+Qui à ce seul môt coucher de soleil, ou plus pleinement au spectacle d'un coucher de soleil vous rendra
 Erin grande, la haute brutalité de ce vers:
 Ce soleil qu'on espère est un soleil couché!
 
@@ -2055,8 +1983,7 @@ Que le ciel eût dit oui!
 Sentdtent trembler sous eux les États centenaires,
 …. Et regardaient le Louvre entouré de tonnerres,
 : Comme un mont Sinaï!
-Qui passant devant les Invalides reprendra brusque-
-ment le même par le milieu, car c'est encore le même:
+Qui passant devant les Invalides reprendra brusquement le même par le milieu, car c'est encore le même:
 Au souffle de l'enfant, dôme des Invalides,
 Les drapeaux prisonniers sous tes voûtes splendides
 Frémirent, comme au vent frémissent les épis;
@@ -2075,11 +2002,8 @@ bonne? Ne riez pas. C'est ma découverte qui est bonne.
 Elle est même plus bonne, vous allez voir qu'elle est
 
 (encore) plus bonne que vous ne le pensez. Ma découverte entre, comme partie intégrante, dans l'histoire de
-la littérature, et même dans l'histoire des lettres fran-
-çaises. Ou alors il n'y a plus de justice. (Et surtout il
-n'y a plus de système.) Hugo était un faiseur. Ménagez-
-moi, je vous en prie, ne vous riez pas de moi. Ma décou-
-verte n'est pas que Hugo était un faiseur. Ce ne seraït
+la littérature, et même dans l'histoire des lettres françaises. Ou alors il n'y a plus de justice. (Et surtout il
+n'y a plus de système.) Hugo était un faiseur. Ménagezmoi, je vous en prie, ne vous riez pas de moi. Ma découverte n'est pas que Hugo était un faiseur. Ce ne seraït
 pas une découverte. Mais nous disons qu'il était un
 faiseur mais nous ne savons point jusqu'à quel point il
 était un faiseur. Ce sont de ces choses que l'on dit, que
@@ -2091,16 +2015,14 @@ qu'il n'en avait jamais assez, il savait bien qu'on est
 toujours dans l'attitude d'un débutant, que l'on débute
 toujours pour la fortune, et peut-être pour l'art), mais
 , surtout pendant la première moitié de sa carrière il à
-affectait de mettre au moindre de ses poèmes des épi-
-graphes extraordinaires pour bien nous convaincre qu'il
+affectait de mettre au moindre de ses poèmes des épigraphes extraordinaires pour bien nous convaincre qu'il
 avait, comme on dit, une littérature inépuisable. Cela
 commençait dès les Odes et Ballades. On sait aussi que
 c'était l'habitude de son temps, je veux dire depuis « Chateaubriand et dans toute cette première grande
 moitié du romantisme. C'était le commencement du
 romantisme. Dans le romantisme c'était le commencement de l'archéologie. Mais ce n'était pas seulement le
 commencement de l'archéologie romantique. C'était aussi
-et surtout déjà le commencement de toute notre archéo-
-logie scientifique. c'est presque un fait important de
+et surtout déjà le commencement de toute notre archéologie scientifique. c'est presque un fait important de
 l'histoire littéraire, au moins de son histoire et de son
 histoire littéraire que ce soin qu'il avait, qu'il mettait, À
 
@@ -2111,7 +2033,7 @@ faire une carrière (il semble bien qu'il l'ait faite), et qui
 ne croyait pas qu'une carrière se fait toute seule. La
 1 docilité inquiète et attentionneuse, la suivance de ce
 à grand révolutionnaire aux gens de son temps, aux
-modes de son temps, aux mouvements de son temps, à:
+modes de son temps, aux mouvements de son temps,
 ce qui réussissait, est un spectacle d'autant plus réjouis_ sant qu'on peut le goûter sans arrière pensée: a
 À tellement réussi. la ballade quatrième, — à Trilby,
 — le lutin d'Argail, — porte cette épigraphe:
@@ -2174,8 +2096,7 @@ rustiques, comme venant, comme adressée, D'un Van-
 : Avienus, et il ignore, ou enfin il ignore de reconnaître
 un gros morceau de Du Bellay, un des plus connus. Ce
 qu'il y a de plus extraordinaire, c'est que ces Ballades,
-- et tout l'ancien, le premier Hugo, sont pleins de réfé-
-rences prises à Ronsard et à la Pléiade. Ou enfin à la
+- et tout l'ancien, le premier Hugo, sont pleins de références prises à Ronsard et à la Pléiade. Ou enfin à la
 Renaissance française. Rien que dans ces Ballades:
 Desportes, Baïf, Ronsard, (Segrais), et il n'y a que
 quinze ballades. Et ce qu'il y a de plus fort, que tout,
@@ -2212,12 +2133,9 @@ avait alors, naturellement, parce que c'était la mode,
 et il garda, il eut presque toujours un goût, un respect
 superstitieux de l'ancien, du vieux, en ce sens, ainsi
 entendu; il en avait une considération mystérieuse, LE
-superstitieuse affectueuse; toujours le bon révolution-
-naïre; il pratiquait alors, (il pratiqua presque toujours,?
+superstitieuse affectueuse; toujours le bon révolutionnaïre; il pratiquait alors, (il pratiqua presque toujours,?
 même ensuite, en même temps qu'il exerçait, qu'il
-excellait, qu'il faisait fortune dans le nouveau, profes-
-sionnel, dans le progrès, professionnel, dans le mo-
-derne), une certaine superstition, une sorte de mystique
+excellait, qu'il faisait fortune dans le nouveau, professionnel, dans le progrès, professionnel, dans le moderne), une certaine superstition, une sorte de mystique
 du vieux.) (Une mystique de brocanteur.)
 Deuxièmement il n'en cite que deux strophes, les deux
 premières, au lieu de trois qui sont également connues,
@@ -2260,8 +2178,7 @@ texte portait, comme on sait:;
 A vous troupe légère, à
 Tout l'humanisme était dans ce troupe légère, tout
 lhumanisme et tout le grec, toute la bucolique antique
-et renaissance, renaissante, la vraie, toute la Renaissance païenne et française, toute la tradition renais-
-sante, toute la fleur, toute la grâce, et aussi toute la à
+et renaissance, renaissante, la vraie, toute la Renaissance païenne et française, toute la tradition renaissante, toute la fleur, toute la grâce, et aussi toute la à
 précision de l'antique et du français. Hésiode et À
 Théocrite. C'en était même devenu comme un mot
 technique. Lui Hugo, il n'hésite point. Il cite, il rapporte au courant de la plume:
@@ -2271,9 +2188,7 @@ non seulement n'est plus du temps, mais n'est à
 plus de la race, n'est plus de rien. Tout tombe. La
 vulgarité a passé, la pire de toutes, la vulgarité légère.
 Tout le romantisme est là. Un léger pouce de vulgarité
-a écrasé la fine moulure antique. Le commun, le mas-
-
-ne:: Solountur objecta
+a écrasé la fine moulure antique. Le commun, le masne:: Solountur objecta
 tique romantique a bouché l'œil et la nervure. Et il faut
 dire que tout le poème, toute la pièce est comme une
 gageure. C'est déjà un défi, et c'est risquer gros, c'est
@@ -2339,13 +2254,13 @@ C'est ainsi que je trouve dans une petite édition
 Bruxelles et Lausanne: Les Chefs-d'Œuvre de la Poésie:
 
 é lyrique française. — Les Chefs-d'Œuvre lyriques de
-0 Ronsard et de son école. — Joachim du Bellay. — Jeux
+Ronsard et de son école. — Joachim du Bellay. — Jeux
 2 rustiques. — D'un Vanneur de Blé, aux Vents:
 Et d'un sifflant murmure
 D. J'offre ces violettes,
 : Ces lis et ces fleurettes,
 Ne Et ces roses ici, ARE Se
-4 Tout fraîchement écloses,
+Tout fraîchement écloses,
 . Et ces œillets aussi.
 ï De votre douce haleine
 ; Éventez cette plaine,
@@ -2373,8 +2288,7 @@ Euentez ce seiour
 Ce pendant que i'ahanne à
 A mon blé, que vanne;
 A la chaleur du iour.
-(Pendant que je copie ce Marty-Laveaux pour les impri-
-meurs, je m'applique tellement à bien former mon écriture, pour qu'il n'y ait aucune coquille, que si Bédier
+(Pendant que je copie ce Marty-Laveaux pour les imprimeurs, je m'applique tellement à bien former mon écriture, pour qu'il n'y ait aucune coquille, que si Bédier
 
 voyait ma copie, sûrement il m'embaucheraït pour lui
 copier ses textes pour ses imprimeurs.)
@@ -2412,10 +2326,8 @@ l'édition à trois francs cinquante ceinturonnée, sauf
 qu'on a cette fois-ci notablement adouci, diminué la
 ponctuation de la fin. D'où un fäâcheux affaiblissement
 de la pensée, de toute vieille pensée. Dans le ceinturon
-on a supprimé les deux virgules finales des deux avant-
-derniers vers, et on a supprimé l'exclamation du point
-d'exclamation final, ce qui donne, au lieu d'un des pre-
-miers textes que nous avons donné: À
+on a supprimé les deux virgules finales des deux avantderniers vers, et on a supprimé l'exclamation du point
+d'exclamation final, ce qui donne, au lieu d'un des premiers textes que nous avons donné: À
 
 - Tout fraischement escloses
 Et ces œillets aussi. à
@@ -2441,7 +2353,7 @@ Les classiques n'avaient pas seulement les rimes en
 ; Sont demeurés sans gloire au milieu des ténèbres,
 à Ils avaient entrailles, funérailles, batailles: foudre,
 - poudre; marque(s), monarque(s); et dans Racine
-5 Qui l'eût dit, qu'un rivage à mes vœux si funeste
+Qui l'eût dit, qu'un rivage à mes vœux si funeste
 À Et tantôt c'est beau, et tantôt c'est atiendu:
 1% Je te vis à regret, en cet état funeste,
 Prét à suivre partout le déplorable Oreste,
@@ -2450,8 +2362,7 @@ C'est même peut-être ce qu'il a fait de plus fort, que ce
 Et vous laissant toucher d'une pitié funeste,
 D'une guerre si longue entretenir le reste.
 
-Il y a aussi encor et Hector à la rime. Il est extrême-
-ment remarquable, dans tout Andromaque déjà,
+Il y a aussi encor et Hector à la rime. Il est extrêmement remarquable, dans tout Andromaque déjà,
 combien Racine met les noms propres à la rime, ce qui
 est une droite et grande et brave et directe façon de
 quarrer le vers. Grèce, Sparte, Hélène, Troie, Ulysse,
@@ -2520,7 +2431,7 @@ Et, dans ce haut degré de puissance et d'honneur,
 É Les plus grands y tiendront votre amour à bonheur.
 
 mn: Je découvrois en vous d'assez illustres marques
-3 Pourvous préférer même aux plus heureux monarques:
+Pourvous préférer même aux plus heureux monarques:
 —_O Quand Oreste n'est plus là, reste et funeste s'arrangent
 ; Vous devez présumer de lui comme du reste:
 Es Le trépas rest pour eux ni honteux ni funeste;
@@ -2528,8 +2439,7 @@ La rime main(s), Romain(s); — homme, Rome est
 partout dans Hugo; elle était naturellement déjà partout
 dans Corneille et ils se joignent profondément par ce
 métier. Voilà ce qu'il faudrait considérer un peu, c'est
-2 à des considérations de cet ordre qu'il faudrait docile-
-ment se livrer avant de croire que l'on peut tout fonder
+2 à des considérations de cet ordre qu'il faudrait docilement se livrer avant de croire que l'on peut tout fonder
 sur une séparation du classique et du romantique. Il y
 : aurait tant à dire. Hugo était peut-être au fond un
 classique mauvaisement ambitieux qui pour arriver
@@ -2537,8 +2447,7 @@ classique mauvaisement ambitieux qui pour arriver
 c'était la mode qui venait. D'une mode romantique. Il
 4 y aurait tout un travail à faire, qui sait, une thèse, sur
 toute une famille de vers chez Hugo, dans toute la preSu mière moitié de son œuvre, mais au fond dans toute son
-7 œuvre, qui est incontestablement une famille virgilienne. Et un deuxième travail, beaucoup plus considé-
-rable peut-être, sur une famille cornélienne que je crois
+7 œuvre, qui est incontestablement une famille virgilienne. Et un deuxième travail, beaucoup plus considérable peut-être, sur une famille cornélienne que je crois
 encore beaucoup plus étendue. Plus nombreuse. Par
 contre je crois que l'on ne trouverait pas dans Hugo un
 seul vers racinien.
@@ -2596,8 +2505,7 @@ Préparent contre nous un général effort;
 Dans Polyeucte c'est un recoupement. Car il atteint à
 une grandeur comme temporellement spirituelle, à un
 faîte comme temporellement spirituel; à un faîte
-unique d'héroïsme dans la sainteté, (mais qui est peut-
-être en un sens aussi, de l'autre côté, un faîte de;
+unique d'héroïsme dans la sainteté, (mais qui est peutêtre en un sens aussi, de l'autre côté, un faîte de;
 sainteté dans l'héroïsme; je veux dire qu'un telhéroïsme
 de sainteté ne se produit peut-être que dans un monde
 naturellement héroïque, dans le monde cornélien; il y
@@ -2701,8 +2609,7 @@ une délibération volontaire:
 Si mourir pour son prince est un illustre sort,
 Quand on meurt pour son Dieu, quelle sera la mort PAST
 Telles étaient, Halévy, nos trouvailles, les découvertes
-que nous nous communiquions, nos découvertes sensa-
-tionnelles. Prouvant ainsi que nous étions très capables,
+que nous nous communiquions, nos découvertes sensationnelles. Prouvant ainsi que nous étions très capables,
 nous aussi, quand il fallait, de faire « du travail »
 : comme eux. Saviez-vous par exemple qu'il ne s'était pas
 .…. de son père lorrain, sa mère vendéenne,
@@ -2712,8 +2619,7 @@ oui. Il est vrai qu'il était jeune. C'était dans les commencements. — puis, 
 peut-être Copeau, chez Croué), de quoi Hugo ne s'estil « pas félicité. Il avait raison. Il faut se féliciter. Tout de
 même il ne s'est pas toujours félicité d'avoir un nom
 : saxon. C'est à la fin de l'ode septième du livre troisième.
-(L-7). C'est dans l'ode que nous nommons communé-
-ment, que nous croyons connaître sous ce nom de l'ode
+(L-7). C'est dans l'ode que nous nommons communément, que nous croyons connaître sous ce nom de l'ode
 à la Colonne. (Tout court). Hugo l'avait nommée plus
 au long, tout au long, plus naïvement, avec une sorte
 de vaïveté de plan de Paris désarmante qui au fond fit
@@ -2772,8 +2678,7 @@ pour devenir la colonne, c'était d'avoir été préalablement
 fichue par terre et ensuite remontée; ce qui lui manquait
 (c'est un peu cette sorte de gloire, il faut le dire, de
 publicité que Hervé a faite au drapeau de Wagram),
-ce qui lui manquait, c'était la Commune, Courbet, (Vuil-
-laume comme chroniqueur). Les gouvernements réactionnaires ayant pris soin de ne pas fiche par terre la à
+ce qui lui manquait, c'était la Commune, Courbet, (Vuillaume comme chroniqueur). Les gouvernements réactionnaires ayant pris soin de ne pas fiche par terre la à
 colonne de Juillet, la concurrence est tombée. C'est à
 cause de Vuillaume que nous pouvons dire: la colonne.
 C'est à cause de la tradition de l'opposition républicaine.
@@ -2935,8 +2840,7 @@ n'était pas moi. Un jeune homme, ce n'était pas moi.
 Avisé, ce n'était pas moi. Si j'avais jamais été un
 jeune homme avisé, mon cher Halévy, quelle ne serait
 . pas aujourd'hui ma fortune. Je n'usurperai point une
-gloire vaine. Je ne me parerai point d'une vaine perspi-
-cacité. Je vous répondis que j'avais trouvé ce tuyau il
+gloire vaine. Je ne me parerai point d'une vaine perspicacité. Je vous répondis que j'avais trouvé ce tuyau il
 y a déjà quelques années dans une jeune petite revue
 que l'on m''envoyait, et que l'article, autant que je me Et
 souvienne, était signé d'un nom aujourd'hui déjà beau
@@ -2954,7 +2858,7 @@ endormi. Il avait couché avec Dieu. Avec Dieu créateur
 O Seigneur! a quitté ma couche pour la vôtre;
 Et nous sommes encor tout mélés l'un à l'autre,:
 Elle à demi vivante et moi mort à demi.
-On 2 tellement l'impression, on a tellement l'évidence à;
+On 2 tellement l'impression, on a tellement l'évidence
 que jamais peut-être, créature, que lui-même il avait
 conscience, que lui-même il avait connu d'un brusque
 éclair, d'un coup, dans un brusque éclair que jamais
@@ -2962,8 +2866,7 @@ homme peut-être, que dans un saisissement de triomphe
 il avait senti que jamais homme peut-être, pas même
 les anciens, Grecs, pas même les antiques paiens, a
 Homère, Hésiode, Eschyle n'étaient entrés aussi à à
-plein, aussi à bloc dans le plein de la création char-
-nelle, dans le ventre de la création, qu'il n'avait je ne
+plein, aussi à bloc dans le plein de la création charnelle, dans le ventre de la création, qu'il n'avait je ne
 dirai pas seulement qu'il n'avait pas seulement atteint.<4
 une cime, (ce serait parler son langage, son propre
 langage, mais son langage ordinaire, son langage de, à
@@ -2978,30 +2881,24 @@ dans le secret, dans l'opération même de la création
 c'est-à-dire littéralement de la mise en chair, de l'inser-
 
 ; tion de l'éternel &ans le temporel. Il a bien senti que
-d'un coup, per un coup de maître il saisissaïit, il étrei-
-gnaït, il dominait tout ce monde charnel, temporel et
+d'un coup, per un coup de maître il saisissaïit, il étreignaït, il dominait tout ce monde charnel, temporel et
 charnel, tout ce monde de la fécondité, de la perpétuité
 charnelle, de la race charnelle, et même, par là, même -
 l'entrée, l'inscription, l'insertion de l'éternel dans le
 . temporel, de l'éternel dans le charnel, de la vie éternelle dans la vie charnelle.
 sidèrent généralement pas l'incarnation. Les chrétiens
 la considèrent (moins qu'ils ne devraient, mais enfin
-ils la considèrent, au moins professionnellement, beaucoup politiquement, beaucoup habituellement, usagère-
-ment, quelques-uns, (autrefois tout le peuple), mysti-
-quement), mais professionnellement même pour ainsi
+ils la considèrent, au moins professionnellement, beaucoup politiquement, beaucoup habituellement, usagèrement, quelques-uns, (autrefois tout le peuple), mystiquement), mais professionnellement même pour ainsi
 dire, justement, par un effet de leur discipline même et
 de leur orientation, je veux dire très exactement du
 sens où ils sont tournés, où ils ont l'esprit tourné, où
-ils ont l'âme tournée, où ils ont le cœur tourné habituel-
-lement, usagèrement et même mystiquement ils ne la
+ils ont l'âme tournée, où ils ont le cœur tourné habituellement, usagèrement et même mystiquement ils ne la
 considèrent guère que venant de l'éternel, du côté de
-l'éternel, procédant de l'éternel, aeterno, aeterni-
-tate. Ce qui fait la valeur unique de ce poème, (et ce
+l'éternel, procédant de l'éternel, aeterno, aeternitate. Ce qui fait la valeur unique de ce poème, (et ce
 qui en fait infiniment plus qu'un poème, (et Hugo le
 sentait bien, le gueux, le vieux, le savait bien), c'est;
 que c'est peut-être la seule fois que nous ayons aussi
-purement, aussi à plein, et sans doute même absolu-
-ment la seule fois que nous ayons un regard païen, (et
+purement, aussi à plein, et sans doute même absolument la seule fois que nous ayons un regard païen, (et
 
 un regard juif), de l'incarnation, une incarnation vue,
 venue du monde juif et du monde païen, une incarnation venue comme un couronnement charnel, comme;
@@ -3026,8 +2923,7 @@ vie de ce monde. Nous rejoignons ici ce que nous
 disions de Polyeucte, que toute sanctification qui est
 grossièrement abstraite de la chair est une opération
 sans intérêt. Maïs et homo factus est; il y a deux
-moyens de considérer cette inscription, cette mysté-
-rieuse insertion, perpétuelle. Ou plutôt il y a deux lieux
+moyens de considérer cette inscription, cette mystérieuse insertion, perpétuelle. Ou plutôt il y a deux lieux
 d'où la considérer. Les chrétiens la considèrent généralement du côté de l'éternel, du lieu de l'éternel, venant
 de l'éternel, se plaçant de l'éternel, (et mon Dieu c'est
 bien un peu leur office). C'est leur métier. C'est de
@@ -3039,8 +2935,7 @@ point de vue, leur propre point, leur angle de vue, leur
 côté de voir, et mon Dieu c'est assez naturel. En un mot
 ils considèrent cette grande histoire, cette histoire
 unique, ce cas suprême, ce cas limite, cette culmina- il
-tion, cette infloraison, cette culminaison, ce couron-
-nement, cette inscription charnelle, cette temporelle
+tion, cette infloraison, cette culminaison, ce couronnement, cette inscription charnelle, cette temporelle
 
 inscription, ce point d'achèvement, (et de tout commen
 cement), surtout comme une histoire qui est arrivée à.
@@ -3069,18 +2964,15 @@ d'incarnation vint, se présentät dans l'ordre de l'événe-.
 
 ment temporel comme une fleur et comme un fruit tem_ porel, comme une fleur et comme un fruit de la terre,
 comme un aboutissement, comme un couronnement
-temporel, comme un coup suprême de fécondité tem-
-porelle, pour ainsi dire, littéralement comme une réussite
+temporel, comme un coup suprême de fécondité temporelle, pour ainsi dire, littéralement comme une réussite
 extraordinaire de fécondité charnelle, comme une infloraison, comme une implacentation charnelle, comme
 une culminaison, comme une fructification de cime,
 comme une forcerie, pourtant naturelle, comme un couronnement charnel, comme une histoire (culminante,
 suprême, limite) arrivée à la chair et à la terre. Mais
 3 enfin, par déficience, par carence nous ne pouvons
 peut-être pas demander aux païens, (aux Juifs), de
-considérer, de contempler l'incarnation. Ce n'était peut-
-être pas leur destination naturelle. Ce n'est peut-être
-pas leur office. Alors toute la contre partie nous man-
-quait. Quand il s'est trouvé un païen, un seul, (et
+considérer, de contempler l'incarnation. Ce n'était peutêtre pas leur destination naturelle. Ce n'est peut-être
+pas leur office. Alors toute la contre partie nous manquait. Quand il s'est trouvé un païen, un seul, (et
 ; un Juif, un biblique), pour considérer l'incarnation du
 côté charnel; de l'autre côté; pour contempler, pour
 … considérer l'insertion de l'éternel dans le temporel, du
@@ -3094,12 +2986,8 @@ venant du côté de sa créature, situé comme sa créature
 et du côté de sa créature, Dieu entrant dans sa créature, la créature accueillant (son) Dieu, une série de
 1 créatures, la lignée de David, aboutissant à Dieu comme
 
-à un fruit charnel. L'incarnation, vue de ce côté, l'inser-
-
-tion, cette insertion cardinale, apparaît ainsi comme
-à un accueil, comme un accueillement, comme un recueil-
-
-lement de l'Éternel dans la chair, comme un achève-:
+à un fruit charnel. L'incarnation, vue de ce côté, l'insertion, cette insertion cardinale, apparaît ainsi comme
+à un accueil, comme un accueillement, comme un recueillement de l'Éternel dans la chair, comme un achève-:
 
 ment d'une série charnelle, comme un couronnement
 
@@ -3121,16 +3009,13 @@ Une race y montait comme une longue chaîne;
 Un roi chantait en bas, en haut mourait un dieu.
 
 Sans doute il a mis dieu avec un petit: un dieu. à
-Mais ne nous frappons pas. C'est beaucoup moins peut-
-être l'aboutissement d'un paganisme que un hommage À
+Mais ne nous frappons pas. C'est beaucoup moins peutêtre l'aboutissement d'un paganisme que un hommage À
 rendu à la libre-pensée. Il fallait être libre-penseur en
 1860 et quelques. Ou il ne fallait pas être libre-penseur.
-Il fallait être libre-penseur ou clérical. La politique vou-
-lait que l'on fût l'un, ou l'autre. La politique de Hugo à
+Il fallait être libre-penseur ou clérical. La politique voulait que l'on fût l'un, ou l'autre. La politique de Hugo à
 voulait notamment qu'il fût lun. Il fallait que Hugo fût,
 pour Hugo il fallait être libre-penseur. Ce un dieu, ce
-petit est un bon point, une surveillance que la poli-
-tique de Hugo exerçait sur son génie. Le génie, lui,
+petit est un bon point, une surveillance que la politique de Hugo exerçait sur son génie. Le génie, lui,
 était naturellement mystique. C'est un mauvais tour, un
 mauvais (très) petit tour petit que la politique a voulu
 jouer génie, la politique à la mystique, le politicien
@@ -3148,8 +3033,7 @@ Fraternité, Raison, Justice, Droit et le reste, pour une
 fois qu'il en devait mettre une, le politicien s'est effrayé,
 il a renâclé devant cette grande capitale. Il s'est cabré,
 
-Matthieu prend non point la généalogie mais la géné-
-ration même de Jésus pour ainsi dire par le pied. Par
+Matthieu prend non point la généalogie mais la génération même de Jésus pour ainsi dire par le pied. Par
 la base. Depuis Abraham, qui fut le deuxième Adam.
 Non plus seulement un Adam charnel, créé, tenté, perdu,
 
@@ -3213,8 +3097,7 @@ effrayante. Peu d'hommes, d'autres hommes, ont peut- À
 Particulièrement si charnellement criminels. C'est en
 partie ce qui donne au mystère de l'Incarnation tout à
 son prix, toute sa profondeur, une reculée effrayante.
-Tout son emportement, tout son chargement d'huma-
-nité. De charnel. Au moins pour une part, et pour une
+Tout son emportement, tout son chargement d'humanité. De charnel. Au moins pour une part, et pour une
 
 Il se place, le paysan Matthieu, si grossièrement
 Abraham, ce deuxième Adam, charnel, spirituel,
@@ -3229,8 +3112,7 @@ une filiation, il commence tout tranquillement à l'origine et suit, et descend 
 au commencement, suit l'ordre, finit à la fin, aboutit à
 l'aboutissement, atteint au couronnement, s'achève luimême à l'achèvement. Nous suivons avec lui cette
 
-pente, cette ligne verticale, cette génération si simplement, si linéairement descendante. Mais c'est une géné-
-ration charnelle chrétienne. Ce Matthieu était chrétien.
+pente, cette ligne verticale, cette génération si simplement, si linéairement descendante. Mais c'est une génération charnelle chrétienne. Ce Matthieu était chrétien.
 C'est-à-dire une génération charnelle spirituelle; charnelle d'élection; temporelle éternelle,
 
 ; Luc fait au contraire une extraction. Au contraire,
@@ -3394,9 +3276,7 @@ racinien; les crimes de David, les grandeurs de David, #4
 David roi criminel, David roi adultère, David le
 psalmiste, et roi victorieux; La race de David; le sang
 race de David. Et avant David Salomon, les crimes et
-les splendeurs de Salomon, et le temple. Les somptuo-
-sités orientales. Booz, qui fut une sorte de grand pro-
-priétaire, Abraham, Isaac et Jacob, c'est-à-dire, en
+les splendeurs de Salomon, et le temple. Les somptuosités orientales. Booz, qui fut une sorte de grand propriétaire, Abraham, Isaac et Jacob, c'est-à-dire, en
 
 remontant, avec lui, et comme à l'envers, Jacob, Isaac,
 Abraham. Sem et Noé. Mathusalem, Enoch. Seth,
@@ -3408,8 +3288,7 @@ savoir s'ils passent par le même nombre de noms pour
 la partie correspondante), c'est tout de même la même À
 route qu'ils suivent tous les deux. En ces deux sens, en
 ses deux sens contraires. C'est une route charnelle,
-c'est une filiation charnelle, mais c'est une route char-
-nelle chrétienne, c'est une filiation charnelle chrétienne.
+c'est une filiation charnelle, mais c'est une route charnelle chrétienne, c'est une filiation charnelle chrétienne.
 Que ce soit une remontée, que ce soit une descente, c'est
 C'est toujours l'avènement charnel spirituel, temporel
 éternel, chrétien de Jésus-Christ. Ce sont toujours, ce
@@ -3417,8 +3296,7 @@ sont déjà deux chrétiens qui placés après Jésus, faisant
 leur office considèrent, contemplent l'incarnation du
 côté du miracle, du côté de l'éternité; cette insertion de
 l'éternel dans le temporel, du spirituel dans le charnel,
-ce sont deux chrétiens qui la considèrent, qui la contem-
-plent du côté de l'éternel, du côté du spirituel, se situant;
+ce sont deux chrétiens qui la considèrent, qui la contemplent du côté de l'éternel, du côté du spirituel, se situant;
 dans l'éternel, dans le spirituel, venant de l'éternel, du
 spirituel; faisant en un mot leur métier, leur office de
 chrétiens. C'est toujours une histoire arrivée à Jésus.;
@@ -3429,8 +3307,7 @@ Dans le seul Hugo c'est une histoire arrivée à la
 terre. Une histoire arrivée à la chair, un aboutissement,
 un couronnement de la chair. Les chrétiens, par office
 même, considèrent, contemplent l'incarnation. Mais par
-office même aussi ils ne la considèrent, ils ne la contem-
-pient naturellement que d'une considération, d'une
+office même aussi ils ne la considèrent, ils ne la contempient naturellement que d'une considération, d'une
 contemplation chrétienne. Les païens, (les Juifs), par
 leur office même ne la considèrent pas, naturellement,: à
 ne la regardent pas, ne la voient pas, l'ignorent. Nous À
@@ -3458,13 +3335,11 @@ Cest cette gageure invraisemblable que Hugo a
 tenue; c'est cette gageure qu'il a gagnée. Qu'il a naturellement tenue; qu'il a naturellement gagnée; sans
 efforcement; sans tirer; dans une amplitude, dans un
 mouvement, dans un style, dans une plénitude unique,
-elle-même invraisemblable, dans une sorte de balancement d'un rythme, d'un bonheur inouï, d'une fécondité incroyable. Elle-même unique et tout à fait invrai-
-semblable. Dans une courbe d'une plénitude, d'un
+elle-même invraisemblable, dans une sorte de balancement d'un rythme, d'un bonheur inouï, d'une fécondité incroyable. Elle-même unique et tout à fait invraisemblable. Dans une courbe d'une plénitude, d'un
 mouvement unique. Inouïi. Une fois atteint, une fois
 réussi, une fois obtenu, on ne sait comment; qui ne à
 s'était jamais produit, qui ne recommencera jamais. Il
-y fallait en effet, premièrement un païen, deuxième-
-ment un grand païen, et troisièmement que ce païen et
+y fallait en effet, premièrement un païen, deuxièmement un grand païen, et troisièmement que ce païen et
 que ce grand païen, venu après Jésus, vivant plus ou
 moins dans un monde chrétien,se croyant peut-être luimême plus ou moins sincèrement plus ou moins chrétien,
 eût l'idée, reçût la vocation, témoin de l'extérieur, témoin
@@ -3486,9 +3361,7 @@ vivait dans le temps moderne, dans le monde moderne,
 temporellement chez les modernes), premièrement en,
 ce qu'il n'était nullement chrétien. Deuxièmement en ce
 qu'il était païen. Naturellement, de race païen.
-Hugo ne fut jamais chrétien. Il ne l'était pas. Et natu-
-
-rellement moins encore, si c'est possible, dans la pre- #4
+Hugo ne fut jamais chrétien. Il ne l'était pas. Et naturellement moins encore, si c'est possible, dans la pre- #4
 ; mière période de sa vie, dans la période légitimiste,
 
 lement chrétienne), que dans le restant de sa vie, dans
@@ -3578,7 +3451,7 @@ J'aime les soirs sereins et beaux, j'aime les soirs,
 
 qu'un homme que nous avons enterrer au Panthéon
 (et enfin nous avons au moins Leconte de Lisle, qui
-fut son successeur), et lui-même, si nous avions été à:
+fut son successeur), et lui-même, si nous avions été
 Paris seulement, par hasard, au lieu d'être à Orléans,
 
 à Paris, grandi, élevé à Paris, lui-même nous le
@@ -3625,11 +3498,9 @@ quand il voyait passer n'importe quels soldats il en
 jouissait autant, il en saisissait autant, il en prenait
 possession autant, il regardait, il voyait d'un regard;
 aussi jeune, aussi frais, aussi non usé, aussi neuf, aussi
-non émoussé, aussi inhébété, aussi non âgé temporelle-
-ment, aussi non âgé dans le monde, temporel, (malgré
+non émoussé, aussi inhébété, aussi non âgé temporellement, aussi non âgé dans le monde, temporel, (malgré
 ses grosses paupières), il étreignait d'une étreinte aussi
-neuve, il saisissait d'une saisie aussi neuve, il embras-
-sait l'univers, charnel, d'un embrassement charnel,
+neuve, il saisissait d'une saisie aussi neuve, il embrassait l'univers, charnel, d'un embrassement charnel,
 
 d'un embrassement aussi neuf, la terre entière, orbem
 terrarum, et Le fleuve Océan, qui lui-même embrasse le
@@ -3664,8 +3535,7 @@ matin des mains du Créateur. Il faut avouer qu'il ne
 s'est jamais échappé, qu'il n'a jamais rendu compte
 comme dans Booz endormi. Il était dit que le peuple
 
-qui avait donné tant de héros et tant de saints, innom-
-brables, tant de citoyens et tant de chrétiens, tant de
+qui avait donné tant de héros et tant de saints, innombrables, tant de citoyens et tant de chrétiens, tant de
 justes, tant de martyrs,
 Et l'onde aux plis infranchissables,!
 tant de poètes et tant d'artistes, tant d'inventeurs, (tant
@@ -3715,26 +3585,21 @@ au premier jour, bien que nous ne le disions plus, qui
 Chambre et au Sénat, quels deux grands sénateurs
 entre autres s'honorèrent contre, Bérenger, Waldeck-
 Rousseau. Mais vous avez raison, Garnier, cette loi de
-dessaisissement ne fut rien, n'était rien, en compa-
-
-raison de cette loi du désaisissement universel de la
+dessaisissement ne fut rien, n'était rien, en comparaison de cette loi du désaisissement universel de la
 mystique par la politique.
 Un poète aussi, un poète dedans, un poète inclus peut
 être dessaisi par sa politique, par une ou plusieurs Fpolitiques. Par sa politique de politique. Par sa poli
-; tique de littérature. Un génie peut être non pas seule-
-ment rongé, non pas seulement ravagé, mais dessaisi
+; tique de littérature. Un génie peut être non pas seulement rongé, non pas seulement ravagé, mais dessaisi
 par un talent, par le talent qui le parasite, par le talent
 4 qui le ronge. Par le misérable talent qui le dévore. Par
 l'ordinaire talent qui l'accompagne. Qui l'entoure. Qui
-le circonvient, l'envahit et l'inonde. Par son talent ordi-
-naire. Ce qu'il y a de plus prodigieux peut-être dans
+le circonvient, l'envahit et l'inonde. Par son talent ordinaire. Ce qu'il y a de plus prodigieux peut-être dans
 Corneille, ce qui en fait non pas seulement le plus À
 grand (poète) tragique, mais un cas unique, c'est peut-:
 être cette pureté unique du génie, cette incapacité À
 totale de talent qui le faisait retomber parfaitement à
 plat quand le génie n'était pas là. C'est peut-être ce
-dans ce plus grand de tous les tragiques. Cette inca-
-pacité, quand le génie n'y était pas, cette involonté “4
+dans ce plus grand de tous les tragiques. Cette incapacité, quand le génie n'y était pas, cette involonté “4
 totale, organique, cette inorganisation de savoir y faire,
 d'avoir un talent, d'avoir du talent, de substituer au
 génie les insubstituables moyens du talent.
@@ -3747,9 +3612,7 @@ par un curieux aboutissement, par un curieux retour.
 politicien, s'aperçoit très bien, au moins de temps en
 temps, moitié instinct, moitié intelligence, moitié compréhension; moitié entente; que c'est encore le génie
 
-- qui rapporte le plus, et même au fond qu'il n'y a peut-
-
-être que le génie qui rapporte; que c'est le meilleur
+- qui rapporte le plus, et même au fond qu'il n'y a peutêtre que le génie qui rapporte; que c'est le meilleur
 placement, peut-être le seul; que c'est le génie en définitive qui donne le volume, la surface de base, la base
 d'appui; que le parasite ne serait rien sans le parasité;
 que les pièces fausses ne prendraient pas, s'il n'y en
@@ -3758,8 +3621,7 @@ avait de vraies.
 Que ce sont les bonnes pièces en un sens qui authen-:
 tiquent les mauvaises, que ce sont les pièces vraies
 pour ainsi dire qui garantissent les fausses. Qui font:
-toute la valeur, si l'on peut dire, la valeur de circula-
-tion, des fausses.
+toute la valeur, si l'on peut dire, la valeur de circulation, des fausses.
 
 On a commencé de saisir ce que c'est un peu que ce
 texte extraordinaire, Booz endormi, quand on a
@@ -3769,9 +3631,7 @@ une œuvre du ressaisissement du génie sur le talent,
 
 hors du talent. Le fruit unique du ressaisissement, d'un
 
-ressaisissement unique, d'une opération unique du res-
-
-saisissement. Un ressaisissement si souverain, si
+ressaisissement unique, d'une opération unique du ressaisissement. Un ressaisissement si souverain, si
 maître, si sûr de soi qu'il n'ignore pas même le talent,
 qu'il n'en fait pas même abstraction, qu'il ne tombe
 même pas à plat, dans ses propres absences, comme
@@ -3780,8 +3640,7 @@ dans la grande honnêteté de Corneille, mais qu'il en
 joue, au contraire constamment, qu'il en joue comme.
 souverainement, avec une sûreté, avec une aisance, avec
 une. impudence incroyable. Qu'il s'(en) amuse. Le roi;
-s'amuse. Le roi fait une opération unique de ressaisis-
-sement. Une sorte de confiscation. Il ressaisit le droit
+s'amuse. Le roi fait une opération unique de ressaisissement. Une sorte de confiscation. Il ressaisit le droit
 régalien. Booz endormi est plein de talent. Mais en
 quel état ce talent est réduit. Dans un état d'exercice,
 dans un état de souplesse, dans un état de servitude.
@@ -3803,9 +3662,7 @@ ou la brique cimentée de l'une de nos cheminées
 modernes, il la voyait ce qu'elle est: la pierre du foyer.
 L'antique pierre du foyer. Quand il regardait la porte LE
 de la rue, et le pas de la porte, qui est généralement
-une pierre de taille, sur cette pierre de taille il distin-
-
-guait nettement la ligne antique, le seuil sacré, car
+une pierre de taille, sur cette pierre de taille il distinguait nettement la ligne antique, le seuil sacré, car
 c'est la même ligne. C'est le même seuil. Clytemnestre
 vient d'y poser le tapis de l'Odéon. Et les pieds
 d'Agamemnon ne toucheront point le seuil. Soyez pers suadé que sénateur quand il assistait aux séances du
@@ -3831,8 +3688,7 @@ plus que poème, nous avons ce miracle (au moins temporel) unique, ce double mir
 Homère et les origines d'Homère un des plus grands
 
 poèmes païens (et bibliques) charnels qu'il y ait jamais À
-eu. Trente et quarante siècles après Moïse et les anté-
-cédents de Moïse. Et comme cet homme vivait tout de:
+eu. Trente et quarante siècles après Moïse et les antécédents de Moïse. Et comme cet homme vivait tout de:
 même en son temps, vivait tout de même vingt siècles À
 après Jésus-Christ, post Christum natum, comme il
 vivait plus ou moins dans un monde chrétien, comme
@@ -3841,12 +3697,10 @@ chrétien, deuxièmement, au deuxième degré ce poème
 païen entre tous, temporel, charnel entre tous, (mais
 peut-être, mais surtout pour quelle raison mystérieuse),
 cet éminent poème éminemment païen, éminemment
-temporel, éminemment charnel, tout plein de la mois-
-son, du blé charnel, de la vigne et du vin charnel, tout
+temporel, éminemment charnel, tout plein de la moisson, du blé charnel, de la vigne et du vin charnel, tout
 plein de la terre et du ventre porte précisément, revient,
 recoupe précisément à faire, à être la seule vue païenne
-que nous ayons du mystère de l'incarnation, du mys-
-tère de l'insertion charnelle et temporelle, enfin le seul
+que nous ayons du mystère de l'incarnation, du mystère de l'insertion charnelle et temporelle, enfin le seul
 ‘regard venu du côté païen, de la situation païenne, la
 seule considération, la seule contemplation charnelle
 païenne, antérieure, terrienne, toute terreuse et toute se
@@ -3861,9 +3715,7 @@ ultérieur, un témoignage en avance en retard de vingt
 
 Le siècles, le seul témoignage païen que nous ayons de
 
-. cette opération essentiellement, centralement chré-
-
-tienne. Et à être non plus seulement à vingt siècles de
+. cette opération essentiellement, centralement chrétienne. Et à être non plus seulement à vingt siècles de
 
 distance mais à trente et quarante un témoignage
 
@@ -3897,15 +3749,11 @@ fiction), que la confection même d'un très grand poème.
 
 à avouer que nous sommes naturellement fort loin d'en à
 
-avoir épuisé les reculées profondes). (d'en avoir appro-
-
-fondi, épuisé le mystère). (Car ce que nous venons de
+avoir épuisé les reculées profondes). (d'en avoir approfondi, épuisé le mystère). (Car ce que nous venons de
 
 faire, mes pauvres enfants, ce n'est jamais qu'une ana-;
 
-lyse et plusieurs fois nous avons senti passer le halète-
-
-ment de l'analyse). Je plains celui qui ne sentirait pas
+lyse et plusieurs fois nous avons senti passer le halètement de l'analyse). Je plains celui qui ne sentirait pas
 
 le coup, qui ne recevrait pas en creux le coup porté par
 
@@ -3927,13 +3775,9 @@ une référence, une reportée unique du païen sur le À
 
 chrétien, du plus grand païen sur le central chrétien.
 
-Je le plains comme chrétien, comme n'ayant aucu-
+Je le plains comme chrétien, comme n'ayant aucunement le sens du sacré. Je suis très frappé qu'un des
 
-nement le sens du sacré. Je suis très frappé qu'un des
-
-plus profonds chrétiens que je connaisse, un des catho-
-
-liques de la plus authentique lignée, ayant cette année
+plus profonds chrétiens que je connaisse, un des catholiques de la plus authentique lignée, ayant cette année
 
 même à parler dans le Journal de Coutances d'un
 
@@ -3945,9 +3789,7 @@ raire qu'en catholique et en chrétien, ce qui est la seule
 
 façon que je reconnaisse d'en parler, ait été conduit
 
-directement à faire une référence pour ainsi dire préli-
-
-minaire à ce Boos endormi. Non point une référence
+directement à faire une référence pour ainsi dire préliminaire à ce Boos endormi. Non point une référence
 
 littéraire. Mais une référence de l'ordre du sacré. Il est
 
@@ -3957,9 +3799,7 @@ sacrements lui sont, lui font une nourriture, (comme le
 
 pape vient si judicieusement de le rappeler); et non les
 
-dévotions un hébétement, un émoussement, un abru-
-
-tissement de la pointe du bourgeon de la vie inté-
+dévotions un hébétement, un émoussement, un abrutissement de la pointe du bourgeon de la vie inté-
 
 Que Hugo lui-même, l'auteur, ait senti lui-même que ce
 qui se passait dans sa tête ce jour-là était quelque chose
@@ -3973,8 +3813,7 @@ partie il n'avait point de contre partie. Aussi l'orgueil
 païen, l'orgueil d'une domination victorieuse coulait-il
 
 ce jour dans un lit de plénitude, dans un lit d'aisance,
-dans un lit de facilité. Qu'il ait senti ce jour qu'il balan-
-çait tout un monde, lui Hugo, (il n'était pas si bête, quand
+dans un lit de facilité. Qu'il ait senti ce jour qu'il balançait tout un monde, lui Hugo, (il n'était pas si bête, quand
 7 il s'agissait de sa carrière, de ses réussites, de son talent,
 de sa gloire, et surtout quand il y allait de son génie),
 que ce jour était pour lui un jour d'élection certainement unique, qu'il s'était produit ce jour là, ce jour
@@ -3994,8 +3833,7 @@ une unique, pour une grande, pour une sérieuse réussite;
 qu'il fallait en profiter; que c'était toujours de pris;
 - que ce jour il atteignait un faîte; qu'il n'eût peut-être
 pas, certainement pas atteint tout seul; que de pareils;
-bonheurs n'arrivent pas toujours; qu'ils n'arrivent peut-
-être même qu'une fois; qu'ils n'arrivent peut-être même
+bonheurs n'arrivent pas toujours; qu'ils n'arrivent peutêtre même qu'une fois; qu'ils n'arrivent peut-être même
 jamais; qu'il faut donc en profiter, et s'en donner;
 qu'ensuite on verra bien; qu'après on ne sait pas ce "4
 qui peut arriver; qu'après on ne sait pas de quoi la vie
@@ -4009,13 +3847,11 @@ s'était autant amusé, Jamais autant il n'avait été un
 fleuve aux flancs pleins. Cette sorte d'impudence et de
 gouvernement et de hauteur dans l'aisance. Et je n'en
 veux pour signature que ce Jérimadeth même, cette
-blague énorme, cette insolence admirable; cette signi-
-fication faite tous, présents et à venir, que cette fois
+blague énorme, cette insolence admirable; cette signification faite tous, présents et à venir, que cette fois
 il était entré dans la plénitude et dans les droits de la “6
 création. Jusqu'à ce qu'on m'ait montré Jérimadeth sur
 une carte dans un atlas authentique de la Terre Sainte,
-je vois dans la forgerie de ce nom une de ces inso-
-lences, une de ces significations, une de ces audaces
+je vois dans la forgerie de ce nom une de ces insolences, une de ces significations, une de ces audaces
 
 qui dépassent tout. Et qui par conséquent signifient
 plus que tout. Et comme il avait toutes les chances
@@ -4054,8 +3890,7 @@ Jouissons en plein, donnons en plein de cette fortune
 qu'aujourd'hui nous avons. Ne nous laissons pas faire.
 par la géographie, qui n'a pas les noms qu'on veut.
 Aujourd'huinous commandons, nous dominons, (puisque
-nous produisons), la réalité même. D'ailleurs n'avons-
-nous pas entendu dire que les géographes mêmes
+nous produisons), la réalité même. D'ailleurs n'avonsnous pas entendu dire que les géographes mêmes
 aujourd'hui méprisent totalement la nomenclature. Nous
 avons bien le droit de faire au moins comme les géo
 ; graphes. Ne soyons pas, qu'on ne nous fasse pas plus
@@ -4074,9 +3909,7 @@ Fortuitement, par forte fortune, par un coup de fortune.
 Il savait bien ce que c'est que de manquer son coup, et
 ce que coûte, et ce que fait. Une dure expérience;
 le lui avait souvent appris, le lui avait souvent fait
-sentir. avait trop d'instinct, et même trop d'intelli-
-
-gence, surtout trop de main pour-ne pas avoir senti,
+sentir. avait trop d'instinct, et même trop d'intelligence, surtout trop de main pour-ne pas avoir senti,
 pour ne pas savoir toutes les fois qu'il manquait, qu'il
 avait manqué. Mais il en avait trop aussi pour ne pas
 sentir, pour ne pas savoir que cette fois y était, qu'il
@@ -4089,8 +3922,7 @@ cœur ambitieux), puisque cette fois enfin on ne manquait
 pour toute la vie, et on ferait bien voir au monde, par
 le ministère de ce Jérimadeth, par la plus grande licence
 qu'un poète se soit peut-être jamais donnée, par cette HÉS
-: souveraine, par cette inouie insolence, par la significa-
-tion, par la déclaration, par la proclamation de ce SA
+: souveraine, par cette inouie insolence, par la signification, par la déclaration, par la proclamation de ce SA
 Jérimadeth on ferait savoir au monde qu'aujourd'hui
 en effet on s'en payerait et que l'on dominait, que l'on
 donnerait. cruel souvenir de ses gloires passées.
@@ -4107,7 +3939,7 @@ la veine, la même veine. Ce n'avait été qu'un éclair:
 Pourtant, jusqu'à ce jour, c'était Adam, l'élu
 À Et il était retombé à des fatras, à des monceaux de litté-
 
-; rature jusqu'au dernier vers exclus. À des habitudes, à;
+; rature jusqu'au dernier vers exclus. À des habitudes,
 des abondances, à des facilités. Son Dieu invisible au
 philosophe, qui suit immédiatement Booz, est grotesque.
 Sa première rencontre du Christ avec le tombeau, qui
@@ -4133,8 +3965,7 @@ Cette faucille d'or dans le champ des étoiles.
 
 La deuxième couche, le coup de génie mais non plus
 déjà peut-être de vision c'est l'autre vers posé; posé
-dans toute sa grandeur; la trouvaille, non plus peut-
-être autant la première vision, la vision directe; la
+dans toute sa grandeur; la trouvaille, non plus peutêtre autant la première vision, la vision directe; la
 vision nue; dépouillée; la trouvaille ensemble, à la fois
 faite et jaillie:
 
@@ -4167,8 +3998,7 @@ demandait, en fin de strophe, annonçant la strophe
 
 décisive, la strophe coronale, l'isolant, la coupant
 aussi, la laissant en suspens, suspendue sur notre tête
-comme un bloc, comme une montagne carrée, était elle-
-même sa pierre angulaire indispensable, rectangulaire,
+comme un bloc, comme une montagne carrée, était ellemême sa pierre angulaire indispensable, rectangulaire,
 quadrangulaire, sa pierre de taille, sa pierre qui ne
 bouge pas. Il fallait qu'elle fût ainsi, et ainsi à la rime;
 en fin de strophe. C'est la pierre du gond. Tout tient à.
@@ -4317,8 +4147,7 @@ que graduellement sous ce soleil joyeux. Vous me disiez:
 … paÿs-ci, de cette Ile de France. ont été faits pour ce
 
 pays-ci même. Ils sont nourris de ce pays-ci. De ces
-paysages. De ces horizons. C'est ce pays-ci qu'il tra-
-versait à pied quand il allait voir madame Drouet. Elle
+paysages. De ces horizons. C'est ce pays-ci qu'il traversait à pied quand il allait voir madame Drouet. Elle
 demeurait ici ou à vingt lieues près dans tel pays, dans
 tel château, dans telle maison. Car je sais plus de vers et
 vous savez plus d'histoire. Et ainsi nous jouons l'aveugle
@@ -4331,8 +4160,7 @@ prendre. Il a toujours été précoce. IL a toujours été le
 roi des malins.) à mademoiselle Louise B., était intitulé
 . Bièvre. Il n'est pas très réussi. Il n'est même pas réussi
 du tout. C'est une excitation à blanc de littérature, à
-faux, un fatras, un fouillis, un amoncellement de litté-
-rature. Une excitation à froid. D'abord commence
+faux, un fatras, un fouillis, un amoncellement de littérature. Une excitation à froid. D'abord commence
 par les rimes en ombre, ce qui est toujours mauvais
 signe dans Hugo. Nous remarquions dessus que
 Hugo réussit généralement beaucoup moins quand il
@@ -4378,9 +4206,7 @@ qu'on répare, (lui aussi il se refroïdit sous le soleil
 joyeux), palais du Luxembourg, côté du Luxembourg,
 et voyant de joyeux maçons syndiqués, moins que
 ce ne soit de joyeux maçons fonctionnaires; ou plutôt
-c'est certainement les deux ensemble), monter allègre-
-
-ment sur d'invraisemblables échelles, (en France nous
+c'est certainement les deux ensemble), monter allègrement sur d'invraisemblables échelles, (en France nous
 avons toujours très bien faire les échafaudages), qui
 vous dira sourdement comme en lui-même et malgré
 lui-même linévitable
@@ -4411,8 +4237,7 @@ des deux de la mathématique.
 
 à 1. — Sur le calcul (encore de la science) que nous
 avons fait sur quarante ans. — Encore un calcul, oule
-même, sur quarante ans. Quarante ans peut être qua-
-rante ans d'âge ou quarante ans de durée. Sous cette
+même, sur quarante ans. Quarante ans peut être quarante ans d'âge ou quarante ans de durée. Sous cette
 réserve que c'est la durée qui amène l'âge. (Il pleut des
 ! vérités premières.) Ainsi cet âge que nous avons, ces
 quarante ans, un rien, ce rien de durée qui nous sépare
@@ -4451,8 +4276,7 @@ bien autre chose en tête, nous avions bien autre chose
 à faire, une folie nous dévorait, qu'à voir que nous.
 passions par-dessus des points critiques. Deux longueurs
 de temps étaient égales: Napoléon à Hugo, Hugo à nous.:
-Un déséquilibre s'établit ce jour et l'équilibre ne s'éta-
-blira plus. On ne sait pas comment se fait, de ces deux
+Un déséquilibre s'établit ce jour et l'équilibre ne s'établira plus. On ne sait pas comment se fait, de ces deux
 longueurs de temps, l'une n'a plus bougé, ne bougera
 plus. L'autre prend un jour tous les jours. Le temps passe. « La date s'arrête. Le temps passe. La date reste. La date
 est une inscription du temps. Dans quelques années nous
@@ -4507,8 +4331,7 @@ réussit tant bien que mal. On ne veut pas recommencer
 la vie. Puis on aime les enfants. On les aime mal. Donc RES
 on les aime mal. On croit que c'est de l'amour et de la
 paternité, on croit que c'est de l'amour paternel que:
-de vouloir, que de leur faire que leur vie soit la pro-
-longation de la nôtre. Que notre installation compte
+de vouloir, que de leur faire que leur vie soit la prolongation de la nôtre. Que notre installation compte
 pour eux. Serve pour eux. Que notre compte compte
 pour eux. Laissons nos enfants s'installer pour eux,. )
 compter pour eux, commencer pour eux. Ils ont sept
@@ -4522,13 +4345,10 @@ du Crépuscule, le deuxième chant. Les Chants du
 Crépuscule, au moins leur début, leur départ, sont tout
 entiers sous l'influence, on pourrait presque dire sous
 l'inspiration, au moins temporaire, au moins provisoire,
-de la révolution de 1830. Il avait fort bien naturelle-
-ment, ou plutôt, ce qui vaut mieux, il avait très bien à
-senti que ces trois journées n'étaient pas, ne pou-
-vaient pas être un simple recommencement, un 3 à
+de la révolution de 1830. Il avait fort bien naturellement, ou plutôt, ce qui vaut mieux, il avait très bien à
+senti que ces trois journées n'étaient pas, ne pouvaient pas être un simple recommencement, un 3 à
 recommencement pur et simple, une imitation plus ou
-moins traditionnelle des grandes journées révolution-
-naires de la grande Révolution; qu'elles étaient, qu'il Ion.
+moins traditionnelle des grandes journées révolutionnaires de la grande Révolution; qu'elles étaient, qu'il Ion.
 fallait qu'elles fussent tout autre chose; car l'Empire
 s'était produit depuis, l'Empire s'était mis entre, a
 l'épopée impériale, il y avait l'Empire entre les
@@ -4585,9 +4405,7 @@ puisqu'il publiait tout. Il y aurait tout un travail à faire,
 ou plutôt une multitude de travails, à prendre toutesces
 familles, toutes ces parentés, toutes ces filiations, toutes
 ces contaminations, les bons enfants et les mauvais, les:
-bien venus et les mal venus, les apolliniens et les avor164
-
-tons, les chevalier Phœbus et les Quasimodo, suivre
+bien venus et les mal venus, les apolliniens et les avortons, les chevalier Phœbus et les Quasimodo, suivre
 toutes ces traces, noter les essais, les glorieux et les
 inglorieux, mesurer les pas, parvenir enfin avec lui au
 triomphe. Il avait un don unique entre tous, un don
@@ -4609,9 +4427,7 @@ il l'a dit ailleurs, à corriger un ouvrage dans un
 autre ouvrage, on conçoit que chacun des écrits qu'il
 
 5. — La dernière strophe que nous venons de citer
-est par exemple, fine, un essai malheureux d'enfer-
-
-mer en une strophe, en un vers, en quelques vers, tout
+est par exemple, fine, un essai malheureux d'enfermer en une strophe, en un vers, en quelques vers, tout
 l'espace, toute l'étendue de la conquête napoléonienne.
 Qui de France parti pour enserrer la terre, +4
 En passant par Moscou, Cadix, Rome et le Caire,
@@ -4630,8 +4446,7 @@ Ce n'était pas Madrid, le Kremlin et le Phare,:
 , 8. — Aussi je ne peux pas souffrir les personnes
 qui mettent plusieurs mots.
 :. Nos enfants n'ont pas à reprendre (le fil) du
-même endroit, du même point que nous. Nous n'ou-
-blions que cela. C'est tout. ‘To
+même endroit, du même point que nous. Nous n'oublions que cela. C'est tout. ‘To
 3 10. — Nos enfants n'ont pas notre âge. Un point,
 c'est tout. Ils n'ont pas notre âge de l'humanité. Ne
 
@@ -4707,8 +4522,7 @@ recevons dans Racine; les êtres que nous sommes, nous
 le sommes dans Corneille.
 
 18. — Quoi qu'ils en disent, quoi qu'ils en pensent
-même peut-être, les Français sont généralement corné-
-liens. Et d'autre part comme il n'y a que les Français
+même peut-être, les Français sont généralement cornéliens. Et d'autre part comme il n'y a que les Français
 
 qui soient assez fins pour être raciniens, il suit qu'en
 réalité il y a beaucoup moins de raciniens que de cor-
@@ -4720,8 +4534,7 @@ une de nos reconnaissances capitales, mais une de nos
 reconnaissances pour ainsi dire préliminaires, sur le
 seuil, avant le seuil, que Corneille ne travaille jamais À
 que dans le domaine de la grâce et que Racine ne tra-
-1] vaille jamais que dans le domaine de la disgrâce. Cor-
-neille n'opère jamais que dans le royaume du salut,:
+1] vaille jamais que dans le domaine de la disgrâce. Corneille n'opère jamais que dans le royaume du salut,:
 Racine n'opère jamais que dans le royaume de la per-;
 Le dition, Corneille n'a jamais faire des criminels et
 des pécheurs, (ses plus grands criminels et ses plus
@@ -4743,8 +4556,7 @@ placée comme un germe, comme un virus à l'origine
 
 même, au point d'origine de l'homme et de l'œuvre, se
 serait ensuite et lentément et patiemment diflusée
-jusqu'aux membres les plus éloignés; comme naturelle-
-ment; par une diffusion naturelle; sans compter les à
+jusqu'aux membres les plus éloignés; comme naturellement; par une diffusion naturelle; sans compter les à
 contaminations auxiliaires d'une amitié seulement inter
 rompue), (et peut-être seulement apparemment inter- A
 rompue), ils sont tous quelqu'un à qui la grâce à.
@@ -4756,8 +4568,7 @@ qui la grâce a manqué; des Tures; enfin des Juifs
 mêmes, des prophètes à qui la grâce a manqué, autant
 qu'on peut le dire, au moins la grâce précisément de
 vraiment touchant à voir l'opinidtreté forcenée, fréné-
-À tique, l'entêtement, l'efforcement, la persévérance, l'en-
-durance, la force d'illusion sur soi, la méconnaissance FFT
+À tique, l'entêtement, l'efforcement, la persévérance, l'endurance, la force d'illusion sur soi, la méconnaissance FFT
 de soi, la constance extraordinaire, l'application, le
 À studieux, le sérieux, la patience, le scolaire avec lequel (HE
 Comeille s'est efforcé pendant toute l'immense deuxième
@@ -4780,11 +4591,9 @@ aisément, ce sera une de nos premières constatations,
 une de nos reconnaissances capitales, mais une de
 reconnaissances pour ainsi dire préliminaires, sur le 3)
 seuil, avant le seuil, que Corneille ne travaille jamais
-: que dans le domaine de la grâce et que Racine ne tra-
-vaille jamais que dans le domaine de la disgrâce. Cor- À
+: que dans le domaine de la grâce et que Racine ne travaille jamais que dans le domaine de la disgrâce. Cor- À
 neïlle n'opère jamais que dans le royaume du salut,
-Racine n'opère jamais que dans le royaume de la per-
-dition. Corneille n'a jamais faire des criminels et
+Racine n'opère jamais que dans le royaume de la perdition. Corneille n'a jamais faire des criminels et
 des pécheurs, (ses plus grands criminels et ses plus
 grands pécheurs), qui ne fussent éclairés de quelque
 reflet de quelque lueur de la grâce, qui ne fussent
@@ -4804,12 +4613,8 @@ placée comme un germe, comme un virus à l'origine
 
 même, au point d'origine de l'homme et de l'œuvre, se
 serait ensuite et lentement et patiemment diffusée
-jusqu'aux membres les plus éloignés; comme naturelle-
-ment; par une diffusion naturelle; sans compter les
-contaminations auxiliaires d'une amitié seulement inter-
-
-rompue), (et peut-être seulement apparemment inter-
-rompue), ils sont tous quelqu'un à qui la grâce a
+jusqu'aux membres les plus éloignés; comme naturellement; par une diffusion naturelle; sans compter les
+contaminations auxiliaires d'une amitié seulement interrompue), (et peut-être seulement apparemment interrompue), ils sont tous quelqu'un à qui la grâce a
 manqué. Non seulement des chrétiens à qui la grâce a
 manqué, mais tous, des païens pour ainsi dire à qui la
 grâce a manqué, des Grecs, des Romaiïns; des Infidèles
@@ -4820,9 +4625,7 @@ qu'on peut le dire, au moins la grâce précisément de
 
 vraiment touchant à voir l'opiniâtreté forcenée, fréné-;
 
-tique, l'entêtement, l'efforcement, la persévérance, l'en-
-
-durance, la force d'illusion sur soi, la méconnaissance
+tique, l'entêtement, l'efforcement, la persévérance, l'endurance, la force d'illusion sur soi, la méconnaissance
 
 de soi, la constance extraordinaire, l'application, le
 
@@ -5041,12 +4844,10 @@ point se faire de mal. Plus ils sont ennemis, plus ils se
 moins ils se veulent de mal, moins ils se blessent
 et ils veulent se blesser. C'est l'idée cornélienne
 : même, on pourrait dire le système cornélien, le grand
-honneur cornélien. Au contraire ces malheureux per-
-sonnages de Racine, ils ont tellement la cruauté
+honneur cornélien. Au contraire ces malheureux personnages de Racine, ils ont tellement la cruauté
 dans le sang, dans le sang charnel, que même quand
 ils ne sont pas ennemis, même quand ils ne se
-battent pas, ils se blessent toujours. Ils sont naturel-
-lement blessants. Ils blessent par métier, par office, par
+battent pas, ils se blessent toujours. Ils sont naturellement blessants. Ils blessent par métier, par office, par
 nature. Par attitude. Ils blesseraient pour se donner une
 contenance. Ils sont venus au monde blessants et un
 constant exércice aiguise leur cruauté, maintient l'aigu,
@@ -5070,8 +4871,7 @@ Ils se pardonnent d'avance, par nature, tout ce qu'ils
 se feront. Dans Racine c'est diamétralement le contraire. Ils ne se pardonnent pas même ce qu'ils ne se
 sont pas fait.
 26. — Quand nous ferons notre Polyeucte, (vous;
-n'avez jamais douté que nous le ferons), ce sera peut-
-être le temps non point d'essayer de donner une idée;
+n'avez jamais douté que nous le ferons), ce sera peutêtre le temps non point d'essayer de donner une idée;
 de la grandeur de Corneille, mais de se proposer
 d'entrer un peu dans le détail de l'organisation de cette,
 27.— Par son impotence même de mal, de cruauté
@@ -5084,8 +4884,7 @@ si je puis dire un vice pire, infiniment pire, (une inhumanité, surhbumanité, 
 Plus mordante, infiniment plus profond, plus dominante,
 plus attachée, à sa proie. Les saints et les martyrs
 
-sont infiniment plus pétris, tenus par la charité, infini-
-ment plus pétris de (la) charité, infiniment plus mordus
+sont infiniment plus pétris, tenus par la charité, infiniment plus pétris de (la) charité, infiniment plus mordus
 de charité que les criminels, que les cruels ne sont
 mordus de cruauté. L'empreinte, plus que l'empreinte,
 la blessure, la morsure, la nourriture est infiniment
@@ -5093,8 +4892,7 @@ plus profonde, plus ineffaçable. (Plus grave). De la
 charité que de la cruauté. Le saint est infiniment plus
 marqué que le cruel. Il est infiniment plus dévoré de
 charité que le cruel n'est mordu de cruauté. Son cœur;
-consumé d'amour. Son cœur dévoré d'amour. On pour-
-rait presque dire que le saint est plus irrécusablement
+consumé d'amour. Son cœur dévoré d'amour. On pourrait presque dire que le saint est plus irrécusablement
 victime de sa charité que le criminel, que le cruel n'est
 victime de sa cruauté.
 28. — C'est pour cela que Corneille était tiré de
@@ -5109,8 +4907,7 @@ même titre et tant s'en faut, dans la vie et l'œuvre de
 Corneille. Qu'il y a une ordonnance dans la vie et
 l'œuvre de Racine. Il faut s'entendre. Sur ce mot. Sur le
 sens de ce mot. Racine est administré avec une certaine
-ordonnance impeccable intelligente qui règne sensiblement dans la construction de la vie, presque souverai-
-nement dans la construction de l'œuvre, qui se poursuit,
+ordonnance impeccable intelligente qui règne sensiblement dans la construction de la vie, presque souverainement dans la construction de l'œuvre, qui se poursuit,
 (mais alors souverainement), jusque dans le moindre
 
 détail. Il faudrait beaucoup s'entendre sur cette ordonnance. Elle est réelle, et souveraine, dans le dialogue,
@@ -5118,8 +4915,7 @@ dans le détail, dans le détail du dialogue. Le peu que
 nous avons donné d'/phigénie est saisissant d'ordonpance, merveilleux de cette ordonnance. Maïs aussitôt
 qu'on pousse un peu plus loin on s'aperçoit presque
 aussitôt que cette ordonnance n'est pas toujours un
-ordre, et que vite, et que bientôt il s'en faut de beau-
-coup; que cette savante, que cette parfaite, que cette
+ordre, et que vite, et que bientôt il s'en faut de beaucoup; que cette savante, que cette parfaite, que cette
 intelligente, que cette harmonieuse, que cette presque À
 trop intelligente, que cette admirable ordonnance,
 (presque un peu fatigante), (et qui par une sorte de ten-;
@@ -5146,8 +4942,7 @@ l'histoire des lettres, par le plus mystérieux, par le plus
 secret, lui-même par le plus tragique. Par le plus émi-:
 nemment, par le plus profondément, pour ainsi dire par:
 le plus techniquement tragique. Plus que tout autre, lui
-seul peut-être tout à fait ce grand psychologue connais-
-sait son mal secret; cette impuissance intime d'ordre;
+seul peut-être tout à fait ce grand psychologue connaissait son mal secret; cette impuissance intime d'ordre;
 cette singulière infirmité propre; son mal mystérieux;
 sa propre disgrâce. Plus le don du vers lui venait, lui:
 montait, du vers profond, du vers sourd pour ainsi dire, y
@@ -5159,13 +4954,11 @@ l'organisation; l'organisation du tragique; un ordre plus
 profond. Singulière contrariété. Lui-même le sentait
 bien, l'analyste implacable. Croyons qu'il le sentait, qu'il
 le voyait, qu'il le savait plus que nous. Lui le cruel
-analyste, le maître de cruauté il sentit mieux que personne cette cruauté suprême, la seule irréparable peut-
-être, la cruauté du don. Une interruption, un silence de
+analyste, le maître de cruauté il sentit mieux que personne cette cruauté suprême, la seule irréparable peutêtre, la cruauté du don. Une interruption, un silence de
 douze et quatorze ans, une diète, un jeûne de quatorze?
 ans ne lui apporta aucun soulagement, s'il est vrai que
 le même désordre n'éclate jamais, n'éclate nulle part ta
-autant que dans Æsther et Athalie; avec cette aggrava-
-tion qu'il y devient le pire de tous, un désordre de
+autant que dans Æsther et Athalie; avec cette aggravation qu'il y devient le pire de tous, un désordre de
 sacristie, le plus incohérent de tous. Car quand on nous
 parle de l'ordonnance d'Athalie, d'abord il ne faut pas
 confondre somptueux avec grand, et alors on a le droiït
@@ -5177,10 +4970,7 @@ TRE « - que ordonnance ne veut point dire ordre. Ordre fond, ordre organique.:
 12 30. — L'appareil n'est point l'ordre. Ou plutôt
 … tantétil peut être un vêtement du désordre, intérieur,
 
-4 tantôt un appareil, un mécanisme extérieur, un méca-
-nisme de levier, un simple outil, une traduction exté-
-
-rieure fidèle, pieuse, déférente, obéissante, de l'ordre,
+4 tantôt un appareil, un mécanisme extérieur, un mécanisme de levier, un simple outil, une traduction extérieure fidèle, pieuse, déférente, obéissante, de l'ordre,
 d'un profond ordre intérieur. Une manifestation, une
 
 représentation de l'ordre. Il peut être un pardessus jeté
@@ -5206,9 +4996,7 @@ A ordre de race, un ordre de chair même est dans
 Corneille. Non seulement les tragédies de Racine ne:
 sont pas toujours organisées dans le secret de leur
 
-Corps, (mais au contraire machinées), mais généra-
-
-lement elles ne sont point organisées entre elles. Je
+Corps, (mais au contraire machinées), mais généralement elles ne sont point organisées entre elles. Je
 
 dirais volontiers qu'elles sont comme en série numé-
 
@@ -5216,9 +5004,7 @@ dirais volontiers qu'elles sont comme en série numé-
 
 à mence l'autre, comme un nombre recommence un
 
-nombre. Ce sont des nombres ordinaux qui se succè-
-
-dent, et par suite des nombres cardinaux. Lui-même le
+nombre. Ce sont des nombres ordinaux qui se succèdent, et par suite des nombres cardinaux. Lui-même le
 sentait bien et quand il rompit la série, on n'eut pas à
 d'autre impression que celle d'une série linéaire qui;
 s'arrête, qui s'interrompt, que l'on interrompt, d'une
@@ -5243,8 +5029,7 @@ tragédie, qui était toujours un pur chef d'œuvre, en en
 variant, en en faisant varier constamment les données
 (presque arbitrairement et comme intellectuellement,
 comme on fait varier, à titre d'exercice, les données
-d'un problème de géométrie ou d'arithmétique, géné-
-ralement d'un problème de mathématiques). Une tragédie racinienne est en un sens toujours la même tragédie. Qui est proprement tragédie racinienne. Ainsi
+d'un problème de géométrie ou d'arithmétique, généralement d'un problème de mathématiques). Une tragédie racinienne est en un sens toujours la même tragédie. Qui est proprement tragédie racinienne. Ainsi
 la série de ses tragédies est en un sens comme une
 
 ; série mathématique, comme une série arithmétique,
@@ -5261,15 +5046,13 @@ peut reviser; car c'est plus profond que le génie même,
 c'est la source même, la souche et l'origine du génie;
 et de tout; nul homme ne les peut faire varier quand il
 veut; quand il lui est commode; à son gré; nul homme
-ne les peut commodément faire varier intellectuellement et arbitrairement. C'était tout de même une répé-
-tition. Lui faisait des répétitions, ou plutôt il continuait,
+ne les peut commodément faire varier intellectuellement et arbitrairement. C'était tout de même une répétition. Lui faisait des répétitions, ou plutôt il continuait,
 il répétait une profonde répétition intérieure. Il manifestait, il représentait une sorte d'incurable répétition
 intérieure. Pour y échapper, pour s'en évader il faisait
 é constamment jouer les personnages, il faisait varier
 les conditions. Mais il ne pouvait que les faire varier
 extérieurement, il ne pouvait que faire varier les conditions extérieures et pour ainsi dire géographiques;
-topographiques, chronographiques. Historiques. L'évé-
-nement. Et encore au fond l'événement était toujours
+topographiques, chronographiques. Historiques. L'événement. Et encore au fond l'événement était toujours
 le même. D'une première part, moins extérieure, il
 faisait constamment varier les situations tragiques
 mêmes de ses personnages, (et les situations scéniques),
@@ -5293,8 +5076,7 @@ hasard que nous sommes conduits à parler de maximum;
 et par maximum. Ce n'est point fortuitement que nous
 sommes contraints à faire intervenir cette expression:
 venue des mathématiques. Il est certain que toute tra-:
-gédie de Racine repose sur une sorte de jeu arithmé-
-tique, de combinaison arithmétique. Sur une combinaison de nombres, d'un certain nombre pour chaque.
+gédie de Racine repose sur une sorte de jeu arithmétique, de combinaison arithmétique. Sur une combinaison de nombres, d'un certain nombre pour chaque.
 
 Andromaque par exemple au départ est une combinaison à quatre (ou cinq); elle donne sensiblement le
 maximum de nombre, le nombre maximum. Des formules arithmétiques très simples donnent (aussitôt) le
@@ -5348,8 +5130,7 @@ de vers inimitables, d'une beauté, d'une pureté parfaite;
 aux profondeurs, aux reculées d'humanité infinies. Et
 entre tous assurément quand ce ne serait que ces quatre
 
-vers, les quatre vers culminants, les quatre vers de Béré-
-nice font entendre une protestation éternelle; ils sont à
+vers, les quatre vers culminants, les quatre vers de Bérénice font entendre une protestation éternelle; ils sont à
 même sept:
 Pour jamais! Ah! Seigneur, songez-vous en vous-
 [même
@@ -5371,8 +5152,7 @@ voulons savoir si un cœur bat pur, ou si ce ne serait
 pas un cœur cruel; sous cette patine invinciblement
 dorée nous voulons savoir quel sang coule dans ces
 veines; et si ce sont des veines pécheresses, au moins
-de quel péché; tâche ingrate, proposition ingrate, pro-
-nous voulons savoir comment sont articulés ces muscles
+de quel péché; tâche ingrate, proposition ingrate, pronous voulons savoir comment sont articulés ces muscles
 de marbre, comment ils sont insérés dans l'épaule et
 dans la hanche, comment on leur a mis le bras dans
 
@@ -5395,8 +5175,7 @@ constituent, qu'elles sont la même, qu'elles sont toutes
 ensemble, à leur tour, année par année, la tragédie
 racinienne, déplacée seulement, comme glissant sur un
 registre annuel, sur un registre annuaire, je veux dire
-sur un registre par années; ou, si l'on veut, que latra-
-gédie racinienne passe d'année en année par (toutes)
+sur un registre par années; ou, si l'on veut, que latragédie racinienne passe d'année en année par (toutes)
 les tragédies de Racine. Que vaut ensuite la tragédie
 
 racinienne, ce qu'elle est, quelle elle est, comme elle
@@ -5411,8 +5190,7 @@ ne prouvent nullement qu'il ne fût point janséniste,
 qu'il ne l'eût pas été originairement, qu'il ne le fût point a
 demeuré, qu'il ne le fût point naturellement. C'est un
 des cas les plus fréquents, les plus connus non pas
-seulement de l'histoire littéraire mais de toutes les his-
-toires. De toute histoire. On ne querelle souvent aussi
+seulement de l'histoire littéraire mais de toutes les histoires. De toute histoire. On ne querelle souvent aussi
 bien, à ce point d'âcreté, à ce point de cruauté, à ce
 point de volonté, et en même temps d'instinct, à ce
 point de pénétration, à ce point de sûreté, à ce point de
@@ -5431,8 +5209,7 @@ pas un être gracieux. Au sens de la grâce elle n'est
 pas un être heureux. Elle est, il faut le dire, une
 37. — Le labeur de Corneille au contraire pour ne
 pas arriver à faire des êtres malheureux, c'est-à-dire,
-au fond, des êtres disgrâcieux, disgrâciés, est admi-
-rable. Au fond il n'y a pas une femme de Corneille
+au fond, des êtres disgrâcieux, disgrâciés, est admirable. Au fond il n'y a pas une femme de Corneille
 dont on puisse dire: C'est une malheureuse; et il n'y a
 tout de même pas un homme de Corneille dont on
 puisse dire: C'est un malheureux.
@@ -5473,8 +5250,7 @@ de Racine n'ont pas besoin d'une cérémonie rituelle,
 d'un rite et d'une grossièreté pour offenser. Ils offensent
 tout le temps. Ils n'ont pas besoin de donner un soufflet
 
-pour trouver des mots qui percent le cœur. Les person-
-nages de Racine offensent constamment, et au fond
+pour trouver des mots qui percent le cœur. Les personnages de Racine offensent constamment, et au fond
 même ils ne font que cela. Ce n'est point ce soudard
 innocent qui offense, mais c'est l'innocente, c'est la
 douce, c'est la tendre Iphigénie qui sait offenser, c'est:
@@ -5527,14 +5303,11 @@ ou de la prétendue innocence de l'enfant.
 pardonne point. C'est elle qui est impardonnable.
 45. — Le saint est infiniment plus la proie de la
 charité que le cruel de la cruauté.
-46. — Ni l'ordonnance n'est l'ordre, ni la désordon193
-
-nance n'est le désordre. Ni l'ordonnance ne fait l'ordre,
+46. — Ni l'ordonnance n'est l'ordre, ni la désordonnance n'est le désordre. Ni l'ordonnance ne fait l'ordre,
 47. — L'ordonnance règne surtout dans le détail.
 L'ordre règne dans le corps même.
 $'48. — L'ordonnance couvre. L'ordre règne.
-49. — Il est plus naturel de mettre, il est plus com-
-mode de mettre de l'ordonnance dans le détail que dans
+49. — Il est plus naturel de mettre, il est plus commode de mettre de l'ordonnance dans le détail que dans
 l'œuvre même, dans l'œuvre que dans la vie. C'est une
 progression descendante du détail vers l'œuvre, de
 l'œuvre vers la vie. L'ordre au contraire suit la progres.
@@ -5545,14 +5318,12 @@ la vie pour l'œuvre et dans l'œuvre pour le détail, dans le:
 corps de l'œuvre pour-le détail de l'œuvre que l'ordre
 prend sa force et son origine, son point de force et son
 50. — L'ordonnance est une apprêteuse. L'ordre est
-à un souverain. Il peut y avoir une mode dans lordon-
-nance. Dans l'ordre il ne peut y avoir qu'un ordre.
+à un souverain. Il peut y avoir une mode dans lordonnance. Dans l'ordre il ne peut y avoir qu'un ordre.
 51. — Il faut dire aussi que cet éclatant désordre
 (organique) d'art de Phèdre traduit admirablement en
 art, sur le registre de l'art, cet incroyable désordre
 : (organique) de vie.
-52. — Une tragédie par an, excepté cette extraor-
-dinaire Phèdre, qui sortant déjà par trop de la série,
+52. — Une tragédie par an, excepté cette extraordinaire Phèdre, qui sortant déjà par trop de la série,
 - prit une incubation de trois ans. Ce
 
 53. — Toutes les tragédies de Racine se couronnent
@@ -5606,8 +5377,7 @@ forme on était toujours conduit à des catastrophes de
 même forme; aux mêmes désastres; l'événement même;
 était impur; l'événement même était malheureux, était
 60. — La force de grâce de Corneille au contraire
-est telle qu'elle envahit l'événement même. Une tra-
-gédie de Corneille finit toujours bien. Héroïsme,
+est telle qu'elle envahit l'événement même. Une tragédie de Corneille finit toujours bien. Héroïsme,
 clémence, pardon, martyre elle finit toujours par un
 couronnement. Les palmes temporelles croissantes
 dans les trois premières s'achèvent, se promeuvent, se
@@ -5615,8 +5385,7 @@ dans les trois premières s'achèvent, se promeuvent, se
 couronnent dans Polyeucte en palmes éternelles.
 L'événement même est pur dans une tragédie de
 Corneille, dans les tragédies de Corneille; l'événement
-même est saint, l'événement même est heureux, l'évé-
-nement même est plein de grâce.
+même est saint, l'événement même est heureux, l'événement même est plein de grâce.
 
 61. — Il faisait varier non seulement le nombre
 (des personnages) et les situations réciproques, l'arithmétique et la géographie, arithmétique et la géométrie,
@@ -5666,8 +5435,7 @@ avait signifié qu'après cet avertissement l'œuvre elle
 même allait se rompre. Que la dernière détente serait
 la rupture même.
 67. — Les tragédies de Racine sont des sœurs
-séparées alignées qui se ressemblent. Les quatre tragé-
-dies de Corneille sont une famille liée.
+séparées alignées qui se ressemblent. Les quatre tragédies de Corneille sont une famille liée.
 
 68. — D'une tragédie de Racine on peut faire une
 
@@ -5680,8 +5448,7 @@ qu'un schéma, comme ceux que l'on voit dans les livres
 que nous avons retenus dans Polyeucte, qui annoncent,
 qui introduisent, qui représentent, qui manifestent, qui
 déclarent, qui proclament publiquement, qui définissent:
-pour ainsi dire techniquement l'intervention, l'interces-
-sion des saints: intercession générale des saints pour
+pour ainsi dire techniquement l'intervention, l'intercession des saints: intercession générale des saints pour
 les pécheurs; applications pour ainsi dire, intercessions
 particulières de Néarque pour Polyeucte et de Polyeucte
 pour Félix et de Néarque et Polyeucte ensemble pour
@@ -5703,9 +5470,7 @@ qui agrandit encore, si possible, qui pénètre perpétuel-
 est perpétuellement présente dans cette tragédie sacrée, à
 elle en est aussi un des mécanismes essentiels.
 
-70. — C'est un de ces merveilleux accords inté-
-
-rieurs, un de ces merveilleux accords essentiels dont
+70. — C'est un de ces merveilleux accords intérieurs, un de ces merveilleux accords essentiels dont
 cette tragédie est pleine, dont elle est comme nourrie.
 . 71. — Un texte ferme et précis, parfaitement
 
@@ -5800,9 +5565,7 @@ ne sont elles-mêmes, ne sont encore que les degrés, que
 les préparations, que les introductions, (quand même À
 
 elles sont après), que les escabeaux de cette grande LÉ:
-intercession anticipée de Polyeucte pour Pauline pré-
-
-sente; celle-ci, cette intercession suprême ramasse
+intercession anticipée de Polyeucte pour Pauline présente; celle-ci, cette intercession suprême ramasse
 
 toutes les autres; toutes les autres l'annoncent, et
 
@@ -5855,9 +5618,7 @@ rude refoulement, et être résolu à se faire, à se donner
 à soi-même une bien triste opinion de soi-même pour
 couper ici, pour ainsi rompre aussi arbitrairement cette
 scène la plus liée qu'il y ait au théâtre, s'il est permis
-de parler ici de théâtre; (et pourquoi n'en parlerions-
-
-nous pas, si ce fut l'art de Corneille, et s'il est vrai
+de parler ici de théâtre; (et pourquoi n'en parlerionsnous pas, si ce fut l'art de Corneille, et s'il est vrai
 qu'un grand artiste, un grand écrivain ne méprise pas,
 ne néglige pas les conditions, organiques, et le métier
 de son art, mais leur donne au contraire la plus grande
@@ -5919,8 +5680,7 @@ que c'est acquis; et comme il dit lui-même, que c'est A
 
 78. — Un des grands vices, originels, de Racine,
 est ce point de départ qu'il prit généralement dans
-Euripide, qui ne le valait pas, qui lui était si notable-
-ment inférieur. Ce point d'appui, cette origine. Non
+Euripide, qui ne le valait pas, qui lui était si notablement inférieur. Ce point d'appui, cette origine. Non
 seulement ce point d'origine des sujets, mais ce point
 d'origine d'un certain ton. Les finasseries, les avocas-.
 series, les discussions d'Euripide, ses pauvres malices,
@@ -5933,9 +5693,7 @@ et de culte et de rite et de piété, grecque, antique,
 
 paienne, que dans les subtilités, dans les malices, à
 
-À dans les perpétuels procès d'Euripide. C'est en beau-
-
-coup de sens Euripide qui est le plus moderne.
+À dans les perpétuels procès d'Euripide. C'est en beaucoup de sens Euripide qui est le plus moderne.
 
 79. — De la deuxième part, pour faire varier ses
 tragédies, Racine en faisait varier les conditions plus
@@ -5970,8 +5728,7 @@ sa tragédie, ni de mettre des héros sur le théâtre,
 qui auroient été connus de la plupart des spectateurs..
 Les personnages tragiques doivent être regardés d'un
 
-autre œil que nous ne regardons d'ordinaire les person-
-nages que nous avons vus de si près. On peut dire que
+autre œil que nous ne regardons d'ordinaire les personnages que nous avons vus de si près. On peut dire que
 le respect que l'on a pour les héros augmente à mesure
 qu'ils s'éloignent de nous: major longinquo reverentia. à
 Il y aurait tant à dire sur cette maxime. Mais il faut
@@ -5986,8 +5743,7 @@ lieues. C'est ce qui fait, par exemple, que les person.
 nages turcs, quelque modernes qu'ils soient, ont de la
 dignité sur notre théâtre. On les regarde de bonne
 heure comme anciens. Ce sont des mœurs et des cou
-tumes toutes différentes. Nous avons si peu de com-
-merce avec les princes et les autres personnes qui
+tumes toutes différentes. Nous avons si peu de commerce avec les princes et les autres personnes qui
 vivent dans le Serrail, que nous les considérons, pour À
 ainsi dire, comme des gens qui vivent dans un autre
 siècle que le nôtre.
@@ -6040,8 +5796,7 @@ renciation, pour le renouvellement qui dans la stérilité
 d'un Voltaire lui fera faire les plus grands voyages, lui
 fera commettre les extrêmes divagations géographiques
 et chronographiques, l''emmènera en Chine, dans on ne à
-sait quelle Perse et Babylonie, plus ou moins de conven-
-tion, plutôt plus que moins, et toujours chez les Turcs. -
+sait quelle Perse et Babylonie, plus ou moins de convention, plutôt plus que moins, et toujours chez les Turcs. -
 Dans tout cet Orient du dix-huitième siècle français.
 Dans cette pâteuse Musulmanie. Dans cette persistante
 Turquerie. Le goût du Turc est toujours très mauvais
@@ -6054,8 +5809,7 @@ tout de même dans Bajaset. à
 
 ce n'était jamais qu'une série qu'il arrêtait. Ce n'était à
 point une œuvre, organique, un être, d'ensemble, qu'il Le.
-décapitait ou qu'il découronnait, une œuvre qu'il inca-
-pitait ou qu'il incouronnait. C'étaient des chaînons qui;
+décapitait ou qu'il découronnait, une œuvre qu'il incapitait ou qu'il incouronnait. C'étaient des chaînons qui;
 
 _manqueraient à une chaîne, non point, nullement une
 
@@ -6074,10 +5828,8 @@ goût, la résonance, le propre de l'œuvre, À
 Ce que vaut ensuite ce chaïînon, ce qu'il est, de quel
 ton, de quel métal, de quelle valeur propre, de quel
 goût, de quelle résonance, de quel ordre de grandeur,
-c'est ce que je répète que nous ne pouvons pas eXami-
-ner ici. Tout ce que nous y avons dire, et en bref, en
-préliminaire, c'est que tout est déjà dans chaque chaï-
-non; que toute l'œuvre est dans chaque chaïînon; que
+c'est ce que je répète que nous ne pouvons pas eXaminer ici. Tout ce que nous y avons dire, et en bref, en
+préliminaire, c'est que tout est déjà dans chaque chaïnon; que toute l'œuvre est dans chaque chaïînon; que
 les œuvres complètes sont une chaîne de ces chaïînons.
 82. — Chacune de ses tragédies est un être à part
 soi; et l'ensemble de l'œuvre n'est point un être d'ensemble, un être supérieur. C'est un corps d'annelé, plus
@@ -6107,8 +5859,7 @@ rythme plus secret l'animait. Un rythme secret, moins
 aisément saisissable, moins comptable, un secret
 rythme organique, à détentes inégales, administrait sa
 production, un rythme faisait battre la fécondité de son
-génie. Non plus un rythme numérique; un rythme (appa-
-remment) (plus) irrégulier. Si l'on veut bien penser que À
+génie. Non plus un rythme numérique; un rythme (apparemment) (plus) irrégulier. Si l'on veut bien penser que À
 ces quatre œuvres maîtresses s'organisent entre elles
 dans leur chronologie de telle sorte que dans les éditions, ou dans des éditions on peut dater Le Cid de 1636,
 Horace et Cinna ensemble de 1639, et Polyeucte 1640;
@@ -6147,8 +5898,7 @@ quatre n'est plus seulement, n'est pas un système
 arithmétique, numérique. C'est un système organique,
 
 à base de trois, à un seul chef.
-Nous montrerons le triple ramassement, le ramassement de ce triple faisceau, la culmination, l'achè-
-vement, le couronnement, la triple promotion de ces
+Nous montrerons le triple ramassement, le ramassement de ce triple faisceau, la culmination, l'achèvement, le couronnement, la triple promotion de ces
 trois œuvres en une. Nous la montrerons dans le détail
 même. Dans ce que l'on peut continuer à nommer le
 mécanisme. Nous la montrerons traduite dans le détail
@@ -6168,8 +5918,7 @@ grandes pourtant, qui pouvaient être elles-mêmes des
 
 à capitales et des maîtresses. Tout le jeune héroïsme du
 Cid, tout l'héroïsme chrétien, tout l'héroïsme chevaleresque, toute la jeunesse, tout l'héroïsme, toute lacheva- À
-lerie du Cid promue dans Polyeucte, en jeunesse éter-
-nelle, en héroïsme et comme en chevalerie de sainteté.
+lerie du Cid promue dans Polyeucte, en jeunesse éternelle, en héroïsme et comme en chevalerie de sainteté.
 Toute cette jeunesse temporelle, toute cette jeunesse “.
 charnelle muée, promue en jeunesse éternelle. Tout cet à
 héroïsme de guerre promu en héroïsme de martyre. Tout
@@ -6235,8 +5984,7 @@ un héroïsme militaire, non plus guerrier, proprement un
 honneur, un héroïsme militaire civique, un honneur, un
 _. héroïsme de la guerre militaire civique et non plus du
 
-tout de la guerre chevaleresque. Rodrigue serait dés-
-honoré instantanément si contre le comte, dans un;
+tout de la guerre chevaleresque. Rodrigue serait déshonoré instantanément si contre le comte, dans un;
 combat singulier, il usait d'une ruse de guerre; s'il en
 usait autrement que contre les Maures et dans la;
 grande guerre; ce serait frauder le combat de Dieu. Cet
@@ -6244,8 +5992,7 @@ héroïsme de la cité d'Zorace, du jeune Horace et du
 vieil, sera promu dans Polyeucte en héroïsme de la cité
 céleste. C'est le même héroïisme qui est promu du
 registre de la patrie, de la cité terrestre au registre
-de la cité céleste. Cet amour, cette piété, cette re-
-ligion de la terre, d'une terre devient l'amour, la
+de la cité céleste. Cet amour, cette piété, cette religion de la terre, d'une terre devient l'amour, la
 piété, la religion du ciel. Tout ce qui est de la cité de
 Rome devient tout ce qui est de la cité de Dieu. Tout
 ce qui est de la cité terrienne, de la cité temporelle, de
@@ -6299,8 +6046,7 @@ Gendre du gouverneur de toute la province;
 la province asiatique, (Achaïe), Arménie, Judée, le gouverneur, les intérêts romains, le procurateur de Judée,
 la préfecture, (donc bientôt l'évêque, l'évêque romain),
 et aussi tout le Romain philosophe, le paganisme philosophe et adouci, Sévère, qui fait une part si importante
-de Polyeucte, qu'on oublie généralement, qu'on mé-
-connaît, Félix, Pauline même et surtout dans toute sa
+de Polyeucte, qu'on oublie généralement, qu'on méconnaît, Félix, Pauline même et surtout dans toute sa
 vie antérieure sont posés d'abord, sont préparés, sont
 
 À enfin posés une première fois dans Cinna ou la
@@ -6311,8 +6057,7 @@ Une triple proposition était faite sur les tables de à
 proposition, un triple pain de proposition était cuit. À
 Telles étaient, mon cher Pesloüan, nos propres, nos
 modestes anticipations; à nous-mêmes; nos longues et +17
-poussées méditations communes; tels étaient quelques-
-uns des {ravaux que nous méditions. Ils sont heureux, À
+poussées méditations communes; tels étaient quelquesuns des {ravaux que nous méditions. Ils sont heureux, À
 ceux qui peuvent travailler, qui hors du souci, du
 tracas, du fatras temporels, dans le grand silence des
 
@@ -6326,9 +6071,7 @@ aurait lieu dans des circonstances vraiment tragiques.
 
 Elle se produirait, vous le savez mieux que personne,
 
-au cœur d'une bataille malaisée. Si différents de carac-
-
-tère, si pareils de cœur, je veux l'espérer, je veux le
+au cœur d'une bataille malaisée. Si différents de caractère, si pareils de cœur, je veux l'espérer, je veux le
 
 croire, j'en suis sûr, d'un caractère, d'un tempérament, d'une société si différentes; je veux le croire,
 d'un même cœur; plus nous sommes différents, plus +4
@@ -6353,8 +6096,7 @@ Nous sommes même dans la même arme, de la même
 arme, nous servons dans la même arme, nous sommes
 tous les deux dans l'infanterie. Nous sommes, nous
 
-marchons seulement dans des infanteries un peu diffé-
-rentes. Vous vous êtes d'un régiment demi-briard. Moi
+marchons seulement dans des infanteries un peu différentes. Vous vous êtes d'un régiment demi-briard. Moi
 je suis de cet excellent régiment républicain qui se
 nomme le Royal-Beauceron. Seulement il y a des jours
 où je donnerais beaucoup pour aller servir un peu
@@ -6401,11 +6143,9 @@ par nous, qui n'en avons point reçu le mandat, je veux
 dire qui n'en tenons, qui n'en avons reçu le mandat
 que de nous-mêmes, je veux dire qui n'en tenons, qui
 (n')en avons reçu le mandat (que) de notre race et de a.
-nos grands ancêtres. Spectacle singulier. Spectacle tra-
-gique. Une fois de plus la Sorbonne est tombée dans à
+nos grands ancêtres. Spectacle singulier. Spectacle tragique. Une fois de plus la Sorbonne est tombée dans à
 
-la scholastique. Et dans la scholastique du maté-
-rialisme, la pire de toutes. Ce n'est point trahir d'anciennes amitiés, ce n'est offenser personne que de dire
+la scholastique. Et dans la scholastique du matérialisme, la pire de toutes. Ce n'est point trahir d'anciennes amitiés, ce n'est offenser personne que de dire
 que cette Sorbonne, que nous avons tant aimée, ayant
 absorbé l'École Normale, est devenue une maîtresse
 d'inculture, et qui s'en vante, est devenue une maîtresse
@@ -6451,9 +6191,7 @@ cultures ne sont plus défendues que par des pauvres et
 des misérables; comme nous; elles ne sont plus maïn-. -
 tenues que par des gueux; comme nous; par des éndividualités sans mandat. Par de pauvres professeurs, je
 veux dire par des professeurs pauvres de collèges et à
-de lycées. Et en dehors de l'Université, ou plutôt join-
-tement à l'Université, par des journalistes, (car heureu-
-sement nous ne sommes pas les seuls), (et nous sommes
+de lycées. Et en dehors de l'Université, ou plutôt jointement à l'Université, par des journalistes, (car heureusement nous ne sommes pas les seuls), (et nous sommes
 de plus en plus nombreux tous les jours, et bientôt nous
 serons légion), dans des articles de journaux et de
 revues. Dans des fascicules, dans des brochures, dans
@@ -6481,9 +6219,7 @@ aussi, à leur décharge, qu'ils n'ont fait non plus, qu'ils
 n'ont fait aussi ni lettres, ni art(s), ni philosophie, ni
 morale, ni religion, qu'ils n'y entendent rien, qu'ils n'en
 
-savent pas un mot, qu'ils n'en soupçonnent rien, puis-
-
-qu'ils n'ont jamais fait, mis sur pied ni un roman, ni
+savent pas un mot, qu'ils n'en soupçonnent rien, puisqu'ils n'ont jamais fait, mis sur pied ni un roman, ni
 un conte, ni un poème, ni une nouvelle, ni un essai, ni
 
 -une chronique, ni un pamphlet, ni un propos, ni une
@@ -6497,14 +6233,10 @@ fonctionnaires les met précisément à l'abri des terribles
 
 a inquiétudes et problèmes moraux), (ni une épître), veu-
 
-- lent nous faire prendre, à ce prix, les vessies pour des lan-
-
-ternes, et les lettres pour des sciences. Ils ne réussissent
+- lent nous faire prendre, à ce prix, les vessies pour des lanternes, et les lettres pour des sciences. Ils ne réussissent
 ainsi qu'à créer des confusions, une confusion générale,
 
-qui seraient joyeuses, si elles n'étaient aussi profon-
-
-dément tristes. Ils n'aboutissent qu'à faire un échafaudage, extérieur, non un monument, de simili-science, de
+qui seraient joyeuses, si elles n'étaient aussi profondément tristes. Ils n'aboutissent qu'à faire un échafaudage, extérieur, non un monument, de simili-science, de
 semble-science, de fausse science, de prétendue, de soidisant science, de feinte science, d'imitation de science,
 plus belle que nature, qui est la risée des (véritables)
 savants. Ainsi ils perdent les lettres et ne gagnent
@@ -6525,8 +6257,7 @@ physiciens, les véritables chimistes et biologistes en
 . viennent à reconnaître très heureusement la part capi- À
 tale, la part originelle, la part primordiale que prennent
 dans le travail scientifique même, dans l'invention,
-dans la découverte de science les méthodes d'art, l'intui-
-tion, les intuitions, les souplesses d'art, les docilités:
+dans la découverte de science les méthodes d'art, l'intuition, les intuitions, les souplesses d'art, les docilités:
 d'art, les inventions d'art. Parlez-en seulement à un
 vrai mathématicien, je veux dire à un mathématicien
 qui ait fait des mathématiques. Au moment même que
@@ -6594,8 +6325,7 @@ même quelquefois de leur bestialité même. Une méthode
 à dire, et à s'en vanter, que pour aborder une étude
 voluptueuse des Lettres philosophiques, il faut avoir
 établi vingt livres de notes, (c'est-à-dire de commentaires -
-non pas sans doute étrangers au texte, mais soigneuse-
-ment extérieurs au texte. Une lecture voluptueuse des
+non pas sans doute étrangers au texte, mais soigneusement extérieurs au texte. Une lecture voluptueuse des
 Lettres philosophiques, par la volupté de vingt volumes
 de notes, le mot est de M. Rudler. Il paraît qu'il
 aussi une étude qui plane, ou une étude où l'on plane.
@@ -6627,8 +6357,7 @@ savants ne recherchent même pas en matière scientifique,
 ? dont ils ne se soucient pas, eux, plus malins, ils vous
 les obtiennent en matière humaine, en matière d'homme.
 Ces analyses épuisantes que les véritables savants ne
-recherchent même pas, ne se proposent même pas d'ef-
-fectuer, sachant qu'il y a des synthèses, eux, ils vous
+recherchent même pas, ne se proposent même pas d'effectuer, sachant qu'il y a des synthèses, eux, ils vous
 les enlèvent en un tour de main (de vingt volumes). Car
 il ne faut pas que l'on nous veuille, il ne faut pas que
 ; lon nous vienne effrayer, que l'on vienne nous en
@@ -6659,8 +6388,7 @@ du même ordre que leur matière, que leur propre
 fiers, orgueilleux imitateurs, fiers, orgueilleux de soi et
 de leur imitation, fiers, orgueilleux de leurs modèles,
 (les vrais savants), de leurs prétendus modèles, de leurs
-patrons où ils n'entendent rien, singes glorieux imita-
-teurs ils prennent tout ce fatras sur leurs épaules, sur
+patrons où ils n'entendent rien, singes glorieux imitateurs ils prennent tout ce fatras sur leurs épaules, sur
 leurs pauvres reins, maigres, sur leurs épaules voûtées, (ce
 fatras qui n'est un fatras que pour eux, qui n'est pas un
 fatras pour les véritables savants, ou plutôt qui ne leur à
@@ -6683,8 +6411,7 @@ Singuliers savants, singulière science. Au lieu de faire
 à qui ait au moins quelque parenté avec eux, ou plutôt
 dont la matière ait au moins quelque parenté avec la
 leur, au lieu de s'appuyer, de s'adosser par exemple à
-la botanique, à l'anatomie et à la physiologie végé-
-tales, comme faisait par exemple au moins ce pauvre -
+la botanique, à l'anatomie et à la physiologie végétales, comme faisait par exemple au moins ce pauvre -
 et grand Brunetière, à qui d'ailleurs il faut avouer que
 réussissait généralement mal; ou encore au lieu de
 s'appuyer, de s'adosser à la zoologie, à l'anatomie et à
@@ -6693,8 +6420,7 @@ voisine en un certain sens, en beaucoup de sens, dont
 les matières sont tout de même voisines, enfin au lieu
 de s'appuyer, de s'adosser à la biologie, qu'ils ne savent
 pas, (dont ils se méfient tout de même, d'instinct, le seul
-instinct qu'ils aient, l'instinct de méfiance, qu'ils soup-
-trop art), (trop ce qu'ils devraient être), les gars ils vont
+instinct qu'ils aient, l'instinct de méfiance, qu'ils souptrop art), (trop ce qu'ils devraient être), les gars ils vont
 d'emblée aux chimies, qu'ils ne savent pas non plus,
 aux physiques, qu'ils ne savent pas, aux mathématiques
 
@@ -6710,11 +6436,9 @@ plus savant, monsieur. Ils ont cette secrète assurance, et ils en tiennent comp
 pour être les plus savants, savants au suprême,
 au dernier degré, pour être (les) plus savants que
 tout le monde, ils ont cette sourde, cette officicle.
-conviction que les mathématiques sont plus scienti-
-fiques que la physique, les physiques plus scientifiques
+conviction que les mathématiques sont plus scientifiques que la physique, les physiques plus scientifiques
 que la chimie, les chimies plus scientifiques que la
-biologie. Ayant entendu parler vaguement de ce classe-
-ment, de cette classification des sciences, de cette à
+biologie. Ayant entendu parler vaguement de ce classement, de cette classification des sciences, de cette à
 célèbre au baccalauréat. C'est tout ce qu'ils ont retenu,
 
 tout ce qu'ils ont appris, tout ce qu'ils ont compris de
@@ -6754,9 +6478,7 @@ plus marqué, de plus honorable, de plus avancé, de
 ils sont convaincus que la série, que la progression de
 complexité croissante est en réalité inversement, contrai-
 
-5 rement, une dégression, une série de scientifique décrois-
-
-sant. C'est-à-dire que plus en descendant les sciences
+5 rement, une dégression, une série de scientifique décroissant. C'est-à-dire que plus en descendant les sciences
 
 à s'emplissent de réalité, plus ils les méprisent. C'est
 
@@ -6832,8 +6554,7 @@ sera plus question, pour savoir l'histoire, l'événement
 de l'arbre qui poussera dedans, de savoir ensuite si
 ensuite on y mettra, si on y laissera tomber un marron
 ou un gland. Cela n'aura plus aucune importance,
-aucune espèce d'importance, une importance mathé-
-matiquement égale à zéro. On l'enfermerait, le botaniste.
+aucune espèce d'importance, une importance mathématiquement égale à zéro. On l'enfermerait, le botaniste.
 C'est pourtant exactement ce que veulent, ce que nous
 veulent nos nouveaux littéraires. Ils font en vingt
 volumes une analyse épuisante. Censément épuisante.
@@ -6857,17 +6578,13 @@ mètres cubes se soit trouvé (mis) (ensuite) un Molière
 ou un Beaumarchais.
 
 Un botaniste, un biologiste n'ose pas, ne parlera à
-jamais (de) mathématique, de (la) certitude mathé-
-matique, de (la) connaissance mathématique, de
+jamais (de) mathématique, de (la) certitude mathématique, de (la) connaissance mathématique, de
 thode, d'exactitude mathématique, il ne parle, il ne
 
 è pense jamais d'épuisement, Un mathématicien, pour si
-beaucoup de raisons, d'autres raisons, des raisons con-
-traires, des mêmes raisons, un mathématicien en parle À
+beaucoup de raisons, d'autres raisons, des raisons contraires, des mêmes raisons, un mathématicien en parle À
 
-avec prudence. En parle peu. Nos fiers gars de littéra-
-
-teurs en parlent hardiment, ils ne parlent que d'exact
+avec prudence. En parle peu. Nos fiers gars de littérateurs en parlent hardiment, ils ne parlent que d'exact
 
 tude. Ils ne pensent, s'ils savaient le français ils ne ee:
 
@@ -6920,8 +6637,7 @@ deviner, soupçonner, plutôt qu'on ne pouvait l'entendre,
 que peut-être il y avait, qu'il allait y avoir quelque
 à chose entre nous, qu'aussitôt, qu'instantanément nous
 
-nous sentimes enveloppés des innombrables chemine-
-ments de cette conspiration sourde. Jamais je n'ai
+nous sentimes enveloppés des innombrables cheminements de cette conspiration sourde. Jamais je n'ai
 autant de plaisir à me sentir les mains liées. Dans ce
 Paris pourtant désert, (c'était au commencement des il!
 vacances et tout le monde était parti ou partait), de
@@ -6972,8 +6688,7 @@ de mobilisation de la même armée française. Comparer
 votre courage, comparer le mien, où serait ma norme,
 où ma règle, où le niveau de nos vies. Nous parlons
 toujours de la guerre, qui est la grande mesure du
-courage; j'entends la grande mesure temporelle, peut-
-être la seule, mais ni vous ni moi ne l'avons jamais
+courage; j'entends la grande mesure temporelle, peutêtre la seule, mais ni vous ni moi ne l'avons jamais
 faite. Nous avons failli la faire. Plusieurs fois. Dans ces
 alertes nous faisions la même contenance. Nous levions
 la même tête. Dans cette alerte notamment, dans cette
@@ -6988,11 +6703,8 @@ camp de Cercottes: Si une fois les réservistes mar-
 alarme, tant que dura la tension, quand l'Allemagne
 n'entra pas, parce qu'elle n'osa pas, tout le temps;
 qu'elle n'entra pas du même pas nous allions les mêmes
-routes; nous nous maintenions ensemble magnifique-
-ment entraînés; dans le besoin nous abattions côte à
-côte, aussi longtemps que dura la tension, nous abat-
-tions l'un et l'autre, nous abattions nos quarante kilo-
-mètres comme un jeune homme. Nous serions prêts à -
+routes; nous nous maintenions ensemble magnifiquement entraînés; dans le besoin nous abattions côte à
+côte, aussi longtemps que dura la tension, nous abattions l'un et l'autre, nous abattions nos quarante kilomètres comme un jeune homme. Nous serions prêts à -
 recommencer. Dans la mesure où la carcasse le veut.
 De telles compagnies, de tels accompagnements, de
 , telles conserves; de telles routes; de tels souvenirs ne
@@ -7016,9 +6728,7 @@ L'un par l'autre, Halévy, l'un vers l'autre nous avons LS.
 
 : les philosophies, ces grossiers, (les théologies et les
 
-a casuistiques, ces autres grossiers, ces grossiers paral-
-
-lèles, et les scholastiques), les cléricaux de l'une et
+a casuistiques, ces autres grossiers, ces grossiers parallèles, et les scholastiques), les cléricaux de l'une et
 
 l'autre loi, ces grossiers ensemble, les docteurs de la
 
@@ -7032,13 +6742,9 @@ ensemble, professent qu'il y a des péchés, peccata, des
 
 nous péchons. Que l'on commet. Qu'avec ces péchés
 
-naissent et meurent, commencent et finissent, se décou-
+naissent et meurent, commencent et finissent, se découpent nos responsabilités. Et tout ce qui dans les
 
-pent nos responsabilités. Et tout ce qui dans les
-
-systèmes des intellectuels accompagne la et les respon-
-
-sabilités, se modèle sur les responsabilités, les suit
+systèmes des intellectuels accompagne la et les responsabilités, se modèle sur les responsabilités, les suit
 
 ; À aveuglément: le regret, le remords, le repentir, la péni-
 
@@ -7149,8 +6855,7 @@ c'est proprement l'état de péché. Qui sait dans cet état,
 dans cet accident de cet état, qui est le plus coupable,
 celui qui pèche, ou si ce ne serait pas celui contre qui
 on pèche, uter gravius peccet, qui peccet,an qui peccatum
-cetur); qui des deux est le plus victime, plus mal-
-heureux, le plus offensé. Tel est l'état de péché. C'est
+cetur); qui des deux est le plus victime, plus malheureux, le plus offensé. Tel est l'état de péché. C'est
 un état qui dépasse de beaucoup, qui dépasse infiniment le péché même, peccatum, qui le déborde de toutes à
 parts. Qui est même autre, au fond, infiniment autre,
 on peut le dire, qui est tout autre chose. Il est certain -
@@ -7162,8 +6867,7 @@ infiniment plus profond, infiniment plus grave, et plus
 constitutionnel pour ainsi dire que le mot peccatum,
 techniquement un péché; que l'idée, que le fait, que le y
 concept d'un péché. Ce n'est pas du tout la même chose.
-C'est tout autre. Ce n'est pas du tout ce sens intellec-
-tuel, historique, découpé. lei c'est l'état même et la
+C'est tout autre. Ce n'est pas du tout ce sens intellectuel, historique, découpé. lei c'est l'état même et la
 condition de l'homme, la bassesse et la misère, l'infir- Dr.
 mité. Et il est extrêmement remarquable, Halévy,:
 
@@ -7264,8 +6968,7 @@ naire; il était professeur de philosophie, quatre fois
 fonctionnaire; il était fonctionnaire prussien, cinq et
 septante fois fonctionnaire. Il n'a avoir qu'un (très De
 grand) génie de fonctionnaire. (Et de célibataire). Hélas
-législateur en même temps que sujet. Hélas la répu-
-blique des volontés libres et raisonnables. — Agis
+législateur en même temps que sujet. Hélas la république des volontés libres et raisonnables. — Agis
 telle sorte, continue Fouillée, agis de telle sorte que la
 raison de ton action puisse être érigée en une loi univer- … À
 selle. Agis de telle sorte que l'action de Fouillée puisse
@@ -7277,9 +6980,7 @@ fants. ferait un beau commencement. Tout devient
 
 si simple, dès qu'il n'y a plus d'enfants. Sich zur
 
-de nos actions pourront être érigées en une loi uni-
-
-verselle. Et combien de raison de nos actions. Zur
+de nos actions pourront être érigées en une loi universelle. Et combien de raison de nos actions. Zur
 
 . allgemeinen Gesetzgebung. Et cela ne nous est-il pas
 
@@ -7374,7 +7075,7 @@ dans une maison laïque avez réintroduit la gloire
 antique, la première gloire, la gloire de la guerre;
 ; grand enfant, grand ami, homme au grand cœur; vous;.
 qui fondez des camps et qui fondez des villes; artilleur,
-colonial; vous qui réveillant votre vieux sang breton, à;
+colonial; vous qui réveillant votre vieux sang breton,
 et votre vieux sang méditerranéen, et votre vieux sang à
 ‘de patience hollandaise nous restituez la vaillance
 antique aux héroïsmes des guerres mauritaniennes;
@@ -7428,15 +7129,12 @@ comme un jour, demeuriez comme un roi, Vous et vos
 canons, sous-officier demeuriez comme un roi dans
 notre grand palais de l'École Militaire, à deux pasde
 
-nos grandes Invalides; et quand vous alliez à la ma-
-
-nœuvre, par les clairs matins de Paris, levés bien de
+nos grandes Invalides; et quand vous alliez à la manœuvre, par les clairs matins de Paris, levés bien de
 
 bonne heure pour des Parisiens, et quand vous en
 reveniez, à l'heure où nous autres civils ne sommes pas
 encore descendus du train, quand il y a un train, vos à
-canons de 55, nos grêles canons modernes, si perti-
-nents, un peu trop lourds toutefois pour vos batteries
+canons de 55, nos grêles canons modernes, si pertinents, un peu trop lourds toutefois pour vos batteries
 à cheval, pour vos batteries de cavalerie, pour vos
 batteries volantes, et comme nous le disons familiè- À
 rement entre nous pour les volantes, vos canons de
@@ -7454,8 +7152,7 @@ alignés encore tout au long du beau terre-plein, derrière
 le fossé, comme pour une parade éternelle, avaient
 l'air de commander le défilé. Ils passaient l'inspection.
 
-Ces vieux canons invalides, non blessés toutefois géné-
-ralement, ces invalides de canons, tout neufs, (d'aspect),
+Ces vieux canons invalides, non blessés toutefois généralement, ces invalides de canons, tout neufs, (d'aspect),
 
 tout reluisants, tout astiqués. Les canons qui avaient
 
@@ -7520,9 +7217,7 @@ cette refoulée, cette repoussée, (et c'est cette reculée), À
 notamment la deuxième, reprise par les mêmes Français
 aux environs de 1830, que vous continuez, que vous
 ramassez, que vous acheminez, que vous poursuivez
-aux héroïismes des guerres mauritaniennes. Grec, héri254
-
-à tier de la sagesse antique. Soldat qui dans le défaut de
+aux héroïismes des guerres mauritaniennes. Grec, hérià tier de la sagesse antique. Soldat qui dans le défaut de
 nos professeurs maintenez, défendez la culture. FranEl çais héritier de la culture antique et de la même culture
 française. Latin, Romain héritier de la paix romaine,
 héritier de toutes parts, héritier detoutes mains, Romain
@@ -7567,8 +7262,7 @@ RON émoussée, nullement fatiguée; Grec, fils de Grec,
 pan Breton, grand Français pour qui l'Iliade est vraiment
 récit de voyages comme il y en Français qui selon
 le rite antique, selon le rite grec, (hébraïque), (français)
-êtes nommé de votre père, et prénommé de votre grand-
-père; vous par qui la culture et les lettres françaises à
+êtes nommé de votre père, et prénommé de votre grandpère; vous par qui la culture et les lettres françaises à
 figurent temporellement et aux confins géographiques
 à et aux confins des héroïsmes militaires; vous qui faites
 les seules inscriptions historiques dont nous sommes
@@ -7582,9 +7276,7 @@ où l'on ait un peu pensé à l'« histoire ». Vous êtesun …
 exemple éclatant de ce que disait Barrès dans son Adieu
 à Moréas, le 2 avril de cette année 1910, au Cimetière
 du Père-Lachaise, que le romantique et le classique ne
-sont point forcément, ne sont point toujours des étran-
-
-gers l'un à l'autre, mais que le romantique peut, sous
+sont point forcément, ne sont point toujours des étrangers l'un à l'autre, mais que le romantique peut, sous
 LE certaines conditions de culture, s'effectuer, s'achever,
 Vous ne me pardonnez pas seulement, mon ami, de
 vous citer du Barrès; vous vous en réjouissez dans
@@ -7599,11 +7291,9 @@ nuances, chaque famille fut en peu de jours à son poste,
 sûre de ses manœuvres et retranchée derrière ses portes
 closes. Car Paris a ses familles comme Florence
 eut les siennes, et ses maisons non couronnées de
-tours n'en abritent pas moins des factions guer-
-rières. Votre maison, mon enfant, était contre la maison
+tours n'en abritent pas moins des factions guerrières. Votre maison, mon enfant, était contre la maison
 de Barrès. Violemment contre. Mais dix ans plus tard
-dans ce court séjour que vous fîtes à Paris je sais com-
-bien vous l'aimez et admirez comme écrivain, combien
+dans ce court séjour que vous fîtes à Paris je sais combien vous l'aimez et admirez comme écrivain, combien
 . vous aimeæ et admirez son œuvre; et pendant ce court
 séjour que vous fîtes vous avez éprouvé par un acte,
 par le décernement d'un acte, combien il aimait votre
@@ -7625,8 +7315,7 @@ d'art dans son cœur assagi.
 Vous entendrez parler souvent, mon ami, non point
 de cette esthétique nouvelle; c'est plus qu'une esthétique
 nouvelle; c'est simplement une reconnaissance poussée
-par un grand écrivain dans les profondeurs de l'esthé-
-tique éternelle. Sans aucun appareil dogmatique, sans
+par un grand écrivain dans les profondeurs de l'esthétique éternelle. Sans aucun appareil dogmatique, sans
 aucun grossissement professoral vous avez reconnu
 une de ces reconnaissances modestes profondes, une
 de ces propositions cardinales que l'on trouve dans
@@ -7683,10 +7372,8 @@ d'une organisation, d'une régulation parfaite. Un chef
 : à d'œuvre, et une œuvre parfaitement harmonieuse. En
 ces quelques pages une réussite unique. Il est dans les
 carrières des jours fortunés. Je me le rappelle comme
-SPA si ce fût d'hier soir. Je n'avais point assisté à la céré-
-monie. Je n'étais point, vous le savez, un ami de
-Moréas. Les hommes de ma génération, hélas, le con-
-naissaiemt déjà peu. Je rentrais le soir. Dans le coïn de
+SPA si ce fût d'hier soir. Je n'avais point assisté à la cérémonie. Je n'étais point, vous le savez, un ami de
+Moréas. Les hommes de ma génération, hélas, le connaissaiemt déjà peu. Je rentrais le soir. Dans le coïn de
 mon compartiment je commençais de lire le Temps.
 Quelque respect que nous ayons pour Le Temps, vous
 . savez qu'une colonne de journal n'est point toujours ce
@@ -7704,8 +7391,7 @@ presses; que l'on vient d'acheter pour trois sous. Toute
 une élégie. Cœur de Français, écoutez encore cette )
 phrase: J'ai ou Moréas marcher au côté de Verlaine.
 Mais déjà il se mettait en mesure de rejoindre Ronsard,
-Villon et Rutebeuf. Tout Homère était là, et l'enseve-
-lissement et les funérailles des héros, et la mort des
+Villon et Rutebeuf. Tout Homère était là, et l'ensevelissement et les funérailles des héros, et la mort des
 héros, tout Sophocle, et la mort des hommes mortels
 et les travaux et les jours.
 Dans ces deux cenis lignes, de prose, autant et plus
@@ -7826,7 +7512,7 @@ PU) ans. Quelqu'un récemment m'a reconduit durement dans
 CAR la catégorie, m'a ramené vivement dans la classe des
 hommes de quarante ans. J'en profite. Le vieux politiT4 cien profite de tout. Je fonde le parti des hommes de
 Pan quarante ans. Le premier point de notre programme,
-4 FU: et qui restera certainement le meilleur, sera que nous;
+FU: et qui restera certainement le meilleur, sera que nous;
 n'aurons plus jamais des matins triomphants.
 FRAC Je fonde le parti des hommes de quarante ans. Vous
 de SRE en serez, Halévy. On m'annonce de toutes parts des

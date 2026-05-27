@@ -46,7 +46,7 @@ paraissant seize fois par an
 
 Nous avons publié dans nos éditions antérieures et
 à a dans nos cinq premières séries, I900-I90/, un si.
-1 À grand nombre de documents, de textes formant dos-w
+À grand nombre de documents, de textes formant dos-w
 : 10 \siers, de renseignements et de commentaires; — un.
 A vie si grand nombre de cahiers de lettres, — nouvelles,
 1 de À romans, drames, dialogues, poèmes et contes; —
@@ -58,13 +58,11 @@ que nous ne pouvoirs pas songer à en donner
 l'énoncé même le plus succinct; pour” savoir ce qui a
 AU ‘paru dans ‘les cinq premières séries des cahiers,
 100 suffit d'envoyer un mandat de cinq francs à M. André
-Bourgeois, administrateur des cahiers, 8, rue de la Soreu bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-ment; on recevra en retour le catalogue analytique …
+Bourgeois, administrateur des cahiers, 8, rue de la Soreu bonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique …
 sommaire, 1900-1904, de nos cinq premières séries:
 Ce catalogue a été justement établi pour donner,
 je À autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur”
 place, les références demandées. 15)
 Ce catalogue, grand jésus, forme un cah
@@ -113,13 +111,12 @@ quand il y a lieu, c'est-à-dire pour nos
 "1 lytique sommaire où ce cahier se trouve?
 Romain Rolland, — Aërt, — trois actes, — premier août
 4 1898, un volume en voie d'épuisement.. sept francs
-— — le Triomphe de la Raison, — trois actes, — 20 oc-
-tobre 1899, un volume en voie d'épuisement..............
+— — le Triomphe de la Raison, — trois actes, — 20 octobre 1899, un volume en voie d'épuisement..............
 sept francs 2 ne
 — — les Loups, — trois actes, — octobre 1898... cer À
 . un cahier épuisé, n'est plus mis en vente que dans les col__ lections complètes de la deuxième série............... 99 à
 
-5 Romain Rolland, — une introduction d'une lettre inédite
+Romain Rolland, — une introduction d'une lettre inédite
 DR. de Tolstoi, adressée à Romain Rolland (-9, samedi
 à À — — Le 1{ juillet, action populaire, — trois actes,
 3 — — Vies des hommes illustres, — Beethoven, avecle
@@ -160,8 +157,7 @@ A Le deuxième livre, le matin, formait le dixième cahier
 de la cinquième série; marqué deux francs, ce cahier se
 vend aujourd'hui trois francs cinquante
 Le troisième livre, l'adolescent, formait le huitième
-1 cahier de la sixième série; marqué trois francs cin-
-quante, ce cahier se vend aujourd'hui trois francs cin-
+1 cahier de la sixième série; marqué trois francs cinquante, ce cahier se vend aujourd'hui trois francs cin-
 : Il ne nous reste aujourd'hui qu'un petit nombre de ces
 trois cahiers et les personnes qui ne les ont pas feront
 À bien de nous les demander immédiatement; ces trois
@@ -173,9 +169,8 @@ jusqu'à leur entier épuisement: à dater du jour où ils
 : vente que dans nos collections complètes de nos cinquième et sixième séries, jusqu'à ce que ces séries elles1 La délivrance.
 
 neuvième cahier de la huitièm série
-ne. mêmes viennent en voie d'épuisement puis soient complè-
-tement épuisées. Alors ils ne seront forcément plus mis
-11 A dater du jour où ces trois cahiers seront portés aux
+ne. mêmes viennent en voie d'épuisement puis soient complètement épuisées. Alors ils ne seront forcément plus mis
+A dater du jour où ces trois cahiers seront portés aux
 prix d'épuisement, nous ne mettrons plus en vente pour;
 l'usage courant que des exemplaires de l'édition Ollen-
 Le quatrième livre, la révolte, se compose de trois
@@ -195,8 +190,7 @@ cinquante à M. André Bourgeois, administrateur des on
 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 cinquième arrondissement. On recevra par le retour
 du courrier les six cahiers formant les quatre premiers Hs:
-Comme on le voir ci-après, la pagination du pré-
-sent cahier, troisième partie du quatrième livre, fait
+Comme on le voir ci-après, la pagination du présent cahier, troisième partie du quatrième livre, fait
 suite à la pagination du cahier rappelé ci-dessus, tee
 deuxième partie de ce quatrième livre. Ainsi les trois
 parties de ce quatrième livre sont paginées à la suite.

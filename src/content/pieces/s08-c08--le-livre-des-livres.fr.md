@@ -66,13 +66,13 @@ A Dans un clos de soleil et de sainfoins montants,
 À Je me souviens de vos paroles d'invectives À
 Qui maudissaient le siècle en regrettant l'hier.
 Vos cheveux étaient blancs des neïges de l'hiver;: 4 Et, sous l'orbe agrandi des lunettes pensives,
-4 Vos yeux ne voyaient plus que très loin dans l'éther.
+Vos yeux ne voyaient plus que très loin dans l'éther.
 
 : 1) a C'est que l'âge morose a noué sur vos tempes! RTE.
 ni L'aveugle bandeau noir qu'Amour met aux amants; à
 Les jours vous semblent courts ainsi que des moments;
 Le réel s'exagère à la clarté des lampes: rte FAT
-È,1 Seul est beau le passé vêtu de flamboiemenis. RTE
+Seul est beau le passé vêtu de flamboiemenis. RTE
 NE Grand mère, s'il est vrai que votre temps fut grave
 “00 Et noble comme un songe et beau comme l'amour,
 Ce n'est point dans la vie indécise d'un jour,; RAA
@@ -101,11 +101,11 @@ BAL Les chagrins pointillés de gouttelettes d'eau,
 Avec le titre à vif en lettres écrasées, ni:
 : mie Et le fleuron de marque entremêlé de houx.
 Vous les connaissez tous en vieux amis vos livres, à
-4 Les uns ensanglantés comme un soleil couchant,
+Les uns ensanglantés comme un soleil couchant,
 Les autres d'un éclat fauve d'épis des champs,
 Et ceux-ci d'un bleu tendre et clair de primitif,
 Et ceux-là miroitants et blancs comme le givre
-4 Ou d'un vert assombri de feuillage captif. #44
+Ou d'un vert assombri de feuillage captif. #44
 : Votre main se fait douce ainsi qu'une caresse;
 À Lorsque vous entr'ouvrez de vos doigts amoureux
 Tel livre sommeillant en des songes heureux +22
@@ -141,7 +141,7 @@ Le geste rédempteur et beau d'un Christ en croix...
 je Et des femmes pleurant de tristesse et d'effroi…
 Un vieux livre scellé de deux fermoirs de cuivre. »
 (248 Avec son art grossier et naïf de verrière!
-08 Aperçue au fond d'une église à l'infini,
+Aperçue au fond d'une église à l'infini,
 Il a l'effacement merveilleux et jauni
 +0 D'une miniature à fleurs de bréviaire.
 4 1 semble avoir gardé sous son rude estampage,;
@@ -175,17 +175,17 @@ Comme un buste d'Amour que l'âge ensevelit
 
 hs. Sous la mousse olivâtre et les herbes frangées. 1 » dix Innombrable semis héraldique et doré,:
 Les lys à trois fleurons et les flammes trémièrès
-20 Alternent sur les plats en lignes régulières,
-4 Sans volute inutile ou feuillage azuré. An.
+Alternent sur les plats en lignes régulières,
+Sans volute inutile ou feuillage azuré. An.
 Les angles ennoblis de couronnes royales
 Se rehaussent d'un chiffre et s'ornent d'un collier,
-#1 Où se meurt, en son vol à jamais prisonnier,
+1 Où se meurt, en son vol à jamais prisonnier,
 La colombe divine aux ailes cruciales.:
 
 Et maintenant, dans la vitrine sans écho,
 1488 Un double ruban bleu de soie eflilochée
 Engourdit de silence et crispe en sa jonchée
-48 Ce livre qui fut jeune et qui n'est plus qu'un mot.
+Ce livre qui fut jeune et qui n'est plus qu'un mot.
 
 Reliure de Grolier
 De maroquin strié de nervures brunies?
@@ -212,7 +212,7 @@ d'après une reliure en vélin
 ( Le vélin blond greffé aux angles de lys d'or
 Recouvre pour la vie et drape pour la mort,
 a.. Dans le demi-jour vert des vitrines dormeuses,
-4 L'exemplaire royal des œuvres de Pétrarque. Que
+L'exemplaire royal des œuvres de Pétrarque. Que
 Le long filet doré qui serpente et se noue, A
 2 7 Lb. Éraflé sur les plats et bruni par le temps, 1108
 Semble l'äpre fil d'ombre aux quenouilles flottant
@@ -254,7 +254,7 @@ avant les Xylographes
 À Où toute la pensée humaine se résume,
 Comme le Moyen-Age extatique en prière À
 É Se dresse et ressuscite en son nimbe de brume, "4
-13 Parmi l'envol fragile et léger jusqu'aux cieux
+Parmi l'envol fragile et léger jusqu'aux cieux
 Des cathédrales de granit et de lumière.
 
 sa C'est un livre vivant sculpté en toutes lettres 1]
@@ -302,7 +302,7 @@ Sur ces feuillets géants de granit, la pensée
 
 Que la poussière efface et que blèmit le temps,
 
-), Sur les riches vélins d'écriture amassée.
+Sur les riches vélins d'écriture amassée.
 
 Et le soir velouté de pourpre et bleu qui rampe,
 ns. Découpant au profil rêveur de Notre-Dame,,
@@ -316,7 +316,7 @@ Que m'expliquait ma mère, à mi-voix, sous la lampe.
 C'est un livre de prix conservé d'un autre âge, #01
 Dont la peau se dessèche et s'arrache par plaques.
 
-4 Sur le dos arrondi doré aux petits fers,
+Sur le dos arrondi doré aux petits fers,
 
 \0 Que plisse en quaire endroits la couture sur nerfs,
 
@@ -337,7 +337,7 @@ Sa signature immense en lettres écarlates. ‘ha
 é Gloriole inutile et vaine renommée,
 à Que consacra jadis en phrases de fumée
 Pommereul général et préfet d'Indre-et-Loire,
-1 Puisqu''il n'est demeuré de ce siècle pli
+Puisqu''il n'est demeuré de ce siècle pli
 Sous le trophée inverse et le laurier cueilli
 Que deux noms inconnus sur un livre de gloire. à
 
@@ -366,7 +366,7 @@ Et dans l'air enivrant de fleurs et de bourgeons
 h. Flotte l'odeur d'amour des premières feuillées.
 Et ce matin, rêveur à l'âme bruissante,
 Le. J'ai fuir devant moi, au détour d'une sente, “ai
-1 Sous le soleil qui les vêtait de rayons blonds,
+Sous le soleil qui les vêtait de rayons blonds,
 Un doux jeune homme aux bras de son adolescente.
 
 Ils se diront, tout bas de peut qu'on les entende,
@@ -453,7 +453,7 @@ DRRUUIN Comme un rêve inéclos sommeille en des yeux doux.
 ? Pour ces livres d'hier que le hasard entasse: HAVE
 À Car ils sont nos amis et leur œuvre est féconde.
 (An Tout disparaît, les rois changent, les siècles passent;
-A À! Et seul a survécu de toute éternité
+A Et seul a survécu de toute éternité
 
 Joe Grammaire latine du prince de Condé
 À maroquin rougi semé de fleurs de lys
@@ -477,7 +477,7 @@ PAL L'esprit vide, la chair triste, les gestes rudes. “4
 FAN Alors, seul dans l'ennui de ma chambre bien close,
 +00 Dans un alignement classique je dispose
 10 la Carnets de notes, vieux livres et vieilles choses.
-1 Et dans ma serviette usée en molesquine, il
+Et dans ma serviette usée en molesquine, il
 J'ai trouvé mes cahiers de textes qu'enluminent
 Des dessins emmêlés d'expressions latines. (LUE
 
@@ -488,7 +488,7 @@ Thèmes ou versions chantaient dans ma mémoire 1700
 ; Sur un rythme lointain d'antienne évocatoire, 2)
 Comme des vers, des baisers fous et de la gloire. ‘#4
 O vieux cahier, qui vaux toute une anthologie,
-Puisqu'y murmure encor mon? passé délégie à:
+Puisqu'y murmure encor mon? passé délégie
 Et que s'y réveille en un sursaut énergie: "10
 Ma volonté tenace et farouche de vivre,
 Je taime d'un amour enfantin qui m'enivre, Re.
@@ -518,10 +518,10 @@ Sur des airs de cantique et de vieil opéra,
 A Dans le salon Empire en geste d'apparat,
 ‘ee Avec l'éventail bleu battant comme deux ailes.
 À En fin, sous les oiseaux et fleurs en frontispice,
-113 Douze feuillets pieux, moitié roux, moitié blanc, 3}
-60 Pour mettre, en souvenir de chaque mois de l'an,
+Douze feuillets pieux, moitié roux, moitié blanc, 3}
+Pour mettre, en souvenir de chaque mois de l'an,
 INTER L'inscription d'un deuil ou d'un amour propice. #1
-0 Mais au bas du feuillet qui forme couverture,
+Mais au bas du feuillet qui forme couverture,
 En anglaise élégante et penchée à demi,
 1% J'ai reconnu — baiser des siècles endormi —
 Le paraphe effacé de votre signature. Et
@@ -549,7 +549,7 @@ Mais j'ai peur qu'en un âge où je ne serai plus, Le +5
 
 “RUES fond d'un vieux pupitre en bois brun d'acajou
 Parmi d'anciens cahiers fleuris de Notre-Dame #4
-18 Et des lettres de fête à dentelle de flamme,; (ARRET
+Et des lettres de fête à dentelle de flamme,; (ARRET
 J'ai découvert, dans un écrin, comme un bijou, Dee
 L'herbier, vêtu de cuir d'un rose de bruyère, 4 due a
 ; Que fit en pension mon arrière grand mère.:
@@ -599,18 +599,18 @@ Votre portrait d'aïeule en coiffe et vieux costume.
 É plus beau livre ancien dont mes yeux se souviennent
 Est une vieille Bible in-folio de cuir, |.
 Dont ma mère tout bas m'expliquait les gravures,
-3 Pour que, selon son rêve infini de chrétienne,
+Pour que, selon son rêve infini de chrétienne,
 Mon âme soit très simple et très bonne et très pure,
 Comme un soir de Chaldée où l'on voit s'éblouir
 Le rosaire argenté des étoiles anciennes. ne «
 
 Que de fois dans le vide et l'ennui des journées,
-4 À plat ventre étendu, les coudes au parquet,
+À plat ventre étendu, les coudes au parquet,
 Aou Devant la Bible immense appuyée à la table
 pics Comme une chàsse ouverte aux deux portes ornées,
 ni J'ai cru revivre un peu la candeur idéale,
 Que l'homme à son premier réveil d'enfant goûtait,
-0 Sous le souffle attiédi de la page tournée.;
+Sous le souffle attiédi de la page tournée.;
 HU: Je les revois encore en leur suite rêveuse
 ste Ces vieux dessins naïfs et mal coloriés
 4108 Depuis le jardin blond du Paradis terrestre
@@ -702,7 +702,7 @@ Vous prolongez vos jours des longs sièeles passés
 Par votre causerie avec un très vieux livre. à
 Sous votre main d'aïeul et qui se fait plus lasse
 L'autre page se froisse et s'emplit d'inconnu,
-à; Et, toujours souriant de bonheur ingénu, À
+Et, toujours souriant de bonheur ingénu, À
 Vous demeurez, tandis qu'autour de vous tout passe.
 
 Hommage à mes Livres
@@ -711,7 +711,7 @@ ATTA Vous qui, vêtus de soie ou drapés de haïillons,:
 En chaos sur ma table ou droits sur mes rayons, mn.
 ï de Sommeillez dans l'oubli, le rêve et le silence, 4 il
 FIRE O mes livres, consolateurs et fécondants,
-174 Vous m'avez fait goûter bien d'àpres jouissances. A
+Vous m'avez fait goûter bien d'àpres jouissances. A
 C'est vers vous que je viens aux heures attristées,, 4"
 « Heures de deuil, d'ennui morne ou de lassitude, à
 à Quand la chair inquiète et l'âme en servitude, Ta
@@ -746,7 +746,7 @@ Toute l'intimité de rêve et de douleur,
 ; Dont, en des temps lointains, s''émurent d'autres cœurs.
 
 C'est à vos feuillets lents et froissés par la main
-4 Qu'un poète en détresse a confié tout bas
+Qu'un poète en détresse a confié tout bas
 0) Le clair secret d'amour où son deuil succomba, mA:
 ‘ONE Et qu'un autre, inquiet de sa chair attristée,
 128 ___. Dans son ivresse vierge ou son orgueil humain,;
@@ -770,7 +770,7 @@ te; Le parfum du passé et des vieilles légendes. ne
 à Henri Focillon ce
 Per d'un long jour de soleil et d'ennui
 "Vers le soir, ayant clos les volets et les portes, VUE
-3 J'avais pris le chemin d'herbe et de feuilles mortes -
+J'avais pris le chemin d'herbe et de feuilles mortes -
 Noué sur la colline et moelleux comme un fruit,
 Et puis, j'étais venu m'asseoir au petit bois
 Qui s'accoude et se penche et rêve d'autrefois. me
@@ -854,10 +854,10 @@ Et Qu'illuminent d'autres étoiles.
 Au souffle aérieñ des mots
 À Vers d'autres orients, où l'on croit éternel
 hi. Le chant de source des échos.
-4 O Livre, nef de fleurs dans la brise des roses,
+O Livre, nef de fleurs dans la brise des roses,
 Mâis bleus et voiles en guirlande 13 À
 Comme le vaisseau clair d'aube et d'apothéoses MS.
-4 Sur qui, du fond de la légende,
+Sur qui, du fond de la légende,
 
 Die S'en vient le Chevalier du cygne aux yeux d'amour
 uen Vers la Princesse aux yeux d'espoir;; FES

@@ -38,8 +38,7 @@ le prix de l'abonnement, au lieu de cinq francs cinquante,
 qui est le total des prix marqués; envoyer un mandat
 de quatre francs à M. André Bourgeois, administrateur
 des cahiers; nous ne saurions trop engager ceux de nos
-abonnés qui veulent avoir un dossier complet du mou-
-vement socialiste contemporain, et certains textes
+abonnés qui veulent avoir un dossier complet du mouvement socialiste contemporain, et certains textes
 nous demander cette première année des Études
 Socialistes; nous en publions à la fin du présent cahier,.
 aussitôt après la table, page 249, une table analytique
@@ -53,17 +52,11 @@ Nous prévoyons que le premier cahier de la sixième
 série, paraissant le dimanche 2 octobre prochain, sera
 le catalogue analytique sommaire de nos cinq premières
 séries; nous demandons à nos abonnés, de même que
-nous pensons dès aujourd'hui à préparer l'établissement de ce catalogue, de penser, pour leur part, à en pré-
-
-parer la distribution utile; c'est-à-dire que nous leur
+nous pensons dès aujourd'hui à préparer l'établissement de ce catalogue, de penser, pour leur part, à en préparer la distribution utile; c'est-à-dire que nous leur
 
 demandons, pendant l'achèvement de cette cinquième
 
-série, de chercher et de nous indiquer à qui nous pour-
-
-rons utilement envoyer ce catalogue analytique som-
-
-maire, comme nous envoyons nos vient de paraître; pour
+série, de chercher et de nous indiquer à qui nous pourrons utilement envoyer ce catalogue analytique sommaire, comme nous envoyons nos vient de paraître; pour
 
 savoir ce qui aura paru dans les cinq premières séries
 
@@ -130,8 +123,7 @@ Allemagne; le surlendemain matin nous lisons dans les
 journaux que les socialistes allemands se chamaillent
 pour savoir s'ils feront un vice-président parlementaire
 qui aille à la cour en habit de cour; il faut donc que ces
-comme trop de socialistes français que nous connaissons, et ne soient pas comme certains socialistes fran-
-çais, révolutionnaires, que nous connaissons aussi;
+comme trop de socialistes français que nous connaissons, et ne soient pas comme certains socialistes français, révolutionnaires, que nous connaissons aussi;
 ainsi pour toute conversation, et avant même d'engager:
 la conversation, il faut savoir en quel idiome on parle,
 quel est le langage; et avant toute numération il faut
@@ -168,9 +160,7 @@ sténographique non officiel de la version française du
 du 23 au 27 septembre 1900; un fort cahier de
 216 pages et couverture, trois francs cinquante; on se
 rappelle que les organisateurs internationaux ou si
-éminemment français du congrès, tout occupés à pré-
-
-parer pour le lendemain matin la révolution sociale universelle, ou peut-être à se jouer mutuellement de bons
+éminemment français du congrès, tout occupés à préparer pour le lendemain matin la révolution sociale universelle, ou peut-être à se jouer mutuellement de bons
 tours parlementaires politiques, car on était au temps
 où régnait l'unité, avaient négligé de retenir un sténographe; le compte rendu des cahiers, sténographique,
 fut pris par nos sténographes assermentés, MM. Corcos
@@ -179,8 +169,7 @@ français; le texte fut revu par notre collaborateur
 
 Hubert Lagardelle; notre collaborateur M. Sorel voulut
 bien revoir les épreuves et annoter; ce compte rendu
-n'étant pas officiel, je n'ai pas besoin de dire qu'il pré-
-sente toute garantie; ainsi établi, ce cahier demeure le
+n'étant pas officiel, je n'ai pas besoin de dire qu'il présente toute garantie; ainsi établi, ce cahier demeure le
 seul monument que nous ayons authentique d'un congrès
 qui fut important, moins par ses déclarations officielles
 que par ses élaborations sourdes; je dois ajouter qu'en
@@ -203,32 +192,27 @@ sont les congrès français et ce qu'est devenu le socia-
 . lisme français; il est bon, au moment où s'ouvrir le
 deuxième grand congrès international qui sera denotre
 connaissance, que l'on ait un compte rendu d'un grand
-congrès national allemand; nous avons pris naturelle-
-ment le dernier congrès, le congrès de Dresde, tenu en
+congrès national allemand; nous avons pris naturellement le dernier congrès, le congrès de Dresde, tenu en
 à Non seulement le socialisme français et le socialisme
 : allemand forment deux parties capitales du socialisme
-international, mais le socialisme français et le socia-
-lisme allemand forment, en qualité, en nature, peut-être
+international, mais le socialisme français et le socialisme allemand forment, en qualité, en nature, peut-être
 les deux types autour desquels se grouperaient, théoriquement, les différentes espèces que nous connaissons
 4 de socialisme dans le monde.
 
-Le compte rendu allemand, sur qui nous avons vaillé, est un compte rendu officiel; mais il est sténo-
-graphique; d'ailleurs, si de tous les comptes rendus
+Le compte rendu allemand, sur qui nous avons vaillé, est un compte rendu officiel; mais il est sténographique; d'ailleurs, si de tous les comptes rendus
 indirects un compte rendu officiel est le moins aventuré, un compte rendu officiel vaut mieux qu'un compte
 Notre collaborateur Gaston Raphaël, traducteur juré
 de nos cahiers pour lallemand, a pris le Protocole allei
 
 : seizième cahier de la cinquième série
-mand; il a traduit sténographiquement les parties sté-
-nographiques essentielles; il a traduit analytiquement
+mand; il a traduit sténographiquement les parties sténographiques essentielles; il a traduit analytiquement
 les parties de la sténographie qui admettaient l'analyse; il a transporté les annexes, qui, dans leur sévère
 et ingrate uniformité apparente, sont d'une importance
 capitale, comme tout document premier, ennuyeux, non
 
 Nous avons mis en sept, c'est-à-dire en plus petits
 caractères, les parties sténographiques traduites sténographiquement; nous avons mis en huit, c'est-à-dire en;
-plus gros caractères, les parties sténographiques tra-
-duites analytiquement; j'ai, sur le texte de Raphaël,
+plus gros caractères, les parties sténographiques traduites analytiquement; j'ai, sur le texte de Raphaël,
 établi une fable analytique sommaire.
 
 tenue le dimanche 13 septembre 1903
@@ -269,8 +253,7 @@ Kaden, au nom du comité local de Dresde, et Bebel, au
 nom du comité directeur du parti, souhaitent la bienvenue aux congressistes. On procède aux élections.
 Sont élus présidents à l'unanimité Singer et Kaden.
 
-Singer prend la présidence. On nomme neuf secré-
-taires, ainsi qu'une commission chargée de vérifier les
+Singer prend la présidence. On nomme neuf secrétaires, ainsi qu'une commission chargée de vérifier les
 mandats des délégués.
 
 On discute aussitôt les motions relatives (1) à la
@@ -329,8 +312,7 @@ de mars. Il ne nous a pas toujours été facile de fournir
 dés orateurs aux camarades qui en réclamaient, —parfois en termes pas trop polis. Il y a une grosse difiiculté et je pense que les motions demandant l'établissement d'une commission de propagande ne sont
 
 pas en mesure de modifier la situation. Nous avons
-aussi fourni des feuilles volantes autant que les cama-
-rades en demandaient. Mais aussi nous aurions
+aussi fourni des feuilles volantes autant que les camarades en demandaient. Mais aussi nous aurions
 On nous a demandé de créer des secrétariats ouvriers
 : du parti. Nous l'avons fait seulement dans les endroits
 où le socialisme n'a pas encore pris pied. Nous estimons qu'ailleurs les organisations locales doivent se
@@ -500,9 +482,7 @@ de fondement faisait défaut à ce que vous considérez
 maintenant comme l'essence de votre plainte, que nous n'y
 avons pas touché.
 
-Vous déclarez maintenant: notre plainte visait l'accusa-
-
-tion de Kautsky contre des socialistes qui, signant de leur
+Vous déclarez maintenant: notre plainte visait l'accusation de Kautsky contre des socialistes qui, signant de leur
 nom, écrivent dans des organes non socialistes et « servent
 par des visées et des forces adverses et, en second lieu,
 sa manière de présenter les choses qui laisserait croire que
@@ -574,8 +554,7 @@ présidence de Singer.
 Heinrich Braun, de Berlin. — Je suis homme de
 lettres. C'est pourquoi les discussions entre gens de
 lettres, — et cette histoire de collaboration n'est pas
-autre chose, — me sont odieuses. Nous avions expressé-
-ment demandé au comité directeur de trancher lui-même
+autre chose, — me sont odieuses. Nous avions expressément demandé au comité directeur de trancher lui-même
 cette question sans la rendre publique.
 
 : Car elle est fort compliquée. En fait, il n'est point
@@ -593,8 +572,7 @@ Vous n'avez pas le droit de faire d'exceptions. Mais
 vous pouvez nommer le nom tout court.
 
 Heinrich Braun, continuant. — Le camarade
-Kautsky prétend que les organes en question n'exer-
-çaient pas contre le socialisme une critique haineuse
+Kautsky prétend que les organes en question n'exerçaient pas contre le socialisme une critique haineuse
 et perfide. Mais d'autres camarades ont contesté cette
 appréciation. Cela montre combien ces mots sont
 vagues et élastiques. À quels journaux s'appliquent-ils?
@@ -888,9 +866,7 @@ souffrir cela plus longtemps.
 
 Et quels sont les articles que la presse bourgeoise
 accepte? Ceux qui peuvent causer de l'embarras aux
-socialistes et que les adversaires nous opposent tou-
-
-le congrès de Dresde
+socialistes et que les adversaires nous opposent toule congrès de Dresde
 
 jours. Les écrivains libres se réclament de Liebknecht.
 
@@ -981,9 +957,7 @@ La discussion est remise au lendemain.
 Victor Adler, de Vienne, demande la parole au sujet
 d'un détail relatif à Liebknecht. Si celui-ci a écrit dans
 un journal bourgeois de Vienne, c'est qu'il ignorait au
-juste la tendance de ce journal. Cette erreur de Liebknecht ne saurait être un argument contre l'établisse-
-
-ment d'une règle en cette matière. (2)
+juste la tendance de ce journal. Cette erreur de Liebknecht ne saurait être un argument contre l'établissement d'une règle en cette matière. (2)
 
 Singer donne connaissance de télégrammes de félicitations.
 
@@ -1073,9 +1047,7 @@ la première décision dans le cas douteux. (1)
 
 Zubeil, de Berlin. — Il ne s'agit pas d'une mare
 berlinoise mais d'un symptôme grave dans le parti. IL
-faut agir. Il ne faut surtout à aucun prix adopter la réso-
-
-le congrès de Dresde
+faut agir. Il ne faut surtout à aucun prix adopter la résole congrès de Dresde
 lution de Berlin II. Elle pourrait s'intituler résolution
 Bernhard. Tout dépendrait de l'influence personnelle
 d'un camarade dans une organisation locale.
@@ -1136,9 +1108,7 @@ de faire de la propagande partout, même dans les circonscriptions de Zubeil et 
 Si j'ai protesté contre les reproches qui m'étaient
 adressés au sujet de mon article, c'est qu'ils émanaient
 de Mehring. Personne ne songe à entraver son activité
-dans le parti, quoi qu'en ait dit Kautsky. Mais si quel-
-
-le congrès de Dresde
+dans le parti, quoi qu'en ait dit Kautsky. Mais si quelle congrès de Dresde
 qu'un n'a pas le droit de parler sur la morale, c'est lui.
 Non seulement il a changé deux fois d'opinions, écrit
 des attaques les plus violentes contre la socialdémocratie (Ici des extraits d'articles de Mehring qui
@@ -1175,8 +1145,7 @@ D'ailleurs, qu'appelle-t-on occuper un poste de con-
 1 fiance? Être orateur du parti? Mais alors je fais
 
 remarquer que le camarade Pfannkuch se plaignait de
-la pénurie d'orateurs surtout pendant la période électo-
-rale. De plus
+la pénurie d'orateurs surtout pendant la période électorale. De plus
 
 si l'on jusqu'aux dernières conséquences on ne pourrait pas conseiller aux ouvriers de l'État ou des usines à
 contrôle sévère d'entrer dans le parti /Vives protestations)
@@ -1189,8 +1158,7 @@ m'en rendre responsable et non supposer d'une manière
 - générale que les journalistes le résoudraient au détriment du parti. Et si l'on ne veut pas qu'ils écrivent
 dans la presse bourgeoise, il faut tâcher qu'ils trouvent
 à s'occuper dans la presse socialiste sans craindre d'être
-brusquement renvoyés. Je n'ai jamais refusé de travail-
-ler pour le parti soit dans mon domaine de la politique
+brusquement renvoyés. Je n'ai jamais refusé de travailler pour le parti soit dans mon domaine de la politique
 commerciale, soit par la propagande. (Approbation )(1)
 
 La discussion est suspendue.
@@ -1207,11 +1175,7 @@ Séance de l'après-midi
 Trois heures un quart. Présidence de Singer.
 
 La commission de vérification des mandats signale
-qu'à Mulhouse, par suite d'une division entre les socia-
-
-listes de là-bas, deux mandats ont été donnés. La com-
-
-mission propose d'en annuler un. — Adopté.
+qu'à Mulhouse, par suite d'une division entre les socialistes de là-bas, deux mandats ont été donnés. La commission propose d'en annuler un. — Adopté.
 
 On revient à l'ordre du jour. Une nouvelle résolution,
 
@@ -1220,9 +1184,7 @@ portant le numéro 128, a été déposée.
 Bebel. — Plusieurs orateurs se sont plaints de la
 longueur du débat actuel. De nombreux camarades ont
 éprouvé des sentiments de malaise et de dégoût. Je les
-comprends. Mais ce débat, cette opération étaient né-
-
-cessaires. Il estimpossible que dans un organisme aussi
+comprends. Mais ce débat, cette opération étaient nécessaires. Il estimpossible que dans un organisme aussi
 grand que la social-démocratie allemande, certains
 
 È phénomènes morbides ne se produisent pas. Mais quel
@@ -1231,14 +1193,10 @@ que soit le dégoût que l'on éprouve à porter le bistouri
 dans de semblables abcès, l'opération est indispensable.
 
 ! Et la social-démocratie a sur les autres partis, qui sont
-tous plus atteints qu'elle, l'avantage de faire ces opéra-
-
-tions au grand jour.
+tous plus atteints qu'elle, l'avantage de faire ces opérations au grand jour.
 Si l'on veut dire que la question actuelle est secondaire je répondrai que c'est une erreur. Les nombreuses
 
-4 résolutions présentées prouvent que tout le parti la con-
-
-sidère comme importante. L'article de Bernhard n'a
+4 résolutions présentées prouvent que tout le parti la considère comme importante. L'article de Bernhard n'a
 fait que fournir l'occasion de réagir contre un état de
 choses ancien et intolérable. Ce fut l'opinion du comité.
 De sa déclaration.
@@ -1329,8 +1287,7 @@ en ce sens l'un des plus brillants sinon le plus brillant
 parce que ces attaques devaient donner l'impression
 qu'elles contenaient beaucoup de vrai.
 
-Puis vint la loi contre les socialistes avec tous ses terribles effets. Aujourd'hui encore, après que toutes les per-
-sécutions ont passé sans m'avoir nui, lorsque ma pensée
+Puis vint la loi contre les socialistes avec tous ses terribles effets. Aujourd'hui encore, après que toutes les persécutions ont passé sans m'avoir nui, lorsque ma pensée
 se reporte à ce petit état de siège, lorsque je me représente
 comment nous reçümes l'ordre de nous rendre au bureau
 de police, comment nous fùmes, tels des criminels, mis sous
@@ -1344,8 +1301,7 @@ jour où je pourrais dire à ceux qui vivent encore: mainte-
 Puis vint la victoire de 1881 malgré la loi. Ce fut sa
 
 mort sinon effective, — elle dura encore neuf ans, — du
-moins pratiquement. Elle fut moins sévèrement appli-
-quée. À ce moment parurent dans la Weserzeitung des
+moins pratiquement. Elle fut moins sévèrement appliquée. À ce moment parurent dans la Weserzeitung des
 correspondances de Berlin. On y parlait avec compé-
 a tence de la social-démocratie et on la défendait contre
 à les menées policières. De qui étaient ces articles? De
@@ -1358,15 +1314,11 @@ proposa de me mettre à nouveau en relations avec Mehring, et d'inviter celui-ci
 faire ensemble à la suite d'un pari. Il prétend maintete nant qu'à cette époque il ne connaissait pas le passé
 de Mehring.
 
-; Non, Heinrich Braun, vous l'avez connu, vous connais-
-
-siez ses articles, vous connaissiez sa brochure. Vous saviez
+; Non, Heinrich Braun, vous l'avez connu, vous connaissiez ses articles, vous connaissiez sa brochure. Vous saviez
 
 è très exactement ce que cet homme avait fait, et c'est un
 honneur pour vous, — je vous en tiens un très grand compte,
-— de l'avoir malgré cela amené à nous. Comment pouviez-
-
-vous vous permettre d'inviter Mehring au dîner, sans
+— de l'avoir malgré cela amené à nous. Comment pouviezvous vous permettre d'inviter Mehring au dîner, sans
 vous être assuré qu'il était prêt à y venir! {Très juste!)
 y Comment pouviez-vous venir me poser cette question?
 de J'affirme sous serment ce que j'ai dit ici. Je laisse à vous
@@ -1386,11 +1338,8 @@ Neue Zeit. Et l'on ne peut guère reprocher qu'une
 chose à sa collaboration: les attaques personnelles,
 même contre des amis de la veille, auxquelles il a le
 tort de se laisser entrainer par la passion.
-Après la chute de la loi sur les socialistes, je propo-
-sai à Dietz d'écrire une histoire du parti. Mais après
-deux années de travail, je m'aperçus que mes occupa-
-tions ne me permettraient pas d'arriver au bout. J'ac-
-ceptai avec empressement l'offre que fit Mehring
+Après la chute de la loi sur les socialistes, je proposai à Dietz d'écrire une histoire du parti. Mais après
+deux années de travail, je m'aperçus que mes occupations ne me permettraient pas d'arriver au bout. J'acceptai avec empressement l'offre que fit Mehring
 d'écrire cette histoire. Il l'a écrite. C'est une œuvre
 admirable, à qui on ne peut reprocher aussi que des
 attaques d'animosité personnelle contre certains individus, et une fausse appréciation du rôle de Schweizer. )
@@ -1482,8 +1431,7 @@ moment historique pour le parti, pendant ce combat qui a
 rapporté au parti plus d'honneur et de dignité qu'aucun
 À autre auparavant, il y a parmi nous des traînards qui
 attaquent le parti par derrière en soutenant une telle
-feuille de leur collaboration, en lui donnani de la considé-
-ration morale, afin qu'elle pût continuer à combattre et
+feuille de leur collaboration, en lui donnani de la considération morale, afin qu'elle pût continuer à combattre et
 salir le parti. /Cris: Fi!) Une telle conduite ne mérite à
 mon sentiment qu'un vigoureux fi! /Approbations enthousiastes. Applaudissements et sifflets) Je suis depuis plus de
 quatre décades dans la lutte politique; je n'ai pas toujours
@@ -1515,8 +1463,7 @@ masses d'où je suis sorti.
 Et mon expérience me permet de vous dire: éprouvez bien tout camarade nouveau, mais éprouvez deux
 et trois fois les intellectuels. Il ne faut pas les repousser: nous avons besoin de leur intelligence et de leur
 savoir. Mais précisément parce qu'ils sont intellectuels,
-leur premier devoir est de s'informer auprès des prolé-
-taires comment pensent les masses qui savent mieux
+leur premier devoir est de s'informer auprès des prolétaires comment pensent les masses qui savent mieux
 qu'eux de quoi il s'agit dans la lutte du prolétariat.
 
 C'est donc une grave question que vous débattez.
@@ -1525,8 +1472,7 @@ Je vous en prie, je vous en prie à genoux, ne prononcez
 pas un jugement hâtif, mais demandez-vous d'abord comment il se fait qu'une chose semblable ait arriver, comment il se fait que tout d'un coup, avec une violence de
 forces élémentaires, que le parti n'avait pas connue, non
 pas sur un signal venu d'en haut, mais de bas en haut, la
-colère et l'indignation se soient fait jour. Dans la misé-
-rable question de la vice-présidence, la colère et l'indignation sont montées depuis les masses jusqu'en haut; Vive
+colère et l'indignation se soient fait jour. Dans la misérable question de la vice-présidence, la colère et l'indignation sont montées depuis les masses jusqu'en haut; Vive
 approbation) les masses se sont dit: nous avons livré un
 combat si glorieux, nous sommes devenus plus puissants
 que jamais, des temps difficiles, très difficiles, nous at-
@@ -1623,8 +1569,7 @@ encore parlé du tout sur cette question!) Déjà dans mon
 article j'ai exposé que cela ne serait plus du socialisme
 mais de l'anarchie. Vive approbation) Cessons alors d'être
 un parti. Pas d'unité dans le parti, mais de l'union, dit
-Heine. Non, union et unité! Sans union pas d'unité! /Appro-
-bations enthousiastes) Sans unité des principes et des confl victions, sans unité de but, pas d'union, pas d'enthousiasme
+Heine. Non, union et unité! Sans union pas d'unité! /Approbations enthousiastes) Sans unité des principes et des confl victions, sans unité de but, pas d'union, pas d'enthousiasme
 à pour le combat. /Très bien!) Aucune possibilité de mettre
 en ligne, de mener au combat les régiments, brigades et
 corps d'armée, de remporter des victoires, comme nous en
@@ -1657,8 +1602,7 @@ La séance est ouverte à neuf heures un quart. Présidence de Singer.
 . Ledebour, de Berlin. — Il me semble qu'on ne peut
 plus apporter d'éclaircissements à cette affaire. Seuls
 ceux qui ont été attaqués personnellement ont encore
-besoin de parler. Je prie tous les autres orateurs de re-
-noncer comme moi à la parole.
+besoin de parler. Je prie tous les autres orateurs de renoncer comme moi à la parole.
 Werner, de Berlin IT, renonce à la parole.
 Heine, de Berlin.— Bien que n'étant pas directement
 attaqué j'ai été mêlé au débat. Je vous prie de m'ac-
@@ -1671,14 +1615,12 @@ nos adversaires. Le congrès d'Erfurt a décidé que
 lorsqu'on accusait un camarade d'une incorrection on
 devait prouver ou rétracter. J'attends que Hoffmann
 fasse l'un ou l'autre.
-J'arrive à la question elle-même. On a parlé de la lon-
-gueur des débats. Les uns ont dit qu'ils étaient inutiles,
+J'arrive à la question elle-même. On a parlé de la longueur des débats. Les uns ont dit qu'ils étaient inutiles,
 d'autres, comme Bebel, très graves. Je suis de son avis.:
 
 Ù le congrès de Dresde
 Mais si on l'avait laissé parler le premier, les douze
-quinze orateurs précédents eussent été inutiles. Je dé-
-clare que je voterai contre la résolution du comité
+quinze orateurs précédents eussent été inutiles. Je déclare que je voterai contre la résolution du comité
 
 parce qu'elle est insuffisante. Je suis loin d'approuver
 ni la collaboration à des journaux bourgeois, ni l'article
@@ -1775,9 +1717,7 @@ leur honneur aurait les retenir, {Vive approbation) non
 
 seulement leur honneur de parti, mais leur honneur
 
-Très bien!) Ils se sont consciemment fait payer par mon-
-
-sieur Harden, ils sont des irréguliers du parti, sur eux!
+Très bien!) Ils se sont consciemment fait payer par monsieur Harden, ils sont des irréguliers du parti, sur eux!
 
 {De nombreuses voix: Très juste! Très bien Je précise les
 choses. Et c'est de cela qu'il s'agit pour moi. Par ces
@@ -1800,9 +1740,7 @@ Singer. — Je prie à nouveau de cesser les interruptions qui entravent les dé
 À 1890 et depuis je n'ai cessé de défendre les intérêts
 
 ? prolétariens. J'ai travaillé trois mois dans une usine.
-J'avais l'intention de rester ouvrier. Lorsque je rede-
-
-mandai une place de pasteur le consistoire saxon me
+J'avais l'intention de rester ouvrier. Lorsque je redemandai une place de pasteur le consistoire saxon me
 
 4: la refusa indirectement à cause de ma brochure: Trois
 
@@ -1839,8 +1777,7 @@ risque d'être soupçonné de me vanter, dans cet instant c'est,
 à mon devoir de le dire, — à ma manière j'ai fait moi aussi
 des sacrifices. J'ai perdu ma profession et mon traitement,
 j'ai perdu ma situation sociale, j'ai perdu en partie ma
-famille, mais jusqu'à hier je n'avais pas perdu mon hon-
-neur. {Approbation} Il était réservé au camarade Auguste
+famille, mais jusqu'à hier je n'avais pas perdu mon honneur. {Approbation} Il était réservé au camarade Auguste
 Bebel de le traîner dans la boue aux yeux de tous.
 
 le congrès de Dresde
@@ -1849,8 +1786,7 @@ la Zukunft depuis quatre ans que je suis socialiste. Et
 de quoi traitaient ces articles? Deux d'entre eux traitaient des questions religieuses. « La religion est chose
 privée dit notre programme. Aussi n'ai-je jamais,
 quoi qu'on en ait dit, fait de propagande religieuse dans
-le parti. J'ai toujours combattu l'Église, qui ne repré-
-sente pas vraiment la religion, mais n'est qu'un phénomène de l'État de classe. Mais j'ai le droit, d'après le
+le parti. J'ai toujours combattu l'Église, qui ne représente pas vraiment la religion, mais n'est qu'un phénomène de l'État de classe. Mais j'ai le droit, d'après le
 programme même, de soutenir mes idées religieuses.
 Ne pouvant le faire dans la presse du parti, j'ai cherché
 au dehors un organe et n'en ai point trouvé de meilleur
@@ -1869,8 +1805,7 @@ que mon discours de Chemnitz répandu à 500.000 exemplaires. Et voyant que Hard
 me suis dit: Voilà une tribune dont je pourrai me servir, d'autant plus que dans la Zukunft je ne suis responsable que de ce que je signe.
 Est-ce un crime? Hier on a estampillé cela un crime. Sans
 doute, chez Mehring, tout est une énigme psychologique!
-{Très bien!) Et chez Liebknecht, que je vénère profondé-
-ment, une telle collaboration était une bêtise qui n'était
+{Très bien!) Et chez Liebknecht, que je vénère profondément, une telle collaboration était une bêtise qui n'était
 
 que pour être faite. Chez nous c'est un crime! /Bebel: Très
 juste!) Le camarade Bebel dit: très juste. /Bebel: Parfaitement, très juste!)
@@ -1907,8 +1842,7 @@ Et je serais vraiment dénué d'honneur, je n'aurais pas la
 moindre parcelle de sentiment démocratique, si, camarade
 
 4 le congrès de Dresde A
-Bebel, je ne ripostais pas à cette attaque contre mon hon-
-neur, si je ne disais pas: même un chef de parti, qui salit
+Bebel, je ne ripostais pas à cette attaque contre mon honneur, si je ne disais pas: même un chef de parti, qui salit
 l'honneur d'un homme irréprochable jusqu'aujourd'hui,
 afin de couvrir un ami, dont l'honneur est aux yeux de
 beaucoup chiffonné depuis longtemps, même ce chef de
@@ -1919,14 +1853,11 @@ comment il envisage la question. Les intellectuels ont
 fait une excellente réclame à Harden. Goehre prétend
 n'avoir jamais fait de propagande religieuse. Cependant,
 à une fête syndicale, il a dit aux ouvriers de ne pas se
-laisser enlever leur Sauveur. C'est Auer qui couvre tou-
-jours les intellectuels. La collaboration à un organe
+laisser enlever leur Sauveur. C'est Auer qui couvre toujours les intellectuels. La collaboration à un organe
 bourgeois ne peut se comparer à un discours dans une
 réunion adverse. L'argument de la restriction à la
-liberté de pensée est une hypocrisie. Ce congrès aug-
-mentera notre dégoût des intellectuels.
-Docteur Heinrich Braun. — Après les innom-
-brables attaques dirigées contre moi, il faut que je
+liberté de pensée est une hypocrisie. Ce congrès augmentera notre dégoût des intellectuels.
+Docteur Heinrich Braun. — Après les innombrables attaques dirigées contre moi, il faut que je
 1 reprenne la parole. Je puis parler en toute franchise de
 la Zukunft puisque, malgré des invitations répétées, je
 n'y ai jamais publié une ligne. Ma femme était décidée
@@ -1954,12 +1885,9 @@ d'abord que je ne suis pas responsable de ce débat. Je
 
 parce que j'avais été à maintes reprises provoqué.
 
-Bebel m'a reproché de n'avoir pas dit la vérité. Il pré-
+Bebel m'a reproché de n'avoir pas dit la vérité. Il prétend que je connaissais bien Mehring lorsque je l'ai
 
-tend que je connaissais bien Mehring lorsque je l'ai
-
-Je n'ai jamais prétendu que ceci: Je connaissais assuré-
-ment le passé de ce Franz Mehring, mais je ne connaissais
+Je n'ai jamais prétendu que ceci: Je connaissais assurément le passé de ce Franz Mehring, mais je ne connaissais
 pas son passé tout entier; car, si je l'avais exactement
 connu, je n'aurais jamais tendu la main pour tirer Mehring
 de la boue.
@@ -1974,9 +1902,7 @@ Si Kautsky veut se souvenir et communiquer sincèrement ses souvenirs. /Violente
 Insinuation) Camarade Stadthagen, vous n'avez pas besoin:
 de vous faire l'avocat de Kautsky. /Cris: Vraiment? —
 
-Kautsky et d'autres: C'est honteux! — Cri: Faiseur de scan-
-
-dale!) C'est honteux pour toi, Kautsky. /Grande agitation.
+Kautsky et d'autres: C'est honteux! — Cri: Faiseur de scandale!) C'est honteux pour toi, Kautsky. /Grande agitation.
 
 — Cloche du président)
 Singer. — Je prie de cesser les dialogues.
@@ -2034,7 +1960,7 @@ Krueger, de Dresde, parle pour la clôture. Sans
 doute la question est importante. Mais les camarades
 attendent qu'on étudie aussi les autres résolutions.
 
-Katzenstein parle contre la clôture. Sans doute on a;
+Katzenstein parle contre la clôture. Sans doute on
 perdu du temps, mais il faut cependant discuter maintenant la véritable question qui touche à l'existence
 matérielle de tant de camarades.
 
@@ -2075,16 +2001,13 @@ le parti, j'allais dire le prostitue! /Grande agitation) Aussi
 
 je déclare que je suspends ma collaboration à la Neue Zeitet
 
-à la Leipziger Volkszeitung (Bravo) jusqu'à ce que les auto-
-
-rités compétentes du parti qui ont entendu les attaques
+à la Leipziger Volkszeitung (Bravo) jusqu'à ce que les autorités compétentes du parti qui ont entendu les attaques
 dirigées contre moi et peuvent les examiner, m'invitent à
 È la reprendre. Vive approbation) (1)
 
 Boemelburg proteste contre la permission accordée
 
-à Mehring de parler après la clôture. Il aurait appor-
-ter des faits nouveaux dans le débat. Singer lui répond
+à Mehring de parler après la clôture. Il aurait apporter des faits nouveaux dans le débat. Singer lui répond
 qu'il y avait lieu de présenter ces observations plus tôt.
 Suit une série d'observations pour faits personnels:
 
@@ -2131,9 +2054,7 @@ paraître cette déclaration avec commentaires dans la;
 Leipziger Volkszeitung, tout en laissant à Eisner le
 temps de réfléchir. Il continua à garder sa façon de
 
-voir et moi la mienne. La commission de la presse s'oc-
-
-cupa de l'affaire et me donna raison. La rédaction pu-;
+voir et moi la mienne. La commission de la presse s'occupa de l'affaire et me donna raison. La rédaction pu-;
 blia ma déclaration en la faisant précéder de quelques
 mots. Je ne pouvais rien demander de plus. L'affaire
 
@@ -2159,8 +2080,7 @@ déjà les résultats généraux des élections du 16 et pouvoir prendre une dé
 libéral. Il fallait choisir entre la décision du congrès et
 l'intérêt du parti. Nous ne pouvions rien ouvertement
 contre la décision. Mais nous fimes avertir officieusement les camarades de voter pour le libéral. les
-électeurs de Marbourg furent mal informés. Le secré-
-taire du parti Pfannkuch leur écrivit qu'en vertu de la
+électeurs de Marbourg furent mal informés. Le secrétaire du parti Pfannkuch leur écrivit qu'en vertu de la
 décision de Munich ils avaient le droit de s'abstenir.
 En même temps Heine télégraphiait au candidat libéral,
 avec qui il était lié, la décision du comité. Celle-ci fut
@@ -2196,9 +2116,7 @@ point. La rédaction a simplement des torts à mon
 Eisner. — Je ne veux point m'étendre sur cette
 
 petite histoire de rédaction. Il y aurait sans doute
-beaucoup à dire. Je ne suis pas encore tout à fait con-
-
-verti à l'opinion de Bebel. Cependant j'ai d'autant
+beaucoup à dire. Je ne suis pas encore tout à fait converti à l'opinion de Bebel. Cependant j'ai d'autant
 
 À moins de raisons de parler que les camarades dans le
 
@@ -2208,9 +2126,7 @@ Auer. — Puisque mon nom a été prononcé, il faut
 
 ( que je dise quelques mots. D'abord je fais remarquer
 
-À que personnellement je n'ai aucune action dans l'af-
-
-faire de Marbourg. Cette affaire prouve à nouveau que
+À que personnellement je n'ai aucune action dans l'affaire de Marbourg. Cette affaire prouve à nouveau que
 
 nous devons être très prudents dans nos votes sur la
 
@@ -2218,15 +2134,11 @@ tactique du parti qui engagent l'avenir. (Nombreux:
 
 2 très juste)
 
-à Quant à la note de Bebel, il m'a paru qu'elle conte-
-
-nait trop d'animosité personnelle pour être publiée
+à Quant à la note de Bebel, il m'a paru qu'elle contenait trop d'animosité personnelle pour être publiée
 
 4 huit jours avant le congrès actuel. Je crois d'ailleurs
 
-dE que si j'avais causer cinq minutes avec Bebel, l'af-
-
-faire eût été arrangée. En tout cas j'ai cru agir dans
+dE que si j'avais causer cinq minutes avec Bebel, l'affaire eût été arrangée. En tout cas j'ai cru agir dans
 
 À l'intérêt du parti et c'était mon devoir. (Approbation)
 
@@ -2236,9 +2148,7 @@ d'autres notes et l'on venait justement de refuser un
 article de Bernstein. Aussi avons-nous cru pouvoir
 refuser la note de Bebel.
 
-Dans l'affaire de Marbourg, c'est nous qui avions con-
-
-seillé à Eisner de prendre cette attitude. Il ne pouvait
+Dans l'affaire de Marbourg, c'est nous qui avions conseillé à Eisner de prendre cette attitude. Il ne pouvait
 ensuite se démentir lui-même dans son journal. Nous
 lui avons donné raison.
 Heine. — Je ne parlerai point de l'affaire de Marbourg, qui relève de la tactique. Quelques mots seulement sur les paroles que j'aurais dites sur Bebel. Je
@@ -2313,8 +2223,7 @@ choisi. Nous répondimes que si une circonscription le
 choisissait, il devait être porté comme candidat. Nous
 ne pûmes nous entendre.
 
-Le comité directeur rédigea un procès-verbal qu'il soumit aux intéressés. Nous demandâmes au comité polo-
-nais de déclarer s'il voulait continuer les négociations.
+Le comité directeur rédigea un procès-verbal qu'il soumit aux intéressés. Nous demandâmes au comité polonais de déclarer s'il voulait continuer les négociations.
 
 Elles continuèrent en s'appuyant sur une erreur qui
 s'était glissée dans le procès-verbal. Les Polonais
@@ -2335,8 +2244,7 @@ firent remarquer que même si les Polonais se ralliaient
 au programme d'Erfurt, ils avaient voté des résolutions
 concernant des questions tout à fait étrangères à ce
 parti, comme la restauration de l'État polonais par
-exemple. Afin de les apaiser, je leur envoyai une cir-
-culaire non destinée à la publicité où je disais: Si les
+exemple. Afin de les apaiser, je leur envoyai une circulaire non destinée à la publicité où je disais: Si les
 Polonais acceptent le programme d'Erfurt, il est évident
 qu'ils ne pourront en avoir un autre à côté. (Très juste!)
 Dans cette circulaire, les camarades polonais virent un
@@ -2363,28 +2271,21 @@ Haenisch, de Dortmund. — Il ne peut être question
 de longs débats sur la question polonaise. Les faits
 exposés ont fait sur moi une impression pénible, en;
 particulier le second procès-verbal que l'on voulait faire à
-signer aux Polonais. On demandait aux délégués polo-
-nais de déclarer qu'ils n'ont point de programme parti-;
+signer aux Polonais. On demandait aux délégués polonais de déclarer qu'ils n'ont point de programme parti-;
 culier réclamant l'indépendance de la Pologne. Mais
-cela est compris dans le programme d'Erfurt. Il s'agis-
-
-sait seulement de savoir si les socialistes polonais font;
+cela est compris dans le programme d'Erfurt. Il s'agissait seulement de savoir si les socialistes polonais font;
 du chauvinisme. Autant que j'en puis juger: non. Je
 m'en tiens donc au point de vue de Kautsky, Marx,
 Engels, Liebknecht: les Polonais ne doivent pas douter
-que nous tenons leurs revendications pour aussi légi-
-times que celles de tout autre peuple. (Approbation)
+que nous tenons leurs revendications pour aussi légitimes que celles de tout autre peuple. (Approbation)
 
 Katzenstein. — Je veux présenter simplement deux
 observations. Dans l'affaire du second protocole il me
-semble que le comité directeur n'a pas agi conformé-
-ment aux principes du parti. De même que nous laissons
+semble que le comité directeur n'a pas agi conformément aux principes du parti. De même que nous laissons
 aux organisations locales le soin de régler les affaires;
 locales, de même nous devions respecter les efforts des
 Polonais vers l'indépendance nationale. Nous ne devions
-pas plus les désapprouver de vouloir secouer le joug prus-
-sien que nous ne désapprouvons les Arméniens de vou-
-loir secouer le joug turc.:
+pas plus les désapprouver de vouloir secouer le joug prussien que nous ne désapprouvons les Arméniens de vouloir secouer le joug turc.:
 Pour la question des langues, je ne comprends pas
 comment elle a être posée. Si nos députés doivent
 être les hommes de confianee des électeurs, ne faut-il;
@@ -2413,8 +2314,7 @@ mots « pour l'indépendance de l'État polonais » par
 « pour la restauration de la Pologne ». C'était encore
 
 D'ailleurs, comment se fait-il que le comité directeur
-prenne conseil de la camarade Luxembourg? On pré-
-tend qu'elle représente la majorité des camarades polonais. C'est inexact. Elle n'a derrière elle qu'un faible
+prenne conseil de la camarade Luxembourg? On prétend qu'elle représente la majorité des camarades polonais. C'est inexact. Elle n'a derrière elle qu'un faible
 groupe dont le journal la Gazetta Ludowa est l'organe.
 
 ce journal compte 37 abonnés payants. Il recevait
@@ -2455,7 +2355,7 @@ rapporter à quelques individus dont il s'est fait le pro-
 Je propose la résolution suivante: « Le congrès,
 approuvant la conduite du comité directeur dans les
 négociations avec l'organisation polonaise, passe à
-l'ordre du jour. »; à
+l'ordre du jour. à
 Ledebour.— Je propose que la camarade Luxem-;
 bourg parle encore dix minutes pour s'expliquer sur les
 37 abonnés de la Gazetta Ludowa. (Très bien! — Hila-;
@@ -2517,31 +2417,24 @@ Il est évident pour tous que toute la iégislation et l'administration prouvent
 l'Etat.
 
 S'il m'est permis de parler de la session prochaine,
-je voudrais avant tout mettre en garde contre la con-
-
-le congrès de Dresde
-fiance exagérée dans le parlementarisme que mani-
-festent certaines résolutions. L'essentiel pour nous doit;
+je voudrais avant tout mettre en garde contre la conle congrès de Dresde
+fiance exagérée dans le parlementarisme que manifestent certaines résolutions. L'essentiel pour nous doit;
 être de révolutionner les esprits.
 Le prochaïn Reichstag devra tout d'abord s'occuper
 des nouveaux traités de commerce. Il sera impossible
 de les conclure aux conditions posées par le nouveau
 tarif. Ce tarif est une menace inouïe pour le pays. À
-au De même les projets de lois sur les questions ou-
-vrières, sur le droit de coalition, sur la journée de
+au De même les projets de lois sur les questions ouvrières, sur le droit de coalition, sur la journée de
 où huit heures. Nous ferons notre devoir comme par le;
 passé. Mais je ne crois pas juste de prescrire au groupe
 de commencer par telle ou telle question. Je prie donc
 de rejeter les motions qui à ce point de vue sont
 La motion 60 est superflue. Il vaudrait mieux la
-retirer. La motion 70 demande au groupe de dépo-
-ser un projet de loi sur le droit de coalition. C'est déjà:
-fait. Il eût mieux valu nous indiquer ce qu'on repro-
-chaïit à notre conduite sur ce point.— Le groupe eût fait
+retirer. La motion 70 demande au groupe de déposer un projet de loi sur le droit de coalition. C'est déjà:
+fait. Il eût mieux valu nous indiquer ce qu'on reprochaïit à notre conduite sur ce point.— Le groupe eût fait
 ce que demande la motion 71 sans qu'il fût besoin.
 de le lui rappeler.
-Je regrette que la motion 72 ait réuni assez de signatures. Je ne comprends pas pourquoi nous deman-
-derions le service d'un an. Nous demandons une armée
+Je regrette que la motion 72 ait réuni assez de signatures. Je ne comprends pas pourquoi nous demanderions le service d'un an. Nous demandons une armée
 de milices afin d'éviter les mauvais traitements qui sont à
 la conséquence de l'armée envisagée comme protectrice
 des injustices sociales. Il est si naturel de demander la
@@ -2553,8 +2446,7 @@ Les résolutions touchant le mode de vote sont bien
 jolies. Mais ne croyez pas que le groupe ait le pouvoir À
 de les faire adopter, surtout la motion
 
-De même les autres motions touchant les lois d'as-
-surance, les revendications féministes, la protection des
+De même les autres motions touchant les lois d'assurance, les revendications féministes, la protection des
 enfants. Toutes ces questions figurent dans notre pro-.
 gramme. Mais ne vous laissez pas aller à l'illusion que
 nous pourrons réaliser nos désirs.
@@ -2609,11 +2501,8 @@ sur les résolutions 72, 85 bis et
 La résolution 100 est retirée. (1)
 Le congrès international d'Amsterdam en 1904
 Le rapporteur Singer. — Je ne crois pas qu'il soit
-nécessaire de m'étendre longuement sur le sens et l'uti-
-lité d'un congrès international. Je remercie les délégués
-étrangers qui, par considération des élections alle-
-
-mandes, ont retardé d'un an le congrès fixé d'abord à
+nécessaire de m'étendre longuement sur le sens et l'utilité d'un congrès international. Je remercie les délégués
+étrangers qui, par considération des élections allemandes, ont retardé d'un an le congrès fixé d'abord à
 
 Le bureau international nous a envoyé récemment un
 ordre du jour provisoire. Il a été publié par notre presse.
@@ -2639,8 +2528,7 @@ lutter pour l'extension du droit de suffrage, il soit tenu
 compte du droit de suffrage pour les femmes.
 
 Mais nous n'approuvons pas la motion 4 bis demandant que cette question figure à l'ordre du jour du
-congrès comme article spécial. Car, en dépit de certaines féministes, nous ne voulons pas demander spé-
-cialement le droit de vote pour les femmes. Nous le
+congrès comme article spécial. Car, en dépit de certaines féministes, nous ne voulons pas demander spécialement le droit de vote pour les femmes. Nous le
 demandons comme l'une des nombreuses réformes que
 le prolétariat doit obtenir en matière de suffrage.
 
@@ -2648,8 +2536,7 @@ Je vous prie d'adopter la motion 4 et de repousser la
 
 ! le congrès de Dresde “4
 Molkenbuhr. — Camarades! cette question des as- À
-surances ouvrières mérite d'être étudiée par le proléta-
-riat international, car elle apparaît dans un pays ou
+surances ouvrières mérite d'être étudiée par le prolétariat international, car elle apparaît dans un pays ou
 dans un autre et elle y est traitée de façon confuse.
 Cela s'applique surtout à la France et au projet d'assu- À
 rance contre la vieillesse et les accidents émanant de Mille-
@@ -2703,11 +2590,9 @@ Singer. — La résolution suivante a été présentée:
 « Le congrès exprime à l'unanimité toute sa reconnais- à
 sance, son approbation et tous ses remerciements au à
 groupe pour les mesures prises au Reichstag en vue de
-repousser les tarifs usuraires, en particulier par l'em-
-ploi énergique de l'obstruction. » Je propose de l'exa-;
+repousser les tarifs usuraires, en particulier par l'emploi énergique de l'obstruction. » Je propose de l'exa-;
 Personne n'élève de protestation, — ne demande la parole.
-— Je puis donc considérer que le congrès a adopté cette ré-
-solution. /Bebel: Adopté à l'unanimité, sans quoi je demande
+— Je puis donc considérer que le congrès a adopté cette résolution. /Bebel: Adopté à l'unanimité, sans quoi je demande
 le vote.) IL n'y a point d'opposition et je constate que le!
 congrès a adopté à l'unanimité. /Bravo!}
 IV. — La tactique du parti
@@ -2779,19 +2664,14 @@ riale. Que certains de nos camarades ne l'oublient pas,
 qui prétendaient que l'on pourrait susciter dans les
 divers États et surtout en Bavière une vive opposition
 
-; Et quelle est la situation des finances? On n'a équi-
-librer le budget de cette année que grâce à un emprunt
+; Et quelle est la situation des finances? On n'a équilibrer le budget de cette année que grâce à un emprunt
 de 72 millions de marks, emprunt qui par sa nature
-même est un viol de la constitution. Le budget précé-
-
-dent s'est soldé par un déficit de 30 millions de marks.
+même est un viol de la constitution. Le budget précédent s'est soldé par un déficit de 30 millions de marks.
 Les divers États devront payer.
 
 J'ai appris que, tandis que l'Empire payait autrefois
 
-"hr comptant, aujourd'hui il n'en est plus de même. /Sensa-
-
-tion) L'empire ne peut souvent plus payer immédiatement,
+"hr comptant, aujourd'hui il n'en est plus de même. /Sensation) L'empire ne peut souvent plus payer immédiatement,
 
 44 les caisses sont vides.
 
@@ -2826,7 +2706,7 @@ notre tactique? Un parti a toujours le droit de changer
 sa tactique, à condition cependant de ne jamais se
 
 le congrès de Dresde
-mettre en contradiction avec ses principes. On peut à;
+mettre en contradiction avec ses principes. On peut
 discuter pour savoir si jusqu'à présent nous avons été
 en contradiction avec nos principes. Seuls le parti lui- à
 même et les succès peuvent décider. le succès a été
@@ -2856,9 +2736,7 @@ Enfin l'activité législative est telle dans tous les Parlements, qu'on ne peut
 s'apercevoir qu'elle a déjà besoin d'être modifiée. (Très
 Juste!) Cela vient de ce que les divergences entre les
 classes sociales se sont aggravées. On ne fait plus que
-des demi-lois parce qu'on ne peut plus en faire de com-
-
-plètes. Cela ne veut pas dire que nous devions nous;
+des demi-lois parce qu'on ne peut plus en faire de complètes. Cela ne veut pas dire que nous devions nous;
 désintéresser de la lutte. J'aime beaucoup trop la lutte
 moi-même pour m'y résoudre, même si cette pensée me
 venait par instants. Mais il ne faut pas nous faire
@@ -2893,7 +2771,7 @@ donne une direction au groupe, il faut que le groupe s'y
 Il ne faut pas que rien se produise qui puisse donner à
 nos adversaires la moindre possibilité de dire: voilà donc
 
-93 «; le congrès de Dresde
+93 le congrès de Dresde
 les résultats de cette puissante victoire; il en de la social-;
 ; démocratie comme de tous les partis bourgeois; lorsqu'ils “.
 ont atteint une certaine hauteur, ils tombent, abandonnent
@@ -2914,24 +2792,21 @@ pas ce que j'ai voulu dire, mais je n'étais pas en état de
 m'exprimer clairement; je regrette d'avoir fait cela. Je à
 donne ma parole que je n'y reviendrai plus. » Et en juges
 bienveillants nous avons dire: « Si tu as fait une chose
-dont tu ne prévoyais pas l'importance, il faut te pardonner. » Puis vient Goehre avec l'article de la Zukunft, —!
+dont tu ne prévoyais pas l'importance, il faut te pardonner. » Puis vient Goehre avec l'article de la Zukunft,
 qu'il n'avait pas lu! Ne nous abusons pas. On dira de
 nouveau qu'on ne s'est pas exprimé clairement, qu'on n'a:
 pas voulu dire ce que d'après le sens logique des mots on
 devait faire entendre. Et finalement il arrivera ce qu'on a
-à Hanovre et ailleurs: après plusieurs jours de discus-
-sion on a adopté une résolution, mais dans la suite on est
+à Hanovre et ailleurs: après plusieurs jours de discussion on a adopté une résolution, mais dans la suite on est
 resté aussi divisé qu'auparavant. /Approbation) Qu'on ne
 vienne pas parler d'union et d'unité dans le parti. Hier déjà
 Braun a pincé cette corde en prétendant que nous étions
 unis dans le parti. Cela n'est pas vrai, je le conteste de la
 façon la plus formelle; jamais et à aucune époque nous?
 n'avons été plus divisés que maintenant, jamais et à aucune À
-époque les différences n'ont été plus grandes que mainte-
-nant! /De nombreuses voix: Très juste!) Essayez d'arranger À
+époque les différences n'ont été plus grandes que maintenant! /De nombreuses voix: Très juste!) Essayez d'arranger À
 la chose ou passez par dessus avec de bonnes paroles, À
-pour mon compte j'en ai cordialement assez! Vive appro-
-bation et applaudissements).…. À
+pour mon compte j'en ai cordialement assez! Vive approbation et applaudissements).…. À
 
 La base de tout le mouvement revisionniste est, comme
 on sait, la brochure de Bernstein, qui pour son bonheur
@@ -2962,8 +2837,7 @@ nombre, ce qu'on avait fait jusqu'alors, oui, de choisir ce à
 moment pour soulever la question de la vice-présidence
 (Rires et approbation) et de déclarer que même la visite à
 la cour ne devait pas nous gêner! Et cela dans un moment à
-où les discours de Breslau et Essen /Approbations enthou-
-siastes et prolongées) brülaient encore le visage de tous les
+où les discours de Breslau et Essen /Approbations enthousiastes et prolongées) brülaient encore le visage de tous les
 socialistes, comme s'ils avaient reçu un soufflet de la pire à
 espèce! {Approbation enthousiaste) Cela dans un moment
 où apparaît de plus en plus à tous ceux qui peuvent
@@ -2972,8 +2846,7 @@ est obligé de se dire: nous avons affaire à un représentant
 (1) En français dans le texte.
 
 le congrès de Dresde
-de la classe dominante qui a annoncé souvent: en dernier « ressort, l'armée est pour marcher contre l'ennemi inté-
-rieur! /Nouvelles et vives approbations) Bernstein croit-il:
+de la classe dominante qui a annoncé souvent: en dernier « ressort, l'armée est pour marcher contre l'ennemi intérieur! /Nouvelles et vives approbations) Bernstein croit-il:
 que tout cela soit effacé des cervelles prolétariennes? Vive
 approbation) Croit-il que l'un de nous doute que la puissance
 énorme dont cet homme est le chef sur terre et sur mer
@@ -2983,8 +2856,7 @@ un jour: si l'on vous en donne l'ordre, vous devez tirer sur.
 votre père et votre mère! Celui qui ne voit pas cela, celui
 qui ne sait pas cela doit cesser de jouer au politicien! )
 {Approbations enthousiastes et prolongées)
-Bernstein avait déjà beaucoup baissé dans ma considé-
-ration, et autant que je pouvais l'observer de mon obser-.
+Bernstein avait déjà beaucoup baissé dans ma considération, et autant que je pouvais l'observer de mon obser-.
 vatoire de Kuessnacht /Grande hilarité) une grande partie À
 de la presse a aussi jugé inutile de faire grande défense
 contre lui. J'étais indigné que ce grand moment fût troublé
@@ -2993,14 +2865,12 @@ par cette maladroïte intervention. Mais il est une chose que
 partie de la presse, même par la partie qui d'ordinaire ne
 prend pas position contre moi dans les questions de
 tactique, j'ai d'autre part, — et je puis vous fournir les
-preuves écrites, — reçu justement en ces jours plus d'appro-
-bations des camarades que je n'en reçus jamais depuis:
+preuves écrites, — reçu justement en ces jours plus d'approbations des camarades que je n'en reçus jamais depuis:
 que j'appartiens au parti, — et vous savez cependant que
 depuis des années le parti a soutenu de durs combats. Ne
 Tous ces camarades étaient heureux que, pour ainsi dire,
 la sonnette fùt enfin pendue au chat. {Vive approbation)
-Telles étaient les dispositions dont, à Berlin et particuliè-
-rement dans notre organe central, on n'a rien vu, ni
+Telles étaient les dispositions dont, à Berlin et particulièrement dans notre organe central, on n'a rien vu, ni
 entendu. Vive approbation. — Des voix: Malheureusement!) à
 C'est vraiment surprenant, mais c'est ainsi: on a perdu
 dans les postes capitaux le contact, on a perdu l'intelligence il
@@ -3055,30 +2925,26 @@ Segitz, Haller, Ehrhart se sont séparés de lui.
 Et tout ce mouvement est parti d'en bas. De toutes
 parts s'est élevé dans le parti un cri d'indignation.
 (Approbation enthousiaste) Or, cela aussi a été contesté.
-Auer, par exemple, dans le dernier numéro des Sozia-
-listische Monatshefte, — il n'écrit plus que là; la Neue Zeit
+Auer, par exemple, dans le dernier numéro des Sozialistische Monatshefte, — il n'écrit plus que là; la Neue Zeit
 semble ne plus exister pour lui, — a dit avec son esprit à
 habituel qu'une affaire accessoire avait été transformée et
 décorée du nom d'affaire d'État... Je ne doute pas que ce
 soit sa conviction la plus sincère, qui répond bien à‘son
 caractère. Mais chez aucun camarade du parti je ne regrette
-autant que chez lui qu'il ait juger de la sorte des évé-
-nements qui démontrent que l'âme du parti bouillonne
+autant que chez lui qu'il ait juger de la sorte des événements qui démontrent que l'âme du parti bouillonne
 toute entière... /Vive approbation) Un tel jugement n'a
 être porté que par quelqu'un qui a perdu toute base fixe,
 le terrain des principes. /Très juste!)
 En ce qui touche la question de la vice-présidence À
 elle-même, je me suis déjà expliqué sur ce sujet dans
 mon article de la Neue Zeit. Je n'ai pas à revenir ici À
-sur les détails. Je me contenterai de répondre aux cri-
-tiques dont il a été l'objet. On m'a reproché de croire
+sur les détails. Je me contenterai de répondre aux critiques dont il a été l'objet. On m'a reproché de croire
 à une conjuration. Sans doute une conjuration était À
 inutile. Entre gens de mêmes dispositions, l'entente se
 fait spontanément. Vollmar commença. Les autres
 vinrent d'eux-mêmes. Mais lorsqu'ils virent que les
 neuf dixièmes du parti désapprouvaient Vollmar, qu'ils
-couraient à une défaite devant le congrès, (Vive appro-
-bation) ils tournèrent court et prétendirent que la chose
+couraient à une défaite devant le congrès, (Vive approbation) ils tournèrent court et prétendirent que la chose
 n'avait point l'importance qu'on lui attribuait et que le
 congrès n'avait pas à s'en occuper.
 Oui, si seulement nos adversaires n'épiaient pas tous
@@ -3106,8 +2972,7 @@ journaux bourgeois qui avaient soutenu les revision-;
 nistes furent ceux qui les raillèrent le plus et les
 lâchèrent. Dans la Neue Zeit, j'ai déjà fait allusion à un;
 article de la Frankfurter Zeitung et j'ai ici une autre
-communication du correspondant berlinois de ce jour-
-nal, dont le Vorwaerts n'a nullement parlé.
+communication du correspondant berlinois de ce journal, dont le Vorwaerts n'a nullement parlé.
 
 Je remarque en passant, camarades, que les principaux
 organes du parti ne jugent pas qu'il vaille la peine de faire
@@ -3121,9 +2986,7 @@ de parti et l'avait critiqué en dix lignes, le parti aurait
 
 pas cet article.) Je ne vous en fais pas un reproche; À
 mais je vais proposer de changer cela dans l'avenir. Et si
-un travailleur comme vous, que je considère comme impos-
-
-le congrès de Dresde
+un travailleur comme vous, que je considère comme imposle congrès de Dresde
 sible à remplacer pour la partie politique du Vorwaerts,
 n'a pas de temps pour ces choses, je vous répondrai: je ne
 désire pas du tout que vous vous en occupiez. Vous êtes
@@ -3158,9 +3021,7 @@ entrer dans le ministère? Ce serait seulement dans le
 cas où elle saurait qu'elle pourrait ainsi détruire de
 l'intérieur la social-démocratie, ou en faire quelque chose
 d'autre que ce qu'elle est. (Approbation enthousiaste)
-On ne nous accorderait qu'une parcelle infime de pou100
-
-voir en échange d'énormes concessions que nous serions
+On ne nous accorderait qu'une parcelle infime de pouvoir en échange d'énormes concessions que nous serions
 obligés de faire. Comme le disait Heine un jour, il faudrait accorder des canons afin d'obtenir des droits.
 (Heine: Ainsi vous revenez sur cette histoire!) Je n'ai
 jamais rien entendu de plus naïf que ce discours. Car
@@ -3204,8 +3065,7 @@ telles erreurs, de tels faux pas, il faut bien que cela tienne
 leurs sentiments, toutes leurs idées en ce qui concerne le
 parti, leurs principes et leur tactique se sont entièrement
 modifiés. Le revisionnisme se distingue par sa grande A
-modestie. /Hilarité et approbation) C'est même une distinc-
-tion capitale. On est content de la plus petite bagatelle,
+modestie. /Hilarité et approbation) C'est même une distinction capitale. On est content de la plus petite bagatelle,
 mais pas de hâte, pas d'énervement, pas d'intervention des
 masses. Plus que partout ailleurs on aurait en Bavière,
 dans la question des droits électoraux, gagner à nous tous
@@ -3214,29 +3074,25 @@ campagne de protestation. Au lieu de cela on s'est dit
 du calme! du calme! point de bruit ni jour ni nuit. Nous
 trafiquons derrière des portes closes, nous saurons bien
 emmancher l'affaire; mais surtout ne soulevons pas les
-masses, cela pourrait déranger nos combinaisons. /Agita-
-tion. Très juste!) Voilà mise en pratique une partie de
+masses, cela pourrait déranger nos combinaisons. /Agitation. Très juste!) Voilà mise en pratique une partie de
 cette morale dont parlait Bernhard dans son article.
 {Très juste!) pensent: « Plus nous serons modestes et
 mieux nous vaincrons moi je dis: « Plus nous serons
 modestes, moins nous obtiendrons. » /Approbation) Marx
 dit dans son Capital: « Si l'on ne peut sauter aucune phase
-nécessaire du développement, on peut cependant en abré-
-ger la durée. » Oh! il n'y a point de politicien plus réaliste À
+nécessaire du développement, on peut cependant en abréger la durée. » Oh! il n'y a point de politicien plus réaliste À
 ; que notre Marx si méconnu. On ne peut sauter une phase,!
 ( mais on peut l'abréger. Toute notre activité tend à abréger
 
 les phases du développement afin d'amener la société
 Mais chez les revisionnistes l'on dit au contraire: Ah!
 pas si vite! pas tant de hâte! Ce ne sont pas les paroles
-mais le sens: les masses ne sont pas encore mûres! Com-
-ment pouvez-vous vous imaginer que ces masses seraient
+mais le sens: les masses ne sont pas encore mûres! Comment pouvez-vous vous imaginer que ces masses seraient
 en état, si demain le gouvernement tombait dans nos
 mains, de s'en servir? Je répondrai: Ah! ne vous brisez
 pas les têtes des autres! Que savez-vous combien nous
 avons d'intelligence avec nous, si nous avons les masses
-de notre côté? /Très bien!) Que n'ont pas fait nos cama-
-rades dans les syndicats, dans les conseils de prud'hommes,.
+de notre côté? /Très bien!) Que n'ont pas fait nos camarades dans les syndicats, dans les conseils de prud'hommes,.
 dans les parlements! Que n'ont pas fait particulièrement
 les hommes.— je ne parle pas maintenant des intellectuels, —
 qui sont venus du prolétariat au Parlement! Je m'atten-:
@@ -3260,17 +3116,14 @@ de distance /Hilarité) et l'on sent leur habileté diplomatique
 à cent mètres. /Nouvelle et grande hilarité) Au contraire, je
 vous dis que les hommes à cheval sur les principes, les
 gens qui, aujourd'hui plus que jamais, représentent dans
-le parti le point de vue idéaliste et révolutionnaire, ceux-
-
-le congrès de Dresde #13
+le parti le point de vue idéaliste et révolutionnaire, ceuxle congrès de Dresde #13
 
 ne sont pas des diplomates, pas des hommes d'État, ne
 veulent pas en être, — maïs je dis ceci: S'aperçoit-on qu'un
 homme est un homme d'État, il a déjà cessé d'en être un. ‘Si
 {Très bien! et grande hilarité) Si quelqu'un laisse percer le de.
 diplomate et jusqu'à le révéler expressément, il cesse d'en
-être un. /Très juste!) C'est en un mot l'effort pour se rap-
-procher de la société bourgeoise. Vive approbation). C'est
+être un. /Très juste!) C'est en un mot l'effort pour se rapprocher de la société bourgeoise. Vive approbation). C'est
 l'effort que font les hommes qui s'appellent revisionnistes.
 C'est éternellement le même combat, ici la gauche, la il
 droite et au milieu le marais. Ce sont les éléments qui ne
@@ -3297,8 +3150,7 @@ opinion, je trouverais ma meilleure justification dans les
 déclarations de l'ennemi. Elles sont pour moi le meilleur
 baromètre. /Vive approbation) Et je demande: La tendance
 revisionniste n'a-t-elle pas été cajolée et louée de toutes les à
-façons par nos adversaires, ne l'a-t-on pas soutenue mora-
-lement autant que possible? La Frankfurter Zeitung a été.
+façons par nos adversaires, ne l'a-t-on pas soutenue moralement autant que possible? La Frankfurter Zeitung a été.
 pour ainsi dire désignée comme l'organe des revisionnistes
 Quelles que soient les divergences qui me séparent de
 
@@ -3353,10 +3205,8 @@ que cela conduira de nouveau à des luttes et à des frotte
 Le pour toutes ces raisons je me suis dit: Il faut maintenant de
 que le congrès, que la représentation du parti décide une
 bonne fois quelle devra être dans l'avenir la tactique du
-groupe. /Approbation) J'ai déjà dit dans l'une de mes pre-
-mières déclarations: « Je sais que dans le groupe des luttes
-particulièrement difficiles nous attendent au sujet de la tac-
-tique, mais je sais aussi que lorsque le parti doit prononcer à
+groupe. /Approbation) J'ai déjà dit dans l'une de mes premières déclarations: « Je sais que dans le groupe des luttes
+particulièrement difficiles nous attendent au sujet de la tactique, mais je sais aussi que lorsque le parti doit prononcer à
 ai en dernière instance, les questions sont tranchées autrement À
 que dans le groupe. {Très juste!) Nous serons obligés plus à
 qu'auparavant de nous adresser au parti afin qu'il décide de
@@ -3369,22 +3219,19 @@ majorité {Des voix: A l'unanimité!) et je suis persuadé que
 si cette ligne de conduite est donnée, que si d'autres mesures
 sont prises, pour répandre dans l'avenir la clarté, la vérité
 et le savoir sur toutes les questions importantes du parti;
-alors je suis persuadé que le parti continuera sa course vic-
-torieuse et qu'il remplira de la façon la plus brillante sa;
+alors je suis persuadé que le parti continuera sa course victorieuse et qu'il remplira de la façon la plus brillante sa;
 mission historique. /Approbation enthousiaste et pro-
 La séance est levée à six heures et demie.
 
 Vendredi 18 septembre. — Séance du matin
-La séance est ouverte à neuf heures dix sous la pré-
-sidence de Singer. Après lecture de quelques télé-
-grammes et quelques mots sur la question des mandats
+La séance est ouverte à neuf heures dix sous la présidence de Singer. Après lecture de quelques télégrammes et quelques mots sur la question des mandats
 on passe à l'ordre du jour.
 Ont été présentées les résolutions 140 (amendement
 annoncé par Bebel à la résolution 130) puis comme
 amendements à cette résolution, les résolutions 141 et
 142; a été présentée la résolution
 La résolution 111 est retirée.
-La parole est donnée à:
+La parole est donnée
 Von Vollmar. — Camarades, Bebel vous a décrit
 hier la situation du parti comme il se la représente et
 a produit un grand effet. En essayant de lui répondre
@@ -3398,8 +3245,7 @@ apporté autant de passion, autant de confusion que
 le congrès de Dresde
 dans l'affaire actuelle. Ce sera ma tâche de ramener
 un peu de calme et de clarté.
-Toute l'affaire est sortie de la question de la vice-
-présidence. Dans mon discours de Munich, qui est
+Toute l'affaire est sortie de la question de la viceprésidence. Dans mon discours de Munich, qui est
 imprimé, j'ai déclaré que la manière dont Bernstein
 avait traité la question ne me plaisait pas. Si je n'ai
 pas été plus net, c'est que je n'ai pas l'habitude de
@@ -3412,15 +3258,13 @@ ce qui m'a décidé à intervenir, c'est la manière dont on À
 Bebel m'a reproché hier ma façon d'intervenir. Il a À
 dit que je le faisais avec une certaine mise en scène, À
 que j'avais toujours l'air, dans les rares occasions où je
-parlais, d'annoncer un nouvel évangile. Je ferai remar-
-quer qu'en 1894 il avait déjà fait le même reproche
+parlais, d'annoncer un nouvel évangile. Je ferai remarquer qu'en 1894 il avait déjà fait le même reproche
 aux Munichois et qu'il s'est attiré de l'homme de
 confiance du comité à Munich une réponse dont il ne
 s'est pas vanté.;
 Pour moi je répondrai à Bebel que pour cette annoncia- à
 tion d'évangiles, en particulier des apocalyptiques, {Grande
-hilarité) je considère beaucoup trop cela comme sa spécia-
-lité /Nouvelle hilarité) pour m'en mêler. Au reste tout ce
+hilarité) je considère beaucoup trop cela comme sa spécialité /Nouvelle hilarité) pour m'en mêler. Au reste tout ce
 récit montre que lorsque la puissance inventive de Bebel
 est mise en mouvement, il devient absolument incapable de
 voir les choses dans leur état naturel. /Agitation)
@@ -3465,9 +3309,7 @@ réponse que j'ai l'habitude de faire à ceux qui m'accu-:
 sent de manquer de courage. Je me contenterai de
 prouver que cette allégation est en ce qui me concerne
 Je n'ai parlé de cette question que dans mon discours
-de Munich qui est imprimé et dans une réunion prépa-
-
-ratoire au congrès. Je disais expressément dans mon
+de Munich qui est imprimé et dans une réunion préparatoire au congrès. Je disais expressément dans mon
 discours que je n'attachais pas une importance exagérée à cette question et que nous devions avant tout
 essayer d'obtenir des avantages réels, et de conquérir
 la puissance politique. J'ajoutais que notre action au
@@ -3651,9 +3493,7 @@ tactique ne sont pas quelque chose de fixe et immuable,
 
 crier à chaque instant à la fin du parti. Au contraire,
 
-c'est après chaque grand succès que les cris recom-
-
-mencent de plus belle.
+c'est après chaque grand succès que les cris recommencent de plus belle.
 
 Et jamais ils n'ont été moins justifiés qu'aujourd'hui.
 Je vais le prouver à l'aide des propres paroles de Bebel.
@@ -3686,9 +3526,7 @@ article de la Neue Zeit, il a dit:
 
 Si ce court paragraphe contient le nouveau programme,
 je puis me compter parmi les partisans de Vollmar. /Sensalion) Ce que Vollmar réclame de nous dans son discours
-comme étant notre devoir, nous l'avons déjà fait honné-
-
-tement, mais il n'a pas dépendu de nous que le succès
+comme étant notre devoir, nous l'avons déjà fait honnétement, mais il n'a pas dépendu de nous que le succès
 positif ne füt pas de notre côté.
 
 Et c'est cela la nouvelle tactique des revisionnistes,
@@ -3738,8 +3576,7 @@ t'emporter, nous aurions bien d'autres crises dans le parti.
 Aussi devons-nous nous faire au tempérament les uns des
 autres. Et Bebel ne pourra pas dire qu'on n'a pas, — comme
 il est juste en raison de sa situation et de ses services
-incomparables, — tenu largement compte de son tempé-
-rament. Mais il faut, étant donné ce qui s'est passé, que
+incomparables, — tenu largement compte de son tempérament. Mais il faut, étant donné ce qui s'est passé, que
 cela soit dit, et particulièrement par un homme, qui comme
 moi a été attaqué depuis des années par Bebel et d'autres
 sans avoir pour ainsi dire bougé, à plus forte raison
@@ -3756,8 +3593,7 @@ une partie de l'assemblée. — Grande agitation et sifflets)
 Dans un parti démocratique on ne saurait accorder à
 personne une telle situation d'exception. Un tempérament
 déréglé, impulsif ne nuit pas seulement sur les trônes
-princiers mais encore sur les trônes des partis. /Appro-
-bation dans une partie de l'assemblée. — Agitation) Qui
+princiers mais encore sur les trônes des partis. /Approbation dans une partie de l'assemblée. — Agitation) Qui
 veut diriger les choses et les hommes doit savoir avant
 tout se dominer lui-même. /Sifflets. — Approbation dans
 une partie de l'assemblée) Et celui qui est aussi sensible au
@@ -3765,8 +3601,7 @@ moindre frôlement de sa personne que l'est sinon toujours
 du moins parfois Bebel, devrait d'autant plus se garder de
 
 tomber sur ceux qui pour l'instant lui sont incommodes avec
-une telle absence de choix dans les expressions et les procé-
-dés, comme cela s'est produit dans la présente discussion.
+une telle absence de choix dans les expressions et les procédés, comme cela s'est produit dans la présente discussion.
 {Approbation dans une partie de l'assemblée. — Agitation
 et sifflets)
 Un article de Bernstein gâte à Bebel toute la joie du
@@ -3798,9 +3633,7 @@ soutenir. Mais si l'un d'eux ne partage pas son avis,
 
 le congrès de Dresde
 permet d'être, comme on dit, revisionniste, il a perdu
-cet instinct. Ce sont des parvenus. Et comment se fait-
-
-il que d'autres soient des parvenus sans avoir perdu
+cet instinct. Ce sont des parvenus. Et comment se faitil que d'autres soient des parvenus sans avoir perdu
 leur instinct de classe?
 
 , Bebel plus loin. Il distingue des pays de diverses
@@ -3826,9 +3659,7 @@ de l'indiscipline malsaine du Sud, que les hobereaux prus-:
 siens regardent de leur haut. Mais, Bebel, tout le monde
 ne peut pas être Prussien. /Grande hilarité) Au reste, les
 qu'ils viennent à Munich... Il ne manquait plus que de dire
-que l'on regrettait l'adhésion de Munich et de toute l'Alle-
-magne du Sud au parti. Car si Munich exerce une si perni-
-cieuse influence, elle doit se faire sentir dans tout le parti. “4
+que l'on regrettait l'adhésion de Munich et de toute l'Allemagne du Sud au parti. Car si Munich exerce une si pernicieuse influence, elle doit se faire sentir dans tout le parti. “4
 Je m'étonne que Bebel n'ait point dit cela l'an dernier au congrès de Munich. C'était l'endroit opportun
 
 3 cependant. De même, pourquoi n'a-t-il pas parlé à
@@ -3883,8 +3714,7 @@ pas si facile d'y obtenir l'unanimité, cela de soi. Si l'on
 voulait donc ramener toute l'affaire à une formule, il faudrait dire que malheureusement le parti est devenu trop
 grand. /Protestations et approbations) Et en fait, je ne suis
 pas éloigné du tout de voir dans cette grandeur ce que l'on
-appelle le danger. Bebel ne s'est-il pas plaint un jour ouvertement, que Pierre et Paul vinssent à nous, et qu'il préfére-
-rait une poignée de gens sûrs?
+appelle le danger. Bebel ne s'est-il pas plaint un jour ouvertement, que Pierre et Paul vinssent à nous, et qu'il préférerait une poignée de gens sûrs?
 D'ailleurs quelle contradiction! On prétend que les
 revisionnistes ne sont rien, puis on vient dire qu'il faut
 se mettre en garde contre eux parce qu'ils pourraient
@@ -3928,8 +3758,7 @@ adressent nos adversaires. Il ferait mieux d'être ainsi
 que moi insensible aux éloges comme aux blâmes et
 de n'y attacher aucune importance. D'ailleurs s'il venait
 en Bavière il verrait qu'on le loue là-bas comme le socialiste modèle tandis qu'on nous déchire à belles dents.
-Je puis lui citer aussiles éloges que lui adressait récem-
-ment le Tag de Berlin. Il vaudrait mieux que lui et
+Je puis lui citer aussiles éloges que lui adressait récemment le Tag de Berlin. Il vaudrait mieux que lui et
 nous tous protestions contre le byzantinisme de la presse
 du parti. Lisez le scandaleux article paru dernièrement
 dans la Saechsische Arbeiter-Zeitung. (Bebel: Très
@@ -3939,8 +3768,7 @@ l'ai dit à plusieurs de mes amis.)
 
 Bebel justifie ses attaques par cette allégation qu'on
 nuit au parti. Mais peut-on lui nuire davantage qu'en
-criant aux trois millions d'électeurs qui ont mis leur con-
-fiance en nous, que jusqu'à présent nous avons joué Le
+criant aux trois millions d'électeurs qui ont mis leur confiance en nous, que jusqu'à présent nous avons joué Le
 une comédie, qui doit enfin cesser? (Approbations et À
 protestations) Peut-être Bebel a-t-il voulu dire autre
 chose. Mais qu'il se rappelle ce qu'il a dit sur les articles
@@ -3949,8 +3777,7 @@ par qui une telle comédie a-t-elle été jouée? Pour ma
 part je n'en ai jamais connaissance et j'espère que
 personne n'a conscience d'en avoir joué une.
 
-Car si ce mot avait un sens, il pourrait signifier seule-
-ment qu'il existe dans le parti des gens ayant conçu depuis
+Car si ce mot avait un sens, il pourrait signifier seulement qu'il existe dans le parti des gens ayant conçu depuis
 
 longtemps le plan de proclamer leur souveraineté absolue
 en écartant ceux qui leur sont incommodes, mais ne trahissant pas ce plan avant le moment où ils croient l'occasion favorable. /Très juste!).… Je ne dis pas qu'il en soit
@@ -3971,12 +3798,10 @@ lui, mais Kautsky que, dans toute cette affaire, je regarde
 comme le personnage principal, surtout parce qu'il a l'avantage d'être plus conséquent. Kautsky est le fanatique de
 la théorie, le professeur allemand devenu parti, /Hilarité)
 qui laisserait plutôt périr le monde ou même le parti, que
-d'enlever une seule cheville à ses belles constructions théo-
-riques. /Approbations et protestations. — Une voix: C'est
+d'enlever une seule cheville à ses belles constructions théoriques. /Approbations et protestations. — Une voix: C'est
 ! absurde!) Vous ne me persuadez pas. Je vais donner des
 Kautsky nous a souvent montré ce qu'il pense de la liberté
-é de pensée et d'opinion dans le parti. Dans un article fa-
-meux contre Bernstein: La retraite des dix mille, il a dit:
+é de pensée et d'opinion dans le parti. Dans un article fameux contre Bernstein: La retraite des dix mille, il a dit:
 « Il est ridicule de demander dans le parti la même liberté
 de pensée que nous réclamons de l'État. » /Sensation) La
 Neue Zeit, disait-il à Lubeck, n'est pas faite pour laisser se
@@ -4009,8 +3834,7 @@ dans une même majorité. Eh bien je vous demande:;
 qui donc a soutenu de tels principes? Pour ma part je
 n'ai jamais dit que ceci dans mon discours de Munich: À
 « Pratiquement la situation est aujourd'hui telle que
-le libéralisme a perdu aux dernières élections la der-
-nière possibilité de regagner son influence perdue.
+le libéralisme a perdu aux dernières élections la dernière possibilité de regagner son influence perdue.
 (Sensation). Et nous socialistes nous ne pourrions
 que nous réjouir si les éléments vraiment libéraux de
 la bourgeoisie se ressaisissaient et tout au moins dans;
@@ -4030,14 +3854,12 @@ Il a dit en dernier lieu que la critique devait être suspendue
 pour un temps, qu'il fallait cesser de douter de l'opinion
 momentanément régnante, de la tactique. /Grande agita-:
 tion. — Sensation) De douter, — en propres termes! J'ai
-remarqué ce mot parce qu'il me rappelait les leçons decaté-
-chisme de ma jeunesse. /Une voix: Est-ce textuel? —
+remarqué ce mot parce qu'il me rappelait les leçons decatéchisme de ma jeunesse. /Une voix: Est-ce textuel? —
 Grande agitation) « Il faut écarter le doute. » Cherche toimême le passage! /Bebel: Ah! ah!— Une voix: Il y a
 écarter Ainsi la liberté de pensée ne doit pas être inter-:
 dite mais ajournée, {Très bien! — Hilarité et agitation prolongée) la critique ne doit pas être supprimée mais suspendue pour un certain temps. {Une voix: Écartée) (1) C'est, si
 je comprends l'allemand, la même chose. Vous trouverez ce
-procédé chez le pape et dans l'Église. {Très bien! — Agita-
-tion) aussi la critique de la Bible n'est que suspendue
+procédé chez le pape et dans l'Église. {Très bien! — Agitation) aussi la critique de la Bible n'est que suspendue
 jusqu'à ce que le pape reconnaisse sa justification et constitue une commission qui examine la chose; on peut alors
 critiquer jusqu'à ce que le nouveau dogme soit établi.:
 Non, camarades, ou bien la liberté de pensée, de critique,
@@ -4053,18 +3875,13 @@ ne point provoquer de scandale public. {Agitation) Non, ce
 n'est pas ce que nous avons choisi et il est honteux qu'une
 telle opinion sur la social-démocratie ait non seulement;
 être exprimée, mais encore conçue. {Très juste!) Car s'il y
-a un principe fondamental, une racine vitale de la social-
-démocratie, c'est la liberté absolue de pensée, de recherche, À
+a un principe fondamental, une racine vitale de la socialdémocratie, c'est la liberté absolue de pensée, de recherche, À
 d'examen des principes, des buts et de la tactique. /Très
 bien!) Celui qui veut y apporter la moindre restriction,
 veut faire tomber le grand mouvement de civilisation
 qu'est notre parti au rang d'une secte. {Très bien Sans
-doute un mouvement de la grandeur du mouvement socia-
-liste resterait encore un certain temps imposant extérieu-
-rement, serait peut-être d'autant plus imposant aux yeux
-des adversaires, parce qu'il aurait une unité d'opinions com-
-
-plète, uniforme. Mais la conséquence nécessaire serait le
+doute un mouvement de la grandeur du mouvement socialiste resterait encore un certain temps imposant extérieurement, serait peut-être d'autant plus imposant aux yeux
+des adversaires, parce qu'il aurait une unité d'opinions complète, uniforme. Mais la conséquence nécessaire serait le
 dépérissement du parti, /Très juste!} la suppression de à
 tout air frais et par de tout développement futur. Il
 faudrait avant tout supprimer de notre nom le mot « démo-:
@@ -4078,16 +3895,13 @@ Vollmar, continuant. — Car je vous le dis: si l'on me
 destine une muselière, il m'est assez indifférent que ce
 soit une muselière policière ou religieuse ou démocratique. À
 {Approbation et sifflets) Il ne vaudrait plus la peine de
-risquer sa vie /Bebel: Risquer sa vie? où Et ne sacrifies-
-tu pas ta vie en partie, ne mets-tu pas ta vie au service du
+risquer sa vie /Bebel: Risquer sa vie? où Et ne sacrifiestu pas ta vie en partie, ne mets-tu pas ta vie au service du
 parti? /Bebel: Je ne parle pas du tout de cela Et crois-tu
 que d'autres ne le font pas aussi?
 Donc je dis: je ne jugerais pas qu'il vaille la peine
 d'exposer toute son ‘existence, de combattre, de renverser
 toutes les autorités, simplement pour mettre une nouvelle.
-idole à leur place! Seuls des fanatiques et non des socia128
-
-listes peuvent y consentir. /Bebel: Très juste!) Et lorsqu'un danger de ce genre apparaît même de loin, il faut le
+idole à leur place! Seuls des fanatiques et non des socialistes peuvent y consentir. /Bebel: Très juste!) Et lorsqu'un danger de ce genre apparaît même de loin, il faut le
 
 J'en arrive à la résolution. Sur le premier point je
 n'ai rien à dire, puisque le parti a déjà décidé.
@@ -4119,9 +3933,7 @@ On trouve toujours un plus réactionnaire ou plus radi-
 l'autre. (Sensation) Bebel confirmera que souvent nous
 avons marché ensemble, tantôt à gauche, tantôt à
 droite. (Sensation) Et il est remarquable que le radical
-Kautsky ait proposé de ne plus réclamer le remanie129
-
-le congrès de Dresde
+Kautsky ait proposé de ne plus réclamer le remaniele congrès de Dresde
 ment des circonscriptions électorales, ce qui serait
 l'abandon d'une de nos plus anciennes revendications.
 (Bebel: Naturellement il ne peut en être question
@@ -4130,8 +3942,7 @@ Si donc vous voulez condamner une tendance, des
 principes qui selon moi n'existent pas, l'affaire sera
 tranchée par le vote de la résolution.;
 Il en serait autrement si vous vouliez atteindre cer- À
-tains individus. Je m'empresse de dire que cette inten-
-tion n'est pas dans la résolution. Mais j'ai entendu dire
+tains individus. Je m'empresse de dire que cette intention n'est pas dans la résolution. Mais j'ai entendu dire
 par de nombreux camarades que l'on avait cherché
 une rédaction telle qu'elle devint inacceptable pour
 Vives interruptions) Dans ce cas il eût fallu avoir le
@@ -4150,8 +3961,7 @@ ne nie pas que des fautes aient été commises, par moi
 aussi, — je ne suis pas de ceux qui veulent à tout prix
 avoir raison. (Bebel: Est-ce pour moi que tu dis cela il
 Comment done, j'en suis bien loin. (Grande hilarité) À
-Je pense donc que tout sera tranché par la résolu-
-tion et que le parti, — au contraire de ce que disait
+Je pense donc que tout sera tranché par la résolution et que le parti, — au contraire de ce que disait
 
 Bebel, — pensera que l'union et l'unité dans le parti
 sont plus grandes que jamais. (Approbation et protestation) Le parti reconnaîtra
@@ -4204,8 +4014,7 @@ d'abord combien on est peu fixé sur le revisionnisme. De )
 tout temps il y a des revisionnistes dans le parti, à
 c'est-à-dire des gens qui sur les questions de tactique
 pensaient autrement que d'autres. Plus le parti sera
-grand, plus il existera de différences analogues. L'es-
-sentiel est que l'on ne fasse pas de cette différence
+grand, plus il existera de différences analogues. L'essentiel est que l'on ne fasse pas de cette différence
 d'opinions une trahison des principes.
 En ce qui concerne la vice-présidence il n'est pas
 vrai que nous ayons reculé après avoir l'indignation à
@@ -4219,9 +4028,7 @@ Et celles-ci nous sont imposées tout comme les
 
 La question de la tactique se pose dans tous les pays.
 Nous voyons partout des revisionnistes et des antirevisionnistes. Pour nous la discussion se ramène en
-dernière analyse à la question de savoir si nous sui-
-
-vrons la théorie des catastrophes de Kautsky ou celle
+dernière analyse à la question de savoir si nous suivrons la théorie des catastrophes de Kautsky ou celle
 de l'évolution de Bernstein. Dans la pratique nous
 nous en sommes toujours tenus à la seconde.
 
@@ -4305,8 +4112,7 @@ reste nous ferons mieux de ramasser nos forces, afin de
 pouvoir sur tous les points continuer la lutte avec succès.
 {Approbation dans une partie de l'assemblée. — Sifflets) (1)
 
-Stuecklen, d''Altenbourg. — Les revisionnistes pré-
-tendent qu'il n'existe point de différences entre nous. Le
+Stuecklen, d''Altenbourg. — Les revisionnistes prétendent qu'il n'existe point de différences entre nous. Le
 discours de Kolb vient de prouver combien elles sont
 profondes. (Bebel: Très juste!) Je ne vois pas comment
 on pourrait les masquer. Vollmar est un orateur captivant. Mais lorsqu'il arrive à un point délicat il sait
@@ -4323,10 +4129,8 @@ en prend note. Au congrès suivant se produit la discussion. L'intellectuel se d
 mais il est un homme arrivé et se présente au premier
 siège vacant. Je n'ai point de respect pour ces intellec-:
 tuels. Il faut renforcer la résolution de Lubeck de telle
-sorte qu'un accord ne soit plus possible, car notre de-
-voir est de prêcher la lutte de classe. On a parlé de
-scission. Il pourrait tout au plus s'agir de quelques intel-
-lectuels qui refuseraient de nous suivre. Libre à eux de
+sorte qu'un accord ne soit plus possible, car notre devoir est de prêcher la lutte de classe. On a parlé de
+scission. Il pourrait tout au plus s'agir de quelques intellectuels qui refuseraient de nous suivre. Libre à eux de
 Bernstein demande que le vice-président socialiste
 aille à la cour s'il le faut. Après les socialistes de salon
 voici les socialistes de cour! C'est sans doute Vollmar
@@ -4348,8 +4152,7 @@ On a beaucoup parlé de la liberté d'opinion. Mais;
 cette liberté aussi a des limites. La liberté d'opinion
 doit-elle aller jusqu'à laisser brûler la maison où ces
 opinions se combattent? Il faudra tracer une certaine
-limite à cette liberté. Notre parti sera toujours prolé-
-tarien et révolutionnaire, et il dépendtoujours des camarades que la direction du parti ne tombe pas aux mains
+limite à cette liberté. Notre parti sera toujours prolétarien et révolutionnaire, et il dépendtoujours des camarades que la direction du parti ne tombe pas aux mains
 d'une poignée de camarades intellectuels, qui n'ont
 aucun contact avec le peuple. (Vive approbation) (1)
 Une motion demandant de réduire à dix minutes le
@@ -4392,8 +4195,7 @@ la social-démocratie leur tiendra parole, que nous continuerons à travailler f
 qu'au besoin nous montrerons la porte aux éléments
 qui tentent de nous détacher de notre vieille tactique
 Katzenstein.— Aprèsles potins qui nous ont occupés
-les premiers jours, ces débats théoriques sont récon-
-fortants. Malheureusement la manière dont la discussion
+les premiers jours, ces débats théoriques sont réconfortants. Malheureusement la manière dont la discussion
 a été engagée est pénible. Il y a des errements
 regrettables des deux côtés. Sans doute la liberté doit
 avoir dans un parti certaines limites. Mais dans ces
@@ -4420,8 +4222,7 @@ devons nous efforcer de développer les syndicats, les
 coopératives et toutes les institutions de culture des
 
 Mais tout cela n'amènera pas l'acte décisif. Je suis
-opposé à la grève générale, qui n'amènerait pas l'avè-
-nement de la société socialiste. Mais il faut nous rendre
+opposé à la grève générale, qui n'amènerait pas l'avènement de la société socialiste. Mais il faut nous rendre
 compte que nous pouvons toujours entrer en lutte avec
 les classes dirigeantes.
 
@@ -4512,8 +4313,7 @@ pratique et ai déposé une résolution, — n'émanant pas
 de moi d'ailleurs, — demandant que le groupe présentât
 au Reichstag des projets de loi. Bebel a signalé les
 difficultés. Eh bien, notre parti est si grand que ces
-projets pourraient être rédigés et serviraient puissam-
-ment à répandre nos idées dans les masses. On pourrait
+projets pourraient être rédigés et serviraient puissamment à répandre nos idées dans les masses. On pourrait
 par exemple étudier à fond la question des impôts
 directs. Même les protestations contre les tarifs douaniers sont venues trop tard et manquaient d'unité.
 Pendant les élections, nous avons manqué de netteté,
@@ -4571,9 +4371,7 @@ davantage aux ouvriers leur foi dans les autorités. Et
 c'est justice. Nous savons apprécier le génie d'un chef,
 
 mais démocrates, nous devons le remettre à sa place
-démocratique. Je savais que dans mon discours je cite-
-
-rais des détails. Mais ce débat roule sur des bagatelles.
+démocratique. Je savais que dans mon discours je citerais des détails. Mais ce débat roule sur des bagatelles.
 
 Ce débat théorique a pour moi beaucoup moins d'importance que n'en aurait par exemple une division sur
 les questions pratiques. Mais les congrès ne peuvent
@@ -4588,8 +4386,7 @@ de nos adversaires ne doivent pas nous troubler. Bebel
 
 lui aussi a été loué par le Berliner Tageblatt pour son à
 attitude envers les syndicats. J'espère que nous serons
-bientôt débarrassés de cette petite querelle. (Approba-
-tion et sifflets) (1)
+bientôt débarrassés de cette petite querelle. (Approbation et sifflets) (1)
 
 Auer. — Avant d'aborder la véritable question je!
 d'une lettre de Bebel à laquelle je n'aurais pas répondu
@@ -4597,9 +4394,7 @@ on a raconté que les rapports entre lui et moi seraient
 bien tendus. En réalité il n'en est rien. Je n'ai pas
 répondu à cette lettre parce que comme membre du à
 comité directeur j'en reçois tellement, que je suis obligé à
-à un moment de ne plus répondre afin de laisser le tor-
-rent se calmer. J'ai pris connaïssance de ce qui concer-
-nait les affaires du parti et je n'ai pas répondu aux A
+à un moment de ne plus répondre afin de laisser le torrent se calmer. J'ai pris connaïssance de ce qui concernait les affaires du parti et je n'ai pas répondu aux A
 points de discussion parce qu'une lettre n'avance à rien
 et parce que huit jours plus tard nous devions nous
 
@@ -4654,17 +4449,13 @@ un énorme travail. On ne s'improvise pas législateur. À
 Laissons ce travail aux conseillers, contentons-nous de
 critiquer et, s'il y a lieu, d'amener par des propositions
 précises des améliorations.
-Lorsque Bebel dit qu'il s'est toujours occupé de législa-
-tion d'une façon positive et pratique, je ne puis que confirmer ses paroles. Il y a d'ailleurs longtemps que nous à
-sommes d'accord sur la nécessité d'intervenir pratique-
-ment. Mais nous sommes divisés sur la valeur des con- À
+Lorsque Bebel dit qu'il s'est toujours occupé de législation d'une façon positive et pratique, je ne puis que confirmer ses paroles. Il y a d'ailleurs longtemps que nous à
+sommes d'accord sur la nécessité d'intervenir pratiquement. Mais nous sommes divisés sur la valeur des con- À
 cessions à demander. Les uns les estiment importantes, À
 les autres insignifiantes. C'est une question de tempé-
 j'approuve encore Bebel lorsqu'il dit que nous n'avons
-jamais été moins divisés que maintenant sur les ques-
-tions de principe. Je pensais même que ce congrès
-serait une fête où nous célébrerions notre victoire. Jus-
-qu'ici je n'ai rien de la fête. Cela peut venir encore,
+jamais été moins divisés que maintenant sur les questions de principe. Je pensais même que ce congrès
+serait une fête où nous célébrerions notre victoire. Jusqu'ici je n'ai rien de la fête. Cela peut venir encore,
 puisqu'il me semble que les tempêtes s'apaisent. Mais
 cela ne change rien à ce fait qu'il n'existe point dans le
 
@@ -4678,8 +4469,7 @@ suscité cette émotion.
 Comment! tous nos succès ne peuvent pas compenser
 un discours de Bernstein? Bebel nous a dit qu'il avait
 depuis dix ans avaler tant de choses qu'il ne pouvait plus y tenir. Mais avaler est un acte nécessaire à
-la vie. (Hilarité) Et croit-il qu'il ait été le seul? D'au-
-tres aussi ont avaler bien des choses. A mesure que
+la vie. (Hilarité) Et croit-il qu'il ait été le seul? D'autres aussi ont avaler bien des choses. A mesure que
 le parti grandit, il se trouve plus de personnes avec lesquelles on ne s'entend pas toujours. Mais dire qu'on ne
 peut plus y tenir me semble une forte exagération.
 
@@ -4718,8 +4508,7 @@ au concours. Avant de prendre les résolutions les plus à
 tranchantes il faudrait cependant s'entendre là-dessus. À
 J'ai cru longtemps qu'un revisionniste était celui qui
 soumettait à la critique certains articles du programme À
-d'Erfurt. Après les déclarations que nous avons enten-
-dues sur la critique, cette interprétation est inexacte. à
+d'Erfurt. Après les déclarations que nous avons entendues sur la critique, cette interprétation est inexacte. à
 Alors voici les deux caractéristiques du revisionniste
 que j'ai pour ma part réussi à découvrir dans tous les
 articles et discours: le revisionniste est celui qui renie
@@ -4731,8 +4520,7 @@ revisionniste serait un traître au parti et je proteste
 contre l'application qu'on m'a faite du titre de revisionniste. C'est une calomnie. Il arrive dans certaines circonstances qu'on agisse de concert avec les gauches.
 C'est nécessaire. Mais se rattacher à elles serait notre
 perte. Notre force réside dans la conscience de classe
-et dans la classe où nous recrutons nos adhérents. Lors-
-que, jeune camarade, je vins à Hambourg, on gagnait
+et dans la classe où nous recrutons nos adhérents. Lorsque, jeune camarade, je vins à Hambourg, on gagnait
 ainsi des voix. On disait à un ouvrier: « Tu es ouvrier?
 — Oui! — Alors il faut voter pour un candidat ouvrier! » Cette parole agissait plus que les théories sur
 la loi du salaire, la plus-value, etc. J'ai compris à ce
@@ -4743,25 +4531,20 @@ Le revisionnisme étant défini, la question se pose:
 Qui est vraiment revisionniste? Pour ma partje repousse
 cette épithète. Tous les camarades qui ont parlé avant
 moi l'ont repoussée. Il n'existe pas encore de liste de
-proscription, mais on a déjà prononcé des noms. L'organe socialiste de Koenigsberg a proposé un referen-
-dum sur ceux qui peuvent rester dans le parti et ceux
+proscription, mais on a déjà prononcé des noms. L'organe socialiste de Koenigsberg a proposé un referendum sur ceux qui peuvent rester dans le parti et ceux
 qui ne le peuvent pas. D'autres journaux ont protesté.
 Mais il suffit que la question ait été discutée. Je ne sais
 pas où l'on s'arrêterait, surtout si la majorité du groupe
 est formée de revisionnistes. Les meneurs ne doivent-:
 ils pas trouver eux-mêmes qu'on trop loin?
-Camarades, on nous a dit: maintenant il s'agit d'ar-
-borer son pavillon, de se déclarer. Mais ne l'avions-
-nous pas fait dans la dernière campagne électorale?
+Camarades, on nous a dit: maintenant il s'agit d'arborer son pavillon, de se déclarer. Mais ne l'avionsnous pas fait dans la dernière campagne électorale?
 Celui qui oserait le nier ne se rend certainement pas
 
 le congrès de Dresde
 compte du sens et de la portée de ses paroles. (Très
 juste! — Agitation) De quel droit adresse-t-on ces reproches? Depuis trente-cinq ans je combats pour le
 parti, je n'ai jamais craint d'être appelé socialiste, je
-n'ai jamais les camarades redouter ce nom. Allonsnous leur reprocher de n'avoir pas arboré leur pavillon? Il me semble impossible de répéter qu'on a tou-
-jours joué une comédie. (Bravo!) Ou s'il y a comé-
-die, il y a aussi des comédiens, et alors qu'on cite
+n'ai jamais les camarades redouter ce nom. Allonsnous leur reprocher de n'avoir pas arboré leur pavillon? Il me semble impossible de répéter qu'on a toujours joué une comédie. (Bravo!) Ou s'il y a comédie, il y a aussi des comédiens, et alors qu'on cite
 : des noms et des faits. (Nombreuses approbations)
 
 Sans doute il existe parmi nous des tempéraments
@@ -4774,8 +4557,7 @@ fallait pousser le cri d'alarme, mais avant. Au lieu de à
 soutenir ces gens, il fallait les empêcher d'être élus. Je
 trouve même qu'il y a un manque d'égards envers;
 lâme populaire. On lui recommande des candidats et
-lon vient lui dire: Halte, tu t'es trompée. Moi, le pré-
-tendu revisionniste, je ne me serais jamais permis d'agir
+lon vient lui dire: Halte, tu t'es trompée. Moi, le prétendu revisionniste, je ne me serais jamais permis d'agir
 ainsi. Heine, le revisionniste, a été élu à Berlin, centre
 intellectuel de l'Allemagne. (Hilarité) Quoi de plus
 facile que d'empêcher cette élection s'il était aussi dan-
@@ -4784,10 +4566,7 @@ Vollmar a déjà cité un certain nombre de faits qui:
 prouvent combien la tactique peut changer avec les cir-
 1874-75 eurent lieu les premières tentatives de fusion
 entre les deux fractions socialistes allemandes, Bebel,
-qui achevait sa prison, nous écrivit une lettre de dix-
-
-huit pages. Il s'opposait à cette fusion et nous appor-
-tait un programme détaillé des conditions que nous
+qui achevait sa prison, nous écrivit une lettre de dixhuit pages. Il s'opposait à cette fusion et nous apportait un programme détaillé des conditions que nous
 devions imposer à la fraction dite d'Eisenach. Autrement, disait-il, dès ma sortie de prison je lèverai
 l'étendard de la révolte contre cette fusion. (Bebel: As-
 tu cette lettre? — Agitation.— Je désireraisla voir.) La:
@@ -4814,8 +4593,7 @@ de classe et devenir l'aile gauche des partis bourgeois?
 (Sensation). S'il en était ainsi, s'il s'agissait d'abandonner
 gauche bourgeoise, vous ne devriez pas maintenant participer à ces élections. » Je ne cite cet exemple que pour
 montrer où l'on en arrive avec de semblables prophéties,
-avec de semblables principes, qui par une nécessité inté-
-rieure ne peuvent être maintenus, parce qu'ils sont jetés;
+avec de semblables principes, qui par une nécessité intérieure ne peuvent être maintenus, parce qu'ils sont jetés;
 
 4 le congrès de Dresde
 
@@ -4887,7 +4665,7 @@ Liepmann, de Berlin. — J'ai présidé cette réunion
 
 grès de Dresde A rie
 dont parle Fischer. Nous y avons arrêté une liste pour;
-A; le renouvellement du comité, que j'ai communiquée à;
+le renouvellement du comité, que j'ai communiquée
 Auer. Il n'avait nullement été question de lui. Nous
 : avons une réunion aujourd'hui. Quelqu'un a proposé;
 de ne plus réélire Auer. Nous avons décidé de ne point
@@ -4948,8 +4726,7 @@ siéger dimanche et lundi et de régler par un vote
 sur propositions écrites, sans discussion, le point
 de l'ordre du jour (ville où se tiendra le prochain
 congrès). La discussion sur la tactique est continuée.
-Kautsky. — D'abord quelques observations person1 nelles. Vollmar m'a représenté comme le pape socia-
-liste. Il l'a fait à l'aide de citations. Mais dans ces citar tions il y a un mot de moi et l'autre a été ajouté par
+Kautsky. — D'abord quelques observations person1 nelles. Vollmar m'a représenté comme le pape socialiste. Il l'a fait à l'aide de citations. Mais dans ces citar tions il y a un mot de moi et l'autre a été ajouté par
 lui. (Sensation) Si j'ai dit que la liberté de pensée ne
 ï pouvait être la même dans l'État et dans un parti, c'est
 que nous appartenons à l'État, que nous le voulions ou
@@ -4966,9 +4743,7 @@ dans ce congrès. Comment cet homme sérieux y a-t-il a.
 attaché de l'importance? Croit-il vraiment que nous
 n'aurions donner à notre résolution une rédaction
 qui la rendît inacceptable pour certaines personnes?
-Nous voulions donner au congrès l'occasion de se pro-
-
-noncer contre une tendance déterminée. (Très juste à
+Nous voulions donner au congrès l'occasion de se prononcer contre une tendance déterminée. (Très juste à
 
 Venons au sujet. Notre résolution part de cette idée
 
@@ -4977,9 +4752,7 @@ qu'il existe dans le congrès deux tendances. Vollmaret
 Auer ont prétendu qu'il n'existait que des différences
 personnelles. Mais alors si les scènes que nous avons;
 
-vues ne sont que l'effet de haïnes personnelles, ce con-
-
-grès nous laissera l'impression la plus déprimante.
+vues ne sont que l'effet de haïnes personnelles, ce congrès nous laissera l'impression la plus déprimante.
 En réalité le contraste existe. Nous avons cherché
 
 jusqu'ici à agrandir l'abîme qui nous sépare des classes
@@ -4996,8 +4769,7 @@ reviser et le nom de revisionnisme.
 L'histoire d'une résolution votée à Hanovre par les KL:
 revisionnistes à la suite d'une confusion, m'oblige à
 bien préciser le sens de la nôtre.
-Le deuxième paragraphe de notre résolution con-
-damne une tactique qui voudrait au lieu de vaincre les
+Le deuxième paragraphe de notre résolution condamne une tactique qui voudrait au lieu de vaincre les
 pouvoirs établis leur faire des avances. Qu'est-ce
 
 à dire? Le revisionnisme veut éviter les conflits et faire
@@ -5005,8 +4777,7 @@ pouvoirs établis leur faire des avances. Qu'est-ce
 progresser le prolétariat par les moyens pacifiques et
 À légaux. Sur quel terrain trouverons-nous les plus grands
 4 conflits? Sur le terrain du pouvoir public. C'est
-ce pouvoir qui permet aux classes dominantes d'oppri-
-mer les classes prolétariennes. Elles n'hésiteraient pas
+ce pouvoir qui permet aux classes dominantes d'opprimer les classes prolétariennes. Elles n'hésiteraient pas
 à mutiler les syndicats ou le droit de vote le jour où
 Ni elles seraient menacées de le perdre. C'est d'elles que
 À dépend tout. l'on nous dit: Obligez la bourgeoisie à
@@ -5040,8 +4811,7 @@ Bernstein, Vollmar m'a accusé de lui sauter à la gorge
 dès qu'il ouvre la bouche. C'est inexact. Lorsque la
 discussion a commencé sur le revisionnisme je suis resté
 six mois sans répondre. Lorsqu'il a soulevé la question
-de la vice-présidence je suis resté deux mois sans ré-
-pondre. Je n'ai répondu qu'au moment où le silence )
+de la vice-présidence je suis resté deux mois sans répondre. Je n'ai répondu qu'au moment où le silence )
 serait devenu de la lâcheté. (Très juste Si jamais j'ai
 de l'irritation contre Bernstein, elle a disparu depuis
 que j'ai comment les revisionnistes le traitaient, si
@@ -5087,8 +4857,7 @@ revisionnistes conservent la conception matérialiste de
 l'histoire mais veulent en même temps se rapprocher
 des partis bourgeois. Cela n'est possible qu'en insistant
 sur les circonstances qui semblent affaiblir les antagonismes de classe et en ignorant celles qui les renforcent.;
-Bernstein jusqu'à dire que ces antagonismes pren-
-nent des formes plus douces. Eh bien, voyez les événements de ces dernières années. Où sont ces formes plus
+Bernstein jusqu'à dire que ces antagonismes prennent des formes plus douces. Eh bien, voyez les événements de ces dernières années. Où sont ces formes plus
 douces? Dans tous les pays elles deviennent au contraire plus dures. Ceux qui voteront notre paragraphe
 signifieront qu'ils désapprouvent ces idées de Bernstein.
 Tant mieux: nous ne tenons pas à vivre en désaccord;
@@ -5108,8 +4877,7 @@ vous reconnaissez que l'expansion coloniale est une
 conséquence nécessaire du capitalisme, pourquoi essayer de résister à une nécessité? Mais la suppression
 de la petite industrie est, elle aussi, une conséquence
 nécessaire du capitalisme; est-ce une raison pour que.
-nous participions à cette suppression? Non, les capita-
-listes peuvent aller aux colonies si bon leur semble,
+nous participions à cette suppression? Non, les capitalistes peuvent aller aux colonies si bon leur semble,
 mais qu'ils ne demandent pas au peuple allemand de
 sacrifices afin que la bourgeoisie rentre dans ses frais.
 Je vous prie de relire notre résolution avec soin. Je
@@ -5120,14 +4888,11 @@ réunisse le plus grand nombre de voix possible, car en
 montrant que la masse nous approuve, nous ferons à
 passer aux revisionnistes le goût de la revision.
 Si nous votons cette résolution nous fêterons digne- a
-ment le quarantième anniversaire de la social-démo-
-cratie allemande, du jour où Lassalle sépara le prolé-
-tariat de la bourgeoisie et lui montra que tous les partis
+ment le quarantième anniversaire de la social-démocratie allemande, du jour où Lassalle sépara le prolétariat de la bourgeoisie et lui montra que tous les partis
 bourgeois étaient également ses adversaires. Nous À
 
 célébrerons aussi le cinquante-cinquième anniversaire
-des journées de juin 1848, où le prolétariat s'est violem-
-ment arraché de la bourgeoisie. Nous célébrerons notre;
+des journées de juin 1848, où le prolétariat s'est violemment arraché de la bourgeoisie. Nous célébrerons notre;
 victoire moins sanglante, mais aussi importante, de juin
 dernier etnous montrerons à la bourgeoisie qu'il n'existe fe:
 que deux camps, nettement distincts. (Approbation
@@ -5168,12 +4933,10 @@ dans une grande réunion. Les camarades de Breslau
 n'ont pas été déçus et aucun ne peut avoir de doute
 sur ma pensée relativement à la constitution de l'empire. J'ai été l'un des premiers qui aient dans le groupe
 proposé de parler de ce discours à Berlin et je l'ai fait
-avec la plus grande netteté. Pendant la période électo-
-rale j'ai parlé jour pour jour dans les réunions, si bien
+avec la plus grande netteté. Pendant la période électorale j'ai parlé jour pour jour dans les réunions, si bien
 que le soir des élections je n'ai même pas dire merci
 à mes électeurs. A Goerlitz un national-libéral m'a
-interpellé au sujet de mon attitude envers la monar-
-chie. Je lui ai répondu que le socialisme considérait la
+interpellé au sujet de mon attitude envers la monarchie. Je lui ai répondu que le socialisme considérait la
 forme de gouvernement comme secondaire, mais qu'il
 était un parti démocratique donc républicain. Ce n'est
 pas parce que j'ai soulevé la question de la vice-:
@@ -5198,8 +4961,7 @@ savez-vous si de pareilles manœuvres se produiront
 toujours juste avant les élections? Savez-vous même si;
 l'on n'essaiera pas de restreindre le droit de vote? Bebel
 voit les choses en rose. Mais voyez ce qui s'est passé
-en Belgique où nos camarades ont échoué. Le lende-
-main de leur échec des articles parurent chez nous qui
+en Belgique où nos camarades ont échoué. Le lendemain de leur échec des articles parurent chez nous qui
 les condamnaient et moi, l'opportuniste, je protestai
 demandant si un jour nous ne serions pas obligés d'en
 venir aux mêmes moyens. En tout cas il me semble:
@@ -5236,17 +4998,13 @@ et les industriels. Ce sont ces luttes qui empêchent le
 succès de la réaction. Il n'est pas possible d'opérer
 avec des concepts si uns que bourgeoisie et réaction.
 Il vaut mieux essayer de profiter de ces divisions.
-J'ai dit aussi que lattitude du Reïchstag envers l'em-
-pereur n'était pas la même que dans d'autres monar- à
+J'ai dit aussi que lattitude du Reïchstag envers l'empereur n'était pas la même que dans d'autres monar- à
 chies, et que nous nous rapprochions davantage d'une
 république. Kautsky m'a fait dire que l'Allemagne est À
 une république. Je n'avais que répété ce qui se trouve
-dans la préface d'une édition socialiste de la constitu-
-tion allemande: que l'empereur allemand n'est pas un
+dans la préface d'une édition socialiste de la constitution allemande: que l'empereur allemand n'est pas un
 monarque de l'empire allemand mais a seulement le À
-On n'a reproché d'exalter par la valeur du parle-
-mentarisme. Ce reproche m'a amusé. Comment aurions-
-nous obtenu tous nos avantages si nous ne nous étions
+On n'a reproché d'exalter par la valeur du parlementarisme. Ce reproche m'a amusé. Comment aurionsnous obtenu tous nos avantages si nous ne nous étions
 sans cesse transformés au Parlement? Vollmar et Auer à
 l'ont déjà montré. Je n'ajouterai qu'un exemple. Au:
 
@@ -5257,8 +5015,7 @@ ouvriers que nous négligions leurs intérêts? Nous
 avons travaillé et nous avons gagné des sièges. Par
 
 . nous avons empêché les syndicats d'aller vers les partis
-bourgeois. Ne nous payons ni d'illusions ni de déclama-
-tions et tenons le parlementarisme pour ce qu'il est
+bourgeois. Ne nous payons ni d'illusions ni de déclamations et tenons le parlementarisme pour ce qu'il est
 une grande puissance dans la vie politique, que nous À
 devons tenter de mettre à notre service.
 
@@ -5301,8 +5058,7 @@ limite. Mais que faut-il condamner? Certainement pas )
 les opinions sur l'évolution probable, mais les divergences sur les principes politiques. Et jamais je n'ai À
 attaqué ces principes.
 
-Kautsky, pour montrer les pernicieux effets de la nou-
-velle méthode, a parlé de Millerand et des ouvriers!
+Kautsky, pour montrer les pernicieux effets de la nouvelle méthode, a parlé de Millerand et des ouvriers!
 anglais. Jamais je ne me suis prononcé absolument:
 pour le ministère Millerand. Mais si son influence a été À
 si désastreuse pour le parti français, c'est que ce parti à
@@ -5310,13 +5066,11 @@ si désastreuse pour le parti français, c'est que ce parti à
 division. Je suis persuadé aussi que partout des
 moments de crise viendront où une alliance avec les
 radicaux de gauche se fera, et que si un parti organisé;
-et conscient comme la social-démocratie allemande sou-
-tient et contrôle un ministre, son ministère ne peut avoir
+et conscient comme la social-démocratie allemande soutient et contrôle un ministre, son ministère ne peut avoir
 que des effets heureux.
 
 Pour juger les ouvriers anglais, Kautsky s'est référé
-à Marx. Mais vous savez que Marx, que j'estime beau-
-coup comme savant, a mal compris le mouvement
+à Marx. Mais vous savez que Marx, que j'estime beaucoup comme savant, a mal compris le mouvement
 
 anglais. C'est le camarade marxiste Hyndman qui
 la écrit dans une brochure. Dans lespèce, Burt et
@@ -5332,20 +5086,16 @@ serais déclaré contre la résolution, si j'avais été à À
 Hanovre. Je ne refuse jamais les discussions.
 Kautsky m'a reproché de me prononcer pour la poli-:
 tique coloniale mais de refuser les crédits uniquement
-parce que nous n'avons pas confiance dans le gouver-
-nement. Mais c'est ce que nous disons toujours au sujet.
-du budget. Et il de soi que si nous votions les cré-
-dits nous exigerions des garanties contre les horreurs
+parce que nous n'avons pas confiance dans le gouvernement. Mais c'est ce que nous disons toujours au sujet.
+du budget. Et il de soi que si nous votions les crédits nous exigerions des garanties contre les horreurs
 habituelles. Et qui nie, pour les États-Unis par exemple,
 les résultats de la colonisation?
 Enfin il m'a reproché d'avoir dit que l'on ne doit pas
 pousser trop loin la lutte contre le libéralisme. J'ai dit a
-que les attaques du socialisme étaient dirigées uni-
-quement contre le libéralisme, et que cependant il
+que les attaques du socialisme étaient dirigées uniquement contre le libéralisme, et que cependant il
 existait des différences entre les divers partis bourgeois. Maïs autrement, dans toutes les circonstances, je:
 me suis toujours déclaré ouvertement socialiste.
-Pour tous ces motifs, je ne puis voter pour la résolu-
-tion. Je ne la trouve pas habile: elle servira nos adver-
+Pour tous ces motifs, je ne puis voter pour la résolution. Je ne la trouve pas habile: elle servira nos adver-
 Saires. Puis c'est une décision prise d'après l'humeur
 ou plutôt la mauvaise humeur du moment, comme lha-
 
@@ -5365,11 +5115,10 @@ de rayer leurs noms de la liste proposée pour l'élection
 À du comité et des contrôleurs.
 Singer lit trois déclarations des délégués berlinois
 4 relatives à l'incident Auer. a.
-5 La séance est levée à une heure un quart.
+La séance est levée à une heure un quart.
 
 Séance du soir
-La séance est ouverte à trois heures sous la prési-
-dence de Singer. Il annonce que quatre camarades
+La séance est ouverte à trois heures sous la présidence de Singer. Il annonce que quatre camarades
 polonais regrettent dans une lettre le vote de la motion he:
 - Rosa Luxembourg. Ce vote n'a été possible que parce
 que le congrès a été mal renseigné.
@@ -5405,8 +5154,7 @@ De plus nous ne pourrions obtenir ce poste que par la
 faveur de la majorité. Et nous n'allons pas la solliciter
 au moment où nous sommes en état de réclamer ce que
 nous voulons.
-Toutes les questions accessoires tombent donc d'elles-
-mêmes. Toute cette discussion provient de l'exposé
+Toutes les questions accessoires tombent donc d'ellesmêmes. Toute cette discussion provient de l'exposé
 historique faux qu'a donné Bernstein. S'il avait réfléchi
 il n'auraït jamais publié son article. Malheureusement
 il conserve son opinion.
@@ -5445,8 +5193,7 @@ C'est pourquoi je tiens la résolution proposée pour
 dangereuse. Elle nous enchaîne. Elle nous fait dépendre
 non de notre décision mais de celle des autres. Elle
 parle des devoirs imposés par le règlement. Mais il est
-absurde de vouloir nous en faire dépendre. (Nom-
-breuses voix: Très juste Nous devons pouvoir décider
+absurde de vouloir nous en faire dépendre. (Nombreuses voix: Très juste Nous devons pouvoir décider
 librement. (Nouvelle approbation) S'il plaisait à la
 majorité de mettre dans le règlement que le Reichstag
 doit se soumettre au protocole de la cour, nous ne à
@@ -5465,8 +5212,7 @@ Je ferai remarquer d'ailleurs que dans le groupe la
 le congrès de Dresde PENSE
 distinction entre revisionnistes et non revisionnistes
 n'existe pas. Dernièrement Bebel a proposé de demander
-la revision d'un article du code pénal. C'est le revision-
-niste Heine qui l'a combattu. La proposition a été
+la revision d'un article du code pénal. C'est le revisionniste Heine qui l'a combattu. La proposition a été
 repoussée. J'estime que la résolution est inutile parce
 que le parti veut conserver sa tactique. Son adoption À
 favoriserait les revisionnistes, car ce serait avouer que
@@ -5511,8 +5257,7 @@ de modifier ces lois. Vollmar a un article du Zuericher!
 Sozialdemokrat du 28 octobre 1886. L'article n'est pas:
 signé. Je ne me rappelle pas l'avoir écrit, sans cependant
 pouvoir l'affirmer. 11 m'a reproché de n'avoir pas soulevé
-à Munich la question des élections au Landtag bava-
-rois, Mais c'est parce que je ne voulais pas le faire
+à Munich la question des élections au Landtag bavarois, Mais c'est parce que je ne voulais pas le faire
 dans la capitale de la Bavière. Enfin il a une phrase
 de ma réponse au chancelier où je lui annoncais que
 nous serions ses plus fermes soutiens. Mais il n'a pas!
@@ -5556,8 +5301,7 @@ On passe au vote. On décide que les nombreux
 projets de résolutions sur la tactique seront tranchés
 par le vote sur la résolution 130 modifiée par la résolution 140. On décide de voter d'abord sur les nombreux
 
-Le paragraphe 1 modifié de la résolution 130 (résolu-
-tion 140) est adopté à une grande majorité, de même
+Le paragraphe 1 modifié de la résolution 130 (résolution 140) est adopté à une grande majorité, de même
 que l'amendement 144 (deuxième partie), et finalement
 tout le paragraphe 1 ainsi modifié.
 
@@ -5566,16 +5310,14 @@ de la résolution 130 sont adoptés sans modification.
 L'amendement 143 est adopté.
 Le paragraphe 4 de la résolution 130 est adopté sans
 L'amendement 142 est rejeté. L'amendement 141 est
-1 adopté pour sa première et deuxième partie. L'amen-
-dement 144 est adopté de même que le paragraphe
+1 adopté pour sa première et deuxième partie. L'amendement 144 est adopté de même que le paragraphe
 de la résolution 130 ainsi modifié.
 Un amendement Luxembourg-Zetkin-Stadthagen
 : demandant que la propagande socialiste dans le pays
 soit considérée comme l'affaire principale, afin de gagner maintenant en profondeur, est rejeté.
 : La résolution est maintenant ainsi formulée:
 « Le congrès demande que le groupe fasse valoir ses
-droits à occuper un poste de vice-président et de secré-
-taire par des candidats pris parmi lui, mais refuse
+droits à occuper un poste de vice-président et de secrétaire par des candidats pris parmi lui, mais refuse
 d'accepter les obligations de cour, ou de se soumettre à
 des conditions non justifiées par la constitution de
 l'empire.
@@ -5624,8 +5366,7 @@ l'exploitation sous toutes leurs formes, et à travailler
 et à l'accomplissement des missions politiques et civili-;
 satrices de la classe ouvrière. »
 
-On vote sur l'ensemble au scrutin nominal. La réso-
-lution est adoptée par 288 voix contre
+On vote sur l'ensemble au scrutin nominal. La résolution est adoptée par 288 voix contre
 Ont voté contre: Bernstein, Gertrude David, von Elm,
 
 Par sont tranchées les résolutions
@@ -5651,8 +5392,7 @@ mes amis, de Gerlach. Mais il n'est pour moi qu'une
 connaissance. On m'a reproché de n'avoir pas protesté
 
 le congrès de Dresde
-contre les éloges qu'il m'adressait. Je l'ai fait au congrès de Lubeck. Il a continué: je n'ai l'en empé-
-cher. Quant à ma déclaration dans le Vorwaerts, je
+contre les éloges qu'il m'adressait. Je l'ai fait au congrès de Lubeck. Il a continué: je n'ai l'en empécher. Quant à ma déclaration dans le Vorwaerts, je
 reconnais que la forme n'était ni nécessaire ni de circonstance. Mais je ne pense pas que ce soit une raison
 pour que le congrès sanctionne cette affaire par une
 résolution aussi décisive. Si elle était votée, je la considérerais comme un rappel à l'ordre.
@@ -5703,10 +5443,8 @@ Dimanche 20 septembre. — Séance du matin
 la présidence de Kaden..
 Eitzerodt, de Krefeld. — Il est regrettable que la
 fête du Premier Mai n'ait pas encore pris l'extension et
-le caractère que nous souhaitons. Maïs il n'est pas tou-
-jours possible de ne pas travailler ce jour-là, car les à
-caisses des syndicats seraient vidées par les dédom-
-magements qu'elles auraient à verser aux ouvriers
+le caractère que nous souhaitons. Maïs il n'est pas toujours possible de ne pas travailler ce jour-là, car les à
+caisses des syndicats seraient vidées par les dédommagements qu'elles auraient à verser aux ouvriers
 punis par les patrons. Heureusement que quelques-uns “4
 autorisent le Premier Mai. Je partage le point de vue
 Krueger, de Dresde. — Les ouvriers ne désirent
@@ -5724,19 +5462,16 @@ la répandre. (Approbation);
 le congrès de Dresde
 Loebe, de Breslau. — On est mécontent chez nous du
 peu de succès de cette fête qui n'a aucun caractère
-démonstratif. Aussi demandons-nous la cessation géné-
-rale du iravail ce jour-là ou la suppression de la fête.
+démonstratif. Aussi demandons-nous la cessation générale du iravail ce jour-là ou la suppression de la fête.
 La résolution de Munich est votée à nouveau.
 Singer prend la présidence.
 VII. — Résolutions touchant le programme
 et l'organisation
 Les motions 66 et 68 (sur le programme) ne réunissent pas le nombre de signatures voulues.
 Singer. — Les motions touchant l'organisation se
-divisent en trois groupes. Le premier a trait au para-
-graphe 2 de l'organisation, qui traite de l'exclusion,
+divisent en trois groupes. Le premier a trait au paragraphe 2 de l'organisation, qui traite de l'exclusion,
 le second à la représentation du groupe aux prochains
-congrès, le troisième à un changement dans la repré-
-sentation des circonscriptions au congrès. Il y a de
+congrès, le troisième à un changement dans la représentation des circonscriptions au congrès. Il y a de
 plus la résolution 134, demandant l'ajournement à l'an
 prochain. Je propose de discuter d'abord la résolu-
 La résolution 134 est votée. Les autres résolutions
@@ -5790,8 +5525,7 @@ je congrès, et dans son immense majorité le parti, veulent
 ne que le programme, la tactique, Paction, la propagande:
 du parti ne soient pas modifiés. (Vive approbation) Les
 É masses conservent leur point de vue révolutionnaire de
-1] la lutte de classe. C'est ce qu'a montré notre réso-
-lution, que tout le monde devra suivre et respecter.
+1] la lutte de classe. C'est ce qu'a montré notre résolution, que tout le monde devra suivre et respecter.
 Nous pouvons être contents du résultat de ce congrès.
 Nous pouvons être contents que la volonté du parti se
 soit aussi nettement manifestée, que nous ne voulions pas
@@ -5811,9 +5545,7 @@ si situation. Mais quoi qu'il arrive, la social-démocratie
 l'assaut de la réaction et montrer aux classes an
 ee: geantes que des millions d'ouvriers ne veulent plus se
 La laisser priver de leurs droits. (Vive approbation) Dans
-4 deux États vont avoir lieu des élections pour le Land-
-
-tag. Nos camarades y participeront. La lutte électorale
+4 deux États vont avoir lieu des élections pour le Landtag. Nos camarades y participeront. La lutte électorale
 favorisera notre propagande et prouvera combien est À
 misérable le système électoral à trois classes, qui prive bla:
 les ouvriers de leurs droits. (Approbation)
@@ -5826,9 +5558,8 @@ geusement et résolument au travail.:
 Comme toujours le bien du parti sera notre étoile. Nous à
 l'affirmons en faisant retentir comme au ‘début de nos DE.
 ï délibérations notre vieux cri de guerre: Vive la social-;
-1 Enthousiasmés, les délégués répètent trois fois ce cri
-et chantent debout la première strophe de la « Marseil-
-laise des travailleurs ».
+Enthousiasmés, les délégués répètent trois fois ce cri
+et chantent debout la première strophe de la « Marseillaise des travailleurs ».
 . Singer. — Le congrès est clos. à
 
 4. — Camarades de Hanovre, Berlin, etc.: Mettre à
@@ -5882,9 +5613,7 @@ Toutefois l'intérêt du parti, comme l'intérêt des camarades
 se trouvant dans cette situation, veut qu'il ne leur soit \1
 accordé aucun poste de confiance, parce que cela les mettrait À
 tôt ou tard en conflit avec eux-mêmes et leparti. -
-8. — Camarades de Berlin: La question de la collabo-
-ration de camarades à des organes qui ne sont pas social-
-démocratiques ou ne sont pas publiés par des socialistes n'est
+8. — Camarades de Berlin: La question de la collaboration de camarades à des organes qui ne sont pas socialdémocratiques ou ne sont pas publiés par des socialistes n'est
 pas réglée d'une façon définitive par la déclaration du Ni
 comité. Les organisations locales auront à décider d'après
 
@@ -5901,8 +5630,7 @@ deuxième circonscription de Berlin adhèrent absolument à
 40. — Les camarades de Hambourg estiment néces1 saire que la question de la collaboration de socialistes à
 des organes politiques de la bourgeoisie soit soumise par
 : le congrès à une discussion approfondie, et espèrent que
-par une décision du parti une norme sera tracée qui empé-
-chera dans l'avenir des faits comme ceux qui au printemps
+par une décision du parti une norme sera tracée qui empéchera dans l'avenir des faits comme ceux qui au printemps
 ; dernier donnèrent lieu à de vives discussions.
 414. — Camarades de Hamm {Hambourg III): La colla-
 £. boration littéraire et générale à des organes bourgeois n'est
@@ -5911,8 +5639,7 @@ pas permise aux camarades sans l'assentiment du comité.
 4 les camarades qui par leur collaboration à des journaux
 politiques adverses ou soi-disant indépendants nuisent à la
 considération du parti et mettent sans cesse des obstacles
-à la propagation de nos idées et à la diffusion des jour-
-naux du parti.
+à la propagation de nos idées et à la diffusion des journaux du parti.
 È 13. — Camarades d'Essen: Il est interdit aux camarades
 de se livrer à des polémiques dans les revues et organes
 44. — Camarades de Berlin: Il y a lieu de prendre
@@ -5932,8 +5659,7 @@ scientifiques il n'y a rien à objecter.:
 
 16. — Camarades de Brême: Des camarades ne peuvent
 être rédacteurs ou collaborateurs à des journaux ou revues
-non social-démocratiques que s'il s'agit de journaux scienti-
-fiques, techniques ou littéraires qui évitent la lutte contre
+non social-démocratiques que s'il s'agit de journaux scientifiques, techniques ou littéraires qui évitent la lutte contre
 la social-démocratie.
 
 17. — Camarades de Jueterbog, etc: Considérant que à
@@ -5969,14 +5695,11 @@ Siun'camarade contre qui une demande d'exclusion
 4 « Par la mort, la démission ou l'exelusion, l'ex-camarade
 4 perd tout droit qu'il aurait acquérir par sa présence
 
-dans le parti contre le parti, le comité directeur, La eom-
-
-mission de contrôle ou contre certains camarades. »
+dans le parti contre le parti, le comité directeur, La eommission de contrôle ou contre certains camarades. »
 1 19.— Camarades de Hambourg: Donner au deuxième
 alinéa du paragraphe 2 la rédaction suivante: « Les organisations locales décident si un membre continuera d'ap-
 ) partenir au parti, et pour les membres isolés le comité
-directeur. Les intéressés ont le droit d'en appeler aux con-
-trôleurs et en dernière instance au congrès. »
+directeur. Les intéressés ont le droit d'en appeler aux contrôleurs et en dernière instance au congrès. »
 20. — 'Camarades de ‘Berlin III: Le comité directeur est
 3! chargé de soumettre au prochain congrès un projet régle1 mentant à nouveau la représentation du groupe et des con-
 
@@ -6023,9 +5746,7 @@ directeur d'informer le prochain congrès si une modifica196
 
 circonscriptions qui auront donné jusqu'à 10.000 voix
 
-pourront envoyer un délégué; de 10.000 à 25.000, deux; au-
-
-dessus de 25.000, trois; avec cette restriction cependant que
+pourront envoyer un délégué; de 10.000 à 25.000, deux; audessus de 25.000, trois; avec cette restriction cependant que
 
 les circonscriptions de moins de 1.500 voix devront remettre
 
@@ -6130,8 +5851,7 @@ comme lon dit.
 fixer à l'organe central, en ce qui concerne sa conduite à
 l'égard des organisations locales dans les questions de tactique, des limites déterminées n'allant pas au delà de la
 44. — Camarades' de Schoeneberg: Quele congrès trouve
-les moyens de baisser le prix du Vorwaerts et des bro-
-chures du parti.
+les moyens de baisser le prix du Vorwaerts et des brochures du parti.
 45. — Camarades de Francfort-sur-le-Mein: Tenter des
 É démarches pour que les revues mensuelles, bi-mensuelles,
 3 hebdomadaires existant dans le parti: Neue Zeit, Sozialis3 tische Monatshefte, Kommunale Praxis, et la revue hebdo1 madaire annoncée de Braun,.soient réunies et fondues en
@@ -6247,8 +5967,7 @@ en 1893, Londres en 1896 et Paris en 1900, le congrès fait un )
 devoir aux ouvriers et organisations ouvrières de faire des
 démonstrations par des réunions tenues le soir du premier
 mai en faveur des revendications de classe du prolétariat, à
-particulièrement en faveur d'un système suflisant de pro-
-tection ouvrière et d'une réduction de la durée du travail. »
+particulièrement en faveur d'un système suflisant de protection ouvrière et d'une réduction de la durée du travail. »
 65.— Camarades de Muenchen-Gladbach: Reporter la fête;
 du Premier Mai au premier dimanche de mai.
 ; 66. — Camarade Welker, de Wiesbaden: Donner au
@@ -6260,8 +5979,7 @@ publics pour les Églises ou religions; à
 Suppression de l'enseignement religieux confessionnel
 … Le remplacer par un enseignement de la morale sans
 fondement métaphysique, par un vaste enseignement des
-seiences naturelles, un enseignement scientifique de Fhis-
-toire des religions
+seiences naturelles, un enseignement scientifique de Fhistoire des religions
 À Interdiction de tout enseignement religieux dogmatique!
 à des enfants au-dessous de seize ans;
 Lutte contre toutes les fantaisies religieuses par la À
@@ -6297,9 +6015,7 @@ puisse plus être exposé aux atteintes des tribunaux et de la
 présenter à nouveau et sans retard dans la prochaine session du Reichstag les motions demandant la suppression
 des paragraphes sur les crimes de lèse-majesté et l'établissement d'une loi suffisante sur la responsabilité des;
 72. — Camarades de Berlin 1: Le groupe est chargé de
-commencer une propagande méthodique contre le milita204
-
-risme en présentant un projet de loi, et en insistant en particulier sur les points suivants:
+commencer une propagande méthodique contre le militarisme en présentant un projet de loi, et en insistant en particulier sur les points suivants:
 
 Suppression de la justice et du droit militaires;
 
@@ -6351,8 +6067,7 @@ l'intérêt des assurés aient un effet rétroactif.
 81.— Camarades d'Essen: Il faut insister pour qu'il soit
 engagé par des mesures légales une lutte efficace contre la
 maladie du ver des mineurs.
-82. — Camarades de la circonscription de Strasbourg-
-campagne: Présenter au début de la nouvelle législature
+82. — Camarades de la circonscription de Strasbourgcampagne: Présenter au début de la nouvelle législature
 une motion en faveur de la journée légale de dix heures
 et insister avec force pour l'obtention de cette mesure pro- a
 83. — Camarades de Brême, etc.: La propagande en
@@ -6377,8 +6092,7 @@ Pour les ouvrières non adultes réduction du maximum
 dix-huit ans, et instruction complémentaire obligatoire dans
 laquelle rentreraient l'économie domestique, l'hygiène et
 À les soins à donner aux nourrissons.
-Pour toutes les ouvrières suppression des heures supplé-
-mentaires et liberté le samedi après-midi.
+Pour toutes les ouvrières suppression des heures supplémentaires et liberté le samedi après-midi.
 à 2. Interdiction absolue du travail de nuit pour les
 3. Interdiction de l'emploi des femmes dans toutes les
 occupations nuisibles à l'organisme féminin.
@@ -6386,8 +6100,7 @@ Favoriser légalement l'établissement dans les usines et
 ateliers des aménagements qui protègent la santé de celles
 qui y sont occupées. Remplacer les matériaux employés au
 cours du travail qui nuisent à la santé par d'autres inof-
-4 4. Extension des mesures de protection au travail à domi-
-cile, conformément à la décision du quatrième congrès
+4 4. Extension des mesures de protection au travail à domicile, conformément à la décision du quatrième congrès
 syndical de Stuttgart.
 5. Création d'inspectrices du travail.
 6. Droit de suffrage actif et passif pour les femmes pour
@@ -6414,16 +6127,14 @@ Il sera possible d'exécuter ces mesures en uniformisant
 les assurances contre la maladie, par la réunion de ces
 caisses en fédérations susceptibles d'avoir un capital, par
 un droit d'administration très étendu des assurés par euxmêmes et enfin par des subventions de l'État.
-Création de maternités, de maisons pour femmes en-
-ceintes et accouchées, d'institutions pour mères allaitant
+Création de maternités, de maisons pour femmes enceintes et accouchées, d'institutions pour mères allaitant
 leurs enfants, organisation par les communes des soins à
 85 bis. — Camarades de Francfort-Lebus: Soumettre au
 Reïichstag pendant la prochaine législature un projet de
 loi étendant aux femmes le droit de suffrage universel,
 égal et direct.
 86. — Camarades d'Essen: Le groupe socialiste lors de
-la discussion des droits de succession est chargé de récla-
-mer l'élévation de ces droits.
+la discussion des droits de succession est chargé de réclamer l'élévation de ces droits.
 87. — Camarades de Bromberg: Le groupe est prié de
 porter au Reichstag, dès qu'une occasion se produira, la
 question du procès pour désordre public à Bromberg et la
@@ -6489,8 +6200,7 @@ devoir du groupe socialiste du Reichstag de faire profiter
 la législation actuelle de la force créatrice infinie du principe démocratique et socialiste. Le résultat d'une semblable
 tactique est triple; elle obtient des réformes utiles et importantes, elle découvre la pauvreté intellectuelle et l'étroitesse haineuse des avoués des classes capitalistes et de
 leurs agents gouvernementaux, montre les bornes et les
-limites en deçà desquelles dans la société actuelle des amé-
-liorations décisives sont impossibles, et fait ainsi la lumière
+limites en deçà desquelles dans la société actuelle des améliorations décisives sont impossibles, et fait ainsi la lumière
 sur le et en faveur du programme social-démocratique.
 Aller jusqu'à ces bornes et limites, dont nous sommes encore
 très éloignés, et réaliser tout le possible, telle est notre
@@ -6501,9 +6211,7 @@ bien élaborés. Aux divers projets il faudra joindre des
 exposés des motifs et des mémoires, et il faudra obtenir
 que, selon l'usage d'autres Parlements, ces exposés soient
 insérés dans les publications officielles du Reichstag; en
-même temps ces publications devront être rendues accessi210
-
-bles à tous aux prix les plus bas, à l'instar par exemple du;
+même temps ces publications devront être rendues accessibles à tous aux prix les plus bas, à l'instar par exemple du;
 journal ouvrier de l'empire /Reichs-Arbeitsblatt). Parmi les;
 sujets qui seraient à traiter en première ligne par de semblables projets socialistes positifs et approfondis, il faut
 citer: la réforme des finances de l'empire, la protection
@@ -6526,8 +6234,7 @@ de ses mesures tactiques. Les camarades réunis espèrent
 que le congrès de Dresde exprimera de façon non ambi-:
 -. guë, et telle qu'on ne puisse pas s'y méprendre, cette façon
 2,
-4104. — Les camarades de Berlin voient dans la ma-
-aière dont le camarade Bernstein a traité publiquement la
+4104. — Les camarades de Berlin voient dans la maaière dont le camarade Bernstein a traité publiquement la
 question de la vice-présidence, avant d'en avoir parlé dans
 …. le groupe dont il est membre, un manque de tact qui fait
 plus de tort que de bien au parti, et espèrent qu'à l'avenir
@@ -6557,8 +6264,7 @@ réunis de la douzième circonscription électorale du Reichs-
 de la vice-présidence et lui soumettent dans cette intention
 la motion suivante:
 
-Le congrès proteste contre l'acceptation pour des repré-
-sentants du peuple de participer en quelque manière à des
+Le congrès proteste contre l'acceptation pour des représentants du peuple de participer en quelque manière à des
 
 Il désapprouve nettement les efforts revisionnistes
 de certains camarades venus au jour à plusieurs reprises
@@ -6569,8 +6275,7 @@ Le congrès refuse absolument de laisser jamais effacer le
 caractère de lutte de classe de notre parti pour de prétendus
 
 107. — Camarades de Leipsig-campagne: Les camarades
-réunis de la treizième circonscription se prononcent nette-
-ment contre les opinions soutenues par Bernstein, Vollmar
+réunis de la treizième circonscription se prononcent nettement contre les opinions soutenues par Bernstein, Vollmar
 et autres au sujet de la vice-présidence du Reïchstag. Ils
 s'opposent surtout à ce que de telles questions soient tranchées par le groupe, tiennent au contraire le congrès pour
 
@@ -6634,12 +6339,9 @@ saxonne: Considérant que la tactique de nos adversaires
 dans les communes rurales devient brutale, considérant
 en outre que nos adversaires disposent pour la grande
 majorité des propriétés telles que maisons, domaines et
-fermes et portent un préjudice considérable à nos cama-
-rades qui font ouvertement de la propagande ou repré-
-sentent le parti comme hommes de confiance, en ce sens::
+fermes et portent un préjudice considérable à nos camarades qui font ouvertement de la propagande ou représentent le parti comme hommes de confiance, en ce sens::
 que messieurs les propriétaires donnent simplement congé
-à leurs locataires et que ceux-ci ne peuvent que difficile-
-ment trouver un logement dans la localité, — nous propo-:
+à leurs locataires et que ceux-ci ne peuvent que difficilement trouver un logement dans la localité, — nous propo-:
 sons que le parti s'efforce, dans des cas semblables,
 d'acquérir des maisons ou de prendre des fermes sous sa.
 112. — Camarades de Brême: Le congrès recommande
@@ -6656,7 +6358,7 @@ instructions aux circonscriptions pour l'organisation de
 ; Le congrès élit une commission de dix personnes chargée
 ; de préparer des projets de loi.
 À La commission fait connaître au moment opportun sur
-:! quelle question un projet est préparé. Tous les camarades
+quelle question un projet est préparé. Tous les camarades
 fournissent les matériaux nécessaires (observations, renseignements, vœux, etc.) à la commission; celle-ci les classe
 : et soumet au groupe parlementaire à fin de discussion le
 ; - projet qui en sera sorti. Après cette discussion, le projet est
@@ -6664,11 +6366,9 @@ présenté comme motion au Reichstag, afin d'amener le
 gouvernement à s'occuper des tâches nécessaires de notre
 Comme premier travail nécessaire je propose: transfor-
 . mation de la loi sur la maladie, les accidents, la vieillesse,
-les infirmités en une loi se complétant elle-même et prenant une assurance contre le chômage et une adminis-
-par une loi d'empire: des écoles, constructions et loge-
+les infirmités en une loi se complétant elle-même et prenant une assurance contre le chômage et une adminispar une loi d'empire: des écoles, constructions et loge-
 ; ments, peines et prisons, et du travail dans les prisons, etc.
-La commission devra aussi prendre en main la protec-
-tion légale dans les affaires du parti, afin d'obtenir une
+La commission devra aussi prendre en main la protection légale dans les affaires du parti, afin d'obtenir une
 1 plus grande uniformité dans les jurisprudences si difré-
 Résolution B. La presse du parti étant trop exposée à
 à des variations possibles du prix du papier, je demande au
@@ -6701,9 +6401,7 @@ Motions parvenues ultérieurement ou présentées
 pendant les débats
 
 416. — Camarades de Hausham: Le comité directeur
-est chargé de publier sous peu et au prix le plus bas pos-
-sible une brochure contenant tous les succès et améliora-
-tions que le parti a obtenus sur le terrain économique ou
+est chargé de publier sous peu et au prix le plus bas possible une brochure contenant tous les succès et améliorations que le parti a obtenus sur le terrain économique ou
 social au Reichstag aussi bien que dans les Landtags et
 les municipalités.
 
@@ -6741,19 +6439,16 @@ feuille devra être délivrée aux circonscriptions au prix de
 faire du parti une maison de refuge pour les éléments faillis de la bourgeoisie, et empêcher le trop grand accroissement du nombre des intellectuels dans le parti, que le con-
 
 « Aucune fonction publique du parti, ni comme rédacteur
-ni comme orateur, aucune fonction rétribuée ne sera con-
-fiée à aucun camarade, à moins que celui-ci n'appartienne
+ni comme orateur, aucune fonction rétribuée ne sera confiée à aucun camarade, à moins que celui-ci n'appartienne
 au moins depuis deux ans officiellement au parti comme
 membre des comités électoraux ou des groupes socialistes
 : dont il s'agit. »
 : 121. — Conférence de la circonscription Kolberg-Koeslin4 Bublitz: Le groupe socialiste est prié d'agir en sorte qu'aux
-À prochaines élections au Reichstag les commissaires élec-
-toraux soient invités à ne pas diviser les districts électoy raux, surtout à la campagne, en districts de moins de trois
+À prochaines élections au Reichstag les commissaires électoraux soient invités à ne pas diviser les districts électoy raux, surtout à la campagne, en districts de moins de trois
 
 122. — Camarades de Zabrze: Les camarades de Zabrze
 
-, et environs invitent le comité directeur à ne laisser pa-
-raître qu'un seul journal polonais-allemand pour toute
+, et environs invitent le comité directeur à ne laisser paraître qu'un seul journal polonais-allemand pour toute
 
 123. — Camarades de Nuremberg: Tenir le congrès de
 
@@ -6776,25 +6471,21 @@ retard des réformes dans le sens du socialisme sur le terrain économique et po
 
 Le congrès décide que les camarades de partout devront
 
-: organiser une propagande intense dans les milieux ou-
-vriers. Il faut, afin de fortifier nos groupes socialistes, con-
-voquer partout de grandes réunions populaires avec le
+: organiser une propagande intense dans les milieux ouvriers. Il faut, afin de fortifier nos groupes socialistes, convoquer partout de grandes réunions populaires avec le
 même ordre du jour: le tarif douanier allemand, les traités de commerce, le libre-échange et discussion. Toute
 notre presse politique devra soutenir cette propagande et
 chaque citoyenne, chaque camarade a le devoir de poursuivre dans son milieu cette propagande oralement,
 d'appeler l'attention sur cette réunion et d'engager
 
 Il est fait de même un devoir aux citoyennes et camarades de travailler partout de la façon la plus énergique à
-fortifier les syndicats libres et les organisations coopéra-
-tives fondées et dirigées par des ouvrières et ouvriers et
+fortifier les syndicats libres et les organisations coopératives fondées et dirigées par des ouvrières et ouvriers et
 
 . de faire en leur faveur une propagande intense, uniforme
 et méthodique. Pour atteindre ce but il faudra organiser
 
 ? également des réunions publiques sur le même sujet:
 
-tarifs douaniers, traités de commerce, libre-échange et dis-
-cussion, et ici également la presse syndicale devra seconder
+tarifs douaniers, traités de commerce, libre-échange et discussion, et ici également la presse syndicale devra seconder
 cette propagande. Chaque citoyenne et chaque camarade
 devra se consacrer sérieusement à la propagande orale.
 427.— Motion du camarade Franz K. A. Weinert, de
@@ -6805,8 +6496,7 @@ imprimeries politiques et syndicales. La commission ferait
 au prochain congrès son rapport sur les travaux prépa-:
 ratoires. La motion présente a pour but de faciliter les
 moyens de fournir du papier meilleur et meilleur marché.
-De plus cette fabrique du parti pourra produire un béné-
-fice appréciable, qui ne sera pas une source de revenus
+De plus cette fabrique du parti pourra produire un bénéfice appréciable, qui ne sera pas une source de revenus
 négligeable pour le prolétariat combattant.
 428. — Paeplow, de Hambourg, et 22 camarades:
 La collaboration littéraire (1) de camarades à des journaux
@@ -6815,8 +6505,7 @@ intérêts du parti.
 Des exceptions à cette règle ne sont admissibles que s'il
 s'agit de revues qui traitent exclusivement de questions
 artistiques ou techniques.
-Le comité directeur a la tâche ferme de veiller à l'exé-
-cution des principes ci-dessus et de relever de la manière à
+Le comité directeur a la tâche ferme de veiller à l'exécution des principes ci-dessus et de relever de la manière à
 1 la plus formelle les infractions possibles et de proposer au
 besoin l'exclusion des membres du parti coupables de ces
 ; 429. — Résolution. Conférence de la circonscription
@@ -6833,8 +6522,7 @@ Si toute démonstration monarchiste en soi est inadmissible
 dans le parti, elle l'est doublement après les discours d'Essen
 et de Breslau. La conférence voit dans ces propositions une
 nouvelle manifestation de ce courant revisionniste qui tend
-lutte de classe prolétarienne et révolutionnaire. La confé-
-rence condamne ces tendances formellement, et espère que
+lutte de classe prolétarienne et révolutionnaire. La conférence condamne ces tendances formellement, et espère que
 le congrès prendra une attitude semblable.
 
 130. — Résolution Bebel, Kautsky, Singer: Le congrès
@@ -6843,8 +6531,7 @@ vice-président et de secrétaire au Reichstag à sa conduite
 habituelle, — refus de toutes les obligations non prescrites
 par le règlement.
 
-Le congrès condamne de la façon la plus formelle les ten-
-dances revisionnistes qui prétendent modifier notre tactique
+Le congrès condamne de la façon la plus formelle les tendances revisionnistes qui prétendent modifier notre tactique
 passée, éprouvée, victorieuse, reposant sur la lutte de
 classe, et mettre à la place de la conquête du pouvoir
 politique par la défaite de nos adversaires, une politique
@@ -6859,8 +6546,7 @@ mot, par un parti qui se contenterait de réformer la société
 Le congrès condamne en outre toute tentative pour pal-;
 lier les antagonismes de classe afin de faciliter un ratta- (1
 
-Le congrès espère que le groupe usera de sa puis-
-sance accrue par le nombre de ses membres comme par le
+Le congrès espère que le groupe usera de sa puissance accrue par le nombre de ses membres comme par le
 puissant accroissement des masses électorales derrière lui,
 pour défendre conformément aux principes de notre programme, avec toute la force et l'insistance possibles, les
 intérêts de la classe ouvrière, pour réclamer de même
@@ -6934,15 +6620,13 @@ directeur de mettre la question de la grève générale à l'ordre
 du jour du prochain congrès.
 
 139. — Docteur Robert Michels et 24 camarades; Le,
-congrès désapprouve de la façon la plus formelle la con-
-duite du camarade Wolfgang Heine dans sa déclaration du
+congrès désapprouve de la façon la plus formelle la conduite du camarade Wolfgang Heine dans sa déclaration du
 
 : Vorwaerts du 12 août 1903 où il est dit textuellement
 
 « La raison de ce bruit est simplement que les cama- à
 rades de Marbourg qui ont voté pour l'abstention sentent
-qu'is se sont discrédités. Je comprends que cela les con-
-trarie, mais ils devraient, au lieu de chercher misérablement À
+qu'is se sont discrédités. Je comprends que cela les contrarie, mais ils devraient, au lieu de chercher misérablement À
 un bouc émissaire, trouver en eux-mêmes la raison de leur
 situation pénible, et se montrer reconnaissants à celui qui
 leur aurait épargné de se discréditer eux-mêmes et tout le
@@ -6963,8 +6647,7 @@ le premier paragraphe de la résolution
 « Le congrès demande que le groupe fasse valoir ses
 droits à occuper un poste de vice-président et de secrétaire
 par des candidats pris parmi lui, mais refuse d'accepter les
-obligations de cour ou autres non prévues par la consti-
-tution de l'empire ou le règlement du Reichstag. »
+obligations de cour ou autres non prévues par la constitution de l'empire ou le règlement du Reichstag. »
 
 1 4141. — C. Legien: Effacer dans la résolution 130 les
 deux mots « revisionnistes » et mettre dans le dernier graphe « politique de puissance mondiale » à la place de
@@ -6982,9 +6665,7 @@ socialiste pour la législation actuelle. A cette fin il faut élaborer des proj
 ajouter des exposés des motifs et mémoires étendus, et
 È prendre soin d'organiser dans les masses profondes de la
 
-classe ouvrière une propagande puissante pour les propo-
-
-sitions du moment, afin de contraindre les législateurs et
+classe ouvrière une propagande puissante pour les propositions du moment, afin de contraindre les législateurs et
 
 à le gouvernement à renoncer sur ces terrains au travail
 ; inutile de rapiéçage. Parmi les questions qui devraient être
@@ -7025,7 +6706,7 @@ sur le but de la social-démocratie ».
 « accepter des obligations ou se soumettre à des conditions
 qui ne sont pas justifiées par la constitution de l'empire ».
 
-2 Braun, invalidé, a été remplacé par Bassermann, le leader du
+Braun, invalidé, a été remplacé par Bassermann, le leader du
 
 (1) Goehre, ayant démissionné, a été remplacé par un socialiste.
 (2) Rosenow, décédé, a été remplacé par un conservateur antisémite.;
@@ -7121,10 +6802,8 @@ Grand discours de Bebel; opération chirurgicale inévitable; indispensable; que
 secondaire; grave; formule de résolution non
 parfaite; dans la pratique, il faut examiner
 chaque cas; distinguer la Berliner Morgenpost
-de la Zukunft; contre la Zukunft; contre Har-
-apologétique de Mehring; souvenirs; Braun et
-Mebring; et Kautsky; c'est Braun qui a intro-
-duit Mehring dans la rédaction de la Neue Zeit;
+de la Zukunft; contre la Zukunft; contre Harapologétique de Mehring; souvenirs; Braun et
+Mebring; et Kautsky; c'est Braun qui a introduit Mehring dans la rédaction de la Neue Zeit;
 
 À eomment Mehring amené à écrire l'histoire du
 L. parti; comment publication des œuvres post-
@@ -7169,8 +6848,7 @@ que les autorités compétentes du parti l'invitent
 à la reprendre; Boemelburg.
 Séance de l'Aprés-mi0t 9029 ORNE
 Pfannkuch, rapporteur; défend le texte adopté
-ï par le comité; scrutin; motion 7 adoptée; diffé-
-rend entre Bebel et le « Vorwaerts Bebel;non
+ï par le comité; scrutin; motion 7 adoptée; différend entre Bebel et le « Vorwaerts Bebel;non
 politique du Vorwaerts; la commission de la
 presse; les électeurs de Marbourg; pris entre deux
 décisions; phrases non offensantes pour Heine;
@@ -7187,17 +6865,14 @@ observations; autonomies locales et nationales;
 squestion des langues; Ledebour; la camarade
 Rosa Luxembourg;ennemie déclarée de lorgani1 sation polonaise; mauvaise conseillère du comité
 directeur; minorité des camarades polonais;
-4 la Gazetta Ludowa; Rosa Luxembourg; candi-
-dats polonais contre les candidats socialistes;
+4 la Gazetta Ludowa; Rosa Luxembourg; candidats polonais contre les candidats socialistes;
 les Polonais n'ont pas d'autres véritables défen1 É seurs que les socialistes; question nationale au
-premier plan; conception matérialiste de l'his-
-toire; incidents; personnalités; Ledebour ne
+premier plan; conception matérialiste de l'histoire; incidents; personnalités; Ledebour ne
 connaît pas la question; Ledebour; Loebe;
 Rapport sur l'activité parlementaire; le rap-:
 4 porteur Stadthagen; parlementarisme; nouveaux traités de commerce; tarif; questions
 ; ouvrières; droit de coalition; journée de huit:
-heures; service d'un an; armée de milices; jus-
-tice et code militaires; mode de vote; autres
+heures; service d'un an; armée de milices; justice et code militaires; mode de vote; autres
 : Le congrès international d'Amsterdam; Singer;
 la question du droit de vote pour les femmes;:
 4 des femmes; parmi les autres réformes électo4 rales et au même titre; Molkenbuhr; assurances
@@ -7250,8 +6925,7 @@ théorie que de l'autre côté des Vosges; la ten-
 ; avancées dans l'Allemagne du Sud; la tactique
 È des Bavaroïis dans la question des droits électoe raux; dans la question des chemins de fer;
 contre une décision du congrès de Mayence;
-une union des chemins de fer du Sud; le revi-
-sionnisme se distingue par sa grande modestie;;
+une union des chemins de fer du Sud; le revisionnisme se distingue par sa grande modestie;;
 les droits électoraux en Bavière et les ouvriers
 catholiques; plus nous serons modestes, moins
 nous obtiendrons; on ne peut sauter une
@@ -7292,9 +6966,7 @@ contre toute extension de la liberté politique;
 
 nous ne sommes pas près encore de devenir une
 
-république; nous ne sommes point des républi-
-
-cains bourgeois dont toute la pensée s'épuise:
+république; nous ne sommes point des républicains bourgeois dont toute la pensée s'épuise:
 dans la forme de l'État; pour nous, l'organisation sociale est plus importante; conception
 matérialiste de lhistoire; nulle péroraison;
 ceux qui ne sont à leur aise que lorsqu'ils
@@ -7308,10 +6980,7 @@ des tarifs; les lois d'assurance et de protection
 pour les Landtags; en Bavière en 1886; à Cologne en 1893; à Mayence en 1900; depuis;
 évolution non terminée; ne s'achèvera jamais;
 prudents; le discours de Munich; variations des
-opinions de Bebel sur ce discours; trop héré-
-tique pour croire, sans autre examen, aux explo-
-
-sions populaires; la flatterie est aussi condamnable lorsqu'elle s'adresse au peuple qu'aux
+opinions de Bebel sur ce discours; trop hérétique pour croire, sans autre examen, aux explosions populaires; la flatterie est aussi condamnable lorsqu'elle s'adresse au peuple qu'aux
 grands; flatterie de raconter que le sentiment
 
 à populaire est sûr et infaillible; cette conscience
@@ -7324,13 +6993,12 @@ camarades de première et de deuxième classe
 ou qualité; intellectuels; instinct de classe; non
 pays de diverses qualités; duché de Bade;
 Munich; vin et bière; le Sud économiquement
-arriéré; tout le monde ne peut pas être Prus-
-sien; congrès de Munich; élections au Landtag
+arriéré; tout le monde ne peut pas être Prussien; congrès de Munich; élections au Landtag
 ; bavarois; les je de Bebel; c'est ainsi que le lord
 ; ment; au congrès d'Erfurt; après le congrès de
 Cologne; Bebel plus souvent dans la minorité
 qu'autrefois; le parti est devenu trop grand;
-n'est-ce pas la masse qui élit les députés; millerandisme; et Millerand; un programme du chancelier; les éloges des adversaires vont aussi à;
+n'est-ce pas la masse qui élit les députés; millerandisme; et Millerand; un programme du chancelier; les éloges des adversaires vont aussi
 Bebel; byzantinisme de la presse du parti; quelle
 comédie? menaces de violences; Kautsky; le
 plutôt périr le monde ou même le parti, que
@@ -7371,8 +7039,7 @@ reviser programme; travail pratique; la plupart des camarades ne veulent plus se
 Vollmar à Munich; Bebel intermittent; la viceprésidence; personnalités; exemples de participation à des cérémonies oflicielles; réceptions
 bourgeoises; non obligatoires; Bebel démagogue; Kautsky ne bouge pas de Friedenau;
 
-Bebel orateur; dictateur génial; Bernstein; inci-
-dent Auer; agitation; chef et démocratie; Auer;
+Bebel orateur; dictateur génial; Bernstein; incident Auer; agitation; chef et démocratie; Auer;
 deux affaires personnelles; une lettre de Bebel;
 éloges des adversaires; Mehring n'est pas en
 possession de secrets; tactique évolue; législateur; non différences de principe, mais de tempéraments; Bebel; avaler est un acte nécessaire
@@ -7392,8 +7059,7 @@ un pape socialiste; nous appartenons à l'État,
 que nous le voulions ou non, nous entrons
 volontairement dans un parti; nouvelle méthode:
 française; revisionnisme et même anarchisme;;
-Vollmar et les bruits qui courent; non pas seu-
-lement différences et haines personnelles, mais
+Vollmar et les bruits qui courent; non pas seulement différences et haines personnelles, mais
 contraste réel; ou marxisme ou revisionnisme;
 une résolution de Hanovre; avances aux pouvoirs établis; si bourgeoisie non vaincue, ne
 voudra jamais partager; si vaincue, il n'est
@@ -7424,8 +7090,7 @@ l'empire allemand, mais seulement le pouvoir
 exécutif; députés socialistes dans commissions
 parlementaires; nulle indignation; Bebel dit
 que les chefs doivent suivre les masses; je crois
-qu'ils sont les avoués des masses; doivent s'en-
-tendre avec leurs mandants, mais doivent
+qu'ils sont les avoués des masses; doivent s'entendre avec leurs mandants, mais doivent
 avant tout défendre selon leur conviction les
 intérêts des ouvriers, au besoin s'opposer à
 ; ceux-ci et donner leurs arguments; éloges de la
@@ -7434,17 +7099,11 @@ politiques; évolution; Millerand; les ouvriers
 anglais; opinion de Hyndman; Burt et Broadhurst; la résolution de Hanovre; la politique
 
 4 coloniale; la lutte contre le libéralisme; résolu
-Lettre de quatre camarades polonais regret-
-tant le vote de la motion Luxembourg; Mol-
-kenbuhr; article de Bernstein maladroit; vice-
-président; tradition parlementaire; le parti est
-plus uni que jamais; aller à la cour; un précé-
-dent; faire partie de la majorité gouvernementale; Singer; une déclaration de Rosa Luxembourg; Bebel; incident Eisner; bureaux de;
-à placement mixtes; autres explications personnelles; Heine; répond à Kautsky; les revision-
-nistes sont libres entre eux et envers Bernstein;
+Lettre de quatre camarades polonais regrettant le vote de la motion Luxembourg; Molkenbuhr; article de Bernstein maladroit; viceprésident; tradition parlementaire; le parti est
+plus uni que jamais; aller à la cour; un précédent; faire partie de la majorité gouvernementale; Singer; une déclaration de Rosa Luxembourg; Bebel; incident Eisner; bureaux de;
+à placement mixtes; autres explications personnelles; Heine; répond à Kautsky; les revisionnistes sont libres entre eux et envers Bernstein;
 — scrutins; texte de la résolution votée; —
-Heine; incident de Gerlach; explications person-
-nelles; Michels; — V. — Fête du Premier Mai;
+Heine; incident de Gerlach; explications personnelles; Michels; — V. — Fête du Premier Mai;
 Pfannkuch; Friedeberg; Weidner. À
 le programme et l'organisation; Singer; —
 1 conclusion; franchise; il ne faut pas s'arrêter
@@ -7496,8 +7155,7 @@ seizième cahier de la cinquième série; à
 Première année, fascicule III, mai-juin 1903 un franc
 Georges Sorel, nouveaux réquisiloires de M. Brunetière;
 Karl Marx, capital et travail salarié, traduction Léon
-Rémy; Georges Sorel, observations sur le régime des che-
-mins de fer; Saint-Simon, nouveau christianisme.
+Rémy; Georges Sorel, observations sur le régime des chemins de fer; Saint-Simon, nouveau christianisme.
 Première année, fascicule IV, juillet-août 1903
 un franc
 Karl Marx, capital et travail salarié, traduction Léon
@@ -7524,16 +7182,14 @@ prochain du Cahier de Quinzaine en même place,
 . de « Félicien Challaye » des insinuations calomnieuses
 et injurieuses qu'il m'adresse en prenant prétexte gratuit d'une collaboration au journal de Laval, collaboration maintes fois du reste démentie par le dit Journal,
 mais qui en l'espèce n'avait et, n'a rien à voir aux faits
-1 faux-erronnés, calomnieux et diffamatoires que con-
-tiennent à mon adresse les lignes de M. Challaye.
+1 faux-erronnés, calomnieux et diffamatoires que contiennent à mon adresse les lignes de M. Challaye.
 D'abord, — page 31 du Cahier de la Quinzaine, mars
 à 1904: « L'un des collaborateurs du Journal radical,
 « celui qui y écrit les articles de haute philosophie
 « Politique, sous un pseudonyme, est un chanoine bien
 à « connu à Laval, pour l'audace de ses idées. et La
 « liberté de sa conduite. »
-à Et afin que l'on ne puisse se méprendre sur le cha-
-noine ainsi visé, M. Challaye me nomme clairement
+à Et afin que l'on ne puisse se méprendre sur le chanoine ainsi visé, M. Challaye me nomme clairement
 ; quelques lignes plus bas sous le prétexte d'une dépêche
 du Pape à mon adresse, avec les commentaires divers
 des journaux locaux de Janvier 1903, — Avenir et
@@ -7646,16 +7302,14 @@ du dit Journal, ainsi dit.
 
 D'avoir à insérer, conformément au vœu de la loi,
 dans le plus prochain numéro des cahiers de Quinzaine,
-la lettre dont copie entière est donnée en tête des pré-
-sentes; la dite lettre en date à Laval du vingt-cinq
+la lettre dont copie entière est donnée en tête des présentes; la dite lettre en date à Laval du vingt-cinq
 avril mil neuf cent quatre, et portant la mention sui-
 
 254,
 
 vante: Enregistré à Laval le vingt-huit avril 1904, "1
 Lui déclarant que faute d'avoir égard à la présente À
-ne sommation, M. Dissard requérant se pourvoira immé-
-diatement devant le tribunal compétant pour l'y con-
+ne sommation, M. Dissard requérant se pourvoira immédiatement devant le tribunal compétant pour l'y con-
 à traindre avec tous dépens et dommages intérêts qu'il de
 À A fin que M. Péguy n'en ignore. à
 À Sous les plus expresses réserves. Dont Acte

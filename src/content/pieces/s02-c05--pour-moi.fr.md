@@ -65,8 +65,7 @@ année en lui disant: Grand mère, je te souhaite une
 bonne année et une bonne santé, et le paradis à la fin
 de tes jours. Telle était la formule usitée parmi le
 peuple de ma province. Ma grand mère est morte, et je
-ne sais pas si elle est en paradis, parce que je suis his-
-torien et que nous n'avons aucun monument qui nous
+ne sais pas si elle est en paradis, parce que je suis historien et que nous n'avons aucun monument qui nous
 renseigne sur l'histoire du paradis.
 — Nous venons te souhaiter la bonne année, répéta
 gravement Pierre Baudouin. Au temps que nous vivons,
@@ -77,8 +76,7 @@ beaucoup d'honnêtes gens t'apportent beaucoup de bonne
 copie, que les compositeurs ne te fassent aucune coquille et que les imprimeurs ne t'impriment aucune
 bourde; enfin je te souhaite que les abonnés croissent
 
-— Mais, dit Pierre Deloire, comme l'histoire des évé-
-nements nous fait voir que Les souhaits ne suffisent pas,
+— Mais, dit Pierre Deloire, comme l'histoire des événements nous fait voir que Les souhaits ne suffisent pas,
 je apporte pour le mois de janvier les dix francs de
 souscription mensuelle que je prélève sur le produit des!
 leçons que je vends.
@@ -133,8 +131,7 @@ L'auteur avait mis d'abord: L'œuvre qu'il à fondée et
 fait vivre. Il a rectifié: L'œuvre qu'il a sinon fondée, du
 moins fait vivre. -
 
-— Il a aussi bien fait de rectifier. Nous vous requé-
-rons de continuer.
+— Il a aussi bien fait de rectifier. Nous vous requérons de continuer.
 
 — L'œuvre qu'il a sinon fondée du moins fait vivre,
 la librairie est maintenant le centre de réunion de tous
@@ -186,8 +183,7 @@ affaires de nos adversaires.
 3° La plupart des lettres que tu insères n'ont d'intérêt
 que pour toi, puisqu'elles ne contiennent que des réserves à ton adresse ou des conseils.
 A quoi bon revenir longuementsur le Journal d'une
-femme de chambre et donner à cette ordure les propor-
-tions d'un événement? Tout ce que tu publies aujourd'hui a déjà été dit la dernière fois. Ce n'est que du
+femme de chambre et donner à cette ordure les proportions d'un événement? Tout ce que tu publies aujourd'hui a déjà été dit la dernière fois. Ce n'est que du
 
 5° Les annonces de l'école des hautes études sociales
 occupent 15 pages de ton cahier!
@@ -346,9 +342,7 @@ Si tu savais combien l'énorme masse est indifférente
 tout cela, surtout l'énorme masse des professeurs,
 auxquels tu t'adresses, et qui sont, en grande majorité,
 réactionnaires bourgeois et cléricaux, et dont les 99/100
-ne pensent qu'à leur métier, leur gagne-pain, leur avan-
-
-cinquième cahier de la deuxième série
+ne pensent qu'à leur métier, leur gagne-pain, leur avancinquième cahier de la deuxième série
 cement. S'il y en a par-ci par-là un qui partage nos idées
 — ou qui s'en sert il peut d'abord être pour nous
 plus gênant qu'utile, et en tout cas ne peut pas faire grand
@@ -409,8 +403,7 @@ celle qu'on leur attribue à Paris. Je crois que le mieux
 est d'entrer résolument dans l'action qui seule dissipe
 les malentendus.
 
-Maintenant il est entendu que tout cela n'est que pré-
-caution, réserve, correction et qu'en discutant avec tel
+Maintenant il est entendu que tout cela n'est que précaution, réserve, correction et qu'en discutant avec tel
 de tes adversaires, je lui dirais bien des choses que tu
 me répondras sans doute.
 
@@ -447,16 +440,14 @@ congrès de Paris, du premier congrès national, écœuré
 du mensonge et de l'injustice nouvelle qui s'imposeraient au nom d'un parti nouveau, la résolution me
 vint, en un coup de révolte spontané, de publier ce que
 mes amis sentaient,, disaient, pensaient, voulaient,
-croyaient, savaient. C'était une résolution singuliè-
-rement audacieuse, puisque toute la puissance de la
+croyaient, savaient. C'était une résolution singulièrement audacieuse, puisque toute la puissance de la
 vieille et de la nouvelle autorité allait me retomber sur
 
 les reins, puisque je n'avais pas un sou vaillant, puisque j'étais épuisé, puisque je ne savais pas si j'écrirais
 ni ce que j'écrirais. Ma finance était épuisée puisque
 les trois cinquièmes qui m'en sont demeurés étaient
 immobilisés pour au moins deux ans dans la fondation
-de la même Société Nouvelle. Mes forces étaient épui-
-sées par le travail que j'avais fait dans le rang depuis
+de la même Société Nouvelle. Mes forces étaient épuisées par le travail que j'avais fait dans le rang depuis
 que j'étais devenu socialiste et dreyfusiste. Je ne savais
 pas comme j'écrirais, parce que depuis vingt mois,
 tout occupé d'éditer mes camarades et mes amis,
@@ -557,15 +548,13 @@ sion universitaire; question d'Alsace-Lorraine; la
 La bee religieuse; Léon France et l'Allemagne
 et le catholicisme social
 seignant; interpellation Thierry double alliance le Tsar
-L'enseignement laïque et l'en-
-seignement clérical; réponse à La France en Orient; les masM. d'Hulst; sacres d'Arménie; la guerre de
+L'enseignement laïque et l'enseignement clérical; réponse à La France en Orient; les masM. d'Hulst; sacres d'Arménie; la guerre de
 
 Science et socialisme; l'indépendancecrétoise; la guerre
 
 des socialistes dans l'enseigne- 4 nie
 ment bourgeois; La guerre hispano-américaine
-La question sociale dans l'en-
-seignement. L'affaire de Fashoda.
+La question sociale dans l'enseignement. L'affaire de Fashoda.
 
 En même temps je demandai au conseil à faire en
 commun,des éditions avec la librairie, à peu près
@@ -596,8 +585,7 @@ dont la publication incombe à la Société; nous vous
 demandons enfin de faire connaître régulièrement aux
 imprimeurs et fournisseurs avec lesquels vous avez été
 en relation au nom de la Société, que les ordres que
-vous donnerez et les commandes que vous ferez doré-
-navant n'engagent plus à aucun degré la Société.
+vous donnerez et les commandes que vous ferez dorénavant n'engagent plus à aucun degré la Société.
 
 cinquième cahier de la deuxième série
 
@@ -699,8 +687,7 @@ demander la division, qui est de droit. Et comme je
 voulais approuver le restant du rapport, comme je
 voulais approuver hautement le travail considérable
 que les mêmes hommes avaient fait pour la réinstallation de la librairie, je votai oui sur l'ensemble du
-rapport, j'adoptai avec l'immense majorité des socié-
-taires la partie du rapport qui me maltraitait.
+rapport, j'adoptai avec l'immense majorité des sociétaires la partie du rapport qui me maltraitait.
 
 Je répondis à cette accusation en publiant dans le
 deuxième cahier, à la page trois de la couverture, cet
@@ -716,9 +703,7 @@ socialistes françaises tenu à Paris du 3 au 8 décembre
 Pendant un an je saisis toutes les occasions de faire
 la Société Nouvelle une utile publicité. Je rappelai sur la
 couverture du quatrième cahier, pour mémoire, à tous
-ceux qui auraient entendu prononcer quelque réquisi-
-
-cinquième cahier de la deuxième série
+ceux qui auraient entendu prononcer quelque réquisicinquième cahier de la deuxième série
 toire contre ces cahiers qu'aussi longtemps qu'ils ne
 m'auront pas entendu en ma défense ils seront dansune
 situation exactement antidreyfusiste. ne vinrent pas
@@ -744,12 +729,9 @@ Dejean. C'était vouloir que l'édition ne se fit pas. Dejean,
 me dit-on, réclama des droits d'auteur. Les imprimeurs
 
 Dans le septième cahier, page 53, éenue du congrès
-national, j'annonçais encore le Compte rendu sténo-
-
-graphique officiel édité par la librairie. Sur la couverture, j'annonçai en bonne place
+national, j'annonçais encore le Compte rendu sténographique officiel édité par la librairie. Sur la couverture, j'annonçai en bonne place
 Vient de paraître à la Société Nouvelle de librairie et
-d'édition, 17, rue Cujas, Paris, le Procès des Assomptionnistes, réquisitoire du Parquet, exposé et réquisitoire du Procureur de la République, compte rendu sté-
-nographique partiel des débats, arrêt, 1 volume,
+d'édition, 17, rue Cujas, Paris, le Procès des Assomptionnistes, réquisitoire du Parquet, exposé et réquisitoire du Procureur de la République, compte rendu sténographique partiel des débats, arrêt, 1 volume,
 pages, imprimées très denses, in-16, pour cinquante centimes.
 
 Dans le huitième cahier j'annonçai à la dernière page
@@ -786,8 +768,7 @@ de librairie et d'édition, 17, rue Cujas.
 
 — Pour beaucoup de raisons que je vous donnerai
 plus tard, docteur, mais surtout parce que cette maison
-est, à ma connaissance, la première et la seule coopé-
-rative de production et de consommation qui travaille
+est, à ma connaissance, la première et la seule coopérative de production et de consommation qui travaille
 l'industrie et au commerce du livre.
 
 Quand je fis le tirage à part de la lumière, je pressentis le seul conseiller d'administration qui m'eût
@@ -800,8 +781,7 @@ Au demeurant, vous avez les cahiers de la deuxième
 les faits de la nouvelle année scolaire.
 
 — Premier fait. — Je lus à Coulommiers, où je faisais
-ines vingt-huit jours, que le congrès socialiste international commençait le dimanche matin, jour de ma libé-
-ration. C'était le vendredi. Je croyais savoir que l'international ne commencerait qu'après que le national serait
+ines vingt-huit jours, que le congrès socialiste international commençait le dimanche matin, jour de ma libération. C'était le vendredi. Je croyais savoir que l'international ne commencerait qu'après que le national serait
 
 fini. J'avais été sans nouvelles pendant mon service et
 en particulier pendant les manœuvres de Beauce. Un mot
@@ -866,9 +846,7 @@ des pseudonymats. Je n'en veux plus.
 
 — Il faut pourtant commencer par un bout, répondit
 Pierre Deloire. Je me suis efforcé de dégager de ce
-fatras quelques chefs généraux d'accusation. Je com-
-
-mence par le premier
+fatras quelques chefs généraux d'accusation. Je commence par le premier
 Péguy est accusé d'avoir accueilli ou mis dans les
 
 cahiers de la copie qui ne sert pas à la propagande.
@@ -907,12 +885,9 @@ comme il est pour que je le propagandise. La propagandisation ainsi entendue com
 pratique a toujours conduit à faire massacrer les impropagandisables par leurs anciens amis propagandisés.
 Voyez ce qui advient aux malheureux Chinois. La propagandisation est une forme de la conquête. Quand nos
 amis du Parti ouvrier français, fructueusement alliés
-aux radicaux, eurent enlevé aux réactionnaires le con-
-
-seil municipal de Lille, vous vous rappelez sans doute
+aux radicaux, eurent enlevé aux réactionnaires le conseil municipal de Lille, vous vous rappelez sans doute
 l'enthousiasme avec lequel un journal ami, la Petite
-République, afficha une énorme manchette: Lille con-
-quise. Un envahisseur militaire parlerait ainsi. Ou bien
+République, afficha une énorme manchette: Lille conquise. Un envahisseur militaire parlerait ainsi. Ou bien
 la propagandisation est une forme de l'acquisition, de
 l'appropriation. nous voulons supprimer la propriété
 même.
@@ -954,8 +929,7 @@ c'est sur les impériales des voitures et dans les
 troisième classe de l'Orléans que j'ai entendu le
 meilleur de ce que je sais. Et quand je parle avec un
 homme du peuple, ce qui m'arrive le plus souvent que
-au fond leur propagande estune catéchisation, une caté-
-chisation de plus. Je cause uniment avec l'homme du
+au fond leur propagande estune catéchisation, une catéchisation de plus. Je cause uniment avec l'homme du
 peuple. Je lui parle de son métier, non pour profiter
 seulement, mais parce que vraiment son métier est plus
 intéressant, plus profondément vrai que le mien. Je
@@ -963,15 +937,12 @@ intéressant, plus profondément vrai que le mien. Je
 cinquième cahier de la deuxième série
 parle de sa vie, qui est plus passionnante que la leur. Je
 ne suis nullement l'intellectuel qui descend et condescend au peuple. Je suis peuple. Je cause avec l'homme
-du peuple de pair à compagnon, sans aucune arrière-
-
-pensée. Il n'est pas mon élève. Je ne suis pas son
+du peuple de pair à compagnon, sans aucune arrièrepensée. Il n'est pas mon élève. Je ne suis pas son
 maître. Je ne veux pas lui monter le coup. Je communique avec lui. Je travaille avec lui. Mutuellement et solidairement. Nous collaborons. Leur propagande est un
 montage de coup organisé. Pour la bonne cause, pour
 la révolution sociale, pour la république socialiste.
 J'entends bien. Les montages de coup les plus redoutables à l'humanité furent toujours institués pour la
-bonne cause. Qui n'a pas sur soi sa bonne cause? Abdulk-Hamid a sa bonne cause pour massacrer les Armé-
-niens. Chamberlain défend en Afrique la bonne cause
+bonne cause. Qui n'a pas sur soi sa bonne cause? Abdulk-Hamid a sa bonne cause pour massacrer les Arméniens. Chamberlain défend en Afrique la bonne cause
 de la civilisation anglaise. Les alliés internationaux,
 comme les nommait à peu près Jaurès, ont épouvanté le
 monde chinois pour la bonne cause de la chrétienté
@@ -1002,8 +973,7 @@ Hier il épurait. Aujourd'hui, ce matin, il désorganise.
 Hier il servait. Aujourd'hui, ce matin, il trahit. Un
 vote menteur a fait ces merveilles. Un vote menteur
 a fait passer la consigne. La discipline faisant la
-force principale des armées, il importe que tout infé-
-rieur obéisse exactement, sans hésitation ni murmure.
+force principale des armées, il importe que tout inférieur obéisse exactement, sans hésitation ni murmure.
 suis réserviste. Si demain matin je recevais ma feuille
 de route pour aller en Chine, sachant comme je le
 sais ce que les Internationaux sont allés faire en Chine,
@@ -1032,8 +1002,7 @@ que des tyrans. Il fallait que le suffrage universel fût
 un seul degré, le double degré ne pouvant qu'éliminer
 les meilleurs candidats. La consigne était que M. Léon
 Bourgeois préparait infailliblement la voie du seigneur
-que M. Doumer. La consigne était que l'impôt pro-
-gressif sur le revenu constituait la réforme la plus
+que M. Doumer. La consigne était que l'impôt progressif sur le revenu constituait la réforme la plus
 les premiers décrets de la Révolution sociale. Et cependant que M. Léon Bourgeois était le précurseur et
 M. Doumer le sous-saint-Jean-Baptiste, ou l'aide-saintJean-Baptiste, la consigne était que M. Trarieux, un
 sénateur! était la plus réactionnaire des canailles ou le
@@ -1125,15 +1094,13 @@ et Urbain Gohier?
 La Société mourante et l'anarchie est le livre qui nv'a le
 plus profondément remué. Mon discours est plein de
 noms propres. Je hais autant le sectaire prétendu anarchiste que le sectaire véritablement archiste. J'admets
-que certains socialistes fassent provisoirement de l'ac-
-tion politique ainsi que j'admets que certains Français
+que certains socialistes fassent provisoirement de l'action politique ainsi que j'admets que certains Français
 
 cinquième cahier: de la deuxième série
 fassent provisoirement de l'exercice militaire. Je dirai
 toute ma pensée: il me paraît indispensable que certains socialistes révolutionnaires fassent de l'action politique, parce que s'ils n'en faisaient pas toute l'action
 politique, dont l'effet me semble indéniable, retomberait
-toute pour écraser la révolution sociale et même la pré-
-paration de la révolution sociale. On me répond que la
+toute pour écraser la révolution sociale et même la préparation de la révolution sociale. On me répond que la
 
 politique est un sale métier. Nous savons qu'il y a dans
 la société bourgeoise beaucoup de sales métiers, inévitables. Nous avons donc la plus-grande et la plus sincère gratitude pour les citoyens qui veulent bien assumer
@@ -1146,14 +1113,12 @@ citoyens. Mais je ne consens pas qu'il advienne au socialisme révolutionnaire l
 une armée. Il était inévitable que la nation française
 eût une armée. Il était inévitable, dans la situation de
 surexcitée où l'Europe se crève, il était inévitable que
-la nation française eût une armée, c'est-à-dire que pendant certaines années certains citoyens fissent leur mé-
-tier de la préparation technique aux travaux de la
+la nation française eût une armée, c'est-à-dire que pendant certaines années certains citoyens fissent leur métier de la préparation technique aux travaux de la
 guerre. Mais qu'est-il advenu? et c'est ici, vous m'entendez, qu'intervient ce que je nomme la contamination.
 Les citoyens qui se préparaient aux travaux déplorables
 de la guerre, au lien de garder précieusement en eux
 
-l'esprit de la cité, se laissèrent contaminer par les pas-
-sions qui naissent malheureusement de la guerre. Et il
+l'esprit de la cité, se laissèrent contaminer par les passions qui naissent malheureusement de la guerre. Et il
 
 n'y eût que demi-mal, et contamination partielle.
 Maïs la plupart des citoyens, dans les années où ilsne
@@ -1191,10 +1156,8 @@ attentivement la campagne politique inaugurée pour les
 récentes élections municipales. Vous savez que j'ai voté
 le premier dimanche et le dimanche de ballottage pour
 la liste républicaine opposée aux grands bourgeois
-réactionnaires, aux châtelains et aux grands proprié-
-taires fonciers de l'endroit. Car nous sommes inclus dans
-l'arrondissement de Marcel Habert, et chez nous les ré-
-publicains sont unis, parce qu'ils sont impuissants.
+réactionnaires, aux châtelains et aux grands propriétaires fonciers de l'endroit. Car nous sommes inclus dans
+l'arrondissement de Marcel Habert, et chez nous les républicains sont unis, parce qu'ils sont impuissants.
 
 Je demande que le socialisme révolutionnaire ne soit
 pas contaminé par son armée politique ainsi que la nation française fut contaminée par son armée militaire.
@@ -1203,9 +1166,7 @@ une reconnaissance exactement prudente et non pas une
 serve admiration, une humilité d'imitation. il suffit
 de regarder rapidement ce qui advient au socialisme
 
-- révolutionnaire pour constater un incroyable envahis-
-
-sement de la mentalité politique.!
+- révolutionnaire pour constater un incroyable envahissement de la mentalité politique.!
 
 J'ai comparu, moi aussi, devant le Conseïl d'administration de la Société Nouvelle. Et j'ai participé aux Assemblées générales, simples chambres d'enregistrement
 qui étaient censées souveraines. C'était un des spectacles et un des événements les plus désolants que je
@@ -1267,8 +1228,7 @@ aille voter pour tels ou tels candidats au conseil municipal, au conseil d'arron
 ou national, que nous nommons Chambre des Députés.
 Mais le citoyen qui, son bulletin mis, rentrant à la
 maison, dirait à sa femme: à présent nous allons voter
-pour savoir si nous ferons ce soir un pot au feu me sem-
-blerait un dangereux maniaque. Pourtant c'est que il
+pour savoir si nous ferons ce soir un pot au feu me semblerait un dangereux maniaque. Pourtant c'est que il
 nous en sommes. La votation parlementaire bourgeoise
 ne nous a pas seulement contaminés en ce sens que
 
@@ -1298,9 +1258,7 @@ nouveau-né chinois. Pendant toute l'affaire, les dreyfusards furent en France l
 
 le commencement de cette affaire principale, plus longue, beaucoup plus vaste et non moins profonde, que
 nous nommons l'affaire de la Révolution sociale, nous
-les révolutionnaires nous avons toujours été en mino-
-
-cinquième cahier de la deuxième série
+les révolutionnaires nous avons toujours été en minocinquième cahier de la deuxième série
 rité infime. Et pour longtemps nous sommes en infimité.
 Pourquoi dès lors introduire dans nos relations mutuelles comme le seul régulateur cette loi bourgeoise immorale et dérationnelle que les bourgeoïs eux-mêmes
 ont soin de ne pas utiliser contre nous jusqu'en sa
@@ -1322,9 +1280,7 @@ fidèlement déférente. Le censeur n'admet pas que le
 texte imprimé paraisse seul, pauvre et au regard du
 simple citoyen. Le censeur n'admet pas que le discours
 parvienne seul, pauvre et à l'ouïe du simple citoyen. De
-Honte à ces habilleurs! Nous demandons qu'en ce sens-
-
-il n'y ait parmi nous aucune autorité individuelle, et
+Honte à ces habilleurs! Nous demandons qu'en ce sensil n'y ait parmi nous aucune autorité individuelle, et
 encore moins une autorité collective. Nous demandons
 que le peuple accorde une large audience à tous ceux
 qui lui veulent parler. Mais quand il a entendu l'orateur
@@ -1374,8 +1330,7 @@ Tout cela se tient. L'autoritaire ment, en ce sens que
 pour asseoir son autorité il faut qu'il donne au propagandisé une image menteuse du monde. Jamais le
 monde n'a marché aussi mal qu'aujourd'hui. Les
 massacres d'Arménie et la digestion de la Finlande, les
-sadismes africains et les sadismes chinois, la condam-
-nation de Rennes et l'alcoolisme français, la guerre de
+sadismes africains et les sadismes chinois, la condamnation de Rennes et l'alcoolisme français, la guerre de
 Madagascar et la guerre du Transvaal, tant de guerres
 et tant d'épouvantes où le socialisme universel n'a rien
 tenté d'efficace ni d'effectif, sont faits pour donner
@@ -1437,8 +1392,7 @@ la vérité. Nous ne voulons pas d'entraîneurs. Nous ne
 sommes ni des chevaux ni des cyclistes. Nous ne
 faisons pas des courses. Nous voulons faire un travail
 raisonnable. Nous ne voulons pas de propagandeurs (
-professionnels. Nous n'admettons pas que la propa-
-gande ne soit pas la communication pure et simple de
+professionnels. Nous n'admettons pas que la propagande ne soit pas la communication pure et simple de
 la vérité que l'on sait. Ce qui revient à dire que c'est
 Péguy l'accusé qui fait de la propagande et que ce sont
 les censeurs qui n'en font pas Ce sera le premier point
@@ -1555,9 +1509,7 @@ une somme supérieure à celle que porte le mandat.
 Nous insistons aussi sur ce renseignement: que nous
 ne faisons présenter de mandat que par la poste.
 
-Aussitôt que nos anciens abonnés nous auront manifesté leurs intentions, nous pourrons établir sérieuse-
-
-ment le recensement de tous nos abonnés et la situation
+Aussitôt que nos anciens abonnés nous auront manifesté leurs intentions, nous pourrons établir sérieusement le recensement de tous nos abonnés et la situation
 de nos finances. Dès à présent nous pouvons espérer
 que si le réabonnement produit peu nous aurons au
 moins neuf cents abonnés. Si le réabonnement produit

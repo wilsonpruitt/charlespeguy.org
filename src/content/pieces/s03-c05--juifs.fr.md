@@ -63,8 +63,7 @@ Le mémoire que l'on lire a été publié pour la pre-
 A elle finissait en effet. L'auteur est un Juif. Il a même un
 beau nom juif. Mais il a garder ici un pseudonyme
 Cette seconde édition est complètement refondue.
-Mais nous n'avons pas lui enlever cette marque par-
-ticulière d'une affaire qui reste ineffaçable, et qui dans
+Mais nous n'avons pas lui enlever cette marque particulière d'une affaire qui reste ineffaçable, et qui dans
 la mémoire de l'humanité sera grande longtemps après
 que les États-Majors constitués pour elle et par elle
 auront fini de se décomposer. Les dreyfusards modestes, qui forment le fond de nos abonnés, seront heu-
@@ -89,8 +88,7 @@ Il repousse les gros arguments ou les grosses calomnies.
 Ce mémoire surprendra les personnes habituées à
 : traiter les questions en partant de certains postulats, de
 certains dogmes, de certains mots. L'auteur n'a pas
-transféré dans le réel un judaïsme ou un internationa-
-lisme formel. Au contraire il est parti d'un réel qu'il
+transféré dans le réel un judaïsme ou un internationalisme formel. Au contraire il est parti d'un réel qu'il
 connaît bien. C'est pour cela que son étude ne cadre ni
 avec les programmes des partis politiques, ni avec les
 programmes des partis intellectuels. — Car il y a des
@@ -129,8 +127,7 @@ Voici le train... La dernière fois qu'ils avaient
 ainsi transporté leur foyer, c'était quelque temps
 à après la guerre. L'aîné venait de naître, là-bas, à
 : 1 dans la Ville-Pucelle, à deux pas de cette Esplanade
-qui domine la Moselle et où aujourd'hui un Guillaume premier de bronze tourne le dos à notre ma-
-réchal Ney. On ne voulait pas que l'enfant fût Alle-
+qui domine la Moselle et où aujourd'hui un Guillaume premier de bronze tourne le dos à notre maréchal Ney. On ne voulait pas que l'enfant fût Alle-
 ) mand; on partit pour la France, simplement, sans
 4 accompagnement d'orchestre patriotique... Aujourk d'hui, second déménagement, plus triste peut-être, à
 ! puisqu'ils n'ont pas, pour relever leur courage,
@@ -149,9 +146,7 @@ des mélodrames et des pièces militaires, n'est pas
 4 avait je ne sais quelles joies mauvaises... Deux ans.
 4. après, la France tressaille à la voix de quelques
 te hommes d'énergie et de cœur qui lui crient son
-erreur, La foule, hélas! continue d'aboyer au mi-
-
-sérable: soit qu'elle se refuse, par paresse d'esprit
+erreur, La foule, hélas! continue d'aboyer au misérable: soit qu'elle se refuse, par paresse d'esprit
 ou par diabolique entêtement, à examiner même la
 question, soit que, comme il arrive à chacun dans
 la vie de tous les jours, elle sente confusément que
@@ -214,8 +209,7 @@ M. Lévy ou M. Cahen, il n'osera pas, s'il devient
 ministre, l'attacher à son cabinet.
 L'Administration? — Il y a dix ans, trois ou
 quatre préfets étaient juifs. Aujourd'hui, un.
-; Les Administrations? — Parmi les officiers géné-
-seul israélite; parmi les colonels, un seul également.
+; Les Administrations? — Parmi les officiers généseul israélite; parmi les colonels, un seul également.
 — Il ne suflit sans doute pas, au Conseil d'État, de
 deux conseillers israélites sur quarante-cinq et de
 4 deux maîtres des requêtes sur trente-deux, — à la
@@ -249,7 +243,7 @@ Faculté des Lettres, à M. Henri Weil ou à M. Salomon Reinach leurs jetons de 
 des Inscriptions. — Et je n'oublie pas non plus les
 
 ? cadres subalternes, les jeunes, la foule de ceux qui
-ne sont pas encore « arrivés »: je reconnais volontiers qu'après avoir déployer parfois, aux exa-
+ne sont pas encore « arrivés je reconnais volontiers qu'après avoir déployer parfois, aux exa-
 
 ; mens et aux concours, pour lutter contre d'étranges
 
@@ -277,8 +271,7 @@ cette invasion gigantesque se produit fatalement
 chaque fois que se présentent des circonstances
 analogues à celles qui ont provoqué le mouvement
 de la Renaissance. Les Juifs de France avaient vécu,
-de longs siècles, esclaves et méprisés, séparés abso-
-lument des autres sujets du roi, sans aucun droit à
+de longs siècles, esclaves et méprisés, séparés absolument des autres sujets du roi, sans aucun droit à
 la culture libérale, à la vie intellectuelle, politique,
 administrative du pays. Ils étaient las d'entasser des
 écus sur un comptoir obscur ou de mener des bœufs
@@ -287,8 +280,7 @@ d'Alsace. La Révolution a fait tomber les barrières
 ils se sont rués dans la carrière avec une ardeur
 qu'en toute justice nous devons trouver louable
 et généreuse. Ils ont même déployé dans la lutte
-des qualités d'énergie et d'intelligence qu'on ne son-
-gerait même pas à admirer si l'on voulait bien appliquer à ce milieu social, comme à d'autres, des
+des qualités d'énergie et d'intelligence qu'on ne songerait même pas à admirer si l'on voulait bien appliquer à ce milieu social, comme à d'autres, des
 comparaisons scientifiques presque banales aujourd'hui, et remarquer que d'une façon toute naturelle
 la sève devait couler d'autant plus vigoureuse et
 à plus abondante qu'elle avait été plus longtemps
@@ -296,8 +288,7 @@ contenue et que la plante était plus « neuve ». Etsi,
 . depuis une trentaine d'années, ce mouvement des
 jeunes gens israélites vers les professions libérales
 s'est accentué, s'ils sont chaque jour plus nombreux
-ceux qui, fils de drapiefs, de banquiers et de colpor-
-soit que cette autre vie leur apparaisse comme plus
+ceux qui, fils de drapiefs, de banquiers et de colporsoit que cette autre vie leur apparaisse comme plus
 
 élevée intellectuellement que celle de leurs pères,
 soit pour échapper par une « carrière sûre » aux ha-
@@ -306,14 +297,13 @@ démocratie de leur en faire un reproche, ni surtout
 à cette bourgeoisie française dont la bourgeoisie
 juive n'est qu'une toute petite portion et qui lui
 donne l'exemple de la « curée... »
-Enfin gardez-vous de croire que ces petits fonc-
-tionnaires juifs menacent les autres et que la
+Enfin gardez-vous de croire que ces petits fonctionnaires juifs menacent les autres et que la
 carrière soit grande ouverte à leurs ambitions: ils
 ont partout leurs lisières, comme dans l'armée
 on les détourne de l'École de Guerre, et, quand ils
 entraient encore à Saint-Cyr, on ne leur permettait
 jamais — non pas en droit, grand Dieu! mais en
-fait — d'en sortir « dans la cavalerie »: tout serait
+fait — d'en sortir « dans la cavalerie tout serait
 perdu si des Juifs sans particule, nés dans une
 arrière-boutique de province, allaient, de par l'égalité des mess, frayer avec le rejeton des vieilles
 souches, fier de ses aïeux comme s'il les avait
@@ -348,9 +338,7 @@ jeunesse encore hardie pour « chercher autre chose
 leur mandarinat, ces jeunes gens méprisaient ou
 blämaient autour d'eux, jusque chez ceux dont la.
 volonté de « gagner de l'argent » leur avait assuré
-44 les moyens d'être des mandarins. Ils ont s'aper-
-
-cevoir que l'argent est indispensable pour vivre,
+44 les moyens d'être des mandarins. Ils ont s'apercevoir que l'argent est indispensable pour vivre,
 qu'il faut en acquérir par sa propre activité sil'on
 veut un jour donner à ses enfants la même vie qu'on
 a vécue soi-même, qu'on est plus indépendant quand
@@ -363,8 +351,7 @@ femme et vos enfants, fermer votre boutique ou
 envoyer votre démission au ministre?... Et voilà
 comment, au lieu de se reposer de père en fils sur
 un domaine une fois acquis, sur une fortune une
-fois faite, sur un nom une fois établi, et de s'abà-
-tardir de génération en génération dans la nonchalance d'une existence assurée, presque tous les
+fois faite, sur un nom une fois établi, et de s'abàtardir de génération en génération dans la nonchalance d'une existence assurée, presque tous les
 hommes de ce peuple, perpétuellement fouetté par
 des persécutions violentes ou sournoises, sont coniraints de faire eux-mêmes leur apprentissage et à
 leur vie, d'adapter leurs organes à des fonctions
@@ -386,8 +373,7 @@ Constantine, sur 1.249 ménages, on en compte
 aisés, en considérant comme tels ceux où l'on peut
 ; dépenser un franc par jour et par personne. Il y a
 1.016 ménages d'une indigence extrême, 364 seulement sont secourus, 717 ont pour logis un bouge
-recevant le jour par la porte seulement; les privilé-
-giés, c'est-à-dire ceux qui sont assistés, reçoivent
+recevant le jour par la porte seulement; les privilégiés, c'est-à-dire ceux qui sont assistés, reçoivent
 en moyenne deux francs par semaine, les autres
 sont réduits à la mendicité ».
 Je ne dis pas que si l'on pouvait faire la même
@@ -432,8 +418,7 @@ entre les millionnaires juifs et les autres: si le capital est odieux, il l'est 
 pour qu'un industriel sémite soit une « sangsue »
 si son confrère non-sémite est un « homme de
 bien pour que le ruban rouge soit ridicule ou
-inconvenant sur la poitrine d'un couturier, s'appe-
-lt-il Isidore, comme le faisait remarquer un de ces
+inconvenant sur la poitrine d'un couturier, s'appelt-il Isidore, comme le faisait remarquer un de ces
 messieurs de la droite avec une insistance spirituelle, — s'il ne l'est pas à la boutonnière d'un
 fabricant d'alcools catholique qui a fait de « ponnes
 affaires » en empoisonnant ses concitoyens. Pourquoi un groupe de coulissiers juifs serait-il plutôt
@@ -441,8 +426,7 @@ suspect que la Chambre des agents de change — qui
 ? se refuse presque absolument, remarquons-le bien, à
 s'ouvrir aux Israélites? Ils sont pourtant, les uns
 : et les autres, des hommes « affaires des hommes
-d'argent, des hommes de Bourse. Quand, à la nou-
-velle du désastre de Waterloo, le marché monta, il
+d'argent, des hommes de Bourse. Quand, à la nouvelle du désastre de Waterloo, le marché monta, il
 é. n'y avait pas de Rothschild, petits ni grands, à la
 Bourse de Paris.
 
@@ -451,8 +435,7 @@ principe, suspectent le Juif toujours, on peut citer les
 exemples les plus variés de la misère juive, depuis
 le marchand de poissons algérois jusqu'au savetier
 
--de la rue des Rosiers: leur assurance est inébran-
-lable. Il y a des Juifs pauvres? — Peut-être; mais
+-de la rue des Rosiers: leur assurance est inébranlable. Il y a des Juifs pauvres? — Peut-être; mais
 ils seront riches: « Ils se connaissent tous, ils se
 soutiennent, ils se poussent les uns les autres. »
 Eh bien, ici encore, il faut, les hommes et les-
@@ -461,16 +444,13 @@ si audacieuse qu'en puisse paraître la négation aux
 esprits prévenus, cette prétendue solidarité juive.
 
 Qu'ils se connaissent, sans doute! Ils sont environ
-quatre-vingt mille en tout, ils ont été parqués pen-
-dant des siècles, en trois régions: Juifs de Lorraine
+quatre-vingt mille en tout, ils ont été parqués pendant des siècles, en trois régions: Juifs de Lorraine
 et d'Alsace, — Juifs d'Avignon, — Juifs de Bordeaux et Bayonne, — et en une seule profession
 le négoce. Quand la liberté est venue, quand ils se à
 sont dispersés, naturellement ils ont « formé des
-courants »: un Juif de Bordeaux qui prospérait à
+courants un Juif de Bordeaux qui prospérait à
 Paris devait, par son seul exemple, attirer dans la
-même ville et le même métier un autre Juif de Bor-
-
-deaux. Je ne crois pas que personne songe à s'étonner que les « Terre-Neuviens » se connaissent entre eux, ni que les « Barcelonnettes » constituent une à
+même ville et le même métier un autre Juif de Bordeaux. Je ne crois pas que personne songe à s'étonner que les « Terre-Neuviens » se connaissent entre eux, ni que les « Barcelonnettes » constituent une à
 colonie française à Mexico.
 
 Mais croire qu'ils se prêtent un mutuel appui,
@@ -514,7 +494,7 @@ et conserver les distances parce qu'on se sent
 menacé par des familiarités facilement audacieuses.
 Et c'est peut-être pour ces raisons que parmi leurs
 coreligionnaires, les officiers juifs ont été Les plus
-lents à devenir « dreyfusards »: coterie pour coterie,
+lents à devenir « dreyfusards coterie pour coterie,
 ils aimaient mieux la nouvelle, qui glorifie, que
 l'ancienne, qui humiliait, et pour paraître moins
 Juifs, voulaient paraître d'autant plus soldats
@@ -574,9 +554,7 @@ volontiers: pas de doute attristé, plutôt des sourires à
 et des insinuations: « Ce n'est pas un des nôtres, à
 celui-là, un de ceux dont se défie toujours votre
 patriotisme étroit: pas de mélange chez ce Dreyfus,
-il est de chez vous tout à fait, c'est un vieux Fran-
-
-çais sans alliances et sans origines suspectes, un
+il est de chez vous tout à fait, c'est un vieux Français sans alliances et sans origines suspectes, un
 À bourgeois, un Mulhousien.. »
 Quatre ans plus tard, tout était changé. IL avait
 bien fallu, l'âme en détresse, constater que si, avec
@@ -588,8 +566,7 @@ l'accusation à l'arrestation, de l'arrestation à la
 condamnation, c'était parce qu'il était juif; que
 si, trois ans après, on avait, dès les premiers
 mots, fait le vide autour de Scheurer-Kestner,
-ce n'était pas parce que Scheurer-Kestner vou-
-lait réhabiliter un condamné — pour moins de
+ce n'était pas parce que Scheurer-Kestner voulait réhabiliter un condamné — pour moins de
 courage, le sénateur Marcou était devenu célèbre et
 Pierre Vaux avait été élu député, — c'était bien
 parce que, cette fois, le condamné réhabilitable
@@ -652,9 +629,7 @@ fit une moue glaciale, tout un jour, à quelqu'un
 À À. qui voulait lui présenter un polytechnicien du nom
 de Lévy... Lisez les avis mondains du Gaulois, du
 Figaro, de l'Écho de Paris: vous y trouverez les
-Litres les plus éclatants de la vieille noblesse fran-
-
-çaise accolés aux blasons les plus hétéroclites de
+Litres les plus éclatants de la vieille noblesse française accolés aux blasons les plus hétéroclites de
 l'étranger. On parle très haut de sang français, de
 race pure, et, parmi les plus acharnés nationalistes,
 on échange son nom contre des millions américains
@@ -664,14 +639,12 @@ très bien porté, puisque ce sont catholiques bien
 pensants qui s'allient ainsi, de la noblesse au A
 million, fils des preux et filles des dollars, sans souci
 des frontières. Ceux-là ont donc le privilège de
-rester Français, quand un Juif de Paris qui épouse-
-rait une Juive de Genève, de Bruxelles, voire de
+rester Français, quand un Juif de Paris qui épouserait une Juive de Genève, de Bruxelles, voire de
 Strasbourg, est un « cosmopolite —Et si vraiment
 on s'indigne de ce qu'il y a des Juifs au delà comme
 en deçà, pourquoi ne s'indignerait-on pas de voir
 aussi dans tous les camps des protestants, et des à
-catholiques? et qui sont très capables de s'entre-
-tuer à l'occasion, sans souci de la religion com-.
+catholiques? et qui sont très capables de s'entretuer à l'occasion, sans souci de la religion com-.
 _mune? On dit même que les aristocraties militaires
 de pays très étrangers l'un à l'autre, et parfois
 ennemis, comptent dans leurs rangs des petitscousins très authentiques, et je crois volontiers
@@ -704,9 +677,7 @@ Français qu'eux. Remarquez même que les habi- tants des villes sont certaineme
 ; du moins les plus émus par ces querelles, qu'ils se
 
 montrent, dans l'ardeur de la dispute, les plus injustes et les plus acharnés, et que c'est eux préci- à sément que le doute rendrait plus circonspects s'ils
-songeaient un seul instant combien leur « natio-
-
-nalité » est précaire, étant le produit d'éléments
+songeaient un seul instant combien leur « nationalité » est précaire, étant le produit d'éléments
 hétérogènes que le hasard de la vie sociale a accouplés sans se demander d'où ils venaient...
 Sans doute, il y a centans, les Juifs ne comptaient
 pas dans la nation française, et les noms qu'ils
@@ -777,7 +748,7 @@ mission Bretonnet. Il était Juif, Eugène Manuel, le poète « de l'École et d
 
 nom du peuple français » et de l'armée française,
 
-4 Arthur Chuquet, Histoire de la Guerre de 1870-1871.
+Arthur Chuquet, Histoire de la Guerre de 1870-1871.
 
 Georges Delahache laisse dévier à l'audience l'affaire Esterhazy en
 affaire Picquart, ouvre toutes grandes les portes sur
@@ -822,8 +793,7 @@ Juifs qu'on vilipende représentaient un peu parmi
 ; nous cet esprit anglo-saxon qu'on exalte. Et M. Jules
 Lemaître, qui a « lancé » le livre de Demolins et le
 Les Juifs de France, dont le sens naturel s'avivait
-; encore sous les piqûres d'épingle de l'injure quoti-
-dienne, devaient souffrir péniblement de tant
+; encore sous les piqûres d'épingle de l'injure quotidienne, devaient souffrir péniblement de tant
 d'inconséquences. Mais c'était pour eux autre
 chose qu'une souffrance intellectuelle et théorique
 en doutant de leur patriotisme, on touchait peutêtre à la corde la plus sensible de leur être intime.
@@ -840,8 +810,7 @@ se passait pas ainsi qu'ils étaient égaux aux nonJuifs, qu'ils pouvaient aspir
 hautes situations. Je me rappelle une page de
 J.-J. Weiss, un peu oubliée peut-être, qu'il écrivit
 il y a quinze ans au retour d'un voyage en Alsace.
-Le spirituel et sagace écrivain s'amuse, pour résu-
-mer d'une façon vivante ses observations sur l'état
+Le spirituel et sagace écrivain s'amuse, pour résumer d'une façon vivante ses observations sur l'état
 d'âme de nos concitoyens perdus, à mettre en scène
 quatre personnages importants de petite ville (x), À
 (1) J.-J. Weiss, Au Pays du Rhin, Charpentier, 1886.
@@ -925,10 +894,8 @@ qu'ils pouvaient être Français quand même, pour
 sont eux qui, pour certaines particularités tout extérieures, ont
 prêté le plus à la « blague » et à la calomnie, et qui en ont le plus
 souffert — sont toujours, même dispersés à travers le monde, restés
-Français avant tout, nerveusement et bruyamment Français. Par-
-courez les listes des Sociétés Alsaciennes-Lorraines qui se sont
-constituées un peu partout après la guerre, et demandez à Dérou-
-lède s'ils ne s'étaient pas enrôlés en foule, lors de la fondation, dans
+Français avant tout, nerveusement et bruyamment Français. Parcourez les listes des Sociétés Alsaciennes-Lorraines qui se sont
+constituées un peu partout après la guerre, et demandez à Déroulède s'ils ne s'étaient pas enrôlés en foule, lors de la fondation, dans
 sa Ligue des Patrioles.
 
 des raisons analogues et avec autant de sincérité.
@@ -937,15 +904,11 @@ Poursuivis, suspects, haïs, traqués dans leurs pays, ils étaient venus vers l
 
 effet, pendant de longues années, ils purent croire qu'on ne leur avait pas menti. Et ils aimaient la
 
-France du fond du cœur, comme les naufragés aiment la grève hospitalière, comme les hommes ont toujours aimé le pays qui leur donnait, quand ils y arrivaient tremblants des périls de la persécu-
-
-tion et fatigués des routes d'exil, la sécurité et la paix. Il y a même, dans l'histoire de notre pays, un
+France du fond du cœur, comme les naufragés aiment la grève hospitalière, comme les hommes ont toujours aimé le pays qui leur donnait, quand ils y arrivaient tremblants des périls de la persécution et fatigués des routes d'exil, la sécurité et la paix. Il y a même, dans l'histoire de notre pays, un
 
 exemple qu'il ne serait pas malséant de rappeler
 
-aujourd'hui. Au dix-septième siècle, quand la pas-
-
-sion de l'unification à outrance, surexcitée encore
+aujourd'hui. Au dix-septième siècle, quand la passion de l'unification à outrance, surexcitée encore
 
 È par les adiurations intéressées de prédicateurs plus
 à catholiques que chrétiens, eut amené le Roi à signer À
@@ -958,8 +921,7 @@ pères. Recueillis par le margrave de Brandebourg,
 
 ils furent pour lui des sujets reconnaissants et
 ne loyaux, ils se donnèrent corps et âme à leur nou-
-4 velle patrie, ils l'aimèrent avec d'autant plus de fer-
-veur sans doute qu'il se mêlait à leur amour une À
+4 velle patrie, ils l'aimèrent avec d'autant plus de ferveur sans doute qu'il se mêlait à leur amour une À
 À sorte d'amertume à l'égard des frères d'autrefois qui
 n'avaient plus voulu d'eux, et peut-être un âpre
 
@@ -1084,9 +1046,7 @@ les « parvenus » de leur monde: le souvenir de la
 de cette soumission dont l'Église pendant des
 k. siècles inculqua la nécessité aux âmes des fidèles,
 traduisant ainsi dans le langage social l'idée sublime
-de résignation pour en faire un procédé très pratique de gouvernement. Enfin l'antisémitisme con-
-
-stituait pour eux un moyen facile de se refaire une
+de résignation pour en faire un procédé très pratique de gouvernement. Enfin l'antisémitisme constituait pour eux un moyen facile de se refaire une
 vertu en rejetant sur un bouc émissaire la responsabilité de tous les crimes et de toutes les hontes,
 de diminuer leur impopularité en spéculant sur celle
 des autres, et de montrer du doigt d'autres insolentes fortunes pour que les leurs échappassent
@@ -1105,9 +1065,7 @@ Les ressorts du corps et de l'âme se sont détendus
 É dans la fête ou dans l'inertie. Et maintenant les
 ; jeunes végètent, bienheureux d'accepter encore
 quelque fonction administrative ou militaire à dix
-louis par mois. Et si l'on a été obligé, pour subsis-
-
-ter quand même, de vendre à quelque Juif parvenu,
+louis par mois. Et si l'on a été obligé, pour subsister quand même, de vendre à quelque Juif parvenu,
 k. mais qui n'était pour rien dans la débâcle, une
 À chasse, un domaine, des collections précieuses,
 
@@ -1179,15 +1137,13 @@ Les Juifs sont et demeurent citoyens français.
 Si les Juifs de France savent comprendre qu'ils
 ont commis, par le seul fait d'avoir raison, une
 faute qu'on ne pardonne jamais; qu'ils ne peuvent
-pas plus compter qu'auparavant sur l'équité bien-
-veillante de leurs concitoyens, qu'ils doivent être
+pas plus compter qu'auparavant sur l'équité bienveillante de leurs concitoyens, qu'ils doivent être
 plus rigoristes envers eux-mêmes que leurs plus
 âpres adversaires, et qu'enfin ils sont condamnés
 ù à la vertu, comme les protestants du dix-septième
 siècle, comme les jansénistes, comme toutes les
 minorités persécutées, alors ni l'épilepsie de
-de M. Maurras et de M. Lemaitre ne les empê-
-cheront de vivre leur vie en France. Car leur
+de M. Maurras et de M. Lemaitre ne les empêcheront de vivre leur vie en France. Car leur
 cause est, qu'on le veuille ou non, une cause
 essentiellement française: quand, parlant de l'Affaire Dreyfus, on disait que la France avait son
 cas de conscience, que voulait-on dire, sinon que
@@ -1198,8 +1154,7 @@ et ce rôle de justicière qu'elle se vantait d'avoir
 tenu dans l'humanité? Les Juifs sont les Armé-
 : niens de l'Europe. Ils sont, devant une sorte
 3 d'absolutisme démocratique dont la « loi de dessaiper sissement » a été la plus significative et la plus
-! odieuse manifestation, ce qu'étaient, devant l'abso-
-lutisme monarchique, les hommes de 1789. Ils
+! odieuse manifestation, ce qu'étaient, devant l'absolutisme monarchique, les hommes de 1789. Ils
 À sont ce qu'est depuis 1871 la France elle-même.
 Ils représentent, en face de la Force et du Nombre,
 l'inéluctable Droit.
@@ -1410,9 +1365,7 @@ devez respecter la vie des femmes et des enfants, souvenez-vous que vous luttez 
 qui nous avons de graves torts. »
 
 A défaut du chef attitré de la bourgeoisie, je rêvais
-que ce serait le maire de Marseille, l'élu du parti socia-
-
-liste, qui donnerait à la France et au monde entier une
+que ce serait le maire de Marseille, l'élu du parti socialiste, qui donnerait à la France et au monde entier une
 grande leçon de morale internationale. Je rêévais qu'il
 s'abstiendrait de paraître dans le cortège officiel et
 qu'il expliquerait à ses électeurs son attitude dans une
@@ -1431,8 +1384,7 @@ lequel de vos camarades en grève.
 paraître dans le cortège officiel.
 « Elle invite les socialistes marseillais à crier sur le
 passage des soudards: « Vivent les Chinois! A bas la
-Hélas! ce n'était que desrêves! J'oubliais que M. Flais-
-sières, qui est un homme arrivé, devait parler et agir
+Hélas! ce n'était que desrêves! J'oubliais que M. Flaissières, qui est un homme arrivé, devait parler et agir
 avec toute la réserve et toute la prudence des gens
 arrivés, et qu'il n'aime pas l'esclandre. J'oubliais que
 F. - M. Loubet, qui est plus arrivé encore, n'a qu'une ambi-
@@ -1476,9 +1428,7 @@ peau pour les sortir du pétrin! Là-dessus, nous sommes tous d'accord avec le C
 Mais vraiment c'est se moquer du monde que d'attribuer aux missionnaires toute la responsabilité de la À
 
 crise actuelle! Voyons! l'œuvre des missions catholiques en Chine date du seizième siècle et les guerres
-contre les Chinois datent tout au plus du milieu du dixneuvième siècle! Ainsi, pendant trois siècles, les mis-
-
-sionnaires ont sillonné la Chine, fraîchement accueillis,
+contre les Chinois datent tout au plus du milieu du dixneuvième siècle! Ainsi, pendant trois siècles, les missionnaires ont sillonné la Chine, fraîchement accueillis,
 
 parfois martyrisés, sans que jamais l'ancienne monar-
 
@@ -1527,8 +1477,7 @@ l'école et que les journaux bourgeois entretiennent dans
 l'âge mûr, enseigne cette stupidité que tous les Français
 forment une grande famille, qu'il faut aimer et défendre
 tous les membres de cette grande famille, que leurs
-intérêts sont communs, qu'ils ont un patrimoine com-
-mun de gloire à défendre, qu'il faut toujours être prêt à
+intérêts sont communs, qu'ils ont un patrimoine commun de gloire à défendre, qu'il faut toujours être prêt à
 mourir pour l'honneur du drapeau et autres balivernes;
 qu'il nous faut tenir notre rang dans le monde — sans
 doute notre rang parmi les peuples de proie. Il n'y a
@@ -1543,9 +1492,7 @@ jeu; les soudards auxquels ils ont mis une arme
 
 À meurtrière à la main sont prêts à toutes les sales
 
-4 besognes: fusillades d'ouvriers et d'ouvrières désar-
-
-més comme à Fourmies et au François, extermination
+4 besognes: fusillades d'ouvriers et d'ouvrières désarmés comme à Fourmies et au François, extermination
 
 ; de nègres et de Chinois coupables de se défendre contre
 
@@ -1578,8 +1525,7 @@ TE leur commerce
 Nous connaïissions l'armée, école de discipline et
 . d'abrutissement, étouffant l'esprit d'initiative, de libre
 examen et de révolte par une discipline de fer et des
-exercices machinaux complétant ou remplaçant avan-
-tageusement l'éducation de l'Église, faiseuse de résignés, d'esclaves ou de machines
+exercices machinaux complétant ou remplaçant avantageusement l'éducation de l'Église, faiseuse de résignés, d'esclaves ou de machines
 Nous connaissions l'armée qui tire à bout portant sur
 des grévistes désarmés, pour intimider la classe ouvrière, la glorieuse armée de Fourmies ou du François;
 Il:appartenait au ministère de « défense républicaine »
@@ -1612,8 +1558,7 @@ conque vitet combat au service de son pays soit un être
 sacré, que le métier de soldat soit un « métier de Christ
 ; il croit au contraire, comme j'avais l'honneur dele soutenir récemment avec preuves à l'appui à M. le Curé-
 Archiprêtre de Sens, quele Christ a formellement défendu
-de tuer et qu'on ne saurait à la fois être un vrai chré-
-tien et exercer le métier de tueur d'hommes. ConséFe. quent avec lui-même, Wendt refusa de se laisser dresd ser à tuer ses semblables. Pour lui prouver qu'il avait
+de tuer et qu'on ne saurait à la fois être un vrai chrétien et exercer le métier de tueur d'hommes. ConséFe. quent avec lui-même, Wendt refusa de se laisser dresd ser à tuer ses semblables. Pour lui prouver qu'il avait
 à Sa peine commencée, son pasteur — Wendt est protesgi tant, je crois — vint le trouver et lui expliqua — ce que
 j'ai aussi l'honneur d'expliquer ici même à M. l'abbé
 .. Olivier — qu'il y a deux façons d'interpréter le sermon
@@ -1625,8 +1570,7 @@ qu'il ne faut jamais provoquer ni attaquer personne,
 Pos: mais qu'il n'est pas défendu d'user de la force pour re-
 60, pousser la violence; que le cas delégitime défense n'est
 peut-être pas inconciliable avec la parole divine; que,
-par conséquent, on peut, tout en étant chrétien, accep-
-ter d'être soldat, à condition de ne pas se laisser emF pioyer à une agression contre autrui.
+par conséquent, on peut, tout en étant chrétien, accepter d'être soldat, à condition de ne pas se laisser emF pioyer à une agression contre autrui.
 Wendt se laissa convaincre; il adressa alors à la reine
 une requête pour demander sa grâce, mais comme décidément il ne pouvait surmonter sa répugnance de chrétien pour le noble métier des armes, il sollicita et obtint.
 la faveur d'être incorporé dans les ambulanciers.
@@ -1661,8 +1605,7 @@ mot, tous les instruments de travail aux mains des proË ducteurs associés; mai
 sans ménager la chèvre et le chou, les misères et les
 4 ignominies de la société actuelle, et surtout pour agir,
 e. dès maintenant, conformément à leur idéal socialiste
-par la contagion de l'exemple, par des actes retentis4 sants de révolte individuelle, ils espèrent attirer l'at-
-tention des masses sur les hontes du régime actuel,
+par la contagion de l'exemple, par des actes retentis4 sants de révolte individuelle, ils espèrent attirer l'attention des masses sur les hontes du régime actuel,
 leur donner de mâles leçons d'énergie, éveiller chez elles
 à l'esprit de révolte et de solidarité, et un beau jour les
 4 entraîner à jeter bas, d'un formidable coup d'épaule,
@@ -1753,8 +1696,7 @@ un petit village de la Brie, abonné à Pages libres”, Fra
 il est venu vous voir au 16 de la rue de la Sorbonne,
 où nous demeurions. Dans le petit village où il exerce,
 parmi les paysans, les cahiers n'intéressent rigoureusement que lui.
-Est-ce une raison pour qu'il interrompe un abonne-
-ment commencé au cours de la deuxième série? J'ai
+Est-ce une raison pour qu'il interrompe un abonnement commencé au cours de la deuxième série? J'ai
 peur qu'il ne s'abuse, comme la plupart de nos amis
 communs, sur l'extension possible de la véritable
 Que dans un petit village il y ait un homme à qui les
@@ -1836,14 +1778,11 @@ Je vais plus loin: n'y aurait-il pas quelque orgueil,
 pouvons enseigner le prochain sans commencer par
 nous enseigner nous-mêmes, cultiver le voisin sans
 avoir commencé par nous cultiver nous-mêmes,
-a. apprendre au concitoyen sans avoir commencé par nous » avoir appris à nous-mêmes. C'est une illusion dange-
-reuse que de croire que l'on peut publier sans recevoir,
+a. apprendre au concitoyen sans avoir commencé par nous » avoir appris à nous-mêmes. C'est une illusion dangereuse que de croire que l'on peut publier sans recevoir,
 2. écrire sans lire, parler sans écouter, produire sans se
 nourrir, donner de soi sans se refaire.,
 Tout ce que nous savons, au contraire, de biologie
-a et en particulier de psychologie tend à nous démon-
-
-trer, à nous confirmer ce que le simple raisonnement
+a et en particulier de psychologie tend à nous démontrer, à nous confirmer ce que le simple raisonnement
 faisait prévoir, que la perpétuelle déperdition de la vie
 ne et du travail exige une réparation perpétuelle. On ne,
 +3 peut pas faire une leçon mème honnête si on n'y pense

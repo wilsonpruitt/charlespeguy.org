@@ -36,8 +36,7 @@ Il ne s'agit pas d'envoyer du monde aux représentations. Il s'agit qu'on y aill
 
 Nous aussinous devons nous préparer aux prochaines
 élections. Nous prions nos abonnés de vouloir bien nous
-envoyer les programmes, affiches, circulaires intéressantes qui leur viendraient en mains. Nous en constitue-
-rons des dossiers. Nos abonnés sauront choisir, nous
+envoyer les programmes, affiches, circulaires intéressantes qui leur viendraient en mains. Nous en constituerons des dossiers. Nos abonnés sauront choisir, nous
 
 renseigner sans nous encombrer.: FAN.
 
@@ -193,12 +192,9 @@ et passaient le reste de leur temps à démolir sourdement les personnalités qu
 autres, autoritaires inconséquents, faisaient les mêmes
 déclarations et partaient ouvertement en guerre féroce
 contre qui les gênait; les tiers, ceux qui ressemblaïent
-à ce jeune camarade, — et parmi ces tiers je mets Jau-
-rès au premier rang, — déclaraient qu'il ne faut jamais
+à ce jeune camarade, — et parmi ces tiers je mets Jaurès au premier rang, — déclaraient qu'il ne faut jamais
 faire de personnalités et conformaient bonnement leur
-conduite à leur parole: on avait beau les attaquer personnellement, sans doute ils se défendaïent personnelle-
-
-ment, mais ils ne contre-attaquaient jamais personnellement. Quand je me comparais à ces derniers, — com- À
+conduite à leur parole: on avait beau les attaquer personnellement, sans doute ils se défendaïent personnellement, mais ils ne contre-attaquaient jamais personnellement. Quand je me comparais à ces derniers, — com- À
 
 ment en eflet se donner les références morales néces- saires à la conduite si l'on ne se compare pas? — il.
 m'apparaissait que j'étais laid en comparaison d'eux;
@@ -223,9 +219,7 @@ lordre de l'action ou dans l'ordre de la connaissance.
 
 Le docteur commença ainsi, sans aucune honte, et
 surtout sans fausse honte; il ne pensait pas qu'il fût
-pédant ou poseur, quand on traite un sujet de philoso-
-
-phie ou quand on regarde en philosophe les actions,
+pédant ou poseur, quand on traite un sujet de philosophie ou quand on regarde en philosophe les actions,
 même les plus familières, d'employer le langage de la
 philosophie; au contraire il pensait qu'il est pédant et
 poseur d'éviter mal à propos les mots de son métier,
@@ -270,9 +264,7 @@ tait et s'excuse; il recommencera l'instant d'après, mais,
 sur le moment, il croit devoir faire cette concession,
 témoigner cette déférence à l'opinion commune, ainsi
 formulée: « On ne fait pas de personnalités. » Enfin dans
-les discussions les moins nombreuses, toujours l'interlo-
-
-cuteur s'arrête à ce reproche, comme s'il avait brus_ quement et par inadvertance violé la règle du. jeu.
+les discussions les moins nombreuses, toujours l'interlocuteur s'arrête à ce reproche, comme s'il avait brus_ quement et par inadvertance violé la règle du. jeu.
 Depuis que j'assiste aux discussions publiques, privées,
 et mi-parties, je n'ai jamais entendu un seul citoyen
 répondre à l'interrupteur: « Parfaitement, monsieur, je
@@ -326,17 +318,13 @@ m'insurger contre ces brimades; je ne sais si j'ai le
 bonheur de tomber sur une compagnie ou sur un bataillon ou dans un régiment mieux recruté; sinon je propo-.
 serais cette simple explication, que les régiments sont
 surtout fournis par le peuple, que l'immense majorité de
-mes anciens étaient des hommes du peuple, que le véri-
-
-table esprit de camaraderie est plus florissant dans le
+mes anciens étaient des hommes du peuple, que le véritable esprit de camaraderie est plus florissant dans le
 peuple, que l'esprit de parti et l'esprit d'autorité y sévissent moins que dans la bourgeoisie; je ne parle pas de la discipline, entendue le plus souvent comme une
 brimade collective; dans ma ville de province les conservateurs m'interdisaient parce que je devenais républicain, les catholiques m'interdisaient parce que je devenais libre penseur, les bonnes gens m''interdisaient
 parce que je faisais de la politique, — c'est ainsi qu'ils
 nomment l'action les bourgeois m'interdisaient parce
 
-que j'étais socialiste; plus tard les antisémites m'inter-
-
-dirent parce que j'étais dreyfusard; il se peut que le
+que j'étais socialiste; plus tard les antisémites m'interdirent parce que j'étais dreyfusard; il se peut que le
 
 Parti socialiste un jour m'interdise parce que je suis
 anarchiste; et je ne désespère pas qu'un jour plus tard
@@ -504,8 +492,7 @@ circonstances particulières; ainsi nous devons expliquer
 par des considérationsindividuelles tous les événements,
 même publics ou généraux, qui ont des causes et des
 circonstances individuelles. Nous ne devons attribuer à
-l'histoire aucune valeur nouvelle, aucune dignité artifi-
-cielle, aucune étrangère noblesse. L'histoire est l'image
+l'histoire aucune valeur nouvelle, aucune dignité artificielle, aucune étrangère noblesse. L'histoire est l'image
 des événements. L'histoire des personnalités est personnelle, comme l'histoire des généralités est générale,
 comme l'histoire des beautés est belle, comme l'histoire
 des laïdeurs est laide; l'histoire des indignités est indigne, l'histoire des infamies est infâme, l'histoire des
@@ -564,7 +551,7 @@ de nos rares abonnés à la première série.
 On lit dans le troisième cahier de la première série
 — Vous me demandez si nous pouvons et si nous devons faire des personnalités dans l'ordre de l'action.
 Toutes les raisons que je vous ai proposées dans l'ordre
-,: de la connaissance me paraissent valoir dans l'ordre de
+de la connaissance me paraissent valoir dans l'ordre de
 l'action. Dans la pleine complexité du réel où nous
 agissons, nous attaquerons injustement les misérables
 personnalités de la foule anonyme si nous n'attaquons
@@ -622,9 +609,7 @@ faire des personnalités. Maître Labori ne faisait pas
 trop de personnalités; Zola n'avait pas fait trop de personnalités; vous-même, s'il est permis de vous introduire ici, vous ne faisiez pas trop de personnalités.
 
 — Vous avez un bon souvenir: au moment où les machinations des scholarques poignardaient dans le dos
-les hommes libres engagés au premier rang de la ba-
-
-taille, j'intervins modestement et je dénonçai la trahison; pendant plusieurs quinzaines je fis des personnalités; je publiai dans la revue blanche une série d'articles
+les hommes libres engagés au premier rang de la bataille, j'intervins modestement et je dénonçai la trahison; pendant plusieurs quinzaines je fis des personnalités; je publiai dans la revue blanche une série d'articles
 sur l'affaire Dreyfus et la crise du Parti socialiste; je
 disais ce que je pensais, ce que nous pensions tous alors
 de plusieurs personnalités; j'allais jusqu'à faire des personnalités contre une personnalité amie qui, à mon
@@ -764,8 +749,7 @@ n'allez-vous plus trouver ce docteur socialiste révolutionnaire moraliste inter
 de si fructueuses consultations? Pourquoi n'êtes-vous
 jamais retourné voir ce vieux docteur monarchiste
 conservateur, qui avait si solidement conservé le sens
-de la conservation nationale et sociale. Ce vieux docteur blanc ne méritait pas une aussi prompte insou-
-ciance? Pourquoi n'entendons-nous pas votre ami
+de la conservation nationale et sociale. Ce vieux docteur blanc ne méritait pas une aussi prompte insouciance? Pourquoi n'entendons-nous pas votre ami
 Pierre Baudouin le philosophe, qui faisait des phrases
 grandes, et votre ami qui parlait sec, l'historien Pierre
 Deloire. Qu'est devenu votre cousin le fumiste, votre
@@ -847,12 +831,9 @@ habitude qu'ils nous lisent, mais contrairement à soimême.
 
 Rien n'est aussi dangereux que la fausse culture. Et
 
-ilest malheureusement vrai que presque toute la cul-
-
-ture universitaire est de la fausse culture. Le peuple, à
+ilest malheureusement vrai que presque toute la culture universitaire est de la fausse culture. Le peuple, à
 avant la culture, le peuple qui se bat contre la misère
-etla maladie et la mort, contre le vice et le dépéris-
-sement, contre la laideur et la saleté, contre les servi- À
+etla maladie et la mort, contre le vice et le dépérissement, contre la laideur et la saleté, contre les servi- À
 tudes et les impôts, le peuple sait d'instinct et d'épreuve
 que toute bataille est ingrate et dure. Quand l'élève
 commence à recevoir la fausse culture, on lui enseigne
@@ -863,8 +844,7 @@ plus de crimes par plus de lâchetés que tous les vices
 n'en font commettre par toutes les faiblesses de droit
 L'automatisme intellectuel a une incroyable force.
 Vieillis avant l'âge par la fausse culture, les esprits
-automatiques ne répondent plus au perpétuel rajeunis-
-sement de la réalité universelle. Je suis frappé de ceci:
+automatiques ne répondent plus au perpétuel rajeunissement de la réalité universelle. Je suis frappé de ceci:
 que ce ne sont pas, à beaucoup près, les universitaires,
 comme tels, qui lisent le mieux nos cahiers. Ce sont les
 esprits inhabitués, c'est-à-dire neufs, les esprits inha-:
@@ -906,8 +886,7 @@ contradictoires, les plus inconciliables peuvent juxtaexister. Les élèves sont
 que la vie. De sans doute le perpétuel émoussement
 des universitaires. Ceux qui sont restés âpres le doivent à leur génie et non à leur métier. Nous qui sommes affrontés à la rude pauvreté, nous qui avons à
 faire nos budgets mensuels, nos budgets quotidiens, la
-vie se charge de nous rafraichir l'âpreté native. Et nous n'avons pas pour les personnalités dangereuses l'émous-
-sement indulgent des universitaires accoutumés, des
+vie se charge de nous rafraichir l'âpreté native. Et nous n'avons pas pour les personnalités dangereuses l'émoussement indulgent des universitaires accoutumés, des
 Le métier universitaire en cela ressemble au métier
 politique. Dans la politique aussi les idées les plus inconciliables peuvent juxtaexister. Comme les élèves,
 les électeurs, pourvu qu'on les flatte, sont beaucoup
@@ -1182,8 +1161,7 @@ arrière larigueur dont on accueillit ces deux premières,
 on feint que je me suis totalement transformé. Je
 n'accepte pas cette interprétation. L'institution première de nos cahiers en était l'entière institution. Ce
 n'est pas nous qui nous sommes attardés à faire des
-personnalités. Ce furent ces personnalités qui se trou-
-vèrent sur notre chemin. Ce n'est point par un virage
+personnalités. Ce furent ces personnalités qui se trouvèrent sur notre chemin. Ce n'est point par un virage
 que nos cahiers ont changé d'aspect, de contenu. C'est
 par un déblayage. Et quand nous eûmes écarté les
 personnalités qui s'étaient présentées devant nous, ce
@@ -1446,8 +1424,7 @@ fut un socialiste. il n'y eut pas de pire exploiteur. Je
 dis que s'il y a une revue où l'on ne puisse pas laisser
 croire que Hugo fut un socialiste, c'est le Mouvement.
 Ou Le Mouvement n'a aucune institution, ou il est fait
-parmi nous pour ne pas laisser avachir le sens du socia-
-lisme, pour garder au mot même, et pour exiger qu'on
+parmi nous pour ne pas laisser avachir le sens du socialisme, pour garder au mot même, et pour exiger qu'on
 lui garde son intégrité.
 Nous ne pouvons compter que sur nous-mêmes. Partout ailleurs les opinions des hommes varieront, et il y
 aura des retours imprévus. Nous n'aurons pas seulement contre nous les démagogues affirmés que nous
@@ -1567,8 +1544,7 @@ M. Waldeck-Rousseau. Je le demande. Y eut-il deux
 
 Je ne demande pas si la constitution de ce ministère
 fut heureuse ou non; je ne demande pas si le gouvernement de ce ministère fut bon ou mauvais: nous
-examinerons en son lieu. Je demande si le gouverne-
-ment de ce ministère fut ou ne fut pas le gouvernement
+examinerons en son lieu. Je demande si le gouvernement de ce ministère fut ou ne fut pas le gouvernement
 personnel de M. Waldeck-Rousseau. Et sous l'aspect à
 des institutions parlementaires je demande si nous
 n'avons pas subi, ou un gouvernement personnel.
@@ -1635,9 +1611,7 @@ peuple regorgeât de sève, de santé, de personnalité.
 Moi aussi j'aimerais mieux que de ce pays montât un
 peuple si abondant de sa personnalité propre que les
 un peuple de luxuriance, une race copieuse, de grande
-croissance, de poussée drue et de production harmo-
-
-nieuse. Moi aussi j'aimerais mieux que de la terre
+croissance, de poussée drue et de production harmonieuse. Moi aussi j'aimerais mieux que de la terre
 grasse il vint un regorgement de moissons sans fils de
 fer et de forêts d'arbres sans tuteurs. Mais nous n'en
 sommes pas là. Et en attendant les squares ne sont pas
@@ -1870,8 +1844,7 @@ cinq, dix, vingt francs par mois, qui nous ont sauvés
 de la mort initiale, qui nous ont soutenus patiemment,
 solidement, laborieusement, dans ces premiers mois
 d'enfance et de tendresse, dans ces premiers temps de
-croissance enfantine, si difliciles, pénibles, si dangereux, où nous étions abandonnés de tous, les vingt per-
-sonnalités pauvres qui nous ont soutenus pendant la
+croissance enfantine, si difliciles, pénibles, si dangereux, où nous étions abandonnés de tous, les vingt personnalités pauvres qui nous ont soutenus pendant la
 première et la deuxième série, les quarante ou soixante
 personnalités pauvres qui nous soutiennent aujourd'hui
 ont fait et auront fait dans l'histoire de cetemps une
@@ -2029,9 +2002,7 @@ Il faut croire que tous les professeurs de Paris ont
 classe à la même heure. Surtout je n'y vois à ma connaissance ni aucun professeur de sociologie, ni aucun
 professeur de philosophie. Je ne serais pas surpris que
 ce véritable philosophe prît avec un peu de bonne
-humeur cet événement, et se dit que ses excellents col-
-
-lègues de philosophie seront les derniers qui donneront 1‘
+humeur cet événement, et se dit que ses excellents collègues de philosophie seront les derniers qui donneront 1‘
 
 À loyalement audience aux propositions que nous connaissons tous.
 

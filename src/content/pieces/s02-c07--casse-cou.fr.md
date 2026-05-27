@@ -12,9 +12,7 @@ alité. Une attaque un peu sérieuse de la grippe habituelle m'avait surpris par
 excès fatigue survenu après un excès de travail. Je
 me hâfai de les rassurer.
 
-— Je dois vous avouer que cette maladie a fort incom-
-
-modé le dilettantisme où l'on sait que je me complais.
+— Je dois vous avouer que cette maladie a fort incommodé le dilettantisme où l'on sait que je me complais.
 Mais soyez sans inquiétude. Je vais beaucoup mieux,
 parce que j'ai employé les moyens révolutionnaires.
 
@@ -61,9 +59,7 @@ me lire sérieusement et j'espère qu'il me répondra justement, aussitôt qu'il
 grands de ce monde politique. Nous te laissons.
 
 — Comment feras-tu pour écrire, dit Pierre Deloire,
-impatient que tu es, et grand amateur des phrases par-
-
-lées, qui vont plus vite.
+impatient que tu es, et grand amateur des phrases parlées, qui vont plus vite.
 
 — Assieds-toi là, répondit Pierre Baudouin. Puisque
 
@@ -81,8 +77,7 @@ les opprimés brisent leurs chaînes. Il lui paraît douloureux que, si souvent,
 de la violence, et il désire que le développement intense de
 ï la démocratie, en donnant un jeu plus libre, plus aisé et
 plus vaste à l'action populaire, dispense le prolétariat des
-moyens sanglants qui ont affranchi la bourgeoisie révolu-
-tionnaire. Mais il sait qu'il ne dépend pas de la classe
+moyens sanglants qui ont affranchi la bourgeoisie révolutionnaire. Mais il sait qu'il ne dépend pas de la classe
 ouvrière seule de régler les méthodes de révolution. Elle
 r__ aura peut-être à se défendre contre les agressions brutales
 des dirigeants, contre les violences des privilégiés; et la
@@ -106,9 +101,7 @@ devient de plus en plus malaisée à mesure que le socialisme
 se surcharge de considérations doctrinaires, c'est-à-dire
 mesure qu'il comprend mieux la complexité des faits
 sociaux et la loi d'évolution qui impose à toute pensée
-révolutionnaire une longue période de préparation écono-
-
-mique et politique.
+révolutionnaire une longue période de préparation économique et politique.
 
 Longtemps on a cru qu'i suflirait de briser quelques
 rouages du mécanisme capitaliste, pour le remplacer tout
@@ -118,8 +111,7 @@ l'action d'amoindrir dans des prophéties à court terme les
 chances de durée et les forces de résistance du capitalisme.
 
 Il a encore bien des moyens de renouvellement: l''expansion coloniale fournit une issue à sa production surexcitée.
-Il est certainement condamné à périr, mais il serait témé-
-raire d'assigner la date de sa fin: « A travers quelles
+Il est certainement condamné à périr, mais il serait téméraire d'assigner la date de sa fin: « A travers quelles
 étapes arriverons-nous à notre but? dit lecitoyen Vaillant.
 Nul de nous ne peut le déterminer. »
 
@@ -158,8 +150,7 @@ ainsi que le christianisme et le spiritualisme ont soumis le
 monde à la tyrannie de Dieu. Le dualisme engendre donc
 oppression et terreur. Au contraire, si tous les phénomènes
 et tous les êtres sont les manifestations infiniment variées
-d'une même force ou d'une même idée, aucun ne peut pré-
-tendre à opprimer les autres; et une libre et croissante
+d'une même force ou d'une même idée, aucun ne peut prétendre à opprimer les autres; et une libre et croissante
 harmonie des énergies et des êtres est possible dans l'immense et mouvante unité. Quelle est la nature de cette force
 une qui enveloppe à la fois ce que nous appelons matière
 et que nous appelons esprit? Le citoyen Vaillant paraît
@@ -170,14 +161,10 @@ monisme, qu'il fût matérialiste ou idéaliste, répondait en
 tout cas au besoin de la pensée qui aspire à unifier le
 monde, et au besoin de la vie qui ne veut se plier à aucune
 force extérieure, Je me garderai bien d'entrer ici, et aujourd'hui, dans ces grands problèmes. Je veux dire seulement
-au passage qu'à mes yeux l'heure approche où le proléta-
-
-septième cahier de la deuxième série
+au passage qu'à mes yeux l'heure approche où le prolétaseptième cahier de la deuxième série
 riat socialiste et révolutionnaire devra s'approprier une
 doctrine organisée de l'univers et de la vie. Ce qu'a été
-l'Encyclopédie pour la bourgeoisie révolutionnaire, il fau-
-
-dra qu'une Encyclopédie nouvelle, infiniment plus hardie
+l'Encyclopédie pour la bourgeoisie révolutionnaire, il faudra qu'une Encyclopédie nouvelle, infiniment plus hardie
 
 et plus vaste, le soit pour le prolétariat.
 
@@ -185,8 +172,7 @@ Il faudra reprendre le mouvement de la pensée humaine
 depuis Kant jusqu'à Renan, en passant par Hegel, Comte
 et Marx. Il faudra reprendre le mouvement de la science
 de Laplace à Maxwell, en passant par Darwin, proposer les
-principaux résultats et les tendances principales au prolé-
-tariat qui veut vivre de la pleine vie et projeter sur l'univers une ardente lumière où les clartés de la pensée individuelle se méleront à l'ardentrayonnement de la vie sociale.
+principaux résultats et les tendances principales au prolétariat qui veut vivre de la pleine vie et projeter sur l'univers une ardente lumière où les clartés de la pensée individuelle se méleront à l'ardentrayonnement de la vie sociale.
 Cette organisation vivante d'une Encyclopédie socialiste!
 sera une des plus hautes tâches qui s'imposeront demain
 notre parti et à l'humanité.
@@ -198,8 +184,7 @@ l'autre, d'un phénomène à l'autre la réalité peut se mouvoir
 par des degrés continus. Il y a perpétuelle transformation,
 perpétuel effort, et sous les fausses apparences des formes
 figées, éternelle fluidité, incessante aspiration de la vie. De
-là, dans l'ordre social, la philosophie à la fois profondé-
-ment évolutionniste et hardiment révolutionnaire du
+là, dans l'ordre social, la philosophie à la fois profondément évolutionniste et hardiment révolutionnaire du
 Il n'y a pas de forme sociale immuable et nécessaire qui
 
 puisse arrêter la poussée des forces économiques et l'élan
@@ -211,11 +196,7 @@ autre, c'est par un sourd travail, c'est par un obscur réar-
 flot sur le roc, du désir et de l'action sur le privilège, que
 les transformations révolutionnaires sont préparées. Le citoyen Vaillant répugne à tout ce qui immobilise et catégorise. Ce qu'il reprochait, par exemple, au programme agraire
 
-du Parti ouvrier français, ce n'était pas de maintenir provi-
-
-soirement la petite propriété paysanne, ce n'était pas d'in-
-
-stituer une transition, mais c'était d'en faire, si je puis dire,
+du Parti ouvrier français, ce n'était pas de maintenir provisoirement la petite propriété paysanne, ce n'était pas d'instituer une transition, mais c'était d'en faire, si je puis dire,
 
 une transition figée: c'était de ne pas assez dire que, même
 
@@ -230,9 +211,7 @@ Cette philosophie profonde et subtile lui donne le sens
 très délié de toutes les réformes de transition, de toutes les
 évolutions nuancées qui préparent et qui commencent la
 Révolution. Il ne consentira jamais à dire, comme tant
-d'autres socialistes, que telle réforme, telle action, telle in-
-
-stitution est impossible tant que le capitalisme ne sera pas
+d'autres socialistes, que telle réforme, telle action, telle institution est impossible tant que le capitalisme ne sera pas
 tombé tout entier. C'est, pour lui, comme si on disait que
 l'aube incertaine est impossible tant que n'a pas disparu
 toute la nuit.
@@ -245,8 +224,7 @@ désaccord entre l'institution nouvelle et le milieu capitaliste
 
 rend impossible l'institution. Il conclut, au contraire, que
 la multiplicité des institutions nouvelles de solidarité et de
-dignité finira par rendre impossible le milieu qui les dé-
-forme et les abaisse,
+dignité finira par rendre impossible le milieu qui les déforme et les abaisse,
 Voyez, par exemple, la conclusion si nette, si importante
 
 au point de vue de la méthode, de l'article qu'il publiait
@@ -284,8 +262,7 @@ c'est l'idée même de ce mouvement, de cette progression.
 conditions, à mon sens, sont nécessaires, que je ne puis.
 aujourd'hui qu'indiquer d'un mot
 1° Il faut qu'une philosophie générale, à la fois révolutionnaire et évolutionniste, se communique peu à peu à l'élite
-consciente du prolétariat, et de proche en proche au prolé-
-tariat tout entier. C'est cette Encyclopédie socialiste et prolétarienne dont je parlais plus haut, et sur laquelle je
+consciente du prolétariat, et de proche en proche au prolétariat tout entier. C'est cette Encyclopédie socialiste et prolétarienne dont je parlais plus haut, et sur laquelle je
 2° Il faut que le prolétariat s'organise en un parti poli
 tique de classe unifié, ayant une conscience très nette de son
 but suprême, et sachant marquer, aussi, dans toutes les
@@ -331,24 +308,19 @@ Mais il a contre lui le pape, les congrégations, les coteries
 militaires qui haïssent le général André, et aussi les affa-
 
 à més de servitude cosaque. Il a tout cela contre lui, et il
-dure. C'est le signe qu'avec un nouvel effort de la démo-
-
-septième cahier de la deuxième série
-‘cratie et avec une organisation plus puissante du proléta-
-riat, des gouvernements de gauche, mais plus hardis et plus
+dure. C'est le signe qu'avec un nouvel effort de la démoseptième cahier de la deuxième série
+‘cratie et avec une organisation plus puissante du prolétariat, des gouvernements de gauche, mais plus hardis et plus
 agissants, seront possibles. Je m'étonne qu'après le règne
 presque continu des Périer, des Ribot, des Dupuy, des
 Méline et des Cavaignac on paraisse faire de ce symptôme
 et de cette promesse. C'est dans ce sens que je suis et que
 je reste ministériel.
-Je ne crois pas, malgré les trésors de talent et de sincé-
-rité passionnée que Péguy dépense à sa thèse dans les
+Je ne crois pas, malgré les trésors de talent et de sincérité passionnée que Péguy dépense à sa thèse dans les
 Cahiers de la Quinzaine, qu'il nous suffise, en une sorte
 d'anarchisme moraliste, de susciter, de conscience individuelle à conscience individuelle, la fierté du juste et du
 vrai. Il faut forger encore, à l'usage du prolétariat, l'outil
 de gouvernement et de législation. Il se peut très bien,
-d'ailleurs, que le premier outil sorti de la forge soit élémen-
-taire et maladroit, souvent réfractaire à notre vouloir. En
+d'ailleurs, que le premier outil sorti de la forge soit élémentaire et maladroit, souvent réfractaire à notre vouloir. En
 connaissez-vous, maintenant, un meilleur?
 
 Je voudrais aussi rassurer un peu Lagardelle qui, dans Le
@@ -356,16 +328,14 @@ Mouvement Socialiste, s'afflige de notre racornissement.
 Peut-être pensera-t-il que l'action législative et gouvernementale de notre parti doit se rattacher à sa conception
 
 . générale. Or, si nous devons, comme l'indique avec tant
-de force Vaillant lui-même, passer par une société de tran-
-sition, il nous faut susciter aussi, dans la démocratie, une
+de force Vaillant lui-même, passer par une société de transition, il nous faut susciter aussi, dans la démocratie, une
 action législative et gouvernementale de transition. Et il
 ne faut point dédaigner les ébauches qui annoncent, même
 de loin, la possibilité de cet organisme.
 
 Lagardelle, par le docte intermédiaire d'une citation de
 Marx, nous accuse tranquillement de « crétinisme parlementaire ». Non, je me trompe; nous n'y sommes pas tout
-à fait arrivés encore. aussi il y a évolution, et nous som-
-mes seulement en marche vers cet état fächeux. Ah! qu'il
+à fait arrivés encore. aussi il y a évolution, et nous sommes seulement en marche vers cet état fächeux. Ah! qu'il
 est donc cruel d'avoir doublé le cap de la quarantaine! Les
 hommes entre deux âges ont toutes les infortunes. Nos
 aînés nous accusent formellement d'intrigue ambitieuse, et
@@ -418,9 +388,7 @@ ce qui est mis parce que c'est la vérité, ou du moins
 parce que vous croyez que c'est la vérité.
 
 Vous avez tort de vouloir plaire ainsi au citoyen Vaillant. On ne doit jamais vouloir plaire par des compliments mondains. Cette complaisance n'est pas seulement insincère et injuste. Elle est vaine. Elle ne sert
-qu'à renforcer et à fonder le grossier mépris qu'un auto-
-
-ritaire comme Vaillant peut avoir pour un homme
+qu'à renforcer et à fonder le grossier mépris qu'un autoritaire comme Vaillant peut avoir pour un homme
 comme vous. Quand vous nous vantez la haute sérénité
 du citoyen Vaillant, il ne voit dans le compliment qu'un
 témoignage grossier de faiblesse. Étant grossier il voit
@@ -434,16 +402,14 @@ leur autorité.
 ce que vous nommez la philosophie de Vaillant. Je ne
 puis croire que vous n'ayez pas au moins soupçonné ce
 que c'est. Demi-ingénieur et demi-médecin, empileur
-de lectures et compilateur de textes, Vaillant est l'iné-
-puisable bafouilleur tiède. Nous l'avons entendu dans
+de lectures et compilateur de textes, Vaillant est l'inépuisable bafouilleur tiède. Nous l'avons entendu dans
 les congrès et dans les réunions. Quand vous l'intitulez
 philosophe, puisque vous le connaissez comme il est,
 ou bien vous oubliez ce que c'est qu'un philosophe, ou
 bien vous vous moquez de nous, pauvres pécheurs, pour
 la plus grande gloire de l'unité socialiste.
 
-Quand vous dites que le citoyen Vaillant s'élève au-
-dessus des querelles et des dissentiments, vous nous
+Quand vous dites que le citoyen Vaillant s'élève audessus des querelles et des dissentiments, vous nous
 mentez, pour l'unité socialiste. Vous savez bien que le
 vieux conspirateur blanquiste romantique jouit dans
 les dissentiments, les querelles et les combinaisons.
@@ -458,8 +424,7 @@ journal d'ignobles affaires comme un asile de la philosophie?
 Pourquoi traitez-vous de passagères les querelles et
 de secondaires les dissentiments qui partagent le socia- »lisme français. Et ne voyez-vous pas que cette habileté
 facile de polémique charitable se retourne contre vous.
-Si des querelles passagères et des dissentiments secon-
-daiïres produisent toutes les colères haïneuses, tous les
+Si des querelles passagères et des dissentiments secondaiïres produisent toutes les colères haïneuses, tous les
 ressentiments envieux et les jalousies recuites que vous
 ne pouvez nous cacher, qu'avons-nous donc à redouter
 d'un dissentiment grave et de querelles qui ne seraient
@@ -473,9 +438,7 @@ la classe ouvrière à l'infatigable action, à l'effort
 continu de révolution. Mais vous, citoyen Jaurès, en
 parlant ainsi, par quoi donc animez-vous la classe
 ouvrière? et comment traitez-vous le peuple?
-Vous traitez le peuple en enfant qu'il faut encou-
-
-septième cahier de la deuxième série
+Vous traitez le peuple en enfant qu'il faut encouseptième cahier de la deuxième série
 rager, par le mensonge au besoin et par l'illusion.
 Nous demandons pour nous peuple un enseignement
 sérieux. Pas un professeur de philosophie, respectant
@@ -500,8 +463,7 @@ quand il dit: Je suis athée, cela veut dire en gros qu'il
 a envie d'embêter les curés. Je ne vois pas quel avantage nous aurions, ni quel intérêt, à imiter les vieuxbourgeois dans ce qu'ils ont de grossier et d'inculte, à
 imiter les vieux-radicaux dans leurs infirmités mentales, ou morales.
 
-On n'a d'ailleurs assuré que le citoyen Vaillant n'en-
-tendait pas son matérialisme et son athéisme au sens
+On n'a d'ailleurs assuré que le citoyen Vaillant n'entendait pas son matérialisme et son athéisme au sens
 grossièrement vieux-bourgeois, mais en un sens philosophique. Ou plutôt en un sens pseudo-philosophique.
 C'est-à-dire non pas au sens où les entendrait un véritable philosophe, mais au sens où les retiendrait un bon
 ï cuistre de philosophie dont la mémoire inévitable serait
@@ -523,8 +485,7 @@ moins confusément se revancher ainsi des persécutions
 cousiniennes. Et puis le matérialisme a un aspect de
 nouveauté, de hardiesse, il a l'air d'embêter les sergots.
 Il plaît ainsi aux amateurs de manifestations faciles.
-On ferait plaisir à beaucoup d'électeurs si l'on rédui-
-sait tout à la matière.
+On ferait plaisir à beaucoup d'électeurs si l'on réduisait tout à la matière.
 Le malheur est que cette réduction ne marche pas
 toute seule. Nous avons de la matière une idée plus,
 confuse encore et moins utilisable que celle que nous
@@ -543,16 +504,14 @@ des immatériels dans l'idée confuse que nous pouvons
 avoir de la matière.
 
 Ainsi non seulement le matérialisme est pour le philosophe une métaphysique parmi les métaphysiques, mais
-ce matérialisme, où se résume selon vous la philoso-
-phie du citoyen Vaillant, est de toutes les métaphysi- -
+ce matérialisme, où se résume selon vous la philosophie du citoyen Vaillant, est de toutes les métaphysi- -
 ques la plus intenable, celle qui d'abord présente les
 difficultés les plus redoutables, et, à dire vrai, les
 impossibilités les plus insurmontables, demandant une
 singulière grossièreté si on l'entend au sens grossier,
 mais exigeant une singulièrement rare subtilité si
 on l'entend au sens habile. Et cela est si vrai, cette
-position est si intenable que vous-même l'abandon-
-nez aussitôt que vous l'avez occupée. Après nous
+position est si intenable que vous-même l'abandonnez aussitôt que vous l'avez occupée. Après nous
 avoir déclaré que le matérialisme est l'expression, La
 traduction la plus populaire, et dans la langue de la
 philosophie française la plus exacte, vous sautez rapidement du matérialisme, qui est un monisme, au monisme
@@ -574,23 +533,17 @@ ce que ce monisme soit le grand esprit de la philosophie
 allemande, l'esprit de Spinosa, de Fichte, de Hegel et
 de Feuerbach. Si vous parlez ainsi pour accompagner
 
-la mode, je vous plains, et vous êtes en retard de qua-
-
-rante ans, ou de vingt. Le grand bateau de la philosophie
+la mode, je vous plains, et vous êtes en retard de quarante ans, ou de vingt. Le grand bateau de la philosophie
 allemande est aujourd'hui abandonné. Demandez aux
 philosophes de ce temps quelle part Fichte — comme
-philosophe — Hegel et Feuerbach ont eue dans la for-
-mation philosophique des générations nouvelles. Et
+philosophe — Hegel et Feuerbach ont eue dans la formation philosophique des générations nouvelles. Et
 jusqu'où leur philosophie a-t-elle été allemande, ou hui maine, ou scolaire, ou vivante, ou sociale, ou vaine”? Et
-pourquoi voulez-vous attribuer Spinosa, juif por-
-tugais d'Amsterdam, à la famille allemande? Est-ce de
+pourquoi voulez-vous attribuer Spinosa, juif portugais d'Amsterdam, à la famille allemande? Est-ce de
 
 septième cahier de la deuxième série
 la politesse internationale? Ne soyons pas Allemands:
 Ne soyons pas nationalistes allemands. Ne soyons pas
-non plus nationalistes français. Soyons exactement in-
-
-ternationalistes, c'est-à-dire français devenus internationalistes.
+non plus nationalistes français. Soyons exactement internationalistes, c'est-à-dire français devenus internationalistes.
 Après Spinosa, Fichte, Hegel et Feuerbach, et en leur
 compagnie Vaillant est moniste, c'est-à-dire que pour
 
@@ -633,15 +586,11 @@ parce qu'ils aimaient passionnément la bonté finale. Si
 consolante pourtant que fût l'hypothèse de la Providence, nous avons délibérément refusé de l'admettre.
 Vous savez pour quelles raisons. Allons-nous la rétablir
 sous la forme que vous nous proposez. A la place de la
-Providence chrétienne allons-nous instituer la Provi-
-dence laïque, sous les espèces du monisme métaphysique. La Providence religieuse, la Providence chré-
-tienne supposait le monisme religieux, le seul Dieu
+Providence chrétienne allons-nous instituer la Providence laïque, sous les espèces du monisme métaphysique. La Providence religieuse, la Providence chrétienne supposait le monisme religieux, le seul Dieu
 chrétien, tout puissant, créateur du ciel et de la terre et
 souverain seigneur de toutes choses. Inversement un
-certain monisme laïque emporte une institution de Providence laïque. ne croyez pas que nous ayons reS noncé à l'hypothèse de la Providence religieuse pour y,
-substituer l'hypothèse de la Providence laïque, du mo-
-
-septième cahier de la deuxième série
+certain monisme laïque emporte une institution de Providence laïque. ne croyez pas que nous ayons reS noncé à l'hypothèse de la Providence religieuse pour
+substituer l'hypothèse de la Providence laïque, du moseptième cahier de la deuxième série
 nisme optimiste, ou de l'optimisme moniste. Vous savez
 pour quelles raisons. Permettez-moi de vous les rappeler à mesure que je relis le texte que vous nous avez
 
@@ -649,9 +598,7 @@ Le citoyen Vaillant n'admet pas la dualité et l'opposition de ce qu'on appelle 
 esprit; — moi je veux bien, pourvu que le citoyen commence par définir ce qu'il entend par matière, ce qu'il
 entend par esprit, ce qu'il entend par dualité, ce qu'il
 entend par opposition. Quand il nous aura défini ses
-mots, nous pourrons causer; NOUS VEIrOns si NOUS pou-
-
-vons lui accorder la réduction qu'il nous demande, ou
+mots, nous pourrons causer; NOUS VEIrOns si NOUS pouvons lui accorder la réduction qu'il nous demande, ou
 
 plutôt que vous semblez nous commander. En attendant
 
@@ -692,8 +639,7 @@ Le véritable anarchiste a encore un dégoût plus profond
 pour exercer l'autorité que pour la subir. C'est même
 la raison pour laquelle un orateur qui veut lancer la
 foule des grévistes à la queue d'un drapeau noir, ou
-qui, armé d'un fusil, monte la garde auprès de ce dra-
-peau, est tout ce que l'on voudra, mais non pas un
+qui, armé d'un fusil, monte la garde auprès de ce drapeau, est tout ce que l'on voudra, mais non pas un
 
 Qui dit dualité dit oppression; car des deux forces
 opposées l'une doit dominer l'autre, à moins que ces
@@ -701,9 +647,7 @@ deux forces ne s'équilibrent et ne se neutralisent dans
 le néant. C'est exactement ici qu'est le vice intime de
 votre mentalité métaphysique et politique. Le jour où
 
-la Petite République publia l'article que je vous com-
-
-mente, je dis à plusieurs camarades combien cet article
+la Petite République publia l'article que je vous commente, je dis à plusieurs camarades combien cet article
 me paraissait un symptôme inquiétant. — Laisse donc,
 me répondirent-ils, c'est un article hors série, aussitôt
 oublié. Demain Jaurès n'y pensera plus, et ses lecteurs
@@ -719,8 +663,7 @@ récentes. Je dois donc saisir avec empressement la
 révélation profonde que vous nous faites cette fois. Vous
 croyez profondément que l'unité est la condition de
 tout, qu'il faut faire l'unité avant tout, que de l'unité
-tout viendra. De la dualité, de la pluralité vous n'atten-
-dez rien que la tyrannie victorieuse de l'un sur l'asservissement du deuxième, ou la neutralisation dans le
+tout viendra. De la dualité, de la pluralité vous n'attendez rien que la tyrannie victorieuse de l'un sur l'asservissement du deuxième, ou la neutralisation dans le
 néant d'un équilibre stérile.
 C'est ainsi, dites-vous, — c'est-à-dire par la dualité
 
@@ -741,8 +684,7 @@ et le spiritualisme ont soumis le monde à la tyrannie de
 . Dieu. Le dualisme engendre donc oppression et terreur.
 quence. Il paraît plutôt que c'est encore un besoin
 
-mystique de monisme religieux qui a poussé les chré-
-tiens à ramasser en l'unité d'un Dieu créateur l'indéfinie
+mystique de monisme religieux qui a poussé les chrétiens à ramasser en l'unité d'un Dieu créateur l'indéfinie
 variété des créatures. Il n'y aurait donc pas à dire que
 le dualisme livre le monde à la tyrannie de Dieu, le
 corps à la tyrannie de l'âme; il n'y aurait pas à dire
@@ -769,9 +711,7 @@ sur le sens de votre monisme. Ce monisme vous laisse
 
 des remords et vous en relâchez la définition. Comme
 
-les matérialistes font rentrer sournoisement les imma-
-
-tériels dans leur idée de la matière, ainsi vous distendez
+les matérialistes font rentrer sournoisement les immatériels dans leur idée de la matière, ainsi vous distendez
 bonnement, pour ne mécontenter personne, les parois
 de votre unité métaphysique. Par une remarquable
 analogie, en vous la franchise, la droiture philosophique
@@ -805,8 +745,7 @@ admettez qu'une libre et croissante harmonie des
 mouvante unité. Si vous laissez à la multiplicité des
 énergies et des êtres toute sa valeur, votre unité devient
 surérogatoire et encombrante. Une libre et croissante
-harmonie peut se passer, doit se passer d'une supé-
-rieure unité, si mouvante et immense que l'on distende -
+harmonie peut se passer, doit se passer d'une supérieure unité, si mouvante et immense que l'on distende -
 cette unité. Si vous laissez vraiment à la multiplicité
 toute sa variété libre, il n'y a aucun avantage à garder
 quelque part, sous le nom d'unité, je ne sais quelle
@@ -828,8 +767,7 @@ Elle n'en était pas moins la répétition d'une insincérité.
 Quand je m''interrogeai moi-même, il me sembla que je
 ) n'éprouvais nullement ce besoin. Je fais pourtant partie
 de la pensée humaine. J'ai connu des paysages variés.
-Je n'ai pas éprouvé le besoin que la plaine fût la mon-
-tagne ou que le plateau devint identique à la vallée.
+Je n'ai pas éprouvé le besoin que la plaine fût la montagne ou que le plateau devint identique à la vallée.
 Je n'ai pas même éprouvé le besoin que la vallée de
 l'Yvette fût identique à la vallée de la Bièvre. Aujour-
 d'hui j'éprouve ce besoin moins que jamais. Quand
@@ -865,8 +803,7 @@ les servitudes et les asservissements qui ne sont pas
 variés, ou qui sont le moins variés. Les maladies, qui
 sont en un sens des servitudes, sont beaucoup moins
 variées que les santés. Quand les hommes se libèrent,
-quand les esclaves serévoltent, quand les malades gué-
-rissent, bien loin qu'ils avancent dans je ne sais quelle
+quand les esclaves serévoltent, quand les malades guérissent, bien loin qu'ils avancent dans je ne sais quelle
 unité, ils avancent en variations croissantes. Les élèves
 
 l'école ou au catéchisme sont beaucoup plus près de
@@ -881,12 +818,11 @@ Ilaécrit expressément il y a quelques années, quele
 …—. monisme, qu'il fût matérialiste ou idéaliste, répondait
 3 … entoutcas au besoin de la vie qui ne veut se plier
 aucune force extérieure. Vous jouez sur les mots.
-4 L'extérieur ne me restera pas moins extérieur parce que
+L'extérieur ne me restera pas moins extérieur parce que
 “4 nous serons vaguement englobés, lui et moi, dans un
 tout externe ou subsumés à un tout supérieur. Vous ne
 : fondez pas le Boxeur dans le chrétien ni le chrétien
-dans le Chinois parce que vous constatez qu'ils appar-
-tiennent à la même humanité. Vous ne fondez pas
+dans le Chinois parce que vous constatez qu'ils appartiennent à la même humanité. Vous ne fondez pas
 l'Anglais et le Boer parce que vous constatez qu'ils
 appartiennent à la même race blanche. Vous ne fondez
 pas le tulliste et son patron quand vous constatez qu'ils
@@ -906,8 +842,7 @@ septième cahier de la deuxième série
 tion prend définitivement corps. À vos yeux l'heure
 approche où le prolétariat socialiste et révolutionnaire
 devra s'approprier une doctrine organisée de l'univers
-et de la vie. Non, citoyen. L'heure approche où le prolé-
-tariat socialiste et révolutionnaire devra s'approprier
+et de la vie. Non, citoyen. L'heure approche où le prolétariat socialiste et révolutionnaire devra s'approprier
 au moins les grands moyens de production et d'échange
 ou de communication. Vous êtes séduit par des ana-
 —logies trompeuses. Mais comparaison n'est pas raison.
@@ -937,8 +872,7 @@ et n'admire la grandeur de cet effort. Plus que personne
 je respecte les précurseurs. Mais, justement parce
 qu'ils furent nos précurseurs, il est probable que nous
 les avons dépassés. Les mépriser serait d'une imbécile
-ï fatuité. Mais les imiter servilement serait d'une admira-
-tion docile un peu niaise. Croyez bien que s'il revenait
+ï fatuité. Mais les imiter servilement serait d'une admiration docile un peu niaise. Croyez bien que s'il revenait
 parmi nous Diderot serait le premier à n'imiter pas
 Diderot, qu'il était peu imitateur.
 J'entends bien que vous n'imiteriez pas servilement
@@ -947,8 +881,7 @@ l'Encyclopédie. Vous avez de plus hautes ambitions
 depuis Kant jusqu'à Renan, en passant par Hegel,
 Comte et Marx. Il faudra reprendre le mouvement de
 la science de Laplace à Maxwell, en passant par
-Darwin, proposer les principaux résultats et les ten-
-dances principales au prolétariat qui veut vivre de la
+Darwin, proposer les principaux résultats et les tendances principales au prolétariat qui veut vivre de la
 pleine vie et projeter sur l'univers une ardente lumière
 à où les clartés de la pensée individuelle se méleront
 l'ardent rayonnement de la vie sociale. Cette organisation
@@ -958,8 +891,7 @@ hautes tâches qui s'imposeront demain à notre parti et
 du citoyen Vaillant. Je n'y reviens pas encore avec vous.
 Je reste à la première des trois conditions qui sont
 nécessaires pour assurer, hâter la marche méthodique
-1° Il faut qu'une philosophie générale, à la fois révo-
-lutionnaire et évolutionniste, se communique peu à peu
+1° Il faut qu'une philosophie générale, à la fois révolutionnaire et évolutionniste, se communique peu à peu
 à l'élite consciente du prolétariat, et de proche en proche
 au prolétariat tout entier. C'est cette Encyclopédie
 socialiste et prolétarienne dont je parlais plus haut, et
@@ -1000,15 +932,13 @@ séparément, — ils feraient leur métaphysique ou leur
 physique ou leur philosophie. Professeur plus ou moins
 ignoré, ouvrier syndiqué en instruments de précision,
 répétiteur de mathématiques, ils travailleraient librement et non pas unitairement. La seule différence qu'il y
-aurait serait sans doute que la vie matérielle, indispen-
-sable, préliminaire, leur serait beaucoup plus pénible,
+aurait serait sans doute que la vie matérielle, indispensable, préliminaire, leur serait beaucoup plus pénible,
 parce que la société bourgeoise, où nous vivons, est plus
 dure pour le libre travail intellectuel que ne le furent
 la plupart des sociétés précédentes. Mais ne croyez
 pas qu'ils feraient des comités, tiendraient des séances,
 ouvriraient et fermeraient des sessions, proposeraient
-des motions, rédigeraient des ordres du jour, procé-
-deraient à des scrutins. Toute l'économie de la liberté
+des motions, rédigeraient des ordres du jour, procéderaient à des scrutins. Toute l'économie de la liberté
 philosophique repose d'abord sur ce fondement: qu'un
 seul peut avoir contre tous raison, et même qu'il peut
 y avoir des temps où aucun n'ait raison. Les grands
@@ -1025,8 +955,7 @@ queue leu leu comme les petits enfants des écoles.
 vous plaît de vous représenter et de nous représenter
 les grands cœurs et les grands esprits comme attachés
 à réaliser un progrès continu de la pensée humaine où
-chacun serait le continuateur du précédent et le prédé-
-cesseur exact d'un nouveau continuateur. Cette imagi-!
+chacun serait le continuateur du précédent et le prédécesseur exact d'un nouveau continuateur. Cette imagi-!
 nation scolaire ne me paraît pas conforme à la réalité.
 Elle n'est pas conforme à l'idée que la plupart des grands
 philosophes ont eue d'eux-mêmes et de leur philosophie.
@@ -1047,9 +976,7 @@ grands philosophes n'ont pas pensé à continuer et
 compléter leurs prédécesseurs, mais bien plutôt à les
 rafraîchir et à les renouveler. Ils n'ont pas pensé à se
 faire continuer et compléter par leurs successeurs, mais
-ou bien ils croyaient sincèrement tenir la vérité défini-
-
-tive, au moins essentielle, ou bien ils pensaient, ils
+ou bien ils croyaient sincèrement tenir la vérité définitive, au moins essentielle, ou bien ils pensaient, ils
 comptaient que les successeurs les traiteraient comme
 ils avaient traité eux-mêmes les prédécesseurs, ils
 comptaient qu'on les renouvellerait et qu'on les rafraichirait. Vous eussiez sans doute surpris un homme
@@ -1081,8 +1008,7 @@ tain sens nous faisons les faits. A plus forte raison la
 philosophie avance-t-elle souvent par sursauts. Le véritable philosophe remet à chaque instant tout en question, ou du moins, si une entière instabilité est intenable,
 au seuil de sa méthode, au seuil de son enquête, au seuil
 de son œuvre, au seuil de sa vie enfin, au seuil d'un tra:
-vail il remet tout en cause. Il utilise ou non ses prédé-
-cesseurs: c'est son affaire, sous sa responsabilité personnelle de philosophe. Il est évident qu'en fait il ne les
+vail il remet tout en cause. Il utilise ou non ses prédécesseurs: c'est son affaire, sous sa responsabilité personnelle de philosophe. Il est évident qu'en fait il ne les
 ignore pas. Mais il est incontestable que sa philosophie
 est caractérisée d'abord parce qu'il remet tout en
 cause, absolument, et non parce qu'il utilise plus ou
@@ -1100,8 +1026,7 @@ que dans la philosophie, on n'est pas un homme si dans
 la vie on n'a pas une fois tout remis en cause. Malheureux celui qui n'a pas au moins une fois, pour un amour
 ou pour une amitié, pour une charité, pour une solidarité, remis tout en cause, éprouvé les mêmes fondements, analysé lui-même leg actes les plus simples.
 Malheureux et peu révolutionnaire.
-Car c'est ici que vous jouez de male chance: les formes de la pensée, les formes de l'action que vous élimi-
-nez en accordant je ne sais quel monopole à quelle unité
+Car c'est ici que vous jouez de male chance: les formes de la pensée, les formes de l'action que vous éliminez en accordant je ne sais quel monopole à quelle unité
 
 de la pensée humaine sont justement celles qui sont
 
@@ -1121,15 +1046,13 @@ l'on remet en cause, et que l'on est révolutionnaire.
 
 La science même est toute enveloppée d'art. Quand
 les incultes comme Vaillant parlent de science on croirait que l'univers est un mécanisme rigide, un jeu de
-ficelles. Mais quand, au lieu d'avoir affaire à des agré-
-gés de philosophie, — je ne dis pas cela pour vous, je
+ficelles. Mais quand, au lieu d'avoir affaire à des agrégés de philosophie, — je ne dis pas cela pour vous, je
 parle pour des agrégés de philosophie que je connais,
 qui sont tombés dans la sociologie, et qui veulent nous
 faire une sociologie plus raide que la mécanique des
 mécaniciens, — quand, au lieu d'avoir affaire à des
 agrégés de philosophie, on cause avec de véritables
-savants, avec de véritables arithméticiens, avec un vé-
-ritable géographe, ou avec un naturaliste qui a poussé
+savants, avec de véritables arithméticiens, avec un véritable géographe, ou avec un naturaliste qui a poussé
 au delà du P. C. N. indispensable, on est tout surpris
 de voir comme le véritable savant est baigné d'art,
 comme les mathématiques sont harmonieuses, plastiques, intuitives, comme l'histoire naturelle suppose de
@@ -1163,9 +1086,7 @@ soit un véritable savant. On est tout surpris qu'il ait
 cette souplesse et cette mobilité. Ces hommes sont toujours prêts à douter de tout ce qu'ils ont fait, pourvu
 qu'on leur démontre que cela est douteux. Ils accueiïlleront toujours l'hypothèse nouvelle, pourvu qu'elle soit
 plus probable, eux-mêmes ils propageront l'idée nouvelle, pourvu qu'elle soit ou leur semble juste, quand
-même leurs trente ans de laboratoire en seraient inutili-
-
-sés, quand même l'unité de leur vie en serait rompue.
+même leurs trente ans de laboratoire en seraient inutilisés, quand même l'unité de leur vie en serait rompue.
 C'est en cela qu'ils sont profondément révolutionnaires.
 C'est pour cela que dans la vie publique ils donnent
 quand ils s'y mettent l'action profondément révolutionnaire que vous connaissez. Ils préfèrent la vérité
@@ -1234,8 +1155,7 @@ réjoui de les entendre crier: « À bas la calotte! » Quand il
 s'agit de réfuter la doctrine du bayado, je goûte fort les objections présentées sous cette forme vigoureuse et sÿnthé-
 
 Je sais bien ce que vont nous dire les gazettes bourgeoises,
-ce que nous a dit Deherme avant-hier, lorsqu'il nous a pré-
-senté le citoyen-curé
+ce que nous a dit Deherme avant-hier, lorsqu'il nous a présenté le citoyen-curé
 « A la Coopération des idées, comme son nom l'indique,,
 tout le monde a le droit de formuler sa pensée. On laisse
 chacun le soin de comparer les opinions en présence, d'en
@@ -1256,8 +1176,7 @@ Il ne faut pas, en effet, que sous couleur de libéralisme,
 les cléricaux se paient notre tête, — füt-ce au prix de quelques actions d'un futur palais du peuple. Le prêtre qui nous
 
 septième cahier de la deuxième série
-fait des avances nous invite à méditer la déclaration cy-
-nique de Veuillot: « Nous leur demandons la liberté parce
+fait des avances nous invite à méditer la déclaration cynique de Veuillot: « Nous leur demandons la liberté parce
 qu'elle est dans leurs principes; nous la leur refusons, parce
 qu'elle n'est pas dans les nôtres. » Puisque nous sommes
 prévenus, tàächons de ne pas être dupes. Si cette phrase
@@ -1266,8 +1185,7 @@ nous indique du même coup quelle attitude nous devons
 observer à l'égard du catholicisme. Cette attitude défiante
 et défensive n'est que trop justifiée. Puisque les cléricaux
 é ne veulent pas de la liberté, ils ne sauraient prétendre
-qu'on la leur refuse. Ils se sont enlevé le droit de se plaindre. Comme le disait Ferry, dont j'aime à évoquer la mé-
-moire, pour faire plaisir au Temps: « Il serait absurde et
+qu'on la leur refuse. Ils se sont enlevé le droit de se plaindre. Comme le disait Ferry, dont j'aime à évoquer la mémoire, pour faire plaisir au Temps: « Il serait absurde et
 criminel d'avoir de la tolérance pour les intolérants. »
 Non seulement Deherme ne s'est pas conformé à son programme, comme il paraît le croire, mais encore il s'est mis
 en contradiction flagrante avec ses principes. A l'Université
@@ -1325,11 +1243,9 @@ avec eux nous leur faisons l'honneur d'adopter la politique
 Je ne veux pas traiter incidemment l'incident Deherme. Je crois que cette affaire, oubliée aujourd'hui,
 
 septième cahier de la deuxième série
-mais qui reviendra sous quelque forme, reste mora-
-lement la plus grave et la principale de toute cette
+mais qui reviendra sous quelque forme, reste moralement la plus grave et la principale de toute cette
 année. Je ne connais pas Deherme. Je ne connais pas
-bien son affaire. Je me renseignerai là-dessus. Mais j'attire l'attention des honnêtes gens, de vous, de lUni-
-versitaire, qui est un honnète homme, sur le ton de
+bien son affaire. Je me renseignerai là-dessus. Mais j'attire l'attention des honnêtes gens, de vous, de lUniversitaire, qui est un honnète homme, sur le ton de
 cet article. Écrit par un polémiste, il serait inquiétant,
 mais habituel. Écrit par un universitaire il est déplorable. Je vous le dis en vérité, Jaurès: toutes les fois
 que la parole articulée est couverte par du bruit, par de
@@ -1396,8 +1312,7 @@ Les juristes les plus exigeants seront satisfaits, et le maire
 interviendra dans la plénitude de ses pouvoirs.
 
 Vous savez lire assez pour que ces lignes se passent
-de commentaires. Des quotidiens ces mœurs ont dé-
-bordé dans les revues, qui, par leur institution même et
+de commentaires. Des quotidiens ces mœurs ont débordé dans les revues, qui, par leur institution même et
 par leur clientèle, avaient quelque tenue encore. Dans
 la revue blanche du premier avril 1900 François
 Daveïllans publiait cette note politique et sociale. De
@@ -1439,8 +1354,7 @@ aurons de ces délicatesses), de faire abolir la compétence
 des conseils de guerre-en matière de droit commun, par une
 loi qui, pour être justifiable en équité et applicable en
 droit, n'en coïnciderait pas moins trop étroitement avec la
-circonstance. Et obtiendrions-nous cette loi? Reste le gé-
-néral Mercier, qui pourrait être déféré à la haute Cour.
+circonstance. Et obtiendrions-nous cette loi? Reste le général Mercier, qui pourrait être déféré à la haute Cour.
 Mais outre que cette procédure, sans précédent depuis notre
 constitution présente, serait par suite aléatoire, quels griefs
 seraient invoqués pour la poursuite? La communication de
@@ -1464,8 +1378,7 @@ la démarche trop « crâne » pour n'être pas affecté?
 Cet homme, je vous le dis, a peur de se sentir reconnu, reconnu de ces passants, de ces enfants qu'il ne connaît nine
 ù reconnaît, lui, — et qui ont la conscience tranquille. Nous,
 simples citoyens, de notre propre et légitime autorité, nous
-pouvons à nous tout seuls décider, et, par des portraits ré-
-pandus, par des conférences, par une vaste publicité édificatrice, nous pouvons à nous tout seuls faire exécuter ce
+pouvons à nous tout seuls décider, et, par des portraits répandus, par des conférences, par une vaste publicité édificatrice, nous pouvons à nous tout seuls faire exécuter ce
 châtiment du général Mercier: que partout, que toujours il
 3° Les questions, ainsi qu'elles sont posées actuellement,
 le sont-elles au mieux de notre cause? Les dreyfusards qui,
@@ -1512,8 +1425,7 @@ entame une nouvelle lutte avec « l'Esprit du passé ». Faut-,
 il respecter ou bien faut-il, une fois de plus, essayer d'entraverde catholicisme militant en France? Voilà la question sur laquelle se comptera la majorité.
 Les députés peut-être nuancent un peu davantage leur
 jugement, et peut-être s'arrêtent un peu plus à des scrupules de doctrine, par conscience illusoire de législateurs
-dont le grossier empirisme s'imagine volontiers être et dé-
-velopper un système rationnel de principes. Mais, en gros,
+dont le grossier empirisme s'imagine volontiers être et développer un système rationnel de principes. Mais, en gros,
 les députés représentent assez exactement le simplisme des
 
 septième cahier de la deuxième série
@@ -1528,8 +1440,7 @@ raisons de parade derrière lesquelles l'intérêt de conservation, ayant encore
 simplement sa légitimité, abrite volontiers sa défense, et de
 choisir les formules honnêtes qui, revêtues de la généralité
 de la loi, assureront les fins poursuivies dans le cas présent,
-sans risquer pour l'avenir, d'en compromettre d'autres, éga-
-lement chères et également fondées.
+sans risquer pour l'avenir, d'en compromettre d'autres, également chères et également fondées.
 
 Mais que, par amour de leurs fictions réalisées, et par
 superstition de leurs systèmes inadéquats à la vie concrète

@@ -20,9 +20,7 @@ y grand nombre de documents, de textes formant dos- À
 siers, de renseignements et de commentaires; — un
 RES si grand nombre de cahiers de lettres; — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un à
-si grand nombre de cahiers d'histoire et de philoso-
-
-phie; et ces documents, renseignements, textes, dos-
+si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes, dos-
 
 ; siers et commentaires, ces cahiers de lettres, d'histoire SI
 et de philosophie étaient si considérables que nous ne
@@ -32,9 +30,7 @@ pouvons pas songer à en donner ici l'énoncé méme le
 plus succinct; pour savoir ce qui a paru dans les cinq
 premières séries des cahiers, il suffit d'envoyer un man- À
 
-dat de cinq francs à M. André Bourgeois, administra-
-
-teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
+dat de cinq francs à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
 
 Paris, cinquième arrondissement; on recevra en retour
 
@@ -42,8 +38,7 @@ Des le catalogue analytique sommaire, 1900-1904, de nos L:|
 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une imagre en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 
 place, les références demandées.
@@ -74,8 +69,7 @@ série en cours, le reçoit, par le fait même de son abonne0 ment, en tête de 
 à mandat de un franc à toute personne qui nous en fait
 la demande.
 Pour la sixième série, année ouvrière 1904-1905, et
-en attendant que paraisse le catalogue analytique som-
-maire de nos deuxièmes cinq séries, 1904-1909, On
+en attendant que paraisse le catalogue analytique sommaire de nos deuxièmes cinq séries, 1904-1909, On
 peut consulter, — provisoirement, — la petite table
 à analytique très sommaire que nous avons publiée en fin
 A de ce cahier index.
@@ -112,8 +106,7 @@ plus dans l'abime de la misère, de l'absence du droit, de
 l'ignorance; le despotisme et l'arbitraire nous écrasent et ne!
 nous étouffons. Nous sommes à bout de forces, Sire! La
 limite de la patience est dépassée. Nous sommes arrivés y
-à ce moment terrible, où mieux vaut la mort que la prolon-
-gation de souffrances insupportables. Et alors nous avons
+à ce moment terrible, où mieux vaut la mort que la prolongation de souffrances insupportables. Et alors nous avons
 abandonné le travail et nous avons déclaré à nos patrons;
 rer que nous ne recommencerons pas à travailler tant qu'ils (
 n'auront pas satisfait nos demandes.
@@ -126,8 +119,7 @@ resoulever la tête des fonds de ce roulis rouge de sang,
 . dépérissant par les bourgeons des fruits de la terre,
 dépérissant par les troupeaux paissants de bœufs et
 par les enfantements stériles des femmes;!
-Ce que nous demandons est peu de chose. Nous ne dési-
-rions que ce sans quoi la vie n'est pas une vie, mais un
+Ce que nous demandons est peu de chose. Nous ne désirions que ce sans quoi la vie n'est pas une vie, mais un
 bagne et une torture infinie.
 69 où xevodrar doux Kaduciov: pêlas
 et (là-dedans) le dieu porteur de feu, s'étant élancé,
@@ -147,8 +139,7 @@ Illégale, aussi, a été trouvée notre demande de diminuer
 Un le nombre des heures de travail jusqu'à huit heures par
 jour; d'établir le prix de notre travail ensemble, avec nous,
 et de notre consentement; d'examiner nos malentendus
-; avec l'administration subalterne de nos usines; d'augmen-
-ter le salaire des manœuvres et des femmes jusqu'à rrouble
+; avec l'administration subalterne de nos usines; d'augmenter le salaire des manœuvres et des femmes jusqu'à rrouble
 par jour; de supprimer les travaux supplémentaires; de
 nous donner des secours médicaux attentifs et sans nôus
 outrager; d'aménager nos ateliers de façon à ce que nous
@@ -195,9 +186,7 @@ qu'il gouverne le pays avec toi. Car tu règnes pour le
 bonheur du peuple, — et c'est ce bonheur-là que les fonetionnaires nous arrachent des mains: il n'arrive pas
 jusqu'à nous; nous ne recevons que la souffrance et
 car je vois même les conjonctures vivre des hommes
-d'expérience (ou par les hommes d'expérience) princi15
-
-palement des conseils. Et je vois surtout que je m'embar- À
+d'expérience (ou par les hommes d'expérience) principalement des conseils. Et je vois surtout que je m'embar- À
 rasse inextricablement dans ma traduction. Heureux
 temps de nos études, où dans de telles traductions nous
 ne nous embarrassions pas moins. Combien de fois, en
@@ -209,11 +198,9 @@ n'avons-nous pas bronché ainsi, combien de fois ne nous
 sommes-nous pas aheurtés sur un texte, sur deux lignes "Ml
 
 de grec, sur deux vers de Sophocle. Mais alors il y
-avait deux cas, et il n'y avait que deux cas, très nette-
-ment caractérisés, deux cas distincts, et même contraires,;
+avait deux cas, et il n'y avait que deux cas, très nettement caractérisés, deux cas distincts, et même contraires,;
 1 d'embarras inextricables: il y avait les fois où l'on com-
-! prenait parfaitement le mot à mot et où l'on ne compre-
-naît pas le français, et au contraire il y avait les cas où
+! prenait parfaitement le mot à mot et où l'on ne comprenaît pas le français, et au contraire il y avait les cas où
 : l'on comprenait parfaitement le français, mais où lon
 
 È ne comprenait pas le mot à mot. Nul homme vivant
@@ -229,8 +216,7 @@ En ni surtout nos bons camarades, qui parlaient le même
 langage conventionnel-indulgent, — le même langage
 usuel usager, de toutes les langues anciennes celle que
 
-: nous avions apprise le plus vite, et celle que nous parlions, familièrement, commodément, le mieux: Mon-
-sieur, je comprends bien le français, mais je ne peux
+: nous avions apprise le plus vite, et celle que nous parlions, familièrement, commodément, le mieux: Monsieur, je comprends bien le français, mais je ne peux
 pas faire le mot-à-mot. — Monsieur, je comprends bien
 le mot-à-mot, mais je ne peux pas faire le français
 Amant alterna Camenae, c'était le chant alterné des
@@ -269,7 +255,7 @@ monsieur, montrez-moi done votre mot-à-mot; monsieur,
 faites le mot-à-mot. Mais osez donc dire à Leconte de
 à Lisle de faire son mot-à-mot.
 Le toïotv épreloouor xai Tàs Evupooàs TUE
-À: La traduction de Jules Lacroix, sur laquelle se sont
+La traduction de Jules Lacroix, sur laquelle se sont
 faites les représentations triomphales des Français, se
 compromet encore moins
 “Souvent l'expérience a vaincu le malheur.
@@ -284,9 +270,7 @@ ce qui donnerait en français:,
 À car je vois les événements même, les résultats, des
 conseils (eventus consiliorum) vivre sur tout par les
 hommes d'expérience; ou: réussir sur tout aux hommes
-à d'expérience. — Enfin c'est une de ces pensées peu com-
-
-promettantes qui faisaient une partie de la sagesse du;
+à d'expérience. — Enfin c'est une de ces pensées peu compromettantes qui faisaient une partie de la sagesse du;
 Envisage sans colère et avec attention nos demandes
 elles tendent non pas vers le mal, mais vers le bien, Sire!
 Ce n'est pas l'arrogance qui parle en nous, c'est la conscience!
@@ -320,7 +304,7 @@ LE TIRRS commandement nous étant levés d'abord en droit pour
 redresse cette cité.
 I. — Les mesures contre l'ignorance et l'arbitraire qui
 règnent parmi le peuple russe.
-1° La liberté et l'inviolabilité individuelles, la liberté de À?
+1° La liberté et l'inviolabilité individuelles, la liberté de
 L'instruction publique universelle et obligatoire aux
 frais de l'État; À
 
@@ -374,8 +358,7 @@ moderne; ces deux supplications, la supplication
 grecque et la supplication moderne, sont parallèles »
 d'un parallélisme si poussé qu'elles ont sensiblement le
 même nombre de paragraphes. De tels parallélismes
-ne se peuvent passer sous silence. La différence d'exten-
-sion qu'elles présentent représente très exactement la
+ne se peuvent passer sous silence. La différence d'extension qu'elles présentent représente très exactement la
 proportion, le rapport qu'il doit y avoir entre une supd plication réelle et une supplication d'art, particulière-
 Di. ment une supplication dramatique, scénique, notamment
 une supplication tragique, nommément une supplication
@@ -385,8 +368,7 @@ supplication antique et la supplication moderne, ne vient
 nullement de ce que l'une est une supplication antique
 et l'autre une supplication moderne, mais uniquement
 de de ce que l'une est une supplication, — étendue, — de
-réalité, — étendue, — l'autre une supplication, — ra-
-massée, toute au trait, — de tragédie grecque.
+réalité, — étendue, — l'autre une supplication, — ramassée, toute au trait, — de tragédie grecque.
 Ce parallélisme singulier, poussé singulièrement, se
 continue et se rabat, se réplique dans la réponse du
 On lit aujourd'hui dans le Messager officiel:
@@ -431,15 +413,13 @@ que l'on fasse tout ce qu'il est possible de faire pour améliorer
 et à mesure que ceux-ci se manifesteront.
 « Je crois à l'honneur des ouvriers et à leur dévouement
 ; inaltérable envers Moi, et Je leur pardonne leur faute.
-Es « Retournez maintenant à vos paisibles travaux; mettez-
-vous à l'œuvre, vous et vos camarades, en faisant le signe de
+Es « Retournez maintenant à vos paisibles travaux; mettezvous à l'œuvre, vous et vos camarades, en faisant le signe de
 la croix. Que Dieu vous soit en aide. » À
 Il peut sembler à première vue que le parallélismeici
 se retourne, se rabat seulement, se contrarie; mais
 devient vite évident qu'en réalité il se poursuit, qu'il se
 continue autant et plus qu'il ne se rabat. Mutations
-. faites, et omises pour un instant les variations circon-
-stantielles, c'est bien une réponse de même sens à des
+. faites, et omises pour un instant les variations circonstantielles, c'est bien une réponse de même sens à des
 supplications de même sens:
 rpoof}el" icloovres. yàp où ürt
 pèv yèo buGv &dyos de Ev' Épyetau
@@ -476,13 +456,11 @@ parce que voilà déjà trois jours qu'ils me soutiennent,
 À et ils n'ont pas de quoi manger. Et les lamentations
 à des Anciennes et de la Nouvelle Ecritures, sur la
 ruine de Jérusalem, si merveilleusement reprises dans
-les chœurs et dans les récitations d'Athalie, les lamer-
-tations sur Jérusalem vidée. À
+les chœurs et dans les récitations d'Athalie, les lamertations sur Jérusalem vidée. À
 à De sorte que vous ne m''éveillez pas dormant dans le
 sommeil; mais sachez que j'ai versé beaucoup de larmes,
 et que j'ai enfilé beaucoup de routes dans les errements
-de la souciance. Mais le seul remède qu'en bien considé-
-rant j'ai trouvé (je trouvais), celui-là, je l'ai fait: car
+de la souciance. Mais le seul remède qu'en bien considérant j'ai trouvé (je trouvais), celui-là, je l'ai fait: car
 le fils de Ménécée, Kréon, mon beau-frère, je l'ai
 
 Ce Créon, son beau-frère, et ceci soit dit sans offenser « personne, ce Créon qu'il envoie en ambassade extraordinaire, ce Créon, c'est un grand-duc, tout simplement.
@@ -490,11 +468,8 @@ Cest le perpétuel grand-duc. C'est le prince du sang.
 C'est Monsieur, frère du roi. C'est Gaston d'Orléans. Ce
 Créon, qui succédera, la catastrophe arrivée, c'est la
 branche cadette toujours prête à succéder, ce sont
-les perpétuels d'Orléans, les quatre familles succes-
-
-sives d'O: éans, c'est Philippe-Égalité, Louis-Philippe, à AUS
-._ succédera, car le dernier finit toujours par suc-
-car le fils de Ménécée, Créon, mon beau-frère, je l'ai
+les perpétuels d'Orléans, les quatre familles successives d'O: éans, c'est Philippe-Égalité, Louis-Philippe, à AUS
+._ succédera, car le dernier finit toujours par succar le fils de Ménécée, Créon, mon beau-frère, je l'ai
 envoyé vers les demeures Pythiques de Phoibos, afin
 qu'il demandät et apprît quoi faisant ou quoi disant je
 sauverais cette cité. Et moi le jour déjà, calculé en ARS
@@ -508,19 +483,16 @@ réxva, Kéduov toô méhar véx toopn, 1 Le
 
 elnv Totévds où xarouxtelpwv Edoav.:
 
-O enfants, du Kadmos d'il y a longtemps neuve géné-
-ration nourrissonne, quels sièges donc d'agitations
+O enfants, du Kadmos d'il y a longtemps neuve génération nourrissonne, quels sièges donc d'agitations
 ! tumultueuses me tenez-vous, ceux-ci, couronnés de
 4 rameaux d'olivier suppliants?
 Ainsi dans Sophocle la supplication est tout au com
 mencement, au tout premier commencement, au com- À
-mencement magnifique, extérieurement et intérieure-
-ment somptueux, de la tragédie antique.
+mencement magnifique, extérieurement et intérieurement somptueux, de la tragédie antique.
 et la cité est pleine ensemble de parfums d'encens
 brûlés et ensemble de péans et de lamentations; -
 Et les lamentations accompagnent les supplications;
-comme une voix plus profonde encore et comme anté-
-rieure; comme une voix parallèle d'un ton plus profond
+comme une voix plus profonde encore et comme antérieure; comme une voix parallèle d'un ton plus profond
 encore, plus grave et comme inférieur.
 que jugeant (juste), enfants, de ne pas entendre de
 messagers, autres, moi-même ici ainsi je suis venu, le
@@ -539,13 +511,10 @@ tout le français, que l'on reprît le français d'un bout
 - à l'autre. Il est juste en effet, et l'on peut dire que
 c'est même une réparation tardive, qu'ayant disloqué:
 ce pauvre texte par un usage et par un abus même de
-tous les appareils connus, on s'efforce, trop tard, mal-
-heureusement, de le rétablir, inégalement, infructueuse-
-ment, de le ressaisir tout, d'un seul tenant, comme il
+tous les appareils connus, on s'efforce, trop tard, malheureusement, de le rétablir, inégalement, infructueusement, de le ressaisir tout, d'un seul tenant, comme il
 était. Vaine tentative. Ce qui est brisé, est brisé. Je
 voudrais bien me conformer à cette ancienne habitude
-mal fondée. D'ailleurs, et puisqu'il s'agit ici de supplica-
-tions parallèles, puisque de l'autre part nos abonnés EAU
+mal fondée. D'ailleurs, et puisqu'il s'agit ici de supplications parallèles, puisque de l'autre part nos abonnés EAU
 dans le cahier d'Avenard ont d'un seul tenant la
 supplication moderne et la réponse moderne à cette”
 supplication, il est équitable, étant conforme au parallélisme que je me propose de respecter, puisque nous
@@ -571,8 +540,7 @@ jai recevant comme un Dieu la supplication de tout un
 peuple. Ce peuple, vous me le dites, était un peuple de à
 figurants. D'où prenez-vous que dans le monde moderne À
 les figurants de théâtre, par leur situation sociale (£üpa),
-ne soient pas excellemment disposés à devenir les repré-
-sentanis, les images des suppliants de l'antiquité. C'est
+ne soient pas excellemment disposés à devenir les représentanis, les images des suppliants de l'antiquité. C'est
 comme si vous disiez que M. Mounet-Sully n'est pas un
 roi du monde moderne, et ainsi n'est pas éminemment
 désigné, par sa situation sociale même, pour devenir
@@ -586,8 +554,7 @@ Il avait un manteau blanc superbe où il se drapait
 n'avons jamais d'ancien se draper, et le moindre
 de ses gestes est demeuré intact dans la mémoire de
 nos regards. Mais spectateurs, mes frères, compagnons
-des hauteurs, poussinets du poulailler, anges du Para-
-dis, jeunes gens d'alors, qui dans la ferveur et la piété
+des hauteurs, poussinets du poulailler, anges du Paradis, jeunes gens d'alors, qui dans la ferveur et la piété
 des représentations de ce temps allâmes acheter la À
 en vers français), vivons pieusement dans la mémoire de À
 nos regards et dans la mémoire de nos cœurs; vivons
@@ -657,8 +624,7 @@ Hadès s'enrichit de nos gémissements et de nos lamentations. Et voici que ces 
 sommes rendus à ton seuil, non que tu nous sembles à
 égal aux Dieux, mais parce que, dans les maux qu'amène
 la vie ou dans ceux qu'infligent les Daimones irrités, tu
-es pour nous le premier des hommes, toi qui, à ton arri-
-vée dans la ville de Kadmos, nous affranchis du tribut
+es pour nous le premier des hommes, toi qui, à ton arrivée dans la ville de Kadmos, nous affranchis du tribut
 payé à la cruelle Divinatrice, n'étant averti de rien, ni
 - renseigné par nous. En effet, c'est à l'aide d'un Dieu que Ve,
 tu as sauvé notre vie. Tous le pensent et le croient. Or,
@@ -686,10 +652,8 @@ tous. Mais quelles que soient les douleurs qui vous
 affligent, elles ne valent pas les miennes; car chacun de
 vous souffre pour soi, sans éprouver le mal d'autrui, et
 moi, je gémis à la fois sur la Ville, sur vous et sur moi. À
-Certes, vous ne m'avez point éveillé tandis que je dor-
-mais; mais, plutôt, sachez que j'ai beaucoup pleuré et
-agité dans mon esprit bien des inquiétudes et des pen-
-sées; de sorte que le seul remède trouvé en réfléchis- A
+Certes, vous ne m'avez point éveillé tandis que je dormais; mais, plutôt, sachez que j'ai beaucoup pleuré et
+agité dans mon esprit bien des inquiétudes et des pensées; de sorte que le seul remède trouvé en réfléchis- A
 sant, je lai tenté. C'est pourquoi j'ai envoyé à Pythô,
 aux demeures de Phoiïbos, le fils de Ménoïkeus, Kréôn,
 mon beau-frère, afin d'apprendre par quelle action ou
@@ -710,8 +674,7 @@ disaient avec un soulagement nos bons maîtres, est une
 Mais ce qui est beaucoup plus grave que tous les
 contre-sens, c'est ce flottement continuel, ce relâchement, ce vague, ce sans-gêne avec un texte, ce vête-:
 ment trop lâche et nullement drapé, nullement serré,
-nullement épousé, ce vêtement tout fait, cette confec-
-tion, mal ajustée, mal juste, appliquée aux figures qui
+nullement épousé, ce vêtement tout fait, cette confection, mal ajustée, mal juste, appliquée aux figures qui
 le méritaient le moins, aux formes antiques, c'est-à-dire,:
 de toutes les formes, à celles qui le supportent le moins.
 Était-ce impatience de génie d'un grand poète? incapable, par son activité, par sa poussée propre, de suivre
@@ -734,7 +697,7 @@ manquer la première. La soudaineté. L'instantané.
 On ne peut demander à un grand homme de travailler
 comme un écolier, ni à un très grand poète de peiner
 
-à; toute sa vie comme un gueux de quatre semaines.
+toute sa vie comme un gueux de quatre semaines.
 4 4 On ne peut pas demander à un moderne cette forme
 de patience dans le travail, ce consciencieux à la
 k. fois éternel et instantané, immédiat et idéal, direct et
@@ -744,16 +707,14 @@ de de tout un monde. Si Leconte de Lisle avait mis tout un!
 : Œdipe roi tout entier, quinze cent trente vers, je dis 1530,
 lui demandait vingt mois; Sophocle tout entier, sept tra-;
 gédies, qui font un sept cinquante, lui demandait cent!
-quarante mois, douze ans. Eschyle, qui fait un sept cin-
-quante, douze ans. L'Jliade, qui fait un sept cinquante,
+quarante mois, douze ans. Eschyle, qui fait un sept cinquante, douze ans. L'Jliade, qui fait un sept cinquante,
 
 douze ans. L'Odyssée, qui fait un sept cinquante, douze
 ans. Hésiode, un sept cinquante, douze ans. Nous voicï
 à soixante ans. Il ne lui serait pas resté une heure pour
 être ce qu'il était, c'est-à-dire Leconte de Lisle, un des
 plus grands poètes français, un des plus grands poêtes
-: Euripide, traduction nouvelle, ni Virgile, texte et tra-
-duction. Et ici je m'aperçois que sous une forme
+: Euripide, traduction nouvelle, ni Virgile, texte et traduction. Et ici je m'aperçois que sous une forme
 ê éminente et dans un cas particulièrement éminent nous à
 ; rejoignons ici cette ancienne contrariété intérieure des
 méthodes historiques prétendues scientifiques, — je dis
@@ -784,8 +745,7 @@ un devoir appliqué, une copie d'élève, de vouloir bien
 la lire comme je l'ai faite, comme je la présente, comme
 un devoir d'écolier assez vieilli, comme un devoir
 
-O enfants, du Kadmos d'il y a longtemps neuve géné-
-ration nourrissonne, quels sièges donc d'agitations
+O enfants, du Kadmos d'il y a longtemps neuve génération nourrissonne, quels sièges donc d'agitations
 tumultueuses me tenez-vous, ceux-ci, — couronnés de
 rameaux d'olivier suppliants? Et la cité est pleine
 ensemble de parfums d'encens brûlés, et ensemble de
@@ -832,8 +792,7 @@ secours, soit ayant entendu la voix de quelqu'un des DUR:
 dieux, soit que tu saches de quelque homme; car je
 vois les événements même des conseils vivre sur tout a
 ; par les hommes d'expérience. Va, à le meilleur des
-mortels, redresse la cité; va, prends garde; car à pré-
-si sent cette terre te nomme sauveur pour ton zèle (OA) ne
+mortels, redresse la cité; va, prends garde; car à prési sent cette terre te nomme sauveur pour ton zèle (OA) ne
 d'avant; que nous ne nous rappelions en aucune ma
 À nière ton commandement nous étant levés d'abord en #4
 , droit pour être ensuite retombés en arrière, mais dans
@@ -915,8 +874,7 @@ les yeux, une traduction est toujours trop lâche.
 
 C'est la commune misère de tout travail humain; le
 mystérieux balancement: quand on a la fraîcheur, on
-n'a pas la compétence. Et quand vient un peu la compé-
-tence, on s'aperçoit qu'on n'a plus la fraîcheur, qui
+n'a pas la compétence. Et quand vient un peu la compétence, on s'aperçoit qu'on n'a plus la fraîcheur, qui
 ne reviendra jamais, que rien ne remplace, qui est le
 premier des biens.
 
@@ -942,10 +900,8 @@ au lieu d'une ordinaire traduction, ne fait point la pièce
 change au moderne sur le degré de strict resserrement
 de la traduction. Autant que personne, mieux que personne il savait à quoi s'en tenir sur sa traduction;
 mieux que personne il savait combien elle était lâcheet
-. flottante. Mieux que personne il savait aussi, mieux que « personne ayant le sens de la forme et des formes, com-
-bien une traduction vaut par le strict resserrement; par
-à 3 l'ajustement; mieux que personne il savait qu'une tra-
-duction ne vaut par aucune qualité comme par le fouillé
+. flottante. Mieux que personne il savait aussi, mieux que « personne ayant le sens de la forme et des formes, combien une traduction vaut par le strict resserrement; par
+à 3 l'ajustement; mieux que personne il savait qu'une traduction ne vaut par aucune qualité comme par le fouillé
 : du détail, par le travaillé du rendu, par l'ajusté, par
 l'ouvragé, par le détaillé, par le poussé. Mieux que personne il savait ce que vaut une nuance, une forme, un
 geste, une attitude, le prix infini d'une ligne, l'éternité
@@ -955,14 +911,11 @@ quelque réalité. Quand même il ne l'eût pas comme « traducteur, ce qui est 
 poète qu'était Leconte de Lisle ne pouvait l'ignorer, et
 a bien montré qu'il ne l'ignorait pas tout aussitôt
 toutes les fois qu'il ne s'agissait plus que d'établir ses à
-propres textes. J'ai peur qu'en affectant de ne pas tra-
-duire les noms propres, il n'ait la pensée de donner
+propres textes. J'ai peur qu'en affectant de ne pas traduire les noms propres, il n'ait la pensée de donner
 
 eau une
 le change au lecteur moderne sur le degré de resserre- Ni
-. ment de sa traduction, de faire une sorte de compensa-
-tion, entre le relâché de tout le reste et la stricte appli-
-cation de ce nom propre transcrit non traduit collé de
+. ment de sa traduction, de faire une sorte de compensation, entre le relâché de tout le reste et la stricte application de ce nom propre transcrit non traduit collé de
 comme une étiquette; comme d'un habit qui n'irait pas,
 d'un vêtement tout fait, d'un tissu (texte) lâche que l'on
 voudrait ressaisir, que l'on repincerait hâtivement par
@@ -989,14 +942,11 @@ ancien dans une traduction qui est forcément un texte
 nouveau, ce fossile dans un organisme, cette esquille, ce Hs)
 morceau tout fait dans un ensemble que l'on fait, ce
 morceau immobile et raide, figé, fixé, dans une phrase
-mouvante et vivante et souple. Pourquoi enfin refusez-
-
-vous de traduire le même homme, Œdipe, quand il
+mouvante et vivante et souple. Pourquoi enfin refusezvous de traduire le même homme, Œdipe, quand il
 paraît sous son nom de Oièirovs, et consentez-vous à le
 traduire quand il paraît sous son nom de zipa »vos, que
 vous ne traduisez ni par tyran, ni même par tyrannos,
-mais tout bonnement par le mot roi, et ce pour desrai-
-sons historiques. Vous êtes conduit ainsi à vous contenter de la traduction suivante: Oidipous-Roi. Vous n'êtes
+mais tout bonnement par le mot roi, et ce pour desraisons historiques. Vous êtes conduit ainsi à vous contenter de la traduction suivante: Oidipous-Roi. Vous n'êtes
 point conséquent avec vous-même. Vous n'êtes point
 strict. Il fallait traduire ce titre ainsi Oidipous Tyrannos
 ou traduire comme tout le monde (Œdipe-roi. Et le trait
@@ -1008,8 +958,7 @@ distances. Vous avez cent fois raison. Mais cet argument
 à ne pas seulement contre la traduction des noms
 propres; il ne pas seulement contre la traduction de
 Oùirow en Œdipe: il également et totalement contre
-toute sorte de traduction, et notamment contre la tra-
-duction des noms communs. Si vous signifiez seulement
+toute sorte de traduction, et notamment contre la traduction des noms communs. Si vous signifiez seulement
 par ce que vous dites que toute traduction comporte?
 une altération, entraîne une déperdition, c'est ce que
 nous avons dit cent fois, mais cela est vrai des noms
@@ -1031,9 +980,7 @@ vous n'en pouvez conclure qu'il faut traduire tout le
 reste et ne pas traduire les noms propres. Il faut ne pas
 traduire du tout, ou que toute la traduction soit une traduction commune, ordinaire, modeste, usuelle, usagère.
 
-Vous me dites que Oùdtrow n'est pas Œdipe. Croyez-
-
-vous que zipavos fasse roi? Croyez-vous que ispeic fasse
+Vous me dites que Oùdtrow n'est pas Œdipe. Croyezvous que zipavos fasse roi? Croyez-vous que ispeic fasse
 prêtre, et même sacrificateur? au sens que ces deux
 mots éveillent dans un esprit, dans une âme moderne,
 en admettant que le deuxième éveille un sens dans un
@@ -1064,16 +1011,12 @@ tètès, Aias, Elektra.
 L'éditeur, en pareille matière, quand même il serait,
 comme était Alphonse Lemerre, un prince de l'édition,
 et qui ait attaché son nom à tout un grand mouvement
-; poétique inoubliable, quand même il serait un somp-
-tueux, un très notable commerçant, par cela seul qu'il
+; poétique inoubliable, quand même il serait un somptueux, un très notable commerçant, par cela seul qu'il
 ; exerce la marchandise, l'éditeur est ramené, automati
 quement, à des conditions de vie plus communes, à des
 conditions de langage plus naturelles, à des conditions
 de commerce et d'annonce plus actuelles, plus simples.
-Leconte de Lisle peut dire Oidipous, Odysseus, Akhil-
-leus: M. Lemerre, dans ses catalogues, sur ses couver-
-tures, dit et annonce ÆEschyle, Homère, Sophocle, Euri-
-pide, Hésiode, — Virgile, Horace, — car la même
+Leconte de Lisle peut dire Oidipous, Odysseus, Akhilleus: M. Lemerre, dans ses catalogues, sur ses couvertures, dit et annonce ÆEschyle, Homère, Sophocle, Euripide, Hésiode, — Virgile, Horace, — car la même
 : question se pose, moins aiguement, mais elle se pose
 pour les Latins. C'est que M. Lemerre en vendait, On
 peut encore écrire Sophoclès, par une espèce de gageure
@@ -1092,9 +1035,7 @@ peut avoir qu'un sens, un sens bien misérable, je
 l'avoue, mais cela ne peut avoir qu'un sens: essayer
 
 d'obtenir chez le lecteur français et pour le lecteur fran- a
-çais par la traduction française un effet qui soit, muta-
-tions faites, autant que possible symétrique, homothé-
-tique, de l'effet obtenu chez le spectateur, chez le lecteur,
+çais par la traduction française un effet qui soit, mutations faites, autant que possible symétrique, homothétique, de l'effet obtenu chez le spectateur, chez le lecteur,
 chezl'auditeur grec et pour le spectateur, pour le lecteur,
 de Oidirous, Odvasse, Ayieic étaient tout familiers aux
 anciens Grecs, et quand ils rencontraient ces noms dans
@@ -1106,8 +1047,7 @@ nous disons Durand. Il vaut donc mieux, il est plus
 intelligent, il est, au fond, plus exact et mieux traduit, A
 que dans nos traductions nous trouvions à ces mêmes
 endroits des noms qui non plus ne nous surprennent ME
-pas. Quand je trouve Akhilleus dans une phrase fran-
-çaise, inopinément je reçois un heurt, un certain choc,
+pas. Quand je trouve Akhilleus dans une phrase française, inopinément je reçois un heurt, un certain choc,
 une impression d''hétérogène, de corps étranger, que par LA
 définition le Grec ne recevait, absolument pas, au même À
 que l'on veut obtenir? Est-ce ce que se propose une
@@ -1146,11 +1086,9 @@ nous un Cas éminent que parce que nous nous en servons artificiellement pour d�
 grec déclinable; parce que nous nous servons. de dic-
 ù tionnaires; et nous ne nous en servons pour désigner le
 
-mot grec en français, dans nos dictionnaires grecs-
-français, et dans tout ce qu'il y a de dictionnaire dans
+mot grec en français, dans nos dictionnaires grecsfrançais, et dans tout ce qu'il y a de dictionnaire dans
 nos exercices même oraux que parce que c'est le cas
-qui est le premier dans les déclinaisons des gram-
-maires; mais quand nous disons que Achille se dit en
+qui est le premier dans les déclinaisons des grammaires; mais quand nous disons que Achille se dit en
 grec 'Ayeic, nous mentons: Achille se dit en grec
 'Aynkeie, 'Aynws, et ainsi de suite, et autant 'Ayéws
 que 'Ayeïs, et autant "Aya que 'Aydéwc. Il n'est
@@ -1183,8 +1121,7 @@ a met daimones, avec un o bref, à cause de Datuovse, c'est-
 
 Cela est si vrai que Leconte de Lisle, pour son usage
 personnel, pour ses propres poèmes, savaitparfaitement À
-quand il fallait traduire, et non pas simplement tran-
-scrire. Poèmes antiques. Vénus de Milo:!
+quand il fallait traduire, et non pas simplement transcrire. Poèmes antiques. Vénus de Milo:!
 ê Tu n'es pas Aphrodite, au bercement de l'onde,.…:
 Tu n'es pas Kythérée, en ta pose assouplie,.…
 Et tu n'es pas la Muse aux lèvres éloquentes,.…
@@ -1211,8 +1148,7 @@ Elle prouve uniquement qu'il ne faut pas, sous prétexte
 : de français, les traduire en latin.: 1%
 
 ; Un exemple fera saisir toute la différence: quand on LES
-traduisait 'Agooblrn en Vénus, on commettait ce contre-
-sens; mais il ne s'en suit nullement qu'il ne soit pas
+traduisait 'Agooblrn en Vénus, on commettait ce contresens; mais il ne s'en suit nullement qu'il ne soit pas
 permis de traduire et même qu'il ne faille pas traduire
 séparément Venus par Vénus, et'Awcodtrn par Aphrodite.:
 Et encore ‘How par Hèraklès, et le latin Hercules
@@ -1244,8 +1180,7 @@ exégètes, et l'on m'assure que je n'y réussis que trop. —
 
 Je ne parle point de Pompée, de Nicomède, tragédie de 4%
 
-grande joie et d'amusement, de Polyeucte, tragédie chré-
-tienne. Enfin ne disons-nous pas nous-mêmes Athènes,
+grande joie et d'amusement, de Polyeucte, tragédie chrétienne. Enfin ne disons-nous pas nous-mêmes Athènes,
 Rome, le sénat, ce qui est presque un nom propre,
 un {riumvirat, ce qui est presque aussi un nom propre.;
 Et le grand Racine, de ce qu'il disait Andromaque,
@@ -1279,8 +1214,7 @@ béotien, finir par une citation de lui, par un poème
 entier, intact, qui fasse oublier au lecteur tout ce que
 soi-même on a dire.:
 Je prends mon texte dans ma vieille édition sortie de
-chez Poulet-Malassis et de Broïse, imprimeurs-libraires-
-éditeurs, 9, rue des Beaux-Arts, 1858. Je ne pense pas
+chez Poulet-Malassis et de Broïse, imprimeurs-libraireséditeurs, 9, rue des Beaux-Arts, 1858. Je ne pense pas
 qu'il ait rien changé dans l'édition Lemerre:
 sacré, vêtu de force et de génie,
 
@@ -1362,8 +1296,7 @@ Et même: FPS
 Salut! A ton aspect le cœur se précipite.
 À On ne saurait nier l'importance de cet agrandissement
 systématique et de cette personnalisation de certains
-noms communs en noms propres par la grande capita-
-lisation systématique, — de l'édition pauvre, première PES
+noms communs en noms propres par la grande capitalisation systématique, — de l'édition pauvre, première PES
 et improvisée, à l'édition solennelle, à la grande édition
 officielle et définitive, — de la lettre initiale. Car les
 Dieux, ce n'est plus seulement les dieux, et lequel des
@@ -1400,11 +1333,8 @@ en faire un cahier de Noël. Mais ressaisissant sa vision,
 . et substituant à une image physique et morale centrale à
 une idée plus profonde encore, il ne tarda point à
 donner au poème que nous publions ce titre essentiel,
-qui ne commande pas seulement son poème, qui com-
-mande aussi bien tout le cahier, qui commande, qui
-exprime toute la réalité même: Les suppliants. Et sui-
-
-vant son exemple je me suis permis, restituant un mot?
+qui ne commande pas seulement son poème, qui commande aussi bien tout le cahier, qui commande, qui
+exprime toute la réalité même: Les suppliants. Et suivant son exemple je me suis permis, restituant un mot?
 grec, une épithète grecque, de donner à cette brève
 étude ce titre: les suppliants parallèles.
 
@@ -1432,36 +1362,28 @@ mettre un autre, plus ou moins houveau, à la place,,
 quitte à s'apercevoir le lendemain que le nouveau ne
 valait pas mieux que le vieux, si même il valait le
 
-C'est pour cela que nos Français n'entendent générale-
-
-ment rien aux événements des autres peuples, et, moins
+C'est pour cela que nos Français n'entendent généralement rien aux événements des autres peuples, et, moins
 ; qu'à tous autres, aux événements de Russie. Dans cette
-JE même Humanité, où pourtant paraissaient les corresponJE dances d''Avenard, la suffisance, la sottise, l'outrecui-
-dance, l'aplomb avec lequelun Longuet, — pour ne plus
+JE même Humanité, où pourtant paraissaient les corresponJE dances d''Avenard, la suffisance, la sottise, l'outrecuidance, l'aplomb avec lequelun Longuet, — pour ne plus
 parler de ses deux maîtres Herr et Jaurès, — l'aplomb
 avec lequel un Longuet disposait en maître souverain
 des hommes et des plus formidables événements russes
 et japonais, faisait un spectacle qui était d'un grotesque
 lui-même lamentable.
-Pour qui s'applique à suivre au contraire, et modeste-
-ment, la réalité de ce qui se passe, pour qui sait lire le
+Pour qui s'applique à suivre au contraire, et modestement, la réalité de ce qui se passe, pour qui sait lire le
 peu que l'on nous dit de vrai, et ne pas lire le reste,
 pour qui a lire notamment le cahier d'Avenard, il est”
 devenu évident que tout le mouvement russe n'est point
 ; ce que nous nommons en France un mouvement révolu
 ï tionnaire; c'est ce qu'en langage français nous sommes
-contraints de nommer un immense mouvement de sup-
-plication. Supplication particulière du 22 janvier nouveau
-style, supplication culminante, éminente, symbole émi-
-nent, éminente réalité, supplication de tout le peuple
+contraints de nommer un immense mouvement de supplication. Supplication particulière du 22 janvier nouveau
+style, supplication culminante, éminente, symbole éminent, éminente réalité, supplication de tout le peuple
 ouvrier de toute une ville capitale au tsar que tout ce
 peuple demandait au seuil de son palais de ville; mais
 supplication qui n'était elle-même que le symbole et la A
 représentante de toutes les immenses supplications de À
 tous les peuples d'un immense empire: Supplications
-ï d'un si grand nombre de races opprimées, qui s'adres-
-de tant de classes qui s'adressent aux classes émi-
-nentes. Supplications des ouvriers aux intellectuels.
+ï d'un si grand nombre de races opprimées, qui s'adresde tant de classes qui s'adressent aux classes éminentes. Supplications des ouvriers aux intellectuels.
 à Supplications des paysans aux ouvriers. Supplications
 confuses de tout le monde aux militaires. Et dans les
 
@@ -1475,8 +1397,7 @@ ment et entièrement ce que signifie ce mot essentiel et
 titulaire et liminaire de Porché, les suppliants, il faut
 essayer de nous remettre un peu à parler français,
 autant que cela est permis à des hommes qui sont nés à
-temps pour vivre dans cet âge moderne. Il faut dépouil-
-ler cette idée de supplication, cette image de suppliants,
+temps pour vivre dans cet âge moderne. Il faut dépouiller cette idée de supplication, cette image de suppliants,
 il faut la nettoyer de toute idée de platitude. C'est chez
 les modernes qu'une supplication est une opération:
 d'aplatissement. Mais gardons-nous d'étendre, en ima- A
@@ -1495,14 +1416,11 @@ n'est point un candidat; il n'est point un demandeur; NE
 il n'est point un homme qui s'abaisse, qui s'humilie,
 même chrétiennement; à peine ai-je besoin de dire qu'il à
 n'est point un moderne, qui s'aplatit. La supplication
-antique, la seule qui étant digne de ce nom de supplica59
-
-tion doive nous retenir, la supplication antique n'esten
+antique, la seule qui étant digne de ce nom de supplication doive nous retenir, la supplication antique n'esten
 aucun sens, en aucune forme, une opération de platitude. Au contraire. Lisez attentivement au contraireune
 de ces admirables supplications antiques, la supplication
 de tout ce peuple aux pieds d'Œdipe, ou celle qui est À
-encore plus admirable, assurément, celle qui est peut-
-être la plus admirable de toutes, la supplication du vieux
+encore plus admirable, assurément, celle qui est peutêtre la plus admirable de toutes, la supplication du vieux
 Priam aux pieds d'Achille. Relisez-les attentivement: Ce
 n'est pas le supplié, c'est le suppliant au contraire qui À
 tient le haut de la situation, le haut du dialogue, au
@@ -1527,7 +1445,7 @@ entendu en ce sens, comme la réussite de l'événement,
 
 la réussite un peu insolente et comme injurieuse, est
 pour les Grecs le signe le plus infaillible de ce qu'un
-homme est marqué pour la Fatalité, — par la Fatalité. —;
+homme est marqué pour la Fatalité, — par la Fatalité.
 D'innombrables Grecs ont désiré, convoité, poursuivi de
 toutes leurs forces les biens de ce monde, comme les
 modernes, autant que les innombrables modernes, et
@@ -1564,11 +1482,9 @@ grandeurs. Comparaison qui s'impose par l'opération
 même de la supplication. Ce qui fait la faiblesse, la
 petitesse du supplié, c'est qu'il n'est que lui-même, et
 À son petit morceau de situation humaine. ne représente
-; Le suppliant représente. Il n'est plus seulement lui-
-même. Il n'est même plus lui-même. Il n'existe plus, lui.
+; Le suppliant représente. Il n'est plus seulement luimême. Il n'est même plus lui-même. Il n'existe plus, lui.
 Il ne s'agit plus de lui. Et c'est pour cela qu'il faut que
-À l'autre se méfie. Dépouillé de tout par ce même événe-
-ment qui a précisément fait le dangereux bonheur du
+À l'autre se méfie. Dépouillé de tout par ce même événement qui a précisément fait le dangereux bonheur du
 supplié, citoyen sans cité, tête sans regard, enfant sans
 père, père sans enfants, ventre sans pain, nuque sans
 lit, tête sans toit, homme sans biens, il n'existe plus
@@ -1598,9 +1514,7 @@ devenu un représentant des dieux.
 Nulle idée de compensation, ni même de justice; une
 . telle idée seraït une idée chrétienne, au moins une idée À
 relativement récente, en un certain‘ sens une idée;
-moderne; bien entendu nulle idée d'antithèse roman-
-
-tique. Maïs une idée beaucoup plus profonde, un senti-
+moderne; bien entendu nulle idée d'antithèse romantique. Maïs une idée beaucoup plus profonde, un senti-
 - ment beaucoup plus profond et beaucoup plus vrai, 4 » autant qu'il est permis de se reconnaître un peu dans 1"
 ces sentiments mystérieux, profonds, vrais, un sentiment
 de vie, d'art et d'œuvre: que ces hommes ont fait leur
@@ -1687,9 +1601,7 @@ aussi, par la même grande et inremplaçable épreuve.
 Ne parlons point d'ascension; ne parlons pas même
 65 les suppliants.
 
-Charles Péguy
-A d'élévation; car nous devons dans ces recherches pous-
-sées dansle monde antique réserver soigneusement les
+A d'élévation; car nous devons dans ces recherches poussées dansle monde antique réserver soigneusement les
 expressions chrétiennes, le langage chrétien. Parlons de
 4 ce qui était tout pour ce peuple civique: d'une mutation
 civique, d'une promotion, d'un nouveau droit de cité.
@@ -1700,14 +1612,12 @@ leur esprit, dans leur statut, un droit de cité singulier,
 un droit de cité supérieur, un droit d'entrée comme
 citoyen dans une singulière cité supérieure. C'est ce qui
 fait la valeur unique, éminente, singulière, d'Œdipe-roi
-parmi toutes les œuvres antiques. Œdipe-roi est essen-
-tiellement, éminemment l'histoire d'une promotion, (ne "Mk
+parmi toutes les œuvres antiques. Œdipe-roi est essentiellement, éminemment l'histoire d'une promotion, (ne "Mk
 à disons point d'une élection). C'est pour cela qu'ÆdipeA roi n'est pas seulement une des premières parmi les
 œuvres antiques, mais qu'elle ramasse, qu'elle concentre
 en soi, — comme un symbole éminent, comme une
 réalité éminente représentant toute la réalité antique,
-— tout le problème antique du malheur faisant promo-
-tion. Œdipe est un promu, (ne disons point un élu); un
+— tout le problème antique du malheur faisant promotion. Œdipe est un promu, (ne disons point un élu); un
 homme qui au commencement de la tragédie était un
 homme comme nous, un roi, un homme ordinaire et
 vulgaire, et par le ministère du malheur, par la non-
@@ -1739,13 +1649,9 @@ Tout entière elle est la mise en œuvre de la supplica-;
 
 tion antique, invocation, imploration, lamentation, supplication, tout entière elle réside et consiste en cette
 supplication, tout entière elle met en œuvre cette cen- de.
-trale, cette essentielle supplication. Œdipe-roi est essen-
-tiellement, éminemment tragédie, c'est-à-dire explicite- “4
-ment que cette tragédie est la tragédie de la supplica-
-tion antique. Et c'est un admirable coup de génie du
-grand Sophocle que de nous l'avoir signifié dès le prin-
-cipe, dès l'ouverture de la tragédie par l'admirable ta-
-bleau de cette supplication de tout un peuple aux pieds
+trale, cette essentielle supplication. Œdipe-roi est essentiellement, éminemment tragédie, c'est-à-dire explicite- “4
+ment que cette tragédie est la tragédie de la supplication antique. Et c'est un admirable coup de génie du
+grand Sophocle que de nous l'avoir signifié dès le principe, dès l'ouverture de la tragédie par l'admirable tableau de cette supplication de tout un peuple aux pieds
 du roi Œdipe.
 
 C'est ce que signifie, en symbole, cet admirable commencement. Que ce soit une tragédie de Corneille, une.
@@ -1767,8 +1673,7 @@ mière grande impression ne s'effacera plus non plus
 et portera sur toute l'impression de toute l'œuvre. "4
 . Quand donc Sophocle nous présente en ouverture de ‘il
 sa tragédie cette admirable supplication de tout un
-peuple aux pieds de celui qui est à ce moment le sup-
-plié, mais qui sera le suppliant définitif, non seulement
+peuple aux pieds de celui qui est à ce moment le supplié, mais qui sera le suppliant définitif, non seulement
 ; ce tableau est en réalité le tableau de la supplication de”
 tout un peuple aux pieds d'Œdipe, mais il est, en sym
 bole, en représentation, en signification, la signification
@@ -1780,10 +1685,8 @@ le développement d''Œdipe-roi n'est point tant, comme
 demander de proche en proche si ce n'est pas Œdipe
 qui serait le coupable, jusqu'à ce que ce soit lui-même
 qui se le demande, et enfin d'acquérir de proche en
-proche la conviction que c'est bien lui qui est le cou-
-pable, jusqu'à ce que ce soit lui-même qui en soit con
-vaincu. Je ne nie point l'intérêt passionnant de cette en-
-quête, et de cette découverte. — Elle est passionnante
+proche la conviction que c'est bien lui qui est le coupable, jusqu'à ce que ce soit lui-même qui en soit con
+vaincu. Je ne nie point l'intérêt passionnant de cette enquête, et de cette découverte. — Elle est passionnante
 surtout pour des modernes; pour des anciens... — Je ne “4
 
 ï nie point l'intérêt passionnant de cette enquête, et de:
@@ -1808,14 +1711,12 @@ ouvertement, officiellement promu au grade et à la dignité de suppliant.
 
 Il était entré roi. Il en sort suppliant. Promotion mystérieuse (ne disons point mystique) et que n'ont point
 oubliée les quelques personnes qui ont assister à
-Orange à la toute première cérémonie que fut la repré-
-sentation première d'(Ædipe-roi. Œdipe est grand quand
+Orange à la toute première cérémonie que fut la représentation première d'(Ædipe-roi. Œdipe est grand quand
 il paraît, pour la première fois, dans l'apparition de
 cette somptueuse ouverture. Combien plus grand Mounet aveugle s'en par ce chemin de théâtre qui, mer-
 
 À à veille non encore inventée, se continuait insensiblement
-Hi) en un véritable chemin des champs, en un vérita-
-ble chemin de vraie terre, quand il s'en allait par um.
+Hi) en un véritable chemin des champs, en un véritable chemin de vraie terre, quand il s'en allait par um.
 tout misérable mais véritable commun sentier qui devait
 REA aboutir à quelque chemin vicinal d'un département fran- "4
 FAN çais. Il était entré roi de Thèbes. Il s'en allait par une
@@ -1823,8 +1724,7 @@ route commune, aveugle comme tous les aveugles. Il
 vif) était entré roi de pourpre et d'or. Il s'en allait dans la
 commune boue et dans la commune poussière. Il s'en
 allait dans les cailloux pointus meurtrir ses pauvres
-pieds saignants dans les sandales. Il allaït, plus misé-
-rable que tout le monde, marcher par les chemins de
+pieds saignants dans les sandales. Il allaït, plus misérable que tout le monde, marcher par les chemins de
 tout le monde. Il était entré roi. Il sortait suppliant, et
 l'éternel père d'Antigone. =.
 Car pour ne point triompher, moi-même, dans ma
@@ -1836,8 +1736,7 @@ grossièreté d'examiner devant vous ce que je suis
 tigone: Antigone, petite princesse royale, petite fille, la
 dauphine, petite future femme de gynécée. Et après la
 catastrophe Antigone, l'éternelle Antigone, l'Antigone
-: de l'accompagnement d''Œdipe, l'Antigone de l'enseve-
-lissement du Polynice fraternel. ne
+: de l'accompagnement d''Œdipe, l'Antigone de l'ensevelissement du Polynice fraternel. ne
 Ê Devant de telles promotions que devient, pour des
 Grecs, la contrariété pourtant si importante du juste et MM?
 à catégorie du juste? Que devient la justice. Quel hon- "MF
@@ -1890,13 +1789,8 @@ supplication antique. C'est qu'en effet, au sens que nous À
 dignité, de renseignement et de fermeté, tout le mou- À
 vement de soulèvement russe actuel est un mouvement
 de supplication. Et dans tout ce mouvement, sortant de
-tout le reste du mouvement, éminemment cette suppli-
-cation du 22 janvier nouveau style. Et si les Russes
-« révolutionnaires » qui demeurent à Paris ne s'achar-
-naient point à se faire croire qu'ils sont des révolution-
-naires comme nous, et si en retour nous ne nous épui-
-sions pas à nous imaginer aussi qu'ils sont des révolu-
-tionnaires comme nous, il y aurait d'eux à nous un peu
+tout le reste du mouvement, éminemment cette supplication du 22 janvier nouveau style. Et si les Russes
+« révolutionnaires » qui demeurent à Paris ne s'acharnaient point à se faire croire qu'ils sont des révolutionnaires comme nous, et si en retour nous ne nous épuisions pas à nous imaginer aussi qu'ils sont des révolutionnaires comme nous, il y aurait d'eux à nous un peu
 moins de tristesses parce qu'il y aurait un peu moins de
 C'est ce que Porché a admirablement, et c'est ce
 qu'il a montré admirablement par l'imposition de ce
@@ -1907,8 +1801,7 @@ titre, imprévu à des modernes: les Suppliants. Je ne
 parle pas seulement de cette ressemblance, de ce paral-
 . Jélisme des détails, soudainement révélé. Je n'invoque à
 . pas seulement cette évocation lointaine, soudaine révé- A
-… lation, cette ressemblance, presque effrayante, de cer-
-tains mots, de certaines phrases, qui en fait comme une
+… lation, cette ressemblance, presque effrayante, de certains mots, de certaines phrases, qui en fait comme une
 survivance et plus encore comme une revivance, comme À
 une résurrection: Deux routes seulement s'offrent à
 nous; Voilà ce qui est devant nous, Sire, et c'est ce qui
@@ -1924,18 +1817,14 @@ l'âme même, des situations, des attitudes physiques, SA
 russe révolutionnaire est une immense et perpétuelle
 oscillation, une vibration immense, un mouvement )
 … doubie, d'aller et de retour incessant: mouvement d'al- RnE
-ler de la supplication montant des misérables aux appa-
-remment heureux, aux puissants; mouvement de retour de la réaction, de la répression, de la barbarie des
+ler de la supplication montant des misérables aux apparemment heureux, aux puissants; mouvement de retour de la réaction, de la répression, de la barbarie des
 mouvement de supplication des populations, des élé-:
 ments moins intellectuels aux éléments plus intellec- ne
 tuels, aux éléments proprement intellectuels, parce que
 pour ces peuples grossiers l'intellectualisme est encore:
-une puissance, et un bonheur; et, en retour, des mou-
-
-vements de retour de barbarie et comme de revanche
+une puissance, et un bonheur; et, en retour, des mouvements de retour de barbarie et comme de revanche
 des éléments moins intellectuels aux éléments intellectuels.
-Et il y a aussi, triplant le premier, un immense mou-
-vement de supplication des populations, des éléments
+Et il y a aussi, triplant le premier, un immense mouvement de supplication des populations, des éléments
 moins (prétendus) révolutionnaires aux éléments plus
 (prétendus) révolutionnaires, parce que pour ces peuples À
 enfants et réactionnaires la prétention révolutionnaire,
@@ -1944,15 +1833,12 @@ est encore un avantage, une puissance, et un bonheur;
 et, en retour, des mouvements de retour de barbarie et
 comme de revanche des éléments moins (prétendus) ré- à
 Il peut y avoir une certaine apparence de présomp-:
-tion, ou d'étrangeté, à déclarer qu'un immense mouve-
-ment qui a sous nos yeux des effets immenses et des
-retentissements immenses, qui a tout l'aspect d'un mou-
-vement révolutionnaire et qui aura sans doute les effets
+tion, ou d'étrangeté, à déclarer qu'un immense mouvement qui a sous nos yeux des effets immenses et des
+retentissements immenses, qui a tout l'aspect d'un mouvement révolutionnaire et qui aura sans doute les effets
 d'un mouvement révolutionnaire, pourtant n'est point
 un mouvement révolutionnaire. C'est pourtant une
 simple constatation. Pour qu'un mouvement soit, au
-à sens technique de ce mot, un mouvement révolution-
-naire, il ne suffit point qu'il ait toute la force et toute
+à sens technique de ce mot, un mouvement révolutionnaire, il ne suffit point qu'il ait toute la force et toute
 l'étendue d'un mouvement révolutionnaire, ni qu'il en
 ait les effets, ni qu'il en aït cette violence que l'on per-
 ._ siste à croire indispensable à la constitution du mouvement révolutionnaire; et il ne suffit point qu'un peuple
@@ -1970,8 +1856,7 @@ un certain caractère, un certain style, parce que le
 style est de l'homme même.
 On ne peut donner le nom de mouvement révolution-
 … naire à cet immense mouvement de balancier, d'aller?
-… et de retour; un mouvement révolutionnaire est essen-
-tiellement au contraire un mouvement qui n'attend pas,
+… et de retour; un mouvement révolutionnaire est essentiellement au contraire un mouvement qui n'attend pas,
 — qui n'attend pas la réponse, le retour du balancier,
 le contre-coup de l'événement, — qui toujours au-
 : devant, au contraire, toujours de l'avant, qui attaque
@@ -1984,11 +1869,8 @@ de soï, qui attaque toujours, qui tient une perpétuelle
 offensive, qui altère délibérément, qui change. La réalité. Au contraire il est évident que les Russes ne se
 révoltent, ne marchent, ne changent qu'à mesure que et
 dans la mesure où c'est la réaction elle-même et la conservation qui les y contraint. Il ne faut point dire que -
-la révolution russe est comme ces pèlerins qui se ren-
-daient à Jérusalem en faisant trois pas en avant et deux
-pas et demi en arrière; mais il faut dire que le mouve7
-
-ù ment russe est comme un pèlerin se rendant à Jérusale
+la révolution russe est comme ces pèlerins qui se rendaient à Jérusalem en faisant trois pas en avant et deux
+pas et demi en arrière; mais il faut dire que le mouveù ment russe est comme un pèlerin se rendant à Jérusale
 qui tournant le dos à Jérusalem: ferait ainsi trois pas en pk.
 arrière et deux pas et demi en avant. Sans doute c'est
 un moyen. Mathématiquement, arithmétiquement, c'est euh
@@ -1999,16 +1881,14 @@ Un révolutionnaire ne fait que des pas en avant; ou
 4 quand il fait un pas en arrière, quand il rétrograde,
 3 c'est qu'il ne peut pas faire autrement, c'est qu'il y est à
 contraint par l'adverse réaction; le Russe, au contraire,
-. c'est quand il y est contraint par la réaction qu'il s'im-
-patiente, qu'enfin il se révolte, et c'est quand il ne peut
+. c'est quand il y est contraint par la réaction qu'il s'impatiente, qu'enfin il se révolte, et c'est quand il ne peut
 pas faire autrement, qu'il fait un pas en avant. C'est
 sur la réaction qu'il prend son point d'appui, — pour lui
 résister, naturellement, — mais tout de même c'est de
 la réaction qu'il part et c'est de la réaction qu'il rejaillit. 4}
 Toute marche de lui, tout mouvement en avant n'est
 qu'une réponse donnée à une attaque, à une excitation, » à un excès vraiment insupportable de la réaction qui
-est en face, un contre mouvement suscité par une exces-
-sive attaque de l'adverse réaction, un contre mouve-
+est en face, un contre mouvement suscité par une excessive attaque de l'adverse réaction, un contre mouve-
 É ment en arrière, un mouvement en arrière littéralement
 retourné. Ainsi c'est de la réaction opposée que vient
 l'initiative, le point de départ, le mouvement originel,
@@ -2050,22 +1930,18 @@ C'est pour cela qu'il y a tant de fois où nous avons
 cru en France que y était, comme on dit en France;
 et n'y était pas du tout; dans des conditions pour- le
 
-tant où en France y eût été infailliblement; notam-
-ment après ce 22 janvier nouveau style. nn,
+tant où en France y eût été infailliblement; notamment après ce 22 janvier nouveau style. nn,
 Des excès de la réaction, des excès du despotisme,
 de l'excès du mal naît perpétuellement et sort et se
-meut l'agitation, et c'est cette agitation qui en imagi-
-naire devient le mouvement révolutionnaire prétendu:
+meut l'agitation, et c'est cette agitation qui en imaginaire devient le mouvement révolutionnaire prétendu:
 nous avons donc ici obtenue la plus belle illustration
-que nous ayons jamais avoir des méthodes gues-
-distes; mais c'est justement par cette illustration que
+que nous ayons jamais avoir des méthodes guesdistes; mais c'est justement par cette illustration que
 l'on voit que les méthodes guesdistes, elles-mêmes corruptions et malentendus des méthodes marxistes, sont
 tout le contraire de méthodes révolutionnaires.
 Une méthode révolutionnaire au contraire est essen-;
 tiellement positive; elle affirme; elle déclare; elle
 montre; elle est féconde; elle est toute rebondissante de
-force, toute pleine de sa force, et puise sa force en elle-
-même. C'est une des plus grandes erreurs des temps
+force, toute pleine de sa force, et puise sa force en ellemême. C'est une des plus grandes erreurs des temps
 modernes, une des plus grossières, et par conséquent
 l'une des plus communément répandues, que de s'imaginer qu'une révolution est essentiellement corrosive, À
 qu'une révolution est essentiellement une opération qui
@@ -2073,11 +1949,9 @@ détruit. Une révolution est essentiellement au contraire
 une opération qui fonde.
 Si l'on ne fait pas cette distinction nécessaire, cette
 reconnaissance indispensable, on n'entend, on ne reconnaît rien à tout le mouvement russe, à tout ce qui se
-passe actuellement en Russie; on n'entend rien notam-
-ment à la haine invétérée de Tolstoï pour les révolutionnaires professionnels; ces hommes qui à nous ne
+passe actuellement en Russie; on n'entend rien notamment à la haine invétérée de Tolstoï pour les révolutionnaires professionnels; ces hommes qui à nous ne
 nous paraissent pas des véritables révolutionnaires,
-pour lui chrétien ils sont encore infiniment trop révolu-
-tionnaires, et il suffit de savoir lire un peu pour sentir,
+pour lui chrétien ils sont encore infiniment trop révolutionnaires, et il suffit de savoir lire un peu pour sentir,
 
 pour savoir quelle haïne il a contre eux, quelle répulsion, quelle aversion il a d'eux.
 
@@ -2086,12 +1960,10 @@ ne reconnaît rien non plus à la situation du prêtre
 Gapone; ce serait évidemment commettre l'erreur la
 plus grossière, et par conséquent la plus communément
 répandue, que de se représenter le prêtre Gapone
-comme un chef, comme un meneur, comme un propa-
-gandiste révolutionnaire: il est un chef de chœur
+comme un chef, comme un meneur, comme un propagandiste révolutionnaire: il est un chef de chœur
 antique, un prêtre du Dieu vivant, un chef de supplica-
 
-. tion. De vient qu'il ne s'est jamais entendu que momentanément et accidentellement avec les révolutionnaires, je veux dire avec ces révolutionnaires profes-
-sionnels qui pourtant nous paraissent, à nous, si peu
+. tion. De vient qu'il ne s'est jamais entendu que momentanément et accidentellement avec les révolutionnaires, je veux dire avec ces révolutionnaires professionnels qui pourtant nous paraissent, à nous, si peu
 des révolutionnaires. Et l'on sait combien ce conducteur
 de tout un peuple de suppliants est le rival et au fond
 l'ennemi de tous ces révolutionnaires professionnels, et,
@@ -2109,13 +1981,12 @@ et du citoyen; leur véritable déclaration, celle qu'ils
 ne copient point, qu'ils n'ont pas besoin de copier,
 
 qu'ils n'ont pas copiée, dans Sophocle, c'est la déclara-
-Ce qui nous empêchait de reconnaître dans cet À;
+Ce qui nous empêchait de reconnaître dans cet
 immense mouvement et soulèvement de tout ce peuple À
 ce qu'il était, une supplication, c'est qu'ayant assez mal
 È fait nos études nous-mêmes, ayant étourdiment nos
 textes, nous nous imaginions naïvement, petits garçons
-; des vieilles provinces françaises, et un peu grossière-
-ment, que d'être un suppliant, c'était d'être quelqu'un!
+; des vieilles provinces françaises, et un peu grossièrement, que d'être un suppliant, c'était d'être quelqu'un!
 d'extrêmement embêté, que de faire une supplication,
 c'était surtout avoir peur d'être battu, que c'était
 demander pardon, que c'était demander quelque chose.
@@ -2129,10 +2000,8 @@ cérémonie rituelle, aussi réglée, aussi intérieure, que
 4 pouvait l'être le pèlerinage au moyen-âge. À
 [J'avais tort de déclarer dans un précédent cahier, — “4
 je crois que c'est dans ce même cahier d'Avenard,
-que nous ne faisions rien pour le mouvement révolu-
-tionnaire en Russie; on vient d'inventer pour aider ce;
-mouvement révolutionnaire quelque chose d'extrême-
-ment nouveau: on faire, on fait, on vient defaire un
+que nous ne faisions rien pour le mouvement révolutionnaire en Russie; on vient d'inventer pour aider ce;
+mouvement révolutionnaire quelque chose d'extrêmement nouveau: on faire, on fait, on vient defaire un
 meeting. Je lis en effet dans le Socialiste, aujourd'hui
 Organe Central du Parti Socialiste (Section Française
 de l'Internationale ouvrière: PARTI SOCIALISTE, — nil
@@ -2174,8 +2043,7 @@ un peu de français, il me semble que je reconnais des
 noms français. Un homme extraordinaire, qui à Paris …
 lit encore l'Humanité ailleurs que dans les coupures du
 Matin, un être singulier, notre collaborateur M. Pierre
-Mille, du Temps, nous contait récemment dans ce der-
-nier journal que Jaurès commence à s'apercevoir que
+Mille, du Temps, nous contait récemment dans ce dernier journal que Jaurès commence à s'apercevoir que
 l'empereur d'Allemagne n'est un apôtre ni de pacifisme, « ni de socialisme, ni même de libéralisme, et qu'il n'est
 point un défenseur absolument irréductible des libertés
 ; nationales, politiques et sociales. Si Jaurès continue, et
@@ -2204,8 +2072,7 @@ monde, et que toute la liberté du monde se jouera aux
 rives de Meuse, aux défilés d'Argonne, ainsi.qu'aux
 temps héroïques, à moins que ce ne soit aux rives de
 Sambre, ainsi qu'au temps d'une révolution réelle, — et
-veuillent les événements que ce soit Valmy ou Jem-
-mapes, — ou à quelque coin de la forêt de Soignes, —
+veuillent les événements que ce soit Valmy ou Jemmapes, — ou à quelque coin de la forêt de Soignes, —
 et veuillent les événements, si ce doit être un Waterloo,
 que ce soit au moins un Waterloo retourné.
 Jaurès et Hervé aujourd'hui nous opposeraient en
@@ -2231,8 +2098,7 @@ texte même des paroles sur qui s'est appuyé Jaurès
 trouve cette bonne vieille duplicité de Bebel, cette
 quence allemande qui florissait dans les congrès inter-
 « Écoutez un dernier avertissement aurait dit
-. Bebel, cité par Jaurès à la tribune française. — J'em-
-prunte ce texte au Matin du lendemain matin samedi
+. Bebel, cité par Jaurès à la tribune française. — J'emprunte ce texte au Matin du lendemain matin samedi
 EAN mais c'est un texte marqué si nettement qu'il ne peut
 pas y avoir de variantes considérables. — « Écoutez un ne.
 dernier avertissement. Jusqu'ici l'ouvrier allemand à
@@ -2247,8 +2113,7 @@ français. Ce n'est point de l'opposition, du balancement
 de ces deux hervéismes que nous attendons un équi-;
 libre qui fasse le salut de toutes nos libertés, et de Mn}
 toutes les communes libertés de tout le monde. De
-! Le hervéisme est essentiellement le sabotage, un sabo-
-tage, un cas particulier de sabotage appliqué aux rela-
+! Le hervéisme est essentiellement le sabotage, un sabotage, un cas particulier de sabotage appliqué aux rela-
 Le Hervé dit sensiblement: Parce que la France n'a pas
 ai donné instantanément aux ouvriers un mystique régime
 de béatitude économique, politique et sociale (duquel
@@ -2265,8 +2130,7 @@ alors nous nous mettrons à le fusiller dans le tas, his-:
 toire de prouver combien nous sommes des pacifistes.
 — Nous ne demandons nullement que Bebel étende aux
 socialistes allemands ce raisonnement ingénieux. Nous
-demandons au contraire, nous espérons que si par im-
-possible un gouvernement césarien de réaction militaire
+demandons au contraire, nous espérons que si par impossible un gouvernement césarien de réaction militaire
 français préparait, aussi ouvertement, exécutait une
 invasion militaire des provinces rhénanes pour écraser
 les libertés nationales, politiques et sociales des Alle-
@@ -2300,8 +2164,7 @@ lité en les altérant, en les transformant en cas logiques,
 voire mathématiques. Mais que deviendraient les char-.:
 latans politiciens parlementaires s'ils ne gagnaient pas À
 leur pauvre vie en embarbouillant toutes les questions.
-Il ne s'agit point, aujourd'hui, de tous ces cas de pré-
-tendue conscience amphigouriques. Il s'agit d'un événe- >.
+Il ne s'agit point, aujourd'hui, de tous ces cas de prétendue conscience amphigouriques. Il s'agit d'un événe- >.
 ment réel. Car il ne suffit plus de dire quenous sommes "4
 sous la menace militaire allemande. Il faut dire aujour-
 ; d'hui que nous sommes sous la préparation militaire A.!
@@ -2310,13 +2173,10 @@ aujourd'hui sous la promesse ferme militaire alle-
 Y Cela étant, quand Bebel parle de la défense du pays
 , allemand, je ne dirai pas qu'il fait le jeu de la politique
 : impériale allemande, parce que ce serait pousser un
-peu loin le souci de l'exactitude, mais il adopte la ver-
-sion impériale allemande des événements actuels, mais
-il entre dans cette version. Qui est que ce serait l'Alle-
-magne elle-même qui serait en danger d'invasion.
+peu loin le souci de l'exactitude, mais il adopte la version impériale allemande des événements actuels, mais
+il entre dans cette version. Qui est que ce serait l'Allemagne elle-même qui serait en danger d'invasion.
 Quand il répond que le peuple allemand finira par se
-demander s'il doit continuer à défendre le pays alle-
-mand, il suppose, il feint, il confirme que la demande à
+demander s'il doit continuer à défendre le pays allemand, il suppose, il feint, il confirme que la demande à
 laquelle il est contraint de répondre ainsi est en effet la
 question de savoir si et comment les Allemands doivent
 
@@ -2328,8 +2188,7 @@ des grosses malices politiques recousues de fil parlementaire dans tous les pays
 du monde.
 Quand Bebel répond que les socialistes allemands
 finiront par être conduits à se demander s'ils continueront à défendre le pays allemand, il ne répond pas à la
-question, il imagine, il feint, il imite une question ima-
-ginaire opposée à la question réelle réellement posée.
+question, il imagine, il feint, il imite une question imaginaire opposée à la question réelle réellement posée.
 Ce qui est en cause réellement, ce n'est point la défense
 du pays allemand. C'est, ce qui est le contraire, la
 défense du pays français.
@@ -2351,8 +2210,7 @@ française au contraire est menacée, défensive et défense;
 demandons seulement qu'elle aussi elle soit toute
 . préparatoire. Dans les régions insurrectionnelles, toute AUDE
 ) insurrection française serait dangereuse, — pour la
-défense militaire, — parce que toute insurrection fran-
-çaise serait sérieuse, parce que les Français, ou du
+défense militaire, — parce que toute insurrection française serait sérieuse, parce que les Français, ou du
 4 moins certains Français, feraient l'insurrection, ou
 feraient de l'insurrection comme les Français font tout.
 NE, ou font de tout, sérieusement; il n'y a que les Français ‘Es
@@ -2427,8 +2285,7 @@ réfugiés russes. Quand on voit des réfugiés russes
 demeurant à Paris aller bavarder dans des meetings
 ; français, comme on reconnait qu'il y a encore de beaux
 jours pour le parlementarisme en tous pays, et que s'il
-est permis d'espérer que la Russie échappera prochai-
-nement à la domination tsariste, de même on ne voit
+est permis d'espérer que la Russie échappera prochainement à la domination tsariste, de même on ne voit
 pas qu'il soit permis d'espérer qu'elle soit près d'échap-
 
 [Quel contraste entre ce bruit de bavardage des
@@ -2447,8 +2304,7 @@ daus des conditions de connaissance que tout le monde
 croyait définitivement abolies. C'est une idée chère au
 monde moderne que les perfectionnements obtenus,
 notamment dans l'ordre des moyens de communication,
-par l'application de la science à l'industrie, et plus gé-
-néralement par l'application de l'industrie à la science
+par l'application de la science à l'industrie, et plus généralement par l'application de l'industrie à la science
 ont donné des résultats acquis, indéplaçables, irrémis__ siblement inamovibles. Je crois au contraire que de
 grandes commotions n'auraient pas beaucoup à faire
 pour nous replonger dans des conditions de vie antiques,
@@ -2497,10 +2353,8 @@ même était redevenue lourde. Et regardant les deux
 feuilles tirées de ce cahier je m'aperçois, trop tard, que
 page 49 j'ai laissé passer Atos accentué sur le au lieu
 de Aude, comme si ce n'était pas une hérésie de ne pas
-accentuer sur la finale un génitif ou un datif de nomi-
-natif monosyllabique. Enfin consolons-nous sur ce que
-le' dictionnaire donne Atos en éolien. Phénomène singu-
-lier, le sens était demeuré beaucoup plus entier dans
+accentuer sur la finale un génitif ou un datif de nominatif monosyllabique. Enfin consolons-nous sur ce que
+le' dictionnaire donne Atos en éolien. Phénomène singulier, le sens était demeuré beaucoup plus entier dans
 ma mémoire, beaucoup plus intact et beaucoup plus
 frais, comme s'il fût antérieur au texte et en nous encore.
 plus profond. L'enseignement de culture que nous avons
@@ -2529,23 +2383,21 @@ geait. Elles défronçaient les fronts soucieux et plissés;s?
 elles reposaient un peu les pauvres yeux dévoués,
 fatigués professionnellement. Souveraines contre la #1
 migraine. Manuscriptions antinévralgiques. Et elles
-faisaient plaisir à voir. Et leurs yeux fatigués, se fati-
-guant moins, inclinaient leurs âmes à l'indulgence. Etle … a
+faisaient plaisir à voir. Et leurs yeux fatigués, se fatiguant moins, inclinaient leurs âmes à l'indulgence. Etle … a
 À grec, avec raison, leur paraissait meilleur. Et peut-être, "…_h
 en réalité, en était-il meilleur.
 tentation. Comment, écrivain, résister à la tentation de Ne
 se remettre à la rude, et salubre, et salutaire école de
 la traduction. Écrivain français, comment résister à la
 tentation de se remettre à cet admirable grec aïeul. Je
-n'ai pas résister au désir enfantin, — mettons au à;
+n'ai pas résister au désir enfantin, — mettons au
 désir filial, — de traduire le plus beau lever, — où
 baisser, — de rideau qu'il y ait jamais depuis qu'il à.
 y a un théâtre au monde et que dans le monde
 des spectateurs. Combien ne faut-il pas que la misère
 et plus particulièrement le malheur, défini comme la A
 non réussite de l'événement, soient essentiels à l'huma-;
-nité pour qu'en plein âge moderne un écho de la lamen-
-tation antique et de la supplication grecque retentisse À
+nité pour qu'en plein âge moderne un écho de la lamentation antique et de la supplication grecque retentisse À
 
 aussi fidèle après un écartement de plus de vingt-deux
 siècles écoulés, ou si l'on dans le sens contraire,
@@ -2558,37 +2410,31 @@ d'avoir si exactement donné, il y a plus, de vingt-deux
 siècles, la formule de la supplication antique au seuil
 de sa tragédie, et si purement, que cette formule, après
 un écartement de plus de vingt-deux siècles à venir,
-devint la formule même et fît le rite essentiel d'une sup-
-plication dont l'événement nous est contemporain. Quel
+devint la formule même et fît le rite essentiel d'une supplication dont l'événement nous est contemporain. Quel
 effrayant et presque mystérieux retentissement à distance. Quelles effrayantes identités humaines. Sous tant
 d'apparences de transformations. On est prié de recevoir
 ma version grecque d'aujourd'hui comme un exercice À
 pieux et elle aussi comme un — modeste — ressouvenir,
-d'ancien élève. Je la placerai sous l'invocation de la mé-
-moire que nous avons gardée de l'un des hommes à qui
+d'ancien élève. Je la placerai sous l'invocation de la mémoire que nous avons gardée de l'un des hommes à qui
 nous devons le plus, sous l'invocation de notre regretté
 maître, de l'un, entre tous, de nos regrettés maîtres, de
 celui que tous ensemble nous nommions familièrement
 et affectueusement le père Edet. Pater Aedeas, comme
 disaient les nouveaux, qui voulaient faire les malins.
 Quoi qu'en ait prétendu un jour notre camarade Larby,
-c'est un des hommes à qui les hommes de ma géné-
-ration doivent le plus. Il était tout cœur et toute
+c'est un des hommes à qui les hommes de ma génération doivent le plus. Il était tout cœur et toute
 bonté. Sa grosse voix grondante paternelle écumait de:
 bonté. Sa voix trempée d'attendrissement un peu lourd
 -et profond, sa voix bourrée de bourrades bonnes enseignait cette justesse qui est inséparable de la justice. A
 
-tous ceux, petits élèves, qui eurent l'honneur et le bon-
-heur de recevoir ses leçons, à Lakanal, à Henri IV, en (;
+tous ceux, petits élèves, qui eurent l'honneur et le bonheur de recevoir ses leçons, à Lakanal, à Henri IV, en
 Sorbonne, il enseignait cette probité intellectuelle qui
 entraîne infailliblement la probité morale. C'est lui qui
 
 aimait mieux un bon contre-sens qu'un douteux faux-
 
 É sens. C'est-à-dire un beau contre-sens, hardi, franc du
-collier, bien dessiné, bien découplé. Mais bien déli-
-
-mité aussi. Plutôt qu'un de ces douteux à côté entre
+collier, bien dessiné, bien découplé. Mais bien délimité aussi. Plutôt qu'un de ces douteux à côté entre
 deux bissecteurs qui ménagent également le bon sens
 
 Es et le mauvais. Qui sont une trahison perpétuelle du
@@ -2607,16 +2453,13 @@ que pour être, simplement, un honnête homme,
 ; il enseignaït inlassablement la probité, la lenteur, ‘Al
 
 à l'exactitude, l'attention, la précaution, le serré du
-texte, et de ne point confondre l'irréel avec le poten-
-tiel, et de ne point emmêler ensemble tous les para-,
+texte, et de ne point confondre l'irréel avec le potentiel, et de ne point emmêler ensemble tous les para-,
 graphes du Riemann et Goelzer. J'avais encore le son
 de sa voix dans la mémoire quand poursuivant aujour-
 d'hui ma version grecque je fus amené à traduire enfin
 que Œdipe serait un mauvais, de ne pas faire tout ce que
-le dieu manifeste. Qui ne se rappelle encore et qui n'en-
-tend comme il prononçait un mauvais, en allongeant et
-indistinctement et aussi sincèrement Œdipe qui déso-
-béirait aux dieux que celui qui lui mettait Romanibus;
+le dieu manifeste. Qui ne se rappelle encore et qui n'entend comme il prononçait un mauvais, en allongeant et
+indistinctement et aussi sincèrement Œdipe qui désobéirait aux dieux que celui qui lui mettait Romanibus;
 dans un thème latin. Romanibus était l''abomination de
 la désolation. Monsieur Gibout, vous m'avez encore
 
@@ -2624,7 +2467,7 @@ Pauvres nouveaux, qui faisaient les malins. C'est
 encore lui qui leur enseignaïit ce que c'est qu'une édition,
 des éditeurs. Frais débarqués à Lakanal, pauvres petits
 garçons des provinces départementales françaises, les AIN
-plus avancés d'entre nous débarquaient distinguant à,
+plus avancés d'entre nous débarquaient distinguant
 peine d'un libraire, qui vend des livres, un éditeur, qui
 en sort, qui en fabrique. Ils disaient naïvement et
 couramment l'édition Hachette ou l'édition Colin. Quand
@@ -2668,12 +2511,10 @@ toute une affaire. En moins d'un mois nous avions appris
 quand un nouveau nouveau, ignorant les distinctions
 nécessaires, impromptu recommençait à nous parler de "if
 l'édition Hachette.
-Il était de ces anciens universitaires et de ces univer-
-sitaires anciens qui avaient une telle idée de la justesse
+Il était de ces anciens universitaires et de ces universitaires anciens qui avaient une telle idée de la justesse
 : qu''indissolublement et sans le faire exprès et même en
 ayant quelquefois l'apparence du contraire, ils ensei-:
-2 gnaient indissolublement toute la justice. Note distinc-
-tive: ils n'étaient pas conseillers municipaux ni même
+2 gnaient indissolublement toute la justice. Note distinctive: ils n'étaient pas conseillers municipaux ni même
 adjoints des villes où ils opéraient. — Je ne dis pas cela
 pour Litalien, qui mérite une entière estime. Je le dis
 pour beaucoup d'autres.
@@ -2706,12 +2547,10 @@ est en train de l'effectuer sous nos yeux.
 Aujourd'hui: ce soir, à huit heures et demie, comme
 le disent les affiches, comme le crient les crieurs de
 théâtre: ce soir, à huit heures et demie, sur le théâtre
-du monde moderne, IRRÉVOGABLEMENT suprême repré-
-sentation, au réel, du drame d'Hypatie. Les sales
+du monde moderne, IRRÉVOGABLEMENT suprême représentation, au réel, du drame d'Hypatie. Les sales
 moines grossiers sortis de la Thébaïde comme un troupeau de nuit de chiens maigres n'avaient assassiné que.
 le corps. Ce que n'avaient obtenu aucuns barbares ni le
-Temps complice de toutes les démolitions, une mépri-
-sable compagnie de politiciens modernes l'a joué sous
+Temps complice de toutes les démolitions, une méprisable compagnie de politiciens modernes l'a joué sous
 nos yeux, et a gagné la partie. Ce que n'avaient obtenu
 aucuns barbares ni le Temps barbare, une toute petite
 compagnie de politiciens modernes, sans effort, sans
@@ -2730,46 +2569,38 @@ Le comte en votre cour l'a fait presque à vos yeux. ne
 Il est très fréquent dans l'histoire que de très petites
 compagnies de petites gens de bien réussissent à faire
 ce qui a été refusé à de grandes compagnies de grands
-hommes de bien. Et naturellement il est encore beau-
-coup plus fréquent que de très petites compagnies de
+hommes de bien. Et naturellement il est encore beaucoup plus fréquent que de très petites compagnies de
 petites gens de mal réussissent à faire ce que detrès
 grandes compagnies de criminels n'avaient point ob-
 À tenu. De grandes et de fortes humanités se sont battues
 pendant des siècles pour et contre la culture grecque,
 c'est-à-dire pour et contre une des cultures essentielles
 de l'humanité. Un immense effort a été donné pour
-l'oppression, pour l'ensevelissement, pour l'anéantisse-
-ment de la culture antique. Un respectable effort de
+l'oppression, pour l'ensevelissement, pour l'anéantissement de la culture antique. Un respectable effort de
 conservation, de continuation a été fait par un certain
-nombre de chrétiens. Un admirable effort de restitu-
-tion a été fait par les hommes de la Renaissance. Et
+nombre de chrétiens. Un admirable effort de restitution a été fait par les hommes de la Renaissance. Et
 nos grands Français du dix-septième siècle, et même
 ceux du dix-huitième, et même ceux du dix-neuvième il
-siècle avaient maintenu les résultats de cette renais-
-sance. Les grands républicains, — je ne parle évidem- À
+siècle avaient maintenu les résultats de cette renaissance. Les grands républicains, — je ne parle évidem- À
 ment pas de ceux d'aujourd'hui, — les républicains de {1
 
-la troisième république avaient très nettement com-
-bien il importait au maintien de l'esprit public sous un
+la troisième république avaient très nettement combien il importait au maintien de l'esprit public sous un
 gouvernement républicain que les humanités fussent
 
 C'est un phénomène très fréquent dans l'histoire de
 l'humanité. Pendant des siècles de grandes humanités:
 se battent pour et contre une grande cause. Et puis tout
 passe. Et puis, un jour, pendant que l'humanité a le dos
-tourné, une petite bande de malandrins arrive, détrous-
-seurs de cadavres, chacals et moins que chacals, et on
+tourné, une petite bande de malandrins arrive, détrousseurs de cadavres, chacals et moins que chacals, et on
 s'aperçoit le lendemain que la dite grande cause a été
 étranglée dans la nuit.
 C'est ce qui vient de nous arriver dans le monde
 moderne avec le grec. Par une simple altération, par ee)
-une simple prétendue réforme des programmes de l'enseignement secondaire français, par le triomphe passa-
-ger de quelques maniaques modernistes et scientistes « a
+une simple prétendue réforme des programmes de l'enseignement secondaire français, par le triomphe passager de quelques maniaques modernistes et scientistes « a
 français, généralement radicaux, quelques-uns socialistes professionnels, toute une culture, tout un monde, a
 une des quatre cultures qui aient fait le monde mo-:
 derne, — il est vrai que ce n'est pas ce qu'elles ont fait
-de mieux, — disparaît tout tranquillement et tout posé-
-ment sous nos yeux de la face du monde et de la vie de
+de mieux, — disparaît tout tranquillement et tout posément sous nos yeux de la face du monde et de la vie de
 l'humanité. Sous nos yeux, par nos soins disparaît la
 mémoire de la plus belle humanité. Et en deuxième
 ligne, au deuxième degré, sous nos yeux, par nos soins
@@ -2797,8 +2628,7 @@ des sarcophages des salles basses du Louvre. Comme
 À j'espère le démontrer dans la thèse que je prépare en
 depuis plusieurs années de la situation faite à l'histoire
 abîme pour une culture, pour une histoire, pour une
-vie passée dans l'histoire de l'humanité, pour une huma-
-nité enfin, entre figurer à son rang linéaire dans la
+vie passée dans l'histoire de l'humanité, pour une humanité enfin, entre figurer à son rang linéaire dans la
 mémoire et dans l'enseignement de quelques savants et
 dans quelques catalogues de bibliothèques, et s'incor-
 ; porer au contraire, par des études secondaires, par des
@@ -2815,8 +2645,7 @@ large. Ce sont deux existences qui ne sont pas du
 
 même ordre. L'existence dans le corps des producteurs à
 : de tout un peuple est une existence de vie. L'existence #4
-dans les rayons, de les rayons de quelques biblio-
-thèques est une existence de mort. Surtout étant donné
+dans les rayons, de les rayons de quelques bibliothèques est une existence de mort. Surtout étant donné
 ce que sont les bibliothèques modernes. Un poète qui 6 à
 « en quelque monastère perdu n'était lui-même ni un (2
 poète perdu ni un poète mort. Quelque moine pieux,
@@ -2830,8 +2659,7 @@ stérile Bibliothèque de l'École Normale et qui ne serait CRUE
 1 dans quelque cœur, est un poète mort.
 
 rez-de-chaussée, Paris, cinquième arrondissement,
-Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi-
-naires; la souscription ne confère œucune autorité sur à
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère œucune autorité sur à
 la rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
@@ -2845,8 +2673,7 @@ HAUTE ace Autres pays de l'Union postale à
 Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du
-souscripteur; le tirage à part sur whatman commen-
-cera de fonctionner au premier janvier 1906; les:
+souscripteur; le tirage à part sur whatman commencera de fonctionner au premier janvier 1906; les:
 inscriptions pour cet abonnement particulier sont reçues "2
 dès à présent et reçoivent un numéro d'ordre déterminé
 automatiquement par le rang même qu'elles occupent À

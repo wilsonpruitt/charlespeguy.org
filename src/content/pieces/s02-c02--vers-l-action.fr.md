@@ -97,8 +97,7 @@ les prés roussis que cerne le froncement des haïes,
 l'ondulation noble des plaines, les chénaies meurtries de taches brunes, et même cette chère avenue
 d'ormes qui longe le canal bi-centenaire.
 
-Mon doux Maurice, que faites-vous? A-t-il amé-
-nagé, là-bas, sa maison familiale, pour notre existence conçue laborieusement selon nos cœurs, notre
+Mon doux Maurice, que faites-vous? A-t-il aménagé, là-bas, sa maison familiale, pour notre existence conçue laborieusement selon nos cœurs, notre
 existence qui veut être de bonté active, de recueillement grave aux heures propices, d'abandon à l'enthousiasme qui naît des sens ou de la pensée, — si
 tout cela est réalisable, malgré l'égoïsme ambiant,
 la ribambelle criarde des petits intérêts et des mesquines passions orthodoxes, la déchéance qui menace toute émotion naïve dans la sécheresse et le
@@ -116,8 +115,7 @@ Vous avez licence de visiter le malade dans la
 maison où il reçoit les soins éclairés de médecins
 Son père et lui-même ont été mes clients. Je con_ nais assez M. Maurice pour être édifié sur les causes
 de sa folie. Ce sont les mathématiques, les délices
-dela capitale, l'art wagnérien et les doctrines socia-
-listes qui l'ont empoisonné. Ajoutez qu'en agriculture il avait un faible marqué pour les machines de
+dela capitale, l'art wagnérien et les doctrines socialistes qui l'ont empoisonné. Ajoutez qu'en agriculture il avait un faible marqué pour les machines de
 fabrication allemande! La divine Providence, made_ moiïselle, ne vous a pas laissé le temps de l'assagir
 recevez les sincères compliments de condoléance
 de votre respectueux serviteur
@@ -138,8 +136,7 @@ réagir contre cet élan de répulsion violente. Le
 voyage de retour s'est effectué dans un cauchemar.
 
 Ce n'est pas moi, c'est je ne sais quelle créature
-artificielle qui a consulté les Indicateurs, fait enre-
-gistrer les bagages, changé de train où et quand il
+artificielle qui a consulté les Indicateurs, fait enregistrer les bagages, changé de train où et quand il
 fallait en changer. Je me suis retrouvée dans ma
 chambre sans savoir comment. La vieille Annette
 
@@ -185,8 +182,7 @@ Nicole, assise au bord d'une chaïse basse, meregardait avec une bonté timide.
 L'atmosphère du bourg est pesante, taciturne. Le
 feu du ciel grille les prés et les feuilles. Bien mornes
 les êtres et les choses. Mes anciens désirs se perdent dans la torpeur générale, plus nimbés d'inconscience que les chiens endormis au seuil des maisons.
-Les deuils anciens ne m'avaient pas ainsi dessé-
-chée: la présence des disparus s'était seulement
+Les deuils anciens ne m'avaient pas ainsi desséchée: la présence des disparus s'était seulement
 faite plus capricieuse. Mais Maurice a bien sombré
 
 dans le néant. Je ne réussis plus même à me le
@@ -304,9 +300,7 @@ Grand mère était encore, il y a quelques mois, une
 image exquise, restée d'une sveltesse jeune en sa
 vétusté douloureuse, et souriante avec une sorte de
 gêne qui lui seyait bien — d'un parler très exact et
-très fin, même en français — d'un goût pur en ma-
-
-tière d'art et de mœurs, malgré des vues utilitaires
+très fin, même en français — d'un goût pur en matière d'art et de mœurs, malgré des vues utilitaires
 et matérialistes. On m'a souvent dit qu'elle était
 plus alerte et plus gaie que sa fille, ma mère.
 
@@ -385,8 +379,7 @@ teinté de sanguine. Pour Jui, ce passé tient surtout
 dans le dix-septième et le dix-huitième siècle, dont
 il ne cessa jamais d'explorer l'imagerie.
 Et puis c'est une âme douce, c'est un sceptique,
-c'est quelqu'un de parfaitement heureux. Ses mé-
-comptes de collectionneur, loin de le rebuter, lui
+c'est quelqu'un de parfaitement heureux. Ses mécomptes de collectionneur, loin de le rebuter, lui
 ont rendu la recherche plus attrayante. S'il a souffertdesimages tragiques ou misérables que le hasard
 d'une trouvaille lui donnait à contempler, c'est
 d'une souffance éteinte comme le lustre originel de
@@ -433,17 +426,14 @@ sans queue ni tête.
 Et nous.avons cheminé jusqu'à l'endroit où le
 canal tourne vers les ruines du château, non loin
 
-pierre, vestige de l'ancien pare ducal. Comme mal-
-gré moi ce vieux banc attirait mes regards, parce
-que l'année dernière, en été, j'étais venue m'y as-
-seoir avec Lui, et que, malgré tout ce qu'on a
+pierre, vestige de l'ancien pare ducal. Comme malgré moi ce vieux banc attirait mes regards, parce
+que l'année dernière, en été, j'étais venue m'y asseoir avec Lui, et que, malgré tout ce qu'on a
 décider ensuite, ces souvenirs sont vivaces,
 Nicole remarqua mon trouble et se tut.
 En revenant, je lui parlai pour rompre le
 silence. Nous avions laissé chez elle en visite certain M. Valentin Latour, fils d'un usinier opulent
 de Givreux. Et M. Valentin passe pour une sorte de
-Pic de la Mirandole en notre coin provincial. Rede-
-venu nôtre après un long séjour à Paris, abondam-?
+Pic de la Mirandole en notre coin provincial. Redevenu nôtre après un long séjour à Paris, abondam-?
 ment diplomé et diversement honoré par plusieurs
 Facultés, Académies et Sociétés savantes, ce personnage encyclopédique déclare qu'il a résolu, après
 d'angoissantes délibérations, de consacrer sa vie
@@ -491,7 +481,6 @@ tiges naines limitent l'horizon.
 Il gèle fort, je grelotte: il falloir tout de même
 rallumer du feu.
 
-Versailles, 17 décembre
 Votre lettre, chère enfant, me réjouit et m'inquiète. Je vois avec plaisir que vous vous souvenez
 de moi, mais avec appréhension que vous deveuez
 une créature anormale.
@@ -507,8 +496,7 @@ raison suflisante pour se contraindre à vivre suivant
 des règles incommodes. Un soir, votre vision du
 monde s'est accusée plus tranchante, comme pour
 vous isoler. Ce ne fut qu'un incident: y suspendrez-vous toute voire existence?
-Ne vous imposez point de discipline qui endur-
-cisse et stérilise. Craignez pour vous-même et pour
+Ne vous imposez point de discipline qui endurcisse et stérilise. Craignez pour vous-même et pour
 autrui le fanatisme de la raison. Ne vous passionnez
 point pour des doctrines qui tueraient en vous le
 sentiment de la réalité vivante. Ne iyrannisez pas
@@ -661,14 +649,10 @@ M. Valentin Latour nous a fait visiter, à Nicole
 et à moi, l'usine paternelle. M. et madame Suréda
 étaient restés avec M. Latour père qui leur disait
 son chagrin de voir son fils unique égaré dans des
-Cependant la monstruosité des machines indo-
-lentes et méthodiques m'intimida; je défaillis au-
-près des fours; je me sentis choir sous des marteaux
+Cependant la monstruosité des machines indolentes et méthodiques m'intimida; je défaillis auprès des fours; je me sentis choir sous des marteaux
 pilons; ma tête oscilla au rythme des balanciers; il
-me sembla que j'étais mâchée par des dents métal-
-liques, broyée sous les roues aux ronflements de
-bête marine, écorchée par des laminoirs. — Et par-
-tout ces hommes huileux et osseux, spectres errants
+me sembla que j'étais mâchée par des dents métalliques, broyée sous les roues aux ronflements de
+bête marine, écorchée par des laminoirs. — Et partout ces hommes huileux et osseux, spectres errants
 dans un nuage gras, avec leurs yeux de cadavres,
 des yeux qui ressemblent à des carreaux troubles,
 poussiéreux, verdis de crépuscule.
@@ -701,7 +685,7 @@ phrases, d'ailleurs, aucune émotion. Ses yeux luisent davantage quand il parle 
 Il part. Les deux vieux Suréda s'érigent en tribunal et, dardant sur moi des regards de batraciens,
 m'interrogent: Sentez-vous tout le louche de votre
 situation? Ne vous aigrissez-vous point dans la solitude? La religion et l'opinion publique ne sontelles point pour le mariage? Tout pour aboutir
-à: Que pensez-vous de M. Valentin Latour? Son
+Que pensez-vous de M. Valentin Latour? Son
 
 père vous trouve sortable et lui charmante.
 
@@ -769,8 +753,7 @@ ses périodes; les sons qu'émet son gosier râclent les
 
 M. Valentin Latour porte une jaquette de drap
 beige et un gilet de velours vert; sa cravate offre
-une baie reculée entre deux promontoires mena-
-çants. Il s'est enhardi jusqu'à contempler les cheveux noirs et la taille souple de Nicole; content
+une baie reculée entre deux promontoires menaçants. Il s'est enhardi jusqu'à contempler les cheveux noirs et la taille souple de Nicole; content
 d'avoir levé les yeux, il se tortille la barbe entre
 le pouce et l'index.
 
@@ -811,15 +794,13 @@ Nous transcrivons ci-dessous la lettre dont parle
 J'ai reçu votre lettre, mon Aurélia aimée. Elle fait
 durer en moi les moments de cette promenadeà
 deux que nous avons faite au jardin, la veille de
-mon départ, sous un ciel laiteux. Le jet d'eau gré-
-sillait sur le bassin. Nos voix n'osaient pas troubler
+mon départ, sous un ciel laiteux. Le jet d'eau grésillait sur le bassin. Nos voix n'osaient pas troubler
 le demi-silence; nos idées se voilaient d'expressions
 Pourquoi me remercier des cahiers de Grieg que
 vous avez reçus de Paris? Cette musique de folie
 gracieuse, de rêves mi-souriants, de nuances fugaces, quand elle vivra dans votre effort, me charmera
 tout l'être, — et ce ne sera pas vous qui me devrez
-des remerciements. Elle a de subits et délicats aban-
-dons, comme vous-même, Aurélia, m'en avez révélé,
+des remerciements. Elle a de subits et délicats abandons, comme vous-même, Aurélia, m'en avez révélé,
 lorsque vous avez laissé, Le long des allées de mystère, tomber votre front sur mon épaule.
 
 C'est alors qu'un écho de Peer Gynt m'a frôlé la
@@ -835,11 +816,9 @@ pourquoi cet acte d'oubli. Je vous aime.
 Extrait du journal
 
 Nicole ébat ses doigts agiles parmi des envolements d'étoffes. Une lumière lavée de pluie poudroie
-sur les soies et les gazes. M. Valentin Latour, hiératique, traite avec sérénité une question de métal-
-lurgie. Moi, je suis comme cet Anglais de l'Éve future, quand il converse avec une femme artificielle
+sur les soies et les gazes. M. Valentin Latour, hiératique, traite avec sérénité une question de métallurgie. Moi, je suis comme cet Anglais de l'Éve future, quand il converse avec une femme artificielle
 encore est-il troublé par les perfections de l'automate, et moi pas. Je ne m'émeus qu'à la longue en
-creusant et en rapprochant ces impressions d'automatisme: car les gens ne sont-ils pas tous des mé-
-canismes qui hantent notre rêve perpétuel? Ils font
+creusant et en rapprochant ces impressions d'automatisme: car les gens ne sont-ils pas tous des mécanismes qui hantent notre rêve perpétuel? Ils font
 ce qu'il faut à point nommé; ils ont aussi le geste
 superflu, le rictus uniforme, les rires et les babils
 vains des bonshommes mûs par d'invisibles pièces
@@ -865,9 +844,7 @@ Cependant, Nicole s'ébroue: Aurélia, que regardez-vous à la fenêtre? Toujour
 de m'apporter pour le voyage une de ces robes! —
 Et la robe se trémousse avec des bruissements
 de feuilles mortes. Il me faut quitter la fenêtre d'où
-l'on voit, légèrement embuée de rose, la petite val-
-
-lée de l'Yselle, qui se relève au fond, en plateaux
+l'on voit, légèrement embuée de rose, la petite vallée de l'Yselle, qui se relève au fond, en plateaux
 mi-boisés, mi-champêtres, avec des clochetons de
 village, et même, perdu dans un fouillis de marronniers, un vieux château à tourelles.
 
@@ -881,8 +858,7 @@ Lettre de M. Amédée Violet
 vos dernières lettres, si émues, si pleines de
 choses senties et pensées, je n'ai répondre
 comme il fallait. Pendant deux mois, j'ai vécu en
-Allemagne, furetant dans les musées, les bibliothè-
-ques etles collections particulières. De retour à Versailles, je travaille à mon Catalogue raisonné de
+Allemagne, furetant dans les musées, les bibliothèques etles collections particulières. De retour à Versailles, je travaille à mon Catalogue raisonné de
 Jacques Callot. J'écrirais volontiers un livre sur ce
 grand artiste, si je savais écrire et faire des livres.
 Que ne suis-je un harmonieux arrangeur de notions
@@ -896,9 +872,7 @@ ce Numa métallurgiste — Qu'est devenue l'Aurélia
 perspicace et judicieuse d'autrefois?
 Votre Nicole m'a l'air d'une jeune dinde. Quant
 à M. Valentin Latour, un de ses anciens camarades
-m'a parlé de lui. M. Valentin Latour se recomman-
-
-dait, il y a trois ou quatre ans, par des névroses
+m'a parlé de lui. M. Valentin Latour se recommandait, il y a trois ou quatre ans, par des névroses
 assez bien simulées: quelques naïfs virent une
 preuve de délicatesse; les autres haussèrent les
 épaules. Parfois, on l'entendait fredonner des couplets idiots; il récitait aussi des monologues et
@@ -1028,8 +1002,7 @@ j'excuserai toujours la petite Nicole d'être bête, lors
 même que sa bêtise, comme celle de la maman Su-
 
 réda, me ferait monter des sueurs et courir des frissons.
-Je l'avoue à ma honte: je songeai moins à dé-
-fendre ma petite amie qu'à critiquer pour la centième fois le matérialisme rural du vieux docteur.
+Je l'avoue à ma honte: je songeai moins à défendre ma petite amie qu'à critiquer pour la centième fois le matérialisme rural du vieux docteur.
 Mais il s'emporta, me traita de détraquée, de mystique et de bas-bleu.
 
 Il parlait rudement, martelait du poing le bras de
@@ -1063,10 +1036,8 @@ pavillons moins vieux, et tout habillée de lierre
 noir, j'ai donné quelques jours à des sentiments
 recueillis et sans portée.
 Une tranquillité flamande m'envahissait, devant
-l'attitude des fillettes laborieuses, leur éternel sou-
-rire de bon accueil; dans le demi-silence et la quasi
-solennité des repas, parfois gais d'une gaîté lour-
-daude et maladroite comme les peintures des
+l'attitude des fillettes laborieuses, leur éternel sourire de bon accueil; dans le demi-silence et la quasi
+solennité des repas, parfois gais d'une gaîté lourdaude et maladroite comme les peintures des
 faïences; à la bonté un peu craintive des hommes
 qui rentraient chaque soir, leur besogne finie.
 Et la quiétude de tous me gagnait presque.
@@ -1083,8 +1054,7 @@ au parfum des boiseries. Encore Lui, avec des
 aperçus d'intimités pensives en un parc automnal
 et brumeux. Ma vie pouvait être encadrée de la
 sorte. Combien peu sans doute ila fallu pour que ma
-destinée devint ce qu'elle est! un regard trop péné-
-trant, l'intuition subite d'un rapport, un arrangement symétrique d'images — que sais-je? Toutes
+destinée devint ce qu'elle est! un regard trop pénétrant, l'intuition subite d'un rapport, un arrangement symétrique d'images — que sais-je? Toutes
 les âmes frôlent des pièges de folie: le pauvre ami
 qui me hante s'est laissé prendre à l'un d'eux.
 
@@ -1100,8 +1070,7 @@ Extrait du journal
 mon deuil, je n'ai assisté qu'à la cérémonie
 religieuse. Pendant la messe, j'ai surtout pensé
 mon prochain départ. L'enlaidissement de l'église
-m'écœurait: des statues en plâtre peint, de fabri-
-cation récente; les finesses des anciens chapiteaux
+m'écœurait: des statues en plâtre peint, de fabrication récente; les finesses des anciens chapiteaux
 empâtées d'un badigeon de caserne; le bleu fade et
 le rose niais des vitraux: tous les excès du goût
 sacerdotal qui prétend imposer des formes repoussantes à l'adoration des fidèles.
@@ -1227,8 +1196,7 @@ grande, harmonieuse et souple; une peau blanche
 et délicate; des mouvements nobles; deux yeux
 d'encre sous une chevelure d'or mat; vêtue, quoique
 en deuil, avec élégance, — uneélégancetrès simple.
-J'ai qu'elle faisait de Lières à Paris d'assez fré-
-quents voyages pour sa toilette. Pourtant elle affectait, sur le chapitre chiffons, une indifférence
+J'ai qu'elle faisait de Lières à Paris d'assez fréquents voyages pour sa toilette. Pourtant elle affectait, sur le chapitre chiffons, une indifférence
 
 Auprès d'elle, ma sœur Laurence paraissait encore
 plus disgraciée, plus malingre, plus terreuse. Mais
@@ -1237,9 +1205,7 @@ elle souriait, la pauvre Laurence, elle souriait du
 sourire d'un enfant qu'égaye un rayon de lumière.
 
 Si elle avait voir les pensées d'Aurélia, elle
-n'aurait point souri. Ce n'était plus la fillette convaincue, obstinément aflirmative et joyeusement pai-
-
-sible que j'avais connue jadis; c'était une Aurélia
+n'aurait point souri. Ce n'était plus la fillette convaincue, obstinément aflirmative et joyeusement paisible que j'avais connue jadis; c'était une Aurélia
 souvent fébrile et peu sûre de soi, l'esprit stérilisé
 par les contradictions, ayant des heures de désolation logique et sentimentale.
 
@@ -1251,8 +1217,7 @@ odieuses et surtout le catholicisme: C'est la seule,
 fulminait-elle, qui ait institué aussi effrontément
 des prix de vertu pour l'autre monde!
 
-Malgré son peu de quiétude, elle excellait à pa-
-raître raisonnable. Ses actes s'ajustaient comme des
+Malgré son peu de quiétude, elle excellait à paraître raisonnable. Ses actes s'ajustaient comme des
 pièces d'horlogerie. D'ordinaire, le matin, elle allait à Paris parce que la grande ville est plus honnête, plus saine et plus laborieuse le matin que le
 soir; après déjeuner, elle se promenait pour la digestion; de retour, elle jouait du piano parce que
 la marche pousse au rythme; après quoi, elle lisait
@@ -1262,9 +1227,7 @@ d'images, dispose l'idée à la vie concrète. Elle donnait ces explications ave
 Être raisonnable, pour elle, cela consistait encore
 à sentir, agir et penser flegmatiquement. Aïnsi
 l'aspect ou l'idée d'une misère ne semblait lui causer ni révolte, ni répulsion, ni dégoût. Elle voulait
-n'en souffrir que comme d'un syllogisme mal con-
-
-clu, — d'une souffrance intellectuelle. Elle nommait
+n'en souffrir que comme d'un syllogisme mal conclu, — d'une souffrance intellectuelle. Elle nommait
 ses nombreuses libéralités non point des aumônes,
 mais des restitutions
 — Je donne par esprit d'équité sociale, disait-elle
@@ -1352,9 +1315,7 @@ les doctrines subversives des larrons collectivistes.
 Qui donc, nous sommes-nous demandé, madame
 Suréda et moi, qui donc a corrompu cette innocente enfant, élevée dans la foi de ses ancêtres et
 dans le respect des lois de son pays? — Nous nous
-sommes livrés à une minutieuse enquête, et maintenant, nous ne pouvons plus douter de votre culpa-
-
-bilité. Vous avez abusé de notre confiance; telle un
+sommes livrés à une minutieuse enquête, et maintenant, nous ne pouvons plus douter de votre culpabilité. Vous avez abusé de notre confiance; telle un
 serpent, vous avez empoisonné notre fille de votre
 venin. Puisse la tristesse de deux vieillards en cheveux blancs ne pas vous porter bonheur.
 
@@ -1394,8 +1355,7 @@ cette petite âme d'oiseau; j'ai rappelé à sa vocation
 un despote qui s'oubliait dans la philologie. —
 L'avenir se présentait si ferme et si brave dans ma
 décision! Ah, quelle folie! corriger en l'air les
-erreurs de la réalité; sans tenir compte des caractères ni des circonstances. — Maintenant que l'évé-
-nement se dresse contre ma raison humiliée, que
+erreurs de la réalité; sans tenir compte des caractères ni des circonstances. — Maintenant que l'événement se dresse contre ma raison humiliée, que
 reste-t-il de moi? Je me cherche sans me trouver, et
 de fatigue, je ne songe plus à rien, je ne désire plus
 
@@ -1424,8 +1384,7 @@ veulent ou ne croient pas être, un langage.
 Aurélia ne répondit que par un geste las. Elle
 ouvrit machinalement un carton d'estampes et de
 gravures non classées, et parut examiner longuement un spécimen curieux de taille en losange: le
-Descartes de Hals gravé par Edelinck, un exem-
-plaire très rare, mais par malheur en fort mauvais
+Descartes de Hals gravé par Edelinck, un exemplaire très rare, mais par malheur en fort mauvais
 Le visage sortait de la nuit, lippu, la bouche
 longue, le nez busqué et large du bas, les yeux
 pareils à des loupes, les paupières lourdes, — un
@@ -1481,8 +1440,7 @@ Ils marchèrent autour des chaumières. Un instant
 je ne les vis plus. Quand ils revinrent vers moi, les
 rôles étaient intervertis. Delbove, fort abattu,
 laissait traîner sa canne au bout des doigts, à peine
-serrés autour du pommeau; sa raideur s'était relà-
-chée; ses vêtements, quoique de bonne coupe,
+serrés autour du pommeau; sa raideur s'était relàchée; ses vêtements, quoique de bonne coupe,
 tombaient flasques et piteux. Quant à Aurélia, très
 calme, économe de gestes, elle parlait. Elle devait
 parler lentement, avec douceur et fermeté, si j'ai
@@ -1493,8 +1451,7 @@ décor vieillot des bergeries royales. Je décidai
 part moi qu'ils étaient, en ce qui concerne l'amour,
 celle-ci trop grave, celui-là trop impétueux pour une
 nature aussi joliment attifée. Leur art d'aimer consistait, chez elle à cultiver un souvenir douloureux,
-chez lui à suivre des impulsions brutales. L'ingé-
-nuité réfléchie des canaux, des petites prairies, des
+chez lui à suivre des impulsions brutales. L'ingénuité réfléchie des canaux, des petites prairies, des
 chaumières bien coiffées encadrait mal ce drame
 
 Delbove ne resta pas à dîner, alléguant un travail
@@ -1516,8 +1473,7 @@ savantes et de lexiques spéciaux, elle déchiffra de
 vieux textes anglo-saxons. Le soir, elle nous entretenait de questions sociales: elle disait gravement,
 avec simplicité, telle un aède des temps primitifs,
 la vie romanesque du révolutionnaire Lassalle, la
-formation du parti démocrate socialiste en Allemagne, la genèse du Vooruit gantois et des coopé-
-ratives belges. Et des Revues de sociologie ou
+formation du parti démocrate socialiste en Allemagne, la genèse du Vooruit gantois et des coopératives belges. Et des Revues de sociologie ou
 d'économie politique, des brochures socialistes, de
 gros volumes savants peu à peu s'empilaient sur
 mes meubles.
@@ -1555,8 +1511,7 @@ l'espoir qu'elle s'intéresserait au sort de l'innocente
 Aurélia n'avait même pas réfléchi: cette occasion
 d'agir était trop belle. Mademoiselle Claudine Berthier, artiste lyrique, s'était empressée de céder ses
 droits de tante. Cette jeune personne ne connaissait
-guère son neveu, livré aux soins de Sylvie, camé-
-riste rousse et difforme, qui lui avait appris à lire,
+guère son neveu, livré aux soins de Sylvie, camériste rousse et difforme, qui lui avait appris à lire,
 à ce marmot, dans les feuilletons du Petit Parisien.
 Cette femme, d'aspect rechigné, avait été séduite
 par la figure délicate et les jolies manières de
@@ -1619,8 +1574,7 @@ et violette, embruinée au fond sur les mamelons
 par la colline que surmonte l'aqueduc.
 Jacques avait l'air d'un petit roi trop jeune pour!
 l'ampleur de son domaine, attristé soudain devant
-l''énormité de sa tâche. Je suis montée dans sa cham-
-bre et comme il restait toujours immobile, quelque
+l''énormité de sa tâche. Je suis montée dans sa chambre et comme il restait toujours immobile, quelque
 peu hébété en face de la nuit tombante, doucement
 j'ai passé mon bras gauche autour de son cou. Il a
 levé la tête pour croiser ses regards avec les miens,
@@ -1667,8 +1621,7 @@ mais j'étais toute à l'impression des bavardages et
 des câlineries. Puis une gêne sourde pesa sur ma
 joie, l'empêcha de régner, franche et robuste, sur
 ma rêverie: une pensée obscure me gâtait le charme
-de cette intimité commençante. Par hasard, je tour-
-nai les yeux vers mon portrait à la sanguine, que
+de cette intimité commençante. Par hasard, je tournai les yeux vers mon portrait à la sanguine, que
 j'ai fixé à un petit chevalet, sur la table en formede
 trèfle. Mais à cette vue, un frisson m'efileura l'épiderme. Vraiment, j'étais d'une énergie mauvaise
 et vaine: aucune autre pensée n'y hantait mes yeux
@@ -1713,8 +1666,7 @@ Ils m'ont tous embrassé. M. Isidore me donnait des
 Extrait du journal
 Trop fait marcher cet enfant hier dans la forêt;
 abusé de sa petite attention têtue pour lui surcharger la mémoire d'explications sur les arbres, les
-saisons, la bise, les fleuves, et la chaleur. Je parcou-
-rais l'espace comme les notions, à grandes enjambées, ivre d'un zèle naïf, au risque de paralyser ces
+saisons, la bise, les fleuves, et la chaleur. Je parcourais l'espace comme les notions, à grandes enjambées, ivre d'un zèle naïf, au risque de paralyser ces
 pauvres nerfs meurtris d'efforts, d'obstruer cette
 imagination qui s'entrebâäille à peine. Oui, j'étais
 peut-être bien alors la créature d'énergie aveugle et
@@ -1750,8 +1702,7 @@ bouffées humides du soir. Jacques bientôt somnola,
 et je restai à genoux sur le linoléum, accoudée au
 bord du divan, parce que je me sentais tuté- À
 laire et protégée.
-S'il pouvait comprendre, je lui demanderais par-
-don d'avoir brisé ses membres, alourdi sa cervelle
+S'il pouvait comprendre, je lui demanderais pardon d'avoir brisé ses membres, alourdi sa cervelle
 menue; Car je me suis précipitée sur cette œuvre
 pédagogique avec une sorte de voracité. Ne sais-je
 pas qu'un principe doit demander aux faits son
@@ -1832,8 +1783,7 @@ Quand je sors, les gens se détournent pour ne
 pas me saluer, et l'on chuchote derrière moi. Dans
 quelques intérieurs où il y avait des malades, j'ai
 été accueillie avec une politesse haineuse. Je suis
-pour ce monde souffrant ce que fut jadis l'Autri-
-chienne pour les Parisiens affamés.
+pour ce monde souffrant ce que fut jadis l'Autrichienne pour les Parisiens affamés.
 
 Cela est sinistre. Voyez un peu le bout de votre
 rêve: deux enfers, l'un dans l'autre. Si je n'avais
@@ -1868,8 +1818,7 @@ robustes, un coffre solide, un esprit avisé, une
 
 volonté ferme. Et c'est moi qui prétends te donner
 tout cela, moi dont toutes les tentatives pour bien
-faire ont avorté, moi dont l'initiative fut désas-
-treuse pour ceux que voulais élever au bonheur.
+faire ont avorté, moi dont l'initiative fut désastreuse pour ceux que voulais élever au bonheur.
 
 Mais est-ce possible de faire du bonheur, en ce
 monde égoïste et vorace? Aider autrui, n'est-ce pas
@@ -1879,8 +1828,7 @@ ravisseur ou proie? enveloppé de haïne ou féru de
 Cependant, comme je me tais, Jacques me croit
 soit malade soit mécontente de lui. Il ne sait quelle
 contenance garder et ses yeux s'humectent de
-larmes, son nez se pince, ses lèvres fines se res-
-serrent. Doucement, l'ayant attiré à moi, je l'embrasse au front. Il me chuchote, tout de suite
+larmes, son nez se pince, ses lèvres fines se resserrent. Doucement, l'ayant attiré à moi, je l'embrasse au front. Il me chuchote, tout de suite
 consolé: Tu sens bien bon.
 Extrait du journal
 Ces jours-ci, je ne l'ai guère quitté; et nous
@@ -1932,9 +1880,7 @@ car dans la chair la plus tendre sommeille l'activité
 des générations mortes. Et je conçois avec terreur
 un réveil possible de perversité.
 
-Oserais-je; le cas échéant, lui imposer une discipline? Hélas! laquelle et comment? mon intelli-
-
-gence est brouillée, j'ai perdu tout courage, je n'ai
+Oserais-je; le cas échéant, lui imposer une discipline? Hélas! laquelle et comment? mon intelligence est brouillée, j'ai perdu tout courage, je n'ai
 plus confiance en moi, et tout autant que cet enfant,
 j'aurais besoin d'un guide.
 
@@ -2070,8 +2016,7 @@ homme, en tricot de laine — forme noueuse et tassée
 
 Jacques se laisse soigner docilement; il maugrée
 contre l'huile de foie de morue, mais il l'absorbe.
-Annette vante le flegme qu'il garde sous les ablutions d'eau glacée. En promenade, malgré la célé-
-rité que j'impose à ses jambes graciles, il grogne
+Annette vante le flegme qu'il garde sous les ablutions d'eau glacée. En promenade, malgré la célérité que j'impose à ses jambes graciles, il grogne
 avec modération.
 
 Ce perpétuel contact serait délicieux, si j'osais
@@ -2086,8 +2031,7 @@ Mais le fin velours de sa peau, l'allégresse allumée
 dans ses yeux, les mouvements simples et vifs qui
 trahissent sa joie, autant de sensations voluptueuses où d'abord je me complais, dont ensuite je
 m'effare. Si bien que nos épanchements finissent
-mal; car je me dérobe soudain à sa gratitude ingé-
-nue, et lui, pour s'expliquer ce bizarre phénomène,
+mal; car je me dérobe soudain à sa gratitude ingénue, et lui, pour s'expliquer ce bizarre phénomène,
 fait douloureusement travailler son âme surprise.
 
 Hier, après m'être ressaisie de la sorte, comme
@@ -2207,8 +2151,7 @@ Mais quelle cruauté! imposer des contraintes,
 des méthodes à cet esprit qui vagabonde si joliment; rationner cette sensibilité si fine; enlever
 cet être impressionnable et déjà réfléchi mille occa:
 sions d'émoi, de rêve, de pensée: car bien des privations matérielles ne vont pas sans jeûne moral.
-Non, devant cette existence frêle, mais bien péné-
-trée de soi, je me trouve étrangement timide et
+Non, devant cette existence frêle, mais bien pénétrée de soi, je me trouve étrangement timide et
 Minuit tinte à mon horloge flamande et dehors
 à l'église paroissiale. On dirait que les choses respirent doucement; mon corps reposé, allégé, ne
 pèse plus. Et je sens tomber sur moi un sommeil
@@ -2226,9 +2169,7 @@ Trois semaines viennent de passer, qui m'ont
 paru bien courtes. Je me retrouvais enfant, pour
 amuser Jacques, et lui, gravement, faisait l'homme
 raisonnable pour m'intéresser. J'avais mes instants
-de folie, il avait ses heures de sagesse: je compre-
-
-naïis et lui sentait que nous voulions vivre en gens
+de folie, il avait ses heures de sagesse: je comprenaïis et lui sentait que nous voulions vivre en gens
 qui s'aiment.
 
 Ma tendresse gaie, jamais en défaut, le transfigurait. Nos leçons dégénéraient en causeries rieuses,
@@ -2430,8 +2371,7 @@ Ainsi, du haut de mon dogmatisme renforcé,
 position reprise et gardée obstinément, je m'acharne
 après les sens et la pensée de ce petit, pour les froidement discipliner aux analyses, aux réflexions
 austères. Je ne semble pas apercevoir les envies
-folles, qui par instant m'envahissent, de nous libé-
-rer tous deux, pour vivre une vie insoucieuse et
+folles, qui par instant m'envahissent, de nous libérer tous deux, pour vivre une vie insoucieuse et
 confiante, moi l'instruisant au hasard des occurrences, lui me charmant de sa gratitude ingénue.
 Non, j'ai trop peur des retours brusques du passé,
 des images dont soudain je retrouverais en lui le
@@ -2530,8 +2470,7 @@ et des caresses.
 Extrait du journal
 
 Delbove me disait une fois: Agir pour le mieux
-des êtres, ce n'est pas possible. S'improviser dé-
-miurge pour modeler des consciences nobles, pour
+des êtres, ce n'est pas possible. S'improviser démiurge pour modeler des consciences nobles, pour
 édifier des bonheurs autour de soi, c'est du charlatanisme ou de l'illusion. Cesserez-vous jamais d'être
 vous-même pour sentir avec l'âme de vos patients
 ce qui peut leur convenir et les charmer?

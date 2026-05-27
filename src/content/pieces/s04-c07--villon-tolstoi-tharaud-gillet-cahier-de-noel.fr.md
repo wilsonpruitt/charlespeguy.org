@@ -119,9 +119,7 @@ de mes vues sur la question des sexes, aussi raisonnable que le résumé de la R
 
 (Tout récemment écrite à une proche parente)
 
-J'ai été très heureux d'avoir une sérieuse conver-
-
-sation avec I... sur l'éducation des enfants. Lui et
+J'ai été très heureux d'avoir une sérieuse conversation avec I... sur l'éducation des enfants. Lui et
 moi, nous sommes tombés tout à fait d'accord sur un
 point qui est seulement négatif, c'est que les enfants
 doivent apprendre le moins possible. Il n'est pas à
@@ -184,8 +182,7 @@ paraître sans importance, sont cent fois plus importantes pour le bonheur de vo
 qu'ici la principale difliculté se présente: les
 enfants ne font volontiers que ce que font leurs
 parents; je vous en prie donc, faites ces choses.
-Cela servira à deux fins: il sera possible d'appren-
-dre moins, puisque la journée sera remplie de la
+Cela servira à deux fins: il sera possible d'apprendre moins, puisque la journée sera remplie de la
 façon la plus utile et la plus naturelle, et les enfants
 s'habitueront ainsi à la simplicité, au travail, à se
 suflire à eux-mêmes.
@@ -205,8 +202,7 @@ morale, une éducation chrétienne et la conscience
 de la fraternité et de l'égalité de tous les hommes.
 Un enfant peut encore comprendre qu'un hommefait, que son père, banquier ou tourneur, artiste ou
 contremaître, qui, par son travail, nourrit toute sa
-famille, puisse se libérer d'occupations qui l'empè-
-chent de consacrer tout son temps à un travail profitable. Mais comment un enfant, non encore mis à
+famille, puisse se libérer d'occupations qui l'empèchent de consacrer tout son temps à un travail profitable. Mais comment un enfant, non encore mis à
 l'épreuve, et encore incapable de rien faire, peut-il
 s'expliquer que d'autres fassent pour lui ce qu'il
 devrait naturellement faire pour lui-même?
@@ -303,8 +299,7 @@ celle qu'il n'avait jamais vue et qui emplissait son
 
 Aucune de ces peintures n'était pareille: car ses
 visions de la Reine d'amour étaient changeantes
-comme le ciel. Même il s'était essayé à ne pas repré-
-senter Notre Dame sous une forme et une apparence de femme: les perles, les sources, les fleurs
+comme le ciel. Même il s'était essayé à ne pas représenter Notre Dame sous une forme et une apparence de femme: les perles, les sources, les fleurs
 devinrent sous son pinceau les figures de Celle qui
 éclaire toutes les belles choses du monde d'un reflet
 de sa beauté.
@@ -345,9 +340,7 @@ joie et d'espoir:
 — Qui ne consentirait pour vous voir, Impératrice des Anges, à perdre la lumière de ses yeux?
 
 Mais vivement le moine couvrit de sa main son
-autre œil, et d'un seul regarda. Ce fut une éblouis-
-
-la légende de la Vierge
+autre œil, et d'un seul regarda. Ce fut une éblouisla légende de la Vierge
 
 sante vision d'or, d'azur et de blanc, de vermillon
 
@@ -487,9 +480,7 @@ quand vous serez en la cité où la mère du juge de
 vérité vit son fils cloué sur la croix, pensez à la
 pécheresse qui vous a ce soir ouvert sa porte et si
 vous repassez un jour par ici, rapportez-lui dans
-votre manteau une image de Notre Dame de Jéru-
-
-salem. Ma lasse d'âme, mon las de corps auraient
+votre manteau une image de Notre Dame de Jérusalem. Ma lasse d'âme, mon las de corps auraient
 grand joie, si dans mon oratoire était la face de la
 douce mère de Dieu.
 
@@ -619,14 +610,11 @@ Quand il passa devant la porte, la nonnaïn était
 sur le seuil. Le pèlerin continua son chemin, les
 yeux baissés comme s'il n'avait pas vu.
 
-— Vous n'entrez pas vous reposer dans ma mai-
-son, beau très doux sire?
+— Vous n'entrez pas vous reposer dans ma maison, beau très doux sire?
 
 Le clerc releva la tête, fit mine de s'étonner,
 s'approcha de la dame et pénétra dans l'ermitage.
-Comme jadis, la dame lui servit une écuelle pro-
-
-fonde de soupe. Elle n'osait lui demander s'il avait
+Comme jadis, la dame lui servit une écuelle profonde de soupe. Elle n'osait lui demander s'il avait
 tenu sa promesse. Ils se tinrent longtemps silencieux. Le clerc se disputait avec son âme pour
 savoir s'il abandonnerait l'image cachée sous sa
 robe de bure aux mains de la nonnain. La dame
@@ -663,9 +651,7 @@ Le lendemain, au petit jour, le clerc s'habille:
 l'image est bien cachée sous sa robe. Il lui tarde
 d'être sur la route. Il descend l'escalier, sans bruit.
 Dans le couloir il voit la porte de l'oratoire entrebâillée. Doucement, du doigt il la pousse: Personne. Il avance jusqu'à l'autel, s'agenouille et
-prie et s'accuse d'avoir menti à la nonne. Il de-
-
-mande pardon de son péché, se frappe la poitrine
+prie et s'accuse d'avoir menti à la nonne. Il demande pardon de son péché, se frappe la poitrine
 à grands coups, se signe maïinte et mainte fois,
 mais il n'a pas le courage de réparer sa faute par
 une bonne franchise. En lui-même une voix lui
@@ -873,8 +859,7 @@ cette lumière, se dépouilla de ses vêtements, entra
 dans l'eau et se mit à nager vers la haute muraille
 du couvent.
 
-Quand il fut au milieu du lac, la nonnain l'aper-
-çut qui nageait sans bruit, une épaule à demi hors
+Quand il fut au milieu du lac, la nonnain l'aperçut qui nageait sans bruit, une épaule à demi hors
 de l'eau, laissant traîner derrière lui un sillage
 d'argent. Elle eut une grande joie et une grande
 terreur quand elle vit que ce qu'elle espérait dans
@@ -1035,11 +1020,9 @@ sourire ses lèvres de bonté.
 Le ménestrel sortit sa viole de la gaine de cuir,
 il se mit à vieller doucement, tandis qu'il chantait à
 mi-voix une chanson en l'honneur de Notre Dame.
-Si pure était la voix, si belle la chanson, si déli-
-cieux le son de la viole, que des pèlerins qui déjà
+Si pure était la voix, si belle la chanson, si délicieux le son de la viole, que des pèlerins qui déjà
 
-passaient la porte revenaient vers l'autel discrè-
-tement, sur la pointe du pied, pour ne pas troubler
+passaient la porte revenaient vers l'autel discrètement, sur la pointe du pied, pour ne pas troubler
 le chanteur. Et de tous les coins d'ombre de l'église
 souterraine, des hommes, des femmes abîimées dans
 la prière, entendant la musique du jongleur,
@@ -1186,8 +1169,7 @@ la légende de la Vierge
 chantant vers le soleil. Le ménestrel disait de sa
 voix jeune et sonore:
 
-— Marie, étoile de la mer, joie des cieux, espé-
-rance du monde, clarté de l'aube, nef de salut,
+— Marie, étoile de la mer, joie des cieux, espérance du monde, clarté de l'aube, nef de salut,
 colombe de l'arche, rose mystique, lumière de la
 
 Avec sa tête, avec ses bras, avec son corps le

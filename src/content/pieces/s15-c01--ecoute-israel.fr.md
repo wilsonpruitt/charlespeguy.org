@@ -354,7 +354,7 @@ A jeté sur losseph un étrange regard.
 Et la paupière moitié close,
 Repoussant les myrrhes suaves
 Et les perles d'Ophir que Zimrann lui propose,
-Elle dit au marchand: « Combien, ton esclave? »:
+Elle dit au marchand: « Combien, ton esclave?
 
 Le maître des songes
 
@@ -1044,7 +1044,7 @@ Assez puissants pour ta prière?
 « N'écoute plus sa voix! Ne fais plus de victimes!
 Souviens-toi que je fus ta mère virginale!
 N'abaisse plus ton bras sur la terre natale,!
-Et prononce le mot qui sauve Mitsraïm! »:
+Et prononce le mot qui sauve Mitsraïm!
 Et Moïse cria dans le vent de l'abîme:
 « dire à Pharaon qu'il connaisse Élohim! »
 Vers les ténèbres,
@@ -1342,7 +1342,7 @@ Et prostitués au tailleur d'image?
 Venez par les chemins
 De ma solitude;
 Je ferai de vous un peuple de saints,
-Dans la maison de ma béatitude »?
+Dans la maison de ma béatitude
 « Ai-je promis aux pères de leurs pères
 Des enfants plus nombreux que le sable des mers,
 Et tous mes dons,
@@ -1537,7 +1537,7 @@ La terre sanglota: « Les hommes vont descendre! »
 Le ciel dit: « Hosanna!
 « Sa demeure est en moi, nul ne peut le reprendre! »
 
-les À; Ê? LORIE lue
+les LORIE lue
 
 les pères du.monde 7... 41,19
 PeChoix d'Annitélr puis cute de

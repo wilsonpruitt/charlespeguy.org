@@ -13,11 +13,10 @@ Alsace-Lorraine: La Carte au liséré vert.— 4»édition.
 Ouvrage couronné par l'Académie française.
 
 La Cathédrale de Strasbourg. Notice historique et archéo*
-logique. — Un volume avec planches hors texte en photo-
-typie, plusieurs illustrations dans le texte et un plan (collection
+logique. — Un volume avec planches hors texte en phototypie, plusieurs illustrations dans le texte et un plan (collection
 des Grands Monuments). D.-A. Longuet, éditeur.. 4 fr.
 .
-Un Ennemi du Cardinal « Collier »: François-Léopotd
+Un Ennemi du Cardinal « Collier François-Léopotd
 de Mayerhoffen, maire de Saverne (Contribution à l'histoire de
 la Révolution en Alsace). — Un volume in-i6, Dorbon-Alnô,
 
@@ -33,14 +32,12 @@ domiciliés actuellement sur ce territoire, qui entendront
 conserver la nationalité française, jouiront, jusqu'au
 i*'octobre 1872, et moyennant nne déclaration préalable
 faite à l'autorité compétente, de la faculté de transporter
-leur domicile en France et de s'y fixer.... »: tel fut,
+leur domicile en France et de s'y fixer.... tel fut,
 dans ses dispositions essentielles, l'article a du traité
 de Francfort. Les Alsaciens et les Lorrains pouvaient,
-s'ils le voulaient, s'en aller, quitter leur pays pour ren-
-trer dans la patrie: le traité leur en laissait la faculté,
+s'ils le voulaient, s'en aller, quitter leur pays pour rentrer dans la patrie: le traité leur en laissait la faculté,
 élégant euphémisme, puisque cette faculté était, en fait,
-pour tous ceux qui tenaient à rester Français, une obli-
-gation. Nul ne put garder à la fois sa qualité de
+pour tous ceux qui tenaient à rester Français, une obligation. Nul ne put garder à la fois sa qualité de
 Français et son domicile en Alsace-Lorraine. Il fallut
 rester en Alsace-Lorraine et devenir « sujet allemand»,
 ou « opter » en bonne et due forme pour la France et
@@ -58,15 +55,11 @@ ressources et tes relations de chacun, le sentiment était
 unanime. Partirent tous ceux que ne retenaient point
 d'impérieuses nécessités, et même beaucoup d'autres
 qui, restant, n'auraient pas de peine à se justifier:
-combien de circonstances devant lesquelles la con-
-science la plus délicate, le patriotisme le plus ombra-
-geux se fussent trouvés plus enclins à la pitié qu'au
-blâme 1 A mesure qu'approchait le terme du sep-
-tembre 1872, les départs se précipitaient, plus agités,
+combien de circonstances devant lesquelles la conscience la plus délicate, le patriotisme le plus ombrageux se fussent trouvés plus enclins à la pitié qu'au
+blâme 1 A mesure qu'approchait le terme du septembre 1872, les départs se précipitaient, plus agités,
 plus fiévreux, et, les derniers jours, par les trains et
 les routes qui conduisaient vers la nouvelle frontière,
-ce fut une ruée formidable de braves gens, enthou-
-siastes et navrés. Les vieux, les jeunes, une même
+ce fut une ruée formidable de braves gens, enthousiastes et navrés. Les vieux, les jeunes, une même
 horreur frémissait en eux, déterminait leurs actes:
 voir ses fils, se voir soi-même sous l'uniforme de ceux
 par lesquels on avait tant souffert et qui, du jour au
@@ -91,15 +84,12 @@ Flach? Strasbourg; Kocchlin? Engel? Mulhouse;
 Gauckler? Wlssembourg; Blcch? Saïnte-Marie-aux-
 Mines...-— des chefs d'usine interpellant leurs ouvriers
 dans le dialecte de Schtlke (t) ou celui de Dornach(2>;
-des rapports de contremaîtres orthographiés à l'alsa-
-cienne; Ics« kilbés»(3)dcs environs de Bei-Abbès où les
+des rapports de contremaîtres orthographiés à l'alsacienne; Ics« kilbés»(3)dcs environs de Bei-Abbès où les
 légionnaires alsaciens s'amusent comme dans leurs
 villages; ceux qui reviennent, d'Afrique ou d'Asie,
 glorieux d'un peu de gloire française quand même,
 mais qu'une frontière impitoyaMù arrête à quelques
-quarts d'heure de la mal ion où hurs « vieux » vou-
-draient encore une fois les icvor: ceux qui ne revien-
-nent pas...; le chez-nous qui surgit soudain, parce
+quarts d'heure de la mal ion où hurs « vieux » voudraient encore une fois les icvor: ceux qui ne reviennent pas...; le chez-nous qui surgit soudain, parce
 qu'un professeur dans sa chaire, un avocat à la barre,
 un colonel devant le front de son régiment ont prononcé
 les mots les plus simples, les plus banals, mais en
@@ -120,8 +110,7 @@ saisons » et qui m'a dit en pleurant: « 1 mon beau
 paysl... » tout cela, c'est l'Exode...
 On a souvent disenté, en Alsace, cette question de
 l'émigration: où était le devoir envers la grande comme
-envers la petite patrie, s'il fallait partir ou rester, diffi-
-cile problème. Partir, c'était donner au malheur un
+envers la petite patrie, s'il fallait partir ou rester, difficile problème. Partir, c'était donner au malheur un
 courageux témoignage de fidélité, mettre encore au
 service de la France, malgré la perte de l'Alsace, tout
 ce qu'on portait en soi des vertus alsaciennes. Rester,
@@ -130,31 +119,25 @@ malgré la conquête étrangère, à prolonger son souvenir
 et son esprit dans le pays qui n'était plus français.
 Partir... mais partir, n'était-ce pas faire place nette
 devant les hommes d'outre-Rhin? leur ouvrir l'Alsace
-comme un bief qui se remplirait peu à peu et qui peut-
-être se déverserait plus tard, en un nouveau torrent,
+comme un bief qui se remplirait peu à peu et qui peutêtre se déverserait plus tard, en un nouveau torrent,
 sur la France? Rester... mais, en restant, combien de
 temps pourrait-on garder la tradition intacte? les fils la
 sauveraient-ils en eux'aussi facilement que les pères,
-qui n'en avaient pas connu d'autre, et ne deviendraient-
-ils pas, un jour, qu'ils le voulussent ou non, par le seul
-fait d'être restés là, de nouvelles forces pour l'Alle-
-magne? Mais qu'importent ces considérations en grande
+qui n'en avaient pas connu d'autre, et ne deviendraientils pas, un jour, qu'ils le voulussent ou non, par le seul
+fait d'être restés là, de nouvelles forces pour l'Allemagne? Mais qu'importent ces considérations en grande
 partie rétrospectives?Même ceux qui déplorent le plus
 vivement aujourd'hui, en Alsace et en Lorraine, que
 l'émigration ait affaibli l'ossature du pays, rendu plus
 difficile sa lutte pour le maintien de sa personnalité,
 même ceux-là conviennent qu'il fallait que ce geste fût
-fait. était l'Indispensable complément de la protesta-
-tion politique. Sans lui, les paroles prononcées par les
-représentants de l'Alsace n'auraient pas devant l'his-
-toire la même autorité. Faire déclarer, à Bordeaux,
+fait. était l'Indispensable complément de la protestation politique. Sans lui, les paroles prononcées par les
+représentants de l'Alsace n'auraient pas devant l'histoire la même autorité. Faire déclarer, à Bordeaux,
 
 « nul et non avenu un pacte qui dispose de nous sans
 notre consentement à Berlin, « que l'Allemagne a
 excédé son droit de nation civilisée en contraignant la
 France vaincue au sacrifice d'un million et demi de ses
-enfants c'était une protestation d'autant plus coura-
-geuse et belle qu'on était prêt, si l'Allemagne hautaine
+enfants c'était une protestation d'autant plus courageuse et belle qu'on était prêt, si l'Allemagne hautaine
 poursuivait sa route sans entendre, à s'en aller parmi
 les hasards et les périls, loin du clocher, peut-être à le
 regretter toujours sans le revoir jamais.
@@ -163,21 +146,18 @@ elles aussi, différemment affectées selon l'heure et les
 circonstances, par le fait de l'émigration alsacienne.
 En France, aussitôt la guerre finie, des comités se
 formèrent pour accueillir les immigrants d'Alsace et de
-Lorraine, mais la tendresse que la mère-pdtrie témoi-
-gnait à ceux qui venaient vers elle n'allait pas sans
+Lorraine, mais la tendresse que la mère-pdtrie témoignait à ceux qui venaient vers elle n'allait pas sans
 quelque suspicion à l'égard des autres; par la suite, on
 s'est efforcé d'être plus juste, et la France sait aujour-
 d'hui tout ce qu'elle doit à l'immigration alsacienne,
 mais elle comprend aussi que, sans les Alsaciens restés
 en Alsace, son nom même n'y serait plus qu'un mot
 germanisé. Quant aux Allemands,ils ne virent pas sans
-amertume s'allonger les listes d'optants dans les sous-
-préfectures et les colonnes d'émigrants sur les routes.
+amertume s'allonger les listes d'optants dans les souspréfectures et les colonnes d'émigrants sur les routes.
 Si la Correspondance provinciale, un des organes
 officieux du gouvernement de Berlin, écrivit alors
 que i'Alsace-Lorraine allait devenir un pays allemand
-« dans le sens le plus parfait du mot par suite de l'éli-
-mination des habitants qui se sont prononcés pour la
+« dans le sens le plus parfait du mot par suite de l'élimination des habitants qui se sont prononcés pour la
 France » (i), ce n'était qu'un argument de consolation
 
 l'exode
@@ -186,8 +166,7 @@ sans doute que de sincérité. L'Europe était trop émue
 par les scènes dramatiques de l'émigration (i) pour que
 l'Allemagne y fût elle-même indifférente et n'éprouvât
 pas quelque honte à voir ainsi s'enfuir à son
-approche les a frères reconquis ». Sinon, l'administra-
-tion allemande n'aurait pas cherché à les retenir,
+approche les a frères reconquis ». Sinon, l'administration allemande n'aurait pas cherché à les retenir,
 exercé sa pression dans les campagnes pour entraver
 le mouvement d'émigration, offert des traitements de
 faveur aux fonctionnaires qui resteraient à son service,
@@ -197,42 +176,33 @@ en conservant leur domicile sur le territoire annexé.
 Depuis, elle semble avoir changé de méthode, au moins
 à certaines périodes, dont la dernière est très voisine
 de nous. Que des « sujets allemands » de si récente et
-de si rude acquisition ne soient pas devenus passionné-
-ment Allemands, qu'ils ne soient encore que des
-Muss-Deulseh, des « Allemands par force l'Alle-
-magne, qui sait admirablement se souvenir quand il
+de si rude acquisition ne soient pas devenus passionnément Allemands, qu'ils ne soient encore que des
+Muss-Deulseh, des « Allemands par force l'Allemagne, qui sait admirablement se souvenir quand il
 s'agit de sa propre histoire, l'Allemagne s'irrite et
-s'énerve à ce spectacle, et certains départs qui se pro-
-duisent encore n'étonnent pas assez l'administration de
+s'énerve à ce spectacle, et certains départs qui se produisent encore n'étonnent pas assez l'administration de
 la « Terre d'Empire » pour qu'on n'ait pas quelque
 raison de croire qu'ils répondent à ses désirs secrets...
-Plus encore que la sdsceplibilité politique, la surpro-
-duction humaine économique de l'Allemagne a
+Plus encore que la sdsceplibilité politique, la surproduction humaine économique de l'Allemagne a
 contribué à modifier dans le même sens les manières
 de voir et d'agir des autorités. Ce n'est pas seulement
 
 (a) Sinon tout de suite, du moins quelques années après la guerre.
 
 au point de vue politique que le traité de Francfort
-séparait l'Alsace et la Lorraine de la France: la fron-
-tière nouvelle était, en même temps, une barrière
+séparait l'Alsace et la Lorraine de la France: la frontière nouvelle était, en même temps, une barrière
 douanière (i). Des Alsaciens,des Lorrain» s'en allaient,
 refoulés vers leur marché traditionnel, laissant derrière
 eux, presque à l'abandon, des magasins, des fonds de
 commerce, parfois même une usine. Mais il n'y avait
 pas, dans l'Allemagne de assez d'hommes ni de
 capitaux disponibles pour qu'elle trouvât son intérêt à
-encourager ce mouvement. Aujourd'hui, la surproduc-
-tion allemande, qui tend à se répandre à travers le
+encourager ce mouvement. Aujourd'hui, la surproduction allemande, qui tend à se répandre à travers le
 monde, rencontre à sa portée immédiate, dans les
 provinces françaises que l'Allemagne s'est annexées,
 un premier terrain de colonisation et d'exploitation.
-Après les petits commerçants du début, qui se conten-
-taient de prendre les places vides, sont survenus,
-depuis une dizaine d'années particulièrement, des entre-
-preneurs de grandes affaires, des chefs d'industrie
-enhardis par le succès. Pour racheter des établisse-
-ments, pour fonder des maisons nouvelles, des dépôts
+Après les petits commerçants du début, qui se contentaient de prendre les places vides, sont survenus,
+depuis une dizaine d'années particulièrement, des entrepreneurs de grandes affaires, des chefs d'industrie
+enhardis par le succès. Pour racheter des établissements, pour fonder des maisons nouvelles, des dépôts
 ou des succursales, les Allemands n'éprouvent plus le
 même embarras qu'il y a quarante ans. Et voici, vers
 la France, quelques départs de plus, la masse de l'exode
@@ -241,8 +211,7 @@ grossie encore de quelques unités.
 par où ils passèrent la foule de ces émigrants, recueillir,
 tout ensemble, ce qui reste d'eux sur le sol qu'ils ont
 fui, ce qui reste du « pays » dans leurs foyers dispersés.
-Dévotion tendre à notre petite patrie, sensibilité tou-
-jours en éveil quand il s'agit d'elle et vibrante au
+Dévotion tendre à notre petite patrie, sensibilité toujours en éveil quand il s'agit d'elle et vibrante au
 
 (i) Voir plus loin, pages 30, or, et Annexe IV.
 
@@ -250,8 +219,7 @@ l'exode
 moindre choc, sans doute; mais encore —puisse le mot
 ne point paraître prétentieux — ambition d'historien,
 volonté de saisir et de fixer, tandis qu'il en est temps
-encore, quelques-uns des aspects de grand mouve-
-ment de peuple, conséquence du désastre national.
+encore, quelques-uns des aspects de grand mouvement de peuple, conséquence du désastre national.
 Demain peut-être, il serait trop tard. Des documents
 subsisteront, dans les bibliothèques et les archives,
 mais le souvenir vivant ne lès éclairera plus. Aujour-
@@ -275,8 +243,7 @@ guerre du Mexique, ou du projet de plébiscite, ou de
 certaine lettre des «Patriotes allemands» revendiquant,
 déjà, l'Alsace; quels étaient les débouchés de chaque
 industrie, avec qui « travaillait » Langenhagen de
-Sarre-Union, Dollfus-Mleg de Mulhouse, Blin de Blsch-
-willer ou Goldenberg de Saverne; pub, tout à coup,
+Sarre-Union, Dollfus-Mleg de Mulhouse, Blin de Blschwiller ou Goldenberg de Saverne; pub, tout à coup,
 la guerre, les gardes montées ensemble à la Porte
 Pierres, l'escarmouche de Chalempé ou tes sorties
 
@@ -284,12 +251,11 @@ de Belfort, encore des émotions éprouvées en commun
 et qu'on revit d'un même coeur; puis, la fin, après la
 brutalité de la guerre, la brutalité de la paix, quelles
 furent les répercussions du traité de Francfort sur les
-existences particulières, quelles tracasseries s'ensui-
-virent pour celui-ci, parce qu'il avait dit trop haut que
+existences particulières, quelles tracasseries s'ensuivirent pour celui-ci, parce qu'il avait dit trop haut que
 les Français reviendraient avant trois ans, comme tout
 le monde le pensait — sentiment général qui contribua,
 lui aussi, à déterminer dans un sens ou dans l'autre la
-conduite de chacun —; quelle déchéance pour celui-là,
+conduite de chacun quelle déchéance pour celui-là,
 naguère heureux, presque riche après un patient labeur,
 médaillé à l'Exposition de 1867, — soudain ruiné par
 la perte de la clientèle française; quelle douleur pour
@@ -297,21 +263,17 @@ cet autre, parce que son fils, soldat en France et parti
 sans « certificat d'émigration ne pourrait pas rentrer
 en Alsace, le seconder, lui succéder un Jour... Sans
 cette contribution du souvenir vivant, on pourra, demain
-encore, évaluer avec précision les conséquences écono-
-miques et sociales, pour la France et pour l'Alsace-
+encore, évaluer avec précision les conséquences économiques et sociales, pour la France et pour l'Alsace-
 Lorraine, de cette émigration; mais on n'en saisira
-peut-être plus toutes les causes et toutes les circon-
-stances, on ne verra plus comme aujourd'hui de quelles
+peut-être plus toutes les causes et toutes les circonstances, on ne verra plus comme aujourd'hui de quelles
 Incompatibilités morales et de quels bouleversements
 matériels elle fut faite, de quelles vexations et de quels
-déchirements. Demain, celte histoire sera de la stati-
-stique; aujourd'hui, elle est encore de la vie.
+déchirements. Demain, celte histoire sera de la statistique; aujourd'hui, elle est encore de la vie.
 A tous ceux que j'ai consultés au cours de cette
 étude, les uns, qui furent de l'exode, les autres, qui ne
 l'ont suivi que du regard et de la pensée, je dois le
 même remerciement, pour la sympathie de leur accueil,
-pour les concours qu'ils m'ont offerts, pour les encoura-
-gements qu'ils m'ont prodigués. Ils m'ont assuré dans
+pour les concours qu'ils m'ont offerts, pour les encouragements qu'ils m'ont prodigués. Ils m'ont assuré dans
 
 l'exode
 la confiance que mon effort n'était pas vain et, plus
@@ -330,21 +292,18 @@ venues sur les deux versants des Vosges, j'ai donner
 patrie abandonnée, non oubliée, parler avec « ceux qui
 sont restés » de tant.de personnes, de tant de choses
 chères qu'ils n'ont jamais revenir, et il m'a semblé
-qu'ainsi je contribuais, pour ma modeste part, à main-
-tenir ce lien, à faire durer, malgré la frontière, cette
+qu'ainsi je contribuais, pour ma modeste part, à maintenir ce lien, à faire durer, malgré la frontière, cette
 
 (i) M. Ernest Lavisse, de l'Académie française, a bien voulu
 s'intéresser dés te début à travail et en accueillir les principaux
 chapitres dans la Reçue de Paris, avec une sympathie dont le
-souvenir m'est très précieux. Qu'il veuille bien trouver Ici l'hom-
-mage respectueux de ma vive et sincère reconnaissance.
+souvenir m'est très précieux. Qu'il veuille bien trouver Ici l'hommage respectueux de ma vive et sincère reconnaissance.
 
 La guerre était à peine terminée qu'une petite ville
 du Bas-Rhin, en pleine prospérité, vit partir près de la
 moitié de sa population, presque toute une industrie,
 qui s'en forent jusqu'en Normandie chercher les moyens
-de revivre en restant à France: Elbeuf allait s'enri-
-chir de tout ce que perdit Bischwiller.
+de revivre en restant à France: Elbeuf allait s'enrichir de tout ce que perdit Bischwiller.
 
 L'activité industriellede Bischwiller avait son origine
 au début du dix-septlème siècle. Hameau bâti autour
@@ -369,8 +328,7 @@ aux habitants. Vaine précaution: on s'aperçut vite que
 le Lorrain n'oubliait pas la Ligue; son fils et succès*
 senr, Henri, marcha sur les traces paternelles, et il
 fallut repartir par les routes incertaines à la recherche
-de foyers nouveaux. C'est alors (1618, que beau-
-coup d'entre eux gagnèrent Bischwiller. Le duc des
+de foyers nouveaux. C'est alors (1618, que beaucoup d'entre eux gagnèrent Bischwiller. Le duc des
 Deux-Ponts, de qui elle était maintenant la propriété,
 leur offrit sans compter avantages et garanties: mêmes
 droits qu'aux anciens habitants, admissibilité an siège
@@ -382,76 +340,59 @@ pour l'établissement d'un foulon... A ces travailleurs
 venus ainsi — par Phâlsbourg — de Lixheim près de
 Sarrebourg ou de Courcelles près de Metz, de Rocroi,
 du Limbourg, appartient l'honneur d'avoir introduit à
-Bischwiller cette industrie textile qui devait trans-
-former, vivifier, rendre célèbre l'ancien village obscur
+Bischwiller cette industrie textile qui devait transformer, vivifier, rendre célèbre l'ancien village obscur
 des nobles de Beger et d'Eschenaû, ses propriétaires
 d'autrefois. Sans douté, dans la suite du dix-septième
-siècle, puis au dix-huitième et au dix-neuvième, la cul-
-ture du tabac, celle de la garance, celle du houblon,
+siècle, puis au dix-huitième et au dix-neuvième, la culture du tabac, celle de la garance, celle du houblon,
 apparurent comme d'autres sources de richesse, —
 mais accessoires: dans l'industrie drapière apportée
 par les premières colonnes de réfugiés, « il y avait
 
 dit un jour le Luroth, on bon administrateur de
 Bischwiller, « il y avait un levain qui devait, tôt on
-tard, faire lever tonte la pâte ». Lorsqu'on 1811 l'adroi-
-rable préfet que fnt Lezay-Maraésia se fit rendre
+tard, faire lever tonte la pâte ». Lorsqu'on 1811 l'adroirable préfet que fnt Lezay-Maraésia se fit rendre
 compte de la situation industrielle de Bischwiller, la
 ville comptait près de habitants, la population
 ouvrière était de 1.700 personnes, dont 1.100 occupées
-par la draperie, prospérité qui s'accrut considérable-
-ment, presque sans interruption, pendant soixante
+par la draperie, prospérité qui s'accrut considérablement, presque sans interruption, pendant soixante
 années, grâce à la filature mécanique, puis au moteur
-à vapeur, grâce aussi aux nouveaux moyens de com-
-munication (chemin de fer Paris-Strasbourg, chemin de
+à vapeur, grâce aussi aux nouveaux moyens de communication (chemin de fer Paris-Strasbourg, chemin de
 fer Strasbourg-Haguenau-Wissembourg).
 Ce furent alors des périodes de splendeur, 1842,1849-
-180^-1869, dont on se souvient encore à Bisch-
-willer; ce furent toutes les conséquences de la pro-
-spérité industrielle: agrandissement des écoles et des
+180^-1869, dont on se souvient encore à Bischwiller; ce furent toutes les conséquences de la prospérité industrielle: agrandissement des écoles et des
 ateliers, perfectionnement des métiers, construction
-d'un hôpital, construction d'un o Progymnase » secon-
-daire, organisation de sociétés de secours mutuels, de
+d'un hôpital, construction d'un o Progymnase » secondaire, organisation de sociétés de secours mutuels, de
 charité maternelle, de patronage des enfants illettrés,
 fondation d'une bibliothèque populaire, de cours
 d'adultes: plus de 3oo.ooo francs dépensés de à
 1866, sans contribution de la commune ni d'aucune
 caisse publique, simplement par cette «initiative
-éclairée et ferme par ces « seules forces d'associa-
-tion fondées sur la plus large tolérance publique et
+éclairée et ferme par ces « seules forces d'association fondées sur la plus large tolérance publique et
 religieuse dont M. de Quatrefages (1) fit un cnthou-
 
 (1) L'illustre savant, membre de l'Institut, professeur au Muséum.
 Il avait été étudiant Strasbourg. — La cérémonie d'inauguration
-eut lieu le 10 octobre Depuis plusieurs années, M. de Quatre-
-fages passait Bischwiller la période des vacances.
+eut lieu le 10 octobre Depuis plusieurs années, M. de Quatrefages passait Bischwiller la période des vacances.
 
 l'exode
-siaste éloge à la cérémonie d'inauguration du Progym-
-nase. Les ouvriers affinèrent, attirés par l'appât de
+siaste éloge à la cérémonie d'inauguration du Progymnase. Les ouvriers affinèrent, attirés par l'appât de
 gros salaires facilement gagnés; on construisit, en
 un nouveau quartier: trois rues prolongeant des mes
-anciennes et six rues nouvelles, d'uno largeur uni-
-forme, sur un plan d'alignement régulier, bordées de
+anciennes et six rues nouvelles, d'uno largeur uniforme, sur un plan d'alignement régulier, bordées de
 petites malsons commodes, peu coûteuses, à simple
 rez-de-chaussée, qu'il fallut, souvent, surbâtir par la
-... Tout à coup, par un matin d'été, l'écho de canon-
-nades proches, puis, l'après-midi, des lueurs d'incendie
+... Tout à coup, par un matin d'été, l'écho de canonnades proches, puis, l'après-midi, des lueurs d'incendie
 du côté de Froeschwiller, un cheval au galop, sans
 maître, revenant, affolé, vers son campementde l'ayant»
 veille, quelques malheureux en fuite, et, le lendemain
 matin, un peloton de dragons badols, pistolet au poing,
-par les rues de la petite ville. C'en est fait de la pro-
-spérité Bischwiller. On ne construira plus de quar-
-tiers nouveaux, on n'aura plus besoin de surbâtir les
+par les rues de la petite ville. C'en est fait de la prospérité Bischwiller. On ne construira plus de quartiers nouveaux, on n'aura plus besoin de surbâtir les
 rez-de-chaussée.
 
-Mais Bischwiller était, comme toute l'Alsace, ardem-
-ment française. Faut-il dire aussi qu'elle mettait quelque
+Mais Bischwiller était, comme toute l'Alsace, ardemment française. Faut-il dire aussi qu'elle mettait quelque
 coquetterie à garder un air révolutionnaire, et que son
 humeur indépendante devait mal augurer de l'avenir?
-L'Alsace, l'Alsace des Dix Villes Libres, de la Répu-
-house, l'Alsace de la Marseillaise allait tomber
+L'Alsace, l'Alsace des Dix Villes Libres, de la Répuhouse, l'Alsace de la Marseillaise allait tomber
 sous un joug étranger, le plus rude qui fût. Or, dans
 l'Alsace démocratique, les Bischwillérols se vantaient
 particulièrement de n'avoir pas, en 1793, arboré le
@@ -459,27 +400,21 @@ particulièrement de n'avoir pas, en 1793, arboré le
 
 drapeau blanc l'approche des Autrichiens, d'avoir
 fait des réceptions triomphales à Benjamin Constant
-sous la Restauration (i), d'avoir naguère encore accu-
-mulé des non contre l'Empire (2), et leur cité répu-
-blicaine, au moment précis où la patrie devenait Répu-
-blique, serait hors de la patrlo pressentaient-ils
+sous la Restauration (i), d'avoir naguère encore accumulé des non contre l'Empire (2), et leur cité républicaine, au moment précis où la patrie devenait République, serait hors de la patrlo pressentaient-ils
 pas confusément combien le régime à la prussienne
-froisserait ici la susceptibilité du démocratisme alsa-
-cien?... Peut-être; mais, plu» qu'un sentiment confus,
+froisserait ici la susceptibilité du démocratisme alsacien?... Peut-être; mais, plu» qu'un sentiment confus,
 une Idée claire occupait leurs esprits,/animait leurs
 volontés. La France restait, et justifiait à soi seule le
 désir de rester à elle, d'aller la rejoindre... parti-
 Heureux ceux-là s'ils voulaient partir, les conditions
 d'existence de leur industrie ne seraient pas un obstacle
-à leur départ. D'abord, en qui concerne les débou-
-chés. Ils fabriquaient surtout des draps unis Ans, pour
+à leur départ. D'abord, en qui concerne les débouchés. Ils fabriquaient surtout des draps unis Ans, pour
 une clientèle élégante et riche, du drap noir pour les
 
 (1) En 1897 et en 1899. On perçoit encore à travers la chronique
 l'écho de ces acclamations populaires: « Bischwiller était flère
 d'être représentée à la Chambre des Députés par un des plus
-brillants orateurs de la Chambre un des plus vaillants défen-
-seurs des libertés publiques... La population entière se porta à sa
+brillants orateurs de la Chambre un des plus vaillants défenseurs des libertés publiques... La population entière se porta à sa
 rencontre le salua avec des transports de joie... Le vieux et
 Infatigable athlète du régime représentatif... harangua la foule
 d'une voix vibrante d'émotion et de bonheur... Ses paroles,
@@ -500,8 +435,7 @@ soutanes de curés, ou pour les petites vestes de paysans
 bretons; ils n'avalent pas clientèle allemande:
 vêtements fins? l'Allemagne était encore trop pauvre;
 soutanes? l'Allemagne était protestante. Or, s'ils
-restaient, les clauses douanières du traité de paix (fran-
-chise de droits jusqu'au août 1871, reculée jusqu'au
+restaient, les clauses douanières du traité de paix (franchise de droits jusqu'au août 1871, reculée jusqu'au
 décembre, — quart de droit 1" janvier au
 juin — demi-droit du juillet au décembre
 1872, — puis droit Intégral) (1) allaient les séparer de
@@ -517,8 +451,7 @@ masse. Ce n'est pas que Mulhouse eût déjà une clientèle
 allemande: la clientèle allemando ne lui est venue
 qu'avec le temps; mais l'agglomération y était plus
 importante qu'à Bischwiller, le nombre d'ouvriers à
-transporter beaucoup plus considérable, les établis-
-sements industriels plus puissants, plus capables
+transporter beaucoup plus considérable, les établissements industriels plus puissants, plus capables
 d'envoyer de l'autre côté de ta frontière nouvelle des
 succursales ou des usines-soeurs, tout l'outillage plus
 perfectionné, plus compliqué, moins transportable, la
@@ -558,10 +491,8 @@ elbeuviens dès avant l'an 900. Depuis, au rythme de
 l'histoire politique ou religieuse non moins que des
 théories économiques ou des fantaisies de la mode, ils
 connurent des fluctuations parfois tragiques. Menaces
-de ruine: le jour, dit-on, où saint Louis résolut d'appli-
-quer à sa personne les décrets des conciles et de ne
-plus porter aucune étoffo de luxe; puis, tous les boule-
-versements du pays normand, guerre Cent Ans,
+de ruine: le jour, dit-on, où saint Louis résolut d'appliquer à sa personne les décrets des conciles et de ne
+plus porter aucune étoffo de luxe; puis, tous les bouleversements du pays normand, guerre Cent Ans,
 guerres de religion; puis encore, dans la France pacifiée,
 la révocation l'Édit de Nantes, qui chassa d'Blbeuf
 ses deux plus puissantes familles industrielles, les
@@ -575,9 +506,7 @@ laines et le norabro dos fils, les contraignant à bien
 faire, assurant ainsi leur réputation pour tin long avenir;
 des lettres-patentes Louis XVI, qui met à leur ser>'
 vice une autorité plus philosophique, assouplissant les
-règlements de Colbert, parce que, disait-il, « les insti-
-tutions ne doivent point s'étendre jusqu'au point de cir-
-conscrire l'imagination de l'homme industrieux »; une
+règlements de Colbert, parce que, disait-il, « les institutions ne doivent point s'étendre jusqu'au point de circonscrire l'imagination de l'homme industrieux une
 visite du Premier Consul, qui les honore d'une devise,
 brève et nctto comme un commandement: « Elbeuf est
 une ruche; tout le monde y travaille »... En 1698, Elbeuf
@@ -599,45 +528,36 @@ contribuer à la formation du ruban de peigné et qui
 tombent des machines au cours du pelgnage; dérivés
 de la laine-mère dont on peut tirer parti, soit en les
 employant seuls, soit en les mélangeant, au cardage,
-avec de la laine-mère. Différence, enfin, dans les pro-
-cédés de fabrication. Jusqu'en 1871, la plupart des
+avec de la laine-mère. Différence, enfin, dans les procédés de fabrication. Jusqu'en 1871, la plupart des
 industriels clbeuviens étalent ce qu'on appelle des
-« fabricants en chambre »: tout se faisait à façon,
+« fabricants en chambre tout se faisait à façon,
 depuis nettoyage de la laine jusqu'au tissage des
 draps, ils n'avaient chez eux aucun outillage, mais
 seulement un magasin de vente, ou, tout au plus, un
 atelier de dessin et d'échantillonnage; en outre, il y
-avait fort peu de métiers à tisser mécaniques, les tisse-
-rands la campagne à qui l'on confiait le travail,
+avait fort peu de métiers à tisser mécaniques, les tisserands la campagne à qui l'on confiait le travail,
 tissaient à la main, les vieux tramant la trame, les
 .
 jeunes faisant marcher le métier. Les Bischwillérois,
 au contraire, étaient l'école de Mulhouse: ils
-apportaient et ils mirent en pratique à Elbeuf la for-
-mule moderne de la concentration dans les grandes
+apportaient et ils mirent en pratique à Elbeuf la formule moderne de la concentration dans les grandes
 Sans doute, l'action ne fut pas unilatérale, l'influence
 
-vint pas des Blschwillérois seuls; il y eut pénétra-
-lion réciproque. Au bout de quelque temps, les Blsch-
-willérois fabriquèrent de la « nouveauté comme les
-Elbcuviens; l'usage la Mousse se répandit; l'expé-
-rience et l'habileté des façonniers elbcuviens dans cha-
-cune des opérations distinctes où ils se spécialisaient
+vint pas des Blschwillérois seuls; il y eut pénétralion réciproque. Au bout de quelque temps, les Blschwillérois fabriquèrent de la « nouveauté comme les
+Elbcuviens; l'usage la Mousse se répandit; l'expérience et l'habileté des façonniers elbcuviens dans chacune des opérations distinctes où ils se spécialisaient
 depuis des siècles, assurèrent le goût des Blschwillérois,
 rendirent plus difficile à contenter leur désir du fini et
 du parfait... Mais — pour n'insister que sur un point —
 cette lointaine spécialisation, contraire à l'esprit
 moderne du travail, n'était pas sans danger: elle
-avait brillamment réussi à Elbeuf, nombreux fabri-
-cants lui devaient leur renommée et leur fortune;
+avait brillamment réussi à Elbeuf, nombreux fabricants lui devaient leur renommée et leur fortune;
 aussi ne tenaient-ils guère à changer système, étant
 assez riches pour se laisser vivre, c'est-à-dire pour
 mourir lentement; tandis quo les Blschwillérois avaient
 besoin de mettre en oeuvre toutes leurs ressources
 d'initiative et d'énergie, s'ils voulaient s'implanter
 où s'étaient transplantés; et l'on peut dire quo la
-vie industrielle d'Elbeuf, par leur arrivée, se renou-
-vela, comme celle de Bischwiller, par leur départ,
+vie industrielle d'Elbeuf, par leur arrivée, se renouvela, comme celle de Bischwiller, par leur départ,
 s'était presque éteinte.
 
 Quarante ans après... Du coup que lui a porté la
@@ -645,16 +565,12 @@ séparation d'avec la France, Bischwiller ne s'est pas
 fut d'abord, non pas la misèro: on l'a évitée
 en fuyant devant elle, — mais la désolation, dans
 le sens originel des livres sacrés, le vide, l'abandon,
-— une malédiction qui avait passé, destructrice peut-
-
-être de l'avenir même. Puis, ceux des fabricants qui
+— une malédiction qui avait passé, destructrice peutêtre de l'avenir même. Puis, ceux des fabricants qui
 étaient restés, essayèrent reprendre courage, se
 remirent au travail; et quelques-uns sont venus à bout,
-tant bien que mal, des difficultés créées par la situa-
-tion nouvelle. Au bon temps, deux fols par année,
+tant bien que mal, des difficultés créées par la situation nouvelle. Au bon temps, deux fols par année,
 en mai-juin et en novembre-décembre, les acheteurs
-affluaient dans Bischwiller; en outre, pour les règle-
-ments, on avait affaire à uno clientèle de premier
+affluaient dans Bischwiller; en outre, pour les règlements, on avait affaire à uno clientèle de premier
 ordre (Paris et Lyon). Depuis, il a fallu admettre les
 demandes de longs crédits, et aussi, au lieu d'attendre
 chez soi, entretenir une représentation au dehors. Tel
@@ -665,13 +581,11 @@ réussir. Tel autre, qui avait une spécialité de draps
 pour crêpes de deuil, garnitures corbillards, tentures
 mortuaires — usages plus particulièrement catholiques
 et français — a dû, à la longue, détacher la partie
-« crêpe » au-delà des Vosges, mais s'est mis, en com-
-pensation, à fabriquer de la « couleur » pour l'Italie,
+« crêpe » au-delà des Vosges, mais s'est mis, en compensation, à fabriquer de la « couleur » pour l'Italie,
 pour l'Orient. S'ils n'ont pas prospéré, du moins ont-ils
 continué de vivre. Même des industries nouvelles sont
 venues d'ailleurs (capitaux et administrateurs français
-ou alsaciens; pour quelques-unes, exclusivement alle-
-mands), ont profilé du départ des autres, acheté,
+ou alsaciens; pour quelques-unes, exclusivement allemands), ont profilé du départ des autres, acheté,
 souvent à bon compte, des immeubles vacants, recréé
 quelque activité: une fabrique jute, une fabrique de
 cartouches, trois fabriques cigares, deux fabriques
@@ -687,10 +601,8 @@ plus travailler que deux ou trois jours, gagnant dix à
 douze francs par semaine, mais ils trouvaient à se
 loger, avec une famille, pour cent francs par an, à louer
 douze francs un champ qui leur donnait des pommes
-de terre pour l'année; depuis, les salaires se sont rele-
-vés, et, dans Bischwiller raréfiée, on ne chômo plus,
-Mais si les industries nouvelles, lentement, pénible-
-ment, ont un peu ranimé la ville, elles n'y ont pourtant
+de terre pour l'année; depuis, les salaires se sont relevés, et, dans Bischwiller raréfiée, on ne chômo plus,
+Mais si les industries nouvelles, lentement, péniblement, ont un peu ranimé la ville, elles n'y ont pourtant
 pas ramené la vio d'avant 1870, large, hardie, confiante.
 Même plus nombreuses ou plus importantes encore, y
 auraient-elles réussi? Sauf une ou deux, elles sont trop
@@ -705,15 +617,11 @@ passé le Rhin après 1871 se sont installés de préférence
 dans les grandes villes, où ils ont des leurs en foule
 dans l'administration et dans l'armée; à Bischwiller,
 en face de quelques Allemands, les Alsaciens restent
-entre sol, jalousement, rudes, avec ténacité, aux nou-
-veaux venus, à ceux aussi des « Indigènes s'il s'en
-trouve, qui ne se gardent pas assez contre 1' « infiltra-
-tion »;'quand, par exception très rare, un mariage se
+entre sol, jalousement, rudes, avec ténacité, aux nouveaux venus, à ceux aussi des « Indigènes s'il s'en
+trouve, qui ne se gardent pas assez contre 1' « infiltration »;'quand, par exception très rare, un mariage se
 fait d'un camp à l'autre, le peuple se moque (1), le
 
-(1) Parfois, des ouvrières, ou des bonnes, épousent des immi-
-grés, sous-ofltclcrs ou employés de bureau; mais elles ne s'en éton-
-nent pas moins qu'on fasse comme elles quand on a les moyens
+(1) Parfois, des ouvrières, ou des bonnes, épousent des immigrés, sous-ofltclcrs ou employés de bureau; mais elles ne s'en étonnent pas moins qu'on fasse comme elles quand on a les moyens
 
 monde en parle pendant des années, les relations sont
 rompues avec le transfuge, et, une fois plus, les
@@ -722,8 +630,7 @@ rompues avec le transfuge, et, une fois plus, les
 les cartouches et les chaussures, malgré la population
 des trois hospices ou asiles qui n'existaient pas avant
 la guerre, malgré la garnison, nouvelle aussi, trois
-batteries d'artillerie, chiffre des habitants Bisch-
-willer vient à peine de rattraper huit mille...
+batteries d'artillerie, chiffre des habitants Bischwiller vient à peine de rattraper huit mille...
 Les rues s'allongent, trop calmes... Ceux-ci sont partis;
 et ceux-là aussi; et ceux-là encore. Voici leur usine
 vide, qui ne contient plus qu'une chaudière invalide et
@@ -752,8 +659,7 @@ d'en épouser un comme çà! »
 l'exode
 Elbeuf. Le chiffre d'affaires des Bischwiliérois est*
 aujourd'hui le tiers du chiffre total des affaires de la
-place. Mais le succès ne leur a pas fait oublier les diffi-
-cultés du début, la tristesse du départ, le passé, la
+place. Mais le succès ne leur a pas fait oublier les difficultés du début, la tristesse du départ, le passé, la
 petite patrie. chefs de maisons, plus d'un est encore
 là, qui a fait le transfert, ou qui l'a vu. Des ouvriers,
 plus d'un aussi se rappelle les aventures du voyage. On
@@ -765,8 +671,7 @@ et l'on convenait d'un lieu de rassemblement du côté de
 la gare, pour reprendre le train le lendemain ou le
 surlendemain. Parfois, un incident drôle: à Paris,
 « M. Adolphe ou « M. Henri heureux de revoir des
-uniformes français, quels qu'ils fussent, serre joyeuse-
-ment la main de quelques fédérés, leur offre à boire;
+uniformes français, quels qu'ils fussent, serre joyeusement la main de quelques fédérés, leur offre à boire;
 mais il n'avait guère l'accent parisien, on commence à
 le regarder de travers. Il partit sans demander son
 reste. A Elbeuf, on loge tant bien que mal dans de
@@ -778,8 +683,7 @@ jour, au cabaret des Écluses, sur la Seine, disputes et
 coups: les Alsaciens d'un côté, les Normands de
 l'autre; on joua même du couteau. Mais tout s'est
 apaisé avec le temps.
-Toutefois les Alsaciens continuent de former un grou-
-pement original dans la population elbeuvienne. D'abord,
+Toutefois les Alsaciens continuent de former un groupement original dans la population elbeuvienne. D'abord,
 beaucoup d'entre eux sont luthériens au milieu d'une
 population catholique, qui ne connaissait, avant la
 
@@ -796,22 +700,17 @@ me maîtrisais mal, je me sentais fébrile, je me croyais
 là-bas, chez eux, chez moi... lis se sont longtemps
 mariés entre « pays » (et cette tradition non plus n'est
 pas perdue): Philippe Oser, d'Oberhoffen, avec Julie
-Danner, de Bischwiller; Françok ochiellein, de Lem-
-bach, avec Sophie Dott, de Bischwiller; Mathias Non-
-nenmacher, tisseur, à Niederschoeftblsheim, fils de
-Mathias et de Catherine Kieffer, avec Sophie Kugel-
-mann, épinceteuse, née à Bischwiller, fille de Georges
+Danner, de Bischwiller; Françok ochiellein, de Lembach, avec Sophie Dott, de Bischwiller; Mathias Nonnenmacher, tisseur, à Niederschoeftblsheim, fils de
+Mathias et de Catherine Kieffer, avec Sophie Kugelmann, épinceteuse, née à Bischwiller, fille de Georges
 et de Sophie Danner. Et quels témoins Constant Jehl,
 Jacques Becht, Charles Danner, Antoine Zipfel, Jacques'
-Jesel, Guillaume Ostertag, — de Bischwiller, d'Ober-
-hoffen, de Mothern, de Runtzenheim, de Rohrwiller...
+Jesel, Guillaume Ostertag, — de Bischwiller, d'Oberhoffen, de Mothern, de Runtzenheim, de Rohrwiller...
 Quelles belles noces ce durent être! non sans un peu de
 mélancolie, j'imagine, quand les vieux n'étaient pas là,
 qu'une procuration les représentait, envoyée par
 Kleinclauss, notaire à Haguenau, ou Kléber,
 notaire à Drusenheim. De leurs noms, du nom de leurs
-villages, comme de leur patois, la même émotion mon-
-tait en moi, — de douceur familiale, et de lourd regret...
+villages, comme de leur patois, la même émotion montait en moi, — de douceur familiale, et de lourd regret...
 De beaux types de là-bas subsistent, reconnaissables
 au plus lointain aspect: leur carrure, tout un air de
 vigueur laborieuse mêlée de bonhomie, la moustache et
@@ -824,15 +723,13 @@ un un peu dur qui ne trompent pas sur son origine—,
 il parle de ses « sept ans du Mexique, et de son
 fils surtout, adjudant de tirailleurs, au Maroc, qu'il
 espère voir revenir un de ces jours, avec la médaille
-militaire. Un autre, qui fut de la rude journée, 22 Jan-
-vier 1871, où les Francs-tireurs de la Délivrance firent
+militaire. Un autre, qui fut de la rude journée, 22 Janvier 1871, où les Francs-tireurs de la Délivrance firent
 sauter le pont de Fontenoy. Un autre, ici, au bureau,
 qui garde précieusement dans ses papiers une vieille
 carte de France du temps qu'il était écolier: un jour,
 le pasteur de son village, ou d'un village voisin, de
 Ringendorf ou de Rothbach, la lui avait donnée, après
-y avoir, de sa main, ajouté les deux départements nou-
-vellement français, Savoie et Haute-Savoie. Depuis!...
+y avoir, de sa main, ajouté les deux départements nouvellement français, Savoie et Haute-Savoie. Depuis!...
 Un autre, là, un « foulonnier debout près de sa
 machine, me demande si je connais son cousin de
 Bischwiller, qu'il n'a pas depuis plus de trente-cinq
@@ -843,18 +740,14 @@ est venue à pied de Bischwiller à Elbeuf, fillette de
 douze ou treize ans, avec son père, trois frères encore
 plus jeunes qu'elle, et une brouette: la brouette, pour
 véhiculer les petits quand ils étaient fatigués C'était
-en Le père ne trouvait plus de travail régulier là-
-bas, ses six frères avaient été soldats français; il ne
+en Le père ne trouvait plus de travail régulier làbas, ses six frères avaient été soldats français; il ne
 voulait plus rester. Il aurait bien emprunter quelque
 argent pour voyager d'une autre manière; mais il aurait
-fallu, pour cela, parler, écrire, apitoyer, attendre, peut-
-
-être aussi se priver d'un plaisir très alsacien: celui de
+fallu, pour cela, parler, écrire, apitoyer, attendre, peutêtre aussi se priver d'un plaisir très alsacien: celui de
 montrer aux camarades de quoi on est capable, pour
 venir les rejoindre... Ils firent la route en trente-trois
 jours. A la frontière, le douanier français était de
-Haguenau; près de Châlons, ils eurent affaire à un gen-
-darme qui était de Mulzig: bienheureux hasards, qui
+Haguenau; près de Châlons, ils eurent affaire à un gendarme qui était de Mulzig: bienheureux hasards, qui
 redonnaient de l'entrain à toute la troupe. Par contre, il
 arrivait qu'on restât trois jours sans entendre le parler
 du pays. Alors Philomène pleurait... Oui, je le sais, ce
@@ -891,8 +784,7 @@ l'exode
 aux hommes, tant aux femmes, les chiens renvoyés de
 la table familiale, il réglemente tout, soucieux du
 moindre détail; il fixe la justice, fait rédiger un code
-complet de législation et de procédure, où s'amalga-
-ment avec le droit romain les dispositions des anciennes
+complet de législation et de procédure, où s'amalgament avec le droit romain les dispositions des anciennes
 coutumes; il organise l'instruction: l'instruction des
 princes, qui ne seront plus abandonnés au caprice de
 précepteurs sans lien et sans méthode, mais réunis et
@@ -909,24 +801,18 @@ l'activité organisatrice de Jean-George? et voulut-il
 essayer son système sur un terrain neuf, créer de
 toutes pièces une cité idéale où il n'y avait rien
 jusqu'à lui? Ou bien s'effraya-t-il de la tentative
-récente d'un de ses voisins, un d'Haussonville, pro-
-tégé du Cardinal de Lorraine, qui venait de mettre
+récente d'un de ses voisins, un d'Haussonville, protégé du Cardinal de Lorraine, qui venait de mettre
 la main sur le prieuré de Saint-Quirin? 11 n'avait pas
 perdu le souvenir du Voyage d'Auslrasle, du passage
 récent de Henri jetant quelques hommes au château
 d'Einhartzhausen avant de poursuivre vers Metz, et
-Jean-George vit sans doute dans l'acte de d'Hausson-
-ville une nouvelle manifestation de la politique française
+Jean-George vit sans doute dans l'acte de d'Haussonville une nouvelle manifestation de la politique française
 ambitieuse de progrès vers l'est, puisqu'il appela
 l'attention de l'empereur sur la nécessité d'intercepter
-le passage en y élevant une ville nouvelle, plus impor-
-
-tante pour la défense qu'un château perdu. Ou encore,
+le passage en y élevant une ville nouvelle, plus importante pour la défense qu'un château perdu. Ou encore,
 luthérien qui pouvait continuer à vivre dans son pays,
 songea-t-ilavec une compassion fraternelle aux réformés
-de l'ouest et du nord, moins heureux que lui, et d'éton-
-nantes visions d'avenir s'agitèrent-elles dans son imagi-
-nation de précurseur: des villes, des régions entières
+de l'ouest et du nord, moins heureux que lui, et d'étonnantes visions d'avenir s'agitèrent-elles dans son imagination de précurseur: des villes, des régions entières
 régénérées par eux pour les avoir accueillis errants et
 misérables? Sans doute aussi, puisqu'il fit répandre au
 loin, à l'intention des persécutés qui cherchaient un
@@ -946,7 +832,7 @@ des Ardennes, des Pays-Bas. Lui, assistait, passionné,
 à la réalisation de sa ville — Vfahburg, la Ville du
 Palatin, — ou, quand il s'en éloignait, se faisait
 adresser des rapports détaillés, la liste des arrivants,
-« les noms de ceux qui bâtissent »: « ce iourd'huy
+« les noms de ceux qui bâtissent « ce iourd'huy
 il» d'avril 1672 «... Me Hance, forestier, Monsr de
 Confian, Anthoine le Picard, George de Doulouard,
 cordier, Le petit boucher, Le gros tanneur, Quentin le
@@ -963,8 +849,7 @@ ville d'échange et de production. Jean-George l'a dit. Il
 le faut. Et tout concourt au succès. D'ici on est en six
 heures au Rhin, en une journée à la Sarre, en trois
 au Danube; à peine davantage pour la Seine, le Rhône,
-la Loire. Quelques routes nouvelles à créer, de Phals-
-bourg à Spire, à Énsisheim, à Blamont, et l'on rejoindra
+la Loire. Quelques routes nouvelles à créer, de Phalsbourg à Spire, à Énsisheim, à Blamont, et l'on rejoindra
 facilement par les communications régulières avec
 Augsbourg et Vienne, Innsbrûck et l'Italie, Nancy,
 Lyon et Paris. Toutes les matières premières, Phalsbourg
@@ -974,13 +859,10 @@ l'habitude de passer ici les Vosges; le fer aussi, par le
 même chemin,.mais en sens contraire, vers Strasbourg
 et Worms; quant au cuivre, du marché de Francfort, il
 remonterait le Rhin et la Zorn: rien de plus aisé que
-de prélever le nécessaire au passage. Enfin — couron-
-nement de son oeuvre — il résolut d'unir, du nord au
+de prélever le nécessaire au passage. Enfin — couronnement de son oeuvre — il résolut d'unir, du nord au
 sud, le bassin de la Sarre à celui de la Zorn, de l'ouest
-à l'est, la Meuse à la Moselle, par des travaux de navi-
-gabilité et des-canaux de jonction: anticipations de
-près de trois siècles, dont un savant ingénieur slrasbour-
-geois, l'illustre Specklin, disait alors qu'elles étaient
+à l'est, la Meuse à la Moselle, par des travaux de navigabilité et des-canaux de jonction: anticipations de
+près de trois siècles, dont un savant ingénieur slrasbourgeois, l'illustre Specklin, disait alors qu'elles étaient
 conçues « pour la perte des pauvres gens et contre
 l'ordre de Dieu »... Jean-George avait pu, pendant plus
 
@@ -1000,8 +882,7 @@ marché, l'entrepôt créé par Jean-George, devint un
 champ-clos où s'entrechoquèrent les religions,» puis les
 armées, parfois les unes et les autres dans une mêlée
 furieuse de toutes les passions.
-Au nom du Maître céleste, le duc de Lorraine, catho-
-lique, voulut catéchiser la prolestante Phalsbourg, y
+Au nom du Maître céleste, le duc de Lorraine, catholique, voulut catéchiser la prolestante Phalsbourg, y
 appela le P. Anselme et le P. Oudé au secours du curé
 Didelot; et de quelles épiques apostrophes la petite
 ville retentit alors Le 12 avril 1621, « l'hérésie dans
@@ -1015,8 +896,7 @@ d'un tas de savetiers d'une « racaille d'artizans qui
 peuvent, « s'il leur plafst, vous déministrer, et casser
 aux gages?... O le brave Consistoire!... » Mais, si
 «enserré» qu'il soit «dedans une contradiction aperte»
-ou « accroché par la serre de quelque prelgnant enthy-
-mème « le monstre, estendu demy-mort aux pieds de
+ou « accroché par la serre de quelque prelgnant enthymème « le monstre, estendu demy-mort aux pieds de
 la vérité, par excès d'obstination ne se veut pas
 
 l'exode
@@ -1034,8 +914,7 @@ Bernard de Weimar se disputèrent la ville, laissant
 derrière'eux les ruines et les misères d'usage; lutte
 sauvage, dans tout ce pays: l'adversaire n'était pas
 toujours le même, mais l'habitant pâtissait toujours,
-payait d'énormes tributs comme contribution aux enne-
-mis, à moins que ce ne fût comme subside aux alliés,
+payait d'énormes tributs comme contribution aux ennemis, à moins que ce ne fût comme subside aux alliés,
 
 (1) a La religion prétendue mourante à Pfalzbourg entre les mains
 de ses médecin et ministre d'un coup de pistole le ta avril ifot,
@@ -1052,8 +931,7 @@ deux tranchants de J.-C. l'ange du grand conseil etc., par Jean
 Brazl, ministre de la Parole de Dieu en l'Église réformée dudit
 Pfallzbourg; « Colonne de Diamant érigée sur le cénotaphe, ou
 tombeau vide basti par Est. Bouchard, hérétique, à trois
-facultés de médecine, grec et poésie, enrichie de notes et apo-
-stilles par te R. P. Nie. Oudé de la Compagnie de Jésus, Ponl-à-
+facultés de médecine, grec et poésie, enrichie de notes et apostilles par te R. P. Nie. Oudé de la Compagnie de Jésus, Ponl-à-
 Mousson, Dans la Retiglon prétendue mouranle,\c R. P. Oudé
 appelait déjà Bouchard ce « médecin huguenot... plus propre à
 faire mourir les flmes qu'à ressusciter les corps..., qui tranche de
@@ -1061,16 +939,12 @@ philosophie et de théologie, et régne entre les siens comme un
 borgne entre les aveugles ».
 (a) Voir plus haut, page
 
-payait pour le rachat de pillages que ce rachat n'empê-
-chait point, payait et voyait sa maison brûler au départ
+payait pour le rachat de pillages que ce rachat n'empêchait point, payait et voyait sa maison brûler au départ
 des troupes, payait et mangeait des racines, des feuilles
-sèches, parfois des cadavres: par les chemins qui des-
-cendaient de Phalsbourg dans la plaine, un certain
+sèches, parfois des cadavres: par les chemins qui descendaient de Phalsbourg dans la plaine, un certain
 capitaine Rflst, surnommé La Plante, chef de partisans,
-incorrigibills adalter, môrdrischer concussor, distri-
-buait la mort aux passauts de toutes les conditions,
-sowohl publicis als prlvatis, ohne distinction, dit le pro-
-cureur qui l'accabla sous des épithètes en trois langues,
+incorrigibills adalter, môrdrischer concussor, distribuait la mort aux passauts de toutes les conditions,
+sowohl publicis als prlvatis, ohne distinction, dit le procureur qui l'accabla sous des épithètes en trois langues,
 quand il fut pris, au bout de dix ans.
 A travers toutes ces vicissitudes, la marche de la
 France se dessinait, continue, persévérante, sûre de soi,
@@ -1091,25 +965,20 @@ fut fortifiée: une ceinture de bastions et de demi-lunes,
 (1) Article XIII du texte du traité. Cf., pour la continuité de ce
 dessein de la France, article XIV du même traité: « Est convenu en
 oulre,que lechemin cy-dèssuscommencera depuis le dernier village
-du Paîs Messin entre Metz et Vie, jusques à Phalsbourg Inclusive-
-ment, et appartiendra en toute souveraineté à Sa Majesté sans
+du Paîs Messin entre Metz et Vie, jusques à Phalsbourg Inclusivement, et appartiendra en toute souveraineté à Sa Majesté sans
 aucune Interruption pour la longueur, et aura de largeur demi
 
 géométrie magnifique, — marque de Vauban; deux
-portes, la « Porte de France » et la « Porte d'Alle-
-magne avec leurs boucliers, leurs glaives, leurs éten-
-dards, leurs couronnes, leurs soleils de pierre, —
+portes, la « Porte de France » et la « Porte d'Allemagne avec leurs boucliers, leurs glaives, leurs étendards, leurs couronnes, leurs soleils de pierre, —
 marque du roi.
 Aussi bien ne pouvait-il suffire à la France de l'avoir
-acquise et fortifiée. Dans le mauvais chemin de mon-
-tagne qui servait seul jusqu'alors au passage du col,
+acquise et fortifiée. Dans le mauvais chemin de montagne qui servait seul jusqu'alors au passage du col,
 les équipages du roi, au retour de Strasbourg, en 1681,
 se seraient embourbés lourdement, sans le renfort de
 quatre cents chevaux réquisitionnés par l'intendant
 d'Alsace. Inulilo Phalsbourg, si on n'en faisait pas une
 tête de route, par où relier plus commodément à
-l'intérieur du royaume l'Alsace française Au commen-
-cement du règne de Louis fût jetée entre Saverne
+l'intérieur du royaume l'Alsace française Au commencement du règne de Louis fût jetée entre Saverne
 et Phalsbourg, entre l'Alsace et la Lorraine, cette
 somptueuse et robuste ch. ussée, grimpante sans
 rudesse grâce à ses serpeatements habiles, chef-d'oeuvre
@@ -1129,8 +998,7 @@ article des Lettres patentes du duc Léopold à la suite du
 traité du ai janvier 1718: nomenclature, modifiée, des villages qui
 seront compris dans la a demi lleuê de route » laquelle le roi de
 
-passer dans le bruissement des feuilles le rythme déli-
-cieux et mélancolique des Trois Marches de Marbre
+passer dans le bruissement des feuilles le rythme délicieux et mélancolique des Trois Marches de Marbre
 
 Mais Phalsbourg paya cher tant d'honneurs.
 ...
@@ -1147,11 +1015,9 @@ en ce moment, la seule clé des Vosges; battez-vous,
 battons-nous contre les ennemis, nous avons du fer,
 du courage, nous vaincrons parce qu'elle déversa
 sur la plaine des bataillons innombrables, dernière
-étape sur le sol de la patrie dans l'élan de la Révolu-
-tion vers l'Europe; pour toutes ces grandes raisons
+étape sur le sol de la patrie dans l'élan de la Révolution vers l'Europe; pour toutes ces grandes raisons
 nationales qui l'avaient mise à l'honneur, — quand les
-mauvais jours vinrent, dès la première étape de l'in-
-vasion, elle fut à la peine. 1814. Deux sièges en
+mauvais jours vinrent, dès la première étape de l'invasion, elle fut à la peine. 1814. Deux sièges en
 moins de deux ans. Si l'on pouvait tourner Phalsbourg,
 ce n'était qu'au risque de mille difficultés, lenteurs et
 périls: passer sous son canon, laisser la place
@@ -1182,16 +1048,14 @@ récentes. Phalsbourg, la Pépinière des Braves, avait dit
 l'Empereur. Phalsbourgeois, François-Joseph Gérard,
 entré aux hussards en 1787, puis, par la Révolution
 et l'Empire, par Mayence, l'Espagne et la Bérésina,
-sous-officier, officier, général de division, baron, grand-
-officier de la Légion d'honneur; Phalsbourgeois,
+sous-officier, officier, général de division, baron, grandofficier de la Légion d'honneur; Phalsbourgeois,
 Rottembourg, soldat au Royal-Ilesse-Darmsladt en
 1784, puis, par la Révolution et l'Empire, par Mayence,
 le Mlncio, Vérone, Iéna, sous-officier, officier, général
 de division, baron, grand-croix de la Légion d'honneur;
 Phalsbourgeois enfin, le plus illustre de tous, Georges
 Mouton, engagé volontaire au 9* bataillon de la
-Lobau, aujourd'hui maréchal, pair de France, comman-
-dant supérieur des gardes nationales de la Seine; ah
+Lobau, aujourd'hui maréchal, pair de France, commandant supérieur des gardes nationales de la Seine; ah
 celui-là, le fils du boulanger de la rue du Rempart,
 malgré les grades, malgré les honneurs, malgré
 
@@ -1200,8 +1064,7 @@ le repos son coeur ombrageux une aristocrate de
 haute lignée, descendante des princes souverains de
 Neuchâtel, il était resté « peuple et carrément
 son pays; Vosgicn solide, un peu rude, strict sur la
-discipline et brave homme, n'aimant pas les discus-
-sions inutiles dans le service: « Trêve d'écritures
+discipline et brave homme, n'aimant pas les discussions inutiles dans le service: « Trêve d'écritures
 répondait-il à un aide de camp dont les réclamations
 le fatiguaient (t); ni les propos de vanité dans son
 salon: quand on parlait généalogie et blasons, il
@@ -1276,14 +1139,11 @@ sur quatre cents, qui avaient déjà fait beaucoup de
 bruit dans le monde 1 — apparût à des milliers et des
 milliers de lecteurs dans des visions d'épopée; et si la
 voix de l'horloger Goulden, du petit Joseph,,son
-apprenti, de la tante Grédel et de Catherine, s'attendris-
-sait parfois, s'il se mêlait au courage des braves gens
+apprenti, de la tante Grédel et de Catherine, s'attendrissait parfois, s'il se mêlait au courage des braves gens
 un regret du clocher, des Maisons-Rouges, des Quatre-
 Vents, des Baraques-du-Bois-de-Chêne, de toutes ces
 maisonnettes pittoresques qu'on voit de Phalsbourg,
-d'où l'on voit Phalsbourg, pourquoi ne s'y reconnaî-
-traient-ils pas quand même? l'Ancien en personne, le-
-valeureux Mouton — qui était pourtant un lion:
+d'où l'on voit Phalsbourg, pourquoi ne s'y reconnaîtraient-ils pas quand même? l'Ancien en personne, levaleureux Mouton — qui était pourtant un lion:
 plaisanterie de Napoléon (i) — n'avait-il pas osé dire,
 la veille d'AusterUu, tandis que cent mille soldats
 acclamaient l'Empereur: «... Ne vous y méprenez pas...
@@ -1317,10 +1177,8 @@ progrès lui coulerait, personne ne l'abandonna... Il
 fallait autre chose...
 
 Dans la petite ville lorraine, le mouvement et la joie
-des grands jours militaires. Défilés de régiments, éten-
-dards et drapeaux déployés, qui vont se concentrer en
-Alsace, descendent vers le Rhin, — « et leur âme chan-
-tait... » Quelques jours de fièvre, d'enthousiasme... Puis,
+des grands jours militaires. Défilés de régiments, étendards et drapeaux déployés, qui vont se concentrer en
+Alsace, descendent vers le Rhin, — « et leur âme chantait... » Quelques jours de fièvre, d'enthousiasme... Puis,
 tout de suite, le 6 août, vers neuf heures du soir, un
 
 (1) Le père du romancier.
@@ -1348,15 +1206,12 @@ nouveau refus. Dix batteides ouvrent le feu sur la
 ville... Le 14» nouveau parlementaire; nouveau refus;
 nouveau bombardement; l'ëglise, la poste, le quart
 des maisons sont en feu. Lex maire, Bender, au nom
-de la population, demande au* commandant de conti-
-nuer la défense. Déjà, celui de*1814» Parmentier, dont
+de la population, demande au* commandant de continuer la défense. Déjà, celui de*1814» Parmentier, dont
 le souvenir est resté vivant à Phalsbourg, avait
-dit: « Si l'ennemi vient Jusqu'à ions, nous le rece-
-vrons en Phalsbourgeois, je veux <#re en patriotes »...
+dit: « Si l'ennemi vient Jusqu'à ions, nous le recevrons en Phalsbourgeois, je veux <#re en patriotes »...
 Les troupes d'investissement se succèdent autour de
 la ville, les parlementaires aux baPions, toujours en
-vain. Des nouvelles circulent, vraies, dusses, commu-
-niquées par les parlementaires, appèttées par des
+vain. Des nouvelles circulent, vraies, dusses, communiquées par les parlementaires, appèttées par des
 mobiles qui viennent rejoindre leur poi#% nées on ne
 sait où, partout, nulle part, dans l'air qfion respire:
 le roi Victor-Emmanuel arrive au secours la France;
@@ -1366,13 +1221,10 @@ le prince Charles, devant Metz, a demandé i*< armistice
 l'exode
 80,000 hommes, — verbe double sens qui échauffa
 également les optimistes et les pessimistes; grande
-victoire de Mac-Mahon à Chaumont, le kronprinz pri-
-sonnier; proclamation de la République; bataille du
-Mont-Valérfen, 160.000 Prussiens hors de combat. Pen-
-dant ce temps, le canon tonnait toujours du côté de
+victoire de Mac-Mahon à Chaumont, le kronprinz prisonnier; proclamation de la République; bataille du
+Mont-Valérfen, 160.000 Prussiens hors de combat. Pendant ce temps, le canon tonnait toujours du côté de
 Strasbourg: une sortie? une bataille, et Strasbourg
-débloquée? — On ne sait rien. Un troisième bombarde-
-ment, le août; un quatrième, le septembre; un
+débloquée? — On ne sait rien. Un troisième bombardement, le août; un quatrième, le septembre; un
 cinquième, le 25 novembre... On sait, maintenant; on
 sait que toutes les bonnes nouvelles étaient fausses;
 toutes les mauvaises, vraies. Uhrich, gouverneur de
@@ -1380,28 +1232,24 @@ Strasbourg, a rendre la place; Metz a capitulé; les
 Allemands sont vainqueurs, jusque sur la Loire... Le
 lundi 12 décembre, à midi, le commandant Taillant
 écrit au major de Giese: « Le trop grand élolgnement
-de l'armée française et la famine qui torture habi-
-tants, les blessés, les prisonniers de guerre, mais qui
+de l'armée française et la famine qui torture habitants, les blessés, les prisonniers de guerre, mais qui
 ne saurait nous dompter si nous étions seuls ici, ne
 nous permettent pas de continuer la lutte... » Phalsbourg
-avait tenu quatre mois... Les plénipotentiaires alle-
-mands et leur escorte arrivent devant la Porte de
+avait tenu quatre mois... Les plénipotentiaires allemands et leur escorte arrivent devant la Porte de
 France, l'officier, de son épée, frappe la porte qui
 s'ouvre, le poste allemand relève le poste français:
 tout était fini.
 ... Alors, on partit... A Phalsbourg comme ailleurs,
 les vainqueurs étaient entrés dans une vUle qui ne
 voulait pas d'eux. Phalsbourg n'était plus à la France;
-les Phalsbourgeois n'étaient plus chez eux dans Phals-
-bourg. L'article 2 du traité de paix était formel: on ne
+les Phalsbourgeois n'étaient plus chez eux dans Phalsbourg. L'article 2 du traité de paix était formel: on ne
 pourrait pas à la fois rester dans le territoire annexé,
 et rester Français. Sans doute, la prise de possession
 
 ne se manifesta pas Ici par de particulières rigueurs.
 Même, on ne lésina pas sur les indemnités: dégâts
 causés dans Phalsbourg parles bombes de l'assiégeant,
-autour de Phalsbourg par le tir de la défense, le fonc-
-tionnaire allemand régla tout, assez largement. A vrai
+autour de Phalsbourg par le tir de la défense, le fonctionnaire allemand régla tout, assez largement. A vrai
 dire, il ne connaissait pas grand chose, de la ville, ni
 de ses habitants, il était contraint, pour s'acquitter de
 sa besogne, de s'enquérir auprès de l'un, auprès de
@@ -1409,8 +1257,7 @@ l'autre, et les conseilleurs s'entendaient à faire payer le
 payeur: plus d'un qui arrivait inquiet à la boucherie
 Lutz, rue Mercière, où était installé le bureau de la
 perception, s'en retourna sa brouette pleine de pièces
-de cent sous, des pièces toutes neuves provenant des ver-
-sements français, un peu des cinq milliards, «autant de
+de cent sous, des pièces toutes neuves provenant des versements français, un peu des cinq milliards, «autant de
 repris»...Parfois même, innocemment on non, l'histoire
 ne le saurajamais, on embarrassa fortle pauvre homme:
 quelques-uns, qui figuraient encore sur les rôles, avaient
@@ -1421,8 +1268,7 @@ même réponse: « Au Père-Lachaise ». finit par
 demander où était ce Père-Lachaise, et pourquoi il
 attirait tant les Phalsbourgeois... Maigre vengeance,
 dont on riait le soir au café; mais non dépourvue de
-valeur symbolique. Ces vainqueurs étaient des étran-
-gers. Étrangers aux plaisanteries de la petite ville,
+valeur symbolique. Ces vainqueurs étaient des étrangers. Étrangers aux plaisanteries de la petite ville,
 mais aussi à sa langue, à son esprit, à toute sa vie.
 Point d'incidents graves ni bruyants; mais l'opposition
 du moi et du non-moi, et cela suffit; contre, les
@@ -1432,35 +1278,24 @@ an à l'État français pour participation aux frais de
 
 l'exode
 casernement; les Allemands, maintenant, demandent
-4.000 francs. Aujourd'hui, discussion avec la sous-
-préfecture: le nouvel instituteur catholique ne sait pas
+4.000 francs. Aujourd'hui, discussion avec la souspréfecture: le nouvel instituteur catholique ne sait pas
 le français, or, plus du tiers des élèves comprend
 pas un mot d'allemand, les deux autres tiers ne savent
 ni lire ni écrire celte langue... Au collège, on ne fut pas
 tout de suite aussi absolu. Fondé en 1806 par le maire
 Parmentier, qui avait obtenu à cet effet les bâtiments
-de l'ancien couvent des Capucins, le collège de Phals-
-bourg avait une grande réputation, non-seulement dans
+de l'ancien couvent des Capucins, le collège de Phalsbourg avait une grande réputation, non-seulement dans
 toute cette région lorraine, mais encore dans l'Alsace
 voisine: comme Phalsbourg était de belle et bonne
 langue française, beaucoup d'Alsaciens y envoyaient
-leurs enfants pour éviter qu'ils ne gardassent, en gran-
-dissant, l'accent des premières années, et il y avait tou-
-jours à Phalsbourg soixante ou quatre-vingts internes,
-Alsaciens; même quelques Allemands. Reviendraient-
-ils, si le français était proscrit du jour au lendemain?...
+leurs enfants pour éviter qu'ils ne gardassent, en grandissant, l'accent des premières années, et il y avait toujours à Phalsbourg soixante ou quatre-vingts internes,
+Alsaciens; même quelques Allemands. Reviendraientils, si le français était proscrit du jour au lendemain?...
 On continua d'y enseigner, non-seulement le français,
 mais encore, partiellement, en français. Pourtant, le
-non-moi apparaissait toujours, irritant, dans la surexci-
-tation générale de l'heure. Presque tous les professeurs
-étaient partis ou se préparaient à partir; les rempla-
-çants venaient, presque tous, d'Allemagne; un d'eux,
-qui avait vécu en France, le professeur de latin, com-
-prenait la situation,mais les autres!... Coups de férule,
-et Franzosenkopfl... je ne veux pas refaire des carica-
-tures connues, et qui ne sont pas toujours des carica-
-tures... Et puis, le professeur de mathématiques pro-
-nonçait virjule, — ce qui n'était qu'un accident, un
+non-moi apparaissait toujours, irritant, dans la surexcitation générale de l'heure. Presque tous les professeurs
+étaient partis ou se préparaient à partir; les remplaçants venaient, presque tous, d'Allemagne; un d'eux,
+qui avait vécu en France, le professeur de latin, comprenait la situation,mais les autres!... Coups de férule,
+et Franzosenkopfl... je ne veux pas refaire des caricatures connues, et qui ne sont pas toujours des caricatures... Et puis, le professeur de mathématiques prononçait virjule, — ce qui n'était qu'un accident, un
 prétexte à tumulte dans la classe, à moquerie en
 famille, — mais le professeur de latin prononçait
 
@@ -1479,20 +1314,15 @@ d'autres noms, d'autres faits venant occuper dans les
 esprits la place éminente, la prise des âmes par des
 traditions étrangères, hostiles... Oui, vraiment, tout les
 poussait dehors. Il y avait sans doute une philosophie
-dans l'article 2 du traité; rester Français dans Phals-
-bourg allemande, rude entreprise, peut-être... Alors,
-tout doucement, presque en cachette, on allait à Miltel-
-bronn, à une demi-heure de marche, chez le comptable
-de la carrière, ancien séminariste, passionné de géo-
-métrie, qui enseignait la terminologie française des
+dans l'article 2 du traité; rester Français dans Phalsbourg allemande, rude entreprise, peut-être... Alors,
+tout doucement, presque en cachette, on allait à Miltelbronn, à une demi-heure de marche, chez le comptable
+de la carrière, ancien séminariste, passionné de géométrie, qui enseignait la terminologie française des
 mathématiques; ou, à Phalsbourg même,chez le rabbin,
 qui redressait le dominous en dominus; puis, un beau
 malin, on partait pour Nancy, prêt à entrer au lycée,
-pur de tout germanisme, sans tare. Et les parents sui-
-vaient, dès qu'ils pouvaient.
+pur de tout germanisme, sans tare. Et les parents suivaient, dès qu'ils pouvaient.
 ... « Tout le monde est parti. » « Toute la société est
-partie. » « La ville est décapitée. » « Tout ce qui pou-
-vait partir, est parti. » Voilà les formules où se définit
+partie. » « La ville est décapitée. » « Tout ce qui pouvait partir, est parti. » Voilà les formules où se définit
 et se résume, dans la mémoire des témoins et de leurs
 fils, quarante ans après, la situation des années qui
 suivirent la guerre, et, de ces expressions, la dernière,
@@ -1503,10 +1333,7 @@ la moins précise ni la moins forte, lis s'en allèrent, un
 départ entraînant l'autre, les retraités, les bourgeois
 qui pouvaient « réaliser » rapidement ou qui avalent
 un peu d'argent devant enx, comme on dit; puis des
-paysans aussi,qui auraient continuer à vivre tran-
-quillement et qui — trente ou quarante familles — ven-
-dirent leurs terres, pour partir en Algérie, où le gouver-
-nement français et la «Société d'Haussonviile » leur en
+paysans aussi,qui auraient continuer à vivre tranquillement et qui — trente ou quarante familles — vendirent leurs terres, pour partir en Algérie, où le gouvernement français et la «Société d'Haussonviile » leur en
 offraient de nouvelles; des scribes et des manoeuvres,
 cinquante ou soixante introduits « au chemin de fer, à
 Paris par un des leurs, qui était déjà dans la place;
@@ -1524,18 +1351,13 @@ plus loin, à Lunéville ou à Baccarat... Un millier de
 personnes environ sont parties, sur trois mille à trois
 mille cinq cents que comptait Phalsbourg avec ses
 dépendances. Depuis, peu à peu, les vides ont été
-comblés: des gens sont venus d'alentour, la cam-
-pagne, se repliant sur la ville, de plus loin, d'au-
-delà du Rhin, employés de l'administration, sous-
-officiers rengagés; quelques boutiquiers aussi. Image
+comblés: des gens sont venus d'alentour, la campagne, se repliant sur la ville, de plus loin, d'audelà du Rhin, employés de l'administration, sousofficiers rengagés; quelques boutiquiers aussi. Image
 assez exacte de la population ainsi défaite et refaite:
 on trouve plus dans le Conseil municipal les noms
 
 qui y figuraient d'habitude, avant la guerre, — Bender,
 Hoffer, Antoni, Aron, Reeb..., — il se compose à
-peine pour la moitié de Phalsbourgeois de Phals-
-bourg, les autres étant des environs, un seul, d'Alle-
-magne... Éléments honorables, mais qui succèdent
+peine pour la moitié de Phalsbourgeois de Phalsbourg, les autres étant des environs, un seul, d'Allemagne... Éléments honorables, mais qui succèdent
 et ne remplacent pas. « Phalsbourg est décapitée. »
 Écoutez tous les anciens Phalsbourgeois, et tout de
 suite un mot célèbre Talleyrand vous revient à
@@ -1544,13 +1366,10 @@ petite ville: qui n'a pas vécu à Phalsbourg avant la
 guerre, n'a pas connu la douceur de vivre. Et ce n'est
 pas seulement parce que leur jeunesse est partie. De
 leur ville d'autrefois, qui avait une personnalité, une
-tradition, une âme, de celte atmosphère heureuse, intel-
-ligente et fine, qui enveloppait et pénétrait jusqu'aux
-plus modestes et les haussait à une manière d'aristo-
-cratie, il ne reste que le regret; de celte fierté militaire,
+tradition, une âme, de celte atmosphère heureuse, intelligente et fine, qui enveloppait et pénétrait jusqu'aux
+plus modestes et les haussait à une manière d'aristocratie, il ne reste que le regret; de celte fierté militaire,
 joyeuse, vaillante, — que la satisfaction, silencieuse et
-comme voilée, de suivre pardessus la mauvaise fron-
-tière, toujours sans avoir besoin l'Annuaire, les
+comme voilée, de suivre pardessus la mauvaise frontière, toujours sans avoir besoin l'Annuaire, les
 promotions de ceux qui sont partis, des Hotz, des
 Uhrich, des Brissé, des Teissier, des Hollender, des
 Pourtant, les portes de Louis XIV sont là, et les
@@ -1578,16 +1397,13 @@ donc elle vit... Non. Elle semble dormir, comme si elle
 vivait, encore. Ils s'y reconnaissent, mais ils ne la
 reconnaissent pas. Les remparts: pierre par pierre,
 presque tout a été transporté à Strasbourg, pour servir
-aux nouvelles fortifications de la ville! hommage invo-
-lontaire à la solidité des matériaux de Vauban, éco-
-nomie de prodigue, dont l'instigateur, si je ne me
+aux nouvelles fortifications de la ville! hommage involontaire à la solidité des matériaux de Vauban, économie de prodigue, dont l'instigateur, si je ne me
 trompe, est mort fou; le reste, morceaux de bastions et
 de demi-lunes, souvenirs dépareillés et fossiles, par où
 se précise avec peine à l'imagination la forme du passé
 disparu. Dans le collège désaffecté (sa « clientèle » était
 partie en France), on a installé une école normale; dans
-la caserne d'infanterie, un pénitencier: encore des suc-
-cessions qui ne sont pas des remplacements,utilisations
+la caserne d'infanterie, un pénitencier: encore des successions qui ne sont pas des remplacements,utilisations
 de locaux vacants pour un service départemental, —
 mais en marge de la ville. La caserne de cavalerie est
 restée caserne; même y apparaissent toujours, gravés
@@ -1595,9 +1411,7 @@ dans la pierre, des numéros de corridors qui ont un
 grand air d'épigraphie louis-quatorzienne; mieux encore,
 des mots français, assez fraîchement peints, ceux-là,
 mais dans un ordre singulier: Offizier-Pavillon... Et
-cela dit tout: la caserne est toujours caserne, Phals-
-
-bourg a toujours une garnison, mais on sait laquelle,
+cela dit tout: la caserne est toujours caserne, Phalsbourg a toujours une garnison, mais on sait laquelle,
 et, comme dit avec une énergique simplicité la langue
 populaire, le coeur n'y est plus...
 Vers 1870 vivait à Phalsbourg (on m'y a souvent
@@ -1614,24 +1428,19 @@ d'Algérie; alors, innocent heureux, il les servait, les
 fêtait, tolérait leurs bourrades, faisait chorus à leur
 verbe haut... Un jour,après quatre mois de tumulte qui
 l'avaient laissé tranquillement identique à lui-même,
-il vit arriver, billet de logement en main,... des chas-
-seurs de Brunswick. Quelle mystérieuse lueur dissipa
+il vit arriver, billet de logement en main,... des chasseurs de Brunswick. Quelle mystérieuse lueur dissipa
 soudain les fumées de son cerveau? A ceux-là rien ne
 fut permis. S'ils s'agitaient dans la petite comy. s'ils
 faisaient trop de bruit en jouant aux cartes, s'ils
 criaient, même s'ils riaient un peu fort, notre homme
-mettait un doigt sur ses lèvres et prononçait, correcte-
-ment: « On n'ose pasl »... Je n'ai jamais revu Phals-
-bourg sans penser à ce geste d'un simple... La ville est
+mettait un doigt sur ses lèvres et prononçait, correctement: « On n'ose pasl »... Je n'ai jamais revu Phalsbourg sans penser à ce geste d'un simple... La ville est
 silencieuse; et « l'on n'ose pas » troubler ce silence,
 quand on est Français, ni en sourire, ni en distraire sa
 pensée: dans Phalsbourg vivant, 11 y avait trop de
 France, et son silence est fait de trop de choses mortes,
 qui étaient françaises...
 
-Dans un même département français, deux sous-
-préfectures, l'une, ville industrielle, l'autre, ville mili-
-taire; la frontière, déplacée par la guerre de 1870-71,
+Dans un même département français, deux souspréfectures, l'une, ville industrielle, l'autre, ville militaire; la frontière, déplacée par la guerre de 1870-71,
 les séparant soudain; la répercussion du fait brutal sur
 leur caractère ou leur développement; la transfusion
 partielle de l'une dans l'autre et l'intimité étroite entre
@@ -1647,7 +1456,7 @@ dire, on rencontre dans la ville les vestiges d'un
 
 (1) Cf. ScnoerrLiN, AlsaUa tlluslrata, tome II, page 4(:
 amoenttate sttus, tel praestanlla munltlonts, nomen suum
-fidelur »; — et Mémoires de deux voyages, op. dl., page: a (Test
+fidelur — et Mémoires de deux voyages, op. dl., page: a (Test
 une des clefs de l'Alsace, et la situation avantageuse de son
 château lui a fait donner le nom de Belfort. »
 
@@ -1662,15 +1471,12 @@ cardinal, puis exploitée par ses héritiers. Aujourd'hui
 encore, si l'usine d'ouire-Vosgcs qui s'est installée, il y
 a vingt-cinq ans, dans les débris de l'établissement de
 Mazarin, jouit d'un droit de prise d'eau d'un mètre
-dans l'étang de Malsaussé, c'est en vertu d'une autori-
-sation consentie, le 2 juillet 1671, par les propriétaires
+dans l'étang de Malsaussé, c'est en vertu d'une autorisation consentie, le 2 juillet 1671, par les propriétaires
 de l'étang, à « Mgr Armand Charles, duc de Mazarini,
 pair de France et comte de Belfort »... Mais la forge de
 Mazarin ne fut jamais qu'un bien de famille. Belfort
-était ville de guerre, et le resta. « Alsatiae et Lolha-
-ringiae securitas »: de ce litre l'honorait déjà, peu
-après la paix de Westphalie, une médaille commémo-
-rative de l'entrée des Français. Sous ces murs, dans
+était ville de guerre, et le resta. « Alsatiae et Lolharingiae securitas de ce litre l'honorait déjà, peu
+après la paix de Westphalie, une médaille commémorative de l'entrée des Français. Sous ces murs, dans
 une maison du Valdoio, Turenne dormit sa dernière
 nuit avant son intrépide chevauchée de l'autre côté des
 Vosges, dont les Impériaux devaient apprendre, trop tard
@@ -1679,30 +1485,22 @@ pour eux, l'étonnante nouvelle. Quelques mois après, en
 il y revint, pendant près de trente ans, jusqu'à la fin de
 sa carrière, bâtissant sur l'heure un Belfort nouveau,
 ville et remparts, mais rêvant plus grandiose encore,
-puisque le camp retranché de 1792 ne fut que la réalisa-
-lion d'nn projet de Vauban, abandonné par Louvois
+puisque le camp retranché de 1792 ne fut que la réalisalion d'nn projet de Vauban, abandonné par Louvois
 faute d'argent. Sans trêve, au cours du dix-huitième
-siècle, dans Belfort, chantier permanent, les construc-
-tions militaires se pressent le long du mur d'enceinte,
+siècle, dans Belfort, chantier permanent, les constructions militaires se pressent le long du mur d'enceinte,
 
 « Quartier du Moulin « Quartier de l'Hôpital
 « Quartier à droite de la Porte de France « Quartier
-à gauche de la Porte de France pavillon pour les offi-
-ciers de cavalerie, pavillon pour les officiers d'infan-
-terie, arsenal, manège pour la garnison... Un après-
-midi d'octobre 1790, contre les officiers du Royal-
+à gauche de la Porte de France pavillon pour les officiers de cavalerie, pavillon pour les officiers d'infanterie, arsenal, manège pour la garnison... Un aprèsmidi d'octobre 1790, contre les officiers du Royal-
 Liégeois dont les cris vouaient « au diable la nation/»,
 la résistance civique fut menée par 1' « inspecteur des
-bâtiments du district un Strasbourgeois de nais-
-sance, carrure et coeur de soldat: Ktéber; en 1814» dans
+bâtiments du district un Strasbourgeois de naissance, carrure et coeur de soldat: Ktéber; en 1814» dans
 la ville bloquée quatre mois, commandant Legrand,
 malgré toutes les sommations, refuse de se rendre; en
 le général Lccourbe, par « dix combats livrés ou
 soutenus défend le sol pied à pied, « des portes
-d'IIuningiie aux murs de Belfort» (1); sous la Restaura-
-tion, un colonel et quelques lieutenants complotent au
-nom de la cocarde tricolore... Bouillonnements de cer-
-veaux militaires, belle tenue à l'ennemi: Belfort a
+d'IIuningiie aux murs de Belfort» (1); sous la Restauration, un colonel et quelques lieutenants complotent au
+nom de la cocarde tricolore... Bouillonnements de cerveaux militaires, belle tenue à l'ennemi: Belfort a
 connu tous les cliquetis des villes de garnison, tous les
 tumultes des places de guerre.
 
@@ -1711,8 +1509,7 @@ fort, dans ses armes point de « tour pavillonnée d'or,
 giroucltéc d'argent mais, simplement, une roue de
 moulin, agreste, industrieuse: Mulhouse, Mulnhusen,
 de son vieux nom germanique, un moulin entouré de
-maisons. Jusqu'en 1845, la force armée n'y fut repré-
-sentée que par un maréchal des logis de gendarmerie,
+maisons. Jusqu'en 1845, la force armée n'y fut représentée que par un maréchal des logis de gendarmerie,
 
 (1) Ordre du jour du général Lccourbe, du juillet
 
@@ -1727,46 +1524,35 @@ contre la maison d'Autriche; d'abord, membre de la
 Décapote alsacienne, mais souvent abandonnée à ses
 propres forces parce qu'elle était perdue à l'extrémité
 du pays, puis alliée aux cantons suisses, mais plus
-d'une fois en lutte avec eux pour des questions de reli-
-gion ou de juridiction, — à Mulhouse s'était développé
+d'une fois en lutte avec eux pour des questions de religion ou de juridiction, — à Mulhouse s'était développé
 un esprit proprement mulhousien, comptant sur soi
 beaucoup plus que sur les autres, d'une indépendance
 rude à manier parfois, même quand le coeur se donne,
-et qui ne s'amollit nullement, au contraire! dans l'exis-
-tence heureuse et large qu'elle allait devoir à son
+et qui ne s'amollit nullement, au contraire! dans l'existence heureuse et large qu'elle allait devoir à son
 On sait ce que fut ce magnifique développement.
 Déjà, un touriste du dix-septième siècle, ayant les
-Mulhousiens, disait d'eux: « Ce sont tous gens de com-
-merce et de métiers, tels qu'ils sont dans les répu-
-bliques démocratiques (1) mais, jusqu'au milieu du
+Mulhousiens, disait d'eux: « Ce sont tous gens de commerce et de métiers, tels qu'ils sont dans les républiques démocratiques (1) mais, jusqu'au milieu du
 dix-huitième, ce ne furent que petit commerce et petits
-métiers: des draps communs et des cuirs pour les cam-
-pagnes environnantes, production limitée par la pru-
-dence du « Magistrat » (2) et la jalousie des corpora-
-tions. Un jour de 1746, une association se forma, qui
+métiers: des draps communs et des cuirs pour les campagnes environnantes, production limitée par la prudence du « Magistrat » (2) et la jalousie des corporations. Un jour de 1746, une association se forma, qui
 allait déterminer pour Mulhoese toute la suite de son
 
 (1) Mémoires de deux voyages, op. cit., page
 
 histoire. J.-J. Schmaltzcr, un jeune Mulhousien qui avait
 l'indienne, Dollfu3, peintre, et Samuel Koechlin,
-ancien négociant, le « capitaliste » de l'affaire, s'associè-
-rent pour la fabrication des toiles peintes, sous la
+ancien négociant, le « capitaliste » de l'affaire, s'associèrent pour la fabrication des toiles peintes, sous la
 raisoa sociale Koechlin, Schmaltzcr et C*. Ce fut l'acte
 de fondation de l'industrie mulhousienne. Analogues au
 petit établissement de la rue Fritschmann (i), quinze
-maisons, en vingt ans, se créèrent, puis, successive-
-ment, comme si elle poursuivait le grand dessein de se
+maisons, en vingt ans, se créèrent, puis, successivement, comme si elle poursuivait le grand dessein de se
 suffire à soi-même, ambitieuse et logique, l'industrie
 mulhousienne ne se contenta pas d'imprimer sur étoffes,
-elle voulut produire aussi l'étoffe sur laquelle elle impri-
-mait, les couleurs qui servaient à l'impression, les
+elle voulut produire aussi l'étoffe sur laquelle elle imprimait, les couleurs qui servaient à l'impression, les
 machines pour fabriquer l'étoffe: admirable ensemble
 d'industries textiles, chimiques, mécaniques, qui a fait
 Les bouleversements politiques eux-mêmes se mirent
 à son service. Pendant la Révolution, du jour où la
-République de Mulhouse, alors alliée de la Confédéra-
-tion helvétique, se fut réunie à la France (1798), toutes
+République de Mulhouse, alors alliée de la Confédération helvétique, se fut réunie à la France (1798), toutes
 les entraves tombèrent: plus de corporations pour
 limiter sa production, plus de douanes françaises
 autour d'elle pour arrêter ses marchandises au pas?
@@ -1787,8 +1573,7 @@ causes, politiques ou sociales, locales ou générales, ne
 marqnèrent jamais dans le développement Mulhouse
 que des temps d'arrêt très courts, suivfc «le reprises
 immédiates, et l'on peut dire que le développement de
-Mulhouse français fut aussi régulier qu'extraordinai-
-lors de la réunion à la France), millions de francs
+Mulhouse français fut aussi régulier qu'extraordinailors de la réunion à la France), millions de francs
 de salaires, pour le seul textile, 10 millions de francs
 d'affaires, rien que pour les machines, et, dirigeant,
 animant tout cet organisme, une bourgeoisie puissante
@@ -1807,8 +1592,7 @@ d'égoïstes: ils n'étaient pas riches depuis longtemps,
 ils étaient du pays, connaissaient leurs ouvriers, étalent
 connus d'eux, tous Mulhousiens: d'où la création de
 « cités ouvrières d'écoles nombreuses, primaires et
-techniques, du Cercle Mulhousien, du Crédit popu-
-laire... Ils avaient fait de leur Mulhouse une ville
+techniques, du Cercle Mulhousien, du Crédit populaire... Ils avaient fait de leur Mulhouse une ville
 industrielle-type, et devant eux s'ouvraient les « longs
 
 Survint la guerre. Dans Mulhouse sans remparts et
@@ -1817,8 +1601,7 @@ sans troupes, les premiers Allemands entrèrent le
 après cent trois jours de siège, dont soixante-treize de
 bombardement, et la garnison française ne partant
 qu'en vertu d'un ordre du gouvernement français, sans
-capituler. Mais, ville ouverte ou ville fortifiée, n'allaient-
-elles pas toutes deux subir le même sort? Sans doute,
+capituler. Mais, ville ouverte ou ville fortifiée, n'allaientelles pas toutes deux subir le même sort? Sans doute,
 puisque Belfort et Mulhouse étaient également Alsace.
 Belfort, pourtant, fut sauvé. Trouée de Belfort:
 dans celte image populaire, — « faite avec l'instinct
@@ -1827,13 +1610,11 @@ jours plus tard à l'Assemblée Nationale, (1) — Thiers
 revoyait toutes les invasions passées, prévoyait tout le
 péril à venir; et ainsi, dans l'immensité même du
 désastre, l'importance de Belfort avait encore grandi:
-roc solide au-dessus des décombres, sentinelle indis-
-pensable aux portes de la France diminuée. « Lorsqu'on
+roc solide au-dessus des décombres, sentinelle indispensable aux portes de la France diminuée. « Lorsqu'on
 n'a pas Strasbourg, il faut avoir Belfort » (2)... Et puis,
 la défense de Denfert-Rochereau ayant donné à Belfort
 un prestige incomparable, permettrait sans doute au
-représentant de la France de parler avec plus d'auto-
-rité: Thlcrs aimait à rappeler le mot de Napoléon à
+représentant de la France de parler avec plus d'autorité: Thlcrs aimait à rappeler le mot de Napoléon à
 Talteyrand, qu'on félicitait un jour devant l'Empereur
 pour quelque acte diplomatique heureux: « Convenez,
 
@@ -1866,8 +1647,7 @@ dans ses frontières Eh bien, qu'on la prenne, qu'on
 l'administre, qu'on y perçoive les impôts! Nous nous
 retirerons, et vous aurez à la gouverner, en présence
 de l'Europe, si elle le permet... » (2) Lutte tenace, de
-part et d'autre, passionnée. Il fallait convaincre, sur-le-
-champ, Bismarck, puis, sans perdre haleine, Mollke,
+part et d'autre, passionnée. Il fallait convaincre, sur-lechamp, Bismarck, puis, sans perdre haleine, Mollke,
 Guillaume. Bismarck finit par céder, mais, comme on
 dit, donnant, donnant. Thiers garderait son Belfort,
 
@@ -1876,8 +1656,7 @@ dit, donnant, donnant. Thiers garderait son Belfort,
 mais Bismarck y gagnerait, lui, son entrée des troupes
 dans Paris, (i) qui lui avait toujours été refusée
 jusqu'ici, mais à quoi il tenait comme à l'un « des fruits
-les plus précieux de notre victoire »: ainsi, il ne crain-
-drait plus, « rentré chez lui, de rencontrer un pauvre
+les plus précieux de notre victoire ainsi, il ne craindrait plus, « rentré chez lui, de rencontrer un pauvre
 diable marchant sur une seule jambe, et qui dirait:
 « La jambe que j'ai laissée sous les murs de Paris
 me donnait le droit de compléter ma conquête; c'est
@@ -1886,10 +1665,8 @@ empêché » (2)... A ce prix (3), Belfort était sauvé,
 mais seulement Belfort, « la ville et ses fortifications,
 avec un rayon qui sera déterminé ultérieurement
 disait l'article i*r des Préliminaires. De concessions en
-concessions, de discussions en discussions, qui se pro-
-longèrent jusqu'à la signature du traité définitif,-et
-toujours donnant, donnant, les Allemands ici, les Fran-
-çais en Lorraine, — ce rayon, ce fut tout le canton de
+concessions, de discussions en discussions, qui se prolongèrent jusqu'à la signature du traité définitif,-et
+toujours donnant, donnant, les Allemands ici, les Français en Lorraine, — ce rayon, ce fut tout le canton de
 Belfort, celui de Délie, celui de Giromagny, la route de
 Giromagny à Remiremont par le Ballon d'Alsace sur
 tout son parcours, en un mot, tout ce qui s'appelle
@@ -1903,8 +1680,7 @@ accordée pour Belfort (Article des Préliminaires).
 le mars, une partie de Paris (entre la Seine et le faubourg
 Saint-Honoré, jusqu'aux Tuileries); mais que, l'occupation ne
 devant durer que jusqu'à la ratification des Préliminaires et
-celle-ci ayant été votée le même jour, ce premier corps d'occupa-
-tion fut le seul et qu'il évacua la partie occupée, non sans que
+celle-ci ayant été votée le même jour, ce premier corps d'occupation fut le seul et qu'il évacua la partie occupée, non sans que
 Bismarck en avouât son désappointement,avant que l'empereur
 Guillaume pût effectuer son entrée solennelle qui devait avoir lieu
 
@@ -1917,8 +1693,7 @@ Thann, de Wesseriing, tout ce qui pouvait partir s'est
 entraient à la mairie, inconnus, sans amis; c'est
 toujours en présence des mêmes témoins automatiques
 que l'acte est dressé, Joseph Piquet, concierge, et
-Célestin Bonrquard, employé, ou Eugène Clerc, institu-
-teur. Ils apposaient au bas de l'acte une signature
+Célestin Bonrquard, employé, ou Eugène Clerc, instituteur. Ils apposaient au bas de l'acte une signature
 parfois difficile, mais qui ne fut jamais hésitante, puis
 ils s'en allaient fidèles, et désemparés. 1.488 options,
 rien que du 1*' avril au septembre 1872, plus
@@ -1930,11 +1705,9 @@ des terres, et qui croyaient que leur établissement en
 
 (1) La déclaration de transfert de domicile n'était pas Voption.
 L'option était l'acte par lequel, à l'endroit même où il était établi,
-l'Alsacien (ou Lorrain) déclarait vouloir tester Français; la décla-
-ration de transfert, celui par lequel, en arrivant en France, il
+l'Alsacien (ou Lorrain) déclarait vouloir tester Français; la déclaration de transfert, celui par lequel, en arrivant en France, il
 déclarait vouloir y transférer effectivement son domicile, transfert
-effectif sans lequel l'option n'était pas valable aux yeux de l'Alle-
-magne. Mais, dans le désarroi du moment, eut bien des
+effectif sans lequel l'option n'était pas valable aux yeux de l'Allemagne. Mais, dans le désarroi du moment, eut bien des
 confusions: beaucoup d'optants habitant l'Alsace se contentèrent
 d'opter au lieu de leur domicile, sans le transférer ensuite en
 France; d'autres, au contraire, l'y transférèrent réellement, mais
@@ -1942,8 +1715,7 @@ sans accomplir régulièrement les formalités de l'option; d'autres,
 enfin, vinrent opter en France, quand la frontière était voisine,
 et s'y transférer en même temps, puis, au bout d'un an ou deux,
 revinrent en Alsace, convaincus que les quelques mois pendant
-lesquels ils avalent été réellement domiciliés en France, sauvegar-
-deraient pour toujours aux yeux des Allemands leur qualité de
+lesquels ils avalent été réellement domiciliés en France, sauvegarderaient pour toujours aux yeux des Allemands leur qualité de
 Français; — sources de difficultés sans nombre, et causes Initiales
 de certaines situations extraordinairemenlcompliquées.
 
@@ -1960,17 +1732,14 @@ maintenant il veut rejoindre les autres, n'a pas d'argent
 pour le voyage; là, c'est le bordereau d'expédition
 d'un Chemin de croix que les Alsaciens de Mulhouse
 offrent à leurs compatriotes établis à AIn-Fékan, près
-de Mascara; là, les papiers d'un ouvrier de Grandvil-
-lars, que l'autorité allemande détient à Altkirch comme
+de Mascara; là, les papiers d'un ouvrier de Grandvillars, que l'autorité allemande détient à Altkirch comme
 n'ayant pas satisfait à la loi militaire, d'un autre, qui
 habite Rougemont, (2) «incorporé de force dans l'armée
 allemande, quoique ayant opté régulièrement pour la
 nationalité française ». — Puis, les engagements,
 pour la seule période du 27 septembre 1872 au 19 février
 Koehl, Bogen, Goetschy, Krebs, Higelin, Gross, Ziegler,
-"Wolff, Schwindenhammer, de Bennwihr, de Wlnt-
-zenheim,deThann, de Cemay, de Molsheim, de Nleder-
-morschwiller, de Pfastatt, de Soulfz, de Bergheim, de
+"Wolff, Schwindenhammer, de Bennwihr, de Wlntzenheim,deThann, de Cemay, de Molsheim, de Nledermorschwiller, de Pfastatt, de Soulfz, de Bergheim, de
 
 (a) Rougemont-le-Château, dont le Courvoister, de GrandvU-
 lars, disait, dans un rapport manuscrit sur le mouvement de la
@@ -1980,18 +1749,15 @@ Saper /lamina Babylonls des Hébreux déportés. »
 
 l'exode
 Markolsheim, — au 7* dragons, au 4' hussards, au 18*,
-3* zouaves, au au 8* chasseurs à cheval, au chas-
-seurs d'Afrique, au cuirassiers: semble qu'on voie
+3* zouaves, au au 8* chasseurs à cheval, au chasseurs d'Afrique, au cuirassiers: semble qu'on voie
 défiler tous les régiments de France, et toujours à leur
 rang malgré la séparation, répondant « Présent! » par
 la voix d'un des leurs, toutes les villes, tous les
-villages d'Alsace... — Puis, plus tard, les « réintégra-
-tions » dans la qualité de Français de tous ceux qui
+villages d'Alsace... — Puis, plus tard, les « réintégrations » dans la qualité de Français de tous ceux qui
 étaient restés d'abord de l'autre côté des Vosges, mais
 qui « rentraient » en France, et qui, à la question:
 Motif du défaut d'option, faisaient toujours les mêmes
-réponses: « trop jeune et sa mère était dans l'indi-
-gence « était mineur à l'époque et personne n'a opté
+réponses: « trop jeune et sa mère était dans l'indigence « était mineur à l'époque et personne n'a opté
 pour lui « n'a quitter ses frères et soeurs en bas
 âge — sauf celle-ci d'un journalier de Rixheim,
 éloquent sans le savoir, et qui ne se doutait sûrement
@@ -1999,8 +1765,7 @@ pas de tout ce que sa déclaration contenait d'histoire
 de son pays: il n'avait pas opté en 1871, parce qu'il
 « espérait que l'Alsace redeviendrait bientôt française ».
 Défilé héroïque et lamentable. Par Belfort, morceau
-d'Alsace resté français, beaucoup des misères, beau-
-coup des grandeurs de l'exode ont passé. Un jour vint,
+d'Alsace resté français, beaucoup des misères, beaucoup des grandeurs de l'exode ont passé. Un jour vint,
 où quelque chose de la meilleure Alsace s'y fixa: une
 partie de l'industrie de Mulhouse, de son activité, de
 sa puissance, et de son âme même.
@@ -2030,16 +1795,13 @@ broches et de métiers que toutes celles du Zollverein
 réunies. (1) Aux craintes allemandes correspondaient
 les illusions françaises: plusieurs des orateurs qui, à
 
-(t) Il donnait (séance du Reichstig du 13 avril 1831, dans VIndus-
-triel alsacien du d'après le Journal de Genève) les chiffres
+(t) Il donnait (séance du Reichstig du 13 avril 1831, dans VIndustriel alsacien du d'après le Journal de Genève) les chiffres
 suivants: pour l'Alsace, a.i;o.ooo broches, métiers; pour.le
 Zollverein, 1.560.000 broches, 48.000 métiers. L'orateur ne semble
 pas, pour l'Alsace du moins, s'être sensiblement écarté de la
-vérité. Les chiffres totaux donnés par Aug. Dollfus (Notes stati-
-stiques...), se rapportant à la même époque, sont de 1.834.833broches
+vérité. Les chiffres totaux donnés par Aug. Dollfus (Notes statistiques...), se rapportant à la même époque, sont de 1.834.833broches
 et 5t.3oo métiers (Cf. également O. Relier et L. Lants, op. cit.).
-Une comparaison absolument précise serait, du reste, très diffi-
-cile à établir, les auteurs n'indiquant pas toujours si leurs calculs
+Une comparaison absolument précise serait, du reste, très difficile à établir, les auteurs n'indiquant pas toujours si leurs calculs
 s'appliquent au colon seul ou au colon et à la laine ensemble, aux
 seules broches filer ou également aux broches de retordage.
 On admet généralement que l'industrie colonnlère mulhousienne
@@ -2050,30 +1812,24 @@ l'exode
 l'Assemblée Nationale, prirent part aux discussions sur
 la ratification du traité, le général Chareton, Raoul
 Duval, Buffet, soulignèrent celte situation, parfois non
-sans emphase: l'Allemagne s'apercevait déjà « cruelle-
-ment que ces deux millions d'Alsaciens produisent à
-peu près autant que ses quarante millions d'Alle-
-mands »...; « concurrence ruineuse»...; « robe de Nessus
+sans emphase: l'Allemagne s'apercevait déjà « cruellement que ces deux millions d'Alsaciens produisent à
+peu près autant que ses quarante millions d'Allemands »...; « concurrence ruineuse»...; « robe de Nessus
 attachée aux flancs de l'Allemagne »... (i)
 Ces illusions étaient trop belles: les Mulhousiens ne
-les partageaient point, ou ne les partagèrent pas long-
-temps. Plusieurs « cotonniers » attentifs et qui ne se
+les partageaient point, ou ne les partagèrent pas longtemps. Plusieurs « cotonniers » attentifs et qui ne se
 payaient pas de mots, étant allés en Allemagne pour
 y étudier le terrain nouveau, n'en revinrent pas sans
 appréhension: la main-d'oeuvre y était moins coûteuse,
 les ouvriers vivaient d'un peu de fromage et de café,
 touchaient franc par jour (au lieu de 3 francs ou
 3 francs à Mulhouse), les patrons, pourvu qu'Us fussent
-actifs et entreprenants, même s'ils n'avaient pas d'ar-
-gent, commençaient à en trouver. Aussi bien les fila-
-tours et tisseurs ne représentaient pas toute l'industrie
+actifs et entreprenants, même s'ils n'avaient pas d'argent, commençaient à en trouver. Aussi bien les filatours et tisseurs ne représentaient pas toute l'industrie
 mulhousienne; et, pour d'autres, la situation n'était pas
 moins grave, ou l'était plus encore. Les constructeurs
 de machines n'avaient peut-être rien à craindre en ce
 qui concernait les machines pour l'industrie textile,
 spécialité extrêmement perfectionnée, et pour laquelle
-toute la concurrence venait d'Angleterre, non d'Alle-
-magne; mais ils s'étaient appliqués à produire d'autres
+toute la concurrence venait d'Angleterre, non d'Allemagne; mais ils s'étaient appliqués à produire d'autres
 machines que le métier de tissage: les locomotives,
 par exemple, et, pour celles-ci, désormais, l'Alsace,
 ayant deux centres puissants (Graffenstaden, près de
@@ -2083,23 +1839,17 @@ considérable par rapport à l'Empire allemand, qui
 avait déjà Cliemnilz, Berlin, Esslingen, Elbing, Cassel.
 Aux « indienneurs surtout, quoique de leur industrie
 fût née toute l'industrie mulhousienne, l'illusion était
-impossible, car un double danger menaçait, immédiate-
-ment, leur fabrication et leurs débouchés.
-L'impression, en effet, était, à Mulhouse, une indus-
-trie de luxe et de goût, à laquelle convenait admirable-
-ment la clientèle française; l'Allemagne, au contraire,
+impossible, car un double danger menaçait, immédiatement, leur fabrication et leurs débouchés.
+L'impression, en effet, était, à Mulhouse, une industrie de luxe et de goût, à laquelle convenait admirablement la clientèle française; l'Allemagne, au contraire,
 était trop pauvre alors pour fournir aux étoffes peintes
 à Mulhouse des acheteurs suffisamment nombreux; de
-ce chef, on pouvait prévoir une consommation beau-
-coup moindre, ou la nécessité d'une transformation
+ce chef, on pouvait prévoir une consommation beaucoup moindre, ou la nécessité d'une transformation
 complète des produits. D'autre part, pour tout ce qui
-est impression, teinture, blanchiment, les Vosges se-
-raient désormais une barrière infranchissable cuire les
+est impression, teinture, blanchiment, les Vosges seraient désormais une barrière infranchissable cuire les
 centres tissage de leur versant occidental elle grand
 centre de teinture, de blanchiment, d'impression de
 leur versant oriental. A ne prendre de cette situation
-complexe qu'une vue générale, on peut dire que Mul-
-house, avant la guerre, filait le coton, l'envoyait pour
+complexe qu'une vue générale, on peut dire que Mulhouse, avant la guerre, filait le coton, l'envoyait pour
 élre tissé sur le côté lorrain des Vosges, recevait le
 tissu en retour, pour le blanchiment, la teinture et
 l'impression, les deux versants des Vosges -formant
@@ -2111,29 +1861,23 @@ Y Est nouveau comme dit le comité industriel siégeant
 l'exode
 l'Est, du 14 mai 1871 (1), — l'Est nouveau était privé de
 cette « branche complémentaire » de son activité, les
-industries « finisseuses » du versant alsacien ne travail-
-leraient plus pour la région française voisine, ne
-feraient plus travailler par elle. Les diplomates pou-
-vaient bien ménager une période transitoire (2), pour
+industries « finisseuses » du versant alsacien ne travailleraient plus pour la région française voisine, ne
+feraient plus travailler par elle. Les diplomates pouvaient bien ménager une période transitoire (2), pour
 l'importation des produits alsaciens en France, pour
 l'admission temporaire en Alsace des produits français
 destinés à y recevoir un complément de main-d'oeuvre;
 mais, au terme de ce délai, la séparation économique
 n'en était pas moins inéluctable, comme l'autre.
-Ainsi, un terrain tout à fait étranger, où la produc-
-tion alsacienne arriverait en surcharge, où la place lui
-serait « disputée avec acharnement disait le secré-
-taire de la Société Industrielle dans son rapport de
+Ainsi, un terrain tout à fait étranger, où la production alsacienne arriverait en surcharge, où la place lui
+serait « disputée avec acharnement disait le secrétaire de la Société Industrielle dans son rapport de
 1872; pour l'induslrie-mère, l'impression, point de
 concurrence, mais l'immense atelier vosgien coupé en
 deux, et point de marché: le traité récent était, on le
 voit, gros de périls pour l'avenir.
 A l'inquiétude, au découragement de Mulhouse,
 Belfort s'offrait comme une espérance de renouveau (3),
-Belfort que son passé n'avait nullement préparé à rece-
-voir l'industrie mulhousienne, où les Mulhousiens ne
-trouveraient point de ressources particulièrement inté-
-ressantes, ni main-d'oeuvre, ni qualité ou quantité de
+Belfort que son passé n'avait nullement préparé à recevoir l'industrie mulhousienne, où les Mulhousiens ne
+trouveraient point de ressources particulièrement intéressantes, ni main-d'oeuvre, ni qualité ou quantité de
 l'eau, ni centre d'affaires, où rien, enfin, ne les attirait,
 
 (1) Publiée dans l'Industriel Alsacien du 90 mai 1831.
@@ -2143,8 +1887,7 @@ fort sont particulièrement topiques, mais on retrouve Mulhouse
 dans tout le développement Industriel du versant occidental des
 Vosges depuis la guerre (voir plus loin, pages et suivantes).
 
-sinon que Belfort, c'était la France à cinquante kilo-
-mètres de chez eux: un autre Mulhouse que déléguerait
+sinon que Belfort, c'était la France à cinquante kilomètres de chez eux: un autre Mulhouse que déléguerait
 Mulhouse « annexé » pour le représenter dans l'Est
 nouveau. Deux des plus grands établissements de
 Mulhouse, fil à coudre et constructions mécaniques,
@@ -2159,18 +1902,14 @@ indispensable de leur budget, c'est le retordage du fil
 qui se chargea de le fournir. Puis, d'autres maisons
 Transfert purement économique? Sec et simple
 calcul, désir de vendre sur deux marchés au lieu d'un?
-Non point. Mulhouse libéral, qui avait regimbé rude-
-ment contre la Restauration, et, plus tard, dit un
+Non point. Mulhouse libéral, qui avait regimbé rudement contre la Restauration, et, plus tard, dit un
 Colmarien qui ne l'aimait point, « partagé avec une
 seule autre ville de France le triste honneur d'un vote
 contraire au plébiscite » (1), Mulhouse indépendant,
-Mulhouse républicain, Mulhouse ingouvernable, Mul-
-house était profondément, passionnément français. Les
+Mulhouse républicain, Mulhouse ingouvernable, Mulhouse était profondément, passionnément français. Les
 Mulhousiens venaient de justifier, une fois de plus, la
-réponse que Nicolas Koechlin avait faite en 1814 à Napo-
-léon, lorsque l'Empereur lui avait parlé un peu brusque-
-ment de ces « contrebandiers » de Mulhouse, de ces
-« fabricants qui avaient amassé de la fortune »: — « Oui,
+réponse que Nicolas Koechlin avait faite en 1814 à Napoléon, lorsque l'Empereur lui avait parlé un peu brusquement de ces « contrebandiers » de Mulhouse, de ces
+« fabricants qui avaient amassé de la fortune — « Oui,
 
 l'exode
 Sire, nous avons amassé de la fortune, mais nous
@@ -2186,8 +1925,7 @@ noms de l'industrie mulhousienne, les petits aussi, ceux
 des faubourgs comme ceux de la Bourse, se retrouvent
 sur les contrôles de la garde mobile, des francs-tireurs,
 de la Légion d'Alsace et Lorraine formée à Lyon. Le
-4* bataillon de la Mobile du Haut-Rhin, recruté spécia-
-lement dans l'arrondissementde Mulhouse, avait sa
+4* bataillon de la Mobile du Haut-Rhin, recruté spécialement dans l'arrondissementde Mulhouse, avait sa
 belle part de péril et d'honneur à Bellegarde, à Beaune-
 Ia-Rolande, à Villcrsexcl, à Héricourt. Tout le monde
 se rappelait, à Mulhouse, les canons braqués sur trois
@@ -2203,16 +1941,14 @@ allemand au Conseil municipal, déclarant, dès le
 ne pas lâcher l'Alsace, je n'ai d'autre mission que
 d'administrer le Haut-Rhin dans le sens son annexion
 
-prochaine... » Malgré tout, ils avaient, eux aussi, pen-
-dant la discussiondes Préliminaires, envoyé à Versailles
+prochaine... » Malgré tout, ils avaient, eux aussi, pendant la discussiondes Préliminaires, envoyé à Versailles
 des délégués qui tentèrent d'agir, sur M. Thiers, sur
 M. de Bismarck. Même, pendant quelques jours, le bruit
 courut à Mulhouse que la ville deviendrait ville neutre,
 ou qu'elle rentrerait dans la Confédération helvétique,
 moyennant quelques millions que les grands industriels
 intilhousiens auraient tôt fait de souscrire, (i)
-Imaginations, fausses joies. Le traité définitif confir-
-mait purement et simplement les Préliminaires... Les
+Imaginations, fausses joies. Le traité définitif confirmait purement et simplement les Préliminaires... Les
 Mulhousicns étaient « sujets allemands mais ils
 fondèrent la Ligue d'Alsace, pour s'affirmer « Français,
 malgré tous les protocoles qui voudraient leur dénier
@@ -2225,8 +1961,7 @@ France se répandit comme un éclair dans toute l'Alsace, mais, à
 ce jour, cet espoir parait s'être évanoui. Je ne vous répéterai pas
 tous les on-dit qui ont circulé à ce sujet: quelques-uns parlaient
 encore de neutralité, d'autres prétendaient que Mulhouse, en sa
-qualité de ville libre et alliée de la Suisse jusqu'en obtien-
-drait d'entrer, comme (îenève en dans la Confédération,
+qualité de ville libre et alliée de la Suisse jusqu'en obtiendrait d'entrer, comme (îenève en dans la Confédération,
 moyennant quelques millions qui seraient vite souscrits par nos
 grands industriels, etc. Ce qui a donné lieu à ces rumeurs, ce
 sont, en premier lieu, les démarche*, des manufacturiers allemands
@@ -2245,14 +1980,12 @@ reviendraient, la ville de Mulhouse voudrait-elle rester incorporée
 
 l'exode
 protestataires, Hajffcly, puis Jean Dollfus. Ils étaient
-« sujets allemands »; mais ils concouraient à tous les
+« sujets allemands mais ils concouraient à tous les
 efforts que faisait la patrie pour se relever, pour
 effacer les traces du désastre. Les braves gens se
-pressaient à la Caisse d'épargne, reliraient leurs écono-
-mies pour participer à la libération du territoire. Sur
+pressaient à la Caisse d'épargne, reliraient leurs économies pour participer à la libération du territoire. Sur
 les listes de souscription pour la reconstruction du
-Palais de la Légion d'Honneur, incendié-par la Com-
-mune, les signatures mulhousicnnes ne manquent point.
+Palais de la Légion d'Honneur, incendié-par la Commune, les signatures mulhousicnnes ne manquent point.
 Avant la guerre, les jeunes collégiens de Mulhouse, ceux
 de Belfort aussi, allaient achever leurs études au lycée
 de Colmar ou à celui de Strasbourg. L'enseignement
@@ -2280,8 +2013,7 @@ cas très exceptionnels. Aussi, quand les fils revenaient
 pour travailler avec le père, se préparer à « prendre sa
 suite il leur fallait, s'ils étaient citoyens français, se
 soumettre à des formalités diflicullucuscs,demander à
-la police des autorisations de séjour, A faire renou-
-veler tous les mois, tolérances toujours révocables,
+la police des autorisations de séjour, A faire renouveler tous les mois, tolérances toujours révocables,
 ou bien, habiter Bâlc, venir le matin à Mulhouse,
 repartir le soir. Plus d'un s'était promis que, le jour où
 ses fils seraient grands, il s'en irait, lui, eux. Plus
@@ -2302,8 +2034,7 @@ n'ont pas démenti leurs prévisions.
 Sans doute, dans certains cas, des causes accessoires
 ou qui n'ont pas de rapport avec la question nationale,
 influèrent sur le destin des industries mtilhousienncs.
-Ainsi pour l'impression. La mode ne réclame pas tou-
-jours les mêmes articles, ceux qui ont fait la fortune de
+Ainsi pour l'impression. La mode ne réclame pas toujours les mêmes articles, ceux qui ont fait la fortune de
 Mulhouse ne se sont pas maintenus constamment en
 faveur. En outre, les industriels'.mulhousicns se sont
 
@@ -2320,10 +2051,8 @@ l'essentielle: la frontière transportée du Rhin aux
 Vosges. Quelques établissements ont pu, sans rien
 changer à leur manière, continuer à produire l'article
 « cher celui qui « supporte » des droits de douane;
-quelques autres, après s'être essayés, dans les pre-
-mières années après la guerre, à des articles moins
-luxueux pour se mettre au niveau de la clientèle alle-
-mande, ont relevé peu à peu leur genre de fabrication,
+quelques autres, après s'être essayés, dans les premières années après la guerre, à des articles moins
+luxueux pour se mettre au niveau de la clientèle allemande, ont relevé peu à peu leur genre de fabrication,
 à mesure que le goût et l'argent devenaient moins rares
 en Allemagne; et la tradition mulhousienne a été ainsi
 sauvegardée. Mais, pour toutes les qualités moyennes,
@@ -2334,16 +2063,11 @@ partout, maintenant, en Allemagne, depuis Elberfeld
 jusqu'en Silésic, sauf dans la région du nord de Berlin),
 — plus nombreux, et autrement puissants. Le nombre
 des établissements mulhousiens a diminué des trois
-quarts, et je crois pas que les Mulhousiens consi-
-dèrent ceux qui restent, fussent-ils individuellement
-d'une importance qu'on ne connaissait pas dans l'indus-
-trie d'autrefois, comme représentant l'ancienne puis-
-sance de l'Impression mulhousienne.
+quarts, et je crois pas que les Mulhousiens considèrent ceux qui restent, fussent-ils individuellement
+d'une importance qu'on ne connaissait pas dans l'industrie d'autrefois, comme représentant l'ancienne puissance de l'Impression mulhousienne.
 Deux exemples sont particulièrement significatifs.
 
-D'abord, la filature elle lissage du colon. Aux princi-
-paux centres allemands d'il y a quarante ans (Augs-
-bourg, le Wurtemberg, quelques établissements du
+D'abord, la filature elle lissage du colon. Aux principaux centres allemands d'il y a quarante ans (Augsbourg, le Wurtemberg, quelques établissements du
 pays de Bade et de la Prusse rhénane) se sont ajoutées,
 depuis, la Saxe et la Weslphalie; et avec quelle ardeur
 conquérante toute celte Allemagne unie a poussé sa
@@ -2353,29 +2077,19 @@ le total allemand (Alsace non comprise) grandit du
 1909, et la Bavière, la Saxe, la Prusse rhénane avec la
 Wcstphalie, qui, en 1893, produisaient chacune moins
 que l'Alsace, l'ont, depuis, atteinte ou dépassée (1).
-l'our la laine peignée, mêmes proportions, même dispro-
-portion. Celle industrie était beaucoup moins impor-
-tante que celle du coton, à Mulhouse, en 1870, elle
+l'our la laine peignée, mêmes proportions, même disproportion. Celle industrie était beaucoup moins importante que celle du coton, à Mulhouse, en 1870, elle
 s'y est beaucoup développée, jusque dans ces dernières
-années du moins. Mais, en Allemagne, le développe-
-ment en fut, proportionnellement, bien plus considé-
-rable, favorisé par plusieurs causes nouvelles: le bien-
-être plus répandu, l'augmentation de la population,
+années du moins. Mais, en Allemagne, le développement en fut, proportionnellement, bien plus considérable, favorisé par plusieurs causes nouvelles: le bienêtre plus répandu, l'augmentation de la population,
 aussi ce fait qu'autrefois, au lendemain de la guerre
 encore, en Allemagne, on aimait assez à faire valoir la
-marchandise française, tandis qu'aujourd'hui... L'Alle-
-magne, en 1870, n'avait pas plus de 25o.ooo à 3oo.ooo
+marchandise française, tandis qu'aujourd'hui... L'Allemagne, en 1870, n'avait pas plus de 25o.ooo à 3oo.ooo
 broches de laine peignée; l'Alsace, au même moment,
 en avait environ 200.000, aujourd'hui, l'Alsace en a
 
-(1) VY. RIKOBR, op. cit., éditions 1009.
-
 l'exode
-Depuis la guerre, il n'y a que deux industries mulhou-
-siennes qui aient presque normalement continué de
+Depuis la guerre, il n'y a que deux industries mulhousiennes qui aient presque normalement continué de
 prospérer. D'abord, le fil à coudre, parce que celte
-« marque » mulhousienne est de supériorité internatio-
-nale, n'ayant toujours à lutter qu'avec l'Angleterre,
+« marque » mulhousienne est de supériorité internationale, n'ayant toujours à lutter qu'avec l'Angleterre,
 seule. Ensuite, la construction des machines, — sinon
 pour les locomotives (on n'en fabrique plus, du reste, à
 Mulhouse même, depuis que la Société de Graffenstaden
@@ -2392,12 +2106,9 @@ dans le chiffre total d'affaires le « pourcentage » de
 l'établissement de Belfort.
 Le développement de Mulhouse s'est donc pas
 poursuivi sur le même rythme que celui de 1' « Union
-douanière allemande »: Mulhouse a progressé modes-
-tement, dans un ensemble qui a progressé formidable-
-ment. N'admirez pas que Mulhouse, au lieu de
+douanière allemande Mulhouse a progressé modestement, dans un ensemble qui a progressé formidablement. N'admirez pas que Mulhouse, au lieu de
 Mulhousiens vous diront, même ceux qui n'ont pas à se
-plaindre de la vie, que les villes industrielles alle-
-mandes, Augsbourg, Elberfeld, Crefeld, Chemnitz,
+plaindre de la vie, que les villes industrielles allemandes, Augsbourg, Elberfeld, Crefeld, Chemnitz,
 Stuttgart, ont autrement grandiI... « 95.000 habitants!
 mais nous en aurions, sans la guerre, 125.000! » Aussi
 bien les Mulhousiens d'il y a quarante ans, si avertis
@@ -2412,8 +2123,7 @@ A l'actif de l'Allemagne ils avaient omis de compter
 ce ferment de richesso: la victoire. Froescliwïiler.
 Sedan, Francfort: vocables dont on considérait «lors, la
 seule valeur historique, mais dont on a comsieiter»
-depuis, la portée économique. Avec la Grtitrdungs-
-période (période de fondation) de l'Empire allemand
+depuis, la portée économique. Avec la Grtitrdungspériode (période de fondation) de l'Empire allemand
 s'ouvrit, presque simultanément, et non sans r%*iou
 de cause à effet, une Griindungsperiode de l'industrie
 et du commerce allemands. Fiers leur gloire, le»
@@ -2426,8 +2136,7 @@ garanties financières, valeurs en dépôt, etc., comme en
 France, mais sur des espérances, sur la confiance; darts
 l'individu, sur ses qualités de travail, de méthode,
 d'initiatlvo, système parfois dangereux, mais qui faw<
-rlse singulièrement la richesse en formation, pour-
-suite de la clientèle chez elle, l'utilisation des débouchés,
+rlse singulièrement la richesse en formation, poursuite de la clientèle chez elle, l'utilisation des débouchés,
 Sans doute on a voulu parfois trop entreprendre lo*U
 de suite, trop produire, trop construire, construire* trop
 grand, et les accidents ne sont pas rares; mais, tandis
@@ -2450,9 +2159,7 @@ d'un autre « impondérable leur impondérable à eux.
 Des hommes, des_capilaux partirent, des hommes
 qui eussent été nécessaires à Mulhouse, je dis pas
 pour entraver la germanisation (on sait qu'elle n'y a
-pas fait de progrès, qu'il n'y a pas plus de 10.000 Alle-
-mands à Mulhouse, et qu'un seul des grands établisse-
-ments mulhousiens est entre des mains allemandes),
+pas fait de progrès, qu'il n'y a pas plus de 10.000 Allemands à Mulhouse, et qu'un seul des grands établissements mulhousiens est entre des mains allemandes),
 mais pour devenir à leur tour des intelligences et des
 âmes dirigeantes, dans des industries où le chef ne
 remplit tout son office de chef qu'à la condition d'y ètro
@@ -2463,15 +2170,13 @@ transformer l'installation, à renouveler le matériel, à
 lutter avec plus d'avantages peut-être pour la conquête
 du marché allomand. Mais, dépenser sur place activités
 humaines et ressources financières, entrer délibérément,
-dès lendemain de la guerre, dans l'organisme nou-
-veau, dans les vues administratives et politiques du
+dès lendemain de la guerre, dans l'organisme nouveau, dans les vues administratives et politiques du
 jeune Empire, rechercher son appui dans les nombreuses
 questions où l'industrie a besoin du concours de l'Etat,
 tout ce « moyen parvenir » était incompatible avec
 
 souvenir d'hier comment ces industriels mulhousiens,
-Français de naissance, d'éducation, de languo. tra-
-dition, d'esprit, de relations, d'amitiés, comment
+Français de naissance, d'éducation, de languo. tradition, d'esprit, de relations, d'amitiés, comment
 auraient-ils poursuivi un succès meilleur, s'il fallait
 l'acheter à ce prix? Pour uno réadaptation économlquo
 non plus que pour uno réadaptation morale quaranto
@@ -2479,9 +2184,7 @@ années ne suffisent, quand il y a des hommes et qui
 ont du coeur. Et, aujourd'hui, lorsqu'un Mulhousien
 reçoit tout à coup l'avis administratif quo ses fils,
 Français, n'auront plus l'autorisation venir le voir à
-Mulhouse; lorsqu'un Mulhousien de naissance, réguliè-
-rement Français par l'option, se voit refuser l'autorisa-
-tion d'habiter Mulhouse où l'appelle la direction de ses
+Mulhouse; lorsqu'un Mulhousien de naissance, régulièrement Français par l'option, se voit refuser l'autorisation d'habiter Mulhouse où l'appelle la direction de ses
 affaires; lorsqu'un jeune Mulhousien, Français à
 Mulhouse, mais obligé de vivre à Bâle parce qu'il a été
 soldat français, se voit interdire à la frontière le voyage
@@ -2490,8 +2193,7 @@ eux aussi, Mulhouse y perd encore un peu soi-même,
 mais Mulhouse comprend...
 
 Belfort, qui avait 6.000 habitants en 1870, en compte
-aujourd'hui 34.000. Alsaciens pour les deux tiers, Alsa-
-ciens nés eux-mêmes dans l'Alsace annexée, ou fils
+aujourd'hui 34.000. Alsaciens pour les deux tiers, Alsaciens nés eux-mêmes dans l'Alsace annexée, ou fils
 « annexés » qui étalent venus s'établir à Belfort.
 Quelquos-uns des établissements que les Mulhousiens
 y ont créés sont indépendants de Mulhouse; mais la
@@ -2521,8 +2223,7 @@ Rhinois et Bas-Rhinois: « Overlânderl Unterlânder! »
 Retournent-ils quelquefois au-delà des Vosges? « Je ne
 m'y fie guère dit l'un. « Pas si bête! » dit un autre,
 puis beaucoup d'autres. Quand ils ont quitté l'Alsace,
-ils n'étaient pas toujours en règle avec l'autorité mili-
-taire allemande, ils ont été soldats en France, — en
+ils n'étaient pas toujours en règle avec l'autorité militaire allemande, ils ont été soldats en France, — en
 France, cela veut dire souvent en Afrique, ou ailleurs,
 à la Légion, — et on en connatt qui, au retour, pris par
 le « mal du pays furent arrêtés avant de revoir leur
@@ -2536,8 +2237,7 @@ revoyez jamais? — Ah! si, je les vois, mais pas là-bas.
 
 Ils viennent; eux, toujours, 14 Juillet. Tenez, le ils
 étaient là, Surtout que c'était un dimanche.., »
-14 juillet, la Revue Belfort: la grande accolade fié-
-vreuse et bruyante de ceux qui sont « restés » avec
+14 juillet, la Revue Belfort: la grande accolade fiévreuse et bruyante de ceux qui sont « restés » avec
 ceux qui sont « partis »...
 
 Un jour récent, deux grands industriels mulhousiens,
@@ -2555,8 +2255,7 @@ Quand la garnison française sortit de Mclz, dans la
 matinée du 29 octobro 1870, les Messins, si désespérés
 qu'ils fussent, mesuraient pas encore touto l'étendue
 leur malheur. Avec ces convois de soldats déjà
-désarmés quo des sous-officiers conduisaient aux avant-
-postes pour les « livrer » à l'ennemi, les Messins
+désarmés quo des sous-officiers conduisaient aux avantpostes pour les « livrer » à l'ennemi, les Messins
 voyaient la France partir, et c'était déjà trop Mais ils
 ne savaient pas tout ce qui, de Metz, s'en irait à leur
 sulto: des traditions, des hommes, et quelles seraient
@@ -2592,9 +2291,7 @@ martyre, qui est un chemin bien court pour y parvenir»,
 mais « par un exercico stable et continuel des vertus,
 qui est un sentier beaucoup plus long, plus fâcheux et
 plus malaisé... » On peut dire, du moins, sans entrer
-dans le détail tant « considérations bien particu-
-lières soigneusement numérotées par leur panégy-
-riste, que, depuis saint Clément, le fondateur légendairo,
+dans le détail tant « considérations bien particulières soigneusement numérotées par leur panégyriste, que, depuis saint Clément, le fondateur légendairo,
 citoyen romain à qui « saint Pierre lui-même mit
 bâton en main commo Dieu fit autrefois à Moyse
 plus d'un parmi ces évêques est resté populaire dans
@@ -2606,17 +2303,14 @@ sous les coups l'envahisseur normand, — ou,
 plus tard, contre la « malhcuretre gangraino » de
 l'hérésio protestante, lorsque « l'Eglise et la Religion »
 furent en butto à « toute furie l'enfer » (i); chéris
-du peuplo Metz qui les avait élus et qui les soute-
-nait contre quelque intrus soudaine investiture
+du peuplo Metz qui les avait élus et qui les soutenait contre quelque intrus soudaine investiture
 impériale, ou brouillés avec leurs électeurs et Aiyant la
 ville, transportant à Vie chef-lieu leur résidence;
 qu'ils fussent Guise et Vaudemont, premiers courriers
 de la Lorraine, elle-même avant-courrlère de la France,
-ou, comme l'illustre Colslin, bienfaisants représen-
-tants la Franco désormais souveraine; maîtres
+ou, comme l'illustre Colslin, bienfaisants représentants la Franco désormais souveraine; maîtres
 temporels la ville on glorieusement esclaves de leur
-mission pastorale, évoques batailleurs, évoques bâtis-
-seurs, évêques de parti, évoques de cour, évêques
+mission pastorale, évoques batailleurs, évoques bâtisseurs, évêques de parti, évoques de cour, évêques
 d'État, ils ont rempli Metz de leur action, ils ont
 façonné puissamment son histoire et ses âmes.
 face d'eux, bonno heure, un autro pouvoir
@@ -2627,16 +2321,13 @@ on l'a vu, le seul appui, ou la seule résistance. Pendant
 près de cinq siècles, Metz fut uno république presque
 indépendante, gouvernée par un syndicat de quelques
 familles, les' paraiges, bourgeoisie aristocratique ou
-aristocratie bourgeoise, lointaine infiltration des phra-
-tries ou des génies. Les bonnes gens des paraiges/ Les
+aristocratie bourgeoise, lointaine infiltration des phratries ou des génies. Les bonnes gens des paraiges/ Les
 paraiges de Porte-Muzclle, de Juruo, de Saint-Martin,
 de Porl-Saillis, d'Oulrc-Seille et du Commun Les
-Chaverson.et les Faulquenel, les Burthemin, les Colli-
-gnon, les Renguillon, et ces Baudocho dont Barrés
+Chaverson.et les Faulquenel, les Burthemin, les Collignon, les Renguillon, et ces Baudocho dont Barrés
 
 l'exode
-glorifia la descendance doucement obstinée: expres-
-sions et noms, quartiers clans, qu'on retrouve
+glorifia la descendance doucement obstinée: expressions et noms, quartiers clans, qu'on retrouve
 constamment, du treizièmo au seizièmo siècle, dans
 l'histoire messine. Au-dessus d'eux, mais longtemps
 dans leurs mains parco qu'il était issu de leurs familles
@@ -2644,15 +2335,12 @@ et leurs votes, maltre-échevin personnifiait la
 bourgeoisie Metz, sa puissance et son orgueil: à la
 naissance d'un enfant, on souhaitait à la mère quo son
 fils fût un jour « maltre-échevin de Metz ou tout au
-moins roi de France ». C'est à celle bourgeoisie.souve-
-raine que Metz dut grande partie la prospérité
+moins roi de France ». C'est à celle bourgeoisie.souveraine que Metz dut grande partie la prospérité
 son commerce d'alors, son existence heureuse et large,
 attestée par de nombreux dictons contemporains, et les
 utiles ressauts son mauvais caractère: fiers et
 jaloux de leurs droits, ces bourgeois de Metz, à peine
-échappés du joug épiscopal, s'entendaient merveilleuse-
-ment à maintenir plus nominale que réello leur dépen-
-dance de l'Empire, à multiplier les chaînes méfiareo
+échappés du joug épiscopal, s'entendaient merveilleusement à maintenir plus nominale que réello leur dépendance de l'Empire, à multiplier les chaînes méfiareo
 les postes de précaution sur le passago de l'empereur
 quand il venait les visiter, à réserver leur attitude
 vis-à-vis de la France qui grandissait, ambitieuse, de
@@ -2663,8 +2351,7 @@ tttre même; mais, de cette vie civiquo d'autrefois, des
 souvenirs demeurèrent, prêts à se réveiller aux époques
 de crise, comme les visions d'enfance dans un soudain
 péril. Le vieux titre échcvinal, à une heure tragique,
-d'instinct, le peuple messin le retrouva. « Notro mattre-
-échevin», ce fut, un jour, Félix Maréchal, le maire
+d'instinct, le peuple messin le retrouva. « Notro mattreéchevin», ce fut, un jour, Félix Maréchal, le maire
 1870... La lignée des caractères s'était perpétuée. Égal
 amour de l'ordre et de la liberté, dévouement passionné
 
@@ -2688,17 +2375,14 @@ gens justice. Aussi, dès Henri cnvoya-t-il à
 Metz un « président royal président sans présidés,
 d'abord, mais qu'entourèrent bientôt un greffier et des
 huissiers, puis un procureur général, puis des gradués.
-En même temps, les prérogatives du président s'éten-
-dirent, il accapara le plus de cas possibles, prenant
+En même temps, les prérogatives du président s'étendirent, il accapara le plus de cas possibles, prenant
 ici sur la juridiction des évêques, sur celle des
-échevins, ailleurs sur d'autres petites justices souve-
-raines, survivances des lemps féodaux. Enfin, Henri
+échevins, ailleurs sur d'autres petites justices souveraines, survivances des lemps féodaux. Enfin, Henri
 fut sur le point d'ériger en Parlement ce petit tribunal
 de missi domintei, et, en Richelieu réalisa le
 projet Henri IV. Les Messins virent pas tout
 de suite la jeune institution d'un oeil favorable, ils
-épousèrent les ressentiments de leurs Juges tradition-
-nels, juges seigneuriaux, épiscopaux et municipaux,
+épousèrent les ressentiments de leurs Juges traditionnels, juges seigneuriaux, épiscopaux et municipaux,
 
 l'exode
 qui perdaient en importance tout ce que gagnait le
@@ -2729,8 +2413,7 @@ sur le titre de prince de Metz que s'octroyait Révoque
 Claude de Saint-Simon, la violente opposition de M. Le
 
 (i) La Royale Thémls, qui contient les effects de la justice
-divine, humaine et morale: l'establissement de la Cour du Parle-
-ment à Mets; et les Acrostiches sur les noms de nos seigneurs
+divine, humaine et morale: l'establissement de la Cour du Parlement à Mets; et les Acrostiches sur les noms de nos seigneurs
 de ladite Cour, par Esprit Gobineau, sieur de Mont-Luisant,
 Chartrain (Met*, Claude Félix, 16*4, ln-4').
 
@@ -2749,8 +2432,7 @@ s'explique ainsi qu'il se soit formé des liens die plus en
 plus intimes avec le temps entre les famille» de Melt
 et leur « Juste Sénat et que la suppression des
 Parlements ait laissé parmi la bourgeoisie nkessino de
-nombreux parlementaires sans emploi qui ne deman-
-dèrent qu'à le redevenir sous la forme nouvelle, «quand
+nombreux parlementaires sans emploi qui ne demandèrent qu'à le redevenir sous la forme nouvelle, «quand
 les Cours d'appel furent instituées. A la veille de 1830,
 presque dans chaque famille, il y avait un tnagUtrat
 ou un avocat, un avoué ou un greffier, et tout Mets
@@ -2837,21 +2519,18 @@ en leur retenant une journée de solde, soit, tout compte
 fait, trente centimes par représentation... Quels
 charmants souvenirs, pour chaque promotion, de ces
 deux années d'apprentissage et surtout, comme
-l'atmosphère messine leur était d'une familiale dou-
-ceur Beaucoup de ces jeunes gens étaient de Metz ou
+l'atmosphère messine leur était d'une familiale douceur Beaucoup de ces jeunes gens étaient de Metz ou
 des environs: de toute la province française, c'est le
 département de la Moselle qui a fourni le plus d'élèves
 à l'École polytechnique. Et puis, la plus indirecte
-recommandation suffisait pour faire du sous-lieutenànt-
-élève le fils adoptif d'une famille de Metz. Chacune
+recommandation suffisait pour faire du sous-lieutenàntélève le fils adoptif d'une famille de Metz. Chacune
 avait « son élève ». « Amenez-moi votre élève se
 disait-on de l'une à l'autre, en traînant un peu sur Va,
 en appuyant un'peu sur le final, à la messine: jolis
 usages, jolies formules, — parfaite expression de la
 tendresse tutélairc de Metz pour son École, pour son
 artillerie, pour son armée.
-Tout ce passé, si divers qu'il fût, éplscopal et muni-
-cipal, de robe et d'épée, se prolongeait dans le présent,
+Tout ce passé, si divers qu'il fût, éplscopal et municipal, de robe et d'épée, se prolongeait dans le présent,
 et la vie de Metz en 1870 était déterminée par son
 histoire, où chaque Messin revivait sa race et retrouvait
 de soi-même dans l'antique patrimoine commun. La
@@ -2861,8 +2540,7 @@ avaient fait,
 Ce que fut la guerre à Metz, je ne prétends point le
 redire après tant d'autres; aussi bien n'en serait-ce pas
 ici le lieu. L'Armée du Rhin, — Borny, Gravetotte,
-Saint-Privat, — Bazaine: une ligne suffit pour ressus-
-citer dans toutes les mémoires françaises l'Idstoire
+Saint-Privat, — Bazaine: une ligne suffit pour ressusciter dans toutes les mémoires françaises l'Idstoire
 douloureuse Metz perdu. Mais, fût-on ramené à
 
 Metz par le souci d'y revivre les tristesses de l'exode
@@ -2877,16 +2555,14 @@ commandant le grand quartier général, 28 juillet,
 Hôtel de Metz, chambre 38, qui demande pour la
 durée de la campagne « un interprète connaissant bien
 la langue allemande situation qui « ne manquera
-pas de confortable, l'interprète accompagnant habituel-
-lement le général ». Après l'illusion du Rhin franchi,
-la lutte sans joie sur le sol national: le texte auto-
-graphe, avec ratures et « bon à tirer » à soixante-dix
+pas de confortable, l'interprète accompagnant habituellement le général ». Après l'illusion du Rhin franchi,
+la lutte sans joie sur le sol national: le texte autographe, avec ratures et « bon à tirer » à soixante-dix
 exemplaires, de la proclamation du général Cofllnièrcs,
 commandant supérieur de la place, le lendemain de
 Gravelotte: « La bataille a été glorieuse pour nos
 armes mais meurtrière, « présentez-vous au fort
 Moselle et recueillez chez vous les héros blessés de la
-bataille de Gravelotte »: héros blessés remplaçant
+bataille de Gravelotte héros blessés remplaçant
 héros malheureux, que le générai avait écrit d'abord
 et qui lui parut sans doute moins pitoyable que
 démoralisant. Puis, la fin, 26 octobre, 29 octobre,
@@ -2902,7 +2578,7 @@ l'exode
 conversation avec les vieux Messins ou leurs fils, dans
 leurs gestes et dans leur langage même, où se devine
 la présence familière du passé: « La bataille du
-« la bataille du 16 »: point n'est besoin d'une précision
+« la bataille du 16 point n'est besoin d'une précision
 le 18 août, personne ne s'y trompe ici. Les'souvenirs se
 pressent en foule, entre ces murs qui ont vu. La rue
 Serpenolse, la dernière entrée de l'Empereur à Metz, le
@@ -2915,31 +2591,24 @@ pour Châlons, — pour Sedan...; les voitures ont tourné
 à gauche, ici, tout de suite du côté du Pont-Thiffroy,
 puis elles ont gagné le large, là-bas, vers ces hauteurs,
 la route d'Étain... Et toujours revient le nom de
-Bazaine. On se doutait de quelque chose, depuis long-
-temps. On ne comprenait rien à l'inertie du commande-
-ment. On parlait avec irritation de terreurs calculées
+Bazaine. On se doutait de quelque chose, depuis longtemps. On ne comprenait rien à l'inertie du commandement. On parlait avec irritation de terreurs calculées
 que l'autorité militaire voulait provoquer en ville pour
 avoir des prétextes à négocier, de communications
 tardives créant tout à coup des situations graves qu'il
-eût été facile de prévenir. Un jour même, solennelle-
-ment, la municipalité protesta. Là, sur ces marches de
+eût été facile de prévenir. Un jour même, solennellement, la municipalité protesta. Là, sur ces marches de
 l'Hôtel de Ville, dans la soirée du octobre, le maire
 Félix Maréchal, entouré de tout le Conseil municipal,
 apparatt à la foule, et, d'une voix lente, grave, donne
 lecture d'une lettre du Conseil au général Cofilnlères,
 dégageant la responsabilité de la ville, mais affirmant
 qu'elle fera tout son devoir, qu'elle veut lutter jusqu'à
-la dernière extrémité. Le lendemain ou le surlende-
-
-main,YIndépendant de la Moselle rappelait le texte des
+la dernière extrémité. Le lendemain ou le surlendemain,YIndépendant de la Moselle rappelait le texte des
 lois et règlements militaires qui condamnent à la
 dégradation et à la peine de mort le commandant d'une
 place de guerre, lorsqu'il capitule sans avoir repoussé
 au moins un assaut au corps place. L'angoisse
-devenait de jour en jour plus précise, chacun rappor-
-tant des mots, des attitudes étranges du maréchal. A
-un intendant qui lui annonçait que les approvisionne-
-ments n'étaient pas encore sur le point de manquer,
+devenait de jour en jour plus précise, chacun rapportant des mots, des attitudes étranges du maréchal. A
+un intendant qui lui annonçait que les approvisionnements n'étaient pas encore sur le point de manquer,
 Bazaine avait répondu: « Que voulez-vous que cela
 me fasse? Il faut en finir et nous en aller. » Il en finit...
 La P/ace d'Armes. La statue de Fabert, maréchal de
@@ -2960,8 +2629,7 @@ La garnison partit, prisonnière de guerre. Elle ne
 revint pas, L'École d'application fut reconstituée, à
 Fontainebleau. (1) De la vieille tradition militaire
 
-(t) L'École centrale de Pyrotechnie militaire, qui avait égale-
-ment son siège à Mets avant la guerre, fut transférée à Bourges.
+(t) L'École centrale de Pyrotechnie militaire, qui avait également son siège à Mets avant la guerre, fut transférée à Bourges.
 
 l'exode
 française, il ne restait, il ne pouvait tien rester dans
@@ -3009,8 +2677,7 @@ un jour de lui: « Mgr. Dupont des Loges ne se laissera
 pas gagner, mais c'est un évêque 1 » Tel il avait été
 jusqu'en 1870, tel il devait être, à plus forte raison,
 dans la situation nouvelle que l'occupation ennemie
-créait à son diocèse. Puisque la sainteté de son minis-
-tère était capable de forcer le respect, d'arrêter la
+créait à son diocèse. Puisque la sainteté de son ministère était capable de forcer le respect, d'arrêter la
 menace des vainqueurs, il n'abandonnerait pas son
 troupeau malheureux, il saurait refaire, de ses longues
 mains pâles, les gestes sacrés qui défendirent, de tout
@@ -3025,8 +2692,7 @@ général, Af. Poulet, avocat général à Alger(depuis le avril 1831),
 mats, précédemment, substitut du procureur général à Metz;
 M. Godelle, avocat général à Metz, passa aussi, comme procureur
 Florange], président honoraire; Gougeon, de Turmel [de Metz];
-Dufour, De nengeot [de Bar-le-Duc] et Viliard [de RethelJ, conseil-
-lers honoraires. (M. Gougeon avait déjà l'honorartat à Metz avant
+Dufour, De nengeot [de Bar-le-Duc] et Viliard [de RethelJ, conseillers honoraires. (M. Gougeon avait déjà l'honorartat à Metz avant
 la guerre). 11 faut ajouter à cette liste des Messins » devenus
 honoraires » à Naney: M. Grand, qui ne se trouve pas dans ces
 décrets (je ne sais pourquoi, car, retraité comme M. de Turmel ou
@@ -3039,8 +2705,7 @@ président honoraire à Nancy, le octobre
 l'exode
 gouvernement allemand l'occasion de décréter à son
 propos, selon le mot spirituel d'un autre prêtre
-annexé, (i) « l'état de siège dans les affaires ecclésias-
-tiques mais tenant à honneur de ne jamais cacher
+annexé, (i) « l'état de siège dans les affaires ecclésiastiques mais tenant à honneur de ne jamais cacher
 ses sentiments: le 7 septembre 1871, quelques mois
 après l'annexion, à l'inauguration du monument élevé
 dans l'Ile Chambière aux soldats français morts
@@ -3070,18 +2735,14 @@ naître pour voir la ruine de mon peuple, ta ruine de la cité et
 pour demeurer au milieu d'elle, pendant qu'elle est livrée aux mains
 de l'ennemi »
 
-traité de Francfort avaient, depuis 1874, rattaché direc-
-tement l'évéché de Metz (ainsi que celui de Strasbourg)
-au Saint-Siège; mais cette solution élégante de nom-
-breuses difficultés apparues à la suite de l'annexion,
+traité de Francfort avaient, depuis 1874, rattaché directement l'évéché de Metz (ainsi que celui de Strasbourg)
+au Saint-Siège; mais cette solution élégante de nombreuses difficultés apparues à la suite de l'annexion,
 n'abrogeait nullement les autres dispositions du
 Concordat dans les diocèses séparés de la France et
-laissait entière l'influence de l'État, c'est-à-dire, désor-
-mais, de Berlin, dans la nomination de l'évêque. Sans
+laissait entière l'influence de l'État, c'est-à-dire, désormais, de Berlin, dans la nomination de l'évêque. Sans
 doute aussi, celte ville couverte d'églises et de couvents,
 tant de prêtres nés du terroir lorrain, l'influence, même
-posthume, de tant d'établissements d'instruction reli-
-gieux dont l'annexion avait vidé les classes ou dont le
+posthume, de tant d'établissements d'instruction religieux dont l'annexion avait vidé les classes ou dont le
 Kulturkampf avail chassé les maîtres, en un mot, tout
 ce qui subsistait de la tradition épiscopale autour de
 l'évêque, quel qu'il fût, ne manquerait pas d'imposer
@@ -3095,12 +2756,10 @@ troupeau; l'évoque allemand, lui, qu'il le voulût ou non,
 ferait fonctions de commissaire impérial, serviteur
 officieux d'une cause qui n'était point celle du souvenir,
 et l'ancienne intimité des fidèles avec leur pasteur ne
-pourrait plus être la même, car quelque chose demeu-
-rait en eux, qui n'était plus en lui.
+pourrait plus être la même, car quelque chose demeurait en eux, qui n'était plus en lui.
 Dans cette fuite et ce désarroi de tout, que devenait
 la bourgeoisie messine, ces autres « défenseurs de la
-cité et que devenait la cité même? Ils agirent fidèle-
-ment. Ils furent, à leur tour, des exemples. Le 11 février
+cité et que devenait la cité même? Ils agirent fidèlement. Ils furent, à leur tour, des exemples. Le 11 février
 1871, avant la signature des Préliminaires de paix, le
 
 l'exode
@@ -3112,8 +2771,7 @@ le traité définitif: historique complet de Metz; des faits,
 éloquents par leur énumération seule et leur précision.
 « La ville de Metz a été de l'Empire certes, mais,
 avant d'être du Saint-Empire, cile fut de l'Empire de
-Charlemagne, du royaume de Clovis, de la Gaule indé-
-pendante; Metz a été de l'Empire, mais comme en ont
+Charlemagne, du royaume de Clovis, de la Gaule indépendante; Metz a été de l'Empire, mais comme en ont
 été « d'autres parties de la France, comme l'Italie,
 comme l'Allemagne un des « Étals indépendants» de
 toutes tailles dont le Saint-Empire n'était que l'agrégat.
@@ -3124,8 +2782,7 @@ par l'Empereur et, « pour qui est de la juridiction,
 ils avaient interdit tout appel des jugements de leurs
 magistrats à la Chambre Impériale ». Même dans ces
 temps lointains, c'est vers les foires de Champagne et
-le Iiandit de Paris que les marchands messins se diri-
-geaient. Dès 1214, un des plus anciens titres législatifs
+le Iiandit de Paris que les marchands messins se dirigeaient. Dès 1214, un des plus anciens titres législatifs
 écrits en français, avec date certaine, est un document
 messin, la lettre de la commune paix de Metz. Ainsi,
 « même quand Metz, ville libre, était, par un lien
@@ -3136,8 +2793,7 @@ exclusivement français et aujourd'hui (recensement
 française. Que l'on considère donc soit le « passé qui
 est mort soit la vie du présent, c'est-à-dire « ces
 
-grands intérêts qui constituent la vie morale et maté-
-rielle d'un peuple, il est impossible d'approuver et
+grands intérêts qui constituent la vie morale et matérielle d'un peuple, il est impossible d'approuver et
 même de comprendre la violente annexion d'une ville
 que la langue, les origines, commerce, les sentiments
 intimes, tout en un mot attache à la France comme tout
@@ -3147,31 +2803,26 @@ logique, dévouement inutiles. Les Messins n'avaient pas
 « annexion violente » s'accomplit.
 Les Messins continuèrent à ne pas comprendre, et à
 te dire. Lors des premières élections de l'AIsace-
-Lorraine pour le Reichstag, en 1874, Edmond Goud-
-chaux, qui était Israélite et républicain, se chargea, on
-le sait, au nom d'un groupe de Messins, d'offrir la candi-
-dature à Mgr. Dupont des Loges, et il n'eut pas de peine
-à rallier toutes les opinions comme toutes les confes-
-sions sur le nom de l'évêquo de Metz. « Je ferai voter mon
+Lorraine pour le Reichstag, en 1874, Edmond Goudchaux, qui était Israélite et républicain, se chargea, on
+le sait, au nom d'un groupe de Messins, d'offrir la candidature à Mgr. Dupont des Loges, et il n'eut pas de peine
+à rallier toutes les opinions comme toutes les confessions sur le nom de l'évêquo de Metz. « Je ferai voter mon
 homme pour notre évêque s'écriait une vieille femme
 juive, la veille de l'élection, dans la ruo de l'Arsenal,
 le quartier Israélite de Metz. Mgr. Dupont des Loges fut
 élu, partit pour Berlin, se concerta en route avec ses
 collègues alsaciens-lorrains sur la conduite à tenir
 devant le Reichstag et signa de tout coeur la fameuse
-« Proposition Tcutsch et consorts »: « Plaise au
+« Proposition Tcutsch et consorts « Plaise au
 Reichstag décider: que les populations de l'Alsace?
 Lorraine, incorporées sans leur consentement à l'Empire
 d'Allemagne par le traité de Francfort, seront appelées
-à se prononcer d'une manière spéciale sur cette incor-
-poration. » Aux élections de 1877, « leur » évêque ne se
+à se prononcer d'une manière spéciale sur cette incorporation. » Aux élections de 1877, « leur » évêque ne se
 représentant plus, c'est leur maltre-échevin que les
 Messins envoyèrent au Reichstag, Paul Bezanson, maire
 de Metz, qui venait d'être révoqué pour avoir fait acte
 
 l'exode
-de candidat protestataire. Il saurait, lui aussi, «s'iuspi-
-rant des sentiments intimes de ses électeurs», « défendre
+de candidat protestataire. Il saurait, lui aussi, «s'iuspirant des sentiments intimes de ses électeurs», « défendre
 leurs droits imprescriptibles et sacrés et; en effet, il
 renouvela devant le Parlement de Berlin la plainte
 énergique de 1874: « De même que la question
@@ -3180,9 +2831,7 @@ une cause d'inquiétude pour les.esprits, d'effroyables
 préparatifs belliqueux, d'uno augmentation constante
 du budget de la guerre... Des milliers d'optants sent
 expulsés, ce qui bouleverse complètement le pays. Au
-nom de l'Alsace et de la Lorraine,, an nom de l'huma-
-nité, je vous prie, Messieurs, ne pas passer légère-
-ment devant une telle misère. En présence de ces
+nom de l'Alsace et de la Lorraine,, an nom de l'humanité, je vous prie, Messieurs, ne pas passer légèrement devant une telle misère. En présence de ces
 maux, nous aurions bien un moyen, de soulagement
 vous proposer; mais ce serait un moyen héroïque:
 laisser l'Alsace elle-même... » Bezanson mort (1882),
@@ -3194,8 +2843,7 @@ qui durent être parfois, plus que leurs prédécesseurs,
 des « politiques mais ne demeurèrent pas moins
 fidèles qu'eux à la tradition messine: Déliés, Haas,
 Pierson... Chez tous ceux qui étalent restés, une foi
-veillait, tantôt agissante, tantôt accablée et doulou-
-reuse, présente toujours.
+veillait, tantôt agissante, tantôt accablée et douloureuse, présente toujours.
 Mais le nombre de ceux-là diminuait d'année en
 année. Tout ce qui, dans Metz, était du monde militaire
 et parlementaire, s'en était allé tout de suite, avec
@@ -3211,10 +2859,8 @@ nouvelle frontière: à Frouard, Pagny«sur-Moselle, à
 Bar-le-Duc, a Nancy surtout; minoterie» fabriques de
 chaussures, imprimerie, bonneterie, appareils de préci*
 slon,—tels, aujourd'hui,des plus grands établissements
-industriels de Nancy, ce sont des hommes et des capi-
-taux de Met* qui les ont faits. L'Académie de Metz, la
-Société d'archéologie et d'histoire de la Moselle don-
-nalent, avant la guerre, une image assez exacte de la
+industriels de Nancy, ce sont des hommes et des capitaux de Met* qui les ont faits. L'Académie de Metz, la
+Société d'archéologie et d'histoire de la Moselle donnalent, avant la guerre, une image assez exacte de la
 bourgeoisie messine. Des hommes de situations très
 diverses s'y rencontraient: des avocats, Dommanget,
 Maguin, Gh. Abel, EUézer Lambert; des magistrats, le
@@ -3231,9 +2877,7 @@ banquier, M. Méziè.res, recteur émérite, M. Claude
 Coillgnon, M. Alcan, libraire-éditeur, le vicomte de
 Pange, le comte du Coétlosquet, M. Olry Terquem,
 ancien pharmacien, Th. et Gh. de Gargan, les maîtres
-de forges, M. Justin Worms, homme de lettres et ban-
-quier, M..Vever, bijoutier,' M. Simon-Fabvier, pépi-
-niériste, M. Ed. Mouzin, le directeur de l'École de
+de forges, M. Justin Worms, homme de lettres et banquier, M..Vever, bijoutier,' M. Simon-Fabvier, pépiniériste, M. Ed. Mouzin, le directeur de l'École de
 musique: mais tous vieux Messins, Messins de famille
 
 l'e.xode
@@ -3243,8 +2887,7 @@ monde respiré l'air de la place Sainte-Croix ou de la
 Porte Saint-Thlébault... «. annexion » dispersa toute
 cette société messine; a travers les Annuaires et les
 rapports on en peut suivre l'émigration. L'Académie
-Stanislas, de Nancy, s'ouvrit largement à « Société-
-soeur elle reçut comme titulaires, au fur et à mesure
+Stanislas, de Nancy, s'ouvrit largement à « Sociétésoeur elle reçut comme titulaires, au fur et à mesure
 des vacances, plusieurs des titulaires de Metz (i), et
 elle ajouta ses « associés-correspondants nationaux
 date du novembre 1879, une section nouvelle,
@@ -3253,8 +2896,7 @@ de l'Académie de Mèlz réfugiés à Nancy. Quant a la
 Société d'archéologie et d'histoire la Moselle, elle
 « avait fini par n'avoir plus de f>ureau dit son
 secrétaire-archiviste (a); elle publia sps
-et elle était presque dissoute en fait, lorsque le tirçàt-
-dent de la ^rralné, en îifffÔ,s'occiijm de la recousiit^er
+et elle était presque dissoute en fait, lorsque le tirçàtdent de la ^rralné, en îifffÔ,s'occiijm de la recousiit^er
 y appelant les Immigrés.
 Metz s'était
 sa grande btâji*
@@ -3275,8 +2917,7 @@ partis pour France.
 avait à Mets habitants; le décembre 1871, Il
 in-folios banals, des noms de rues, des numéros de
 malsons, des noms de famille, des prénoms: c'est le
-a recensement » de la ville en 1869, nomenclatureadmi-
-nistrative, sèche et froide. Oui, mats regardez bien, et
+a recensement » de la ville en 1869, nomenclatureadministrative, sèche et froide. Oui, mats regardez bien, et
 vous verrez, tout d'un coup, se dérouler l'exode, car,
 ces feuilles remplies à la veille de la guerre ont été
 mises a jour au lendemain de la paix, a la fin de 1879,
@@ -3309,18 +2950,14 @@ tMiu sàts, fecphiïidmnm hoc sàlam tosqae Ipso* potsUUrent. »
 peut-être malicieux, mate non point infidèles, du vieux
 texte latin, de brillants polémistes alsaciens exerçaient
 leur verve aux dépens « des faméliques qui se sont
-abattus sur l'Alsace-Lorraine, au lendemain des désas-
-tres de 1870 » (1). Mais il semble bien que cette théorie
+abattus sur l'Alsace-Lorraine, au lendemain des désastres de 1870 » (1). Mais il semble bien que cette théorie
 séculaire se soit vérifiée à Mets. L'Allemagne 1871
-avait besoin de se répandre, se répandre pour s'en-
-richir. Trois mille logements vides, la valeur la pro-
-priété moindre de moitié (9), quel attrait! Metz, conquis
+avait besoin de se répandre, se répandre pour s'enrichir. Trois mille logements vides, la valeur la propriété moindre de moitié (9), quel attrait! Metz, conquis
 par les armes, apparut aussitôt commo uno colonie fort
 habitable à beaucoup de gens qui n'avaient rien
 laisser l'autre côté du Rhin, que de mauvaises notes
 dans un dossier ou de mauvaises affaires en suspens. (3)
-Ici l'on voit d'un plein regard un des effets économi-
-ques et sociaux de la guerre. Quand l'armée recule, ce
+Ici l'on voit d'un plein regard un des effets économiques et sociaux de la guerre. Quand l'armée recule, ce
 n'est pas elle seulement qui cèdo du terrain: recule
 avec.cllo toute la vie nationale dont elle a la garde, tout
 ce qui n'est plus chez soi, elle étant partie, tandis
@@ -3328,8 +2965,7 @@ qu'approchent les appétits étrangers, sous la protection
 du pavillon victorieux: vérité aussi vieille que les plus
 vieilles invasions, mais qu'il faut rappeler temps en
 temps et que Metz illustre de son douloureux exemple.
-La population messine d'avant la guerre ne compre-
-nait guère que des originaires du pays. Je ne crois pas
+La population messine d'avant la guerre ne comprenait guère que des originaires du pays. Je ne crois pas
 qu'il y eût alors à Metz 1 i/a 0/0 d'habitants venus
 d'Allemagne; tous les autres, sauf quelques excep-
 
@@ -3339,21 +2975,16 @@ d'Allemagne; tous les autres, sauf quelques excep-
 un haut fonctionnaire allemand de Metz, et nous connaissons
 mieux encore ce que nous aurons à la place. (Cité par D'ELSTEI»,
 
-Luxembourgeois, quelques Belges, quelques Alsa-
-ciens), étaient de Metz même, ou du pays messin,
+Luxembourgeois, quelques Belges, quelques Alsaciens), étaient de Metz même, ou du pays messin,
 ou Lorrains des environs. Aujourd'hui, sur un petit
-groupe 37 habitants d'une rue ouvrière où pré-
-domine pourtant l'élément lorrain, je trouve 16 Alle-
-mands immigrés; sur un autre ensemble plus considé-
-rable, 700 habitants d'un quartier pris au hasard, j'en
+groupe 37 habitants d'une rue ouvrière où prédomine pourtant l'élément lorrain, je trouve 16 Allemands immigrés; sur un autre ensemble plus considérable, 700 habitants d'un quartier pris au hasard, j'en
 relève a 16 qui sont étrangers au pays par leur naissance;
 ailleurs, sur 700 encore, étrangers; et, de ces a
 de ces la presque totalité vient d'Allemagne, de
 toutes les parties l'Allemagne, Palatinat, Province
 rhénane, Bavière, Prusse, Wilrtemberg, Bade, Silésie,
 Weslphalie. Encore le hasard (1) m'a-t-H favorisé! car,
-si la population Metz a fini par rattraper, récem-
-ment, son chiffre d'avant la guerre (a), sur ces 48.000-là,
+si la population Metz a fini par rattraper, récemment, son chiffre d'avant la guerre (a), sur ces 48.000-là,
 on compte que la moitié au moins sont des importés
 d'Allemagne. Et, de ces aS.ooo Allemands, beaucoup,
 comme on dit, ont bien fait leurs affaires. Ils ont
@@ -3361,8 +2992,7 @@ acheté, ils ont construit, surtout depuis une dizaine
 d'années. Sans doute, sur 100 immeubles appartenant
 à des immigrés, 80 sont grevés d'hypothèques, tandis
 que la proportion est inverse (ao à 0/0) pour les
-propriétés d'indigènes, et l'on peut s'amuser au sou-
-venir récent d'une rue en construction que le populaire
+propriétés d'indigènes, et l'on peut s'amuser au souvenir récent d'une rue en construction que le populaire
 appelait la rue des Hypothèques; il n'en est pas moins
 
 (1) Ou ce Tait que, dans les trois cas que Tiens de citer, je
@@ -3377,28 +3007,24 @@ prés le chiffre d'avant la guerre.
 
 l'exode
 vrai qu'avec l'aide leurs compatriotes, des Banques
-hypothécaires d'Allemagne, qui leur ont avancé proba-
-blement plus de trente millions, ils possèdent aujour-
+hypothécaires d'Allemagne, qui leur ont avancé probablement plus de trente millions, ils possèdent aujour-
 d'hui la moitié des immeubles de Mets, l'autre moitié
 appartenant des indigènes, restés dans le pays ou
 partis en France. C'est un livre d'histoire, lui aussi,
 sous son banal cartonnage de toile couvert de réclames,
 que cet Adressbuch de la ville de Metz, qui donne,
 outre la liste de tous les habitants de Metz maison par
-maison, le nom, pour chacune d'elles, de son proprié-
-taire, avec une petite étoile dans la marge s'il ne l'habite
+maison, le nom, pour chacune d'elles, de son propriétaire, avec une petite étoile dans la marge s'il ne l'habite
 pas en personne; livre émouvant, non seulement parce
 qu'on s'y heurte parfois à des mentions comme celles-ci,
 pleines de passé, d'autant plus pénibles qu'elles sont
 plus bizarres: « Compagnon, Colonel Potier « De
 Richard d'Aboncourl, Major a. D., Lille Qraf de
 la Rochethulon, General, Paris « Maizières, Brben
-« Michel Bmil, Haaptmann, Lorlent, Frankr. » (i); non-
-seulement parce que les petites étoiles, c'est Pont-à-
+« Michel Bmil, Haaptmann, Lorlent, Frankr. » (i); nonseulement parce que les petites étoiles, c'est Pont-à-
 Mousson, c'est Bar-le-Duc, c'est Verdun, c'est Vitry-le-
 François, c'est Paris, c'est Nancy, et encore Nancy, et
-toujours Nancy; mais simplement parce que ces mai-
-sons, c'étaient, autrefois, la maison Pierson, la maison
+toujours Nancy; mais simplement parce que ces maisons, c'étaient, autrefois, la maison Pierson, la maison
 Humbert, ou Daubrée, ou Vautrin, ou Tabellion, et que
 lés nouveaux propriétaires s'appellent Crummenauer et
 Rhelnlfinder, Schftnlng et Lauxtermann, Enders et
@@ -3416,8 +3042,7 @@ chargements de mobilier suivent cette route, et les
 Messins le savent bien, qui profitent du retour a vide
 pour faire venir leurs « commissions » de Nancy, « Il y
 a plus de Messins à Nancy qu'à Metz; vous n'avez qu'à
-vous retourner, vous en verrez partout »; image fami-
-lière de ce flux perpétuel, qu'un autre Messin définit
+vous retourner, vous en verrez partout image familière de ce flux perpétuel, qu'un autre Messin définit
 plus littérairement, en me disant avec un sourire triste:
 « Metz n'est plus dans Metz, Metz est tout à Nancy. » »
 Se retirer des affaires, pour beaucoup de Messins, c'est
@@ -3437,8 +3062,7 @@ nous entendre, nous qui arrivons, vous qui partez » Il
 ne semble pas que Metz ait obéi à ces suggestions.
 Autrefois, un peuple homogène et d'un seul coeur;
 aujourd'hui, deux populationsjuxtaposées, non fondues,
-gênées [et méfiantes, l'une parce qu'il y a trop d'étran-
-gers dans sa 4 ville, l'autre parce que la ville lui
+gênées [et méfiantes, l'une parce qu'il y a trop d'étrangers dans sa 4 ville, l'autre parce que la ville lui
 demeure, malgré tout, étrangère. 11 n'y a pas un Messin
 qui ne sache, sans la moindre hésitation, dénombrer
 son Conseil municipal: le maire, Lorrain, quinze
@@ -3450,8 +3074,7 @@ dix-huit conseillers Allemands. Leur langue et leurs
 habitudes; le décor où ils se meuvent et tout ce qui
 reste de France dans leur vieille ville, la Cathédralo et
 les longues rues étroites qui se serrent autour d'elle, la
-belle ordonnance de la Place d'Armes, la grâce somp-
-tueuse du théâtre de Blondel, l'Hôtel Ville, du
+belle ordonnance de la Place d'Armes, la grâce somptueuse du théâtre de Blondel, l'Hôtel Ville, du
 Patais de Justice; leurs allées et venues par-dessus la
 mauvaise frontière, pour aller voir, là-bas, leurs frères,
 leurs parents, leurs amis; tout cela fait aux indigènes
@@ -3460,8 +3083,7 @@ ils ont connaître des heures difficiles, se sentir
 désemparés; trop de leurs a dirigeants » sont plus
 là. n'importe. Ceux qui restent, résistent, par le seul
 fait qu'ils restent. Grâce à eux, entre Nancy, Briey,
-Pont-à-Motisson, Lunéville, Metz, une sorte de conti-
-nuité provinciale survit à la brisure territoriale. Et
+Pont-à-Motisson, Lunéville, Metz, une sorte de continuité provinciale survit à la brisure territoriale. Et
 gr&ce à eux, la poussée n'est pas plus forte; puisqu'ils
 sont là, ils sont le rempart, ils amortissent l'invasion...
 Par les rues de Metz, à la pensée tous ceux qui sont
@@ -3504,8 +3126,7 @@ qui étaient restés en Alsace y contaient leurs prouesses,
 familiarisaient leurs compatriotes avec les merveilles
 du pays où ils avaient servi, et ces histoires d'anciens,
 dont le souvenir s'est perpétué dans mainte famille
-alsacienne, avaient provoqué plus d'une vocation colo-
-nisatrice. Aussi bien, d'autres influences agirent-elles,
+alsacienne, avaient provoqué plus d'une vocation colonisatrice. Aussi bien, d'autres influences agirent-elles,
 campagnes de presse et circulaires administratives,
 d'une action plus méthodique, et capable d'effets plus
 généraux. Pendant de nombreuses années à la suite de
@@ -3518,8 +3139,7 @@ détenus, colonisation par a nos classes mendiantes et
 indigentes colonisation par les sans-travail de
 1848(1); d'autres projets encore, parmi lesquels celui-ci,
 
-(1) On peut consulter a ce propos, entre autres livres ou 'bro-
-chures: Bugeaud, De l'établissementde légion* de coton* militaires
+(1) On peut consulter a ce propos, entre autres livres ou 'brochures: Bugeaud, De l'établissementde légion* de coton* militaires
 dans'te* possessionsfrançaises du nord de l'Afrique, Paris, Dldot,
 In*; — Baillet, Réflexions sur la colonisation de l'Algérie à
 l'aide de* enfants trouvé* ou abandonné*..., Rouen, In*; —
@@ -3562,8 +3182,7 @@ contribuaient à agiter l'opinion, facilitaient l'effort de
 « publicité » que le gouvernement, s'il était impuissant
 à multiplier les villages départementaux au point
 d'arrivée, tentait du moins au point de départ, dans les
-villages de la métropole. En Alsace surtout, où l'émi-
-gration n'effrayait point,d'où beaucoup de jeunes gens,
+villages de la métropole. En Alsace surtout, où l'émigration n'effrayait point,d'où beaucoup de jeunes gens,
 de jeunes ménages étaient, naguère encore, partis pour
 
 (i) avril (Archives du Gouvernement général).—Au reste,
@@ -3576,12 +3195,9 @@ l'Amérique, l'administration s'ingéniait à attirer les
 Alsaciens chercheurs de fortune ou d'aventures, à les
 détourner du Nouveau-Monde vers ce monde africain
 encore plus nouveau. Le ministre de la Guerre fait
-envoyer à Colmar les Annales de Colonisation algé-
-rienne, recommande au préfet VAlmanach algérien
+envoyer à Colmar les Annales de Colonisation algérienne, recommande au préfet VAlmanach algérien
 pour le Conseil général du Haut-Rhin vote
-francs pour l'achat de exemplaires de VAlma-
-nach à l'intention des communes françaises du dépar-
-tement, mais, les Annales lui paraissant trop littéraires,
+francs pour l'achat de exemplaires de VAlmanach à l'intention des communes françaises du département, mais, les Annales lui paraissant trop littéraires,
 il offre i.ooo francs au préfet pour en publier, sous
 forme de brochures, des extraits en allemand: c'est
 ainsi que se répandirent dans tout le Haut-Rhin
@@ -3595,8 +3211,7 @@ furent certes pas inutiles et contribuèrent à verser
 quelques éléments alsaciens dans le « peuplement » de
 l'Algérie. Mais personne, ni l'ingénieux notaire, ni les
 préfets du Haut-Rhin ou du Bas-Rhin, ni même le
-ministre de Guerre, ne prévoyait alors la cata-
-strophe qui allait précipiter cette émigration de l'Alsace
+ministre de Guerre, ne prévoyait alors la catastrophe qui allait précipiter cette émigration de l'Alsace
 vers l'Algérie, non plus, cette fois, pour y vivre une
 vie plus large dans une France plus jeune, mais pour
 y retrouver un peu de la France perdue.
@@ -3607,16 +3222,13 @@ y retrouver un peu de la France perdue.
 Le projet Beleastel était d'une simplicité spécieuse et
 d'une générosité qui devaient séduire l'Ame populaire,
 à cette heure où, quoique vaincus, « les Français
-croyaient à la France » (i). Des approbations chaleu-
-reuses l'accueillirent. Le journal la Patrie, qui avait
+croyaient à la France » (i). Des approbations chaleureuses l'accueillirent. Le journal la Patrie, qui avait
 émis le premier l'idée dont le projet Beleastel était la
 traduction en style législatif, (a) critiqua tout ce qu'on
-avait imaginé avant lui, « offres particulières « com-
-binaisons partielles sans aucune possibilité d'« effet
+avait imaginé avant lui, « offres particulières « combinaisons partielles sans aucune possibilité d'« effet
 pratique et étendu et ajouta avec une confiance
 illimitée: « Fort heureusement, la France a mieux que
-cela à offrir à nos malheureux compatriotes des pro-
-vinces qui nous sont arrachées. Elle peut leur ouvrir
+cela à offrir à nos malheureux compatriotes des provinces qui nous sont arrachées. Elle peut leur ouvrir
 l'Algérie... Que notre colonie devienne l'Alsace et la
 Lorraine I... Nous aurons reconquis pour la France un
 million de véritables Français, et les Alsaciens auront
@@ -3627,13 +3239,10 @@ encore: «... Celte terre qui vous attend, ce n'est pas
 (t) Le mot est d'un journal anglais, le Globe, de Londres, cité
 dans la Patrie du 98 juin 1871.
 (9) Avant même le dépôt de la proposition Beleastel, dés le
-février, la Société d'Agriculture d'Alger, à la suite de la publi-
-cation d'une brochure du docteur Warnier, ex-préfet d'Alger, sur
-l'Algérie et tes Victimes de la guerre, avait nommé une commis-
-sion pour «.étudier de concert avec l'auteur les moyens d'appeler
+février, la Société d'Agriculture d'Alger, à la suite de la publication d'une brochure du docteur Warnier, ex-préfet d'Alger, sur
+l'Algérie et tes Victimes de la guerre, avait nommé une commission pour «.étudier de concert avec l'auteur les moyens d'appeler
 immédiatement en Algérie les familles agricoles, victimes de la
-guerre t. Le 8 mars, le commissaire extraordinaire de la Répu-
-blique en Algérie, Alexis Lambert, donna à la commission un
+guerre t. Le 8 mars, le commissaire extraordinaire de la République en Algérie, Alexis Lambert, donna à la commission un
 caractère officiel, et le to, communiquantcette décision aux trois
 préfets, il écrivait: « Une grande chose nous reste 4 faire après
 nos malheurs... Cest d'offrir à nos concitoyens de l'Alsace et de
@@ -3653,22 +3262,17 @@ colonie l'appoint qui lui fait défaut, de cultivateurs
 laborieux, de mains calleuses habituées à faire jaillir la
 richesse des flancs de la terre... Vous doublerez notre
 production et notre commerce; vous nous initierez à
-vos industries... Algérie Alsacefor evert » (i) L'opi-
-nion pourtant ne fut pas unanime. M. Raudot, député de
-l'Yonne, se fit, devant l'Assemblée Nationale, le porte-
-parole des prudents des sceptiques. Offrir aux Alsa-
-ciens et aux Lorrains des facilités particulières en
+vos industries... Algérie Alsacefor evert » (i) L'opinion pourtant ne fut pas unanime. M. Raudot, député de
+l'Yonne, se fit, devant l'Assemblée Nationale, le porteparole des prudents des sceptiques. Offrir aux Alsaciens et aux Lorrains des facilités particulières en
 Algérie, c'est « exciter ces populations si patriotiques à
 quitter l'Alsace et la Lorraine au lieu qu'en restant
 « elles y seraient un obstacle aux projets des Allemands
-et, pour nous, une espérance, un jour c'est aban-
-donner définitivement les territoires cédés, laisser la
+et, pour nous, une espérance, un jour c'est abandonner définitivement les territoires cédés, laisser la
 place libre aux vainqueurs, « donner une assez vive
 satisfaction à M. de Bismarck ». Et tous ces sacrifices
 ne seront môme pas utiles à la France. En distribuant
 gratuitement des terres, on ne fera que de mauvaise
-colonisation, on recommencera la malheureuse expé-
-rience de 1848, beaucoup de millions seront dépensés
+colonisation, on recommencera la malheureuse expérience de 1848, beaucoup de millions seront dépensés
 en pure perte. M. de Beleastel, puis M. Lucet, député
 
 de Constantine, rapporteur de la loi, n'eurent pas de
@@ -3679,8 +3283,7 @@ modistes, des fleuristes, des tailleurs... aujourd'hui,
 nous agirons avec plus de discernement, « les familles
 concessionnaires seront l'objet d'un examen attentif ».
 Quant à faire le vide devant l'ennemi, les craintes qu'on
-exprime sont fort exagérées. Quelques milliers de per-
-sonnes, a sur quinze cent mille qui demeurent séparées
+exprime sont fort exagérées. Quelques milliers de personnes, a sur quinze cent mille qui demeurent séparées
 de nous « ce vide n'est pas de nature à dépeupler
 l'Alsace», ce n'est pas livrer l'Alsace à M. de Bismarck.
 D'ailleurs, « le courant d'émigration est déjà sensible
@@ -3691,8 +3294,7 @@ faut, c'est les « diriger chez nous ». « me semble,
 concluait M. de Beleastel, que dans un temps où il est
 universellement reconnu que... terre morte n'est rien
 et que les hommes sont tout,... à ce moment, il y a
-quelque chose de grand et de moral à dire aux Alsa-
-ciens: « Nous avons cédé votre territoire, nous n'avons
+quelque chose de grand et de moral à dire aux Alsaciens: « Nous avons cédé votre territoire, nous n'avons
 pas ne pas le faire; mais nous vous offrons, en
 Algérie, la moitié de l'étendue d'un département; si
 vous voulez vous y établir, ce sera une seconde France,
@@ -3707,12 +3309,10 @@ et de la Lorraine qui voudraient conserver la nationalité française
 
 l'exode
 septembre, puis un décret, le 16 octobre, précisèrent
-ou modifièrent quelques-unes des dispositions primitive-
-ment adoptées. Des commissions seraient constituées,
+ou modifièrent quelques-unes des dispositions primitivement adoptées. Des commissions seraient constituées,
 à Belfort et à Nancy, pour recevoir les engagements,
 constater la moralité et l'aptitude des nouveaux colons;
-à leur arrivée, ils recevront un lot urbain, pour l'habi-
-tation, un lot rural, pour la culture; le rôle de l'État se
+à leur arrivée, ils recevront un lot urbain, pour l'habitation, un lot rural, pour la culture; le rôle de l'État se
 réduira à assurer les transports par mer, à doter les
 centres de leur alimentation en eau, des voies de
 communication nécessaires pour les relier aux centres
@@ -3721,14 +3321,12 @@ Quant au reste, maisons à construire, mobilier,
 boeufs, semences, instruments de travail, subsistance,
 les colons n'auront à compter que sur eux-mêmes;
 l'État prend ses sûretés à cet égard, puisqu'ils devront
-justifier d'au moins S.ooo francs d'avoir. Sage restric-
-tion, mais qui ne fut pas maintenue. La force des
+justifier d'au moins S.ooo francs d'avoir. Sage restriction, mais qui ne fut pas maintenue. La force des
 choses l'emporta. A Nancy, à Belfort, des émigrants se
 présentaient en foule, Français qui voulaient le rester,
 ruinés, mais vaillants. Parce qu'ils n'avaient pas
 francs, les renvoyer chez eux au lieu de les
-accueillir chez nous, maintenant que les deux expres-
-sions ne se confondaient plus, prenait figure d'iniquité.
+accueillir chez nous, maintenant que les deux expressions ne se confondaient plus, prenait figure d'iniquité.
 Le décret du 16 octobre ieur ouvrit l'Algérie comme
 
 et qui prendraient l'engagement de se rendre en Algérie pour y
@@ -3744,16 +3342,12 @@ aux autres (i). Le nombre des départs allait augmenter
 considérablement, et les charges de l'État avec lui.
 Pour les terres, on ne serait pas embarrassé. Entre le
 dépôt de la proposition Beleastel et le vote de la loi, un
-fait nouveau s'était produit en Algérie, pénible consé-
-quence des malheurs de la mère-patrie. Quelque effer-
-vescence se manifestait déjà dans les tribus, depuis
+fait nouveau s'était produit en Algérie, pénible conséquence des malheurs de la mère-patrie. Quelque effervescence se manifestait déjà dans les tribus, depuis
 janvier. Enfin, le 16 mars, un chef arabe, Mokrani,
 apparut, en révolté, devant Bordj-bou-Arreridj. D'autres
 rébellions suivirent. La répression ne tarda point. Des
-terres furent séquestrées, en masse; les tribus coupa-
-bles durent abandonner une partie de leurs biens pour
-racheter le reste, et, en outre, consentir des expro-
-priations moyennant indemnité, quand les commissions
+terres furent séquestrées, en masse; les tribus coupables durent abandonner une partie de leurs biens pour
+racheter le reste, et, en outre, consentir des expropriations moyennant indemnité, quand les commissions
 de séquestre jugeraient certains échanges avantageux
 pour la colonisation. Ainsi, qu'il s'agit de la quantité
 d'hectares dont on pourrait disposer pour les Alsaciens
@@ -3765,14 +3359,12 @@ pas, pour tout un provisoire angoissant qui pouvaU
 durer un an ou deux, peut-être davantage, un crédit de
 400.000 francs, qui avait été voté en même temps que
 
-(i) Le litre du décret réglait simplement les conditions aux-
-quelles les Alsaciens-Lorrains justifiant d'un capital d'au moins
+(i) Le litre du décret réglait simplement les conditions auxquelles les Alsaciens-Lorrains justifiant d'un capital d'au moins
 5.000 francs, pourraient obtenir des concessions arec propriété
 immédiate. Mats le titre permit d'accorder des concessions à
 tous les Français, Alsaciens ou non, ayant ou n'ayant pas de
 ressources, moyennant un loyer de frane par an et à la condition
-que la toute-propriété des terres n'appartiendrait aux concession-
-naires qu'après une résidence effective de neuf ans et la mise en
+que la toute-propriété des terres n'appartiendrait aux concessionnaires qu'après une résidence effective de neuf ans et la mise en
 culture de leur concession. — Voir Annexe VI, le texte de la loi
 du septembre et celui du décret du octobre.
 
@@ -3785,8 +3377,7 @@ allaient, par un détour, venir en aide aux Alsaciens
 On sait que sur l'indemnité de cinq milliards imposée
 à la France par le traité de Francfort, deux milliards
 devaient être payés avant le mai les trois autres
-avant le a mars et que, jusqu'à complet acquitte-
-ment, les troupes allemandes occuperaient une partie
+avant le a mars et que, jusqu'à complet acquittement, les troupes allemandes occuperaient une partie
 du sol français: lourde charge supplémentaire, à la
 fois matérielle et morale. M. ïhiers, après la réussite
 de l'emprunt qui lui avait assuré largement les deux
@@ -3797,8 +3388,7 @@ cette préoccupation n'était-elle point particulière à
 M. Thiers. Le public s'inquiétait, facilement ombrageux,
 supportait mal les misères quotidiennes de l'occupation
 étrangère. Un incident éclata, qui le rendit plus irritable
-encore. Deux militaires allemands avaient été, à quel-
-ques semaines d'intervalle (10 août et 5 septembre 1871),
+encore. Deux militaires allemands avaient été, à quelques semaines d'intervalle (10 août et 5 septembre 1871),
 l'un, à Chelies, frappé par un garçon jardinier faible
 d'esprit, l'autre, près de Montreuil, tué, au cours d'une
 discussion, par un ex-combattant français de la guerre,
@@ -3811,14 +3401,11 @@ publiée dans le Journal des Débats du décembre; le Temps des
 novembre, 8 et décembre, etc...
 
 public, avaient acquitté les prévenus (14 et 34 novembre).
-En vain M. Thiers, dans le message qu'il lut à l'Assem-
-blée Nationale le 7 décembre, fit-il allusion à ces événe-
-ments, « suppliant » la population d'être plus patiente,
+En vain M. Thiers, dans le message qu'il lut à l'Assemblée Nationale le 7 décembre, fit-il allusion à ces événements, « suppliant » la population d'être plus patiente,
 la justice plus stricte. Condescendance inutile. Trois
 jours après, dans une dépêche adressée à M. d'Arnim,
 ambassadeur d'Allemagne à Paris, M. de Bismarck
-revint sur l'incident, accumula les menaces, les bruta-
-lités de langage: a... représailles... talion... otages...
+revint sur l'incident, accumula les menaces, les brutalités de langage: a... représailles... talion... otages...
 état de siège... le sentiment du droit est complètement
 éteint en France... le degré d'éducation morale et le
 sentiment de droit et d'honneur qui sont particuliers au
@@ -3848,8 +3435,7 @@ envoi l'exemple de cet officier et ce premier don isolé.
 l'exode
 Quelques jours plus tard, le 28, les Mulhousiennes
 écrivirent au président de la République, joignant à
-leur lettre un chèque de a'i.^S francs: « Vous l'accep-
-terez comme l'obole de la veuve... » Puis, ce furent les
+leur lettre un chèque de a'i.^S francs: « Vous l'accepterez comme l'obole de la veuve... » Puis, ce furent les
 dames de Saverno: francs, et celles de Bischwillcr:
 3.740 francs, et celles de Wisscmbourg: f^ioo francs,
 et celles Munster: francs, et Schlesladt, et
@@ -3866,9 +3452,7 @@ quinze adhésions. Sur toute l'étendue du territoire, des
 bonnes volontés surgissent sous les formes les plus
 diverses; listes publiées par les journaux (et que de
 noms alsaciens y figurent, des Boeckei des Steinheil,
-des Dollfus et des Schaller, des Iteibcll et des Hart-
-mann lettres chaleureuses de Legouvé, d'Ad. Cré-
-mieux, Littré; troncs dans les églises, destinés au
+des Dollfus et des Schaller, des Iteibcll et des Hartmann lettres chaleureuses de Legouvé, d'Ad. Crémieux, Littré; troncs dans les églises, destinés au
 Denier pour la Patrie; meeting organisé au Cirque des
 Champs-Elysées par Ernest Legouvé, Alhanasc Coquercl
 et Etig. Yung; Barrias, Détaille, Worms, Robert-FIeury,
@@ -3877,8 +3461,7 @@ d'autres artistes encoro, s'engagent à donner chacun
 
 (1) Lettre aux journaux, de M. Jules Gougucnheim, trésorier du
 Comité, initiateur de cette nouvelle forme de la souscription, que
-les députés des départements de l'Kst se chargèrent de recom-
-mander à toute la France ». Cf. Leroy, op. cit., pages 07-100.
+les députés des départements de l'Kst se chargèrent de recommander à toute la France ». Cf. Leroy, op. cit., pages 07-100.
 
 avoués de Château-Thierry souscrit i.SSo francs; les
 « officiers du bataillon d'infanterie de marine campé à
@@ -3889,16 +3472,12 @@ l'école normale primaire de Tarbcs, 63 francs par mois,
 les compositeurs du Progrès du Nord, une journée de
 leur travail par mois jusqu'à complète libération du
 territoire... Mais le gouvernement arrêta la souscription.
-Le 28 février ayant à se prononcer sur une propo-
-sition Anlonln Lcfèvre-Pontalis et Salncuve, relative à
-la formation d'une commission spéciale chargée d'exa-
-miner tous les projets ayant trait à la libération, le
-ministre de l'Intérieur, Victor Lefranc, au nom du gou-
-vernement, rendit hommage à l'élan national: « Il faut
+Le 28 février ayant à se prononcer sur une proposition Anlonln Lcfèvre-Pontalis et Salncuve, relative à
+la formation d'une commission spéciale chargée d'examiner tous les projets ayant trait à la libération, le
+ministre de l'Intérieur, Victor Lefranc, au nom du gouvernement, rendit hommage à l'élan national: « Il faut
 louer, il faut remercier, il faut admirer le sentiment qui
 l'a provoqué mais le suivre, nous y associer, le
-diriger,«non, Messieurs, jamais ». Puisqu'une souscrip-
-tion volontaire, qui peut produire des millions, est
+diriger,«non, Messieurs, jamais ». Puisqu'une souscription volontaire, qui peut produire des millions, est
 « virtuellement impuissante, en quelque lieu, en quelque
 temps, sous l'empire de quelque sentiment que ce soit»,
 à produire des milliards, ce serait « une témérité
@@ -3921,8 +3500,7 @@ six millions se trouvèrent disponibles. Et ils furent, sur
 
 la proposition de M. Wolowskl, (a) par une loi du
 18 décembre suivant, affectés aux Alsaciens-Lorrains,
-un tiers pour création de bourses dans les établisse-
-ments d'enseignement, orphelinats, etc., un tiers pour
+un tiers pour création de bourses dans les établissements d'enseignement, orphelinats, etc., un tiers pour
 assistance directe aux familles, un tiers, enfin, pour
 assistance des émigrants alsaciens-lorrains en Algérie:
 aboutissement imprévu du long mouvement d'inquiétude
@@ -3931,8 +3509,7 @@ dévouement commun dés dames de Strasbourg et de
 Mulhouse, des normaliens de Tarbes et des typographes
 de Lille, de Barrias et de Littré...
 D'autres hommes, en dehors du Parlement, en dehors
-de l'État, poursuivaient le même rêve que M. de Bel-
-eastel: Jean Dollfus et le comte d'Haussonville. — Jean
+de l'État, poursuivaient le même rêve que M. de Beleastel: Jean Dollfus et le comte d'Haussonville. — Jean
 Dollfus, le grand industriel muthousien, fit reconnaître
 la région de Tizi-Ouzou par un homme d'expérience,
 Gerst, autre Alsacien, ancien fonctionnaire des Finances
@@ -3955,23 +3532,19 @@ Un comité de quatre membres existait depuis quelque
 temps, constitué par M. Mannberguer, Strasbourgeois,
 banquier à Paris, ce pour venir en aide aux bombardés
 de Strasbourg — comité d'amis, comité « en
-chambre mais dont a les devoirs s'étendirent en pro-
-portion des désastres qui frappaient inexorablement la
+chambre mais dont a les devoirs s'étendirent en proportion des désastres qui frappaient inexorablement la
 patrie » (i). De nouveaux bienfaiteurs, (a) presque tous
-Alsaciens par leur origine ou leurs alliances, se grou-
-pèrent autour des premiers; on résolut, le janvier
+Alsaciens par leur origine ou leurs alliances, se groupèrent autour des premiers; on résolut, le janvier
 de fonder une Société qui viendrait en aide, non
 plus seulement aux Strasbourgeois, mais à tous les
 émigrants d'Alsace ou de Lorraine, et d'en offrir la
-présidence au comte d'Haussonville, dont l'esprit d'ini-
-tiative, le robuste entrain, les relations puissantes
+présidence au comte d'Haussonville, dont l'esprit d'initiative, le robuste entrain, les relations puissantes
 allaient multiplier rapidement les moyens d'action de la
 Société naissante. Société de protection des Alsaciens-
 Lorrains demeurés Français, elle consacra bientôt une
 grande partie de ses efforts à ceux qui partaient pour
 l'Algérie. Un jour, dans l'Hôtel de la Présidence de
-l'Assemblée Nationale (3), à l'appel du comte d'Haus-
-sonville, une extraordinaire multitude de chefs-d'oeuvre
+l'Assemblée Nationale (3), à l'appel du comte d'Haussonville, une extraordinaire multitude de chefs-d'oeuvre
 se trouvèrent réunis: ce fut la célèbre Exposition des
 
 (1) Discours prononcé par M. Mannberguer à l'inauguration du
@@ -3988,9 +3561,7 @@ Sorbonne, Cuvler, sous-gouverneur de la Banque de France, etc.
 s'ouvrit le »3 avril 1854.)
 
 l'exode
-Alsaciens-Lorrains, dont le souvenir prestigieux sub-
-siste, nullement effacé par les « sensationnelles » col-
-lections qui se sont offertes depuis lors à la curiosité
+Alsaciens-Lorrains, dont le souvenir prestigieux subsiste, nullement effacé par les « sensationnelles » collections qui se sont offertes depuis lors à la curiosité
 publique; et ce furent a45.ooo. francs pour les protégés
 de la Société en Algérie, pour les maisons que
 M. d'Haussonville voulait leur faire construire, pour les
@@ -3998,12 +3569,10 @@ villages qu'il se proposait de fonder, (i)
 ... Pendant ce temps, pour « demeurer Français
 des centaines et des centaines d'hommes, de femmes,
 d'enfants, quittaient l'Alsace, puis, par Belfort ou
-Nancy, s'en allaient vers Marseille, vers la Méditer-
-ranée, vers l'inconnu.
+Nancy, s'en allaient vers Marseille, vers la Méditerranée, vers l'inconnu.
 
 Émigration en masse: expression pittoresque qui
-platt à nos imaginations chargées d'histoire, mais, der-
-rière cet écran trompeur, quelle réalité se cache de
+platt à nos imaginations chargées d'histoire, mais, derrière cet écran trompeur, quelle réalité se cache de
 tristesses et de misères
 Sans doute, ils trouvèrent en arrivant, dans les
 
@@ -4028,26 +3597,19 @@ comités qui se formèrent alors, beaucoup de leurs
 compatriotes, Algériens d'avant la guerre, dont les
 mains se tendaient vers eux: le D'Gros et le Bruch,
 le procureur général Kuenemann, le président Zeys, le
-commandant Riff, le commandant Zurlinden, le capi-
-taine Rouff, le capitaine Heintz, M. Noetinger, vice-pré-
-sident du conseil de préfecture, M. Bergtold, M. Pfeiffer,
-géomètres, des hauts fonctionnaires du P.-L.-M. algé-
-rien, M. Noblemaire et M. Picquart, M. Ruff, le libraire,
+commandant Riff, le commandant Zurlinden, le capitaine Rouff, le capitaine Heintz, M. Noetinger, vice-président du conseil de préfecture, M. Bergtold, M. Pfeiffer,
+géomètres, des hauts fonctionnaires du P.-L.-M. algérien, M. Noblemaire et M. Picquart, M. Ruff, le libraire,
 M. Kappler, directeur des transmissions télégraphiques.
 trouvèrent aussi, parmi ces amitiés alsaciennes
 prêtes à les secourir, à les diriger, à les réconforter, des
 Algériens plus récents, que l'option venait de chasser
 comme eux et qui les avaient précédés de quelques
-mois à peine: tout un groupe de magistrats et d'avo-
-cats, quelques-uns de ceux qui allaient rester sur la
+mois à peine: tout un groupe de magistrats et d'avocats, quelques-uns de ceux qui allaient rester sur la
 terre française les vivants souvenirs de la Cour de
-Colmar, de la Cour de Metz, de la Faculté de Stras-
-bourg, rayées de nos Annuaires comme des morts:
-Lauth, juge à Mulhouse, Richert, président à Sarregue-
-mines, nommés conseillers à la Cour d'Alger, Mallarmé,
+Colmar, de la Cour de Metz, de la Faculté de Strasbourg, rayées de nos Annuaires comme des morts:
+Lauth, juge à Mulhouse, Richert, président à Sarreguemines, nommés conseillers à la Cour d'Alger, Mallarmé,
 fils d'un ancien bâtonnier de Strasbourg et qui venait'
-de se faire inscrire au barreau d'Alger (i), Maillet, ex-
-avocat à Mulhouse, juge de paix à Sidi-bel-Abbès (a),
+de se faire inscrire au barreau d'Alger (i), Maillet, exavocat à Mulhouse, juge de paix à Sidi-bel-Abbès (a),
 Verner, Wurtst, jeunes avocats à Strasbourg, juges de
 paix à Relizane et à Batna (3), Haffner, avocat à
 Colmar, défenseur près le tribunal de Constantine (4),
@@ -4069,15 +3631,13 @@ Anglais, à Alger, vit passer des centaines de ces
 malheureux: le gouvernement l'avait mis pour eux à
 la disposition du comité alsacien-lorrain d'Alger, et
 ils y restaient quelques jours, nourris par les soins
-de leurs compatriotes. Pois, sur des prolonges d'artil-
-lerie, on les dirigeait vers leurs futures résidences.
+de leurs compatriotes. Pois, sur des prolonges d'artillerie, on les dirigeait vers leurs futures résidences.
 A l'arrivée, l'autorité militaire leur prêtait des tentes,
 
 (t) Depuis, conseiller à la Cour du Pau. D'autres encore: Racle,
 de Scnlestadt, nommé juge de paix Souk-Ahras, depuis avocat
 général Alger et premier président à Rouen, Weheklnd, de
-Mulhouse, nommé juge de paix Oued-Athménla, depuis procu-
-reur de la République à Nancy et conseiller Amiens, Gauvenet
+Mulhouse, nommé juge de paix Oued-Athménla, depuis procureur de la République à Nancy et conseiller Amiens, Gauvenet
 dit Dijon, de Strasbourg, nomméJuge de paix à Ténés, en dernier
 Heu juge au Havre, sont venus directement d'Alsace en Algérie
 au lendemain de la paix. — Un des rares magistrats français qui
@@ -4128,8 +3688,7 @@ persiste. Parfois, ce sont des baraques en planches,
 assez bien faites, et que le Génie remonter ensuite
 dans de nouveaux villages, à,mesure que le progrès
 des constructions définitives permet aux premiers de
-La plupart manquent de tout, même ceux qui ne man-
-quaient de rien là-bas: déménager d'Alsace pour l'Al-
+La plupart manquent de tout, même ceux qui ne manquaient de rien là-bas: déménager d'Alsace pour l'Al-
 gérie, opération compliquée, qu'ils simplifiaient en ven-
 .
 
@@ -4142,16 +3701,13 @@ ses magasins le plus abondamment possible: 600 paires
 de guêtres en drap, 800 capuchons en drap noir, des
 capotes d'infanterie, des guêtres blanches, des vareuses,
 des pantalons, des blouses, des tuniques, par milliers.
-Quand l'administration militaire ne fournit pas elle-
-même, c'est toujours elle qui transporte. De temps en
+Quand l'administration militaire ne fournit pas ellemême, c'est toujours elle qui transporte. De temps en
 temps, un convoi d'artillerie arrive, apportant un peu
 de tout cela, et des brouettes, des pelles, des pioches,
 des matelas, et des vêtements de femmes et d'enfants,
-envols des comités de Paris. Et souvent, c'est Zurlin-
-den, ou Riff, ou un autre des officiers alsaciens, qui
+envols des comités de Paris. Et souvent, c'est Zurlinden, ou Riff, ou un autre des officiers alsaciens, qui
 vient les voir, leur apportant mieux encore: quelques
-bonnes paroles en patois de chez eux... Les distribu-
-tions se suivent, variées, incessantes; des subsides, en
+bonnes paroles en patois de chez eux... Les distributions se suivent, variées, incessantes; des subsides, en
 argent ou en nature, ici, francs de l'administration,
 là, francs de la Société d'Haussonville, ou des
 avances de 100 et aoo francs des comités, ou des parts
@@ -4159,8 +3715,7 @@ de la récolte de qu'avaient faite, en leurs lieu et
 place, des Arabes loués par l'administration; des
 vivres, également, si je puis dire, en argent on en
 nature: cinquante centimes par jour et par personne,
-ou, quand l'habitant est perdu dans un pays sans res-
-sources pour l'Européen, des rations militairement
+ou, quand l'habitant est perdu dans un pays sans ressources pour l'Européen, des rations militairement
 distribuées,apportées aussi par le convoi, avec gamelles
 et bidons; enfin, les terres et les semences, les boeufs et
 les charrues, non sans quelques déceptions parfois: les
@@ -4170,13 +3725,10 @@ Bougie, très belles et qui ont coûter fort cher, sont
 beaucoup trop lourdes pour les boeufs d'Algérie; il en
 faudrait trois paires pour les conduire, et elles sont
 restées sur la place du village.
-Mais ce n'étalent que contretemps sans gravité, occa-
-sions de plaisanterie, raisons ou prétextes à réclama-
-tions. Malgré quelques inadaptations risibles ou pour
+Mais ce n'étalent que contretemps sans gravité, occasions de plaisanterie, raisons ou prétextes à réclamations. Malgré quelques inadaptations risibles ou pour
 un moment déconcertantes, l'avenir pouvait, s'ils se
 mettaient au travail, compenser pour eux les sacrifices
-du passé: des concessions de vingt-cinq à trente hec-
-tares, souvent davantage, pour ces braves gens qui
+du passé: des concessions de vingt-cinq à trente hectares, souvent davantage, pour ces braves gens qui
 n'avaient pas plus de trois ou quatre hectares en
 Alsace, c'était un immenseespoir de résurrection, c'était,
 après tant de bouleversements et d'angoisses, l'aurore
@@ -4188,11 +3740,10 @@ Du mois d'octobre 1871 au mois de mars 1875,
 Des confins du Maroc à ceux de la Tunisie, près de
 cent villages où les familles alsaciennes-lorraines ont
 été, suivant la formule administrative, « admises au
-peuplement »: ATn-Fekan, Bon-Khanefls, Oued-Fodda,
+peuplement ATn-Fekan, Bon-Khanefls, Oued-Fodda,
 L'Aima, Corso, Ménerville, Zàajra, Souk-el-Haad, et
 Rebeval, et Mirabeau, et Dra-el-Mizan, et Zemmorah,
-et tous ceux qu'on a dénommés en souvenir: Stras-
-bourg, Metz, Colmar, Belfort, Chèvremont, Horbourg,
+et tous ceux qu'on a dénommés en souvenir: Strasbourg, Metz, Colmar, Belfort, Chèvremont, Horbourg,
 Sainte-Marie-aux-Mines, Marsal, Landser, Bltcbe,
 Eguisheïm, Altkirch, Ribeauvillé, Obernai, Rouffacb,
 
@@ -4200,12 +3751,9 @@ La Robertsau (t); je ne pouvais songer à les voir tous;
 mais, ambitieux de recueillir, où que les ait jetés le
 vent du désastre, les épaves l'Alsace dispersée,
 dussé-je limiter mon pèlerinage à trots ou quatre de ces
-villages alsaciens d'Algérie; Ils m'attiraient invincible-
-ment; je ne me résignais pas à ne connallre d'eux que
-des noms sans vie, ombres exsangues à peine entre-
-vues aux feuillets rapides d'un rapport ou d'un diction-
-Belle-Fontaine, (a) d'abord, parce qu'ici s'instal-
-lèrent les premiers immigrants d'Alsace et de Lorraine
+villages alsaciens d'Algérie; Ils m'attiraient invinciblement; je ne me résignais pas à ne connallre d'eux que
+des noms sans vie, ombres exsangues à peine entrevues aux feuillets rapides d'un rapport ou d'un diction-
+Belle-Fontaine, (a) d'abord, parce qu'ici s'installèrent les premiers immigrants d'Alsace et de Lorraine
 en 1871: Belle-Fontaine fut le lieu de naissance de la
 colonisation alsacienne-lorraine en Algérie. Ce n'était
 point par hasard qu'elle naissait aux portes de la
@@ -4216,8 +3764,7 @@ de manier, avec la pioche, le fusil. La trace de ces
 préoccupations apparaît dans le Rapport du Comité
 
 (1) Sauf pour le premier de ces centres (Strasbourg) et les deux
-derniers (Rouflach et la Robertsau),les noms indigènes sont géné-
-ralement restés seuls en usage: Akbou (Metz), Oued-Amlzour
+derniers (Rouflach et la Robertsau),les noms indigènes sont généralement restés seuls en usage: Akbou (Metz), Oued-Amlzour
 (Colmar), Ain-Tinn (Belfort), Aln-Tagrout(Chèvremont),ATn-TouU
 (Horboorg), Khencbela (Sainte-Marie), AIn-Abessa (Marsal), Ain-
 Roua (Landser), Kl-Kseur (Bltcbe), Bou-Malek (Bguisnelm), Sidl-
@@ -4225,8 +3772,7 @@ Tous ces villages aux noms alsaciens sont dans le département de
 Constanllne, et le conseiller Rtchert, qui était président de la
 commission de séquestre dans ce département,né fut pas étranger
 au choix de ces appellations. N'importe quel fonctionnaire du
-gouvernement général ou de la préfecture aurait trouver Stras-
-bourg, Colmar, Metz et Bitcbe, mais, pour penser à Chèvremont,
+gouvernement général ou de la préfecture aurait trouver Strasbourg, Colmar, Metz et Bitcbe, mais, pour penser à Chèvremont,
 Uorbourg, Rouflach, la Robertsau, il fallait un Alsacien
 Dans le département d'Alger, à 48 kilomètres à l'est d'Alger.
 Centre de colonisation officielle.
@@ -4234,8 +3780,7 @@ Centre de colonisation officielle.
 consultatifde colonisation relatif à la création de Belle-
 Fontaine: il faut « garantir la sécurité du pays par le
 peuplement de colons français Il faut « établir entre
-la Mitldja et Dellys une solide barrière de villages for-
-tifiés, c'est par ce chemin seul que l'insurrection a
+la Mitldja et Dellys une solide barrière de villages fortifiés, c'est par ce chemin seul que l'insurrection a
 menacé de nous envahir « cinquante feux pouvant
 donner cent fusils nous paraissent le minimum à
 adopter pour les futurs villages » (i). Quelques jours
@@ -4245,18 +3790,15 @@ autres travaux de défense que deux blockhaus à établir
 à ses extrémités et il faisait hâter les préparatifs, car
 « le temps presse « chaque courrier nous amène des
 J'ai l'état de lotissement du village: le nom de
-chaque habitant du nouveau centre est suivi de la men-
-tion de son origine, presque toujours la même: quel-
-quefois, mais trèf» rarement, «Algérien», ou « colon du
-pays généralement, « Alsacien ou « Lorrain »:
+chaque habitant du nouveau centre est suivi de la mention de son origine, presque toujours la même: quelquefois, mais trèf» rarement, «Algérien», ou « colon du
+pays généralement, « Alsacien ou « Lorrain
 Schupp Ignace-Dominique, KIock Alexandre, LorenU
 Jacques, Yung Jean, Seltzer Ferdinand,Krempp Charles,
 Barbé Quirin, Ducros Joseph, Yinum Joseph, Firmery
 Georges, Victor et André, Roll Sébastien, Tschirland
 Alexis... Et ils se rappellent les quatre jours passés à
 Nancy, puis une journée à Marseille, et la traversée, le
-mal de mer, les Arabes sur le port, à l'arrivée, qui ven-
-daient des oranges par petits tas de cinq, tout ce qu'on
+mal de mer, les Arabes sur le port, à l'arrivée, qui vendaient des oranges par petits tas de cinq, tout ce qu'on
 pouvaitmanger après les secousses de la Méditerranée...
 Ils.se rappellent la construction de l'église, avec ses
 
@@ -4280,8 +3822,7 @@ représentés par leurs fils. Ils viennent de Dcltwiller, de
 Kalhouso, de Gros-Réderchtng... y en a même un de
 chez mol, et je croîs bien qu'avec sa grande barbe
 blanche, ses lunettes à lourde monture, sa carrure de
-bûcheron, ses histoires d'artilleur de la caserne d'Ans-
-terlits à Strasbourg, sa cordialité rude, ses coups de
+bûcheron, ses histoires d'artilleur de la caserne d'Ansterlits à Strasbourg, sa cordialité rude, ses coups de
 boutoir et son accent, c'est le plus magnifique Alsacien
 de Belle-Fontaine. Alors, les gens et les choses du
 « pays les vivants et les morts, ceux qu'il appelle les
@@ -4293,15 +3834,13 @@ Trou*-d, à la porte de l'épicerie, là, dans la petite rue
 qui » - jnte, en face de la mairie — Zwei Siropp,
 Monsieur Trouard, und Helje desùl » (i) et tous
 
-(i) a Deux sous de mélasse, et une image avec! Ilelje: origi-
-nairement, lletllgenblld, image de saint; d'où, dans la langue
+(i) a Deux sous de mélasse, et une image avec! Ilelje: originairement, lletllgenblld, image de saint; d'où, dans la langue
 populaire, toute Image coloriée.
 
 les coins et recoins du village, la Hintergmse,
 YRntenpfuhl, le MCthlberg, tout cela bondit et rebondit
 et se heurte dans notre conversation précipitée; et si
-je sais maintenant que sur l'emplacement de la bras-
-serio Haag y avait jadis une fabrique de garance
+je sais maintenant que sur l'emplacement de la brasserio Haag y avait jadis une fabrique de garance
 dans l'enclos AwBôthhcf, si je n'ignore plus d'où vient
 à cette vieille cour paisible ce nom rutilant, c'est que je
 l'ai appris, cinq cents lieues de la Moder, modeste
@@ -4342,41 +3881,32 @@ il fit savoir au général Chanzy, gouverneur général de
 l'Algérie, et au comte d'Haussonville,qu'il était disposé
 à laisser son oeuvre en d'autres mains. Le transfert
 s'effectua sans difficulté. Jean Dollfus avait obtenu sa
-concession en avec obligation pour lui d'y instal-
-ler immédiatement trente familles. Avant l'expiration
+concession en avec obligation pour lui d'y installer immédiatement trente familles. Avant l'expiration
 du délai qui lui était accordé à cet effet (t" février 1875),
 la Société de protection avait pris possession de la
 concession Dollfus, et c'est elle qui y établit les familles
 complémentaires (1). Jean Dollfus lui abandonnait les
 malsons déjà bâties, ces maisons qu'il avait pourvues
 d'une manière de véranda, « afin de garantir en partie
-le mur de face des rayons solaires »; mais, comme,
+le mur de face des rayons solaires mais, comme,
 
 (1) L'économie de l'oeuvre (qu'il s'agit de Jean Dollfus ou de la
-Société de protection) était la suivante. L'État concédait un terri-
-toire en bloc, le premier concessionnairedevait le rétrocéder par
+Société de protection) était la suivante. L'État concédait un territoire en bloc, le premier concessionnairedevait le rétrocéder par
 lots des familles alsaciennes-lorrainesdans un délai déterminé.
 L'État ne se charge que des travaux et constructions d'intérêt
-collectifnécessaires pour constituerle village. Le premier conces-
-sionnaire, de son côté, — et c'est la raison de son Intervention,—
+collectifnécessaires pour constituerle village. Le premier concessionnaire, de son côté, — et c'est la raison de son Intervention,—
 pourvoira les famiUes de maisons, de cheptels et d'instruments
 aratoires,assureraleur subsistance Jusqu'à la première récolte,etc.,
-le tout à litre d'avances, dont le remboursement doit lui per-
-mettre de réaliser d'autres créations du même genre. (Le com-
-mandant Riff disait, à propos d'un de ces villages: ne faut
+le tout à litre d'avances, dont le remboursement doit lui permettre de réaliser d'autres créations du même genre. (Le commandant Riff disait, à propos d'un de ces villages: ne faut
 pas qu'Azib-Zamoun devienne un hôtel où on ne pale pas.
-Quant au colon, Il s'engage résider sur ses terres et les cultl-
-
-paratt-il, le service rendu n'était pas en rapport avec
+Quant au colon, Il s'engage résider sur ses terres et les cultlparatt-il, le service rendu n'était pas en rapport avec
 la dépense, la Société fut plus économe construisit
 sans véranda. Aussi, aujourd'hui encore, le long de
 l'unique rue de Bou-Khalfa, les maisons Dollfus et les
 maisons d'Haussonville livrent-elles au premier regard
 le secret de leur origine...
-Il semble que ce centre, par lequel débuta la coloni-
-sation alsacienne privée, ait toujours souffert de ses
-mauvaises chances Initiales: recrutement insuffisam-
-ment agricole, flottements presque Inévitables quand la
+Il semble que ce centre, par lequel débuta la colonisation alsacienne privée, ait toujours souffert de ses
+mauvaises chances Initiales: recrutement insuffisamment agricole, flottements presque Inévitables quand la
 direction change, — et aussi de.quelque maladresse
 dans la distribution des lots: trop de « mamelon», pas
 assez « plaine la « plaine » un peu moins ardue à
@@ -4393,8 +3923,7 @@ nécessité d'une lutte continuelle; et qu'elles soient
 ver en non père de fam^le; pour l'ensemble des terres louées
 un colon, le prix du fermage est de franc par an; après
 un certain temps de résidence et le remboursement des avances
-faites, il devient propriétaire de sa concession. La Société de pro-
-tection, comme Jean DoUfus, fut amenée, dans la plupart des cas
+faites, il devient propriétaire de sa concession. La Société de protection, comme Jean DoUfus, fut amenée, dans la plupart des cas
 Bou-Khalfa, du moins, et a llaussânvillers), abandonner aux
 colons la valeur de leurs maisons. La Société était d'autant plus
 disposée à prendre la suite de Jean Dollfus Bou-Khalfa, qu'elle
@@ -4414,13 +3943,10 @@ sur Bou-Khalfa. Le village s'appela d'abord Aslb-
 Zamoun, vocable difficile auquel les premiers colons
 alsaciens donnèrent, dit-on, de singulières variantes.
 Heureusement, quelques années plus tard, le Conseil
-général d'Alger, glorifiant le nom du fondateur, sim-
-plifia celui de la fondation. Le a territoire de coloni-
-sation d'Azib-Zamoun » avait été mis à la disposition
+général d'Alger, glorifiant le nom du fondateur, simplifia celui de la fondation. Le a territoire de colonisation d'Azib-Zamoun » avait été mis à la disposition
 Haussonvillcrs n'est encore, dit un témoin (a), qu'une
 « concoption géographique ». Mais, dès le mois de
-décembre suivant, trente-trois familles y étaient instal-
-lées, soit « cent trente-cinq personnes, plus une cent
+décembre suivant, trente-trois familles y étaient installées, soit « cent trente-cinq personnes, plus une cent
 trente-sixième qui vient de naître et le village, tout
 comme la cent trcnte-sixièino personne, entrait dans la
 vie. Vie encore primitive, certes. On en était réduit au
@@ -4440,12 +3966,9 @@ de colonisation privée.
 muslquo le soir mais « tout le pays, jusqu'à Dellys
 et à Tizl-Ouzou, s'est ému et a parlé de ce piano, chose
 nouvelle dans ces parages ». Trois des malsons.sont
-affectées aux « services publics »: l'une au représen-
-tant de la Société, une seconde au géomètre chargé de
-délimiter le territoire du village et les lots, une troi-
-sième au magasin de grains de semences. Des orages
-décourageants coïncident avec l'installation des pre-
-miers colons, des boues effroyables sur les chemins
+affectées aux « services publics l'une au représentant de la Société, une seconde au géomètre chargé de
+délimiter le territoire du village et les lots, une troisième au magasin de grains de semences. Des orages
+décourageants coïncident avec l'installation des premiers colons, des boues effroyables sur les chemins
 non empierrés, des boucs à foire pleurer, disait une
 arrivante, et qui pleurait à chaudes larmes, en effet,
 sur le pas de sa porte. Les bêtes sont parquées en plein
@@ -4454,8 +3977,7 @@ de naissance, étant toutes d'élèvo ou d'origine kabyle»;
 moins habituées à leurs nouveaux propriétaires, elles
 ont, les premiers jours, des accès de mauvaise humeur,
 « les boeufs, comme les chameaux, les mulets et les
-chiens indigènes, n'obéissant qu'au burnous » et mani-
-festant volontiers « contre quiconque n'en porto pas ».
+chiens indigènes, n'obéissant qu'au burnous » et manifestant volontiers « contre quiconque n'en porto pas ».
 Les enfants, une quarantaine, «so trouvent encore sans
 surveillance ni instruction courent les champs, « à
 paître le bétail l'école n'est pas achevée, l'archevêque
@@ -4501,8 +4023,7 @@ les deux Helnrlch, et Lorentz, et Heppert, et Hosli, et
 (i) Je ne sais ail y eût dés ce moment un service organisé pour
 les protestants; en tous cas, quelques ann^vs plus tard, une pièce
 louée dans la maison du colon Sand leur servit d'oratoire. En
-1884, le pasteur de Tizl-Ouzou exprima le voeu que l'église d'Haus-
-sonvillérs fût soumise ce régime du slmultaneum qui est bien
+1884, le pasteur de Tizl-Ouzou exprima le voeu que l'église d'Haussonvillérs fût soumise ce régime du slmultaneum qui est bien
 connu en Alsace (l'église servant tour à tour aux deux cultes)
 
 Marchai, et Starck, et Zlngraff, et Marlzloff, tous
@@ -4510,24 +4031,17 @@ ceux-là connaissaient depuis longtemps l'agriculture,
 ils étaient déjà « colons » au pays, comme dit un de
 mes interlocuteurs. Mélange, on le volt, d'éléments
 très divers, de « paysans véritables » et d'autres, qui
-sont moins ou qui ne le sont pas du tout. Heureuse-
-ment, à tout prendre, malgré le « tringlot le quin-
-caillier du Zornhof et contrebandier, le recrutement
-était meilleur qu'à Bou-Khalfa: les « colons » l'empor-
-taient de beaucoup. Assez d'autres circonstances survin-
-rent, qui pouvaient contrarier le succès d'Hausson-
-villers. Les concessions, Ici, furent en moyenne
+sont moins ou qui ne le sont pas du tout. Heureusement, à tout prendre, malgré le « tringlot le quincaillier du Zornhof et contrebandier, le recrutement
+était meilleur qu'à Bou-Khalfa: les « colons » l'emportaient de beaucoup. Assez d'autres circonstances survinrent, qui pouvaient contrarier le succès d'Haussonvillers. Les concessions, Ici, furent en moyenne
 quarante hectares, mais une trop grande distance
 (parfois douze kilomètres) séparait les « parcelles
 et, de plus, à l'usage, la qualité parut moins enviable
 que la quantité, il fallait un effort sans répit pour
 un « rendement » parcimonieux. En outre, le progrès
-même n'a pas toujours servi les intérêts d'Hausson-
-villcrs. Auparavant, Haussonvillcrs était un relai
+même n'a pas toujours servi les intérêts d'Haussonvillcrs. Auparavant, Haussonvillcrs était un relai
 important de la route d'Alger à Dellys et à Fort-
 National, avec toute une cavalerie, du mouvement, du
-trafic, des passages de troupes continuels. Vieux souve-
-nirs aujourd'hui! depuis vingt-cinq ans, le chemin de
+trafic, des passages de troupes continuels. Vieux souvenirs aujourd'hui! depuis vingt-cinq ans, le chemin de
 fer a tué le relai, (i) et, de plus, les travaux de
 construction de la ligne, bureaux ou chantiers temporal-
 
@@ -4542,13 +4056,11 @@ une soixantaine d'autres, dans tous les emplois, garde-frein, ajus-
 
 l'exode
 rement, mais largementrémunérateurs,avaient détourné
-beaucoup de colons de la colonisation. Ci, une popula-
-tion mal recrutée aurait certainement montré une
+beaucoup de colons de la colonisation. Ci, une population mal recrutée aurait certainement montré une
 résistance moindre, Haussonvillers s'est maintenu, et
 la poussée des Arabes qui, depuis plusieurs années,
 achetant ou louant, reprennent sur Haussonvillers de
-leurs anciennes terres, serait encore plus forte et peut-
-être plus inquiétante sans ce fonds de colons solides,
+leurs anciennes terres, serait encore plus forte et peutêtre plus inquiétante sans ce fonds de colons solides,
 venus* d'Ettendorf, d'Artolsheim, de Garrebourg, de
 Domnom, d'Eckarlswiller, de Schorbach.
 
@@ -4556,8 +4068,7 @@ Plus heureux que ses aînés, dernier venu de la
 colonisation alsacienne, le Camp-du-Maréchal (i) fut
 l'enfant gâté de la famille: les difficultés antérieures
 lui furent épargnées, il profita de toute l'expérience
-acquise. Mis à la disposition de la Société de protec-
-tion dès 1873, elle ne s'occupa de le peupler qu'un peu
+acquise. Mis à la disposition de la Société de protection dès 1873, elle ne s'occupa de le peupler qu'un peu
 plus tard, en 1879, après les premiers progrès de Bou-
 Khalfa et d'Haussonvillers. On eut donc plus de temps
 pour préparer le futur village, pour étudier les plans,
@@ -4571,8 +4082,7 @@ teur, chef de pose, chef d'équipe, chauffeur, brigadier de la voie,
 chef de train, commis principal,chef de bureau, etc. L'ingénieur
 en chef de l'exploitation est de Strasbourg. On peut noter aussi
 que la partie de la ligne qui est dans la province d'Alger, a été
-construite par un Messin, et l'autre, celle qui est dans Constan-
-tlne, par un Wissembourgeots.
+construite par un Messin, et l'autre, celle qui est dans Constantlne, par un Wissembourgeots.
 (1) Entre Haussonvillers et Bou-Khalfa.
 
 commission devant laquelle comparaissaient les futurs
@@ -4588,11 +4098,9 @@ deux mille francs, représentant la moitié du prix de la
 maison construite à leur intention, demeurerait acquis à
 la Société. Mais il n'importait. Les candidats affluèrent,
 justifiant de leurs ressources, qui de 8.000 ou 10.000
-francs, qui de i5.ooo francs, qui de 20.000, même davan-
-tage. Comme tant d'autres, s'ils partaient de chez eux,
+francs, qui de i5.ooo francs, qui de 20.000, même davantage. Comme tant d'autres, s'ils partaient de chez eux,
 ce n'était pas que la misère les chassât...
-Aujourd'hui, ce village au nom pittoresque et guer-
-rier, souvenir d'un camp qu'y établit le maréchal
+Aujourd'hui, ce village au nom pittoresque et guerrier, souvenir d'un camp qu'y établit le maréchal
 Randon et peut-être déjà Buge&ot'-, d'une de ces
 Biscuits-villes, comme on disait alors, qui servaient de
 centres de ravitaillement aux colonnes, — aujourd'hui,
@@ -4610,18 +4118,15 @@ secrétaire général de la Société.
 
 l'exode
 maître, à Mulhouse, « chez André Koechlin ». La
-guerre survient; la prise de possession par les Alle-
-mands; an corps de garde à l'entrée de la ville. On
+guerre survient; la prise de possession par les Allemands; an corps de garde à l'entrée de la ville. On
 habitait Brunstatt, un faubourg; il fallait montrer « sa
-passe » tous les jours, en allant au travail, en reve-
-nant. Une insolence du factionnaire, une mauvaise
+passe » tous les jours, en allant au travail, en revenant. Une insolence du factionnaire, une mauvaise
 humeur de l'autre; coup de poing; appel à la garde;
 fuite par le canal, à la nage. Il s'est réfugié à Belfort,
 Quelques jours après, la mère, à Brunstatt, accouchait
 de son neuvième enfant, et on portait le nouveau-né à
 Belfort pour qu'il ne fût point « baptisé Prussien »... Et
-aussi des souvenirs de caserne allemande. Oui, alle-
-mande. Car celui-là avait quitté le pays, s'était engagé
+aussi des souvenirs de caserne allemande. Oui, allemande. Car celui-là avait quitté le pays, s'était engagé
 dans la Légion, puis, au bout de deux ans, avait voulu
 revoir son village, ses vieux. Il est reconnu, arrêté;
 ators, le casque et le pain noir, en Westphalie. Un
@@ -4637,15 +4142,13 @@ parle de l'abbé Fund, de l'abbé Fournaise, de l'abbé
 Grusenmeyer, de l'abbé Florent Marx, les premiers
 curés du Camp et d'Haussonvillers, tous Alsaciens,
 compagnons et consolateurs de l'exode. Alsaciennes
-également, les Soeurs de Ribeauvlllé, qui tinrent long-
-temps l'école des filles, là, près de l'église, sur la
+également, les Soeurs de Ribeauvlllé, qui tinrent longtemps l'école des filles, là, près de l'église, sur la
 place, dans cette jolie maison blanche où le comte
 d'Haussonville installait son bureau, lorqu'il venait au
 
 Camp, et qu'il depuis, offerte à la commune (i).
 Alsacien aussi, le premier instituteur, M. Schoeffler,
-ancien élève de l'école normale de Colmar, instituteur-
-adjoint à Wintzenheim avant la guerre, — et qui
+ancien élève de l'école normale de Colmar, instituteuradjoint à Wintzenheim avant la guerre, — et qui
 n'enseigna pas seulement les petits, car, jour,
 Fieckinger André, qui avait vingt-cinq ans, et Riemer
 Jérôme, qui en avait trente-cinq, et Timmel Charles,
@@ -4666,8 +4169,7 @@ de revoir son village, c'est son a rêve me dit-il, les
 larmes aux yeux, et il attend avec impatience le moment
 où il pourra passer la frontière sans crainte de l'autorité
 militaire allemande: aussitôt ses quarante-cinq ans
-sonnés, il prendra son passage et partira, « Pour tou-
-jours? —... Oui,... si les choses changeraient/ » Son
+sonnés, il prendra son passage et partira, « Pour toujours? —... Oui,... si les choses changeraient/ » Son
 frère, maréchal des logis d'artillerie, a été tué, il y a
 
 (i) Les princes d'Orléans, les Chalats-Pérlgord. les de ItrogUe,
@@ -4684,8 +4186,7 @@ mieux adopté la langue maternelle des gens du Camp,
 il était au labour toutes les recherches furent vaines,
 mais on m'a présenté un de ses émules, et comme je
 demandais à celui-là s'il parlait aussi Vetsâsser ditsch,
-ce diable noir en burnous m'a répondu par un Alle-
-weyl(?) sonore et chantant, superbement du cru, que
+ce diable noir en burnous m'a répondu par un Alleweyl(?) sonore et chantant, superbement du cru, que
 je n'oublierai de ma vie et que ne dépara point, croyez-
 Des aspects et des usages d'Alsace revivent sur ce
 sol lointain: l'impression est étrange, de les retrouver
@@ -4697,8 +4198,7 @@ atavisme agricole, « petite culture » Isolée parmi les
 plus des champs, mais de la ville: dans leurs maisons,
 telles qu'elles les attendaient à l'arrivée, c'est d'une
 pièce intérieure qu'on communiquait, par une simple
-trappe, avec la cave; ils ont changé tout cela; mainte-
-nant, on y entre du dehors, par ces auvents en pente,
+trappe, avec la cave; ils ont changé tout cela; maintenant, on y entre du dehors, par ces auvents en pente,
 qui s'appuient au sol et qui s'ouvrent sur la rue,
 comme dans les.maisons de chez eux. Et puis,... « un
 
@@ -4714,13 +4214,12 @@ Bernard; les processions, spectacle inconnu ailleurs en
 Algérie, sont une des joies du Camp-du-Maréchal, et
 même, ces jours-ci, à la dernière Fête-Dieu, la fanfare
 de Hussein-Dey est venue militariser le cortège de ses
-cuivres belliqueux, au grand enthousiasme des habi-
-tants du Camp et de tous les Alsaciens d'alentour.
+cuivres belliqueux, au grand enthousiasme des habitants du Camp et de tous les Alsaciens d'alentour.
 Recevoir, dès le matin, du « secrétaire indigène » de la
 mairie, l'aimable hommage d'un « café arabe et, la
 minute suivante, se surprendre chantonner avec un
 natif de Monswiller notre Dans Schnookeloch
-d'Alsace, comme un air de ralliement entre « pays »;
+d'Alsace, comme un air de ralliement entre « pays
 admirer, au mur, une pancarte calligraphiée et coloriée,
 la liste des membres de cette authentique municipalité
 alsacienne—Eininger Félix, maire, Schweitzer Laurent,
@@ -4743,8 +4242,7 @@ LOBRAINB; parler de Wlsscmbourg avec M. Eininger,
 de Saverne avec Streicher, de Trimbach avec Kast
 
 l'exode-
-Mathieu, d'Etlendorf avec Muller Xavier, le garde-
-champêtre, et, tout en causant, répondre par un salut
+Mathieu, d'Etlendorf avec Muller Xavier, le gardechampêtre, et, tout en causant, répondre par un salut
 militaire aux Arabes qui passent, les jambes pendantes,
 sur leurs mules, suivre longuement du regard, dans le
 crépuscule d'Orient, le jeune pâtre biblique qui conduit
@@ -4763,13 +4261,9 @@ c'était l'année où j'ai reçu mon fils... » Je revois tout à
 coup d'autres soirs lointains, là-bas, dans quelqu'un de
 mes villages d'Alsace, je reconnais des voix familières,
 disant les mêmes mots, chantonnés, appuyés, du même
-accent. Comme cet air du pays envelopperait délicieu-
-sement!... mais pour nous, en quelque endroit de la
-terre que nous nous retrouvions, à la douceur des sou-
-venirs une amertume se mêle, et notre émotion n'est
-pas de tendresse seule et d'égoïste regret. Entre autre-
-fois et aujourd'hui, vision implacable, la mauvaise fron-
-tière passe... Il me semblait entendre encore le père
+accent. Comme cet air du pays envelopperait délicieusement!... mais pour nous, en quelque endroit de la
+terre que nous nous retrouvions, à la douceur des souvenirs une amertume se mêle, et notre émotion n'est
+pas de tendresse seule et d'égoïste regret. Entre autrefois et aujourd'hui, vision implacable, la mauvaise frontière passe... Il me semblait entendre encore le père
 Schweitzer, qui disait tout à l'heure, « à l'apéritif
 bonnement, simplement, comme il le pense: « Il faut
 que la France il se montre, il faut qu'il soit fort; la
@@ -4812,32 +4306,25 @@ dans l'administration. Les départs, d'ailleurs, ont été en
 partie compensés par des arrivées nouvelles.Quoique le
 grand mouvement de l'immigration alsacienne-lorraine
 se fût ralenti à partir de 1875 et arrêté vers 1881, des
-Alsaciens-Lorrains sont venus, en quantité assez consi-
-dérable, même après cette date, attirés par les parents,
+Alsaciens-Lorrains sont venus, en quantité assez considérable, même après cette date, attirés par les parents,
 les amis, les gens de leur village, qui avaient réussi, ou
 pour s'attacher à la fortune de quelque entreprise de
-fondation alsacienne, ou pour d'autres raisons: légion-
-naires qui, leur temps achevé, ne quittent plus leur
+fondation alsacienne, ou pour d'autres raisons: légionnaires qui, leur temps achevé, ne quittent plus leur
 .
 garnison ou ses abords, altuvions d'Alsace laissées par
 la Légion étrangère autour de ses deux régiments, à
-Sidi-bel-Abbès et à Saïda... Pour tous ceux-là, l'ini-
-tiative de M. de Beleastel a été le germe heureux de
+Sidi-bel-Abbès et à Saïda... Pour tous ceux-là, l'initiative de M. de Beleastel a été le germe heureux de
 leur avenir.
 Une autre personne, plus haute, en a profité. « Nous
-avons à fonder une colonie française, et non euro-
-péenne écrivait, en 1871, à propos d'un des nouveaux
+avons à fonder une colonie française, et non européenne écrivait, en 1871, à propos d'un des nouveaux
 villages projetés, le rapporteur du Comité consultatif
-de colonisation (1). Sur quelles observations déce-
-vantes se fonde ce judicieux avis, et quelles craintes
+de colonisation (1). Sur quelles observations décevantes se fonde ce judicieux avis, et quelles craintes
 l'inspirent, ce n'est point ici le lieu de le rechercher. Dès
 avant 1871, l'Algérie avait attiré beaucoup d'éléments
 étrangers; elle a continué, depuis quarante ans, à
 séduire, à absorber, à assimiler. Certes, les apports
 
-(1) Séance du Comité, du 96 octobre (Archives du Gouver-
-
-moraux de l'individu dans la collectivité, d'une petite
+(1) Séance du Comité, du 96 octobre (Archives du Gouvermoraux de l'individu dans la collectivité, d'une petite
 collectivité dans une collectivité plus grande, échappent
 aux évaluations précises. Il est permis d'affirmer,
 pourtant, que dans le creuset où de tant d'éléments
@@ -4847,20 +4334,17 @@ méthode, de ténacité, de conscience au travail, de
 susceptibilité patriotique. L'Alsace et la Lorraine
 perdues, on l'a souvent remarqué dans ces dernières
 années, ce n'était pas seulement deux provinces en
-moins, c'était aussi, par Jnstants, la France « déséqui-
-librée »: harmonieux composé de Nord et de Midi,
+moins, c'était aussi, par Jnstants, la France « déséquilibrée harmonieux composé de Nord et de Midi,
 d'Est et d'Ouest, auquel, tout à coup, l'Est manquait.
 Les cinq mille Alsaciens d'Algérie ne sont pas inutiles
 pour maintenir dans la seconde France l'équilibre
-Et puis, cet élan mutuel qui rapprochait la mère-
-patrie et quelques milliers de ses enfants au lendemain
+Et puis, cet élan mutuel qui rapprochait la mèrepatrie et quelques milliers de ses enfants au lendemain
 d'une séparation que les vainqueurs auraient voulue
 définitive, cette étreinte confiante sur des ruines, ne
 manquait pas de grandeur. Le général de Galliffet,
 qui commandait alors la division de Constantlne,
 écrivit un jour à ses commandants de subdivisions et
-de cercles, découragés sans doute par quelques mau-
-vais colons: « Il ne s'agit pas d'illusions, mais de nous
+de cercles, découragés sans doute par quelques mauvais colons: « Il ne s'agit pas d'illusions, mais de nous
 conduire de telle façon qu'aucun Alsacien-Lorrain ne
 puisse un jour nous reprocher de n'avoir pas tout fait
 pour payer la dette que l'armée a contractée vis-à-vis
@@ -4887,8 +4371,7 @@ presque tous les_ siens, « car c'était trop dur de rester
 
 possibles mettre les immigrants alsaciens-lorrains en position de
 pourvoir par le travail aux besoins de leurs familles. Cela fait, Il
-ne faut refuser à aucun les subsides alimentaires. Une considé-
-ration domine toutes les autres: les Alsaciens-Lorrains ne
+ne faut refuser à aucun les subsides alimentaires. Une considération domine toutes les autres: les Alsaciens-Lorrains ne
 peuvent, faute de moyens d'existence sur le sol de la France, être
 contraints à retourner dans leur pays natal et à devenir ainsi des
 étrangers. Un crédit vous sera ouvert, demandez-le. » (L. C. DOMI-
@@ -4904,14 +4387,10 @@ perdues. » (Archives de la Société de protection)
 Industries qui se sont transportées sur le territoire
 demeuré français; petites villes qui ont perdu, avec une
 partie de leur population, leur caractère et leur âme;
-grandes villes déjà atteintes ou de plus en plus mena-
-cées par l'invasion administrative, militaire, commer-
-ciale d'outre-Rhin; agglomérations « indigènes » tou-
-jours compactes où 1' « immigré » se hasarde sans
+grandes villes déjà atteintes ou de plus en plus menacées par l'invasion administrative, militaire, commerciale d'outre-Rhin; agglomérations « indigènes » toujours compactes où 1' « immigré » se hasarde sans
 audace; forces anonymes qui ne voulaient pas être
 acquises comme des choses, avec le sol, par la force,
-et qui se sont dispersées au loin Bischwiller, Phals-
-bourg, Metz, Mulhouse, l'Algérie offrent de l'émigration
+et qui se sont dispersées au loin Bischwiller, Phalsbourg, Metz, Mulhouse, l'Algérie offrent de l'émigration
 alsacienne et lorraine des aspects assez divers, je
 l'espère du moins, pour ne point fatiguer le lecteur,
 assez représentatifs aussi pour qu'il ne manque rien
@@ -4919,8 +4398,7 @@ d'essentiel à la douloureuse histoire de cet exode. Mais
 de tant de vaillances et de misères j'ai trouvé plus
 d'une trace encore, sur les autres routes où je l'ai suivi.
 
-J'ai Wissembourg,notre ancien « coin deWissem-
-bourg jolie sous-préfecture française, où souriait
+J'ai Wissembourg,notre ancien « coin deWissembourg jolie sous-préfecture française, où souriait
 autrefois le souvenir de Marie' Leczynska demandée
 en mariage par Louis XV, vision pimpante et poudrée
 qu'efface depuis quarante ans une vision sanglante: le
@@ -4931,8 +4409,7 @@ monde est parti la ville a été « décapitée ». De la
 l'exode
 vieille bourgeoisie française, il ne reste plus que sept ou
 huit familles, et qui meurent: les filles ne se sont pas
-mariées, les fils ne sont plus là. Industriels, fonction-
-naires, officiers: tout ce petit monde wissembourgeois
+mariées, les fils ne sont plus là. Industriels, fonctionnaires, officiers: tout ce petit monde wissembourgeois
 était attaché d'un même coeur aux mêmes traditions et
 au même sol. Il était naturel que le départ des uns
 entraînât celui des autres. Des industries périclitèrent
@@ -4944,21 +4421,17 @@ même sans le traité de Francfort; niais, pour presque
 toutes, c'est le changement de frontière qui a seul arrêté
 le développement de l'entreprise, provoqué le départ des
 hommes: s'il fallait recommencer sa vie à pied-d'oeuvre,
-mieux valait tenter la nouvelle fortune sur la terre fran-
-çaise. Wissembourg, chef-lieu d'arrondissement, était
+mieux valait tenter la nouvelle fortune sur la terre française. Wissembourg, chef-lieu d'arrondissement, était
 le siège d'un tribunal civil; quelques semaines après
 le traité, la loi allemande du 14 juin 1871, remaniant
-les circonscriptions judiciaires d'Alsace-Lorraine, sup-
-prima le tribunal de Wissembourg: les juges français
+les circonscriptions judiciaires d'Alsace-Lorraine, supprima le tribunal de Wissembourg: les juges français
 étaient partis, il n'en vint pas d'autres, et tout ce qui
 vit autour delà justice disparrt avec elle. Wissembourg
 était ville-frontière, centre d'un service de douanes
 important: tout un personoel qui recula en même
-temps que la frontière, jusqu'où le traité la transpor-
-tait: « La douane s'est repliée me dit un de mes
+temps que la frontière, jusqu'où le traité la transportait: « La douane s'est repliée me dit un de mes
 interlocuteurs: expression concise, imagée, doulou-
-a plus qu'au cimetière ». Là, du moins, à côté du monu-
-ment élevé «Aux soldats français — nos frères —
+a plus qu'au cimetière ». Là, du moins, à côté du monument élevé «Aux soldats français — nos frères —
 morts pour ta patrie il y a encore des Veling et des
 
 Hormis, des Zoegger et des Gauckler, des Boell et des
@@ -4974,10 +4447,9 @@ avaient dès longtemps facilité l'introduction de quelques
 éléments allemands dans la population, surtout lors
 des crises politiques: dans la conversation, plus d'un
 nom est suivi de ce qualificatif: « Ceux-là, c'étaient
-des Freischaerler »: on appela ainsi, à Wissembourg,
+des Freischaerler on appela ainsi, à Wissembourg,
 les réfugiés de 1848 et leurs familles. Mais bientôt,
-« le milieu » les « absorbait comme on dit, absorp-
-tion très rapide, par ce milieu solide et solidement
+« le milieu » les « absorbait comme on dit, absorption très rapide, par ce milieu solide et solidement
 français, — qui s'est dissous aussitôt après la guerre.
 Alors il n'y eut plus ni résistance ni absorption
 possible. L'invasion lente a suivi l'exode, et l'on
@@ -5001,7 +4473,7 @@ frontière, et chez qui l'on voit, pendue au mur de soi
 bureau, avec un portrait de Guillaume II, une «repro
 duction du tableau bien connu: « Heldentod det
 elf Schill'scken Offiziere vor Wesel— 16. Septembei
-1809 »: je suis certain que la maison de son prédé
+1809 je suis certain que la maison de son prédé
 cesseur contenait d'autres souvenirs que celui-là..
 Entre ceux qui sont partis et ceux qui sont arrivés, il
 a égalité de nombre, non point équivalence de qualité:
@@ -5021,8 +4493,7 @@ cette maison au bord du sentier, ce peuplier sur la
 crête, — la vague étrangère se pressait: depuis, à la
 suite du déferlement furieux d'il y a quarante ans,
 l'infllfration se poursuit, le flot grossit, monte, d'une
-crue lente, mais continue, autour de ces épaves aban-
-données et peut-être les submergera demain.
+crue lente, mais continue, autour de ces épaves abandonnées et peut-être les submergera demain.
 
 A cent kilomètres de Wissembourg, vers l'ouest, une
 petite ville lorraine: Vie. Ici le flot n'a point pénétré.
@@ -5036,8 +4507,7 @@ même colonisateur. Ce n'est plus le Palatinat qui se
 déverse sur l'Alsace, mais la Lorraine sur la France.
 Ce n'est pas l'invasion, mais c'est encore l'exode,
 la retraite vers la France. Et c'est encore le « replie-
-Jusqu'à une heure avancée de la nuit, en interro-
-geant, en écoutant quelques anciens du pays, de ces
+Jusqu'à une heure avancée de la nuit, en interrogeant, en écoutant quelques anciens du pays, de ces
 hommes qui connaissentpar coeur toutes les généalogies
 et biographies de leur petite ville, j'ai renaître
 les jours de l'option et passé la revue des. partants.
@@ -5048,11 +4518,9 @@ son tribunal, successeur de l'ancien tribunal épiscopal.
 Dès le lendemain de la guerre, Vie perdit son tribunal,
 comme Wissembourg. n'y survécut, de tout le passé,
 qu'une étude de notaire. Des cinquante clercs occupés à
-Vie, deux seulement y restèrent: tous les autres par-
-tirent, l'un est devenu greffier du tribunal à Verdun, un
+Vie, deux seulement y restèrent: tous les autres partirent, l'un est devenu greffier du tribunal à Verdun, un
 autre, huissier à Saint-Ouen, un autre, secrétaire de
-préfet, un autre... Mais je passe. Avoués, greffiers, pre-
-miers clercs et petits clercs n'avaient plus ici de raison
+préfet, un autre... Mais je passe. Avoués, greffiers, premiers clercs et petits clercs n'avaient plus ici de raison
 d'être: ils sont partis. Beaucoup d'autres aussi s'en
 allèrent, qui pouvaient rester, si la raison d'être avait
 seule alors dirigé les consciences et les actes. Humbert
@@ -5063,11 +4531,9 @@ Benoit, tailleur de pierre, s'en fut jusqu'à Bordeaux;
 Courteau Laurent, menuisier, n'a pas voulu rester,
 
 l'exode
-« à cause de ses trois fils — vous devinez pour-
-quoi, — il est parti avec eux à Nancy; Grosjean Jean-
+« à cause de ses trois fils — vous devinez pourquoi, — il est parti avec eux à Nancy; Grosjean Jean-
 Pierre, vigneron, parti à Bezange; Parisot Silvain?
-garde-forestier à Champënoux; Rose Masson? mar-
-chande de bonbons à Essey-les-Nancy; Lefèvré Charles?
+garde-forestier à Champënoux; Rose Masson? marchande de bonbons à Essey-les-Nancy; Lefèvré Charles?
 chef de musique à Paris; Lhote, le charpentier? Nancy;
 Michel Dominique? Saint-Nicolas; Mathis François'?
 Alger; Parent Martin, vigneron, — vous savez bien,
@@ -5078,8 +4544,7 @@ des forêts, Clochette, le maréchal-feirant, Doiteau,
 Doiteau le Nicolas, charcutier, Beaudoin Jean-Pierre,
 boulanger, Poinsignon Nicolas, cordier, et Pâté Charles,
 de Lindre-Haute, et le Jean-Baptiste, l'épicier, le frère
-du Constant, et Etienne Alexis, pauvre diable de can-
-tonnier, parti à Monceï, qui est revenu mourir ici, et la'
+du Constant, et Etienne Alexis, pauvre diable de cantonnier, parti à Monceï, qui est revenu mourir ici, et la'
 veuve pevanel avec ses enfants, qui habitait la maison
 de Sophie Muller, et le Théodore-Charles, le vigneron
 du Coin des Quatre-Voleurs... On est parti... Plus du
@@ -5092,8 +4557,7 @@ pour magasins à fourrages ou pour « bougeries ». La
 propriété bâtie n'est jamais remontée à ses prix
 d'autrefois. Une maison qui valait quinze mille francs
 avant la guerre, s'est vendue trois mille vers 1880...
-On partait... Souvent, pour que l'administration alle-
-mande Ignorât plus longtemps la décision prise et ne
+On partait... Souvent, pour que l'administration allemande Ignorât plus longtemps la décision prise et ne
 compliquât pas de ses tracasseries les autres embarras
 
 du départ, on allait faire sa déclaration d'option
@@ -5113,8 +4577,7 @@ la patrie, ce fut quand même une expatriation.
 Ailleurs, au pied des Vosges, de ce côté-ci de la
 frontière, j'ai l'exode arriver, ces Français deux
 fois Français (i) se débattre,.avec les difficultés d'une
-existence à refaire, errants, inquiets, mais se redres-
-sant toujours dans la fierté de n'avoir pas voulu « rester
+existence à refaire, errants, inquiets, mais se redressant toujours dans la fierté de n'avoir pas voulu « rester
 
 Au Val-et-Châtillon, sur la Vezouse, commune qui
 n'avait pas mille habitants, il en arriva plus de deux
@@ -5134,18 +4597,15 @@ au tissage mécanique les « fileurs-rattacheurs » et
 les tisseurs » de Schirmcck et de Rothau, à la
 scierie les bûcherons d'Abreschwiller; et, dans les jours
 qui suivaient, le « bureau » organisait un service de
-charrettes qui allaient chercher leurs meubles au vil-
-lage abandonné... Plus bas dans la vallée, Cirey faisait
+charrettes qui allaient chercher leurs meubles au village abandonné... Plus bas dans la vallée, Cirey faisait
 partie d'un vaste ensemble d'industrie verrière qui
 comprenait, de l'autre côté de la frontière, Saint»
 Quirin (i). Et Cirey a recueilli Saint-Qoirin. Aujour-
-d'hui, parmi les « polisseurs » de Cirey, la moitié seule-
-ment, ou à peine davantage, sont des aulochlhones;
+d'hui, parmi les « polisseurs » de Cirey, la moitié seulement, ou à peine davantage, sont des aulochlhones;
 les autres, venus, soit tout de suite après la guerre,
 soit quelques années plus tard, quand fut fermée
 l'usine de Saint-Quirln (a), sont des gens de Lorquin,
-d'Abreschwiller, de Lafumbolle, de Nitting, de Nie-
-derhof, d'Hermelange, de Vasperviller, de Walscheld...
+d'Abreschwiller, de Lafumbolle, de Nitting, de Niederhof, d'Hermelange, de Vasperviller, de Walscheld...
 A Raon-1'Étape, sur cinq raille habitants environ,
 près d'un millier sont d'origine alsacienne. En
 plus de cent jeunes gens d'outre-Vosges, vinrent tirer
@@ -5157,7 +4617,7 @@ nationalité française et fixer son domicile à Raon-
 (1) fins exactement: Lellembach, prés de Salnl-Qulrtn. Mais la
 dénomination: 1 Verreries de Satnt-Quirln est d'usage courant.
 
-l'Étape »: du 15 février au 9 juin, cent vingt
+l'Étape du 15 février au 9 juin, cent vingt
 familles sont inscrites, qui de cinq, qui de sept, qui de
 .neuf enfants; du 9 juin au septembre, cent quatre
 familles; ici, seize familles; là, vingt-six; ailleurs,
@@ -5176,9 +4636,7 @@ Belfort: le « dernier domicile le « lieu de naissance
 c'est Dambach, c'est Obernai, c'est Altkirch, c'est
 Erstein, et Ingwiller, et Haguenau, et Dattlenheim, et
 Dorlisheim, et Sainte-Marie-aux-Mines, et Neuf-Brisach,
-— tous ces noms qui me sont familiers, qui me rap-
-pellent, presque tous, un visage, une image, un souve-
-nir, que je revois à leur place dans l'ancienne carte de
+— tous ces noms qui me sont familiers, qui me rappellent, presque tous, un visage, une image, un souvenir, que je revois à leur place dans l'ancienne carte de
 France comme si J'avais connu la France de cette
 carte-là, — et qui sont, maintenant, l'étranger.
 
@@ -5186,8 +4644,7 @@ carte-là, — et qui sont, maintenant, l'étranger.
 domicile des a réintégrations et bien d'autres
 documents, les plus divers, où apparaissent et revivent
 toutes les difficultés, les générosités, lés tristesses de
-l'exode: des comptes de la Préfecture avec ta Compa-
-gnie de l'Est, émigrants transportés de Neuf/château
+l'exode: des comptes de la Préfecture avec ta Compagnie de l'Est, émigrants transportés de Neuf/château
 à Langres le 20 juillet 1871,9) de Neufchftleau à Gray
 
 l'exode
@@ -5201,8 +4658,7 @@ l'aubergiste Bojoly, d'Épinal, pour l'entretien des jeunes
 l'armée française; — des demandes de secours: la
 famille Ostermann, dont « les meubles et vêtements ont
 été incendiés au bombardement de Strasbourg, où
-mari a été estropié Franck, de Wissembourg, serru-
-rier, qui « a vendu ses outils pom- émigrer Ch.-Eug.
+mari a été estropié Franck, de Wissembourg, serrurier, qui « a vendu ses outils pom- émigrer Ch.-Eug.
 Leypold, ancien soldat, ayant perdu l'oeil droit à la
 bataille de Traktir, père de quatre enfants en bas âge,
 contremaître de lissage et qui « a tout quitté pour
@@ -5211,8 +4667,7 @@ hiérarchiquement transmises, par l'inspecteur primaire,
 en faveur de M. Lirhantz, cx-institutcur-adjoinlà Thann,
 non replacé dans les Vosges, « car il y en a trop
 
-(1) celle-ci, particulièrement dramatique: de Xavier Maycr-
-hoffer, ouvrier fondeur à Cornimont. Rngagé volontaire pour la
+(1) celle-ci, particulièrement dramatique: de Xavier Maycrhoffer, ouvrier fondeur à Cornimont. Rngagé volontaire pour la
 durée de la guerre au zouaves, puis versé au tirailleurs
 algériens, il est fait prisonnier à l'armée de la Loire, s'évade,
 retourne a son régiment, qui est renvoyé en Afrique. Lui-même,
@@ -5221,32 +4676,27 @@ regagne ses foyers en Alsace, mais n'y trouve plus personne:
 ses parents ont opté, eux aussi, et sont déjà partis, pour VIcrzon,
 ou les rejoint. Il n'a pas de ressources, il n'a pas de travail. Il
 trouve a s'occuper pour un mois, à Auxcrrc, puis chercher
-ailleurs, aboutit 4 Cornlmonl. Mais il a souffert de trop de priva-
-tions, Il tombe malade, demande un secours... Il meurt, quelques
+ailleurs, aboutit 4 Cornlmonl. Mais il a souffert de trop de privations, Il tombe malade, demande un secours... Il meurt, quelques
 jours après, à Cornlmonl, soigné chez un autre Alsacien, qui n'a
 pas voulu être dédommagé de ses frais.
 
 replacer ou de M. Windenberger, dont le traitement,
 comme adjoint à Rarabervillers, est inférieur de près
 de moitié à celui qu'il touchait comme titulaire à
-Ballersdorf (Haut-Rhin), ou de M. Eschenbrunner, ex-
-instituteur à Lixheim, nommé au Saulcy (Vosges), où il
+Ballersdorf (Haut-Rhin), ou de M. Eschenbrunner, exinstituteur à Lixheim, nommé au Saulcy (Vosges), où il
 vient d'arriver, après un déménagement coûteux, avec
 sa femme et onze enfants; — ou encore, recommandées
-au préfet par le conservateur des forêts, « quarante-
-cinq demandes de secours présentées par les préposés
+au préfet par le conservateur des forêts, « quarantecinq demandes de secours présentées par les préposés
 forestiers des Vosges, repliés de l'Alsace-Lorrainc »... (i)
 Certains, voyant passer la foule de ces Français d'hier,
 songèrent aussitôt à les fixer là, pour le plus grand
-bien de la ville. Claude (des Vosges), député à l'Assem-
-blée Nationale, écrivait au préfet, pour lui soumettre
+bien de la ville. Claude (des Vosges), député à l'Assemblée Nationale, écrivait au préfet, pour lui soumettre
 une idée de M. Gauckler, l'ingénieur en chef des ponts
 et chaussées: qu'on élevât des baraquements, même
 des maisons, pour les optants, car, de l'autre côté de la
 nouvelle frontière, « le gouvernement allemand se
 préoccupe vivement de la crise mulhousienne, il apprend
-à ses dépens qu'on peut violenter les hommes, les gou-
-vernements, les situations, mais qu'on ne violente pas
+à ses dépens qu'on peut violenter les hommes, les gouvernements, les situations, mais qu'on ne violente pas
 les lois économiques et la situation créée à Mulhouse
 par le traité de Francfort peut avoir une heureuse
 répercussion sur la vie industrielle et commerciale des
@@ -5294,30 +4744,24 @@ autrefois aux industries a finisseuses » d'Alsace. Il ne
 
 pouvait plus venir à elles. Elles vinrent à lui. Quelques
 ..
-industriels haut-rhinois et vosglens s'unirent, décidè-
-rent la création d'un établissement de blanchisserie et
+industriels haut-rhinois et vosglens s'unirent, décidèrent la création d'un établissement de blanchisserie et
 de teinturerie sur le versant français des Vosges. Sans
 doute, c'étaient des industriels, et qui tentaient,
 comme ailleurs le long de la nouvelle frontière, de
-réparer le mal que causait à leurs intérêts la contrac-
-tion soudaine du marché, la rupture totale ou partielle
+réparer le mal que causait à leurs intérêts la contraction soudaine du marché, la rupture totale ou partielle
 avec leurs anciennes relations; niais, chez ceux-là
 comme chez les autres, quoiqu'on ne pût le faire entrer
 en ligne de compte dans un projet ni dans un devis,
 1' « impondérable » pesait sur toutes les décisions à
 prendre, un invisible toujours présent les dominait:
 quitter l'Alsace pour fonder un établissement en France,
-ce n'était pas seulement essayer de rejoindre la clien-
-tèle, c'était aussi recouvrer la nationalité. Non sans des
+ce n'était pas seulement essayer de rejoindre la clientèle, c'était aussi recouvrer la nationalité. Non sans des
 sacrifices et des risques qui furent parfois considéra*
-blés: Paris, grand client de l'Alsace pour le blanchi-
-ment, avait, par exemple, dès le lendemain de la paix,
-pris la route des établissements similaires de Nor-
-mandie, et devait être, pour les Vosgiens nouveaux,
+blés: Paris, grand client de l'Alsace pour le blanchiment, avait, par exemple, dès le lendemain de la paix,
+pris la route des établissements similaires de Normandie, et devait être, pour les Vosgiens nouveaux,
 assez difficile à ressaisir... Ainsi naquit, tu —
 qu'on me permette cette formule, — ainsi naquit Thaon,
-de Wesserling et de Rothau. Rothau fournit le per-
-sonnel de la direction, Wesserling les éléments du
+de Wesserling et de Rothau. Rothau fournit le personnel de la direction, Wesserling les éléments du
 blanchiment, procédés de travail et ouvriers; Rothau,
 ceux de la teinturerie. Dès les premiers Jours, la petite
 commune agricole pressentit qu'elle allait grandir
@@ -5346,16 +4790,14 @@ d'hui, Thaon-lcs-Vosges, en pleine prospérité, compte
 de francs de produits par an. (1) Seules, quelques
 maisons de paysans rappellent encore le village agricole
 d'autrefois; la ville s'étend bien au-delà de l'ancien
-Thaon; telles ces portes monumentales que le dévelop-
-pement des grandes villes recule peu à peu sur des
+Thaon; telles ces portes monumentales que le développement des grandes villes recule peu à peu sur des
 voles centrales après qu'elles en ont jadis marqué les
 limites, tel, plus modeste, mais non moins significatif,
 l'écrltcau traditionnel, interdisant la mendicité dès
 l'entrée du vitlagc, avoue discrètement sa déchéance
 sur le mur de i'ex-dernière maison, qui n'est plus du
 tout la dernière. Thaon-lcs-Vosges est un curieux
-microcosme où la sagacité de l'ethnologue et du socio-
-logue s'exercerait avec fruit: trois populations y
+microcosme où la sagacité de l'ethnologue et du sociologue s'exercerait avec fruit: trois populations y
 
 (1) Cf. L. LArritie. Rapport... cité, page
 
@@ -5363,13 +4805,11 @@ vivent en bonne harmonie, sans avoir encore perdu les
 caractères particuliers qu'elles tiennent de leurs
 origines toutes proches, une diversité qui apparaît
 jusque dans leurs habitudes d'existence et de travail,
-dans leur manière de comprendre et de pratiquer l'éco-
-nomie. Les Boulay, les Jacobé, les Christophe, les
+dans leur manière de comprendre et de pratiquer l'économie. Les Boulay, les Jacobé, les Christophe, les
 Thiriet, les Husson, les Grandjacquot, les Daviller, sont
 du vieux fonds vosgien, mais les Welker, les Dreyer,
 les Hallcr, les Christen, les Schwcbel, viennent de la
-vallée de Wesserling, de Fellering, d'Oderen, Hus-
-sercn, de Saint-Amarin, et tout ce qui est (i) ï.ederlin,
+vallée de Wesserling, de Fellering, d'Oderen, Hussercn, de Saint-Amarin, et tout ce qui est (i) ï.ederlin,
 Diclerlen, Diehl, Lcypold, Banzet, Christmann, Malaisé,
 Schromm, Claude, Hollwcck, tous ceux-là sont de
 Rothau. Les gens de Wesserling sont catholiques
@@ -5379,8 +4819,7 @@ mais insuffisamment: aujourd'hui, il faut dire six
 messes, et, à chacune d'elles, l'église est trop petite.
 Les gens de Rothau, eux, sont protestants, sauf de
 très rares exceptions, et leur arrivée ne manqua pas de
-causer quelque surprise aux autochthones, qui n'imagi-
-naient pas qu'un protestant put être fait comme un
+causer quelque surprise aux autochthones, qui n'imaginaient pas qu'un protestant put être fait comme un
 catholique. Ijs n'avaient pas encore de temple alors, et
 se réunissaient chez un des patrons, dans sa salle à
 manger, ou dans mie dépendance, le magasin de
@@ -5403,7 +4842,7 @@ catholiques ou protestants, patoisants à la manière de
 Wesserling, ou tout à fait français de langue, de cette
 belle langue pure qu'on parlait et qu'on parle toujours
 à Rothau, presque tous sont restés en relations étroites
-aveo leurs frères, leurs oncles, leurs cousins « annexés »:
+aveo leurs frères, leurs oncles, leurs cousins « annexés
 quand on a deux ou troisjours de liberté, on les voir
 de l'autre côté des Vosges (surtout à Rothau, car les
 communications sont plus faciles aveo Rothau qu'avec
@@ -5415,9 +4854,7 @@ en temps encore, sept, huit, dix par an, s'ajoutent
 Une ville nouvelle née de l'exode: n'est-ce point le
 symbole de la résurrection? Des villes renouvelées,
 vivifiées, enrichies, pour s'être libéralement ouvertes à
-des populations industrieuses fuyant devant la con-
-trainte imposée à leur conscience: ce spectacle n'appa-
-ralt-il point, tout d'abord, comme un singulier retour
+des populations industrieuses fuyant devant la contrainte imposée à leur conscience: ce spectacle n'apparalt-il point, tout d'abord, comme un singulier retour
 des choses, l'heureux effet de quelque « révocation de
 
 (i) Jean-Frédéric Oberlin, à Strasbourg en 1740, pasteur à
@@ -5428,8 +4865,7 @@ réalité complète de ces Images réconfortantes. Mais je
 ne puis. Que la statistique cotonnlère du Hayon des
 Fosses indique quatre fols plus de broches et trois
 fols plus'do métiers aujourd'hui qu'à l'époque de la
-guerre, ce n'est là, malgré tout, que la floraison magni-
-fique d'un champ rétréci. Que Sarreguemines ait
+guerre, ce n'est là, malgré tout, que la floraison magnifique d'un champ rétréci. Que Sarreguemines ait
 essaimé jusqu'à Dlgoin et Rtxheim jusque dans le
 Doubs, qu'on retrouve Ars-sur-Moselle à Pompey,
 Forbach à Pont-à-Mousson, Niederbronn à Lunôville,
@@ -5442,15 +4878,12 @@ mouvement, de quelques dévouements qu'il témoigne,
 de quelques louanges qu'on le décore, c'est une marche
 en arrière qu'on ne saurait sonner en fanfare, et si
 Nancy mérite de s'appeler la capitale de l'Est, c'est
-parce que l'Est ne pas plus loin. Pour s'aban-
-donner à l'illusion d'une France refaite, il faudrait
+parce que l'Est ne pas plus loin. Pour s'abandonner à l'illusion d'une France refaite, il faudrait
 n'avoir pas entendu ce mot qui me fut tant de fois
-répété le long de l'ancienne ou de la nouvelle fron-
-tière: « la douane s'est repliée « les forestiers se
+répété le long de l'ancienne ou de la nouvelle frontière: « la douane s'est repliée « les forestiers se
 sont repliés »... Avec eux, c'est la France qui s'est
 repliée, et ce mot, malgré quarante ans écoulés, il n'est
-pas possible à un Français de l'entendre, de le pro-
-noncer, de l'écrire, sans un sursaut violent d'émotion et
+pas possible à un Français de l'entendre, de le prononcer, de l'écrire, sans un sursaut violent d'émotion et
 de regret. Ne point penser d'une pensée constante à la
 
 (i) Cf. L. LAFFITTB, Rapport... cité, passlm.
@@ -5460,9 +4893,7 @@ diminution subie, ce serait y acquiescer du coeur, se
 replier encore davantage. Même l'élan généreux
 l'exode et tout ce qui d'Alsace et de Lorraine continue
 de vivre dans la vie française, même l'admirable
-confiance que les Alsaciens restés en Alsace ont tou-
-jours faite à la France jusque dans ses pires agita-
-tions, même les espoirs obstinés dont j'ai reçu parfois
+confiance que les Alsaciens restés en Alsace ont toujours faite à la France jusque dans ses pires agitations, même les espoirs obstinés dont j'ai reçu parfois
 la touchante confidence, rien de tout cela ne saurait
 faire oublier le repliement; mais, si tant de fidélités
 n'effacent ni ne réparent, du moins rendent-elles plus
@@ -5473,12 +4904,10 @@ plus araère la douleur de les avoir perdus.
 
 L'auteur, très modéré, des lettres tFAlsace (t) qui parurent
 dans i'Augsburger AUgemeine Zeltung, a rappelé en ces
-termes, peu de temps après l'événement (i8?4-35), l'impres-
-sion produite en Alsace par l'obligation immédiate du
+termes, peu de temps après l'événement (i8?4-35), l'impression produite en Alsace par l'obligation immédiate du
 service militaire, et quelles furent les conséquences de
 celle mesure au point vue de l'émigration:
-«... Lorsque la première nouvelle du projet du gouver-
-nement se répandit en Alsace, tout le monde se mit en
+«... Lorsque la première nouvelle du projet du gouvernement se répandit en Alsace, tout le monde se mit en
 mouvement pour obtenir'une atténuation aux mesures
 annoncées. On adressa au chancelier une pétition signée
 par les femmes, pour laquelle on recueillit plusieurs milliers
@@ -5491,8 +4920,7 @@ sous les drapeaux français, de laisser passer quelques
 années après lesquelles les souvenirs de la dernière guerre
 seraient moins forts... Quand le prince de Bismarck eut
 déclaré qu'il ne pouvait revenir sur la mesure en question,
-toute l'Alsace se sentit douloureusement atteinte. Non-seule-
-ment les femmes, mais les pères, et surtout les jeunes gens
+toute l'Alsace se sentit douloureusement atteinte. Non-seulement les femmes, mais les pères, et surtout les jeunes gens
 en fige de servir, furent consternés en présence d'une loi
 qui pouvait les faire marcher demain contre leurs propres
 
@@ -5506,20 +4934,16 @@ famille chez nous qui ne comptât dans l'armée française
 au moins un de ses membres. Dans la grosse cavalerie
 et dans la gendarmerie, les Alsaciens formaient la grande
 majorité, si bien que notre pays était, plus que toute autre
-province, représenté dans l'armée française. Aussi l'incor-
-poration précipitée de nos recrues dans l'armée allemande
+province, représenté dans l'armée française. Aussi l'incorporation précipitée de nos recrues dans l'armée allemande
 produisit-elle naturellement une Impression profonde, et
 qui se propagea jusque dans les plus petits villages.
 Lorsqu'aujourd'hui encore on se plaint, comme le font
-fréquemment les journaux allemands, de l'esprit beau-
-coup d'Alsaciens et surtout de l'attitudo des femmes alsa-
-ciennes, il faut remonter à la source première de ces
+fréquemment les journaux allemands, de l'esprit beaucoup d'Alsaciens et surtout de l'attitudo des femmes alsaciennes, il faut remonter à la source première de ces
 sentiments. SI la guerre avait tourné autrement et que la
 France eût essayé d'incorporer immédiatement dans son
 armée les jeunes gens du l'alalinat, par exemple, dont les
 frères avalent combattu contre elle, je suis convaincu que
-cette mesure aurait frappé aussi douloureusement la popu-
-lation du Palatinat et qu'elle y eût provoqué la même
+cette mesure aurait frappé aussi douloureusement la population du Palatinat et qu'elle y eût provoqué la même
 émotion. C'est là, o'est dans l'incorporation immédiate des
 recrues alsaciennes qu'il faut chercher la première cause et
 la plus importante, des options, d'abord, puis des émigra-
@@ -5530,8 +4954,7 @@ d'intervalle, en novembre-décembre 1871.
 L'une, publiée par l'Industriel Alsacien (a), avait pour
 auteur Gli. Dollfas. En votel les principaux passages:
 «... A l'égard des Alsaciens, la politique d'atténuation
-devrait, à mon avis, se résumer en deux points: 1* Auto-
-nomie administrative de l'Alsace; Service militaire
+devrait, à mon avis, se résumer en deux points: 1* Autonomie administrative de l'Alsace; Service militaire
 
 (a) Reproduite dans le Temps du «4 novembre
 
@@ -5540,9 +4963,7 @@ l'annexion.
 « Celte exemption équivaudrait à remplacer en Alsace
 pendant dix-huit années environ (t) le service obligatoire
 par le service facultatif. C'est, dlra-t-on, en demandant trop,
-se condamner A ne rien obtenir... Quel préjudice apporte-
-rait cependant à l'Allemagne ce délai qui mettrait la pré-
-sente génération à couvert et dispenserait du service ceux
+se condamner A ne rien obtenir... Quel préjudice apporterait cependant à l'Allemagne ce délai qui mettrait la présente génération à couvert et dispenserait du service ceux
 dont la conscience le pourrait tolérer? Ce préjudice, Je
 ne l'aperçois point, alors quo j'aperçois clairement celui
 qui résulterait pour l'Alsace, pour l'Allemagne elle-même,
@@ -5551,10 +4972,8 @@ immédiate du service militaire à la province conquise.
 Mats les choses vues de Strasbourg, de Colmar ou de
 Mulhouse, les choses vues Berlin n'ont pas même
 aspect. A Berlin, le service militaire universel est un article
-de foi, et l'on y pense aussi, probablement, qu'il constitue-
-rait, à rencontre de l'Alsace, une école de germanisation.
-On pourrait se tromper à Berlin. L'exemple des Francfor-
-tols et des Hanovrlens qu'on Invoquo volontiers est loi
+de foi, et l'on y pense aussi, probablement, qu'il constituerait, à rencontre de l'Alsace, une école de germanisation.
+On pourrait se tromper à Berlin. L'exemple des Francfortols et des Hanovrlens qu'on Invoquo volontiers est loi
 sans portée, car il ne tient nul compte de cette différence
 énorme que les Hanovrlens et les Francfortols étalent des
 Allemands avant Sadowa, tandis que les Alsaciens, avant
@@ -5563,13 +4982,9 @@ Français.,. Qu'on y prenne gardeI... cette politique Irait à
 contre-fin: elle engagerait ceux qui l'inaugureraient dans
 une Voie de rigueurs croissantes et les condamnerait à
 n'en plus sortir...
-« Les Allemands ont fait autrefois beaucoup de psycho-
-logie, la Prusse a donné naissance à Kant s'en souvient-
-elle encore? Hier, la patrie allemande rendait à Schiller
-des honneurs unanimes et l'Allemagne commettrait froi-
-dement, après mûr examen, les yeux ouverts, une si
-noble, de plus respectable chea les Alsaciens? car les Alsa-
-ciens, s'ils sont dignes d'estime pour ne pas vouloir aban-
+« Les Allemands ont fait autrefois beaucoup de psychologie, la Prusse a donné naissance à Kant s'en souvientelle encore? Hier, la patrie allemande rendait à Schiller
+des honneurs unanimes et l'Allemagne commettrait froidement, après mûr examen, les yeux ouverts, une si
+noble, de plus respectable chea les Alsaciens? car les Alsaciens, s'ils sont dignes d'estime pour ne pas vouloir aban-
 
 (i) Le délai partant de la date du traité. (Note de l'auteur de la
 
@@ -5599,8 +5014,7 @@ justice et à la raison, on peut craindre qu'ils ne le leur
 L'autre lettre, signée X..., fut publiée par Journal de
 « Le Journal de Genève a mis ses lecteurs au courant de
 l'agitation qu'a provoquée en Alsace la perspective d'une
-prochaine application du service militaire. Vos correspon-
-dants vous ont également fait connaître les démarches
+prochaine application du service militaire. Vos correspondants vous ont également fait connaître les démarches
 tentées pour obtenir du gouvernement sur ce point des
 concessions réclamées par la conscience publique, autant
 que par les exigences d'une situation exceptionnelle, dont
@@ -5625,22 +5039,19 @@ respecter. La Constitution s'y oppose: non possumus La
 Constitution n'est pas afTairc sentiment, et si elle manque
 de coeur en cette circonstance, les Allemands n'y peuvent
 rien en vérité... Je ne sache pas cependant qu'on renverse
-une Constitution parce qu'on en suspend les effets tempo-
-rairement, en vue d'une exception imprévue. Je ne trouve,
+une Constitution parce qu'on en suspend les effets temporairement, en vue d'une exception imprévue. Je ne trouve,
 en effet, dans la Constitution de l'empire, aucun article
 prévoyant le cas où des Français seraient convertis en
 Allemands malgré eux... D'ailleurs, le législateur qui fait la
 loi est toujours libre la modifier en tout ou en partie,
 pour un temps ou pour toujours, dans les limites jugées
-nécessaires par lut. L'exception confirme la règle, et l'excep-
-tion de fait motive en équité et en raison l'exception de
+nécessaires par lut. L'exception confirme la règle, et l'exception de fait motive en équité et en raison l'exception de
 « Qui niera que l'Alsace n'ait été jetée brusquement dans
 l'exception? L'instruction primaire obligatoire et le service
 militaire obligatoire sont les deux colonnes de granit de la
 patrie allemande. Mais les Alsaciens songent-ils à les
 ébranler? Par l'enseignement primaire, on se saisit des
-générations à venir; ne peut-on laisser la génération pré-
-sente, si douloureusement atteinte, en repos sur le service
+générations à venir; ne peut-on laisser la génération présente, si douloureusement atteinte, en repos sur le service
 militaire et ne pas lui imposer, toute meurtrie encore, le
 casque de ses vainqueurs? Elle ne demande pas qu'à son
 intention le principe général soit aboli, elle demande que,
@@ -5662,9 +5073,7 @@ que prélude de beaucoup d'autres. Qu'arrlvera-t-ll,
 lorsque, îoul espoir s'étant dissipé, les familles se trouve.
 ont à la veillé du recrutement? Ceux qui pourront émtgrer
 lieront la terre natale, et sans l'emporter à ta semelle
-de leurs soutiers, ils emporteront de l'autre côté de la fron-
-tière, en France, le ressentiment légitime qu'une telle vio-
-lence ntorale, qu'un tel mépris de ce qu'ils ont en eux de
+de leurs soutiers, ils emporteront de l'autre côté de la frontière, en France, le ressentiment légitime qu'une telle violence ntorale, qu'un tel mépris de ce qu'ils ont en eux de
 meilleur et de plus Intime aura nécessairement engendré...
 Les plus modérés en viendront là, les plus justes, et non
 par leur faute; partiront aveo la haine au coeur. Leur
@@ -5685,22 +5094,18 @@ elle avait contre elle, en décembre dernier, d'être trop
 sensée. Eh bien, ne pourrait-on pas la ressaisir en partie et
 déolarer que l'Alsace, si ce n'est pas quant à son territoire
 et à sa constitution politique, sera reconnue neutre au
-moins dans la personne de ses habitants?... Et si cette ncu-
-
-trallté des habitants pouvait s'étendre plus tard, d'un
+moins dans la personne de ses habitants?... Et si cette ncutrallté des habitants pouvait s'étendre plus tard, d'un
 commun accord entre la France et l'Allemagne, jusqu'à la
 Forêt-Noire, formant une zone de paix et de réconciliation
 entre les deux peuples unis et non plus séparés parla
 province limitropheI Mais ne rêvons pas et restons dans le
-« S'il est vrai, comme on le prétend, quo le service facul-
-tatif admis transitolrement en Alsace, sauf à demander un
+« S'il est vrai, comme on le prétend, quo le service facultatif admis transitolrement en Alsace, sauf à demander un
 impôt général de rachat à la province, soit une héréste
 constitutionnelle dont les dogmatiques de la loi ne sauraient
 envisager l'idée sans horreur, qu'on accorde au moins un
 sursis (i) à la nécessité, qui a ses lois aussi, à la conscience
 des Alsaciens, qui a tes siennes. On n'accomplit pas une
-évolution nationale comme une évolution militaire au com-
-mandement de par file à gauche ou par file à droite. Les
+évolution nationale comme une évolution militaire au commandement de par file à gauche ou par file à droite. Les
 sentiments, les habitudes ne pirouettent pas ainsi sur leurs
 talons; quant aux consciences faites à ces manoeuvres,
 j'estime qu'il n'en existe pas beaucoup en Alsace, Celles
@@ -5715,14 +5120,12 @@ de l'Allemagne atteindront leur but. Si la nation allemande,
 comme prix de ses sacrifices et de ses combats, a fait de la
 rétrocession des pays arrachés autrefois à l'Empire une
 condition absolue de la paix, il n'était pas dans sa pensée
-d'augmenter sa puissance par une extension de son terri-
-toire et un accroissement de sa population. Son désir était
+d'augmenter sa puissance par une extension de son territoire et un accroissement de sa population. Son désir était
 plutôt de faire expier par la restitution de l'AIsace-Lorraine
 la coupable spoliation française, aussi bien que de réparer
 la faute qu'elle-même avait commise en se laissant arracher
 ces provinces, et son exigence était dictée surtout par le
-besoin d'acquérir, avec la possession des anciens pays-
-frontières de l'Allemagne, un puissant boulevard contre
+besoin d'acquérir, avec la possession des anciens paysfrontières de l'Allemagne, un puissant boulevard contre
 l'incorrigible passion guerroyante des Français. « Un État
 uni et des frontières sûres», tel était le cri unanime qui se
 fit entendre dans toutes les classes du peuple allemand
@@ -5731,8 +5134,7 @@ l'espérance que l'Allemagne serait en position de dicter
 les conditions de la paix.
 « La nation peut se dire avec une pleine satisfaction que
 les garanties pour une défense efficace de la patrie sont
-acquises et ne peuvent être mises en question par les résul-
-tats de l'option. L'Allemagne est en possession de ses
+acquises et ne peuvent être mises en question par les résultats de l'option. L'Allemagne est en possession de ses
 
 (i) Citée par le Journal de* Débats, du 8 octobre 1879. Voir
 plus haut, page a).
@@ -5747,15 +5149,12 @@ l'ennemi.
 a Avec le octobre, la situation intérieure de l'Alsace-
 Lorraine a cessé d'être obscure et trouble; toute incertitude
 sur la compétence des lois allemandes et l'étendue de leur
-ressort, comme sur la durée et la solidité de la souve-
-raineté allemande, doit disparaître aujourd'hui. Le nouveau
+ressort, comme sur la durée et la solidité de la souveraineté allemande, doit disparaître aujourd'hui. Le nouveau
 pays de l'empire, qu'en droit international le traité de paix
 a rendu à l'Allemagne, devient désormais, par le départ de
 ceux des habitants qui optent pour la France, un pays
 allemand dans toute la signification du mot. Ce que la
-province-frontière peut perdre pour le moment en popula-
-tion et en ressources économiques sera compensé ample-
-ment pour elle par son intime union avec l'Allemagne. La
+province-frontière peut perdre pour le moment en population et en ressources économiques sera compensé amplement pour elle par son intime union avec l'Allemagne. La
 sympathie de la nation et la sollicitude des autorités
 rivaliseront de zèle pour faire en sorte que l'assimilation
 de l'Alsace-Lorraine, moralement aussi, s'opère de plus en
@@ -5770,31 +5169,25 @@ Mais, depuis la signature du traité, l'Allemagne en avait
 encore aggravé les conditions, Ainsi, elle astreignait à ce
 changement de domicile, non-seulement les Alsaciens et
 les Lorrains domiciliés en Alsace-Lorraine, mais encore les
-habitants du pays qui n'en étaient pas originaires: inter-
-prétation unilatérale, qui ne fut jamais adoptée par la
+habitants du pays qui n'en étaient pas originaires: interprétation unilatérale, qui ne fut jamais adoptée par la
 France, mais qui, appliquée par l'Allemagne (dépêche
 d'Arnlm à Itémusat, septembre 187a), augmenta encore
 le nombre de ceux qui durent émlgrer s'ils voulaient rester
 Français. Même effet d'une cause analogue: pendant les
-premiers mois qui suivirent le traité, les mineurs, éman-
-cipés ou non, furent considérés, d'un commun accord,
+premiers mois qui suivirent le traité, les mineurs, émancipés ou non, furent considérés, d'un commun accord,
 comme ayant la faculté d'option (sous réserve du concours
 de leurs représentants légaux pour la déclaration d'option);
 puis, tout à coup, au mois de mars 1879, une circulaire
-allemande décida que les mineurs non émancipés ne pou-
-vaient ni par eux-mêmes ni par l'intermédiaire de leurs
+allemande décida que les mineurs non émancipés ne pouvaient ni par eux-mêmes ni par l'intermédiaire de leurs
 représentants légaux, opter pour la nationalité française,
-si ces représentants n'optaient pas, eux aussi: d'où nou-
-velles entraves à l'option, ou nouvelles obligations de
+si ces représentants n'optaient pas, eux aussi: d'où nouvelles entraves à l'option, ou nouvelles obligations de
 départ. D'autre part, on a plus haut quelle émotion
 
 (1) Cf. O. May, op. cit., pages itfi et suivantes. — Voir plus haut,
 
 soulevèrent dans le pays les prescriptions relatives à
-l'incorporation immédiate des recrues alsaciennes et lor-
-raines. Ces diverses circonstances rendaient l'opinion (on
-ne parlera ici que de l'opinion hors de France) particulière-
-ment impressionnable aux nouvelles de l'émigration.
+l'incorporation immédiate des recrues alsaciennes et lorraines. Ces diverses circonstances rendaient l'opinion (on
+ne parlera ici que de l'opinion hors de France) particulièrement impressionnable aux nouvelles de l'émigration.
 La Tages Presse de Vienne « fait un tableau navrant de
 la désolation des deux provinces. La feuille autrichienne
 signale la contradiction qui règne entre le bannissement
@@ -5808,16 +5201,13 @@ sous les couleurs les plus sombres l'état des départements
 arrachés à la France. Une chose frappe surtout la gazette
 prussienne. Elle « craint qu'à la première levée militaire
 ne se présente peut-être pas un seul conscrit, tous les jeunes
-gens ayant disparu, même ceux dont l'option s'est accom-
-plie Irrégulièrementet qui préfèrentcependant une situation
+gens ayant disparu, même ceux dont l'option s'est accomplie Irrégulièrementet qui préfèrentcependant une situation
 illégale au service allemand ». (a) — Le Times: « La journée
 d'hier septembre a été une journée de deuil pour
-l'Alsace-Lorraine. En vertu d'une clause du traité de Franc-
-fort, il a été statué que tous les habitants nés dans ces deux
+l'Alsace-Lorraine. En vertu d'une clause du traité de Francfort, il a été statué que tous les habitants nés dans ces deux
 provinces qui n'auraient pas transféré hier à minuit leur
 domicile en France ou ailleurs seraient considérés et traités
-comme des sujeta.allemands. La conséquence de cette stipu-
-lation a été une émigration de ees infortunées provinces
+comme des sujeta.allemands. La conséquence de cette stipulation a été une émigration de ees infortunées provinces
 qui équivaut, dans certains districts, à la dépopulation. Des
 témoins oculaires nous parlent de centaines et de militera
 de personnes, de tout rang et de tout âge, qui, depuis
@@ -5831,39 +5221,32 @@ nous pourrions trouver un exemple d'une calamité aussi
 
 ,
 « Il n'y a qu'un petit nombre de nos jeunes émigrants des
-voilures de 3* classe, nous écrit-on, qui connaissent parfai-
-tement la langue française et cependant l'intensité de
+voilures de 3* classe, nous écrit-on, qui connaissent parfaitement la langue française et cependant l'intensité de
 leur amour pour la France et de leur haine pour leurs
 nouveaux maîtres, qui sont du même sang et qui parlent
 la même langue, semble presque en proportion de leur
 ignorance. Mais il ne faut pas oublier que leurs maîtres
 allemands étalent leurs ennemis d'hier, et que leurs anciens
-maîtres français ont été, dans leur opinion, leurs bienfai-
-teurs depuis deux siècles. »(i)—Le Mornlng Posl: « Accor-
-dons mémo que la conquête de i'Alsace-Lorraine, quoique
+maîtres français ont été, dans leur opinion, leurs bienfaiteurs depuis deux siècles. »(i)—Le Mornlng Posl: « Accordons mémo que la conquête de i'Alsace-Lorraine, quoique
 absolument en contradiction avec toutes les assurances
-pacifiques d'une politique purement défensive, avec les-
-quelles on a endormi les appréhensions de l'Europe au
+pacifiques d'une politique purement défensive, avec lesquelles on a endormi les appréhensions de l'Europe au
 commencement de la guerre franco-prussienne, accordons
 que celte conquête doive être concédée comme un de ces
 fails accomplis que le génie pratique de notre époque tend
 à respecter, est-il nécessaire qu'un acte peu délicat soit
 continué par les moyens les moins délicats possibles? La
-Prusse tient l'Alsace et la Lorraine. Le fait n'est malheu-
-reusement que trop certain. Il peut se lire dans l'inquiétude
+Prusse tient l'Alsace et la Lorraine. Le fait n'est malheureusement que trop certain. Il peut se lire dans l'inquiétude
 de l'Europe. Mais est-il absolument nécessaire que la Prusse
 cherche à rendre son pouvoir dans les provinces annexées
 aussi désagréable, aussi Intolérable qu'une domination
 étrangère puisse l'être? Comme nous l'avons dit, nous ne
-parlons pas aujourd'hui de renoncer à l'Alsace et à la Lor-
-raine. Nous demandons seulement quelle raison au monde,
+parlons pas aujourd'hui de renoncer à l'Alsace et à la Lorraine. Nous demandons seulement quelle raison au monde,
 hors l'exercice de la force, il peut y avoir dans les mesures
 qu'on adopter à l'égard des Alsaciens?... Il n'y a pour
 ce malheureux peuple pas le plus petit biais pour échapper.
 Alors même que les parents trop pauvres et trop dépourvus
 d'amis pour pouvoir abandonner leurs foyers, voudraient
-néanmoins conserver à leurs enfants la nationalité fran-
-çaise, le gouvernement prussien refuse rigoureusement
+néanmoins conserver à leurs enfants la nationalité française, le gouvernement prussien refuse rigoureusement
 d'accepter l'option de ces enfants, quoique validée par
 l'autorité de leurs tuteurs naturels, à moins que la famille
 
@@ -5872,11 +5255,8 @@ entière ne parte pour l'exil. » (i)— Le Preeman, de Dublin:
 Ce qui est certain, c'est que les populations qui ont vécu
 de longues années sous la loi française conservent des
 attaches qu'aucune force humaine ne peut rompre. Avec
-temps, les Allemands cfTaceront-ils ces impressions sympa-
-thiques au eccur des Alsaciens et des Lorrains? Nous ne
-nous chargerons point de répondre à cette question. Lor-
-rains et Alsaciens unissent à la fermeté du caractère germa-
-nique l'ardeur et la sensibilité du Français. Jamais ils
+temps, les Allemands cfTaceront-ils ces impressions sympathiques au eccur des Alsaciens et des Lorrains? Nous ne
+nous chargerons point de répondre à cette question. Lorrains et Alsaciens unissent à la fermeté du caractère germanique l'ardeur et la sensibilité du Français. Jamais ils
 n'accepteront volontairement, il nous semble, le despotisme
 militaire du vainqueur. Quoi qu'il arrive, le spectacle d'une
 émigration presque en masse est attristant. Que les amis
@@ -5900,8 +5280,7 @@ La frontière établie par le traité de Francfort était une
 frontière (t) économique en même temps que politique. Non
 point qu'il en fût nécessairement ainsi. Mais la guerre avait
 rais Un au traité de commerce conclu en entre la France
-et la Prusse agissant au nom de l'Union douanière alle-
-mande (Zollvereln), et ce traité ne fut pas rétabli à la paix.
+et la Prusse agissant au nom de l'Union douanière allemande (Zollvereln), et ce traité ne fut pas rétabli à la paix.
 La politique financière de Thiers, lequel, d'ailleurs, avait
 toujours été protectionniste, consistait à « chercher dans
 les relèvements de tarifs les ressources budgétaires dont ta
@@ -5910,13 +5289,11 @@ subitement accrues » (a). En oulre, si la frontière politique
 n'avait pas été en même temps une frontière économique,
 c'eût été, aux yeux de beaucoup d'hommes politiques
 français du moment (3), venir au secours de l'industrie
-allemande menacée par la concurrence de l'Alsace, puis-
-qu'en conservant aux produits alsaciens leurs débouchés,
+allemande menacée par la concurrence de l'Alsace, puisqu'en conservant aux produits alsaciens leurs débouchés,
 on aurait évité qu'ils n'en cherchassent de nouveaux
 du côté de l'Allemagne, au détriment des producteurs
 allemands. Tant et si bien que la prorogation jusqu'au
-décembre 1831 de la franchise complète de droits con-
-venue d'abord jusqu'au août (Arrangement du 9 avril
+décembre 1831 de la franchise complète de droits convenue d'abord jusqu'au août (Arrangement du 9 avril
 entre Potiycr-Qucrlier, ministre des finances, et trois
 délégués de l'industrie alsacienne, Aug. Dollfus, Spoerry,
 
@@ -5928,8 +5305,7 @@ M. Thiers qu'en échange d'avantages auxquels il attachait
 avec raison une grande importance: évacuation anticipée
 de six départements (Aisne, Aube, Cùte-d'Or, Haute-Saône,
 Doubs et Jura) sur les douze qui étaient encore occupés, et
-réduction du corps d'occupation à 5o.ooo hommes. Le proto-
-cole de signature des deux Conventions additionnelles
+réduction du corps d'occupation à 5o.ooo hommes. Le protocole de signature des deux Conventions additionnelles
 signées à cet effet, le octobre 1831, à Berlin Convention
 pour l'évacuation de six départements et le payement à
 l'Allemagne du quatrième demi-milliard de l'indemnité de
@@ -5938,10 +5314,8 @@ même, dans son article 1", « que les deux Conventions ne
 forment qu'un seul et unique traité » et que les stipulations
 de la première « ne pourront être mises à exécution si, contre
 toute attente, la ratification l'autre devait faire défaut
-de la part de la France ». (1) M. Thiers a rendu compte lui-
-même de ces diverses négociations et de leur dépendance
-réciproque dans son message du 7 décembre 1831 à l'Assem-
-blée Nationale (dont il est question également, à propos de
+de la part de la France ». (1) M. Thiers a rendu compte luimême de ces diverses négociations et de leur dépendance
+réciproque dans son message du 7 décembre 1831 à l'Assemblée Nationale (dont il est question également, à propos de
 faits d'un autre ordre, page ifo du présent livre).
 
 Pour consacrer aux yeux de tous celte union de l'Algérie
@@ -5959,28 +5333,24 @@ déclaration; a Au moment de quitter celle enceinte, où
 notre dignité ne nous permet plus de siéger... équivalait
 à une démission collective des députés alsaciens et lorrains.
 Il est vrai qu'à la suite de celte lecture, un membre de
-l'Assemblée, M. de Trévcneuc, s'écria: a Pourquoi tes repré-
-sentants de l'Alsace ne resleralcnl-ils pas parmi nous?
+l'Assemblée, M. de Trévcneuc, s'écria: a Pourquoi tes représentants de l'Alsace ne resleralcnl-ils pas parmi nous?
 — qu'Henri Martin, à la séance du 3, demanda à l'Assemblée
 « de constater qu'ils sont toujours les députés de la France
 entière, attendu que les représentants élus par telle ou telle
 partie de la France, ne représentent pas seulement le groupe
 de citoyens français qui les a choisis, mais représentent
 dans sa totalité la nation française — que Victor Hugo
-rédigea le projet d'une Déclaration » par laquelle ses col-
-lègues « continueraient leur mandat » aux députés alsaciens
+rédigea le projet d'une Déclaration » par laquelle ses collègues « continueraient leur mandat » aux députés alsaciens
 et lorrains, continuation qui est à la fois de droit » et de
 
 .
 
 Denfert-Rochcrcau, député du Haut-Rhin, et M. George,
 député des Vosges, ayant adressé à l'Assemblée des lettres
-officielles de démission, le président Grévy, reprenant la théo-
-rie d'Henri Martin, fit observer quo « le sentiment qui avait
+officielles de démission, le président Grévy, reprenant la théorie d'Henri Martin, fit observer quo « le sentiment qui avait
 déterminé » ces deux représentants, « tout honorable qu'il
 fût, ne devait pas leur faire perdre de vue à eux ni à
-leurs collègues alsaciens et lorrains, « que malgré les chan-
-gements qu'ont subir dans leur état les populations qui
+leurs collègues alsaciens et lorrains, « que malgré les changements qu'ont subir dans leur état les populations qui
 les ont élus, ils sont et doivent rester les représentants du
 peuple français et qu'il les' invita « à ne pas persévérer
 dans leur retraite et dans leur démission — que M. George,
@@ -5990,21 +5360,17 @@ que le président constata solennellement celle unanimité;
 — qu'enfin, dans les jours qui suivirent, plusieurs autres
 représentants de l'Alsace et de la Lorraine, MM. Varroy et
 Brice, de la Meurthe; Claude, des Vosges; berger,
-André Deschange, de la Moselle, rentrèrent à l'Assem-
-blée, « pour y défendre la République menacée ». — Mais,
+André Deschange, de la Moselle, rentrèrent à l'Assemblée, « pour y défendre la République menacée ». — Mais,
 maigre ces manifestations, la députation était, en réalité,
 dissoute, et, soit tout de suite, soit quelques jours plus
 tard (a), tous les représentants des départements cédés
 continuèrent se considérer comme démissionnaires (3).
 (i) t... En ce moment, et sans que le traité puisse l'empêcher,
-l'Alsace et la Lorraine sont représentées dans l'Assemblée Natio-
-nale de France. Il dépend de l'Assemblée Nationale de continuer
+l'Alsace et la Lorraine sont représentées dans l'Assemblée Nationale de France. Il dépend de l'Assemblée Nationale de continuer
 celte représentation. Cette continuation du mandat, nous devons
 la déclarer. Elle est de droit. Elle est de devoir... Puisque l'Alsace
-et la Lorraine ne peuvent désormais nommer d'autres représen-
-tants, ceux-ci doivent être maintenus... SI nous souffrons que nos
-honorables collègues alsaciens et lorrains se retirent, nous aggra-
-vons le traité... Il Importe que dans l'exécution forcée du traité,
+et la Lorraine ne peuvent désormais nommer d'autres représentants, ceux-ci doivent être maintenus... SI nous souffrons que nos
+honorables collègues alsaciens et lorrains se retirent, nous aggravons le traité... Il Importe que dans l'exécution forcée du traité,
 rien de notre part ne ressemble à un consentement. Subir sans
 consentir est la dignité du vaincu... » (VICTOR HUGO, Acte* et
 Paroles, tome 111, Depuis l'Hxll, pages et suivantes)
@@ -6018,8 +5384,7 @@ l'êxode
 D'autre part, à ce moment même, les deux sièges
 députés d'Alger devenaient vacants. En effet, Alger aval!
 élu comme ses représentants à l'Asscrabléo Nationale Gara
-bclta et Garibaldi. Or, Gambclta, élu par plusieurs dépar-
-tements, avait opté pour le Bas-llbin et suivi le sort des
+bclta et Garibaldi. Or, Gambclta, élu par plusieurs départements, avait opté pour le Bas-llbin et suivi le sort des
 députés alsaciens démissionnaires; quant à Garibaldi, il
 avait, dès le février, « donné par lettre une démission
 générale de tous ses mandats député » et son élection
@@ -6035,8 +5400,7 @@ d'Alsace: d'abord à M. Jules Grosjcan, du Ilaul-llliln, « un
 riche manufacturier de l'Alsace, dit le Moniteur de FAlgérle
 (n* du il mars 1851), à qui les affaires l'Algérie ne sont
 pas inconnues, par suite d'un séjour de quelques années
-dans noire colonie mais il semble que ce projet fut rapi-
-dement abandonné; — ensuite à M. Keiler, également
+dans noire colonie mais il semble que ce projet fut rapidement abandonné; — ensuite à M. Keiler, également
 député du Haul-Ilhin, qu':ccpla. « C'est un beau spectacle,
 écrivait VAhhbar, Journal de l'Algérie (n* du juin 1871),
 que l'Algérie donne au monde en tendant par-dessus la
@@ -6055,8 +5419,7 @@ Alsaciens et des Lorrains de quitter le sol natal, préférant
 Journal officiel du mars
 
 l'exil à l'humiliation de vivre sur le sol étranger, et par
-l'Assemblée Nationale d'offrir à ces émigrants 100.000 hec-
-tares en Algérie. La Chambre, en acceptant la proposition
+l'Assemblée Nationale d'offrir à ces émigrants 100.000 hectares en Algérie. La Chambre, en acceptant la proposition
 Beleastel, a rempli un devoir, nous de faire le nôtre
 ayant à élire nos représentants, si nous en prenons un
 parmi nous, choisissons pour l'autre « le plus aimé, le plus
@@ -6065,17 +5428,14 @@ leurs suffrages,si ces suffrages leur avaient été demandés...»
 M. Keller fit des déclarations dans te même sens: «... C'est
 sur une terre française qu'ils [les Alsaciens les Lorrains]
 doivent attendre l'heure de la justice de la réparation.
-C'est a l'Algérie qui leur tend les bras, qu'ils doivent con-
-sacrer leur activité et leur énergie... Je m'occupe spéciale-
-ment de diriger sur l'Algérie le courant d'immigration qui
+C'est a l'Algérie qui leur tend les bras, qu'ils doivent consacrer leur activité et leur énergie... Je m'occupe spécialement de diriger sur l'Algérie le courant d'immigration qui
 se porterait vers les États-Unis si l'on ne faisait rien pour
 l'attirer vers vous... Si l'Algérie choisit mon nom pour
 donner à l'Alsace un témoignage d'attachement et pour
 affermir notre unité nationale, je ne me croirai pas te droit
 de refuser ses suffrage». nlh'Ahhbar, des a juillet 1871)
 Mais, par suite des modifications territoriales récentes,
-un siège de député avait été attribué au territoire de Bel-
-fort, qui seul restait français de l'ancien déparlement du
+un siège de député avait été attribué au territoire de Belfort, qui seul restait français de l'ancien déparlement du
 Haut-Ilhin (1), et l'élection de ce député était fixée (a) au
 2 juillet, comme l'ensemble des élections complémentaires
 à l'Assemblée Nationale pour les sièges de la métropole.
@@ -6091,8 +5451,7 @@ des victimes de la guerre; la France, une notoriété de plus
 
 AnTrcr.K!>fiKMiEit.(i)— 11 est institué à Belfort à Nancy
 des commissions à l'effet de recevoir les demandes des
-habitants de l'Alsace et de la Lorraine qui, voulant conser-
-ver la nationalité française, prendraient, conformément
+habitants de l'Alsace et de la Lorraine qui, voulant conserver la nationalité française, prendraient, conformément
 rendre en Algérie pour y cultiver et mettre en valeur les
 terres dont la concession leur serait faite par l'Étal à titre
 gratuit. Ces commissions seront chargées de constater la
@@ -6126,36 +5485,30 @@ dont elle dispose.
 de l'État: dVaux ntlmcnlatres (fontaine ou puits, lavoir
 et abreuvoir); d'une mairie; 3* d'une école; 4* d'un
 édifice du culte avec ses accessoires obligés; 5* des voles de
-communication nécessaires pour le relier à l'artère princi-
-pale de la contrée et aux centres voisins.
+communication nécessaires pour le relier à l'artère principale de la contrée et aux centres voisins.
 7.— Les immigrants seront employés de préférence à tous
 autres ouvriers aux travaux de toute nature qui sont mis
 à la charge de l'Étal par l'article précédent.
-8. — En attendant la construction des maisons d'habita-
-tion, l'État pourvoira les colons des moyens de campement
+8. — En attendant la construction des maisons d'habitation, l'État pourvoira les colons des moyens de campement
 comme pour les troupes en campagne.
 g. —Chaque colonie sera constituée en commune de plein
 exercice aussitôt l'arrivée des deux tiers des habitants qui
 doivent la former.
-IO. — sera pourvu aux diverses dépenses rendues obli-
-gatoires par la présente loi au moyen de crédits ouverts
+IO. — sera pourvu aux diverses dépenses rendues obligatoires par la présente loi au moyen de crédits ouverts
 au budget de l'Algérie, chapitre Colonisation.
 
 Décret du 16 octobre 1871
 Lorraine qui voudront profiter du bénéfice de la loi du
-septembre 1831, auront à produire, devant les commis-
-sions d'émigration, Instituées à l'article premier de ladite
+septembre 1831, auront à produire, devant les commissions d'émigration, Instituées à l'article premier de ladite
 
 l'exode
 loi, une expédition en forme de la déclaration qu'ils doivent
-faire auprès de l'autorité municipale du lieu de leur domi-
-cile, aux termes de l'article a du traité du 10 mal 1871, pour
+faire auprès de l'autorité municipale du lieu de leur domicile, aux termes de l'article a du traité du 10 mal 1871, pour
 conserver la qualité de citoyen français. Ce titre sera
 déposé, à l'arrivée des émigrants dans la colonie, au greffe
 du tribunal de première instance de la situation des biens
 dont la concession leur sera attribuée.
-a. — A leur débarquement en Algérie, les émigrants alsa-
-ciens et lorrains souscriront définitivement l'engagement
+a. — A leur débarquement en Algérie, les émigrants alsaciens et lorrains souscriront définitivement l'engagement
 par eux pris devant les commissions susmentionnées de
 cultiver, de mettre en valeur et d'habiter les terres dont la
 concession leur sera faite à titre gratuit par l'État, en même
@@ -6167,13 +5520,10 @@ engagement, et la déchéance pourra être prononcée contre
 ceux qui cesseraient de résider sur leurs terres avant de
 les avoir mises en valeur dans une mesure suffisante pour
 prouver la loyale exécution des obligations par eux sou-
-3. — L'affranchissement de la clause résolutoire Impli-
-quant, au profit des concessionnaires, propriété définitive
+3. — L'affranchissement de la clause résolutoire Impliquant, au profit des concessionnaires, propriété définitive
 et incommutable des immeubles dont ils auront été mis en
-possession, sera prononcé, à la requête des concession-
-naires ou de leurs ayant-cause, par arrêté du préfet du
-département, rendu sur l'avis de la commission départe-
-mentale. Cet arrêté sera enregistré gratis et transcrit sans
+possession, sera prononcé, à la requête des concessionnaires ou de leurs ayant-cause, par arrêté du préfet du
+département, rendu sur l'avis de la commission départementale. Cet arrêté sera enregistré gratis et transcrit sans
 autres frais que le salaire du conservateur. En cas de
 déchéance, il sera procédé conformément aux règles établies
 à l'article du présent décret.
@@ -6181,9 +5531,7 @@ déchéance, il sera procédé conformément aux règles établies
 de tous impôts qui pourraient être établis sur la propriété
 5. — Chaque colonie sera constituée en commune de plein
 exercice aussitôt l'arrivée dés deux tiers des habitants qui
-doivent la former. En conséquence; les conditions de peu-
-
-plemcnt «front réglées pour chacune d'elles de façon à ce
+doivent la former. En conséquence; les conditions de peuplemcnt «front réglées pour chacune d'elles de façon à ce
 que cette proportion puisse correspondre à l'existence d'un
 corps électoral de cent citoyens français au moins.
 
@@ -6204,35 +5552,27 @@ résident européen (hommes, femmes, enfants ou gens à
 gages). L'acte de location déterminera, pour chaque cas
 particulier, le nombre d'Européens à entretenir sur fini-
 0. — A l'expiration de la neuvième année de résidence
-continue dans les conditions exprimées à l'article précé-
-dent, le bail est converti en titre définitif de propriété. Cet
+continue dans les conditions exprimées à l'article précédent, le bail est converti en titre définitif de propriété. Cet
 acte de propriété, établi par le service des domaines, est
 enregistré gratis et transcrit sans autres frais que le salaire
 du conservateur, le tout à la diligence du service des
 domaines et aux frais du titulaire.
 10. — Après deux années de résidence, le locataire a la
 faculté de céder son droit au bail et éventuellement à la
-concession ultérieure des terres à tout autre colon euro-
-péen, aux clauses et conditions convenues entre eux, sous
+concession ultérieure des terres à tout autre colon européen, aux clauses et conditions convenues entre eux, sous
 la réserve de la notification en due forme du contrat de
 substitution au receveur des domaines de la situation des
 
 l'exode
 biens. Le titre définitif de propriété est délivré, en fin de
 bail, au dernier locataire occupant,
-n. — Le bail est résilié de plein droit par le fait de l'inexé-
-cution des conditions de résidence imposées à l'article 8. En
+n. — Le bail est résilié de plein droit par le fait de l'inexécution des conditions de résidence imposées à l'article 8. En
 cas de résiliation, l'État reprend purement et simplement
 possession de la terre louée. Néanmoins, si le locataire a
-fait dans l'immeuble des améliorations utiles et perma-
-nentes, il sera procédé publiquement, par vole administra-
-tive, à l'adjudication du droit au bail. Celte adjudication
-ne pourra être prononcée qu'en faveur d'enchérisseurs euro-
-péens. Le prix d'adjudication, déduction faite des frais et
-compensation faite des dommages, s'il y a lieu, appar-
-tiendra au locataire déchu ou à ses ayant-cause. S'il ne se
-présente aucun adjudicataire, l'immeuble fait définit ive-
-inent retour à l'État, frano et quitte de toutes charges.
+fait dans l'immeuble des améliorations utiles et permanentes, il sera procédé publiquement, par vole administrative, à l'adjudication du droit au bail. Celte adjudication
+ne pourra être prononcée qu'en faveur d'enchérisseurs européens. Le prix d'adjudication, déduction faite des frais et
+compensation faite des dommages, s'il y a lieu, appartiendra au locataire déchu ou à ses ayant-cause. S'il ne se
+présente aucun adjudicataire, l'immeuble fait définit iveinent retour à l'État, frano et quitte de toutes charges.
 19. — Pendant trois ans, le locataire sera affranchi de
 tous impôts qui pourraient être établis sur la propriété
 — Le ministre de l'intérieur et le gouverneur général
@@ -6278,17 +5618,14 @@ Français, s'il était déféré à noire juridiction, n'entraînerait
 plus une peine.
 « Le degré d'éducation morale et le sentiment de droit et
 tfhonneur qui sont particuliers au peuple allemand, excluent
-une telle éventualité. Mats, après ces incidents, il sera diffi-
-cile, pour le cas où de nouveaux crimes de celle nature
+une telle éventualité. Mats, après ces incidents, il sera difficile, pour le cas où de nouveaux crimes de celle nature
 viendraient 4 être commis, de satisfaire Foplnlon publique
 en Allemagne en se référant à ^Intervention de la justice
-française. En conséquence, comme mesure défensive Immé-
-diate, nos commandants de troupes, sur le territoire de
+française. En conséquence, comme mesure défensive Immédiate, nos commandants de troupes, sur le territoire de
 foccupation, ont dû, par la déclaration de Vêtat de siège,
 assurer la répression des crimes par la justice militaire.
 Les cas oh ^arrestation immédiate du coupable pourra être
-effectuée ne donneront donc plus lieu à des difficultés inter-
-nationales. Mais toute demande d'extradition que nous
+effectuée ne donneront donc plus lieu à des difficultés internationales. Mais toute demande d'extradition que nous
 pourrions être contraints défaire, surexcitera et indisposera
 Copinlon publique en France.
 « Nous n'avons donc pas, après que ^extradition de
@@ -6317,10 +5654,8 @@ justice civile, les avocats et tes juges, un degré si passionné
 que dans les négociations qui doivent Intervenir encore entre
 nous et la France, nous avons à nous préoccuper d'assurer
 non-seulement Fexécutton des conditions de la paix, mais
-aussi la force défensive de notre position dans les dépar-
-tements qui sont encore occupés par nous.
-et Votre Excellence se souvient que les dernières négocia-
-tions engagées avec M. Pouyer-Querller oui été conduites
+aussi la force défensive de notre position dans les départements qui sont encore occupés par nous.
+et Votre Excellence se souvient que les dernières négociations engagées avec M. Pouyer-Querller oui été conduites
 sous Flmpresslon de la confiance que la cessation du dernier
 reste de notre occupation pourrait, grâce à un accord
 réciproque, avoir lieu dans un délai plus court que celui
@@ -6336,20 +5671,16 @@ timide, n'expliquent ce blâme que par des considérations
 (Futilité pratique, et notamment par cette considération que
 les Allemands, par leur occupation, -sont encore même de
 Jalre du mal à la France, mais aucune d'elles n'y joint cette
-déclaration que la sentence qui a été rendue est Incompa-
-tible avec les principes éternels de la justice, de Fordre poli-
-tique, et avec Fêtai actuel de la civilisation. Il semble
+déclaration que la sentence qui a été rendue est Incompatible avec les principes éternels de la justice, de Fordre politique, et avec Fêtai actuel de la civilisation. Il semble
 donc que même ces faibles hommages rendus au droit se
 tairaient le jour notre occupation aurait cessé.
 
 l'exode
-Je prie Votre Excellence de communiquer ces.considé-
-rations à M. de Bêmusat, sans que, je le répète, votre
+Je prie Votre Excellence de communiquer ces.considérations à M. de Bêmusat, sans que, je le répète, votre
 tangage ne laisse percer la moindre trace d'irritation de
 notre part pour le gouvernement de la République. Loin de
 ta, Votre Excellence Insistera de préférence sur le regret
-et le désappointement que nous éprouvons en voyant, immé-
-diatement après que nous avons donné les preuves de notre
+et le désappointement que nous éprouvons en voyant, immédiatement après que nous avons donné les preuves de notre
 esprit conciliant, surgir des faits jin présence desquels je
 me vols, malheureusement, dans l'obligation de qualifier de
 prématuré notre espoir de voir renaître entre tes deux pays
@@ -6357,25 +5688,17 @@ la confiance réciproque.
 
 Cette dépêche, envoyée le 10 décembre 1871 (1) par M. de
 Bismarck à M. d'Arnim, ne fut rendue publique que le aa.
-Elle causa, en France et en Europe, une impression considé-
-rable. Même les journaux qui, comme le Daily Telegraph,
+Elle causa, en France et en Europe, une impression considérable. Même les journaux qui, comme le Daily Telegraph,
 ne contestaient point que le chancelier fût fondé à présenter
-quelques observations, trouvaient qu'« un tel langage pour-
-rait être difficilement justifié par les circonstances pré-
-sentes ». Le Times, le Mornlng Posl, le Standard sont
-encore plus énergiques (a). Le général de Manteuffel, com-
-mandant en chef de l'armée d'occupation, à Nancy, dans un
-entretien avec le comte de Salnt-Valller, commissaire extraor-
-dinaire du gouvernement français auprès du quartier géné-
-ral, exprima formellementsa désapprobation.*Je quitte M. de
+quelques observations, trouvaient qu'« un tel langage pourrait être difficilement justifié par les circonstances présentes ». Le Times, le Mornlng Posl, le Standard sont
+encore plus énergiques (a). Le général de Manteuffel, commandant en chef de l'armée d'occupation, à Nancy, dans un
+entretien avec le comte de Salnt-Valller, commissaire extraordinaire du gouvernement français auprès du quartier général, exprima formellementsa désapprobation.*Je quitte M. de
 Manteuffel, écrivait M. de Saint-Vallier le décembre (3);
 vient de m'exprlmer les sentiments de douleur qu'éveille
 en lui la lecture de l'inqualifiable dépêche adressée, le
 10 décembre, par M. de Bismarck à M. d'Arnim et publiée
 avant-hier par les Journaux de Berlin. Le général est
-confondu de la perfidie de cette pièce mensongère et calom-
-
-territoire, i8yt>p3 vol. ln-8*, Paris, 1900), tome pages IOJ-IIO.
+confondu de la perfidie de cette pièce mensongère et calomterritoire, i8yt>p3 vol. ln-8*, Paris, 1900), tome pages IOJ-IIO.
 
 ABBU (Gh.). — Une Cause célèbre à Mets (in-8% Mets, i854).
 AcKsn (Paul). — Une Ville industrielle alsacienne, dans:
@@ -6383,8 +5706,7 @@ Revue îles Deux Mondes, mars
 ALBERT (Henri). — La « nouvelle a Alsace-Lorraine, dans:
 Cahiers Alsaciens, janvier 191/).
 AnooumDuMAZET. — Voyage en France: 6* série (in-iO,
-BAQUOI. — L'Alsace ancienne et moderne, édition entière-
-ment refondue par P. BJSTBMICBBR (in-8*, Strasbourg,
+BAQUOI. — L'Alsace ancienne et moderne, édition entièrement refondue par P. BJSTBMICBBR (in-8*, Strasbourg,
 BARBB (Jean-Julien). — A travers te Vieux-Mets. Les Maisons
 historiques (in-8*, Metz, Imprimerie Lorraine, igi3>.
 BARDY (IL). — Histoire de la Ville de Belfort (in-8*, Belfort,
@@ -6404,22 +5726,18 @@ France, dans: Revue des Deux Mondes, 1" octobre 190$.
 Bovaotrioxox (Eug.). — BlschtvUler depuis cent ans (In-8*,
 BOUTBILLBR (Ernest de). — Étage de Mets, par Sigeberl de
 CASTBLLANF (de). — Journal du Maréchal de Gastellane
-CORNBILLR (A.). — La Seine-Inférieure Industrielle et com-
-merciale (in-8*, Rouen, Herpin, 1873).
+CORNBILLR (A.). — La Seine-Inférieure Industrielle et commerciale (in-8*, Rouen, Herpin, 1873).
 CuXMArm (F. W.). — Geschlchte von Blschweller (In-8*,
 DÉMONTÉS (V.). — Le Peuple Algérien (in-8*, Alger, 1906).
 
-DOLLFUS (Aug.). — Notes statistiques sur les diverses indus-
-tries du Haut-Rhin, et plus particulièrement sur les indus-
-tries textiles de ce département, dans: 'Bulletin de la
+DOLLFUS (Aug.). — Notes statistiques sur les diverses industries du Haut-Rhin, et plus particulièrement sur les industries textiles de ce département, dans: 'Bulletin de la
 Société Industrielle de Mulhouse, année
 FAmiral de Gueydon (in-4% Alger, Jourdan, 1908).
 
 KttTBiN (G. d). — L'Alsace-Lorralne sons la domination
 allemande (in-8*, Paris, Olmer, 1877).
 EMMRRY. — Recueil des Êdlts... enregistrés au Parlement
-ENOBL (Alfred).—Documentsofficiels concernant le 4* Batail-
-lon de la Mobile tin Haut-Rhin (in-8*, Mulhouse, Mclnlngcr,
+ENOBL (Alfred).—Documentsofficiels concernant le 4* Bataillon de la Mobile tin Haut-Rhin (in-8*, Mulhouse, Mclnlngcr,
 FiscHBR(Dagobcrl).—DieStadt Pfalsburg Qn*i9, Mulhouse,
 
 — — Le Comté de la Petite-Pierre sous ta Domination
@@ -6428,8 +5746,7 @@ FRAKNKRL(Paul). — Rapportfait ta Chambre de Commerce
 d'Elbeuf, séance du a février 1910 (in-8*, Elbeuf, Crepel,
 GAUBN (Paul). — Êphêmêrldes alsaciennes de FAnnée
 GLUCK (Emile). — Le 4' Bataillon de la Mobile du Haut-Rhin
-GnAD (Ch.). — Considérations sur les finances et Fadmlnts-
-tratlon de FAlsace-Lorrainesous le régime allemand (In-8*,
+GnAD (Ch.). — Considérations sur les finances et Fadmlntstratlon de FAlsace-Lorrainesous le régime allemand (In-8*,
 Strasbourg, Noirlel; Mulhouse, Bader; Paris, Germer-
 — — Die Optanlenfrage vor dem deutsehen Relehstag
 GuiLMBTn (A.). — Histoire de la Ville et des Environs
@@ -6451,8 +5768,7 @@ dans: Revue Alsacienne, décembre 1880.
 HEPP (Eug.). — Du droit d'option des Alsaciens-Lorrains
 pour la nationalité française (in-ia, Paris, Sandoz et
 HBRMIKB (H. de Y). — Mémoires de deux voyages et séjours
-HOLLBNDBR (Lieutenant-Colonel A.). — Le Siège de Phals-
-bourg en (in-8', Paris, H.-Ch. Lavauzelle).
+HOLLBNDBR (Lieutenant-Colonel A.). — Le Siège de Phalsbourg en (in-8', Paris, H.-Ch. Lavauzelle).
 KELLER. — Ailes und neues von Pfahburg (in-8*, Sarrebourg,
 l'Industrie de la Laine dans le département du Haut-Rhin,
 dans: Bulletin de ta Société Industrielle de Mulhouse,
@@ -6461,8 +5777,7 @@ KLEIN (abbé Félix). — Vie de Mgr. Dupont des Loges
 KLIPFFEL (IL). — Les Paratges messins (in-8*, Metz-Paris,
 KOBCHLIN (A.). — L'Industrie cotonnlère en Allemagne (in-8',
 
-LAFFITTB (Louis). — Rapport général sur FBxpositlon Inter-
-nationale de FBst de ta France (in-4*, Paris-Nancy, Berger-
+LAFFITTB (Louis). — Rapport général sur FBxpositlon Internationale de FBst de ta France (in-4*, Paris-Nancy, Berger-
 — — La Région lorraine, dans: Les divisions
 de la France (in-8*, Paris, Alcan, 1913).
 LALAKCB(A.).—Mulhousefrançais (ln-8% Paris, Chaix, 1898).
@@ -6491,8 +5806,7 @@ Société de Protection, dans: Revue des.Deux Mondes,
 iudex des principaux ouvrages
 L. K. — Une ville de garnison sous Fanclen régime (In-8*,
 L. M. — Mulhouse, dans: Revue de Paris, mars 1898.
-MANNBBHOUBR (F.). — Éloge de feu M. te comte d'Hausson-
-ville, de l'Académie française, sénateur, président de la
+MANNBBHOUBR (F.). — Éloge de feu M. te comte d'Haussonville, de l'Académie française, sénateur, président de la
 Société de Protection (in-8*, Paris, Châlx, 1884).
 MAY (Gaston). — Le Traité de Francfort (In-8*, Paris-Nancy,
 MBIKINOBR (Ernest). — Essai de description, de statistique
@@ -6543,8 +5857,7 @@ française (in-8% Metz-Nancy-Paris, 1849).
 ZURLINDBN (Général). — Mes souvenirs depuis ta guerre
 (In-i6, Paris, Perrin, igi3).
 
-Aus dem Elsass, — Zustânde, Sllmmungen und Erwar-
-iungen Neuen Relchsland (in-16, Leipzig, J.-J. Weber,
+Aus dem Elsass, — Zustânde, Sllmmungen und Erwariungen Neuen Relchsland (in-16, Leipzig, J.-J. Weber,
 Causes célèbres, t. CXXXIV (in-12, Paris, 1786).
 Histoire documentaire de Finduslrle de Mulhouse et de ses
 environs au dix-neuvième siècle (Publication de la SOCIÉTÉ

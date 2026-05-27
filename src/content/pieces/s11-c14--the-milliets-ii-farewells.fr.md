@@ -87,8 +87,7 @@ En attendant, je suis toujours ton fils respectueux.
 
 Chaque année, madame Milliet aidait sa mère dans la fabrication de quelques bouteilles de liqueur d'orange, de cassis et de brou de noix, cadeaux destinés à ses amis et à ses fermiers. Elle en donna aussi à chacun de ses petits-enfants un flacon minuscule, sur lequel notre nom était inscrit et qui, soigneusement déposé sur la plus haute planche d'un placard, fut réservé pour les dînettes de l'année prochaine.
 
-Fernand et moi nous avions trouvé à ces liqueurs un goût exquis. Un jour que nous n'étions pas surveillés, il grimpa sur une chaise, je grimpai moi-même sur son dos et je saisis les précieux flacons. N'était-il pas notre propriété personnelle? Nous voilà partis pour le hameau voisin, avec l'idée abominable de faire goûter à notre petite sœur ce breuvage délicieux. Chemin faisant, nous bûmes chacun une toute petite gorgee, puis nous échangeâmes nos flacons; c'était doux comme le miel, et cela réchauffait intérieurement! Encore une gorgée! Fernand chantait à tue-tête, mais moi, je ne riais déjà plus. D'un trait, j'avais vidé la fiole tout entière. L'effet fut foudroyant. Je roulai ivre-mort dans le fossé. — Épouvante, Fernand court à la mai-
-son: Venez vite! Paul est mort! — Quel émoi! On me transporte dans mon lit, où je restai longtemps gravement malade.
+Fernand et moi nous avions trouvé à ces liqueurs un goût exquis. Un jour que nous n'étions pas surveillés, il grimpa sur une chaise, je grimpai moi-même sur son dos et je saisis les précieux flacons. N'était-il pas notre propriété personnelle? Nous voilà partis pour le hameau voisin, avec l'idée abominable de faire goûter à notre petite sœur ce breuvage délicieux. Chemin faisant, nous bûmes chacun une toute petite gorgee, puis nous échangeâmes nos flacons; c'était doux comme le miel, et cela réchauffait intérieurement! Encore une gorgée! Fernand chantait à tue-tête, mais moi, je ne riais déjà plus. D'un trait, j'avais vidé la fiole tout entière. L'effet fut foudroyant. Je roulai ivre-mort dans le fossé. — Épouvante, Fernand court à la maison: Venez vite! Paul est mort! — Quel émoi! On me transporte dans mon lit, où je restai longtemps gravement malade.
 
 J'étais trop puni pour qu'on me grondât. J'avais le désespoir des miens. Toute ma vie j'ai conservé une invincible répugnance pour les boissons alcooliques.
 
@@ -711,7 +710,7 @@ L'enthousiasme est contagieux. Mes parents se hâtèrent de prendre des actions 
 
 De toute la famille, Paul était peut-être celui que tentait le moins l'émigration au Texas. Il entrevoyait vaguement une absence regrettable de musées et de bibliothèques, seules régions vers lesquelles il fût dirigé par ses attractions et ses destinées.
 
-M. Milliet, profondément attaché au sol natal, ne se résignait qu'à regret à quitter l'Europe. Forcé de reconnaître que le régime impérial se consolidait en France, et très attristé de voir se prolonger l'exil, il fut pris de découragement. Au moment de partir, il composa les vers suivants; « les plus désespérés sont les chants les plus beaux »:
+M. Milliet, profondément attaché au sol natal, ne se résignait qu'à regret à quitter l'Europe. Forcé de reconnaître que le régime impérial se consolidait en France, et très attristé de voir se prolonger l'exil, il fut pris de découragement. Au moment de partir, il composa les vers suivants; « les plus désespérés sont les chants les plus beaux
 
 Le vaisseau quitter la terre;
 Les passagers sont sur le pont,

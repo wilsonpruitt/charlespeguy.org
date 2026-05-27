@@ -28,11 +28,8 @@ identiques entre elles, car cela ne se pourrait pas,
 mais, autant que possible, égales entre elles, en
 ce sens que les différences qu'elles auront encore.
 ne seront commandées que par les différents besoins
-de la cité et par les différentes aptitudes indivi-
-duelles des citoyens comme travailleurs, et en ce
-sens que ces inévitables différences de qualité, d'in-
-
-tensité, de durée, seront, autant que possible, compensées par d'autres différences de qualité, d'intensité, de durée, de manière que les parts individuelles du travail social soient, autant que possible,
+de la cité et par les différentes aptitudes individuelles des citoyens comme travailleurs, et en ce
+sens que ces inévitables différences de qualité, d'intensité, de durée, seront, autant que possible, compensées par d'autres différences de qualité, d'intensité, de durée, de manière que les parts individuelles du travail social soient, autant que possible,
 
 En échange cité assurera aux citoyens une
 éducation vraiment humaine, et l'assistance exacte
@@ -42,8 +39,7 @@ entière pendant la vieillesse.
 L'éducation sera égale pour tous les enfants, non
 pas, bien entendu, en ce sens que les éducations
 individuelles seraient identiques entre elles, mais
-en ce sens que les différences des éducations individuelles ne seront commandées que par les diffé-
-rentes ressources de la cité et par les différentes
+en ce sens que les différences des éducations individuelles ne seront commandées que par les différentes ressources de la cité et par les différentes
 aptitudes individuelles des citoyens comme élèves.
 
 Les moyens de consommation seront laissés à la
@@ -53,12 +49,9 @@ que possible égales entre elles.
 Les avantages de ce régime sont à considérer
 l'égard de la cité et à l'égard des citoyens.
 
-l'égard de la cité, ce régime épargnera letra-
-vail humain, dont le gaspillage est immoral. Cette
+l'égard de la cité, ce régime épargnera letravail humain, dont le gaspillage est immoral. Cette
 épargne sera réalisée par plusieurs causes, dont les
-La concurrence sera supprimée. elle est mau-
-
-troisième cahier de la deuxième série
+La concurrence sera supprimée. elle est mautroisième cahier de la deuxième série
 vaise. Il semble à première vue qu'elle a de bons
 effets dans la société présente, maïs ces bons effets
 ne sont que des commencements de réparation aux
@@ -101,8 +94,7 @@ pourvoir au luxe individuel des oisifs.
 
 La production sera centralisée autant qu'il est
 possible; or, si la centralisation est mauvaise pour
-la vie intérieure des hommes et pour le travail supé-
-rieur de l'humanité, surtout pour l'artet pour la
+la vie intérieure des hommes et pour le travail supérieur de l'humanité, surtout pour l'artet pour la
 philosophie, elle est bonne pour la production sociale, parce qu'elle permet aux citoyens de faire
 mieux et plus vite le travail social de production,
 et, justement ainsi, d'être mieux et plus tôt libres
@@ -124,8 +116,7 @@ duels. Dans la société présente on laisse les malheurs individuels tomber de 
 ceux des citoyens qui se trouvent au droit, et qui
 souvent en sont écrasés. Et comme il ya, malgré
 tout, en fait, des solidarités individuelles indéfinies,
-ces malheurs ont des répercussions indéfinies, incal-
-culables. Si bien que le progrès même est, en fin de
+ces malheurs ont des répercussions indéfinies, incalculables. Si bien que le progrès même est, en fin de
 compte, onéreux. Par exemple quand on invente
 une machine qui supprime la moitié du travail dans
 un métier, les consommateurs, en général, entirentun
@@ -148,8 +139,7 @@ en ce qu'elle sera socialiste. En ce qu'elle sera une
 cité humaine il se pourra qu'elle soit imparfaiteen-,
 core. Mais elle sera la moins imparfaite possible
 des cités humaines possibles, en ce sens que toutes,
-les difficultés, toutes les souffrances y seront au pis-
-aller égales à ce qu'il faut qu'elles soient dans toute
+les difficultés, toutes les souffrances y seront au pisaller égales à ce qu'il faut qu'elles soient dans toute
 société individualiste. Soient les difficultés, par
 exemple, qui tiennent au choix du métier et à la
 Comment pourrez-vous, nous dira-t-on,
@@ -179,8 +169,7 @@ content que la misère générale soit telle qu'il y ait
 des citoyens qui tombent si bas que de remonter
 jusqu'à ces métiers-là justement leur paraisse un
 bonheur. Et c'est sur cela que repose toute la société
-présente. Pour ne pas vouloir faire de certains mé-
-tiers, de certaines fonctions sociales, de certains
+présente. Pour ne pas vouloir faire de certains métiers, de certaines fonctions sociales, de certains
 services des services commandés, on gaspille de la
 
 souffrance humaine: au lieu de faire descendre les
@@ -203,8 +192,7 @@ sufliront pour assurer la vie quotidienne, si, dans
 une telle cité, il se trouve encore des paresseux
 qui refusent toute espèce de travail, ces malades ne
 mourront pas de faim dans une cité qui sera aussi
-riche en moyens de consommation, mais on les ré-
-duira au strict nécessaire. — Îls seront donc,
+riche en moyens de consommation, mais on les réduira au strict nécessaire. — Îls seront donc,
 dira-t-on, entretenus aux frais de la cité? — Sans
 doute, mais que fait la société présente, sinon de les
 entretenir aussi, et très cher, dans ses asiles, ses
@@ -229,8 +217,7 @@ l'on convertit soigneusement au socialisme les générations montantes, si l'on 
 hommes, les nouveaux hommes, à mesure qu'ils passent
 leur quinzième, leur dix-huitième ou leur vingtième
 année, après huit ans d'exercice on est régulièrement
-une imposante minorité, après vingt ans on est une res-
-pectable majorité, après quarante ans, sans risque et
+une imposante minorité, après vingt ans on est une respectable majorité, après quarante ans, sans risque et
 sans violence mauvaise, on est devenu l'humanité même,
 l'humanité enfin sauvée du mal bourgeois, de tout
 le mal, et instituée en cité harmonieuse. Ainsi le veut
@@ -256,13 +243,10 @@ leur bien. C'est la méthode pratiquée sur la plupart
 des âmes adolescentes par la plupart des âmes adultes.
 Cette méthode a tout pour elle. Idoine à la paresse et
 commode au ménagement, elle reste la forme la plus
-redoutable du mensonge universel. Nos maîtres nous donnaient donc une image heureuse dumonde socialiste fran-
-çais, une image bienheureuse du monde socialiste universel, une image au moins exactement sévère du monde
+redoutable du mensonge universel. Nos maîtres nous donnaient donc une image heureuse dumonde socialiste français, une image bienheureuse du monde socialiste universel, une image au moins exactement sévère du monde
 bourgeois. En France les anciens partis socialistes, les
 anciennes écoles et les anciennes sectes s'éliminaient
-d'eux-mêmes selon les exigences naturelles de la vieil-
-
-troisième cahier: de la deuxième série
+d'eux-mêmes selon les exigences naturelles de la vieiltroisième cahier: de la deuxième série
 lesse. Pas même il n'était besoin de se faire enseigner
 leurs noms. Guesde et Vaillant disparaissaient déjà, et
 l'incompatible Allemane avec eux, dans l'avantageux
@@ -280,9 +264,7 @@ simples étaient si redoutables. Parfois même je me demande sices maîtres n'av
 comme étant véritables cette image du monde et ces
 renseignements qu'ils voulaient bien communiquer
 leurs élèves et à leurs amis. Car ils se soumettaient
-sans doute eux-mêmes aux moyens d'élevage qu'ils im-
-
-posaient au-dessous d'eux. Cette idée simple, et vivace,
+sans doute eux-mêmes aux moyens d'élevage qu'ils imposaient au-dessous d'eux. Cette idée simple, et vivace,
 était que nous devons commencer par vivre en socialistes, que nous devons commencer la révolution du
 monde par la révolution de nous-même, que toutes les
 théories et toutes les phrases ne valent pas un acte
@@ -338,8 +320,7 @@ non pas M. Waldeck-Rousseau, trahissaient alors la
 Cette institution de jeunesse ne prospéra pas. Je
 ferais plaisir à beaucoup de personnes si j'attribuais
 la faiblesse humaine l'étiolement de cette institution.
-Mais j'aperçois des causes, que je distingue en inté-
-rieures et en extérieures.
+Mais j'aperçois des causes, que je distingue en intérieures et en extérieures.
 Je ne sais pas bien si j'avais été l'initiateur de cette
 institution, car elle était née à peu près spontanément.
 La première croissance fut rapide. Mes amis d'Orléans,
@@ -449,8 +430,7 @@ la librairie Bellais qui s'affichait dreyfusiste, qui fut rapidement notée, dev
 où les dreyfusistes fomentaient leurs manifestations.
 Le temps et la force employée à manifester pour Dreyfus
 était dérobée au travail de la librairie. La fatigue en- )
-tassée dans l'action dreyfusiste retombait sur la librai-
-rie. La seule édition dreyfusiste que fit la maison nous
+tassée dans l'action dreyfusiste retombait sur la librairie. La seule édition dreyfusiste que fit la maison nous
 fut onéreuse. Ainsi une affaire qui sans doute enrichit
 de finance ou de clientèle ou d'autorité les journaux et
 la librairie Stock appauvrit la librairie Bellais.
@@ -471,8 +451,7 @@ de Jaurès l'action socialiste. Je pensais que ce livre
 serait un merveilleux moyen de propagande moralement socialiste. Il y a des pages vraiment impérissables et définitives. Le livre ne se vendit pas. Événement incroyable: on eut honte de lui. Au commencement
 des deux allées qui forment cette première série, au
 seuil des deux avenues les premières pages ne sont pas
-d'un socialisme exactement fixé. Rien de plus historique, de plus naturel, de plus convenable, de plus iné-
-vitable et je dirai de plus indispensable puisque justement il s'agit ici de l'explicitation d'un socialisme implicité d'abord, puisqu'il s'agit ici d'un socialisme en
+d'un socialisme exactement fixé. Rien de plus historique, de plus naturel, de plus convenable, de plus inévitable et je dirai de plus indispensable puisque justement il s'agit ici de l'explicitation d'un socialisme implicité d'abord, puisqu'il s'agit ici d'un socialisme en
 mouvement, en action. Comme si la propagande ne
 consistait pas justement à se situer au commencement
 des allées pour pouvoir se transporter avec le lecteur
@@ -491,12 +470,9 @@ lourde occupation que de trouver un local et d'essuyer
 
 les plâtres.
 Je distingue des causes qui à distance me font encore
-beaucoup de plaisir. J'accueillis comme éditeur le Mou-
-
-troisième cahier de la deuxième série
+beaucoup de plaisir. J'accueillis comme éditeur le Moutroisième cahier de la deuxième série
 vement Socialiste à sa naissance et lui procurai le plus
-d'abonnés que je pus. J'accueillis l'initiateur des Jour-
-naux pour tous et lui procurai, autant que je le pus, les
+d'abonnés que je pus. J'accueillis l'initiateur des Journaux pour tous et lui procurai, autant que je le pus, les
 moyens de sa réussite.
 - La désagrégation de la communauté se produisit non
 
@@ -505,8 +481,7 @@ dessinait peu à peu autour de M. Lucien Herr. Je me
 permets de citer ce nom parce que le Cri de Paris l'a
 cité avant moi, parce que cette signature a été imprimée
 jadis dans Volonté, parce que ce nom figure aux
-Notes Critiques, parce que la Société Nouvelle de li-
-brairie et d'édition annonce de M. Herr un volume
+Notes Critiques, parce que la Société Nouvelle de librairie et d'édition annonce de M. Herr un volume
 
 Je ne cacherai pas la grosse et souvent la profonde
 impression que me fit M. Herr quand enfin je le connus
@@ -514,15 +489,11 @@ impression que me fit M. Herr quand enfin je le connus
 travail énorme, son gros travail anonyme, son érudition
 sans doute universelle et totale et, sur tout, sa brutale
 sincérité me donnèrent pour lui un profond attachement
-fidèle. Je fus en un sens vraiment son élève. Il n''ensei-
-gna parfois comme on travaille et souvent comme on
-agit. Il me fournit beaucoup de renseignements sincère-
-ment exacts sur tout un monde que j'ignorais, monde
+fidèle. Je fus en un sens vraiment son élève. Il n''enseigna parfois comme on travaille et souvent comme on
+agit. Il me fournit beaucoup de renseignements sincèrement exacts sur tout un monde que j'ignorais, monde
 littéraire, scientifique, politique. Sur tout il débrouilla
 pour moi les insincérités et les conventions où je me
-serais empêtré. Il me mit au courant de l'affaire Drey-
-fus, me donna les indications sans lesquelles on ne pou-
-vait pas suivre intelligemment.
+serais empêtré. Il me mit au courant de l'affaire Dreyfus, me donna les indications sans lesquelles on ne pouvait pas suivre intelligemment.
 Cette fidélité dura jusqu'à la fin de l'affaire. Comme
 elle finissait il me sembla qu'elle avait malheureusement
 modifié la mentalité de plusieurs de nos camarades. Elle
@@ -556,8 +527,7 @@ demande à passer en conseil de guerre. Zola est encore
 
 troisième cahier de la deuxième série
 ce qu'il était, un romancier, et un citoyen libre. Mais la
-grande majorité ne pouvait renoncer à la tentation singulière d'exercer une influence énorme, intense, concen-
-trée, condensée, un alcool d'influence, ayant un effet
+grande majorité ne pouvait renoncer à la tentation singulière d'exercer une influence énorme, intense, concentrée, condensée, un alcool d'influence, ayant un effet
 considérable sous un petit volume et pour un petit effort
 initial, l'ancienne action politique était justement un
 jeu imaginé à seule fin de satisfaire à ces anciennes
@@ -565,9 +535,7 @@ ambitions. L'ancienne action politique est un jeu d'illu-.
 sions, combiné pour faire croire que l'on peut exercer
 beaucoup d'action sans se donner beaucoup de peine
 et de soin, que l'effet utile est hors de proportion avec
-l'énergie dépensée, avec l'effort. L'ancienne action politique est un jeu de crises feintes imaginé pour faire ac-
-croire que l'action critique est l'action habituelle, ordi-
-naire. Les dreyfusards qui selaissèrent séduire à cette
+l'énergie dépensée, avec l'effort. L'ancienne action politique est un jeu de crises feintes imaginé pour faire accroire que l'action critique est l'action habituelle, ordinaire. Les dreyfusards qui selaissèrent séduire à cette
 illusion devinrent partisans de l'amnistie. Tous, et
 parmi eux Jaurès, ils retombèrent ou ils tombèrent dans
 l'ancienne action politique. Ils y ont fait tomber le socialisme français.
@@ -580,7 +548,7 @@ mandat de les représenter aux trois congrès de Paris. L.:
 Ce compte sera rendu dans le cinquième cahier.
 Le quatrième cahier sera tout entier de Lagardelle.
 Nous nous reposerons pendant les vacances du premier
-de l'an. Nous publierons huit cahiers de janvier à!
+de l'an. Nous publierons huit cahiers de janvier
 
 Nous avons supprimé nos services. Nous prions nos
 abonnés de vouloir bien accepter Les reçus que nous
@@ -593,13 +561,10 @@ reçu de huit francs pour un abonnement de propagande
 
 ceux de nos abonnés éventuels que nous pensons
 
-qui peuvent s'engager dès à présent nous faisons pré-
-senter un reçu de huit francs pour un abonnement de
+qui peuvent s'engager dès à présent nous faisons présenter un reçu de huit francs pour un abonnement de
 propagande à la deuxième série.
 
-ceux de nos abonnés éventuels que nous ne pensons pas qui veuillent s'engager dès à présent, nous fai-
-
-sons présenter un reçu de deux ou de trois francs pour
+ceux de nos abonnés éventuels que nous ne pensons pas qui veuillent s'engager dès à présent, nous faisons présenter un reçu de deux ou de trois francs pour
 une souscription.
 tous nos abonnés gratuits nous faisons présenter
 un reçu de deux francs pour un abonnement gratuit à la
@@ -614,14 +579,10 @@ Nous nous réservons de supprimer nos envois à ceux
 de nos abonnés qui n'auraient pas accepté nos reçus.
 troisième cahier de la deuxième série
 Plusieurs de nos anciens abonnés nous ont demandé
-pourquoi nous ne publions pas comme avant l'état nu-
-mérique de nos abonnés et l'état de notre situation
+pourquoi nous ne publions pas comme avant l'état numérique de nos abonnés et l'état de notre situation
 financière. Un tel recensement n'aurait aucun sens.
 Nous tirons à quatre mille environ depuis le douzième
-et dernier cahier de la première série inclus. Nous en-
-voyons à quatre mille destinataires sérieusement choi-
-sis. Combien de ces quatre mille destinataires nous res-
-teront abonnés? Nous le saurons quand la poste aura
+et dernier cahier de la première série inclus. Nous envoyons à quatre mille destinataires sérieusement choisis. Combien de ces quatre mille destinataires nous resteront abonnés? Nous le saurons quand la poste aura
 présenté nos reçus. Combien de nos anciens abonnés
 se réabonneront? Nous le saurons vers la fin de janvier.
 Nous avons la semaine passée le premier désabon-.
@@ -630,12 +591,10 @@ ture du premier cahier, s'est violemment désabonné
 pour sept raisons. Charles Guieysse, qui a éprouvé plu- À
 sieurs publications, veut bien m'assurer que le désabonnement, quand on n'en abuse pas, est un indice de
 vitalité. Le fait est que nous recevons régulièrement
-plusieurs abonnements par jour. Un mouvement de dés-
-affection s'accentue parmi mes anciens camarades et
+plusieurs abonnements par jour. Un mouvement de désaffection s'accentue parmi mes anciens camarades et
 quelques-uns de mes anciens amis. Un mouvement
 d'abonnement se continue parmi les personnes éloignées. Il paraît que cela aussi est habituel aux publications libres. Chez nous le mouvement d'abonnement
-est beaucoup plus fort que le mouvement de désaffec-
-tion. C'est tout ce que nous pouvons dire. L'établissement de quatre mille abonnements éventuels a réclamé
+est beaucoup plus fort que le mouvement de désaffection. C'est tout ce que nous pouvons dire. L'établissement de quatre mille abonnements éventuels a réclamé
 tout le temps et toutes les forces de l'administration.
 Bourgeois a fourni douze heures par jour depuis trois
 mois, sans repos hebdomadaire. Nous sommes en contravention à la loi Millerand-Colliard.
@@ -658,8 +617,7 @@ libres suivent de très près notre situation financière; c'est
 seulement en connaissant l'état de nos finances qu'ils verront pourquoi nous faisons payer nos abonnements trimestriels trente-neuf sous, ce qui est cher.
 
 Gela est absolument nécessaire aussi, parce que beaucoup
-de camarades veulent que nous nous organisions en Coopé-
-rative d'édition et de librairie; il faut, pour que ce projet
+de camarades veulent que nous nous organisions en Coopérative d'édition et de librairie; il faut, pour que ce projet
 puisse se réaliser un jour, que nos lecteurs soient d'abord
 exactement instruits de la manière dont se fait un journal,
 dont s'administre une revue.
@@ -682,8 +640,7 @@ correct de donner des annonces commerciales dans une “4
 publication qui n'est pas un journal d'informations, mais
 bien une revue d'idées; À
 7° Nous n'avons pas de capitaux qui nous permettent de
-dépenser beaucoup d'argent en frais de publicité, et d'at-
-tendre plusieurs années avant de joindre les deux bouts. IL
+dépenser beaucoup d'argent en frais de publicité, et d'attendre plusieurs années avant de joindre les deux bouts. IL
 faut que tout de suite nous joignions les deux bouts.
 Tarif B. — Quand l'abonnement est versé directement en
 nos mains, aux mains d'un camarade qui nous l'apporte, LE
@@ -738,8 +695,7 @@ auditeurs, mais ce ne sont pas les camarades avec lesquels tu causes qui peuvent
 la classe des travailleurs.
 Je la connais, moi qui ai fondé des groupes politiques,
 qui aiaussi fondé une coopérative, et aussi une Université
-Populaire; et je te dis que c'est bien difficile de faire quel-
-que chose avec ces gens-là. Ils aiment les grands mots, ils
+Populaire; et je te dis que c'est bien difficile de faire quelque chose avec ces gens-là. Ils aiment les grands mots, ils
 crient dans les réunions publiques, ils beuglent Vive la
 Sociale et puis c'est tout. Ils se plaignent de leur misère,.
 mais quand il s'agit de faire quelque chose pour la faire
@@ -749,14 +705,12 @@ connaître mieux que toi les travailleurs manuels; cependant j'ai envie de prote
 que je vais dans les Universités Populaires j'ai rencontré
 des hommes remarquables dont je m'honore d'être devenu
 le camarade, comme je suis le tien; ceux qui fondent des
-Coopératives et des U. P., ceux qui sont des militants poli-
-tiques, ceux-là sont des dévoués, et ils ne méritent en
+Coopératives et des U. P., ceux qui sont des militants politiques, ceux-là sont des dévoués, et ils ne méritent en
 rien le mal que tu dis.
 Je contai comment nous comptions lancer les Pages
 libres, comment nous avions reçu des noms et adresses de
 camarades, comment nous avions aussi dépouillé des annuaires; — à tous ceux dont nous avons les noms et
-adresses, nous allons envoyer gratuitement plusieurs nu-
-méros, ils verront alors eux-mêmes s'ils doivent
+adresses, nous allons envoyer gratuitement plusieurs numéros, ils verront alors eux-mêmes s'ils doivent
 — Et tu penses, Charles Gé, que ceux qui recevront plu-
 Moi, je crois qu'ils liront ce que tu leur enverras, mais
 qu'après ils ne s'ahbonneront pas. Je suis très sceptique.
@@ -788,10 +742,7 @@ lui-même auront peur de ta revue.
 éternelles: celles de Justice et de Liberté.
 
 Au moment où nous mettons sous presse nous recevons
-la copie de la pièce de Jean Hugues, la Grève, repré-
-
-sentée pour la première fois à l'Émancipation, univer-
-sité populaire du quinzième arrondissement. À première » vue cette pièce peut faire un beau cahier.
+la copie de la pièce de Jean Hugues, la Grève, représentée pour la première fois à l'Émancipation, université populaire du quinzième arrondissement. À première » vue cette pièce peut faire un beau cahier.
 
 J'ai reçu de Gérault-Richard la lettre suivante
 
@@ -836,8 +787,7 @@ distribué les condamnations avec prodigalité, sans tenir
 compte des contradictions et des extravagances de certaines dépositions.
 
 Ainsi le brigadier Renaud raconte en ces termes, que
-nous recommandons aux amateurs de dislocation, les mé-
-faits commis sur sa personne par le citoyen Marius Gros,
+nous recommandons aux amateurs de dislocation, les méfaits commis sur sa personne par le citoyen Marius Gros,
 serrurier: « L'inculpé me saisit par le bord de ma tunique,
 me serra fortement à la gorge et me donna un coup de
 poing dans le dos. Arrêté, il cria à plusieurs reprises à ses
@@ -852,9 +802,7 @@ de sa tunique. Enfin, si les camarades de Gros lancèrent
 des pierres sur le brigadier, ils risquaient d'attraper Gros
 qui était devant lui... Oh! logique de Pandore.
 
-Mais les juges ne s'arrêtent pas à ces détails, ils con-
-
-damnent: Marinier, à un mois de prison; Lanacq, à deux
+Mais les juges ne s'arrêtent pas à ces détails, ils condamnent: Marinier, à un mois de prison; Lanacq, à deux
 est acquitté. Plusieurs des condamnés bénéficient de la loi
 
 troisième cahier de la deuxième série
@@ -880,8 +828,7 @@ La Petite République n'est pas parfaite. Quand
 M. Waldeck-Rousseau eut appelé M. Millerand au ministère du commerce, elle pouvait adopter envers le
 nouveau ministère cette attitude si heureuse et fructueuse de la critique bienveillante. Elle aima mieux
 manifester beaucoup de bienveillance à peu près
-dépourvue de critique. Non pas que je souscrive entiè-
-rement aux accusations de ministérialisme intentées
+dépourvue de critique. Non pas que je souscrive entièrement aux accusations de ministérialisme intentées
 la Petite République. L'attitude politique de Jaurès, de
 
 Gérault-Richard, des indépendants, des journaux
@@ -901,8 +848,7 @@ Petite République à peu près régulièrement le matin, je
 
 la lis à peu près régulièrement le soir. La dépêche de
 Chalon relatant la condamnation des grévistes n'avait
-à peu près échappé. Au congrès de Paris plusieurs délé-
-gués antiguesdistes, qui lisent leur journal honnêtement, me dirent: Pourquoi Petite République n'a-t-elle
+à peu près échappé. Au congrès de Paris plusieurs délégués antiguesdistes, qui lisent leur journal honnêtement, me dirent: Pourquoi Petite République n'a-t-elle
 pas publié les condamnations des grévistes? C'était
 une opinion commune. Les délégués ajoutaient: Il faut
 en parler dans vos cahiers. — Vint la lettre de Louzon,
@@ -919,8 +865,7 @@ donneraient pour ainsi dire le ton d'année en année.
 Nous voulions éviter ainsi le vieillissement automatique,
 
 l'encroûtement, la stérile contemplation de soi. Ma
-é méthode est restée la même. Je pense qu'à valeur per-
-sonnelle égale et sauf exception les tout jeunes gens
+é méthode est restée la même. Je pense qu'à valeur personnelle égale et sauf exception les tout jeunes gens
 
 troisième cahier de la deuxième série
 voient juste parce qu'ils voient frais. J'excepte les
@@ -931,9 +876,7 @@ l'habitude n'impose de brancards. J'excepte aussi, bien
 entendu, les insincères.
 
 Je tiens beaucoup à l'opinion de Louzon et de ses
-jeunes camarades et amis, parce qu'ils sont jeunes, sin-
-
-cères, inhabitués. D'ailleurs je ne pouvais refuser sa
+jeunes camarades et amis, parce qu'ils sont jeunes, sincères, inhabitués. D'ailleurs je ne pouvais refuser sa
 communication. Ces cahiers peuvent refuser les communications surabondantes, insincères, fausses. Ils ne
 peuvent refuser les communications qualifiées, quel
 qu'en soit le sens.
@@ -969,15 +912,13 @@ la rumeur publique. Je ne vérifiai pas avant de
 publier la communication parce que je me fiai
 Louzon, aux Temps Nouveaux, à mes lectures, à l'aspect du journal, à la rumeur publique entendue aux
 congrès. Tant de confirmations ne valent pas une
-bonne référence, Comme auteur de cahiers je suis indé-
-fendable. J'ai péché par présomptueuse paresse. Tout
+bonne référence, Comme auteur de cahiers je suis indéfendable. J'ai péché par présomptueuse paresse. Tout
 au plus un avocat pourrait-il m'excuser en disant qu'au
 moment où l'accident s'est produit, — et généralement
 depuis trois mois, — je fournissais aux cahiers douze
 heures par jour quand je faisais de l'administration
 avec Bourgeois et huit héures quand je faisais de la
-rédaction. Et les journaux comme La Petite République étant mal faits, l'importance réciproque des évé-
-nements n'étant ni représentée ni même respectée par
+rédaction. Et les journaux comme La Petite République étant mal faits, l'importance réciproque des événements n'étant ni représentée ni même respectée par
 la disposition typographique, il est facile de vérifier
 telle date qu'un article a passé, mais il est onéreux de
 
@@ -999,11 +940,9 @@ bons citoyens. Le crime du François est beaucoup plus
 un crime militaire que le crime de Chalon. Mais tous
 les deux sont avant tout des crimes bourgeois si l'on
 veut les qualifier en général, et si l'on veut spécifier
-des crimes patronaux, en un sens des crimes g'ouver-
-nementaux, ou des crimes cléricaux non moins que mili- à
+des crimes patronaux, en un sens des crimes g'ouvernementaux, ou des crimes cléricaux non moins que mili- à
 taires. Et la condamnation des grévistes fut un crime
-Judiciaire, un crime de la justice civile. Et l'acquitte-
-ment des gendarmes fut un crime à la fois judiciaire et
+Judiciaire, un crime de la justice civile. Et l'acquittement des gendarmes fut un crime à la fois judiciaire et
 militaire, un crime de la justice militaire. A chacun le
 sien. Donner à toute l'affaire de Chalon, comme titre
 générique, ce qui ne peut en constituer qu'un titre spé- À
@@ -1049,8 +988,7 @@ grévistes. Un lecteur pressé peut s'imaginer qu'il s'agit
 des quelques jours de prison et des quelques francs
 
 troisième cahier de la deuxième série
-arrêtés dans les bagarres. Le sous-titre ne fait pas pré-
-voir un total de plus de vingt-sept mois de prison. Le
+arrêtés dans les bagarres. Le sous-titre ne fait pas prévoir un total de plus de vingt-sept mois de prison. Le
 ton de l'article n'annonce pas la gravité judiciaire et
 sociale des condamnations. Enfin ces condamnations
 sont bloquées en un seul paragraphe de neuf lignes,
@@ -1064,17 +1002,14 @@ que j'ai commencé à devenir socialiste expressément,
 je lis La Petite République. Elle n'est pas parfaite. Mais
 aux temps héroïques elle rendit de grands services. Le
 citoyen Gérault rendit aussi de grands services. Il ou
-plutôt il avait, — car j'ai peur que les difficultés ré-
-centes ne l'aient un peu aigri, — sur toutes qualités
+plutôt il avait, — car j'ai peur que les difficultés récentes ne l'aient un peu aigri, — sur toutes qualités
 cette bonne humeur dont je serais tenté de faire une
-sérieuse vertu. En tout il a beaucoup fait pour la pré-
-paration de la Révolution Sociale.
+sérieuse vertu. En tout il a beaucoup fait pour la préparation de la Révolution Sociale.
 
 Or, la Petite République est moralement mal faite.
 Je m'en tiens aujourd'hui aux affaires qu'elle abrite.
 Combien de fois n'avons-nous pas dit à Gérault-Richard
-et à Jaurès: Faites attention, le journal devient dégoû-
-tant d'annonces commerciales et financières. Combien
+et à Jaurès: Faites attention, le journal devient dégoûtant d'annonces commerciales et financières. Combien
 de fois Herr n'a-til pas dit devant moi à Jaurès
 Voyons! voilà l'Équitable des États-Unis qui envahit les
 premières pages du journal. (1)
@@ -1087,8 +1022,7 @@ sont privément et personnellement des bons socialistes.
 C'est même de qu'est venu l'incident Louzon. Louzon, qui est tout jeune et qui ne connaît ni Jaurès ni
 Gérault, m'avait dit: Comment sont-ils honnêtes, puisqu'il y a ceci et dans leur journal. — Je lui avais
 répondu: Ils sont évidemment honnêtes, je le sais pour
-l'avoir éprouvé. La lettre que j'ai publiée était la ré-
-ponse de Louzon à cette affirmation. La seconde lettre
+l'avoir éprouvé. La lettre que j'ai publiée était la réponse de Louzon à cette affirmation. La seconde lettre
 de Louzon, que j'ai publiée dans le premier cahier de
 la deuxième série, porte la trace de mon aflirmation.
 
@@ -1117,8 +1051,7 @@ Ces cahiers n'ont pas été institués pour le zèle ni pour
 le vain plaisir de dire leurs quatre vérités aux camarades.
 Nous ne sommes pas des cuistres. Nous ne sommes pas
 de vains polémistes. Nous ne sommes pas amateurs de
-scandales. Ceux qui savent beaucoup nous reproche-
-raient plutôt de n'en pas dire assez. Nous risquons, il
+scandales. Ceux qui savent beaucoup nous reprocheraient plutôt de n'en pas dire assez. Nous risquons, il
 est vrai, de sérieux mécomptes personnels. Nous le
 faisons tout exprès pour assainir les mœurs patronales
 du public. Au lieu donc de nous maltraiter, GéraultRichard doit s'appuyer sur nous pour faire la réforme,
@@ -1139,8 +1072,7 @@ ceux qui pourront vous lire, ne pourront pas vous acheter?
 que tous ces militants dont tu parles paient déjà une foule
 de cotisations? qu'ils ne trouveront pas dans leur bourse
 de quoi payer l'abonnement à la revue
-— Voilà, Jean Prolète, la véritable objection à notre pro-
-jet. Mais que veux-tu? nous ne pouvons pas distribuer notre
+— Voilà, Jean Prolète, la véritable objection à notre projet. Mais que veux-tu? nous ne pouvons pas distribuer notre
 — Vous devriez la vendre meilleur marché... Si tu crois
 que ce n'est pas horriblement cher que trente-neuf sous par
 — C'est exactement ce que coûte la Revue. Et encore ne
@@ -1190,16 +1122,14 @@ Au moment où nous mettons sous presse, il me vient
 un second désabonnement d'un second ancien cama- À
 rade, motivé par quatre moyens numérotés. L'un de
 ces moyens est encore ici que j'ai attaqué M. Herr.
-Cela devient insupportable. M. Herr me dit textuelle-
-ment un matin: Aussi longtemps que vous avez attaqué
+Cela devient insupportable. M. Herr me dit textuellement un matin: Aussi longtemps que vous avez attaqué
 Guesde et tout dans la revue blanche, vous alliez,
 en franc-tireur, c'était bien. Mais à présent qu'on a fait -
 l'unité sosialiste, il ne faut plus les attaquer. — Pardon,
 ce que je dis de Guesde est-il moins vrai aujourd'hui
 qu'hier. — Il ne s'agit pas de cela. Il faut laisser tout
 
-Je refusai de marcher. Tout est venu de là. Je refu-
-sai de faire marcher les quelques amis que j'ai. Cette
+Je refusai de marcher. Tout est venu de là. Je refusai de faire marcher les quelques amis que j'ai. Cette
 insubordination m'a coûté assez pour qu'au moins on
 la respecte.
 
@@ -1217,8 +1147,7 @@ international, résolut un jour de donner une matinéeconférence.
 
 Nous avons annoncé que nous publierons dans la
 deuxième série de ces cahiers, sous ce titre courant
-du premier congrès au deuxième, en particulier les procès-verbaux des séances tenues par le Comité Géné-
-ral. Nous y publierons donc, si elles y sont, les résolutions afférentes à cette fête.
+du premier congrès au deuxième, en particulier les procès-verbaux des séances tenues par le Comité Général. Nous y publierons donc, si elles y sont, les résolutions afférentes à cette fête.
 
 Pour aujourd'hui nous commençons par publier le
 programme, ainsi que nous l'avons dans la Petite
@@ -1227,16 +1156,14 @@ programme est composite, mêlé. Il est difficile de composer un spectacle pour 
 
 On voit que les deux gros morceaux de ce programme
 étaient la conférence de Jaurès et la représentation de
-Mais quelqu'un troubla la fête. La pièce de Louis Mar-
-solleau a été publiée chez Stock, 27, rue de Richelieu,
+Mais quelqu'un troubla la fête. La pièce de Louis Marsolleau a été publiée chez Stock, 27, rue de Richelieu,
 en une brochure mince de 36 pages pour un franc.
 
 Nous publions la conférence de Jaurès.
 
 Nous n'avons pas soumis la sténographie de cette
 conférence à l'auteur, en particulier parce que nous
-pensons qu'elle a été bien prise, et parce que nous pré-
-férons, autant que nous le pouvons et sauf erreur,
+pensons qu'elle a été bien prise, et parce que nous préférons, autant que nous le pouvons et sauf erreur,
 donner l'image, l'écho de la parole même.
 
 y aurait à redire à ce qu'a dit Jaurès. Nous le ferons si nous le pouvons après que nous aurons donné

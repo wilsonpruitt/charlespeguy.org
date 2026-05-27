@@ -38,8 +38,7 @@ Cabinet du Préfet
 
 Le Directeur de Sainte-Pélagie est autorisé à introduire
 dans cet établissement, le jour où il s'y présentera pour le
-visiter, M. Maxime Vuillaume, accompagné de deux per-
-sonnes, et à lui procurer toutes les facilités désirables et
+visiter, M. Maxime Vuillaume, accompagné de deux personnes, et à lui procurer toutes les facilités désirables et
 tous les renseignements utiles.
 
 Pour le Préfet de Police,
@@ -49,15 +48,13 @@ En marge du permis, cette note, qui fixe la date de
 notre visite: « Visité le 10 novembre avec G. et B. »
 
 Un perron de neuf marches. L'antichambre du greffe.
-C'est que j'attendrai, avant le Quatre-Septembre, tronç-
-onné Méchin. Ce gardien-chef Méchin. Le père Méchin,
+C'est que j'attendrai, avant le Quatre-Septembre, tronçonné Méchin. Ce gardien-chef Méchin. Le père Méchin,
 qui ressemblait étonnamment à l'Empereur. Méchin est très
 fier de cette ressemblance voyante. Il est comme le
 ménechme impérial. Bien sanglé dans sa tunique
 bleuâtre, rasée, râpée, luisante aux coudes par la brosse,
 mais d'une propreté méticuleuse, les boutons de métal
-régulièrement cirés, Méchin a tout l'aspect d'un heu-
-reux gardien-chef. D'habitude, il est assis sur un
+régulièrement cirés, Méchin a tout l'aspect d'un heureux gardien-chef. D'habitude, il est assis sur un
 tabouret de paille, muet, le buste droit, les jambes
 pattes appuyées sur les cuisses. Quand un visiteur
 
@@ -80,14 +77,12 @@ ressembler à l'Empereur. L'Empereur, il n'y a plus.
 Méchin ne ressemble plus qu'à Radingnet.
 
 La porte de Pélagie — nous disions Pélagie, comme
-boulevard Michel — livre passage au flot des envahis-
-seurs... Vive la République!... Les prisonniers sont là.
+boulevard Michel — livre passage au flot des envahisseurs... Vive la République!... Les prisonniers sont là.
 On s'interpelle. On s'embrasse... Un grand diable à la
 chevelure noire bouclée, aux yeux et au visage épandus,
 ceinture rouge autour de la taille, débouche en trombe.
 Il empoigne Méchin par le collet — le collet de sa
-belle tunique bleue — lui fait faire demi-tour, le con-
-traint à plier l'échine, et, d'une voix rugissante:
+belle tunique bleue — lui fait faire demi-tour, le contraint à plier l'échine, et, d'une voix rugissante:
 
 — À genoux, Méchin... À genoux. L'heure est venue
 de payer tous tes crimes...
@@ -96,8 +91,7 @@ Et le colosse, d'un geste de mélodrame, brandit, sur
 
 la tête de Méchin angoissé, une hache, une vraie
 hache, dont le tranchant luit comme l'éclair.
-— Méchin, ta dernière heure est venue... La Révo-
-lution est triomphante... Elle te donne deux minutes pour
+— Méchin, ta dernière heure est venue... La Révolution est triomphante... Elle te donne deux minutes pour
 faire tes dernières réflexions.
 Le colosse à la chevelure bouclée, c'est ce grand
 farceur de Pilotell.
@@ -111,8 +105,7 @@ Nous causons. Nous causons. Tout en parcourant
 la prison, absolument vide. Ici, l'atelier de travail des
 détenus de droit commun. La porte est grande ouverte.
 Le sol jonché d'outils, de copeaux, de paille. Là, la
-chapelle. Sur l'autel, un vieux chandelier, oublié, pous-
-siéreux, verdégrisé. À droite et à gauche, au sortir de
+chapelle. Sur l'autel, un vieux chandelier, oublié, poussiéreux, verdégrisé. À droite et à gauche, au sortir de
 la chapelle, deux allées, closes de fortes grilles. L'allée
 de gauche donne accès au chemin de ronde, là, au mur
 lugubre qui vit tomber Chaudey. L'allée de droite,
@@ -138,9 +131,7 @@ l'arrondissement de Pélagie.
 
 Et je songe... Régère. Rigault. Le Si, vraiment,
 comme l'affirme Dacosta, (1) Rigault était porteur
-d'un ordre, émanant du Comité de Salut public, enjoi-
-gnant à Régère de « s'entendre avec le citoyen procu-
-reur de la Commune pour l'exécution des otages dans
+d'un ordre, émanant du Comité de Salut public, enjoignant à Régère de « s'entendre avec le citoyen procureur de la Commune pour l'exécution des otages dans
 son arrondissement le choix, pour l'exécution, du
 semble explicable. Régère, ayant près de lui son
 fils, a fait part à ce dernier de l'ordre du Comité de
@@ -191,8 +182,7 @@ bas. Il me suivit sans mot dire. Je l'accompagnai,
 toujours silencieux, jusqu'à la porte du greffe... Plus
 tard, après l'exécution, je retournai, avec quelques
 amis, dans sa chambre. Je trouvai, sur la table, le
-travail qu'il venait de terminer, une Ode à la Répu-
-blique. (1) Près du Vedel, qui était là, saisit le papier
+travail qu'il venait de terminer, une Ode à la République. (1) Près du Vedel, qui était là, saisit le papier
 et l'emporta.
 
 Nous avons quitté la chambre où vécut Chaudey, du
@@ -219,15 +209,12 @@ et non Chaudey. Pierre avait soumis...
 plus loin.
 
 avec Slom, (1) du 23 Mai. Slom avait assisté, au greffe
-de la prison, à l'entrée de Chaudey, à son interroga-
-toire par Rigault. Slom n'est plus. Il a laissé, de cette
+de la prison, à l'entrée de Chaudey, à son interrogatoire par Rigault. Slom n'est plus. Il a laissé, de cette
 entrevue poignante, un récit écrit, qu'a bien voulu me
 communiquer sa fille, mademoiselle Olga Slonczynska,
 artiste peintre, comme son père... Devant le personnel,
 réuni dans le greffe — le commissaire Clermont, (2)
-le greffier Benn, le sous-greffier Clément, le biblio-
-thécaire Préau de Vedel, le surveillant Berthier, le bri-
-gadier Gentil — Rigault interpella Chaudey, le tutoyant.
+le greffier Benn, le sous-greffier Clément, le bibliothécaire Préau de Vedel, le surveillant Berthier, le brigadier Gentil — Rigault interpella Chaudey, le tutoyant.
 Tous deux se connaissaient. Rigault, chicanier par
 nature, comme il était policier, venait souvent au Palais,
 où il rencontrait Chaudey. Protot, dans nos causeries
@@ -283,8 +270,7 @@ ami Sapia, le commandant tué le 22 janvier? Tu étais
 Sapia (1) venir, avec sa mère, voir Rigault... Ne crois-tu
 pas que, toutes deux, réclamé la vengeance?
 
-(1) Voir Mes Cahiers rouges, 73. Sur la foi d'un renseigne-
-ment malheureusement inexact, j'avais cru pouvoir retrouver les
+(1) Voir Mes Cahiers rouges, 73. Sur la foi d'un renseignement malheureusement inexact, j'avais cru pouvoir retrouver les
 traces de madame Sapia, qui, m'affirmait-on, avait se rendre,
 en 1880, nommée à un poste, dans l'enseignement des dames
 d'assistance, à la Ville de
@@ -295,8 +281,7 @@ le 22 janvier, eût peut-être éclairci ou contribué à éclaircir
 le mystère dont s'enveloppe encore la résolution prise par
 Rigault de faire fusiller Chaudey.
 
-(1) Chardon (J.-B.), membre de la Commune, colonel comman-
-dant la Légion fédérale de la Préfecture de police. (Mes Cahiers
+(1) Chardon (J.-B.), membre de la Commune, colonel commandant la Légion fédérale de la Préfecture de police. (Mes Cahiers
 rouges, IV, pages 99 et suivantes.)
 
 — Oui. J'ai vu, plusieurs fois, madame Sapia et sa
@@ -347,16 +332,14 @@ A gauche, en tournant le greffe, un long couloir,
 étroit, mal éclairé le jour, noir la nuit, qui conduit
 au chemin de ronde. Lugubre cheminement. Des murs
 lépreux. Des salles vides, qui furent des buanderies.
-Des magasins. Des recoins sordides, où se sont ac-
-cumulés les détritus de deux siècles. On marche
+Des magasins. Des recoins sordides, où se sont accumulés les détritus de deux siècles. On marche
 sur des pavés énormes, disjoints, branlants. Un ruisseau
 coule au milieu. D'un côté, à gauche, en bordure, un
 haut mur de pierres meulières — comme à la Roquette.
 De l'autre, le bâtiment de la Dette, où, quelques mois
 encore avant notre visite, étaient les prisonniers de
 droit commun. Des détenus dépôts, les prisonniers,
-quand ils entendirent, quand ils virent — car ils pou-
-vaient voir — le peloton d'exécution prendre place?
+quand ils entendirent, quand ils virent — car ils pouvaient voir — le peloton d'exécution prendre place?
 Puis, le cortège. Les exclamations. Les coups de feu...
 
 On dut arriver vite — quelques minutes — au fond du
@@ -415,11 +398,9 @@ qui le condamna à la peine de mort, Préau de Vedel
 rédigea une note qu'il remit à Edgar Monteil, détenu lui
 aussi, (1) note que Monteil publia en 1885. (2) La version
 qu'on donne Préau de Vedel de l'interrogatoire n'est pas
-exacte. Elle s'allonge en des détails inventés. L'inter-
-rogatoire a été bref. Et c'est sa brièveté qui le fait plus
+exacte. Elle s'allonge en des détails inventés. L'interrogatoire a été bref. Et c'est sa brièveté qui le fait plus
 poignant encore. Préau de Vedel ne donne pas cette
-réponse, que lui, par trois fois, d'une voix forte, Chau-
-dey: « J'ai fait mon devoir. »
+réponse, que lui, par trois fois, d'une voix forte, Chaudey: « J'ai fait mon devoir. »
 
 Tous ceux qui ont connu Chaudey n'ont jamais douté
 qu'il eût crié cette protestation... Ce cri, c'est Chaudey
@@ -440,12 +421,10 @@ pourtant pas un homme de premier plan. Les situations
 périlleuses, comme celle qui l'a surpris à l'Hôtel de
 Ville le 22 janvier, le trouvent quelque peu désemparé.
 Mais il a devant lui le devoir. Et ce devoir, il est résolu
-à l'accomplir jusqu'au bout. L'émeute gronde. Repré-
-sentant du Gouvernement menacé, Chaudey le défendra.
+à l'accomplir jusqu'au bout. L'émeute gronde. Représentant du Gouvernement menacé, Chaudey le défendra.
 Il tiendra tête à l'émeute. Si, même, comme disait Slom, il
 ne prend pas lui-même les dispositions nécessaires, s'il
-c'est un autre que lui qui « balaye la place il assu-
-mera toutes les responsabilités. Il ne songera pas une
+c'est un autre que lui qui « balaye la place il assumera toutes les responsabilités. Il ne songera pas une
 minute à renier sa conviction.
 
 De nombreuses légendes — sinistres légendes — sont
@@ -474,15 +453,13 @@ pour poursuivre le fuyard.
 — Jamais je n'ai fait cela, m'a toujours dit Slom. Je
 n'avais tout d'abord pas besoin de prendre le revolver
 de Clermont. J'en avais un. Alors que nous nous
-restaurions à Sainte-Pélagie, après avoir quitté le petit res-
-taurant de la rue Berthollet, un Slom sur nous d'une
+restaurions à Sainte-Pélagie, après avoir quitté le petit restaurant de la rue Berthollet, un Slom sur nous d'une
 fenêtre. En arrivant à la prison, je demandai s'il était à l'on
 ne pourrait pas me donner un revolver. On me donna un
 revolver d'ordonnance, sans cartouches. C'est ce même
 revolver que je laissai sur la table de la chambre de
 Rigault, à l'hôtel Gay-Lussac, quand, le lendemain,
-mercredi, Rigault et moi fûmes cernés par les sol-
-dats... (1) Lorsque le commandement de « Feu! » a été
+mercredi, Rigault et moi fûmes cernés par les soldats... (1) Lorsque le commandement de « Feu! » a été
 été crié, un des gendarmes s'enfuit vers le chemin de
 ronde, à droite. C'est alors que Clermont saisit mon
 revolver, non chargé, comme je viens de le dire. Passant
@@ -516,8 +493,7 @@ transcris à titre de document historique.
 police, le 13 avril, où nous étions toujours une vingtaine (1)
 Chalain, membres de la Commune. Edmond Levraud, Dacosta
 (Gaston), Slom, Réglain, Cattelain (chef de la Sûreté), Giffault,
-Clermont, Wurth, Regnard, occupent des fonctions à la Pré-
-fecture de police. Roullier (Edouard), membre de la Commission du travail. Villaumié, l'historien mauriste de la Révolution française,
+Clermont, Wurth, Regnard, occupent des fonctions à la Préfecture de police. Roullier (Edouard), membre de la Commission du travail. Villaumié, l'historien mauriste de la Révolution française,
 arrière-petit-neveu de Jeanne d'Arc. (Le journal la Commune du
 29 avril 1871 publie la note suivant: « Un arrière-petit-neveu de
 Jeanne d'Arc, M. Villaumié, frère de notre historien, vient de
@@ -639,11 +615,9 @@ proposait d'y faire.
 de fusiller Chaudey? Brusque. Où déjà décidée de
 — Je crois — me répondit Pilotell — que Rigault
 pensait à une plus longue durée de la Commune, et à
-une condamnation de Chaudey (par le jury d'accu-
-sation). (1) Voyant comme Ferré, à l'entrée des troupes,
+une condamnation de Chaudey (par le jury d'accusation). (1) Voyant comme Ferré, à l'entrée des troupes,
 que les membres de la Commune s'agissaient pas, ils
-pirent (Ferré et Rigault) sur lui toutes les responsa-
-bilités. Rigault, en outre, n'avait jamais pardonné à
+pirent (Ferré et Rigault) sur lui toutes les responsabilités. Rigault, en outre, n'avait jamais pardonné à
 Chaudey la mort de son ami Sapia.
 
 Qui donc était Sapia, dont le nom retentit, comme un
@@ -651,12 +625,10 @@ glas, à chaque page de la terrible histoire de la mort de
 Théodore-Emmanuel Sapia était, au début de la
 guerre, capitaine commandant la compagnie du
 bataillon des mobiles d'Eure-et-Loir, à Chartres.
-Révoqué le 14 septembre pour avoir voulu, a-t-il expli-
-qué plus tard, proclamer la République, il arrive le 17 à
+Révoqué le 14 septembre pour avoir voulu, a-t-il expliqué plus tard, proclamer la République, il arrive le 17 à
 Paris, et se fixe à Montrouge, 112, chaussée du Maine.
 Il est fait inscrire dans la garde nationale. Au bout de
-quelques jours, il est capitaine-trésorier, puis, le 30 sep-
-tembre, commandant de son bataillon, le Le
+quelques jours, il est capitaine-trésorier, puis, le 30 septembre, commandant de son bataillon, le Le
 8 octobre, il rassemble ses hommes au Champ d'Asile, et
 
 (1) Le jury d'accusation, qui tint sa première séance le 19 mai,
@@ -683,16 +655,13 @@ pas cité) une lettre, lue au conseil de guerre, dans
 laquelle il dit: « Les longues fatigues des campagnes
 de Chine m'avaient abattu. Je me crus un moment, et
 sur l'avis des médecins, impropre et pour jamais à
-toute vie active; et bien malgré moi créait alors les solli-
-citations extérieures pressantes, je sacrifiais toute une
+toute vie active; et bien malgré moi créait alors les sollicitations extérieures pressantes, je sacrifiais toute une
 vie militaire déjà bien remplie. Par décret impérial du
 15 septembre, Sa Majesté daigna accueillir ma demande
 (de réintégration). Depuis cette époque, monsieur le
 Maréchal, je ne vis que de souvenirs et de regrets, et
 
-(1) Dans l'après-midi du 8 octobre, un certain nombre de batail-
-lons de la garde nationale se réunissent sur la place de l'Hôtel-
-de-Ville pour réclamer les élections municipales. Ce fut la première
+(1) Dans l'après-midi du 8 octobre, un certain nombre de bataillons de la garde nationale se réunissent sur la place de l'Hôtelde-Ville pour réclamer les élections municipales. Ce fut la première
 manifestation en faveur de la Commune.
 (2) Voir Gazette des Tribunaux du 11, 16, 20 et 23 octobre 1870.
 
@@ -710,11 +679,8 @@ lui aussi, et également exalté. Sapia était parfois, au
 dire de ceux qui ont vécu près de lui, d'une exaltation
 touchant à la folie. Sapia est bien apparenté. Son père,
 secrétaire général d'un ministère sous la Restauration.
-Sa sœur, madame Pierre de Castellane. Son frère, rece-
-veur central des finances à Paris. Il envoie des vers à
-madame la comtesse Sapia. Il jouit de hautes protec-
-tions. Il doit son grade de capitaine des mobiles d'Eure-
-et-Loir à l'appui du général Soumain.
+Sa sœur, madame Pierre de Castellane. Son frère, receveur central des finances à Paris. Il envoie des vers à
+madame la comtesse Sapia. Il jouit de hautes protections. Il doit son grade de capitaine des mobiles d'Eureet-Loir à l'appui du général Soumain.
 
 Sapia, révoqué de son grade de chef du ne se
 mêle pas au mouvement révolutionnaire. Il donne des articles à la
@@ -747,36 +713,29 @@ Dès le soir de l'émeute, la légende est créée.
 Chaudey a donné l'ordre de « balayer la place ».
 Dans les journaux, dans les conversations véhémentes
 qui ont remplacé les clubs, partout, Chaudey est
-accusé d'avoir donné aux mobiles bretons qui occu-
-paient l'Hôtel de Ville l'ordre de faire feu.
+accusé d'avoir donné aux mobiles bretons qui occupaient l'Hôtel de Ville l'ordre de faire feu.
 
 22 janvier 1871. Première journée sanglante du Siège.
-À trois jours de Buzenval. À six jours de la capitula-
-tion. Dans la nuit qui précède, la nuit du 21 au
+À trois jours de Buzenval. À six jours de la capitulation. Dans la nuit qui précède, la nuit du 21 au
 l'envahissement de Mazas, où sont prisonniers Flourens,
 Léo Melliet, Alphonse Humbert, le docteur Pillot,
 d'autres. Prisonniers pour l'Affiche Rouge. Tous seront,
 plus tard, de la Commune. Flourens, qui aura le crâne
 fendu, d'un coup de sabre de gendarme, à Chatou. Léo
 Melliet, membre de la Commune et membre du Comité
-de Salut public. Le docteur Pillot, membre de la Com-
-mune. Alphonse Humbert, l'un des trois rédacteurs du
-Père Duchêne. La prise de Mazas, l'émeute du lende-
-main, deux incidents qui se tiennent étroitement.
+de Salut public. Le docteur Pillot, membre de la Commune. Alphonse Humbert, l'un des trois rédacteurs du
+Père Duchêne. La prise de Mazas, l'émeute du lendemain, deux incidents qui se tiennent étroitement.
 
 Le 22 — un dimanche — la place de Grève est pleine
 de monde. Une foule plutôt curieuse qu'hostile. Des
 femmes, des enfants, des badauds. Le désœuvrement
 du Siège a donné l'habitude de la place publique. Des
 groupes où prévient des orateurs. Des cris de « A bas
-Trochu! A bas Vinoy! Le guerre à outrance! Le ration-
-nement! » Les hommes armés en petit nombre. Vers
-des détachements du treizième et du cinquième arron-
-dissement. Par la rue de Rivoli, la rue du Temple, ceux
+Trochu! A bas Vinoy! Le guerre à outrance! Le rationnement! » Les hommes armés en petit nombre. Vers
+des détachements du treizième et du cinquième arrondissement. Par la rue de Rivoli, la rue du Temple, ceux
 de Belleville et des Batignolles. Ce bataillon, ou plutôt,
 une centaine d'hommes du treizième, défilent, la crosse
-en l'air, criant: « La levée en masse! Le ration-
-nement! » Ces derniers sont des pacifiques. Les autres
+en l'air, criant: « La levée en masse! Le rationnement! » Ces derniers sont des pacifiques. Les autres
 vont se masser devant la grille du palais. Postés un
 peu partout, avenue Victoria, rue de Rivoli, place Saint-
 Bon, la rue du Renard, la rue de la Coutellerie, des
@@ -792,8 +751,7 @@ il assiste à une conférence sur l'approvisionnement, sur
 ce qui reste de vivres. Et, pourtant, l'émeute est dans
 l'air. Depuis deux jours, les mouvements de troupes se
 poursuivent en vue de résister à une attaque de l'Hôtel
-de Ville. Des bataillons mobiles ont été amenés à la Con-
-corde, au Palais de l'Industrie, à l'église Saint-Eustache.
+de Ville. Des bataillons mobiles ont été amenés à la Concorde, au Palais de l'Industrie, à l'église Saint-Eustache.
 La gendarmerie est au Carrousel. À l'Hôtel de Ville, les
 mobiles du Finistère emplissent la salle du Trône du
 
@@ -803,8 +761,7 @@ l'autre, et la fusillade roulera, mortelle... Chaudey est
 
 Deux heures. Un peu avant. Une députation de
 l'Alliance Républicaine — Tony Révillon (1) et Simon
-Dereure (2) — demande à être introduite près du gou-
-vernement. L'Alliance Républicaine — ses principaux
+Dereure (2) — demande à être introduite près du gouvernement. L'Alliance Républicaine — ses principaux
 membres, Delescluze, Arthur Arnould, Cournet, Le-
 vraud, (3) d'autres — est en permanence, tout près, au
 de la rue de Rivoli. Des fenêtres donnant sur la
@@ -818,18 +775,15 @@ Champy, qui sera membre de la Commune; Gentelini,
 qui fut candidat et ne fut pas élu, l'accompagnent.
 Montels racontera, plus loin, son entrevue avec Chaudey.
 
-Deux heures cinquante. Derrière la grille du monu-
-ment, en avant de la porte principale, la porte du
+Deux heures cinquante. Derrière la grille du monument, en avant de la porte principale, la porte du
 milieu, qui est surmontée du bas-relief en bronze
-d'Henri IV, trois officiers. Le colonel Vabre, comman-
-dant militaire, depuis le 5 novembre, de l'Hôtel de Ville.
+d'Henri IV, trois officiers. Le colonel Vabre, commandant militaire, depuis le 5 novembre, de l'Hôtel de Ville.
 
 (1) Tony Révillon, journaliste, plus tard député de Paris.
 (2) Simon Dereure, adjoint élu de la mairie du dix-huitième
 (Montmartre), plus tard membre de la Commune.
 (3) Delescluze, Arnould, Cournet, journalistes, plus tard membres
-de l'Alliance républicaine; Levraud, blanquiste, plus tard chef de la divi-
-sion à la Préfecture de police.
+de l'Alliance républicaine; Levraud, blanquiste, plus tard chef de la division à la Préfecture de police.
 
 Le capitaine adjudant-major Bernard. Le commandant
 du bataillon de mobiles du Finistère, comte de Legge.
@@ -853,8 +807,7 @@ les gardes, à genoux, tirent... Combien cela dura-t-il?
 Un quart d'heure. Vingt minutes... La place est vide.
 Une douzaine de corps gisent...
 
-Sur cette journée du 22 janvier 1871, où l'envahisse-
-ment de Mazas, sur l'émeute, j'ai interrogé quelques
+Sur cette journée du 22 janvier 1871, où l'envahissement de Mazas, sur l'émeute, j'ai interrogé quelques
 amis, derniers témoins des grands jours. M. Ernest
 Courbet, qui occupait alors, près de Chaudey, le poste
 de secrétaire administratif et qui était à l'Hôtel de Ville
@@ -869,8 +822,7 @@ combattants du lendemain. Alexandre Girault, depuis
 député de Paris, un de ceux qui forcèrent la porte de
 la prison, fit, lui aussi, le coup de feu sur la place. Paul
 Martine était, près de son ami Malon, membre de la
-Commission municipale du dix-septième arrondisse-
-ment. Il m'a raconté l'histoire touchante du brave petit
+Commission municipale du dix-septième arrondissement. Il m'a raconté l'histoire touchante du brave petit
 tambour du détachement des Batignolles, qu'une balle
 coucha avenue Victoria, tout près de Sapia.
 
@@ -891,9 +843,7 @@ qui se sont présentées, avant trois heures, pour lui demander
 de l'attaque du vivil édifice municipal par une colonne de
 gardes nationaux disposés à la rue du Temple, longeant
 la façade de l'Hôtel de Ville, et tentant d'y pénétrer par la
-porte du pavillon sud. Quelque rapide qu'ait été la tenta-
-tive de surprise, la porte du pavillon fut néanmoins précipi-
-tamment sur le chef de la colonne, en avant de la troupe,
+porte du pavillon sud. Quelque rapide qu'ait été la tentative de surprise, la porte du pavillon fut néanmoins précipitamment sur le chef de la colonne, en avant de la troupe,
 qui resta seul prisonnier, blessé, peu grièvement, d'un coup
 de feu au bras gauche et à la tête. Ce capitaine, dont j'ai
 oublié le nom, a été amené vers la porte de la place les personnes
@@ -914,8 +864,7 @@ dispositions qu'il croirait devoir prendre dans certaines
 éventualités. Il souhaitait connaître quelle serait l'attitude
 des défenseurs de l'Hôtel de Ville, au cas où se produirait
 une attaque à main armée. Chaudey n'hésita pas à faire
-cette déclaration: « Si l'on use de violence, nous ripos-
-terons par la force. » Tony Révillon ayant manifesté alors
+cette déclaration: « Si l'on use de violence, nous riposterons par la force. » Tony Révillon ayant manifesté alors
 Chaudey à la fenêtre de son cabinet donnant sur la place, lui
 fit remarquer que la foule s'y pressait comme un jour de fête. Les
 femmes et les enfants y affluaient, et, sauf la présence
@@ -941,8 +890,7 @@ La deuxième délégation avait à sa tête le capitaine
 Montels, qui fut l'orateur. On ne sait pas l'assurance que
 je justifiaient les désastres du 19 janvier, il se plaignait
 de l'incapacité des généraux chargés du commandement
-des troupes appelées aux opérations de sortie, et il récla-
-mait, impétueusement, que l'autorité dont ils ne savaient
+des troupes appelées aux opérations de sortie, et il réclamait, impétueusement, que l'autorité dont ils ne savaient
 
 pas user contre l'ennemi, leur fut immédiatement retirée
 et remise aux mains de chefs plus capables de conduire
@@ -951,14 +899,11 @@ des existences offertes pour la défense de la patrie.
 
 En réponse à ces critiques formulées, M. Chaudey, se
 référant à un extrême décision, Chaudey rappela que depuis le
-31 octobre le siège du Gouvernement de la Défense natio-
-nale avait été transféré de l'Hôtel de Ville à la Place Ven-
-dôme, et que les membres du Gouvernement avaient seuls
+31 octobre le siège du Gouvernement de la Défense nationale avait été transféré de l'Hôtel de Ville à la Place Vendôme, et que les membres du Gouvernement avaient seuls
 qualité pour recevoir l'exposé des griefs et des vœux de la
 délégation et y donner la suite qu'il conviendrait. Il
 ajouta que pour assurer à cette manifestation un effet utile,
-il fallait que la délégation appuyât la demande de la présen-
-tation d'une liste d'officiers dignes de la confiance de tous.
+il fallait que la délégation appuyât la demande de la présentation d'une liste d'officiers dignes de la confiance de tous.
 « Vous comprenez bien, conduit-il avec son retenu
 accent franccomtois, que des inconnus dont la bravoure ne
 fait pas doute, mais dont l'expérience des choses de la
@@ -983,18 +928,14 @@ Victoria, a lieu quelques instants avant une surprise en écho du
 Bernard Salvador, (1) mort secrétaire de la rédaction
 de l'Officiel, est resté dans mon cabinet pour survivre, d'un coin
 de la fenêtre, le mouvement et ses péripéties. Il est, à ma
-connaissance, le seul qui soit demeuré à ce poste d'obser-
-vation. Nous allions et venions, éprouvés de voir tomber
+connaissance, le seul qui soit demeuré à ce poste d'observation. Nous allions et venions, éprouvés de voir tomber
 des blessés et des morts sur la place de l'Hôtel-de-Ville.
 
 Pendant ce temps, Mahias (2) recevait les notables de
 Saint-Denis dans la Galerie des Paysages, formant couloir
-du palier du premier étage au dessous de l'entresol et condui-
-sant à la salle du Trône, aujourd'hui salle des délibéra-
-tions, du Conseil municipal.
+du palier du premier étage au dessous de l'entresol et conduisant à la salle du Trône, aujourd'hui salle des délibérations, du Conseil municipal.
 
-Les notables de Saint-Denis, que les Allemands commen-
-çaient de bombarder, venaient demander des bons de
+Les notables de Saint-Denis, que les Allemands commençaient de bombarder, venaient demander des bons de
 réquisition du logement dans le quartier de La Chapelle.
 Mahias, ayant épuisé sans quantité de ces bons, les notables
 voulaient sortir de l'Hôtel de Ville. On était au plus fort de
@@ -1012,8 +953,7 @@ de Mazas à la place de Grève
 Alphonse Humbert était, le 21 janvier, à Mazas. Avec
 lui, nous allons assister à l'envahissement de la prison,
 à la montée à Belleville, au retour au Quartier Latin, où
-il habite, et, enfin, à l'après-midi farouche où il com-
-battra dans les rangs de l'émeute.
+il habite, et, enfin, à l'après-midi farouche où il combattra dans les rangs de l'émeute.
 
 (1) Bernard Salvador, second secrétaire de Jules Mahias.
 (2) Jules Mahias, secrétaire général de la Mairie de Paris.
@@ -1029,19 +969,14 @@ Des cris. Des colloques violents. « Ouvrez, nom de Dieu...
 Fous-toi un coup de crosse dans les reins... Colle-toi ton
 revolver sous le nez... Je vais te massacrer! Et je songe...
 Il y a une émeute. Peut-être une insurrection... La
-troupe, ivre, envahit les prisons... Un tournant se pré-
-pare... Brusquement ma porte s'ouvre. Une fourragée d'hommes
-armés se précipite. Dumont, Gigault, Girault, qui m'em-
-brasse, à Allons, lève-toi et fous-tous le camp. On te re-
-connu dehors... » Dumont et Girault, tous deux de Belle-
-ville. Girault, bientôt, sera avec moi au 22 janvier, où il m'habille.
+troupe, ivre, envahit les prisons... Un tournant se prépare... Brusquement ma porte s'ouvre. Une fourragée d'hommes
+armés se précipite. Dumont, Gigault, Girault, qui m'embrasse, à Allons, lève-toi et fous-tous le camp. On te reconnu dehors... » Dumont et Girault, tous deux de Belleville. Girault, bientôt, sera avec moi au 22 janvier, où il m'habille.
 Je sors à peine vêtu, je passe devant des hommes effarés,
 les gardiens, muets, ne comprenant pas plus que moi,
 ahuris. Nous franchissons le guichet. La cour est pleine de
 gardes nationaux en armes, aussi ahuris que les gardiens.
 Nous voici dehors. Enfin j'apprends. Mazas s'était gardé
-que par une compagnie d'un bataillon de l'ordre. Une cin-
-quantaine de nos amis s'étaient dit qu'il y avait un beau
+que par une compagnie d'un bataillon de l'ordre. Une cinquantaine de nos amis s'étaient dit qu'il y avait un beau
 coup à faire. Ils étaient arrivés en armes, silencieusement,
 enveloppés dans des capotes couleur de muraille — les
 hauts murs de meulière de Mazas. Sur la place, on s'était
@@ -1050,8 +985,7 @@ dispersé. Un avait fait rouler de grosses charrettes prises
 Les becs de gaz éteints. Des commandements à mi-voix.
 « Faites avancer une compagnie à gauche... Une autre à
 droite... » On avait sommé la garnison, terrifiée. Avec des
-cris et des pinces pris dans un chantier voisin, on commen-
-çait de desceller les pierres du mur d'enceinte. En fait, c'était
+cris et des pinces pris dans un chantier voisin, on commençait de desceller les pierres du mur d'enceinte. En fait, c'était
 un tout petit nombre de vainqueurs. Nous étions libres...
 Les premières effusions passées, on songe à la suite. Nous ne pouvons en rester
 là... Il faut agir. Et agir vite. Tout d'abord, où allons-nous?
@@ -1062,8 +996,7 @@ sera plus facile que de reconnaître le coup qui vient de
 si bien réussir. Enlever un poste. Prendre possession du
 pouvoir central. À l'aube, Paris apprendra que nous
 sommes les maîtres. Sûrement, il ne nous chassera pas. La
-colère est grande contre les hommes de la Défense natio-
-nale... De la Trahison nationale, dit-on dans le peuple...
+colère est grande contre les hommes de la Défense nationale... De la Trahison nationale, dit-on dans le peuple...
 Flourens propose autre chose. C'est au milieu du peuple
 que nous devons aller. A Belleville. Flourens est suivi. A
 Belleville, donc. Nous voilà en marche. Flourens disparaît.
@@ -1079,8 +1012,7 @@ au café de la Garde Nationale. Eudes me dit que Blanqui
 est tout près, dans une maison de la rue Saint-Bon, que Blanqui,
 ni sur la place, ni au café de la Garde Nationale, ni ailleurs,
 
-On va, on vient. Des groupes. Des hommes armés, pêle-
-mêle avec une foule grouillante. C'est un dimanche. De
+On va, on vient. Des groupes. Des hommes armés, pêlemêle avec une foule grouillante. C'est un dimanche. De
 gros tas de sable, épars, un peu partout, sur la place.
 Les grilles qui enserrent l'Hôtel de Ville sont closes.
 Entre la grille et la façade du monument, tout près de la
@@ -1101,8 +1033,7 @@ a dit souvent que la colonne était conduite par Malon. Non.
 la grille. Il me semble qu'ils ne sont guère plus de cent à
 Dumont, de Belleville, — le petit Dumont, comme on
 l'appelle... Il grimpe à la grille... Je le vois un instant, qui
-gesticule, comme s'il interpellait, avec violence, les offi-
-ciers... Le colonel de garde nationale — Vabre, tu dis —
+gesticule, comme s'il interpellait, avec violence, les officiers... Le colonel de garde nationale — Vabre, tu dis —
 se retourne... Il décroche son sabre, frappe de la poignée sur
 la grande porte close... On entend distinctement les coups...
 Les fenêtres du premier étage s'ouvrent... Les mobiles
@@ -1134,8 +1065,7 @@ direction générale des Contributions directes.
 — Une blague, inventée par Vallès... As-je brisé les
 aiguilles?... Tu aurais-je brisées que je n'avais guère le
 temps de m'en assurer... J'étais dans la fumée... Je te l'ai dit,
-au hasard, sans voir... Plongé dans d'inexplicable me pous-
-sait... L'exaltation... Une pensée de vengeance... La volonté
+au hasard, sans voir... Plongé dans d'inexplicable me poussait... L'exaltation... Une pensée de vengeance... La volonté
 d'agir de façon qu'on ne puisse dire que je n'étais pas là.
 — Non. Il était avenue Victoria, Je n'ai pas quitté le café
 de la Garde Nationale et ses abords.
@@ -1143,16 +1073,14 @@ de la Garde Nationale et ses abords.
 — Mes cartouches épuisées, je me lève et je reste là,
 songeant à je ne sais plus quoi; encore tremblant, appuyé
 sur mon fusil... Quelques coups de feu, partant, je crois,
-des maisons de la rue de Rivoli, éclatent encore. J'en-
-tends qu'on m'appelle...
+des maisons de la rue de Rivoli, éclatent encore. J'entends qu'on m'appelle...
 — Mais rentre donc... Vois-tu?... Je rentre... Le matin, cette
 même salle, s'est tenu un club. J'y ai appelé aux armes...
 Je me souviens... On me pousse dans la salle derrière. On
 me désarme. On me fait lever les mains... Maintenant, je
 n'ai plus qu'à partir. A me gauche. A droite. On ne pourrai pas dire que j'ai
 fui. Non seulement je suis venu au rendez-vous, mais je
-me suis battu... Je me dirige, à quatre pattes — on tirait tou-
-jours — vers la porte. Je dois, pour la franchir, déranger
+me suis battu... Je me dirige, à quatre pattes — on tirait toujours — vers la porte. Je dois, pour la franchir, déranger
 le corps d'un vieillard à barbe blanche, tué par la première
 décharge des mobiles... Je crois bien qu'une fois passé les
 points, je suis allé me retrouver tous à la brasserie de la
@@ -1175,8 +1103,7 @@ Quand je revins de Calédonie, je reçus de Pierre Denis une
 lettre pleine d'attaques violentes contre Chaudey, qu'il
 accusait d'avoir donné l'ordre de tirer. D'après Pierre Denis,
 Jules Ferry qui, comme tu le sais, n'était pas le 22 janvier
-à l'Hôtel de Ville, où, plutôt, qui n'y vint qu'après la fusil-
-lade, aurait reproché durement à Chaudey son attitude...
+à l'Hôtel de Ville, où, plutôt, qui n'y vint qu'après la fusillade, aurait reproché durement à Chaudey son attitude...
 Mais, Pierre Denis, prouthonien pur, n'avait jamais aimé
 — On a écrit qu'avant la fusillade des mobiles, un homme
 grimpé à un réverbère, ou aux grilles de l'Hôtel de Ville,
@@ -1192,8 +1119,7 @@ la plus formelle qu'il n'a pas tiré...
 comité Gambetta de 1869. Après la Commune, il ne fut pas
 poursuivi. À la fondation de la République française, il
 entra au journal comme metteur en pages. Je ne l'ai plus
-— Je le voyais parfois à la Délégation des Vingt arron-
-dissements... Je ne le connaissais pas vraiment.
+— Je le voyais parfois à la Délégation des Vingt arrondissements... Je ne le connaissais pas vraiment.
 — Protot, Rigault, ne t'ont jamais parlé des incidents
 de l'affaire Chaudey?
 
@@ -1205,8 +1131,7 @@ inoccupées, de l'exil, nous parlions du 22 janvier, de la
 (1) Dumont (Ch.) avait publié, en novembre 1870, une feuille,
 l'Ami de Marat. Un ou deux numéros.
 
-fusillade de mort, des responsabilités encourues. Mon-
-tels était des nôtres. J'ai noté ce qu'il nous disait. Son
+fusillade de mort, des responsabilités encourues. Montels était des nôtres. J'ai noté ce qu'il nous disait. Son
 entrevue avec Chaudey. Les coups de fusil de la place.
 La mort de Sapia. Quand nous eûmes, tous les deux,
 quitté la Suisse, (1) nous avons échangé des lettres. Et,
@@ -1219,8 +1144,7 @@ Mazas et Belleville
 nous n'avions
 nullement l'intention d'enlever Mazas. C'est le hasard, pour
 moi du moins, qui en décida.
-Membre de la Corderie, (2) délégué du douzième arron-
-dissement, capitaine à la compagnie du bataillon,
+Membre de la Corderie, (2) délégué du douzième arrondissement, capitaine à la compagnie du bataillon,
 j'avais concouru sans grade, malgré les deux révocations qui
 m'avaient frappé, ayant pris part aux journées du 31 et
 31 octobre à la tête de ma compagnie. Tridon ne connaît
@@ -1243,8 +1167,7 @@ Paris, délégation des sections de l'Internationale des clubs. Ce fut
 aussi cette place qui fut placardée l'Affiche Rouge.
 
 bourg. Le vieux Brandely. D'autres. Chaussevert portait un
-À notre arrivée à l'Hôtel de Ville. Nuit noire, froide. Per-
-sonne dans les rues. Prés du candidature du milieu, Émile
+À notre arrivée à l'Hôtel de Ville. Nuit noire, froide. Personne dans les rues. Prés du candidature du milieu, Émile
 Moreau, un des défenseurs de la Butte-aux-Cailles, celui qui
 a fouille la Dominicaine d'Arcueil. (1)
 — Personne n'est venu, me dit Moreau.
@@ -1262,13 +1185,11 @@ de Lyon, je place mes hommes aux angles pour surveiller
 la rue. D'autres observent le boulevard Mazas... Nous nous
 saisissons des pioches et des pelles des cantonniers, afin de
 pouvoir ouvrir une tranchée sous la porte de la prison...
-Pas tout de trop long. Deux hommes se détachent, frap-
-pent à la porte à coups redoublés. Un bruit parle d'ouvrir.
+Pas tout de trop long. Deux hommes se détachent, frappent à la porte à coups redoublés. Un bruit parle d'ouvrir.
 Ils entrent, parlementent et ressortent. À ce moment, une
 forte poussée nous livre passage à tous. J'entre un des
 derniers, laissant derrière moi des sentinelles... Tu sais le
-reste. On s'empare des clefs. Nous ausi tout délivrés. Flou-
-rens, Humbert, Dupas. Nous avions oublié Léo Melliet.
+reste. On s'empare des clefs. Nous ausi tout délivrés. Flourens, Humbert, Dupas. Nous avions oublié Léo Melliet.
 Charvet s'en aperçoit. On le chercher. Il sort à demi
 vêtu. Je l'aide à s'habiller, sur un banc.
 
@@ -1290,8 +1211,7 @@ Flourens, à qui nous reprochions durement son inaction. Le
 prisonniers de Mazas délivrés sans coup férir. La mairie de
 Belleville occupée. Malon prêt à marcher avec les bataillons
 des Batignolles. Duval et Léo Melliet maîtres du treizième
-arrondissement. Serizier et le Des groupes du cin-
-quième et du sixième. Nous-mêmes, Sercy et moi, sûrs de
+arrondissement. Serizier et le Des groupes du cinquième et du sixième. Nous-mêmes, Sercy et moi, sûrs de
 prendre, quand nous le voudrions, comme nous l'avions
 déjà fait au 31 octobre, la mairie du douzième. Nous
 trions à Flourens cette admirable situation révolutionnaire.
@@ -1306,8 +1226,7 @@ la Bastille et l'Hôtel de Ville
 
 Peu de monde sur la place. Par par là, des groupes de
 trois, quatre personnes, qui causent tranquillement. Voici
-Charvet, qui m'apporte mon mousqueton. Nous parcou-
-rons les groupes, tentant de les sonder en un seul
+Charvet, qui m'apporte mon mousqueton. Nous parcourons les groupes, tentant de les sonder en un seul
 faisceau. Peine inutile. L'armistice. Le ravitaillement...
 « Mais, dit quelqu'un, le ravitaillement n'a commencer
 qu'après l'armistice! Et M. le capitaine de garde nationale,
@@ -1336,17 +1255,14 @@ que je cause avec Constant Martin, je vois arriver Vallès
 et Roullier. Vallès s'arrête devant la grille, près de Dumont.
 Je serre la main de Champy, qui est avec Gentelini. Tous
 deux amis de la Corderie. On parle, autour de nous, de
-la délégation qui est en ce moment près du Gouverne-
-ment. Tony Révillon, Dereure. Si, nous aussi, nous allions
+la délégation qui est en ce moment près du Gouvernement. Tony Révillon, Dereure. Si, nous aussi, nous allions
 demander des comptes aux gens de l'Hôtel de Ville? À
 Ferry. Nous décidons d'y aller. C'est moi qui prendrai la
 parole, étant le plus élevé en grade.
 
 Derrière la grille, trois officiers. Deux officiers de mobiles.
-Un commandant, de taille élevée. Un capitaine adjudant-
-major, gros, trapu, haut en couleur. Un colonel. Le colonel
-a le verbe cassant. Le commandant et le capitaine adjudant-
-major sont debout, face à la porte. Vallès et Dumont,
+Un commandant, de taille élevée. Un capitaine adjudantmajor, gros, trapu, haut en couleur. Un colonel. Le colonel
+a le verbe cassant. Le commandant et le capitaine adjudantmajor sont debout, face à la porte. Vallès et Dumont,
 appuyés à la grille, les regardent fixement. Le colonel se
 tient devant la porte de la grille, dont il a en mains les
 La grande porte de l'Hôtel de Ville s'entr'ouvre. C'est la
@@ -1364,8 +1280,7 @@ Qui êtes-vous? Au nom de qui vous présentez-vous?
 — Ah oui! le fameux Comité de la Corderie... Combien
 êtes-vous?
 — Trois. Voici nos cartes de délégués. Nous voulons
-— Je vais vous faire entrer. Mais ce sera la dernière délé-
-gation que je laisserai passer. En voilà assez comme ça.
+— Je vais vous faire entrer. Mais ce sera la dernière délégation que je laisserai passer. En voilà assez comme ça.
 La grille s'ouvre. Nous passons.
 
 la délégation devant Chaudey
@@ -1374,8 +1289,7 @@ Dans l'Hôtel de Ville. Il est environ deux heures et demie.
 Sous la voûte de la grande porte, qui s'est refermée sur
 nous, un peloton de mobiles, l'arme au pied. Plus loin,
 dans la cour, autre peloton, d'une vingtaine de files. À
-droite, les hommes en faisceaux. Sur chaque marche de l'esca-
-lier qui nous montons, à droite et à gauche, deux soldats
+droite, les hommes en faisceaux. Sur chaque marche de l'escalier qui nous montons, à droite et à gauche, deux soldats
 se font face. Un officier nous précède. Au premier étage, une
 porte s'ouvre. Nous sommes dans une grande salle où, causant
 quand nous entrons, cinq ou six personnes. Debout, derrière
@@ -1388,14 +1302,12 @@ ne sus que plus tard le nom du jeune secrétaire de 1871. Cela
 
 En 1885, j'habitais Tunis. Mes occupations me conduisaient
 un jour à la résidence. Je suis introduit dans le cabinet du
-résident général, où M. Jules Cambon, aujourd'hui ambas-
-sadeur à Berlin, le chevelure frisée. Quelque secrétaire. Je
+résident général, où M. Jules Cambon, aujourd'hui ambassadeur à Berlin, le chevelure frisée. Quelque secrétaire. Je
 ne sus que plus tard le nom du jeune secrétaire de 1871. Cela
 
 En 1885, j'habitais Tunis. Mes occupations me conduisaient
 un jour à la résidence. Je suis introduit dans le cabinet du
-résident général, où M. Jules Cambon, aujourd'hui ambas-
-sadeur à Berlin, me reçut avec sa bonne grâce accoutumée.
+résident général, où M. Jules Cambon, aujourd'hui ambassadeur à Berlin, me reçut avec sa bonne grâce accoutumée.
 « Nous n'étions que six ce jour-là à l'Hôtel de Ville,
 Chaudey, Arago, les trois autres et moi, qui remplissais
 
@@ -1406,8 +1318,7 @@ par Chaudey, une demi-heure avant
 la fusillade.
 
 alors près de Jules Ferry les fonctions de secrétaire. Vous
-étiez donc, monsieur Montels, un des trois délégués. — Par-
-faitement, répondis-je, je suis le capitaine qui conversa avec
+étiez donc, monsieur Montels, un des trois délégués. — Parfaitement, répondis-je, je suis le capitaine qui conversa avec
 mieux me trouver avec vous ici qu'à l'Hôtel de Ville le
 22 janvier, car vous aviez l'air d'être fort en colère ce jour-
 
@@ -1488,16 +1399,12 @@ attendons des renforts. Le peuple décidera. Nous sommes à
 ses ordres. » Je posais le pied à terre, abandonnant ma
 tribune improvisée, et je tendais les mains pour saisir le
 mousqueton que Charvet me tendait, quand un coup, sec et
-sourd, comme un coup de revolver tire de dessous un man-
-teau, éclata du côté de la grille, où j'avais vu, avant
+sourd, comme un coup de revolver tire de dessous un manteau, éclata du côté de la grille, où j'avais vu, avant
 d'entrer à l'Hôtel de Ville, Vallès et Dumont. On m'a dit
 depuis que ce coup de revolver avait été tiré sur les trois
-officiers debout derrière la grille. Ce fut alors que le colo-
-nel, tirant son sabre, se précipita vers la porte de l'Hôtel de
-Ville, qu'il heurta, à trois reprises, de la poignée. Simulta-
-nément, arrivé au pas de course, par la rue du Temple, un
-fort peloton de gardes nationaux. L'avant-garde des Bati-
-gnolles. Malon a leur parole. Le peloton fait halte et se
+officiers debout derrière la grille. Ce fut alors que le colonel, tirant son sabre, se précipita vers la porte de l'Hôtel de
+Ville, qu'il heurta, à trois reprises, de la poignée. Simultanément, arrivé au pas de course, par la rue du Temple, un
+fort peloton de gardes nationaux. L'avant-garde des Batignolles. Malon a leur parole. Le peloton fait halte et se
 range devant la grille, à gauche de la porte Henri IV.
 Venant des quais, tambours battants, drapeau rouge,
 l'allure décidée, sur quatre rangs, le Serizier en
@@ -1505,8 +1412,7 @@ l'allure décidée, sur quatre rangs, le Serizier en
 Aux coups frappés de la poignée du sabre par le colonel,
 la porte de l'Hôtel de Ville s'est ouverte à deux battants,
 donnant passage aux mobiles postés sous la voûte. Éffarés
-par ces préparatifs de bataille, la foule se rejette violem-
-ment en arrière. Saisi, enveloppé par le tourbillon, j'entends
+par ces préparatifs de bataille, la foule se rejette violemment en arrière. Saisi, enveloppé par le tourbillon, j'entends
 les coups de feu qui éclatent. Je vois, avenue Victoria, un
 groupe de gardes nationaux qui tirent, genou à terre.
 D'autres s'abritent, pour riposter, derrière les tas de sable
@@ -1540,8 +1446,7 @@ militants les plus décidés de Belleville. Voici ce qu'il
 m'a raconté de ses deux journées des 21 et 22 janvier:
 
 me dit Girault —
-j'étais place de l'Hôtel-
-de-Ville avec quelques hommes de notre compagnie. La
+j'étais place de l'Hôtelde-Ville avec quelques hommes de notre compagnie. La
 signal d'envahissement devrait être donné à trois heures. Il
 ne vint pas. Nous attendons. Enfin, la nuit tombée depuis
 longtemps déjà, un contre-ordre arrive. La partie était
@@ -1561,8 +1466,7 @@ nommés dans ce récit, militants révolutionnaires de Belleville.
 
 bataillon — le mien. Quelqu'un propose de sonner le
 tocsin. D'autres gardes s'étaient joints à nous. Sur mon
-ordre — j'étais conseiller de famille et j'avais quelque auto-
-rité sur la compagnie, ainsi que sur un capitaine Seguin —
+ordre — j'étais conseiller de famille et j'avais quelque autorité sur la compagnie, ainsi que sur un capitaine Seguin —
 on éteignit tous les becs de gaz sur les parcours.
 Nous voici en face de Mazas, faisant beaucoup de bruit
 pour paraître nombreux. Le capitaine Seguin nous fait
@@ -1590,33 +1494,27 @@ libre. Personne ne tente plus de s'opposer à notre
 Nos prisonniers, Bauer, Flourens, Léo Melliet, Humbert,
 sont vite délivrés. Je ne trouvais pas Humbert. Et comme il
 me semblait que le gardien, à qui je réclamais le numéro
-de sa cellule, ne se pressait guère de me renseigner, je pro-
-fitai du moment où il me tournait le dos pour lui faire
+de sa cellule, ne se pressait guère de me renseigner, je profitai du moment où il me tournait le dos pour lui faire
 sentir, dans la partie charnue de son individu, la pointe de
 mon sabre-baïonnette... Et elle était terriblement effilée, la
 baïonnette... Le citoyen fit demi-tour, et il se précipita
-vers la porte de la cellule d'Humbert, qu'il ouvrit. Non-
-velle manifestation de mauvaise humeur à la sortie. Gardes
+vers la porte de la cellule d'Humbert, qu'il ouvrit. Nonvelle manifestation de mauvaise humeur à la sortie. Gardes
 et gardiens formaient le cercle dans la rotonde, près de la
 
-porte de sortie. Nous n'étions plus que quatre dans la pri-
-son. Guillaume, qui fut déporté, Dumont le typo, l'autre
+porte de sortie. Nous n'étions plus que quatre dans la prison. Guillaume, qui fut déporté, Dumont le typo, l'autre
 Dumont qui fut tué à Issy, et moi. Nos mines baïonnettes
 au vent. Cela suffit encore pour ramener la bonne volonté.
-Quand nous fûmes dans la rue, nous rejoignons nos cama-
-rades qui, avec Flourens, étaient déjà à deux cents mètres.
+Quand nous fûmes dans la rue, nous rejoignons nos camarades qui, avec Flourens, étaient déjà à deux cents mètres.
 Où allions-nous? Les uns voulaient aller à la Conciergerie,
 enlever Tibaldi. (1) Humbert et moi proposions d'aller
 à l'Hôtel de Ville. Flourens voulait soulever Belleville. On
-suivit Flourens, sans écouter les conseils de ceux qui mon-
-traient que nous nous éloignions de la bataille et de l'action.
+suivit Flourens, sans écouter les conseils de ceux qui montraient que nous nous éloignions de la bataille et de l'action.
 A Belleville, notre nombre avait doublé. Nous marchons
 contre le danger. Nous entrons à la mairie, alors en face de
 l'église Saint-Jean-Baptiste, qu'à l'heure où s'ouvre la rue du Jourdain.
 Là, on décide d'aller réveiller les chefs de bataillon, pour
 qu'ils ralliant leurs hommes. Mais les chefs de bataillon
-accueillirent très mal, pour la plupart, les délégués de Flou-
-rens. Les autres ne prirent pas l'affaire au sérieux. On
+accueillirent très mal, pour la plupart, les délégués de Flourens. Les autres ne prirent pas l'affaire au sérieux. On
 sonna le tocsin auquel personne ne répondit. Pendant ce
 temps, quelques-uns de gardes nationaux qui étaient
 venus grossir nos rangs s'occupaient à vider une pièce de
@@ -1636,8 +1534,7 @@ de Ville. Nous ne recutions pas un chat dans le faubourg
 
 (1) Tibaldi, condamné en 1852 à la déportation pour complot
 contre la vie de l'Empereur. Envoyé à l'île du Diable. De retour
-à Paris en 1870, il prit part, sous le Siège, au mouvement révolu-
-tionnaire. Arrêté après le 31 octobre.
+à Paris en 1870, il prit part, sous le Siège, au mouvement révolutionnaire. Arrêté après le 31 octobre.
 
 du Temple. À la hauteur de la rue de la Verrerie, nous
 apercevons en enfilade la façade de l'Hôtel de Ville et une
@@ -1665,8 +1562,7 @@ nous arrivons, quelques tireurs. C'est l'un d'eux qui brisa
 les aiguilles de l'horloge. Un garde, blessé, sautant sur
 une jambe, nous rejoint. Je le vois emporter un mort, ou
 blessé grièvement. Derrière les tas de sable, des hommes
-étendus, qui se relèvent et se sauvent en courant. Nous rega-
-gnons la rue du Temple, où nous rencontrons un blessé,
+étendus, qui se relèvent et se sauvent en courant. Nous regagnons la rue du Temple, où nous rencontrons un blessé,
 que deux camarades soutiennent et qu'ils conduisent à la
 pharmacie voisine. Les troupes arrivent. Chasseurs à
 cheval et lignards. Le moment est venu de filer. Nous
@@ -1677,17 +1573,14 @@ sommes en sûreté, et nous remontons à Belleville.
 
 le petit tambour
 
-Les Batignolles où Malon exerçait une action prépon-
-dérante, s'étaient déjà distinguées le 31 octobre. Elles
+Les Batignolles où Malon exerçait une action prépondérante, s'étaient déjà distinguées le 31 octobre. Elles
 
 fournirent, le 22 janvier, une centaine de combattants.
 C'est le détachement des Batignolles qui arriva par la
 rue du Temple, drapeau tricolore au vent, coiffé d'un
-bonnet rouge. Paul Martine, (1) membre de la Commis-
-sion municipale du dix-septième et ami de Malon, m'a
+bonnet rouge. Paul Martine, (1) membre de la Commission municipale du dix-septième et ami de Malon, m'a
 fait le récit suivant, auquel l'incident de la mort du
-petit tambour Léon Bousquet donne un caractère par-
-ticulièrement tragique et poignant.
+petit tambour Léon Bousquet donne un caractère particulièrement tragique et poignant.
 
 Le matin du 22, je suis devant la mairie, où je croise
 le capitaine Dauvergne, du bataillon. « Eh bien! cette
@@ -1698,16 +1591,14 @@ baïonnette, bien effilée. Elle m'a déjà sauvé la vie au
 31 octobre. Dehors, la générale bat. Le tambour, un tout
 jeune garde, petit, maigre, blond. Je l'ai souvent rencontré
 au club de la rue Lemercier. Son nom, Léon Bousquet,
-étudiant en pharmacie. Pauvre petit Bousquet! Dans quel-
-ques heures, il sera frappé à mort, avenue Victoria, tout
+étudiant en pharmacie. Pauvre petit Bousquet! Dans quelques heures, il sera frappé à mort, avenue Victoria, tout
 près de moi... Derrière le tambour, marchent deux gardes
 en armes, le fusil sur l'épaule. L'un d'eux, le vieux
 père Malézieu, ouvrier forgeron, un vieux de la vieille, qui s'est
 battu avec Barbès, et qui a été déporté en Juin. Je me joins
 au groupe. Le tambour bat toujours. Peu à peu, les gardes
 nationaux sortent des maisons, fusil en main, et prennent
-place avec nous. Presque tous du le bataillon révolu-
-tionnaire et patriote — en ces temps c'était tout un... Tout
+place avec nous. Presque tous du le bataillon révolutionnaire et patriote — en ces temps c'était tout un... Tout
 à coup, nous voyons accourir, levant les bras, un gros
 homme. Le maire, François Favre. Il nous somme de nous
 disperser. François Favre a été dit après le 31 octobre.
@@ -1740,9 +1631,7 @@ main du petit B., toujours jovial, et de son frère aîné,
 Ferdinand, (1) toujours mélancolique. Voici Benoist Malon,
 notre adjoint élu, notre ami à tous. Varenne de simple
 garde, chapeau mou, bottes relevées sur le pantalon. Vers
-deux heures, un peu avant, nous sommes bien cent cin-
-quante. Trois officiers. Le capitaine Fontaine, les lieute-
-nants Jouvard et Hoemelle. Le capitaine Dauvergne n'est
+deux heures, un peu avant, nous sommes bien cent cinquante. Trois officiers. Le capitaine Fontaine, les lieutenants Jouvard et Hoemelle. Le capitaine Dauvergne n'est
 plus là.
 En route vers l'Hôtel de Ville. Nous nous formons en
 trois pelotons de cinquante. Rangés sur deux files, nous
@@ -1756,8 +1645,7 @@ Varin et Malon. » (L'Internationale, par James Guillaume,
 
 Tout en marchant, nous poussions des cris. « Guerre à
 outrance! A bas les traîtres! » Je crie de toutes mes forces
-« A bas Trochu! Vive la Nation! » Bosquet lui furieuse-
-ment sa caisse. Nous descendons la rue de Rome. Les
+« A bas Trochu! Vive la Nation! » Bosquet lui furieusement sa caisse. Nous descendons la rue de Rome. Les
 passants nous regardent. — « Où allez-vous? — Nous
 marchons sur l'Hôtel de Ville. Nous allons les flanquer par
 les fenêtres. » Place de l'Opéra, foule nombreuse sur les
@@ -1775,11 +1663,8 @@ deuxième, les maires et adjoints de Paris, réunis pour
 aviser à la situation. Nous nous rangeons le long du
 square, face au théâtre de la Gaîté. Voilà une heure que
 nous sommes là. Quelques-uns s'impatientent. Je n'y puis
-plus tenir. Je quitte les rangs, et, le mousqueton en ban-
-doulière, je tôle vers la place de Grève.
-Place de l'Hôtel-de-Ville, une foule énorme. Pas de com-
-battants armés. Des groupes épais de badauds. Petits bour-
-geois, carriers, femmes, enfants. La façade de l'Hôtel de
+plus tenir. Je quitte les rangs, et, le mousqueton en bandoulière, je tôle vers la place de Grève.
+Place de l'Hôtel-de-Ville, une foule énorme. Pas de combattants armés. Des groupes épais de badauds. Petits bourgeois, carriers, femmes, enfants. La façade de l'Hôtel de
 Ville est d'aspect sinistre. Portes et fenêtres closes. Que se
 passe-t-il à l'intérieur? J'arrive à la grille qui borde le
 monument. J'apprends que la salle du Trône est bondée
@@ -1790,8 +1675,7 @@ canons. » C'est ces Belleville. Ce sont nos Batignollais
 qui, déjà, longent le monument... A dix pas de moi, un
 grand gaillard, accroché à un réverbère, gesticule et parle
 
-(1) Humbert a donc raison. Malon n'était pas place de l'Hôtel-
-de-Ville à 10 janvier (voir le récit précédent d'Humbert).
+(1) Humbert a donc raison. Malon n'était pas place de l'Hôtelde-Ville à 10 janvier (voir le récit précédent d'Humbert).
 
 Qu'y a-t-il? Que se passe-t-il?... Un grand bruit de fenêtres
 qui s'ouvrent... Des coups de feu... Un gros nuage gris,
@@ -1861,8 +1745,7 @@ Curieuse et attachante figure que celle de Pierre
 Denis. Je revois encore, aux derniers jours de l'Em-
 pire, faire son entrée à notre brasserie de la rue Saint-
 Séverin, étrangement costumé d'une sorte de dolman à
-brandebourgs, soutaché de passementeries, la cheve-
-lure noire s'échappant d'une toque bordée de fausse
+brandebourgs, soutaché de passementeries, la chevelure noire s'échappant d'une toque bordée de fausse
 fourrure, le pantalon serré dans des bottes à l'écuyère
 sur lesquelles se balancent des glands de soie noire.
 
@@ -1874,8 +1757,7 @@ discussion, soit avec Longuet, soit avec Paget-Lupicin,
 soit avec Édouard Roullier, proudhoniens comme lui.
 Vallès, tout près, écoutait, ou écoutait pas. Pendant
 le Siège, Pierre Denis disparut de notre petite brasserie.
-Ce n'est qu'aujourd'hui, en lisant sa note sur le 22 jan-
-vier, que j'apprends son séjour au ministère de l'In-
+Ce n'est qu'aujourd'hui, en lisant sa note sur le 22 janvier, que j'apprends son séjour au ministère de l'In-
 térieur, avec Gambetta et Antonin Proust. De temps à
 autre, nous lisions un article de lui dans le Combat de
 Félix Pyat, ou, plus tard, dans le Vengeur. Nous
@@ -1886,12 +1768,10 @@ Déclaration au Peuple Français, publiée à l'Officiel de
 la Commune du 20 avril. Il échappe aux conseils de
 guerre. Il se retrouve collaborant avec Portalis au
 Corsaire. Il est le dernier conseiller du général Boulanger,
-dont l'étoile s'éteint. Il publie le Mémorial de Saint-
-meurt en 1907. Quelques mois avant sa fin, pour la
+dont l'étoile s'éteint. Il publie le Mémorial de Saintmeurt en 1907. Quelques mois avant sa fin, pour la
 première fois depuis la Commune, il se présente en
 omnibus, enfoncé dans un coin. Étrangère à ce qui
-l'entourait, tout entier à la lecture hâtive d'une bro-
-chure dont il feuillette rapidement les pages. Enveloppé
+l'entourait, tout entier à la lecture hâtive d'une brochure dont il feuillette rapidement les pages. Enveloppé
 dans un ample mac-farlane, la crinière toute grise,
 la face jaune et ridée, l'œil toujours vif et mobile.
 Trente années ont passé sur le Pierre Denis d'autrefois,
@@ -1911,8 +1791,7 @@ Voici l'extrait de la note de Pierre Denis:
 
 ... Le 22 janvier, Jules Ferry était venu déjeuner avec son
 frère à l'Intérieur et en même temps avec Proust (1) et
-Chambarand. J'étais resté seul au cabinet avec mon expédi-
-tionnaire. A ce moment, toutes les dépêches officielles
+Chambarand. J'étais resté seul au cabinet avec mon expéditionnaire. A ce moment, toutes les dépêches officielles
 étaient adressées en copie au ministère de l'Intérieur en
 même temps qu'on les envoyait à leur destinataire. Vers
 quatre heures et quelques minutes, on m'apporta une première
@@ -1921,14 +1800,12 @@ dépêche à Mairie de Paris à Vinoy » signée Chaudey, disant
 par la rue de Rivoli. Envoyez de la cavalerie pour balayer
 la place. C'est très convenable. » A quelques minutes de là,
 une autre dépêche, signée Chaudey encore, s'adressait au
-secteur du faubourg Saint-Jacques et demandait des mitrail-
-leuses. Dès que j'eus ces dépêches, je montais vite à la
+secteur du faubourg Saint-Jacques et demandait des mitrailleuses. Dès que j'eus ces dépêches, je montais vite à la
 salle à manger et les montrais à Ferry et à Proust,
 
 (1) Antonin Proust, ministre des beaux-arts du cabinet Gambetta
 (1881). — Chambarand, avocat, ami de Gambetta.
-(2) Ces deux dépêches n'ont pas été retrouvées par la Commis-
-sion d'enquête parlementaire sur la Commune. Si elles avaient figuré
+(2) Ces deux dépêches n'ont pas été retrouvées par la Commission d'enquête parlementaire sur la Commune. Si elles avaient figuré
 sur le registre des membres du Ministère de l'Intérieur, la Commission n'eût
 pas manqué de les publier, puisqu'elles chargeaient Chaudey.
 Cette demande de cavalerie et de mitrailleuses peut se rapporter
@@ -1946,13 +1823,11 @@ en effet, survenait une troisième dépêche affolée signée
 Chaudey, suivie presque aussitôt d'une autre signée Cambon,
 assez longue, assez incohérente, mais dans laquelle était
 cette phrase: « Chaudey vient de donner l'ordre de tirer. » (1)
-Les assaillants étaient stupéfaits comme devant un événe-
-ment. Jules Ferry répéta encore: Mais ce Chaudey est fou!
+Les assaillants étaient stupéfaits comme devant un événement. Jules Ferry répéta encore: Mais ce Chaudey est fou!
 Qu'est-il arrivé? Et il partit en compagnie de son frère, en
 promettant de nous renseigner.
 Après son départ, Proust me dit qu'il faudrait faire une
-enquête, et qu'il serait peut-être bon de la faire immédiate-
-ment: il m'invita donc à aller sur les lieux voir ce qui
+enquête, et qu'il serait peut-être bon de la faire immédiatement: il m'invita donc à aller sur les lieux voir ce qui
 s'était passé.
 Quand j'arrivai sur la place de l'Hôtel-de-Ville, il était
 près de quatre heures; elle était vide. Il n'y a qu'un café un
@@ -1967,8 +1842,7 @@ prévenir au pavillon Coulainvent (siège du Gouvernement) à la
 moindre tentative d'émeute, et je vous envoie immédiatement un
 escadron de cavalerie pour balayer la place, et si cela ne suffit pas,
 je ferai établir des mitrailleuses sur le pont d'Arcole. » Tout le
-monde reconnut des ordres, tout le monde commandait le 22 jan-
-vier, Gouvernement, à l'Intérieur, à l'Hôtel de Ville,
+monde reconnut des ordres, tout le monde commandait le 22 janvier, Gouvernement, à l'Intérieur, à l'Hôtel de Ville,
 près des autorités militaires ou civiles, le régime habituel de désordre.
 (1) On trouvera plus loin les dépêches signées Cambon. Aucune
 d'elles ne porte la signature de Chaudey. Aucune d'elles ne dit
@@ -1976,21 +1850,18 @@ que Chaudey ait donné l'ordre de tirer sur la foule.
 
 coin de la rue de Rivoli; on ne put me renseigner que
 très vaguement. Il était venu en effet une assez grande
-foule, d'ailleurs inoffensive, sur la place. Un homme au mac-
-farlane s'était porté fort avant, entouré d'une soixantaine
+foule, d'ailleurs inoffensive, sur la place. Un homme au macfarlane s'était porté fort avant, entouré d'une soixantaine
 d'autres, avait parlementé un moment à la porte (j'ai
 depuis que c'était Tony Révillon); et brusquement (1) une
 décharge était partie des fenêtres de l'Hôtel de Ville occupé
-par des mobiles bretons. Heureusement que dans la préci-
-pitation, ces mobiles avaient tiré devant eux; les balles
+par des mobiles bretons. Heureusement que dans la précipitation, ces mobiles avaient tiré devant eux; les balles
 étaient allées frapper les murs d'en face ou se perdre dans
 l'avenue Victoria. S'ils avaient tiré en bas, c'eût été un
 massacre. Il y avait peu de victimes. (2) On me dit qu'une
 femme avait été tuée sur le trottoir, près du café, qu'un
 ouvrier avait été blessé à la jambe et porté à une pharmacie
 de la rue du Temple. Je l'ai trouvée, soignée et souriante.
-J'ai appris que La Cécilia (3) avait été tué dans d'un réver-
-bère, c'est-à-dire près des maisons.
+J'ai appris que La Cécilia (3) avait été tué dans d'un réverbère, c'est-à-dire près des maisons.
 Supposant que je pourrais avoir d'autres renseignements,
 dans les cafés de la rive gauche les plus proches, j'allai
 d'abord rue Saint-Séverin, une brasserie où se rencontraient
@@ -2010,13 +1881,11 @@ maire de Paris. C'est celle que conduisait Tony Révillon.
 Tony Révillon et la fusillade.
 (2) Six morts, le commandant Sapia, les capitaines Chateignaux
 (ce bataillon) et Thollain; le prêtre Gobert, deux inconnus. Qua-
-(4) Albert Callet, étudiant en droit, plus tard attaché à la délé-
-gation aux Affaires extérieures, avec Paschal Grousset.
+(4) Albert Callet, étudiant en droit, plus tard attaché à la délégation aux Affaires extérieures, avec Paschal Grousset.
 
 Naturellement cette délégation avait été suivie par des
 curieux parmi lesquels ne se trouvaient que quelques
-gardes nationaux armés. Pendant que Tony Révillon parle-
-mentait pour entrer dans l'Hôtel de Ville, la fusillade avait
+gardes nationaux armés. Pendant que Tony Révillon parlementait pour entrer dans l'Hôtel de Ville, la fusillade avait
 éclaté tout à coup et la foule affolée s'était enfuie. Seuls
 deux gardes nationaux qui avaient leurs fusils et qui se
 trouvaient près du quai où était un bas de laine salarié
@@ -2028,8 +1897,7 @@ l'ordre de partir. Quant à la cavalerie qui devait être
 « commode pour balayer la place » elle ne vint pas. L'affaire
 fut étouffée. Je suppose que Ferry lava fortement la tête à
 Chaudey, en l'invitant à rester chez lui.
-Quelques jours après, la capitulation, sous le nom hono-
-rable d'armistice, était signée. Je quittais le ministère avec
+Quelques jours après, la capitulation, sous le nom honorable d'armistice, était signée. Je quittais le ministère avec
 Proust et Chambarand.
 J'ai dans ces papiers la copie exacte de l'une au moins des
 dépêches de Chaudey, la première ou la seconde. J'ai
@@ -2040,10 +1908,8 @@ Gers disant: « Deux personnes, dont l'une est, dit-on,
 Blanqui, sont signalées. Que faut-il faire? » Je fis demander
 aussitôt le livre des dépêches pour savoir s'il y avait été
 répondu. En effet, on trouva la dépêche envoyée par
-Picard disant: « Faites arrêter. » (2) Ce livre des dépê-
-ches reçues depuis que j'étais attaché à l'Intérieur.
-Mais quand il l'eut, il put le compulser. On avait fait dispa-
-raître à l'Hôtel de Ville les dépêches de Chaudey et Cambon.
+Picard disant: « Faites arrêter. » (2) Ce livre des dépêches reçues depuis que j'étais attaché à l'Intérieur.
+Mais quand il l'eut, il put le compulser. On avait fait disparaître à l'Hôtel de Ville les dépêches de Chaudey et Cambon.
 On n'avait pas pris les mêmes précautions à l'Intérieur où
 elles étaient en double. Je suppose que c'est que s'est
 
@@ -2053,22 +1919,17 @@ parquet de Figeac. Voir ma chronique, *L'Homme qui arrêta
 Blanqui*, dans *L'Aurore* du 26 mars 1907.
 
 confirmé d'une façon formelle et authentique le fait que
-Chaudey avait donné l'ordre de tirer. Ce n'était pas abso-
-lument un secret, car Cambon et d'autres personnes pré-
-sentes à l'Hôtel de Ville, les Ferry eux-mêmes, pour dégager
+Chaudey avait donné l'ordre de tirer. Ce n'était pas absolument un secret, car Cambon et d'autres personnes présentes à l'Hôtel de Ville, les Ferry eux-mêmes, pour dégager
 leur responsabilité, l'avaient dit dire... Quant à la dépêche,
 elle n'est que une légende, ou du moins ce n'est pas une,
 c'est trois ou quatre qui ont existé et la plus accusatrice
-est celle de Cambon, secrétaire de Ferry, adressée à ce der-
-nier qui se trouvait à l'Intérieur, place Beauvau, dans
+est celle de Cambon, secrétaire de Ferry, adressée à ce dernier qui se trouvait à l'Intérieur, place Beauvau, dans
 laquelle est la phrase: « Chaudey vient de donner l'ordre de
 
 les dépêches de Cambon
 
-Les dépêches lues par Pierre Denis dans les pre-
-mières heures de l'après-midi du 22 janvier, transcrites,
-au ministère de l'Intérieur, sur le livre hoc, la Com-
-mune les a publiées. Le 15 avril, la Commune instituait
+Les dépêches lues par Pierre Denis dans les premières heures de l'après-midi du 22 janvier, transcrites,
+au ministère de l'Intérieur, sur le livre hoc, la Commune les a publiées. Le 15 avril, la Commune instituait
 une Commission d'enquête à ayant pour but de chercher
 tous les éléments pouvant établir la part de responsabilité
 qui incombe à chacun de ceux qui ont participé aux
@@ -2097,11 +1958,9 @@ Voici ces trois dépêches: (1)
 Il y a une tentative de surprise. Elle a échoué. Les portes
 sont fermées. Les mobiles occupent les issues. Chaudey
 reçoit en ce moment une délégation conduite par Tony
-Révillon. Je crois que la vue de nos préparatifs a impres-
-sionné les délégués. La place est à peu près vide. L'on s'est
+Révillon. Je crois que la vue de nos préparatifs a impressionné les délégués. La place est à peu près vide. L'on s'est
 réfugié dans les rues avoisinantes. J'ai déferlé, quelque sont
-mobile se montrait. Reste devant la grille environ 300 per-
-sonnes armées ou non armées. Le bataillon, après avoir
+mobile se montrait. Reste devant la grille environ 300 personnes armées ou non armées. Le bataillon, après avoir
 parcouru la place, s'est massé du côté de l'Hôtel de Ville. On
 m'a assuré que Flourens était; je vais faire vérifier.
 
@@ -2123,8 +1982,7 @@ Une compagnie de marche du bataillon se range
 devant la porte en criant: Vive la Commune! Ils... —
 Coups de fusil sur la place, j'interromps dépêche.
 On tire sur la place, je reprends dépêche.
-Ils... grand guidon rouge, et sont acclamés par les indi-
-vidus bruyants de la foule. Le feu continue.
+Ils... grand guidon rouge, et sont acclamés par les individus bruyants de la foule. Le feu continue.
 
 A ces trois dépêches de Cambon à Jules Ferry, il
 faut joindre la pièce suivante, émanant de la police
@@ -2138,8 +1996,7 @@ Voici cette pièce:
 
 Service de M. Bressaud, officier de paix. — Cabinet. — Bureau.
 
-La tentative faite par les gardes nationaux pour s'em-
-parer de l'Hôtel de Ville, paraît, quant à présent, avoir
+La tentative faite par les gardes nationaux pour s'emparer de l'Hôtel de Ville, paraît, quant à présent, avoir
 
 Après l'incident dont j'ai rendu compte, des gardes
 mobiles ont paru aux fenêtres du palais, braquant leurs
@@ -2188,8 +2045,7 @@ condamné à deux mois de prison. Il rentre en exil,
 en Suisse, où il dirige le Républicain neuchâtelois.
 Rentré en France, il collabore au Courrier du Dimanche,
 puis au Siècle. Il est des exécuteurs testamentaires
-de Proudhon. Il publie plusieurs brochures parmi les-
-quelles, en mars 1870, L'Empire parlementaire est-il
+de Proudhon. Il publie plusieurs brochures parmi lesquelles, en mars 1870, L'Empire parlementaire est-il
 possible? Après le 4 septembre, il est nommé (octobre)
 maire du neuvième arrondissement. Aux élections du
 5 novembre, il n'est pas élu, et quitte ses fonctions.
@@ -2206,15 +2062,13 @@ légalité, en même temps que son mépris du désordre et
 de l'émeute. Dans cette même note manuscrite que
 
 nous citions du haut, Pierre Denis raconte qu'ayant
-rencontré Chaudey à l'Hôtel de Ville, ce dernier l'invec-
-tiva rudement au sujet de sa collaboration au Combat
+rencontré Chaudey à l'Hôtel de Ville, ce dernier l'invectiva rudement au sujet de sa collaboration au Combat
 de Félix Pyat, l'accusant « d'être, avec Vallès, Vermorel
 et d'autres, de la bande des révolutionnaires. Chaudey
 compte pourtant des amis parmi ceux qui doivent bientôt
 faire la Commune. Entre autres, Gustave Courbet. Détail
 curieux, que je tiens de M. Ernest Courbet, Chaudey
-fut la cause directe du refus, par le peintre de l'Enter-
-rement à Ornans, en juin 1870, de la Légion d'honneur.
+fut la cause directe du refus, par le peintre de l'Enterrement à Ornans, en juin 1870, de la Légion d'honneur.
 La nomination de Courbet avait paru, le 22 juin, à
 l'Officiel, sans que l'artiste eût été consulté. Chaudey, se
 trouvant avec Courbet et quelques amis, s'oppose « avec
@@ -2229,8 +2083,7 @@ notabilités du parti républicain se trouvaient au café, dont
 le propriétaire avait pour gendre Auguste Lepage, journaliste
 non républicain, mort il y a quelques années.
 Le colonel Vabre n'a point le passé républicain de
-Chaudey. Son apparition sur la scène politique et mili-
-taire est toute récente. Ancien sous-officier, il était
+Chaudey. Son apparition sur la scène politique et militaire est toute récente. Ancien sous-officier, il était
 marchand de charbons à Asnières (2) quand, en août
 
 (1) Castagnary, journaliste et critique d'art. Président du Conseil
@@ -2246,8 +2099,7 @@ Commission d'enquête des actes du Gouvernement
 de la Défense nationale, Vabre raconte qu'il escalade
 les grilles, passe par une fenêtre, « plein de boue
 et la passe-tresse au poing ». Il obtient un laissez-passer
-de Blanqui, — qui se le commît pas. Ce laissez-
-passer, Vabre s'en sert pour se rendre près du général
+de Blanqui, — qui se le commît pas. Ce laissezpasser, Vabre s'en sert pour se rendre près du général
 Trochu, à qui il propose « de faire sauter les portes de
 l'Hôtel de Ville ». Le général Trochu « c'est toujours
 Vabre qui parle — lui donne l'ordre « de monter à
@@ -2278,9 +2130,7 @@ mobiles du Finistère, à l'Hôtel de Ville, depuis le
 hors du palais, derrière la grille qui l'enclôt. Ses
 mobiles occupent la salle du Trône du premier étage,
 les deux grandes portes du gauche (rue de Rivoli) et
-de droite (quai de Gesvres), le cour d'honneur, l'entre-
-sol. Le capitaine Gourlauen commande la compa-
-gnie de la salle du Trône. Le capitaine Le Stimuf, la
+de droite (quai de Gesvres), le cour d'honneur, l'entresol. Le capitaine Gourlauen commande la compagnie de la salle du Trône. Le capitaine Le Stimuf, la
 compagnie de l'entresol. Ce sont ces compagnies qui
 feront, les premières, feu sur la place.
 
@@ -2299,17 +2149,14 @@ frappé rudement à la porte que pour se faire ouvrir? Il
 se peut. Vabre est en danger. Les balles pleuvent autour
 de lui. Le capitaine de Mauduit, capitaine de la
 compagnie des mobiles du Finistère, a raconté que
-Vabre s'était jeté « à plat ventre » pour éviter les pro-
-jectiles. (1) Ce geste, d'ailleurs compréhensible, montre
+Vabre s'était jeté « à plat ventre » pour éviter les projectiles. (1) Ce geste, d'ailleurs compréhensible, montre
 
 (1) Voir dans: Ducrot, La Défense de Paris, tome IV, page
 la lettre de M. Henry de Mauduit, capitaine de la 6 compagnie
 du bataillon des mobiles du Finistère.
 
 assez qu'il avait la plus grande envie de se mettre à
-l'abri. Il est donc raisonnable de croire que, hâtive-
-ment, frénétiquement, quand il fut revenu de ses émo-
-tions premières — l'expression est encore de M. de
+l'abri. Il est donc raisonnable de croire que, hâtivement, frénétiquement, quand il fut revenu de ses émotions premières — l'expression est encore de M. de
 Mauduit — Vabre ait frappé à la porte dans l'unique
 but de se faire ouvrir.
 Ce n'est pas non plus le commandant de Legge qui
@@ -2351,8 +2198,7 @@ humaine ne comptait plus. On parlait de fusiller comme
 on eût parlé, avant le Siège, de la plus banale des
 représailles. Tu es mon ennemi politique, je te fais
 fusiller. Au besoin, de mon plein gré, moi-même. Cette
-mentalité barbare, elle apparaît à chaque ligne des déposi-
-tions devant la Commission d'enquête parlementaire.
+mentalité barbare, elle apparaît à chaque ligne des dépositions devant la Commission d'enquête parlementaire.
 Le capitaine de Mauduit arrête Serizier, alors capitaine
 du Vabre veut le faire passer par les armes. Il
 dit: « On commence à m'amener des prisonniers,
@@ -2361,8 +2207,7 @@ suite. » Et il ajoute, avec un accent de véritable
 regret: « Malheureusement, Ferry s'y oppose. » Le
 capitaine de Mauduit parle d'étouffer l'insurrection en
 faisant saisir, s'il y consentait les chefs et en les faisant
-fusiller séance tenante. Quant aux mobiles, le comman-
-dant de Legge nous définit ainsi leur état d'esprit.
+fusiller séance tenante. Quant aux mobiles, le commandant de Legge nous définit ainsi leur état d'esprit.
 « Ils se massacraient — dit de Legge dans sa déposition
 — toute l'importance du poste d'honneur qui leur était
 confié, et que, depuis le 31 octobre, où ils les avaient
@@ -2373,16 +2218,12 @@ feu n'eussent-ils pas éclaté!
 La fusillade fut-elle déchaînée par une provocation
 de la place, ou, brusquement, sans qu'un coup de fusil
 eût été tiré du côté de la foule? La question reste
-obscure. Et c'est pour tâcher de l'élucider que j'ai solli-
-cité les souvenirs de quelques-uns de ceux qui prirent
-part à la journée du 22 janvier. On a que les témoi-
-gnages sont discordants. Tandis que Montels et
+obscure. Et c'est pour tâcher de l'élucider que j'ai sollicité les souvenirs de quelques-uns de ceux qui prirent
+part à la journée du 22 janvier. On a que les témoignages sont discordants. Tandis que Montels et
 Girault entendent « un coup sourd « un coup de feu
 isolé tiré de la place, Humbert et Martine affirment
-Quoi qu'il en ait été, le conflit, ce jour-là, était inévi-
-table. Il était voulu, préparé. Tout contribuait à le
-provoquer. L'atmosphère rougie à blanc. L'orage, gros-
-sissant depuis le 31 octobre.
+Quoi qu'il en ait été, le conflit, ce jour-là, était inévitable. Il était voulu, préparé. Tout contribuait à le
+provoquer. L'atmosphère rougie à blanc. L'orage, grossissant depuis le 31 octobre.
 
 Le rôle de Chaudey au 22 janvier est désormais en
 pleine lumière. Il n'a pas commandé le feu. Il n'a pas
@@ -2412,18 +2253,15 @@ dans la plus terrible des situations qui se soit présentée
 aux jours du Siège. Pourquoi Ferry quitte-t-il l'Hôtel de
 Ville, abandonnant à son adjoint la responsabilité d'une
 bataille possible? Depuis deux jours, l'émeute est dans
-l'air. Ce ne sont que dépêches sur dépêches des auto-
-rités militaires. De Vinoy, appelant des troupes, de
+l'air. Ce ne sont que dépêches sur dépêches des autorités militaires. De Vinoy, appelant des troupes, de
 Concorde, dans les casernes, dans les secteurs, prêtes à
 descendre au premier appel. L'heure est vraiment
 angoissante. Et c'est cette heure que choisit Ferry pour
 s'en aller au ministère de l'Intérieur, assister à un
-conseil du Gouvernement où la question des approvi-
-sionnements doit être agitée. « Je voulais — a dit Ferry
+conseil du Gouvernement où la question des approvisionnements doit être agitée. « Je voulais — a dit Ferry
 dans sa déposition devant la Commission d'enquête —
 ouvrir les yeux à quelques membres du Gouvernement
-qui conservaient encore des illusions sur les approvi-
-sionnements, et j'avais insisté pour obtenir la présence
+qui conservaient encore des illusions sur les approvisionnements, et j'avais insisté pour obtenir la présence
 de la caisse de la Boulangerie, l'honorable M. Pelletier.
 Pendant que mon chef de service était là, exposant les
 
@@ -2458,8 +2296,7 @@ tout. Ferry est en situation d'ordonner. Un coup de feu
 isolé eût-il été tiré sur la place, un seul, il pût atteindre
 autre chose que les pierres de la façade, ce n'était pas
 la une provocation suffisante pour que l'ordre de la
-fusillade mortelle fût donné. Ferry, homme de sang-
-froid et de résolution — il l'a montré au 18 mars — eût
+fusillade mortelle fût donné. Ferry, homme de sangfroid et de résolution — il l'a montré au 18 mars — eût
 maintenu en respect les partisans trop zélés du coup de
 
 (1) Enquête parlementaire sur les actes du Gouvernement de la
@@ -2483,8 +2320,7 @@ A la Bibliothèque Nationale. Je fais lire à Protot la
 déposition du commandant de Legge à la Commission
 d'enquête. Protot était délégué de la Commune à la
 Justice. C'est Protot qui a rédigé le décret dit des
-Otages du 5 avril, ainsi que le décret du 23 avril, orga-
-nisant le Jury d'accusation. Je mets sous ses yeux les
+Otages du 5 avril, ainsi que le décret du 23 avril, organisant le Jury d'accusation. Je mets sous ses yeux les
 trois dépêches de Cambon à Jules Ferry. La déposition
 du commandant de Legge... Nous causons... Chaudey
 devait comparaître, le 23 mai, devant le Jury d'accusation
@@ -2501,13 +2337,11 @@ pour les séances suivantes des 22 et 23 mai. Chaudey eût
 été libre de produire tous les témoignages qu'il eût estimés
 utiles à sa défense. En particulier, ceux des personnalités,
 
-II. — Disposition du peloton d'exécu-
-tion qui, au commandement de Raoul
+II. — Disposition du peloton d'exécution qui, au commandement de Raoul
 Rignault, fusilla Gustave Chaudey dans
 le chemin de ronde de Sainte-Pélagie,
 dans la nuit du 22 au 23 mai 1871, d'après
-un croquis manuscrit de Slom, secré-
-taire de Raoul Rignault, qui assistait à
+un croquis manuscrit de Slom, secrétaire de Raoul Rignault, qui assistait à
 l'exécution).
 
 "2° Disposition du chemin de ronde et places occupées par Chaudey et le peloton d'exécution."
@@ -2528,8 +2362,7 @@ commerçants, des citoyens paisibles, modérés. Ils seraient
 décidé du cas de Chaudey, comme nos jurés d'aujourd'hui
 d'une affaire d'assises. Le décret du 20 avril d'accusation
 exigeait, pour la condamnation, une majorité de huit voix
-sur douze (des douze jurés). La loi actuelle fixe cette majo-
-rité à sept voix... Chaudey avait choisi, je crois, Me Rousse
+sur douze (des douze jurés). La loi actuelle fixe cette majorité à sept voix... Chaudey avait choisi, je crois, Me Rousse
 pour avocat. Rousse vint lui voir au ministère et me
 demanda l'autorisation de communiquer avec son client,
 autorisation qu'il lui accorda; la plus large possible... Je
@@ -2542,8 +2375,7 @@ portes de Sainte-Pélagie se fussent ouvertes devant lui.
 Et, pendant que parlait Protot, je songeais que, même si,
 malgré toutes les preuves que Chaudey eût fournir,
 soit par l'organe de son défenseur, soit au cours d'une
-défense personnelle, il eût trouvé devant lui un accusa-
-teur implacable, en la personne de Raoul
+défense personnelle, il eût trouvé devant lui un accusateur implacable, en la personne de Raoul
 Rigault. (1) Lorsqu'il avait établi les rôles du Jury
 d'accusation, Raoul Rigault, alors procureur de la
 Commune, s'était réservé de requérir de sa personne
@@ -2589,23 +2421,20 @@ Le jour laissé pour voir
 [ici le croquis de mais à droite, c'est-à-dire
 Slom entre le peloton d'exécution et
 fac-simile peloton; à côté de lui, à
-taire, et Clermont, commis-
-saire. Préau de Vedel, à droite,
+taire, et Clermont, commissaire. Préau de Vedel, à droite,
 contre le mur A.
 
 (1) Cette note, transcrite par Slom en tête d'un exemplaire de
 la brochure d'Édgar Monteil, L'Exécution de Gustave Chaudey et
 de trois gendarmes, réfute, page par page, les assertions de
 l'auteur. La brochure de Monteil a été publiée à un très
-petit nombre d'exemplaires, le lecteur pourra consulter l'exem-
-plaire de la Bibliothèque Nationale, 8261.
+petit nombre d'exemplaires, le lecteur pourra consulter l'exemplaire de la Bibliothèque Nationale, 8261.
 
 Page 13. — Si Raoul Rigault vint à Sainte-Pélagie, avec
 le projet de faire fusiller Chaudey, il n'en parla pas à
 Slom, qui fut convoqué pour affaire de service.
 
-Page 15. — Le procès-verbal n'a été dicté à Slom, secré-
-taire du Procureur de la Commune, qu'après l'exécution
+Page 15. — Le procès-verbal n'a été dicté à Slom, secrétaire du Procureur de la Commune, qu'après l'exécution
 de Chaudey et avant celle des gendarmes; du reste, Préau
 de Vedel le reconnaît. C'est certainement lui qui a donné
 le texte à l'instruction, qui avouo bien de le copie,
@@ -2613,8 +2442,7 @@ mais la tenir d'une déposition. Elle est du reste exacte
 dans sa teneur.
 
 Page 18. — Tout l'interrogatoire de Chaudey, jusqu'à la
-phrase: Vive la République! (page 21, au bas), est abso-
-lument inexact. Déjà en 1875, j'en ai donné les détails dans
+phrase: Vive la République! (page 21, au bas), est absolument inexact. Déjà en 1875, j'en ai donné les détails dans
 une lettre à Leloup. (1) Ces papiers ont être remis à
 M. Castagnary, du Siècle, après la mort de Leloup. Le voici,
 sinon textuellement, du moins dans le sens très complet:
@@ -2646,14 +2474,12 @@ mur et devant Préau de Vedel, courut dans l'espace libre
 ramène-le. »
 Je n'ai aucun des détails de ces exécutions, ni les
 coups de grâce à Chaudey, ni la fuite du gendarme, ni leur
-exécution. Placé derrière le peloton, c'est à peine si j'aper-
-cevais la silhouette de Chaudey. J'entendis, au moment
+exécution. Placé derrière le peloton, c'est à peine si j'apercevais la silhouette de Chaudey. J'entendis, au moment
 de la détonation, le cri très prononcé du soldat: « Vive la
 Voilà toute la vérité sur cet événement.
 
 Membre du Comité Central du 18 mars,
-directeur de l'Intendance à la délé-
-gation à la Guerre. Fusillé le 16 mai
+directeur de l'Intendance à la délégation à la Guerre. Fusillé le 16 mai
 1871, à la caserne Lobau.
 à l'auteur, et reproduite pour la pre-
 
@@ -2693,15 +2519,12 @@ Vaillant, et le père Gaillard, (1) et tant d'autres...
 Or, Gaillard est là, avec nous, qui écoute la lecture de
 la lettre d'Arnould. Vallès est à Londres, de même que
 Vaillant. Les renseignements apportés par la lettre
-d'Arnould sont brefs. Moreau, pris au moment où il ren-
-trait chez lui, le jeudi matin de la Semaine, avait été
+d'Arnould sont brefs. Moreau, pris au moment où il rentrait chez lui, le jeudi matin de la Semaine, avait été
 conduit aux barricades, ne l'a jamais vu. Massenet (2)
-non plus. Noro, (3) qui a vécu longtemps dans le quar-
-tier de l'Hôtel-de-Ville, où habitait Moreau, ne le connaît
+non plus. Noro, (3) qui a vécu longtemps dans le quartier de l'Hôtel-de-Ville, où habitait Moreau, ne le connaît
 pas. Arnould ne l'a rencontré à la Mairie qu'à de rares
 intervalles. Seul Gouhier l'a fréquenté assidûment. Il
-était avec lui au ministère de la Guerre. Il l'a suivi par-
-tout. Pourtant Gouhier n'a pas connu Moreau avant la
+était avec lui au ministère de la Guerre. Il l'a suivi partout. Pourtant Gouhier n'a pas connu Moreau avant la
 fin du Siège. Il l'a à sa connaissance au Vaux-Hall,
 à la réunion d'où sortit la Fédération de la garde
 nationale... Moreau n'a jamais signé, pendant le Siège,
@@ -2727,14 +2550,11 @@ revu Moreau... Gouhier confirme, ce que nous savons
 tous, que Moreau fut désigné par ses collègues du
 Comité Central pour rédiger les premières affiches...
 On continue de causer... Très peu d'entre nous ont
-connu Moreau pendant la Commune. Gaillard, qui com-
-mandait les barricades, ne l'a jamais vu. Massenet (2)
-non plus. Noro, (3) qui a vécu longtemps dans le quar-
-tier de l'Hôtel-de-Ville, où habitait Moreau, ne le connaît
+connu Moreau pendant la Commune. Gaillard, qui commandait les barricades, ne l'a jamais vu. Massenet (2)
+non plus. Noro, (3) qui a vécu longtemps dans le quartier de l'Hôtel-de-Ville, où habitait Moreau, ne le connaît
 pas. Arnould ne l'a rencontré à la Mairie qu'à de rares
 intervalles. Seul Gouhier l'a fréquenté assidûment. Il
-était avec lui au ministère de la Guerre. Il l'a suivi par-
-tout. Pourtant Gouhier n'a pas connu Moreau avant la
+était avec lui au ministère de la Guerre. Il l'a suivi partout. Pourtant Gouhier n'a pas connu Moreau avant la
 fin du Siège. Il l'a à sa connaissance au Vaux-Hall,
 à la réunion d'où sortit la Fédération de la garde
 nationale... Moreau n'a jamais signé, pendant le Siège,
@@ -2747,8 +2567,7 @@ aucune affiche. Ni l'Affiche Rouge du 5 janvier
 Ni l'affiche du jour de l'entrée des Prussiens... (1) Il
 n'était pas du 31 octobre, ni du 22 janvier. Il n'était
 pas de la Corderie... (2) D'où vient-il? Comment a-t-il
-fait irruption, brusquement, sans antécédents révo-
-lutionnaires, dans le grand mouvement du 18 mars?... Sa
+fait irruption, brusquement, sans antécédents révolutionnaires, dans le grand mouvement du 18 mars?... Sa
 vie reste enfermée, mystérieuse, presque énigmatique,
 entre son entrée à l'Hôtel de Ville, et la fin tragique —
 maintenant, nous en sommes sûrs — à l'infâme caserne
@@ -2759,8 +2578,7 @@ qui, tout de suite, quand nous fûmes seul à seule, met
 la conversation sur la Commune. Elle a mon récit
 des otages, (3) le chapitre de l'Archevêque, où je raconte
 la mort du capitaine de Beaufort. Nous causons. Les
-souvenirs se pressent sur les lèvres de mon interlocu-
-me dit-elle —
+souvenirs se pressent sur les lèvres de mon interlocume dit-elle —
 beaucoup connu monsieur de
 Beaufort... Charles de Beaufort, cousin germain d'Édouard
 Moreau... Tous deux habitaient chez leur tante, madame de
@@ -2810,8 +2628,7 @@ le séjour à Bobigny, route de Saint-Denis... Monsieur Moreau
 
 (1) C'est peut-être pour cela que Lisagaray (*Hist. Commune*,
 édition Dentu, page 121), qui ignorait les antécédents de Moreau,
-ainsi que sa parenté avec de Beaufort, secoue à son nom la qualifi-
-cation de « petit commissionnaire en marchandises ».
+ainsi que sa parenté avec de Beaufort, secoue à son nom la qualification de « petit commissionnaire en marchandises ».
 
 était, lui, au 187° bataillon, commandant Boudin. Il marcha,
 dans les compagnies de guerre, à Champigny et à Buzenval...
@@ -2833,8 +2650,7 @@ portait alors, et qui est le sien, E. Moreau de Bauvière. Il
 donnait des articles à divers journaux littéraires. Il me
 lisait souvent des poésies, d'en il convint quelques-unes.
 Il composait des œuvres musicales. Il fut mise avec
-musique qui fut exécutée. Il dessinait des scènes char-
-mantes. Quand je l'ai pour la première fois, il venait
+musique qui fut exécutée. Il dessinait des scènes charmantes. Quand je l'ai pour la première fois, il venait
 d'épouser une jeune fille, titrée comme lui. Rien ne laissait
 entrevoir, à ce moment, sa destinée. Rien. Il n'était pas
 qu'il disparaîtrait à si brève échéance, victime de l'effroyable
@@ -2842,10 +2658,8 @@ qu'il disparaîtrait à si brève échéance, victime de l'effroyable
 J'étais fixé sur la personnalité d'Édouard Moreau. Je
 compris, alors seulement, la raison du silence fait
 autour de lui. Absent depuis trois ans de Paris, sans
-aucun lien avec aucun groupe politique, nul ne le con-
-naissait quand il y revint en 1870. Nul ne possédait ses
-traits, publiés pour la première fois ici, grâce à l'intelli-
-gence de mon interlocutrice, qui voulut bien me confier
+aucun lien avec aucun groupe politique, nul ne le connaissait quand il y revint en 1870. Nul ne possédait ses
+traits, publiés pour la première fois ici, grâce à l'intelligence de mon interlocutrice, qui voulut bien me confier
 
 la précieuse photographie qu'elle possédait. Elle me
 confia aussi quelques lettres, celles qui lui restaient et
@@ -2858,36 +2672,30 @@ vers Paris
 
 Édouard Moreau a quitté Londres. Il s'est arrêté
 pendant quelques jours dans un village de l'Orne, près
-d'Argentan. Il est avec son jeune fils. La lettre sui-
-vante, non datée, doit être du 15 au 20 août. Elle fait
+d'Argentan. Il est avec son jeune fils. La lettre suivante, non datée, doit être du 15 au 20 août. Elle fait
 allusion à l'affaire de la Villette (1) qui est du 13 août,
 et au nouveau ministre de la Guerre, Palikao, ministre
 depuis le 10 août. Remarque extrêmement curieuse.
-Édouard Moreau, non seulement ne partage pas les senti-
-ments hostiles à l'Empire. Il serait plutôt disposé à
+Édouard Moreau, non seulement ne partage pas les sentiments hostiles à l'Empire. Il serait plutôt disposé à
 mettre en lui toute sa confiance, et à espérer encore
 que l'Empereur pût retirer la France de l'abîme où
 elle est déjà précipitée.
 
 Votre lettre est désolée et désolante. Prenez garde de vous
 laisser aller à partager la mobilité du Parisien, qui compte
-aujourd'hui ce qu'il acclamait hier, qui compte l'accla-
-mer de nouveau demain. Si les Athéniens sont morts, ils revivent
+aujourd'hui ce qu'il acclamait hier, qui compte l'acclamer de nouveau demain. Si les Athéniens sont morts, ils revivent
 dans les murs de Paris. Il faut voir la question sous toutes
 ses faces et avec ensemble; il est impossible que le nouveau
 
 (1) Le 15 août 1870, Blanqui et une centaine de ses amis, parmi
 lesquels Eudes et Brideau, qui furent condamnés à mort et délivrés le
-4 septembre, tentèrent d'enlever le poste des pompiers du boule-
-vard de la Villette.
+4 septembre, tentèrent d'enlever le poste des pompiers du boulevard de la Villette.
 
 ministre (1) ne déroule en quarante-huit heures le chaos que
 lui a laissé le maréchal Lebœuf, et, avant de régulariser les
-mouvements secondaires, avant même de courir aux prin-
-cipes de l'émeute, qui est essentiellement prussienne, (2) il
+mouvements secondaires, avant même de courir aux principes de l'émeute, qui est essentiellement prussienne, (2) il
 faut qu'il move et masse les éléments militaires, ce qui se
-fait en ce moment avec vigueur. Vous voyez que nos agita-
-teurs ont quitté la partie lorsque cette partie est devenue
+fait en ce moment avec vigueur. Vous voyez que nos agitateurs ont quitté la partie lorsque cette partie est devenue
 nationale: la Marseillaise s'est retirée avec Rochefort dès
 qu'à réduit le mot: Patrie! La révolution, qui s'est trouvée
 mal derrière le cercueil de Victor Noir, (3) fait dans les
@@ -2911,8 +2719,7 @@ rien n'est dégénéré.
 ... Nous partîmes enfin de Rouen; on nous renvoya de
 gare en gare en changeant sans route, parce que le service
 de la ligne était désorganisé pour le transport des mobiles.
-Nous fîmes ainsi plus de cent vingt lieues la nuit, atten-
-dant deux heures à un point, trois heures à un autre. Vers
+Nous fîmes ainsi plus de cent vingt lieues la nuit, attendant deux heures à un point, trois heures à un autre. Vers
 
 (1) Maréchal de Palikao, qui avait succédé le 10 août, comme
 ministre de la Guerre, au maréchal Lebœuf.
@@ -2924,15 +2731,12 @@ Rochefort s'évanouissant aux obsèques de Victor Noir, à Neuilly.
 minuit, on me déclara qu'on ne pouvait me conduire que
 le surlendemain à Éconché. Il me fallut me contenter
 d'aller à Argentan, où j'arrivai à trois heures du matin,
-ayant perdu mes malles dans les innombrables transborde-
-ments qu'on y avait faits; je les ai fait partir de leur
-recherche, et l'on me répondit qu'on les retrouverait à Ser-
-quigny, et, que je les recevrai le lendemain. J'allai donc à
+ayant perdu mes malles dans les innombrables transbordements qu'on y avait faits; je les ai fait partir de leur
+recherche, et l'on me répondit qu'on les retrouverait à Serquigny, et, que je les recevrai le lendemain. J'allai donc à
 travers la ville, j'éveillai un loueur de voitures, et à quatre
 heures du matin je partis. A six heures, j'étais ici. A onze
 heures j'étais debout, quoique je me fusse couché brisé de
-cette longue traite. J'allai à Rânes. Gens effrayés, trem-
-blants, revenant de tenter d'incendier le château de
+cette longue traite. J'allai à Rânes. Gens effrayés, tremblants, revenant de tenter d'incendier le château de
 M. Lebœuf, découragés par le dépit précipité de toute
 la jeunesse. Je cours à droite, à gauche, chez le Maire à
 qui je réussis de mettre le feu dans le cœur, dans les
@@ -2944,9 +2748,7 @@ j'ai jeté un grain d'enthousiasme qui pourra repousser. Le Maire
 se plaint de n'avoir pas d'ordres. Eh bien, lui dis-je,
 agissez de vous-même; votre puissance est énorme, vous
 êtes la nation, c'est en vous qu'est sa force; debout!
-Merci, me répondit-il, je commence demain. Il me saisis-
-sant les mains: Vive la France! dit-il; je voterai les paysans-
-même élan.
+Merci, me répondit-il, je commence demain. Il me saisissant les mains: Vive la France! dit-il; je voterai les paysansmême élan.
 
 ... En deux jours, j'aime Abel (1) a déjà rougi et bruni,
 il fait l'admiration de tout le monde; on se le repasse de
@@ -3020,8 +2822,7 @@ ses compagnons d'infortune, dans le large portail de l'horrible
 abattoir où la plus affreuse, et la plus inmérité des
 morts, l'attend.
 
-Bonne année. Oui, malgré l'affreuse crise que nous traver-
-sons, je veux saluer avec vous le nouvel an. D'ailleurs,
+Bonne année. Oui, malgré l'affreuse crise que nous traversons, je veux saluer avec vous le nouvel an. D'ailleurs,
 c'est quand on est malheureux que l'on peut, à plus juste
 titre, former des souhaits: le moment n'est donc jamais
 mieux venu. Puisse l'année aux premières qui vient
@@ -3045,18 +2846,15 @@ j'y l'ai quitté, il a étendu ses petites mains vers moi, il a
 dit: Papa, papa pleurant de me voir partir; pas une
 minute de ma vie ne s'est écoulée depuis sans que je vois
 en pensée au plus affectueux enfants; et, bien, pas moment,
-il me passe dans l'esprit et dans le cœur des éclairs illumi-
-nant un tableau d'avenir où un foyer calme et heureux nous
+il me passe dans l'esprit et dans le cœur des éclairs illuminant un tableau d'avenir où un foyer calme et heureux nous
 réunit avec ce cher petit être sur les genoux. — Quand
-paraîs! — Il faudrait pourtant bien ne pas de choses pour ren-
-verser tout cela...
+paraîs! — Il faudrait pourtant bien ne pas de choses pour renverser tout cela...
 Voyons, arrière les idées noires! Le nouvel an régénérera,
 réparera, édifiera... Quand le Nil déborde, c'est un fléau;
 quand il est rentré dans son lit, il a laissé des bienfaits.
 Telle cette guerre; elle sera 1870 après 1870. — Il est
 notre avenir. La fortune et la fortune courent souvent
-après ceux qui les fuient; vous êtes de ceux-là; tous attendent peut-
-être au bout du chemin que nous suivons, chemin qui passe
+après ceux qui les fuient; vous êtes de ceux-là; tous attendent peutêtre au bout du chemin que nous suivons, chemin qui passe
 à travers des champs de bataille et où nous ne serons
 peut-être pas renversés...
 Voilà donc nous quitter pour cela; mais
@@ -3064,19 +2862,16 @@ comme en a coutume de nous battre le rappel vers
 deux heures du matin sans que nous soyons prévenus, je
 vais me coucher à tout hasard.
 
-Une lettre curieuse par ses conclusions. Le patrio-
-tisme de Moreau ne rencontrerait-il pas plus d'occasions
+Une lettre curieuse par ses conclusions. Le patriotisme de Moreau ne rencontrerait-il pas plus d'occasions
 d'être satisfait, si, au lieu de rester dans la garde
 nationale, il prenait rang dans un régiment de l'armée
-de ligne. La question avait été débattue entre lui et le destina-
-taire des lettres ici publiées. Décidément, Édouard
+de ligne. La question avait été débattue entre lui et le destinataire des lettres ici publiées. Décidément, Édouard
 
 raison est que je ne puis rendre plus de services en donnant
 une impulsion quelconque dans la garde nationale qu'en
 rang dans une escouade de ligne. Occupé à cacher encore
 rien fait de bien appréciable, j'ai plus fait déjà que je
-l'avais été noüent dans l'armée. La formation, l'habille-
-ment, l'armement de mon bataillon, son emploi actif, ma
+l'avais été noüent dans l'armée. La formation, l'habillement, l'armement de mon bataillon, son emploi actif, ma
 présence aux avant-postes, la rectification d'une tranchée,
 le prolongement d'une autre, la résistance aux idées de
 découragement, mille détails des généraux, et d'autres
@@ -3122,8 +2917,7 @@ Lendemain du Dix-Huit Mars. Avec tout le Comité
 Central, Édouard Moreau siège à l'Hôtel de Ville. C'est
 par ce billet triomphant qu'il l'annonce. A l'heure
 tardive où il l'écrit, il vient de rédiger le long manifeste
-qui paraîtra à l'Officiel du 20 mars. Il en est seule-
-ment l'auteur. La phrase finale est dans sa manière,
+qui paraîtra à l'Officiel du 20 mars. Il en est seulement l'auteur. La phrase finale est dans sa manière,
 parfois déclamatoire. Voici ce court billet:
 
 Hôtel de Ville, 19 mars. Nuit.
@@ -3152,14 +2946,12 @@ qu'une affaire de temps mais j'ai voulu que ce temps fût
 consacré à quelque chose. On vous êtes bien avengés, ou
 vous avez du voir qu'il me fallait quelque résolution grave,
 pour me faire sortir d'une obscurité qui est pour moi une
-sorte d'orgueil et de conscience. Je sais que dans les révo-
-lutions radicales comme celle-ci, les haines et les ambitions
+sorte d'orgueil et de conscience. Je sais que dans les révolutions radicales comme celle-ci, les haines et les ambitions
 montent bientôt à la première place; je sais que le premier
 mot qu'on y oublie est celui de Fraternité, et j'ai voulu dans
 cette fournaise déchaînée au moins une étincelle. Chacun de
 mes minutes a été employée à rattacher un lien qui se
-brisait, chacune de mes paroles a porté une idée de conci-
-liation. Vingt fois, par un mot, une démarche, j'ai
+brisait, chacune de mes paroles a porté une idée de conciliation. Vingt fois, par un mot, une démarche, j'ai
 empêché que le sang coulât. J'entends, par démarche, ma
 simple personne au milieu d'ouvriers, mes frères, dont je
 n'étais fait des amis. Il n'a souvent suivi que je lui prie de
@@ -3168,8 +2960,7 @@ Lorsque je fus porté à l'Hôtel de Ville, j'essayai, dans les
 conseils, de faire faire à ce peuple que j'aime, sa grande
 révolution pacifique, avec la majesté qui convient à un lion
 qui se réveille d'une torpeur de vingt ans. Je l'ai rêvé,
-montant simple et fort au gouvernement, déposant loyale-
-ment son mandat au terme convenu. Lorsque j'ai les
+montant simple et fort au gouvernement, déposant loyalement son mandat au terme convenu. Lorsque j'ai les
 
 (1) Les élections pour la Commune avaient été fixées au 26 mars.
 
@@ -3180,8 +2971,7 @@ vous le conseil. Vous voyez que nous nous entendions
 mieux que vous ne croyiez. Bref, la bourgeoisie n'a pas
 voulu faire de concessions, et vraiment, elle en devait, et
 beaucoup; elle n'a pas voulu se mettre franchement dans
-la cause populaire; son mauvais vouloir paralysera peut-
-être les efforts les mieux intentionnés. Nous verrons...
+la cause populaire; son mauvais vouloir paralysera peutêtre les efforts les mieux intentionnés. Nous verrons...
 
 Une seule ligne. Mais que d'espoirs, que de rêves
 dans ces quelques mots. Nous partons pour Versailles!
@@ -3192,8 +2982,7 @@ promenade militaire. Le réveil devait être terrible. Mais
 Édouard Moreau était de ceux qui se croyaient sûrs du
 triomphe. Si jamais l'écriture trahit la pensée, celle
 d'Édouard Moreau, ce jour-là, l'expression même de
-son enthousiasme. D'habitude maigre et mince, l'écri-
-ture est large, haute, impérative. Le de Versailles
+son enthousiasme. D'habitude maigre et mince, l'écriture est large, haute, impérative. Le de Versailles
 lance orgueilleusement ses hampes enflées en acier
 traçant cette majuscule belliqueuse, Édouard Moreau a
 songé, en même temps qu'à Versailles, à la Victoire. (1)
@@ -3203,22 +2992,17 @@ Nous partons pour Versailles. A bientôt, j'espère.
 
 (1) Voir le fac-similé, page
 
-Édouard Moreau écrit rarement. Ses multiples occu-
-pations ont tari sa plume. Voici une lettre intéressante.
-Édouard Moreau semble avoir une influence prépon-
-dérante dans les conseils du Comité Central, quand ce
+Édouard Moreau écrit rarement. Ses multiples occupations ont tari sa plume. Voici une lettre intéressante.
+Édouard Moreau semble avoir une influence prépondérante dans les conseils du Comité Central, quand ce
 dernier se mit résolument en lutte avec la Commune.
 Le 3 mai, date de la lettre qu'il suivre, Rossel est,
 depuis le délégué à la Guerre. Le Comité Central,
 qui a accaparé presque tous les services du ministère
-de la Guerre, voit en lui un obstacle. Rossel est mili-
-taire avant tout. Il exige de la discipline. Il est ferme-
-ment décidé à mettre un peu d'ordre dans le désordre
+de la Guerre, voit en lui un obstacle. Rossel est militaire avant tout. Il exige de la discipline. Il est fermement décidé à mettre un peu d'ordre dans le désordre
 que l'inertie de Cluseret a laissé grandir. Il brisera le
 Comité Central. J'ai raconté déjà (1) qu'à cette date du
 3 mai où écrit Moreau, me trouvant avec Rossel dans
-son cabinet, le nouveau délégué à la Guerre aperce-
-vant dans la cour un groupe des membres du Comité
+son cabinet, le nouveau délégué à la Guerre apercevant dans la cour un groupe des membres du Comité
 Central en uniforme, se retourna brusquement: « Si je
 les faisais fusiller, là, tout de suite! » dit-il. Rossel
 partit quelques jours plus tard. Et cette attitude hostile
@@ -3242,22 +3026,18 @@ Commune fui faire part de notre volonté, qui est:
 2° Son remplacement par nous, Comité Central.
 Nous avons résolu enfin que, si la Commune ne nous
 accordait pas cela, nous passerions outre, en lui rappelant
-qu'elle n'est pas le gouvernement, mais simplement l'admi-
-nistration communale, et que la garde nationale, représentée
+qu'elle n'est pas le gouvernement, mais simplement l'administration communale, et que la garde nationale, représentée
 par nous, était la seule force de résistance légitime de Paris.
-En un mot, les hommes du 18 mars s'opposent à la Révo-
-lution qu'ils ont faite, et vont agir révolutionnairement.
+En un mot, les hommes du 18 mars s'opposent à la Révolution qu'ils ont faite, et vont agir révolutionnairement.
 Si la Commune accepte, je propose le décret suivant,
 pour être immédiatement affiché:
-Considérant que tous les habitants de Paris sont soli-
-daires pour la défense de leurs foyers attaqués par une
+Considérant que tous les habitants de Paris sont solidaires pour la défense de leurs foyers attaqués par une
 Considérant que la population de Paris ne se bat que
 pour se défendre, et que la défense est légitime par tous
 les moyens;
 Considérant la liberté et la propriété des bons
 citoyens doivent être sauvegardées, l'honnêteté et la dignité
-Sur la proposition du Comité Central de la garde natio-
-nale, et au nom d'une révolution pacifique attaquée par les
+Sur la proposition du Comité Central de la garde nationale, et au nom d'une révolution pacifique attaquée par les
 La Commune de Paris décrète:
 1° La levée en masse est prononcée.
 2° Tout citoyen français recevra des titres ou fonctions de
@@ -3275,12 +3055,10 @@ d'espionnage, de vol de fonds publics ou d'accaparement
 de denrées alimentaires.
 5° Seront sévèrement réprimées: toute arrestation faite
 sans un mandat régulier, toute atteinte individuelle à la
-liberté individuelle et à la propriété, toute attaque calom-
-nieuse, par voie d'écrits, au gouvernement actuel de Paris.
+liberté individuelle et à la propriété, toute attaque calomnieuse, par voie d'écrits, au gouvernement actuel de Paris.
 6° Sont requis selon les besoins de la défense: tous les
 docteurs en médecine et officiers de santé pour le service
-des ambulances et hôpitaux, selon l'âge; tous les méca-
-niciens, fondeurs et fabricants pourront servir à l'armement;
+des ambulances et hôpitaux, selon l'âge; tous les mécaniciens, fondeurs et fabricants pourront servir à l'armement;
 tous les ingénieurs et architectes pouvant être employés
 aux travaux de terrassement.
 7° Les femmes et les enfants volontaires seront employés
@@ -3296,8 +3074,7 @@ Si vous voulez de la vraie révolution, honnête et nerveuse,
 Je ne sais si la Commune, toujours tremblante, acceptera;
 mais la résolution est prise, et mes collègues ont l'air
 
-Si nous réussissons, je demande, de suite après, les élec-
-tions pour la Constituante.
+Si nous réussissons, je demande, de suite après, les élections pour la Constituante.
 Je tombe de sommeil.
 
 Quoi qu'il arrive prochainement, ne vous étonnez pas.
@@ -3308,33 +3085,28 @@ du délégué à la Guerre, Delescluze. Quelques jours après,
 le 17, il est chargé de la direction de l'Intendance. C'est
 dans cette fonction que le surprendra la défaite. La
 défaite, il ne la prévoyait pas si proche, lui qui, dans la
-lettre du 3 mai, traçait un programme si minutieuse-
-ment détaillé de ce qu'il voulait faire. Lui, qui songeait
+lettre du 3 mai, traçait un programme si minutieusement détaillé de ce qu'il voulait faire. Lui, qui songeait
 — inexplicable aveuglement — à réclamer les élections
 pour une Constituante!
 
 J'ai retrouvé, à la Société des Auteurs dramatiques,
 le titre de la piécette donnée par Édouard Moreau au
 Théâtre Rossini de Passy, une Pointe d'Aiguille. Cette
-comédie en un acte fut représentée, à la soirée d'ouver-
-ture du théâtre, nouvellement édifié rue de la Tour,
+comédie en un acte fut représentée, à la soirée d'ouverture du théâtre, nouvellement édifié rue de la Tour,
 le 27 mars 1867, comme le mentionne le Figaro du dit
-jour, à la rubrique « Échos des Théâtres »:
+jour, à la rubrique « Échos des Théâtres
 
 Ce soir, à 7 h. 1/4, que s'ouvre le Théâtre Rossini.
 Si vous prenez une voiture sur le boulevard pour aller
 assister à cette inauguration, dites au cocher:
 — A Passy, rue de la Tour,
 C'est là. On joue trois pièces. Un prologue, à Passy, de
-MM. Félix Savard et Baralle; une comédie en un acte, inti-
-tulée Une Pointe d'Aiguille, de M. E. Moreau de Bauvière,
+MM. Félix Savard et Baralle; une comédie en un acte, intitulée Une Pointe d'Aiguille, de M. E. Moreau de Bauvière,
 et un opéra-comique en un acte: La Dernière Vendetta, de
 MM. Émile Thierry et Schubert.
 
 Il m'a été impossible de retrouver un exemplaire
-imprimé de la comédie d'Édouard Moreau. La Biblio-
-
-thèque Nationale n'en possède pas. A-t-elle seulement
+imprimé de la comédie d'Édouard Moreau. La Bibliothèque Nationale n'en possède pas. A-t-elle seulement
 jamais été éditée? La Bibliothèque Nationale possède
 une brochure de seize pages, qui doit être un article
 de revue tiré à part et mis sous couverture, intitulée
@@ -3343,14 +3115,12 @@ l'Enquête Agricole, par E. Moreau de Bauvière, 1866
 de la comédie du Théâtre Rossini!
 La comédie d'Édouard Moreau ne semble pas avoir
 beaucoup de succès, au dire du Figaro. Le Théâtre
-Rossini, construit par un ancien commerçant du quar-
-tier, fut de reste, dès son ouverture, en proie à de
+Rossini, construit par un ancien commerçant du quartier, fut de reste, dès son ouverture, en proie à de
 multiples soucis, et il dut bientôt fermer ses portes.
 De cette même époque 1867, nous possédons d'Édouard
 Moreau, qui signait alors E. Moreau de Bauvière,
 — la manuscrite, la particule et le nom qui le suivait
-qu'après la guerre — quelques menues œuvres poéti-
-ques, écrites sans prétention, qu'on lira cependant avec
+qu'après la guerre — quelques menues œuvres poétiques, écrites sans prétention, qu'on lira cependant avec
 
 Lundi, nuit, 6 mai.
 
@@ -3562,8 +3332,7 @@ entredisourant, certes bien et hautement m'est précieux et
 à proffit l'heur de vostre entretien, en quel me sont semences
 et germes de graves et doulses leçons de sapience.
 Si mêmement sont véridiques les maximes du Pythagoras
-de Samos on ses théories mathématiques des sons musi-
-caux, bien sûrs en est-il de devroit ensuyte vostre voix,
+de Samos on ses théories mathématiques des sons musicaux, bien sûrs en est-il de devroit ensuyte vostre voix,
 laquelle j'infère en mon intérieur pour sa successivité des
 cycles concentriques agités en l'air.
 Point ne vous puis éclairer en tout cela comme fait
@@ -3590,13 +3359,11 @@ De votre Grâce et Beauté le dévot et fidèle féal
 La défaite frappe Édouard Moreau comme un coup
 de foudre. Le 3 mai, il rêvait d'une Constituante.
 Le 21 mai, l'armée de Versailles est à Paris. Une portée
-de fusil de son cabinet de chef du bureau des ren-
-seignements au ministère de la Guerre. J'ai devant
+de fusil de son cabinet de chef du bureau des renseignements au ministère de la Guerre. J'ai devant
 moi, au moment où j'écris, l'enveloppe d'une lettre qui
 lui est adressée, en mai, par un journaliste étranger
 venant aux nouvelles, et qui porte comme suscription:
-« Monsieur Moreau, délégué à la Fédération, au Minis-
-tère de la Guerre, 98, rue Saint-Dominique-Saint-
+« Monsieur Moreau, délégué à la Fédération, au Ministère de la Guerre, 98, rue Saint-Dominique-Saint-
 Germain. » Édouard Moreau, qui reçoit tous les jours
 des reporters — le mot était déjà en circulation —
 des rapports circonstanciés, n'a pas encore appris que
@@ -3614,8 +3381,7 @@ Gouhier et Gaudier, ses collègues, il de l'Hôtel de
 Ville à la rue Basfroi, où siègent les membres du
 Comité qui n'ont pas abandonné la lutte. Il semble
 qu'il se soit employé et dans tous les ordres à chercher un
-terrain de conciliation entre la Commune et le Gouver-
-nement de Versailles. On ne le rencontre pas à la vérité,
+terrain de conciliation entre la Commune et le Gouvernement de Versailles. On ne le rencontre pas à la vérité,
 de sa personne, à la Ligue des Droits de Paris, qui
 siège en permanence et qui porte ses efforts vers un
 accord qui mettrait fin à la lutte et aux incendies, mais
@@ -3635,8 +3401,7 @@ où l'on vient d'arrêter Beaufort. (3) Charles de Beaufort,
 (2) Voir Histoire de la Ligue Républicaine des Droits de Paris, par
 André Lefèvre (Paris, Charpentier, 1881), pages 24 et suivantes. Les
 noms des membres du Comité Central qui se mettent en rapport
-avec la Ligue ne sont pas publiés dans ce livre. Mais, le procès-
-verbal manuscrit des séances de la Ligue pendant la Semaine de
+avec la Ligue ne sont pas publiés dans ce livre. Mais, le procèsverbal manuscrit des séances de la Ligue pendant la Semaine de
 Mai, que je possède, mentionne ces noms. Gouhier et Grélier,
 amis de Moreau.
 (3) Mes Cahiers rouges, II, pages 187 et suivantes.
@@ -3656,11 +3421,10 @@ n'est plus. Il fuit, désespéré.
 Où va-t-il? (1) Il est rentré dans le quatrième
 arrondissement, occupé depuis la veille par les troupes.
 Il ne se cache pas. On dirait qu'il a fait, une
-dernière fois, le sacrifice d'une existence qui désor-
-mais lui est à charge. Où sont-ils, ses beaux rêves
+dernière fois, le sacrifice d'une existence qui désormais lui est à charge. Où sont-ils, ses beaux rêves
 du siège, quand, garde au bataillon, fier d'avoir
 sa capote « chocolat il découvrait qu'il y avait en lui
-« l'étoffe d'un général et d'un tribun »? Tribun, il l'a
+« l'étoffe d'un général et d'un tribun Tribun, il l'a
 été. Général, pour le moins commissaire civil à la
 Guerre. Tous les grands mots qu'il a prononcés, aux
 jours du triomphe, lui reviennent à la mémoire. Et sa
@@ -3771,8 +3535,7 @@ mort?... Oh! l'horrible destin...
 
 rédigé par Protot
 
-28 septembre 1911. A la Bibliothèque Nationale. Com-
-ment a été rédigé et adopté par la Commune, le décret
+28 septembre 1911. A la Bibliothèque Nationale. Comment a été rédigé et adopté par la Commune, le décret
 des otages, publié à l'Officiel du 6 avril 1871. Nous en
 causons, Protot et moi. Les procès-verbaux manuscrits
 des séances de la Commune, déposés à la Bibliothèque
@@ -3789,10 +3552,8 @@ les incidents qui ont conduit au vote du fameux décret.
 
 Dans la nuit du 4 au 5 avril, la Commune tint deux
 séances. La première, celle du 4, qui se termina vers
-onze heures et demie ou minuit. La deuxième, qui s'ou-
-vrit à une heure du matin. Ce fut dans la première de
-ces deux séances que, pour la première fois, il fut ques-
-tion du décret des otages. Ce décret fut rédigé dans
+onze heures et demie ou minuit. La deuxième, qui s'ouvrit à une heure du matin. Ce fut dans la première de
+ces deux séances que, pour la première fois, il fut question du décret des otages. Ce décret fut rédigé dans
 l'intervalle des deux séances. Il fut à la Commune,
 qui l'adopta, dans la deuxième séance, celle du 5. Le
 décret a été rédigé par Protot.
@@ -3802,11 +3563,8 @@ me dit Protot, qui était alors
 délégué à la Justice —
 nous étions en séance depuis une
 demi-heure — il était dix heures environ — quand Chardon
-entra. Il était en uniforme de colonel. Membre de la Com-
-mune (du par le treizième arrondissement), Chardon avait
-accompagné les bataillons fédérés qui avaient tenté d'at-
-teindre Versailles par le plateau de Châtillon. Extraordi-
-nairement ému, les yeux pleins de larmes, Chardon annonça
+entra. Il était en uniforme de colonel. Membre de la Commune (du par le treizième arrondissement), Chardon avait
+accompagné les bataillons fédérés qui avaient tenté d'atteindre Versailles par le plateau de Châtillon. Extraordinairement ému, les yeux pleins de larmes, Chardon annonça
 que Duval avait été fusillé, dans la matinée, par l'ordre du
 général Vinoy. Les détails de l'exécution de Duval et de
 deux officiers de son état-major, au Petit Bicêtre, avaient
@@ -3814,8 +3572,7 @@ deux officiers de son état-major, au Petit Bicêtre, avaient
 sait comment. Des cris de colère et de vengeance éclatent.
 Tout le monde est debout... « Il faut les tuer tous, dit-on.
 Les représailles, fusiller, nous aussi. » Les propositions les plus
-violentes sont émises. Rigault veut qu'on fusille l'archi-
-vêque, arrêté la veille, Mgr Darboy, le pape, l'on fusille les
+violentes sont émises. Rigault veut qu'on fusille l'archivêque, arrêté la veille, Mgr Darboy, le pape, l'on fusille les
 curés et les jésuites arrêtés en même temps que lui. « Il
 faut ouvrir les prisons au peuple, lui crie quelqu'un, et lui
 amener les détenus communs. Pendant que nous amis
@@ -3826,34 +3583,28 @@ je remis mon projet de décret au président. Il était environ
 
 massacre. Nous ne pouvons pas violer le droit des gens. Il
 faut agir légalement. » La salle est trémissante. « Rasloul
-me crie: « Alors, si on continue à nous tuer, nous conti-
-nuerons à ne faire que de la légalité. » Je lui réponds: « On
+me crie: « Alors, si on continue à nous tuer, nous continuerons à ne faire que de la légalité. » Je lui réponds: « On
 peut être terrible avec ses ennemis en restant justes et
 humains... Du reste, il n'y a pas dans nos prisons des
 ennemis de la Commune, il s'y trouve des gens
 dénoncés, qui peuvent être des innocents... Ce que
 nous pouvons faire, c'est prendre une résolution légale,
-rédiger, discuter et adopter, si nous l'approuvons, une pro-
-position qui statue un mode de représailles, tout en restant
+rédiger, discuter et adopter, si nous l'approuvons, une proposition qui statue un mode de représailles, tout en restant
 dans les limites du droit. »
 Mes collègues m'ont écouté presque sans interrompre.
 Certains m'approuvent franchement. « Protot a trouvé la
 vraie solution dit Avrial. Delescluze quitte sa place,
-vient à moi, me donne l'accolade. « Il nous faut, dit Deles-
-cluze, charger le citoyen Protot, notre délégué à la Justice,
+vient à moi, me donne l'accolade. « Il nous faut, dit Delescluze, charger le citoyen Protot, notre délégué à la Justice,
 le plus compétent de nous dans les questions de droit, de
-rédiger un projet de décret, qu'il nous soumettra à la pro-
-chaine séance. Afin d'en terminer sans retard, je propose
+rédiger un projet de décret, qu'il nous soumettra à la prochaine séance. Afin d'en terminer sans retard, je propose
 de clore cette séance et de fixer la prochaine à une heure
 du matin. Le citoyen Protot aura le temps de rédiger son
 projet. Nous nous en remettons entièrement à lui... » La
 séance est levée au milieu d'une extrême agitation...
 
 Sur la place de l'Hôtel-de-Ville, je suis rejoint par des amis
-qui attendaient la fin de la séance. Bricon, Fontaine, Des-
-sesquelle. (1) Je les suis rapidement au courant. Tous quatre,
-nous nous dirigeons vers les Halles, pour nous y récon-
-forter. Chemin faisant, je songeais à mon décret. Quand
+qui attendaient la fin de la séance. Bricon, Fontaine, Dessesquelle. (1) Je les suis rapidement au courant. Tous quatre,
+nous nous dirigeons vers les Halles, pour nous y réconforter. Chemin faisant, je songeais à mon décret. Quand
 nous entrâmes au restaurant du Père Tranquille, la rédaction
 était tout entière dans mon cerveau. Pendant que nos amis
 prenaient leur repas, je transcrivis le décret, tel qu'il parut
@@ -3889,24 +3640,19 @@ seul prisonnier de M. Thiers désirât sauver...
 
 les procès-verbaux
 
-Voici maintenant l'extrait des procès-verbaux manus-
-crits de la Commune, séance du 5 avril:
+Voici maintenant l'extrait des procès-verbaux manuscrits de la Commune, séance du 5 avril:
 
 Le citoyen Chardon lui une lettre, pour annoncer que le
 citoyen Duval, général de la Commune, a été fusillé par les
 Le citoyen Delescluze dépose sur le bureau la proposition
-Le citoyen Delescluze ayant demandé l'urgence, la Com-
-mune adopte sans discussion le décret à l'unanimité.
+Le citoyen Delescluze ayant demandé l'urgence, la Commune adopte sans discussion le décret à l'unanimité.
 
-A peine dix lignes, c'est tout ce que disent les procès-
-verbaux sur les deux importantes séances de la nuit du
+A peine dix lignes, c'est tout ce que disent les procèsverbaux sur les deux importantes séances de la nuit du
 Pas un mot de Protot, qui rédigea le décret.
 On s'explique que Lissagaray, dans son Histoire de
 la Commune de 1871, édition Dentu, page 199, ait
-écrit: « Le 5, Delescluze déposa un projet, et à l'unani-
-mité, on décréta que tout prévenu de complicité avec
-Versailles, etc... ». Lissagaray a consulté les procès-
-verbaux, qui l'ont induit en erreur.
+écrit: « Le 5, Delescluze déposa un projet, et à l'unanimité, on décréta que tout prévenu de complicité avec
+Versailles, etc... ». Lissagaray a consulté les procèsverbaux, qui l'ont induit en erreur.
 
 [blank verso — bleed-through "LA MORT DE DELESCLUZE" visible]
 
@@ -3915,8 +3661,7 @@ comment Delescluze, dans l'après-midi du jeudi 25 mai,
 fut arrêté, à la porte de Vincennes, par les fédérés,
 qui imprimèrent le conduisirent, entre des gardes,
 baïonnette au fusil, dans un débit de la place de la
-Nation. De retour à la mairie du onzième arrondis-
-sement, Delescluze, accablé de douleur, à la nouvelle
+Nation. De retour à la mairie du onzième arrondissement, Delescluze, accablé de douleur, à la nouvelle
 qu'il ne se faire tuer à la barricade du Château-d'Eau.
 Après avoir notre récit, le citoyen Louis Pindy,
 ancien membre de la Commune, élu par le troisième
@@ -3931,8 +3676,7 @@ Monsieur le Directeur des Cahiers de la Quinzaine,
 Je viens de lire le septième Cahier rouge du citoyen
 Maxime Vuillaume, et comme je ne suis pas entièrement
 
-d'accord avec la version qu'il tiendrait d'Arnold, relative-
-ment aux faits qui ont précédé, et peut-être même la mort
+d'accord avec la version qu'il tiendrait d'Arnold, relativement aux faits qui ont précédé, et peut-être même la mort
 de Delescluze, je tiens à vous apporter, en vous laissant la
 liberté de la publier si vous le jugez utile, le témoignage, on
 ne peut plus succinct, d'un acteur, en tout cas d'un témoin,
@@ -3952,10 +3696,8 @@ Versailles pour obtenir la cessation des massacres dans
 De notre côté, nous promotions de faire cesser le feu, et
 nous nous engagions à nous livrer sans autres conditions
 à la merci des Versaillais.
-Espoir puéril, enfantin et l'on veut, et certes, notre con-
-fiance au succès de cette démarche était bien limitée, mais
-nous ne pouvions faire plus que de nous montrer nous-
-mêmes pour tâcher de sauver un plus grand nombre de
+Espoir puéril, enfantin et l'on veut, et certes, notre confiance au succès de cette démarche était bien limitée, mais
+nous ne pouvions faire plus que de nous montrer nousmêmes pour tâcher de sauver un plus grand nombre de
 Les paroles du Vaillant et Vermorel faisaient perdre la
 délégation, ainsi que l'écrit Vuillaume, d'après Arnold;
 mais, au moment de partir, Delescluze demanda à être
@@ -3963,30 +3705,24 @@ remplacé comme délégué à la Guerre, et il me proposa
 d'accepter cette fonction; je me récusai énergiquement,
 avançant que d'autres étaient mieux qualifiés que moi pour
 endosser une pareille responsabilité.
-Quelques-uns me répondit par une formule grossi-
-sière, et finalement, Delescluze signa ma nomination,
+Quelques-uns me répondit par une formule grossisière, et finalement, Delescluze signa ma nomination,
 approuvée, ou du moins non combattue par mes collègues
 N'ayant pas été à la porte de Vincennes, je laisse, à ceux
 
 qui en ont parlé, la responsabilité de leurs dires, mais voici
-comment les choses se sont passées au moment où Deles-
-cluze, profondément accablé par l'outrage qu'il venait de
-subir, courbait tristement sa pauvre tête blanche, répé-
-tant avec amertume: « Ils n'ont traité de lâche! »
+comment les choses se sont passées au moment où Delescluze, profondément accablé par l'outrage qu'il venait de
+subir, courbait tristement sa pauvre tête blanche, répétant avec amertume: « Ils n'ont traité de lâche! »
 Comme j'insistais, afin d'avoir des détails sur les motifs
 avancés par les gardes nationaux de la porte de Vincennes
-pour expliquer leur observation, Delescluze me dit textuel-
-lement: « Ils n'ont demandé un laissez-passer de nous... »
+pour expliquer leur observation, Delescluze me dit textuellement: « Ils n'ont demandé un laissez-passer de nous... »
 — De moi? Mais à quel titre? — Parce que je leur ai dit que
 nous me remplaciez à la Guerre... »
 En même temps, et je m'étonne qu'Arnold ne s'en soit pas
 souvenu, il répétait lui-même à d'autres membres, mes
 collègues, qui s'informaient: « Ils ont exigé un ordre de
 Alors, profondément impressionné par le spectacle de la
-douleur de notre vénérable doyen, et fortuit contre la cri-
-minelle sottise de ceux qui l'avaient mis dans cet état, je
-m'écriai: « Je vais vous accompagner, Delescluze, et, puis-
-qu'ils veulent un ordre de mon nom, je leur le signerai, s'il
+douleur de notre vénérable doyen, et fortuit contre la criminelle sottise de ceux qui l'avaient mis dans cet état, je
+m'écriai: « Je vais vous accompagner, Delescluze, et, puisqu'ils veulent un ordre de mon nom, je leur le signerai, s'il
 le faut, de la pointe de mon sabre... (l'infatuante peut-être,
 mais j'avais 30 ans, et du sang vif dans les veines). Nommez
 Parent (1) à ma place; je vais prendre des mesures pour
@@ -4020,8 +3756,7 @@ pourquoi je n'étais pas sur la route de Vincennes, je leur
 répondis rapidement que Delescluze avait renoncé à l'affaire
 et qu'il m'avait quitté devant la mairie.
 Si, comme je l'espère, je parviens à publier mes Souvenirs,
-ils renfermeront plus de détails ayant trait aux faits ici-
-dessus, et à d'autres qui se produisirent en cette même
+ils renfermeront plus de détails ayant trait aux faits icidessus, et à d'autres qui se produisirent en cette même
 nuit. Mon désir, en vous écrivant, n'a été que
 d'apporter un peu de lumière sur les derniers moments de
 notre cher martyr Delescluze.
@@ -4029,8 +3764,7 @@ Recevez, Monsieur le Directeur, les salutations empressées
 d'un vieux communard.
 
 La lettre de Pindy apporte une curieuse contribution
-à l'histoire des derniers jours de la Commune, en par-
-ticulier à celle de la démarche tentée pour entrer en
+à l'histoire des derniers jours de la Commune, en particulier à celle de la démarche tentée pour entrer en
 relations avec le commandant du corps allemand.
 Pindy ne dit pas le nom du « monsieur que lui montra
 Theisz, et que ce dernier lui dit être le secrétaire de
@@ -4038,12 +3772,10 @@ Washburne ». Cet intermédiaire de la dernière heure
 
 était-il, comme je l'ai supposé, (1) M. Mac-Kean, qui fut
 l'un des secrétaires de l'ambassadeur américain? Il
-serait difficile de l'affirmer. M. Washburne avait plu-
-sieurs secrétaires. Lefrançais, dans ses Souvenirs d'un
+serait difficile de l'affirmer. M. Washburne avait plusieurs secrétaires. Lefrançais, dans ses Souvenirs d'un
 Révolutionnaire (page 560), dit: « M. Arthur Reeves,
 secrétaire de l'ambassadeur des États-Unis, a offert à
-notre collègue Arnold sa médiation auprès des Alle-
-mands, à l'effet d'obtenir que ceux-ci s'interposent entre
+notre collègue Arnold sa médiation auprès des Allemands, à l'effet d'obtenir que ceux-ci s'interposent entre
 la Commune et Versailles. » J'ai déjà dit qu'Arnold,
 interrogé par moi, n'avait se souvenir du nom de
 l'intermédiaire.
@@ -4109,16 +3841,14 @@ la Commune, mais j'ai été forcé. Nous avons voulu nous
 échapper par la porte de Romainville. Les Prussiens nous
 ont arrêtés, et ils nous ont remis aux gendarmes, qui nous
 ont conduits à Mazas... » Par l'adresse, je vis que le fusillé
-était un instituteur, je ne me rappelle plus de quel dépar-
-tement. Marne, Seine-et-Marne?
+était un instituteur, je ne me rappelle plus de quel département. Marne, Seine-et-Marne?
 Quelques incidents de la fusillade de la veille, qui m'ont
 été racontés ce jour-là... D'abord, ils ont tous été fusillés
 sur le tertre. Pas au Mur. De temps-là, la route que vous
 voyez, qui longe le mur d'enceinte à pou de distance,
 n'existait pas. Le tertre, troué de puits et de galeries, se
 prolongeait, en pente douce, jusqu'au Mur. La tranchée
-était beaucoup plus profonde. Ce sont eux qui l'ont com-
-blée, avec la terre qu'on y a apportée pour les recouvrir.
+était beaucoup plus profonde. Ce sont eux qui l'ont comblée, avec la terre qu'on y a apportée pour les recouvrir.
 hauteur où ils avaient été fusillés (1) et où ils étaient
 couchés depuis la veille... J'en ai compté 145. Des gardes
 nationaux, des gens en capote militaire, quelques bourgeois.
@@ -4130,16 +3860,14 @@ et fait feu... Puis il retire le mort... J'ai le cadavre, à
 l'embouchure du trou...
 
 Monsieur F. s'était tu. Je lui posai une question.
-— Alors, les cent quarante-sept — ou cent quarante-
-cinq — sont tous au pied du Mur... Un conservateur,
+— Alors, les cent quarante-sept — ou cent quarantecinq — sont tous au pied du Mur... Un conservateur,
 M. Leprestre, m'avait dit, il y a une douzaine d'années,
 que, lui aussi, avait fait ensevelir des morts. Mais que
 ces morts, il les avait fait porter aux fosses creusées
 derrière le tertre. (2)
 — Cela se peut, répondit monsieur F. Il a été
 
-(1) Voir Monde Illustré du 27 juin 1871, une petite gravure repré-
-sentant la descente des cadavres qui vont être ensevelis en 1871.
+(1) Voir Monde Illustré du 27 juin 1871, une petite gravure représentant la descente des cadavres qui vont être ensevelis en 1871.
 
 enterré ici, pendant ces jours de la Commune, bien du
 monde. Les cadavres qu'on ramassait dans le quartier.
@@ -4163,8 +3891,7 @@ années... « On ne pouvait pas arrêter le soldat, me dit
 le général. Il tirait sur tout le monde. Sur le premier
 passant comme sur l'insurgé. » Et c'est au tout dit de
 ce que je sais sur le Père-Lachaise. Tout ce que j'ai vu,
-et dont, à mes soixante-quinze ans sonnés, je me sou-
-viens comme d'hier...
+et dont, à mes soixante-quinze ans sonnés, je me souviens comme d'hier...
 
 (1) Le 2 novembre 1871 (jour des Morts), la toute s'arrêtait au
 Père-Lachaise, devant les six cents côté enterrés 188 fédérés,
@@ -4189,11 +3916,9 @@ est sorti des morts... Où sont-ils? En saura-t-on
 jamais le nombre?
 dit Saffrey.
 Mon père a souvent raconté
-devant moi une sinistre histoire. Quelqu'un qui a été con-
-duit à Chaptal, et dont nul depuis n'eut jamais de nouvelles.
+devant moi une sinistre histoire. Quelqu'un qui a été conduit à Chaptal, et dont nul depuis n'eut jamais de nouvelles.
 
-Le graveur Cucinotta. (1) Un de ses amis. Mon père demeu-
-rait alors rue de Rome. Graveur lui aussi, il connaissait
+Le graveur Cucinotta. (1) Un de ses amis. Mon père demeurait alors rue de Rome. Graveur lui aussi, il connaissait
 Cucinotta. Il fut de ceux qui se firent toutes les démarches
 pour le retrouver. Le graveur ne reparut pas. Que ne put
 jamais retrouver sa trace. Et il fallut se résoudre à croire
@@ -4211,15 +3936,13 @@ Regnault, etc. Plusieurs de ses gravures ne furent publiées
 qu'après sa disparition. On les retrouvera en feuilletant
 l'Artiste.
 La guerre venue, Cucinotta, qui avait fait de la France
-sa patrie d'élection, se fit inscrire à la Société Interna-
-tionale de secours aux blessés. Pendant tout le siège, il fit
+sa patrie d'élection, se fit inscrire à la Société Internationale de secours aux blessés. Pendant tout le siège, il fit
 son devoir dans les combats sous Paris, à Champigny,
 à Buzenval. A la paix, il reprit le burin, se souciant peu de
 la Commune.
 Le mardi 23 mai, dans la matinée, Cucinotta était chez
 lui, assis devant sa planche commencée, quand l'armée de
-Versailles occupa le boulevard des Batignolles. Une barri-
-cade fermait l'entrée de la rue de Rome. Elle résistait encore.
+Versailles occupa le boulevard des Batignolles. Une barricade fermait l'entrée de la rue de Rome. Elle résistait encore.
 Parmi les combattants, un fédéré, concierge ou habitant
 de la maison occupée par le graveur. Le fédéré vient d'être
 blessé. Il git derrière la barricade. Sa femme, avertie,
@@ -4274,8 +3997,7 @@ d'immenses fosses. Ceux qui n'étaient pas basculés par
 dessus la grille, on les enterrait aux alentours. Nombre
 de fusillés de Chaptal furent ensevelis dans la propriété
 que possédait alors, au bas de la rue de Rome,
-M. Riant, qui fut conseiller municipal. Sur l'emplace-
-ment de cette propriété a été édifié un lycée de jeunes
+M. Riant, qui fut conseiller municipal. Sur l'emplacement de cette propriété a été édifié un lycée de jeunes
 filles, le lycée Racine...
 
 [blank verso — bleed-through "LES DEUX INDEX" visible]
@@ -4295,13 +4017,11 @@ MAXIME VUILLAUME. — mes cahiers rouges
 onzième cahier de la treizième série
 
 I. — Le capitaine Montels, qui, le 22 janvier 1871, conduisait la
-deuxième délégation reçue à l'Hôtel de Ville par Chaudey, une demi-
-heure avant la fusillade.
+deuxième délégation reçue à l'Hôtel de Ville par Chaudey, une demiheure avant la fusillade.
 
 II. — Disposition du peloton d'exécution qui, au commandement
 de Raoul Rigault, fusilla Gustave Chaudey dans le chemin de ronde
-de Sainte-Pélagie, dans la nuit du 22 au 23 mai 1871, d'après un cro-
-quis manuscrit de Slom, secrétaire de Raoul Rigault, qui assistait à
+de Sainte-Pélagie, dans la nuit du 22 au 23 mai 1871, d'après un croquis manuscrit de Slom, secrétaire de Raoul Rigault, qui assistait à
 
 ANNEXE. — Observations écrites par André Slom.
 Observation sur la gravure représentant l'exécution
@@ -4338,7 +4058,7 @@ I. — une journée à la cour martiale du Luxem-
 Avant-propos de Lucien Descaves:
 main de victoire; perquisitions;
 II. — Citoyen!; entre les deux gendarmes; ma montre;
-« le Socialisme »; je prête; le Prévôt; sur deux
+« le Socialisme je prête; le Prévôt; sur deux
 III. — devant le tribunal; le Sabre; Interrogatoires; à la
 queue; ceux qui attendent; pensées;
 IV. — lueur d'espoir; pourparlers; angoisse; loin de
@@ -4351,15 +4071,13 @@ Fédérés; le compte des morts.
 II. — un peu de vérité sur la mort des otages. —
 l'histoire qui ment.
 
-L'ARCHEVÊQUE (mercredi 24 mai); le capitaine de Beau-
-fort; premier cadavre; la cantinière Lachaise; Six
+L'ARCHEVÊQUE (mercredi 24 mai); le capitaine de Beaufort; premier cadavre; la cantinière Lachaise; Six
 fusillés, six otages; Nous voulons l'archevêque; Et
 notamment l'Archevêque; La Descente; Vers la mort;
 la fusillade; le main féroce; Devant le Conseil de guerre;
 Poignante confrontation; les acteurs du drame.
 L'HOMME DU MEXIQUE (vendredi 26 mai); Nous allons
-chercher Jecker; les cinq à la Roquette; Interroga-
-toire; La montée; Le « mur » de Jecker;
+chercher Jecker; les cinq à la Roquette; Interrogatoire; La montée; Le « mur » de Jecker;
 LA RUE HAXO (vendredi 26 mai); Préparatifs; Il m'en faut
 cinquante; Conversation à la prison; les quatre otages
 civils; Largillière, Ruault et Greffe; Jusqu'à la mairie
@@ -4370,12 +4088,10 @@ Devant les juges; Saint-Omer; Émile Goïs; Aujourd'-
 III. — quand nous faisions le « Père Duchêne ». —
 
 mersch; Colonne en tête; — II. — La République ou la
-Mort!; la mère Gaittet; l'argent; — III. — Est bou-
-gremement en colère; — IV. — Mort et Résurrection;
+Mort!; la mère Gaittet; l'argent; — III. — Est bougremement en colère; — IV. — Mort et Résurrection;
 Commune Proclamée; Celui qui n'est pas; jusqu'à
 la mort; — III. — Le Canon du Père Duchêne; des
-Héros; — IV. — Henriette la jolie cantinière; à Beau-
-chez Protot; — VI. — notre citoyen curé; — VII. —
+Héros; — IV. — Henriette la jolie cantinière; à Beauchez Protot; — VI. — notre citoyen curé; — VII. —
 un bataillon; Brillant uniforme; ne va, chez;
 Rossel; Déjeuner à la Caserne; — II. — Bataille;
 
@@ -4411,15 +4127,13 @@ qui défilent; dans les lilas;
 TYPES D'INSURGÉS; — l'Hercule; Voltaire et Rousseau;
 CANAILLE HÉROÏQUE; — deux témoignages; les beaux
 brigands!; enfants de la Commune;
-la pièce « au Trident »; Reliques;
+la pièce « au Trident Reliques;
 
 matin de bataille;
 sous l'Odéon; un pavé, citoyen; chez Lapeyrouse; rue
 Gay-Lussac; le Panthéon sauter!;
 la rue rouge;
-Petits chasseurs; Cluny; la boutique à Roullier; Saint-
-
-dans ma prison; transes; Ceux qui dénoncent; On
+Petits chasseurs; Cluny; la boutique à Roullier; Saintdans ma prison; transes; Ceux qui dénoncent; On
 perquisitionner; gardien de la paix!; Fuite;
 Imprudences; la garde champêtre; à la Mairie; Brave
 Troyes; les deux gendarmes; Consternation; Passeports;
@@ -4441,16 +4155,14 @@ LE 18 MARS raconté par un canonnier de Montmartre;
 à la porte de Vincennes; un témoin; l'intermédiaire;
 je ne veux plus vivre!;
 
-I. — SAINTE-PÉLAGIE; — dans la prison; la porte; le prison-
-nier; l'interrogatoire; le chemin de ronde; « J'ai fait
-mon devoir »; André Slom; l'arrestation; Théodore
-II. — L'HOTEL DE VILLE; — le 22 janvier; les deux délé-
-gations; de Mazas à la place de Grève; le capitaine
+I. — SAINTE-PÉLAGIE; — dans la prison; la porte; le prisonnier; l'interrogatoire; le chemin de ronde; « J'ai fait
+mon devoir André Slom; l'arrestation; Théodore
+II. — L'HOTEL DE VILLE; — le 22 janvier; les deux délégations; de Mazas à la place de Grève; le capitaine
 Montels; Mazas et Belleville; la Bastille et l'Hôtel de
 Ville; la délégation devant Chaudey; la fusillade;
 ceux de Belleville; le petit tambour;
 III. — L'ORDRE DE TIRER; — Pierre Denis; « note sur
-Chaudey »; les dépêches de Cambon; Chaudey, Vabre,
+Chaudey les dépêches de Cambon; Chaudey, Vabre,
 de Legge; l'ordre de faire feu; mentalité; Jules Ferry;
 devant le Jury d'accusation;
 
@@ -4460,11 +4172,9 @@ I. — LE DÉCRET DES OTAGES; — rédigé par Protot; les
 
 Plusieurs de ces cahiers rouges étant épuisés, comme
 on l'a en tête du présent cahier, et les autres étant
-très près de leur épuisement, on a réimprimé chez Ollen-
-dorff, en un fort volume de 444 pages, à trois francs
+très près de leur épuisement, on a réimprimé chez Ollendorff, en un fort volume de 444 pages, à trois francs
 cinquante, intitulé Mes Cahiers Rouges au temps de
-la Commune, une très grande partie de la sub-
-stance des sept premiers cahiers rouges.
+la Commune, une très grande partie de la substance des sept premiers cahiers rouges.
 
 Voici le sommaire du volume:
 
@@ -4474,14 +4184,13 @@ Un peu de vérité sur la mort des Otages;
 L'Archevêque (Mercredi 24 Mai); Le Fusillé du Pont-
 Neuf (Mercredi 24 Mai); Les Dominicains (Jeudi
 Mai); l'Homme du Mexique (Vendredi 26 Mai); La
-Quand nous faisions le « Père Duchêne »;
+Quand nous faisions le « Père Duchêne
 La République ou la Mort; Nos après-midi; Quelques
 amis; Le Bataillon du Père Duchêne; Derniers Jours;
 
 Par la Ville Révoltée;
 Chez Glaser; L'Entrée des Prussiens; La Colonne; A
-l'Hôtel-Dieu; A la Justice; Protot et Me Rousse; Vol-
-taire et Rousseau; Au Club Séverin; Café d'Orsay;
+l'Hôtel-Dieu; A la Justice; Protot et Me Rousse; Voltaire et Rousseau; Au Club Séverin; Café d'Orsay;
 Concert aux Tuileries; La Pièce de la Commune;
 Pourquoi Delescluze marcha-t-il à la mort?; Matin de
 Mon oncle le Maréchal; Hors Frontière; Genève;

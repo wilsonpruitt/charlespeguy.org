@@ -22,8 +22,7 @@ nouveau: « Si l'amendement de M. Leygues n'avait pas
 . été adopté, nous aurions assisté à ce spectacle: en
 Égypte, en Asie-Mineure, en Extrème-Orient, à Madagascar, sur la côte occidentale d'Afrique, tous les
 enfants passant des mains des congréganistes ou mis- )
-sionnaires français entre les mains des missions norvé-
-gienne, italienne, allemande, américaine, puisque nous
+sionnaires français entre les mains des missions norvégienne, italienne, allemande, américaine, puisque nous
 ne pouvons pas encore, hélas! d'un seul coup, en raison
 de nos diflicultés financières et de notre insuffisance de
 personnel, y substituer l'enseignement laïque. »
@@ -53,9 +52,7 @@ des Frères de la Doctrine chrétienne livrerait‘les Mal-
 
 Je montrerai tout à l'heure où est l'inexactitude des
 
-db” assertions de ce genre. Je suis obligé d'avouer que Pin-
-
-cident avait été préparé, avec une indéniable habileté,
+db” assertions de ce genre. Je suis obligé d'avouer que Pincident avait été préparé, avec une indéniable habileté,
 
 par les gens qui espéraienten profiter. La discussion a
 
@@ -78,21 +75,15 @@ racontait que les missionnaires catholiques étaient
 chassés de l'île et que toute l'influence religieuse allait
 appartenir aux missionnaires étrangers. Le Journal des
 
-Débais publia, sur ce sujet, une lettre d'une extraor-
-
-dinaire fantaisie. (1) Et bien des feuilles parlèrent de
+Débais publia, sur ce sujet, une lettre d'une extraordinaire fantaisie. (1) Et bien des feuilles parlèrent de
 
 À (1) Journal des Débats du 20 février 1904: « Est-il done
 
 il logique, est-il donc de l'intérêt de la France d'expulser les
 
-2) Missions catholiques de Madagascar, alors que non seule-
+2) Missions catholiques de Madagascar, alors que non seulement les Missions norvégiennes, mais aussi,.et surtout, les
 
-ment les Missions norvégiennes, mais aussi,.et surtout, les
-
-Missions anglaises continuent leurs œuvres? Dans un sem-
-
-la trahison méditée par le cabinet. Des hommes poli-
+Missions anglaises continuent leurs œuvres? Dans un semla trahison méditée par le cabinet. Des hommes poli-
 … tiques recueillirent cette émotion, s'en pénétrèrent et,
 quelques semaines plus tard, l'exprimèrent à la tribune.
 . c'est l'identification perpétuelle et, pour ainsi dire,
@@ -122,12 +113,9 @@ indigène complètement anglicisée et devant laquelle nous
 
 C'est moi qui ai souligné deux membres de phrase.
 
-à pour ne pas laisser à des étrangers le soin de repré-
-senter, dans notre nouvelle colonie, les idées et les prin-
-cipes de la Réforme.(r) Est-il équitable de ne consentir »
+à pour ne pas laisser à des étrangers le soin de représenter, dans notre nouvelle colonie, les idées et les principes de la Réforme.(r) Est-il équitable de ne consentir »
 jamais à constater la réalité de cet effort? Est-il habile
-de laisser toujours répéter et même de répéter avec do-
-cilité que, dans le domaine religieux, la France ne se
+de laisser toujours répéter et même de répéter avec docilité que, dans le domaine religieux, la France ne se
 distingue pas du catholicisme? Qui ne voit le parti
 qui est tiré de cette erreur divulguée avec comFa plaisance?
 Je n'insisterai pas outre mesure sur l'importance de.
@@ -139,8 +127,7 @@ a commencé dès le lendemain de la conquête. Les jésuites:
 sorte de croisade et pour convertir par la force les popula-
 ; tions protestantes au catholicisme. Les Eglises protestantes
 de France avaient envoyé deux hommes, M. Krüger et
-ê M. Lauga, pour examiner la tâche qu'elles auraient à entre-
-prendre dans l'ile. À la fin de 1896, celui qui devait les
+ê M. Lauga, pour examiner la tâche qu'elles auraient à entreprendre dans l'ile. À la fin de 1896, celui qui devait les
 remplacer et qui est mort assassiné en 1897, M. B. Escande,
 écrivait ceci: « Ce que M. Lauga n'a pas dit, c'est que lui
 et M. Krüger ont employé tous les moments libres dont ils
@@ -161,8 +148,7 @@ aux écoles de la mission norvégienne, »
 plume. Je me contenterai de quelques chiffres et de
 quelques citations très officielles.
 
-D'abord, la statistique. La mission protestante fran-
-çaise a construit, à Tananarive, dès 1897, une grande
+D'abord, la statistique. La mission protestante française a construit, à Tananarive, dès 1897, une grande
 école de garçons, pour recueillir les élèves de lancienne école du Palais que les Anglais dirigeaient du
 temps du gouvernement malgache, et qui comprend
 actuellement 350 élèves. Elle a repris, encore à Tananarive, l'école de Faravohitra, créée autrefois par les
@@ -249,8 +235,7 @@ témoignent aujourd'hui. » En janvier 1902, ce même
 M. Delord était nommé chevalier de la Légion d'hon-
 Dans ce numéro du 3 avril 1901, page 5626, je trouve
 ensuite un jugement sur l'école normale de Mahazoarivo:
-« Dans les classes, l'enseignement du français, des élé-
-ments d'histoire et de géographie, du calcul, du solfège
+« Dans les classes, l'enseignement du français, des éléments d'histoire et de géographie, du calcul, du solfège
 est donné avec une méthode essentiellement pratique
 qui a produit, en peu de temps, d'excellents résultats.
 à L'enseignement professionnel a été aussi l'objet de
@@ -316,12 +301,9 @@ mission protestante française, qui s'est, depuis l'année
 ‘TES ment parce qu'ils sont ignorés et qu'une discussion
 
 1! À à quelconque, pour être sérieuse, doit tenir compte des
-à faits réels. En dehors des faits, il n'y a que déclama-
+à faits réels. En dehors des faits, il n'y a que déclamation. Il ne s'agit pas de quémander des faveurs pour
 
-tion. Il ne s'agit pas de quémander des faveurs pour
-
-URSS qui que ce soit. Ceux dont j'ai rappelé les efforts m'élè-
-ne veront aucune protestation contre le développement de
+URSS qui que ce soit. Ceux dont j'ai rappelé les efforts m'élène veront aucune protestation contre le développement de
 : ES l'enseignement officiel et laïque, dont ïls sont les
 
 4 premiers à reconnaître le droit et la nécessité. Ils
@@ -356,9 +338,7 @@ m'a empêché jusqu'à ce jour de reprendre, dans la
 presse, les problèmes compliqués qui n'ont être
 traités dans cette séance parlementaire. Pour la plupart
 des députés, comme pour le public, il ne s'agissait que
-de ceci: la France républicaine, pour conserver l'in13
-
-fluence de notre esprit et de notre langue à l'étranger,
+de ceci: la France républicaine, pour conserver l'influence de notre esprit et de notre langue à l'étranger,
 Are dans les colonies et dans les pays de protectorat,
 LA a-t-elle besoin ou non de s'appuyer sur les congréga-
 (de tions catholiques?
@@ -372,7 +352,7 @@ réglé. Ne parlons plus des noviciats. Essayons de savoir
 ce qui s'est fait et se fait là-bas. Il en est temps.
 JE Ici, comme partout, il faut sérier les problèmes. Le
 : premier qui se présente est celui des contrats conclus,
-;: en 1897, avec les Frères de la Doctrine chrétienne et les
+en 1897, avec les Frères de la Doctrine chrétienne et les
 LUE Sœurs de Saint-Joseph de Cluny. Il est impossible de
 ; ne pas approuver de toute façon, en cette affaire, la
 conduite du général Gallieni. Il a demandé énergiqueil ment la résiliation de ces contrats. Cette laïcisation des
@@ -410,8 +390,7 @@ par des fonctionnaires du gouvérnement.
 « Article 4. — La présente convention est valable
 pour une période de vingt-cinq ans à partir du premier
 
-Le contrat passé avec les Frères de la Doctrine chré-
-tienne était analogue, quoique un peu plus bref dans les
+Le contrat passé avec les Frères de la Doctrine chrétienne était analogue, quoique un peu plus bref dans les
 termes. L'institut mettait quinze Frères à la disposition
 du gouvernement. L'État s'engageait pour une somme
 de 25.000 francs, soit 5.000 francs par groupe de trois
@@ -462,9 +441,7 @@ prendre part à tous les exercices religieux en usage
 chez les Frères. Chacune de ces écoles était, en outre,
 située à quelques pas d'une église catholique; et tous
 les enfants, en certaines circonstances, étaient conduits
-aux offices que célébraient les Pères jésuites. La neu-
-
-tralité n'existait même plus en théorie. Une arme.
+aux offices que célébraient les Pères jésuites. La neutralité n'existait même plus en théorie. Une arme.
 
 admirable de prosélytisme était donnée à la mission
 
@@ -526,7 +503,6 @@ sont rentrés en France. Mais les neuf autres sont restés
 Un qui a été ouverte par Mgr Cazet. Ils dépendent main1:10 tenant de la mission catholique, au lieu de dépendre
 de l'administration. Ce n'est pas tout à fait la même
 1 chose, mais ce n'est pas non plus l'équivalent d'une
-à expulsion.
 Donc il n'y a pas à dire que l'on a écarté la mission
 14 catholique française pour faire place nette devant les
 15 à missions anglaises ou norvégiennes. C'est une fantaisie
@@ -683,9 +659,9 @@ ce école française, etnous savons quels excellents souvenirs
 
 18) ils ont laissés parmi les professeurs et les élèves de la
 
-#4 Faculté de cette ville. D'autre part, la Mission de.
+4 Faculté de cette ville. D'autre part, la Mission de.
 
-4 Londres s'est assuré le concours de deux professeurs
+Londres s'est assuré le concours de deux professeurs
 
 4 dont la langue maternelle est le français. De plus, une
 
@@ -749,13 +725,12 @@ Non, l'influence nécessaire de notre pays n'est
 propager activement, l'œuvre même de notre civili- à
 12 sation, l'enseignement officiel laïque, l'enseignement
 (348 privé des missions françaises de toutes dénominations.
-54 Sous prétexte de sauvegarder ce qui n'est pas en péril,
+Sous prétexte de sauvegarder ce qui n'est pas en péril,
 4 il n'a jamais été nécessaire, et il ne l'est pas davantage
 aujourd'hui, de maintenir, au milieu de populationsen
 majorité protestantes, des écoles officielles qui soient
 
-Le contrat passé avec les Frères de la Doctrine chré-
-tienne et les Sœurs de Saint-Joseph de Cluny a été en
+Le contrat passé avec les Frères de la Doctrine chrétienne et les Sœurs de Saint-Joseph de Cluny a été en
 vigueur du premier janvier 1898 au premier janvier 1904.
 Ce régime d'enseignement n'a pas été le seul qui ait
 fonctionné dans cette période. Un autre, à partir de
@@ -819,8 +794,7 @@ En somme, ces secours, d'une façon visible, n'avaient
 
 point pour but d'encourager les écoles en tant qu'appartenant à telle ou telle société, ni surtout en tant
 qu'écoles de missions. Ils tendaient à faire produire à
-ces écoles des résultats dont elles ne se seraient peut-
-être pas assez préoccupées. On les poussait dans une
+ces écoles des résultats dont elles ne se seraient peutêtre pas assez préoccupées. On les poussait dans une
 direction. On stimulait leur activité dans un certain
 domaine: A la vérité, on leur imposait, pour les jardins
 et les ateliers, de fortes dépenses qui ne seraient point
@@ -888,8 +862,7 @@ considéré comme égal au salaire des contremaîtres employés
 dans les écoles officielles.
 
 « Article 84.— La Colonie pourra également accorder des
-subventions aux écoles de première et de deuxième caté-
-gorie pour leur organisation matérielle (locaux scolaires,
+subventions aux écoles de première et de deuxième catégorie pour leur organisation matérielle (locaux scolaires,
 
 « Article 85. — Les écoles privées doivent être obligatoirement classées dans l'une des catégories ci-dessus, à la
 diligence de leurs directeurs.
@@ -915,15 +888,13 @@ il maintes fois louée dans ces dernières années par les
 autorités oflicielles et qui, à la suite de cet arrêté du
 15 juin 1903, afin d'être maintenue dans la première
 catégorie, a se résoudre à une dépense de 4.000 francs
-pour des constructions et de 1.500 francs pour la réfec-
-tion de son outillage. Ce simple fait, — et il y en a
+pour des constructions et de 1.500 francs pour la réfection de son outillage. Ce simple fait, — et il y en a
 ! d'autres, — en dit long sur les résultats que ce régime
 2 des subventions, entendu comme je viens de l'expliquer, se piquait de poursuivre et pouvait se flatter
 Ce système n'avait absolument aucun rapport avec
 celui qui consiste à protéger spécialement une mission
 religieuse ou à les protéger toutes indifféremment. Il
-n'en encourageait aucune comme telle. Une école quel-
-conque pouvait en bénéficier. Qu'elle pût être fondée
+n'en encourageait aucune comme telle. Une école quelconque pouvait en bénéficier. Qu'elle pût être fondée
 de par une mission catholique ou protestante où par la
 pis « Mission laïque par la Ligue de l'enseignement ou
 a par l'Alliance française, peu importait. On ne donnait
@@ -942,33 +913,21 @@ permettraient pas de consacrer, sur le budget de l'île,
 
 à l'éducation des indigènes, des sommes quelque peu
 
-considérables. En organisant un régime qui était expé-
-
-rimenté en grand pour la première fois dans une colo-
-
-nie française, le général Gallieni avait obtenu un )
+considérables. En organisant un régime qui était expérimenté en grand pour la première fois dans une colonie française, le général Gallieni avait obtenu un )
 
 maximum de résultats avec un minimum de dé-
 
-L'arrêté du 25 janvier 1904 a clos ce régime. Un ave-
-
-nir plus ou moins prochain nous apprendra s'il faut le À
+L'arrêté du 25 janvier 1904 a clos ce régime. Un avenir plus ou moins prochain nous apprendra s'il faut le À
 
 regretter ou non. La tentative était originale, peut-être
 
 heureuse. Elle constituait, en tout cas, une expérience
 
-(1) Le budget total de l'enseignement officiel à Mada-
-
-ron n'étaient point pour l'enseignement primaire (admi-
-
-nistration centrale, École Le-Myre-de-Vilers, etc.). IL est
+(1) Le budget total de l'enseignement officiel à Madaron n'étaient point pour l'enseignement primaire (administration centrale, École Le-Myre-de-Vilers, etc.). IL est
 
 impossible de l'augmenter dans des conditions sérieuses.
 
-La suppression de la subvention aux écoles libres l'enri-
-
-chit d'une centaine de mille francs. Mais, par arrêté du
+La suppression de la subvention aux écoles libres l'enrichit d'une centaine de mille francs. Mais, par arrêté du
 
 2{, mars 1904, une réduction de 30.000 francs a été opérée
 
@@ -976,27 +935,19 @@ sur l'effectif des instituteurs et institutrices européens et
 
 indigènes. Or, j'ai donné plus haut le chiffre des sommes
 
-que la Mission protestante française dépense pour l'in-
-
-struction des Malgaches. La Mission de Londres consacre
+que la Mission protestante française dépense pour l'instruction des Malgaches. La Mission de Londres consacre
 
 au même objet de 115 à 125.000 francs suivant les années
 
-(exactement 123.875 francs en 1902), non compris les trai-
-
-tements des Européens (dont trois professeurs de langue
+(exactement 123.875 francs en 1902), non compris les traitements des Européens (dont trois professeurs de langue
 
 française) employés dans cette œuvre d'éducation.. Le
 
-budget scolaire des Quakers atteint 40.000 francs, non com-
-
-pris les traitements des Européens. Je n'ai les chiffres ni
+budget scolaire des Quakers atteint 40.000 francs, non compris les traitements des Européens. Je n'ai les chiffres ni
 
 de la Mission catholique, ni de la Mission norvégienne.
 
-Mais il est clair que l'État, avant très longtemps, ne son-
-
-gera pas à assurer les charges que le total de tous ces
+Mais il est clair que l'État, avant très longtemps, ne songera pas à assurer les charges que le total de tous ces
 
 budgets représente, c'est-à-dire près d'un million. Est-il
 
@@ -1013,8 +964,7 @@ principes de notre démocratie, la suppression du
 aucun de ces principes. Quelques-uns, dont je suis,
 peuvent meitre en doute l'utilité pratique de cette supUs pression subite. Personne n'en saurait contester la parin faite légalité, la complète conformité avec l'esprit et la
 Le lettre de notre droit public. À
-La L'arrêté du 25 janvier a prétendu inaugurer un ré-
-gime tout à fait nouveau. Il nous reste à l'étudier de
+La L'arrêté du 25 janvier a prétendu inaugurer un régime tout à fait nouveau. Il nous reste à l'étudier de
 
 ..
 Changement de front
@@ -1026,8 +976,7 @@ d'un jardin d'essai ou d'un atelier professionnel, — telle
 ou telle école recevait un secours qui l'aidait à supporter ces charges industrielles ou agricoles, mais qui
 était toujours très au-dessous des dépenses nécessitées. Ce secours étant toujours révocable, le régime
 pouvait disparaître, avec une assez grande rapidité, à
-la suite de décisions d'espèces qui auraient été justi-
-fiées, par exemple, par une mauvaise observation des
+la suite de décisions d'espèces qui auraient été justifiées, par exemple, par une mauvaise observation des
 règlements. Il n'était point nécessaire de tout bousculer et de choquer par des mesures vexatoires des prin-
 
 Ce régime pouvait aussi prendre fin d'une autre
@@ -1041,20 +990,17 @@ brutalement, au lendemain de dépenses réclamées et
 obtenues des particuliers, elle était légitime de tous
 points. J'admets qu'elle pouvait paraïtre exigée par le
 principe de l'absolue laïcité de l'État. Mais, alors, il
-fallait, tout simplement et tout franchement, en appe35
-
-ler à ce principe et l'appliquer avec les transitions
+fallait, tout simplement et tout franchement, en appeler à ce principe et l'appliquer avec les transitions
 1 1 nécessaires. Surtout, il était inutile de compliquer ce
 1 à changement soudain de régime par d'autres mesures
-!; qui violent notre droit public et qui sont radicalement
+qui violent notre droit public et qui sont radicalement
 il contraires à l'esprit de notre démocratie.
 il: #4 Le principe de la laïcité, entendu dans le sens le plus
 rigoureux, n'a pas été mis en avant pour justifier la
 00) suppression des subventions conditionnelles. Alors
 qu'il aurait sufli pour expliquer l'acte gouvernemental,
 ce principe n'a pas même été invoqué. Il a été remnl 4 placé par des raisons plus discutables.
-21 mars dernier, par le ministre des colonies, le géné-
-ral Gallieni reconnaît que toutes les sociétés s'occupant
+21 mars dernier, par le ministre des colonies, le général Gallieni reconnaît que toutes les sociétés s'occupant
 d'instruction avaient accepté « avec empressement,
 ï même avec un certain enthousiasme les programmes
 HAL d'enseignement rédigés par lui. Puis il ajoute que,
@@ -1071,8 +1017,7 @@ til d'autres, ils sont sous ma main, et je suis tout
 4 prêt à les produire. (x)
 
 à (1) Journal Officiel de Madagascar du 3 avril 1901: \.
-« Le général a visité, à Soavina, les établissements sco-
-laires de la London Missionary Society, très bien tenus par
+« Le général a visité, à Soavina, les établissements scolaires de la London Missionary Society, très bien tenus par
 
 Je trouve dans le Journal Officiel de Madagascar, à
 la date du 27 avril 1901, un discours prononcé par
@@ -1190,8 +1135,7 @@ plus grande importance, qui devait, dans ses prévisions,
 à tenir de beaucoup la première place et en vue duquel il
 pendant ces trois dernières années, accordé aux écoles
 privées des subventions de plus en plus importantes:
-4 « Les écoles de troisième catégorie, dans lesquelles l'ensei-
-gnementest purement pédagogique, et quireprésentent820/0
+4 « Les écoles de troisième catégorie, dans lesquelles l'enseignementest purement pédagogique, et quireprésentent820/0
 du nombre total actuel des écoles des missions, sont bien
 1 prévues et classées par les arrêtés des 16 avril 1899 et 25 mars
 4 1901; mais, en accordant le bénéfice du classement à ces
@@ -1210,8 +1154,7 @@ loin d'avoir l'organisation méthodique qu'on s'est attaché
 « Le plus souvent, au lieu de passer sous la direction de
 leurs maîtres par toutes les phases d'un enseignement
 professionnel donné, les élèves sont, non pas instruits,
-mais simplement utilisés à la fabrication courante du mobilier et du matériel nécessaires aux missions. On les spé-
-cialise ainsi, non pas dans un métier, mais dans un certain
+mais simplement utilisés à la fabrication courante du mobilier et du matériel nécessaires aux missions. On les spécialise ainsi, non pas dans un métier, mais dans un certain
 détail de métier, suivant le principe de la division du,
 travail, qui est sans doute le plus avantageux au point de
 vue du rendement industriel dans une usine ou un grand
@@ -1255,8 +1198,7 @@ Celui du 25 janvier 1904 y met fin radicalement. Que:
 de Je fais allusion à la critique qu'on vient de lire dans
 la note précédente. Le général n'admet pas que, dans
 l'atelier d'une école, on puisse construire des bancs pour
-l'école même. S'il faut des bancs et des tables, on les achè-
-tera. Il est inutile, pour former un bon menuisier, de fabrira quer un meuble réel. Les longues heures passées à l'atelier
+l'école même. S'il faut des bancs et des tables, on les achètera. Il est inutile, pour former un bon menuisier, de fabrira quer un meuble réel. Les longues heures passées à l'atelier
 ; (27 par semaine les deux premières années) sont employées
 à de fastidieux assemblages variés. Le bois, — coùteux à
 Madagascar, — est gâché, les outils abîmés, en pure perte,
@@ -1288,14 +1230,12 @@ renoncé à faire venir d'Europe l'outillage qu'elle décidait de se procurer et
 dans la colonie, l'avait acheté à Tananarive.
 
 Ce qui est arrivé à la mission protestante française
-est caractéristique. L'arrêté est du 15 juin. Le repré-
-sentant de cette mission examine avec la direction de
+est caractéristique. L'arrêté est du 15 juin. Le représentant de cette mission examine avec la direction de
 l'enseignement ce que celle-ci désire et exige. Il prépare
 la proposition qu'il fera à la conférence des missionpaires qui se réunit à Tananarive du 5 au 15 août.
 Celle-ci se trouve embarrassée par les difficultés financières d'une nouvelle entreprise. Elle décide pourtart
 que l'on demandera à la France protestañte une somme
-de 5.500 francs, qui sera destinée à l'école de Mahé-
-réza: 4.000 francs pour des constructions, 1.500 francs
+de 5.500 francs, qui sera destinée à l'école de Mahéréza: 4.000 francs pour des constructions, 1.500 francs
 pour des outils. La demande part. Ceux qui la reçoivent
 n'hésitent pas à se mettre en quête de fonds. M. DurandGasselin, de Nantes, à qui nos colonies doivent certaine
 
@@ -1311,9 +1251,9 @@ son appel du 15 juin n'était pas sincère et qu'il était,
 ; dès cette époque, décidé à ne faire qu'un simulacre de
 collaboration et à biffer sa propre parole après avoir
 provoqué des gens à des dépenses considérables et
-13 Pourquoi ne pas dire, en toute liberté, que les événe14 ments de France, — peut-être des instructions venues de
+Pourquoi ne pas dire, en toute liberté, que les événe14 ments de France, — peut-être des instructions venues de
 Paris, — lui imposaient un changement de politique?
-1 Pourquoi ne pas dire que le principe de l'absolue laïcité
+Pourquoi ne pas dire que le principe de l'absolue laïcité
 il à de l'État lui faisait un devoir de supprimer, avec toutes
 les transitions nécessaires, un régime qui peut-être ne
 violait pas ce principe, mais qui, pour quelques-uns,
@@ -1322,7 +1262,7 @@ avait l'air de le violer? Tout le monde aurait compris
 langage aurait été plus respectueux pour des hommes
 À qui méritaient quelques égards en récompense de leur
 (es bonne volonté. Il aurait été plus digne du gouvernement
-4 Mais, s'il n'y avait dans l'arrêté du 25 janvier que
+Mais, s'il n'y avait dans l'arrêté du 25 janvier que
 1 cette suppression un peu brutale d'un régime accueilli
 par tous avec complaisance, l'idée ne me serait pas
 venue d'en parler ici. D'autres dispositions, qu'on n'a
@@ -1398,17 +1338,14 @@ l'enseignement officiel comptait 200 écoles avec
 20.770 élèves, la mission catholique écoles avec À
 16.083 élèves, la mission protestante française 110 écoles
 avec 10.661 élèves, la Société de Londres 104 écoles À
-(x) Parmi tous ces efforts, il y en a de toutes les qua-
-lités. Le gouvernement général, pour agir sur les imagi-
-nations, a donné à ses instituteurs un bel uniforme,
+(x) Parmi tous ces efforts, il y en a de toutes les qualités. Le gouvernement général, pour agir sur les imaginations, a donné à ses instituteurs un bel uniforme,
 magnifiquement galonné. Il me suflit de sourire. D'autres
 procédés, pour peupler les écoles officielles, ont été employés?
 sans l'aveu de l'administration, par des personnages en mal ta
 de zèle. Un jour, l'officier commandant le cercle de;
 Manjakandriana, profitant de l'absence momentanée de
 M. Delord, arrive à l'école protestante d'Ambatomanga. à
-Il demande la liste des élèves, appelle les cinquante pre-
-miers inscrits, les fait mettre en rang, puis commande:
+Il demande la liste des élèves, appelle les cinquante premiers inscrits, les fait mettre en rang, puis commande:
 « Par file à droite, marche! » Il se rend à l'école catholique
 et fait la même opération. Les cent élèves, réunis dans
 l'école officielle, reçurent de l'officier l'avis de n'avoir plus;
@@ -1439,8 +1376,7 @@ l'instituteur n'en avait parfois que 3 ou 4 présents, bien
 que sa femme l'aidàt dans sa tâche et reçût, elle aussi,
 comme institutrice, un salaire du gouvernement. L'école
 protestante avait, à la même date, 150 présences au moins,
-et l'école catholique de 50 à 60. Le même officier, à Ifara-
-riana, créa l'école officielle en chassant purement et simLu plement l'instituteur de l'école libre et en le remplaçant
+et l'école catholique de 50 à 60. Le même officier, à Ifarariana, créa l'école officielle en chassant purement et simLu plement l'instituteur de l'école libre et en le remplaçant
 Jar par un instituteur du gouvernement. Des faits analogues
 se sont passés, en 1897, dans le Vonizongo.
 
@@ -1508,8 +1444,7 @@ plusieurs quartiers de la ville; ils reçurent la destination
 
 Un autre local, moins grand, avait été cédé jadis,
 dans ce même quartier, en suite d'un échange, à la
-mission protestante française. Il a été repris par l'admi-
-nistration; et, là, celle-ci se propose bien d'organiser;
+mission protestante française. Il a été repris par l'administration; et, là, celle-ci se propose bien d'organiser;
 tuteurs indigènes, fut installée à Ambohimitsinbina; elle
 fonctionne depuis le 4 janvier 1904;
 
@@ -1520,8 +1455,7 @@ pour la section sakalava de l'école administrative;
 n'ont être utilisés; mais l'emplacement sur lequelils sont
 situés est réservé pour l'installation ultérieure d'une école
 
-« 4. — Quant à l'immeuble de Faravohitra, il est actuel-
-lement occupé par le groupe scolaire européen.
+« 4. — Quant à l'immeuble de Faravohitra, il est actuellement occupé par le groupe scolaire européen.
 
 « L'école de garçons européens était installée auparavant
 à Ambohijatovo, dans le local de l'école administrative;;
@@ -1532,8 +1466,7 @@ qui ne répondait nullement à sa destination. Depuis le
 Faravohitra, dans l'immeuble qu'occupaient les Frères et
 qui a reçu tous les aménagements désirables. La cour, très
 vaste, est divisée en deux parties par un mur; chaque école hi.
-a son entrée distincte. Une commission d'hygiène, com-
-posée de MM. Berthier, administrateur-maire, Hallot, Gros,
+a son entrée distincte. Une commission d'hygiène, composée de MM. Berthier, administrateur-maire, Hallot, Gros,
 docteur Bonneau, Cavrel, Lenclud a visité les locaux, les 5,308
 dépendances et le mobilier scolaire. Elle s'est montrée “2
 satisfaite de l'installation du groupe scolaire, qu'elle a
@@ -1565,13 +1498,10 @@ Ris analogue à celle des garçons. Une institutrice dirige l'école
 nel ils restent sous la surveillance des maîtres pendant l'in11 tervalle qui sépare les deux séances de classe du matin
 et du soir. Le ménage d'instituteurs placé à la tête du groupe
 scolaire est autorisé à prendre des pensionnaires et des
-demi-pensionnaires. Les prix de la pension et de la demi-
-pension seront débattus entre les parents et le directeur
-de l'école, sans aucune intervention de la part de l'admi-
-nistration, qui décline toute responsabilité à ce sujet. De
+demi-pensionnaires. Les prix de la pension et de la demipension seront débattus entre les parents et le directeur
+de l'école, sans aucune intervention de la part de l'administration, qui décline toute responsabilité à ce sujet. De
 plus, des études surveillées pourront être organisées sur
-la demande des parents moyennant une rétribution men-
-suelle dont le montant sera fixé par le chef du service de
+la demande des parents moyennant une rétribution mensuelle dont le montant sera fixé par le chef du service de
 l'enseignement. »
 ji: (1) D'après le Journal Officiel de Madagascar du 7 mai,
 elle devait être ouverte le
@@ -1632,14 +1562,11 @@ d'enfants qu'elle comprend à la campagne, la limitation
 introduite par le dernier arrêté n'a peut-être pas une
 très grande importance. Ce n'est pas l'avis, je le sais,
 de bien des instituteurs. Ils ont remarqué ou -cru )
-remarquer que, chez beaucoup de leurs élèves, jusque-
-médiocres et en apparence peu intelligents, il se pro-:
+remarquer que, chez beaucoup de leurs élèves, jusquemédiocres et en apparence peu intelligents, il se pro-:
 duisait, vers treize et quatorze ans, une sorte d'éclosion
 de l'esprit. Ils ne peuvent s'empêcher de regretter que A
 l'on fixe, juste à ce moment, l'interruption forcée de
-l'étude. Je n'insiste pas sur cette observation, qui a pour-
-
-tant son intérêt. C'est un autre inconvénient que je
+l'étude. Je n'insiste pas sur cette observation, qui a pourtant son intérêt. C'est un autre inconvénient que je
 ï relève dans une ville comme Tananarive.
 Je n'ignore pas ce que l'on reproche à certaines écoles
 privées. C'est d'accueillir trop facilement des élèves qui
@@ -1650,8 +1577,7 @@ la paresse. Ne vaudrait-il pas mieux les prier d'aller se
 reposer ailleurs ou, plutôt, d'aller travailler? C'est
 indiscutable. Encore ne faudrait-il pas exagérer ce cas.
 L'informateur oflicieux de la Nouvelle Revue ne dit pas
-la vérité quand il a l'air d'évaluer à 78 9/0 de l'effec-
-tif des écoles privées ce personnel d'oisifs. Pour qui est
+la vérité quand il a l'air d'évaluer à 78 9/0 de l'effectif des écoles privées ce personnel d'oisifs. Pour qui est
 au courant des choses, cette affirmation est le contraire
 na) même de la vérité. Il y a des sociétés qui n'ont pas
 assez réagi, dans le passé, contre cet abus. Mais elles
@@ -1662,8 +1588,7 @@ et dont on ne tient aucun compte. Que ne parle-t-on de
 Le ces centaines d'enfants, plus d'un millier, qui grouillent
 dans Tananarive, qui ne fréquentent aucune école et
 qui ne reçoivent, à peu près, aucune éducation? C'est
-tir un fait qu'avant seize ans, un garçon, là-bas, ne tra-
-vaille pas. Et il ne travaille pas, tout simplement parce
+tir un fait qu'avant seize ans, un garçon, là-bas, ne travaille pas. Et il ne travaille pas, tout simplement parce
 ploie dans aucune industrie quelconque. Il passe son
 temps dans la rue. Il n'en ferait pas un moins bon usage
 s'il lui prenait fantaisie de le passer à l'école.
@@ -1696,8 +1621,7 @@ Pas plus que les autres Malgaches, ils n'auront de travail régulier avant seize
 bandes de gamins dont je viens de parler. Je conçois
 que l'administration songe à mettre hors de certaines
 écoles les quelques douzaines d'adultes qui les encombrent, et qui risquent, tout au plus, d'apprendre quelque
-chose de notre langue. Pour corriger ce mince inconvé-
-nient, fallait-il créer, de façon à peu près inévitable, un
+chose de notre langue. Pour corriger ce mince inconvénient, fallait-il créer, de façon à peu près inévitable, un
 
 mal plus grand? L'augmentation presque forcée du
 1 vagabondage est une manière assez étrange de contriEAN:
@@ -1736,8 +1660,7 @@ hommes qui pensent surtout au développement économique de la colonie, elle ne 
 1 qui se consacrent à l'éducation morale des indigènes.
 FRn Il ne faut pas être grand clerc pour savoir que des
 « déracinés » ne valent souvent pas cher au point de
-1] vue spirituel. J'ai sous les yeux une lettre qu'un mis-
-sionnaire norvégien adressait, l'année dernière, à un
+1] vue spirituel. J'ai sous les yeux une lettre qu'un missionnaire norvégien adressait, l'année dernière, à un
 ill des Français qui font le plus pour les indigènes de l'ile.
 la Les idées qu'elle traduit sont celles de tous les
 hommes, sans exception, qui ont été conduits à étudier
@@ -1797,8 +1720,7 @@ sûre, aux bienfaits de la liberté et aux derniers progrès
 de la civilisation. »
 Ces « spéculations » sur les collectivités sont de la
 Le métaphysique, et de la mauvaise métaphysique. (1)
-Le Elles le sont toujours. Elles le sont de façon très parti-
-culière à Madagascar. La race malgache n'est pas une. « Elle est un chef-d'œuvre de complexité. Les spécimens
+Le Elles le sont toujours. Elles le sont de façon très particulière à Madagascar. La race malgache n'est pas une. « Elle est un chef-d'œuvre de complexité. Les spécimens
 IL. les plus divers d'humanité y sont croisés et combinés.
 ; Et l'un des résultats de ce phénomène ethnique, c'est
 (ie qu'il y entre les individus, des différences colossales,
@@ -1810,8 +1732,7 @@ début de leur évolution. L'expérience est faite par tous
 ceux qui enseignent à Madagascar: au moment précis!
 f'aA où ils constatent que la plupart des élèves ont donnétout
 ce qu'ils pouvaient, ils observent que quelques autres,
-— un tout petit nombre, si l'on veut, — ne demande-
-raient qu'à prendre un nouvel élan. Il y a une élite,
+— un tout petit nombre, si l'on veut, — ne demanderaient qu'à prendre un nouvel élan. Il y a une élite,
 (1) Quand on a connu beaucoup de Malgaches, on est tenté
 4 de ne pas admettre le tableau, qui nous est fait par avance,
 La de l'évolution de cette race. Entre les métiers manuels et
@@ -1858,8 +1779,7 @@ d'elle? C'est une pédagogie spéciale qu'il faudrait
 
 tenter sur ces intelligences qui n'ont pas encore une
 hérédité d'attention, sur ces raisons qui se contentent
-1 vite d'imiter nos raisonnements et qui manquent d'ori-
-ginalité et d'initiative, sur ces caractères où le ressort
+1 vite d'imiter nos raisonnements et qui manquent d'originalité et d'initiative, sur ces caractères où le ressort
 1 est presque à créer. Il y a des méthodes d'éducation
 à essayer, et cela ne pourrait se faire, dans l'intérêt de
 ces enfants, que dans un établissement où ils seraient
@@ -1869,8 +1789,7 @@ dernier, à M. André Chazel, licencié lettres de l'UniverJEU sité de Paris, l
 depuis longtemps, qui ne devait s'occuper que d'une élite:
 peu nombreuse et l'élever d'après des méthodes toutes diffé-
 (1 rentes de celles qui sont employées par les jésuites dans leur
-collège Saint-Michel d''Amparibé, à Tananarive. La fonda-
-tion de cette école est interdite, et le collège Saint-Michel
+collège Saint-Michel d''Amparibé, à Tananarive. La fondation de cette école est interdite, et le collège Saint-Michel
 recevoir une autre destination. Mais voici en quels
 termes M. André Chazel expliquait, dans une petite brochure adressée à quelques souscripteurs, l'insuffisance d'une
 classe et la nécessité d'une petite école spéciale (je publie,
@@ -1926,19 +1845,16 @@ HAUT Le général Gallieni n'a jamais favorisé ces tendances.
 an Avec un courage qui l'honore, il les a souvent comHUE AN d'aucuns se permettent d'avoir pour les indigènes. Le premier
 [144 août 1903, M. le pasteur Jean Bianquis inaugurait, à TanaFil narive, le temple d'Andohalo consacré aux services relihe gieux français. Il définissait dans son sermon la tâche
 NES entreprise par les Églises protestantes de France dans la
-grande île. Après avoir parlé de nos compatriotes, il con-
-tinua dans les termes qu'on lire:
+grande île. Après avoir parlé de nos compatriotes, il continua dans les termes qu'on lire:
 Ê « … Et, en même temps, maintenir au peuple de ce pays
 es le bienfait de la piété chrétienne, de celle qui émancipe les
 âmes individuelles et conduit les collectivités humaines
 vers la réalisation de leurs destinées supérieures; répandre
-dans la jeunesse malgache une instruction vraiment libé-
-rale; guider, pour notre part, son essor vers toutes les
+dans la jeunesse malgache une instruction vraiment libérale; guider, pour notre part, son essor vers toutes les
 LE vérités; apprendre aux hommes de demain leurs devoirs
 le afin qu'ils puissent ètre rendus capables d'exercer leurs
 À droits; diffuser, jusque dans les provinces lointaines de
-NE l'île où la Providence nous a conduits, cet esprit évangé-
-lique qui est le principal facteur des sociétés modernes et
+NE l'île où la Providence nous a conduits, cet esprit évangélique qui est le principal facteur des sociétés modernes et
 alé la meilleure garantie de leur prospérité, travailler enfin à
 éclairer, à redresser, à fortifier la conscience à l'école de
 Ne Jésus, le Sauveur des pécheurs et le modèle de l'humanité
@@ -1982,8 +1898,7 @@ Ce n'est pas en vain que le drapeau tricolore porte inscrit À
 dans ses plis et promène à travers le monde de nos colonies les mots: « liberté, égalité, fraternité! » Que d'autres
 conquièrent les peuples pour les exploiter, ou pour les
 détruire et les remplacer: la France se doit à elle-même de
-ne les conquérir que pour travailler ensuite à leur affranchissement, pour leur ouvrir l'accès à la civilisation supé-
-rieure. Si ces nobles traditions couraient jamais le risque
+ne les conquérir que pour travailler ensuite à leur affranchissement, pour leur ouvrir l'accès à la civilisation supérieure. Si ces nobles traditions couraient jamais le risque
 de se perdre, c'est dans le cœur des protestants français
 qu'on les retrouverait. Sans séparer nos destinées de celles
 de la patrie bien-aimée, nous voulons être des bienfaiteurs,
@@ -2002,9 +1917,7 @@ EUR aurait tenu le langage contraire, ils ne l'auraient pas
 
 fon énergiquement réprouvé et flétri. Parlons franchement:
 
-n'auraient-ils pas été heureux de dénoncer une contradic-
-
-ill tion flagrante entre l'Évangile et les principes de la Révo-
+n'auraient-ils pas été heureux de dénoncer une contradicill tion flagrante entre l'Évangile et les principes de la Révo-
 Ces attaques n'ayant se produire, d'autres les ont
 ( remplacées. M. Bianquis avait prononcé son sermon le
 
@@ -2012,9 +1925,7 @@ ALU premier août. Dans son numéro du 6, l''Écho de Madagascar
 
 il éleva sa vigoureuse protestation. Après avoir rappelé que
 ï les Anglais ont souvent la main très dure pour les indif gènes, il ajoutait:
-jui « Que nous employions des moyens plus miel pour con-
-
-rail server, voire même pour conquérir l'affection d'un peuple,
+jui « Que nous employions des moyens plus miel pour conrail server, voire même pour conquérir l'affection d'un peuple,
 
 (ta soit, c'est entendu; c'est plus conforme à notre tempéra-
 
@@ -2024,8 +1935,7 @@ DELLE ment; mais de à dire que nous sommes les émancipajs teurs désignés et 
 
 nul « Nous avons ici complètement transformé la condition
 
-1 sociale des indigènes; ils vivaient sous un régime d'oppres-
-sion; la grande masse était réduite à l'esclavage, nous l'en
+1 sociale des indigènes; ils vivaient sous un régime d'oppression; la grande masse était réduite à l'esclavage, nous l'en
 jun avons libérée... »
 
 ill 11 me sera permis de faire remarquer, en passant, que, si:
@@ -2072,8 +1982,7 @@ se donner pour démocrates. Mais je demande aux lecteurs
 de bonne foi, à ceux qui ont tout à l'heure le texte même
 du discours prononcé, je leur demande si M. Bianquis
 a réclamé pour les Malgaches les droits civiques. Il
-savait et il sait, aussi bien que n'importe quel journaliste, que ce serait folie de transformer, du jour au lende-
-main, en citoyens de notre République, des multitudes
+savait et il sait, aussi bien que n'importe quel journaliste, que ce serait folie de transformer, du jour au lendemain, en citoyens de notre République, des multitudes
 
 Qu'il l'ait voulu ou non, son interdiction d'un enseiLi gnement un peu général pour la petite élite malgache
 15 est en accord avec, une politique qui, si elle était
@@ -2108,12 +2017,10 @@ unions momentanées que Loti a célébrées dans Madame
 Dans un bureau de l'administration, à Tananarive, un
 chef de service fait la philosophie de la race malgache.
 C'est son droit et son devoir, puisqu'il est chargé de à
-légiférer pour cette race. Il ne veut pas être un législa-
-teur empirique et sans principes directeurs. Il a bien
+légiférer pour cette race. Il ne veut pas être un législateur empirique et sans principes directeurs. Il a bien
 raison. Puis, sa philosophie une fois construite, il obtient
 pour elle l'agrément de ceux qui ont les pouvoirs en
-mains. Il la traduit dans un règlement scolaire. Désor-
-mais, c'est la doctrine officielle sur l'avenir de la race
+mains. Il la traduit dans un règlement scolaire. Désormais, c'est la doctrine officielle sur l'avenir de la race
 malgache et sur les méthodes pédagogiques qui lui
 conviennent; toute autre est interdite.
 L'hérésie est condamnée d'avance. On ne la poursuivra pas jusqu'au fond des consciences. Mais on ne:
@@ -2366,14 +2273,12 @@ l'enseignement libre. Il a été rédigé pour les école
 primaires officielles; il se trouve dans le chapitre qui
 les concerne et il fait suite à l'article qui vise leur création. Ce n'est que par extension qu'il atteint les écoles
 libres (voir l'article 76). Le régime d'arbitraire dont je
-parle n'a donc pas été inventé pour tracasser une caté-
-gorie particulière d'établissements. Il règne absolument
+parle n'a donc pas été inventé pour tracasser une catégorie particulière d'établissements. Il règne absolument
 sur tous.
 
 On nous dit: « Des Malgaches pourront être autorisés, etc... » Soit. Mais lesquels seront capables de
 recevoir ce privilège? Quelles conditions devront-ils
-remplir? L'administration n'hésite pas dans sa ré-
-ponse: « Ce seront les jeunes gens qui auront bien
+remplir? L'administration n'hésite pas dans sa réponse: « Ce seront les jeunes gens qui auront bien
 marqué leur zèle, leur bonne volonté, et en même
 temps leurs dons d'intelligence. » En vérité, on s'attendaiït un peu à cette réponse. On ne se représente pas
 qu'une autre puisse être donnée. Mais la question très
@@ -2381,9 +2286,7 @@ qu'une autre puisse être donnée. Mais la question très
 … délicate est de savoir quelle autorité discernera et
 désignera les rares élus qui seront admis à un traitement spécial.
 
-Je vois bien que M. le chef du service de l'enseignement a son mot à dire dans tous les cas. Toute autori-
-sation est prononcée, en définitive, par lui. On ne sau-
-rait mettre en doute son équité personnelle. Mais il est
+Je vois bien que M. le chef du service de l'enseignement a son mot à dire dans tous les cas. Toute autorisation est prononcée, en définitive, par lui. On ne saurait mettre en doute son équité personnelle. Mais il est
 
 ne Dupae Le
 
@@ -2437,8 +2340,7 @@ en conscience, à accorder un tel crédit à leurs subordonnés indigènes dont 
 de se passer et par les yeux desquels ils sont souvent;
 condamnés à voir les choses et les hommes.
 
-On sait assez quels ont été, depuis un temps immé-
-morial, les traditions de l'administration malgache. Le
+On sait assez quels ont été, depuis un temps immémorial, les traditions de l'administration malgache. Le
 « pot-de-vin » y était érigé en institution. Une charge
 publique conférée à un individu n'était guère considérée
 par celui-ci que comme un moyen de s'enrichir au plus
@@ -2496,18 +2398,14 @@ Il faut relire avec soin cet article pour en découvrir
 toute la beauté. Au premier abord, elle risque de rester
 tout à fait inaperçue. On ne voit pas immédiatement
 que, d'un simple trait de plume, est refusée à tout
-blanc, fat-il muni de tous les brevets possibles, l'auto-
-
-risation de tenir une école primaire. Il peut ouvrir une
+blanc, fat-il muni de tous les brevets possibles, l'autorisation de tenir une école primaire. Il peut ouvrir une
 école d'apprentissage industriel et agricole, mais il n'a
 pas le droit de fonder ou de diriger une école primaire.
 Il avait ce droit en France; il l'y a laissé en s'embarquant à Marseille pour Madagascar.
 
 Pourquoi est-il ainsi, de façon sommaire, exproprié
 
-dans une colonie française d'une liberté que la loi fran-
-
-çaise lui garantit à de certaines conditions? Il arrive
+dans une colonie française d'une liberté que la loi française lui garantit à de certaines conditions? Il arrive
 
 VUE sans doute souvent tue les indigènes ne sont pas investis
 
@@ -2529,11 +2427,7 @@ arrivant dans une colonie, le bénéfice de nos lois.
 
 Il faut véritablement se mettre l'esprit à la torture
 
-pour découvrir le motif qui a fait inscrire cette extraor-
-
-dinaire disposition dans l'arrêté scolaire de Mada-
-
-gascar. Je constate que l'enseignement de la langue
+pour découvrir le motif qui a fait inscrire cette extraordinaire disposition dans l'arrêté scolaire de Madagascar. Je constate que l'enseignement de la langue
 
 française a sa large place dans le programme des écoles
 
@@ -2548,11 +2442,7 @@ pour lequel nous les aurions crus particulièrement qua-
 Le sujet est trop sérieux pour que je m'abandonne à
 
 des plaisanteries faciles. Si l'instruction, dans les écoles
-primaires, avait lieu en malgache et si elle ne sup-
-
-posait que la connaissance du malgache, on compren-
-
-drait que les indigènes en fussent seuls chargés. Mais,
+primaires, avait lieu en malgache et si elle ne supposait que la connaissance du malgache, on comprendrait que les indigènes en fussent seuls chargés. Mais,
 
 Elprs à tort ou à raison, on décrète qu'il n'y aura pas une
 seule de ces écoles où les élèves ne doivent étudier le
@@ -2600,8 +2490,7 @@ Ils affluaient aussitôt vers ces établissements, non
 
 ê point parce que les maîtres étaient des religieux, mais
 4 parce qu'ils étaient européens et devaient bien savoir
-notre langue. Les gens qui ne se souciaient pas d'aban-
-donner leurs élèves au prosélytisme des Frères étaient
+notre langue. Les gens qui ne se souciaient pas d'abandonner leurs élèves au prosélytisme des Frères étaient
 ne contraints de placer, eux aussi, des blancs dans leurs
 écoles primaires. Soudain, l'on résilie le contrat conclu
 avec une congrégation par M. André Lebon. Et, par
@@ -2609,18 +2498,14 @@ avec une congrégation par M. André Lebon. Et, par
 brevetés dans une école primaire.
 
 Je suis bien fâché de le dire, mais il n'y a aucun lien
-nécessaire entre cette résiliation de l'accord et l'inter2 diction dont on la fait suivre. L'accord était contes-
-
-table et devait tôt ou tard prendre fin. Quand un
+nécessaire entre cette résiliation de l'accord et l'inter2 diction dont on la fait suivre. L'accord était contestable et devait tôt ou tard prendre fin. Quand un
 
 Français se trouve dans les conditions prévues par la
 
 loi, son droit à ouvrir une école primaire est absolu et
 
 Faut-il donc se résigner à ne rien comprendre à la
-mesure qui frappe ainsi nos concitoyens et les expro-
-
-prie d'un droit? Oui, si l'on cherche l'explication dans
+mesure qui frappe ainsi nos concitoyens et les exproprie d'un droit? Oui, si l'on cherche l'explication dans
 les principes. Non, si l'on consent à tenir compte de
 préoccupations tout à fait empiriques.
 
@@ -2678,9 +2563,7 @@ capable de lire nos livres. Enfin, à quelque rang social
 que ce soit, ils sentent peu à peu leur esprit, leurs tendances, leurs capacités respectives s'orienter vers le
 peuple dont ils apprennent l'idiome. C'est incontes-
 
-C'est pourquoi l'on ne peut qu'approuver le gouver-
-
-nement général pour l'effort, commencé dès le lendemain de la conquête, d'introduire l'enseignement du
+C'est pourquoi l'on ne peut qu'approuver le gouvernement général pour l'effort, commencé dès le lendemain de la conquête, d'introduire l'enseignement du
 français dans toutes les écoles supérieures de Tananarive. C'est dans ces écoles que se donnaient autrefois
 ces leçons d'anglais dont on a prétendu à tort qu'elles
 étaient de règle dans tous les établissements d'instruction
@@ -2701,12 +2584,10 @@ d'une colonie. L'administration française n'hésite pas
 
 Les « Instructions » du 15 juin 1903 /Journal Officiel de
 Madagascar du 20 juin 1903) contiennent un historique de
-l'enseignement dans la colonie. J'en extrais ce qui se rap-
-porte à la langue française. C'est le général Gallieni qui
+l'enseignement dans la colonie. J'en extrais ce qui se rapporte à la langue française. C'est le général Gallieni qui
 
 « Circulaire du 5 octobre 1896. — A la suite de la loi
-d'annexion du 10 août 1896, ma circulaire du 5 octobre suivant posa pour la première fois quelques principes géné-
-raux, d'après lesquels l'enseignement fut organisé, au
+d'annexion du 10 août 1896, ma circulaire du 5 octobre suivant posa pour la première fois quelques principes généraux, d'après lesquels l'enseignement fut organisé, au
 début, dans les écoles de Madagascar.
 
 « Cette circulaire insistait notamment sur l'obligation
@@ -2722,10 +2603,8 @@ Ni enseignement dans un sens résolument français et elle
 langue était l'un des plus puissants moyens dont nous disposions pour assimiler nos nouveaux sujets, les initier à
 à nos idées et à nos coutumes et, enfin, les préparer à fournir
 le concours nécessaire aux entreprises de nos colons. »
-; « Circulaire du 11 novembre 1896. — Ces principes géné-
-raux furent précisés un peu plus tard par ma circulaire du
-4 11 novembre 1896, qui rappelait, en les détaillant davan-
-tage, les prescriptions antérieures concernant l'obligation
+; « Circulaire du 11 novembre 1896. — Ces principes généraux furent précisés un peu plus tard par ma circulaire du
+4 11 novembre 1896, qui rappelait, en les détaillant davantage, les prescriptions antérieures concernant l'obligation
 de l'instruction primaire et de l'enseignement du français,
 etc... Je ne saurais mieux faire que de rappeler ici ces
 prescriptions du début, qui conservent aujourd'hui toute
@@ -2740,8 +2619,7 @@ des emplois du gouvernement. »
 « Circulaire et arrêté du 16 avril 1899 et programme
 d'enseignement du 26 juillet 1899. —..Dans leur ensemble,
 
-toyens exerçant dans les écoles serait toujours mé-
-diocre. En vertu de l'arrêté du 25 janvier, il est nul,
+toyens exerçant dans les écoles serait toujours médiocre. En vertu de l'arrêté du 25 janvier, il est nul,
 absolument nul. Personne ne peut professer dans une
 école primaire s'il est Français. La totalité de ces
 maîtres seront des Malgaches. Il est absurde de compter sur eux pour instruire les autres Malgaches dans
@@ -2820,8 +2698,7 @@ rouge, Le Vieux Marcheur, etc. Voilà ce qui a Le plus grand
 en quelque sorte administrative, d'un patois informe et
 
 Voilà une première raison de fait. En voici une
-seconde qui n'est pas, non plus, de théorie. L'administration, en ordonnant l'enseignement universel du fran-
-çais, droit contre un des buts qu'elle poursuit. Elle
+seconde qui n'est pas, non plus, de théorie. L'administration, en ordonnant l'enseignement universel du français, droit contre un des buts qu'elle poursuit. Elle
 est la première à prendre la responsabilité d'un mal
 qu'elle voudrait empêcher.
 
@@ -2833,23 +2710,20 @@ rapport avec la vie actuelle des Malgaches, sans utilité
 pratique pour eux et par suite sans profit pour la
 colonie. De ses avertissements perpétuels aux écoles
 libres. De les restrictions abusives qu'il apporte,
-contre le vœu d'une élite indigène, au droit de s'in-
-succès auprès de nos « sujets » et leur enseigne le respect
+contre le vœu d'une élite indigène, au droit de s'insuccès auprès de nos « sujets » et leur enseigne le respect
 de notre pays.
 
 A titre de simple curiosité, je découpe dans le Journal
 Officiel de Madagascar, du 23 juin 1903, la note suivante:
 « Avant son départ en tournée, M. le gouverneur général
-a décidé de mettre pendant son absence, et pour six repré-
-sentations, sa loge du théâtre à la disposition des meilleurs
+a décidé de mettre pendant son absence, et pour six représentations, sa loge du théâtre à la disposition des meilleurs
 élèves des écoles administratives, de médecine et professionnelle, et par série de dix élèves. Cette faveur est
 réservée aux plus, méritants, et notamment à ceux qui ont
 obtenu les meilleures notes pour la connaissance de la
 langue française; elle constituera pour les jeunes gens qui
 en bénéficieront une récompense de leur zèle au travail et
 de leur bonne conduite. Avant-hier soir, une première série
-de dix élèves de l'école administrative ont assisté à la repré-
-sentation de Gilette de Narbonne. »
+de dix élèves de l'école administrative ont assisté à la représentation de Gilette de Narbonne. »
 
 1.; struire. Et il ne s'aperçoit pas qu'il a donné et donne
 travaille plus que personne à détourner les gens du
@@ -2896,11 +2770,11 @@ C'est une logique qu'on ne discute pas.
 La question d'ailleurs, un autre côté, — un côté plus
 philosophique, — qu'il me reste à aborder.
 
-12 Pour la langue malgache
+Pour la langue malgache
 DA. Il faut que je revienne sur la question de l'enseigne-
 
 A à ment du français. Quand on veut tuer son chien, on dit
-;; 1 É qu'il est enragé. Quand on veut tuer une idée, on dit,
+1 É qu'il est enragé. Quand on veut tuer une idée, on dit,
 10 selon les milieux, qu'elle est antipatriotique ou qu'elle
 \°4 est antidémocratique. Je m'attends donc à l'une ou à
 es. l'autre de ces accusations, et même aux deux. Or, si je
@@ -2979,8 +2853,7 @@ encore des mots. Il faut prendre ce temps sur celui dont
 la classe dispose. Dans une école rurale de Madagascar,
 on ne travaille pas plus de quatre heures par jour. Si
 l'on en passe deux à ressasser péniblement un mauvais
-français, que reste-t-il pour étudier, non plus un vocabu-
-laire, mais les choses, pour acquérir des connaissances
+français, que reste-t-il pour étudier, non plus un vocabulaire, mais les choses, pour acquérir des connaissances
 ? réelles? Tâchons donc de ne pas croire à la magie
 J'ai sous les yeux ce que disait, il y a trois ou quatre
 ans, à des chefs indigènes de Brass l'embouchure du …
@@ -3021,7 +2894,7 @@ c'est la langue de votre pays. Si vous refusez de vous
 en servir, ou si vous essayez des clefs étrangères, de
 deux choses l'une: ou bien vous ne parviendrez pas à
 ouvrir, ou bien vous gâterez la serrure et la clef, c'est-
-à-dire l'esprit de vos enfants et la langue, qu'ils défigureront... »;
+à-dire l'esprit de vos enfants et la langue, qu'ils défigureront...
 
 .
 
@@ -3173,9 +3046,7 @@ dignité, de communiquer aux caractères l'amour de
 l'indépendance, de faire des ouvriers indociles et des
 « sujets » sensibles aux abus. Ces gens se diraient:
 « Comment pourrions-nous, sans provoquer trop de
-criailleries, entraver le progrès si fâcheux de l'instruction? » Puis ils s'apercevraient que cette instruc109
-
-tion, qui leur déplaît, est donnée en très grande partie
+criailleries, entraver le progrès si fâcheux de l'instruction? » Puis ils s'apercevraient que cette instruction, qui leur déplaît, est donnée en très grande partie
 par des écoles libres. Et du coup ils verraient le ME,
 Me: truc cherché. Des écoles libres! IL n'en faut plus. Sous
 prétexte de laïcisation, on les ferait fermer. Ensuite,
@@ -3210,8 +3081,7 @@ je prédominance incontestable. Si certaines conditions
 et des vexations qu'on y arrivera le plus vite. Ily a
 des Français qui ne sont disposés ni à faire bon
 (ia marché de leurs droits ni à cesser de défendre les
-droits des indigènes. Mais ces mêmes Français ne de-
-mandent nullement à rester, en face du gouvernement
+droits des indigènes. Mais ces mêmes Français ne demandent nullement à rester, en face du gouvernement
 : général, je ne dis pas dans une attitude d'hostilité qui
 A n'a jamais été la leur, mais dans une simple position
 défensive. Leur désir non dissimulé, c'est de diriger sur
@@ -3269,9 +3139,7 @@ n'étudie pas les matières inscrites au programme. On
 n'apprend pas les quatre règles et l'on ne récite pas une
 leçon de géographie. C'est parfaitement vrai. Mais le
 nom des exercices ne change rien à l'affaire. Alors
-qu'on dispose de toutes les heures que l'on veut, l''admi109
-
-nistration choisit, pour convoquer les enfants, le moment
+qu'on dispose de toutes les heures que l'on veut, l''administration choisit, pour convoquer les enfants, le moment
 É précis où leurs familles les emmèneraient peut-être à la
 messe ou au prêche. L'intention est visible, et les
 ; Malgaches ne se font aucune illusion.
@@ -3434,9 +3302,7 @@ raison pour qu'il la réserve à une catégorie de blancs
 
 et qu'il ne la dirige jamais contre une autre, contre
 
-ceux qui veulent leur maintien sous le statut indi-
-
-gène contre ceux qui fixent les impôts pour la race
+ceux qui veulent leur maintien sous le statut indigène contre ceux qui fixent les impôts pour la race
 
 taillable et corvéable.
 On trouverait ingénieux de disloquer des Églises où
@@ -3453,9 +3319,7 @@ développement du Tranozozoro serait le meilleur
 
 es moyen de faire naître et d'organiser une sorte de pa-
 
-(he triotisme malgache, un patriotisme à forme ecclésias-
-
-tique. Les rancunes auraient un centre de polarisation.
+(he triotisme malgache, un patriotisme à forme ecclésiastique. Les rancunes auraient un centre de polarisation.
 
 C'est ainsi que, très souvent, dans l'histoire, les con- À
 
@@ -3660,9 +3524,7 @@ manuels, il désire donc vivement s'instruire et surtout
 livres! Faute de cela il sent qu'il ne pourra pas s'élever
 au-dessus de ses compatriotes, devenir un civilisé.
 Dans les plus pauvres écoles de campagne même, la patience et l'ardeur que les enfants mettent à apprendre à
-lire, compter et écrire m'a bien souvent frappé par le con127
-
-ï traste qu'elles faisaient avec le misérable enseignement
+lire, compter et écrire m'a bien souvent frappé par le conï traste qu'elles faisaient avec le misérable enseignement
 
 qu'ils y trouvaient. Dans nos écoles, dites supérieures, de
 
@@ -3702,9 +3564,7 @@ il énergique, moins désireux de progrès qui est commun aux
 races orientales. Je crois toutefois qu'il ne faudrait pas
 
 14 trop insister sur cette considération. Quelle que soit l'ori-
-(El gine des Hovas, qu'ils descendent de ces Malais qui don-
-
-nent cependant de grandes preuves d'énergie et de capacité
+(El gine des Hovas, qu'ils descendent de ces Malais qui donnent cependant de grandes preuves d'énergie et de capacité
 
 aux Philippines et aux Indes néerlandaises, que le sang
 
@@ -3712,17 +3572,13 @@ arabe coule, comme on peut le croire, dans les veines des
 
 familles d'Andriana, ou que le croisement avec les races
 
-négroïdes les ait fait plus ou moins déchoir, il faut recon-
-naître que le sol rude et pauvre dont ils ont triompher,
+négroïdes les ait fait plus ou moins déchoir, il faut reconnaître que le sol rude et pauvre dont ils ont triompher,
 le climat variable et relativement froid de leur habitat
 
 1 actuel, les a obligés au travail, les a rendus habiles à
 
-s'ingénier, et enfin il ne faut pas oublier que leur infério-
-rité numérique vis-à-vis des autres peuplades de l'île en
-. avait fait autrefois, sous des chefs intelligents et éner-
-
-giques, une race de soldats résistants et courageux.
+s'ingénier, et enfin il ne faut pas oublier que leur infériorité numérique vis-à-vis des autres peuplades de l'île en
+. avait fait autrefois, sous des chefs intelligents et énergiques, une race de soldats résistants et courageux.
 
 IL est donc permis d'espérer que, dans un délai qui ne
 
@@ -3784,8 +3640,7 @@ pas à se donner du mouvement. Dans les villages, les
 enfants se livrent par petits groupes à des jeux tran- À
 Sa quilles où le chant tient presque autant de place que le À
 mouvement. Chose singulière, les Anglais eux-mêmes, qui
-A font, avec tant de raison, une large place aux jeux athlé-
-tiques dans les écoles de leur pays, négligent complètement
+A font, avec tant de raison, une large place aux jeux athlétiques dans les écoles de leur pays, négligent complètement
 : ici ce moyen d'éducation, soit qu'ils ne l'aient pas essayé,.
 soit qu'ils y aient renoncé.
 En classe, ces élèves trop sages écoutent; il serait peut-
@@ -3829,8 +3684,7 @@ nelle un petit nombre d'hommes de choix, et ce but a été
 
 - sommes aujourd'hui, ou de peu s'en faut, le trop grand
 nombre des élèves qui ont envahi les écoles de la ville a
-rendu à peu près impossible de mettre en usage les mé-
-thodes actives, directes, qui, s'adressant pour ainsi dire à
+rendu à peu près impossible de mettre en usage les méthodes actives, directes, qui, s'adressant pour ainsi dire à
 
 - chaque élève en particulier, l'obligent à donner en classe
 
@@ -3852,8 +3706,7 @@ animé, évocateur de la réflexion, qui le met à l'antipode de
 
 celui des Jésuites et des Frères.:
 
-Ce qui me paraît faire l'intérêt de la tentative que repré-
-sente l'École Paul Minault, c'est que là, plus qu'ailleurs,
+Ce qui me paraît faire l'intérêt de la tentative que représente l'École Paul Minault, c'est que là, plus qu'ailleurs,
 par l'âge des élèves, par leur petit nombre et par la liberté
 des programmes, il est possible et même facile d'orienter
 franchement l'enseignement dans cette voie si féconde.
@@ -3875,12 +3728,10 @@ je l'enseignement qu'on leur donne; ils comprennent des
 Es choses vraiment difficiles dans les délicatesses de notre
 il langue comme dans les abstractions ou les enchaînements
 4 logiques des sciences; ils font avec soin et d'une manière
-satisfaisante tous les devoirs qui ont le caractère d'exer-
-cices. Mais les questions qui dénotent un certain travail à
+satisfaisante tous les devoirs qui ont le caractère d'exercices. Mais les questions qui dénotent un certain travail à
 Le de l'esprit sont trop rares; dans les devoirs où l'élève est
 2 un peu laissé à lui-même, l'imagination paraît assez pauvre,
-le sens du pittoresque est presque absent. Les idées géné-
-rales sont difficilement saisies, et la sensibilité esthétique
+le sens du pittoresque est presque absent. Les idées générales sont difficilement saisies, et la sensibilité esthétique
 elle-même est peu éveillée.
 Ainsi cette passivité dont on veut faire un caractère de
 É leur race, et que j'attribuerais plutôt, pour ma part, à des
@@ -3891,6 +3742,5 @@ génération présente a traversés; c'est bien, au point de vue
 de l'intelligence elle-même, la caractéristique fondamentale
 : de leur nature. C'est elle qui a trop souvent stérilisé une
 finesse, uneintelligence, une application au travail parfois
-remarquables, et certainement supérieures à ce que la plu-
-je part de mes lecteurs s'imaginent.
+remarquables, et certainement supérieures à ce que la pluje part de mes lecteurs s'imaginent.
 Ancien élève de la Faculté des Lettres de Paris.

@@ -39,8 +39,7 @@ de 72 pages; grand jésus; nous le vendons à
 
 Nous avons publié dans nos éditions antérieures et à
 dans nos cinq premières séries, 1900-1904, un Si
-; grand nombre de documents, de textes formant dos-
-si grand nombre de cahiers de lettres, — nouvelles,
+; grand nombre de documents, de textes formant dossi grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un
 si grand nombre de cahiers d'histoire et de philo-.
 sophie; et ces documents, renseignements, textes,
@@ -66,8 +65,7 @@ francs; ce cahier comptait comme premier cahier dela ous
 sixième série et nos abonnés l'ont reçu à sa date, le
 2 octobre 190%, comme premier cahier de la sixième
 série; toute personne qui jusqu'au 31 décembre 1905
-s'abonnaït rétrospectivement à la sixième série le rece-
-vait, par le fait même de son abonnement,en tête dela
+s'abonnaït rétrospectivement à la sixième série le recevait, par le fait même de son abonnement,en tête dela
 série; nous l'envoyons contre un mandat de cinq francs
 LA à toute personne qui nous en fait la demande. RÈSRREN
 
@@ -609,7 +607,7 @@ Et qu'on quitte en pleurant la Volupté qui pleure,
 Sans lui baiser la bouche et lui prendre la main?
 
 Je me rappellerai toujours, femme au cœur tendre,
-4 Ce banc dans le chemin solitaire, à Neuilly. (S'ÉSnSe TEE
+Ce banc dans le chemin solitaire, à Neuilly. (S'ÉSnSe TEE
 È Le bois désert était par l'automne endeuilli,
 On voyait par instant une feuille descendre RE.
 D'un arbre vers le sol, et nous pouvions entendre
@@ -617,9 +615,9 @@ D'un arbre vers le sol, et nous pouvions entendre
 D'incertitude, et comme il fut près de se rendre!
 Mais la vie entre nous creusait ses noirs abimes, à DE:
 Plus profonds que la mer, et des ombres sublimes
-3 Nous appelaient dans l'air nocturne, avec des cris. 1 SEE.
-2 Je ne sais plus les mots qu'alors vous entendites. NAT
-5 Je sais que, nous étant levés, vous vous perdites, A. je à
+Nous appelaient dans l'air nocturne, avec des cris. 1 SEE.
+Je ne sais plus les mots qu'alors vous entendites. NAT
+Je sais que, nous étant levés, vous vous perdites, A. je à
 Chère Épaye, en l'océan triste de Paris! DR:
 
 le portique
@@ -655,11 +653,11 @@ Là, depuis lors, s'élève un monolithe étrange,
 Un fragment d'astre mort, la carcasse d'un dieu!
 
 J'ai dit mon grand amour, comme on chante un cantique,
-7 Sur le désert des eaux, sous le désert des cieux,
+Sur le désert des eaux, sous le désert des cieux,
 Voyageur prisonnier d'un songe, insoucieux
 5: Du sourire éternel qui ridait l'Atlantique. Et
-4 Dans les soirs fulgurants et les aubes mystiques, FRA
-4 Sous des astres plus purs, dont s'étonnent les yeux,
+Dans les soirs fulgurants et les aubes mystiques, FRA
+Sous des astres plus purs, dont s'étonnent les yeux,
 J'ai dit mon grand amour aux abimes antiques SA
 - Où l'Atlantide endort son front mystérieux.
 L'océan séchera comme un peu de rosée;
@@ -972,7 +970,7 @@ Que l'on souffrit, alors, tu ne t'en troublais guère!
 Un jour, tu prends ta plume, et, comme ont fait naguère
 Les chanteurs des vieux temps, tu dis ce que tu vois; FES
 à. è Un grand peuple muet sort de tombe à ta voix, 9 Et:
-30 Etla gloire te vient. Tu la trouves vulgaire.
+Etla gloire te vient. Tu la trouves vulgaire.
 Alors, ayant vidé le vin jusqu'à la lie, DRE +. »
 ; De. Tu fis appel à la merveilleuse folie: ME
 Des saints; et tu devins un prêtre, presque un dieu... Fes
@@ -1202,7 +1200,7 @@ Franches gaîtés, sur les gazons, du prolétaire, TES ne
 Je vous connais, à pauvres bonheurs de la terre, ne ibn
 Où la douleur entre toujours comme un levain, +4
 Bonheurs saignants et lumineux comme le vin Ù LE
-20 De vendanges qui sort du pressoir salutaire! Eur mA ne:
+De vendanges qui sort du pressoir salutaire! Eur mA ne:
 A subir, sans en être dupe, l'amer jeu LE LUTTER
 DU: Du Destin, Janus au front double sous ses voiles, LE
 ! a Par qui la pàle Automne est du Printemps suivie, Lie.
@@ -1498,8 +1496,7 @@ Nos visages réels, nous ne les voyons pas...
 Il a été tiré de ce cahier douze exemplaires sur
 : whatman ainsi distribués:
 premier exemplaire de souche, exemplaire du gérant;
-deuxième exemplaire de souche, exemplaire de l'ad-
-troisième exemplaire de souche, exemplaire de limprimeur;
+deuxième exemplaire de souche, exemplaire de l'adtroisième exemplaire de souche, exemplaire de limprimeur;
 et neuf exemplaires d'abonnement, numérotés de 1 à
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur; nos

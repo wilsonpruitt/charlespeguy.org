@@ -22,8 +22,7 @@ comme Ulysse.:....5..,5247RR ORNE RTS
 VII18. — Roman RocLanp. — Vies des hommes ne
 illustres. — la vie de Michel-Ange. — I. — la lutte.. ÉPUISÉ
 , Vil19. — Émize MoseLzy. — les retours. — les AE:
-Voir à l'intérieur en fin des autres cahiers les condi-
-tions et le prix de l'abonnement. À
+Voir à l'intérieur en fin des autres cahiers les conditions et le prix de l'abonnement. À
 Nous mettons le présent cahier dans le commerce;
 dixième cahier de la onzième série; un cahier jaune.
 de 116 pages; grand jésus; nous le vendons "On
@@ -35,7 +34,7 @@ périodique paraissant tous les deux dimanches
 
 la maison vers le lac
 
-3 DANCE 4 est Free
+DANCE 4 est Free
 
 ES vœux sages et nets dans un modeste enclos
 É Où notre humble destin serait ouvert et clos,
@@ -91,7 +90,7 @@ Suggère en frissonnant la menace des choses.
 ._ Moi, je n'aurai point peur sous mon toit de roseaux,
 Et je m'endormirai malgré le choc des eaux............
 Jusqu'au tour du chemin j'ai reconduit mon frère,
-4 J'ai laissé sur son front le baiser du mystère,
+J'ai laissé sur son front le baiser du mystère,
 Et mon cœur est tout blanc de mystiques amours
 _. Comme un verger nombreux d'arbres serrés et lourds!
 
@@ -145,7 +144,7 @@ Mais sa double couleur l'une à l'autre s'oppose; De
 Il monte, puis descend, ainsi qu'un ludion,; à
 Sous l'invisible main qui lui fait pression.
 C'est sans doute un jouet de force et d'équilibre
-: Construit par le souci d'un dieu savant et libre, à;
+: Construit par le souci d'un dieu savant et libre,
 Ou, c'est peut-être un mot que la Divinité
 : A scellé pour jamais dans la sphéricité.
 Qu'importe! que ce soit verbe ou bien mécanique! Le
@@ -180,7 +179,7 @@ PER Et que le soir d'un jour est près de son matin; A NET
 Comme insensiblement le sablier s'écoule! De PRE.
 - Avant Sagesse, Mort entre malgré le bruit;
 PTE Le palais supputé m'apparaît un réduit, es
-1 Plus rien entre les murs, tout glisse, tout s'écroule! FPE
+Plus rien entre les murs, tout glisse, tout s'écroule! FPE
 
 L'échelle de Jacob PARUS
 LKR abrite un instant sous de frêles poitrines TES
@@ -231,7 +230,7 @@ Si Qui sont chaussés la nuit de cothurnes heureux!
 Prendre un masque géant de comédien antique «
 Le Mettre sur mon corps froid l'anonyme tunique
 Que le débauché prend comme un voleur de nuit
-34 Et qu'il laisse en lambeaux au Remords qui s'enfuit!
+Et qu'il laisse en lambeaux au Remords qui s'enfuit!
 Les Prendre un masque géant où s'élargit la bouche
 Sous le déchirement de son rire farouche,; à
 Le à Le masque antique et lourd et qui pleure et qui rit
@@ -267,7 +266,7 @@ Et sous des floraisons qui se creusent en dômes,
 Le marais berce, endort mille yeux assoupis.
 Des insectes blottis sous l'eau que rien ne ride se
 È. Suspendent le travail de leur recherche avide,
-2 Dorment en sûreté dans le berceau de fil
+Dorment en sûreté dans le berceau de fil
 …_…. Qu'ils tissent autour d'eux comme un abri subtil;
 Tout le long des roseaux des mouches mordorées
 Promènent les joyaux de leurs ailes diaprées,
@@ -291,7 +290,7 @@ Or, le marais s'éveille au soir qui le délivre,
 Il accorde sa voix. La lune aussi fait vivre,
 Et son rayon blafard dans l'office des nuits;
 Fait tressaillir au fond la matrice et le puits.
-;: Le doux vent des étés qui rôde dans les plaines
+Le doux vent des étés qui rôde dans les plaines
 Et trouble d'un pied frais le calme des fontaines,
 Sur le bord du marais s'arrête un seul instant,
 S'étonne de la lune en ce miroir stagnant,
@@ -323,7 +322,7 @@ A la proie, au plaisir,
 k. Vers le but à saisir.
 
 Le sol durci répond, retentit et résonne;
-É: Lui reprend par l'élan la force qu'il lui donne
+Lui reprend par l'élan la force qu'il lui donne
 ES: Et fuit à l'horizon.
 É L'enfant court en jouant, l'homme agit et s'empresse
 
@@ -345,7 +344,7 @@ Ils ignorent ce soir la fatale advenue:
 à Un mutuel amour les endort et les berce, de
 à Et ce sont des fourmis
 Qui refont des palais pour la dent de la herse
-Et les socs ennemis.! A:
+Et les socs ennemis.!
 Que leur rêve est touchant! Que leurs chansons sont douces!
 È Ils sont beaux, car trompés
 È À Par les illusions pacifiques des mousses
@@ -361,7 +360,7 @@ Plus rien qui dise vrai! pe.
 è O seins, seins de mes nuits, fruits sous ma lèvre avide, À
 O mes félicités précises et mystiques AS
 NE O jumelles ardeurs, à spasmes en cantique, Lines De;
-; Avez-vous même été! ù à: 3104
+; Avez-vous même été! ù 3104
 
 Les morts ne sont jamais dans la tombe ou dans l'urne Le
 RER Enfant pieux, mais fol,
@@ -373,7 +372,7 @@ Me Et son cheval hennir.
 Dr: - Contemple l'arsenal; seraient-ce des dépouilles
 Ces gloires que jamais n'entamèrent les rouilles:
 Or, il est des arcs comme il est des cuirasses;;
-5 Les tordait au feu pris dans les désirs tenaces Si
+Les tordait au feu pris dans les désirs tenaces Si
 RSA De sa virilité.
 Ton père n'a laissé ni cadavre ni cendre:
 - Du sang vermeil et chaud que tu peux bien entendre NES
@@ -441,7 +440,7 @@ Les sons agonisants dans les bois d'une trompe; STE.
 Qui vient de terrasser les ombres sous les cieux,
 Et ce n'est point l'appel, même infiniment triste
 D'un pâtre, à la patrie où le bonheur existe! de
-56 J'ai crainte d'exprimer ce que j'ai pressenti,
+J'ai crainte d'exprimer ce que j'ai pressenti,
 Mon cœur terrifié sent qu'il est averti.
 Oh! que souvent alors je cours à ma fenêtre
 Afin de voir passer l'archange ou bien le reître,
@@ -450,13 +449,13 @@ Plainte, se renforcer tragique et si dolente En
 De l'écho du rocher d'où s'enfuit un corbeau SE
 … Dans l'effroi de mon cœur où surgit un tombeau! Se:
 
-;: IGNY, noble habitant des champs interstellaires,
+IGNY, noble habitant des champs interstellaires,
 : Dit le drame sacré des âmes solitaires;
 ! Il allume la cire ardente de son cœur,;
 Puis son aile rejoint un angélique chœur
-1 Qui déroule dans l'air son cortège de gloire;
+Qui déroule dans l'air son cortège de gloire;
 Vers les remparts dorés de la cité d'ivoire.;
-4 On ne s'y souvient plus que rien ait commencé,
+On ne s'y souvient plus que rien ait commencé,
 Le mystique présent n'a pas de passé,
 Partant plus de remords, plus de ces affreux songes
 : Où l'on voit revenir tous les anciens mensonges.;
@@ -472,7 +471,7 @@ Le verbe est enfermé par des sceaux de lumière
 Mais qu'une nuit terrestre a de langueur sacrée; RES
 Et que de feux vivants sa couronne est parée; PE:
 Comme elle s'assoupit, tendre sous la terreur
-2 Du réveil incertain du cœur contre le cœur; VE:
+Du réveil incertain du cœur contre le cœur; VE:
 La vie, au port divin rentre, quand le soir tombe,
 Et l'étoile au ciel noir veille sur sa colombe; REESE
 Elle gémit d'espoir dans le vent qui s'en HÉSES
@@ -544,7 +543,7 @@ J'ai quitté les chemins qui s'en vont aux demeures,
 “2 J'ai perdu le sentier où circulent les heures,;
 
 Les J'ai lassé les soucis sur mes pas résolus
-0 Et ceux qui me suivaient ne me reverront plus.
+Et ceux qui me suivaient ne me reverront plus.
 Maintenant viens saigner dans les chambres désertes,
 Cœur loyal, cœur ardent — et dénombrer tes pertes;
 Ft. à Un christ divinement t'accueille et te sourit,
@@ -608,7 +607,7 @@ Oh, redonner ce sang bien trop lourd dans mes veines,
 Dans la très lente mort de ce qui fut mes peines;:
 5: Retrouver par la joie et par l'inconscient.
 Cette ingénuité du cœur neuf et liant!
-4 O se débarrasser des formules acquises,;
+O se débarrasser des formules acquises,;
 Du fardeau de savoir, et des vertus apprises!
 Vibrer! mais seulement sous la force du vent,
 … Et non pas comme un luth qu'on tourmente souvent!
@@ -618,7 +617,7 @@ ne 11 faut aller pleurer aux pieds d'une inconnue
 a 7 D'une jeune de corps, la première venue, 22 OU
 Et se prendre au filet magique du plaise
 Où palpite en saignant la colombe désir!
-a: La race a préparé pour l'amour, des esclaves AS
+La race a préparé pour l'amour, des esclaves AS
 
 Rene Brunes surtout — avec des lèvres, des yeux graves!
 
@@ -674,7 +673,7 @@ En vain sur le sol dur des oreilles avides
 Se penchent, espérant la lourdeur de son pas.
 Gardez ces monuments pour votre apothéose,
 O mortels obstinés dans vos nobles efforts;
-4 Sur les frontons sans dieu que le héros repose,
+Sur les frontons sans dieu que le héros repose,
 Et consacrez le temple aux mânes de vos morts!:
 
 ne faut plus chanter le soir des chants d'amour.
@@ -791,7 +790,7 @@ Sous la suggestion de leurs rayonnements!
 
 - Hélas! défunts aussi les parfums du sublime -
 
-Et les jardins secrets de mon cœur scrupuleux, à:
+Et les jardins secrets de mon cœur scrupuleux,
 
 Défunts les lourds soleils et les buissons en feux à
 Es Qui s'allumaient toujours sur la plus haute cime!,
@@ -831,7 +830,7 @@ Des flottes de l'éther elle semble le phare,
 Auprès d'elle les lacs sont des miroirs ternis.
 : Sans porte elle est close, elle a l'éclat qui sépare;
 Les oiseaux n'osent point y suspendre des nids,
-4 Au large les marins se sentent des bannis,
+Au large les marins se sentent des bannis,
 
 2 - Ils pleurent, et leur cœur en enfance s'égare.
 
@@ -869,7 +868,7 @@ Et l'étrange reflet des problèmes futurs.
 Ta lampete mesure un foyer circulaire:;
 Qui garde ton esprit d'un halo tutélaire.
 Te Ferme bien les volets: sphinx avide, la nuit à
-4 Rôde, chante, soupire: endors-toi, c'est minuit. À
+Rôde, chante, soupire: endors-toi, c'est minuit. À
 7. Le sornmeil te descend dans ta magique tombe, à
 Dors; la lampe meurt, le feu meurt, neige tombe,
 Mais le temps, qui chez toi s'est fait familier,
@@ -881,7 +880,7 @@ nous promènerons sous des lunes d'étés; “4
 Nous parlerons d'amour et de théologie
 Afin d'illuminer d'un éclair de magie
 É Notre destin qui rampe au fond des cécités.
-:: Nous nous évaderons du corps, de la sanie,
+Nous nous évaderons du corps, de la sanie,
 Nous briserons les et les nécessités A
 Et comme fit Samson, sous nos fronts irrités
 L'Esprit effondrera la maison qu'il renie.
@@ -933,7 +932,7 @@ Le matelot aussi, dans des yeux étrangers 2 à
 A passer l'éclair des ruts et des dangers,:
 
 Et dans des soirs d'orgie en de lointains bosphores,::
-1 Il a s'allumer de monstrueux phosphores!
+Il a s'allumer de monstrueux phosphores!
 Mais quand il reviendra, la Madone et Jésus
 DE Souffleront sur son front l'oubli de tant d'abus, À
 Et le soir où, du corps, s'envole la colombe,
@@ -956,8 +955,8 @@ Et contemplaient la vie au fond des infusoires,
 Comme un prêtre, en tremblant, s'approche des ciboires!
 . Dans l'antique berceau, ce n'est plus un géant
 ET. Qui serait endormi, bercé par l'océan,
-5 Et qui, dès son réveil, d'une voix magnanime,
-4 Proclamerait le mot dont l'univers s'anime.
+Et qui, dès son réveil, d'une voix magnanime,
+Proclamerait le mot dont l'univers s'anime.
 
 la maison vers le lac
 Dans l'immense palais aux voûtes de corail,
@@ -972,7 +971,7 @@ Mais qui posera donc, au but de nos élans,
 Des lauriers toujours verts sur nos fronts toujours blancs!
 Les archanges vieillis attendaient, en extase;
 Dans l'infini muet le fini s'extravase.
-ce Nous avons en chantant, accompagné la Foi, a:
+ce Nous avons en chantant, accompagné la Foi,
 {Et porté sans faiblir l'amour avec la loi;
 ! Nous avons étouffé nos instincts sous la cendre,:
 Et nous avons vieilli sans nous laisser surprendre
@@ -987,7 +986,7 @@ Vers les lits d'hôpital et les chambres peureuses;
 Nous aidons le mourant à traverser la cour,
 Et ne l'abandonnons que quand Jésus accourt!
 
-4 Nous servons, servirons la Foi reine du monde,
+Nous servons, servirons la Foi reine du monde,
 Le Si belle, et cependant si forte, qu'elle émonde
 Les plants empoisonnés, les herbages amers
 é Que le suicide mâche en allant aux enfers;
@@ -1008,8 +1007,7 @@ Prix de souscription à l'ouvrage complet:
 è 22 francs 50 par volume
 quatrième volume de l'Inventaire des Dessins du
 Musée du Louvre et du Musée de Versailles vient
-de paraître. Chaque année, depuis 1906, a été réguliè-
-rement mis au jour un volume de cette publication qui
+de paraître. Chaque année, depuis 1906, a été régulièrement mis au jour un volume de cette publication qui
 
 rend déjà aux artistes, aux amateurs, aux critiques, etc.,
 les plus grands services, tant par la précision, la documentation scientifique de son texte, que par le nombre
@@ -1022,10 +1020,9 @@ sont mentionnés, avec ses reproductions de filigranes,
 de papiers et de monogrammes d'artistes et de collec-;
 Dans le premier volume, après une introduction sur;
 l'histoire de la collection de dessins français du Louvre,
-;: on trouvera la description des dessins d'Anguier,
+on trouvera la description des dessins d'Anguier,
 ; d'Étienne Aubry, d'Augustin, de Baudoin, de Berain,
-de Borelly, de Boissieu, d'Abraham Bosse et de Bou-
-chardon, des gouaches de Bagetti exécutées pendant la
+de Borelly, de Boissieu, d'Abraham Bosse et de Bouchardon, des gouaches de Bagetti exécutées pendant la
 campagne d'Italie par ordre de Napoléon. Ce volume
 : est illustré de 427 reproductions. À
 L'introduction du second volume est consacrée aux
@@ -1033,13 +1030,11 @@ amateurs de dessins du dix-septième siècle, et les artistes
 2 dont on trouve les œuvres décrites sont, parmi les plus
 célèbres: François Boucher, A.-Ch. Boule, les frères
 lot, etc. Le nombre des illustrations de ce volume est A
-Le troisième volume débute par l'étude de l'enseigne-
-ment du dessin à la fin du dix-septième siècle. Puis,
+Le troisième volume débute par l'étude de l'enseignement du dessin à la fin du dix-septième siècle. Puis,
 sont cataloguées les œuvres d'Antoine Caron, J.-B. Car- “4
 
 Glouet, CR.-N. Cochin et enfin la série des Corneille si
-- importante pour l'étude de la deuxième moitié du dix-
-septième siècle français. Ce volume contient 705 repro_ ductions de dessins.
+- importante pour l'étude de la deuxième moitié du dixseptième siècle français. Ce volume contient 705 repro_ ductions de dessins.
 Le tome quatrième, après une étude sur les dessins
 d'Antoine Coypel, catalogue les œuvres de Corot,
 l'illustration reproduit 610 dessins.

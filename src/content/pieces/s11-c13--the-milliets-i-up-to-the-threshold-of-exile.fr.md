@@ -412,8 +412,7 @@ Félix Milliet avait 27 ans au moment de son mariage, Louise de Tucé en avait
 
 1840-1851
 
-Mon père, dont la famille était originaire de Savoie, rappelait par ses traits l'ancien type des Allobroges: cheveux châtains, qui ne blanchirent jamais, et grande moustache d'un blond roux. Sa taille était un peu au-dessous de la moyenne; son teint coloré et ses yeux gris extrêmement vifs marquaient un tempérament à la fois sanguin et nerveux. Son caractère présumait était sensible, passionné, bouillant, irascible, mais sans rancune, franc, loyal, affectueux et bon. La probité lui était si naturelle qu'il ne concevait même pas la possibilité de la moindre atteinte à la délicatesse. Son désintéres-
-sement absolu et son dévouement à ses principes lui attirèrent de nombreuses et durables sympathies.
+Mon père, dont la famille était originaire de Savoie, rappelait par ses traits l'ancien type des Allobroges: cheveux châtains, qui ne blanchirent jamais, et grande moustache d'un blond roux. Sa taille était un peu au-dessous de la moyenne; son teint coloré et ses yeux gris extrêmement vifs marquaient un tempérament à la fois sanguin et nerveux. Son caractère présumait était sensible, passionné, bouillant, irascible, mais sans rancune, franc, loyal, affectueux et bon. La probité lui était si naturelle qu'il ne concevait même pas la possibilité de la moindre atteinte à la délicatesse. Son désintéressement absolu et son dévouement à ses principes lui attirèrent de nombreuses et durables sympathies.
 
 Le visage de ma mère respirait à la fois la douceur et la fermeté. Ses yeux étaient d'un bleu foncé, ses cheveux bruns, presque noirs, ses jones d'une fraîcheur éblouissante; des bandeaux plats encadraient l'ovale très pur de son visage. Ses belles mains ressemblaient à celles de la Joconde, dont elles avaient souvent la pose. La noblesse naturelle de ses manières, le charme de son sourire et la finesse de ses traits justifiaient pleinement sa réputation de beauté. Mon père en était très fier, mais elle ne semblait pas s'en douter. Elle attachait plus de prix au renom que lui méritaient son intelligence, sa droiture et son inépuisable bonté.
 
@@ -805,8 +804,7 @@ Chantez encore, ô Béranger.
 
 « Heureusement pour vous et pour vos amis, vous avez longtemps à chanter encore. Profitez-en, monsieur, et conservez bon souvenir au vieux chansonnier qui vous prie de croire à sa considération bien cordiale.
 
-Nous ne donnons ici que quelques spécimens des nombreuses chansons composées par Félix Milliet. D'un bout à l'autre de ce recueil, ce sont les mêmes sentiments qui animent le poète: la haine de la tyrannie, la pitié pour ceux qui souffrent, l'aspiration vers une orga-
-nisation plus équitable de la société, la foi dans un avenir de paix et d'harmonie mondiale.
+Nous ne donnons ici que quelques spécimens des nombreuses chansons composées par Félix Milliet. D'un bout à l'autre de ce recueil, ce sont les mêmes sentiments qui animent le poète: la haine de la tyrannie, la pitié pour ceux qui souffrent, l'aspiration vers une organisation plus équitable de la société, la foi dans un avenir de paix et d'harmonie mondiale.
 
 Air du Dieu des bonnes gens
 
@@ -894,8 +892,7 @@ Le même sentiment est exprimé dans une autre chanson qui a pour refrain:
 Gloire aux martyrs, honte aux bourreaux!
 Voilà le cri du peuple en France.
 
-Bien avant que Zola eût écrit son beau roman intitulé Travail, F. Milliet voulut attirer l'attention sur une des plus criantes injustices sociales. Un capitaliste, dont la fortune n'a pas toujours une source très pure, achète, par exemple, quelques actions de charbon-
-nages. De ce fait, ses descendants seront à jamais exemptés de tout travail, tandis qu'une famille d'honnêtes ouvriers n'aura aucune part dans la plus-value que son travail seul aura produite. Elle verra ses enfants, affaiblis par la misère, s'étioler par la prolongation de travaux excessifs et insalubres.
+Bien avant que Zola eût écrit son beau roman intitulé Travail, F. Milliet voulut attirer l'attention sur une des plus criantes injustices sociales. Un capitaliste, dont la fortune n'a pas toujours une source très pure, achète, par exemple, quelques actions de charbonnages. De ce fait, ses descendants seront à jamais exemptés de tout travail, tandis qu'une famille d'honnêtes ouvriers n'aura aucune part dans la plus-value que son travail seul aura produite. Elle verra ses enfants, affaiblis par la misère, s'étioler par la prolongation de travaux excessifs et insalubres.
 
 Enfant conçu dans le délire
 D'un mutuel et saint amour,
@@ -1168,8 +1165,7 @@ Dira: Mère, à quoi sert ce fer?
 
 (1) « L'erreur où sont tombés nos philosophes civilisés, c'est de croire qu'il faut travailler au bonheur des pauvres, sans rien faire pour les riches. On est bien loin des voies de la nature quand on n'a travaillé pas pour tous. » Manuscrit de Fourier, page
 
-Au Mans, l'artillerie de la garde nationale était acquise tout entière aux opinions avancées; elle élut mon père capitaine. Mais un vent de réaction commen-
-çait à souffler. Dans une revue, Félix Milliet, défilant à la tête de sa compagnie, leva son sabre et parut un instant guéri de son extinction de voix, tant il cria avec conviction: Vive la République! Tous les artilleurs et la foule entière firent retentir la place des Jacobins d'une formidable acclamation.
+Au Mans, l'artillerie de la garde nationale était acquise tout entière aux opinions avancées; elle élut mon père capitaine. Mais un vent de réaction commençait à souffler. Dans une revue, Félix Milliet, défilant à la tête de sa compagnie, leva son sabre et parut un instant guéri de son extinction de voix, tant il cria avec conviction: Vive la République! Tous les artilleurs et la foule entière firent retentir la place des Jacobins d'une formidable acclamation.
 
 Pauvre République! elle était bien près de sa fin.
 
@@ -1411,8 +1407,7 @@ Des tyrans je me ris.
 
 Ceux qui désirent connaître la tournure d'esprit particulière aux hommes de 1848 feront bien de consulter la Revue comique, spirituelle publication à laquelle mes parents étaient abonnés, et qui fit longtemps nos délices. Elle mérite son sous-titre « à l'usage des gens sérieux parce qu'elle reflète, sans trop la déformer, l'opinion publique de ce temps-là.
 
-A toutes les époques de l'histoire, on observe la même lutte éternelle entre deux tendances opposées: L'une aspire au repos, et cherche l'ordre dans le maintien immuable des institutions établies, ou même dans un vain effort vers le retour à d'antiques traditions; l'autre, sachant bien que le mouvement est la condition nécessaire de la vie, nous porte à croire que tout changement est un progrès, et rêvant de réformes possibles ou chi-
-mériques, elle se hâte, un peu trop parfois, dans sa marche vers le mieux.
+A toutes les époques de l'histoire, on observe la même lutte éternelle entre deux tendances opposées: L'une aspire au repos, et cherche l'ordre dans le maintien immuable des institutions établies, ou même dans un vain effort vers le retour à d'antiques traditions; l'autre, sachant bien que le mouvement est la condition nécessaire de la vie, nous porte à croire que tout changement est un progrès, et rêvant de réformes possibles ou chimériques, elle se hâte, un peu trop parfois, dans sa marche vers le mieux.
 
 C'est la première de ces deux tendances que Nadar a ridiculisée dans une série d'amusantes caricatures intitulée: La vie publique et privée de Mossieu Réac. Les dessins, que nous voudrions pouvoir reproduire, sont d'une drôlerie pleine d'esprit.
 

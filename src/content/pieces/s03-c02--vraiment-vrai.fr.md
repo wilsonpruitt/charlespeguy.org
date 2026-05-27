@@ -32,8 +32,7 @@ Cet homme, c'est le commandant de recrutement de
 Nevers, qui convoqua ses réservistes pour leur faire faire
 1 madame Garnier, que huit ou dix Nivernais, hommes
 d'études et de bonne volonté, firent connaissance. Ils
-s'aperçurent qu'ils avaient des idées communes, des ten-
-dances pareilles. Ils regrettèrent de ne s'être pas connus
+s'aperçurent qu'ils avaient des idées communes, des tendances pareilles. Ils regrettèrent de ne s'être pas connus
 plus tôt, mais convinrent du moins de ne pas se perdre de
 vue, et d'essayer d'agir ensemble.
 ‘(ah Pendant une marche-manœuvre dans laquelle je remplissais avec honneur et fidélité les importantes fonctions

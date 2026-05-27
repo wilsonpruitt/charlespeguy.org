@@ -25,8 +25,7 @@ LE lire dix-septième cahier de la cinquième Le
 SE, faut, la date du fini d'imprimer, ou, à son
 défaut, la date du cahier même;
 4 quand il y a lieu, c'est-à-dire pour nos
-éditions antérieures et pour nos cinq pre-
-mières séries, la page du catalogue àna-
+éditions antérieures et pour nos cinq premières séries, la page du catalogue àna-
 DER lytique sommaire où ce cahier se trouve À
 ES laniel Halévy, — Michelet et Quinet; — et dans le même “4
 c“uier présentation des quelques textes (IV-21, mardi ne
@@ -90,10 +89,9 @@ tous humbles, semblèrent gênés d'avoir faire
 choix irrévocables, et gènés à bon droit: car
 ils s'étaient engagés à fond, et de telle sorte qu'ils à
 1 estaient, en cas d'erreur, disqualifiés. Mais voici
-que depuis deux ans les attitudes se sont modi-
-fiées. Le silence est de nouveau rompu, et ce
+que depuis deux ans les attitudes se sont modifiées. Le silence est de nouveau rompu, et ce
 sont nos vaincus qui parlent seuls, qui nous;
-2 Quels anniversaires sont les nôtres! Tout est pré- #3
+Quels anniversaires sont les nôtres! Tout est pré- #3
 texte à réunions, banquets, excepté nos souvenirs.
 Voyez nos adversaires: ils commémorent ce qu'ils
 appellent (comme ils sont humbles!) des victoires:
@@ -129,20 +127,16 @@ subies, observant la vie plus amère et plus dure
 autour d'eux, les manières avilies, la culture
 abaissée, ils s'inquiétaient, ils examinaient le passé:
 Nous devions mieux défendre la vieille monarchie,
-disent madame de Staël, La Fayette, Camille Jor-
-dan. Nous ne devions pas renverser M. de Marti-
-gnac, disent Guizot, Barante, le duc Victor de
+disent madame de Staël, La Fayette, Camille Jordan. Nous ne devions pas renverser M. de Martignac, disent Guizot, Barante, le duc Victor de
 
 .- Broglie, serviteurs mal rassurés de Louis-Philippe.
 4 heureux au lendemain de ce désastre. 1848 est la
-date d'un crime, dit-il; nos châtiments ne s'arrête-
-ront plus... Prévost-Paradol compare la France
+date d'un crime, dit-il; nos châtiments ne s'arrêteront plus... Prévost-Paradol compare la France
 sublimes au Sisyphe de Virgile,
 .… Et semper victus tristisque recedit.
 ; « C'est cette tristesse, dit-il, que nous respirons
 tous, jeunes et vieux, traversant ce siècle, et c'est
-5 en proportion de notre patriotisme et de nos lu-
-mières que nous la sentons plus ou moins peser sur
+5 en proportion de notre patriotisme et de nos lumières que nous la sentons plus ou moins peser sur
 nos cœurs. »
 Au lendemain de la guerre, quand il était si tifiable, sinon si juste, d'accuser l'Empire, et de
 À l'accuser seul, quelle clairvoyante énergie anime
@@ -150,14 +144,11 @@ Au lendemain de la guerre, quand il était si tifiable, sinon si juste, d'accuse
 ê Ils ne s'intéressent passionnément qu'à leurs fautes.
 Renan publie sa Réforme intellectuelle et morale
 dela France, Taine conçoit le terrible réquisitoire
-ee. qui régit nos pensées, consentantes ou non con-
-sentantes. Les conversations graves suscitées par
+ee. qui régit nos pensées, consentantes ou non consentantes. Les conversations graves suscitées par
 : ces livres — elles touchèrent tant de fois nos
 oreilles d'enfant — font en nous comme un bruit
 qui ne peut s'éteindre, un incessant murmure
-dont la mélancolie nous rend incertains de nous-
-
-mêmes, nous incline à tous les regrets. Écoutons
+dont la mélancolie nous rend incertains de nousmêmes, nous incline à tous les regrets. Écoutons
 cette voix triste et sûre, quittons pour elle nos
 
 Soit! mais la séparation est malaisée. Dès le premier instant, nous sommes tentés d'écrire: le cas
@@ -231,17 +222,13 @@ contre cette caste, vous êtes partis en guerre. La
 justice était votre masque, vous suiviez Vos passions.
 
 Non, nous ne sentons pas ces mobiles en nous,:
-nous n'acceptons pas cette explication. La ré-
-ponse est trop simple, et la question, telle que
+nous n'acceptons pas cette explication. La réponse est trop simple, et la question, telle que
 nous l'avions posée, trop simple aussi. L'Affaire
-Dreyfus, sitôt on l'étudie, paraît immense et péril-
-
-leuse. Elle n'est comparable à nulle autre. Dreyfus
+Dreyfus, sitôt on l'étudie, paraît immense et périlleuse. Elle n'est comparable à nulle autre. Dreyfus
 É tionnel en lui justifie l'intérêt exceptionnel qu'il
 - inspire; la haine d'un peuple est sur lui, il subit un
 4 châtiment physique et moral extrême; il est juif,
-4 son infamie est prise comme un symbole, sa per-
-sonne diffamée diffame une race entière. Son cas
+4 son infamie est prise comme un symbole, sa personne diffamée diffame une race entière. Son cas
 À est différent, il commande une autre attention, et
 5 ainsi nous avions raison quand nous nous émûmes
 à pour lui.
@@ -251,7 +238,7 @@ D. condamné, sont des espèces différentes, ces difré-
 271 rences ne s'atténuent pas, elles s'aggravent au conn traire, si nous considérons Dreyfus réhabilité, tel
 3 malheureux homme réhabilité. Réhabiliter Jacques
 4 ou Paul, c'est un acte infime, de nul événement.
-4 Qui l'aura condamné? Pas même un magistrat
+Qui l'aura condamné? Pas même un magistrat
 Le dont l'avancement pourrait être contrarié, mais un
 ne vague jury. Un individu souffrit l'injustice, quelques
 individus aux noms inconnus la commirent; si
@@ -274,13 +261,10 @@ la plus intempérante ardeur. Le doute doit profiter
 dans le cas présent, deux accusés qu'il faut considérer tous deux, l'un, Dreyfus, l'autre, la société
 française; si Dreyfus est innocent, la société fran-;
 çaise est coupable; si la société française est inno- À
-cente, Dreyfus est coupable. Comment appli-
-quer la maxime? Dreyfus, la France, le doute est
+cente, Dreyfus est coupable. Comment appliquer la maxime? Dreyfus, la France, le doute est
 sur tous deux, lequel en bénéficiera? « … Le doute
 devait profiter à l'accusé véritable, écrit M. Charles à
-Maurras, qui pose le problème comme nous fai-
-sons ici, c'est-à-dire à l'auteur de la condam-
-nation que l'on suspectait, et c'est-à-dire encore à
+Maurras, qui pose le problème comme nous faisons ici, c'est-à-dire à l'auteur de la condamnation que l'on suspectait, et c'est-à-dire encore à
 la société. On devait respecter le jugement rendu
 par la société française. » Soit, nous entendons À
 ces paroles, elles indiquent un devoir de sagesse?
@@ -296,20 +280,18 @@ Les livres ne manquent pas, et c'est une joie que
 À préjuge en sa faveur), a grandi nos meilleurs écribe. vains. Les Histoires contemporaines sont le chef-:
 5 d'œuvre d'Anatole France; les articles de l'Aurore,
 52 réunis en six volumes, le chef-d'œuvre de Clemen__ ceau, l'un des chefs-d'œuvre du journalisme; les -
-4 Lettres de Zola, son chef-d'œuvre encore; et le style
+Lettres de Zola, son chef-d'œuvre encore; et le style
 - nu, beau dans sa hâte, des Scènes et doctrines du
 nationalisme, l'un des meilleurs que M. Barrès ait
-3 Nous possédons deux histoires: l'une, par
-34 M. Joseph Reïnach, en six volumes. C'est une rare;
+Nous possédons deux histoires: l'une, par
+M. Joseph Reïnach, en six volumes. C'est une rare;
 : fortune qu'un tel instrument pour étudier des
 De. années proches. Elle est remarquable par l'esprit;
 de justice et de bonté qui l'anime, par la richesse et
 l'honnêteté documentaires; elle est considérable par:
 LA la masse des faits clairement ordonnés. L'autre est
 7 l'œuvre de M. Dutrait-Crozon, toute opposée par:
-l'esprit, par le style. M. Reinach composait une his-
-
-toire, M. Dutrait-Crozon écrit un précis, et il préfère,
+l'esprit, par le style. M. Reinach composait une histoire, M. Dutrait-Crozon écrit un précis, et il préfère,
 à la manière un peu ample de son adversaire, celle
 du Code civil. Il nous offre un recueil de renseignements secs. Peut-être espère-t-il suggérer au lecteur:
 « Celui-ci dit vrai, qui parle un langage si nu... »
@@ -333,8 +315,7 @@ la manière dont se présentèrent à nous, aux divers
 3 instants de la crise, les doutes et les problèmes, et
 dont ils furent par nous soit écartés et suspendus,
 soit acceptés et résolus.
-Reportons-nous aux mois de novembre et dé-
-cembre 1894. C'est alors que le nom de Dreyfus fut
+Reportons-nous aux mois de novembre et décembre 1894. C'est alors que le nom de Dreyfus fut
 : livré, son procès instruit et jugé. Que se passa-t-il À
 7 alors? que sûmes-nous? Du procès, rien; du court
 4 événement, nous ne reçûmes qu'une impression:
@@ -343,8 +324,7 @@ cembre 1894. C'est alors que le nom de Dreyfus fut
 1 la procédure. Dreyfus fut condamné. Les juges ré-
 3 pondaient du verdict; nous acceptâmes d'être ainsi
 4 déchargés et souscrivimes à la sentence.
-Quel était notre état d'esprit? Prenons un exem-
-ple. (1) Cette affaire, toute d'opinion, ne reçoit
+Quel était notre état d'esprit? Prenons un exemple. (1) Cette affaire, toute d'opinion, ne reçoit
 4 quelque lumière que si on peut en suivre les effets
 1 dans le champ limité d'une pensée individuelle. Le
 3 soir du jour où Dreyfus subit la dégradation, Zola
@@ -382,8 +362,7 @@ personnes, un bizarre assemblage: les deux direc-
 à teurs de prison qui avaient gardé Alfred Dreyfus:
 4 ces deux hommes ont l'homme et les siens sécutés, une pitié tout humaine les a touchés;
 : Demange, l'avocat; puis, quelques Juifs, émus
-par une impulsion dont la suite prouva la jus-
-tesse: un historien, Arthur Lévy, qui peu après
+par une impulsion dont la suite prouva la justesse: un historien, Arthur Lévy, qui peu après
 È mourut; Théodore et Joseph Reinach; enfin, un
 ; protestant, le docteur Gibert, du Havre, qui obtint
 à de Félix Faure, son ami, l'aveu de la procédure
@@ -394,14 +373,11 @@ Cette petite troupe s'accrut bientôt. Sachons ment.
 4 conspirateur, seul radical du parti dénommé ra-
 4 dical, croyait Dreyfus innocent et voulait énergi3 quement travailler pour lui. Ranc et Reinach:
 É Kestner avait été mal impressionné par la conduite
-de l'instruction, rassuré par la condamnation; pourFe tant il restait accessible au doute. Mulhousien, der-
-
-nier représentant de l'Alsace au parlement français,
+de l'instruction, rassuré par la condamnation; pourFe tant il restait accessible au doute. Mulhousien, dernier représentant de l'Alsace au parlement français,
 accoutumé à suivre et servir toutes les causes
 alsaciennes, il se sentait lié au capitaine Dreyfus
 par une sorte de protectorat moral; vice-président
-du Sénat, membre de l'une des familles qui ont in-
-stitué, constitué, la République, il avait des droits
+du Sénat, membre de l'une des familles qui ont institué, constitué, la République, il avait des droits
 et des devoirs qui n'étaient pas à tous. Il interrogea
 - Freycinet, qui lui apprit aussitôt que les juges
 avaient été convaincus par une pièce secrète mon_ trée à eux seuls. Scheurer-Kestner ne fut ni indigné,:
@@ -414,8 +390,7 @@ silence absolu, s'il ne supprime pas les inquiétudes,
 les amortit. Sans doute, dans le haut personnel
 gouvernemental, on soupçonnait l'erreur (que fautil écrire, erreur, iniquité? il règne entre ces mots à
 une sorte d'espace où la plume hésite); on soupçon-:
-nait l'erreur et s'en préoccupait. Ribot doute; Bour-
-geois doute; un gênant inconnu est près d'eux, ils
+nait l'erreur et s'en préoccupait. Ribot doute; Bourgeois doute; un gênant inconnu est près d'eux, ils
 le sentent. Trarieux entre au ministère de la Justice.
 Il veut d'abord qu'on le renseigne sur cette affaire.
 On lui dit que Demange n'a pas les pièces décisives, que les juges ont jugé sur documents secrets.
@@ -464,11 +439,9 @@ mainte chose, jamais de cette affaire.
 ; Ce silence, cette retenue instinctive, que déterminait en nous la crainte de trouver, au lieu de la À
 faute d'un individu, la faute d'une institution et
 d'une société, c'était probablement l'attitude la plus
-sage. Nous l'observions. M. Joseph Reïnach pour-
-suivait dès lors son pieux et cruel dessein, pressant
+sage. Nous l'observions. M. Joseph Reïnach poursuivait dès lors son pieux et cruel dessein, pressant
 à Scheurer-Kestner, travaillant à faire voter par les à
-deux Chambres la loi très large qui facilita la revi-
-sion du procès Dreyfus: il était seul avec son ami;
+deux Chambres la loi très large qui facilita la revision du procès Dreyfus: il était seul avec son ami;
 Continuons notre recherche: les secrets furent
 (1) Madame Séverine, croyons-nous.
 
@@ -483,9 +456,8 @@ Ils étaient mal préparés à leur nouvel état de
 politiques vénitiens, silencieux et prudents sacrificateurs d'hommes. Il faut, pour réussir en ce métier,
 y porter un esprit très exercé, clair et sûr. Tel
 n'était pas le cas de nos militaires. Quelques-uns
-d'entre eux, Mercier sans doute, Boisdeffre peut-
-être, soupconnèrent, dès 1895, que Dreyfus était
-innocent. Mais ils durent vite se laisser aller à:
+d'entre eux, Mercier sans doute, Boisdeffre peutêtre, soupconnèrent, dès 1895, que Dreyfus était
+innocent. Mais ils durent vite se laisser aller
 penser qu'il était « un petit peu coupable comme à
 nous l'entendimes supposer ces temps-ci par une
 vieille dame de nature indulgente. Du moins, ils obscurcirent, écartèrenttoute penséesur un si importun
@@ -495,9 +467,7 @@ sur toute chose les bien choisir. Mais Paris est si
 peu Venise! On choisit mal: un homme indépendant, humain et véridique, antisémite de goût, non
 d'âme, l'opposé d'un fanatique: Picquart. Et on lui
 passa la consigne en termes inintelligibles: « L'affaire
-Dreyfus n'est pas finie, lui dit Boisdeffre, elle com-
-
-mence, il faut corser le dossier... » Le colonel Picquart ne comprit pas très bien ce que son chef lui
+Dreyfus n'est pas finie, lui dit Boisdeffre, elle commence, il faut corser le dossier... » Le colonel Picquart ne comprit pas très bien ce que son chef lui
 signifiait par ces mots. Il s'occupa de son service, et
 ignora l'affaire Dreyfus jusqu'au jour où elle lui fut
 imposée par une circonstance de son travail.
@@ -527,22 +497,18 @@ n'écririons pas cela, si un deuxième fait, plus clair,
 ce Cuers, agent allemand, qui trouver l'attaché
 militaire de France à Berlin, et lui dit: Dreyfus
 4 est innocent, un autre a trahi... L'arrivée du petit
-4 bleu, la démarche de Cuers, sont des faits simul-
-tanés (printemps 1896). Picquart appelle à Bâle ce
-4 Cuers, qui répète son information aux officiers fran-
+4 bleu, la démarche de Cuers, sont des faits simultanés (printemps 1896). Picquart appelle à Bâle ce
+Cuers, qui répète son information aux officiers fran-
 ._ çais, puis retourne à Berlin, n'acceptant d'autre
 argent que les débours de son voyage. Quelques
 . années plus tard, Cuers fut nommé au procès de
 Rennes, ses propos ébruités. La faute, si c'était une
 faute, était grave; pourtant il garda son emploi. » Pourquoi cette impunité?
 Si les intentions du petit bleu sont douteuses, le
-RE: sens des démarches de Cuers ne l'est pas. Le gou-
-vernement allemand savait les inquiétudes de quelques Français. Un Schlumberger d'Alsace avait
+RE: sens des démarches de Cuers ne l'est pas. Le gouvernement allemand savait les inquiétudes de quelques Français. Un Schlumberger d'Alsace avait
 interrogé M. de Hohenlohe qui avait répondu, ou
 fait répondre: « Nous avons, en temps opportun,
-déclaré que Dreyfus nous était inconnu. L'Empe-
-reur ne peut s'élever contre une sentence régu-
-lière. » Sans doute, il ne pouvait le faire par des
+déclaré que Dreyfus nous était inconnu. L'Empereur ne peut s'élever contre une sentence régulière. » Sans doute, il ne pouvait le faire par des
 
 procédés réguliers. Mais il pouvait, en suivant les
 voies irrégulières, contenter une facile humanité;
@@ -584,14 +550,13 @@ de ce qui, faisant abstraction de considérations plus élevées,
 ne nous donnera pas le beau rôle.
 à É. Je dois ajouter que ces gens-là ne me paraissent pas
 informés comme nous et que leur tentative me paraît devoir
-aboutir à un gâchis, un scandale, un gros bruit, qui n'amè-
-nera pas la clarté.
+aboutir à un gâchis, un scandale, un gros bruit, qui n'amènera pas la clarté.
 Ce sera une crise fâcheuse, inutile, et que l'on pourrait
 Jamais chefs ne furent mieux servis que les géné-:
 raux de Boisdeffre et Gonse, le jour où ils reçurent
 cette lettre. Ils disgracièrent, pour toute réponse,
 celui qui l'avait écrite.
-3 Dès lors, l'inquiétude et la fébrilité marquent
+Dès lors, l'inquiétude et la fébrilité marquent
 leurs actes. Leur unique ressource, s'ils ne veulent
 pas tout éclaircir eux-mêmes, c'est un obstiné
 silence. Mais ils ont peur, sachant, ou soupçonnant
@@ -602,17 +567,12 @@ puissance de fanatisme ou d'inertie, Ils ne savent
 pas que le trouble est en eux seuls, et ils veulent
 
 ramener, tout au moins rassurer, un public qui
-désire ignorer quand il n'a pas la foi. Le 14 sep-
-
-tembre 1896, l'Éclair publie un article où le procès
+désire ignorer quand il n'a pas la foi. Le 14 septembre 1896, l'Éclair publie un article où le procès
 
 de 1894 est relaté dans ses détails, la pièce secrète
-divulguée. Quelque oflicier, quelque agent du mi-
-nistre, l'avait communiqué.;
+divulguée. Quelque oflicier, quelque agent du ministre, l'avait communiqué.;
 
-N'aurions-nous pas été dès lors fondés à pro-
-
-tester? Oui, semble-t-il. On nous mettait sous les
+N'aurions-nous pas été dès lors fondés à protester? Oui, semble-t-il. On nous mettait sous les
 yeux des documents secrets dont nous avions éloigné?
 
 de nous la curiosité. N'était-ce pas nous inciter, nous |.
@@ -622,19 +582,14 @@ autoriser même, à reprendre tout ce procès et l'in- à
 struire par nous-mêmes? Il y a deux morales, nous
 
 dit-on, l'une à l'usage des chefs, qui autorise les;
-crimes, l'autre à l'usage des peuples, qui les con-
-damne. Soit, et davantage encore: trois, quatre, dix
+crimes, l'autre à l'usage des peuples, qui les condamne. Soit, et davantage encore: trois, quatre, dix
 morales, tant qu'on voudra; mais qu'on les tienne à
 
 distinctes! Et si les chefs laissent divulguer les irré- |.
-gularités, les injustices, les faux dont l'accomplisse-
-
-ment est un de leurs privilèges, s'ils prétendent en }.
+gularités, les injustices, les faux dont l'accomplissement est un de leurs privilèges, s'ils prétendent en }.
 imposer la défense à leurs peuples, n'est-ce pas chose à
 
-naturelle, dans toute la force du terme, chose nor-
-
-male et due, si ces peuples, jugeant d'après une
+naturelle, dans toute la force du terme, chose normale et due, si ces peuples, jugeant d'après une
 
 ï autre morale, qui est simple, qui recommande en
 
@@ -645,8 +600,7 @@ ute occasion la véracité, la justice, s'indignent
 Jaissâmes rassurer par l'allégation d'une pièce se- a
 crète. M. Reinach ne mentionne pas une seule pro:
 Lestation contre la procédure illégale dont un pre-
-. même, dès lors sollicités, se refusèrent. Nos dispo-
-sitions prudentes n'étaient pas ébranlées.
+. même, dès lors sollicités, se refusèrent. Nos dispositions prudentes n'étaient pas ébranlées.
 - Cependant, Mathieu Dreyfus, désespéré par l'at_ tente, voulut agir. Il publia enfin, il répandit la
 première brochure de Bernard Lazare. Ce vigoureux
 4 écrit ne produisit aucun eflet.
@@ -660,9 +614,7 @@ l'avais trouvé, et je me détournai. Bien des gens, à
 Nous nous détournions en vain: nous étions,
 à notre insu, encerclés par l'Affaire. Les directeurs
 de journaux, moins inertes que leurs publics,
-avaient été rendus curieux de documents par l'ar-
-
-ticle de l'Éclair. Le 10 novembre un fac-simile du -
+avaient été rendus curieux de documents par l'article de l'Éclair. Le 10 novembre un fac-simile du -
 bordereau parut dans le Matin. De cette indiscré-
 
 . tion nouvelle, c'est encore, c'est toujours la légèreté
@@ -685,8 +637,7 @@ Mathieu Dreyfus fit reproduire ce fac-simile. IL
 tenait enfin un instrument pour ses recherches,
 la découverte du coupable ne pouvait plus tarder.
 
-Comment se produisit-elle? C'est le colonel Picquart que nous devons suivre ici. Toutes les diff-
-cultés de l'Affaire pèsent alors sur lui seul. Envoyé,
+Comment se produisit-elle? C'est le colonel Picquart que nous devons suivre ici. Toutes les diffcultés de l'Affaire pèsent alors sur lui seul. Envoyé,
 de mission en mission, jusqu'aux dangereux confins
 de ces déserts tripolitains où Morès avait été
 assassiné, il devine quel destin on désire pour
@@ -694,13 +645,12 @@ lui. Sa situation est poignante et délicate. Deux:
 
 4; devoirs le réclament, l'un humain et personnel,
 : l'autre social et professionnel. « Je n'emporterai
-A pas ce secret dans ma tombe! » avaitil dit au gé-
-néral Gonse. Et on cherche sa mort. Comment
+A pas ce secret dans ma tombe! » avaitil dit au général Gonse. Et on cherche sa mort. Comment
 pourra-t-il s'expliquer? sous quelle forme, et à qui?
 - Les documents qu'il connaît appartiennent à l'État.:
-1 Il sait tout, que peut-il? Il se décide pourtant, il
+Il sait tout, que peut-il? Il se décide pourtant, il
 Es écrit, cachète, pour être remis au président de la
-É: République, après sa mort, un rapport confidentiel,
+République, après sa mort, un rapport confidentiel,
 4 exposé fort simple, très clair et très court, beau
 ne dans sa lucidité mathématique, d'une affaire qui
 P. est la plus simple du monde: le capitaine Dreyfus
@@ -711,8 +661,7 @@ ne l'avertissaient d'un complot soit ourdi, soit
 
 toléré, par ses chefs. On ouvre son courrier, on
 . lui écrit des lettres menaçantes. Il lui devient
-5: évident qu'on se prépare à déshonorer son témoi-
-gnage, s'il vit, ou, plus commodément, s'il meurt,:
+5: évident qu'on se prépare à déshonorer son témoignage, s'il vit, ou, plus commodément, s'il meurt,:
 Sa mémoire, par une accusation calomnieuse. C'est
 “2 plus qu'il ne peut accepter. — Il passer quelques
 - jours à Paris, et se confie à son ami Leblois,
@@ -745,14 +694,11 @@ Pouvait-il ne le point aviser? devait-il hésiter?
 L'idée d'un tel devoir, d'un tel silence, n'effleura:
 pas cet honnête homme. Sut-il les perspectives
 immenses qui s'ouvraient devant lui? mesura-t-il à
-4 les ébranlements que son initiative allait déter-
-
-miner? Cela est douteux. Scheurer était un bon
+4 les ébranlements que son initiative allait déterminer? Cela est douteux. Scheurer était un bon
 esprit, non pas un grand esprit; son instinct tique était faible, ses vues, à cet égard, très limitées.
 à Qu'envisageait-il? Un acte sans doute malaisé de
 pitié et de droiture élémentaires: « Vous dire la!
-joie avec laquelle je pense aux bonheurs à recon-
-stituer m'est impossible, écrit-il à Reinach; mon
+joie avec laquelle je pense aux bonheurs à reconstituer m'est impossible, écrit-il à Reinach; mon
 3 cœur bondit. » Reinach l'appelle « Mon cher
 Arouet... » Scheurer remet les choses au point à
 à avec la plus noble simplicité: Je ne suis, écrit-il,
@@ -776,8 +722,7 @@ vrai, le fond des choses? s'agit-il de sauver
 monde?
 
 Scheurer parla donc à Billot, qui lui demanda
-vingt jours d'attente. Et tandis qu'il observait honnêtement cette consigne de silence, la presse pari-
-sienne entière, ou presque entière, l'insulta.
+vingt jours d'attente. Et tandis qu'il observait honnêtement cette consigne de silence, la presse parisienne entière, ou presque entière, l'insulta.
 
 Et quelle fut dès lors notre situation? La période
 È des recherches, des cheminements individuels, était
@@ -789,10 +734,8 @@ pas, en tous cas généreuse, méritait le respect.
 Devions-nous le laisser accabler? n'étions-nous pas
 tenus à lui témoigner, si peu que ce fût, notre sympathie et notre attention? Cependant, mainte rumeur nous instruisant, nous apprenions l'histoire
 du colonel Picquart. Il était en Afrique. À Paris, la
-police, dirigée par Henry, forçait ses meubles, sai-
-sissait ses papiers. Quel coup préparait-on? Cette
-autre et différente affaire, la troisième, devions-
-nous l'ignorer? Nous pressentions qu'il était temps,
+police, dirigée par Henry, forçait ses meubles, saisissait ses papiers. Quel coup préparait-on? Cette
+autre et différente affaire, la troisième, devionsnous l'ignorer? Nous pressentions qu'il était temps,
 grand temps, d'interrompre une suite de méfaits
 inconnus que notre longue, trop longue réserve,
 avait si bien, trop bien favorisée. L'aide de camp
@@ -812,11 +755,9 @@ clos, acclamé par les spectateurs, et un jeune prince
 de la Maison de France jugea opportun de lui
 sauter au cou. Fallait:il tolérer le scandale des
 acclamations à l'indigne après le scandale des insultes aux justes? Nous regardâmes ces documents
-à que les journaux publiaient: trois spécimens d'écri-
-si ture, celle du bordereau, celle de Dreyfus, celle à
+à que les journaux publiaient: trois spécimens d'écrisi ture, celle du bordereau, celle de Dreyfus, celle à
 … d'Esterhazy. Nous ne pouvions les ignorer, chaque
-jour ils frappaient nos yeux. L'écriture du borde-
-reau, celle d'Esterhazy, étaient une même écriture;
+jour ils frappaient nos yeux. L'écriture du bordereau, celle d'Esterhazy, étaient une même écriture;
 À nous le dimes, et ce simple dire fut cause qu'on
 nous appela traîtres. Dès cet instant nos libertés
 furent suspendues par l'opinion publique en folie.
@@ -831,9 +772,7 @@ celle-ci la France était l'objet, qui reprenait, qui
 Les chefs de l'EÉtat-major, qui n'avaient tenir;
 à leur secret, prétendaient que le pays fit naïvement
 4 ce qu'ils n'avaient faire, et par sa presse, ses A
-orateurs, s'entretint dans l'illusion. Frivole et né-
-
-faste entreprise! L'erreur et l'injustice divulguées,
+orateurs, s'entretint dans l'illusion. Frivole et néfaste entreprise! L'erreur et l'injustice divulguées,
 . produisant leurs effets, entraînaient le pays entier
 vers la bêtise ou la méchanceté, vers la bêtise et la
 Car en toute injustice il y a deux victimes à consi-
@@ -862,8 +801,7 @@ prodigieux ébranlement existait déjà, en un instant
 —._ s'agissait de tout autre chose, du salut de l'esprit à
 français. La cause de son altération était, nous le
 3 savions, cette affaire Dreyfus, toute obscure, et:
-dont s'élevaient de malsaines bouffées. Colère anti-
-sémite, colère antimilitariste; fanatisme de l'affirmame. tion, fanatisme de la critique; haine de toute pensée
+dont s'élevaient de malsaines bouffées. Colère antisémite, colère antimilitariste; fanatisme de l'affirmame. tion, fanatisme de la critique; haine de toute pensée
 . libre, haine de toute adhésion mystique; fureur
 : 2 humanitaire, fureur patriotique; rien n''émanait de
 qui ne fût colère, fanatisme, haine, ivresse ou
@@ -912,8 +850,7 @@ jeunesse, nos vies détournées, sans doute à jamais
 altérées, dérobées de ce calme que tout pays civilisé
 doit à ses enfants, tandis que nous reposions, écoutions, travaillions, dans des dispositions excellentes,
 dans la plus entière sagesse, tolérance et bonne volonté de pensée.
-De cet attentat dont la France avec nous est vic-
-time, nous tenons responsable la haute bourgeoisie
+De cet attentat dont la France avec nous est victime, nous tenons responsable la haute bourgeoisie
 de la démagogie antisémite; et, quels que soient
 ) les torts dont nous puissions, à l'examen, nous
 avouer coupables, nous n'oublierons pas celui-là.
@@ -923,10 +860,8 @@ Tâchons de retracer ces dispositions évanouies.
 M. Charles Maurras, lorsqu'il parle de ces temps
 déjà mal saisissables, dénonce un trouble grave,
 que suscitaient Tolstoï, Ibsen, Maeterlinck. Sans
-doute, un tel trouble existait, mais nous ne le sen-
-tions, en nous, autour de nous, ni intense ni funeste.
-; Quoi qu'il parût, ces apports intéressaient, n'alté-
-raient pas; Nietzsche, le dernier des maîtres étran754 gers, s'opposait à Tolstoï et ramenait lui-même vers
+doute, un tel trouble existait, mais nous ne le sentions, en nous, autour de nous, ni intense ni funeste.
+; Quoi qu'il parût, ces apports intéressaient, n'altéraient pas; Nietzsche, le dernier des maîtres étran754 gers, s'opposait à Tolstoï et ramenait lui-même vers
 les disciplines classiques. (1)
 Ibsen instruisait M. de Curel, mais n'empêchait
 pas M. Donnay d'écrire Amants. Tolstoï enseignait
@@ -934,14 +869,12 @@ pas M. Donnay d'écrire Amants. Tolstoï enseignait
 simplement conter, mais ne le persuadait pas d'être
 Be. un sectaire. Et quand notre pauvre Charles-Louis
 Philippe s'exaltait en découvrant Dostoievsky, il
-. cultivait, il ne déformait pas, cette admirable sen-
-sibilité tout à l'heure brisée. France commençait de
+. cultivait, il ne déformait pas, cette admirable sensibilité tout à l'heure brisée. France commençait de
 :. nous donner ses livres les plus beaux; Barrès,
 maître de sa langue après un dur travail, publiait
 2 ses œuvres définitives: tels étaient nos maîtres. Les
 premiers vers de Fernand Gregh, mesurés et char-;
-mants, signifiaient la rupture avec les fantaisies déca-
-dentes et symbolistes. Charles Guérin méditait ses:
+mants, signifiaient la rupture avec les fantaisies décadentes et symbolistes. Charles Guérin méditait ses:
 4 poèmes. Nous lisions les essais de Maurras, par
 (1) C'est dans une petite revue, le Banquet, où je travaillais
 avec quelques amis, que fut commencée, en 1892, l'étude et la À
@@ -960,8 +893,7 @@ rencontrait une jeune fille pour écrire d'un tel style,
 roles écoutions-nous? Celle d'un Degas, véhémente,
 sage; celle d'un France, ailée, robuste. La renais-
 2 sance du goût français, aujourd'hui manifeste, s'an- a
-nongçait dès lors, non gâtée par un pernicieux roïidis-
-sement des formules. Toute rumeur de guerre civile
+nongçait dès lors, non gâtée par un pernicieux roïidissement des formules. Toute rumeur de guerre civile
 étant absente, nous nous préparions à collaborer
 5 au maintien d'une culture qui était notre héritage, #4
 notre passion, notre honneur; et nous nous croyions
@@ -972,17 +904,11 @@ subtile en ses nuances, chaque famille fut en peu de
 jours à son poste, sûre de ses manœuvres et retran-
 5, _chée derrière ses portes closes. Car Paris a ses À
 
-familles comme Florence eut les siennes, et ses mai-
-
-sons non couronnées de tours n'en abritent pas
+familles comme Florence eut les siennes, et ses maisons non couronnées de tours n'en abritent pas
 
 moins des factions guerrières. L'esprit français
 
-reprit avec une rapidité inouïe ses formations clas-
-
-siques, l'une autoritaire et l'autre libertaire, celle-
-
-croyante et celle-ci critique. Les morts parlent:
+reprit avec une rapidité inouïe ses formations classiques, l'une autoritaire et l'autre libertaire, cellecroyante et celle-ci critique. Les morts parlent:
 
 M. de Vogüé donna ce titre à un roman qu'il
 
@@ -994,15 +920,11 @@ exacte n'aurait produire des gestes si prompts,
 
 si justes. Hommes de droite, hommes de gauche,
 
-sées. Ils se levaient, se retrouvaient, se connais-
-
-saient pour la première fois et vivaient sans un
+sées. Ils se levaient, se retrouvaient, se connaissaient pour la première fois et vivaient sans un
 
 Cette résurrection de tous les passés d'un peuple
 
-fut un événement très grandiose, mais très incom-
-
-mode pour beaucoup de ceux qui furent saisis en lui.
+fut un événement très grandiose, mais très incommode pour beaucoup de ceux qui furent saisis en lui.
 
 Les réactionnaires eurent la tâche la plus aisée:
 
@@ -1013,9 +935,7 @@ depuis vingt ans, sinon cinquante, l'intelligence
 : bert, Bourget, Brunetière, Barrès, tels avaient été
 . leurs maîtres — nos maîtres; ils avaient oublié,
 
-nous avions oublié avec eux, l'histoire de la Révo-
-
-lution; mais ils en possédaient, nous en possédions
+nous avions oublié avec eux, l'histoire de la Révolution; mais ils en possédaient, nous en possédions
 
 avec eux, la critique. Ils ne furent pas en peine
 à d'arguments; formules, lieux communs, rien ne leur:
@@ -1028,8 +948,7 @@ Notre situation était différente. Ces idées que
 nous admettions, ou croyions admettre avec eux,
 quand nous les exprimions, c'était avec un autre
 accent. Nous lisions, plus volontiers que Taine,
-Renan. L'un et l'autre ont même pensée: ils critiquent le rationalisme moral et politique des Fran-
-çais. Tout ce qui est de l'âme, dit Renan, demeure
+Renan. L'un et l'autre ont même pensée: ils critiquent le rationalisme moral et politique des Français. Tout ce qui est de l'âme, dit Renan, demeure
 irrésolu, et les mythes sont notre recours. Tout ce
 qui est social, dit Taine, est de même irrésolu, et
 les traditions sont le recours des peuples. Renan
@@ -1086,8 +1005,7 @@ ni élus par le peuple, ni, semble-t-il, aimés; mais à
 : qu'en échauffer la fin), jamais il ne dénonce leur À
 maîtrise. Historien, observateur du passé, Renan
 - est inflexible. Il ne cesse d'apercevoir et de montrer
-les hiérarchies succédant aux hiérarchies, les dynas-
-ties, les castes militaires et sacerdotales fondant les À
+les hiérarchies succédant aux hiérarchies, les dynasties, les castes militaires et sacerdotales fondant les À
 4 empires, et les civilisations fléchissant quand elles
 fléchissent. Philosophe, poète et collaborateur du:
 travail de son siècle, il est moins net. Il ne lui
@@ -1113,14 +1031,12 @@ recevoir; vous verrez la solution de cette énigme, monsieur.
 Les hommes extraordinaires pour lesquels nous nous
 sommes passionnés, eurent-ils tort, eurent-ils raison? De
 cette ivresse inouïe, réduite à l'exacte balance des profits et
-des pertes, que reste-t-il? Le sort de ces grands enthou-
-siastes sera-t-il de demeurer éternellement isolés, suspendus
+des pertes, que reste-t-il? Le sort de ces grands enthousiastes sera-t-il de demeurer éternellement isolés, suspendus
 à dans le vide, victimes d'une noble folie? Ou bien ont-ils, en
 somme, fondé quelque chose et préparé l'avenir? On ne le
 sait pas encore. J'estime que, dans quelques années, on le
 saura. Si, dans dix ou vingt ans, la France est prospère et
-libre, fidèle à la légalité, entourée de la sympathie des por-
-tions libérales du monde, oh! alors, la cause de la Révolu-;
+libre, fidèle à la légalité, entourée de la sympathie des portions libérales du monde, oh! alors, la cause de la Révolu-;
 tion est sauvée; le monde l'aimera et en goûtera les fruits,
 sans en avoir savouré les amertumes. Mais si, dans dix ou
 vingt ans, la France est toujours à l'état de crise, anéantie; À
@@ -1178,9 +1094,7 @@ es disparut dans un dreyfusisme plus vaste, plus
 : tyrisé à la face du monde, devint pour beaucoup
 d'entre nous une véritable souffrance. Les puérils
 mensonges que des généraux importants, des
-ministres graves, propageaient ou laissaient pro-
-
-pager pour sauver l'honneur d'une caste, nous
+ministres graves, propageaient ou laissaient propager pour sauver l'honneur d'une caste, nous
 faisaient horreur. Ainsi les expressions générales
 de notre mouvement se confondirent très vite avec
 les expressions traditionnelles de la Révolution
@@ -1196,8 +1110,7 @@ La Fayette, Danton; quelle est, parmi tant de
 familles, la nôtre? N'en doutons pas, c'est l'une:
 d'elles. Mais nous la chercherons plus tard. La;
 À camaraderie surtout est nécessaire dans un combat,
-4 et nous nous liâmes bien fort avec tous les cama-
-rades qui s'offraient, protestants irrités contre un
+4 et nous nous liâmes bien fort avec tous les camarades qui s'offraient, protestants irrités contre un
 è symbole, juristes exigeants sur les formes, femmes
 À pleurant sur le martyr, bons catholiques qu'effrayait
 É leur audace, Juifs frémissants sur leur race, logi-
@@ -1243,8 +1156,7 @@ cinq minutes, découvrit que cette Affaire était triste,
 que nous devions, pour le bien du pays, désirer
 nous tromper, et souhaïter constamment qu'une
 preuve fût donnée contre nous. Intéressé par sa
-découverte, il la dit à ses amis, qui d'abord lui jetè-
-rent de mauvais regards. (Que nous nous disputions entre nous! nos adversaires ne l'ont jamais
+découverte, il la dit à ses amis, qui d'abord lui jetèrent de mauvais regards. (Que nous nous disputions entre nous! nos adversaires ne l'ont jamais
 su.) Il s'expliqua: nous l'entendimes, nous avouâmes
 qu'il disait vrai. Ce ne fut qu'une lueur. Nous
 oubliâmes, il oublia lui-même un souhait d'ailleurs
@@ -1280,17 +1192,14 @@ appelé, beau chef de bande, toujours si gai, riait, et
 É L'audace irréfléchie passa pour cou-
 Ce rage et dévouement à ses amis; la lenteur
 prudente pour une Jlàächeté déguisée; la
-modération pour un prétexte de la timi-
-dité; la grande intelligence pour une À
+modération pour un prétexte de la timidité; la grande intelligence pour une À
 
 Quoi donc enfin devions-nous faire? Nous étions
 jeunes: il fallait nous guider dans cette soudaine.
 Je pense à un groupe de très sages Français
 que nous avions l'habitude d'écouter avec atten-
 
-: Prudhomme, le duc de Broglie, le comte d'Haussonis ville, Boutroux, Anatole Leroy-Beaulieu. Ils conti-
-
-nuaient assez bien parmi nous cette manière de
+: Prudhomme, le duc de Broglie, le comte d'Haussonis ville, Boutroux, Anatole Leroy-Beaulieu. Ils continuaient assez bien parmi nous cette manière de
 penser qu'on appelait, voici quelque trente ans,
 l'orléanisme. En 1825, ils eussent collaboré avec
 Guizot, Rémusat, Cousin, dans ce Globe si apprécié
@@ -1308,9 +1217,7 @@ et leur silence n'aurait pas de fin, si amis,:
 ennemis, ne les avaient contraints, par de véhé- Es
 mentes instances, à parler. Paroles courtes; des
 souvenirs, des lettres familières permettront un
-; jour de mieux pénétrer le secret de ces délibéra-
-tions intimes qui sont l'essentiel de l'Affaire Drey-
-fus. Contentons-nous aujourd'hui de ce qui nous est
+; jour de mieux pénétrer le secret de ces délibérations intimes qui sont l'essentiel de l'Affaire Dreyfus. Contentons-nous aujourd'hui de ce qui nous est
 L'occasion fut celle-ci. En décembre 1899, la Cour
 de Cassation, enfin saisie, instruisait, et l'opinion
 semblait prête à subir une solution qu'elle n'aimait
@@ -1340,8 +1247,7 @@ avait suscités. C'est l'Académie Française que
 MM. Syveton, Dausset et leurs amis, voulaient conquérir par cette voie prudente. Ils la conquirent en
 
 effet, et réussirent à montrer que si l'intelligence
-raisonneuse des professeurs était avec les dreyfu-
-sards, l'intelligence plus délicate des lettrés ne les À
+raisonneuse des professeurs était avec les dreyfusards, l'intelligence plus délicate des lettrés ne les À
 suivait pas.
 
 Paul Bourget, José-Maria de Heredia, le duc de
@@ -1355,8 +1261,7 @@ déclarations, éclairées, discutées, complétées, par
 des répliques, des lettres souvent fort belles, constituent un document du premier ordre (collection
 du Temps, premier trimestre 1899).
 
-Ces déclarations sont très modérées. Elles ré-
-pètent presque toutes une idée dont le retour laisse
+Ces déclarations sont très modérées. Elles répètent presque toutes une idée dont le retour laisse
 sans doute deviner l'artifice par lequel avaient été
 obtenues ces adhésions tant souhaitées. « Ceux qui
 ont demandé la révision ont ce qu'ils désirent,
@@ -1365,9 +1270,7 @@ et de nous agiter. » Le ton n'est pas aimable, mais
 le fond est acceptable et sensé. « Nous ne prenons
 pas part dans l'affaire Dreyfus, dit Brunetière; le
 règlement en appartient à la Cour suprême, nous
-sommes heureux de cette solution... » « Relative-
-
-ment à l'affaire Dreyfus, dit le vieil universitaire
+sommes heureux de cette solution... » « Relativement à l'affaire Dreyfus, dit le vieil universitaire
 Crouslé, ce que je croyais le meilleur, c'était le
 silence... » Le duc de Broglie ne parle pas. Il
 è semble qu'il préférât toujours, avec ses amis même,
@@ -1384,13 +1287,9 @@ surtout un appel à la conciliation; l'appel ne semble
 pas avoir été entendu. »
 
 Émile Faguet s'explique davantage. Dans l'appel
-publié par la Ligue, il n'y a pas un mot sur le res-
+publié par la Ligue, il n'y a pas un mot sur le resconnaît ces lacunes, pourtant il a signé. « Raffermir
 
-connaît ces lacunes, pourtant il a signé. « Raffermir
-
-la notion de patrie est aujourd'hui une œuvre essen-
-
-tiellement utile, dit-il... Vous comprendrez que j'ai
+la notion de patrie est aujourd'hui une œuvre essentiellement utile, dit-il... Vous comprendrez que j'ai
 
 réserver pour plus tard l'examen de certaines
 
@@ -1401,9 +1300,7 @@ qu'elles constituent, par leur ensemble, l'idée maf-
 É tresse de patrie... » Mais, ajoute-t-il, Qce retard ne
 peut être long... » En fait, M. Émile Faguet occupa
 
-dans la Ligue une place très effacée, très peu con-
-
-venable à l'activité de son esprit. La récente publication de ses belles études sur les politiques et les
+dans la Ligue une place très effacée, très peu convenable à l'activité de son esprit. La récente publication de ses belles études sur les politiques et les
 
 à moralistes du dix-neuvième siècle français lui confé- À
 ; rait alors une autorité très grande. On peut dire;
@@ -1414,9 +1311,7 @@ M. de Vogüé ne s'explique pas: tout à l'heure
 ; nous pourrons examiner son état d'esprit. M. Paul
 À Bourget, absent de Paris, n'écrit pas. On devine
 : pourtant son attitude. Radicalement hostile aux À
-idéologies habituelles du dreyfusisme, mais répu-
-
-gnant à tout entrainement démagogique, il trouvait
+idéologies habituelles du dreyfusisme, mais répugnant à tout entrainement démagogique, il trouvait
 légitime la contestation d'une sentence suspecte
 d'illégalité, et continuait à Émile Zola une estime et
 une amitié anciennes. Il n'est pas sûr qu'il ait signé
@@ -1472,8 +1367,7 @@ Albert Sorel ne put moins faire que répondre:
 « Je pense au lendemain... » dit-il; et c'est ainsi
 qu'ils s''échappaient tous. « Penser au lendemain
 la maxime semble sage. Mais, si l'on y prend garde,
-c'est une maxime d'étourdi, qui par sottise tré-
-buche en regardant loin de ses pieds. Avant le lendemain, il y a le jour même, dont la solidité assure
+c'est une maxime d'étourdi, qui par sottise trébuche en regardant loin de ses pieds. Avant le lendemain, il y a le jour même, dont la solidité assure
 toute la suite. Il n'est pas bon de tant prévoir, surtout en politique, où on prévoit si mal. Il faut
 résoudre les questions présentes. Or, il n'y en avait
 qu'une en ce janvier 1899, et c'était cette Affaire
@@ -1516,9 +1410,7 @@ par les hommes.
 
 Pourquoi ne nous aïdiez-vous pas, ou si peu, si
 
-mal et de si loin, nous laissant insulter, nous insul-
-
-tant parfois, vous qui dans le fond n'étiez pas loin
+mal et de si loin, nous laissant insulter, nous insultant parfois, vous qui dans le fond n'étiez pas loin
 
 : de nous, plus près en tous cas, infiniment plus près
 
@@ -1540,8 +1432,7 @@ que leur action récente les eût autorisés à bien
 combattre, ces libéraux laissèrent s'élever un mou-:
 vement révolutionnaire contre lequel ils se trou- &.
 vèrent discrédités par leur inaction.:
-Cette faute est fréquente. — Voici une quaran-
-taine d'années, à la veille de la guerre, le duc Louis
+Cette faute est fréquente. — Voici une quarantaine d'années, à la veille de la guerre, le duc Louis
 Decazes (celui qui fut ensuite ministre des affaires
 1 étrangères) imprima que le roi Louis-Philippe et
 ; M. Guizot, son ministre, s'ils avaient concédé à
@@ -1557,7 +1448,7 @@ Decazes, qui résolut d'aller rendre visite au vieil Ne.
 3 pas été abordé. Et, comme il prenait congé
 Le duc Decazes attendit.
 — J'ai votre brochure. Si j'avais fait ce que
-LE: vous avez dit, si j'avais concédé la réforme électo- -;
+LE: vous avez dit, si j'avais concédé la réforme électo-
 rale, savez-vous ce qui serait arrivé?
 
 Le duc Decazes signifia, par son silence et une
@@ -1576,8 +1467,7 @@ M. Brunetière, mais l'apaisement vrai, celui que donnerait
 au pays une lumière implacable et une sévérité inflexible.
 Les bases historiques de la patrie française, j'y crois comme )
 M. Brunetière; seulement j'appellerais de ce nom une poli-;
-tique franche, une justice défendue par l'autorité, des pen-
-seurs qui pensent droit, des écrivains qui n'emploient les
+tique franche, une justice défendue par l'autorité, des penseurs qui pensent droit, des écrivains qui n'emploient les
 beaux mots que pour les belles choses, et enfin, — car c'est
 la question qu'il faut le moins esquiver et ici, c'est moi
 qui parle de nos institutions militaires avec amour et
@@ -1642,16 +1532,13 @@ plus tôt, qu'il eût été bienfaisant de le faire; nous
 
 les coups cruels.
 
-à: Un effort fut tenté. Le 24 janvier parut un Appel
+Un effort fut tenté. Le 24 janvier parut un Appel
 à l'union que Sully-Prudhomme, et MM. Émile
 
 . Boutroux, Ernest Lavisse, signèrent avec Gaston -
 
-? Paris. Le nom de M. de Vogüé n'y figure pas. Peut-
-
-être on craignit de le lui demander. En ce temps-là,
-3 un mot pouvait suflire à déterminer les malen-
-tendus, les irritations les plus pénibles. On se
+? Paris. Le nom de M. de Vogüé n'y figure pas. Peutêtre on craignit de le lui demander. En ce temps-là,
+3 un mot pouvait suflire à déterminer les malentendus, les irritations les plus pénibles. On se
 taisait, parfois c'était un mal.
 Mais que pouvait, en cette Affaire chaque jour
 
@@ -1747,13 +1634,11 @@ tendis ces mots: à
 — L'Affaire Dreyfus, c'est un coup des jésuites —
 contre la France. Ils nous détestent, parce que nous
 sommes en république. Leur général, qui est un
-Allemand, a fait condamner Dreyfus pour désorga-
-niser notre armée.
+Allemand, a fait condamner Dreyfus pour désorganiser notre armée.
 
 Puis les voix se mélèrent; j'étais suffisamment À
 instruit. Cette légende stupide, née entre quatre
-absinthes, annonçait l'avenir. J'éprouvais un saisis-
-sement non tout à fait désagréable. Un mensonge,:
+absinthes, annonçait l'avenir. J'éprouvais un saisissement non tout à fait désagréable. Un mensonge,:
 enfin, pensais-je confusément, un mensonge pour
 
 nous! Une force immense nous venait donc, la force
@@ -1824,7 +1709,7 @@ des lois qui rendront la société juste. »
 Ce fut très beau, nous disent ceux qui se mêlèrent
 à ces foules. Assurément ce fut émouvant, puisqu'ils furent émus. On nous avait tant reproché;
 d'être des intellectuels, des manieurs de texte in- -
-surgés contre un peuple: nous eûmes plaisir à:
+surgés contre un peuple: nous eûmes plaisir
 n'être plus cela, et à sentir un peuple immense près
 de nous; mais ce plaisir terminait définitivement
 le premier dreyfusisme, ce jeu aristocratique et
@@ -1889,8 +1774,7 @@ vrai des sociétés humaines, sommes-nous armés
 rigueur on peut le dire. Mais le juste des sociétés
 humaines, c'est-à-dire, la fin qui les ordonne, ou
 . les fins, s'il en est plusieurs, saurons-nous les défi-;
-nir? Pourtant ces différences, si profondes soient-
-elles, ne vont jamais jusqu'à détruire l'identité fon-
+nir? Pourtant ces différences, si profondes soientelles, ne vont jamais jusqu'à détruire l'identité fon-
 _damentale. Il existe des formules de justice, il
 existe des vérités, et Le vrai détermine le juste.
 . Mais ce n'est pas l'instant d'analyser cette nou-
@@ -1903,8 +1787,7 @@ _sibles. La Cour ayant ordonné la révision, le minis-. ES
 s'agitaient; ils exhortaient, ils agitaient leurs
 hom mes. Qui leur imposerait silence? Dreyfus
 revenait, un cuirassé le ramenaïit en France; trou- à
-verait-il, au débarqué, Guérin et ses bandes mai-
-esses? Ceût été absurde. IL fallait maintenir:
+verait-il, au débarqué, Guérin et ses bandes maiesses? Ceût été absurde. IL fallait maintenir:
 dre pendani la durée du procès, assurer une fin
 rapide à l'affaire par nous engagée; il fallait gou_ verne: enfin. Qui le pouvait?
 
@@ -1936,21 +1819,18 @@ Poincaré renonca. Waldeck-Rousseau fut appelé.
 Il avait prononcé au Sénat un discours admirable
 10 contre la loi de dessaisissement, et cet acte lui avait
 donné autorité sur nous. Waldeck-Rousseau comprenait parfaitement que la crise était sans rap-
-- port avec les dispositions des groupes parlemen-
-taires, et dès le premier instant il conçut le double
+- port avec les dispositions des groupes parlementaires, et dès le premier instant il conçut le double
 …. choix: Millerand-Galliffet. Mais enfin il était un
 4 … progressiste, et ne voulut pas rompre avec ses amis
 dès le premier instant. Il appela Poincaré; c'était
-… appeler l'échec. Poincaré vint. Les modérés, tou-
-jours à sa suite, se mirent à réclamer, exclure. Ils
+… appeler l'échec. Poincaré vint. Les modérés, toujours à sa suite, se mirent à réclamer, exclure. Ils
 - exclurent Millerand. M. Joseph Reinach cite une
 lettre qu'il reçut de Waldeck-Rousseau:
 - Mon cher ami, l'ère des diflicullés commence. Tous
 a. acceptent d'aller avec moi, mais celui-ci croyait qu'il y
 4 aurait celui-là ou qu'il n'y auraït pas celui-ci. Ce soir, à
 … neuf heures, tout sera fait ou tout sera cassé. Quoiqu'il en
-À soit, rien ne peut se faire si vos amis [les socialistes] n'ac-
-ceptent pas l'homme admirable [Galliffet] qui donne un
+À soit, rien ne peut se faire si vos amis [les socialistes] n'acceptent pas l'homme admirable [Galliffet] qui donne un
 exemple sans précédent. Il me paraissait facile de négocier -
 en prenant Millerand. C'est devenu impossible et je ne
 Ne. dépasserai pas Lanessan. « Vos amis » ont le sens politique.
@@ -1995,8 +1875,7 @@ que Millerand alla le relancer. Les trois hommes
 A _s'accordèrent pour agir. Le ministère, à vrai dire,:
 était constitué par eux seuls. RARE
 Quel assemblage imprévu, symbole exact du A.
-. dreyfusisme! Un progressiste renié par les progres-
-sistes, un gentilhomme soldat renié par ceux desa
+. dreyfusisme! Un progressiste renié par les progressistes, un gentilhomme soldat renié par ceux desa
 caste et de sa profession, un socialiste bientôt renié Re:
 parla moitié de son parti, allaient instituer un gou
 5 vernement, restaurer un régime. Réfléchissons
@@ -2039,12 +1918,10 @@ Puis il semble qu'il usa de son autorité secrète
 « Il tendit, éleva les bras, écrit M. Joseph Reinach,
 
 ; Le ministère Waldeck-Rousseau continuait une
-à tradition: c'était sa force. Car l'ensemble des émo-
-tions, des solidarités républicaines constitue très
+à tradition: c'était sa force. Car l'ensemble des émotions, des solidarités républicaines constitue très
 exactement une tradition, la dernière qui nous
 reste. Où est la vôtre, hommes de la droite, qui sans
-: cesse en parlez? Nous l'avons connue dans Chateau-
-briand, Veuillot, Balzac, et la voici très active en;
+: cesse en parlez? Nous l'avons connue dans Chateaubriand, Veuillot, Balzac, et la voici très active en;
 mainte prose de jeune homme. Mais elle est absente
 des faits, et, depuis cinquante années, sans prise
 sur notre histoire.;
@@ -2077,14 +1954,12 @@ expédient, ces républicains étant là, de leur
 - laisser la peine, puis d'intervenir un peu plus tard 3 pe.
 Pet de recueillir les. fruits. Tel était leur calcul, dont
 Hi. la vilenie fut châtiée. Ils n'eurent pas même la )
-force de recueillir ces fruits. Ces ennemis de la. a:
+force de recueillir ces fruits. Ces ennemis de la.
 République, ces représentants de la tradition, à à
 vrai dire, en servaient trois — l'une, légitimiste:
 =. une autre, orléaniste; une autre encore, bonapar- Ca.
 é tiste — qu'ils ne surent jamais accorder.
-He. Cependant les républicains travaillaient et ser-
-un le pays: voilà leur titre. Nos « traditio-
-nalistes » se targuent de n'être pas des intellectuels.
+He. Cependant les républicains travaillaient et serun le pays: voilà leur titre. Nos « traditionalistes » se targuent de n'être pas des intellectuels.
 bS: Ils nous le disent en vingt volumes très bien écrits.
 Les républicains qui se croient volontiers des intel
 5 lectuels, écrivent mal; mais ils gouvernent. Leur
@@ -2138,9 +2013,7 @@ la sociale! Paul Desjardins était l'un des nôtres; il
 mots que nous lisons, écoutons, qu'éprouvent-ils?
 à 11 faudrait le savoir, nous ne le savons pas.
 
-En effet, nous ne le savions pas. Si notre étonne-
-
-ment recouvrait, comme il se peut, une inquiétude
+En effet, nous ne le savions pas. Si notre étonnement recouvrait, comme il se peut, une inquiétude
 naissante, disons qu'elle était fondée, car notre
 
 triomphe annonçait toutes nos difficultés.
@@ -2154,9 +2027,7 @@ travail; dix années pour examiner nos pensées,
 7 pour préparer patiemment, non la conquête d'une
 autorité vaine, mais des institutions vraiment républicaines, populaires et pourtant distinctes de la
 
-à c'est-à-dire (les mots ont même sens) aristocratique-
-
-ment régies. Nous envisagions cette période, non
+à c'est-à-dire (les mots ont même sens) aristocratiquement régies. Nous envisagions cette période, non
 
 comme une épreuve, mais comme un bienfait. Notre
 
@@ -2164,9 +2035,7 @@ républicanisme, pour autant que l'éclair d'une crise
 
 : nous eût permis d'en déterminer la doctrine, ignorait cet organisme central, l'État, autoritaire par
 
-nécessité, et s'intéressait uniquement aux orga-
-
-nismes moins visibles, non moins essentiels, où
+nécessité, et s'intéressait uniquement aux organismes moins visibles, non moins essentiels, où
 
 , l'élite des peuples s'entraîne par un exercice quo-
 
@@ -2189,14 +2058,12 @@ tuer un pouvoir de fortune pour résoudre un pro-
 5 blème défini, mais d'orienter pour longtemps ce Se:
 terrible Etat français, qui par sa nature légifère
 +5 partout et sur tout.
-Cependant que nous nous étonnions ainsi, d'au-
-tres s'étonnaient moins, et nombre d'hommes, Qui
+Cependant que nous nous étonnions ainsi, d'autres s'étonnaient moins, et nombre d'hommes, Qui
 n'avaient guère aimé le dreyfusisme, s'offraient à
 - diriger la politique dont il fut l'origine (un Pelletan,
 - un Berteaux, et, généralement, la masse radicale). ee.
 Quelles avaient été, pendant l'Affaire, nos craintes? nee
-Nous craignions l'avènement d'un bloc démago-
-gique, ruinant sous son autorité bête les quelques
+Nous craignions l'avènement d'un bloc démagogique, ruinant sous son autorité bête les quelques
 - libertés restantes au pays. Et nous voyions précisé-
 3 ment, au terme de notre lutte, au lendemain de notre
 Le victoire, un bloc analogue s'élever près de nous, se à
@@ -2250,14 +2117,13 @@ L. Qu''aurions-nous répondu? C'est délicat à dire, car
 4 rien n'était moins doctrinaire que notre union. Elle
 était surtout constituée par le plaisir que nous
 à éprouvions à causer, par la confiance qui nous
-À; aidait à trouver les uns pour les autres les expresL sions de nos pensées. Rapprochés par un éloigne-:
+aidait à trouver les uns pour les autres les expresL sions de nos pensées. Rapprochés par un éloigne-:
 4 ment commun pour toutes les sectes, il semble que
 4 nous évitâmes assez bien le péril de nous consti-
 À tuer en secte contre sectes. Et nous espérons ne:
 
 trabir les intentions d'aucun de nous en supposant
-cette réponse, qui n'est pas doctrinaire: « Ces con-
-séquences, nous les ignorons. Nous travaillons pour
+cette réponse, qui n'est pas doctrinaire: « Ces conséquences, nous les ignorons. Nous travaillons pour
 les connaître, pour savoir enfin quel événement a
 traversé nos vies et ce que produira en nous une;
 émotion de deux années. »
@@ -2274,13 +2140,12 @@ Indiquons un troisième centre, le bulletin de Gor-
 Desjardins assure la conduite. Quoiqu'il ne soit pas
 : de notre génération, il ne fut jamais loin de nous.
 Et nommons enfin cet aîné, M. Georges Sorel, que
-depuis lors nous lûmes et écoutâmes. — S'il y a;
+depuis lors nous lûmes et écoutâmes. — S'il y
 quelque disparate en ces noms, qu'on se souvienne
 que cet écrit n'est pas une construction, mais une
 relation dont l'objet est notre désordre même.
 Chacun de ces petits organes avait son bureau,
-. ses heures de conversation. Le soir, nous nous re-
-trouvions dans les Universités populaires, nous y
+. ses heures de conversation. Le soir, nous nous retrouvions dans les Universités populaires, nous y
 rencontrions les militants révolutionnaires. Chaque
 
 fau ourg de Paris, chaque ville de province, avait
@@ -2305,7 +2170,7 @@ Millet ou les Rude — et tant d'autres, dont nous À
 1 (nous ne rappelons que les morts). Mais cet
 accord, quels en étaient les bases et les termes?
 que signifiait, que valait notre foi récente?
-4 Les jeunes nationalistes, toujours fort insolents, à
+Les jeunes nationalistes, toujours fort insolents, à
 “4 s'amusaient de nos indécisions et nous appelaient
 à ne des suiveurs de « nuées ». Ces nuées, nous en étions A
 avertis mieux qu'eux-mêmes, vivant, comme nous ne
@@ -2323,10 +2188,8 @@ nuées; il en est pour tous. Un amour confus de l'humanité peut entraîner la d
 limités, patries et castes, qui produisent et maintiennent l'humanité même. Mais un amour confus
 de la patrie peut entraîner la destruction de l'esprit
 juridique, des garanties nécessaires que la patrie
-assure contre elle-même à ses enfants. L'antisémi-
-tisme est une opinion très plausible, et, dans une
-certaine mesure, prudente; mais c'est aussi une pas-
-sion qui peut aveugler jusqu'au crime, et qui doit
+assure contre elle-même à ses enfants. L'antisémitisme est une opinion très plausible, et, dans une
+certaine mesure, prudente; mais c'est aussi une passion qui peut aveugler jusqu'au crime, et qui doit
 être surveillée. On nous dénonce les sentimenta- te
 lismes de l'amour; c'est bien; mais la haïne a les à
 siens dont le moins qu'on puisse dire est qu'ils ne
@@ -2357,9 +2220,7 @@ nous semblait pas, si maladroïte fût-elle à s'exprimer, que nous dussions rou
 
 Dans quelle mesure pourrons-nous la sauver,
 
-À l'appliquer aux réalités actuelles, cette force senti-
-
-je mentale qu'on diffame aujourd'hui, que certains
+À l'appliquer aux réalités actuelles, cette force sentije mentale qu'on diffame aujourd'hui, que certains
 
 À nationalistes excluent de la France « intégrale
 
@@ -2373,8 +2234,7 @@ quoiqu'elle ait porté haut, on peut le dire en termes
 réprimer toute générosité de cœur, toute aspiration
 vers la paix et l'harmonie, répriment l'une des
 richesses morales de la race, et leur faute, leur
-indélicatesse est de même ordre que celle des anti-
-cléricaux qui diffament les symboles chrétiens et
+indélicatesse est de même ordre que celle des anticléricaux qui diffament les symboles chrétiens et
 réduisent leur puissance. Cette Europe, depuis cinquante années disciplinée à nouveau, hiérarchisée
 par la suprématie silencieusement acquise des industriels et des financiers, cette misérable Europe
 rompue par les haines, comment sauvegarder en Ce
@@ -2433,8 +2293,7 @@ Un autre lien nous génait. Jaurès était l'un des
 chefs, le vrai chef du combisme peut-être: on sait
 ce qu'au temps de l'Affaire il avait été pour nous.
 Le nombre de ceux qui le suivaient était grand:
-c'étaient autant de camarades dont nous ne pou-
-vions nous détacher si vite. Nous avions milité
+c'étaient autant de camarades dont nous ne pouvions nous détacher si vite. Nous avions milité
 ensemble, cela crée des attaches; et dénoncer une
 camaraderie, c'est rompre en soi des souvenirs,:
 donc se diminuer soi-même. Quand MM. Gast et à
@@ -2459,8 +2318,7 @@ populaire); mais une petite armée, vingt mille com- à
 battants, les uns vieux, suivant à peine, vétérans
 4 du Second Empire, qui avaient été les fidèles
 d'Hugo, de Quinet, de Proudhon, de Blanqui; puis
-: leurs cadets, grisonnants déjà, les radicaux pari_ siens, lecteurs de la Justice, disciplinés par Clemen-
-ceau- logiciens inarrêtables; les anarchistes, les
+: leurs cadets, grisonnants déjà, les radicaux pari_ siens, lecteurs de la Justice, disciplinés par Clemenceau- logiciens inarrêtables; les anarchistes, les
 esthètes de 1892; Allemane et ses amis, vaillante
 milice ouvrière d'où sortent nos syndicalistes; et
 . les derniers venus enfin, jeunes gens échauffés par
@@ -2469,8 +2327,7 @@ quatre années d'éloquence, de manifestations, de
 4 anticléricaux lecteurs de l'Action, démopédistes et
 
 libertaires lecteurs des Pages Libres, fondateurs de
-coopératives et d'Universités populaires — la géné-
-ration de l'églantine rouge. Quelle pensée commune
+coopératives et d'Universités populaires — la génération de l'églantine rouge. Quelle pensée commune
 les rassemblait? Celui qui la définirait, définirait en même temps la Révolution Française, car
 c'est elle, toujours maîtresse de son peuple, qui
 pressait ces vingt mille âmes derrière le cercueil du
@@ -2481,14 +2338,11 @@ aimé les hommes, qui avait osé les croire capables
 d'instituer par leur travail la justice et la liberté.
 Nous n'oublierons pas cette journée: l'après-midi
 d'octobre était si douce, et ce peuple parisien, tout
-passionné qu'il fût, lui-même si doux, poli et défé-
-rent. Anatole France parla: tous désiraient l'entendre. La multitude se répandait, se rapprochait
+passionné qu'il fût, lui-même si doux, poli et déférent. Anatole France parla: tous désiraient l'entendre. La multitude se répandait, se rapprochait
 
 sans bruit; elle glissait entre les tombes, sur le sol
 
-amorti par les feuilles; elle les couvrait, elle s'éle-
-
-vait sur elles, sans brutalité ni faux respect, avec un
+amorti par les feuilles; elle les couvrait, elle s'élevait sur elles, sans brutalité ni faux respect, avec un
 
 murmure d'eau montante, attentive rumeur qui ne ni]
 gênait ni France qui parlait, ni nous qui l'écoutions.
@@ -2511,8 +2365,7 @@ Et pourquoi nous taire? Est-ce qu'ils se taisent, eux, ses;
 
 à Pie iiteure? Je ne dirai que ce qu'il faut dire sur ce à
 cercueil, et je dirai tout ce qu'il faut dire.
-Devant rappeler la lutte entreprise par Zola pour la jus-
-tice et pour la vérité, m'est-il possible de garder le silence
+Devant rappeler la lutte entreprise par Zola pour la justice et pour la vérité, m'est-il possible de garder le silence
 sur ces hommes acharnés à la ruine d'un innocent, et qui,
 à se sentant perdus s'il était sauvé, l'accablaient avec l'audace
 désespérée de la peur? Comment les écarter de votre vue, se
@@ -2573,9 +2426,7 @@ Recommençons souvent la critique de nos amis,
 
 révisons nos traités d'alliance. Soucions-nous de
 
-À notre liberté, dussions-nous être par ce souci con-
-
-damnés à vivre un peu retirés, un peu confinés.
+À notre liberté, dussions-nous être par ce souci condamnés à vivre un peu retirés, un peu confinés.
 
 Nous ne laisserons pas de sentir quelque ennui: du
 
@@ -2614,8 +2465,7 @@ où nous allons, ignorer le plaisir d'aller vite, etne
 jamais lâcher le gouvernail.;
 é Recommençons souvent la critique de nos amis,
 écrivions-nous. Ce mot n'est pas exact, c'est alliés
-qu'il faut dire. On parle souvent « amis poli-
-tiques »: la liaison de ces deux mots est suspecte.
+qu'il faut dire. On parle souvent « amis politiques la liaison de ces deux mots est suspecte.
 La politique est une bagarre où tous les sentiments
 délicats sont en péril. N'y connaissons que des
 alliés; et l'alliance, ne l'oublions pas, n'implique
@@ -2652,11 +2502,9 @@ l'intervention des parlementaires en faveur de Pic-:
 A 3 au Sénat le vote d'une loi qui eût interrompu l'action à
 7 des juges militaires; irrégulière, cette deuxième
 … intervention parlementaire, que sans douteinspirala
-première, dessaisissant la chambre criminelle; irré-
-gulière, l'attitude du ministère Waldeck-Rousseau,
+première, dessaisissant la chambre criminelle; irrégulière, l'attitude du ministère Waldeck-Rousseau,
 absorbé par la « profonde pensée » (J. Reinach,
-É.. 185) d'obtenir l'acquittement de Dreyfus; irrégu-
-lier enfin, ce verdict de la Cour de Cassation, prenant
+É.. 185) d'obtenir l'acquittement de Dreyfus; irrégulier enfin, ce verdict de la Cour de Cassation, prenant
 N. _sur elle de juger au fond une affaire dont elle ne à
 ES devait connaître que la forme... Nous en passons.
 “on semble que la cause de ce continuel désordre soit
@@ -2751,8 +2599,7 @@ peu, il n'y aurait pas assez de branches aux chênes
 Qu'est-ce donc enfin? ce tort que nous sentons à
 É — et cette impression peut-elle nous tromper? —
 ce tort certain, quel est-il donc? est-ce un tort de
-pensée? Notre surveillance, de ce côté, fut constam-
-ment active. Un tort de sentiment? Cherchons.
+pensée? Notre surveillance, de ce côté, fut constamment active. Un tort de sentiment? Cherchons.
 Fixons notre regard, et nous reconnaîtrons ceci
 nous fûmes, étant vainqueurs, pour un instant au
 5 moins, touchés par les passions que nous avions
@@ -2767,8 +2614,7 @@ nous l'avions emporté sur les richesses complices
 volonté naïve. Ce peuple semblait heureux, heureux
 3 par nous, et ce bonheur que nous avions donné,
 nous le ressentimes. Quelle en était la source? “4
-C'était l'espérance révolutionnaire. Réprimons l'en-
-nui d'avouer que nous l'avons, si peu que ce soit,
+C'était l'espérance révolutionnaire. Réprimons l'ennui d'avouer que nous l'avons, si peu que ce soit,
 
 suivie. Nous avons écouté ses chants, c'est beaucoup. Les plus antiques institutions s'étaient brisées
 sous nos coups, tous les partis, discrédités, et
@@ -2789,12 +2635,9 @@ du reporteur qui l'avait relancé: « Dites bien que
 nous respectons, que nous aimons l'armée, notre;
 armée, telle qu'elle est. » Ces mots nous faisaient
 rire. Il semblait paradoxal de respecter, d'aimer
-l'armée, telle qu'elle était, en janvier 1899. Para-
-doxal, et. pourtant recommandable. Nous ne le
+l'armée, telle qu'elle était, en janvier 1899. Paradoxal, et. pourtant recommandable. Nous ne le
 comprîmes pas, et nous nous écartämes d'un mouvement si brusque, si déchirant, que nous pouvons
-nous rapprocher aujourd'hui, non nous unir; sur-
-
-veiller, corriger nos méfiances, non restaurer ce qui
+nous rapprocher aujourd'hui, non nous unir; surveiller, corriger nos méfiances, non restaurer ce qui
 blessé ne guérit pas, la confiance. C'est fini. La per- )
 turbation est irrémédiable, nous portons en nous
 ces ruptures qui rompent notre pays même.
@@ -2804,15 +2647,13 @@ que votre injustice a fait entrer en nous, et qui nous
 Hommes de la droite et du centre, quand vint ce;
 décisif automne de 1897, vous étiez maîtres du pays, À
 et vous pouviez, en la servant, faire la République
-vôtre, tout de même que les libéraux, en 1829, pou-
-vaient faire leur, en la servant, la Monarchie. A
+vôtre, tout de même que les libéraux, en 1829, pouvaient faire leur, en la servant, la Monarchie. A
 soixante ans d'intervalle, l'occasion est inverse,?
 mais semblable. Ce n'est pas l'année de Martignac,
 c'est l'année de Méline; ce n'est pas un régime de
 droite qui propose la paix aux gauches, qui remet
 le pouvoir aux mains d'un Girondin courtois, c'est
-un régime de gauche qui propose la paix aux droi-
-tes, qui se laisse mener par un Vosgien prudent.
+un régime de gauche qui propose la paix aux droites, qui se laisse mener par un Vosgien prudent.
 L'occasion d'ordre correspond à l'occasion de liberté
 4 que Charles offrit, et n'est pas mieux saisie. Les “4
 gauches, en 1829, renversèrent Martignac. Les
@@ -2840,13 +2681,9 @@ d'abord, et ne pas vous déshonorer. Vous vous plai-,
 gnez qu'on diffame un passé que vous aimez, et
 nous aussi l'aimons: le prestige qu'il gardait
 encore, vous n'avez qu'en mésuser. La confiance
-aux chefs, la foi aux symboles, tels étaient les sen-
-timents commis à votre charge, et nous aussi les
+aux chefs, la foi aux symboles, tels étaient les sentiments commis à votre charge, et nous aussi les
 respectons: vous les avez évoqués pour couvrir
-À des crimes. Vous nous avez laissé le pays sans maî-
-
-tre, pis encore, par vous dégoûté de tous maîtres, dé-
-sabusé de tout respect, de toute croyance. Ce fut le;
+À des crimes. Vous nous avez laissé le pays sans maître, pis encore, par vous dégoûté de tous maîtres, désabusé de tout respect, de toute croyance. Ce fut le;
 premier tort, et il est vôtre; le connaissez-vous? à
 Vous reprochez aux républicains leurs fautes
 accumulées depuis dix ans. Vous avez la partie
@@ -2917,8 +2754,7 @@ qu'étant l'opposition, dont le rôle est aisé, vous À
 avez perdu, toujours perdu, reculant chaque année
 devant ces républicains dont les fautes pourtant ne
 furent ni rares ni légères. Enfin vous avez amené
-ces élections dernières, qui vous écartent entière-
-ment et remettent à vos adversaires, aux dreyfu-
+ces élections dernières, qui vous écartent entièrement et remettent à vos adversaires, aux dreyfu-
 É sards seuls, toute la charge du pays. Les voici: de
 Reinach à Jaurès, de Charles Humbert à Pressensé, à
 ils délibèrent et travaillent ensemble: Ils se
@@ -2940,8 +2776,7 @@ k. Nous savons qu'un pays est menacé s'il ne possède
 qui le retienne, l'étaie, garantisse ses allures. Ce à
 
 parti, le vôtre, est détruit: nous en souffrons
-; comme vous-mêmes. Mais d'où vient cette destruc-
-tion? De votre faute. IL y a dix ans vous étiez:
+; comme vous-mêmes. Mais d'où vient cette destruction? De votre faute. IL y a dix ans vous étiez:
 forts, nous étions faibles, mais nous disions la
 ; vérité. Vous mentiez, pourquoi mentiez-vous? Nous
 vous avons déshonorés, fut-ce à tort, fût-ce un;
@@ -2951,8 +2786,7 @@ vous l'avez livré. Vous vous êtes disqualifiés, vous
 
 Nous avions dessein d'écrire une apologie pour il
 nous-mêmes, un réquisitoire contre autrui nous
-échappe. Quel mauvais destin nous oblige à recom-
-mencer la querelle? Résistons-lui, quoiqu'il soit LE:
+échappe. Quel mauvais destin nous oblige à recommencer la querelle? Résistons-lui, quoiqu'il soit LE:
 nôtre; ne nous laissons pas aller à recommencer
 le monotone et vain dialogue des passions. Bor- À
 nons-nous à penser que notre action, limitée
@@ -2986,5 +2820,4 @@ qu'on ne nous replace jamais dans une situation
 analogue à celle où nous nous trouvâmes en dé- me
 cembre 1897. Car, il le faudrait bien: plus soucieux,
 4 non moins résolus, nous recommencerions nos cam-
-Cependant, travaillons tous; nos enfants sau-
-ront ce que nous avons fait.
+Cependant, travaillons tous; nos enfants sauront ce que nous avons fait.

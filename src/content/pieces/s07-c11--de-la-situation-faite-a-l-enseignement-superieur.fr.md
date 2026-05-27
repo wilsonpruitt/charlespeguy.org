@@ -11,8 +11,7 @@ re. de ce dixième cahier 3,400
 “FH et seize exemplaires sur whatman
 le jeudi 25 janvier 1906 "TE
 
-Il est impossible de suivre honnêtement le mouve-
-ment littéraire, le mouvement d'art, le mouvement
+Il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement
 politique et social si l'on n'est pas abonné aux Cahiers « de la Quinzaine.
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
@@ -54,8 +53,7 @@ siers et commentaires, ces cahiers de lettres, d'histoire
 et de philosophie étaient si considérables que nous ne à
 pouvons pas songer à en donner ici l'énoncé même le
 plus succinct; pour savoir ce qui a paru dans les cinq
-Les” ". 2.. « premières séries des cahiers, il suffit d'envoyer un man-
-dat de cinq francs à M. André Bourgeois, administra-:
+Les” ". 2.. « premières séries des cahiers, il suffit d'envoyer un mandat de cinq francs à M. André Bourgeois, administra-:
 teur des cahiers, 8, rue de la Sorbonne. rez-de-chaussée,
 Paris, cinquième arrondissement; on recevra en retour 4%
 à pen analytique sommaire, 1900-1904, de nos
@@ -81,8 +79,7 @@ s'abonnait rétrospectivement à la sixième série le rece
 . série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 ; Pour amorcer tout travail que l'on aurait à commencer,
-dans notre premier catalogue analytique sommaire, con-
-sulter le petit index alphabétique provisoire que nous
+dans notre premier catalogue analytique sommaire, consulter le petit index alphabétique provisoire que nous
 avons établi de ce catalogue analytique sommaire.
 Ce petit index alphabétique provisoire, grand
 Jésus, forme un cahier très maniable de XII 60 pages
@@ -110,7 +107,7 @@ Ferpvanp Lor. — de la situation faite à l'ensei1 4 gnement supérieur en Fran
 154 ment; les revenus des Universités et établissements
 5 d'enseignement supérieur en Allemagne et en France;
 les Facultés des Lettres et des Sciences en Franceeten
-200 Aïlemagne; étude de statistique du Personnel Ensei-
+Aïlemagne; étude de statistique du Personnel Ensei-
 130 gnant; les lacunes du personnel enseignant des FaculkFe tés des Lettres et de Droit de province; le Privat.
 Dozentisme; — neuvième cahier de cette septième
 ‘nl série, un cahier jaune de 108 pages, grand
@@ -165,26 +162,22 @@ vraiment infime. Même dans les Facultés des grandes
 Lille, Toulouse) la situation laisse à désirer. Ni les arA chitectes, ni l'Administration, ni les professeurs eux-
 À mêmes, n'ont la conception claire de ce que doit être
 une Faculté. Un amphithéâtre, deux ou trois salles de
-cours, un cabinet pour le doyen, un couloir pour accro-
-cher chapeaux et pardessus, — c'est en cela que con118 siste trop souvent la Faculté des Lettres, — et la Faculté
+cours, un cabinet pour le doyen, un couloir pour accrocher chapeaux et pardessus, — c'est en cela que con118 siste trop souvent la Faculté des Lettres, — et la Faculté
 ; de Droit aussi.;
 On oubliait que l'Histoire de l'Art nécessite un mu-
 RUE sée de moulages et de grandes salles pour les repro-;
 ê ductions photographiques; que la Géographie a besoin
 de grands espaces pour les cartes murales, plans en
-relief, ete.; que la Psycho-physique exige un labo-
-ratoire. Il ne faut pas qu'entre chaque cours les diants soient réduits à errer dans la rue: une salle de
-réunion est nécessaire. — Enfin, et surtout, — il est in-
-dispensable qu'à chaque spécialité soit affectée une
-;! (1) Et encore! Voyez Marseille, pour ne rien dire des petites
+relief, ete.; que la Psycho-physique exige un laboratoire. Il ne faut pas qu'entre chaque cours les diants soient réduits à errer dans la rue: une salle de
+réunion est nécessaire. — Enfin, et surtout, — il est indispensable qu'à chaque spécialité soit affectée une
+(1) Et encore! Voyez Marseille, pour ne rien dire des petites
 
 salle, petite ou grande, garnie de livres usuels à portée
 de la main, salle où le professeur fait ses conférences,
 où les étudiants se rencontrent sans interruption de TES
 9 heures du matin à 10 heures du soir. C'est dans ces mi:
 coins intimes que se fait le bon travail de « séminaire »
-comme disent les Allemands. L'élève est sûr d'y ren-
-contrer ses camarades et son maître. Il y travaille
+comme disent les Allemands. L'élève est sûr d'y rencontrer ses camarades et son maître. Il y travaille
 avec profit et avec gaîté. La grande salle de la Biblio-.
 thèque où il n'est vas permis d'ouvrir la bouche, de
 s'entretenir d'une difficulté avec ses professeurs et ses;
@@ -199,8 +192,7 @@ trop exigus pour qu'on puisse établir les 8 ou 10 salles
 d'étude (1) qu'exige une Faculté des Lettres et une Fa-
 utilisant les greniers. Mais ailleurs c'est physiquement
 impossible, faute de place, et l'on voit la Faculté des
-(1) Il en faut au moins: une pour la philosophie, une pour la phi-
-lologie grecque et latine, une pour l'allemand et langlais, une
+(1) Il en faut au moins: une pour la philosophie, une pour la philologie grecque et latine, une pour l'allemand et langlais, une
 pour la langue française et la philologie romane, une pour Par-;
 chéologie et l'histoire de l'art, une ou deux pour l'histoire, une ou
 deux pour la géographie.;
@@ -272,8 +264,7 @@ Pour arriver à ce but il faut de l'argent. Oh! pas
 il en faut un peu. Les villes sont en général pleines de
 boune volonté. L'obstacle, je l'ai déjà dit, à propos du
 personnel, c'est le département. Il n'est ni assez riche
-ni assez peuplé pour supporter la part de dépense qui in-
-combe, en Allemagne, à la province. Il faut excepter
+ni assez peuplé pour supporter la part de dépense qui incombe, en Allemagne, à la province. Il faut excepter
 cependant les départements du Nord, du Rhône, de la
 Gironde, des Bouches-du-Rhône. Aussi le secours de
 l'Etat, quoique nécessaire, est moins pressant pour les
@@ -301,7 +292,7 @@ mais le Calvados, sont impuissants réduits à eux seuls.
 Men. conseil général ira peut-être jusqu'à entretenir un où
 Sa deux boursiers, à donner une subvention de 500 francs;
 au laboratoire de Chimie agricole, mais ce sera tout.
-4 Le concours de l'État apparaît donc comme partieu
+Le concours de l'État apparaît donc comme partieu
 371. lièrement indispensable aux dix Universités de Besan1 çon, Caen, Clermont, Dijon, Grenoble, Montpellier,
 
 je En ce qui touche la Faculté des Lettres et en général
@@ -353,15 +344,13 @@ Toulouse. — Les bâtiments reconstruits il y a quinze
 Faculté des Lettres ne peut s'étendre qu'en achetant
 une caserne voisine. Les bureaux de la Guerre en,
 demandent 150.000 francs, somme qui est, paraît-il, fort
-exagérée. La Faculté a préféré ne pas se laisser exploi-
-ter. Mais, comme elle n'a pas un sou dans la réparti-,
+exagérée. La Faculté a préféré ne pas se laisser exploiter. Mais, comme elle n'a pas un sou dans la réparti-,
 tion de l'emprunt de 1 million, contracté il y a deux ans
 par l'Université (au profit des Sciences et de la Méde-
 (1) Bichat vient de mourir.
 
 cine), il n'y a aucun moyen de sortir de cette situation.
-Des démarches auprès du Ministère de la Guerre pour-
-raient lui valoir soit un rabais considérable, soit,
+Des démarches auprès du Ministère de la Guerre pourraient lui valoir soit un rabais considérable, soit,
 ce qui vaudrait beaucoup mieux, l'offre gratuite des
 bâtiments et du terrain occupés par la caserne en
 Rennes.— Tout était logé dans le petit et incommode
@@ -376,13 +365,11 @@ en ce moment une annexe. En attendant, les collections
 d'histoire naturelle encombrent encore le vieux « palais ».
 Si bien que la Faculté des Lettres se compose à l'heure
 actuelle de 2 amphithéâtres, dont l'un contient 60 à
-80 personnes et l'autre 30 à 40; plus 2 salles de confé-
-rences trop petites (15 personnes au maximum plus
+80 personnes et l'autre 30 à 40; plus 2 salles de conférences trop petites (15 personnes au maximum plus
 une salle de réunion pour les professeurs et un cabinet
 pour le doyen. L'Archéologie et l'Histoire de l'Art,
 d'ailleurs sans professeurs, sont représentés par quelques
-plâtres dans un couloir. L'Institut de psychologie expé-
-rimentale, le seul qui existe en province, a solli-!
+plâtres dans un couloir. L'Institut de psychologie expérimentale, le seul qui existe en province, a solli-!
 citer l'hospitalité de la Faculté des Sciences, pourtant:
 ï à l'étroit dans ses nouveaux bâtiments. De même le petit
 Institut, — en formation, — de géographie.
@@ -423,15 +410,14 @@ que lui méritaient ses efforts et ses succès.
 
 ; si 4 J'ai déjà dit quele personnel dela Faculté des Lettres,
 et même de la Faculté des Sciences, était d'une insuffiDR, sance numérique scandaleuse. Le mot n'est pas trop
-fort. Il n'y a pas d'Université allemande, suisse ou ita-
-ie. lienne, de cette importance, qui se contente de 7 chaïres
+fort. Il n'y a pas d'Université allemande, suisse ou itaie. lienne, de cette importance, qui se contente de 7 chaïres
 
 à aux Lettres; c'est la moitié de ce qu'il lui faudrait.
 ; Aux Sciences manquent pour la Biologie 3 maîtresde
 L'installation, au premier abord convenable (elle date à
 de 1875), s'est révélée d'une insuffisance extrême. Il est à
 impossible de faire tenir trois Facultés (Sciences,
-4 Lettres, Droit) et une bibliothèque dans un petit bâti-
+Lettres, Droit) et une bibliothèque dans un petit bâti-
 : ment rectangulaire. Tout y étouffe.
 
 La première chose est d'en faire sortir la bibliothèque
@@ -466,17 +452,13 @@ sans s'y occuper très particulièrement de géologie. Grenoble à
 est merveilleusement située pour les études géologiques: À
 pendant de longues années, Lory y a fait des travaux de
 premier ordre; et son successeur, M. William Kilian, un de
-nos plus distingués et actifs géologues de province, a Wmaintenu haute et ferme la tradition établie. Mais le Con-
-grès s'est demandé, non sans stupeur, comment le labora-
-
-toire de géologie de Grenoble avait être logé de la et
+nos plus distingués et actifs géologues de province, a Wmaintenu haute et ferme la tradition établie. Mais le Congrès s'est demandé, non sans stupeur, comment le laboratoire de géologie de Grenoble avait être logé de la et
 pitoyable manière que chacun a constater, en visitant
 les admirables collections réunies par Lory et son succes- LE
 
 Les locaux sont une honte pour l'Université, par leur A
 insuffisance et leur insalubrité, Imaginez un grenier, où nul
-particulier ne voudrait se loger et où le personnel du laboratoire travaille, depuis le mois de mai, par des tempéra-
-tures, — enregistrées jour par jour, — qui vont jusqu'à 35°!
+particulier ne voudrait se loger et où le personnel du laboratoire travaille, depuis le mois de mai, par des températures, — enregistrées jour par jour, — qui vont jusqu'à 35°!
 Et dans le laboratoire d'enseignement, le plus fréquenté, la
 température est de deux ou trois degrés plus élevée! Cela
 n'est pas admissible. L'État, qui s'occupe si volontiers de la
@@ -534,14 +516,12 @@ pour toutes nos Universités.
 Dijon. — Ici, c'est plus drôle encore: la Faculté des
 Lettres n'a pas de domicile fixe et ne sait pas si elle en
 Elle a droit actuellement au logement suivant, rue
-Monge, dans les bâtiments de l'Académie: 1 amphi-
-théâtre de 300 places, 1 petit amphithéâtre de 50 places,
+Monge, dans les bâtiments de l'Académie: 1 amphithéâtre de 300 places, 1 petit amphithéâtre de 50 places,
 1 antichambre transformée en: salle de conférences.
 La Bibliothèque universitaire est en construction rue
 Chabot-Charny, au coin de la rue du Petit-Potet.
 Malheureusement, c'est à un kilomètre de la rue Monge.
-On imagine combien cela est commode pour les confé-
-rences où professeurs et étudiants ont besoin de livres
+On imagine combien cela est commode pour les conférences où professeurs et étudiants ont besoin de livres
 pour une heure ou deux, puis les rendent à la Bibliothèque pour en emprunter d'autres momentanément!
 C'est simplement rendre le travail des conférences de
 séminaire impossible. Aussi la Faculté des Lettres a-telle demandé à suivre la Bibliothèque universitaire sur
@@ -616,8 +596,7 @@ l'Université dans un grand terrain vacant par suite de la liquida-
 
 les étudiants, ni musée archéologique. Le petit matériel
 de géographie est serré dans une armoire (sic). Le pro- CE
-fesseur de philosophie voudrait inaugurer l'enseigne-
-ment de la psychologie expérimentale, impossible, il n'y ne
+fesseur de philosophie voudrait inaugurer l'enseignement de la psychologie expérimentale, impossible, il n'y ne
 a pas de place. Le secrétariat même est aménagé de la
 façon la plus incommode. +44
 
@@ -643,8 +622,7 @@ sade, (1) mais deux Facultés, Droit et Lettres ainsi que se
 Poitiers. — Aucune place n'est disponible ni pour un
 service de géographie, ni d'archéologie, ni de psycho-;
 (1) On a tenu sans doute à le reconstruire entre les rues Pasteur
-et Saint-Sauveur pour des raisons sentimentales. C'est sur cet em-
-placement qu'étaient les « Grandes Ecoles » de l'Université de Caen
+et Saint-Sauveur pour des raisons sentimentales. C'est sur cet emplacement qu'étaient les « Grandes Ecoles » de l'Université de Caen
 depuis 1476. Voyez la description de Ch. de Bourgueville, sieur de
 Bras, Les recherches et antiquitez de la province de Neustrie.. mais
 plus spéciallement de La Ville et Université de Caen (Caen, 1588, in-{°)
@@ -653,8 +631,7 @@ rien caennais les qualifie de « grand, magnifique et superbe bâti- À
 
 À logie expérimentale. On a trouvé, d'ailleurs, un moyen
 : excellent pour empêcher la Faculté de s'apercevoir
-: qu'elle est à l'étroit: c'est de ne lui donner de profes-
-seur ni de géographie, ni d'histoire de l'art, ni de psy-
+: qu'elle est à l'étroit: c'est de ne lui donner de professeur ni de géographie, ni d'histoire de l'art, ni de psy-
 En la réduisant à trois chaires comme une Faculté
 4 espagnole on pourrait même faire en sorte qu'elle se
 Il est vraiment regrettable que, non seulement la
@@ -675,8 +652,7 @@ est sans logements, sans abris, sans instruments sufti-
 ( Voyez plus loin, page
 (2) [La situation de l'Observatoire s'est un peu améliorée depuis,
 non certes grâce à l'administration de la rue de Grenelle, — mais le
-: par suite de l'intervention des sénateurs et députés du départe-
-ment du Puy-de-Dôme.].
+: par suite de l'intervention des sénateurs et députés du département du Puy-de-Dôme.].
 
 Le service de Chimie à la Faculté des Sciences est
 très à l'étroit. De même les Sciences naturelles. Que
@@ -709,13 +685,11 @@ exigent des laboratoires imprévus et des instruments
 coûteux. Pour les Lettres et le Droit le principal Gé.
 « ipstitut c'est la Bibliothèque.
 Que celle-ci soit suffisamment spacieuse, qu'il existe
-des amphithéâtres, huit à dix petites salles de confé-
-rences, un musée de moulages, et voilà des Facultés
+des amphithéâtres, huit à dix petites salles de conférences, un musée de moulages, et voilà des Facultés
 Ne. satisfaites pour une période presque indéfinie. Il y a peu
 ou point de surprises avec elles.
-2: Quand ces divers travaux auront été terminés, linstal-
-ce lation matérielle de nos Universités sera convenable.
-1 Mais il est permis de regretter que l'on n'ait pas, ily a
+2: Quand ces divers travaux auront été terminés, linstalce lation matérielle de nos Universités sera convenable.
+Mais il est permis de regretter que l'on n'ait pas, ily a
 qe. vingt-cinq ans, formé des plans plus rationnels, plus
 +87 hardis si l'on veut. À
 On pouvait, sans dépenser beaucoup plus, créer de
@@ -826,12 +800,11 @@ province dans des taudis. La description d'une de nos Facultés de
 Droit ou des Lettres en regard de celle des médersas algériennes
 ferait un contraste violent.
 
-1 a: sons ne sont pourtant pas difficiles à comprendre. «
+1 sons ne sont pourtant pas difficiles à comprendre. «
 Ets On ne tient pas à laisser seul un jeune homme, presque FES
 Era un enfant, (1) sans confortable, sans surveillance aussi, tra
 à dans une de nos maussades cités provinciales. En fait,
-Ë. les trois quarts peut-être des étudiants de province ha-
-bitent avec leur famille la ville d'université, ou bien si
+Ë. les trois quarts peut-être des étudiants de province habitent avec leur famille la ville d'université, ou bien si
 de; la famille n'y habite pas, les étudiants prennent des
 inscriptions mais restent home et ne suivent pas les;
 cours. À plus forte raison les familles étrangères hé- Si
@@ -860,28 +833,23 @@ Tout au moins peut-on agencer une salle d'escrime et,
 
 É de gymnastique, des douches; on peut, — en province, ne
 (1) D'autant que chez nous les études secondaires se terminent de;
-très bonne beure, vers dix-sept ans, soit trois avant l'époque nor-
-male où PAllemand quitte son « gymnasium ». Aux États-Unis les
+très bonne beure, vers dix-sept ans, soit trois avant l'époque normale où PAllemand quitte son « gymnasium ». Aux États-Unis les
 études se prolongent encore davantage.
 
 — offrir un jardin. Sans atteindre nullement au luxe
 anglo-saxon, la « maison » doit être une ruche d'une pro- À
-naturellement, ou mieux encore un salon-cabinet de tra-
-vail et une petite chambre à coucher bien ventilée. La
+naturellement, ou mieux encore un salon-cabinet de travail et une petite chambre à coucher bien ventilée. La
 surveillance doit être à la fois intelligente et assez À
 ferme. C'est dire que la « maison » doit être dirigée non
 par un « fonctionnaire mais par un professeur d'uni- a
 versité. Rien de « sous-off » dans son administra-
 
-Dans les villes où la place ne fait pas défaut, il se-
-rait bon de flanquer cette petite cité universitaire de
+Dans les villes où la place ne fait pas défaut, il serait bon de flanquer cette petite cité universitaire de
 quelques pavillons destinés aux professeurs de facultés
 ou de lycée qui consentiraient à éduquer les étudiants ni:
-étrangers par trop ignorants de notre langue. Cela per-
-mettrait, en outre, de loger décemment quelques profes- je,
+étrangers par trop ignorants de notre langue. Cela permettrait, en outre, de loger décemment quelques profes- je,
 seurs. Le contraste est trop souvent pénible entre le à
-professeur de faculté français logé à l'étroit en apparte-
-ment au milieu de la ville et son collègue germanique à
+professeur de faculté français logé à l'étroit en appartement au milieu de la ville et son collègue germanique à
 habitant une belle villa au milieu des ombrages. En a
 tout nous avons Pair de pauvres.
 
@@ -906,9 +874,7 @@ Pour deux au moins de ces catégories d'auditrices
 
 une « maison » d'études et de refuge est indispen-
 
-J'insisterai sur l'intérêt qu'il y a à attirer les étran-
-
-gères. Les Allemandes s'assimilent rapidement les
+J'insisterai sur l'intérêt qu'il y a à attirer les étrangères. Les Allemandes s'assimilent rapidement les
 usages et les idées de la France. Pour les Italiennes on
 ne sait: l'expérience faite à Grenoble est trop récente;
 
@@ -921,9 +887,7 @@ de ce nom, pourvues d'une organisation moderne pour
 les études et le séjour, les anglo-saxonnes viendraient
 en foule en France. Ceci a une réelle importance. En
 Amérique, aux États-Unis du moins, la langue française
-ne vit plus que par les femmes. En dépit des assurances optimistes de la presse, le français est en décadence continue auprès des étudiants. A peine 30 0/0 ap-
-
-prennent à le Lire; les deux tiers s'en tiennent à l'alle-:
+ne vit plus que par les femmes. En dépit des assurances optimistes de la presse, le français est en décadence continue auprès des étudiants. A peine 30 0/0 apprennent à le Lire; les deux tiers s'en tiennent à l'alle-:
 
 ù mand à cause de l'énorme production scientifique de
 nos voisins qui, dans certaines branches, atteint 50 o/o
@@ -965,9 +929,7 @@ grand rôle. Ni le Mexique, ni l'Amérique Centrale,
 ni l'Amérique du Sud n'ont d'Université véritable,
 
 - au moins pour les lettres et les sciences. (2) Longtemps Mexicains, Cubains, Colombiens, Argentins,
-Brésiliens, n'ont connu qu'une seule initiatrice intel-
-
-lectuelle, la France. Puis l'Allemagne est venue, mais
+Brésiliens, n'ont connu qu'une seule initiatrice intellectuelle, la France. Puis l'Allemagne est venue, mais
 
 Sauf pour l'Institut dirigé par Calmette. Il attire quelques
 étudiants, mais ce sont des gens ayant fait leurs preuves qui
@@ -992,11 +954,9 @@ MAT: riche et commode Université. Dans l'état de choses tuel la Médecine et l
 7 répète, montrent des installations ridicules. l'instalLen lation matérielle a une très grande importance aux yeux
 {#10 des peuples jeunes qui jugent d'abord sur l'apparence. À
 N'insistons pas davantage.;
-Un nouvel organisme apparaît nécessaire: la « Mai-
-son d'Étudiants en province du moins. (2) Les fonds
+Un nouvel organisme apparaît nécessaire: la « Maison d'Étudiants en province du moins. (2) Les fonds
 À (1) Fondée par Leland Stanfford au moyen d'un capital de 180 mil-:
-(2) Elle ne le serait pas moins à Paris, mais c'est que l'institu-
-tion serait le plus difficile à établir à cause des frais considérables
+(2) Elle ne le serait pas moins à Paris, mais c'est que l'institution serait le plus difficile à établir à cause des frais considérables
 . qu'elle entraînerait. Combien il est regrettable qu'on n'ait pas,
 comme il en fut question vers 1883, reconstruit les Facultés dans
 le genre américain! Des vieillards, dont le dernier vient de dispaet raître, refusèrent de bouger pour ne pas changer leurs habitudes
@@ -1006,8 +966,7 @@ et les laboratoires.
 
 nécessaires seront considérables. Ce ne sont pas nos
 Universités, certes, qui sont capables de les four- 1%
-nir, non plus que les « Sociétés d'Amis de l'Univer-
-sité ». Sauf à Paris et à Lyon, la munificence de ces
+nir, non plus que les « Sociétés d'Amis de l'Université ». Sauf à Paris et à Lyon, la munificence de ces
 
 Sociétés semble épuisée quand elles ont distribué
 francs de prix en médailles. Elles ont un intérêt de pes
@@ -1031,8 +990,7 @@ Ce qu'on peut demander, c'est l'assurance que si un
 projet bien conçu est présenté, l'initiateur soit assuré SLR
 de l'appui, d'abord moral, plus tard pécuniaire, du Le
 
-Parlement. Ne pas oublier, en effet, qu'il s'agit d'un or-
-ganisme officiel ou semi-ofliciel. Il serait désolant de
+Parlement. Ne pas oublier, en effet, qu'il s'agit d'un organisme officiel ou semi-ofliciel. Il serait désolant de
 
 voir cette idée captée par le parti catholique et faussée
 è par lui de la manière que l'on devine.:
@@ -1054,16 +1012,11 @@ raison profonde de placer l'Économie politique à la
 Faculté de Droit, etc. — L'ensemble des connaissances
 Mathématiques, Physique, Chimie, Biologie, Histoire et
 Sociologie. A côté sont les écoles spéciales ou écoles
-d'application, l'École de Médecine dépendant de la Bio-
-logie, l'École de Droit de la Sociologie, etc.!
+d'application, l'École de Médecine dépendant de la Biologie, l'École de Droit de la Sociologie, etc.!
 
-On a commencé au Congrès international de l'Ensei-
+On a commencé au Congrès international de l'Enseignement Supérieur en 1900 à critiquer l'organisation
 
-gnement Supérieur en 1900 à critiquer l'organisation
-
-actuelle, véritable legs du Moyen-Age. L'idée d'unrema-
-
-niement total de nos cadres d'enseignement gagne
+actuelle, véritable legs du Moyen-Age. L'idée d'unremaniement total de nos cadres d'enseignement gagne
 lentement les milieux universitaires. Devant l'opinion
 publique le problème n'est même pas posé. IL convient
 donc d'attendre, tout en ne perdant pas de vue que le
@@ -1085,15 +1038,13 @@ niveau scientifique des études médicales et pharmaceutiques en exigeant du fut
 sinon les trois certificats que l'on demande à un licencié
 ès-sciences, du moins l'un d'entre eux.
 
-Une question d'un intérêt capital serait le rapproche-
-ment, en attendant la fusion en une grande « Faculté
+Une question d'un intérêt capital serait le rapprochement, en attendant la fusion en une grande « Faculté
 de Sociologie des Facultés actuelles des Lettres et de
 Droit. De l'aveu général, le niveau de la masse des étudiants en droit est très bas. Il manque un intermédiaire
 entre la Faculté de Droit et le Lycée, d'où l'on sort en
 
 (1) Je demande la permission de renvoyer à un mémoire paru
-dans la Reoue Internationale de l'Enseignement en 1904. — En Amé-
-rique le système des Facultés n'existe plus ou, pour mieux dire,
+dans la Reoue Internationale de l'Enseignement en 1904. — En Amérique le système des Facultés n'existe plus ou, pour mieux dire,
 n'a jamais existé sérieusement.
 
 France plus jeune que partout ailleurs (sauf l'Espagne
@@ -1124,9 +1075,7 @@ fourni par les professeurs de Droit, serait parfaitement
 
 5 mal? En somme, dans cette année propédeutique, on étu-
 
-FRA dierait à peu près la moitié du programme de la pre-
-
-mière année de droit actuelle. On serait plus au large
+FRA dierait à peu près la moitié du programme de la première année de droit actuelle. On serait plus au large
 
 à de pour traiter ensuite le programme de licence qui étouffe
 
@@ -1136,9 +1085,7 @@ En Belgique, ce n'est pas une mais deux années
 
 A Philosophie » qu'on exige des étudiants en Droit.
 
-Genève a organisé une « Faculté de Lettres et de Socio-
-
-logie » qui joue un rôle sensiblement analogue à celui
+Genève a organisé une « Faculté de Lettres et de Sociologie » qui joue un rôle sensiblement analogue à celui
 
 ï (1) Un doyen d'une Faculté de Droit affirme connaître des À
 étudiants de licence qui ignorent totalement ce qu'est la guerre de
@@ -1151,8 +1098,7 @@ Cette idée est dans l'air. Plusieurs l'ont eue d'une
 façon tout à fait indépendante. On s'est toujours heurté
 au mauvais vouloir des Facultés de Droit, surtout des
 juristes. Par une contradiction amusante ce sont les
-mêmes qui déplorent l'absence de culture de leurs étu-
-diants. Néanmoins, si les pouvoirs publics envisageaient
+mêmes qui déplorent l'absence de culture de leurs étudiants. Néanmoins, si les pouvoirs publics envisageaient
 de bon œil cette réforme, l'opposition des juristes se
 calmerait vite et l'on viendrait à bout de leur résistance. à
 La question est à creuser. Il y a 10.000 étudiants en
@@ -1167,9 +1113,7 @@ En attendant cette importante réforme, plaçons-nous,
 faute de mieux, en présence du système actuel. Je me
 bornerai à l'étude des Facultés des Lettres, le sujet "4
 m'étant mieux connu; mais il ne faut pas oublier que le
-système d'enseignement des Facultés de Droit et de Méde-
-cine doit être également l'objet de sérieuses préoccupa-
-tions. Les Facultés des Sciences seules paraissent
+système d'enseignement des Facultés de Droit et de Médecine doit être également l'objet de sérieuses préoccupations. Les Facultés des Sciences seules paraissent
 échapper pour l'instant à la crise.
 (1) Des hommes politiques bien intentionnés voudraient réduire
 ou faire disparaître le droit romain l'histoire du droit français Le
@@ -1209,8 +1153,7 @@ plus ou moins de talent, — la troisième partie de ce proL gramme. Mais les de
 La première n'existe presque pas, — ou même souvent
 à la Sorbonne, — pas du tout. Des cours d'histoire à
 générale, par exemple, réclament plusieurs heures par
-semaine (3 ou 4 au moins). Aucun professeur n'y Con-
-sacre plus d'une heure (sic). Quelques-uns même, en;
+semaine (3 ou 4 au moins). Aucun professeur n'y Consacre plus d'une heure (sic). Quelques-uns même, en;
 certaines branches d'études, se bornent à adresser des
 conseils, corriger des copies, etc., simple exercice d'en-.
 La seconde est soi-disant exister. En réalité elle
@@ -1228,8 +1171,7 @@ y a et un homme de talent qui réussit à tirer parti
 de cet instrument. Il n'en est pas moins défectueux.
 Paganini jouait du violon sur une seule corde. N'empêche qu'il est préférable d'en avoir quatre à un violon.
 
-Un exercice de séminaire consiste en explications cri-
-tiques faites par un groupe d'étudiants avancés sous la
+Un exercice de séminaire consiste en explications critiques faites par un groupe d'étudiants avancés sous la
 direction du professeur, ou encore dans la recherche
 commune d'un problème d'histoire, de philologie, de
 littérature. Chacun reçoit sa tâche qui consiste, soiten un
@@ -1275,16 +1217,14 @@ un aussi vaste ensemble de faits que si on les lui pré
 
 4 sente sous une forme méthodique. L'étudiant est fondé;
 
-d'exiger que pendant les trois ou quatre ans qu'il pas-
-
-sera à la Faculté on lui ait appris les éléments de son
+d'exiger que pendant les trois ou quatre ans qu'il passera à la Faculté on lui ait appris les éléments de son
 
 é A métier. C'est ce qu'on fait pour l'étudiant en Droit. Les
 
 cours de licence forment un ensemble. Rien de pareil
 
 sa dans nos Facultés des Lettres, surtout à la Sorbonne.
-4 On ne peut recueillir que des bribes d'histoire. M. La
+On ne peut recueillir que des bribes d'histoire. M. La
 7 visse fera pendant dix ans l'histoire de Louis XIV etne
 fera que cela. (1) A Berlin, un professeur allemand
 emploiera, lui aussi, dix, quinze, vingt années à appro-
@@ -1298,14 +1238,12 @@ Scandinaves, — jusqu'au seizième siècle! Cest à n'y pas croire. à
 
 fondir l'histoire d'un souverain prussien, mais, EN OUTRE:
 
-1° il donnera régulièrement chaque semaine, du 15 oc-
-tobre au 15 juillet, 4 heures de cours d'histoire générale
+1° il donnera régulièrement chaque semaine, du 15 octobre au 15 juillet, 4 heures de cours d'histoire générale
 embrassant une longue période; oh! je sais, des cours Es
 très terre à terre, presque dictés, mais infiniment utiles;
 par masse de renseignements qu'y recueille un étu
 diant; c'est parce que nous n'avons pas ces humbles
-cours dédaignés de nos brillants maîtres, que les étu-
-diants américains quittent Paris et filent à Leipzig ou à
+cours dédaignés de nos brillants maîtres, que les étudiants américains quittent Paris et filent à Leipzig ou à
 Berlin en déclarant qu'on ne peut rien apprendre chez
 nous, — et c'est vrai; 2 il dirigera hebdomadairement
 un séminaire de 2 heures. La causerie d'une heure du à
@@ -1325,15 +1263,13 @@ l'air trop tyrannique, on peut se contenter de 3 heures
 par semaine au lieu de 4 comme en Allemagne, et SE
 même réduire ce chiffre à 2 si le professeur fait, en outre,
 un cours public. Mais il faut à tout prix exiger et le plus
-(1) [Depuis la rédaction de ces lignes, M. Lavisse a quitté la Sor-
-
-bonne pour la direction de l'Ecole Normale. J'ai cru bon cepen- a
+(1) [Depuis la rédaction de ces lignes, M. Lavisse a quitté la Sorbonne pour la direction de l'Ecole Normale. J'ai cru bon cepen- a
 
 dant de les maintenir.] ‘HE
 
 Ne tôt possible que, chaque semaine, le professeur titu
 : 864 laire (1) donne au public studieux: LE
-ne 1° 2 heures d'exercice de « séminaire »;
+ne 1° 2 heures d'exercice de « séminaire
 2 2° 3 heures de cours publics ou fermés.:
 Rens En tout 5 heures par semaine au lieu des 3 heures
 Ra, actuelles. C'est un minimum. Je répète qu'en Alle
@@ -1355,10 +1291,8 @@ dE de l'année suivante. Ce procédé serait, je crois, excellent.
 Poursuivre de front le travail personnel et la besogne
 (1) On doit peut-être moins demander au maître de conférences, à
 qui est moins rétribué et qui a parfois (en province) ses thèses de
-doctorat à préparer. Néanmoins, même pour les maîtres de confé-
-hey « rences, le nombre d'heures exigible peut être raisonnablement
-Es (2) Sauf en province, quelques vieux découragés. Mais ils dispa-
-és, raissent chaque jour.
+doctorat à préparer. Néanmoins, même pour les maîtres de conféhey « rences, le nombre d'heures exigible peut être raisonnablement
+Es (2) Sauf en province, quelques vieux découragés. Mais ils dispaés, raissent chaque jour.
 
 professionnelle est épuisant et, en outre, décevant. La [\LÉ
 préparation des cours mange un temps énorme; d'autre
@@ -1392,7 +1326,7 @@ obtiennent, je crois, des congés assez fréquents avec plein traite-
 sieurs centaines de personnes attendre une demi-heure dans un
 amphithéâtre et contraint de s'en retourner fort peu satisfait. Le »3
 professeur a ajourné l'ouverture du cours! Et trop souvent, nulle
-affiche visible, nulle communication de l'appariteur n'a averti A:
+affiche visible, nulle communication de l'appariteur n'a averti
 le public de son erreur.
 
 C'est, en somme, le système suivi par la Faculté des
@@ -1411,7 +1345,7 @@ trouvons juste que ces sacrifices trouvent leur contre
 Cette organisation de l'enseignement semestrielle ne
 LA peut, malheureusement, être établie partout. Elle n'est
 possible que dans les Facultés possédant un nombre de
-,: chaires élevé. Je ne vois guère à l'heure actuelle que
+chaires élevé. Je ne vois guère à l'heure actuelle que
 Paris, Lyon et Bordeaux où elle puisse être introduite.
 Dans les petites Universités provinciales elle me paraît
 difficile à établir tant que le nombre des chaires demeuse rera aussi faible qu'il l'est maintenant. Et, malheureu-:
@@ -1439,8 +1373,7 @@ baccalauréat refusés en juillet. L'intention n'était pas
 
 mauvaise. (1) Le procédé fut jugé cavalier. On parlait
 de ce ton aux professeurs de Faculté au lendemain du
-coup d'État de 1852 et nul ne s'en étonnait. Le gouvernement républicain avait habitué l'enseignement supé-
-rieur à plus d'égards. On peut beaucoup obtenir de ce
+coup d'État de 1852 et nul ne s'en étonnait. Le gouvernement républicain avait habitué l'enseignement supérieur à plus d'égards. On peut beaucoup obtenir de ce
 corps, — en y mettant des formes. Le sans-gêne brutal
 de l'Administration a causé, en province surtout, je le
 sais, une impression pénible. (2)
@@ -1485,12 +1418,10 @@ es de doctorat au moment où ils allaient soutenir leur thèse de docNE teur ès
 du temps et de l'argent perdus. L'équivalent du « doc-.
 torat de philosophie » allemand et américain, c'est donc
 notre licence. Mais quel équivalent! — En Allemagne,
-il faut trois années de scolarité pour passer son doc-
-torat (x) qui est la clôture naturelle des études universi-;
+il faut trois années de scolarité pour passer son doctorat (x) qui est la clôture naturelle des études universi-;
 taires. Aux États-Unis le minimum exigé est de quatre;
 ans. Chez nous, un an suffit, et il n'y a pas de scolarité
-exigée. On peut être licencié dès 17 ans sans avoir fré-
-quenté la Faculté sinon pour prendre les inscriptions.
+exigée. On peut être licencié dès 17 ans sans avoir fréquenté la Faculté sinon pour prendre les inscriptions.
 Cette organisation est imbécile, cela de soi. Aussi
 est-elle unique au monde; notre pays en a le monopole.
 Ainsi, un tout jeune homme sorti du lycée à 16-17ans,
@@ -1513,8 +1444,7 @@ vingt-six ans, et même plus tard. Aux Etats-Unis, on attend parfois jusqu'à la
 
 Le est régie par une règle remontant certainement à lippe-le-Bel, et probablement jusqu'au règne de LouisIX.
 En pratique, il est bien rare que l'étudiant arrive à
-décrocher sa licence en un an. Mais la faculté de sepré-
-senter au bout d'un si faible temps a des inconvénients
+décrocher sa licence en un an. Mais la faculté de seprésenter au bout d'un si faible temps a des inconvénients
 à que M. Seignobos a bien mis en lumière. (1)
 L'absence de scolarité n'est pas moins funeste. Les
 à petits jeunes gens sortis des bonnes maisons se pré-
@@ -1578,8 +1508,7 @@ Droit et aux Lettres.
 
 La deuxième année porterait sur le Moyen-Age et les
 Sciences auxiliaires (paléographie, diplomatique, biblio- Ni
-Le Moyen-Age a été sacrifié dans les nouveaux pro-
-grammes d'enseignement secondaire. On a peut-être
+Le Moyen-Age a été sacrifié dans les nouveaux programmes d'enseignement secondaire. On a peut-être
 raison en ce qui concerne la masse des écoliers. Mais
 pour le futur historien ou professeur, cette époque est
 et sera toujours capitale. Son intérêt sociologique est de (
@@ -1695,8 +1624,7 @@ et toujours pour la même raison: pas de scolarité exigée.
 Les candidats se préparent aux épreuves dans leur Collège, ou chez eux. Allez donc organiser, comme en
 Dans la nouvelle organisation de l'Ecole Normale et des
 bourses de licence on épargne aux élus (on a bien raison) la
-« partie commune » de la licence. La première année sera consa-
-crée à la licence spécialisée, la deuxième au diplôme d'études, la
+« partie commune » de la licence. La première année sera consacrée à la licence spécialisée, la deuxième au diplôme d'études, la
 troisième à l'agrégation. Un an pour la licence! Imaginez un À
 toute l'Histoire! On se demande ce que les gens qui préparent les
 Décrets ont dans la tête. à
@@ -1715,9 +1643,7 @@ puisqu'il n'est pas interdit, — les promoteurs de la
 
 É réforme de 1896 ont leurs projets échouer presque
 
-complètement en province. A Paris même, les étu-
-
-diants préparant le diplôme sont infiniment moins nom-
+complètement en province. A Paris même, les étudiants préparant le diplôme sont infiniment moins nom-
 
 6 breux (1) qu'on n'eût espéré. La plupart, du reste, —
 
@@ -1770,8 +1696,7 @@ Les professeurs, directeurs et ministres qui se refusent
 
 à imposer une scolarité aux candidats aux diplômes
 
-diction avec eux-mêmes. L'obligation, ils en recon-
-naissent la nécessité, puisqu'ils viennent d'instituer le À
+diction avec eux-mêmes. L'obligation, ils en reconnaissent la nécessité, puisqu'ils viennent d'instituer le À
 stage d'agrégation. Si l'on admet, et cela est nécessaire, qu'il faut imposer une préparation pédagogique
 au futur professeur, à plus forte raison la préparation
 scientifique doit-elle être obligatoire.
@@ -1795,9 +1720,7 @@ vingt-cinq ans dans une Université, fait scandale.
 Séminaire, en tout 12 heures par semaine. Si l'on n'ose
 ; demander cela à un étudiant, autant renoncer à faire de
 l'enseignement supérieur en France. ap.
-Quant à la « liberté elle consisterait pour le candi-
-
-dat à choisir le ou les professeurs auxquels il désire
+Quant à la « liberté elle consisterait pour le candidat à choisir le ou les professeurs auxquels il désire
 
 particulièrement s'attacher au cours de sa troisième
 
@@ -1810,9 +1733,7 @@ Ces certificats d'études supérieures vont donc consti-
 : Lettres, tandis que le stage pédagogique et la prépara-
 
 ; tion à l'agrégation seront réservés à l'École Normale.
-0 Les diplômes d'études apparaissent donc dès mainte-
-
-nant comme hors de l'agrégation: ils sont une condition
+Les diplômes d'études apparaissent donc dès maintenant comme hors de l'agrégation: ils sont une condition
 
 4 préalable à l'agrégation, ils ne sont plus l'agrégation.
 
@@ -1838,9 +1759,7 @@ de texte qui constitueront l'essentiel de leur examen de
 
 diplôme d'études supérieures. (1) Le système que je
 
-préconise n'entraîne donc pratiquement aucune augmen-
-
-tation de la durée de scolarité. 11 rend l'obtention des
+préconise n'entraîne donc pratiquement aucune augmentation de la durée de scolarité. 11 rend l'obtention des
 
 : (x) L'épreuve des « Sciences Auxiliaires » serait mieux à sa place
 
@@ -1867,8 +1786,7 @@ d'études. Personne ne me contredira sur ce point, — et
 il est exorbitant que depuis 1889 un grade aussi bas,
 une espèce de bachot, — ait valoir la dispense de
 deux ans de service militaire. — Le même phénomène
-se reproduira pour toutes les études, littéraires, philo-
-sophiques, philologiques. Suspendus entre la licence et
+se reproduira pour toutes les études, littéraires, philosophiques, philologiques. Suspendus entre la licence et
 l'agrégation les diplômes d'études ne seront recherchés NE
 que par une infime minorité de licenciés. La plupart de
 ceux-ci, en effet, en présence de la difficulté de l'agré-
@@ -1892,13 +1810,9 @@ La diplôme avec la licence on remédie à tous ces inconvé-
 
 à nients. On donne des élèves à nos Facultés de province
 
-24 et on renforce considérablement la valeur de notre per-
+24 et on renforce considérablement la valeur de notre personnel des « collèges ».
 
-sonnel des « collèges ».
-
-; Enfin, le doctorat d'Université prend une significa-
-
-tion. Ce titre s'obtiendrait le plus simplement du monde
+; Enfin, le doctorat d'Université prend une signification. Ce titre s'obtiendrait le plus simplement du monde
 en faisant imprimer le mémoire (1) manuscrit du
 
 Nous aurons ainsi par cette fusion de trois choses
@@ -1911,9 +1825,7 @@ indispensable que le doctorat d'Université fût exigible
 pour obtenir une place de professeur de collège; mais
 
 il faudrait, du moins, qu'un certain avantage y fut
-attaché, par exemple, en cas de concurrence, une préfé-
-
-rence au candidat pourvu de ce titre sur celui qui en est
+attaché, par exemple, en cas de concurrence, une préférence au candidat pourvu de ce titre sur celui qui en est
 
 Il est, en effet, absurde de déclarer, comme le font
 les règlements actuels, que le fait d'écrire et d'imprimer
@@ -1928,17 +1840,14 @@ chargera donc pas beaucoup le budget de l'étudiant. On saït,
 d'ailleurs, que les Facultés des Lettres de France sont celles du À
 monde entier qui demandent les droits les plus modérés à leurs
 auditeurs. Enfin beaucoup de ces petits mémoires peuvent être
-imprimés dans des revues (cela se fait en Allemagne, en Amé-
-
-rique, parfois même chez nous). L'étudiant n'aurait souvent à;
+imprimés dans des revues (cela se fait en Allemagne, en Amérique, parfois même chez nous). L'étudiant n'aurait souvent
 
 ; payer que les tirages à part, ce qui ne coûte pas cher.
 
 frotte. Seuls les étrangers sollicitent notre doctorat
 d'Université parce que chez eux cela a de la valeur.
 C'est franchement idiot. Ne saute-t-il pas aux yeux que,
-la chose injuste c'est de favoriser le concurrent pares-
-seux, le « roublard » qui, sachant que le travail personnel n'est pas encouragé par l'Administration de la
+la chose injuste c'est de favoriser le concurrent paresseux, le « roublard » qui, sachant que le travail personnel n'est pas encouragé par l'Administration de la
 rue de Grenelle, s'en fie à l'intrigue du soin d'obtenir
 une place.
 Supposons cette réforme réalisée. Qu'est-ce qui distinguera désormais le licencié de l'agrégé? deux choses,
@@ -1949,20 +1858,17 @@ germaniques et anglo-saxons, — que le professorat était
 un métier et que ce métier il était nécessaire de
 l'apprendre. La Pédagogie est à la fois science et art.
 Comme science elle est la Psychologie de l'enfant et de
-l'adolescent. C'est une science expérimentale. Elle a sus-
-cité en Allemagne, en Suisse, aux États-Unis, des
+l'adolescent. C'est une science expérimentale. Elle a suscité en Allemagne, en Suisse, aux États-Unis, des
 observations innombrables consignées dans des milliers
 de livres et d'articles. La connaissance de cette littéra-;
 ture est nécessaire, car elle a produit des résultats
 remarquables. C'est grâce à elle que toute l'ancienne;
 pédagogie routinière est tombée dans le discrédit.
-Comme Art, elle consiste à appliquer dans un but déter-
-miné par un idéal social les méthodes fournies par les
+Comme Art, elle consiste à appliquer dans un but déterminé par un idéal social les méthodes fournies par les
 données de l'expérience.
 Le futur professeur, après avoir acquis les faits qu'il (Si
 devra enseigner, doit donc apprendre la manière de les
-faire pénétrer dans des cerveaux enfantins ou adoles-
-cents. Le principe de la nouvelle réforme de l'École
+faire pénétrer dans des cerveaux enfantins ou adolescents. Le principe de la nouvelle réforme de l'École
 
 : Normale est donc excellent et on ne doit s'étonner que
 3 d'une chose, c'est qu'on ait attendu si longtemps pour
@@ -1973,9 +1879,7 @@ professeurs de véritables pédagogues, pourquoi la chose
 semble-t-elle superflue en ce qui concerne les élèves
 ; d'un collège? Nulle connaissance pédagogique n'est, en
 effet, exigée du licencié professeur.
-Ce qui accroît notre étonnement, c'est que cette sépa-
-ration des établissements secondaires en lycées et col-
-lèges est particulière à la France. Partout il y a des
+Ce qui accroît notre étonnement, c'est que cette séparation des établissements secondaires en lycées et collèges est particulière à la France. Partout il y a des
 établissements d'importance inégale, mais il n'y a que
 chez nous qu'on ait établi une barrière, d'un côté la
 canaille (les collèges), de l'autre l'aristocratie (les
@@ -1997,8 +1901,7 @@ doit y en avoir aucune de nature.
 : ment, ce qui serait tout le contraire de ma pensée.
 
 L'établissement de 10° ordre a droit, tout comme le De
-grand lycée parisien, lyonnais, bordelais, à un per-
-sonnel expérimenté. C'est dire qu'il est intolérable qu'on à
+grand lycée parisien, lyonnais, bordelais, à un personnel expérimenté. C'est dire qu'il est intolérable qu'on à
 Ini envoie un tout jeune homme « licencié ignorant le
 premier mot de son métier. Un stage pédagogique est SERA
 exigible pour l'enseignement du collège aussi bien que Aer.
@@ -2011,8 +1914,7 @@ tous les futurs agrégés. (1) C'est à l'égard des Univer-:
 sités provinciales une mesure injustifiable, suggérée
 au Ministre par les professeurs de la Sorbonne et de À
 Normale. Que serait-ce s'il fallait instruire les licen-
-En bonne justice, chaque Université de province de-
-vrait avoir, comme aux États-Unis, son séminaire péda-
+En bonne justice, chaque Université de province devrait avoir, comme aux États-Unis, son séminaire péda-
 É gogique où les futurs professeurs de collège et de lycée,
 sans distinction aucune, apprendraient leur métier. Le
 lycée, — et les écoles primaires de la ville, — serviraient, A
@@ -2034,8 +1936,7 @@ suffirait d'un arrêté ministériel pour porter remède à
 “. d'ailleurs, inviter les Universités à préparer pédagogiquement tout au moins les licenciés.:
 Le concours d'agrégation. — On ne saisit plus
 quelle serait la signification des épreuves écrites et
-À orales de ce concours. La valeur scientifique du can-
-didat est établie par le diplôme d'études supérieures;
+À orales de ce concours. La valeur scientifique du candidat est établie par le diplôme d'études supérieures;
 sa valeur pédagogique par le stage et l'enseignement
 pédagogique. Alors quoi?
 L'agrégation est un procédé d'élimination pour écarter
@@ -2046,8 +1947,7 @@ programme qui change tous les ans. Réussissent ceux
 qui ont de la mémoire et un certain tour de main. Ce
 ne sont pas nécessairement les meilleurs, ni aupointde.
 vue scientifique (et la preuve c'est que des Professeurs
-de Facultés, membres de l'Institut, seraient certaine-
-ment refusés à l'agrégation), — ni au point de vue professionnel, puisque d'excellents professeurs de collège,
+de Facultés, membres de l'Institut, seraient certainement refusés à l'agrégation), — ni au point de vue professionnel, puisque d'excellents professeurs de collège,
 formés par plusieurs années de pratique, très bien cotés par leurs supérieurs, appréciés des élèves et des
 4 familles, — échouent invariablement au concours.
 Le concours, tous les défauts d'institution tiennent en
@@ -2060,11 +1960,9 @@ jeunesse de 25 à 35 ans; et cette préparation ne leur est
 d'aucune utilité. Le programme changeant chaque
 année, tout le travail d'une année est perdu pour l'année suivante. Pendant ces six, huit, dix années, les plus
 fécondes précisément de la vie d'un homme, un profes-?
-seur allemand, suisse, américain, développera ses con-
-naissances, voyagera, composera des livres. Chez nous
+seur allemand, suisse, américain, développera ses connaissances, voyagera, composera des livres. Chez nous
 il potassera les Manuels.
-Et pourtant, cette agrégation haïssable, ce fléau intel-
-lectuel de la France, nos professeurs et nos administrateurs y tiennent. Leur raison profonde c'est qu'ils ne
+Et pourtant, cette agrégation haïssable, ce fléau intellectuel de la France, nos professeurs et nos administrateurs y tiennent. Leur raison profonde c'est qu'ils ne
 voient pas par quel autre procédé on pourrait opérer la
 sélection. Ils redoutent l'ingérence des hommes politiques. L'agrégation est une barrière contre les méfaits
 , de l'intrigue et du « piston ».
@@ -2073,17 +1971,15 @@ la malfaisance? Je crois la chose possible.
 D'abord laisser plus de jeu à laction du jury. Sa
 conscience en général est admirable. Le ministre pour-
 - rait lui accorder une certaine initiative. Au lieu, par
-exemple, de déclarer qu'on recevra cette année 10 agré-
-gés d'histoire, ne pas fixer un chiffre ne varietur, mais
+exemple, de déclarer qu'on recevra cette année 10 agrégés d'histoire, ne pas fixer un chiffre ne varietur, mais
 une moyenne. Car souvent 10 c'est trop peu, et parfois
 aussi c'est trop. Au jury de fixer le chiffre définitif des
 candidats qui méritent d'être reçus. Si ce chiffre dé- À
 passe le nombre des places disponibles, le surplus des
 candidats attendra d'être placé: ils seront au moins à
-délivrés de ce cauchemar. Je suis sûr qu'ils accepte-
-raient avec enthousiasme cette réforme. Pour prévenir
+délivrés de ce cauchemar. Je suis sûr qu'ils accepteraient avec enthousiasme cette réforme. Pour prévenir
 
-à; des abus on pourrait déclarer que l'initiative du jury
+des abus on pourrait déclarer que l'initiative du jury
 : ne saurait aller à dépasser d'un tiers, par exemple,
 14 le chiffre moyen arrêté par le Ministre. (1) Il serait
 à. d'ailleurs facile d'arrêter le flot en laissant de temps
@@ -2111,11 +2007,7 @@ sans concours. En Russie, la sévérité est excessive: on
 
 A ne peut affronter plus d'une fois un examen. C'est trop.
 
-ï Mais chez nous l'excès inverse, la possibilité de s'y pré-
-
-senter presque indéfiniment est déplorable; 2° —la pra-
-
-tique de l'enseignement dans un collège, ou dans un
+ï Mais chez nous l'excès inverse, la possibilité de s'y présenter presque indéfiniment est déplorable; 2° —la pratique de l'enseignement dans un collège, ou dans un
 
 lycée de second ordre, pendant un certain nombre
 
@@ -2137,16 +2029,14 @@ Le À de point. Mais il faut des démarches pressantes, la croix et la
 de conscience.
 
 _possible, — et c'est inique. (1) Que l'on exige, si l'on veut,
-du professeur, simplement licencié, — des garanties nou-
-velles, soit. On pourrait lui demander le doctorat d'État.
+du professeur, simplement licencié, — des garanties nouvelles, soit. On pourrait lui demander le doctorat d'État.
 Un petit nombre a l'héroïsme de conquérir ce titre,
 mais il ne leur a valu au point de vue de l'avancement
 aucune faveur de l'Administration; ceci encore est à
 injuste et maladroit.
 Le seul avantage qu'on accorde dans le décret du
 19 novembre au licencié docteur, c'est la dispense du
-diplôme d'études supérieures pour se présenter à l'agré-
-gation. C'est une dérision. Le doctorat d'État exige plusieurs années de recherches, 2 thèses dont l'impression
+diplôme d'études supérieures pour se présenter à l'agrégation. C'est une dérision. Le doctorat d'État exige plusieurs années de recherches, 2 thèses dont l'impression
 coûte 2, 3, 4.000 francs. Le diplôme d'études ne coûte
 rien ou presque rien et s'obtient en une année au prix
 La justice exige qu'un licencié diplômé, docteur,:
@@ -2160,8 +2050,7 @@ ment prise en faveur des chargés de cours de lycée simplement
 admissibles à l'agrégation. Ils pourront, après un certain temps,:
 recevoir le traitement des agrégés. M. Simyan approuve,avec raison:
 eroyons-nous, cette réforme dans son remarquable rapport (celui
-de 1906) sur la situation désolante de notre Enseignement Secon-
-daire. Voyez Reoue Internationale de l'Enseignement, 15 septembre #3
+de 1906) sur la situation désolante de notre Enseignement Secondaire. Voyez Reoue Internationale de l'Enseignement, 15 septembre #3
 (2) Comment peut-on faire signer à un Ministre des choses de ce
 genre? Le Ministre n'est pas coupable, mais bien ses inspirateurs.
 Comme toujours, Administration de la rue de Grenelle ne cherche
@@ -2178,7 +2067,7 @@ Enr. 1° D'imposer aux aspirants à la licence et aux Ne
 diplômes d'études assiduité et scolarité.
 74 2° De séparer radicalement de l'agrégation les
 De: plômes d'études et de les fondre avec la licence.
-3 De supprimer la distinction entre lycées et collèges
+De supprimer la distinction entre lycées et collèges
 L. 44 et d'assurer au personnel de ces derniers une meilleure
 situation quand ils ont acquis des titres.
 
@@ -2221,7 +2110,7 @@ sociale. On sait, en effet, que chez nos voisins les
 Sciences politiques et économiques ne font jamais parRe tie de la Faculté de Droit. (1) Dans ces gros totaux, ne
 nous le dissimulons pas, philosophes, philologues, his-
 ù toriens ne forment qu'une minorité, même à l'heure
-4 De même en Suisse, où on sépare en deux, comme
+De même en Suisse, où on sépare en deux, comme
 en France, la « Faculté de Philosophie ». Ainsi à FriL bourg, en Suisse, la section Histoire-Philologie comptait
 l'an dernier seulement 51 étudiants pour 22 professeurs
 Rte ordinaires, 6 extraordinaires, et 2 lecteurs).;
@@ -2237,8 +2126,7 @@ En Italie, à l'Université de Pise, la Faculté des Lettres
 comptait 68 étudiants pour 22 professeurs (11 ordinaires,
 3 extraordinaires, 2 chargés de cours, 6 privat-dozents).
 Et cet exemple n'est pas unique. Ron
-De même aux États-Unis, dans les Graduate depart-
-ments des Universités. (1)
+De même aux États-Unis, dans les Graduate departments des Universités. (1)
 Nous ne sommes pas plus mal partagés que les autres,
 ni même lés plus mal partagés.
 A côté des étudiants « réguliers il faut compter en;
@@ -2269,7 +2157,7 @@ Géographie, 1 &Histoire de l'Art, tous « ordinaires ».
 
 (24 à l'École Normale dela rue d'Ulm retiennent des centai es
 d'étudiants dont la place serait dans les Facultés des
-4 Lettres. Mais on s'obstine, avec une sorte de rage mal
+Lettres. Mais on s'obstine, avec une sorte de rage mal
 faisante, à soutirer à ces Facultés leurs élèves désignés …
 à Fe, ï et on leur reproche ensuite de n'avoir pas d'étudiants!
 : Enfin, une dernière raison, la plus importante de
@@ -2280,8 +2168,7 @@ F. 4 est donnée, en France, dans des établissements libres,
 aucune condition de grade. Les pays germaniques ne
 4 professent pas cette sereine indifférence. Ils veulent
 des garanties de ceux qui formeront les adolescents. De
-pays. Il est clair que si l'État français était aussi con-
-scient de ses devoirs que les États allemands ou les
+pays. Il est clair que si l'État français était aussi conscient de ses devoirs que les États allemands ou les
 : cantons suisses, le public scolaire de nos Facultés des
 Lettres et des Sciences doublerait en peu de temps.
 PL. Le public des « étudiants en lettres raréfié artifi-
@@ -2289,21 +2176,18 @@ PL. Le public des « étudiants en lettres raréfié artifi-
 44 pas l'unique auditoire des professeurs des Facultés. Les
 plus petites ont des étudiants bénévoles, érudits locaux
 ”s. désireux de compléter leurs études. Les élèves des à
-écoles normales d'instituteurs et d'institutrices consti-
-tuent un public fort intéressant par sa curiosité intellecFa tuelle et son attention. Certains cours publics ont
+écoles normales d'instituteurs et d'institutrices constituent un public fort intéressant par sa curiosité intellecFa tuelle et son attention. Certains cours publics ont
 plusieurs centaines d'auditeurs. Enfin « extension
 Ex: universitaire » s'est organisée un peu partout.
 4 a On le voit, telle petite Faculté qui ne compte pas plus
 de ou 50 étudiants en lettres sérieux et réguliers,
 (1) On serait presque tenté d'écrire « artificieusement ».
 
-possède en réalité dans la ville une clientèle de plu-
-sieurs centaines de personnes. On ne s'étonnera plus
+possède en réalité dans la ville une clientèle de plusieurs centaines de personnes. On ne s'étonnera plus
 alors de voir si occupés nos professeurs (1) de « petites »
 Facultés des Lettres. Ils ont souvent beaucoup à faire
 sans qu'on s'en doute au premier abord.
-Ne nous laissons pas non plus tromper par les appa-
-rences. On est mal impressionné en entrant dans telle con- à
+Ne nous laissons pas non plus tromper par les apparences. On est mal impressionné en entrant dans telle con- à
 férence, d'histoire, par exemple, à la vue du petit nombre
 de disciples réunis autour du professeur. En Allemagne
 Mais en ce pays où, ainsi que chez nous, la majorité “4
@@ -2311,16 +2195,13 @@ des étudiants se prépare au professorat, l'enseignement es
 du professeur de lycée n'est pas spécialisé comme en
 France. On enseigne au gymnase plusieurs branches à
 
-la fois: pas de professeur spécial d'histoire, de philo-
-sophie, etc., mais il faut professer à la fois, par exemple
+la fois: pas de professeur spécial d'histoire, de philosophie, etc., mais il faut professer à la fois, par exemple
 
 l'histoire et la philologie classique, la philosophie
 (réduite à la logique) et les mathématiques, etc. Il n'y a
 même päs un professeur spécial pour le français et un
 autre pour l'anglais; — dans les gymnases il faut RAC.
-savoir à la fois enseigner les deux langues. Cette orga-
-
-nisation oblige les futurs professeurs, étudiants de la
+savoir à la fois enseigner les deux langues. Cette organisation oblige les futurs professeurs, étudiants de la
 moins à l'Université que leurs camarades français. Ils
 
 étudient un peu de tout à la fois. Il en résulte que tel
@@ -2330,8 +2211,7 @@ allemande ne renferme qu'un assez petit nombre
 (1) Parfois trop. Certains maîtres de conférences se laissent à
 
 absorber par lextension, l'œuvre des étudiants étrangers, les DEL:
-cours publics, les conférences, etc., au point de négliger de pré-
-parer leurs thèses de doctorat. Et cela dans de très petites Uni-
+cours publics, les conférences, etc., au point de négliger de préparer leurs thèses de doctorat. Et cela dans de très petites Uni-
 
 « historiens » véritables. Mais l'étranger, qui ne sait
 pas, s'étonne, admire, et, rentré en France, demeure
@@ -2350,19 +2230,15 @@ même. Seulement le public d'étudiants de la Faculté ne
 
 ne que les professeurs de français et de latin ont, même
 
-en France, un public appréciable, parce que leur ensei-
-
-gnement est utile pour passer la partie commune de la
+en France, un public appréciable, parce que leur enseignement est utile pour passer la partie commune de la
 
 Cela a moins « d'œil » (passez-moi l'expression) mais
 
-;; au fond cela vaut mieux, car le système allemand n'est
+au fond cela vaut mieux, car le système allemand n'est
 
 É à pas bon. Nos voisins seront contraints tôt ou tard d'y
 
-2 renoncer. D'ailleurs, partout où le système de spéciali-
-
-sation existe, le nombre des étudiants est forcément
+2 renoncer. D'ailleurs, partout où le système de spécialisation existe, le nombre des étudiants est forcément
 
 restreint. En Belgique, tout le monde, futurs historiens,
 
@@ -2372,27 +2248,19 @@ De de Philosophie et de Lettres ». Puis vient une période
 
 107 de trois ans d'études « spéciales ». Ce système est
 
-4 excellent. Il combine les mérites des méthodes alle-
-
-mandes et françaises et en supprime les inconvé-
-
-se nients. (1) Que voyez-vous dans les deux premières
+4 excellent. Il combine les mérites des méthodes allemandes et françaises et en supprime les inconvése nients. (1) Que voyez-vous dans les deux premières
 
 (1) Du côté français les inconvénients existent aussi, bien que
 
 ; moins graves. Ainsi jamais vous ne verrez d'étudiants en grec et
 
-ta latin à une conférence d'Histoire ancienne dans les très rares Uni-
-
-ne versités françaises où il existe un professeur d'histoire ancienne.
+ta latin à une conférence d'Histoire ancienne dans les très rares Unine versités françaises où il existe un professeur d'histoire ancienne.
 
 De même pour l'Archéologie, pour les cours de Philosophie
 
 à ancienne. C'est absurde, même scandaleux. Qu'est-ce que peut bien
 
-- être l'acquisition des langues et littératures anciennes si le profes-
-
-seur sait des mots mais est autorisé à ignorer de l'Antiquité son #24
+- être l'acquisition des langues et littératures anciennes si le professeur sait des mots mais est autorisé à ignorer de l'Antiquité son #24
 
 années: dans les cours d'histoire contemporaine où 1088
 doivent assister les futurs juristes aussi bien que les A
@@ -2417,8 +2285,7 @@ ment, c'est-à-dire dans les Hautes Études où commence Le
 C'est un formalisme vide. — En Allemagne ceci est impossible. Les
 . « philologues » forment l'auditoire le plus assidu des cours d'his- Mt.
 toire et d'art antiques. Comment n'est-il jamais venu à l'idée des 3 De
-professeurs de « lettres » d'exiger de leurs étudiants des connais-
-sances aussi fondamentales? Cest qu'en vérité ils sont demeurés
+professeurs de « lettres » d'exiger de leurs étudiants des connaissances aussi fondamentales? Cest qu'en vérité ils sont demeurés
 « rhétoriciens ». Ils se croient « philologues ». Simple illusion.
 L'important pour eux ce n'est pas la Vie antique, ce sont les mots
 des textes qu'ils expliquent. Cest le contraire chez nos voisins.
@@ -2443,9 +2310,7 @@ Notre organisation ne permet pas que chacun d'eux aït
 organisation analogue c'est la même chose. Ce qu'il
 que faut regretter c'est que des règlements malfaisants,
 
-comme l'institution du concours d'entrée à Normale, pré-
-
-cipitent en rhétorique supérieure à Paris des provinciaux
+comme l'institution du concours d'entrée à Normale, précipitent en rhétorique supérieure à Paris des provinciaux
 
 qu'on retire, — presque de force, — aux Facultés provinRes ciales. Qu'on restitue à celles-ci ces écoliers de vingt
 ans qui leur reviennent de droit, — en supprimant les
@@ -2454,15 +2319,12 @@ ans qui leur reviennent de droit, — en supprimant les
 
 GE. futur éducateur, quel qu'il soit, où qu'il enseigne, non seux. lement la licence mais un diplôme d'études supérieures
 et un certificat pédagogique; (1) qu'on retienne enfin
-jusqu'au certificat d'Études supérieures les licenciés pré-
-maturément envoyés dans un collège, — et nos Facultés
+jusqu'au certificat d'Études supérieures les licenciés prématurément envoyés dans un collège, — et nos Facultés
 FES des Lettres de province auront autant d'élèves que le com-
 
 PC: portent et notre structure sociale et notre population. (2)
 
-A (1) On objectera que cette mesure profiterait aux Facultés catho-
-
-liques et non aux Facultés d'Etat. Pas nécessairement. D'ailleurs à
+A (1) On objectera que cette mesure profiterait aux Facultés catholiques et non aux Facultés d'Etat. Pas nécessairement. D'ailleurs à
 tré Paris, à Lyon, à Toulouse, les étudiants de la Faculté catholique
 
 Dur fréquentent aussi des cours de la Faculté d'Etat. C'est par cette
@@ -2504,7 +2366,7 @@ oublie que les enseignements qui nous manquent
 dépassent très souvent le cercle très restreint de la
 Faculté des Lettres et s'adressent à presque tout le
 public scolaire de l'Université et, en outre, au public He.
-2 Jai cité plus haut l'exemple de Giessen qui sur 500 étudiants
+Jai cité plus haut l'exemple de Giessen qui sur 500 étudiants
 de la Faculté de Philosophie n'en compte que 7 à 8 pour l'histoire, Ox.
 ce qui n'empêche pas le personnel des professeurs d'être nom-: AUS
 
@@ -2520,7 +2382,7 @@ Dee des études sérieuses dans une Faculté dépourvue d'un
 : personnel numériquement suffisant. Pour ma part, je me
 refuserais à conseiller d'étudier l'Histoire dans une
 Faculté des Lettres de province pourvue seulement de
-4 2 professeurs (enseignant en outre la Géographie); —:
+4 2 professeurs (enseignant en outre la Géographie);
 1 ou bien l'ensemble si complexe désigné sous le titre de
 4 « Philosophie » sous un unique professeur: et c'est le
 cas de 8 de nos Universités provinciales sur
@@ -2579,8 +2441,7 @@ prévoyait les maux qu'elle devait engendrer, maux dont nous
 ; avons souffert pendant trois quarts de siècle et qui n'ont pas tous
 Il y a mieux encore: Dans une supplique présentée par Haffner
 . à la Convention pour lui conseiller d'épargner l'Université de y
-Strasbourg, ce professeur montrait qu'elle n'avait rien de com-
-mun avec les fantômes d'Universités des vieilles provinces
+Strasbourg, ce professeur montrait qu'elle n'avait rien de commun avec les fantômes d'Universités des vieilles provinces
 françaises, mais qu'elle se rapprochait de Gættingue et de Halle,
 les deux plus célébres Universités de l'Europe au dix-huitième;
 siècle. Il conseillait de refondre, au contraire, nos Universités sur
@@ -2602,19 +2463,15 @@ désintéressa volontairement de l'Enseignement Supé- AS
 Les motifs qui guidaient, plus ou moins confusément,
 les réformateurs (1) des années 1833 et suivantes, à
 r'existent plus de nos jours. La province française,
-depuis vingt-cinq ans, s'est reveillée de son engour-
-dissement de trois siècles. Il est vrai que son agitation
+depuis vingt-cinq ans, s'est reveillée de son engourdissement de trois siècles. Il est vrai que son agitation
 est surtout politique. Mais c'est excellent cela! Qu'ils
 
-; sont assommants les peuples qui « ne font pas de poli-
-tique Il serait fâcheux évidemment que la politique
+; sont assommants les peuples qui « ne font pas de politique Il serait fâcheux évidemment que la politique
 absorbât toute la force de la province, mais cela n'est
 pas. Il y a des signes de curiosité intellectuelle, — encore
 trop faibles, — mais indéniables. (2)
 D'autre part, un Parlement démocratique se montre
-généralement mieux disposé envers les besoins scienti-
-
-fiques du pays qu'un gouvernement despotique ou oligar-
+généralement mieux disposé envers les besoins scientifiques du pays qu'un gouvernement despotique ou oligar-
 Réformateurs théoriques. Leur conception n'a pas aboutiet,
 YPun d'eux a été longtemps au pouvoir. N'est-ce pas mauvais
 2) Esthétiquement, — la province française demeure à peu près
@@ -2645,8 +2502,7 @@ Louis-Philippe et de l'Empire, à l'égard de la culture intellectuelle.
 Ho: Et les « ruraux » de l'Assemblée Nationale de 1872-1877. Comme ils
 SE auraient écrasé l'Enseignement Supérieur, s'ils en avaient le
 Elle certainement en augmenter le nombre. L'Académie de,
-a Posen a été créée il y a deux ans. Hambourg, Francfort et peut-
-être Cologne peuvent transformer d'un moment à l'autre leurs
+a Posen a été créée il y a deux ans. Hambourg, Francfort et peutêtre Cologne peuvent transformer d'un moment à l'autre leurs
 riches établissements de haute Science. D'autres villes suivront.
 ei, Avant dix ans l'Allemagne comptera trente Universités.
 
@@ -2664,24 +2520,20 @@ Mais en France! Est-ce que le Calvados est solidaire
 de la Seïine-Inférieure? Et vous voudriez qu'il le fût
 d'un département breton, Ille-et-Vilaine, auquel aucun
 
-lien ne le rattache dans le présent et ne l'a jamais rat-
-taché dans le passé? C'est pure absurdité. Supprimez Ne.
+lien ne le rattache dans le présent et ne l'a jamais rattaché dans le passé? C'est pure absurdité. Supprimez Ne.
 l'Université de Caen. Pas un seul de ses 500 étudiants +1
 n'ira à Rennes. Tous prendront le chemin de Paris et
-augmenteront un total déjà formidable (12.000 étu-
-diants). Supprimez Dijon. Combien d'étudiants pren- je
+augmenteront un total déjà formidable (12.000 étudiants). Supprimez Dijon. Combien d'étudiants pren- je
 dront le chemin de Lyon? Mettons un tiers, pour faire
 la part très belle à l'adversaire. Mais les deux autres
 tiers rappliqueront sur Paris, — toujours. Supprimez
-Clermont, vous augmenterez Lyon peut-être de dix étu-
-diants et je n'en réponds pas. Bordeaux n'en gagnerait;
+Clermont, vous augmenterez Lyon peut-être de dix étudiants et je n'en réponds pas. Bordeaux n'en gagnerait;
 certainement pas 50 à la suppression de Poitiers, etc.
 
 Croire qu'on créera des centres peuplés par la des- a
 truction des petites Universités, c'est commettre une er- Di:
 reur grossière, c'est ignorer la structure administrative
-et sociale de la France moderne. La proposition con-
-traire pourrait se soutenir avec beaucoup plus de jus- 51 À
+et sociale de la France moderne. La proposition contraire pourrait se soutenir avec beaucoup plus de jus- 51 À
 ‘tesse. Ce n'est que par la multiplication des petites
 Universités qu'on réussirait à désengorger Paris. Ki.
 J'ai dit que les départements des anciennes provinces
@@ -2691,8 +2543,7 @@ sitaire attire à elle les étudiants du département, presque
 Me pas ceux du ressort académique, équivalant à peu
 
 je près à la vieille « province ». Viendra-t-il jamais à
-. l'idée d'un habitant de Troyes d'envoyer ses fils étu-
-dier à Dijon plutôt qu'à Paris sous prétexte que l'Aube
+. l'idée d'un habitant de Troyes d'envoyer ses fils étudier à Dijon plutôt qu'à Paris sous prétexte que l'Aube
 
 nil. fait partie du ressort académique de Dijon? Est-ce
 
@@ -2700,9 +2551,7 @@ EN qu'au point de vue « universitaire Rouen, Le Havre,
 
 Le Mans se sentent unis à Caen parce que les départe-
 
-1 ments de la Seine-Inférieure et de la Sarthe sont rattapur chés à l'Académie de Caen? — La division en Acadé-
-
-mies est au point de vue de l'enseignement supérieur
+1 ments de la Seine-Inférieure et de la Sarthe sont rattapur chés à l'Académie de Caen? — La division en Académies est au point de vue de l'enseignement supérieur
 
 14 entièrement factice. On peut dire en gros que chaque
 
@@ -2720,9 +2569,7 @@ WaY tiplier les Universités. On ne le fait pas pour des rai-
 Il est, d'ailleurs, radicalement faux de prétendre que
 
 16 la France ne peut avoir 15 Universités. L'Allemagne en
-Nue a 21 pour une population supérieure d'un tiers. La pro-
-
-portion est donc la même. Aux États-Unis on ne craint
+Nue a 21 pour une population supérieure d'un tiers. La proportion est donc la même. Aux États-Unis on ne craint
 Ê nullement de multiplier les Universités. L'État de NewF York en a cinq, (2) et cependant Columbia, à New-York,
 A est un organisme colossal, avec 6 ou 8.000 étudiants et
 
@@ -2749,8 +2596,7 @@ Universités » provinciales possibles. Nous pouvons
 entretenir des moyennes et des petites Universités. La cri
 structure sociale de notre pays nous interdit les Leipzig,
 et les Munich. #2
-Relevons encore un propos très fréquent mais incon-
-sidéré. Avec le développement des chemins de fer toute
+Relevons encore un propos très fréquent mais inconsidéré. Avec le développement des chemins de fer toute
 Université trop proche de Paris serait fatalement con-
 . damnée. — Comment expliquer alors que, par le nombre
 des maîtres et des élèves, pour la richesse de ses reve- en:
@@ -2764,8 +2610,7 @@ pour une population double de la nôtre, les États-Unis ont,
 déduction faite des non-valeurs, — un nombre d'Universités qua- ÉVr
 
 Comment expliquer que Leïpzig, à son tour, ne nuise
-nullement à la prospérité de Halle qui est plus impor-
-tante que Lyon même, notre première Université pro-
+nullement à la prospérité de Halle qui est plus importante que Lyon même, notre première Université pro-
 à vinciale. Et Halle est à une heure d'express de Leipzig!
 Gættingue, à son tour, est proche de Halle. Giessen
 est à 40 kilomètres de Marburg, etc. Les Universités
@@ -2789,9 +2634,7 @@ fréquentées, n'ont point suscité de créations sauf à
 Angers (Université catholique), il en autrement du
 
 È Droit. Marseille et Nantes ont créé des Facultés libres
-de Droit. Ces deux villes aspirent, — la seconde incon-
-
-sciemment peut-être, — à être des Universités complètes.
+de Droit. Ces deux villes aspirent, — la seconde inconsciemment peut-être, — à être des Universités complètes.
 
 (1) faut dire aussi que dans l'Allemagne du Sud, les étudiants
 bavarois, badoïs, etc., sont obligés, — je crois, — de passer un certain nombre de semestres dans une Université régionale.]
@@ -2887,20 +2730,15 @@ C'est beaucoup. Bien des Universités allemandes n'en
 ! D'autre part, quoi qu'il advienne, on y maintiendra à
 coup sûr les Ecoles de Médecine., De
 Restent les Sciences et les Lettres. Ces Facultés sont' {2
-peu fréquentées par le public scolaire. Mais on ou-
-blie que leur action dépasse, comme on l'a vu, le petit:
+peu fréquentées par le public scolaire. Mais on oublie que leur action dépasse, comme on l'a vu, le petit:
 nombre des étudiants de licence et d'agrégation. La
-Faculté des Sciences de Caen rend des services à l'agri-
-culture de toute la Normandie par ses cours de chimie
+Faculté des Sciences de Caen rend des services à l'agriculture de toute la Normandie par ses cours de chimie
 et de botanique agricoles. De même Dijon pour le vi- Wii
 gnoble bourguignon avec sa station œnologique. De
-même Clermont à l'Auvergne avec son institut limno-
-logique; Besançon à l'industrie horlogère, ete. (1) Et ces 2)
-Et l'électricité industrielle qu'on commence à enseigner par-
-tout. Les ouvriers sont nombreux aux cours du soir, même à (re
+même Clermont à l'Auvergne avec son institut limnologique; Besançon à l'industrie horlogère, ete. (1) Et ces 2)
+Et l'électricité industrielle qu'on commence à enseigner partout. Les ouvriers sont nombreux aux cours du soir, même à (re
 
-services méritent bien le maintien de ces Facultés, dût-
-peu suivi du public. (1)
+services méritent bien le maintien de ces Facultés, dûtpeu suivi du public. (1)
 Pour les Lettres, on conviendra qu'il serait humiliant à
 que de vieilles cités comme Caen et Dijon, où un petit
 mouvement intellectuel ne cessa jamais malgré l'engour-,
@@ -2922,8 +2760,7 @@ petites Facultés de Besançon n'ont cessé d'avoir un!
 Il conviendrait à ce propos de rappeler les paroles de Renan
 sur la nécessité qu'il y a pour Etat à entretenir les Hautes Mathé-
 : matiques. Au reste, ce service est réduit à Caen, Poitiers, Clermont,
-Dijon au strict minimum 2 professeurs, Fun pour les mathéma-
-tiques et l'astronomie, l'autre pour la mécanique pure et appliquée.;
+Dijon au strict minimum 2 professeurs, Fun pour les mathématiques et l'astronomie, l'autre pour la mécanique pure et appliquée.;
 Impossible de faire moins. À
 (2) Dans un petit pays voisin la proximité de Genève n'a empêché,
 cependant, ni la création de l'Université de Lausanne, ni celle de
@@ -2953,10 +2790,8 @@ L'auteur prétend que, comme tout organisme, l'École
 n'oublie qu'une chose, c'est que cette École a subi, en
 , 1848 et à la fin de l'Empire, deux mouvements tellement …
 4 profonds qu'il n'y a plus que le nom de commun entre )
-elle et l'établissement fondé sous la Restauration. Pro-
-grammes, méthodes, personnel, esprit même, tout a
-changé. En outre, par une suite d'améliorations conti-
-nues, le corps des professeurs et le Conseil ont amené NE:
+elle et l'établissement fondé sous la Restauration. Programmes, méthodes, personnel, esprit même, tout a
+changé. En outre, par une suite d'améliorations continues, le corps des professeurs et le Conseil ont amené NE:
 Les l'Enseignement et le système d'examens à un degré de car
 3 perfection qui défie toute comparaison, non seulement
 en France, mais en Europe. Les examens, en particulier, 1408
@@ -2987,8 +2822,7 @@ Et puis, est-il si bon de sacrifier la besogne scientifique de l'École à la pr
 comme semble le désirer le projet de loi? — Je vois ce
 que nous y perdrions et n'aperçois pas clairement ce
 
-A qu'on y gagnerait. Nous aurions plus de « fonctionnaires » et moins de savants et d'érudits. C'est précisé-
-ment le contraire qui est désirable.
+A qu'on y gagnerait. Nous aurions plus de « fonctionnaires » et moins de savants et d'érudits. C'est précisément le contraire qui est désirable.
 L'École des Chartes a évolué, comme toute institution
 vivace. Actuellement elle est l'Institut de l'Histoire de
 ô France. C'est une chose unique en Europe. Gardons-.
@@ -3018,13 +2852,10 @@ Autre lacune: pas de cours d'Histoire générale.
 Ils manquent à l'École. Mais il n'est nul besoin de
 créations nouvelles: la Faculté des Lettres est là. Le
 malheur c'est que la Faculté ne fait pas son devoir. De:
-mon temps, mes camarades et moi y cherchions vaine-
-ment les cours d'Histoire du Moyen-Age et des Temps
-(1) Le regretté Auguste Molinier, un des esprits les plus « mo-
-dernes » de notre temps, n'y réussissait pas beaucoup mieux que
+mon temps, mes camarades et moi y cherchions vainement les cours d'Histoire du Moyen-Age et des Temps
+(1) Le regretté Auguste Molinier, un des esprits les plus « modernes » de notre temps, n'y réussissait pas beaucoup mieux que
 son prédécesseur Siméon Luce.
-(2) Tous les professeurs de l'Ecole des Chartes donnent gratuite-
-ment un nombre considérable de cours supplémentaires pendant
+(2) Tous les professeurs de l'Ecole des Chartes donnent gratuitement un nombre considérable de cours supplémentaires pendant
 le semestre d'été. Quel contraste avec leurs collègues de la Faculté;
 des Lettres de Paris (appointements 10 et 12.000 francs au lieu de
 5 et 6.000 aux Chartistes), pour qui tout est prétexte à interrompre pare
@@ -3043,10 +2874,8 @@ de Est-il bon de réduire la durée de l'enseignement de
 La première année est peu chargée. L'idée est venue
 à plus d'un de ramasser l'enseignement en deux ans.
 Le résultat serait désastreux. L'esprit scientifique ne;
-s'acquiert pas par le bourrage intensif; il germe lente-
-ment. En fait, voici ce qui se passe. En première année
-ê l'étudiant n'est qu'un écolier. Tout ce qu'on peut lui de-
-mander c'est de l'assiduité et une préparation honnête
+s'acquiert pas par le bourrage intensif; il germe lentement. En fait, voici ce qui se passe. En première année
+ê l'étudiant n'est qu'un écolier. Tout ce qu'on peut lui demander c'est de l'assiduité et une préparation honnête
 ; à l'examen. — L'esprit critique ne s'éveille qu'au cours;
 de la seconde année. Pas au début: vers le milieu de
 l'année. L'étudiant a besoin d'une initiation d'une quin- “4
@@ -3078,10 +2907,7 @@ se spécialiser trop tôt. Se
 C'est pour la même raison qu'il serait mauvais Ce
 d'exiger que le Chartiste prit le grade de licencié DR:
 au cours de ses études, comme le réclament des gens
-intelligents mais mal informés. Si c'est la licence réno-
-vée, cette licence sera longue à conquérir, et elle absor-
-bera tous les loisirs du Chartiste. Quel temps lui res-
-tera-t-il pour faire ces grands dépouillements d'archives me
+intelligents mais mal informés. Si c'est la licence rénovée, cette licence sera longue à conquérir, et elle absorbera tous les loisirs du Chartiste. Quel temps lui restera-t-il pour faire ces grands dépouillements d'archives me
 qui sont la raison d'être, la gloire de cette école? (2) Se
 
 doute-t-onde ce que cela demande de temps et d'efforts?: » AXE
@@ -3095,8 +2921,7 @@ sont nullement inférieurs à leurs camarades des Chartes, mais ils
 wont pas la préparation suffisante. Aussi quand un étudiant de
 la Faculté manifeste des dispositions pour l'histoire médiévale, a
 . on lui conseille. d'entrer à l'Ecole des Chartes.
-(2) Sans elle je ne sais plus trop comment l'on ferait pour explo-
-rer les dépôts de la France et de l'Etranger. Les étudiants de on:
+(2) Sans elle je ne sais plus trop comment l'on ferait pour explorer les dépôts de la France et de l'Etranger. Les étudiants de on:
 « lettres il n'y faut pas songer. Ils n'ont ni le temps nila prépa- je
 ration nécessaire. Je cherche en vain quel personnel s'y adonnerait.
 
@@ -3119,11 +2944,9 @@ ces dernières années d'organiser des exercices de sémi-;
 paire analogues, — toutes proportions gardées, — à ceux
 de l'Allemagne. Il en sortait, surtout pour le doctorat
 économique, des travaux de plus en plus intéressants, À
-sous forme de thèses. On vit, chose incroyable, des étu-
-diants apprendre un peu d'allemand et d'anglais et faire
+sous forme de thèses. On vit, chose incroyable, des étudiants apprendre un peu d'allemand et d'anglais et faire
 ; quelques voyages de recherches. Peu à peu, nos Facultés
-de Droit, jusqu'alors la honte de l'Enseignement supé-
-rieur français, sortaient de leur néant scientifique.
+de Droit, jusqu'alors la honte de l'Enseignement supérieur français, sortaient de leur néant scientifique.
 La nouvelle loi militaire anéantir tout cela.;
 N'y aurait-il pas moyen de parer le coup et de garder
 
@@ -3132,14 +2955,11 @@ une partie au moins des étudiants de doctorat? Evi- à
 demment. C'est par une anomalie particulière à notre;
 pays, inconnue ailleurs (Italie, Allemagne, etc.), que le
 grade de licencié suffit pour être magistrat, (1) alors
-que le doctorat (et même quelques études de psycho-
-physiologie) seraient requises justement. Mais ceci dé- je
+que le doctorat (et même quelques études de psychophysiologie) seraient requises justement. Mais ceci dé- je
 pend du ministre de la Justice, qui n'a pas l'air de se
 douter de la possibilité d'une réforme en ce sens..
 
-Il seraït possible, tout au moins, d'introduire un amen-
-
-dement dans la loi qu'il soumettre au Parlement sur la
+Il seraït possible, tout au moins, d'introduire un amendement dans la loi qu'il soumettre au Parlement sur la
 réforme de la magistrature. (2) — Il exige du magistrat
 cinq ans de stage d'avocat. Ne pourrait-on proposer de À
 réduire ce stage à deux ans pour quiconque serait pourvu
@@ -3150,8 +2970,7 @@ oublient le peu d'allemand ou d'anglais qu'ils ont appris À
 au Collège. C'est fâcheux à tous les points de vue. Nos
 médecins, même les professeurs d'écoles de médecine,
 : ( [Que dis-je? La simple capacité est suffisante pour être juge de à
-paix. Un récent décret (14 février 1905) a consolidé ce bas certi-
-ficat indigne d'un Etat civilisé. Des journalistes trouvent ce décret
+paix. Un récent décret (14 février 1905) a consolidé ce bas certificat indigne d'un Etat civilisé. Des journalistes trouvent ce décret
 « démocratique ». Ce qui est démocratique, c'est de donner aux +r'
 jeunes gens sans fortune le moyen de faire de bonnes études et
 non de distribuer des diplômes au rabais. On a honte d'être
@@ -3163,14 +2982,11 @@ sommes informés de la production germanique, qui est
 immense et généralement excellente, — avec des retards
 demeurent inconnus chez nous alors qu'ils se sont;
 répandus dans le monde entier depuis deux, trois, quatre
-aps et souvent davantage. A la Faculté des Lettres im-
-possible d'entreprendre une recherche d'histoire ou de
+aps et souvent davantage. A la Faculté des Lettres impossible d'entreprendre une recherche d'histoire ou de
 philologie avec ses élèves. Il n'y en a pas un sur dix
 (SA capable de se débrouiller dans un livre écrit en langue
 étrangère. De même à la Faculté des Sciences. De
-1 même à la Faculté de Droit avec les étudiants en doc-
-torat: pas de séminaire possible pour les Études écono-
-miques, où il faut être capable de lire l'abondante pro
+1 même à la Faculté de Droit avec les étudiants en doctorat: pas de séminaire possible pour les Études économiques, où il faut être capable de lire l'abondante pro
 duction des Allemands, des Américains, des Anglais, des à
 Italiens aussi, qui travaillent beaucoup depuis vingt ans.;.
 : Tout travail original se trouve arrêté chez nous, — à à
@@ -3251,8 +3067,7 @@ diminué de unités. (3) On fait figurer en effet comme
 étudiants les personnes auxquelles on a remis une carte
 fermés. Les auditeurs de cette catégorie ne sont pas:
 compris dans les chiffres allemands. (4) Il est donc:
-nécessaire, pour rendre la comparaison sérieuse, d'opé-
-rer une forte soustraction du côté français.
+nécessaire, pour rendre la comparaison sérieuse, d'opérer une forte soustraction du côté français.
 
 En ne tenant compte même que des vrais étudiants,
 ceux qui se préparent à la licence, à l'agrégation, aux
@@ -3284,13 +3099,10 @@ sont décidés à compter cette catégorie d'auditeurs, si bien que
 
 Facultés étrangères d'une vieille renommée n'en ont
 pas autant, et l'on voudrait que nos petites Facultés;
-de récentes, mal installées, insuffisamment dotées de per-
-sonnel, atteignissent ces chiffres! C'est abuser de la cré-
-dulité publique. A la Sorbonne, même après la soustracEE tion opérée plus haut, il ne reste pas 1.500 étudiants
+de récentes, mal installées, insuffisamment dotées de personnel, atteignissent ces chiffres! C'est abuser de la crédulité publique. A la Sorbonne, même après la soustracEE tion opérée plus haut, il ne reste pas 1.500 étudiants
 C'est qu'en effet, répétons-le, l'état d'anarchie où on
-sa laisse l'organisation de notre haut enseignement per-
-met aux étudiants de ne suivre ni cours ni conférences,
-ne et de ne paraître à la Faculté que pour prendre les inEME Pau »?
+sa laisse l'organisation de notre haut enseignement permet aux étudiants de ne suivre ni cours ni conférences,
+ne et de ne paraître à la Faculté que pour prendre les inEME Pau
 scriptions et passer les examens. Il en résulte qu'un total
 d'étudiants qui peut atteindre dans certaines Facultés
 Le jusqu'à 50 o/o et même davantage de l'effectif est, au
@@ -3301,7 +3113,7 @@ M. mum, 2.500, plus probablement 2.000 environ, dont
 Mais cela, encore une fois, est la faute de l''Adminis-
 Et tration de la rue de Grenelle qui n'a jamais songé à
 imposer sérieusement la scolarité. Le remède serait;
-ï: (1) Ceci s'est trouvé confirmé par le rapport de M. Croiset cité
+(1) Ceci s'est trouvé confirmé par le rapport de M. Croiset cité
 (PS; page 201. Il signale avec satisfaction 565 étudiants comme ayant
 pris part aux travaux des conférences. Un esprit chagrin pourrait
 2. demander ce que font les autres. Ainsi, de Faveu même du doyen, à
@@ -3352,9 +3164,7 @@ exercer un jour un métier diflicile. SLT
 Les crédits de matériel des Universités;
 allemandes et françaises a
 
-Dans le rapport au Ministre sur la situation de l'Uni-
-
-versité de Paris en 1903-1904, confié à M. Lippmann, on à
+Dans le rapport au Ministre sur la situation de l'Université de Paris en 1903-1904, confié à M. Lippmann, on à
 
 lit (pages 25-26), entre autres choses, ce qui suit:
 
@@ -3368,15 +3178,11 @@ matériel plus que l'État français pour l'ensemble de ses
 
 : 16 /sic) Universités. De trop longs programmes, un trop:
 
-faible budget: les deux faits se tiennent, car il y a incom-
-
-patibilité entre l'esprit de programme et le développement y
+faible budget: les deux faits se tiennent, car il y a incompatibilité entre l'esprit de programme et le développement y
 
 de l'Enseignement supérieur. Pour qu'un peuple doué, sou- Le
 
-vent initiateur en matière de science, n'arrive pas à com-
-
-prendre que les sacrifices faits pour la science constituent
+vent initiateur en matière de science, n'arrive pas à comprendre que les sacrifices faits pour la science constituent
 
 ‘le plus magnifique des placements, il faut bien que la masse
 
@@ -3425,8 +3231,7 @@ EUX (1) Quin'est nullement « deux fois plus petit » que Paris, mais
 le dépasse, à l'heure actuelle, par le chiffre de ses étudiants et de
 ses professeurs, si l'on tient compte des privat-dozents.
 
-longue à découvrir. Après avoir entretenu une corres-
-pondance avec nos collègues allemands (r) et compulsé
+longue à découvrir. Après avoir entretenu une correspondance avec nos collègues allemands (r) et compulsé
 les budgets allemands, ainsi que l'ouvrage de Lexis,
 À cité plus haut, (2) enfin après avoir manié avec précau
 tion la Minerva, (3) je me suis aperçu que: les chiffres
@@ -3434,8 +3239,7 @@ concernant les budgets des Instituts universitaires
 comprennent: 1° l'ensemble des ressources provenant
 aussi bien des droits payés par les étudiants que de la
 (1) Jai obtenu des réponses de MM. les professeurs Ladislas von A
-(lena). Je dois des remerciements tout particuliers aux correspon-
-dants qui ont bien voulu menvoyer les budgets rectifiés de leurs 1%
+(lena). Je dois des remerciements tout particuliers aux correspondants qui ont bien voulu menvoyer les budgets rectifiés de leurs 1%
 Universités: M. le professeur W. Lexis (Gættingen), Georg Schanz
 (Würzburg), M. le docteur A. Vorberg, bibliothécaire de Rostock,
 — enfin, pour Strasbourg, M. le docteur Hausmann, secrétaire de
@@ -3451,9 +3255,7 @@ Instituts et Laboratoires est sous la direction, non de l'Université,
 mais de l'Académie des Sciences; mais, comme les membres de de,
 cette Académie sont les professeurs de l'Université et que le publie
 A qui fréquente ces établissements est formé des étudiants, il
-avait pas lieu de s'arrêter à une distinction purement administra-
-tive et j'ai ajouté naturellement aux chiffres de dotation de l'Uni-
-versité (fournis par l'ouvrage de Lexis, pages 458-465), ceux de la
+avait pas lieu de s'arrêter à une distinction purement administrative et j'ai ajouté naturellement aux chiffres de dotation de l'Université (fournis par l'ouvrage de Lexis, pages 458-465), ceux de la
 direction académique (fournis par la Minerca, 1903-1904, page 718).
 — Pour la Saxe royale, Lexis opère les distinctions nécessaires. —
 De même pour la Hesse. — Pour le grand-duché de Bade, il suffit Le
@@ -3479,8 +3281,7 @@ AUS portés au chapitre 10 sous la rubrique Personnel.
 é 1° faire subir aux budgets allemands une réduction
 considérable par la soustraction de tous les traitements
 de ce personnel « inférieur 2° en France, ajouter, aux
-chiffres des contributions de l'État français, les res-
-sources provenant des droits des travaux pratiques, etc.
+chiffres des contributions de l'État français, les ressources provenant des droits des travaux pratiques, etc.
 C'est à cette double opération que je me suis livré pour
 140 composer les tableaux ci-joints.
 J'ai étendu mes recherches non seulement aux établisne sements relevant de ce que nous appellerions en France
@@ -3505,17 +3306,13 @@ Physiologie, Pathologie, Pharmacologie, Hygiène, la
 question des Cliniques rend toute comparaison impos-
 
 : sible entre la France et l'Allemagne, sinon pour un spé-?
-cialiste qui étudierait sur place, une à une, les Univer-
-sités des deux pays. Quand on voit par exemple des
-Facultés de second ordre, telles Rostock ou Iena, dépen-
-ser 269.000 et 322.134 marks pour la Clinique générale,
+cialiste qui étudierait sur place, une à une, les Universités des deux pays. Quand on voit par exemple des
+Facultés de second ordre, telles Rostock ou Iena, dépenser 269.000 et 322.134 marks pour la Clinique générale,
 
 Rostock 46.850 marks pour la Clinique des maladies
 des yeux, lena 210.408 marks pour l'/rrenheilanstalt, il
 saute aux yeux qu'on porte au compte de l'Université,
-qui reçoit des ressources en conséquence, (1) des dé-
-
-penses qui sont chez nous à la charge des municipalités,
+qui reçoit des ressources en conséquence, (1) des dépenses qui sont chez nous à la charge des municipalités,
 de l'assistance publique. Nombreuses sont les petites
 Universités où fonctionne ce système. (2) Dans la Hesse,
 
@@ -3544,13 +3341,12 @@ Université allemande, signaler les 130.000 francs payés annuelle- Ke,
 ment par la ville à l'hôpital et à l'hospice, etc.
 
 un Ferdinand Lot PTS
-identique aux tableaux allemands. C'est malheureusek É ment impossible. On ne trouve chez nous aucune suppu-
-tation par Instituts ou Laboratoires. Une annexe du
+identique aux tableaux allemands. C'est malheureusek É ment impossible. On ne trouve chez nous aucune supputation par Instituts ou Laboratoires. Une annexe du
 o Compte définitif du Budget de l'Instraction publique
 divise les dépenses de chaque Faculté en « Frais de
 cours « Travaux pratiques Entretien de Collecf tions etc., mais sans indiquer quelle somme dans »
 ; chacune de ces catégories est affectée à la Physique, à
-À: la Chimie, à la Botanique, etc. Plusieurs secrétaires des
+la Chimie, à la Botanique, etc. Plusieurs secrétaires des
 RUE Facultés ont l'extrême obligeance d'effectuer sur le
 papier, à ma demande, une répartition dans le sens que
 Ne je viens d'indiquer. Mais, n'ayant que six réponses
@@ -3592,8 +3388,7 @@ tableau 3, pour ne pas multiplier les rubriques, on a réuni SA
 24.350 marks représentent la portion de la dotation en Matériel de LEE
 VInstitut d'Océanographie; pour Bonn (240 marks), le Musée des
 Antiquités Rhénanes; pour Kiel (3.150 marks), le Museum oaterlän- lié de
-._ discher Alterthümer; pour Würtzburg (11.000 marks), le Wag-
-nerischer Museum; les 5.400 marks de Leipzig se décomposent en
+._ discher Alterthümer; pour Würtzburg (11.000 marks), le Wagnerischer Museum; les 5.400 marks de Leipzig se décomposent en
 ; 6.800 marks pour le Séminaire de Pédagogie, 600 marks pour une
 à collection de Numismatique; de même à Rostock, les 150 marks ù Aus
 s'appliquent à la Numismatique; à Strasbourg (2.500 marks), à
@@ -3621,8 +3416,7 @@ ce qui semble proportionnel à la population respective
 des deux pays. Il est vrai que nos 1.200.000 francs de
 dépenses doivent un peu être diminués, vu, comme je
 l'ai dit, que cinq ou six de nos Facultés font fonction,
-non seulement de Facultés, mais de Technische Hoch-
-schulen. Par contre, il faut grossir le total: 1° de Paris
+non seulement de Facultés, mais de Technische Hochschulen. Par contre, il faut grossir le total: 1° de Paris
 d'environ 400.000 francs, provenant de: 41.519 francs
 pour les deuxième et troisième sections de l'École des
 Hautes Études, 38.142 francs pour l'École Normale, —
@@ -3666,9 +3460,7 @@ Ur, (3) Les sommes consacrées à ces établissements par les villes
 
 ; Néanmoins, je le répète, toutes proportions gardées,
 il semble que les revenus de nos Instituts « scientifiques »
-(provenant tant de l'État que des ressources universi-
-
-taires et autres) soient à peu près suffisants. La plaie de
+(provenant tant de l'État que des ressources universitaires et autres) soient à peu près suffisants. La plaie de
 
 4 nos Instituts scientifiques en réalité, — surtout en province, — c'est que l'État ne s'est pas décidé à les installer
 
@@ -3714,9 +3506,7 @@ révélation. (2) Mais quoi! le seul local disponible est
 une petite salle de l'École des Hautes Etudes où tiennent
 (1) A la seule exception du grand amphithéâtre, lequel sert à tout,
 sauf à l'enseignement.
-(2) MM. Brunot et Roques, dans une brochure publiée lan der-
-
-nier, ont montré la richesse, — déparée par des doubles emplois
+(2) MM. Brunot et Roques, dans une brochure publiée lan dernier, ont montré la richesse, — déparée par des doubles emplois
 
 et des lacunes il est vrai, — de l'Enseignement de la Philologie
 romane à Paris. Il serait à souhaiter que l'Université de Paris, ou
@@ -3735,11 +3525,8 @@ faudrait pour bien faire une série de salles consacrées,
 À l'une à la philologie romane en général, une autreàla
 à langue et à la littérature françaises, une troisième à
 l'Italie, une quatrième à l'Espagne et au Portugal,
-à cinquième à la Roumanie, d'autres à la littérature com-
-
-parée, etc.; en un mot un petit Institut spacieux et
-autonome. — De même pour la philologie germa-
-nique dont l'état à Paris est une honte.
+à cinquième à la Roumanie, d'autres à la littérature comparée, etc.; en un mot un petit Institut spacieux et
+autonome. — De même pour la philologie germanique dont l'état à Paris est une honte.
 
 Pour l'histoire et l'archéologie du Moyen-Age, l'École
 
@@ -3749,7 +3536,7 @@ o lent; mais la place y fait cruellement défaut. En outre,
 les salles de conférences étant, comme de juste, réservées
 aux professeurs de l'École des Chartes, les Médiévistes.
 de la Faculté et de l'École des Hautes Études n'ont pas
-sous la main les livres nécessaires à leurs conférences -:
+sous la main les livres nécessaires à leurs conférences
 es de séminaire.
 Pour l'histoire moderne, sans le legs Flammermont il
 : n'y aurait absolument rien. Mais il est insuflisant et l'on
@@ -3783,8 +3570,7 @@ un Séminaire oriental (divisé en plusieurs sections) (1)
 des Hautes Études un embryon.
 Quant à la Psychologie expérimentale c'est inénar2 rable. Elle est coupée en plusieurs tronçons: École des
 École des Hautes Études quatrième section (histoire et si
-philologie), une chaire au Collège de France, une confé-
-rence à la Faculté des Lettres, des conférences dans les
+philologie), une chaire au Collège de France, une conférence à la Faculté des Lettres, des conférences dans les
 à cliniques et les asiles.
 A l'exception de ces dernières dont l'existence en ces
 lieux n'a pas besoin de se justifier, il de soi que tout
@@ -3855,11 +3641,10 @@ mais ce sont des crédits extraordinaires que je ne
 genre; — à Lyon le musée de moulages antiques a
 1.500 francs, l'art moderne 500 francs, la géographie
 
-Me 500 francs, l'égyptologie 200 francs; Rennes la géo-
-graphie a 300 francs; — à Toulouse la géographie et
+Me 500 francs, l'égyptologie 200 francs; Rennes la géographie a 300 francs; — à Toulouse la géographie et
 l'archéologie se partagent à l'amiable 2.8/6 francs (dont
 14 1.000 francs fournis par l'Université). AVE
-166 Pour le Droit, Toulouse qui est, je crois, la seule
+Pour le Droit, Toulouse qui est, je crois, la seule
 Université de province qui ait organisé quelques véri__ tables Séminaires, ne dispose que de 300 francs; — Por
 CRI fiers de 417 francs; — Rennes de 141 francs et Nancy de
 7: L'exemple de l'Allemagne montre que pour les sciences
@@ -3881,8 +3666,7 @@ Ne etc., indispensables pour les cours maïs qui ne servent
 
 n. gner puisqu'elle atteignait, en 1903, la somme de
 51.000 francs pour l'ensemble des Universités, (1) mais
-elle est mal répartie et n'a point de fixité, La compa-
-raison avec les Universités allemandes montre que, —
+elle est mal répartie et n'a point de fixité, La comparaison avec les Universités allemandes montre que, —
 exception faite de Paris, de Lyon, de Bordeaux quiont
 
 Toulouse 2.333. — L'extrême irrégularité de ces chiffres, qui ne 1140
@@ -3924,8 +3708,7 @@ YHistoire de l'Art même, constituent en réalité des services d'Uni-
 
 326.382 francs de l'article 2 du même chapitre, consa
 crés aux frais de concours d'agrégation, aux jurys de
-baccalauréat, etc.; les 88.969 francs de l'article 4 (sub-
-ventions aux associations d'étudiants, prix, médailles,
+baccalauréat, etc.; les 88.969 francs de l'article 4 (subventions aux associations d'étudiants, prix, médailles,
 etc.) Ces sommes ne concernent en quoi que ce soit le
 (articles 1 et 3). Il faudrait donc demander aux Cham- À
 bres de porter, en quelques annuités, le total du
@@ -3952,8 +3735,7 @@ aux services similaires français sont affligeantes.
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
@@ -3964,16 +3746,13 @@ On peut souscrire cet abonnement à tout moment de
 valable pour la série en cours, et pour toute cette série.
 Prix de l'abonnement, pour chaque série annuelle
 pendant; le cours de cette série:
-naire........... Autres pays de l'Union postale uni-
-verselle....... vingt-cinq francs
+naire........... Autres pays de l'Union postale universelle....... vingt-cinq francs
 Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du
 souscripteur; le tirage à part sur whatman a commencé
 
-de fonctionner au premier janvier 1906; les inscrip-
-
-tions pour cet abonnement particulier sont reçues en
+de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en
 
 ; tout temps et reçoivent un numéro d'ordre déterminé
 
@@ -4011,6 +3790,4 @@ francs les dix-sept cahiers de cette sixième série complète.
 
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
-au total des prix marqués; ainsi à dater du pre-
-
-mier janvier 1906 la sixième série complète se vend
+au total des prix marqués; ainsi à dater du premier janvier 1906 la sixième série complète se vend

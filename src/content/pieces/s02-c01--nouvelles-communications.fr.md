@@ -23,16 +23,12 @@ dire la vérité qu'il pense. C'est sans doute parce que
 bien peu en ont une à penser que si peu la disent: les
 uns apportent dans les discussions leur mauvaise foi
 d'apôtres, les autres leurs roublardises de politiciens
-vous vous acharnez sur les premiers, les seconds méri-
-teraient bien aussi leur part. Puisque vous collectionnez
+vous vous acharnez sur les premiers, les seconds mériteraient bien aussi leur part. Puisque vous collectionnez
 des documents pour caractériser la bonne foi des uns
-et des autres, je vous recommande les deux titres sui-
-vants à épingler dans votre collection: Fédération du
+et des autres, je vous recommande les deux titres suivants à épingler dans votre collection: Fédération du
 à Parti socialiste du Rhône (adhérente à la Fédération des
 EL: Socialistes révolutionnaires xNDÉPENDANTS de France)
-— et cet autre: Parti oUvRIER du cinquième arrondisse-
-
-premier cahier de la deuxième série
+— et cet autre: Parti oUvRIER du cinquième arrondissepremier cahier de la deuxième série
 d'un beau jésuitisme politicien, et peut vous montrer
 que la mauvaise foi et le sectarisme existent des deux
 côtés du Parti Socialiste: ces membres d'une fraction
@@ -74,18 +70,14 @@ se vanter d'y avoir contribué pour une somme considérable. JEAN TERRIER.
 Je ne puis me tenir de t'envoyer cet article que je lis
 dans l'Aurore de ce matin, et qui est exactement de
 Nous croyons volontiers les nationalistes capables de
-tout. Nous nous refusons, jusqu'à preuve de leur respon-
-sabilité, à les proclamer coupables de tout, et nous
-regrettons la hâte de certains de nos confrères à cher-
-cher parmi les membres de la Ligue de Coppée et
+tout. Nous nous refusons, jusqu'à preuve de leur responsabilité, à les proclamer coupables de tout, et nous
+regrettons la hâte de certains de nos confrères à chercher parmi les membres de la Ligue de Coppée et
 à Lemaîitre les auteurs de la panique de l'Exposition.
 Nous attendrons des faits pour porter contre des
 adversaires — si stupides ou si canailles soient-ils —
 . À une accusation aussi grave. Il nous semble insuflisant
 de dire: « Les nationalistes ont tout fait et tentent tout
-encore pour transformer en une défaite gouvernemen-
-
-premier cahier de la deuxième série
+encore pour transformer en une défaite gouvernemenpremier cahier de la deuxième série
 tale le succès national de l'Exposition. C'est à leur parti
 que les catastrophes (dues à l'ignorance et à la négligence des polytechniciens de l'Exposition) peuvent
 profiter, ils feront tout pour les provoquer ».
@@ -203,8 +195,7 @@ trois possessions où vous n'avez réussi qu'à implanter des
 douaniers, des fonctionnaires et des dévoyés, lie de votre
 Je vous salue bien.
 
-Le Matin a commencé à donner souvent, en particulier sous cette rubrique, des consultations interindivi-
-duelles où le pour et le contre étaient honnêtement
+Le Matin a commencé à donner souvent, en particulier sous cette rubrique, des consultations interindividuelles où le pour et le contre étaient honnêtement
 
 proposés. La méthode gagnerait-elle de proche en proche? Ton
 
@@ -220,14 +211,12 @@ Bien cordialement Dumesniz RECLUS
 Monsieur et cher camarade
 Nous avons ici la conférence nationaliste dont je
 vous ai parlé, conférence privée naturellement: huis
-clos parfait. Nous l'avons regretté vivement, car Gas-
-ton Méry et Georges Berry en ont lâché de bien drôles:
+clos parfait. Nous l'avons regretté vivement, car Gaston Méry et Georges Berry en ont lâché de bien drôles:
 Non, il n'y aura jamais de paix durable entre la
 France et l'Angleterre, car il y a entre les deux nations
 un cadavre le cadavre de Jeanne d'Arc.
 Les groupes d'ici m'ont chargé d'aller dimanche
-Paris demander ïinstamment à Jaurès une confé-
-rence (1); les militants d'ici l''aiment beaucoup pour
+Paris demander ïinstamment à Jaurès une conférence (1); les militants d'ici l''aiment beaucoup pour
 M. Gustave Leblond paraît ignorer que Jaurès néglige habituellement de donner des conférences parmi les militants qui ne
 le calomnient pas. Il réserve son temps et son éloquence pour les
 groupements et agglomérations guesdistes. — Note antérieure aux
@@ -242,13 +231,11 @@ Ouzouer-le-Plateau, mardi 26 juin 1900
 
 Accours à mon aide à Péguy le Subtil. Je tai déjà
 dit que je travaille, deux ans déjà passés, à convertir
-aux bonnes idées mon collègue de mathématiques élé-
-mentaires, l'excellent M. Joséphin Bourdieu-Lebalourd.
+aux bonnes idées mon collègue de mathématiques élémentaires, l'excellent M. Joséphin Bourdieu-Lebalourd.
 C'est un honnête homme et bien qu'il soit militariste il
 n'a jamais inventé la poudre. J'ai une sympathie instinctive pour les citoyens qui n'ont pas inventé la poudre, parce que je ne l'ai pas inventée non plus. A chacun le sien. Deux ans déjà passés, donc, je travaille au
 salut de M. Bourdieux. Deux années sont brèves et si
-chacun de nous convertissait tous les deux ans un hon-
-nête homme, la Révolution sociale avancerait beaucoup
+chacun de nous convertissait tous les deux ans un honnête homme, la Révolution sociale avancerait beaucoup
 plus rapidement que par les moyens infaillibles officiellement recommandés. Le salut d'un citoyen vaut bien
 deux ans de travail.
 
@@ -292,8 +279,7 @@ suit, que l'éclatante ignominie du commandant comte
 
 avait le plus fortement contribué à cet ébranlement de
 
-j'attendais serein le mercredi demain matin habi-
-tuel quand hier lundi M. Bourdieu vint me trouver
+j'attendais serein le mercredi demain matin habituel quand hier lundi M. Bourdieu vint me trouver
 après sa classe à la maison, triomphant. Je pressentis
 un malheur. Lisez, me disait-il, me tendant un carré de
 puis recollé. Je lus, stupide, cette annonce
@@ -331,9 +317,7 @@ est à craindre que la littérature ne subisse de fâcheuses
 
 premier cahier de la deuxième série
 
-— N'ayez pas cet air embarrassé, me dit-il froide-
-
-ment: ce sont nos amis de l'Aurore qui ont inséré cela
+— N'ayez pas cet air embarrassé, me dit-il froidement: ce sont nos amis de l'Aurore qui ont inséré cela
 dans leur memento bibliographique de ce matin.
 
 Je demeurai baba, comme disait l'ami Tharaud. Mon
@@ -343,9 +327,7 @@ collègue M. Bourdieu abusa lâchement de ma stupeur:
 commandant Esterhazy était un misérable parce qu'il
 exerçait un certain métier que nous tenons pour ignominieux dans cette civilisation chrétienne occidentale. J'y
 consens. D'ailleurs quand vous dites que ce métier était
-conforme aux usages de l'armée, vous faites un contresens habile sur la teneur d'un jugement ou d'une propo-
-
-sition. Enfin je consens qu'Esterhazy soit un misérable.
+conforme aux usages de l'armée, vous faites un contresens habile sur la teneur d'un jugement ou d'une proposition. Enfin je consens qu'Esterhazy soit un misérable.
 Mais je vous fais votre discours de distribution de prix,
 ce qui est une corvée pénible, si vous pouvez m'indiquer une seule nuance de distinction entre le métier
 qu'exerçait ce malheureux commandant et le métier
@@ -372,8 +354,7 @@ Je sais bien que la forme de chacune des lettres est
 différente, puisque celle de La Petite République est
 adressée à Deschanel, et que celle du Socialiste est
 adressée aux membres de la Commission consultative
-de la Bourse du Travail, de telle sorte qu'il n'y a peut-
-être pas un faux au sens bourgeois, mais il n'en résulte
+de la Bourse du Travail, de telle sorte qu'il n'y a peutêtre pas un faux au sens bourgeois, mais il n'en résulte
 pas moins que: une décision oflicielle, émanée des représentants officiels du prolétariat parisien, à été modifiée par l'un ou l'autre journal.
 
 Si c'est au Socialiste qu'incombe la faute, il est certes
@@ -402,8 +383,7 @@ qui ne sommes pas assez sûrs de nous pour nous!
 risquer, comme les cahiers ou comme les anarchistes,
 
 à une action purement individuelle. Entre le guesdisme
-démagogique d'une part, — et, d'autre part, les indé-
-geoises — pour ces dernières voir les articles de Turot,
+démagogique d'une part, — et, d'autre part, les indégeoises — pour ces dernières voir les articles de Turot,
 Fournière dans la Petite République, de Rouanet dans
 la Revue Socialiste, articles que pouvait publier Le
 Temps ou tout au moins le Figaro, — qui nous font.
@@ -468,8 +448,7 @@ collaboré à l'Aurore en lui fournissant un nombre assez
 considérable de points de suspension. Je ne sais si
 M. Octave Mirbeau est ami de l'Aurore.Je me demande
 en quoi ceroman, qui n'est pas un livre, est courageux:
-aucune situation, ni aucune estime, — car il y a long-
-temps que le Jardin des Supplices lui avait enlevé
+aucune situation, ni aucune estime, — car il y a longtemps que le Jardin des Supplices lui avait enlevé
 l'estime des honnêtes gens. 11 y gagne sans doute assez
 d'argent et beaucoup d'une certaine gloire bourgeoise
 qu'il paraît ambitionner vivement, — pour parler un
@@ -499,8 +478,7 @@ borde le chemin et la moisson d'idées sera féconde.
 
 Cela est menti, comme disent les bonnes gens de la
 campagne. Je ne suis ni Tartufe ni Basile et je trouve
-tout de même que ce roman est dégoûtant, rien que dé-
-goûtant. La littérature critique de ce M. A. B. est encore
+tout de même que ce roman est dégoûtant, rien que dégoûtant. La littérature critique de ce M. A. B. est encore
 plus désagréable que la prose de M. Mirbeau. Je trouve
 que précisément il est d'un Tartuffe et d'un Basile de
 nommer d'avance Tartufe et Basile toutes les bonnes
@@ -541,9 +519,7 @@ Le lendemain je recevais une carte postale et une
 
 La carte postale portail ces simples mots
 Si j'étais candidat à la dictature, au lieu d'être un
-candidat malheureux à l'agrégation, je ferais des ro-
-
-mans comme {le Journal d'une femme de chambre et je
+candidat malheureux à l'agrégation, je ferais des romans comme {le Journal d'une femme de chambre et je
 les ferais vendre sur les boulevards pour deux sous.
 
 Bien entendu on reparle de Flaubert, on reparler
@@ -562,17 +538,14 @@ ton général de l'œuvre alarma plus d'un lecteur n'ayant pas
 la perspicacité nécessaire et choqua énormément tous les
 
 \hypocrites et les farceurs dont la bibliothèque recèle un
-« enfer » richement peuplé. On entendit évoquer l'ombrerasoir du terrible marquis de Sade, que l'on ne connaît gé-
-néralement que de nom, et rappeler, à propos de Célestine,
+« enfer » richement peuplé. On entendit évoquer l'ombrerasoir du terrible marquis de Sade, que l'on ne connaît généralement que de nom, et rappeler, à propos de Célestine,
 Juliette ou les bonheurs du vice, Justine ou les malheurs de
 la vertu, les tristes héroïnes de deux mauvais livres que
 
 Il est assez amusant que le monsieur journaliste se
 soit obstiné à nommer ce roman les Mémoires d'une
 femme de chambre. Dès repue blanche le roman se
-nommait le Journal d'une Femme de chambre. Le jour-
-
-premier cahier de la deuxième série
+nommait le Journal d'une Femme de chambre. Le jourpremier cahier de la deuxième série
 naliste aura pensé obscurément que Mémoires était plus
 grand, plus historique. M. Gaston Méry n'a:t-il pas, autant
 
@@ -588,19 +561,15 @@ cation était immonde, et les bons journalistes, qui depuis
 ont tartiné avec enthousiasme, constataient que c'était
 immonde. Il n'était pas nécessaire d'avoir une extraor- Fe:
 dinaire perspicacité pour 's'en apercevoir.
-Il est tartuffe et basile de nommer d'avance hypo-
-crites et farceurs les bonnes gens qui auront trouvé que
+Il est tartuffe et basile de nommer d'avance hypocrites et farceurs les bonnes gens qui auront trouvé que
 ce roman est ignoble et qui Le diront.
 Mirbeau devait s'attendre à cela. Pareille explosion de
 pudibonderie, même déchaînement de colères simulées
-avaient accueilli son Jardin des supplices, où notre collabo-
-rateur B. Guinaudeau conduisit et promena nos lecteurs, ta
+avaient accueilli son Jardin des supplices, où notre collaborateur B. Guinaudeau conduisit et promena nos lecteurs, ta
 éblouis de tant de lumière crue, mais toujours tenus sous
 le charme puissant de la haute pensée de l'écrivain.
 La colère que nous avons eue contre le Jardin des
-Supplices n'était nullement simulée. Nous avons sincè-
-rement pensé que ce volume était immonde et qu'il révé-
-lait la mentalité antisémitique de son auteur, comme les
+Supplices n'était nullement simulée. Nous avons sincèrement pensé que ce volume était immonde et qu'il révélait la mentalité antisémitique de son auteur, comme les
 araignées venimeuses de M. Rochefort et les chemises: À
 soufrées de M. Drumont nous ont confirmé que
 
@@ -672,9 +641,7 @@ sombre Saint-Lazare — a mis patiemment à la plus
 
 hideuse de nos plaies sociales: la domesticité avec toutes
 
-- ses misères physiques et morales, la domesticité, ce mo-
-
-derne esclavage dont les affranchies forment les gros contingents de la prostitution, libre ou cloîtrée, ne faisant en
+- ses misères physiques et morales, la domesticité, ce moderne esclavage dont les affranchies forment les gros contingents de la prostitution, libre ou cloîtrée, ne faisant en
 somme que changer d'ergastule.
 
 Presque rien à dire ici: quelque sombre que soit une
@@ -694,9 +661,7 @@ Je passe la suite, littérature provocante et mauvais
 
 - Nous arrivons à la partie sérieuse de l'article, aux
 La corruption n'est jamais totale; il y a partout des gens
-Tocqueville ou Pailleron, je ne sais plus lequel. Elle est to-
-
-tale dans les Mémoires d'une femme de chambre, et Mirbeau, admirablement documenté, nous a dépeint, d'après
+Tocqueville ou Pailleron, je ne sais plus lequel. Elle est totale dans les Mémoires d'une femme de chambre, et Mirbeau, admirablement documenté, nous a dépeint, d'après
 
 nature,un sale monde, un monde sans mélange de gens de
 bien, et il a juste. Les Mémoires d'une femme de chambre,
@@ -710,9 +675,7 @@ De ces attestations métahistoriques nous retombons
 aux citations nauséeuses. Vient la conclusion
 Je renonce à remuer toute cette fange. On ne peut faire
 
-.… avaler un tel poison à des lecteurs (r), si l'on ne sait en mas-
-
-quer l'horrible, l'amertume, comme un Mirbeau, par la
+.… avaler un tel poison à des lecteurs (r), si l'on ne sait en masquer l'horrible, l'amertume, comme un Mirbeau, par la
 
 magie d'un art prodigieux.
 
@@ -727,8 +690,7 @@ atroce mais réel; et il a mis tout son génie à nous faire
 partager le dégoût qu'il lui inspire. Son livre aura une
 grande portée sociale. C'est le terrible constat de la faillite,
 de la banqueroute morale de la haute bourgeoisie contemporaine. Mirbeau inventorie tout un monde qui s'en va...
-l'égout; et nous fait penser aux temps nouveaux qui se pré-
-parent. Il a donc fait une œuvre hautement moralisatrice.
+l'égout; et nous fait penser aux temps nouveaux qui se préparent. Il a donc fait une œuvre hautement moralisatrice.
 Ce qui rendrait presque amusante la tartufferie de
 cette conclusion, c'est que revue blanche continue
 publier une grande annonce du Journal, — pas celui

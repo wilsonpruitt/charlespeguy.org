@@ -362,9 +362,7 @@ que possible avec la situation lamentable de l'être
 abandonné de tous. »
 
 « Le souci du juge, dans son interprétation de
-la loi, ne doit pas être seulement limité au cas spé-
-
-cial qui lui est soumis, mais s'étendre encore aux
+la loi, ne doit pas être seulement limité au cas spécial qui lui est soumis, mais s'étendre encore aux
 conséquences bonnes ou mauvaises que peut produire sa sentence dans un intérêt plus général. »
 
 . « C'est l'ouvrier seul qui produit, et qui expose
@@ -746,9 +744,7 @@ d'aimer, camarade: il a voulu que beaucoup d'entre
 nous fussent faits hongres. C'est son ordre. Les lois
 devront maintenir cet ordre adorable.
 
-— Mais es-tu bien sûr, ami, demanda Rous-
-
-sin, que ces maux viennent du cheval céleste qui
+— Mais es-tu bien sûr, ami, demanda Roussin, que ces maux viennent du cheval céleste qui
 nous a créés, et non pas seulement de l'homme, sa
 — Les hommes sont les ministres et les anges
 du cheval céleste, répondit Blanchet. Sa volonté
@@ -862,8 +858,7 @@ rues. Le monde est plein de choses hostiles et redoutables.
 
 Enfin nos abonnés seront heureux d'avoir en ce format
 de volume le discours prononcé par M. Anatole France,
-membre de l'Académie française, Président de la Section du quartier de la Porte-Dauphine (seizième arron-
-dissement), à l'assemblée générale extraordinaire, du
+membre de l'Académie française, Président de la Section du quartier de la Porte-Dauphine (seizième arrondissement), à l'assemblée générale extraordinaire, du
 Ligue française pour la défense
 des Droits de l'Homme et du Citoyen.
 Comme le porte le procès-verbal de la méme assemblée, le discours que l'on relire a été affiché par les
@@ -959,9 +954,7 @@ mielleux, onctueux et menus, menus, menus pour
 se couler par la fente des boîtes électorales. ( Applaudissements et rires prolongés)
 
 C'est la procession de la Ligue qui passe. C'est
-l'armée des moines. Ces gens-là sont tous au ser-
-
-vice des moines. Quand ils vous disent qu'ils sont
+l'armée des moines. Ces gens-là sont tous au service des moines. Quand ils vous disent qu'ils sont
 républicains, c'est la République des moines qu'ils
 entendent vous donner; quand ils réclament la
 liberté, c'est la liberté pour les moines d'échapper
@@ -1006,9 +999,7 @@ dans les nimbes d'un libéralisme qui respecte toutes
 les oppressions et toutes les iniquités. Vous les
 donnerez au candidat qui, radical, radical socialiste
 ou socialiste, réclame la liberté véritable, celle qui
-ne reconnaît pas de liberté contre elle. Vous les porterez hardiment jusqu'à ceux qui s'efforcent d'insti-
-
-tuer la justice sociale dans sa plénitude et de préparer
+ne reconnaît pas de liberté contre elle. Vous les porterez hardiment jusqu'à ceux qui s'efforcent d'instituer la justice sociale dans sa plénitude et de préparer
 la paix universelle par l'union des travailleurs. On
 vous dira que ceux-là sont des utopistes. Mais les économistes dont ils s'autorisent se sont moins trompés que ceux des anciennes écoles, et surtout ils ont
 mieux corrigé leurs erreurs. Et s'ils étaient des utopistes, en vaudraient-ils moins? Sans les utopistes

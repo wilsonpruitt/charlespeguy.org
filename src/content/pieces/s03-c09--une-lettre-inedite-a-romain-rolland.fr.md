@@ -29,8 +29,7 @@ de la chrétienté, un très fort volume de 682 pages
 très denses, avec un portrait de l'auteur 3 francs
 Le tome III est sous presse.
 di: Mêmes éditeurs, en vente à la librairie des cahiers: “1
-; Cu.-V. LaxGLois. — L'Inquisition, d'après des tra-
-vaux récents, un volume de 144 pages 1frane Ne:
+; Cu.-V. LaxGLois. — L'Inquisition, d'après des travaux récents, un volume de 144 pages 1frane Ne:
 Le Vient de paraitre chez Alcan, dans la Bibliothèque;
 a générale des Sciences sociales. en vente à la librairie à
 : des cahiers
@@ -43,8 +42,7 @@ librairie des cahiers
 FERNAND PELLOUTIER. — Histoire des Bourses du
 ; posthume. Fernand Pelloutier était secrétaire général
 de la Fédération des Bourses du Travail de France et
-des colonies. Préface par Georges Sorel. Notice biogra-
-phique par Victor Dave. Un volume de 232 pages
+des colonies. Préface par Georges Sorel. Notice biographique par Victor Dave. Un volume de 232 pages
 Ceux de nos abonnés qui travaillent aux sciences ou
 à la philosophie liront utilement dans la Revue géné-
 ; rale des Sciences" pures et appliquées, numéro du
@@ -103,9 +101,7 @@ Si Tolstoi était parmi nous, il n'eût pas de plus
 grands ennemis que le troupeau des snobs tolstoïsants.
 
 Mais si ce grand chrétien était parmi nous, il n'aurait À
-pas de plus grands ennemis, de détracteurs plus achar-
-
-nés, d'envieux plus mangeurs que la foule de nos
+pas de plus grands ennemis, de détracteurs plus acharnés, d'envieux plus mangeurs que la foule de nos
 Il est permis d'être antichrétien, et je crois bien qu'en
 : un sens nous sommes inchréliens. Mais c'est par un
 singulier malentendu, criminel s'il est volontaire, et
@@ -201,8 +197,7 @@ ce que l'Art? n'avaient paru, la violente antipathie de
 É travers de tous ses écrits.
 J'aimais profondément — comme je n'ai jamais cessé
 d'aimer — Tolstoy. Depuis deux ou trois ans, je vivais
-« enveloppé de l'atmosphère de sa pensée; j'étais certai-
-nement plus familier avec ses créations, avec la Guerre
+« enveloppé de l'atmosphère de sa pensée; j'étais certainement plus familier avec ses créations, avec la Guerre
 et la Paix, Anna Karénine, et la Mort d'Ivan Iliitch, SHC
 qu'avec aucune des grandes œuvres françaises. La:
 . bonté, l'intelligence, l'absolue vérité de ce grand
@@ -247,9 +242,7 @@ d'hui, — bien plus encore qu'au moment où je reçus je
 cetie lettre, — pleinement d'accord avec sa pensée. Si je
 regrette que Tolstoy se soit trompé souvent dans l'appréciation de tel ou tel grand homme, comme Beethoven
 
-Es ou Wagner, qu'il a le tort de juger sans les connai-
-
-tre, ou du moins sans les connaître suffisamment, — si
+Es ou Wagner, qu'il a le tort de juger sans les connaitre, ou du moins sans les connaître suffisamment, — si
 
 3 je regrette aussi qu'il ait jugé de l'art français d'après a une poignée de décadents ridicules de très rares
 exceptions près), — ce qui s'explique d'ailleurs par
@@ -302,9 +295,7 @@ beau et de bon dans le monde, et qui travaille à en
 orner la vie.
 Il ne me déplairait pas, je l'avoue, qu'on pût obliger
 les artistes à rentrer dans la condition commune, qu'on
-parvint à répartir entre tous les hommes sans excep-
-
-tion la somme de travail manuel, nécessaire à soutenir à
+parvint à répartir entre tous les hommes sans exception la somme de travail manuel, nécessaire à soutenir à
 et à entretenir l'édifice social. Partagée entre tous, elle
 ne serait pas assez écrasante pour empêcher les vrais
 artistes de faire leur art par surcroît; mais elle suffirait!
@@ -319,8 +310,7 @@ vie de la terre; il n'est plus l'œuvre d'hommes vivants,
 mais de fantômes d'hommes, d'ombres d'êtres, de
 larves, nourries de mots, de couleurs de tableaux, de
 
-sons d'instruments de musique, d'extraits de sensa-
-tions.— Combien de vrais artistes ont déjà, doivent
+sons d'instruments de musique, d'extraits de sensations.— Combien de vrais artistes ont déjà, doivent
 encore, pour ne pas vendre leur art, vivre d'un autre
 à métier intellectuel à côté de leur art! Et combien ce
 métier intellectuel est plus gênant pour l'imagination
@@ -398,9 +388,7 @@ la société des gens dits civilisés — s'impose à nous
 uniquement par la raison que le défaut principal
 de cette société a été, et est jusqu'à présent celui de
 se libérer de ce travailet de profiter, sans lui rendre
-la pareille, du travail des classes pauvres, igno-
-
-rantes et malheureuses, qui sont esclaves, comme
+la pareille, du travail des classes pauvres, ignorantes et malheureuses, qui sont esclaves, comme
 les esclaves du vieux monde.
 
 La première preuve de la sincérité des gens de
@@ -490,8 +478,7 @@ de soutenir sa vie par le travail de ses mains,
 et, malgré cela, prends sur les heures de son
 
 repos et de son sommeil pour penser et produire …
-dans la sphère intellectuelle, fait preuve de sa voca-
-tion. Celui qui se libère du devoir moral de chaque
+dans la sphère intellectuelle, fait preuve de sa vocation. Celui qui se libère du devoir moral de chaque
 homme, et, sous le prétexte de son goût pour les
 sciences et les arts, s'arrange (1) une vie de parasite,
 ne produira jamais que de la fausse science et du
@@ -638,25 +625,21 @@ comme pour un prêtre brahmane ou catholique,
 beaucoup de sincérité et un grand amour du vrai et
 du bien pour mettre en doute les principes qui vous
 donnent cette position avantageuse. Mais pour un
-homme sérieux qui, comme vous, se pose la question de la vie, — iln'y a pas de choix. Pour com-
-mencer à voir clair, il faut qu'il s'affranchisse de la
+homme sérieux qui, comme vous, se pose la question de la vie, — iln'y a pas de choix. Pour commencer à voir clair, il faut qu'il s'affranchisse de la
 superstition dans laquelle il se trouve, quoiqu'elle
 lui soit avantageuse. C'est une condition sine qua
 non. Il est inutile de discuter avec un homme qui
 tient à une certaine croyance, ne fût-ce que sur un
-Si le champ du raisonnement n'est pas complète-
-ment libre, il aura beau discuter, il aura beau
+Si le champ du raisonnement n'est pas complètement libre, il aura beau discuter, il aura beau
 raisonner, il n'approchera pas d'un pas de la vérité.
 
 Son point fixe arrêtera tous les raisonnements et
 les faussera tous. Il y a la foi religieuse, il y a la foi
-de notre civilisation. Elles sont tout à fait analo-
-gues. Un catholique se dit: « Je puis raisonner,
+de notre civilisation. Elles sont tout à fait analogues. Un catholique se dit: « Je puis raisonner,
 : mais pas au delà de ce que m'enseigne notre Écri- à
 ture et notre tradition, qui possèdent la vérité
 entière et immuable. » Un croyant de la civilisation
-à dit: « Mon raisonnement s'arrête devant les don-
-nées, de la civilisation: la science et l'art. Notre
+à dit: « Mon raisonnement s'arrête devant les données, de la civilisation: la science et l'art. Notre
 science c'est la totalité du vrai savoir de l'homme.
 Si elle ne possède pas encore toute la vérité, elle la
 possédera. Notre art avec ses traditions classiques
@@ -716,8 +699,7 @@ avoir de bien: je ne peux vivre. — Mais malgré ce
 raisonnement si clair, nous vivons et nous cher- chons le bonheur. Nous nous disons: Je n'aurais?
 avoir le bien, être heureux, que dans-le cas où tous
 les autres êtres m'aimeraient plus qu'ils ne s'aiment
-eux-mêmes. C'est une chose impossible. Mais mal-
-gré cela, nous vivons tous; et toute notre activité,
+eux-mêmes. C'est une chose impossible. Mais malgré cela, nous vivons tous; et toute notre activité,
 notre recherche de la fortune, de la gloire, du À
 pouvoir, ne sont que des tentatives de se faire
 aimer par les autres plus qu'ils ne s'aiment eux-!
@@ -772,8 +754,7 @@ Si les idées que je tâche de vous communiquer
 ne vous paraissent pas claires, ne les jugez pas trop
 sévèrement. J'espère que vous les lirez un jour
 exposées d'une manière plus claire et précise. J'ai
-: voulu vous donner seulement une idée de ma ma-
-je nière de voir,
+: voulu vous donner seulement une idée de ma maje nière de voir,
 
 Nous mettons ce cahier dans le commerce; nous le
 

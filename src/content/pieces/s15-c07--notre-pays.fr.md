@@ -28,7 +28,7 @@ De potagers buvant à des eaux pures, - “4
 De lourds sainfoins, de trèfles et d'avoines,
 De boutons d'or, de bleuets, d''anémones, Me
 De dahlias, d'œillets et de pivoines, 1150
-8 D''ombre secrète où les oiseaux jargonnent,
+D''ombre secrète où les oiseaux jargonnent,
 De gazons clairs où jasent les fontaines, LAS
 Si De jours de lin où chantent nos patronnes,
 sas D''ajoncs dorés, de menthe et de verveine,
@@ -48,7 +48,7 @@ Le nez pointu de la longue prudence, Den.
 Fil Les chiens, les bœufs, les moutons et les poules,. NE
 : Les fins pommiers, les cyprès, les tilleuls,
 Ne Les vagabonds, les routiers et la foule 2 Étr ne
-5 Des bonnes gens qui sortent de l'église Le
+Des bonnes gens qui sortent de l'église Le
 Quand la chanson du clocher se déroule,
 ES - Les vignerons soucieux de la bise #4
 ES Et de la gréle et des givres soudains
@@ -228,7 +228,7 @@ Avec la paix, la logique, l'entente,
 Les longs travaux des mains et des pensées,
 L'oreiller chaud des âmes confidentes,
 : Le baume pur des vaillances blessées,
-É: Les mots d'amour, de grâce et de simplesse,
+Les mots d'amour, de grâce et de simplesse,
 Le bon exemple aux discrètes poussées,
 
 Le jugement qui stimule et redresse,
@@ -271,7 +271,7 @@ L'aiguille court parmi les lingeries, RS.
 Un long passé monte des oublis sourds; BE.
 Les jeunes cœurs sautent comme des chèvres,
 L. È Les gens rassis écoutent posément, 5%
-118 Les chastes yeux se lèvent et s'enfièvrent..
+Les chastes yeux se lèvent et s'enfièvrent..
 ÿ. Surtout les soirs qu'on parle en s'animant STE
 k. De ces aïeux qui s'en furent en guerre, à
 De ceux aussi qui, las des cieux cléments, À
@@ -452,7 +452,7 @@ LÉCOES La Patience auguste des aïeux, se Sa)
 D. Les yeux petits clignant au fond d'un creux,: Dee
 ”. - Les doigts noueux, les mains grises qui sentent
 Le foin, la terre et les fruits de l'année,
-4 Les cheveux drus et qui collent aux tempes; #4
+Les cheveux drus et qui collent aux tempes; #4
 LES La très fidèle et très enracinée, -
 RE: Le dur lien de cette maisonnée.. ÊTES
 Et bien prudente et toujours avisée ne
@@ -472,9 +472,9 @@ Ilya tous les siècles éteints,
 Tous les regards, les âmes, les pensées, le
 L'ombre des soirs et l'aube des matins,: de Le
 lé_ La jeune fille alerte et cadencée SLR
-4 Qui portait l'eau du puits à la maison,
+Qui portait l'eau du puits à la maison,
 Le blanc bonnet des aïeules cassées, RER
-44 Les vieux, tannés au frottis des saisons, “EAR
+Les vieux, tannés au frottis des saisons, “EAR
 Re. Hommes de faux, de soc et de cognée, A
 Hommes de chair, de cœur et de raison, LES
 
@@ -512,7 +512,7 @@ Et les aïeux invisibles dans l'air,,
 Bénit ceux d'aujourd'hui et ceux d'hier,
 Et ceite enfance aux grâces matinales TRACE
 Et ce pain bis que dorent les lumières.
-3 D'un geste évangélique et baptismal. TES
+D'un geste évangélique et baptismal. TES
 Il est aussi comme une ronde au bois,
 "ss Doigts enlacés, blonds cheveux, douces voix, ce
 Blancheurs de linge entre les chênes cois, SUERSS
@@ -547,10 +547,10 @@ Ces belles-là depuis l'ombre païenne, STARS
 Depuis les dieux cachés dans la fontaine, RENE
 ne Depuis la nymphe éparse dans les chênes
 Avaient chanté, dansé les douces rondes, Re):
-2 Laissé la nuit coiffer leurs tresses blondes,; ET ‘fe
+Laissé la nuit coiffer leurs tresses blondes,; ET ‘fe
 Jeté des cris sous les voûtes profondes; ï de.
-21 La lune avait, perçant le lourd feuillage, DU
-22 Teinté d'argent leurs grâces de village,
+La lune avait, perçant le lourd feuillage, DU
+Teinté d'argent leurs grâces de village,
 Embruinant leurs flottantes images... un
 Cela sans fin depuis la nuit des temps, EN
 Depuis les dieux qui hantent les étangs, FAR
@@ -563,8 +563,8 @@ A Ont appris Dieu de leurs saints visiteurs,
 Que Dieu lui fit dans l'écorce béante,
 “SE La Vierge entre les feuilles de dentelle, FEES
 “35 Lorsque la ronde à la lune se mêle,
-4 Sourit aux jeux de l'Enfance éternelle. à LA
-8 Il est aussi comme la matinée
+Sourit aux jeux de l'Enfance éternelle. à LA
+Il est aussi comme la matinée
 De D'un beau jour de fête carillonnée ‘LS
 Où cet hiver mon âme est retournée, *.
 “4 Les filles vont en se donnant la main
@@ -586,7 +586,7 @@ RE. Avec de la gaîté dans les caboches,
 Tous vont d'un pas ni trop lent ni trop vite
 Dans ce beau jour aux blancheurs de lévite se
 . Que notre Dieu fait pour qu'ils en héritent,
-12 Tous vont pensifs et dignes dans leur foi, Fr:
+Tous vont pensifs et dignes dans leur foi, Fr:
 Le 4 Dans le vieux culte et dans la vieille loi,
 un Dans la vieille âme et dans le vieil arroi, 2)
 1° Dans la vaillance et la paix des aïeux, DE
@@ -647,7 +647,7 @@ Et que les morts au tombeau sont reclus
 En attendant la suprême journée.
 
 56440 Il est aussi comme la vie étroite; +1 ES
-400 D'un journalier qui casse des caïlloux
+D'un journalier qui casse des caïlloux
 Pour soutenir sa famille humble et coite;
 te: Il trime, il peine, il rêve peu ou prou,
 Se lève tôt, se couche avec les poules,
@@ -655,7 +655,7 @@ Se lève tôt, se couche avec les poules,
 Ne quête point les villes ni les foules,
 De 7108 Les mœurs ou les opinions diverses,
 Re. Le souffle chaud des humanités saoules…
-3 Mais dans ce coin, sous les mêmes averses,
+Mais dans ce coin, sous les mêmes averses,
 De Sous mêmes feux de printemps et d'été,
 28 ous même froid qui déchire et qui perce, ‘#3
 met Il trime, il peine, il donne la pâtée NAT
@@ -668,19 +668,19 @@ WE, Dans la naissance ou la mort des lumières, Dee:
 Ne creuse point sa rocheuse caboche #0
 3 à Pour déméler les raisons, ces bougresses,
 +4 Qui font toujours le vide au fond des poches...
-108) Gauche et timide auprès du bénitier, À:
-4 Fier d'être net en sa blouse sans pièces.
+108) Gauche et timide auprès du bénitier,
+Fier d'être net en sa blouse sans pièces.
 Toute sa vie est un mince sentier - "AK
 E. Entre des murs, chiche de perspective,
 Pauvre de fleurs, de soleil, de pitié.
 ES D'un pas lourdaud et la mine pensive,
 54 11 va, il sans s'arrêter jamais, LEE
-1 Ainsi qu'un bœuf qui hale sur la rive.. FPE
+Ainsi qu'un bœuf qui hale sur la rive.. FPE
 e…_._O Etles malins qui décochent des mais, +213
 Des cependant, des quoique, des pourquoi,
 NW: Des car, des donc, des si l'on me permet,
-20 Les raisonneurs et les pédants narquois,
-10 Dans les salons, les sorbonnes, les feuilles,
+Les raisonneurs et les pédants narquois,
+Dans les salons, les sorbonnes, les feuilles,
 Les mauvais lieux, les usines de lois, Lie
 
 de Ces gens d'esprit, d'avarice et d'orgueil
@@ -722,7 +722,7 @@ Certe, il est bien de poussière et d'argile,
 Certe, il est bien de chair, de sang, de bile….
 
 +2 Il est du siècle où règnent les démons,
-2 Il est du vain charroi des convoitises, 4-10
+Il est du vain charroi des convoitises, 4-10
 les à Il est du bagne énorme où nous trimons,
 LA Ce pécheur-là, parmi les heures grises,
 Se penche en pleurs sur la folle journée
@@ -779,7 +779,7 @@ Le temps poursuit sa marche sans étapes,
 en Tout fuit vers l'heure où Dieu nous jugera. Rs.
 « Seigneur, Seigneur, où sont les belles grappes #0)
 De votre vigne où je mordais jadis?
-à; Et votre sang versé dans les agapes?
+Et votre sang versé dans les agapes?
 me. « Où, la clarté qui blanchissait vos lys?
 Et Où, vos matins calmes et doux-fleurants? Der
 Où, les travaux que vos regards bénissent? EN
@@ -855,7 +855,7 @@ Du repas calme à la fin des journées,
 Où prient nos mains, nos âmes et nos voix
 où Dans la maison de brume environnée, -
 DOS Et gardien des calvaires, des croix, LES
-1 Des saints nichés au creux de nos vieux chênes,
+Des saints nichés au creux de nos vieux chênes,
 LE Du cœur modeste où veille une humble foi,
 
 Des nefs, des tours, des clochers, des offices, et
@@ -866,7 +866,7 @@ Et sur la côte où les vagues gémissent; [TS ÈRES
 “54 Non pas vieux chef bafouillant, bredouillant,
 Politiquant, sabotant son métier, De
 Glaçant d'un mot les zèles trop bouillants,
-3 Mais bon soldat, bon marquis, bon côtier, FAN
+Mais bon soldat, bon marquis, bon côtier, FAN
 Piéton, routier, gai soldat, gai luron, É PAR
 A nos terroirs, à nos âmes commis, -
 Prudhomme aussi, sénéchal et baron:
@@ -901,8 +901,8 @@ Taillaient la toile en honnêtes chemises
 Et que les bœufs soufflaient dans leurs naseaux, - {Te
 Le gas tanné par la flamme et la bise 1%
 . Pour conserver la robe des églises, La
-4 Qui besognaït pour qu'on donne les soins TER
-4 Qu'il faut donner à la huche, au berceau,
+Qui besognaït pour qu'on donne les soins TER
+Qu'il faut donner à la huche, au berceau,
 À Au blanc bonnet, à la guimpe, au pourpoint,
 A la culotte, à la botte, aux houseaux,
 ‘ol A la charrue, à la herse, aux faucilles,
@@ -967,7 +967,7 @@ Jusqu'au dégoût qui fait éclore en elle
 
 à Cette fileuse est dont les pieds gèlent,
 Dont le front cuit, dont les oreilles tintent
-:? Et dont la faim dévore les mamelles,
+Et dont la faim dévore les mamelles,
 Cette fileuse est parlant aux saintes
 Et récitant des Ave, des Ave
 Qui sont des vœux, des appels et des plaintes,
@@ -1096,7 +1096,7 @@ Pour emporter son âme en Paradis.
 Qui dans les alcôves humanitaires, TES
 Sur les poufs des boudoirs socialistes, Re:
 ! 3 - Dans les salons, les gazettes, les chaires,
-108 Chez la portière ou chez la camériste,
+Chez la portière ou chez la camériste,
 Re: Chez la danseuse à qui l'on dit « ma chère 7 le
 Dans les salons et feuilles modernistes,
 ne Dans les fumoirs, les cafés, les parlotes,
@@ -1154,13 +1154,13 @@ Dans les faux jours et les japoneries,
 
 Chez les marchands de drogues et d'idées,
 
-4 Chez les marchands d'histoire et de mixtures, à
+Chez les marchands d'histoire et de mixtures, à
 
 Chez les marchands d'ignorance fardée,
 Dans cette mort et cette pourriture,;
 
 ù Certe il n'est pas comme ces pacifistes
-1 Qui pour ne point se risquer à la dure,
+Qui pour ne point se risquer à la dure,
 
 Pour demeurer dans leur néant boudhiste,,
 
@@ -1187,7 +1187,7 @@ SRE Qui pour sauver les jupons et les caisses
 ê 2 Let Et le gros rire et la torpeur épaisse,
 Qui pour croupir au fond des eaux pourries -
 Vendraient nos feux, nos hameaux, nos villages,
-6 Nos fins coteaux, nos bois et nos prairies,
+Nos fins coteaux, nos bois et nos prairies,
 Vendraient nos bœufs, nos moutons, nos pacages,
 MP.: Vendraient Paris, Lyon, nos quatre fleuves, 1300
 Ni Nos oliviers et nos chevaux sauvages, à
@@ -1244,13 +1244,13 @@ Toute fierté, tout labeur, toute gloire,
 Toute la gloire et toute la mémoire,
 E. Vendraient Châlons, Bouvines et Rocroy, 5#
 Vendraient Jemmape et Lodi sur la foire, TER
-1 Vendraient l'église et l'hostie et la croix, DE:
+Vendraient l'église et l'hostie et la croix, DE:
 Vendraient ce peu de sang, ce peu de race, ES.
 
-222 Ce peu de foi, de simplesse et de lois,;
+Ce peu de foi, de simplesse et de lois,;
 Ce peu d'espoir d'été sous tant de glace,
 24. Ce peu de jour au fond de tant de nuit,
-41 Ce coin vermeil dans la lèpre vorace,
+Ce coin vermeil dans la lèpre vorace,
 
 Re: Les fleurs du champ, les pignons de la rue
 Et dans le creux de ce sillon qui fuit
@@ -1260,7 +1260,7 @@ FRÈRE Il est aussi comme, devant les Mages,
 L'Étoile qui guidait
 qui guidait leur caravane
 Mens Au cours de ce premier pèlerinage.
-#4 Cette première fois que, sous les palmes,
+4 Cette première fois que, sous les palmes,
 Ou dans le sable rouge des déserts:
 Un Ou sur le bord des lacs salés et calmes,; FRS
 Des pèlerins, dans l'ombre molle, allèrent
@@ -1276,9 +1276,9 @@ Des Africains et des Asiatiques, TRÈS
 Qui cheminait dès l'enfance du monde Me
 Entre les flots lactés des nébuleuses,
 
-12 Qui cheminait au loin parmi les ondes La
+Qui cheminait au loin parmi les ondes La
 “(8 Des grands soleils, des terres et des lunes,
-208 Au loin, plus loin qu'où nos pauvres yeux sondent; à Me
+Au loin, plus loin qu'où nos pauvres yeux sondent; à Me
 Qui cheminaït dans les voiles de brumes,.
 Qui cheminait aux abîmes béants,
 Qui cheminaïit dans les aubes de plume, CES
@@ -1287,18 +1287,18 @@ Qui cheminait depuis les premiers temps
 Pour être juste à point dans ce mystère, ES
 
 Pour guider l'or et la myrrhe et l'encens… se nee
-1 Mais au-dessous l'Étoile messagère EEE
+Mais au-dessous l'Étoile messagère EEE
 Brillait plus claire et plus vive et plus fine,
 Glissait aux cieux plus libre et plus légère De ne
 
-8 Vers l'humble paille et l'Enfance divine. BRTies
+Vers l'humble paille et l'Enfance divine. BRTies
 
 Il est aussi comme le soir tombant Le
 Sur les rochers, les coteaux, les palmiers,
 à Les champs de blé, les cèdres du Liban,
 Comme ce soir où le long d'un sentier
 Deux voyageurs cheminaient d'un pas lourd,:
-7 Ayant perdu la joie et l'amitié,
+Ayant perdu la joie et l'amitié,
 2: Ayant perdu la tendresse et l'amour,: à
 À Ayant perdu les divines paroles, “3
 à Ayant perdu leur pain de chaque jour. si
@@ -1341,7 +1341,7 @@ Leurs yeux battus, leur visage défait,
 
 Ê à Leur cœur saignant, la fièvre qui les mine,;
 cas Mais l'inconnu dans le silence épais
-à: Les caressant d'une voix douce et claire;
+Les caressant d'une voix douce et claire;
 Palpe ce deuil et sonde ce regret.
 à L'un d'eux répond: « De quel coin de la terre
 es « Ce qui advint chez nous avant-hier?
@@ -1379,7 +1379,7 @@ Et dans la nuit les dix Vierges parées,
 Les cinq ayant omis de s'éclairer… à
 É Ils vont tous trois, et les récits défilent,
 à La lourde nuit tombe comme un suaire.….
-?, Leur deuil se fait plus tendre et plus subtil.
+Leur deuil se fait plus tendre et plus subtil.
 Ils disent tout, de la Crèche au Calvaire:
 - Le Maître est qui se ranime en eux;
 L'étranger semble à leur voix se complaire.
@@ -1484,7 +1484,7 @@ EL. Les quatre vents déchirent ses haillons,: PT:
 Il baïssant la tête comme un âne, FSC
 Il n'ayant que besace et bâton,
 À Mais son esprit tout plein des Écritures, RES
-. Mais Dieu couché dans son cœur tout du long, A;
+. Mais Dieu couché dans son cœur tout du long,
 Il boiteux sur les grand routes dures No.
 : Comme l'esprit de ce peuple romain ne
 Qui les traça pour les races futures, Se
@@ -1722,7 +1722,7 @@ Sans ameuter les populations,: A
 Mais en douceur et sans qu'il y paraisse,.
 à Comme un matin qui naît à la verrière,
 L. Comme Jésus se donnant dans la messe,
-4 Oui tout cela par la simple prière, a.
+Oui tout cela par la simple prière, a.
 Par l'agenouillement devant la croix,
 Par l'abandon de l'âme tout entière. 4108
 Car Dieu vaincu subit vos douces lois. LE

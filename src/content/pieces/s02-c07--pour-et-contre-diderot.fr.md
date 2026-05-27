@@ -71,15 +71,13 @@ et nos succès futurs. Ainsi Diderot enthousiaste et
 méthodique recueillait les titres des artisans pour les
 mettre au-dessus des titres des nobles ou des grands.
 Et il n'est pas possible de se méprendre sur ses intentions, si extraordinaires pour le temps. « Il convient,
-a-t-il dit, que les arts libéraux qui se sont assez chantés eux-mêmes, emploient désormais leur voix à célé-
-brer les arts mécaniques et à les tirer de l'avilissement
+a-t-il dit, que les arts libéraux qui se sont assez chantés eux-mêmes, emploient désormais leur voix à célébrer les arts mécaniques et à les tirer de l'avilissement
 où le préjugé les a tenus si longtemps. »
 
 Voilà donc au milieu du dix-huitième siècle, les métiers
 honorés, chose étrange, nouvelle, merveilleuse. Les
 traditionnels. Et Diderot leur crie: Relevez-vous. Vous
-ne vous croyez méprisables que parce qu'on vous a mé-
-prisés. Mais de votre sort dépend le sort de l'humanité
+ne vous croyez méprisables que parce qu'on vous a méprisés. Mais de votre sort dépend le sort de l'humanité
 tout entière. Diderot a inséré dans l'Encyclopédie la
 définition que voici de l'ouvrier manuel, du journalier
 « Journalier, ouvrier qui travaille de ses mains et
@@ -98,11 +96,9 @@ nôtres, un grand serviteur du peuple, un défenseur du
 prolétariat, j'oserai dire, en prenant le mot dans une
 large acception, un socialiste.
 La victoire du prolétariat est certaine. Ce sont moins
-les efforts désordonnés de nos adversaires que nos pro-
-pres divisions et les indécisions de notre méthode qui
+les efforts désordonnés de nos adversaires que nos propres divisions et les indécisions de notre méthode qui
 pourraient la retarder. Elle est certaine parce que la
-nature même des choses et les conditions de la vie l'or-
-donnent et la préparent. Elle sera méthodique, raisonnée, harmonieuse. Elle se dessine déjà sur le monde
+nature même des choses et les conditions de la vie l'ordonnent et la préparent. Elle sera méthodique, raisonnée, harmonieuse. Elle se dessine déjà sur le monde
 avec l'inflexible rigueur d'une construction géométrique.
 Le Socialiste (1) du 5 août publiait dans sa Semaine
 le commentaire suivant
@@ -114,8 +110,7 @@ le « journalier » de son temps, celui qui devait bientôt
 devenir le « prolétaire ».
 Non seulement nous ne voyons pas d'inconvénient à ce
 que la bourgeoisie française célèbre la mémoire de ses
-grands hommes, mais nous sommes prêts à les commé-
-morer avec elles.
+grands hommes, mais nous sommes prêts à les commémorer avec elles.
 
 Ce qui est seulement insupportable, c'est de transformer
 l''admirable ouvrier de l'Encyclopédie, l'un des plus puissants artisans de la révolution bourgeoise, en « défenseur
@@ -235,8 +230,7 @@ avec les explications nécessaires.
 
 de Puisieux, Charpentier, Mabile et de Vienne
 ont aidé M. Diderot dans la description de plusieurs
-arts. M. Eidous a fait en entier les articles de maré-
-chalerie et de manège, et M. Arnauld, de Senlis, ceux
+arts. M. Eidous a fait en entier les articles de maréchalerie et de manège, et M. Arnauld, de Senlis, ceux
 qui concernent la pêche et la chasse.
 
 Enfin, un grand nombre d'autres personnes bien in-,
@@ -260,18 +254,15 @@ semaine, le dimanche excepté, — le matin de dix
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction
 le jeudi soir de deux heures à cinq heures et de pa.
-huit heures à dix heures. -: kAdresser à M. André Bourgeois, administrateur des
-cahiers, 16, rue de la Sorbonne, Paris, la correspon-
-dance d'administration: abonnements et réabonnements,
-rectifications et changements d'adresse, cahiers man-
-quants, mandats, indication de nouveaux abonnes..
+huit heures à dix heures. kAdresser à M. André Bourgeois, administrateur des
+cahiers, 16, rue de la Sorbonne, Paris, la correspondance d'administration: abonnements et réabonnements,
+rectifications et changements d'adresse, cahiers manquants, mandats, indication de nouveaux abonnes..
 N'oublier pas d'indiquer dans la correspondance le.
 numéro de l'abonnement, comme il est inscrit sur
 l'étiquette, avant le nom.
 Adresser à M. Charles Péguy, gérant des cahiers,
 rue de la Sorbonne, Paris, la correspondance de
-rédaction et d'institution. Toute correspondance d'admi-
-nistration adressée à M. Péguy peut entraîner pour
+rédaction et d'institution. Toute correspondance d'administration adressée à M. Péguy peut entraîner pour
 la réponse un retard considérable.
 Nos collections de la première série sont toutes
 épuisées. Nous prions ceux de nos abonnés qui ont des

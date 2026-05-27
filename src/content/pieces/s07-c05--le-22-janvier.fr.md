@@ -27,9 +27,7 @@ _mande et la station frontière russe sur la ligne de Paris;
 
 à Pétersbourg. D'une traite je viens de traverser l'Alle- à
 
-magne dans toute sa longueur, des plaines de la West-
-
-phalie jusqu'à cette extrémité de la Prusse orientale,
+magne dans toute sa longueur, des plaines de la Westphalie jusqu'à cette extrémité de la Prusse orientale,
 
 toujours en plaine, en attendant la plaine russe. Un
 
@@ -37,9 +35,7 @@ commerçant de Pétersbourg, un Allemand bavard mais
 
 bon enfant qui revient d'un voyage d'affaires à Berlin,
 
-m''exhorte à écarquiller les yeux aux vitres pour aperce-
-
-voir le ruisseau qui marque la frontière. Il paraît que
+m''exhorte à écarquiller les yeux aux vitres pour apercevoir le ruisseau qui marque la frontière. Il paraît que
 
 le mouvement libéral constitutionnel
 5 donne une certaine émotion. Mais dans la nuit noire
@@ -50,8 +46,7 @@ Allemands, il est allé tenter fortune en Russie; il habite
 Pétersbourg depuis 15 ans, il a femme et enfants... Le
 - contrôleur l'interrompt pour vérifier nos billets. Et en
 à même temps il nous demande tous les journaux ou
-À revues qui sont épars sur les banquettes. Nous ne pour-
-rons pas les faire entrer en Russie. Je me défais donc
+À revues qui sont épars sur les banquettes. Nous ne pourrons pas les faire entrer en Russie. Je me défais donc
 de tous les imprimés dont j'avais fait provision:
 ù l'Humanité, le Matin, l'Aurore, l'Européen, le Berliner
 : Tageblatt, le Temps même, et même l'Écho de Paris.
@@ -86,9 +81,7 @@ dans les vagons, et presque sans dire mot ni faire de
 gestes, ils ont emporté nos bagages dans la salle de
 visite. À l'entrée, des gendarmes nous prennent nos
 passeports. Dans la salle, flots d'électricité; une longue A
-ligne de comptoirs sur lesquels nous étalons et débal-
-lons. L'armée des facteurs blancs fouille, sous l'œil vigi-
-lant des inspecteurs. J'ai une serviette de cuir pleine de
+ligne de comptoirs sur lesquels nous étalons et déballons. L'armée des facteurs blancs fouille, sous l'œil vigilant des inspecteurs. J'ai une serviette de cuir pleine de
 notes manuscrites. C'est mon grand souci. Je le sais:
 elle sera examinée par la censure et on me la rendra à
 Pétersbourg, — si elle ne contient rien de suspect. Mon
@@ -124,15 +117,13 @@ et leur tapant familièrement sur l'épaule, je reconnais
 sa parole. Mais, à n'en pas douter aussi, c'est un per-
 à sonnage de marque: dans le train allemand, il se ren- -
 À ne après le repas ordinaire, pour éviter la promiscuité des
-ï! autres voyageurs; et nous le voyions passer dignement,
+autres voyageurs; et nous le voyions passer dignement,
 É. entraînant dans son sillage un secrétaire fluet et respecF tueux. Le voici maintenant qui parle aux autorités.
 Entendu: on ne visitera pas ses malles. On ne vérifiera
 pas non plus son passeport; on sait sans doute trop
 À bien à qui on a à faire. Un détail que je n'avais pas
 remarqué: cet homme si important est décoré de la
-Deux poids et deux mesures: l'oppression et le favo-
-ritisme, tous deux, j'en conviens, ouvertement prati-
-qués. Somme toute, c'est moi qui ai reçu un traitement
+Deux poids et deux mesures: l'oppression et le favoritisme, tous deux, j'en conviens, ouvertement pratiqués. Somme toute, c'est moi qui ai reçu un traitement
 ô à peu près juste, par inadvertance, peut-être, ou, comme
 LE on me l'a dit, par suite d'un relâchement momentané
 à des rigueurs administratives.
@@ -142,19 +133,16 @@ Varsovie. Première déception: le temps est triste et
 humide, les rues boueuses. Au lieu d'un traineau silen-.
 cieux et découvert, c'est une voiture fermée et bruyante à
 qu'il faut prendre pour gagner le centre de la ville. Nous je
-longeons des canaux déserts et glacés, puis une perspec-
-tive interminable, et des rues généralement très larges,
+longeons des canaux déserts et glacés, puis une perspective interminable, et des rues généralement très larges,
 quelques-unes très animées. Pendant le trajet, j'apprends “3
-qu'il y a ce soir même un grand banquet des inteilec-
-tuels. Maxime Gorki et Léonid Andréiev doivent y être.
+qu'il y a ce soir même un grand banquet des inteilectuels. Maxime Gorki et Léonid Andréiev doivent y être.
 La manifestation aura, paraît-il, un caractère politique,
 et, certainement, un énorme retentissement. C'est pour
 moi une nouvelle déception de ne pouvoir m'y rendre. à
 Mais je me console du présent malchanceux comme du
 passé irréparable. J'accepte de manquer de quelques
 heures le banquet des écrivains comme d'avoirmanqué de
-quelques jours la réunion à Saint-Pétersbourg des repré-
-sentants des zemstvos de province dont les résolutions Ni
+quelques jours la réunion à Saint-Pétersbourg des représentants des zemstvos de province dont les résolutions Ni
 ont fait tant de bruit jusque dans la presse européenne.
 D'ailleurs je prendrai demain ma revanche en allant aux
 le banquet des écrivains sie
@@ -162,9 +150,7 @@ Il n'est question aujourd'hui que de la réunion d'hier
 soir. Ce banquet « des écrivains » était, à parler plus
 
 le mouvement libéral constitutionnel
-justement, un banquet « des représentants des profes-
-sions intellectuelles ». J'ai appris que de pareils ban-
-quets sont très fréquents; ils remplacent les réunions
+justement, un banquet « des représentants des professions intellectuelles ». J'ai appris que de pareils banquets sont très fréquents; ils remplacent les réunions
 publiques. Les mots réunion ou assemblée effarouchent
 un peu le gouvernement, et il a pour l'instant fait avec
 la société une sorte de compromis qui satisfait, paraît-il,
@@ -193,11 +179,9 @@ sociale régulière ne sauraient être réalisées. Les correc-
 
 tions partielles de l'organisation actuelle des institutions
 civiles ne tendent pas à cet objet, et, selon la conviction
-profonde et unanime des personnes présentes, le déve-
-loppement normal de la vie nationale exige immédiate-;
+profonde et unanime des personnes présentes, le développement normal de la vie nationale exige immédiate-;
 ment et absolument:;
-1° Pour tous les citoyens, la garantie des droits fondamen-
-taux et inaliénables: intangibilité de la personne, liberté de
+1° Pour tous les citoyens, la garantie des droits fondamentaux et inaliénables: intangibilité de la personne, liberté de
 conscience, de la parole, de la presse, de réunion et d'asso-
 2 l'égalité de tous devant la loi, sans aucune différence:
 tenant aux conditions sociales, nationales ou religieuses;
@@ -266,9 +250,7 @@ des représentants des zemstvos. Mais souvenez-vous.
 
 Cette assemblée devait être officielle, et elle ne l'a pas
 
-été. Ces résolutions devaient être présentées à l'empe-
-
-reur, — et elles ne l'ont pas été. Ou pire encore: car si
+été. Ces résolutions devaient être présentées à l'empereur, — et elles ne l'ont pas été. Ou pire encore: car si
 
 elles lui ont été présentées, il n'y a pas fait de réponse.
 
@@ -296,9 +278,7 @@ ont débarrassés en juillet du sinistre Plehve, et que la
 
 bombe meurtrière a laissé dans les hautes sphères un
 
-souvenir instructif et moralisateur. Nous nous réjouis-
-
-sons de ce semblant de liberté qu'on nous accorde; —
+souvenir instructif et moralisateur. Nous nous réjouissons de ce semblant de liberté qu'on nous accorde; —
 
 mais sans nos amis inconnus et involontaires d'Extrême-
 
@@ -319,10 +299,8 @@ seule chose dont on parle. Il s'est passé dimanche un
 fait nouveau qui produit dans Pétersbourg une grosse
 émotion. Avant-hier, les avocats de la ville devaient se
 réunir au Palais de Justice pour célébrer l'anniversaire
-é de la réforme judiciaire de 1864. Mais, quand ils se pré-
-sentèrent devant la porte du monument, ils la trouvèrent
-fermée. Le président du Conseil de l'Ordre, M. Tourt-
-chaninov, avait reçu du procureur de la Cour d'appel
+é de la réforme judiciaire de 1864. Mais, quand ils se présentèrent devant la porte du monument, ils la trouvèrent
+fermée. Le président du Conseil de l'Ordre, M. Tourtchaninov, avait reçu du procureur de la Cour d'appel
 une lettre où celui-ci disait simplement que l'objet de la
 réunion ne convenait pas au lieu adopté.
 Naturellement, protestations énergiques des avocats.
@@ -405,20 +383,15 @@ La Russie tout entière, étouffée dans un silence séculaire,
 
 a salué la convocation de la première réunion officielle des;
 hommes des zemstvos. Aujourd'hui, ayant appris avec une
-profonde stupéfaction le changement des décisions officiel-
-
-les, nous ne pouvons nous abstenir de remplir le devoir
+profonde stupéfaction le changement des décisions officielles, nous ne pouvons nous abstenir de remplir le devoir
 civique qui nous incombe et de vous exprimer hautement
 notre conviction, que les besoins urgents de la patrie ne
-pourront être satisfaits que par la convocation des repré-
-sentants du peuple tout entier, appelés à la confection des
+pourront être satisfaits que par la convocation des représentants du peuple tout entier, appelés à la confection des
 
 lois par le moyen d'un suffrage universel, égal, direct et
 secret. Seuls, les hommes librement élus par le peuple sauront assurer à la nation l'intangibilité de la personne, la
 liberté de conscience et l'égalité devant la loi pour tous les
-citoyens sans distinction de conditions sociales, de confes-
-
-sion religieuse ou de nationalité.
+citoyens sans distinction de conditions sociales, de confession religieuse ou de nationalité.
 
 Nous croyons fermement qu'il est nécessaire de garantir
 immédiatement l'absolue liberté de réunion et de la presse,
@@ -426,8 +399,7 @@ en vue de rendre possible l'expression universelle des
 vœux et des volontés de la nation.
 
 Et, avant tout, vous devez songer aux milliers de « criminels » politiques enfouis dans les cellules des prisons et les
-casemates des forteresses, jetés aux travaux forcés, relé-
-gués au fond de la Sibérie, pour avoir osé, avant vous,
+casemates des forteresses, jetés aux travaux forcés, relégués au fond de la Sibérie, pour avoir osé, avant vous,
 prêter leur voix au peuple torturé et réclamer pour lui de
 Vair et de la lumière.
 
@@ -440,8 +412,7 @@ me venger et pour me donner à moi-même une convicton. J'insiste près de lui s
 
 le mouvement libéral.constitutionnel
 qui viennent de province. Autant et plus que moi, il est
-au courant de ce qui se passe. Il me raconte, par exem-
-ple, qu'à Odessa, à Nijni Novgorod, il y a samedi
+au courant de ce qui se passe. Il me raconte, par exemple, qu'à Odessa, à Nijni Novgorod, il y a samedi
 des banquets libéraux où l'on a reçu avec enthousiasme
 des délégués du parti ouvrier, et où des orateurs ont
 réclamé la liberté de grève. A Saratov, il y a deux
@@ -469,9 +440,7 @@ Remise aux paysans des arrérages pour le rachat des
 
 terres; — abolition du knout; — promesse de pardon
 
-aux condamnés et réfugiés politiques qui se repenti-
-
-raient et rétracteraient. Que sais-je encore? IL est vrai
+aux condamnés et réfugiés politiques qui se repentiraient et rétracteraient. Que sais-je encore? IL est vrai
 
 ; que pour ces fameux arrérages, il semble difficile d'an-
 
@@ -508,7 +477,7 @@ les animent. Mais on m''assure que les banquets ne
 
 ; le mouvement libéral constitutionnel
 manqueront pas en ce mois de décembre. J'aurai plus à
-;: d'une occasion de voir s'exprimer les enthousiasmes ou
+d'une occasion de voir s'exprimer les enthousiasmes ou
 : les amertumes politiques.
 
 à la Diète de Finlande
@@ -526,7 +495,7 @@ l'occasion était bonne de noter l'état des esprits dans
 cette partie de l'Empire qui demande seulement le main-
 
 Le tien de la sienne.
-;; Je trouve à peine dissipé le cauchemar des dernières
+Je trouve à peine dissipé le cauchemar des dernières
 
 4 années, et je sens qu'une angoisse subsiste encore dans
 
@@ -535,9 +504,7 @@ Le tien de la sienne.
 1 observations, — dans la famille, l'atelier, le café, la
 ; rue, — de mes entretiens, — dans le monde politique,
 
-à artistique, bourgeois, populaire, — je retire cette im-
-
-pression profonde que, dans toutes les classes de la so-
+à artistique, bourgeois, populaire, — je retire cette impression profonde que, dans toutes les classes de la so-
 
 55 ciété finlandaise, une préoccupation remplit tous les
 
@@ -545,9 +512,7 @@ esprits, celle de la liberté politique menacée.
 
 tee Le message du tsar, ou discours du trône, aujour-
 
-à &d'hui par le gouverneur général Obolenski, à l'ouver-
-
-ture solennelle de la Diète, ne promet pas les garanties
+à &d'hui par le gouverneur général Obolenski, à l'ouverture solennelle de la Diète, ne promet pas les garanties
 
 constitutionnelles attendues par les députés des quatre
 
@@ -555,9 +520,7 @@ ordres. Le tsar déclare qu'il ne retirera ni la nouvelle
 
 loi militaire, ni la loi relative à l'introduction de la
 
-: langue russe dans l'administration, ni surtout le mani-
-
-feste de dictature de 1899 qui investit le gouverneur
+: langue russe dans l'administration, ni surtout le manifeste de dictature de 1899 qui investit le gouverneur
 général d'un pouvoir inconstitutionnel sans contrôle, et;
 qui fut la cause du trouble profond des dernières
 années: action violente du gouvernement sous forme
@@ -566,8 +529,7 @@ se traduisirent en août dernier par l'assassinat du gou-
 Le discours du trône a été accueilli respectueusement
 et froidement, — sauf par le maréchal de la Diète,
 Linder, qui y a répondu en phrases d'une humilité emphatique. Mais le tsar sera-t-il informé du genre de
-confiance que les quatre ordres (noblesse, clergé, tiers-
-état, paysans), et tout particulièrement la noblesse,
+confiance que les quatre ordres (noblesse, clergé, tiersétat, paysans), et tout particulièrement la noblesse,
 accordent au maréchal de la Diète? Apprendra:t-il aussi,
 en même temps que l'explosion de joie populaire pour
 le retour des députés expulsés, l'ombre de tristesse bien
@@ -613,8 +575,7 @@ pays n'étant qu'un retour à un état de choses ancien,.
 établi par le tsarisme lui-même quand le grand-duché
 fut réuni à son Empire. Mais, au moment où nous
 
-mes, et puisque le prince Mirski est ministre de l'Inté-
-rieur, il faut se défendre d'être pessimiste avant les
+mes, et puisque le prince Mirski est ministre de l'Intérieur, il faut se défendre d'être pessimiste avant les
 faits, et accorder au gouvernement un crédit de bonnes
 intentions, malgré le discours du trône, — et un peu à
 cause de lui. Car si le tsar se déclare inflexible sur les
@@ -652,8 +613,7 @@ LE compter d'avance qu'il sera toujours payé avec usure
 pour le bien qu'il aura fait ou permis. Ce seraït un
 18 étrange défi à la raison et à la conscience humaines que
 et de se venger sur la Finlande de ce que son passé lui
-1204 donne pour le présent un minimum de droits impres-
-criptibles et de ce que le travail fervent et les heureuses
+1204 donne pour le présent un minimum de droits imprescriptibles et de ce que le travail fervent et les heureuses
 A qualités de ses habitants lui méritent pour l'avenir plus
 88 encore qu'elle n'a jamais obtenu. (1)
 04 la manifestation du 11 décembre
@@ -694,15 +654,12 @@ quelques mois en Russie, à Novgorod. NE
 
 Sur une voie adjacente, un train était prêt à partir. Il était gardé
 de troupes, et comme, par ignorance, je m'approchais de lun des A
-vagons, un des soldats ‘sgsprécipita sur moi et me ramena brus-
-quement en arrière. Le train s'ébranlait; je vis les soldats le suivre
+vagons, un des soldats ‘sgsprécipita sur moi et me ramena brusquement en arrière. Le train s'ébranlait; je vis les soldats le suivre
 pas à pas, à un mètre de distance, puis accélérer allure, et, à la;
 fin, courir presque, jusqu'à ce qu'ils fussent arrivés à l'extrémité
 du quai et que le dernier vagon du train fût tout à fait hors de la
 gare. Je m'informai. C'était un sénateur qui partait en voyage et
-dont on protégeait ainsi le départ... Pendant ce temps, le profes-
-seur Homén était porté triomphalement sur les épaules de quel-
-ques jeunes gens, et la foule laccompagnait en poussant des!
+dont on protégeait ainsi le départ... Pendant ce temps, le professeur Homén était porté triomphalement sur les épaules de quelques jeunes gens, et la foule laccompagnait en poussant des!
 hourras et en chantant des chants populaires nationaux.
 
 Je venais d'avoir simultanément un exemple de la terreur dans
@@ -723,9 +680,7 @@ public. Ce que ce témoin a vu, le voici: à une heure,
 comme il sortait de déjeuner chez des amis, près la
 
 place de Kazan, il aperçut des cosaques qui chargeaient
-la foule. Il les vit, par un rapide mouvement envelop-
-
-pant, cerner un groupe d'hommes qui furent arrêtés;
+la foule. Il les vit, par un rapide mouvement enveloppant, cerner un groupe d'hommes qui furent arrêtés;
 parmi eux étaient bien des étudiants, mais aussi nombre d'ouvriers du quartier usinier d'Alexandrovskaïia.
 La manifestation n'était donc pas uniquement universitaire, comme on l'avait tout d'abord supposé ou pré-
 
@@ -745,12 +700,9 @@ amène un étudiant à la stature gigantesque, dont on
 aperçoit de loin la tête bouffie et sanglante. Il a reçu
 
 des coups de plat de sabre qui l'ont à demi assommé,
-et il ne se soutient qu'avec peine, ou plutôt il est sou-
-tenu par ceux qui l'entourent. Sur cet homme meurtri,
-sans défense et qui s'évanouir, les brutes se ruent à:
-coups de poing et à coups de bottes. Un officier de po-
-lice sort du poste. Il fait signe d'arrêter cette scène sau-
-vage. Il n'arrête rien. Il assiste impuissant aux excès
+et il ne se soutient qu'avec peine, ou plutôt il est soutenu par ceux qui l'entourent. Sur cet homme meurtri,
+sans défense et qui s'évanouir, les brutes se ruent
+coups de poing et à coups de bottes. Un officier de police sort du poste. Il fait signe d'arrêter cette scène sauvage. Il n'arrête rien. Il assiste impuissant aux excès
 de ses hommes ivres de fureur. À
 
 On a dit, — les journaux sont étrangement brefs ce
@@ -796,8 +748,7 @@ ordinaire, on a grand peine à se caser deux dans un
 me traîneau, et, même à Saint-Pétersbourg, il y a des
 à moyens plus pratiques et plus sûrs de transporter les
 
-Ces témoignages ne montrent pas moins que la mani-
-festation de dimanche a été plus qu'une promenade de
+Ces témoignages ne montrent pas moins que la manifestation de dimanche a été plus qu'une promenade de
 300 étudiants à travers la perspective Nevski, et qu'on
 a fait autre chose que de les disperser avec des paroles
 bienveïllantes et des gestes paternels. Malheureuse4 ment, pendant ce mois de décembre qui, pour nous,
@@ -827,11 +778,8 @@ avait questionné Katia, la servante, pour avoir des ren- “4
 seignements sur mon compte, pour savoir par exemple
 comment il se faisait que moi, étranger, je fusse venu
 dans cette maison. Cette petite instruction était moins
-pour satisfaire une curiosité personnelle que pour s'ac-
-quitter d'une consigne policière.
-Des étudiants m'apprennent aujourd'hui que la sur-
-
-veillance exercée sur eux par les dvorniki est encore
+pour satisfaire une curiosité personnelle que pour s'acquitter d'une consigne policière.
+Des étudiants m'apprennent aujourd'hui que la surveillance exercée sur eux par les dvorniki est encore
 
 bien plus rigoureuse et humiliante. On instruit pour
 
@@ -862,8 +810,7 @@ de recevoir chez lui plus de cinq personnes. S'il suppose
 d'entrer lui-même et de faire sortir les assistants.
 : Ainsi, le dvornik haït et tyrannise l'étudiant. Il n'a
 ù fait, dimanche dernier, qu'exercer contre lui sa haine
-: Ù d'une façon plus cynique et plus brutale, en toute nité. Quelqu'un me dit: « Chez nous, la police ne pré-
-vient jamais les désordres. Elle les laisse venir, et alors
+: Ù d'une façon plus cynique et plus brutale, en toute nité. Quelqu'un me dit: « Chez nous, la police ne prévient jamais les désordres. Elle les laisse venir, et alors
 elle les réprime. Dimanche, — comme à l'ordinaire en
 pareille circonstance, — on avait réuni les dvorniki par
 é groupes, dès quatre heures du matin, dans certaines
@@ -905,8 +852,7 @@ très bien, et sans étonnement, envahir par 60 ou
 LATE Hier c'était chez une femme écrivain bien connue à
 à “1 Pétersbourg. Elle appartient à la société libérale; elle
 eut même, une fois ou deux, l'honneur d'être assez susAS pecte au gouvernement pour que la police fit chez elle
-une perquisition. Mais ses opinions politiques ne lempêé-
-ai chent pas d'apercevoir et de critiquer les faiblesses des
+une perquisition. Mais ses opinions politiques ne lempêéai chent pas d'apercevoir et de critiquer les faiblesses des
 libéraux. Elle joint à une sensibilité très vive une fran44 41: chise de parole qui s'exprime souvent en boutades
 1 mordantes. Elle s'expose elle-même à de malignes critiLA ques parce qu'elle ne veut pas se résoudre à prendre
 16 parti contre la guerre. On lui dit que c'est une singulière
@@ -949,14 +895,11 @@ qu'on nous jette des comme à des chiens, dit l'un;
 nous ne voulons pas prier le gouvernement. » En réalité, le
 la plupart ne sont pas des libéraux constitutionnalistes
 ce sont des démocrates socialistes ou des socialistes NI
-révolutionnaires. Ils ne nient pas qu'il n'y ait des démo-
-crates parmil es libéraux, mais ils se défient en même
+révolutionnaires. Ils ne nient pas qu'il n'y ait des démocrates parmil es libéraux, mais ils se défient en même
 temps de certains membres de zemstvos qui, tout en es
 s'intitulant libéraux, n'acceptent pas le suffrage universel et se contenteraient facilement de la conquête d'une
 Les jeunes sont d'une intransigeance très passionnée.
-A les entendre discuter, je me rends compte que la poli-
-
-le mouvement libéral constitutionnel
+A les entendre discuter, je me rends compte que la polile mouvement libéral constitutionnel
 tique fait en ce moment toute leur vie. À côté d'eux il y
 ! a des hommes qui, eux, ont été des victimes de la
 . politique, — mais victimes en un sens où nous ne sommes
@@ -989,8 +932,7 @@ supprime pour trois mois. Cela donne à réfléchir aux
 plus optimistes sur la sincérité des intentions libérales De
 du gouvernement, et notamment du ministre de l'Inté-;
 rieur. Les uns plaignent ou défendent le prince Mirski,,
-mais il y en a déjà qui l'accusent ouvertement de fai-
-blesse. « Aujourd'hui même, me dit un avocat, il a refusé:
+mais il y en a déjà qui l'accusent ouvertement de faiblesse. « Aujourd'hui même, me dit un avocat, il a refusé:
 de transmettre à l'Empereur une pétition qui lui a été;
 remise au nom des avocats de Moscou et de Saint-
 Pétersbourg. C'est un mauvais symptôme de plus. Nous
@@ -1025,9 +967,7 @@ AN forces dans la vie municipale ». En conséquence, pour
 
 LA calmer l'angoisse générale et pour répondre à l'univer-
 
-Fra 1 selle attente de profondes réformes, il propose la con-
-
-vocation à Moscou d'un Congrès de tous les présidents
+Fra 1 selle attente de profondes réformes, il propose la convocation à Moscou d'un Congrès de tous les présidents
 
 1 ne de conseils municipaux des chefs-lieux de gouvernement.
 
@@ -1056,9 +996,7 @@ affirmativement. Et l'un d'eux, — non des moindres par
 11 son rôle actuel et par son passé, — expliquait ainsi son
 : 0 vote: « J'ai exercé pendant dix ans des fonctions qui
 
-me permettent de savoir ce que c'est que l'abus du pou-
-
-voir de la part de l'administration. Pendant dix ans j'ai;
+me permettent de savoir ce que c'est que l'abus du pouvoir de la part de l'administration. Pendant dix ans j'ai;
 lutté contre le conseil municipal de X... (ce n'est pas à
 Pétersbourg). Je ne sais pas qui avait raison de nous
 deux, maïs je sais que les conseils municipaux doivent
@@ -1079,8 +1017,7 @@ vue. Un ordre supérieur, — du ministre de l'Intérieur,
 partisan de réformes libérales, comme nul n'en ignore, (
 — invita le président à annoncer à l'assemblée qu'elle
 avait à se renfermer strictement dans ses attributions
-en signe de protestation, mais ce n'était pas une majo-
-rité, ce n'était pas l'assemblée. Celle-ci ne chercha pas
+en signe de protestation, mais ce n'était pas une majorité, ce n'était pas l'assemblée. Celle-ci ne chercha pas
 de salle du Jeu de Paume pour y délibérer librement.
 
 Je sais bien que nous sommes à Saint-Pétersbourg; je
@@ -1097,8 +1034,7 @@ dans le genre de celle de vendredi. Il dans lopposid. tion même, des ennemis qu
 à niquement ses faiblesses et ses fautes. On peut être conte traire au mouvement constitutionnel parce qu'on le croit
 inefficace, mais c'est aux constitutionnels eux-mêmes
 à imposer par leurs actes le respect de leurs convictions.
-Encore une fois, il ne s'agissait vendredi que d'un con-
-seil municipal, mais quand on pense à l'effet produit
+Encore une fois, il ne s'agissait vendredi que d'un conseil municipal, mais quand on pense à l'effet produit
 : par les résolutions hardies de la municipalité de Mosif. cou, on peut se faire une idée de l'impression désasa treuse causée par les hésitations du conseil municipal
 Le de Saint-Pétersbourg. Il eût sans doute mieux valu pour
 le parti constitutionnel que la séance secrète de mer-
@@ -1131,9 +1067,7 @@ anniversaire du nouveau régime judiciaire et réclamer
 une Constitution, les déclarations des différents États à
 la Diète de Finlande, la séance de mardi au conseil municipal de Moscou, toutes ces démonstrations n'ont rien
 perdu de leur signification, mais comment prévoir avec
-certitude ce qui se produire, puisque le gouverne-
-
-ment ne s'est encore décidé ni à adopter franchement
+certitude ce qui se produire, puisque le gouvernement ne s'est encore décidé ni à adopter franchement
 labsolutisme défiant et réactionnaire, ni à se déclarer
 et se montrer catégoriquement libéral. Aujourd'hui encore la question est entière: la parole est demain au
 
@@ -1163,8 +1097,7 @@ certaines questions et aux journaux la publication de
 comptes rendus de séances politiques, voire Vim- « pression de certains mots qui sonnent mal aux oreilles
 
 des réactionnaires.
-Mais jusqu'ici la réaction montre à la fois trop d'indé-
-cision, et le mouvement libéral trop de ténacité pour
+Mais jusqu'ici la réaction montre à la fois trop d'indécision, et le mouvement libéral trop de ténacité pour
 que des mesures partielles et de circonstance puissent
 maintenant entraver la marche en avant pour la demande et l'obtention d'une constitution dans le pays du
 tsarisme. On parle beaucoup ces jours-ci d'une nouvelle
@@ -1181,9 +1114,7 @@ condamnation formelle du régime actuel au nom des
 
 valeur au fait que la protestation est suivie de cinq cent
 
-une signatures d'ingénieurs de toutes branches: ingé-
-
-nieurs des mines, des ponts et chaussées, des construc-
+une signatures d'ingénieurs de toutes branches: ingénieurs des mines, des ponts et chaussées, des construc-
 
 Les actes de cette nature et de cette gravité ne sont
 pas rares au moment présent, et, comme on l'a vu, ils
@@ -1207,8 +1138,7 @@ qui représente en quelque sorte le mouvement constituL,, tionnel par voie léga
 des zemstvos ont commencé à se réunir. Ce ne sont pas
 les plus avancées, il est vrai; Tver et Moscou, par
 exemple, n'ont pas été convoquées, — intentionnelle-
-- ment ou non, — parmi les premières; mais les déclara-
-tions votées dès maintenant par les assemblées ouvertes
+- ment ou non, — parmi les premières; mais les déclarations votées dès maintenant par les assemblées ouvertes
 - depuis quelques jours n'en sont que plus significatives.
 Les comptes rendus des séances sont d'un très bon
 
@@ -1255,13 +1185,7 @@ de régime d'exception et de contrainte qui permet à l'arbitraire
 
 administratif de s'exercer sur elle avec une tyrannie écra-
 
-4 sante; les tribunaux sont, en fait, sans pouvoir pour dé-
-
-fendre la justice et la loi. Une situation pareille a pour con-
-
-séquence des souffrances graves pour la population tout en-
-
-tière dans l'ensemble de sa vie individuelle et collective, et
+4 sante; les tribunaux sont, en fait, sans pouvoir pour défendre la justice et la loi. Une situation pareille a pour conséquence des souffrances graves pour la population tout entière dans l'ensemble de sa vie individuelle et collective, et
 provoque le mécontentement universel.
 
 L'assemblée des zemstvos du gouvernement de Tchernigov,
@@ -1272,8 +1196,7 @@ peuple, prie respectueusement Votre Majesté d'entendre la
 parole sincère et véridique de la nation russe; d'appeler à
 elle, à cet effet, des représentants librement élus par le
 
-— zemstvo et de leur donner mission de tracer, en toute indé-
-pendance, pour le lui soumettre directement, le projet de
+— zemstvo et de leur donner mission de tracer, en toute indépendance, pour le lui soumettre directement, le projet de
 …—. réformes que réclament impérieusement les besoins du
 Le moment présent est donc étrangement critique. Il
 y a des forces en mouvement, qu'il y aurait probable__ ment moyen de canaliser, mais non d'arrêter. Les
@@ -1292,8 +1215,7 @@ la question de la guerre. Le gouvernement ne demande
 
 le mouvement libéral constitutionnel
 qu'à gagner du temps, mais, de toutes parts, dans la
-société, se multiplient les signes de lassitude ou de pro-
-testation. Les zemstvos se sont jetés tout de suite dans
+société, se multiplient les signes de lassitude ou de protestation. Les zemstvos se sont jetés tout de suite dans
 une franche opposition; bon gré mal gré il faut bien
 que le tsar se décide pour ou contre eux. Il n'a pas
 publié de manifeste lundi, jour de la Saint-Nicolas; À
@@ -1342,8 +1264,7 @@ le moment, on en est: on s'est demandé toute la semaine si ce fameux manifeste 
 le mouvement libéral constitutionnel
 l'offrir en cadeau à son peuple lundi dernier, jour de sa
 fête. Avec un ami, j'avais donc toute la journée couru
-Pétersbourg dans tous les sens, à la recherche du manifeste, — et d'une manifestation qu'on annonçait égale-
-ment depuis huit jours. Nous n'avions trouvé nilunni
+Pétersbourg dans tous les sens, à la recherche du manifeste, — et d'une manifestation qu'on annonçait également depuis huit jours. Nous n'avions trouvé nilunni
 l'autre. Le désappointement avait été le même pour tout
 On avait cherché le manifeste dans les journaux du
 4 matin, puis dans le Messager Officiel, enfin dans les
@@ -1399,8 +1320,7 @@ crainte reparut que le manifeste n'eût pas lieu. En effet,
 … tandis que Nicolas II, resté seul, s'abimait dans une
 on méditation douloureuse... N'était-ce pas clair?
 Ensuite, un nouveau bruit avait couru: on avait
-à le tsar et douze personnes, réunis en conférence extra-
-ordinaire, signer un grand papier. Cette fois, c'était le
+à le tsar et douze personnes, réunis en conférence extraordinaire, signer un grand papier. Cette fois, c'était le
 
 le mouvement libéral constitutionnel
 prince Sviatopolk-Mirski qui rayonnait. Quant au tsar,
@@ -1408,21 +1328,15 @@ il était toujours songeur.. N'était-ce pas clair??
 
 Pourtant deux jours encore se sont passés sans
 apporter le manifeste. Nous sommes au samedi soir, et
-lundi s'ouvre à Moscou la session du zemstvo provin-
-
-cial. J'ai depuis longtemps fait le projet d'être à Moscou
+lundi s'ouvre à Moscou la session du zemstvo provincial. J'ai depuis longtemps fait le projet d'être à Moscou
 pour cette date. Mais j'ai des scrupules de quitter
 Pétersbourg en ce moment. Un rédacteur du Pravo m'a
 
 « Restez. Il faut être ici quand paraîtra le manifeste
 et il paraîtra incessamment. »
 
-« La publication du manifeste est vraiment trop incer-
-taine pour vous en faire une raison d'ajourner votre
-voyage. D'ailleurs, si l'oukase paraît, il sera aussi inté-
-ressant d'en constater l'effet à Moscou qu'à Péters-
-
-bourg. La surexcitation des esprits n'y est pas moindre;
+« La publication du manifeste est vraiment trop incertaine pour vous en faire une raison d'ajourner votre
+voyage. D'ailleurs, si l'oukase paraît, il sera aussi intéressant d'en constater l'effet à Moscou qu'à Pétersbourg. La surexcitation des esprits n'y est pas moindre;
 les étudiants y ont eu, eux aussi, dimanche dernier,
 leur journée de manifestation brutalement réprimée
 dans le sang; quant au zemstvo, il est de toute évidence
@@ -1443,8 +1357,7 @@ jour même de l'ouverture du zemstvo.
 
 une opinion sur l'oukase impérial
 Je suis à Moscou depuis vingt-quatre heures, lorsque
-paraît enfin l'oukase de l'empereur sur la politique inté-
-rieure du gouvernement. (1) Tant mieux. La publication
+paraît enfin l'oukase de l'empereur sur la politique intérieure du gouvernement. (1) Tant mieux. La publication
 si longtemps attendue de ce manifeste vient à point pour
 que je puisse constater l'impression produite sur une
 importante assemblée qui ne fait que commencer ses
@@ -1468,8 +1381,7 @@ ses arguments, mais quel regret de ne pouvoir écrire à
 ici son nom!
 « On vous dira: « L'oukase ne contient que de vagues À
 « promesses, des paroles creuses. » N'importe: il faut lui
-savoir gré du moins de ne pas nous apporter une con-
-gouvernement. C'était le pire danger; il est évité. Nous
+savoir gré du moins de ne pas nous apporter une congouvernement. C'était le pire danger; il est évité. Nous
 ne subirons pas l'expérience inutile d'une assemblée
 consultative de représentants des zemstvos sur les bases
 où les zemstvos sont aujourd'hui constitués. Mieux vaut
@@ -1534,8 +1446,7 @@ Si non seulement il a gain de cause mais que, de plus,
 il soit appliqué, nous aurons encore fait un pas dans la à
 voie de la constitution démocratique que je souhaïte. Et
 si l'état de siège est aboli, si la presse est désormais
-soumise à un régime légal au lieu d'un imprudent arbi-
-traire, si de toutes parts, en fait comme en paroles,
+soumise à un régime légal au lieu d'un imprudent arbitraire, si de toutes parts, en fait comme en paroles,
 
 nous aboutissons enfin au règne de légalité et de la
 
@@ -1561,9 +1472,7 @@ qui doit nous élever jusqu'à la constitution.
 
 ( « Il y eut, au moyen-âge, des croisés qui s'en allaient à
 
-à Jérusalem en faisant trois pas en avant puis deux en ar-
-
-rière. Le ton honteux et lâche de l'oukase d'aujourd'hui
+à Jérusalem en faisant trois pas en avant puis deux en arrière. Le ton honteux et lâche de l'oukase d'aujourd'hui
 
 : rappelle assez bien cette conviction profonde de senti-
 
@@ -1577,8 +1486,7 @@ gouvernement n'a pas trouver. »
 
 J'ai résumé ici une opinion que les événements confirmèrent presque immédiatement: Deux heures après
 l'entretien que je venais d'avoir, les zemtsi de la
-province de Moscou, « sous le coup de l'émotion provo-
-quée en eux par le communiqué de l'empereur votaient à une énorme majorité, dans une séance agitée
+province de Moscou, « sous le coup de l'émotion provoquée en eux par le communiqué de l'empereur votaient à une énorme majorité, dans une séance agitée
 et mémorable, la suspension de leurs travaux. Cette
 résolution est d'autant plus significative que l'assemblée de Moscou avait été jusqu'à ces dernières années
 plutôt conservatrice. Le régime de réaction semble bien
@@ -1599,10 +1507,8 @@ Moscou, dont le zemstvo provincial tenait ce jour-là
 même sa seconde séance et qui, la veille, à la séance
 d'ouverture, avait envoyé au tsar une adresse pleine de
 fermeté? Tous les regards étaient d'avance fixés sur
-l'assemblée moscovite, d'où il semblait bien que vien-
-drait le mot d'ordre.
-L'assemblée, qui comptait la veille 71 membres pré-
-sents, en avait ce jour-là 65. Parmi eux, se trouvaient
+l'assemblée moscovite, d'où il semblait bien que viendrait le mot d'ordre.
+L'assemblée, qui comptait la veille 71 membres présents, en avait ce jour-là 65. Parmi eux, se trouvaient
 45 glasnys ou membres élus par les assemblées des districts. Ce furent les héros du jour, les 45, comme on
 : peut dès maintenant les appeler. Ils déclarèrent être
 ; « si excités par la publication du communiqué » qui
@@ -1617,12 +1523,9 @@ la qualité pour avoir une idée nette de la composition
 d'un zemstvo, et, plus particulièrement, de la signification du vote d'hier. Parmi eux, se trouvent 61 glasnys,
 dont 14 élus par la ville de Moscou et 46 élus par les
 assemblées des districts de la province. Les 32 membres
-restants comprennent: 13 présidents des oupravas (bu-
-reaux exécutifs des assemblées de districts), 13 maré-
-chaux de la noblesse des districts (groupe conservateur
+restants comprennent: 13 présidents des oupravas (bureaux exécutifs des assemblées de districts), 13 maréchaux de la noblesse des districts (groupe conservateur
 à l'ordinaire, mais pas à Moscou), 2 représentants des
-à ministères qui ont des terres dans la province (do-
-maines et apanages), 1 membre représentant le clergé
+à ministères qui ont des terres dans la province (domaines et apanages), 1 membre représentant le clergé
 et nommé par l'archevêque, le maire de la ville de
 
 Moscou, membre de droit, et enfin 2 membres, non
@@ -1648,23 +1551,20 @@ contraire, il y avait beaucoup de paysans dans les as-
 Le Telle qu'elle est, composée surtout de nobles, l'asbi: semblée provinciale de Moscou représente assez bien
 à par sa composition et par son esprit la moyenne des
 zemstvos provinciaux actuels. Il y a des assemblées
-plus conservatrices, mais il y en a aussi de plus libé-
-es rales. Par exemple, Tambov, Saratov, Tver surtout,
+plus conservatrices, mais il y en a aussi de plus libées rales. Par exemple, Tambov, Saratov, Tver surtout,
 dont la noblesse fut libérale de tout temps, même quand
 A - il n'y avait pas de zemstvos. Le vote d'hier dépasse
 donc Moscou; il a une valeur représentative pour toute
 la Russie. La protestation des 45 aura une répercussion
 
 le mouvement libéral constitutionnel
-générale et profonde que, dès maintenant, le gouverne-
-ment doit prévoir et dont il a sujet d'être alarmé. Rien
+générale et profonde que, dès maintenant, le gouvernement doit prévoir et dont il a sujet d'être alarmé. Rien
 ne pouvait lui faire plus de tort que de manquer le coup
 qu'il voulait porter. Il comptait peut-être attirer à lui et
 stimuler le parti conservateur, terroriser au contraire à
 les libéraux.
 S'il a cette illusion, la désillusion pour lui doit être
-grande. L'oukase prometteur le communiqué restric-
-tif font naître partout des libéraux qui s'ignoraient.
+grande. L'oukase prometteur le communiqué restrictif font naître partout des libéraux qui s'ignoraient.
 L'effet non voulu, mais immédiat et certain, de ces deux
 documents, être de rendre l'opposition irréconciVa liable, et, sans doute, le parti révolutionnaire plus
 Qui profitera définitivement de l'excitation actuelle
@@ -1673,8 +1573,7 @@ fiance qu'on avait mise en lui; il eût été un héros s'il
 avait donné sa démission après la réponse sèche du
 tsar au télégramme du président du zemstvo de Tchernigov. Il ne l'a pas donnée. Les constitutionnels n'attendent plus de lui l'appui qu'ils espéraient.
 Ils n'attendent pas davantage du comité des ministres
-auquel l'oukase confie l'élaboration de réformes impré-
-cises ou insuffisantes. Ils répètent plus que jamais qu'il
+auquel l'oukase confie l'élaboration de réformes imprécises ou insuffisantes. Ils répètent plus que jamais qu'il
 est impossible de calmer la société sans lui donner une
 représentation dans le gouvernement. Ils réclament une
 constitution basée sur le suffrage universel et admettant, dans une Chambre, des représentants des zemst-
@@ -1708,8 +1607,7 @@ année les débats de cette assemblée.
 le mouvement libéral constitutionnel
 5, On savait que les deux partis, libéral et conserva-:
 pee près égales. Mais l'intérêt était surtout éveillé par la
-1 rentrée en scène des victimes de la période réaction-
-naire des dernières années, comme les frères Ivan et
+1 rentrée en scène des victimes de la période réactionnaire des dernières années, comme les frères Ivan et
 Michel Pétrounkévitch, Roditchev, Eugène et Serge de
 Roberty. Plusieurs reparaissaient à Tver après des
 si années d'absence, ayant été bannis les uns de la ville,
@@ -1746,8 +1644,7 @@ la division de la question d'une adresse de félicitations
 au tsar pour la naissance du prince héritier et celle des
 
 quoi, sur une déclaration significative des orateurs des
-deux partis que l'anarchie et la désorganisation ré-
-gnaient du haut en bas de la société russe les censervateurs avaient conclu qu'il fallait s'en remettre à l'empereur du soin de rétablir la tranquillité politique par
+deux partis que l'anarchie et la désorganisation régnaient du haut en bas de la société russe les censervateurs avaient conclu qu'il fallait s'en remettre à l'empereur du soin de rétablir la tranquillité politique par
 une application plus stricte du principe autocratique; le
 salut était dans la tradition politique russe: autorité
 d'une part, obéissance de l'autre. « La victoire nous restera toujours, avait même dit un orateur, parce que
@@ -1769,23 +1666,15 @@ droit à une école militaire de Pétersbourg, qui depuis
 
 longtemps a mis en jeu sa situation pour servir la cause
 libérale. (Avec un jeune capitaine d'infanterie, je crois
-me souvenir que c'était le seul galonné du parti consti-
+me souvenir que c'était le seul galonné du parti constitutionnel de Tver, tandis que le parti conservateur
 
-tutionnel de Tver, tandis que le parti conservateur
-
-; offrait le mélange le plus bigarré d'uniformes de fonc-
-
-tionnaires civils ou militaires: généraux, amiraux, gou-
-
-verneurs, etc.) Le dîner comprenait de soixante-dix à
+; offrait le mélange le plus bigarré d'uniformes de fonctionnaires civils ou militaires: généraux, amiraux, gouverneurs, etc.) Le dîner comprenait de soixante-dix à
 
 à quatre-vingts couverts, réunissant, on le voit, environ
 
 ù un tiers des membres de l'assemblée. Les libéraux n'é-
 
-ne taient donc rien moins que sûrs de la bataille, et cer-
-
-tains ne paraissaient pas très persuadés de vaincre. On
+ne taient donc rien moins que sûrs de la bataille, et certains ne paraissaient pas très persuadés de vaincre. On
 
 résolut cependant de réduire les propositions à deux:
 
@@ -1799,9 +1688,7 @@ A dix heures, en séance, la première bataïlle s'en-
 
 à gagea sur l'adresse. Les conservateurs en présentaient
 
-une de leur côté, où, en même temps que des félicita-
-
-tions au tsar pour la naissance de son fils, ils avaient
+une de leur côté, où, en même temps que des félicitations au tsar pour la naissance de son fils, ils avaient
 
 introduit l'aflirmation de leur confiance dans le régime
 
@@ -1879,17 +1766,13 @@ Ce qu'il est plus facile de prophétiser, c'est que la
 dans toute la Russie. Quand les zemstvos se réuniront,
 
 4 très nombreux, en janvier, ils auront des précédents
-À autorisés pour leur dicter leur conduite. Les quarante-
-
-cinq de Moscou et les soixante-dix de Tver étaient des
+À autorisés pour leur dicter leur conduite. Les quarantecinq de Moscou et les soixante-dix de Tver étaient des
 
 minorités qui dans leurs assemblées respectives ont en-
 
 : traîné les indécis. Il est probable que le même fait se
 
-reproduira un peu partout, et que le parti constitu-
-
-tionnel acquerra incessamment une force redoutable non
+reproduira un peu partout, et que le parti constitutionnel acquerra incessamment une force redoutable non
 
 ê seulement par la valeur ou la conviction de ceux qui le
 
@@ -1936,8 +1819,7 @@ L'assemblée provinciale de la noblesse de Tver est heu-
 4 reuse d'apporter à Votre Majesté Impériale et à L. L. Ma-:
 jestés les Impératrices, ses loyales félicitations à l'occasion
 à de la naissance du prince héritier, événement joyeux pour
-toute la Russie, et exprime son désir que l'illustre nouveau-
-grandisse pour la prospérité et le bonheur de notre
+toute la Russie, et exprime son désir que l'illustre nouveaugrandisse pour la prospérité et le bonheur de notre
 Il y on le voit, de la marge entre les deux textes.
 Celui qui nous avait été communiqué par l'agence est
 tout simplement le texte présenté par le parti conservade teur, et qui n'a point été voté.
@@ -1947,9 +1829,7 @@ textes dont le rapprochement est instructif.
 le Banquet des Décabristes à Saint-Pétersbourg
 3 « Quand nous sommes réu-
 É nis dans un lieu public, nous
-nous regardons avec méfian-
-ce... Si.quelqu'un veut par-
-ler politique, il baisse la voix à
+nous regardons avec méfiance... Si.quelqu'un veut parler politique, il baisse la voix à
 en prenant un air mysté- de
 .
 Je pense à cette phrase de Dostoïevski. J'y pense
@@ -1990,8 +1870,7 @@ salle se remplit rapidement. Le président frappe quelques
 ê ( Je mai pas le don d'ubiquité. J'étais à Moscou, on l'a vu, à la
 date du banquet des Décabristes. Les notes données ici sont dun
 autre moi-même avec qui j'avais convenu qu'il me remplacerait à
-, Saint-Pétersbourg comme témoin de tous les événements d'impor-
-tance pendant que je serais à Moscou et à Tver. Je dois à cette
+, Saint-Pétersbourg comme témoin de tous les événements d'importance pendant que je serais à Moscou et à Tver. Je dois à cette
 
 combinaison de pouvoir donner un compte rendu du banquet des
 Décabristes, car celui qui devait avoir lieu à Moscou, et auquel je
@@ -2018,9 +1897,7 @@ jeunes gens sont pâles, ont l'air chétif, maladif; beaucoup
 Un conseiller municipal propose un hourra aux Décabristes, « grands patriotes et martyrs ». Puis un souhait de bon
 appétit. Le banquet commence. On sert du thé à volonté.
 
-Quelques-uns prennent du soda. Mais d'autres se font ser-
-
-vir du champagne. Je pense aux étudiants debout contre
+Quelques-uns prennent du soda. Mais d'autres se font servir du champagne. Je pense aux étudiants debout contre
 
 les murs, et qui n'ont payer l'écot de trois roubles.
 
@@ -2117,14 +1994,13 @@ officiers. Un autre demande et obtient sans peine un hourra
 pour Sazonov, le meurtrier de Plehve.
 Enfin, on passe à l'ordre du jour. Je voudrais le connaître,;
 mais je vois qu'on discute pendant une heure pour savoir;
-ï: s'il faut mettre: « Les intellectuels et le peuple réunis le
+s'il faut mettre: « Les intellectuels et le peuple réunis le
 ! 14/29 décembre... » ou « Les intellectuels » tout court. Je me À
 retire avant que la question soit décidée. Il est plus de deux
 0 heures. Le banquet a commencé à neuf heures et demie... et
 on n'est pas encore au dessert. Mais on est venu pour la
 manifestation, pour les discours, non pour le banquet
-même. On m'avait dit tout d'abord qu'on devait parler uni-
-quement de la guerre. Somme toute, on a bien parlé de la
+même. On m'avait dit tout d'abord qu'on devait parler uniquement de la guerre. Somme toute, on a bien parlé de la
 guerre, mais en même temps de toutes les questions-qui
 agitent l'opinion. À
 : On m'a fait remarquer que beaucoup d'écrivains qui assis
@@ -2186,7 +2062,7 @@ les plus éloquents de l'inquiétude présente des consciences
 et de l'urgente nécessité de satisfaire les revendications nationales et sociales. (1)
 À Quant aux corps constitués ou professionnels, vous savez
 ne qu'il n'en est pas un maintenant qui ne demande un mini-
-4.mum de réformes. Parmi les premiers on ne s'étonne pas
+de réformes. Parmi les premiers on ne s'étonne pas
 È trop de voir les zemstvos faire de hardies réclamations ponee litiques. Mais n'est-il pas significatif que les maréchaux de
 la noblesse même, réunis à Moscou il y a quelques semaines,
 aient envoyé eux aussi à l'empereur une adresse condamnant la bureaucratie et réclamant des garanties poli-
@@ -2196,8 +2072,7 @@ régime actuel est contre le régime actuel. Vous parliez du
 banquet des Décabristes. Mais pour celui-là on savait!
 d'avance qu'il avait un but politique.
 Pour d'autres réunions il serait plus malaisé de le prévoir,
-si on ne savait, au moment où nous vivons, que toute occa-
-sion est exploitée pour manifester contre le gouvernement.
+si on ne savait, au moment où nous vivons, que toute occasion est exploitée pour manifester contre le gouvernement.
 À C'est ainsi qu'il y a quelques jours, à une conférence des
 médecins sur l'état sanitaire de Saint-Pétersbourg, un orape teur s'est fait vivement applaudir en démontrant que cet
 4 état dépendait surtout... du régime administratif et des con-
@@ -2231,8 +2106,7 @@ très bien pourquoi un article vaut à son journal un avertisN sement, pourquoi 
 . journal libéral a été puni de l'interdiction de vente au numéro, mais cette mesure n'a pour lui comme conséquence
 … qu'une recrudescence fantastique d'abonnements. Tel autre
 Ron été suspendu, mais il a reparu sous un autre titre, rédigé
-… par les mêmes écrivains, acheté par le même public. Le sy-
-stème des demi-mesures est sans effet, et celui des mesures
+… par les mêmes écrivains, acheté par le même public. Le système des demi-mesures est sans effet, et celui des mesures
 extrêmes paraît bien dangereux.
 Il est certain que, malgré les avertissements, distris bués au petit bonheur, la presse continue à parler. Pour
 la première fois en Russie, il semble bien qu'il y ait un
@@ -2250,15 +2124,13 @@ et conservé comme un objet sacré.
 On m'a conté, à ce sujet, une anecdote amusante, qui
 ne manque pas de sens: Un économiste bien connu
 avait écrit, ces temps derniers, dans un journal libéral,
-un article hardi contre la guerre. La censure déco-
-cha aussitôt un avertissement, mais le journal en
+un article hardi contre la guerre. La censure décocha aussitôt un avertissement, mais le journal en
 fut payé par un regain de célébrité, et l'écrivain
 par une explosion d'admiration. Entre autres témeignages de félicitations, l'économiste reçut une série
 de lettres. d'un gendarme qui habitait au fin fond de
 la Russie, sur les bords de la Volga. Il les lut, s'en
 ‘amusa, mais n'y répondit point. Le gendarme fut piqué.
-Il jura de forcer l'attention de l'économiste et lui expé-
-dia... un immense poisson (un esturgeon, je crois, dont
+Il jura de forcer l'attention de l'économiste et lui expédia... un immense poisson (un esturgeon, je crois, dont
 on fait en Russie le plus grand cas). Cette fois, l'économiste répondit. — Et son poisson, qu'en fit-il? — Il n'en
 fut pas embarrassé. Ne pouvant se résoudre à en manger à lui tout seul pendant plusieurs semaines, il conta
 un soir l'anecdote à la rédaction d'une revue, et mit le
@@ -2284,8 +2156,7 @@ les familles comme dans les rédactions de journaux on
 n'entend guère d'autre sujet de conversation. Chacun
 envisage la situation actuelle suivant ses préjugés, ses
 idées ou ses vœux, mais l'opinion unanime est bien que,
-Port-Arthur tombé, il y a quelque chose de changé là-
-bas qui amènera quelque changement ici.
+Port-Arthur tombé, il y a quelque chose de changé làbas qui amènera quelque changement ici.
 
 En réalité, ce qui est très profond, c'est l'impression
 morale produite. On ne croyait pas qu'elle dût être si
@@ -2332,9 +2203,7 @@ noter, c'est que la capitulation n'a provoqué de joie
 chez personne, même chez ceux qui la souhaitaient.
 
 : Sans doute, chacun y a bien immédiatement ce qu'y
-gagnait la cause de la paix et ce qu'y perdaïît legouver-
-
-nement, mais ce qui a impressionné davantage, c'est le
+gagnait la cause de la paix et ce qu'y perdaïît legouvernement, mais ce qui a impressionné davantage, c'est le
 
 4 récit des souffrances atroces des assiégés pendant les
 derniers mois. On ne croyait pas, en Russie, que la
@@ -2362,8 +2231,7 @@ changé dès que le doute ne leur a plus été possible et
 qu'ils ont de quelles illusions on les abusaiït en leur
 assurant que Port-Arthur pouvait tenir encore trois
 mois, peut-être six. Nulle part je n'ai de consternation pour l'atteinte portée au prestige de la Russie,
-d'appréhension pour les conséquences pratiques immé-
-diates de la chute de la forteresse. La simple compassion humaine a vraiment été chez tous plus forte que
+d'appréhension pour les conséquences pratiques immédiates de la chute de la forteresse. La simple compassion humaine a vraiment été chez tous plus forte que
 tout sentiment politique ou patriotique.
 
 On parlera longtemps de ce siège effroyable; nulle
@@ -2389,7 +2257,7 @@ tout à fait digne de foi. Il déclare nettement que Stæssel est un poltron, et
 
 -
 
-40 Juilierles mains, au mois d'août, pour l'empêcher de
+Juilierles mains, au mois d'août, pour l'empêcher de
 “dl 6 signer, dès ce moment, une capitulation qui n'était pas
 ‘HE du tout nécessaire.
 40 — Et le rapport suivant lequel, ces jours derniers
@@ -2414,13 +2282,11 @@ d'une pareille accusation; les témoignages manquent.
 Arthur; nous aurons alors l'explication de ce mystère
 le sur lequel il est, jusque-là, moralement interdit de se
 Un autre mystère qui commence à préoccuper l'opi-
-Ê nion, ce sont les intentions prochaines de l'armée japo-
-naise. On est mal renseigné sur ses mouvements. Un"
-officier me déclarait récemment qu'il était peu vraisem-
-dé: blable que les Japonais s'aventurassent au-delà de”
+Ê nion, ce sont les intentions prochaines de l'armée japonaise. On est mal renseigné sur ses mouvements. Un"
+officier me déclarait récemment qu'il était peu vraisemdé: blable que les Japonais s'aventurassent au-delà de”
 “te 3 de défendre leurs conquêtes. Cependant, ils vont main:
 44 tenant recevoir le renfort de l'armée du général Nogiw
-7 Cela ne les décidera-til pas à prendre une nouvellem
+Cela ne les décidera-til pas à prendre une nouvellem
 
 ffensi énergique? Sans doute on ignore le nombre et #0
 la qualité des troupes qui ont mené le siège épuisantde ï )
@@ -2429,7 +2295,7 @@ la qualité des troupes qui ont mené le siège épuisantde ï )
 tude, en même temps qu'elle leur laisse les mains plus
 - libres? N'est-il pas certain surtout que leur enthousiasme nie
 . et leur fanatisme grandiront en proportion de l'impres-
-3 sion profonde que produira dans tout le monde jaune la "6.à
+3 sion profonde que produira dans tout le monde jaune la
 chute symbolique de la forteresse russe? Ne faut-il pas Ke:
 s'attendre, à bref délai, à de nouveaux désastres?
 . Cest ainsi qu'on raisonne déjà à Pétersbourg. Ceux;
@@ -2442,22 +2308,18 @@ sentent leur foi fortement ébranlée. Je ne parle pas de;
 ceux qui voient dans la guerre une bonne action ou une EUR
 . A tout prendre, donc, il n'y a pas à se dissimuler com-
 . bien la guerre est impopulaire et quelles angoisses elle a.
-… Quelqu'un m'a dit: « Jusqu'ici nous n'avons pas rem-
-porté une victoire! A qui la fante? Nous, nous disons: "4
+… Quelqu'un m'a dit: « Jusqu'ici nous n'avons pas remporté une victoire! A qui la fante? Nous, nous disons: "4
 “Aux ministres! Mais le peuple commence à dire: A
 Empereur, qui fait une guerre injuste. »
 quelques jours: « Oui, oui... On a bâti la maison surla #4
 terre du voisin. Et on s'étonne, après, qu'il y ait des
 MACA cela il faut ajouter les souffrances pitoyables, le 2 A
-méco ntentement, les témoignages accablants des sol-
-
-le mouvement libéral constitutionnel « dats blessés qu'on renvoie dans leurs foyers. On leur
+méco ntentement, les témoignages accablants des solle mouvement libéral constitutionnel « dats blessés qu'on renvoie dans leurs foyers. On leur
 donne 20 kopeks par jour, et une de pain coûte
 10 kopeks, une bouteille de lait 15 kopeks. On leur
 remet une paie de 16 jours pour aller de Kharbine à
 É Moscou, mais en réalité le trajet dure pour eux 25 jours.
-. Il leur faut mendier. Il y a bien des centres d'alimenta-
-tion dans les gares, mais le plus souvent le train arrive
+. Il leur faut mendier. Il y a bien des centres d'alimentation dans les gares, mais le plus souvent le train arrive
 à avec des heures de retard. Un officier blessé qui revient
 2 de Mandchourie raconte que depuis trois mois il ne
 ï recevait plus de solde. Il n'avait plus de chapeau. Il ne
@@ -2471,8 +2333,7 @@ milieu où les effets de cette impopularité peuvent être
 3 campée là-bas, en Mandchourie. J'ai recueilli à ce sujet
 des témoignages qui m'ont vivement frappé ou impressionné., Tous concluent que la capitulation de Port-
 Arthur accentuera parmi les troupes une démoralisation
-qu'elle n'aura pas fait naître. Les soldats qui réflé-
-chissent ont depuis longtemps mesuré que la conquête,
+qu'elle n'aura pas fait naître. Les soldats qui réfléchissent ont depuis longtemps mesuré que la conquête,
 — si problématique! — de la Mandchourie, ne saurait
 vraiment pas s'acheter au prix des meilleures vies et du:
 Ne meilleur de la richesse russes. Ceux qui ne réfléchissent
@@ -2537,8 +2398,7 @@ qu'en lui accordant le moyen d'exprimer son opinion,
 410 tie, il la demande chaque jour avec plus de hardiesse.
 Mais ce n'est pas le comité des ministres, avec les
 LE réformes qu'il projette selon l'esprit d'un oukase ambigu, à
-qui donnera satisfaction à une opinion publique constam-
-ment en effervescence. Toute révolution qui viendra
+qui donnera satisfaction à une opinion publique constamment en effervescence. Toute révolution qui viendra
 À d'en haut ne sera qu'un fantôme de révolution auquel
 personne ne croira. Les oukases ne paraîtront qu'une
 0 dérision méchante, un jouet présenté à des gens qui ont À
@@ -2557,9 +2417,7 @@ pour protéger la forteresse avant la guerre? Qu'a-t-on
 
 14 des armées, on envoie des escadres, mais quel contrôle
 
-y a-t-il sur les dépenses qui ont été faites, quelle justifi-
-
-cation des moyens employés puisqu'ils n'ont donné
+y a-t-il sur les dépenses qui ont été faites, quelle justification des moyens employés puisqu'ils n'ont donné
 
 aucun résultat? Depuis onze mois la Russie n'a connu
 
@@ -2620,14 +2478,13 @@ sur la guerre intérieure; eux aussi sont inquiets de la
 l'inaction forcée où ils se trouvent en Mandchourie, les
 soldats sont devenus non pas les acteurs de la vie polife tique russe au dehors, mais les spectateurs lointains et
 ; inquiets du drame politique intérieur.
-è! On marche vers un dénouement, on le sent, on le sait,
+On marche vers un dénouement, on le sent, on le sait,
 ; mais personne ne peut dire lequel. Si l'escadre du Paci-
 : fique avait détruit celle de Togo et était entrée à Port-
 Arthur, tout le monde serait unanime à prédire et
 attendre une réaction implacable. Mais Port-Arthur est
 tombé, la deuxième escadre est loin de son but, et la
-troisième est toujours problématique. La situation inté-
-rieure est plus tendue que jamais. Le gouvernement
+troisième est toujours problématique. La situation intérieure est plus tendue que jamais. Le gouvernement
 voudrait bien temporiser et endormir l'opinion publique,
 
 mais s'il y a complètement échoué avec l'oukase du
@@ -2670,7 +2527,7 @@ mois où il rongeait son frein, supportant mal d'être muni
 Le d'un beau titre inutile et investi d'une sinécure à ses
 É it. yeux dégradante. L'ancien ministre des Finances ne
 s'habituait pas à présider, sans rien faire, une réunion
-#3 de gens qui travaillaient; à expédier des affaires cou
+3 de gens qui travaillaient; à expédier des affaires cou
 rantes comme président sans portefeuille, au lieu
 ne À d'exercer une action comme ministre. IL rêvait de sa
 15 gloire passée. Coûte que coûte, il lui fallait la retrouver.
@@ -2679,8 +2536,7 @@ A des ministres, mais le comité des ministres est devenu
 Et la suprême institution politique de l'Empire.
 Ceux qui détestent M. Witte sont les premiers à
 reconnaître que c'est un homme habile. Dans un Empire
-autocratique, la plus grande habileté consiste naturelle-
-nr: ment à conquérir à ce point la faveur du maître qu'il
+autocratique, la plus grande habileté consiste naturellenr: ment à conquérir à ce point la faveur du maître qu'il
 vous accorde toute liberté d'action indépendamment de À
 vos collègues ou même contre vos collègues. M. Witte
 108 a en arriver là. Comment? Ce n'est pas par sympa- À
@@ -2693,8 +2549,7 @@ D. de vouloir et de réagir en face de lui. M. Witte a une
 sont telles que l'empereur ne peut pas se dérober:.en
 
 face des partis qui s'organisent et qui élèvent la voix, il
-… faut agir. Il faut au gouvernement un ministre de l'Inté-
-rieur qui, par son initiative et son énergie, ramène dans nALt » politique une stabilité fort compromise. Le système si
+… faut agir. Il faut au gouvernement un ministre de l'Intérieur qui, par son initiative et son énergie, ramène dans nALt » politique une stabilité fort compromise. Le système si
 Plehve ayant fait banqueroute, l'empereur a été entraîné
 fatalement à accepter le système Witte.
 Pendant l'entr'acte, nous avons sur la scène le
@@ -2725,8 +2580,7 @@ le mouvement libéral constitutionnel
 
 M. Witte, qui a fait en un seul jour le crédit du prince.
 Mirski à la cour, a mis ensuite quelques mois àleruiner!
-insensiblement. En réalité, le jeu s'est trouvé plus dan-
-gereux que M. Witte ne s'y attendait. La poussée libé-
+insensiblement. En réalité, le jeu s'est trouvé plus dangereux que M. Witte ne s'y attendait. La poussée libé-
 
 : rale a tout d'un coup été si forte en Russie, qu'il a
 craindre de la voir donner au prince Mirski une force
@@ -2751,9 +2605,7 @@ la moitié, suivant le projet du prince Mirski, serait
 4 désormais élue par les municipalités et par des États
 généraux de province.
 
-Toute la lutte se concentra bientôt autour de la rédac-
-
-tion de ce paragraphe qui allait décider du sort des
+Toute la lutte se concentra bientôt autour de la rédaction de ce paragraphe qui allait décider du sort des
 ministres et de la politique du gouvernement. L'empereur était ébranlé, mais indécis. Il savait que les réclamations constitutionnelles se multipliaient; il ne savait
 pas s'il pouvait ou devait accorder une constitution. Il
 
@@ -2807,7 +2659,7 @@ quelques-uns des libéraux, les plus autorisés, et, l'un
 des premiers, M. Nabokov, écrivain et jurisconsulte,
 fils d'un ancien ministre de la Justice, auteur d'articles
 ; qui firent sensation lors du procès de Kichinev. M. Witte
-À; lui proposa d'élaborer une loi conforme au paragraphe
+lui proposa d'élaborer une loi conforme au paragraphe
 ant premier de l'oukase et destinée à transformer l'état de
 choses actuel dans l'Empire en un ordre légal. M. NaPE bokov refusa.
 (4 « Pourquoi? C'est l'établissement de la légalité que je
@@ -2818,8 +2670,7 @@ ministres à élaborer cette loi.
 a — À des représentants élus par le peuple, par les à
 ù — L'idéal est le même, et nous y atteindrons plus à
 — Vous n'y atteindrez pas. Ce ne sont pas des indi-;
-vidus, ministres ou autres, qui réaliseront l'idéal consti-
-de — Ne pensez-vous pas que d'autres acceptent ce que
+vidus, ministres ou autres, qui réaliseront l'idéal constide — Ne pensez-vous pas que d'autres acceptent ce que
 1 vous refusez, et pouvez-vous me recommander quel- À
 1 — Non! Parmi les jeunes.
 — Tous vous feront la même réponse que moi. »
@@ -2839,8 +2690,7 @@ demander beaucoup. Ou bien Witte est avec nous, di- Abe
 principe constitutionnel; ou bien il est opposé à la
 constitution, et alors qu'il ne recherche ni l'appui, ni la
 … collaboration des libéraux.
-À M. Witte se croit assez fort pour échapper à ce di-
-lemme. Il est convaincu qu'il saura apaiser les colères.
+À M. Witte se croit assez fort pour échapper à ce dilemme. Il est convaincu qu'il saura apaiser les colères.
 ; C'est de sa main généreuse et de son esprit fécond que
 8 la Russie recevra, et promptement, des réformes qu'il
 À n'est plus possible de différer.
@@ -2854,8 +2704,7 @@ en tête, voudrait bien jouer le rôle de celui qui les;
 offre. Mais c'est une diversion que les zemstvos n'ac-
 … cepteront pas. Ils ramèneront l'affaire à la question
 4 à pas la voir ou veut s'y opposer, ce jeu lui sera fatal. Il
-à sait fort bien ce que réclament les libéraux. Il doit sa-
-voir ce qu'il risque à se moquer d'eux. »
+à sait fort bien ce que réclament les libéraux. Il doit savoir ce qu'il risque à se moquer d'eux. »
 A Ainsi, attendons ce que feront, d'une part le comité
 1. des ministres, d'autre part les zemstvos, dont les séances
 …. reprennent. S'il se produit un conflit, comme tout le
@@ -2865,8 +2714,7 @@ laisse à prévoir, nous pourrions bien être à la veille de
 graves événements. On annonce que le prince Mirski
 se retirer d'un gouvernement où il n'a plus que faire,
 et que, s'il ne l'a pas fait plus tôt, c'est qu'on a voulu
-sauver les apparences, et qu'on n'a point voulu le pré-
-senter comme une victime de l'oukase. M. Mouraviev,
+sauver les apparences, et qu'on n'a point voulu le présenter comme une victime de l'oukase. M. Mouraviev,
 malade, — et déçu, — briguerait un poste d'ambassadeur dans le Midi. M. Witte serait et resterait maître
 absolu de la situation, — jusqu'à nouvel ordre.
 54 loisirs de fin d'année
@@ -2918,9 +2766,7 @@ ouverte. Il y a sans cesse des traîneaux qui entrent ou
 qui sortent. Les isvochtchiks qui arrivent mettent pied à
 terre, et ils sont curieux à voir, debout dans leur longue
 et grosse robe ouatée, serrée à la taille par une étroite
-ceinture claire à broderies. Dans les rues, en temps or-
-
-le mouvement libéral constitutionnel
+ceinture claire à broderies. Dans les rues, en temps orle mouvement libéral constitutionnel
 5 dinaire, on ne les voit qu'assis en avant de leur léger traipa peau, nonchalamment accoudés sur le large rebord en
 : cou de cygne. La nuit, on les trouve souvent endormis
 ! dans cette pose, sous la neige qui tombe et les recouvre
@@ -3012,14 +2858,12 @@ des dévots et des visiteurs, et plus de dévots que de
 visiteurs. Les icônes de Kazan sont célèbres et véné-
 ; rées. Je vois comme on leur brûle des cierges. Les gens;
 3 s'en vont doucement, humblement, les allumer et les
-Une femme du peuple, les yeux fermés, fait des révé-
-rences d'une amplitude inquiétante, s'inclinant d'abord
+Une femme du peuple, les yeux fermés, fait des révérences d'une amplitude inquiétante, s'inclinant d'abord
 presque jusqu'à terre, puis renversant la tête en ar-
 : rière; ensuite, elle se jette à genoux et, à plusieurs
 reprises, baise le sol. Et cela devant chaque icône.
 
-È Devant la vierge de Kazan, il y a une jeune dame élé-
-gante, toute en noir, dont la toilette comprend un tas
+È Devant la vierge de Kazan, il y a une jeune dame élégante, toute en noir, dont la toilette comprend un tas
 de choses flottantes et traînantes, manches à jabots,
 tulles, robe à queue... Elle aussi, pose des cierges et
 baise la terre. Elle embrasse la vierge de Kazan, mais
@@ -3075,15 +2919,10 @@ C'est ainsi que chaque journée se résume, — ou mieux
 
 mais, malgré tant de désillusions que la réalité apporte » chaque jour aux faiseurs d'hypothèses, personne ne
 
-veut renoncer à être prophète. Nous avons deux dé-
-ceptions avec l'oukase: il ne parut pas à la date pré-
-
-vue, et il ne contenait rien, — hélas! — de ce que l'on
+veut renoncer à être prophète. Nous avons deux déceptions avec l'oukase: il ne parut pas à la date prévue, et il ne contenait rien, — hélas! — de ce que l'on
 attendait. Mais, sans perdre courage, l'imagination
 
-… russe se remit à construire un avenir impossible à devi-
-
-ner. Aussi savons-nous bien des choses à Pétersbourg; je » tant de choses, vraiment, que certaines, dans le nom- LE
+… russe se remit à construire un avenir impossible à deviner. Aussi savons-nous bien des choses à Pétersbourg; je » tant de choses, vraiment, que certaines, dans le nom- LE
 
 bre, ne peuvent manquer de se réaliser.
 
@@ -3091,13 +2930,9 @@ Nous savons par exemple que M. Witte songe à bien
 
 - autre chose qu'à préparer les réformes annoncées.
 
-._ Comme président du conseil des ministres sans minis-
+._ Comme président du conseil des ministres sans ministère, il n'avait rien à faire avant l'oukase; maintenant
 
-tère, il n'avait rien à faire avant l'oukase; maintenant
-
-la réalisation même des réformes de l'oukase ne lui suf-
-
-fit plus. « Vous verrez qu'avant peu, — voulez-vous une
+la réalisation même des réformes de l'oukase ne lui suffit plus. « Vous verrez qu'avant peu, — voulez-vous une
 
 date? On peut vous la donner: jeudi prochain,— avant
 
@@ -3111,9 +2946,7 @@ n'est pas lui, ce sera une de ses créatures.
 
 — Eh quoi! vous ne savez pas? Mais Sviatopolk-
 
-… Mirski se retire! C'est une chose faite. Que voulez-
-
-vous? Sa situation n'était plus tenable. Il a tout promis
+… Mirski se retire! C'est une chose faite. Que voulezvous? Sa situation n'était plus tenable. Il a tout promis
 
 à l'opinion libérale, et les circonstances l'obligent à ne
 
@@ -3130,8 +2963,7 @@ On vous a dit, avec la même assurance, qu'au fameux
 À aussi sa démission. Cela, c'était certain, non pas le
 
 le mouvement libéral constitutionnel
-jour même où se tint le conseil, mais huit jours aupara-
-vant. Puisqu'on ne voulait pas appliquer franchement;
+jour même où se tint le conseil, mais huit jours auparavant. Puisqu'on ne voulait pas appliquer franchement;
 le principe autocratique, le ministre de la Justice se
 Et lui aussi, que devenait-il? Le savait-on?
 Mais parfaitement! Mouraviev était nommé ambassadeur à Vienne, poste qu'il avait toujours ambitionné,
@@ -3216,9 +3048,7 @@ qu'il est bien difficile de savoir celui qu'il fera définiti-
 
 ù vement triompher. La seule chose qu'on assure, c'est”
 
-4 à que le ministre s'arrangera toujours pour sortir tout-
-
-puissant de la passe difficile où le gouvernement se
+4 à que le ministre s'arrangera toujours pour sortir toutpuissant de la passe difficile où le gouvernement se
 
 trouve acculé. Les pessimistes disent: « Soyez certain
 É. que Witte ne fera rien pour les libéraux. Son projet sur
@@ -3230,8 +3060,7 @@ il ï Risquer sa tête? Est-ce que vraiment?.. Oui, pour-
 “ER quoi ne pas le dire? On parle d'actes terroristes. Les
 nn,;. révolutionnaires ont juré de tout temps que les consti-
 ‘ea tutionnels obtiendraient peut-être du gouvernement de
-te: ù belles promesses, mais qu'ils n'aboutiraient jamais pra-
-on 1! tiquement à rien qui vaille. Et, jusqu'à présent, ceux
+te: ù belles promesses, mais qu'ils n'aboutiraient jamais praon 1! tiquement à rien qui vaille. Et, jusqu'à présent, ceux
 441 qui parlent ainsi n'ont pas tout à fait tort. Les zemstvos
 “4 ont réclamé, et on leur a répondu.par l'oukase. Ils
 
@@ -3240,8 +3069,7 @@ on 1! tiquement à rien qui vaille. Et, jusqu'à présent, ceux
 Aussi des libéraux m'ont-ils dit: « Heureusement que.
 nous avons derrière nous les révolutionnaires. Il ne
 
-peut décidément pas y avoir de révolution sans pyro-
-technie. Il nous faut une révolution. Il nous faut donc la
+peut décidément pas y avoir de révolution sans pyrotechnie. Il nous faut une révolution. Il nous faut donc la
 pyrotechnie. IL est temps que la pyrotechnie entre en
 . jeu. » D'autres m'ont dit encore: Vous savez que c'est
 commenté. Le tsar vient de faire un voyage dans le
@@ -3250,8 +3078,7 @@ sien, et sur la ligne on a trouvé, en plusieurs endroits, ne
 … des paquets de dynamite. » Un troisième ajoute: «
 mal, même dans l'armée, même dans la garde, où
 … l'on est très mécontent dela capitulation de Port-Arthur.
-Une révolution de palais est très possible. L'impératrice-
-mère préfère à l'empereur son frère le grand-duc Mi-
+Une révolution de palais est très possible. L'impératricemère préfère à l'empereur son frère le grand-duc Mi-
 chel; et puis, elle n'aime pas sa belle-fille. C'est comme
 en Serbie. Il faut tout craindre, surtout les pires évé-
 Tels sont les bruits qui courent, sinistres ceux-là. »
@@ -3270,9 +3097,7 @@ a que Rojdestvenski lui-même, Rojdestvenski, le chef de!
 
 à de ses pensées. Ces jours derniers, il aurait télégraphié
 
-à au tsar... qu'il ne voulait pas franchir le cap de Bonne-
-
-le mouvement libéral constitutionnel
+à au tsar... qu'il ne voulait pas franchir le cap de Bonnele mouvement libéral constitutionnel
 Espérance avant d'avoir appris que la constitution était
 accordée au peuple russe. Nous ne savons pas encore
 ce que le tsar a répondu à l'amiral; on lui aura sans
@@ -3297,17 +3122,13 @@ Comment s'étonner, alors, qu'ils recourent aux commentaires? Ils les accueillen
 ils les colportent par devoir, par charité pour le prochain.
 
 Croyez-vous, par exemple, que ce ne soit pas singulièrement réconfortant, pour un malheureux libéral qui
-ne sait que penser et qu'attendre de l'oukase, d'ap-
-
-prendre la nouvelle suivante, communiquée « de source
-tout à fait autorisée »: « C'est fait. L'Empereur s'est
+ne sait que penser et qu'attendre de l'oukase, d'apprendre la nouvelle suivante, communiquée « de source
+tout à fait autorisée « C'est fait. L'Empereur s'est
 prononcé ouvertement et catégoriquement pour la Constitution.
 
 « A Tsarskoïé Sélo, avant-hier, dans une réunion du
 conseil des ministres, on a répété au tsar sur tous les
-de tons: « C'est inéluctable, il faut donner la Constitu-
-
-tion. » L'Empereur ne se rendit pas sans résistance.
+de tons: « C'est inéluctable, il faut donner la Constitution. » L'Empereur ne se rendit pas sans résistance.
 Longtemps il garda le silence; il ne pouvait échapper
 au souvenir du serment prêté il y a dix ans en montant
 sur le trône, et il se rappelait aussi la promesse faite à
@@ -3344,7 +3165,7 @@ Elle a donné lieu à des détournements scandaleux à propos desquels on peut, 
 
 UNE le mouven ent libéral const tutionnel
 dant huit jours au moins, nous n'entendrons plus parler à
-1 USERS de banquets, de réunions, de résolutions. Les nouvelles
+USERS de banquets, de réunions, de résolutions. Les nouvelles
 : PIE n'en courent pas moins de bouche en bouche; la capitu-
 4 à lation de Port-Arthur a quelque peu remis la guerre à
 A se ere l'ordre du jour. Les zemstvos ne font plus parler d'eux;
@@ -3356,8 +3177,7 @@ A du gouvernement, qu'on ne sait trop à quoi s'attendre. À
 ‘Le Quelqu'un m'a dit: « J'aimais mieux Plehve; avec lui,
 “508 ma foi! c'était la réaction, mais, au moins, une réaction
 04 franche; la situation était nette. » On peut souhaiter
-Men que la situation devienne nette, et cependant ne pas dé-
-sirer le retour d'un Plehve.
+Men que la situation devienne nette, et cependant ne pas désirer le retour d'un Plehve.
 
 ANT rail ne
 
@@ -3372,9 +3192,7 @@ Le. Les ouvriers de la Société franco-russe, au nombre de
 . de l'Union russe ouvrière, dont les uns et les autres;
 . Les démarches des grévistes près de la direction de
 … l'usine Poutilov étant restées infructueuses, les ouvriers
-… ont tenu lundi et mardi des réunions très agitées. Tou-
-jours sous l'action de l'Union russe ouvrière, le mouve-
-ment gréviste prend des proportions inattendues. Au- à
+… ont tenu lundi et mardi des réunions très agitées. Toujours sous l'action de l'Union russe ouvrière, le mouvement gréviste prend des proportions inattendues. Au- à
 jourd'hui se joignent à la grève les ouvriers de plusieurs
 
 le soulèvement ouvrier
@@ -3393,15 +3211,14 @@ nus société. On parle de « la grève de Poutilov » mais on À
 2 usines se joignent au mouvement. Les journaux se mon-_
 ï trent fort discrets sur la question, parce que les articles
 EN relatifs aux grèves sont soumis à une censure spéciale,
-4 — très sévère, — du préfet de police. Les Rousski Vié-
-domosti publient un important article réclamant la
+4 — très sévère, — du préfet de police. Les Rousski Viédomosti publient un important article réclamant la
 È À liberté de grève, mais ne nous renseignent naturellement
 pas sur la situation précise de la grève à Pétersbourg.
 À D'ailleurs, il y a bien des gens que la grève intéresse
 ‘singulièrement peu, et qu'une autre question passionne
 au dernier point. Le bruit s'est répandu cet après-midi
 qu'un attentat venait d'être commis contre le tsar. PenHA dant la cérémonie de la bénédiction des eaux de la
-10 Néva, un canon de la première batterie de l'artillerie de
+Néva, un canon de la première batterie de l'artillerie de
 108 la garde, placée près de la Bourse, de l'autre côté de la
 Néva, en face du Palais d'Hiver, a tiré un coup à
 mitraille au lieu de faire feu à poudre seulement. Les
@@ -3411,8 +3228,7 @@ agent de police est blessé grièvement.
 Là-dessus, nombreuses hypothèses. Le hasard paraît À
 bien étrange qu'une gargousse ait été oubliée dans un es
 canon après un exercice, juste à point pour la solennité À
-d'aujourd'hui; mais il est non moins étrange de sup-
-poser qu'un révolutionnaire se soit introduit parmi les
+d'aujourd'hui; mais il est non moins étrange de supposer qu'un révolutionnaire se soit introduit parmi les
 officiers ou les artilleurs de la garde, et surtout ait
 choïsi ce genre d'attentat, bien difficile à préparer et CRIS
 bien aléatoire dans ses résultats.
@@ -3427,8 +3243,7 @@ Attentat ou accident, l'impression a été profonde sur SA
 l'esprit de l'empereur. C'est la première fois de la
 saison que le tsar venait à Saint-Pétersbourg. Il se A
 trouve plus en sécurité à Tsarskoïé Sélo qu'au Palais ne
-d'Hiver. L'événement d'aujourd'hui ne le fera pas chan-
-ger d'avis. Et, s'il est superstitieux, il y a un fait qui
+d'Hiver. L'événement d'aujourd'hui ne le fera pas changer d'avis. Et, s'il est superstitieux, il y a un fait qui
 le bouleverser. L'agent de police blessé se nomme... À
 vers la grève générale
 
@@ -3497,8 +3312,7 @@ nuit.
 le soulèvement ouvrier
 le soulèvement ouvrier
 
-La grève. Une grève à peu près générale. Un soulève-
-ment ouvrier. Pour le gouvernement russe une nouvelle
+La grève. Une grève à peu près générale. Un soulèvement ouvrier. Pour le gouvernement russe une nouvelle
 et terrible menace.
 
 Aux difficultés extérieures était déjà venu se joindre,
@@ -3529,8 +3343,7 @@ d'acier qui fabrique des torpilleurs, canons, obus, locomotives, wagons, et occu
 À Cause du renvoi: ces ouvriers seraient paresseux et
 gâcheraient le travail, — au dire de la direction. La
 mesure parut aux ouvriers tellement arbitraire que, se
-solidarisant avec leurs camarades, ils cessèrent complè-
-tement le travail lundi matin. Les quatre ouvriers renvoyés faisaient partie de l'Union russe ouvrière; ce fut
+solidarisant avec leurs camarades, ils cessèrent complètement le travail lundi matin. Les quatre ouvriers renvoyés faisaient partie de l'Union russe ouvrière; ce fut
 celle-ci qui organisa le mouvement, conduite par son
 président, le prêtre Georgi Gapone, déjà très influent
 . près des ouvriers, et aujourd'hui très populaire et très
@@ -3592,8 +3405,7 @@ qui, par leur nature, ne sont pas au premier plan du
 programme, mais qui éclairent curieusement les cond:
 tions de travail des ouvriers russes ou les relations de
 ceux-ci avec le patronat.
-Le directeur-administrateur de l'usine, Smirnov, ingé-
-nieur des ponts et chaussées, reçut la délégation, — et
+Le directeur-administrateur de l'usine, Smirnov, ingénieur des ponts et chaussées, reçut la délégation, — et
 
 refusa les conditions proposées. D'où continuation de la:
 grève. Lundi soir, à l'extrémité du faubourg de Narva,
@@ -3615,9 +3427,7 @@ ouvriers de l'usine Poutilov: huit heures de travail par
 renvoyer un ingénieur et un contremaître dont on est
 
 Quant au mode des négociations, les ouvriers
-demandent: 1° Création d'une commission mi-adminis-
-
-gués ouvriers; 3° Promesse de la part de l'administration de ne pas appeler la police. Ces trois points sont
+demandent: 1° Création d'une commission mi-adminisgués ouvriers; 3° Promesse de la part de l'administration de ne pas appeler la police. Ces trois points sont
 acceptés; sur le dernier seulement la direction répond
 qu'elle ne peut donner de garantie absolue contre l'intervention de la police.
 
@@ -3632,8 +3442,7 @@ des émissaires à Narva.
 
 le soulèvement ouvrier
 
-Sous l'influence de cette première et énergique agita-
-tion, l'effervescence gagnaïit mercredi matin tout le
+Sous l'influence de cette première et énergique agitation, l'effervescence gagnaïit mercredi matin tout le
 monde ouvrier de Pétersbourg, et la grève prenaït en:
 un clin d'œil des proportions inattendues.
 
@@ -3653,8 +3462,7 @@ Chtiglitz, qui emploient surtout des femmes (8.000
 : ouvriers en tout): les ouvriers de la fabrique d'étoffes
 quittent le travail à neuf heures, ceux de la fabrique defil à onze heures.
 
-Jeudi, 6, était jour de fête, — avec la fameuse béné-
-diction de la Néva et le coup de canon plus fameux
+Jeudi, 6, était jour de fête, — avec la fameuse bénédiction de la Néva et le coup de canon plus fameux
 encore qui, hasard ou préméditation, tira à balle sur la
 tribune du tsar et le Palais d'Hiver.
 
@@ -3665,9 +3473,7 @@ aux sections de l'Union russe ouvrière. Il est évident
 qu'il faut s'attendre maintenant non seulement à une À
 grève générale, mais à d'inquiétantes manifestations.
 
-On commence à signer des résolutions qui ont un carac-
-
-tère à la fois économique et politique. Gapone et les
+On commence à signer des résolutions qui ont un caractère à la fois économique et politique. Gapone et les
 
 représentants des sections rédigent une pétition dont
 
@@ -3694,9 +3500,7 @@ fallait la faire sans armes.
 
 Jeudi soir également, le ministre des finances convoquait au ministère une réunion des patrons des principales usines. Comment voulaient-ils répondre aux
 demandes et aux menaces des grévistes? Il y avait
-quarante assistants, portant la plupart des noms étran-
-
-gers. L'un fut pour les moyens de conciliation, mais le
+quarante assistants, portant la plupart des noms étrangers. L'un fut pour les moyens de conciliation, mais le
 
 représentant d'une fabrique de noir animal ayant dit
 
@@ -3717,8 +3521,7 @@ englobant la fabrique des cartes à jouer de la couronne,
 ouvriers) qui dépend du ministère de la Marine, — les
 manufactures de toiles et étoffes russes Maxwell et
 Pahl (2 à 3.000 ouvriers), — la fabrique de draps Tornton, — la fabrique Nevskistearin, — la fonderie
-, Alexandre, etc. Je vous cite les grandes usines; natu-
-rellement, nombre de petites fermaient aussi.
+, Alexandre, etc. Je vous cite les grandes usines; naturellement, nombre de petites fermaient aussi.
 Dans le faubourg de Vassili-Ostrov (au nord-ouest)
 le mouvement se propageait hier également. Dès le
 : matin on apprenait la cessation du travail à la manufacture de tabacs Laferme (1.000 ouvriers) et à l'imprimerie Wolf (400). Il faut y ajouter l'usine de la Baltique
@@ -3735,8 +3538,7 @@ suite d'un accident inexpliqué. On fit venir de la troupe:
 pour empêcher les ouvriers de partir.
 De Vassili-Ostrov, les grévistes, et avec eux la grève
 passèrent au nord, dans les faubourgs Péterbourgskaia
-et Viborgskaïa. En même temps d'autres se répan-
-daient dans la ville, où le mouvement ne s'était pas
+et Viborgskaïa. En même temps d'autres se répandaient dans la ville, où le mouvement ne s'était pas
 encore fait sentir. Par groupes les ouvriers allaient
 dans les rués, frappaient aux portes des fabriques, des
 ateliers, et ordonnaient de cesser le travail. Toutes les
@@ -3744,9 +3546,7 @@ typographies fermaient: la typographie de l'Académie
 
 des Sciences, la typographie Stasulevitch (qui édite le
 
-Messager d'Europe, revue du parti libéral), la typogra-
-
-phie Ekhardt, les typographies de tous les journaux. Ce
+Messager d'Europe, revue du parti libéral), la typographie Ekhardt, les typographies de tous les journaux. Ce
 
 matin, aucun journal ne paraît, sauf le Journal officiel
 
@@ -3780,9 +3580,7 @@ le prêtre Gapone.
 
 Hier vendredi, Gapone n'a pas parlé dans moins de
 ._ onze meetings. Dans les endroits où la salle était trop
-È - petite, il tenait deux meetings successifs. Il a une élo-
-
-le soulèvement ouvrier
+È - petite, il tenait deux meetings successifs. Il a une élole soulèvement ouvrier
 
 quence populaire qui entraîne tout. Iltient à son auditoire À
 
@@ -3797,12 +3595,9 @@ oui. — Jurez-vous que vous combattrez jusqu'à la mort
 beaucoup d'endroits les assistants juraient sur la croix
 qu'ils faisaient de tout leur cœur le sacrifice de leur vie.
 Gapone obtient par acclamations frénétiques des
-résolutions d'une hardiesse stupéfiante qui vont s'expri-
+résolutions d'une hardiesse stupéfiante qui vont s'exprimer demain dans la pétition au tsar. Par lui, avec lui,
 
-mer demain dans la pétition au tsar. Par lui, avec lui,
-
-la grève sort du domaine purement économique et devient en même temps politique. Les résolutions des banquets libéraux et même des zemstvos pâlissent singuliè-
-rement à côté de celle que la députation ouvrière veut
+la grève sort du domaine purement économique et devient en même temps politique. Les résolutions des banquets libéraux et même des zemstvos pâlissent singulièrement à côté de celle que la députation ouvrière veut
 tenter de présenter demain au tsar. Elle est d'une gravité
 religieuse et dramatique. (1) Elle se termine comme ilsuit:
 
@@ -3847,9 +3642,7 @@ ni du tsar, ni de l'un quelconque des ministres. La
 Dans les milieux libéraux on était fort inquiet.
 Gapone avait promis de venir au journal Nachi Dni
 après sa visite chez Mouraviev. Il ne vint pas. Enfin on
-apprit le résultat de sa démarche. A la fin de l'après119
-
-le soulèvement ouvrier
+apprit le résultat de sa démarche. A la fin de l'aprèsle soulèvement ouvrier
 
 midi un ouvrier apporta le texte de la lettre au ministre
 de l'Intérieur, et en même temps le texte de la pétition
@@ -3884,8 +3677,7 @@ avons paisiblement, et avec foi en lui, irrévocablement
 résolu d'aller vers le Palais d'Hiver; qu'il montre réellement
 sa confiance par des faits et non par des manifestes. à
 
-Une copie de ce qui précède a été dressée comme docu-
-ment justificatif du caractère moral de la pétition et sera
+Une copie de ce qui précède a été dressée comme document justificatif du caractère moral de la pétition et sera
 portée à la connaissance de tout le peuple russe.
 
 120,
@@ -3920,9 +3712,7 @@ les armes, et le bruit court même que des canons sont
 braqués à l'entrée des faubourgs. A l'extrémité de
 chaque pont on a posté un demi-escadron de cavalerie
 
-! etune compagnie d'infanterie. Dans les maisons, les dvor-
-
-niki ont engagé les locataires à faire provision d'eau, de
+! etune compagnie d'infanterie. Dans les maisons, les dvorniki ont engagé les locataires à faire provision d'eau, de
 pétrole, etc. Ils les préviennent aussi qu'ils risquent, en
 sortant, de recevoir des balles, car, de même qu'il y a
 
@@ -3939,8 +3729,7 @@ compléter la première, c'est la même poussée qui continue, — avec des forc
 son raisonnement ni de ses sentiments. On a peine à
 tenir compte de ce qu'on sait pourtant par les témoi-!
 gnages les plus dignes de foi sur l'attitude résolue,
-mais tranquille, des ouvriers. On oublie ou on mécon-
-naît le serment qu'ils ont fait de venir dans un calme
+mais tranquille, des ouvriers. On oublie ou on méconnaît le serment qu'ils ont fait de venir dans un calme
 religieux présenter leur pétition à l'empereur. Le subit
 et grandiose soulèvement de 150.000 ouvriers apparaît
 comme quelque chose de si formidable qu'on sépare
@@ -3975,15 +3764,11 @@ nous autres nous n'avons rien à perdre; nous saurons mourir. » Ailleurs au con
 
 certains endroits des scènes de violences. Un ouvrier
 qui n'avait pas voulu cesser le travail aux ateliers
-de la gare de Varsovie, aurait été tué par ses cama-
-
-rades. Un contremaître qui, dans une typographie,
+de la gare de Varsovie, aurait été tué par ses camarades. Un contremaître qui, dans une typographie,
 avait voulu s'opposer aux grévistes, aurait été saisi
 par ceux-ci et poussé dans une machine qui lui aurait
 broyé la tête. On ne peut ajouter foi à tous les bruits,
-mais on peut encoré moins se défendre d'une curio-
-
-sité pleine d'angoisse dès que quelqu'un apporte une
+mais on peut encoré moins se défendre d'une curiosité pleine d'angoisse dès que quelqu'un apporte une
 Dans une famille où je vais, il se passe une scène
 poignante, qui doit se répéter ailleurs. Une bonne est
 mariée à un ouvrier qui travaille dans une manufacture
@@ -3998,9 +3783,7 @@ le soulèvement ouvrier
 intervention des libéraux
 Pétersbourg, dimanche matin, 9/22 janvier
 
-Il y avait hier soir une assemblée restreinte de libé-
-
-raux aux bureaux du journal Nachi Dni. L'ouvrier qui
+Il y avait hier soir une assemblée restreinte de libéraux aux bureaux du journal Nachi Dni. L'ouvrier qui
 
 a porté la lettre au ministère de l'intérieur est présent.
 On lui demande: « Vos intentions sont-elles tout à fait
@@ -4022,9 +3805,7 @@ limminence d'un affreux massacre. Pouvait-on encore
 
 On résolut d'essayer une suprême démarche. Puisque,
 
-de lui-même, le gouvernement ne disait mot, on enver-
-
-rait près de lui une députation pour le supplier d'inter-;
+de lui-même, le gouvernement ne disait mot, on enverrait près de lui une députation pour le supplier d'inter-;
 venir. On désigna dix délégués, parmi lesquels l'ouvrier
 qui se trouvait présent à la réunion.
 
@@ -4045,14 +3826,12 @@ moment? Qui, en ce moment, a la confiance absolue du
 tsar, la liberté de décider, le pouvoir d'arrêter?
 M. Witte téléphone au prince Mirski. Le prince Mirski
 répond, mais. lui non plus ne peut intervenir. Rien, rien.
-Il est une heure et demie du matin, quand les délé-
-gués reviennent à Nachi Dni. Ils annoncent tristement
+Il est une heure et demie du matin, quand les délégués reviennent à Nachi Dni. Ils annoncent tristement
 que leur démarche a complètement échoué. Le gouver_ nement n'a rien répondu aux ouvriers. Il n'a fait que
 disposer en bataille ses cosaques, ses uhlans, sa garde.
 Les fusils sont prêts.
 Ï n'y avait plus qu'à attendre les événements.
-On organisa rapidement un bureau de renseigne-
-ments. Des jeunes gens doivent se rendre ce matin de
+On organisa rapidement un bureau de renseignements. Des jeunes gens doivent se rendre ce matin de
 très bonne heure dans les faubourgs et reviendront à
 … dix heures faire leur rapport dans une salle qu'on a
 prise pour lieu de rendez-vous.
@@ -4079,15 +3858,13 @@ Les ouvriers de Schlusselbourg seront parmi ceux qui
 é journée jusqu'au quartier central de l'Amirauté et jusqu'au Palais d'Hiver.
 Le témoin ajoute que les ouvriers sont très excités à
 maintenant, appellent à l'aide, demandent des armes.:
-Un autre homme se précipite. Il raconte que deuxca-
-nons passent sur la perspective Litieïny, toute proche
+Un autre homme se précipite. Il raconte que deuxcanons passent sur la perspective Litieïny, toute proche
 on les emmène vers le Palais d'Hiver ou vers le pont de
 Viborg, derrière lequel sont massés 40.000 ouvriers.
 ; y a dans la salle une agitation tumultueuse; on sait
 qu'en cet instant il y a partout des massacres, et on ne
 peut rien, on ne décide rien. Mais on propose tout.
-C'est une succession ininterrompue de discours, quel-
-quefois de dialogues très agressifs. Quelques orateurs
+C'est une succession ininterrompue de discours, quelquefois de dialogues très agressifs. Quelques orateurs
 sont très émus. L'un monte sur une table, et frappant
 
 du pied, lançant les deux mains crispées en avant d'un
@@ -4210,8 +3987,7 @@ On me raconte qu'à deux heures un cortège d'ouvriers
 a gagner la place du Palais d'Hiver. On les a refoulés
 près du Jardin Alexandre où on les a massacrés.
 À trois heures vingt, sur la perspective Nevski, la
-troupe veut refouler le public dans la rue Koniouche-
-naia. Les soldats tirent. Quelques blessés. À
+troupe veut refouler le public dans la rue Koniouchenaia. Les soldats tirent. Quelques blessés. À
 A quatre heures un quart, près de Gostinny Dvor, il y
 a des coups de feu. À
 À quatre heures et demie une charge de uhlans par- à
@@ -4236,8 +4012,7 @@ courts intervalles, s'élèvent des clameurs du côté de
 Kazan. Nous pensons que ce sont les cris des victimes
 ou de la foule épouvantée. Nous voulons avancer, mais
 par la Nevski, c'est impossible. Plus nous allons, plus
-les patrouilles sont nombreuses et les charges fré-
-quentes. La cavalerie balaie le milieu de la chaussée,
+les patrouilles sont nombreuses et les charges fréquentes. La cavalerie balaie le milieu de la chaussée,
 souvent aussi toute la largeur de la perspective, montant avec les chevaux sur les trottoirs et chassant toujours la foule dans la direction opposée au Palais
 d'Hiver. Nous faisons un détour par la rue Michel pour
 déboucher sur la Nevski par le canal Catherine juste en
@@ -4250,12 +4025,9 @@ fratricides! Vous feriez mieux d'aller tirer sur les Japopais! C'est vous qui ê
 Un détachement de fantassins passe, baïonnette au
 … canon. Ils ne menacent point la foule, mais, des trottoirs, celle-ci les conspue furieusement. « Opritchniki!
 (gardes d'Ivan le Terrible). Krovopütsi! (buveurs de
-sang) » Les ofliciers impatientés font des commence-
-
-le soulèvement ouvrier
+sang) » Les ofliciers impatientés font des commencele soulèvement ouvrier
 ments de charges dans des rues transversales par où la
-Vers sept heures, comme nous revenons, nous croi-
-sons un groupe d'ouvriers qui emmènent sur un traîneau
+Vers sept heures, comme nous revenons, nous croisons un groupe d'ouvriers qui emmènent sur un traîneau
 les corps de deux des leurs tués près du Pont de
 Police. Les ouvriers chantent les prières des morts et
 demandent aux passants de se découvrir.
@@ -4320,7 +4092,7 @@ Le ex-chef de la police de Moscou et récemment objet d'un
 général de Pétersbourg pendant la durée des troubles.
 non: Le gouvernement sait qu'il peut se fier à lui pour
 ES prendre des mesures énergiques.
-1 Ni lundi, ni hier, les massacres n'ont recommencé, au
+Ni lundi, ni hier, les massacres n'ont recommencé, au
 TU moins dans le centre de la ville, car on est assez mal
 de je renseigné sur ce qui se passe dans certains faubourgs.
 te Si les soldats ne tirent plus, cela ne veut pas dire néanDr 1 moins que les violences aient cessé. À
@@ -4508,9 +4280,7 @@ dvorniki et fait d'énormes provisions dès samedi soir.
 Certains avaient acheté jusqu'à de la farine, beaucoup
 
 de servantes sachant pétrir et cuire le pain. Malgré nos À
-recommandations, Katia, qui est naturellement insou-
-
-ciante, n'a consenti que lundi soir à se méttre en quête,
+recommandations, Katia, qui est naturellement insouciante, n'a consenti que lundi soir à se méttre en quête,
 et c'est pourquoi, le pétrole manquant décidément tout
 à fait, je suis contraint d'écrire à la lueur triste d'une ES
 
@@ -4539,8 +4309,7 @@ fautes de tactique qu'avait commises la royauté fran-
 
 - çaise dans les journées de soulèvements populaires!...
 
-Deux réunions avaient lieu lundi soir parmi les libé-
-raux: l'une privée, où l'on discutait les événements et
+Deux réunions avaient lieu lundi soir parmi les libéraux: l'une privée, où l'on discutait les événements et
 les mesures à prendre, fut troublée par l'arrivée de la
 police qui, sur la protestation énergique du maïtre de
 la maison, dut se contenter d'accepter la signature des
@@ -4551,9 +4320,7 @@ responsable des odieux massacres de la veille.
 
 Dans la nuit de lundi à mardi, on procédait à des
 arrestations parmi les libéraux. Le gouvernement était
-persuadé, paraît-il, qu'il allait saisir les chefs du com-
-
-plot révolutionnaire. On arrêta donc presque tous ceux
+persuadé, paraît-il, qu'il allait saisir les chefs du complot révolutionnaire. On arrêta donc presque tous ceux
 qui avaient fait partie de la délégation envoyée samedi
 soir au ministre de l'intérieur pour tâcher de prévenir
 
@@ -4572,19 +4339,14 @@ dernier, dans Pétersbourg, une offensive qui les a
 entendue. Les ouvriers ne bougeront plus. L'épouvan-
 é table souvenir des fusillades, la misère, la famine les
 ramèneront à la raison, c'est-à-dire au silence.
-C'est maintenant le tour des libéraux. Le gouverne-
-ment lance contre eux ses troupes policières et administratives. encore, victoire complète; vraiment, les
+C'est maintenant le tour des libéraux. Le gouvernement lance contre eux ses troupes policières et administratives. encore, victoire complète; vraiment, les
 temps sont heureux pour le tsarisme! En Mandchourie,
-l'armée japonaise n'avance plus, et voici que les enne-
-mis intérieurs sont massacrés ou emprisonnés. Par
+l'armée japonaise n'avance plus, et voici que les ennemis intérieurs sont massacrés ou emprisonnés. Par
 ï centaines on a emporté les morts dans les cimetières,
 : on les a enterrés avec discrétion dans les fosses com-
-: munes. On emmène maintenant en prison les plus com-
-promis des Russes qui.ont encore l'audace de respirer
+: munes. On emmène maintenant en prison les plus compromis des Russes qui.ont encore l'audace de respirer
 ; l'air de Pétersbourg… à
-Le moment est sinistre. La nuit dernière, la nuit pré-
-
-cédente, de neuf heures du soir à sept heures du matin,
+Le moment est sinistre. La nuit dernière, la nuit précédente, de neuf heures du soir à sept heures du matin,
 perquisitions, arrestations. On perquisitionne dans les
 rédactions des journaux, à Nacha Jizn, à Nachi Dni.
 On perquisitionne chez les particuliers. On arrête dans
@@ -4640,16 +4402,14 @@ l'appartement ont été inondés de son sang. La jeune
 fille qui me raconte cette scène en a gardé un souvenir
 terrifiant. Elle était alors seule à la maison avecses
 frères, la mère étant partie pour la journée à un poste
-de secours. C'est un étudiant en médecine de leurs amis «; qui avait apporté les blessés. Il était parti aussitôt pour
+de secours. C'est un étudiant en médecine de leurs amis qui avait apporté les blessés. Il était parti aussitôt pour
 en rapporter d'autres. Il n'est pas revenu. Il a reçu lui
 même une balle dans le cou. On a trouvé le lendemain À
 son cadavre à la morgue d'un hôpital.
 J'ai quitté cette famille après minuit. A cinq heures
 du matin ils ont été réveillés par le dvornik qui sommait
 la bonne d'ouvrir « parce qu'il y avait une fuite d'eau À
-dans l'appartement ». La bonne ouvre. Derrière le dvor-
-
-nik apparaît la police. La perquisition commence. On
+dans l'appartement ». La bonne ouvre. Derrière le dvornik apparaît la police. La perquisition commence. On
 fait bien les choses. Il y a douze policiers, dont deux
 femmes. Il paraît qu'on pense découvrir dans l'appar-:
 tement un dépôt de bombes. Un policier qui aperçoit
@@ -4755,8 +4515,7 @@ V'R lui-même.
 je D'ailleurs ce que la police saisit ne satisfait pas le
 à gouvernement; la plupart des documents se rapportent
 aux journées qui suivirent les massacres. Ce qu'il drait trouver, c'est la trace d'un complot révolution-
-À naire, la preuve d'une conspiration longuement prépa-
-rée entre les libéraux et les ouvriers. Il n'y réussira pas, « parce qu'en fait cette alliance n'a pas existé. Les
+À naire, la preuve d'une conspiration longuement préparée entre les libéraux et les ouvriers. Il n'y réussira pas, « parce qu'en fait cette alliance n'a pas existé. Les
 ouvriers se sont levés en masse par solidarité de classe
 et pour des raisons purement économiques tout d'abord. à
 Ils ont marché à la voix d'un prêtre parce que ce prêtre
@@ -4802,15 +4561,12 @@ ont enlevé leurs barricades de planches. Les troupes
 me campent plus sur la place du Palais d'Hiver. Mais
 qui donc est dupe de ce calme apparent? Qui peut ne
 pas se souvenir? Il n'y à pas une âme, pas une conScience qui goûte la paix intérieure. Douleur, haine,
-crainte, défiance, — chez quelques-uns remords peut147
-
-le soulèvement ouvrier
+crainte, défiance, — chez quelques-uns remords peutle soulèvement ouvrier
 être, — voilà pour le moment et pour longtemps les
 seuls sentiments que connaisse la société russe bouleversée. Le mouvement révolutionnaire aura été fortifié
 : par une répression sauvage; ces candides manifestants
 du 22 janvier auront été instruits par une expérience
-douloureuse qui les maintiendra dans une haïne irré-
-conciliable envers leurs exploiteurs, et qui les jette
+douloureuse qui les maintiendra dans une haïne irréconciliable envers leurs exploiteurs, et qui les jette
 : dans une opposition politique résolue en face de leurs
 Ce péril est évident, imminent; l'assemblée des
 zemstvos de Novgorod, réunie quelques jours après les
@@ -4828,8 +4584,7 @@ On a parlé de guerre civile à propos des journées
 sanglantes; à combien plus juste titre peut-on nommer
 guerre civile les dissensions que le gouvernement cher
 che maintenant à soulever pour détourner de lui las
-colère populaire! Les agents de la police secrète ré-
-pandent parmi les ouvriers le bruit que le tsar aurait
+colère populaire! Les agents de la police secrète répandent parmi les ouvriers le bruit que le tsar aurait
 été tout disposé à recevoir leur pétition au Palais
 d'Hiver, et qu'il n'en a été détourné que par la déco
 verte d'un complot machiné contre sa vie par les étu
@@ -4877,19 +4632,17 @@ Servir le gouvernement en excitant une partie dela
 
 ARE même temps de la force et de la perspicacité du gouM. vernement lui-même! Et quand on songe que d'autre
 part les massacres du 22 janvier ont creusé entre le
-à peuple et l'armée un fossé qui ne peut aller qu'en s'élar-
-gissant, quand on songe aux sauvageries commises par
+à peuple et l'armée un fossé qui ne peut aller qu'en s'élargissant, quand on songe aux sauvageries commises par
 les cosaques et aux huées dont la foule accueillait les
 Ê troupes, on peut se demander à bon droit quels déchi-
 à rements intérieurs menacent la Russie pendant qu'elle
-à: s'épuise dans une guerre lointaine et infructueuse.
+s'épuise dans une guerre lointaine et infructueuse.
 Le journal Nachi Dni, qui paraît aujourd'hui pour la « première fois, et qui, sans aucun doute, vit ses derniers
 à jours à cause de l'attitude résolue qu'il ose prendre,
 demande qu'on avance les preuves d'un autre bruit
 répandu dernièrement pour semer la défiance; il
 déclare injurieux pour le peuple russe de prétendre que
-le mouvement révolutionnaire a été suscité et soutenu « 1 par les 18 millions d'un syndicat anglo-japonais. (1) Lan-
-cer une pareille nouvelle sans autre appui que les télé-
+le mouvement révolutionnaire a été suscité et soutenu « 1 par les 18 millions d'un syndicat anglo-japonais. (1) Lancer une pareille nouvelle sans autre appui que les télé-
 54 grammes suspects d'une agence sans autorité ne suffit
 pas; exploiter dans un but politique les sentiments de
 de haïne de race ou de nationalité, qu'on affuble pour la
@@ -4897,9 +4650,7 @@ je (1) Voir aux annexes.
 
 circonstance du nom de patriotisme, c'est tromper vile-
 
-… ment les ignorants et impudemment calomnier le prolé-
-
-tariat qui s'éveille à la conscience de ses droits. Si les
+… ment les ignorants et impudemment calomnier le prolétariat qui s'éveille à la conscience de ses droits. Si les
 millions ont existé, il faut prouver qui les a donnés et
 qui les a reçus; sinon la calomnie retombera sur ceux
 qui en recherchent le bénéfice.
@@ -4948,12 +4699,10 @@ Déconsidérer Gapone, discréditer les intellectuels
 auprès des ouvriers, répandre des bruits qui sèment la
 défiance et trompent ou affolent l'opinion publique, « telle est la triste et inquiétante besogne à laquelle se
 consacrent les agents de la police secrète. Mais les
-effets pourraient en être tout autres que le gouverne-
-ment russe ne s'y attend; un argument reconnu faux se
+effets pourraient en être tout autres que le gouvernement russe ne s'y attend; un argument reconnu faux se
 retourne avec une singulière vigueur contre celui qui en
 fait usage. Et si le peuple prend l'habitude de discuter
-les actes et les paroles de ses gouvernants, s'il recon-
-naît qu'il est trompé non par ceux qu'on lui désigne
+les actes et les paroles de ses gouvernants, s'il reconnaît qu'il est trompé non par ceux qu'on lui désigne
 officiellement, mais par ceux qui se font délateurs et À
 
 calomniateurs, il tirera de l'épreuve douloureuse du
@@ -4972,9 +4721,7 @@ La force a-t-elle raison d'un seul coup de l'agitation constitutionnelle et du s
 Instruite par les fautes des rois découronnés, la monarchie russe a-t-elle recouru à temps à la brutalité pour
 mater la révolution?
 
-La lutte est si peu terminée que la vraie lutte au con-
-
-traire semble dater du dimanche soir. Les proclamations, résolutions et adresses se multiplient en réponse
+La lutte est si peu terminée que la vraie lutte au contraire semble dater du dimanche soir. Les proclamations, résolutions et adresses se multiplient en réponse
 
 C'est d'abord un appel rédigé par Gorki et adressé
 aux officiers. Il fut dès le dimanche soir à la réunion
@@ -5001,12 +4748,11 @@ masses sont asservies à un labeur qui passe leurs forces, à
 À L'énergie personnelle et l'activité nationale sont annihilées
 par la tutelle bureaucratique et par l'arbitraire qui envahit
 ‘AR tout. Il n'est pas possible de continuer de vivre ainsi. Il;
-ou faut au peuple russe la lumière, il lui faut la liberté. Autre-
-ment, il ne peut être une grande nation, il ne peut défendre
+ou faut au peuple russe la lumière, il lui faut la liberté. Autrement, il ne peut être une grande nation, il ne peut défendre
 15: son droit à l'existence. a
 Il n'est qu'une issue pour sortir des conditions difficiles
 ; où se trouve notre pays. Seul le peuple est capable de re-
-é médier à ses misères et de guérir ses blessures. Mais il faut À:
+é médier à ses misères et de guérir ses blessures. Mais il faut
 1 pour cela à la Russie une loi fondamentale nouvelle; il lui
 Je faut une Constitution. Les représentants des zemstvos et
 1 les municipalités, les classes libérales et les commerçants,
@@ -5014,21 +4760,17 @@ jeunesse étudiante et les masses travailleuses, — la nation
 entière a non seulement compris, mais exprimé en for- À
 a mules claires ses revendications fondamentales. Le senti- ni
 de ment qui s'est emparé de tous les esprits est trop fort pour
-Dex, qu'aucune contrainte puisse l'étouffer. Il s'est traduit au de-
-hors, il continuera de s'exprimer, malgré tout. Il ne se taira à
+Dex, qu'aucune contrainte puisse l'étouffer. Il s'est traduit au dehors, il continuera de s'exprimer, malgré tout. Il ne se taira à
 plus désormais, quand même on tenterait, à plusieurs re-
 s'en prises, de l'étouffer dans le sang. de
 L'aspiration à la liberté ne peut s'éteindre, parce que sans
 4 y la liberté il n'est plus possible de vivre. Tous les pays civi- de
 lisés l'ont conquise et en jouissent. C'est elle qui a fait la
 SEX force du pays contre lequel nous menons une guerre mal-:
-Lou heureuse. Seul, le gouvernement russe se refuse à com-
-te; prendre, ou est impuissant à comprendre ce qu'exige l'his- Ni
+Lou heureuse. Seul, le gouvernement russe se refuse à comte; prendre, ou est impuissant à comprendre ce qu'exige l'his- Ni
 toire. Ce gouvernement à courtes vues aurait été depuis
 longtemps déjà rejeté hors de la voie de l'histoire, sile
-peuple russe, affaibli par la misère, par l'ignorance et la ser-
-
-vitude, n'avait trouvé devant lui, dressées contre lui, ses
+peuple russe, affaibli par la misère, par l'ignorance et la servitude, n'avait trouvé devant lui, dressées contre lui, ses
 propres forces, les armes à la main.:
 
 Oui, ses propres forces! Vous avez été instruits aux
@@ -5045,9 +4787,7 @@ d'hommes, voulaient remettre au tsar une pétition. C'était
 un acte pacifique. Les ouvriers avaient juré qu'ils assureraient l'ordre, et qu'ils ne recourraient à la force que pour
 se défendre. Le gouvernement savait que la sécurité publique n'était pas menacée. Une députation de dix hommes,
 — dont quelques-uns ont signé cet appel, — fut envoyée par
-nous, dans la soirée de samedi, vers le ministre de l'inté-
-rieur, vers son adjoint, vers le président du Comité des mi-
-nistres. Nos délégués voulaient informer le gouvernement
+nous, dans la soirée de samedi, vers le ministre de l'intérieur, vers son adjoint, vers le président du Comité des ministres. Nos délégués voulaient informer le gouvernement
 de la situation exacte. Ils supplièrent que l'on évität tout
 conflit sanglant. Mais leurs efforts furent vains. Le généralmajor Rydzevski déclara que le gouvernement n'avait aucun
 besoin ni de notre témoignage, ni de notre prière, ni de
@@ -5088,8 +4828,7 @@ chez notre tsar. J'ai écrit moi-même une lettre au tsar que
 vaillante. Nous lui avons garanti au prix de notre propre
 vie l'intégrité de sa personne et quoi! le sang innocenta
 ; néanmoins été versé. Cette bête féroce de tsar! Cette bête
-féroce de isar, ses fonctionnaires concussionnaires, dépouil-
-leurs du peuple, consciemment, ont voulu être et se sont
+féroce de isar, ses fonctionnaires concussionnaires, dépouilleurs du peuple, consciemment, ont voulu être et se sont
 ; faits meurtriers de nos frères sans armes, de leurs femmes
 et de leurs enfants. Les balles des soldats du tsar qui ont
 ; tué près de la barrière de Narva les ouvriers qui portaient
@@ -5166,8 +4905,7 @@ L'ordre des avocats de Pétersbourg ne peut rester indiffé-
 tions du 21 novembre des avocats de Pétersbourg, et contre
 ceux-là précisément qui sont allés pour exposer au gouver4 nement ces réclamations ouvertement et pacifiquement.;
 
-L'ordre des avocats ne peut pas ne pas exprimer son indi-
-gnation au sujet de la conduite des officiers sur l'ordre
+L'ordre des avocats ne peut pas ne pas exprimer son indignation au sujet de la conduite des officiers sur l'ordre
 desquels les soldats ont été conduits pour fusiller les à
 citoyens paisibles et attaquer comme des ennemis des gens
 venus pour exprimer les besoins du peuple. A la suite de
@@ -5187,8 +4925,7 @@ réunion où ils nommèrent une commission chargée, dit
 l'ordre du jour:
 1° De faire un exposé des événements actuels du 20 novembre/ 3 décembre au 9/22 janvier et jours suivants;
 2° De déclarer qu'il est absurde de traiter les ouvriers de
-révoltés, puisque les intellectuels ont présenté des revendi-
-cations semblables dans leurs banquets;
+révoltés, puisque les intellectuels ont présenté des revendications semblables dans leurs banquets;
 - mouvement ouvrier a été suscité par l'argent anglais; c'est
 vouloir ïrriter les ouvriers contre les intellectuels, et les
 ingénieurs se trouvent les plus exposés;
@@ -5209,7 +4946,7 @@ milieu scolaire; nous ne pouvons y répondre que par un
 à cri d'indignation et de terreur pour flétrir un état de choses Le
 1 déshonorant qui rend possible de pareils meurtres de
 9 citoyens paisibles. Tous les côtés de notre vie et de la vie
-à; de toute la Russie, jusqu'au paisible travail scientifique, sont «
+de toute la Russie, jusqu'au paisible travail scientifique, sont «
 profondément ébranlés. Comme citoyens, comme travail.
 À leurs, nous affirmons encore une fois que la seule issue;
 possible de la situation actuelle consiste en la réunion des À
@@ -5264,11 +5001,8 @@ bureaucratie n'aura pas cédé la place, tant que des repré- ne
 ne sentants du peuple, librement élus, librement assemblés,
 LA n'auront pas fondé les bases élémentaires d'une société
 
-Es … Non, rien ne saurait affaiblir les couleurs de cauche-
-mar de cette vision devant laquelle la pensée reste inter-
-dite, de cette vision d'hommes sans armes tombant morts,
-en plein jour, en pleine capitale. Et notre unique consola-
-tion, c'est le travail solidaire et passionné, le travail repris
+Es … Non, rien ne saurait affaiblir les couleurs de cauchemar de cette vision devant laquelle la pensée reste interdite, de cette vision d'hommes sans armes tombant morts,
+en plein jour, en pleine capitale. Et notre unique consolation, c'est le travail solidaire et passionné, le travail repris
 4 avec une énergie décuplée, pour empêcher, enfin, que se NL:
 4 reproduisent des événements sans exemple dans notre
 histoire, — à moins de remonter jusqu'au seizième siècle.
@@ -5286,12 +5020,10 @@ le commencement, et la Russie n'en est pas encore arri-
 LEA conseillers municipaux; ils ne peuvent se réunir. Leur
 banquet, qui devait avoir lieu à Moscou le 12/25 janvier
 pour le 150° anniversaire de la fondation de l'Université
-de Moscou, a été interdit. Mais on fait circuler mainte-
-nant une résolution signée de 342 savants et professeurs
+de Moscou, a été interdit. Mais on fait circuler maintenant une résolution signée de 342 savants et professeurs
 
 de toute la Russie, qui devait précisément être lue à ce sit
-banquet et qui proteste énergiquement contre l'intoléra-
-ble violation actuelle de tous les droïts non seulement
+banquet et qui proteste énergiquement contre l'intolérable violation actuelle de tous les droïts non seulement
 de l'homme d'études dans l'université, mais de l'individu
 dans la société.:
 A Moscou encore, les médecins de la province, réunis
@@ -5315,8 +5047,7 @@ font que fortifier les tendances belliqueuses, amènent une Cite
 ruine plus complète encore de la nation et retardent la satis-;
 faction des besoins les plus urgents. Il faut donc mettre fin à
 la guerre aussitôt que possible. a
-Nous exprimons le vœu de voir les zemstvos ne plus don-
-ner d'argent pour l'envoi de produits pharmaceutiques en
+Nous exprimons le vœu de voir les zemstvos ne plus donner d'argent pour l'envoi de produits pharmaceutiques en
 - Extrême-Orient. Ainsi commencerait une opposition effec-
 .… tive des zemstvos contre cette guerre qui est étrangère aux à
 intérêts du peuple russe et dangereuse pour eux.
@@ -5343,8 +5074,7 @@ politique et économique de la Russie, les députés du zemstvo
 de Novgorod, obéissant à la voix de leur conscience et de 1}
 leur devoir devant la patrie, déclarent la nécessité immé- il
 diate d'appeler les représentants librement élus par le peuple
-pour mettre, par leur moyen, notre patrie sur la voie du dé-
-veloppement pacifique fondé sur les principes du droit, de Ll'appui mutuel du gouvernement et du peuple;
+pour mettre, par leur moyen, notre patrie sur la voie du développement pacifique fondé sur les principes du droit, de Ll'appui mutuel du gouvernement et du peuple;
 Les députés du zemstvo du gouvernement de Novgorod
 prient instamment le président de l'assemblée, prince Gali-.
 tsine, de présenter la déclaration actuelle au Ministre de
@@ -5398,10 +5128,8 @@ qu'à deux heures. Il n'y eut, cette fois, ni troupes, ni
 police. Il semblait du moins qu'il n'y en eût pas. On les
 avait dissimulées.
 
-4 4 Après avoir vécu l'angoisse des journées révolution-
-naires, je viens de passer dix jours à recueillir et à
-grouper des renseignements précis et sûrs. Je vou-
-drais tâcher de dégager, dans son ensemble et dans le
+4 4 Après avoir vécu l'angoisse des journées révolutionnaires, je viens de passer dix jours à recueillir et à
+grouper des renseignements précis et sûrs. Je voudrais tâcher de dégager, dans son ensemble et dans le
 … détail, le caractère de ce grandiose mouvement ouvrier
 de Pétersbourg, dont la répercussion ébranle encore en
 ce moment l'immense pays russe. Je n'ai pas la préten- » tion d'apporter ici une vérité définitive et complète sur
@@ -5438,9 +5166,7 @@ et le gouvernement avait deviné en lui un homme assez
 dangereux pour chercher à l'accaparer. Gapone fut
 nommé aumônier des prisons, puis reçut de l'argent de
 Plehve pour organiser la « Ligue des ouvriers contre la
-propagande politique dont le titre indique suffisam-
-ment l'esprit. C'est cette ligue qu'on appelle plus géné-
-ralement maintenant la « Société des ouvriers russes ».
+propagande politique dont le titre indique suffisamment l'esprit. C'est cette ligue qu'on appelle plus généralement maintenant la « Société des ouvriers russes ».
 Gapone en fut nommé président. La société engloba
 peu à peu la majeure partie de la masse ouvrière, et
 pino, ville industrielle située à 30 kilomètres). Ce fut
@@ -5449,7 +5175,7 @@ que l'organisation devint puissante. Les social-démo-
 
 44 crates en comprirent les premiers l'importance, et ils
 cherchèrent à se rapprocher de Gapone, ou plutôt à
-Ù: rapprocher d'eux Gapone et ses ouvriers. Il y eut des
+rapprocher d'eux Gapone et ses ouvriers. Il y eut des
 entrevues. Gapone prêchait aux siens la lutte sur le terrain purement économique. On chercha, — dès le mois
 d'octobre, — à le persuader que l'action politique était
 nécessaire pour aboutir. Il ne voulait rien entendre. On
@@ -5462,26 +5188,21 @@ On peut être sûr qu'il ne s'y décida qu'après mûre
 +1 réflexion. Bien plus, on peut être sûr qu'il ne se laissa
 pas entraîner par une idée nouvelle sans en avoir étudié
 M. l'effet dans la réalité. Gapone était un homme pratique.
-laissa ou il fit parler, ou il parla lui-même, incidem-
-ment, des questions politiques dans les réunions qui
+laissa ou il fit parler, ou il parla lui-même, incidemment, des questions politiques dans les réunions qui
 eurent lieu de la fin de décembre au 9 janvier. Il tâtait
 le terrain, et il put constater que les ouvriers, sous la
-lente et opiniâtre action des social-démocrates, et peut-
-être aussi sous l'influence de la presse libérale, n'étaient
-{pas absolument réfractaires à admettre les revendica-
-tions politiques. Cependant au moment décisif, il était
+lente et opiniâtre action des social-démocrates, et peutêtre aussi sous l'influence de la presse libérale, n'étaient
+{pas absolument réfractaires à admettre les revendications politiques. Cependant au moment décisif, il était
 é capital de savoir si on adjoindrait un programme poli-
 ‘tique au programme économique dans la pétition au
-tsar. Dès le 5, la question fut discutée, mais franche-
-je. ment cette fois, dans les réunions des sections. L'idée
+tsar. Dès le 5, la question fut discutée, mais francheje. ment cette fois, dans les réunions des sections. L'idée
 {uit du progrès. Gapone attendait qu'elle s'imposât. Le
 : 716, dans la journée, à Vassili-Ostrov, il convoqua une
 Leu assemblée de 20 délégués (2 par section) de la Société
 
 enquête sur les journées révolutionnaires
 des ouvriers russes. Plusieurs orateurs demandèrent.
-qu'on joignît les revendications politiques aux revendi-
-cations économiques. Gapone mit la question aux voix.
+qu'on joignît les revendications politiques aux revendications économiques. Gapone mit la question aux voix.
 . Il y eut 14 pour. Gapone était décidé.
 Il y a d'autres preuves de cet esprit pratique de
 Gapone, qui le faisait se diriger non d'après ses idées,
@@ -5548,8 +5269,7 @@ lui, ils ne vivent pas comme lui. A Pétersbourg,
 comme ailleurs, — les ouvriers habitent des faubourgs à
 pauvres; ils ne passent point près du Palais d'Hiver
 sans de bonnes raisons pour un tel dérangement. Ils
-m'ont ni le goût, ni l'habitude, ni les moyens de se cou-
-cher régulièrement à quatre heures du matin pour discuter des questions politiques et voter des résolutions.
+m'ont ni le goût, ni l'habitude, ni les moyens de se coucher régulièrement à quatre heures du matin pour discuter des questions politiques et voter des résolutions.
 S'ils veillent la nuit, c'est que sans doute les minutes
 sont précieuses et qu'il faut se concerter pour l'action
 du lendemain. Ils ne seraient pas restés debout la nuit
@@ -5559,8 +5279,7 @@ peur des balles; ils ne regrettent pas le sang versé.
 Gapone leur écrit aussitôt après le massacre, qu'il faudra
 venger les morts, que le sang est le prix de la liberté.
 Les libéraux frémissent d'horreur en présence des massacres; malgré toutes les persécutions, malgré tous les
-mécomptes qu'ils ont éprouvés, ils espèrent en une révo-
-lution pacifique. L'un d'entre eux, qui rencontra Gapone
+mécomptes qu'ils ont éprouvés, ils espèrent en une révolution pacifique. L'un d'entre eux, qui rencontra Gapone
 le soir du 9 janvier, lui dit en parlant de tout le sang
 versé dans la journée: « Comme cela est horrible! » Et
 il est épouvanté du calme sérieux avec lequel Gapone
@@ -5605,8 +5324,7 @@ enquête sur les journées révolutionnaires
 
 que celui d'un témoin qui suivit de près les événements
 au faubourg de Vassili Ostrov et eut la conscience d'en
-noter sur le champ les détails; j'en donne ici intégrale-
-ment le texte:
+noter sur le champ les détails; j'en donne ici intégralement le texte:
 
 « Le 8 janvier, à dix heures du soir, je vais à la réu-
 ,nion des ouvriers à Vassili-Ostrov, à la quatrième ligne.
@@ -5627,8 +5345,7 @@ coin de la rue je rencontre un groupe de dvorniki ou
 mouchards, qui disent en riant: « Eh bien, ils seront joli- à
 ment écrabouillés aujourd'hui. » Vers dix heures la porte.
 de la réunion s'ouvre et nous entrons. La foule est dans Es
-un état particulièrement calme. On sent une union ami-
-cale de sentiments entre tous. Il y a aussi des femmes,
+un état particulièrement calme. On sent une union amicale de sentiments entre tous. Il y a aussi des femmes,
 des jeunes et des vieilles. La salle est comble. On se
 
 ; tient debout sur les bancs et sur les fenêtres. Un orateur
@@ -5739,7 +5456,7 @@ AU « Ce n'est pas encore bien le temps de chanter cette
 1 prière. Il ne faudrait la chanter que si le tsar nous
 1 reçoit. » On sort dans la rue pour donner place à un
 « L'autre auditoire entre. De nouveau on chante le
-À, Pater Noster avec le même sentiment pieux, avec une
+Pater Noster avec le même sentiment pieux, avec une
 pensée secrète à la mort. A tous les moments on voyait
 la foule regarder par les fenêtres avec une grande exci-
 : tation: QIl n'y a pas encore assez de monde! » L'orateur principal monte encore à la tribune et dit: « Camax rades, vous savez donc pourquoi nous allons? —
@@ -5767,7 +5484,7 @@ marchons pour une grande cause et nous pouvons en
 Appelez donc tous ceux qui veulent aller avec nous. Ne
 repoussez personne. Allons! » Tout le monde sort.
 « Foule énorme qui occupe toute la rue, de la petite
-4 Perspective à la moyenne Perspective. On tâche d'aller
+Perspective à la moyenne Perspective. On tâche d'aller
 en rangs serrés. Il est à peu près midi. On rencontre
 4 des cosaques sabre au clair, sur la quatrième ligne.
 Quand nous regardons en arrière, nous voyons qu'une
@@ -5791,8 +5508,7 @@ enquête sur les journées révolutionnaires
 
 sous les chevaux. Mais ceux-ci repoussent la foule et la
 séparent des victimes, pour qu'on ne les voie pas. La
-foule s'arrête, indignée et terrifiée. Les femmes commen-
-cent à reprocher aux soldats d'avoir frappé leurs proj ches, d'avoir maltraité des femmes désarmées, tandis
+foule s'arrête, indignée et terrifiée. Les femmes commencent à reprocher aux soldats d'avoir frappé leurs proj ches, d'avoir maltraité des femmes désarmées, tandis
 qu'ils fuient devant les Japonais! Quelques cosaques
 ont l'air confus. Les autres, en entendant les cris de:
 « Mais vous aussi vous avez pourtant des femmes et
@@ -5806,21 +5522,15 @@ est resté un ouvrier. Il a la tête en sang. Il a été frappé
 d'un coup de sabre. Deux étudiants le relèvent et l'em-
 
 : mènent par le bras. C'est un vieil ouvrier, et, à ce qu'il
-me semble, l'orateur principal de la réunion. Confusé-
-
-ment, la foule avance ou recule. On veut revenir à la
+me semble, l'orateur principal de la réunion. Confusément, la foule avance ou recule. On veut revenir à la
 
 À réunion, mais on ne s'y décide pas, par crainte d'une
 
 4 ment des proclamations des social-démocrates. La foule
 
-les ramasse et les lit avidement. Il y a aussi des procla-
+les ramasse et les lit avidement. Il y a aussi des proclamations socialistes révolutionnaires. On veut savoir ce
 
-mations socialistes révolutionnaires. On veut savoir ce
-
-qui se passe dans les autres faubourgs; on envoie plu-
-
-sieurs personnes aux nouvelles. Une partie de la foule,
+qui se passe dans les autres faubourgs; on envoie plusieurs personnes aux nouvelles. Une partie de la foule,
 
 très excitée, crie maintenant: « Défendons-nous! Allons
 
@@ -5828,18 +5538,13 @@ chercher des armes! » Et elle se rend à la 16° ligne pour
 
 y piller un magasin d'armes. Ce sont des jeunes gens,
 
-pour la plupart, qui s'en vont ainsi. À tous les carre-
-
-fours il y a d'énormes attroupements. Bien que très ex-
-
-citées, beaucoup de femmes ne prennent déjà plus part
+pour la plupart, qui s'en vont ainsi. À tous les carrefours il y a d'énormes attroupements. Bien que très excitées, beaucoup de femmes ne prennent déjà plus part
 
 à la manifestation. On entend de partout des cris de
 
 colère. Un jeune homme raconte que pendant la charge
 
-un cosaque a laissé tomber son sabre; plusieurs ma-
-nifestants ayant voulu le ramasser se sont coupés
+un cosaque a laissé tomber son sabre; plusieurs manifestants ayant voulu le ramasser se sont coupés
 les mains, — les sabres avaient été affilés. Enfin, quelqu'un le prend et dit: « C'est la première arme enlevée
 aux soldats! » Cette parole plaît à la foule et on crie:
 « Oui, évidemment, il faut leur enlever leurs armes. »
@@ -5865,13 +5570,11 @@ Quelqu'un dit: « Comme ce serait bien s'il n'y avait
 point de troupes! Pourquoi nous frappez-vous? — Ce
 Rest pas nous qui le voulons; ce sont les officiers qui
 ordonnent! — Mais les officiers ne peuvent rien sans
-vous! — Et si nous n'obéissons pas, nous serons fusil-
-lés! » On crie encore: « Vous fuyez devant les Japo1t
+vous! — Et si nous n'obéissons pas, nous serons fusillés! » On crie encore: « Vous fuyez devant les Japo1t
 
 enquête sur les journées révolutionnaires
 
-nais, mais devant nous, désarmés, vous êtes des hé-
-ros! » Quelques ‘soldats paraissent confus. Un peu plus
+nais, mais devant nous, désarmés, vous êtes des héros! » Quelques ‘soldats paraissent confus. Un peu plus
 loin un soldat crie grossièrement à un ouvrier qui lui
 fait des reproches: Si l'on m'ordonne de tuer mon
 père, je le tuerai. J'ai donné mon serment. Va-t-en, ou
@@ -5965,17 +5668,14 @@ avait renoncé à poursuivre des études libérales déjà avancées, pour entre
 frère cadet, mieux doué, de faire lui-même ces études.
 Sacrifice aujourd'hui inutile. On a prévenu immédiatement la mère de Savinkine. Elle a fait violence à sa douleur, et a dit simplement: « Je suis fière que mon fils
 ait reçu huit balles. Il a sauvé sept de ses camarades. »
-Les étudiants de l'Institut technologique ont se procurer le paletot de Savinkine, criblé de balles. Ils gar-
-
-deront précieusement cette relique funèbre.
+Les étudiants de l'Institut technologique ont se procurer le paletot de Savinkine, criblé de balles. Ils garderont précieusement cette relique funèbre.
 
 Voici maintenant, à propos de la naïveté et du calme
 des manifestants, le témoignage non moins caractéristique d'un jeune homme qui se rendit au faubourg de
 Schlusselbourg, le dimanche matin. Il arrive à la maison
 de réunion des ouvriers, dès six heures et demie.
 
-; « Allez, allez, camarade! lui dit le gardien. Soyez tran-
-quille. Nous arriverons. La police ne dira rien. » Les
+; « Allez, allez, camarade! lui dit le gardien. Soyez tranquille. Nous arriverons. La police ne dira rien. » Les
 ouvriers se rassemblent peu à peu; ils prennent du thé;
 ils sont gais. Survient l'un d'eux qui dit: « Je suis allé
 hier soir chez mon frère qui est gendarme. IL m'a dit
@@ -5997,12 +5697,10 @@ blessés peut-être; il faut prévoir des accidents.
 4 moment où il se heurte aux barrages, un vieillard court
 en avant, se jette à genoux et supplie les soldats:
 « Comment voudriez-vous tuer vos frères? » Mais les
-troupes avancent. Le vieillard est piétiné sous les che-
-vaux ainsi que ceux qui sont en tête du cortège. Les
+troupes avancent. Le vieillard est piétiné sous les chevaux ainsi que ceux qui sont en tête du cortège. Les
 … manifestants brisent une porte cochère et s'échappent
 … vers la Néva. On ne tire pas à balles sur eux; on ne les
-A poursuit pas. En passant sur la glace ils pourront péné-
-iitrer en ville, et il y en aura beaucoup l'après-midi sur.
+A poursuit pas. En passant sur la glace ils pourront pénéiitrer en ville, et il y en aura beaucoup l'après-midi sur.
 … la perspective Nevski: — il y en aura aussi qui se
 
 enquête sur les journées révolutionnaires
@@ -6058,16 +5756,14 @@ disant: « Circulez. Je vous dis de circuler, de partir.
 Nous avons ordre de tirer. Nous avons de vraies balles. »
 Mais la foule restait incrédule, indifférente ou railleuse.
 Alors l'officier fit sortir un soldat du premier rang et un
-du dernier. Il leur donna l'ordre de tirer sur deux ré-
-verbères, Les lanternes volèrent en éclats. La foule,
+du dernier. Il leur donna l'ordre de tirer sur deux réverbères, Les lanternes volèrent en éclats. La foule,
 
 enquête sur les journées révolutionnaires
 impressionnée et convaincue, céda à de nouvelles
 exhortations et se retira.
 
 Mais il faut dire immédiatement que la plupart des
-officiers eurent moins de scrupules. Pour un témoi-
-gnage que j'ai recueilli à leur décharge, j'en ai reçu dix
+officiers eurent moins de scrupules. Pour un témoignage que j'ai recueilli à leur décharge, j'en ai reçu dix
 qui les condamnent. Et ici, je puis citer des noms. C'est
 le capitaine Mansourov, du régiment Préobrajenski,
 qui commande la première salve sur la place du Palais
@@ -6075,8 +5771,7 @@ d'Hiver. Après le feu, il fait visiter les fusils de ses
 hommes. On en trouve huit qui ne sont pas déchargés;
 
 les huit soldats sont arrêtés. Et c'est le même capitaine
-qui, un peu plus tard, permet à un sous-officier de « dé-
-loger » des arbres du jardin Alexandre les gamins qui
+qui, un peu plus tard, permet à un sous-officier de « déloger » des arbres du jardin Alexandre les gamins qui
 y sont grimpés.
 
 C'est le baron Osten Drysen qui, bien que n'étant pas
@@ -6131,8 +5826,7 @@ plainte touchante: ni
 notre travail, on nous charge maintenant de laver
 l'honneur des officiers. »
 À onze heures du soir, on relâche l'ingénieur, après
-avoir pris quelques renseignements sur lui. Ces jours-
-là, la police a trop à faire pour s'occuper de pareilles
+avoir pris quelques renseignements sur lui. Ces jourslà, la police a trop à faire pour s'occuper de pareilles
 histoires. Pour une fois, du reste, ce n'est pas elle qui
 porte la haïne de la population. Elle a été dépassée en
 barbarie par la soldatesque, et les répressions contre
@@ -6151,15 +5845,11 @@ leur consigne et déclarent qu'ils ont fusillé pour ne pas
 5 être fusillés. Il y avait un ordre de tirer à balles contre
 les manifestants, même s'ils n'étaient pas armés, même
 ; s'ils n'attaquaient pas ou ne provoquaient pas les
-troupes. Cet ordre, on sait qui était chargé de l'exé-
-cuter; c'était le général Vassiltchikov, sous le comman192
-
-dement duquel furent placées les troupes de Pétersbourg
+troupes. Cet ordre, on sait qui était chargé de l'exécuter; c'était le général Vassiltchikov, sous le commandement duquel furent placées les troupes de Pétersbourg
 pendant la journée du
 
 Mais de qui émanait l'ordre lui-même? Du tsar? Non,
-sans doute, car, s'il est coupable de ne pas avoir empé-
-ché le crime, on le sait en même temps trop faible pour
+sans doute, car, s'il est coupable de ne pas avoir empéché le crime, on le sait en même temps trop faible pour
 l'avoir résolument commandé. Il se contente d'abdiquer,
 de laisser faire. Et il paraît bien qu'en dernier lieu ce
 
@@ -6226,8 +5916,7 @@ M. Witte n'est pas le moins compromis aux yeux de
 l'opinion, mais M. Witte n'est pas non plus le plus bête
 
 des sujets du tsar, ni même des ministres. Naguère il
-s'entendait fort bien à flatter les libéraux tout en per-
-suadant au tsar qu'il était le plus ferme soutien de
+s'entendait fort bien à flatter les libéraux tout en persuadant au tsar qu'il était le plus ferme soutien de
 l'absolutisme et en se réservant une porte de sortie pour
 le cas d'un retour possible à la réaction. Aujourd'hui le
 
@@ -6243,9 +5932,7 @@ le cas d'un retour possible à la réaction. Aujourd'hui le
 
 « vous de son innocence? Je vous apporte un témoignage
 
-…. qui en fait preuve, — le témoignage de M. Witte lui-
-
-même, et je vous donne scrupuleusement les circon-
+…. qui en fait preuve, — le témoignage de M. Witte luimême, et je vous donne scrupuleusement les circon-
 
 À stances dans lesquelles il a été produit.
 
@@ -6261,8 +5948,7 @@ téléphone du ministère. Stupéfaction! C'est M. Witte
 
 rend à l'invitation.
 
-ï « Il m'est revenu, commence M. Witte, qu'on m'ac-
-cuse, dans certains milieux, d'avoir part aux événe_ ments du 9 janvier. C'est faux, abominablement faux.
+ï « Il m'est revenu, commence M. Witte, qu'on m'accuse, dans certains milieux, d'avoir part aux événe_ ments du 9 janvier. C'est faux, abominablement faux.
 le sache parmi les jeunes gens. Dites-le aux étudiants,
 je sais que vous avez de l'autorité sur eux. Leur opi_ nion m'importe beaucoup. Je puis tout vous dire... mais
 4 croyez-vous que tout ce que je dirai est la vérité?
@@ -6336,8 +6022,7 @@ influer sur la politique. »
 M. Witte rougit encore, et il dit un peu impatienté:
 À « Si vous mettez un homme très Sensé dans une prison,
 que peut-il faire, je vous prie? Eh bien! moi, président
-du comité des ministres, je suis dans une prison. J'ai tou-
-jours été pour les réformes de progrès. Dans le comité
+du comité des ministres, je suis dans une prison. J'ai toujours été pour les réformes de progrès. Dans le comité
 des ministres, j'étais contre les mesures administratives
 rigoureuses; j'ai combattu la surveillance renforcée.
 
@@ -6376,11 +6061,9 @@ Il semblerait que les rapports des médecins des
 à hôpitaux dussent être une base certaine pour le calcul.
 1 et à additionner les chiffres. Ils dépassaient à peine les
 1 données officielles. Le gouvernement disait-il donc la
-4 vérité, à quelques cadavres près? Sans parler de l'opi-
-pion publique, des témoignages sûrs étaient pour
+4 vérité, à quelques cadavres près? Sans parler de l'opipion publique, des témoignages sûrs étaient pour
 1 crier le contraire.
-Une doctoresse, en relations directes avec les méde-
-cins des hôpitaux, me déclare: « Les chefs de services
+Une doctoresse, en relations directes avec les médecins des hôpitaux, me déclare: « Les chefs de services
 À ont reçu des instructions formelles de ne pas livrer le
 nombre exact des morts. Ainsi le médecin en chef de
 l'hôpital Oboukhov affirme n'avoir reçu à son hôpital
@@ -6394,16 +6077,12 @@ Oboukhov, toutes les caves étaient pleines de morts. »
 D'un camarade socialiste, qui visita lundi matin la
 …_O morgue de l'hôpital Oboukhov, j'ai appris qu'il y
 compta quarante hommes et dix femmes.
-A D'un médecin, je tiens qu'on transporta au même hô-
-
-enquête sur les journées. révolutionnaires
+A D'un médecin, je tiens qu'on transporta au même hôenquête sur les journées. révolutionnaires
 pital sept cadavres d'enfants de dix à douze ans,
 sans doute ceux qui furent tués au Jardin Alexandre.
 
-Pour la dissimulation des cadavres, voici un témoi-
-gnage relatif à l'hôpital Marie:.
-Un correspondant de la Rouss s'y présente pour visi-
-ter la morgue. On l'y conduit, mais on ne lui montre
+Pour la dissimulation des cadavres, voici un témoignage relatif à l'hôpital Marie:.
+Un correspondant de la Rouss s'y présente pour visiter la morgue. On l'y conduit, mais on ne lui montre
 qu'une salle. Comme il connaît la disposition des lieux,
 en sortant il pousse vivement la porte d'une autre salle
 qu'il sait faire partie de la morgue. Celle-ci aussi est
@@ -6427,8 +6106,7 @@ creusèrent la terre où elle portait des traces d'avoir
 qu'on avait enterrés sans cercueils.
 
 - Le témoignage suivant est plus précis. Un rédacteur
-de la Gazette de la Bourse, Baransky, fut tué le dimanche, à cinq heures, près du Jardin Alexandre. (1) Pen-
-dant toute la journée du lundi sa femme chercha inutilement son cadavre d'hôpital en hôpital. La police lui
+de la Gazette de la Bourse, Baransky, fut tué le dimanche, à cinq heures, près du Jardin Alexandre. (1) Pendant toute la journée du lundi sa femme chercha inutilement son cadavre d'hôpital en hôpital. La police lui
 promit, finalement, qu'on le lui remettrait le mardi matin au cimetière. Elle y vint et trouva en effet le nom de
 son mari sur un cercueil. Mais un pressentiment traversa son esprit. Elle ordonna d'ouvrir le cercueil. Il
 contenait non le cadavre de son mari, maïs celui d'un
@@ -6460,8 +6138,7 @@ très loin. »
 En ne m'appuyant que sur des renseignements vrai- il
 ment précis et sûrs, je ne puis établir que des chiffres À
 partiels; mais ils sont terriblement éloquents. Je tiens,
-: par exemple, d'un employé de la gare Nicolas que qua-
-torze wagons furent commandés dans la nuit du lundi
+: par exemple, d'un employé de la gare Nicolas que quatorze wagons furent commandés dans la nuit du lundi
 au mardi pour le transport des cadavres.
 De deux sources distinctes, j'ai recueilli deux données
 qui diffèrent assez peu pour qu'elles atteignent à une
@@ -6472,10 +6149,8 @@ avoir compté, le même matin, vingt-et-un traîneaux qui
 passaient, chargés chacun de neuf cercueils (ce qui
 donne un total de cent quatre-vingt-neuf).
 À la station d'Oudielnaïa, un voyageur a passer
-lundi matin quinze wagons remplis de cadavres, expé-
-diés de Pétersbourg par la gare de Finlande.
-Je pourrais citer bien d'autres témoignages et conti-
-nuer cette arithmétique qui soulève le cœur, si je ne
+lundi matin quinze wagons remplis de cadavres, expédiés de Pétersbourg par la gare de Finlande.
+Je pourrais citer bien d'autres témoignages et continuer cette arithmétique qui soulève le cœur, si je ne
 m'étais convaincu qu'on ne peut parvenir à un résultat
 définitif. La recherche exacte de la vérité rencontre des
 obstacles insurmontables: d'une part les coupables ont
@@ -6514,9 +6189,7 @@ moment, était capable de compter, n'ait compter
 que jusqu'à
 
 En me basant sur la conformité de certains témoignages qui acquièrent pour moi de la valeur par leur
-rapprochement et par la qualité des témoins, je crois pré-
-
-sentement que les tués furent entre 200 et 300, et les blessés entre 1.000 et 2.000. n'est pas précis, mais c'est
+rapprochement et par la qualité des témoins, je crois présentement que les tués furent entre 200 et 300, et les blessés entre 1.000 et 2.000. n'est pas précis, mais c'est
 certain. Ces chiffres restent probablement en deçà de la
 vérité. Ils ne la forcent assurément pas. On pourra les
 
@@ -6542,8 +6215,7 @@ moi-même entre les mains une des balles incrimi-
 « nées. Elle venait d'être extraite du genou d'un tout jeune
 ouvrier blessé au Pont de Police. L'enveloppe de cuivre
 de la balle s'était déchirée, développée, causant une
-blessure affreuse à voir. Lorsque de pareïlles balles tra-
-versaient un corps, elles faisaient à l'entrée un trou étroit,
+blessure affreuse à voir. Lorsque de pareïlles balles traversaient un corps, elles faisaient à l'entrée un trou étroit,
 mais ressortaient par une large et hideuse ouverture.
 
 J'ai été d'abord si impressionné, à tenir dans la main
@@ -6582,9 +6254,7 @@ ne furent à aucun moment, ni en aucun endroit, justifiées.
 
 Dire que les ouvriers s'avancèrent par certaines voies
 au nombre de 30 ou 50.000, brandissant des armes ou
-lançant des bombes (comme je l'ai écrit dans cer-
-
-taines dépêches), c'est non seulement dire une chose
+lançant des bombes (comme je l'ai écrit dans certaines dépêches), c'est non seulement dire une chose
 fausse pour le plaisir d'ajouter de la couleur au récit,
 mais c'est en même temps vouloir disculper au prix
 d'un mensonge le gouvernement russe. Ce qui fait justement que son crime n'a pas d'excuse, c'est qu'il fit
@@ -6631,8 +6301,7 @@ relative à vos besoins, ils vous incitaient à prendre part
 
 le pardon du Tsar
 « Les grèves et les réunions séditieuses ne font que
-pousser la foule désœuvrée à des troubles qui ont tou-
-jours forcé et forceront toujours les autorités à recourir
+pousser la foule désœuvrée à des troubles qui ont toujours forcé et forceront toujours les autorités à recourir
 à la force armée, ce qui cause nécessairement la mort
 de victimes innocentes.
 « Je sais que la vie de l'ouvrier n'est pas facile. Il y
@@ -6683,8 +6352,7 @@ Cette organisation de la bureaucratie prive la société de;
 l'assurance, qui est toujours indispensable quand il s'agit
 de protéger les droits légaux de tous et de chacun, et
 ébranle la confiance populaire dans le gouvernement
-4° Le cours et le développement réguliers de la vie gouvernementale et sociale ne sont possibles qu'avec le rappro-
-chement intime et l'union de l'autorité gouvernementale A
+4° Le cours et le développement réguliers de la vie gouvernementale et sociale ne sont possibles qu'avec le rapprochement intime et l'union de l'autorité gouvernementale A
 avec la société;
 5° Pour éviter la possibilité des manifestations de l'arbitraire administratif, il est indispensable d'établir et d'introduire ensuite dans la vie sociale le principe de l'inviolabilité des personnes et des domiciles. Aucun individu ne
 doit, sans arrêt d'un pouvoir judiciaire indépendant, subir
@@ -6708,8 +6376,7 @@ principale du développement assuré de la vie politique et
 
 Attendu que l'importante majorité de la population russe:
 appartient à la classe des paysans, il faut la placer dans un
-état favorable au développement indépendant de son acti-
-vité et de son énergie. Cela n'est possible qu'à l'aide de
+état favorable au développement indépendant de son activité et de son énergie. Cela n'est possible qu'à l'aide de
 changements fondamentaux dans leur situation actuelle.
 
 Pour obtenir ces résultats, il est indispensable:
@@ -6747,16 +6414,14 @@ zemstvos et municipalités. Le self-government doit être
 
 10° Mais pour créer et conserver une union vivante et intime entre le pouvoir central et la société, sur la base des
 principes ci-dessus énoncés, et afin d'assurer le juste développement de la vie de l'État et de la société, il est absolument indispensable d'établir, dans l'usage du pouvoir législatif, dans la fixation du budget et dans le contrôle de
-l'administration, une participation régulière de la repré-
-sentation nationale. Cette participation devra se traduire
+l'administration, une participation régulière de la représentation nationale. Cette participation devra se traduire
 
 par une institution élue et séparée;
 
 Étant données la gravité et la difficulté de la situation
 actuelle, tant à l'intérieur qu'à l'extérieur, la réunion
 
-exprime l'espoir que le pouvoir souverain appellera les re-
-présentants librement élus par la nation, afin qu'avec leur
+exprime l'espoir que le pouvoir souverain appellera les représentants librement élus par la nation, afin qu'avec leur
 concours il puisse amener notre patrie dans une nouvelle
 voie où Le développement de l'État se fera suivant le ferme
 principe de la coopération du pouvoir et du peuple.
@@ -6771,15 +6436,12 @@ la base d'un large développement de l'initiative publique et
 personnelle. Les conditions nécessaires de ce développement
 sont l'inviolabilité absolue de la personne, la liberté de
 réunion et d'association, la liberté de la parole et la liberté
-de la presse. C'est seulement lorsque ces droits sont expres-
-sément garantis que le chemin est ouvert à la diffusion et
+de la presse. C'est seulement lorsque ces droits sont expressément garantis que le chemin est ouvert à la diffusion et
 au progrès de l'instruction populaire, sans laquelle il est: À
-impossible d'accroître la valeur productive du travail. L'ab-
-sence de ces conditions amène le déclin de cette instruction à
+impossible d'accroître la valeur productive du travail. L'absence de ces conditions amène le déclin de cette instruction à
 populaire qui se trouve à la base du progrès technique,
 parce qu'elle cause chaque année la ruine de centaines de
-jeunes vies nécessaires à la Russie, en chassant des Univer-
-sités et des collèges techniques les meilleurs représentants
+jeunes vies nécessaires à la Russie, en chassant des Universités et des collèges techniques les meilleurs représentants
 de la science.
 « C'est seulement lorsque la société participe au travail
 législatif, qu'il est possible d'assurer la solidité de la poli- N:]
@@ -6842,8 +6504,7 @@ cial se composant de personnages de haute compétence de
 l'administration supérieure, à l'étude des plus importantes à
 des questions, ayant trait à l'organisation du régime auquel
 doivent être soumis les paysans, et ceci sur la base des
-rapports et des vœux des comités locaux, qui ont été appe-
-lés à se prononcer sur les besoins généraux de l'industrie
+rapports et des vœux des comités locaux, qui ont été appelés à se prononcer sur les besoins généraux de l'industrie
 agricole. Nous ordonnons que ces travaux aboutissent à la À
 fusion des lois concernant les paysans, avec la législation
 générale de l'Empire, en sorte de garantir aux individus À
@@ -6894,30 +6555,24 @@ considérable des pouvoirs des autorités administratives, il
 s'agit de veiller en même temps à ce que le nombre des
 
 je quelques documents à
-; localités où ces lois sont appliquées soit restreint au pos-
-sible et à ce que les restrictions apportées par ces lois au
+; localités où ces lois sont appliquées soit restreint au possible et à ce que les restrictions apportées par ces lois au
 libre exercice de leurs droits, par les particuliers, ne soient
 à admises que dans les cas où la sécurité de l'Empire se trouve À
-6. — Procéder, — en vue de confirmer Notre sincère et inva-
-riable désir, exprimé dans Notre Manifeste du 26 février
+6. — Procéder, — en vue de confirmer Notre sincère et invariable désir, exprimé dans Notre Manifeste du 26 février
 1903, et qui est de ne pas restreindre la tolérance religieuse
 garantie par les lois fondamentales de l'Empire, — à la
 revision de la loi sur les droits des sectaires, ainsi que sur
 celles concernant les individus confessant des religions À
 AE) étrangères. On prendra en outre dès à présent, par voie
 administrative, les mesures nécessaires pour écarter dans
-les exercices religieux desdites personnes, tout empêche-
-ment non précisé par la loi. ne
+les exercices religieux desdites personnes, tout empêchement non précisé par la loi. ne
 7. — Procéder à la revision des dispositions existantes li- te
 mitant les droits des indigènes et des allogènes de certaines À
 L. parties de l'Empire, en vue de ne maintenir que celles de ces à
 dispositions qui sont nécessitées par des intérêts organiques
 de l'Empire et qui ont en vue les intérêts réels du Peuple
 Russe. ne
-8.— Écarter des règlements sur la presse actuellement exis-
-tants, les mesures restrictives devenues inutiles en subor-
-donnant la presse à la seule action des lois, ce qui per-
-mettra à la presse russe, considérée au point de vue du
+8.— Écarter des règlements sur la presse actuellement existants, les mesures restrictives devenues inutiles en subordonnant la presse à la seule action des lois, ce qui permettra à la presse russe, considérée au point de vue du
 rôle qui revient à la presse en conséquence des progrès de
 la civilisation, la possibilité de remplir dignement sa haute
 mission en servant d'interprète impartial des aspirations
@@ -6930,9 +6585,7 @@ forme déjà l'objet d'études préliminaires, Nous trouvons
 bon en même temps, la diversité et l'importance de ces
 réformes, d'établir dès à présent la procédure à suivre pour
 élaborer le programme de leur réalisation dans le plus bref a
-délai et dans la mesure la plus absolue. Du nombre des in-
-
-stitutions de Notre Empire c'est au comité des ministres;
+délai et dans la mesure la plus absolue. Du nombre des institutions de Notre Empire c'est au comité des ministres;
 qu'incombe la tâche d'unir le plus étroitement possible les
 diverses parties de l'administration. En conséquence de.
 quoi, nous ordonnons:
@@ -6971,8 +6624,7 @@ de l'Empire; on s'est efforcé d'attribuer à cette agitation
 une signification qu'elle n'avait pas et on a prétendu qu'elle
 correspondait à des aspirations générales.
 
-Les individus qui se laissaient entraîner par ce mouve-
-ment, oublieux de l'année terrible que traverse actuellement
+Les individus qui se laissaient entraîner par ce mouvement, oublieux de l'année terrible que traverse actuellement
 la Russie, aveuglés par l'illusion des avantages qu'ils
 attendent du changement radical des bases de la vie de
 l'Empire russe, agissent, sans s'en rendre compte, non pas
@@ -6983,8 +6635,7 @@ l'ordre dans l'Empire et la tranquillité publique contre à
 toutes les tentatives qui sont faites pour interrompre le
 cours régulier de la vie intérieure.
 
-En conséquence, toute atteinte à l'ordre et à la tranquil-
-lité, tout attroupement ayant un caractère hostile à l'État, a
+En conséquence, toute atteinte à l'ordre et à la tranquillité, tout attroupement ayant un caractère hostile à l'État, a
 doit être et sera réprimé par tous les moyens légaux dont
 disposent les autorités; les fauteurs de ces manquements à
 la loi, surtout ceux qui se trouvent au service de l'État,
@@ -7000,13 +6651,11 @@ Les présidents d'assemblées publiques qui permettront dE
 de discuter de questions d'intérêt public général qui ne sont
 pas de leur ressort, seront rendus responsables aux termes (4
 des lois existantes. La presse, en appréciant sainement les
-événements actuels, et en se rendant compte de la respon-
-sabilité qui lui incombe, devra, de son côté, contribuer
+événements actuels, et en se rendant compte de la responsabilité qui lui incombe, devra, de son côté, contribuer
 à faire renaître le calme dans la vie publique, dont le cours
 régulier s'est interrompu dans ces derniers temps. « a
 
-du prince Troubetskoï, maréchal de la noblesse et pré-
-sident d'office du Zemstvo du gouvernement de
+du prince Troubetskoï, maréchal de la noblesse et président d'office du Zemstvo du gouvernement de
 [page 68 du cahier]
 Altesse, vous recevrez aujourd'hui une adresse à Sa Majesté l'empereur, rédigée par le Zemstvo du gouvernement
 de Moscou.
@@ -7108,8 +6757,7 @@ une âme compatissante. Avoir pitié d'un homme opprimé,
 torturé, sans droits, — c'est commettre un crime très
 Sire! cela est-il conforme -aux lois divines, par la grâce
 desquelles tu règnes? Et peut-on vivre sous de telles lois?
-Ne vaut-il pas mieux mourir, mieux pour nous tous, tra-
-vailleurs de toute la Russie? Que les capitalistes et les
+Ne vaut-il pas mieux mourir, mieux pour nous tous, travailleurs de toute la Russie? Que les capitalistes et les
 fonctionnaires seuls vivent donc, et qu'ils se réjouissent.
 Voilà ce qui est devant nous, Sire, et c'est ce qui nous a
 rassemblés près des murs de ton palais. C'est ici que nous
@@ -7120,8 +6768,7 @@ son propre sort; délivre-le de l'oppression intolérable des
 fonctionnaires; détruis le mur entre toi et ton peuple, — et
 ; qu'il gouverne le pays avec toi. Car tu règnes pour le
 bonheur du peuple, — et c'est ce bonheur-là que les fonc- À
-tionnaires nous arrachent des mains: il n'arrive pas jus-
-qu'à nous; nous ne recevons que la souffrance et l'humilia-
+tionnaires nous arrachent des mains: il n'arrive pas jusqu'à nous; nous ne recevons que la souffrance et l'humilia-
 Envisage sans colère et avec attention nos demandes
 elies tendent non pas vers le mal, mais vers le bien, Sire!
 Ce n'est pas l'arrogance qui parle en nous, c'est la conscience
@@ -7131,8 +6778,7 @@ sont trop variés et importants, pour que les fonctionnaires
 puissent la gouverner à eux tout seuls. Il faut que le peuple À
 lui-même vienne à son aide: lui seul connaît ses vrais
 besoins. Ne repousse donc pas son secours, mais accepte-
-“1 le, ordonne immédiatement la convocation des représen-
-tants de la terre russe, de toutes les classes et de tous les
+“1 le, ordonne immédiatement la convocation des représentants de la terre russe, de toutes les classes et de tous les
 ordres. Qu'ils soient tous présents ici, et le capitaliste, et
 l'ouvrier, et le prêtre, et le docteur, et l'instituteur, et que.
 tous, quels qu'ils soient, élisent leurs représentants; et que
@@ -7175,8 +6821,7 @@ mentale des ouvriers;
 Ê Voilà, Sire, les besoins principaux que nous sommes
 venus te présenter. Ordonne et juge de les faire exécuter,
 et tu rendras la Russie glorieuse et heureuse, et tu laisseras
-gravé pour jamais ton nom dans les cœurs de nos petits-
-fils et de nos arrière-petits-fils. Mais si tu ne l'ordonnes
+gravé pour jamais ton nom dans les cœurs de nos petitsfils et de nos arrière-petits-fils. Mais si tu ne l'ordonnes
 pas, si tu ne réponds pas à nos prières, nous mourrons
 sur cette place même, devant ton palais.
 Nous n'avons plus où aller, et dans quel but? Deux LE
@@ -7235,9 +6880,7 @@ plus en plus grandes. Ces exigences, dont la plupart ont
 Au début, ces réclamations ne visaient que des questions
 fabriques ou usines, mais ensuite elles touchèrent à des
 questions générales, à la journée de travail de huit heures,
-à la participation des institutions ouvrières dans le règle-
-
-ment des différends entre patrons et ouvriers, etc.
+à la participation des institutions ouvrières dans le règlement des différends entre patrons et ouvriers, etc.
 
 Les directeurs des entreprises industrielles atteintes par
 la grève s'étant réunis en conférence, décidèrent que l'on
@@ -7259,13 +6902,11 @@ les menées séditieuses des cercles de propagande
 politique ne tardèrent pas à se manifester sous l'influence
 de la « Société des ouvriers des fabriques et usines et;
 cette même Société, obéissant à l'aumônier Gapone, com,
-mença, dès le 8 janvier au matin, une propagande franche-
-ment révolutionnaire. A cette date l'aumônier Gapone;
+mença, dès le 8 janvier au matin, une propagande franchement révolutionnaire. A cette date l'aumônier Gapone;
 rédigea et répandit parmi les ouvriers une pétition en leur
-dification des conditions du travail, cette pétition renfer-
-mait des exigences politiques inadmissibles. à
+dification des conditions du travail, cette pétition renfermait des exigences politiques inadmissibles. à
 On fit alors savoir à la population, par des écrits et de À
-vive voix, qu'un rassemblement aurait lieu le 9 janvier, à;
+vive voix, qu'un rassemblement aurait lieu le 9 janvier,
 deux heures après midi, sur la place du Palais; l'aumônier
 Gapone devait remettre à S. M. l'Empereur une requête
 relative aux besoins de la classe ouvrière. En répandant ce ne
@@ -7333,14 +6974,12 @@ des informations exactes, à 96, et celui des blessés à
 [page 134 du cahier]
 Les événements qui se sont produits ces derniers jours à
 Saint-Pétersbourg ont prouvé qu'il était nécessaire de recou-;
-rir à des mesures exceptionnelles dictées par les circon-
-stances que nous traversons, afin de protéger l'ordre et la
+rir à des mesures exceptionnelles dictées par les circonstances que nous traversons, afin de protéger l'ordre et la
 Nous avons jugé nécessaire d'instituer dans ce but les,
 fonctions de gouverneur-général de Saint-Pétersbourg, sur À
 la base des lois relatives à l'administration supérieure des À
 provinces et des règles suivantes:
-1) Les pouvoirs du gouverneur-général de Saïnt-Péters-
-bourg s'étendent à la ville et au gouvernement de Saint- À
+1) Les pouvoirs du gouverneur-général de Saïnt-Pétersbourg s'étendent à la ville et au gouvernement de Saint- À
 2) Dans le domaine des questions ayant trait à la sauve-
 : garde de l'ordre et de la sécurité publique, les pouvoirs du
 gouverneur-général s'étendent à toutes les administrations
@@ -7349,12 +6988,9 @@ publique de tous les ressorts;
 3) Le gouverneur-général a le droit de prendre, de concert
 avec le Ministre de l'Intérieur, les mesures prévues par l'ar- à
 ticle 140 du statut de la censure;
-; 4) En dehors du droit d'édicter des règlements obliga-
-toires à observer dans la procédure établie par la loi sur la #4
+; 4) En dehors du droit d'édicter des règlements obligatoires à observer dans la procédure établie par la loi sur la #4
 protection renforcée, le gouverneur-général a le droit de À
-publier des règles obligatoires sur toutes les questions rela-
-tives à l'ordre et à la tranquillité dans les limites du terri-
-toire qui lui est confié, et d'établir les pénalités à infliger et 1%
+publier des règles obligatoires sur toutes les questions relatives à l'ordre et à la tranquillité dans les limites du territoire qui lui est confié, et d'établir les pénalités à infliger et 1%
 
 la procédure à observer dans les poursuites pour infractions
 à ces règles, aux termes des articles 15 et 16 de la loi sur la
@@ -7400,22 +7036,17 @@ Le cours normal de la vie publique à Saint-Pétersbourg a à
 et les usines.
 Après avoir abandonné leur ouvrage, et, ce faisant, porté;
 un préjudice incontestable à leurs propres intérêts comme;
-à ceux de leurs patrons, les ouvriers ont formulé des exi-
-gences relatives aux rapports réciproques des ouvriers et »
-des patrons. Des personnes mal intentionnées s'empres-
-sèrent de profiter de l'agitation qui se manifestait au sein
-de la classe ouvrière pour masquer ainsi leurs vues crimi-
-nelles, et, par des promesses irréalisables elles engagèrent
+à ceux de leurs patrons, les ouvriers ont formulé des exigences relatives aux rapports réciproques des ouvriers et »
+des patrons. Des personnes mal intentionnées s'empressèrent de profiter de l'agitation qui se manifestait au sein
+de la classe ouvrière pour masquer ainsi leurs vues criminelles, et, par des promesses irréalisables elles engagèrent
 : les ouvriers dans une fausse voie. Cette propagande sédi-
-ê, tieuse causa différents désordres qui éclatèrent dans la
+tieuse causa différents désordres qui éclatèrent dans la
 capitale et dont la répression nécessita l'intervention de la Ni
 Ces faits sont extrêmement regrettables. En semant le
 désordre, les gens mal intentionnés n'ont pas reculé devant
 les circonstances difficiles que traverse actuellement notre
-Patrie, par suite de la guerre. Sous l'influence de ces per-
-sonnes, la classe ouvrière des usines et des fabriques de ES
-Saint-Pétersbourg est devenue l'arme inconsciente des agi-
-tateurs; elle ne pouvait comprendre qu'on émettait, sous le
+Patrie, par suite de la guerre. Sous l'influence de ces personnes, la classe ouvrière des usines et des fabriques de ES
+Saint-Pétersbourg est devenue l'arme inconsciente des agitateurs; elle ne pouvait comprendre qu'on émettait, sous le
 couvert de son nom, des exigences qui n'ont absolument
 rien de commun avec les vrais besoins des ouvriers. "ÿà
 Formulant ces exigences et suspendant leurs occupations
@@ -7483,8 +7114,7 @@ Depuis plusieurs semaines, nous savions à Saint-Péters-
 arrivée à un certain état d'intensité et que les pourparlers
 entre ouvriers et patrons ne paraissaient pas devoir y
 mettre de sitôt un terme. Cependant nous étions loin de
-nous attendre à la secousse brusque qui devait inter-
-rompre pendant plusieurs jours l'existence de notre organe.
+nous attendre à la secousse brusque qui devait interrompre pendant plusieurs jours l'existence de notre organe.
 Soudain, le 7 (20) janvier, à quatre heures de l'après-midi, Ne
 un groupe considérable de grévistes fit irruption dans la
 cour de nos locaux en exigeant la suspension immédiate
@@ -7503,8 +7133,7 @@ de la préfecture de police et l'Invalide Russe (dans les
 presses militaires de l'état-major); ces trois organes réussirent à faire paraître quelques numéros très écourtés, lesquels furent imprimés sous la protection des baïonnettes.
 
 La journée du 8 se passa dans l'attente. On savait que les
-émeutiers étaient dirigés par une main assez ferme et pré-
-tendaient imposer leur volonté partout. De tous côtés, des
+émeutiers étaient dirigés par une main assez ferme et prétendaient imposer leur volonté partout. De tous côtés, des
 torrents d'ouvriers commençaient à affluer dans les rues, et
 le 9 au matin, bien que la ville eût, par un beau soleil, un air
 de fête, tout le monde fréquentant les églises, néanmoins la
@@ -7528,31 +7157,26 @@ larges flaques de sang, d'une couleur rosée sur la neige
 dépouilles humaines lamentables que les traîneaux empor- À
 taient et à travers les rues. À
 
-Nous ne pouvons nous défaire d'un sentiment de poi-
-gnante tristesse en nous rappelant une scène que nous;
+Nous ne pouvons nous défaire d'un sentiment de poignante tristesse en nous rappelant une scène que nous;
 avons vue vers minuit devant la clinique, à deux pas de
 
 notre rédaction, dans la rue Maximilien. Un fourgon noir
 envoyé par une administration de pompes funèbres, attelé
 d'un seul cheval, attendait devant la porte de la section de
 chirurgie; au premier, une salle était éclairée a giorno;
-quelque chose de grave s'y passait. On attendait la des-
-cente de quelques corps. Des silhouettes vagues se pressaient tristement sur le trottoir dans l'ombre. Cette scène a
+quelque chose de grave s'y passait. On attendait la descente de quelques corps. Des silhouettes vagues se pressaient tristement sur le trottoir dans l'ombre. Cette scène a
 se passer dans bien des endroits, ce soir-là.
 
 N'insistons pas sur les détails. Les responsabilités, quand
 il s'agit de savoir si la troupe qui décime l'émeute aurait
-ou n'aurait pas retarder le feu, paraissent diffcile-
-ment pondérables. Qu'il nous soit permis cependant de ra-
-mener nos lecteurs à des préoccupations d'une portée plus à
+ou n'aurait pas retarder le feu, paraissent diffcilement pondérables. Qu'il nous soit permis cependant de ramener nos lecteurs à des préoccupations d'une portée plus à
 grave. Quand la sûreté même de la Patrie est en jeu, que À
 le succès même de l'émeute est voulu avec joie par une vo- À
 lonté intense et organisée, quand les dehors d'apparence
 bénévole donnée à l'émeute ne sont qu'un leurre de même.
 que les symboles religieux dont on l'affuble uniquement à
 pour faire réussir le coup avec plus d'impunité, quand enfin
-il y a lieu de croire que la quantité des victimes vient pré-
-cisément du fait que la vigueur a été tardive, il est difficile
+il y a lieu de croire que la quantité des victimes vient précisément du fait que la vigueur a été tardive, il est difficile
 en pareil cas, pour des hommes sérieux qui savent se
 mettre au-dessus des passions du jour, il est difficile, disons-.
 nous, de jeter la pierre à nos braves troupes qui ont à
@@ -7565,9 +7189,7 @@ recte et conforme aux règlements militaires qui prévoient, À
 avec une rigueur d'automate, les trois sommations, la salve À
 blanche, le plomb meurtrier.
 
-Nous savons que dans l'état actuel des esprits les ques-
-tions que nous touchons sont loin d'être traitées d'une ma-
-nière unanime, mais nous pensons en tout cas que l'instinct au
+Nous savons que dans l'état actuel des esprits les questions que nous touchons sont loin d'être traitées d'une manière unanime, mais nous pensons en tout cas que l'instinct au
 
 très sûr du peuple de notre pays lui dit à juste titre que
 lémeute n'améliorera pas son sort, ne guérira pas nos
@@ -7607,10 +7229,8 @@ les cœurs et crescendo; on oublie déjà la face hippocratique des morts que l'
 promenade à travers les halles ou dans les faubourgs vous
 ; fait respirer une atmosphère de colère intense, rentrée, qui
 vous baigne de tous côtés, En même temps, vous apprenez
-que des dizaines de milliers d'ouvriers sont venus de Kol-
-pino se ruant sur les cordons qui protègent la capitale et
-augmentant encore la lave en fusion que vous sentez au-
-tour de vous.
+que des dizaines de milliers d'ouvriers sont venus de Kolpino se ruant sur les cordons qui protègent la capitale et
+augmentant encore la lave en fusion que vous sentez autour de vous.
 Telle a été l'atmosphère ambiante dans les journées de
 lundi, mardi et mercredi. Cependant, en prêtant l'oreille aux
 conversations de ces infimes, vous surprenez un courant
@@ -7669,8 +7289,7 @@ monarque, plein de l'amour de la paix, fût peu enclin à cette
 guerre, la guerre fut cependant inévitable pour la Russie.
 Il eût été juste que la lourde épreuve envoyée par Dieu fût
 
-accueillie par tous avec l'aveu de leurs péchés, avec le senti-
-ment de repentance, en toute soumission aux intentions
+accueillie par tous avec l'aveu de leurs péchés, avec le sentiment de repentance, en toute soumission aux intentions
 insondables de la Providence divine. Mais beaucoup, dans À
 leur orgueil et leur confiance en eux-mêmes, espéraient
 vaincre l'ennemi vite et sans peine.
@@ -7690,20 +7309,15 @@ adresser au Seigneur de ferventes prières, se laver de leurs
 péchés par la pénitence et se lever maintenant pour la
 saint apôtre: « Prendre l'armure de Dieu pour pouvoir
 résister dans le mauvais jour, et mener tout à bien, et
-demeurer maître du champ de bataille. » (Épiître aux Éphé-
-siens VI, 13) Cependant, voyez: Une nouvelle épreuve de Ni:
+demeurer maître du champ de bataille. » (Épiître aux Éphésiens VI, 13) Cependant, voyez: Une nouvelle épreuve de Ni:
 Dieu, une peine plus amère que la première, s'est abattue
 sur notre patrie bien-aimée.
-Dans la capitale et en d'autres villes de la Russie ont com-
-mencé des grèves ouvrières et des désordres dans les rues. À
-Des Russes, de vieux orthodoxes, de tout temps accoutu-
-més à se déclarer pour la foi, pour le tsar et pour la patrie,
+Dans la capitale et en d'autres villes de la Russie ont commencé des grèves ouvrières et des désordres dans les rues. À
+Des Russes, de vieux orthodoxes, de tout temps accoutumés à se déclarer pour la foi, pour le tsar et pour la patrie,
 excités par des gens mal intentionnés, par des ennemis
 intérieurs et extérieurs de notre patrie, ont abandonné par
 dizaines de mille leurs paisibles occupations, résolus à ob- Ua.
-tenir en commun et par la force leurs droits soi-disant vio-
-lés. Ils ont causé aux paisibles habitants une foule d'in-
-quiétudes et d'alarmes. Ils ont laissé beaucoup de gens a
+tenir en commun et par la force leurs droits soi-disant violés. Ils ont causé aux paisibles habitants une foule d'inquiétudes et d'alarmes. Ils ont laissé beaucoup de gens a
 sans un morceau de pain, et ils en ont conduit d'autres
 de leur milieu à une mort inutile, sans pénitence, avec LA
 
@@ -7744,8 +7358,7 @@ Songez, frères bien-aimés, quelle cruelle souffrance est
 causée au chef couronné de l'Empire russe, quels soucis
 viendront aflliger le cœur de nos braves combattants, s'ils:
 ont connaissance des troubles survenus dans leur patrie,
-dans la capitale même, — quelle force nos dissensions don-
-nent à nos ennemis!
+dans la capitale même, — quelle force nos dissensions donnent à nos ennemis!
 
 Mais, en vérité, le Seigneur ne nous punit pas comme
 
@@ -7767,8 +7380,7 @@ et exhortez avec toute sorte de douceur, et en instruisant »
 (deuxième Timothée, IV, 2), et « soyez un modèle pour les
 fidèles par les paroles, par la conduite, par la charité, par
 l'esprit, par la foi, par la pureté. » (Première Timothée, LIV, 12) a
-Vous, puissants! « Recherchez la droiture, protégez l'op-
-primé, faites droit à l'orphelin, défendez la cause de la
+Vous, puissants! « Recherchez la droiture, protégez l'opprimé, faites droit à l'orphelin, défendez la cause de la
 Vous, riches! « Ne vous fiez point à la richesse qui est
 instable, mais au Dieu vivant; faites le bien, soyez riches
 en bonnes œuvres, prompts à donner et secourables. » À

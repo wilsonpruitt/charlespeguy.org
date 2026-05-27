@@ -57,8 +57,7 @@ service, nous avons obtenir de nos anciens collègues,
 la lettre adressée à notre Chef par Paouly et dont ci-joint
 une copie décalquée, qui vous prouvera la trahison de
 votre Cher Ami.
-Si nous pouvions voir un des vôtres, nous aurions cer-
-tainement, long à en dire à ce sujet, seulement nous crain- À
+Si nous pouvions voir un des vôtres, nous aurions certainement, long à en dire à ce sujet, seulement nous crain- À
 derions voir étouffer cette affaire, et pour le moment nous
 nous contentons de vous faire parvenir cela.
 
@@ -94,9 +93,7 @@ L'auteur de ce dossier publiait dans le Petit Sou du: -
 samedi 29 juin cette
 Très honoré citoyen Jaurès,
 Je m'adresse à vous par la voie de la presse parce qu'il
-faut que vous expliquiez publiquement devant les socia-
-
-listes du monde entier, votre conduite et celle de votre
+faut que vous expliquiez publiquement devant les socialistes du monde entier, votre conduite et celle de votre
 Parti à l'égard du Parti socialiste russe.
 gouvernement dont fait partie M. Millerand, membre
 « en congé » de votre parti, vient de commettre une nouvelle infamie: sur l'instigation de la police russe, on vient
@@ -142,18 +139,15 @@ quelques autres socialistes français, saluer notre tyran à la
 place de la Concorde. Puis vint le moment où M. Millerand
 se sacrifia pour le socialisme, en acceptant le poste de
 ministre au cabinet Waldeck-Rousseau. Quelques camarades, égarés momentanément, vantaient, en des articles
-enthousiastes, devant le prolétariat russe, l'immense impor-
-tance de cet événement historique. Alors se produisit une
+enthousiastes, devant le prolétariat russe, l'immense importance de cet événement historique. Alors se produisit une
 série de coups qui sont terribles venant d'un socialiste,
 même en état de congé. Witte, le principal artisan de la
-réaction en Russie, auteur responsable de tant de massa-
-cres de prolétaires russes, est reçu avec éclat par M. Millerand qui porte des toasts au « grand souverain et à son
+réaction en Russie, auteur responsable de tant de massacres de prolétaires russes, est reçu avec éclat par M. Millerand qui porte des toasts au « grand souverain et à son
 auguste famille » — les bourreaux de notre peuple.
 Pas un membre de cette « auguste famille » ne peut venir
 à Paris sans que M. Millerand n'accoure s'incliner devant
 lui en courtisan consommé. Puis, au moment des récents
-massacres de Pétersbourg, de Moscou et de Kharkoff, lorsque tous en Europe, je ne dis pas socialistes et révolution-
-naires, mais tout simplement honnêtes et progressistes,
+massacres de Pétersbourg, de Moscou et de Kharkoff, lorsque tous en Europe, je ne dis pas socialistes et révolutionnaires, mais tout simplement honnêtes et progressistes,
 frémissaient d'indignation contre les procédés barbares du
 gouvernement barbare, lorsque des milliers et des milliers
 de nos eamärades gisaient en prison, lorsqu'on supprimait
@@ -165,11 +159,7 @@ d'autant plus terrible que les journaux réactionnaires soulignaïent ce fait. A
 cetté lächeté de votre ami et camarade, membre de votre
 parti, non seulement à nous autres révolutionnaires, mais
 même à nos libéraux les plus timides!
-Mais jusqu'ici M. Millerand ne se solidarisait que morale-
-
-ment avec le tsarisme. Or, en arrétant Paouli, en lexpul-
-
-sant, en saisissant ses papiers pour les livrer à la police
+Mais jusqu'ici M. Millerand ne se solidarisait que moralement avec le tsarisme. Or, en arrétant Paouli, en lexpulsant, en saisissant ses papiers pour les livrer à la police
 
 russe, le ministère dont il fait partie et dont il est solidaire
 donne au gouvernement russe des preuves matérielles de
@@ -189,25 +179,20 @@ même, mais, somme toute, si anodins?
 
 Maïs veuillez, je vous prie, citoyen Jaurès, envisager de
 plus près, avec moi, ce côté de la nouvelle méthode. Quelle
-doit être notre attitude à nous, socialistes russes, en pré-
-sence de pareils faits? Pour nous, pour la classe ouvrière
+doit être notre attitude à nous, socialistes russes, en présence de pareils faits? Pour nous, pour la classe ouvrière
 en Russie, le tsarisme c'est l'ennemi mortel, le bourreau
 hideux qu'il faut anéantir, le chancre qu'il faut extirper,
 l'ennemi avec lequel il ne peut y avoir de compromissions.
 
 Jusqu'ici nous disions toujours aux ouvriers russes que
 
-le tsarisme est aussi un obstacle pour le socialisme inter-
-
-national, que, par conséquent, les socialistes du monde
+le tsarisme est aussi un obstacle pour le socialisme international, que, par conséquent, les socialistes du monde
 
 entier sont- avec eux dans leur lutte contre le tsarisme,
 
 qu'en luttant contre lui ils luttent non seulement pour la
 
-liberté du peuple russe, mais pour le socialisme interna-
-
-tional, qu'ils remplissent done une mission, pour ainsi dire,
+liberté du peuple russe, mais pour le socialisme international, qu'ils remplissent done une mission, pour ainsi dire,
 
 internationale. D'autre part on leur disait qu'en France le
 
@@ -230,8 +215,7 @@ obligez, par votre tactique, à repousser toute solidarité
 avec votre parti. Ceux qui restent avec Millerand ne quittant pas le ministère, même lorsque celui-ci commet de
 telles infamies à l'égard de notre parti, ne peuvent pas être
 nos amis.
-Vous rappelez-vous, citoyen Jaurès, le discours que pro-
-nonça Guesde au congrès de Paris, contre la nouvelle
+Vous rappelez-vous, citoyen Jaurès, le discours que prononça Guesde au congrès de Paris, contre la nouvelle
 méthode? « Vous représentez-vous, disait-il, un Millerand
 anglais, un Millerand italien, un Millerand allemand s'ajou- à
 tant au Millerand français et engageant les prolétaires, les
@@ -291,11 +275,9 @@ Abonnements gratuits. — C'est trente et non cinquante francs par mois que les 
 donnaient pour nos abonnements gratuits.
 Vacances. — Définitivement c'est à peu près du.
 samedi 3 août au lundi 16 septembre que nous demandons qu'on nous laisse des vacances devenues indispensables.
-Cependant même alors je serai aux cahiers, réguliè-
-rement, le jeudi de deux heures à cinq heures
+Cependant même alors je serai aux cahiers, régulièrement, le jeudi de deux heures à cinq heures
 et nous prions nos souscripteurs mensuels de vouloir
-bien nous continuer leurs souscriptions pendant les vacances. Nous prions nos nouveaux souscripteurs men-
-suels de vouloir bien commencer leurs souscriptions
+bien nous continuer leurs souscriptions pendant les vacances. Nous prions nos nouveaux souscripteurs mensuels de vouloir bien commencer leurs souscriptions
 pendant les vacances. Ainsi nos cahiers pourront se
 refaire un peu. Et les mois de vacances sont pour nos
 budgets ceux où la souscription est le plus facile.

@@ -55,7 +55,7 @@ La neïge découpait un immense parvis. -
 É La gloire se levait dans un jeune matin. à
 Et la jeune Lutèce était le vieux Paris.
 à L'autre est morte un matin et le trente de mai
-4 Dans l'hésitation et la stupeur publiques.
+Dans l'hésitation et la stupeur publiques.
 : Une forêt d'horreur, de haches et de piques
 Le La tenaient circonscrite en un cercle fermé.
 Et l'une est morte ainsi d'une mort solennelle
@@ -71,7 +71,7 @@ DU Nous avons donné le bon à tirer après corrections
 AL' pour deux mille exemplaires de ce quatrième cahier
 "4 et pour trente exemplaires sur whatman le mardi
 AR, Ce cahier a été composé et tiré par des ouvriers syndig nés une;
-3 J. CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes, — 8617 À
+J. CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes, — 8617 À
 
 Dans les quatorze cahiers de leur onzième série,
 année 1909-1910, nos cahiers ont publié:
@@ -322,9 +322,7 @@ l'église, est un Villon.de la trentième +48
 année à la cinquantième.
 
 Jizzon est le premier poète à la
-moderne: le premier où l'on recon-
-
-naisse l'âme du poète étonnant, tel que la
+moderne: le premier où l'on reconnaisse l'âme du poète étonnant, tel que la
 France l'a conçu, tel que Paris l'a créé,;
 tel qu'il est resté, et tel qu'il devait être
 parmis nous depuis maître François. Les
@@ -516,8 +514,7 @@ sont vrais; et plus qu'il n'est ordinaire
 ne s'en fait pas une parure. Il n'avoue pas #3
 une faiblesse, pour s'orner de cent vertus.
 Sa misère, ses péchés; ses besoins, ses
-amours patibulaires; ses plaisirs prosti-
-lues, son repentir et ses rechutes; ses de
+amours patibulaires; ses plaisirs prostilues, son repentir et ses rechutes; ses de
 chaudes lippées dans la fang'e, et toujours
 sans vergogne; ses terreurs et ses Sueurs
 froides, tout le mal qu'on peut dire de
@@ -542,8 +539,7 @@ Cette langue plaît par la saveur
 “oyable du mot à côté du mot. Etle
 mot jaillit de la chose, comme source du
 rocher sous bois. La courte phrase est un ES
-mets simple, de qualité parfaite, assai-
-sonné de parfaites épices. Toute la bouche
+mets simple, de qualité parfaite, assaisonné de parfaites épices. Toute la bouche
 en est enchantée. Le palais se parfame. es
 La saveur se répand dans toute la tête.
 LE avec lui: on y est. LTÉE
@@ -770,8 +766,7 @@ s. si puissante, Dante, le grand poète du
 ; peut-être pour tous les temps. À
 Cette fatale tristesse descend dans Lee
 l'homme à de telles profondeurs, qu'elle
-porte tous les palais enchantés de l'espé-
-mort partout présente est l'une de ses
+porte tous les palais enchantés de l'espémort partout présente est l'une de ses
 
 si racines: et l'autre, l'instinct de raillerie:
 a. bafouer le siècle, cet appétit d'ironie
@@ -814,8 +809,7 @@ légère: elle est toujours bouffonne; et au
 ; bout de la corde, il y a peut-être un pendu.
 C'est le don de l'esprit, qu'il ne cesse pas
 
-4 de saisir les ridicules de l'action, les facé-
-ties du hasard, et l'inépuisable dérision
+4 de saisir les ridicules de l'action, les facéties du hasard, et l'inépuisable dérision
 de la vie. Le jeune homme est plus sensible au drame de l'existence qu'à la
 comédie; mais il s'en amuse presque également. Quand la passion ne prête pas son
 sérieux à la vie, et n'en fait pas une
@@ -825,8 +819,7 @@ voit une farce énorme. L'homme achevé,
 
 maître du drame et de sa propre ironie,
 conclut souvent à la farce tragique.
-Villon a tous les tons de la bouffon-
-nerie. Il touche à la farce violente: je le
+Villon a tous les tons de la bouffonnerie. Il touche à la farce violente: je le
 crois capable de faire rire, et de ne rire
 pas. Plus d'une fois, c'est sa force comique,
 c'est sa jeunesse qui pousse l'éclat de rire:
@@ -840,8 +833,7 @@ Au contraire, il est criminel avec inno- *.
 cence. Comme Verlaine, et encore plus. À
 Une perversité sans dessein n'est pas fort
 
-coupable. Les actions ne sont pas si perverses que la conscience. Enfin la perver-
-sité n'est point tant à méfaire, qu'au
+coupable. Les actions ne sont pas si perverses que la conscience. Enfin la perversité n'est point tant à méfaire, qu'au
 4 plaisir qu'on y prend.
 4 duplicité, de fourbe pateline, de souplesse
 Jaux que cette vue. Dans ses vers, Villon
@@ -861,8 +853,7 @@ Margot, la Belle Heaulmière, et Franc
 Docte et non peuple.
 RAR Villon sait du latin. Il sait les lois. Il
 a les histoires, et les chroniques de son
-à temps. Il sait les Ecritures. Il sait beau-
-oh” Parlant des Grecs et des Anciens, quand
+à temps. Il sait les Ecritures. Il sait beauoh” Parlant des Grecs et des Anciens, quand
 il se trompe, il semble le faire exprès. ROSE
 De Ses erreurs sont délicieuses. On dirait
 Il ne fait jamais le savant; il joue
@@ -1017,8 +1008,7 @@ les plus gens de loi! Il charge les
 legs qu'il prétend faire à des condamnés
 comme lui; et des théologiens reçoivent la
 sainte mission d'envoyer en jouissance de
-ses dons burlesques une bande de sacri-
-lèges, de putes et de vauriens.
+ses dons burlesques une bande de sacrilèges, de putes et de vauriens.
 Comme Verlaine s'en faire retraite
 à l'hôpital, ou comme il était recueilli par à
 
@@ -1175,8 +1165,7 @@ Les contraires sont en lui. À l'occasion
 être. Enfant pervers, il ne l'est pas plus
 ni moins que Verlaine. Je ne puis oublier
 que nous n'avons rien de lui, passé l'âge
-de trente-trois ans. Quel vrai poète, sur-
-tout dans l'infortune, n'est pas un enfant.
+de trente-trois ans. Quel vrai poète, surtout dans l'infortune, n'est pas un enfant.
 pervers, du moins avec les rêves qui le
 hantent et la femme qu'il caresse?
 Les érudits ne savent pas comment sont
@@ -1206,8 +1195,7 @@ tiste qui ne soit, pour la moitié, son
 propre témoin. Là, ils s'entendent rire; et
 là, ils s'écoutent pleurer. Ils goûtent leurs
 propres larmes; si, plus douces; ou si,
-plus amères. Ce n'est pas qu'ils en jouissent toujours: loin de; mais ils éprou-
-vent le sel, ils pèsent le miel de ces pleurs;
+plus amères. Ce n'est pas qu'ils en jouissent toujours: loin de; mais ils éprouvent le sel, ils pèsent le miel de ces pleurs;
 ils veulent savoir la teneur de fiel ou de
 nectar qui y entre. à
 
@@ -1271,12 +1259,10 @@ leur faiblesse, qu'ils ont trop d'honneur.
 Avec une âme à la Gœthe, qui serait
 Gœthe sans prince, sans fortune, sans
 Weimar, -et qui serait capable de donner
-vingt ans de sa vie à la théorie des cou-
-leurs, et à Faust un demi-siècle?
+vingt ans de sa vie à la théorie des couleurs, et à Faust un demi-siècle?
 Il faut être vrai: les poètes ne sont
 pas des corps glorieux. Ils sont des esprits
-plus ardents que brûle et tourmente davan-
-tage l'ardente gaine du corps.
+plus ardents que brûle et tourmente davantage l'ardente gaine du corps.
 Une profonde connaissance de la vie
 fait la raillerie de Villon si profonde:
 connaissance qu'ont seuls les pauvres,
@@ -1308,8 +1294,7 @@ Il ne croit à rien, selon l'ordre et les
 lois du monde. Mais il peut croire à tout,
 selon son propre sentiment.
 
-Cependant la vanité universelle et l'uni-
-versel hasard le font amèrement sourire.
+Cependant la vanité universelle et l'universel hasard le font amèrement sourire.
 
 Sa dérision s'y retrempe. Il se voit lui-
 ; même dans le néant, à force de voir le
@@ -1348,21 +1333,16 @@ De là, cette tristesse et cette moquerie
 aiguës, cette indulgence sans limites.
 Il n'y a rien de plus terrible, parfois,
 que l'indulgence de l'esprit qui nie, si ce À
-n'est l'indulgence d'une âme tout intelli-
-gente. Villon conclut à la mort comme à à
+n'est l'indulgence d'une âme tout intelligente. Villon conclut à la mort comme à à
 la réalité unique, et à la volupté, ici-bas,
 comme paradis.
 
 Il croit donc à son malheur, plus qu'à
 
-son indignité. Il ne se sent pas si cou-
-
-pable, sinon contre soi-même. Et puis
+son indignité. Il ne se sent pas si coupable, sinon contre soi-même. Et puis
 
 ; enfin, il mourir; et qui lui vient à
-l'aide? Or, criminel si l'on veut, con-
-
-damné, misérable, il n'oublie pas Jésus,
+l'aide? Or, criminel si l'on veut, condamné, misérable, il n'oublie pas Jésus,
 
 qui est pourtant contre les puissants,
 contre le riche et les heureux.
@@ -1419,8 +1399,7 @@ l'eau forte dans les pensées du néant. Le
 poëte est alors, à mon gré, l'homme par
 excellence: celui qui pénètre, entre tous,
 la condition de tous; qui en pâtit pour
-tous, puisqu'entre nous il en a passionné-
-ment conscience. Et sa charité fleurit de
+tous, puisqu'entre nous il en a passionnément conscience. Et sa charité fleurit de
 
 se ses transes égoïstes. Le « povre petit.
 escollier » a pitié de tous les pauvres,
@@ -1522,8 +1501,7 @@ allait leur couper le cou.
 Partout ce trait d'un œil aigu, ce regard qui
 pénètre, ce don des caractères; et dans la
 violence ou l'horreur même, cette exquise
-élégance qui est le parfum de tous nos raffi-
-doute il est musicien, Cependant, sa dévotion
+élégance qui est le parfum de tous nos raffidoute il est musicien, Cependant, sa dévotion
 
 à Beethoven l'a mal servi. C'est la moindre
 partie de son œuvre, la seule où il enfle la
@@ -1599,8 +1577,7 @@ débrouille un grand mystère: Jusque dans
 l'infamie et l'extrême misère des individus,
 c'est la race qui reste élégante.
 
-Enfin, Naudin a trouvé son sujet, que Rem-
-brandt n'eût jamais choisi. Il a dessiné, sur le
+Enfin, Naudin a trouvé son sujet, que Rembrandt n'eût jamais choisi. Il a dessiné, sur le
 texte de Villon, une centaine de planches,
 pleines de sens et d'esprit, presque toutes
 dans la forme la plus libre, et quelques-unes
@@ -1699,8 +1676,7 @@ le visage creux et usé avant le temps, des
 yeux mordants et caressants, le cheveu rare.
 une grande bouche spirituelle, le front réveur:
 une tête de prêtre, qui a beaucoup regardé la
-misère des humains, qui l'a sans doute éprou-
-vée et beaucoup confessée, sans dire si elle l'a
+misère des humains, qui l'a sans doute éprouvée et beaucoup confessée, sans dire si elle l'a
 secourue. Il a donné de ses traits à Villon; et
 
 bien que Villon se soit décrit petit homme et
@@ -1720,9 +1696,7 @@ Naudin l'a conçue, est trempée de tristesse.
 Elle est parfois terrible, comme un regard
 rieur dans une atroce souffrance. Cette gaîté
 hante trop les charniers, les cours de justice, à
-les cachots, les magistratures fourrées d'her-
-
-mine et d'hypocrisie, pour n'être pas amère,
+les cachots, les magistratures fourrées d'hermine et d'hypocrisie, pour n'être pas amère,
 Toutes lès chambres de la question lui sont
 familières, qui sont les logis changeants de la
 vie pour les pauvres, les criminels, les
@@ -1769,8 +1743,7 @@ A tout reproche, Villon répond par la souf- à
 france. Bien plus, il nous fait répondre pour
 lui. S'il pleure sur lui-même, et s'il crie à #4
 l'aide, il ne vante pas ses larmes. Il s'en rirait
-plutôt; à la barbe des bourreaux, pour ache-
-ver d'être libre, sa souffrance se raille en les
+plutôt; à la barbe des bourreaux, pour achever d'être libre, sa souffrance se raille en les
 raillant. Il a fallu quatre siècles, pour quon
 
 : aât plus loin dans l'émotion et la connais-

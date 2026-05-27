@@ -32,7 +32,6 @@ BérarD: La Politique du Sultan, Calmann Lévy.
 1897, un volume à trois francs cinquante, xx-364 pages,
 préface de M. Ernest Lavisse; aujourd'hui chez Armand
 Lupovic DE CoNTExsoN: Chrétiens et Musulmans,
-Paris, Plon,
 
 ‘ci Le traité de San Stefano, conclu le 3 mars 1878, contenait la clause suivante
 ARTICLE XVI. — Comme l'évacuation par les troupes
@@ -68,8 +67,7 @@ fera périodiquement connaître les mesures prises à cet
 effet aux Puissances qui veilleront à leur application.
 Ainsi, pour le peuple arménien dont l'histoire tout
 entière est faite de persécutions et de massacres, qui
-s'est trouvé sur la route des grandes invasions asia-
-tiques et a subi les conquêtes successives sans perdre,
+s'est trouvé sur la route des grandes invasions asiatiques et a subi les conquêtes successives sans perdre,
 sa langue, sa religion et ses traditions nationales, il
 semblait qu'une vie nouvelle allait commencer et que
 toutes les aptitudes de la race pourraient dès lors se
@@ -127,7 +125,7 @@ par certains documents recueillis dans les Blue Books.
 J'indiquerai ensuite par quels moyens il serait encore
 possible de sauver la race arménienne d'une disparition
 
-3 Les divers procédés administratifs et militaires
+Les divers procédés administratifs et militaires
 employés pour détruire sûrement les Arméniens peu
 À SALUT rangés sous les rubriques suivantes: à
 1° Interdiction de circuler; te
@@ -135,7 +133,7 @@ es des impôts; te
 1108,
 4° Installation d'émigrés sur les terres arméniennes;
 
-5 Évictions brutales; assassinats et brigandages; »
+Évictions brutales; assassinats et brigandages; »
 ‘complicité des beys kurdes et des autorités ottomanes;
 6° Massacres proprement dits: Zeïtoun et Sassoun.
 
@@ -164,7 +162,7 @@ littéralement des centaines de cas semblables et l'accroissement de la pauvret�
 diminution des affaires européennes — est largement
 aux obstacles qui empêchent les Arméniens de quitter leur
 
-4 Perception des impôts
+Perception des impôts
 La 44 Tant dans la plaine que sur la montagne, les ArméS niens sont mélangés aux populations musulmanes et
 “4 surtout aux Kurdes qui exercent sur eux depuis un
 temps presque immémorial une sorte de suzeraineté.
@@ -173,8 +171,7 @@ temps presque immémorial une sorte de suzeraineté.
 . Vimpôt de Æhafirlik (impôt de mécréant) aux dépens de
 È ceux dont ils se disent les ag'has ou maîtres, qu'ils sont
 « censés protéger et qu'ils protègent en effet quelquefois
-“avec une certaine loyauté contre les incursions et pil-
-lages des autres tribus.
+“avec une certaine loyauté contre les incursions et pillages des autres tribus.
 au SE gouvernement de son côté a établi de lourds
 impôts, aggravés pas le mode de perception.
 Voici en effet quelles étaient, avant les massacres, en
@@ -228,8 +225,7 @@ Ne. core travailler l'Arménien bien au delà du temps légal
 De même, contrairement à la loi, on réquisitionne les
 chariots des paysans; on réclame quarante chariots d'un
 village qui n'en a que vingt; les bêtes attelées aux chariots,
-ne pouvant résister à la faim et au travail trop rude, crèvent; les paysans sont battus et affamés; et comme la cor-
-wée a lieu dans la saison des semailles, au printemps, la cul-
+ne pouvant résister à la faim et au travail trop rude, crèvent; les paysans sont battus et affamés; et comme la corwée a lieu dans la saison des semailles, au printemps, la cul-
 … ture est interrompue.
 
 LE Après l'impôt, l'usure, le « séleffe » pratiqué par les
@@ -242,7 +238,7 @@ Le: forme de trafic. Par exemple, on convient avec le laboureur
 cux dans les campagnes, tous Turcs, et si les paysans n'on
 eux dans pagnes, tous si les pay ‘ont
 À Ni. pas de dettes, on les force sous différents prétextes de faire
-Le « séleffe »; on vend leurs animaux, les céréales et leurs
+Le « séleffe on vend leurs animaux, les céréales et leurs
 LE … bœufs, et le peuple ne peut par conséquent labourer ses
 Il existe bien une Banque agricole; mais c'est encore
 TA un instrument de ruine:
@@ -280,9 +276,7 @@ fonctionnaires turcs, ils se font volontiers agents provocateurs: « ils mettent
 veulent rendre coupable une lettre dangereuse et
 l'arrêtent ensuite. »
 Il n'est pas surprenant que la terreur policière règne
-dans les provinces quand elle est savamment organi-
-
-sée à Constantinople même. J'extrais quelques exemples
+dans les provinces quand elle est savamment organisée à Constantinople même. J'extrais quelques exemples
 des notes de police concernant un seul quartier de
 Ste boul. L'auteur des méfaits est le commissaire
 pri Ali effendi, du quartier de Koum Kapou
@@ -366,9 +360,9 @@ moyen d'alcool; mais chaque fois la noix était davantage
 -enfoncée dans sa tête
 3' Que pendant une nuit on l'avait pendu par la tête et
 les jambes entre deux chaînes suspendues;
-4 Que pendant toute une autre nuit on l'avait pendu par
+Que pendant toute une autre nuit on l'avait pendu par
 . le cou, les pieds touchant à peine terre; Et
-‘3% 5° Que des anneaux de fer rouge avaient été appliqués à!
+‘3% 5° Que des anneaux de fer rouge avaient été appliqués
 £. ses chevilles et l'avaient grièvement brûlé. /Blue Book,
 
 Installation d'émigrés sur les terres
@@ -403,8 +397,7 @@ soi champ etle moukhtar de Nadjarli furent emmenés,
 les mains liées, à la prison d'Adana; quant aux autres pie
 . paysans, on déchira sous leurs yeux les registres cadas-
 … traux et ordre leur fut donné de laisser en paix les immi-
-Enfin, dans une entrevue qu'ils ont eue avec M. Del-
-cassé, le 14 juin 1902, les députés Denys Cochin, comte
+Enfin, dans une entrevue qu'ils ont eue avec M. Delcassé, le 14 juin 1902, les députés Denys Cochin, comte
 ME Albert de Mun, Francis de Pressensé et Raïberti ont
 4 4 signalé l'installation d'émigrés tcherkesses dans les
 villages de la plaine de Moush: une partie de ces
@@ -580,8 +573,7 @@ plus tard), nous continuons à vous parler d'un certain
 À Zafar bey, kaïmakam hamidié, de Shavigh, chef de la tribu
 
 me ‘pour L'ARMÉNIE
-Shighagh; il a quarante-cinq ans, et habite dans la cam-
-pagne turque de Timar située vers le nord-est de la proKi! vince de Van.
+Shighagh; il a quarante-cinq ans, et habite dans la campagne turque de Timar située vers le nord-est de la proKi! vince de Van.
 1] En Zafar bey a détruit et pillé Les campagnes arméniennes
 . suivantes pendant les massacres; en voici les noms:
 1. Shivakhar, des trente maisons, il reste aujourd'hui
@@ -637,9 +629,7 @@ impériale; alors déjà il assista les Kurdes dans le
 Sassoun, et c'est lui qui, à Guellieh Guzan, fit pousser
 à coups de baïonnette, dans une fosse préparée à
 l'avance, deux cents malheureux Arméniens sans armes?
-qui s'étaient fiés à sa parole. Mais il n'est pas seule-
-
-ment l'allié des aghas et bey kurdes les plus voisins de
+qui s'étaient fiés à sa parole. Mais il n'est pas seulement l'allié des aghas et bey kurdes les plus voisins de
 sa résidence, et il contracte des amitiés lointaines, à
 
 Cut: toujours avantageuses. C'est ainsi qu'il est dans les
@@ -727,7 +717,7 @@ près de Van, sur deux cents maisons, il en reste cent etla
 1 plupart sont vides. Dans un diocèse voisin l'arachnort,
 …. délégué patriarcal pour l'administration civile et reli-
 …._ gieuse, écrivait à la date du 13 mai 1899:
-0 J'ai visité, j'ai de mes propres yeux et j'ai pleuré sur
+J'ai visité, j'ai de mes propres yeux et j'ai pleuré sur
 Le misère de notre pauvre peuple sars protection... Et
 … jusqu'à présent, je me repens, et je me dis toujours: n'au-
 : LE ai il pas mieux valu ne pas visiter ma paroisse et ne pas
@@ -773,8 +763,7 @@ eux-mêmes et les leurs. Souvent ces tribus ou ces beys- À
 aghas, très bons et très humains, poussés par l'animosité
 ou par leur instinct bestial ou par un caprice, attaquemt,
 soudain, un village arménien; ils tuent les notables du
-village, ils pillent tout le village; ils l'incendient quelque-
-fois, et s'en vont; les paysans arméniens restent devant
+village, ils pillent tout le village; ils l'incendient quelquefois, et s'en vont; les paysans arméniens restent devant
 le tas de cendres et de cadavres; privés de tout, pleurant
 et gémissant, ils tombent dans le servage….
 
@@ -847,8 +836,7 @@ pendant la nuit quandil était à la garde de ses bœufs.
 k. Juin 1901.— Hasrak de Mogounk, est mort à la suite de
 É tortures à lui infligées pendant les perquisitions à la suite
 : de la disparition de Chérif aga.
-Le 10/23 juin 1901. — Alexan Oumourchadian, d'Erich-
-dner, enfant de treize ans, est mort par la peur pendantles
+Le 10/23 juin 1901. — Alexan Oumourchadian, d'Erichdner, enfant de treize ans, est mort par la peur pendantles
 à troubles des Kurdes.
 16 - Mairgor. — Sont morts dans les prisons, sans avoir
 subi interrogatoire ni condamnation, les nommés Highat à
@@ -866,8 +854,7 @@ Le vali de Bitlis qui se trouvait à Moush depuis le
 4 18/30 mai a voulu rassurer les Arméniens, mais personne
 . n'attache importance à ses paroles. L'expérience du passé
 {5 avait beaucoup diminué la valeur des paroles des fonctionÀ naires du gouvernement.
-nv' Les villages d'alentour se trouvent tous dans une con-
-dition des plus tristes. Les méfaits qui ont précédé les
+nv' Les villages d'alentour se trouvent tous dans une condition des plus tristes. Les méfaits qui ont précédé les
 
 massacres derniers, recommencent encore une fois. En
 quelques jours seulement on a compté quatorze Arméniens
@@ -900,8 +887,7 @@ Madnavank, de retour de la ville, est poursuivi par le
 
 cassien #2) et ses deux compagnons et il arrive à peine
 rÈ&) se sauver des balles de leurs fusils.
-Le 26/9 Juillet. — Deux Arméniens d'Avzond sont atta-
-ués assassinés au milieu du village, de plein jour.
+Le 26/9 Juillet. — Deux Arméniens d'Avzond sont attaués assassinés au milieu du village, de plein jour.
 Le 27/10 juillet. — Artin Eghoyan, chef du village
 Erx on est tué par une balle tirée de plein jour par le À
 Kurde Mozik de Khttour.
@@ -964,7 +950,7 @@ couchés à terre sur l'ordre du chef, elles s'entretuèrent
 3 dans l'obscurité. Les Tures et les Kurdes eurent
 trois cents morts, les fédaïs quinze seulement.
 
-é: Mais après Le départ de la bande, les Kurdes se ven- À
+Mais après Le départ de la bande, les Kurdes se ven- À
 gèrent terriblement sur le village de Khassdour: ils
 ….. tuèrent plus de deux cents hommes, femmes et enfants,
 xiolèrent et enlevèrent toutes les jeunes filles, pillèrent
@@ -1026,7 +1012,7 @@ de leurs femmes. Nous les avons placés dans les maisons
 182 combattants de ne pas toucher aux ornements et aux bijoux
 4 … dont les femmes turques étaient chargées; les Arméniennes
 eur firent, d'ailleurs, un accueil amical; elles leur distri_ buèrent des fruits, des confitures, et leur donnèrent à boire.
-De Ce fut une journée de gloire et d'allégresse pour le peuple »: de Zeïtoun.
+De Ce fut une journée de gloire et d'allégresse pour le peuple de Zeïtoun.
 {Zeïtoun, par Aghassi)
 . Le gouvernement turc feignit d'abord de traiter la
 révolte des Zeïtouniotes comme peu importante. Le
@@ -1042,8 +1028,7 @@ Zeïtouniotes combattants était de 1.500 environ; le
 nombre total des réfugiés s'élevait à 15.000 environ.
 Le siège de Zeïtoun commença le 11 décembre; le
 3 janvier, Remsi pacha était destitué et remplacé par
-… Edhem pacha, le futur vainqueur de la campagne thes-
-salienne. À cette date, malgré les horreurs de la faim
+… Edhem pacha, le futur vainqueur de la campagne thessalienne. À cette date, malgré les horreurs de la faim
 et du froid, les assiégés tenaient tête avec un prodi3 … gieux courage. Le 6, un armistice fut conclu, et la
 médiation des consuls européens acceptée. Enfin, le
 
@@ -1078,7 +1063,7 @@ refuser le concours des ambassadeurs et dans le second il
 À a été trop heureux de l'intervention des Puissances. (Livre
 Jaune, 1897. Affaires arméniennes (supplément) numéro 115}
 
-4 Depuis ce moment, les Zeïtouniotes, malgré des vexations et des provocations sans nombre, ont scrupuleu-
+Depuis ce moment, les Zeïtouniotes, malgré des vexations et des provocations sans nombre, ont scrupuleu-
 0 sement respecté les engagements pris; ils ont suivi à
 4 la lettre le conseil donné à leurs chefs par Edhem
 É pacha: « J'espère que vous serez sages, comme vous
@@ -1086,8 +1071,7 @@ avez être braves. »
 
 Mais après une courte période d'accalmie, les
 vexations turques recommencèrent. Dans le second
-4 semestre de 1900, quatre-vingts assassinats d'Armé-
-niens eurent lieu dans les villages de Zeïtoun. Puis, en
+4 semestre de 1900, quatre-vingts assassinats d'Arméniens eurent lieu dans les villages de Zeïtoun. Puis, en
 mars, arrestations et perquisitions. Vingt personnes,
 dont six maîtres d'école, furent incarcérées à Marash.
 En même temps, des blockhaus étaient construits à
@@ -1207,8 +1191,7 @@ Spaghank, Maghar, était surtout grande, pour avoir repoussé l'attaque de l'ann
 chercher et trouver sa femme Timène, et voyant qu'elle
 était enceinte, il lui fit fendre le ventre, et enlever l'enfant tout vivant; on le mit en pièces dans les bras de sa
 ; mère et ensuite on perce la mère de cinquante coups de
-À Ils attaquent alors l'église, mais il est impossible de percer les murs ou d'enfoncer la porte; par conséquent, ils en-
-tassent devant l'église des gerbes d'orge et d'herbe et en y
+À Ils attaquent alors l'église, mais il est impossible de percer les murs ou d'enfoncer la porte; par conséquent, ils entassent devant l'église des gerbes d'orge et d'herbe et en y
 versant du pétrole, incendient les tas et mettent le feu à la
 porte. La fumée pénètre dans l'église; aux cris plaintifs
 succèdent les ràles des agonisants, et puis un silence — les
@@ -1224,9 +1207,7 @@ femmes blessées se jettent également à l'eau, et se cramÀ ponnant ensuite à
 
 À Spaghank seulement, il y eut environ deux cents
 morts; les villages voisins de Gokhovid, Guélache,
-Hossnonde furent entièrement pillés; d'autres meur45
-
-tres eurent lieu à Eggharte et à Tsorer, et ce qui restait
+Hossnonde furent entièrement pillés; d'autres meurtres eurent lieu à Eggharte et à Tsorer, et ce qui restait
 du village de Hitenk fut définitivement anéanti.
 Un peu plus tard, Ali pacha envoya à Spaghank une
 troupe de soldats pour déterrer les morts et les brûler,
@@ -1280,8 +1261,7 @@ mi: projeté de faire descendre les Sassouniotes de leurs mon-
 peur, le gouvernement y a envoyé des ingénieurs-architectes
 avec cinq cents soldats, pour construire des casernes sur
 … irois points, Chenik, Guellieh Guzan et Talori.
-Les Sassouniotes devinent l'arrière-pensée du gouverne-
-ment, qui voulait par ce moyen les supprimer, et en consi14 dérant que l'éloignement de leur sol sera le coup mortel
+Les Sassouniotes devinent l'arrière-pensée du gouvernement, qui voulait par ce moyen les supprimer, et en consi14 dérant que l'éloignement de leur sol sera le coup mortel
 poureux, ils ont dépêché au gouverneur de Moush une
 
 adresse commune, en disant: « Sivous voulez nous dépayser,
@@ -1324,8 +1304,7 @@ dans le sang.
 
 - Les aghas de Kothan envahissent Mogounk accom-
 - pagnés de la foule et des agents: on fait des recherches
-et on trouve le cadavre de Chérif. On envahit le vil_ lage; on tue le premier venu et on incendie tout le vil-
-lage. Vingt personnes sont tuées; quatre à cinq fenils
+et on trouve le cadavre de Chérif. On envahit le vil_ lage; on tue le premier venu et on incendie tout le village. Vingt personnes sont tuées; quatre à cinq fenils
 se trouvant en dehors furent épargnés. Mais l'affaire ne
 . s'arrête pas là. La nouvelle de la destruction de
 - Mogounk se répandit aussitôt et les Kurdes se hâtèrent
@@ -1392,8 +1371,7 @@ Pologne, en Autriche-Hongrie. La question religieuse n'y
 ; est pour rien; la lutte s'appelle antisémitisme en Europe,
 elle s'appelle question arménienne en Turquie. Au fond, -
 c'est absolument la même chose, the struggle for life, entre
-l'omnipotence de la ploutocratie sans vergogne, sans seru-
-pule et sans cœur, et les revendications des populations
+l'omnipotence de la ploutocratie sans vergogne, sans serupule et sans cœur, et les revendications des populations
 intelligentes, travailleuses, généreuses, patriotes qui, sortant
 de la légalité pour rentrer dans le droit, veulent reprendre
 par la force, et d'un seul coup, tout ce dont l'astuce, la ruse,
@@ -1470,8 +1448,7 @@ Ils sont armuriers, couteliers et orfèvres, surtout à
 Angora, presque partout tisserands, forgerons, chau- dronniers. Ils seraient, semble-t-il, les plus aptes à l'in- dustrie, si l'industrie se développait en Turquie: les
 
 0 pour v'aRMéNE FRE fit
-a à Arslan bey Keui, près d'Ismidt, la fabrique impé-
-riale de drap militaire et de fez est entièrement con
+a à Arslan bey Keui, près d'Ismidt, la fabrique impériale de drap militaire et de fez est entièrement con
 
 duite par eux.
 Dans une liste des prisonniers politiques arméniens à
@@ -1542,8 +1519,7 @@ A Tutudjian. Marchand de tabac.
 de Eufiedjian. Marchand de tabac à priser.
 Tchiboukdjian. Marchand de pipes.
 L'argament tiré de la statistique est très en Are
-… faveur chez les diplomates; il est d'autant plus dange-
-reux qu'il présente une apparence scientifique: Les
+… faveur chez les diplomates; il est d'autant plus dangereux qu'il présente une apparence scientifique: Les
 . Arméniens, dit-on, ne sont en majorité nulle part;
 partout ils sont noyés dans des masses hétérogènes par
 … la race, la langue et la religion. Dans un Livre Jaune
@@ -1597,8 +1573,7 @@ la vérité en s'arrêtant à une moyenne de huit à
 total de 96.000 âmes, soit 9,6 en moyenne par famille.
 Il est donc légitime de rectifier les chiffres ordinaires,
 en doublant presque le total de la population arménienne par rapport à la population musulmane.
-Il faut considérer en outre que les statistiques off-
-cielles tendraient à diminuer encore le nombre des
+Il faut considérer en outre que les statistiques offcielles tendraient à diminuer encore le nombre des
 Arméniens et qu'elles sont plus ou moins reproduites
 par les auteurs les plus consciencieux; c'est ainsi que
 dans l'œuvre relativement bien documentée de Vital
@@ -1703,8 +1678,7 @@ il a fallu renoncer à cet espoir, et de les lamentations de
 …—_. Jérémie surles chiens éventrés. Tous les plats valets de
 À l'Angleterre qui font sauter ses guinées, tous les paillasses
 quipour amuser la foule passent à travers des cerceaux
-ont recommencé leurs jongleries, heureux de trouver une tête de Turc pour faire parade de sentiments et de fanfa-
-ronnades sans nom.
+ont recommencé leurs jongleries, heureux de trouver une tête de Turc pour faire parade de sentiments et de fanfaronnades sans nom.
 
 Il faut se féliciter qu'au milieu de ce tapage incohérent,
 les gouvernements russe et français aient gardé tout leur
@@ -1724,24 +1698,19 @@ Pendant l'été de cette année les représentants d'une
 quarantaine de comités formés pour la plupart par des
 agents partis de Marsevan, devaient se réunir assemblée provinciale. Y vinrent les représentants des comités des vilayets d'Angora et de Sivas et, seulement
 pour la région de Samsoun, ceux du: vilayet de Trébizonde. L'assemblée put se réunir toute une semaine.
-Elle nomma un comité directeur, composé de deux personnes, appartenant toutes deux au comité de Marse-
-empoisonné dans la prison d''Amasia); secrétaire,
+Elle nomma un comité directeur, composé de deux personnes, appartenant toutes deux au comité de Marseempoisonné dans la prison d''Amasia); secrétaire,
 Vahram, de qui je tiens les présentes notes.
 
 A l'automne le Comité central de Londres envoya au
-Comité de Marsevan les textes de deux placards rédi-
-gés en turcet destinés aux musulmans, qui devaient.
+Comité de Marsevan les textes de deux placards rédigés en turcet destinés aux musulmans, qui devaient.
 être affichés, le même jour, dans les quarante villes ou
 villages dépendant de Marsevan. Vingt mille exem- À
-plaires furent tirés à l'aide d'un cyclostyle et expé-
-diés, dans le secret le plus absolu, par les courriers
+plaires furent tirés à l'aide d'un cyclostyle et expédiés, dans le secret le plus absolu, par les courriers
 
 pe: qui faisaient régulièrement le trajet de Marsevan à Sivas, Césarée et Samsoun.
 
 … A la date fixée les placards furent aflichés partout
-…. le Sultan y était traité d'Hamid-Tchaouch qui désho-
-
-norait empire et devait être renversé; les musulmans
+…. le Sultan y était traité d'Hamid-Tchaouch qui déshonorait empire et devait être renversé; les musulmans
 
 - étaient invités à se révolter contre un khalife qui cau-
 
@@ -1782,8 +1751,7 @@ Pierre Quillard des Arméniens. Comme il ne pouvait rien contre eux,
 il arrêta du moins les deux professeurs arméniens du
 collège, MM. Thoumayan et Kayayan. Circonstance
 aggravante: ceux-ci avaient fait, pendant les vacances,
-un voyage à Césarée, et avaient ainsi passé dans plu-
-sieurs des villages où avaient été placardées les affiches
+un voyage à Césarée, et avaient ainsi passé dans plusieurs des villages où avaient été placardées les affiches
 séditieuses. Khossrew pacha obtint par la torture des
 dénonciations de prisonniers de Césarée contre les
 professeurs Thoumayan et Kayayan et ieur fit même
@@ -1822,16 +1790,12 @@ au bazar, et abattu à coups de revolver.
 Peu après, comme pour donner raison à ceux qui
 espéraient une intervention étrangère, le collège des
 
-4 filles, à moitié construit, fut incendié dans des circon-
-
-stances inexpliquées, mais que l'on dirait provi- dentielles.
+4 filles, à moitié construit, fut incendié dans des circonstances inexpliquées, mais que l'on dirait provi- dentielles.
 
 Cette fois, M. Jewett, consul des États-Unis à Sivas,
 accompagné de M. Newberry, attaché à la légation de
 Constantinople, accourut à Marsevan, pour faire une
-enquête: on accusait Khossrew d'être l'auteur ou l'insti-
-
-gateur de l'incendie; les antécédents du personnage —
+enquête: on accusait Khossrew d'être l'auteur ou l'instigateur de l'incendie; les antécédents du personnage —
 c'était un ancien bandit — rendaient l'opinion probable.
 
 À Une commission composée des deux Américains et de
@@ -1848,9 +1812,7 @@ on les jugea. Cependant le comité ne restait pas inactif
 et procédait à la suppression des Arméniens qui
 s'étaient faits espions et délateurs. Ainsi furent assassinés successivement le notable Kérimlian, Miguir,
 Chahbender, Mardiros Miridjanian et d'autres, tous
-en plein jour et avec une telle audace que le gouver-
-
-neur n'osait même plus faire d'enquêtes ni arrêter qui
+en plein jour et avec une telle audace que le gouverneur n'osait même plus faire d'enquêtes ni arrêter qui
 que ce fût.
 
 Békir pacha, nommé kaïmakam de Marsevan, ne
@@ -1877,8 +1839,7 @@ en Europe la légende russe; elle est exposée tout au long
 dans une lettre du révérend docteur Cyrus Hamlin,
 adressée au Congreg'ationalist de Boston; le docteur
 Hanmlin rapporte une conversation qu'il a eue avec un
-représentant des Comités et où tout le plan des révolu-
-tionnaires lui aurait été dévoilé: il ressort de ce À
+représentant des Comités et où tout le plan des révolutionnaires lui aurait été dévoilé: il ressort de ce À
 dialogue que les Arméniens pensaient que les massacres
 
 . attireraient l'attention de l'Europe et qu'il en serait de
@@ -1931,8 +1892,7 @@ les tribus kurdes, ils furent obligés de battre en retraite
 et de regagner le territoire russe.
 Sur la frontière, ils se heurtèrent à une troupe de
 cosaques renforcée de Kurdes. Un cosaque et trois
-Arméniens furent tués; quarante-trois des révolution-
-naires furent pris; les autres s'échappèrent.
+Arméniens furent tués; quarante-trois des révolutionnaires furent pris; les autres s'échappèrent.
 Les prisonniers furent conduits, par étapes, à Kars,
 où ils devaient être jugés. Sur leur passage le peuple
 les acclamait. Le procès fut retardé jusqu'au mois de
@@ -1980,8 +1940,7 @@ liste, fort incomplète, a été établie par les soins de
 révolutionnaires résidant en Europe: elle ne comprend
 que les noms de ceux qui ont à subir un mois de
 prison. On n'y a pas mentionné les incarcérations de
-quelques jours par mesure de police ni les innombra-
-bles cas de « surveillance directe par la police ». Il
+quelques jours par mesure de police ni les innombrables cas de « surveillance directe par la police ». Il
 faut ajouter que les condamnés de Bakou et de Tiflis
 en 1895-1896 ne furent relâchés que contre une caution
 de 500 à 2.000 roubles; et que tous les prisonniers, leur
@@ -2017,14 +1976,14 @@ durée, exilé à Astrakan pour cinq ans. #4
 15. Wartanian Khatchik, arrêté à Akhalkhalak et exilé à
 Rostow (sur le Don) pour un délai indéterminé.
 4 17. Ward Pairikoff, arrêté à Constantinople, transporté à
-4 Tiflis et exilé pour trois ans en Russie du Nord (Wiatka).
+Tiflis et exilé pour trois ans en Russie du Nord (Wiatka).
 à 18. Maloumian Khatchatour, arrêté à Tiflis, 1892 (un
 mois de prison), à Bakou, 1895.
 19. Agayan Gazaross, 1895, emprisonné à Tiflis et exilé à
 Nakitchevan pour deux ans.
 8 20. Chirvanzadé arrêté en 1895, emprisonné à Tiflis et exilé
 4 à Odessa pour un an.
-2 Issaakian Aretik, arrêté en 1896, emprisonné à Erivan
+Issaakian Aretik, arrêté en 1896, emprisonné à Erivan
 pendant un an et exilé à Odessa pour deux ans.
 
 93. Kafian Gabriel, arrêté en 1893 et exilé en Russie du
@@ -2100,8 +2059,7 @@ exilé à Odessa pour deux ans.
 - pendu à Andrinople le mardi 10 décembre 1901.]
 Malgré les rigueurs et poursuites de tous genres y
 exercées contre les révolutionnaires arméniens par le
-; gouvernement russe, l'Arménisant allemand, Wal-
-demar Belck, a cru pouvoir établir par des allégations précises que la formation, l'équipement et le
+; gouvernement russe, l'Arménisant allemand, Waldemar Belck, a cru pouvoir établir par des allégations précises que la formation, l'équipement et le
 È passage des bandes arméniennes, fortes de cinquante à
 . cent hommes, de Transcaucasie en Turquie, étaient
 favorisés même, par les autorités russes. Son
@@ -2126,7 +2084,7 @@ comme le prétendent les autorités russes. Au reste, le
 docteur Belck, ayant entre les mains un des fusils
 pris aux révolutionnaires arméniens, le remit à un
 fonctionnaire russe « pour faciliter la recherche des
-voleurs »; le fonctionnaire déclina l'offre en souriant et
+voleurs le fonctionnaire déclina l'offre en souriant et
 déclara que cela n'était pas intéressant,
 
 Le raisonnement du docteur Belck repose sur des
@@ -2158,9 +2116,7 @@ l'armée russe, mais aussi les brigands et les aghas
 Kurdes, qui sont eux tolérés et protégés dans leurs
 incursions contre les villages de Transcaucasie parce
 
-qu'ils rendent au despotisme du tsar, comme au despo-
-
-tisme de Hamid, l'inestimable service d'opprimer
+qu'ils rendent au despotisme du tsar, comme au despotisme de Hamid, l'inestimable service d'opprimer
 
 Vélément arménien, de surveiller ses « menées » et de
 
@@ -2193,14 +2149,11 @@ des soldats russes ne la portent jamais: ils sont
 
 U. T. Z. (usines impériales de Toula).
 
-Quant aux numéros que portent les fusils de la fédé-
-
-ration révolutionnaire, ils peuvent fort bien figurer
+Quant aux numéros que portent les fusils de la fédération révolutionnaire, ils peuvent fort bien figurer
 aussi sur les fusils des soldats russes, par la simple
 raison qu'un fusil tel numéro étant éliminé (B) est
 ensuite reproduit, en bonne qualité, avec le même
-Du reste tous les fusils des révolutionnaires armé-
-niens ne sont pas de même construction. Les contrebandiers tartares leur vendent d'excellents fusils nouveau!
+Du reste tous les fusils des révolutionnaires arméniens ne sont pas de même construction. Les contrebandiers tartares leur vendent d'excellents fusils nouveau!
 système (Berdan, Mauser, Aïnalou), qui parviennent!
 également par leur intermédiaire à tous les nomades de
 Transcaucasie, en particulier aux Kurdes et aux brigands locaux.
@@ -2217,13 +2170,11 @@ de son autorité. Ny.
 Les Arméniens ont été souvent accusés de man-
 4 quer de courage et beaucoup de gens s'étonnent que
 « comme des moutons sans opposer de résistance à
-leurs bourreaux. Mais on néglige de dire que les Arméne. niens, entièrement désarmés, aussi bien à Constanti-
-nople que dans les provinces, étaient en présence de
+leurs bourreaux. Mais on néglige de dire que les Arméne. niens, entièrement désarmés, aussi bien à Constantinople que dans les provinces, étaient en présence de
 troupes régulières, de policiers et de hamidiés, ou de
 … lentes, et il faut n'avoir jamais une foule parisienne
 détaler devant quelques sergents de ville pour reprocher » àces malheureux d'avoir subi la loi du plus fort.
-Partout au contraire où ils ont des armes, les Armé-
-niens, aussi bien que les palikares et armatoles hellènes
+Partout au contraire où ils ont des armes, les Arméniens, aussi bien que les palikares et armatoles hellènes
 . et les heïduks serbes ou bulgares, savent se défendre.
 luttèrent pendant trois mois contre 50.000 Turcs, réguliers et bachi-bouzoucks; et selon l'expression de M. de
 la Boulinière, chargé d'affaires de France, « les Puissances rendirent au Sultan le grand service de le tirer
@@ -2263,9 +2214,7 @@ chef, tout le campement kurde était établi entre la montagne etune rivière. L
 proximité des tentes: à l'aube les Kurdes les aperçurent
 et le combat s'engagea.
 
-Il dura deux heures environ; les Arméniens demeu-
-
-èrent maîtres du terrain. Interdiction de piller et, sous
+Il dura deux heures environ; les Arméniens demeuèrent maîtres du terrain. Interdiction de piller et, sous
 peine de mort, défense de violenter les femmes et les
 enfants: il n'y avait que très peu de femmes et d'enfe _fants tués, pendant le combat même. C'est autour des » deux tentes blanches de Scharéo que la lutte fut le plus
 vive: un major turc et des notables turcs s'y trouvaient
@@ -2300,8 +2249,7 @@ représailles contre les tyranneaux kurdes et turcs.
 Serop est mort dans une embuscade, trahi par un
 paysan. Mais d'autres ont survécu et en ce moment
 même entre Van, Moush et le Sassoun, le chef Antranik
-circule sans que les autorités turques arrivent à se sai-
-sir de lui. L'an dernier, il exécuta Khalil Beshir, le
+circule sans que les autorités turques arrivent à se saisir de lui. L'an dernier, il exécuta Khalil Beshir, le
 bourreau de Hiltenk, Spaghank, et Chouchnamark.
 Pendant l'hiver de 1901, il s'était réfugié au monastère à
 de Sourp Arakélotz, qui commande les premières passes
@@ -2336,7 +2284,7 @@ Puis il ajouta
 2° Qu'ils n'avaient jamais pillé de village, attaqué de courhi riers, tué des gens inoffensifs
 3° Qu'ils avaient exécuté Khalil Beshir et trois autres
 Kurdes, auteurs de meurtres à Chouchnamark
-?; - 4° Qu'au contraire — et il fit une énumération complète
+- 4° Qu'au contraire — et il fit une énumération complète
 1. — Les Kurdes avaient commis d'innombrables pillages, viols,
 4 meurtres et massacres, tant dans les villages de Moush que
 13 dans ceux du Sassoun;
@@ -2348,13 +2296,9 @@ comme autant de sultans de la vie et des biens des Arméniens, levant l'impôt p
 pour eux-mêmes et pour les Arméniens du pays.
 
 L'évêque Berighian quitta alors le couvent et, rentré à
-Moush, communiqua au gouverneur général, au comman1 dant militaire, et aux consuls anglais et russe les déclara-
-tions d'Antranik, qui ont été consignées dans un rapport
-écrit.
+Moush, communiqua au gouverneur général, au comman1 dant militaire, et aux consuls anglais et russe les déclarations d'Antranik, qui ont été consignées dans un rapport
 Les autorités turques allaient lui envoyer une seconde
-ambassade quand on apprit, dans la matinée du 9 décem-
-
-bre, qu'il avait quitté le couvent avec toute sa bande, pendant la nuit précédente. Deux de ses compagnons avaient
+ambassade quand on apprit, dans la matinée du 9 décembre, qu'il avait quitté le couvent avec toute sa bande, pendant la nuit précédente. Deux de ses compagnons avaient
 été tués pendant le siège; deux soldats turcs avaient été
 Les audacieux coups de main de tels hommes donnent parfois à réfléchir aux ministres européens quand
 ils en ont connaissance: c'est évidemment à Antranik et au rapport ci-dessus que M. Delcassé faisait
@@ -2464,9 +2408,7 @@ bouclés, au regard très doux. Il aurait voulu reprendre
 
 aussitôt l'œuvre interrompue; mais il était retenu au
 
-4 chevet de la pauvre femme, atteinte d'un mal inguéris-
-
-sable, et dont son départ eût hâté la fin. Quand elle fut
+4 chevet de la pauvre femme, atteinte d'un mal inguérissable, et dont son départ eût hâté la fin. Quand elle fut
 
 morte, ses sœurs mariées, son frère libéré du service,
 
@@ -2486,11 +2428,9 @@ la révolution et les révolutionnaires. IL avait demandé
 qu'on lui confiât une mission, fût-elle dangereuse, ou
 qu'au moins une aide lui fût donnée pour aller s'établir
 ailleurs. Il partit ainsi pour Philippopoli, où il vivait
-très largement de son métier, distribuant à ses cama-
-rades la plus grande partie de son salaire. Il s'était
+très largement de son métier, distribuant à ses camarades la plus grande partie de son salaire. Il s'était
 exercé au tir et avait gagné un premier prix au con-.
-cours de tir. Au combat de Kiretchli, il put ainsi infli-
-ger aux assaillants des pertes graves.
+cours de tir. Au combat de Kiretchli, il put ainsi infliger aux assaillants des pertes graves.
 Au contraire d'Onnixk Thorossian, Thathoul Zarmanian était depuis longtemps révolutionnaire. De taille
 moyenne, les épaules larges, un sourire d'enfant sur à
 le visage, il avait la voix si douce que « quand parlait, on aurait cru qu'il prononçait les mots très bas,
@@ -2503,9 +2443,7 @@ et il ne songeait qu'à le réparer par quelque action
 éclatante. Thathoul tomba à Kiretchli; ainsi lui furent
 épargnées les souffrances de la prison, les bastonnades, les tortures réservées à ses compagnons survivants.
 
-Les morts comme Onnik Therossian, Bédros Sérem-
-
-djian, Thathoul Zarmanian, Yorghi Photeff, Sviatoslav Merdjanoff, Hadjikhristo Iliev et leurs frères d'armes ne doivent pas être honorés par de vaines déclama-
+Les morts comme Onnik Therossian, Bédros Séremdjian, Thathoul Zarmanian, Yorghi Photeff, Sviatoslav Merdjanoff, Hadjikhristo Iliev et leurs frères d'armes ne doivent pas être honorés par de vaines déclama-
 
 À Mais leurs actes seraient d'un singulier enseignement
 
@@ -2513,9 +2451,7 @@ pour les hommes d'État pratiques, s'ils étaient capables
 
 : d'en comprendre toute la signification et toute l'impor-
 
-4 Quand, en 1867, le comité secret révolutionnaire bul-
-
-gare demanda au sultan Abd-ul-Aziz l'autonomie sous
+Quand, en 1867, le comité secret révolutionnaire bulgare demanda au sultan Abd-ul-Aziz l'autonomie sous
 la souveraineté du khalife, qui prendrait le titre d'empereur des Bulgares, le Sultan écarta dédaigneusement leur mémoire: l'écrasement des insurrections de
 1841 et de 1851 lui donnait pleine confiance pour
 l'avenir.
@@ -2607,9 +2543,7 @@ simple ou l'abolition lente de leur langue et de leur
 nationalité, et un proverbe populaire dit chez eux que
 « le Turc coupe les branches de l'arbre et que le Russe
 en coupe les racines ».
-L'annexion à la Russie ne serait nullement avan96
-
-tageuse pour les Arméniens. Il n'est pas sûr d'ailleurs
+L'annexion à la Russie ne serait nullement avantageuse pour les Arméniens. Il n'est pas sûr d'ailleurs
 qu'elle pût se faire sans amener les protestations
 d'autres nations européennes. Non seulement l'Allemagne, mais la France même et en général toutes les
 Puissances, à l'exception de la Russie, ont en Turquie
@@ -2640,17 +2574,14 @@ toute mesure de coercition à l'égard du Sultan risque
 de déchaïîner une guerre européenne.
 
 Il a été prouvé par les faits que cet argument n'avait
-aucune valeur, une première fois, après la guerre turco97
-
-grecque; une seconde fois, Fannée dernière, lors du
+aucune valeur, une première fois, après la guerre turcogrecque; une seconde fois, Fannée dernière, lors du
 conflit franco-turc; et en ces deux circonstances, c'est
 M. Delcassé qui a démontré que de pareilles craintes
 étaient vaines.
 Quand il fallut imposer au Sultan l'autonomie crétoise, l'Allemagne et l'Autriche étaient nettement hostiles
 aux désirs des Hellènes, la Russie peu favorable; VAngleterre, l'Italie et la France se trouvaient en plein
 accord pour enlever au Sultan victorieux une province
-de son empire. Le ministre français des affaires étran-
-gères, avec une décision et une énergie très louables,
+de son empire. Le ministre français des affaires étrangères, avec une décision et une énergie très louables,
 sut faire accepter son opinion par la « nation amie À
 et sur un ultimatum des quatre Puissances, qui le menaçaient de recourir à la force s'il ne se soumettait pas,
 le Sultan céda, à la date exacte où son protecteur Guil- à
@@ -2766,8 +2697,7 @@ fâcheux, voulût bien tenir officieusement les représentants
 
 14 des Puissances au courant des choix qu'il aurait l'intention
 de faire.
-à S. M. I. le Sultan accordera une large amnistie aux Armé-
-niens accusés ou condamnés pour des faits politiques, et À
+à S. M. I. le Sultan accordera une large amnistie aux Arméniens accusés ou condamnés pour des faits politiques, et À
 A ne seraient pas convaincus de participation directe à
 
 - des crimes de droit commun.
@@ -2787,22 +2717,19 @@ Tous les procès pour crimes ou délits de droit commun,
 actuellement en cours d'instruction ou de jugement, devront
 
 Pour l'Arménie
-être réglés sans retard. Des commissions judiciaires, délé-
-guées spécialement de Constantinople, seront envoyées dans à
+être réglés sans retard. Des commissions judiciaires, déléguées spécialement de Constantinople, seront envoyées dans à
 chaque vilayet et procéderont rapidement, au chef-lieu de
 chaque sandjak, au règlement de toutes les instances en
 
 Leurs décisions ne seront susceptibles d'aucun recours.
 deux assesseurs dont l'un musulman, l'autre chrétien. Elles
-seront accompagnées d'un juge d'instruction et d'un pro-
-cureur. L'un des deux sera chrétien.
+seront accompagnées d'un juge d'instruction et d'un procureur. L'un des deux sera chrétien.
 VI. — État des prisons
 
 De hauts fonctionnaires seront délégués de Constantinople pour inspecter les prisons dans chaque vilayet, se
 rendre compte de leur état matériel, de la situation des
 
-; prisonniers et du traitement dont ils sont l'objet. Ils s'en-
-querront de la conduite des directeurs et des gardiens des
+; prisonniers et du traitement dont ils sont l'objet. Ils s'enquerront de la conduite des directeurs et des gardiens des
 prisons et pourront proposer la révocation immédiate, la
 mise en jugement de ceux qui n'auraient pas observé à
 l'égard des condamnés ou détenus les prescriptions de la À
@@ -2828,8 +2755,7 @@ territoriale des nahiés dans chaque caza; ils feront dresser
 les listes électorales et procéder à l'élection des conseils de
 nahiés ainsi qu'à celle des mudirs. À
 Ils veilleront à ce que les collecteurs d'impôts soient élus. À
-. sans retard et à ce que le budget de la province et la répar-
-tition des charges entre les différentes subdivisions administratives soient établis dans le plus bref délai possible.
+. sans retard et à ce que le budget de la province et la répartition des charges entre les différentes subdivisions administratives soient établis dans le plus bref délai possible.
 ; Un haut commissaire, délégué spécialement par
 le Sultan, sera chargé de surveiller l'exécution prompte et
 exacte de ces réformes. Pendant la durée de sa mission, il,
@@ -2879,8 +2805,7 @@ avec les valis et les départements ministériels compétents.
 IX. — Réparations à accorder aux Arméniens, victimes des événements du Sassoun, de Talori, etc.!
 
 Les Arméniens qui auraient à souffrir soit dans leurs
-personnes, soit dans leurs biens, des événements du Sas-
-soun, de Talori, etc., recevront des indemnités et répara-
+personnes, soit dans leurs biens, des événements du Sassoun, de Talori, etc., recevront des indemnités et répara-
 
 Le haut commissaire impérial de surveillance sera chargé
 de faire les investigations et de prendre les mesures nécessaires à cet effet. 4 de
@@ -2903,8 +2828,7 @@ aux droits et privilèges découlant pour le clergé arménien
 organique des Arméniens) et des bérats octroyés par les
 ‘XII. — Situation des Arméniens dans les autres vilayets
 É de la Turquie d'Asie
-à Dans les autres vilayets de la Turquie d'Asie, où la popu-
-lation arménienne de certains sandjaks forme une partie
+à Dans les autres vilayets de la Turquie d'Asie, où la population arménienne de certains sandjaks forme une partie
 notable de la population générale, il sera nommé auprès du
 vali un fonctionnaire chrétien spécial chargé des intérêts
 des Arméniens. Ce fonctionnaire recevra les pétitions de la
@@ -2956,8 +2880,7 @@ ni Ils seront chargés de l'intérim du vilayet en l'absence du
 ; Les valis seront assistés d'un conseil général provincial,!
 élu dans des conditions à déterminer, et qui aura pour misd sion de délibérer sur des objets d'utilité publique, tels que
 l'établissement de voies de communication, l'organisation
-des caisses de crédit agricole, le développement de l'agri-
-culture, du commerce et de l'industrie, et la propagation de
+des caisses de crédit agricole, le développement de l'agriculture, du commerce et de l'industrie, et la propagation de
 1 l'instruction publique.
 Article 4. — Les mutessarifs placés à la tête des sandjaks
 seront nommés parS. M.I. le Sultan. Dans chaque vilayet,
@@ -3000,8 +2923,7 @@ Le nahié est une subdivision territoriale qui comprendra
 plusieurs villages avec leurs propriétés, immeubles, ter- À
 rains, pâturages et autres terres, dont le plus important
 sera le chef-lieu.
-La circonscription de chaque nahié sera, autant que pos-
-sible, fixée de telle façon que les villages d'une même religion soient groupés dans un même nahié: d'une façon
+La circonscription de chaque nahié sera, autant que possible, fixée de telle façon que les villages d'une même religion soient groupés dans un même nahié: d'une façon
 générale il devra être tenu compte des conditions topographiques ainsi que des convenances des populations.
 Le nahié comprendra deux mille habitants au moins et à
 dix mille au plus.
@@ -3037,13 +2959,12 @@ Article 12. — Dès que les membres du conseil auront
 vali, qui le confirmera ofliciellement, après avoir constaté
 4 que les conditions légales ont été remplies.
 Article 13. — Les imans, les prêtres, les professeurs
-d'école et tous ceux qui se trouvent au service du gouver-
-nement ne pourront exercer les fonctions de mudir.
+d'école et tous ceux qui se trouvent au service du gouvernement ne pourront exercer les fonctions de mudir.
 Article 14. — Les membres du conseil seront renouvelés
 6 par moitié chaque année; les mudirs resteront en fonction
 4 pendant deux ans. Le mudir et les membres ne pourront
 être réélus qu'une seule fois de suite.
-1 Article 15. — Les attributions du mudir et des membres
+Article 15. — Les attributions du mudir et des membres
 
 ; Pour l'Arménie du conseil ainsi que le mode de leur élection et de leur
 remplacement seront réglés suivant les prescriptions du
@@ -3058,8 +2979,7 @@ classes, il y aura un moukhtar pour chaque quartier et
 Article 17. — Aucun village ne pourra, pour partie, relever de deux cercles communaux à la fois, quels que soient
 sa position et le nombre de ses habitants.
 
-Article 18.— Les agents de police seront recrutés, sans di-
-stinction de religion, dans la population du nahié, par le
+Article 18.— Les agents de police seront recrutés, sans distinction de religion, dans la population du nahié, par le
 conseil du cercle communal, en nombre suflisant pour les à
 besoins locaux et pour la participation au service de la gendarmerie du vilayet. À
 
@@ -3117,8 +3037,7 @@ Article 23. — Les valis établiront dans les chefs-lieux des vilayets et des s
 
 Ces comités auront pour mandat de s'enquérir des rai- sons qui ont motivé l'arrestation des prévenus par les gendarmes et d'ordonner qu'ils soient immédiatement interrogés et emprisonnés dans le cas où l'acte qui leur est attri- bué serait de nature à entraîner des pénalités édictées par les lois; de faire mettre en liberté immédiate, sous la sur- veillance de la police, ceux dont la conduite ne motiverait pas l'application de la loi; de veiller à ce que personne ne
 soit retenu sans nécessité et illégalement en prison. Ils.
-visiteront dans ce but les prisons et surveiïlleront la situa-
-tion des prisonniers. À
+visiteront dans ce but les prisons et surveiïlleront la situation des prisonniers. À
 Les comités adresseront des rapports qu'ils remettront
 aux valis, indiquant parmi les individus amenés à la police
 ceux qui ont été mis en liberté et ceux qui ont été maintenus en état d'arrestation.
@@ -3140,17 +3059,14 @@ Les limites des campements et pâturages des Kurdes
 4. devront pas être la cause de dommages pour les habitants
 des territoires traversés ou occupés provisoirement par les
 LA Si celles-ci commettent quelque empiétement ou excès
-surles biens ou les personnes des villageois, toute migra-
-tion leur sera désormais interdite.
-Les règlements existant sur le port d'armes seront stric-
-de. tement appliqués à toute la population kurde, tant sédentaire que nomade.
+surles biens ou les personnes des villageois, toute migration leur sera désormais interdite.
+Les règlements existant sur le port d'armes seront stricde. tement appliqués à toute la population kurde, tant sédentaire que nomade.
 On s'eflorcera d'inculquer aux populations nomades les”
 principes de la vie sédentaire en les accoutumant aux travaux des champs et, à cet effet, on leur assignera des lots
 deterrain dans les localités où leur installation ne pourra
 4 nuire à la tranquillité et au bien-être des populations
 Le droit d'élection et d'éligibilité aux conseils de nahiés
-; mappartient pas aux individus faisant partie des popula-
-tions non sédentaires ou qui ne sont pas établies à titre
+; mappartient pas aux individus faisant partie des populations non sédentaires ou qui ne sont pas établies à titre
 définitif et permanent sur le territoire d'un nahié.
 Article 25. — Dans le cas où il serait nécessaire de se
 de servir des régiments de la cavalerie hamidié en dehors des
@@ -3193,8 +3109,7 @@ fournir gratuitement, soit à la troupe, soit aux fonctionnaires en service, le 
 à leur entretien.
 
 Dans le cas de vente forcée pour non payement des
-impôts, on veillera strictement à ne pas priver la popula-
-tion des objets de première nécessité ni de ses instruments?
+impôts, on veillera strictement à ne pas priver la population des objets de première nécessité ni de ses instruments?
 de travail. à
 
 k. Article 29. — Il y aura, dans chacune des localités du
@@ -3252,8 +3167,7 @@ sandjak sont ainsi remplacées par des cours d'assises
 ambulantes. Ces cours d'assises sont composées d'un magistrat président pris parmi les membres de la cour supérieure
 du vilayet. Il leur sera adjoint deux membres désignés par
 la cour d'appel parmi les juges de paix du sandjak, dont.
-lun musulman et l'autre chrétien. Ces juges de paix rece-
-vront une indemnité spéciale pendant la tournée de la cour
+lun musulman et l'autre chrétien. Ces juges de paix recevront une indemnité spéciale pendant la tournée de la cour
 Article 37. — La cour d'assises siégera tour à tour dans
 tous les cazas, y compris le chef-lieu du vilayet et les chefslieux du sandjak, où sa présence sera reconnue nécessaire.
 Elle connaîtra, en appel, des décisions des juges de paix À
@@ -3326,9 +3240,7 @@ M. Pierre Quillard à M. Delcassé, ministre des affaires
 Cf. Mémorandum du 11 mai 1895.
 
 3 2° Un gouverneur général de nationalité européenne
-neutre est institué avec l'assentiment des Grandes Puis-
-
-sances pour une période de cinq ans. Il est investi de toutes les attributions du pouvoir exécutif; il veille au maintien de l'ordre et de la sécurité publique; il perçoit
+neutre est institué avec l'assentiment des Grandes Puissances pour une période de cinq ans. Il est investi de toutes les attributions du pouvoir exécutif; il veille au maintien de l'ordre et de la sécurité publique; il perçoit
 les impôts; il nomme sous sa responsabilité les agents
 administratifs; il institue les juges et il fait exécuter leurs
 sentences. Il donne les soins particuliers au développement
@@ -3504,8 +3416,7 @@ Nous protestons égalementcontre les incessantes attaques
 troupes régulières turques, attaques contre le renouvelle-
 . ment desquelles aucune garantie ne nous a été donnée jusqu'à aujourd'hui malgré toutes les promesses faites depuis
 les affaires de Sassoun.
-Notre peuple a besoin de la paix et de la sécurité indis-
-pensables à une nation désireuse d'acquérir justement un
+Notre peuple a besoin de la paix et de la sécurité indispensables à une nation désireuse d'acquérir justement un
 - bien-être relatif, certes légitime, et de se mettre au niveau
 du progrès et de la civilisation vers lesquels marchent les
 ï C'est au nom de ces légitimes aspirations que —
@@ -3623,9 +3534,7 @@ vernement du sultan dans l'exécution des réformes, d'autre
 
 part les persécutions incessantes et sans merci, les arresta- » tions arbitraires dans la capitale et dans les provinces, les
 
-; massacres partiels ou totaux qui s'effectuaient dans l'em-
-
-pire, la situation infernale où vivaient les Arméniens,
+; massacres partiels ou totaux qui s'effectuaient dans l'empire, la situation infernale où vivaient les Arméniens,
 
 l'incurie et le mépris cynique de la Turquie officielle envers
 ce qui est arménien et son désir absolu de la justice, ont
@@ -3751,13 +3660,11 @@ volonté, il s'en est allé devant la fenêtre en espérant de
 recevoir une balle du dehors. Alors en s'adressant aux
 soldats il s'écria: « Si vous êtes des braves, visez-moi. »
 Le coup de grâce ne l'atteignit pas. A ce moment, il voit
-arriver une foule de bachi-bouzoucks: « Camarades, s'écrieÙ t-il, oubliant ses douleurs excessives, voilà les bachi-
-bouzoucks qui viennent d'arriver. » Aussitôt une bombe
+arriver une foule de bachi-bouzoucks: « Camarades, s'écrieÙ t-il, oubliant ses douleurs excessives, voilà les bachibouzoucks qui viennent d'arriver. » Aussitôt une bombe
 d'une dimension considérable éclate au milieu de la foule.
 hurlante; la fumée enveloppe l'espace, tout le monde,
 même les soldats, se sauvait pêle-mêle. Un sourire suprême
-éclaira la figure convulsive du brave agonisant et rassem-
-blant ses dernières forces, et en agitant ses bras en lambeaux, il jeta ce cri héroïque: « Voilà qu'ils se sauvent,
+éclaira la figure convulsive du brave agonisant et rassemblant ses dernières forces, et en agitant ses bras en lambeaux, il jeta ce cri héroïque: « Voilà qu'ils se sauvent,
 les làches!.. »
 A minuit, le directeur, le sous-directeur de la banque,
 un aide de camp de M. Maximoff, le premier drogman du
@@ -3774,8 +3681,7 @@ Vous devez partir à ce moment; vous avez montré, jusqu'à présent, une bravou
 s'occupe de votre question. Mais si vous vous obstinez à
 rester et si vous essayez de faire sauter la Banque, vous
 perdrez la sympathie de l'Europe. »
-Les négociations durèrent un quart d'heure. Les Armé-
-miens ne voulaient pas sortir avant de recevoir une
+Les négociations durèrent un quart d'heure. Les Armémiens ne voulaient pas sortir avant de recevoir une
 réponse de la part des ambassadeurs. M. Maximoff les
 supplie, se met à genoux pour qu'ils partent sans retard.
 « Je parle au nom du gouvernement russe; si vous ne
@@ -3875,7 +3781,7 @@ profession? demanda-t-on à un des prisonniers. — Ma profession, c'est la rév
 
 Quelques jours après M. Maximoff le menteur — à qui à
 ses services malhonnêtes ne furent pas sans valoir d'importants avantages matériels (115.000 francs) — vint rendre
-visite aux blessés arméniens qu'il avait fait transporter à,
+visite aux blessés arméniens qu'il avait fait transporter
 l'hôpital russe.
 
 — Qui vous a incités à cet acte? demande-t-il à l'un
@@ -3926,8 +3832,7 @@ avoir fait beaucoup de prisonniers, découvrit enfin la maison Missakian où s'�
 è ville était occupée militairement quand la maison fut cernée. On demanda Knouni, un jeune homme, vaillant, sans
 peur, qui a été l'âme de la révolution à Psammatia. Le
 commandant des troupes lui enjoignit de se rendre. Il était
-dix heures du matin, et l'attaque de la Banque devait com-
-mencer à une heure après midi. — « Attendez un peu,
+dix heures du matin, et l'attaque de la Banque devait commencer à une heure après midi. — « Attendez un peu,
 
 disait Knouni, du haut de la maison, à six heures nous
 sommes à votre disposition. » Une partie des révolution_ naires devait bombarder la caserne qui se trouvait à
@@ -3991,8 +3896,7 @@ L'élection de nos Patriarches en vertu de la Constitution
 semblée Nationale Arménienne. Par le plus arbitraire des
 actes le Gouvernement Turc, après avoir par ses intrigues
 … obligé le Patriarche Matteos Ismirlian à donner sa démis-
-“. sion, a cassé le Conseil mixte élu par notre dernière Assem-
-blée et remplacé ce Conseil par quelques civils et prêtres
+“. sion, a cassé le Conseil mixte élu par notre dernière Assemblée et remplacé ce Conseil par quelques civils et prêtres
 . vendus au Palais, auxquels il a enjoint d'élire comme /ocum
 tenens le prélat le plus indigne de notre Église, Bartoloméos
 de qui les Turcs eux-mêmes ne parlent qu'avec mépris.
@@ -4091,8 +3995,7 @@ Le comité révolutionnaire arménien au chargé d'affaires
 Nos exigences sont
 1. Assurer la paix partout dans le pays par l'intervention
 
-2. Accepter les demandes représentées par le Comité Cen-
-tral de Constantinople de la Fédération Révolutionnaire
+2. Accepter les demandes représentées par le Comité Central de Constantinople de la Fédération Révolutionnaire
 3. Ne pas se servir de force contre nous.
 
 4. Garantie complète de la vie de tous ceux qui se trouvent
@@ -4116,8 +4019,7 @@ de la Fédération Révolutionnaire Arménienne dite « Dachnaktzoutioun
 Manifeste de Tigrane Yergate
 Copie conforme à l'original du manifeste de
 ambassadeur de France, et à tous les ambassadeurs
-accrédités auprès du gouvernement ottoman à Con-
-stantinople, au lendemain des massacres survenus dans
+accrédités auprès du gouvernement ottoman à Constantinople, au lendemain des massacres survenus dans
 la capitale les 26 et 27 août 1896.
 À la suite d'une manifestation qui avait pour but de rappeler aux Puissances et de leur faire exécuter les réformes.
 contenues dans le Mémorandum, des milliers d'Arméniens,
@@ -4177,9 +4079,7 @@ en masse des Arméniens.
 Une nouvelle action est prête par laquelle se manifester la vitalité de notre nation. Si le présent avis n'est de
 votre part suivi d'aucune démarche efficace, vous nous.
 verrez encore une fois faire intervenir la mort dans le
-; Convaincus de la justesse de notre cause, de la modéra-
-
-tion de nos demandes et de ce que le mal, faute d'autre
+; Convaincus de la justesse de notre cause, de la modération de nos demandes et de ce que le mal, faute d'autre
 moyen de salut, nous donnera des résultats positifs, nous
 entraînerons dans une commune catastrophe nous-mêmes
 et ceux qui nous entourent en vous citant au tribunal du
@@ -4213,16 +4113,13 @@ leur faire connaître sans délai les dispositions qui auront
 toutes leurs réserves au sujet des dommages subis par À
 leurs ressortissants du fait des récents désordres et de
 l'absence de protection dont la responsabilité incombe aux
-Présentée le 27 août par le premier drogman de l'ambas-
-sade d'Autriche au nom des représentants des Grandes
+Présentée le 27 août par le premier drogman de l'ambassade d'Autriche au nom des représentants des Grandes
 
 Deuxième note collective des Ambassades
 
 En se référant à leur note collective du 15/27 août, les
 représentants des Grandes Puissances croient devoir attirer
-l'attention de la Sublime Porte sur un cas exceptionnellement grave des désordres qui ont ensanglanté dernière-
-
-ment la capitale et ses environs.
+l'attention de la Sublime Porte sur un cas exceptionnellement grave des désordres qui ont ensanglanté dernièrement la capitale et ses environs.
 C'est la constatation par des données positives du fait
 que les bandes sauvages qui ont assommé les Arméniens,
 et pillé les maisons et les magasins où elles prétendaient
@@ -4383,9 +4280,7 @@ et nous rappellerons à l'Europe, sans nous lasser, qu'elle a de par les traité
 le Grand Assassin, des devoirs à remplir envers les
 victimes de sa folie.
 
-Il ne s'agit point de réveiller ici l'esprit de croisade ni d'exciter à la haine de l'une des races ou des reli-
-
-gions qui vivent ou sont professées sur le territoire
+Il ne s'agit point de réveiller ici l'esprit de croisade ni d'exciter à la haine de l'une des races ou des religions qui vivent ou sont professées sur le territoire
 
 Mais si nous sommes prêts à divulguer tous les attentats du Sultan contre chacun des peuples que la
 mauvaise fortune fit ses sujets, nous nous attacherons
@@ -4447,9 +4342,7 @@ Mémorandum du 11 mai 1805
 2° Institution d'un haut commissaire choisi par le
 Sultan et agréé par les Puissances avec plein pouvoir
 sur les valis pendant la durée de sa mission.
-3° Institution d'une commission permanente de con161
-
-trôle siégeant à la Sublime Porte et où les ambassades
+3° Institution d'une commission permanente de contrôle siégeant à la Sublime Porte et où les ambassades
 « feraient parvenir directement par l'intermédiaire de
 leurs drogmans tous les renseignements et communications qu'elles jugeraient nécessaires ».
 
@@ -4474,7 +4367,7 @@ Suit le reste de la déclaration.
 Nous trouvons dans Pro Armenia, première année,
 numéro 2, 10 décembre 1900, les renseignements
 
-4 Liste des principaux journaux arméniens, turcs,
+Liste des principaux journaux arméniens, turcs,
 Droschak. — Organe de la fédération révolutionnaire arménienne, Genève.
 Mart et Nor-Guiank. — M. L. Frank, 32, terton Road Londres
 Archalouin. — Habbanieh. Le Caire (Égypte).

@@ -23,11 +23,7 @@ de le connaître par son œuvre.
 Or, au bas de la première page d'un article de
 William Ritter consacré à Boecklin et publié par la
 revue Art et Décoration au mois d'octobre 1897, je lis
-cette note de l'éditeur: « Nous aurions tenu à accom-
-
-pagner cette étude de notre collaborateur de reprodue-
-
-tions plus nombreuses pour donner une idée plus
+cette note de l'éditeur: « Nous aurions tenu à accompagner cette étude de notre collaborateur de reproduetions plus nombreuses pour donner une idée plus
 
 complète des œuvres de Boecklin; nous nous sommes
 
@@ -49,8 +45,7 @@ fresques dont Boecklin, en 1869, décora un pavillon de
 son hôtel et que les connaisseurs les plus délicats
 mettent au premier rang dans l'œuvre si complexe du
 maître. Ne nous étonnons plus que l'œuvre du grand
-peintre suisse ainsi cadenassée n'ait pénétrer davan-
-tage en France et y soit même absolument ignorée. »
+peintre suisse ainsi cadenassée n'ait pénétrer davantage en France et y soit même absolument ignorée. »
 Voilà pour les reproductions. Quant aux originaux, il y
 en a un groupe assez considérable au musée de Bâle, À
 un autre à la galerie de Schack à Munich; le reste est
@@ -153,8 +148,7 @@ souvenirs, — dûment contrôlés il est vrai. Telle qu'elle
 est, elle suflit à prouver que Boecklin n'est pas si ignoré
 des Français que le croit Bjoernson. Je connais pour ma
 
-part bien des admirateurs de ses Sirènes, de ses Cen-
-taures, de ses Paysages idéaux, et Romain Rolland
+part bien des admirateurs de ses Sirènes, de ses Centaures, de ses Paysages idéaux, et Romain Rolland
 « Pour Boecklin, il y a quinze ans que j'en entends parler
 
 - et je n'ai même jamais l'impression de le découvrir
@@ -168,8 +162,7 @@ Reste à savoir si le plus grand peintre allemand est -
 Je sais bien que la plupart des articles que j'ai cités
 paraissent donner raison à Bjoernson en qu'ils commencent à peu près par ces mots: « Vous ne connaissez
 pas Boecklin; je vais vous dire qui il est ». Mais il ne
-faut peut-être pas exagérer l'importance de cette décla-
-ration d'auteur heureux d'apporter une révélation et -
+faut peut-être pas exagérer l'importance de cette déclaration d'auteur heureux d'apporter une révélation et -
 d'entrer en pays neuf. De plus, la remarque qu'elle
 
 accuse, loin de se fortifier par la répétition, perd une
@@ -179,16 +172,14 @@ jour; que les hommes qui les ontécrits, lus ou discutés,
 sont une faible minorité; que le colonel Picquart, fortifiant de son témoignage l'affirmation de Bjoernson, écrit
 que dans le milieu où il a vécu Boecklin est absolument
 ignoré, même de nom, et conte spirituellement comment cette ignorance aurait le faire envoyer à l'île du
-Diable. Je ne voudrais pas encourir le reproche de géné-
-ralisation téméraire que j'adresse moi-même à Bjoernson. 3 À
+Diable. Je ne voudrais pas encourir le reproche de généralisation téméraire que j'adresse moi-même à Bjoernson. 3 À
 Mais il me semble que, lorsqu'on veut juger des goûts,
 des connaissances et des ignorances d'un peuple en “2
 matière d'art, c'est l'avis des hommes qui s'intéressent
 à l'art qui importe, et qu'il est juste de prendre ses
 exemples parmi ces derniers plutôt que parmi des soldats.
 Boecklin n'est pas inconnu en France. Dirons-nous
-qu'il est méconnu? Serait-ce ne pas le connaître vrai-
-ment que mêler des réserves à l'éloge et ne point le
+qu'il est méconnu? Serait-ce ne pas le connaître vraiment que mêler des réserves à l'éloge et ne point le
 proclamer, avec Bjoernson, « le plus grand peintre
 penseur » de l'Europe contemporaine? C'est affaire d'ap>
 préciation, de manière de voir. J'excuse un Allemand ou
@@ -197,8 +188,7 @@ insiste, je serai tenté de lui retourner le jugement de
 Bjoernson contre la France. Je me défie de cerappro
 chement des mots peintre et penseur. Non que je refuse
 aux peintres la faculté de penser. Mais les couleurs ne
-sont pas des mots; les figures ne sont pas des hiéro-
-glyphes; et je tiens qu'il y a plus de pensée dans deux
+sont pas des mots; les figures ne sont pas des hiéroglyphes; et je tiens qu'il y a plus de pensée dans deux
 pages des manuels que nos petits grimauds portent dans
 
 leurs cartables en allant à l'école que dans tous les tableaux du plus grand peintre du monde. L'école allemande eût sans doute gagné à compter moins de penseurs et plus de peintres. Puis cette façon de décerner
@@ -214,15 +204,12 @@ pas nommé ce peintre, avec le docteur Max Lehrs « le
 Botticelli du dix-neuvième siècle comme Botticelli est
 le Boecklin du quinzième ». Ils n'ont pas écrit comme
 
-telautre de ses dévots cité par André Michel qu' « ilré-
-sume posthumement en plein dix-neuvième siècle toutes
+telautre de ses dévots cité par André Michel qu' « ilrésume posthumement en plein dix-neuvième siècle toutes
 les tendances, les croyances, les rêves, les sciences, les
 lettres, les arts, l'esprit en un mot du Saint-Empire romain germanique ». Mais sans réaliser par la seule
 magie de la peinture un si prodigieux programme, on
 peut encore être un beau génie. Il y a chez Boecklin des
-redites, des fautes de goût: ses paysages idéaux rap-
-
-pellent au début ceux de notre école néo-classique, de
+redites, des fautes de goût: ses paysages idéaux rappellent au début ceux de notre école néo-classique, de
 Valenciennes et de Michallon. Ses allégories ne sont pas
 toujours parfaitement claires et intéressantes. Sa eouleur hurle parfois étrangement. Mais son imagination
 et sa verve restent incontestées. Ce Germain charmé par
@@ -246,8 +233,7 @@ chaïrs roses et les profondeurs glauques de l'eau, dans
 l'agitation tumultueuse des vagues autour des récifs, À
 des motifs où contenter son amour de la couleur, du
 mouvement, de la vie.
-Au moment où nous mettons sous presse, NOUS rece-
-vons de M. Urbain Gohier une rectification. Nous la
+Au moment où nous mettons sous presse, NOUS recevons de M. Urbain Gohier une rectification. Nous la
 publierons, conformément à la méthode historique,
 aussitôt que nous l'aurons communiquée à M. Ludovic
 Marchand, auteur du mémoire que nous avons publié.

@@ -56,9 +56,7 @@ J'étais l'ami de Malon, de Guesde, de Lafargue, de: De
 Paepe, d'Hector Denis, etc., de ceux, en un mot, quijétaient
 alors qualifiés pour répandre l'idée communiste et dont la
 valeur intellectuelle et morale était indiscutable — et indiscutée — mais cette amitié, flatteuse pour moi, m'autorisait-elle à professer à mon tour?
-J'en doutais si fort que je crus devoir, avant de m'enga-
-
-ger formellement, prendre l'avis de Malon, avec qui je
+J'en doutais si fort que je crus devoir, avant de m'engager formellement, prendre l'avis de Malon, avec qui je
 venais de collaborer à l'Emancipation.
 : Malon m'encouragea et me promit fraternellement son
 
@@ -978,9 +976,7 @@ plus mal. À gauche et à droite la grande légende
 primant les mauvais effets pris part, l'Avenirdel'Yonne,
 de l'admission temporaire et journal officiel de la mairie
 -le trafic des acquits-à-cau- de Sens, a publié le commention à la discussion de la- taire suivant:
-quelle M. Lucien Cornet, « Les Agriculteurs fran-
-
-çais et notamment ceux du cela amènera l'abaissement
+quelle M. Lucien Cornet, « Les Agriculteurs français et notamment ceux du cela amènera l'abaissement
 département de l'Yonne et des prix des farines dont la
 de l'arrondissement de Sens hausse était provoquée par
 se souviendront du service la sortie des farines franque leur a rendu M. Lucien caises à l'étranger, favorisée
@@ -1224,8 +1220,7 @@ pas: si je dois figurer au pilori des Cahiers, ce ne sera pas
 en cette qualité. On se désabonne d'une revue sans intérêt,
 j'ai bonne envie de le faire au temps où tu nous régalais de tes démélés avec la librairie, ou, sous couleur de
 littérature, de Bacchus ou de Vers l'action. Mais on ne
-. boycotte pas; c'est réservé, cela, aux industriels qui met-
-tent le socialisme en bouteille. ou en pantalons. Seulement,
+. boycotte pas; c'est réservé, cela, aux industriels qui mettent le socialisme en bouteille. ou en pantalons. Seulement,
 donne-nous quelque chose qui en vaille la peine, entre
 deux listes de suspects.
 
@@ -1251,9 +1246,7 @@ socialiste révolutionnaire » de la Chambre, formant toujours le même bloc com
 dispersaient en actions contraires et affirmant toujours,
 par ses votes, la nécessité de maintenir intact notre idéal.
 Nous avons applaudi récemment la ténacité avec laquelle
-Sembat a lutté contre l'emprunt de Chine, flétri les assas-
-
-sinats des expéditions coloniales et dénoncé l'ignominie de la « campagne » de Turquie.
+Sembat a lutté contre l'emprunt de Chine, flétri les assassinats des expéditions coloniales et dénoncé l'ignominie de la « campagne » de Turquie.
 Ceux-là, du moins, ont sauvé l'honneur. Quelques-uns des
 autres se sont joints à eux avéc plus ou moins de fidélité.
 Le reste a paisiblement évolué sous la poussée ministérialiste. Il à franchi le fossé qui, jusque-là, le séparait du reste
@@ -1395,8 +1388,7 @@ Deux faits aggravent encore la scission de Roubaix. Ce
 sont d'abord les termes mêmes du manifeste qui attaquent
 violemment les camarades d'hier de Carrette. C'est ensuite
 l'article triomphal que Jaurès, qui jusqu'ici laissait ces
-besognes à d'autres, a consacré à cet événement, doulou-
-reux pourtant pour le socialisme. Longtemps encore sans
+besognes à d'autres, a consacré à cet événement, douloureux pourtant pour le socialisme. Longtemps encore sans
 . doute nous verrons s'affirmer cette haine implacable contre
 des socialistes. Mais du moins le prolétariat conscient à
 apprendra tous les jours à quoi s'en tenir, et, si l'on
@@ -1450,9 +1442,7 @@ société nouvelle, il affirme que les éléments matériels ou économiques en 
 train que les éléments humains, c'est-à-dire l'action d'un prolétariat
 conscient et organisé, possible également dès aujourd'hui.
 
-Parti de révolution, et par conséquent d'opposition à l'État bour-
-
-geois, s'il est de son devoir d'arracher toutes les réformes susceptibles d'améliorer les conditions de lutte de la classe ouvrière, il ne
+Parti de révolution, et par conséquent d'opposition à l'État bourgeois, s'il est de son devoir d'arracher toutes les réformes susceptibles d'améliorer les conditions de lutte de la classe ouvrière, il ne
 saurait, en aucune circonstance, par la participation au pouvoir
 central, par le vote du budget, par des alliances avec des partis
 bourgeois, fournir aucun des moyens pouvant prolonger la domination de la classe ennemie.
@@ -1478,7 +1468,7 @@ fermera la porte aux défaillances individuelles, et. fera
 d'eux ce qu'ils doivent être, de véritables candidats de classe.
 
 Il n'en sera pas de même des candidats de ce qu'on nomme
-4 encore le « Parti socialiste »; cela est du moins certain pour
+4 encore le « Parti socialiste cela est du moins certain pour
 tous ceux qui ont commencé leur campagne. Il est bien vrai que l'article 15 des résolutions du Congrès de Tours
 décide que ceux-là seuls seront « considérés comme socialistes qui auront, sous le contrôle de la Fédération qui les
 présente, signé et affiché la déclaration de principes et le
@@ -1507,15 +1497,14 @@ de donner l'exemple d'une aussi scandaleuse inconscience,
 c'est affaire à eux! J'ignore quel est le programme de
 M. Netton. Peu importe, et ce n'est pas de lui qu'il s'agit,
 mais des leaders mêmes du « Parti socialiste ».
-Quelque pénible qu'il soit de s'en prendre à des personnalités, il faut bien citer des exemples. Voici un arrondissement de Paris, cinquième, dont les deux députés sortants sont « socialistes »; l'un, M. Gras, intitule sa première
+Quelque pénible qu'il soit de s'en prendre à des personnalités, il faut bien citer des exemples. Voici un arrondissement de Paris, cinquième, dont les deux députés sortants sont « socialistes l'un, M. Gras, intitule sa première
 afliche: Concentration Républicaine; l'autre, Viviani, placé
 entre un nationaliste et un radical, oubliant qu'il n'avait
 pas, il y a quatre ans, assez d'anathèmes pour ce dernier,
 le « salue, non comme un concurrent, mais comme un
 camarade de lutte ». Ce n'est même pas du programme de
 Tours qu'ils s'occupent; c'est des « intérêts si légitimes du
-petit commerce »; c'est du triomphe « des droits de la Raïson ». Sur leurs professions de foi, comme le disait derniè-
-rement Parvus, la Déclaration des Droits de l'Homme à
+petit commerce c'est du triomphe « des droits de la Raïson ». Sur leurs professions de foi, comme le disait dernièrement Parvus, la Déclaration des Droits de l'Homme à
 remplacé le Manifeste Communiste.
 Et il ne s'agit pas d'un cas isolé. Lisez les comptes rendus
 de réunions, les communiqués de la Petite République: la
@@ -1623,11 +1612,9 @@ Seront-ils nombreux au Parlement? Faut-il croire à une
 énorme majorité réformatrice, comme on le dit dans les
 milieux ministériels, ou à un triomphe du nationalisme,
 comme l'annoncent avec assurance tous les journaux du
-nouveau « syndicat des mécontents »? La vérité, sans doute,
+nouveau « syndicat des mécontents La vérité, sans doute,
 est entre les extrêmes. Mais s'il nous est permis d'exprimer
-un vœu, nous souhaitons que les candidats républicains-
-
-socialistes obtiennent de très grands succès. » Il y a tout intérêt pour tous à ce que l'équivoque se
+un vœu, nous souhaitons que les candidats républicainssocialistes obtiennent de très grands succès. » Il y a tout intérêt pour tous à ce que l'équivoque se
 dissipe, et cela ne peut se faire que par la constitution
 
 définitive du parti de démocratie réformiste en formation,
@@ -1685,14 +1672,12 @@ doute, lorsqu'on en aura fait le recensement exact, une
 Il faut regretter les échecs survenus. Mais surtout il est
 pénible que Guesde n'ait remporter, dans le Nord, une
 victoire, d'ailleurs inespérée; mais deux de ses meilleurs
-lieutenants, les citoyens Delory et Ghesquière, augmente-
-ront sans doute le nombre des élus révolutionnaires, si la
+lieutenants, les citoyens Delory et Ghesquière, augmenteront sans doute le nombre des élus révolutionnaires, si la
 discipline des républicains est autre chose qu'un mot. A
 Paris, le triomphe de Vaillant, de Dejeante, de Coutant,
 de Sembat, a montré qu'il n'est pas la meilleure façon
 d'abattre la démagogie nationaliste que de lui opposer
-l'idéal socialiste dans toute son intégrité. Le succès écla-
-tant — qui sera définitif au second tour — que notre ami
+l'idéal socialiste dans toute son intégrité. Le succès éclatant — qui sera définitif au second tour — que notre ami
 et collaborateur de Pressensé a remporté à Lyon, après
 une campagne admirable de netteté et d'énergie, en est
 encore une éloquente preuve.
@@ -1816,8 +1801,7 @@ Les braillards s'engagent dans la rue des Fripiers.
 J'entends tirer des coups de feu; j'en compte neuf. Puis
 les cris s'éloignent. M'étant approché de la Grande
 Poste, j'aperçois un rassemblement de curieux devant
-la vitrine du magasin de cigares dont l'éclairage flam-
-boie tout à côté des Mille Colonnes. Un passant me
+la vitrine du magasin de cigares dont l'éclairage flamboie tout à côté des Mille Colonnes. Un passant me
 
 — Ils ont démoli la vitrine à coups de revolver pour
 forcer le patron à fermer boutique.
@@ -2045,9 +2029,7 @@ leter avec une mollesse prudente, deux hommes dont
 
 La foule s'émut, s'ébroua; un agent tira son sabre. Un
 oflicier de gardes civiques rétablit l'ordre en faisant
-empoigner les deux hommes. Mais ce fut un empoigne-
-
-ment plein de civilité. Un seul agent suflit à cette tâche
+empoigner les deux hommes. Mais ce fut un empoignement plein de civilité. Un seul agent suflit à cette tâche
 il emmena par une rue obscure les deux champions qui
 “ontinuaient à se disputer péniblement comme deux
 acteurs qui improvisent tant bien que mal parce qu'on
@@ -2102,8 +2084,7 @@ SA M. Max Hallet, avocat, conseiller communal, homme
 . riche par son mariage, est l'un des trois gardes civiques
 qui ont refusé de marcher. (1) Refus épistolaire, litté- à
 raire, retentissant. M. Max Hallet, bel homme et de
-: bonne mine, porte un beau frac dans les réunions mon-
-daïnes, un veston chiffonné à la Maison du Peuple.
+: bonne mine, porte un beau frac dans les réunions mondaïnes, un veston chiffonné à la Maison du Peuple.
 D''aucuns lui reprochent ces changements d'uniforme.
 ù — Mais puisqu'il aime à changer de vêtements, me
 disait une dame, pourquoi refuser de s'habiller en ni

@@ -26,8 +26,7 @@ action était beaucoup plus établie, beaucoup plus
 constante, beaucoup plus tenue que je ne le croyais.
 Je me suis aperçu aussi qu'elle était ainsi plus contraire
 encore à ce que je me représente.
-. Jaurès ayant mis dans sa défense de la Petite Répu-
-blique une référence aux cahiers, notre collaborateur
+. Jaurès ayant mis dans sa défense de la Petite République une référence aux cahiers, notre collaborateur
 mademoiselle Louise Lévi nous a envoyé cette protestation: Es
 Vous devez sentir ce qu'a de pénible pour nous vos collaborateurs une semblable assimilation. Comment peut-on
 ;. comparer le service de librairie organisé par les cahiers,
@@ -35,7 +34,7 @@ qui consiste à revendre avec le pourcentage le plus bas de
 librairie des produits achetés dans le commerce, et le trafic
 de La Petite République.
 Plusieurs de nos amis sont venus nous en dire autant.
-5 Nous déjeunons et nous dînons au restaurant coopé-
+Nous déjeunons et nous dînons au restaurant coopé-
 ; ratif du quartier latin, rue du Sommerard, au coin de
 la rue Thénard.
 Nous prions ceux de nos abonnés quitrouveraient sur.
@@ -119,8 +118,7 @@ Comme elle n'admet de celui qui enseigne aucune inti-
 aucun exercice de force, aucun excès de pouvoir,
 . aucun pouvoir, commandement, abus ni coup d'État,
 … elle ne suppose de celui qui est enseigné aucune
-- lâcheté. C'est donc trahir la raison, c'est faire dérai-
-sonner la raison que de vouloir assurer le triomphe de
+- lâcheté. C'est donc trahir la raison, c'est faire déraisonner la raison que de vouloir assurer le triomphe de
 la raison par les moyens de l'autorité.
 ù La raison ne procède pas de l'autorité gouver_ nementale. C'est donc trahir la raison que de vouloir
 assurer le triomphe de la raison par des Moyens
@@ -254,8 +252,7 @@ foule abusée ne peut pas plus que ne pouvait le monarque
 La raison ne procède pas de l'autorité manuelle.
 ; Autant il est vrai que la raison n'exerce aucune autorité,
 
-surhumaines, religieuses, infer-
-humaines, sont totalement étran4 la raison. La raison est honnête
+surhumaines, religieuses, inferhumaines, sont totalement étran4 la raison. La raison est honnête
 À 1 clergé de la raison. Nous n'avons
 ; avons pas dénoncé les religions
 a religion de demain, pour prêcher
@@ -310,9 +307,7 @@ renseignés. La justice, la raison, la bonne administration du travail demandent
 soient ni gouvernants ni gouvernés. Qu'ils soient
 modestement libres, comme tout le monde.
 
-Dans la société présente, où le jeu de la spécialisa-
-tion s'est outré automatiquement, les fonctions intellec-
-tuelles et les fonctions manuelles ne sont presque jamais
+Dans la société présente, où le jeu de la spécialisation s'est outré automatiquement, les fonctions intellectuelles et les fonctions manuelles ne sont presque jamais
 attribuées aux mêmes ouvriers; les ouvriers intellec- Es
 tuels délaissent presque tout le travail des mains; les
 ouvriers manuels délaissent presque tout travail de
@@ -368,8 +363,7 @@ surtout de faire à l'humanité présente la plus grave À
 injure, qui est de la vouloir dresser. Nous n'avons pas
 ; la présomption d'imaginer, d'inventer, de fabriquer
 une humanité nouvelle. Nous n'avons ni plan ni devis.
-Nous voulons libérer l'humanité des servitudes écono-
-miques. Libérée, libre, l'humanité vivra librement.
+Nous voulons libérer l'humanité des servitudes économiques. Libérée, libre, l'humanité vivra librement.
 Libre de nous et de tous ceux qui l'auront libérée. Ce
 serait commettre la prévarication maxima, le détour-
 ; nement le plus grave que d'utiliser la libération pour
@@ -378,8 +372,7 @@ asservir les libérés sous la mentalité des libérateurs. Ce
 2 dans une philosophie, quand même cette philosophie
 serait étiquetée philosophie de la raison.
 ue. Attacher au socialisme un système, lier au socia_ lisme, fût-ce au nom de la raison, un système de science,
-ou d'art, ou de philosophie, c'est littéralement com-
-mettre un abus de confiance envers l'humanité. Attirer:
+ou d'art, ou de philosophie, c'est littéralement commettre un abus de confiance envers l'humanité. Attirer:
 lhumanité vers sa libération pour la précipiter dans un
 système, c'est commettre au nom de la raison la
 À malversation que l'Église a commise au nom de la foi.
@@ -414,8 +407,7 @@ libération économique, ils utiliseraient en effet, au
 . second degré, l'asservissement précédent, la servitude
 4 même à laquelle on veut échapper. Ils n'exerceraient
 
-pas seulement un chantage, mais ils exerceraient préci-
-sément le chantage économique, vice propre de la
+pas seulement un chantage, mais ils exerceraient précisément le chantage économique, vice propre de la
 société bourgeoise, du régime bourgeois.
 
 Nous n'avons pas plus à vendre la terre que les
@@ -436,8 +428,7 @@ un cloître de l'humanité serait l'effet de la plus redou3 table survivance rel
 définitif, il est préliminaire, préalable, nécessaire, indis- »
 pensable mais non suflisant. Il est avant le seuil. Il n'est
 à pas la fin de l'humanité, il n'en est pas même le
-es commencement. Il est, selon nous, avant le commence-
-ment. Avant le commencement sera le Verbe.
+es commencement. Il est, selon nous, avant le commencement. Avant le commencement sera le Verbe.
 : Il ne faut pas que les idées soient arrivistes ni qu'on
 les fasse passer en contrebande. Il ne faut pas qu'elles
 soient parasitaires, qu'elles s'attachent au socialisme
@@ -450,8 +441,7 @@ Mes identiques emplois du socialisme antiministériel, nous A
 
 l'aurons des systèmes qui voudraient arriver par le
 
-; socialisme et dans le socialisme. Enfin c'est un insup-
-portable abus de l'autorité paternelle que de vouloir REPAS
+; socialisme et dans le socialisme. Enfin c'est un insupportable abus de l'autorité paternelle que de vouloir REPAS
 imposer aux générations neuves les radotages des
 4 générations fatiguées, vieilles, que nous sommes. Jus- )
 È tement parce que nous les aurons libérées, elles sauront
@@ -509,8 +499,7 @@ journal a deux clientèles, deux régions. Si le journal
 n'était que par des intellectuels, une inculpation de
 cléricalisme intentée à une thèse de philosophie, —
 échafaudée sur ce que le mot Dieu y paraît, ne serait
-pas dangereuse, parce que le lecteur, avisé, y recon-
-naîtrait un amusement. Un amusement d'un goût
+pas dangereuse, parce que le lecteur, avisé, y reconnaîtrait un amusement. Un amusement d'un goût
 douteux, assez pervers, mais un amusement enfin. Si
 4 le journal n'était que par des ouvriers manuels, si
 4 l'auteur de l'accusation était lui-même un manuel, cette
@@ -546,8 +535,7 @@ pervers qu'ils en oublient les plus simples éléments de
 la moralité commune, et elle suppose que les ouvriers
 manuels sont si empressés d'indignation grossière
 qu'ils ne se renseignent jamais sur le bien fondé, sur la
-vérité, sur la justice des réquisitoires que des procu-
-reurs de complaisance, que des avocats-généraux de
+vérité, sur la justice des réquisitoires que des procureurs de complaisance, que des avocats-généraux de
 journalisme leur jettent.
 
 Ce n'est pas cette solution injurieuse, douteuse,
@@ -555,8 +543,7 @@ double, que nous acceptons. En attendant que par le
 changement préliminaire de plan qui nous paraît capital
 dans la future, dans la prochaine histoire de l'humanité,
 la santé du travail manuel avec la santé du travail
-intellectuel soit dévolue à tous les hommes, en aiten-
-dant que la relation du manuel à l'intellectuel se pose
+intellectuel soit dévolue à tous les hommes, en aitendant que la relation du manuel à l'intellectuel se pose
 librement en tout homme, puisque dans la société
 présente les répartitions sont faites entre individus et
 non entre élaborations du même individu, de la même
@@ -566,8 +553,7 @@ différents, sans communication normale, puisque, sauf
 exceptions, peu nombreuses, les uns ne travaillent
 guère que de leurs mains, et les autres de la raison,
 notre solution sera la simple solution de la liberté
-professionnelle. Pour la même raison que les boulan-
-gers ne font pas les maisons, et que les laboureurs
+professionnelle. Pour la même raison que les boulangers ne font pas les maisons, et que les laboureurs
 ne font pas les habits, pour la même raison les ouvriers
 
 manuels, boulangers et maçons, moissonneurs, tisseurs à
@@ -607,14 +593,12 @@ quelque fortune dans l'histoire de l'humanité. La raison
 ne procède pas de l'autorité presbytérale. Une religion
 à de la raison cumulerait tous les vices religieux avec!
 tous les envers des vertus rationnelles. Ce serait un
-cumul rare, singulier, culminant, unique de vices communément inconciliables, habituellement séparés, logi-
-quement contradictoires. Ce serait comme une gageure
+cumul rare, singulier, culminant, unique de vices communément inconciliables, habituellement séparés, logiquement contradictoires. Ce serait comme une gageure
 À de cumulation. Un catéchisme est insupportable. Mais
 un catéchisme de la raison tiendrait en ses pages la
 plus effroyable tyrannie. A la fois parodie et texte.
 La raison ne procède pas plus des autorités oflicieuses
-que des autorités officielles. Ni le publiciste, ni le jour-
-naliste, ni le tribun, ni l'orateur, ni le conférencier ne “4
+que des autorités officielles. Ni le publiciste, ni le journaliste, ni le tribun, ni l'orateur, ni le conférencier ne “4
 é sont aujourd'hui de simples citoyens. Le journaliste qui A
 “4 a trente ou cinquante ou quatre-vingts milliers de!
 2 lecteurs, le conférencier qui a régulièrement douze ou
@@ -678,8 +662,7 @@ aurait déloyauté insupportable, et encore duplicité.
 La raison ne procède pas de la terreur, qui est la
 forme aiguë de la force. La raison ne procède pas de
 la suspicion, qui est la forme sournoiïse de la terreur.
-Le régime de la terreur, que ce soit de la terreur gou-
-vernementale ou de la terreur populaire non moins
+Le régime de la terreur, que ce soit de la terreur gouvernementale ou de la terreur populaire non moins
 gouvernementale, quand même ce régime dresserait des A
 autels à la raison, et surtout si ce régime dressait des.
 autels à la raison, n'est pas un régime de la raison. Le
@@ -707,8 +690,7 @@ cière. Elle n'est pas plus policière de presse que poli- ete
 - Laraison ne procède pas même de cette popularité
 plus fine et plus aérée qui s'obtient dans les régions de à
 308 culture. Ni les décorations d'État, ni les distinctions
-… corporatives, ni les cooptations, ni les grades profes-
-sionnels, ni les académies, ni les fêtes scientifiques, ni
+… corporatives, ni les cooptations, ni les grades professionnels, ni les académies, ni les fêtes scientifiques, ni
 Ne les cinquantenaires, ni les centenaires, ni les statues, ni a
 les bustes, niles noms inscrits aux plaques des rues, ni
 es banquets, quand même on les nommerait dîners, ni la
@@ -760,8 +742,7 @@ ruptures de tradition, essentiellement libres d'origine,
 
 ont de la tendance à retomber dans l'ancien automatisme. Ainsi la conservation recommençait, la tradition
 renaissait avec la matière même que lui fournissait la
-, révolution. Mais jamais comme aujourd'hui le mouve-
-ment révolutionnaire n'a été amorti en des formes
+, révolution. Mais jamais comme aujourd'hui le mouvement révolutionnaire n'a été amorti en des formes
 É aussi traditionnelles, aussi conservatoires. Par une
 étrange inconséquence, ou par une étrange insuffisance
 1 de pensée, le précédent constitué par la Révolution
@@ -781,8 +762,7 @@ Par une ingratitude mentale singulière, les gouverne-
 à traditions supplémentaires, des conservations surenÉ combrantes. La raison ne doit se soumettre à ces tradià tions onéreuses ni parce qu'elles sont traditionnelles,
 ni parce qu'elles sont révolutionnaires. Imiterles anciens
 p. révolutionnaires, les vieux révoltés, ne consiste pas à
-; penser en face du monde que nous connaissons identi-
-quement les pensées qu'ils avaient en face du monde
+; penser en face du monde que nous connaissons identiquement les pensées qu'ils avaient en face du monde
 qui leur était contemporain. Mais c'est les imiter bien
 
 que d'avoir en face du monde que nous connaissons la
@@ -803,9 +783,7 @@ placer librement en face du monde comme ils se plaçaient librement en face du m
 placer servilement en face de leur monde. C'est user de
 la raison comme ïls en usaient, sans aucun artifice
 d'école ni retard factice. Pas plus que nous ne devons
-attacher à la révolution sociale et imposer aux huma-
-
-nités futures nos systèmes, nous ne devons pas plus …
+attacher à la révolution sociale et imposer aux humanités futures nos systèmes, nous ne devons pas plus …
 3 leur imposer des systèmes hérités, fussent-ils hérités de
 Es révolutionnaires. Nous ne devons pas leur imposer, leur
 Te communiquer en passant par nous des systèmes
@@ -939,8 +917,7 @@ raison s'insère de plus en plus dans l'action, mais à
 cette condition que par cette pénétration, par cette
 insertion la raison ne soit jamais entamée. Les avantages que la raison tire de son travail propre et les
 avantages que la raison et l'humanité tirent de sa propagation ne sont pas des avantages du même ordre qui
-se balancent et peuvent s'équivaloir. Mais les avan-
-tages propres de la raison travaillant sont rigoureusement conditionnels, constituent la condition indispensable sans quoi l'avantage extérieur est annulé.
+se balancent et peuvent s'équivaloir. Mais les avantages propres de la raison travaillant sont rigoureusement conditionnels, constituent la condition indispensable sans quoi l'avantage extérieur est annulé.
 
 On doit travailler de son mieux à faire avancer la
 raison dans son travail propre; on doit travailler de
@@ -963,9 +940,7 @@ la raison n'épuise pas la vie et même le meilleur dela vie; nous savons que le
 
 même les sensations. Mais nous demandons que l'on
 
-n'oublie pas que la raison est pour l'humanité la con-
-
-dition rigoureusement indispensable. Nous ne pouvons
+n'oublie pas que la raison est pour l'humanité la condition rigoureusement indispensable. Nous ne pouvons
 
 Non pas que nous voulions interdire au peuple l'accès
 de la raison. C'estnous au contraire qui ne voulons pas
@@ -976,9 +951,7 @@ qu'il peut, mais en toute probité. La raison n'use pas
 du mensonge, quand même le faux serait plus court. Si
 l'on est en face d'un auditoire qui n'entend pas la
 démonstration du théorème afférent au carré de l'hypoténuse, il ne faut pas fabriquer une démonstration
-2 fausse mais saisissable aboutissant à la même propogs sition et la présenter au peuple avec cette arrière tran-
-quillité que ne fait rien puisque la vraie démonstra-
-tion fournit une assurance éternellement valable, une
+2 fausse mais saisissable aboutissant à la même propogs sition et la présenter au peuple avec cette arrière tranquillité que ne fait rien puisque la vraie démonstration fournit une assurance éternellement valable, une
 certitude. Non, mais on dit honnêtement à ceux qui ne
 sont pas géomètres: Les géomèêtres démontrent que le
 carré construit sur l'hypoténuse est équivalent à la
@@ -1024,16 +997,13 @@ sont d'un être plus profondément existant sans doute.
 Nous estimons à leur valeur les pensées confuses, les
 impressions, les pensées obscures, les sentiments et à.
 — même les sensations. Mais nous demandons que l'on
-. n'oublie pas que la raison est pour l'humanité la con-
-dition rigoureusement indispensable. Nous ne pouvons
+. n'oublie pas que la raison est pour l'humanité la condition rigoureusement indispensable. Nous ne pouvons
 
 sans la raison estimer à sa juste valeur tout ce qui n'est
 pas de la raison. Et la question même de savoir ce qui
 revient à la raison et ce qui ne revient pas à la raison,
 à ce n'est que par le travail de la raison que nous pou- à vons nous la poser. )
-Ce que nous demandons seulement, mais nous le demandons sans aucune réserve, sans aucune limita-
-
-tion, ce n'est pas que la raison devienne et soit tout,
+Ce que nous demandons seulement, mais nous le demandons sans aucune réserve, sans aucune limitation, ce n'est pas que la raison devienne et soit tout,
 c'est qu'il n'y ait aucun malentendu dans l'usage de la
 raison. Nous ne défendons pas la raison contre les
 autres manifestations de la vie. Nous la défendons
@@ -1041,8 +1011,7 @@ contre les manifestations qui, étant autres, veulent se
 donner pour elle et dégénèrent ainsi en déraisons. Nous
 ne la défendons pas contre les passions, contre les
 instincts, contre les sentiments comme tels, mais
-contre les démences, contre les insanités. Nous deman-
-dons que l'on ne fasse pas croire au peuple qu'on parle
+contre les démences, contre les insanités. Nous demandons que l'on ne fasse pas croire au peuple qu'on parle
 
 au nom de la raison quand on emploie des moyens ne qui ne sont pas les moyens de la raison. La raison
 
@@ -1052,16 +1021,14 @@ a ses moyens propres, qu'elle emploie dans les arts, dans les lettres, dans les 
 
 Ce n'est pas quand la matière de l'étude est particuliè-
 
-À; rement complexe, mouvante, libre, difficile, que nous n.; pouvons nous démunir d'un outil important, ou que nous
+rement complexe, mouvante, libre, difficile, que nous n.; pouvons nous démunir d'un outil important, ou que nous
 
 devons le fausser.
 
 ; Vous m'avez demandé de réunir pour les Cahiers
 B. de la Quinzaine les études socialistes que j'ai
 
-publiées ces derniers mois dans la Petite Répu-
-
-blique; vous vous proposez d'adresser un exem- Le: ù ire de ce volume à chacun de vos abonnés. Jeme
+publiées ces derniers mois dans la Petite République; vous vous proposez d'adresser un exem- Le: ù ire de ce volume à chacun de vos abonnés. Jeme
 
 . réjouis d'entrer ainsi en communication directe
 
@@ -1084,8 +1051,7 @@ ce qu'est, au début du vingtième siècle, le socia- ES
 lisme, sa conception, sa méthode et son pro
 Mais, déjà, les études ici rassemblées touchent,
 avec une suflisante précision et une suflisante
-étendue, à des problèmes de la plus haute impor-
-tance et qui pressent notre parti. Il est très divisé à
+étendue, à des problèmes de la plus haute importance et qui pressent notre parti. Il est très divisé à
 l'heure présente, et vous m'accuseriez, sans doute,
 d'avoir la folie « de l'unité mystique si je disais
 que ces divisions sont superficielles. Je ne les crois
@@ -1098,10 +1064,9 @@ posant à tous la question de méthode. Comment se
 nous ne pouvons pas éluder: et c'est l'éluderque
 _d'y faire des réponses incertaines et vagues. Ou
 encore, c'est se tromper soi-même, que de répéter,
-L. en 1907, les réponses que firent, ily a un demi-
-siècle, nos aînés et nos maîtres. ne
+L. en 1907, les réponses que firent, ily a un demisiècle, nos aînés et nos maîtres. ne
 ; a Il y à un fait incontestable, et qui dominetout.
-4 C'est que le prolétariat grandit en nombre, en
+C'est que le prolétariat grandit en nombre, en
 cobésion et en conscience. Les ouvriers, les sala-
 ; riés, plus nombreux, plus groupés, ont maintenant
 à un idéal. Ils ne veulent pas seulement obvier aux
@@ -1220,7 +1185,7 @@ quelle sera la méthode de réalisation socialiste, et
 quel sera le mode d'accomplissement. Ce n'est pas
 retourner à l'utopie et se séparer de la vie du
 prolétariat, c'est au contraire rester en elle, progresser et se déterminer avec elle. Elle n'est plus
-« l'esprit flottant sur les eaux »: elle s'est déjà
+« l'esprit flottant sur les eaux elle s'est déjà
 incorporée à des institutions: institutions économiques et institutions politiques; ces institutions,
 suffrage universel, démocratie, syndicat, coopé4 rative, ont un degré déterminé de développement,
 une force et une direction acquises: et il fautsavoir
@@ -1229,8 +1194,7 @@ par elles, s'accomplir par elles, ou si au contraire
 il ne s'accomplira que par une suprême rupture.
 A vrai dire, toujours les socialistes ont cherché à
 prévoir et à déterminer sous quelle forme, par
-quels procédés historiques, le prolétariat triom-
-pherait. Et si nous souffrons aujourd'hui, s'il y a
+quels procédés historiques, le prolétariat triompherait. Et si nous souffrons aujourd'hui, s'il y a
 dans notre parti incertitude et malaise, c'est parce
 qu'il associe en des mélanges confus les méthodes
 » en partie surannées que nos maîtres nous ont
@@ -1267,8 +1231,7 @@ au cœur des prolétaires, quand les diverses frac- ‘4%
 usées ou discréditées par leurs luttes réciproques,
 ._ la classe ouvrière tentait, par une sorte de
 coup de surprise, de s'emparer de la révolution et a.
-5 de la faire sienne. C'est ainsi que sous la Révolu-
-tion française en 1793, le prolétariat parisien pesa, À
+5 de la faire sienne. C'est ainsi que sous la Révolution française en 1793, le prolétariat parisien pesa, À
 par la Commune, sur la Convention et exerça par-
 4 … fois une sorte de dictature, C'est ainsi qu'un peu
 - plus tard Babeufet ses amis tentaient de saisir, par
@@ -1278,8 +1241,7 @@ ne. Révolution de Juillet le grand rôle noté par Armand
 et bientôt de la dépasser. C'est ce rythme de -lution qui s'impose d'abord à la pensée de Marx.
 … Certes en novembre 1847, au moment où avec Engels
 ilécritle Manifeste communiste, il sait bien que le
-prolétariat a grandi: c'est le prolétariat qu'il consi-
-dère comme la vraie force révolutionnaire; et c'est
+prolétariat a grandi: c'est le prolétariat qu'il considère comme la vraie force révolutionnaire; et c'est
 4 contre la bourgeoïisie que se fera la Révolution. -
 Il écrit: « Le progrès de l'industrie dont la bour- À
 
@@ -1288,9 +1250,7 @@ geoisie, sans préméditation et sans résistance, est
 devenue l'agent, au lieu de maintenir l'isolement des ouvriers par la concurrence, a amené leur union à révolutionnaire par l'association. Aïnsi le dévelop- pement même de la grande industrie détruit dans
 ses fondements le régime de production et d'appropriation des produits où s'appuyait la bourgeoisie..
 
-Avant tout la bourgeoisie produit ses propres fos-
-
-soyeurs. La ruine de la bourgeoisie et la victoire du
+Avant tout la bourgeoisie produit ses propres fossoyeurs. La ruine de la bourgeoisie et la victoire du
 prolétariat sont également inévitables ».
 
 Et encore: « Le but immédiat pour les communistes est le même que pour tous les autres partis
@@ -1319,7 +1279,7 @@ LE la bourgeoisie se lèvera, et quand elle aura déchainé.
 4 les événements, quand elle aura ouvert la crise, le
 :54 prolétariat, plus puissant aujourd'hui que ne Es
 l'étaient sous la Révolution anglaise en 1648 les
-4 niveleurs de Lilburne et en 1793 les prolétaires de je A?
+4 niveleurs de Lilburne et en 1793 les prolétaires de je
 Chaumette, s'emparera révolutionnairement de la;
 Révolution bourgeoise. Il commencera par lutte
 . aux côtés de la bourgeoisie, et aussitôt qu'elle sera;;
@@ -1359,8 +1319,7 @@ D'abord, si le prolétariat n'a pas la force de donner
 724 obligé de compter sur les surprises heureuses de
 o la Révolution bourgeoise, comment peut-on être
 assuré qu'il aura contre la bourgeoisie victorieuse
-la force qu'il n'avait pas avant le mouvement bour-
-geois? Ou bien, dans sa tentative de révolution …
+la force qu'il n'avait pas avant le mouvement bourgeois? Ou bien, dans sa tentative de révolution …
 À contre le vieux monde absolutiste et féodal, la
 bourgeoisie sera vaincue: et sous sa défaite le
 
@@ -1382,9 +1341,7 @@ mais il sera fusillé dans les flancs par les démo-
 temps à la Révolution une direction antibourgeoise,
 nous pouvons détruire les conditions essentielles de
 : la production bourgeoise: mais il nous est impossible d'abattre la petite bourgeoisie. Obtenir autant
-que possible, voilà ma devise. Nous devons empèê-
-cher aussi longtemps que possible après la pre-
-mière victoire toute organisation des petits
+que possible, voilà ma devise. Nous devons empèêcher aussi longtemps que possible après la première victoire toute organisation des petits
 
 geois, et notamment nous opposer en phalange
 serrée à toute assemblée constituante. Le terrorisme
@@ -1422,21 +1379,18 @@ cette sorte de détournement prolétarien de la Révok: lution bourgeoise, ce n'
 1 du prolétariat et du communisme que Marx entreÉe. voit: c'est un régime singulièrement mêlé de
 propriété capitaliste et de communisme, de violence ne
 E.- à la propriété et d'organisation du crédit. Chose nu:
-Le. 2 singulière! Après avoir constaté que c'est l'évolu-
-tion de l'industrie et la croissance du prolétariat
+Le. 2 singulière! Après avoir constaté que c'est l'évolution de l'industrie et la croissance du prolétariat
 3 industriel qui créent une force révolutionnaire, le $.
 … Manifeste ne prévoit d'abord, dans le programme
 immédiat de la Révolution communiste victorieuse,
-4 … que l'expropriation de la rente foncière. Il rétro-
-grade au delà de Babeuf, dont la gloire est d'avoir
+4 … que l'expropriation de la rente foncière. Il rétrograde au delà de Babeuf, dont la gloire est d'avoir
 4 fait entrer la production industrielle aussi bien que
 - la production agricole dans le plan communiste. Il
 recule presque jusqu'à Saint-Just, qui semble avoir
 . prévu la possibilité pour la nation d'absorber les
 É fermages. « Nous avons plus haut, dit Marx, que
 la première démarche de la révolution ouvrière
-serait de constituer le prolétariat en classe ré-
-gnante, de conquérir le régime démocratique.
+serait de constituer le prolétariat en classe régnante, de conquérir le régime démocratique.
 
 « Le prolétariat usera de sa suprématie politique
 à pour arracher peu à peu à la bourgeoisie tous les.
@@ -1446,11 +1400,9 @@ dirigeante, les instruments de production et pour
 accroître au plus vite la masse disponible des forces
 
 « Il de soi que cela impliquera dans la période du début des infractions despotiques au droit de
-propriété et aux conditions bourgeoises de la pro-
-duction. Des mesures devront être prises qui sans
+propriété et aux conditions bourgeoises de la production. Des mesures devront être prises qui sans
 doute paraîtront insuflisantes et auxquelles on ne
-À pourra pas s'en tenir, mais qui, une fois le mouve-
-ment commencé, mèneront à des mesures nouvelles
+À pourra pas s'en tenir, mais qui, une fois le mouvement commencé, mèneront à des mesures nouvelles
 4 et seront indispensables à titre de moyens pour À
 4 révolutionner tout le régime de production. Ces
 É. mesures, évidemment, seront différentes en des À
@@ -1533,8 +1485,7 @@ dictatoriale d'une classe. C'est encore par la force,
 par la puissance dictatoriale, qu'il commet ces
 premières « infractions despotiques » à la propriété
 que le Manifeste prévoit. Mais ensuite, pour tout Mir
-le développement de la révolution, pour l'élabo-
-ration et l'organisation de l'ordre nouveau, est-ce
+le développement de la révolution, pour l'élaboration et l'organisation de l'ordre nouveau, est-ce
 
 encore la dictature du prolétariat qui subsiste, où
 2 est-il rentré sous la loi de la démocratie, du suffrage
@@ -1552,8 +1503,7 @@ PE: hors de la cité, c'est une impossibilité. Il est tradictoire de faire des 
 passifs et de leur laisser encore dans une large
 dE 4 mesure la maîtrise de la production. L'est contra
 dictoire d'organiser le crédit d'État et de ne pas
-soumettre au contrôle de toute la nation le fonctionLe. nement de ce crédit. Une classe, née de la démo-
-cratie, qui, au lieu de se ranger à la loi de la
+soumettre au contrôle de toute la nation le fonctionLe. nement de ce crédit. Une classe, née de la démocratie, qui, au lieu de se ranger à la loi de la
 démocratie, prolongerait sa dictature au delà des
 “58 premiers jours de la Révolution, ne serait bientôt. F;.
 plus qu'une bande campée sur le territoire et
@@ -1603,8 +1553,7 @@ substituant à la démocratie petite-bourgeoise est
 greffer la Révolution prolétarienne sur la Révolution
 démocratique et bourgeoise. LA
 Lassalle avait une ambition plus hardie. Lui, À
-ne voulait pas laisser la Révolution, même bour-
-geoise, prendre d'abord une ferme bourgeoise.
+ne voulait pas laisser la Révolution, même bourgeoise, prendre d'abord une ferme bourgeoise.
 voulait la capter, pour ainsi dire, à sa source même, ce
 7 et la dériver d'emblée vers le prolétariat. Ainsi,
 “4 lorsque, en 1863, éclata le conflit entre la représen- #4 à
@@ -1629,8 +1578,7 @@ On proclamait que la bourgeoisie était sans audace,
 qu'elle essaierait tout au plus de revenir à la fédé_ ration allemande de 1848,etqu'ilfallaitaucontraire
 
 É instituer l'entière unité de l'Allemagne démocra
-2 tique. « Des buts misérablement médiocres, s'écriait-
-il, ne peuventsusciter qu'une conduite misérablement
+2 tique. « Des buts misérablement médiocres, s'écriaitil, ne peuventsusciter qu'une conduite misérablement
 4 médiocre; seule une grande idée, seul l'enthousiasme
 pour des buts puissants créent le dévouement, l'esprit de sacrifice, la vaillance! » Et de quel droit
 ; la bourgeoisie allemande, qui avait laissé périrla
@@ -1742,8 +1690,7 @@ démocratie n'est pas close en Europe: mais, dans à
 : cette lutte, la bourgeoisie ne jouera guère qu'un rôle
 d'appoint, comme il est visible en ce moment en Belgique. Et d'ailleurs, il y a déjà, dans toutes les Constitutions de l'Europe centrale et occidentale, assez
 d'éléments de démocratie pour que le passage à l'en- à
-tière démocratie s'accomplisse sans crise révolution-
-naire. Ainsi le prolétariat ne peut plus, comme
+tière démocratie s'accomplisse sans crise révolutionnaire. Ainsi le prolétariat ne peut plus, comme
 l'avaient pensé Marx et Blanqui, abriter sa Révoluà tion derrière les révolutions bourgeoises: il ne peut
 pur plus saisir et tourner à son profit les agitations À
 - révolutionnaires de la bourgeoisie, qui sont épuià sées. Maintenant c'est à découvert, sur le large
@@ -1776,9 +1723,7 @@ de la bourgeoisie pour déployer sa propre force de
 - Révolution, s'il ne peut plus faire surgir sa dicta-
 
 ! ture de classe d'une période de démocratie chaotique et violente, peut-il du moins attendre son ayènement soudain d'un brusque effondrement économique de
-la bourgeoisie, d'un cataclysme du système capita-
-
-liste acculé enfin à l'impossibilité de vivre et
+la bourgeoisie, d'un cataclysme du système capitaliste acculé enfin à l'impossibilité de vivre et
 
 À déposant son bilan? C'était encore une perspec- tive de Révolution prolétarienne ouverte par Marx.
 
@@ -1806,8 +1751,7 @@ grandit encore plus vite que la population et la
 È richesse. Il devient ainsi manifeste que la bourgeoisie est incapable de demeurer désormais la
 classe dirigeante de la société et d'imposer à la
 société, comme une loi impérative, les conditions
-de son existence de classe. Elle est devenue inca-
-pable de régner, car elle ne sait plus assurer à ses
+de son existence de classe. Elle est devenue incapable de régner, car elle ne sait plus assurer à ses
 
 esclaves la subsistance qui leur permette de supporter l'esclavage. Elle en est réduite à les laisser
 tomber à une condition où il lui faut les nourrir au
@@ -1923,16 +1867,13 @@ Jeur union dans le combat est le seul bénéfice
 s'accroît en vue d'un soulèvement général; leurs -
 chances s'accroissent de mener à bien le mouvement révolutionnaire et de précipiter l'effondrement
 de la bourgeoisie. Mais en fait, et dans le fond à
-; même de leur vie actuelle, ils subissent, en n'y oppo-
-sant que de trop faibles contrepoids, la loi de À
+; même de leur vie actuelle, ils subissent, en n'y opposant que de trop faibles contrepoids, la loi de À
 - paupérisation prolétarienne. C'est même sans?
 doute cette contradiction entre la paupérisa-
 - tion croissante subie par le prolétariat et la force
-croissante de revendication et d'action qui s'orga-
-nise en Jui qui apparaît à Marx comme le ressort À
+croissante de revendication et d'action qui s'organise en Jui qui apparaît à Marx comme le ressort À
 des grands soulèvements prochains, comme la force
-immédiate de Révolution. Les améliorations con-
-crètes obtenues par l'effort ouvrier ne compensent
+immédiate de Révolution. Les améliorations concrètes obtenues par l'effort ouvrier ne compensent
 qu'imparfaitement la dépréciation concrète que
 
 subit la vie ouvrière par la loi de la production
@@ -1945,8 +1886,7 @@ ce sens qu'inclinait visiblement toute la pensée
 À de Marx et de Engels. Je dirai presque que Marx
 À avait besoin d'un prolétariat infiniment appauvri et
 dénué, dans sa conception dialectique de l'histoire
-3 moderne. Le prolétariat, pour être dans la dialec-
-tique hégélienne de Marx le moment humain, pour
+3 moderne. Le prolétariat, pour être dans la dialectique hégélienne de Marx le moment humain, pour
 être vraiment l'idée même de l'humanité, devait à
 à ce point être dépouillé de tout droit social, que
 l'humanité seule, infinie en détresse et en droit,
@@ -1961,11 +1901,7 @@ Re. allemande? Réponse: Dans la formation d'une
 ES: classe avec des chaînes radicales, d'une classe de la “4
 ‘ail société bourgeoise, qui ne soit pas une classe de PURE
 société bourgeoise, d'un État, qui soit la dissolution
-; de tout État, d'une sphère qui ait un caractère uni-
-
-versel par la souffrance universelle et qui ne reven-
-
-dique aucun droit particulier, parce que ce n'est
+; de tout État, d'une sphère qui ait un caractère universel par la souffrance universelle et qui ne revendique aucun droit particulier, parce que ce n'est
 
 6 point une injustice particulière, mais l'injustice totale qui est accomplie sur lui, qui ne puisse faire
 appel à aucun titre historique, mais seulement au
@@ -2050,8 +1986,7 @@ vide. Et surtout, par leur sympathie pour l'action
 titres historiques du prolétariat français, devenus
 des titres universels, comme la Déclaration des a
 Droits de l'homme avait été un symbole universel,
-comme la chute de la Bastille avait été une déli-
-vrance universelle. Au moment même où Marx
+comme la chute de la Bastille avait été une délivrance universelle. Au moment même où Marx
 à écrivait pour le prolétariat allemand ces paroles de À
 ; mystique abaissement et de mystique résurrection,
 les prolétaires allemands, comme d'ailleurs Marx
@@ -2069,7 +2004,7 @@ Es ouvrière, sans cesse grossissante et de plus en plus
 ici en balance une force de dépression qui agit
 de immédiatement et une force de résistance et d'orga- à
 è nisation qui semble surtout préparer l'avenir?
-0 Engels, lui, s'est fait de l'inflexibilité du système
+Engels, lui, s'est fait de l'inflexibilité du système
 54 capitaliste, de son impuissance à s'adapter àla
 2 moindre réforme, une idée si rigide et si stricte qu'il
 commet dans l'interprétation des mouvements «
@@ -2095,8 +2030,7 @@ déjà trop tard pour introduire une solution
 si habile toujours aux évolutions et aux compromis!
 pousse si loin son intransigeance sociale qu'il en
 . arrive à tenir sur les grandes questions précises qui
-: sont posées à ce moment le langage des conser-
-vateurs les plus têtus. Comme à eux, tout progrès
+: sont posées à ce moment le langage des conservateurs les plus têtus. Comme à eux, tout progrès
 politique et social lui paraît impossible dans le
 - système présent. Les Chartistes acculent l'Angleterre ou à l'abîime ou à l'entière Révolution
 communiste. Ils demandent le suffrage universel
@@ -2165,14 +2099,12 @@ qui, sur les ruines du capitalisme effondré, suscite
 en un jour la domination de classe du prolétariat
 communiste et un système nouveau de production.
 Ces hypothèses n'ont pas été vaines. Si le proléta-
-: riat n'a se saisir d'aucune des révolutions bour-
-geoises, il s'est poussé cependant depuis cent vingt À
+: riat n'a se saisir d'aucune des révolutions bourgeoises, il s'est poussé cependant depuis cent vingt À
 2 années à travers les agitations de la bourgeoisie à
 É. révolutionnaire, et il continuera encore, sous les
-10 formes nouvelles que développe la démocratie, à:
+10 formes nouvelles que développe la démocratie,
 e. tirer parti des inévitables conflits intérieurs de la
-4 bourgeoisie. S'il n'y a pas réaction totale et révo-
-lutionnaire de l'instinct vital du prolétariat sousun
+4 bourgeoisie. S'il n'y a pas réaction totale et révolutionnaire de l'instinct vital du prolétariat sousun
 ne cataclysme total du capitalisme, il y a d'innombrables crises qui, en attestant le désordre intimede
 
 la production capitaliste, ont naturellement excité
@@ -2195,8 +2127,7 @@ des méthodes précises et sûres de transformation
 sociale et de progressive organisation ne tardent
 pas à apparaître. Ceux qui ne les acceptent pas
 nettement, ceux qui ne prennent pas vraiment au
-sérieux les résultats décisifs du mouvement prolé-
-tarien depuis un siècle, ceux qui rétrogradent es
+sérieux les résultats décisifs du mouvement prolétarien depuis un siècle, ceux qui rétrogradent es
 dépassé par les événements, ou qui mélent aux
 pensées directes et vraies que la réalité présente
 leur suggère des restes de pensées anciennes d'oùla
@@ -2208,9 +2139,7 @@ affirmation générale que par l'analyse minutieuse de toutes les tendances pré
 français et du socialisme international. Je ne
 pourrais aussi légitimer pleinement la méthode que
 j'ai indiquée que par des applications précises et
-par l'exposé d'un programme « d'évolution révolu-
-
-tionnaire ». Ce sera l'objet d'une œuvre plus systématique et plus liée que les études fragmentaires
+par l'exposé d'un programme « d'évolution révolutionnaire ». Ce sera l'objet d'une œuvre plus systématique et plus liée que les études fragmentaires
 qu'à votre demande, mon cher Péguy, je soumets
 dès maintenant aux lecteurs de bonne foi, curieux,
 en ces questions difficiles, même d'un modeste
@@ -2276,9 +2205,7 @@ ce fussent des formes nouvelles, encore moins des
 ébauches de copropriété sociale. J'ai au contraire
 toujours rappelé que c'était au profit d'autres
 individus qu'était limité le droit de l'individu.
-Mais il reste vrai que la propriété, même indivi-
-
-duelle, est extrêmement complexe, qu'elle est formée
+Mais il reste vrai que la propriété, même individuelle, est extrêmement complexe, qu'elle est formée
 de droits très divers, tantôt réunis dans la main Du.
 d'un seul individu, tantôt dispersés dans les mains +04
 de plusieurs; qu'elle est bien loin d'être un bloc ne
@@ -2287,8 +2214,7 @@ abstracto, comme le défenseur de la propriété
 individuelle, et qu'on est mal fondé en outre à
 nous reprocher l'extrême complication du concept
 de la propriété communiste, qui enveloppera le
-6 à droit de la nation, le droit des groupes intermé-
-diaires et le droit des individus. C'est là, ence
+6 à droit de la nation, le droit des groupes intermédiaires et le droit des individus. C'est là, ence
 dr: point, tout ce que j'ai voulu démontrer.
 à M. Leroy dit: « Ce qu'il faut constater, c'est que
 4 toutes les législations ont apporté des restrictions
@@ -2321,8 +2247,7 @@ abouti au collectivisme familial, voila qui est
 nouveau dans le monde et je m'étonne que M. Leroy
 : me rappelle aux forêts de la Germanie.
 En second lieu, ce que j'ai noté c'est que dans
-cette société individualiste la propriété indivi-
-duelle subit un refoulement incessant et une incessante dénaturation. M. Leroy en convient pour
+cette société individualiste la propriété individuelle subit un refoulement incessant et une incessante dénaturation. M. Leroy en convient pour
 toute une catégorie de lois: « Aussi, dit-il, c'est
 moins dans le Code civil de 1804, qui n'est que le
 proche passé remanié, qu'il faut chercher le droit
@@ -2343,9 +2268,7 @@ que, même dans le Code civil, même en dehors de
 la législation sociale que la classe ouvrière a peu à a
 Ë. peu imposée, la propriété individuelle a des facultés
 . presque illimitées de décomposition, qu'elle se prête se
-à toutes sortes de démembrements et que les rap-
-ports mêmes des propriétés individuelles se mar-
-quent par de réciproques expropriations partielles.
+à toutes sortes de démembrements et que les rapports mêmes des propriétés individuelles se marquent par de réciproques expropriations partielles.
 è Aussi bien M. Leroy fait vraimenttrop bon marché
 À du sens révolutionnaire et communiste latent du
 droit d'expropriation pour cause d'utilité publique
@@ -2412,8 +2335,7 @@ représenter que la vieille société pourra se
 transformer pacifiquement en la nouvelle dans
 les pays où la représentation du peuple concentre
 en soi tous les pouvoirs, où l'on peut faire constitutionnellement ce que l'on veut dès qu'on a la
-majorité du peuple derrière soi, dans les Répu-
-bliques démocratiques comme la France et
+majorité du peuple derrière soi, dans les Républiques démocratiques comme la France et
 l'Amérique, dans les monarchies comme
 l'Angleterre où la dynastie est impuissante
 contre le peuple. Mais en Allemagne, où le
@@ -2434,8 +2356,7 @@ De ces remarquables paroles de Engels, je à
 ; ne veux retenir aujourd'hui que deux points.
 ; Le premier, c'est que, pour l'illustre ami de
 ; Marx, la République démocratique n'est pas,
-4 comme le disent si souvent chez nous de pré-
-tendus doctrinaires du marxisme, une forme
+4 comme le disent si souvent chez nous de prétendus doctrinaires du marxisme, une forme
 purement bourgeoise, qui importe aussi peu au
 prolétariat que toute autre forme gouverne_ mentale. Mais la République est, selon Engels,
 la forme politique du socialisme: elle l'annonce,
@@ -2455,8 +2376,7 @@ français déclarent exclusivement bourgeoise, et
 qui à un moment fut, selon Engels, l'instrument
 approprié de la dictature prolétarienne. Or,
 à avant-hier, en cherchant aux Archives, avec
-Gabriel Deville, des documents sur la Révo-
-lution, j'y ai avec un tressaillement de joie
+Gabriel Deville, des documents sur la Révolution, j'y ai avec un tressaillement de joie
 ce fragment d'un journal de Babeuf. Babeuf se
 félicite d'avoir défendu la Révolution et la
 République, même quand elles étaient aux
@@ -2564,8 +2484,7 @@ prolétarien. J'étais donc toujours dirigé par ce
 que Marx a nommé magnifiquement l'évolution
 
 Elle consiste, selon moi, à introduire dans
-la société d'aujourd'hui des formes de pro-
-priété qui la démentent et qui la dépassent, qui
+la société d'aujourd'hui des formes de propriété qui la démentent et qui la dépassent, qui
 annoncent et préparent la société nouvelle, et
 par leur force organique hâtent la dissolution
 du monde ancien. Les réformes ne sont pas
@@ -2619,8 +2538,7 @@ décisions de principe de nos congrès, c'est par
 l'eftet d'une conviction personnelle très réfléchie, que je dis très nettement qu'il me paraitrait mauvais de faire entrer le Parti socialiste
 dans les combinaisons gouvernementales qui
 suivront. Il faut d'abord que le Parti socialiste
-se donne à lui-même le temps de juger à distance les effets bons et mauvais de la partici-
-pation. faut qu'il puisse situer les événements
+se donne à lui-même le temps de juger à distance les effets bons et mauvais de la participation. faut qu'il puisse situer les événements
 dans une juste perspective. Et il faut aussi qu'il
 réserve d'abord tout son effort à déployer
 
@@ -2650,8 +2568,7 @@ s'accroît. En second lieu, et ceci est très important,
 . c'est surtout sur le prolétariat rural que porte la
 diminution. Il est clair que ce sont surtout les
 non-possédants, les journaliers, les fils de métayers
-qui sont entraînés vers la ville. Les petits proprié-
-taires sont plus fortement fixés au sol.
+qui sont entraînés vers la ville. Les petits propriétaires sont plus fortement fixés au sol.
 Enfin, l'effet de la machine est exactement le con-
 Dans l'industrie, la machine supprime parfois des
 bras, mais ce n'est que momentanément; elle suscite des forme nouvelles d'activité, et c'est ainsi
@@ -2685,14 +2602,12 @@ main-d'œuvre, la diminution du prolétariat rural
 à neutralisent toutes ces forces de développement de
 ; la grande propriété. Celie-ci a naturellement besoin
 à d'une main-d'œuvre toujours disponible. Or, il y a
-De des régions entières d'où les journaliers ont dis-
-paru, où les familles de métayers sont juste assez
+De des régions entières d'où les journaliers ont disparu, où les familles de métayers sont juste assez
 ; nombreuses pour suflire à l'exploitation des
 à domaines bourgeois actuellement constitués, et où
 les petits propriétaires, n'ayant qu'un enfant, ne
 travaillent jamais en dehors de leur petit domaine.
-Cela est littéralement vrai du plateau de l'Albi-
-geois. Et, dans le vignoble autour de Gaillac, la
+Cela est littéralement vrai du plateau de l'Albigeois. Et, dans le vignoble autour de Gaillac, la
 à grande propriété tend à diminuer. Le nombre des
 à petits propriétaires vignerons possédant assez de
 vignes pour y trouver l'emploi de tout leur travail À
@@ -2701,8 +2616,7 @@ Le ne possède pas. Ce sont ou des prolétaires qui
 É n'ont rien, des prolétaires qui ne possèdent
 qu'un infime lambeau de vigne insuflisant à occuper
 Ê leurs bras et à les faire vivre. Mais ce tiers de nonà possédanis a plutôt tendance à décroître, et comme,
-4 par leur nombre relativement faible et presque tou-
-jours décroissant, ces ouvriers ruraux sont mieux
+4 par leur nombre relativement faible et presque toujours décroissant, ces ouvriers ruraux sont mieux
 ._ en état de défendre leurs salaires, comme ils ont
 le obtenu depuis quelques années un salaire plus haut,
 . la grande propriété n'ose pas s'étendre davantage,
@@ -2718,8 +2632,7 @@ d'instituer un puissant mouvement prolétarien dans
 RUE les régions où la substance même de ce mouvement,
 c'est-à-dire le prolétariat lui-même, a une tendance
 à décroître. Je sais bien que dans le Midi les
-métayers sont nombreux encore. Et certes, ils com-
-mencent à avoir un sentiment de classe. Ils commencent à comprendre qu'une organisation sociale
+métayers sont nombreux encore. Et certes, ils commencent à avoir un sentiment de classe. Ils commencent à comprendre qu'une organisation sociale
 est possible où ils ne seraient pas réduits à percevoir la moitié des fruits du sol. Mais cet instinct de
 classe est souvent incertain et mêlé. Ils ne sont pas
 de purs prolétaires: ils possèdent une partie du
@@ -2832,8 +2745,7 @@ producteurs paysans aspirent-ils à être délivrés de
 2 - vin étaient acquis par des fédérations de coopéra- À
 à tives et par des fédérations de communes, sile prix
 À en était déterminé selon l'abondance de la récolte, À
-3 les frais d'exploitation scientifique et de perfection-
-nement et le salaire normal des travailleurs
+3 les frais d'exploitation scientifique et de perfectionnement et le salaire normal des travailleurs
 4 employés à la culture, les propriétaires paysans,
 19 affranchis de la spéculation, du parasitisme mercan-
 ; tile, de l'anarchie du marché, travailleraient avec la À
@@ -2885,8 +2797,7 @@ pour que le droit de tous les individus soit respecté.
 la propriété sociale, qui est la lumière du prolétariat
 socialiste en son effort multiple et tourmenté.: à
 
-Mais cette idée générale, si nette et si déter-
-minée qu'elle soit, ne suffit pas à décider les modes À
+Mais cette idée générale, si nette et si déterminée qu'elle soit, ne suffit pas à décider les modes À
 d'application, les combinaisons innombrables et.:
 variables selon lesquelles le socialismes'accomplira.
 Il est certain que c'est le cours même de l'évolution
@@ -2902,8 +2813,7 @@ des choses au lieu de la seconder, si nous ne
 démêélions pas la pente des faits et des esprits, les
 inclinations et les mœurs.
 J'en reviens au même exemple précis. J'ai montré
-à la sourde évolution de la propriété paysanne,lechan-
-gement insensible et secret qui, si je puis dire, peu
+à la sourde évolution de la propriété paysanne,lechangement insensible et secret qui, si je puis dire, peu
 8 à peu renouvelle son âme. Il y a dans l'année une
 : période de près d'un mois et demi, et une période
 particulièrement active, où les propriétaires paysans
@@ -2957,8 +2867,7 @@ a que le socialisme prendra contact avec la vie et lui
 4 empruntera sa force.
 Cette coopération encore superficielle et limitée
 à devra s'étendre, s'assouplir, s'organiser. En bien
-des régions, de grands travaux de perfectionne-
-drainages, nivellement ou adoucissement des pentes,
+des régions, de grands travaux de perfectionnedrainages, nivellement ou adoucissement des pentes,
 , charrois d'engrais, apports de terres, aménagement
 
 FES des eaux. Il se peut que la nation soit appelée à;.
@@ -2971,7 +2880,7 @@ producteurs eux-mêmes. Or, cette collaboration,
 cette coopération commence à apparaître comme
 4 possible, depuis que des habitudes communistes
 4 s'insinuent dans le travail paysan.
-2 Je pourrais citer ainsi bien des traits encore
+Je pourrais citer ainsi bien des traits encore
 à légers, mais qui dessinent les formes futures de la
 vie. Je parlais plus haut du vignoble autour de
 Gaillac. Or, là, depuis quelques années, depuis que
@@ -3055,15 +2964,13 @@ dans un très faible espace de temps, à ces deux
 Dee tactiques: et comme elles sont inconciliables, il est
 clair qu'elles se paralysent et qu'elles le paralysent.
 D'un côté, le Parti ouvrier français interprète la
-lutte de classe dans le sens le plus étroit, si nette-
-ment répudié par Marx. Il déclare volontiers qu'en
+lutte de classe dans le sens le plus étroit, si nettement répudié par Marx. Il déclare volontiers qu'en
 dehors du prolétariat proprement dit, toutes les
 forces sociales ne forment qu'un bloc réactionnaire.
 Il affecte de ne pas distinguer entre les diverses
 catégories des classes possédantes et entre les divers partis. Il met sur le même plan, il coud dans
 le même sac les réactionnaires, les modérés, les
-radicaux socialistes. Il affirme qu'entre les cléri-
-caux et les démocrates même d'extrême gauche, le
+radicaux socialistes. Il affirme qu'entre les cléricaux et les démocrates même d'extrême gauche, le
 peuple ouvrier n'a aucune différence à faire. Et
 même, comme les radicaux démocrates pourraient
 surprendre plus aisément, par quelques formules
@@ -3071,11 +2978,8 @@ de progrès social, la confiance populaire, c'est eux
 que l'on dénonce avec le plus de virulence. Voilà
 un des aspects de la pensée du Parti ouvrier français, voilà une de ses tactiques. C'est celle qui a
 joué à Lille au premier tour de scrutin.
-tactique. Foncièrement, malgré l'affectation d'in-
-transigeance de classe, les ouvriers socialistes du
-Nord, adhérents au Parti ouvrier français, sont ré-
-
-publicains, démocrates et anticléricaux. Ils savent
+tactique. Foncièrement, malgré l'affectation d'intransigeance de classe, les ouvriers socialistes du
+Nord, adhérents au Parti ouvrier français, sont républicains, démocrates et anticléricaux. Ils savent
 que la République est, au moins en France, une se
 . force populaire, une condition du progrès; et ils
 … sentent aussi qu'elle est un commencement de
@@ -3098,11 +3002,8 @@ comme dans la bourgeoisie.
 . cléricaux, ils ont de grands intérêts communs avec
 … les partis non socialistes qui veulent maintenir la
 République, développer la démocratie, combattre
-le privilège de l'Église. Ils font donc nécessaire-
-ment une différence entre les partis qui soutiennent ‘re
-et les partis qui combattent la République, la dé-
-
-mocratie, le libre examen. Et voilà la seconde …
+le privilège de l'Église. Ils font donc nécessairement une différence entre les partis qui soutiennent ‘re
+et les partis qui combattent la République, la démocratie, le libre examen. Et voilà la seconde …
 conception sociale du Parti ouvrier. Cette concep- …
 È tion, il l'a affirmée par ses actes, lorsqu'il a conquis
 la municipalité de Lille avec le concours des radiÀ caux. Il l'aflirmait encore au second tour de scrutin
@@ -3113,8 +3014,7 @@ parle de « solidarité républicaine ». A Lille, ilfait
 ; appel au second tour aux vrais républicains. Mais
 ; que signifie cette solidarité? Et en vertu de quel
 Es droit fait-on cet appel? À
-Si la lutte de classe a le sens que lui donne pa-
-fois le Parti ouvrier français, s'il est vrai qu'en
+Si la lutte de classe a le sens que lui donne pafois le Parti ouvrier français, s'il est vrai qu'en
 dehors du prolétariat socialiste, tout est au même
 É degré réaction et ténèbres, quel lien peut subsister
 entre les socialistes et les républicains démocrates
@@ -3218,8 +3118,7 @@ droit, en toute entreprise, aux organisations
 à ouvrières, afin qu'ainsi, peu à peu, le prolétariat
 pénètre au centre même de la puissance capitaliste,
 et que la société nouvelle sorte de l'ancienne avec
-cette force irrésistible « d'évolution révolution-
-naire » dont a parlé Marx.
+cette force irrésistible « d'évolution révolutionnaire » dont a parlé Marx.
 En tous sens s'ouvrent des réformes que la classe
 ouvrière peut et doit conquérir, des voies où elle "20
 doit et peut marcher. Et cela, le Parti ouvrier
@@ -3297,17 +3196,14 @@ défaite toute sa lucidité, son large sens de la vie, de
 ses complications et de ses évolutions. Il résistait
 
 aux projets enfantins, calmait les effervescences.
-Mais un jour vint où il dut rompre. Et le 15 sep-
-tembre 1850 il se retira du comité central de
+Mais un jour vint où il dut rompre. Et le 15 septembre 1850 il se retira du comité central de
 Londres. Il tint à justifier cette scission par une
 déclaration écrite, insérée au procès-verbal du
 comité, et qui disait ceci
 A la place de la conception critique, la minorité en met
 une dogmatique, à la place de l'interprétation matérialiste,
 l'idéaliste. Au lieu que ce soient les rapports véritables,
-c'est la simple volonté qui devient le moteur de la révo-
-
-lution. Tandis que nous disons aux ouvriers: 11 vous faut
+c'est la simple volonté qui devient le moteur de la révolution. Tandis que nous disons aux ouvriers: 11 vous faut
 traverser quinze, vingt et cinquante ans de guerres civiles
 et de guerres entre peuples non seulement pour changer À
 les rapports existants, mais pour vous changer vous-mêmes
@@ -3318,8 +3214,7 @@ des ouvriers allemands sur l'état informe du prolétariat
 d'Allemagne, vous flattez de la façon la plus lourde le sen-
 ; timent national et le préjugé corporatif des artisans allemands, ce qui, sans nul doute, est plus populaire. De même
 que les démocrates avaient fait du mot peuple un être sacré,
-vous en faites autant du mot prolétariat. Comme les démo-
-crates, vous substituez à l'évolution révolutionnaire la
+vous en faites autant du mot prolétariat. Comme les démocrates, vous substituez à l'évolution révolutionnaire la
 À Je le répète: c'est Marx qui parle. Cinquante
 : ans! le délai que Marx assignait aux ouvriers non
 pour instaurer le communisme, mais pour se
@@ -3417,9 +3312,7 @@ subtile et pesante, envelopper les gouvernements;
 mais il ne peut plus arrêter l'irrésistible mouvement des nations vers l'entière démocratie, et
 l'irrésistible croissance de la classe ouvrière dans
 les démocraties.
-Ainsi, l'obstacle qui, selon Marx, devait dispa-
-raître avant que la classe ouvrière fût capable vrai-
-ment en Europe du pouvoir politique, n'a pas été
+Ainsi, l'obstacle qui, selon Marx, devait disparaître avant que la classe ouvrière fût capable vraiment en Europe du pouvoir politique, n'a pas été
 brisé, mais il a été diminué ou tourné. Il a été
 è diminué par la guerre de Crimée, qui a immobilisé
 : pour de longues années l'autocratie russe, et qui a
@@ -3474,8 +3367,7 @@ dans les temps nouveaux.
 
 Ces grands changements sociaux qu'on nomme
 des révolutions ne peuvent pas ou ne peuvent plus ne.
-être l'œuvre d'une minorité. Une minorité révo-
-lutionnaire, si intelligente, si énergique qu'elle Éi.
+être l'œuvre d'une minorité. Une minorité révolutionnaire, si intelligente, si énergique qu'elle Éi.
 “4 soit, ne suffit pas, au moins dans les sociétés
 modernes, à accomplir la Révolution. Il y faut le
 concours, l'adhésion de la majorité, de l'immense
@@ -3494,9 +3386,7 @@ l'Europe moderne, des centres d'énergie, de il
 conscience, d'action. Et comme, dans les périodes
 ; de transformation où les antiques liens sociaux se ns!
 
-É dénouent, toutes les énergies humaines sont équi-
-
-valentes, c'est forcément la loi de la majorité qui
+É dénouent, toutes les énergies humaines sont équivalentes, c'est forcément la loi de la majorité qui
 décide. Une société n'entre dans une forme nou- velle que lorsque l'immense majorité des individus
 - qui la composent réclame ou accepte un grand
 
@@ -3546,9 +3436,7 @@ Tous les emplois seront accessibles à tous et les plus hauts grades de l'armée
 et au paysan comme au noble. — Toutes les formes
 de l'activité économique seront également ouvertes
 à tous. Pour entreprendre tel ou tel métier, créer
-telle ou telle industrie, ouvrir telle ou telle boutique, il ne sera plus besoin ni d'une permission corpo-
-
-rative, ni d'une autorisation gouvernementale. Les
+telle ou telle industrie, ouvrir telle ou telle boutique, il ne sera plus besoin ni d'une permission corporative, ni d'une autorisation gouvernementale. Les
 
 corporations elles-mêmes cesseront d'exister; et par
 
@@ -3588,8 +3476,7 @@ programme initial. Aucun des révolutionnaires, en
 la monarchie. Le mot même de République était Le ». presque inconnu, et, même au 21 septembre 1792,
 même quand la Convention abolit la royauté, l'idée +4
 de République n'avait pas cessé tout à fait de faire
-peur. Mais ce n'est pas sous les coups d'une mino-
-rité passionnée, ce n'est pas sous des formules de À
+peur. Mais ce n'est pas sous les coups d'une minorité passionnée, ce n'est pas sous des formules de À
 philosophie républicaine que la royauté tomba.
 Ellenefut perdue que lorsqu'il devint évident à
 presque toute la nation, après des épreuves répé- es
@@ -3609,8 +3496,7 @@ d'elle. Mirabeau croyait par exemple que la suppression des monopoles royaux et 
 légion de petits producteurs, d'artisans indépendants. Il ne semble pas avoir suffisamment pressenti la grande évolution capitaliste de l'industrie.
 Mais d'autres étaient plus clairvoyants, et la
 Gironde, notamment, avait prévu, suivant une
-expression du temps, que la richesse et la produc-
-tion formeraient comme de grands fleuves, qu'on
+expression du temps, que la richesse et la production formeraient comme de grands fleuves, qu'on
 essaierait en vain de disséminer en de multiples
 En tout cas, si la Révolution ne savait pas exac- à
 tement quelles seraient les conséquences médiates,
@@ -3652,8 +3538,7 @@ Pour la transformation de l'Église, la Révolution.
 était servie par des analogies très fortes et par des
 précédents très vigoureux. L'armée, la justice, après
 avoir été des institutions féodales, étaient devenues,
-pour une large part, des institutions d'État. Pour-
-quoi l'Église n'aurait-elle pas cessé d'être une caste
+pour une large part, des institutions d'État. Pourquoi l'Église n'aurait-elle pas cessé d'être une caste
 corporative pour devenir une institution d'État? De.
 plus, dès l'ancien régime, la propriété d'Église était -
 considérée comme une propriété d'un ordre spécial
@@ -3750,10 +3635,9 @@ Mais qu'entend-on par influence appréciable ou suffisante? eh.
 S'agit-il d'une influence exclusive? De la possibilité pour het:
 nous d'appliquer nos principes sans autres limitations que
 celles que nous imposerait l'état économique lui-même? me
-4 Cela signifie-t-il en d'autres termes que nous aurons en ne:
+Cela signifie-t-il en d'autres termes que nous aurons en ne:
 . main le pouvoir gouvernemental?: DS:
-2 Ou cela signifie-t-il simplement que nous aurons de l'in-
-fluence sur un gouvernement formé en entier ou pour une 4 mn.
+Ou cela signifie-t-il simplement que nous aurons de l'influence sur un gouvernement formé en entier ou pour une 4 mn.
 très grande part par les autres partis? Lie
 4: En ce dernier cas nous devrions, cela de soi, agir
 autrement que dans le premier.
@@ -3810,7 +3694,7 @@ Ainsi, il ne s'agit pas pour Licbknecht, dans de
 possession complète du pouvoir par le parti socia—
 liste. Liebknecht ne peut pas s'imaginer, et ne 170)
 s'imagine point en effet, que sous l'Empire, sous un 1160
-#4 Guillaume III, le parti socialiste recevra d'emblée
+4 Guillaume III, le parti socialiste recevra d'emblée
 184 tout le pouvoir que, peut-être, au lendemain même
 de la chute violente de l'Empire, il ne pourra saisir De
 tout entier. Non, c'est seulement une part du
@@ -3871,8 +3755,7 @@ A _en pleine ferveur de combat révolutionnaire, avait À
 À Je me risquerai seulement à conjecturer que son
 erreur dans l'affaire Dreyfus avait faussé sa vue
 pour les événements qui en étaient la suite. à
-À Presque seul dans la démocratie socialiste alle-
-mande, il avait mal jugé le fond même de l'affaire,
+À Presque seul dans la démocratie socialiste allemande, il avait mal jugé le fond même de l'affaire,
 etilen avait méconnu le sens politique et social: à dès qu'il était engagé dans une pensée, dans une DU
 1 voie, il y persévérait avec une inflexibilité que son La
 
@@ -3882,15 +3765,14 @@ de ses qualités souveraines de fermeté, d'élan et de
 confiance. Donc tout ce qui se rattachait par un lien
 historique à une agitation qu'il avait désapprouvée
 lui était suspect ou importun. Ainsi l'application
-dans des circonstances qui l'irritaient, il ne recon-
-nut pas, dans la marche des choses, sa propre
+dans des circonstances qui l'irritaient, il ne reconnut pas, dans la marche des choses, sa propre
 Essaiera-t-on d'en diminuer la valeur en disant
 qu'il n'avait point publié son œuvre? Pris par le..
 tourbillon de l'action, surchargé des tâches quotidiennes, il ne l'avait point achevée. Mais il ne l'a
 ni détruite ni désavouée. Peut-être avait-il jugé à
 qu'il serait imprudent de livrer à l'ennemi le secret
 de sa pensée, de la tactique entrevue pour l'avenir.
-?; Peut-être encore fut-il quelque peu déconcerté par
+Peut-être encore fut-il quelque peu déconcerté par
 4 les événements qui suivirent la chute de Bismarck.
 4: Ce grand ennemi du chancelier en a toujours grossi
 4 et pour ainsi dire satanisé le rôle. Il croyait que
@@ -3998,8 +3880,7 @@ qui ne vaut pas qu'on se jette l'anathème et qu'on
 
 De même que la tactique est variable, le programme, qui estaprès tout une partie de la tactique,
 peut être modifié, revisé, complété. Je crois, pour
-ma part, qu'il est tout à fait incomplet et étrange-
-ment ineflicace, qu'il ne répond plus à l'état de
+ma part, qu'il est tout à fait incomplet et étrangement ineflicace, qu'il ne répond plus à l'état de
 croissance du prolétariat, et qu'il doit être complété
 par toute une série de mesures introduisant
 graduellement la classe ouvrière dans la puissance
@@ -4083,8 +3964,7 @@ du travail social par l'État.
 4 accidents, qui de toutes les lois d'assurance est la
 plus superficielle, la plus extérieure au travail.
 Mais combien cela est plus vrai encore de la loi
-ne d'assurance sur les pensions de vieillesse et d'in-
-validité qui crée un droit nouveau de la classe
+ne d'assurance sur les pensions de vieillesse et d'invalidité qui crée un droit nouveau de la classe
 ouvrière, qui constitue au prolétariat un patrimoine
 
 rec la fois collectif et individuel; comme surtout cela nt.
@@ -4095,7 +3975,7 @@ Ne à Liebknecht constate comme un des signes les plus
 décisifs de la croissance dusocialismeen Allemagne,
 que presque tous les partis sont obligés d'adhérer
 à ces projets de législation. -
-23 Tous les partis, ditil, à l'exception des anarchistes
+Tous les partis, ditil, à l'exception des anarchistes
 manchestériens les plus surannés, qui veulent dissoudre me
 lÉtaten atomes et livrer lasociété àlaclibresexploitation
 : es classes possedantes, rivalisent entre eux de sSoicitude Es
@@ -4180,9 +4060,7 @@ qui ont cessé d'être vraies, mais qu'on n'ose rejeter
 avouer, que viennent les malaises, les mouvements
 chaotiques du socialisme à l'heure présente. C'est
 À par une contradiction de cette sorte que Liebknecht,
-dans le manuscrit même où il prévoit la collabo-
-
-mes vire NUS Ne AN dE États dure #4
+dans le manuscrit même où il prévoit la collabomes vire NUS Ne AN dE États dure #4
 
 ration gouvernementale du socialisme avec d'autres
 fractions de la démocratie, répète pourtant et semble
@@ -4218,8 +4096,7 @@ exploiteurs, et elle a surtout cet avantage que par sa concentration dans les fa
 caractère révolutionnaire qu'aucune partie de la société n'a
 au même degré. Il faut le reconnaître sans réserve.
 Chaque salarié est ou socialiste, ou en voie de le devenir.
-Les salariés des ateliers nationaux de France, que le gou-
-vernement bourgeois de la République de février voulait
+Les salariés des ateliers nationaux de France, que le gouvernement bourgeois de la République de février voulait
 utiliser contre le prolétariat socialiste, furent au moment
 décisif des protagonistes du prolétariat; et semblablement, à
 nous voyons comment les unions de métiers, qui avaient
@@ -4252,8 +4129,7 @@ Paris et de Lyon? Et chaque combat ne se terminait-il
 point par une sanglante défaite, par les plus horribles
 
 : représailles des vainqueurs et par le long épuisement du
-prolétariat? Le prolétariat français n'a pas encore suffi-
-samment reconnu la nécessité de l'organisation et de la
+prolétariat? Le prolétariat français n'a pas encore suffisamment reconnu la nécessité de l'organisation et de la
 propagande, et c'est pour cela que jusqu'ici il a été réguliè-
 
 La leçon de la Commune semble heureusement avoir
@@ -4307,7 +4183,7 @@ Rain! n'est d'aucun poids dans la balance politique, mais qui
 4 largement éclairée sur les buts et l'essence même de notre
 KES parti, qu'elle cesse de le craindre et qu'elle ne puisse plus
 PRE ï être lancée contre nous comme la meute de la sorcière.
-6 Toutes les mesures législatives, que, si l'occasion nous en
+Toutes les mesures législatives, que, si l'occasion nous en
 4 est offerte, nous aurons à appuyer, doivent avoir pour but
 de communs, et de détruire les préjugés courants contre
 
@@ -4356,7 +4232,7 @@ féodaux, et par suite, elle n'a pas besoin de servir les intérêts des grands 
 Elle n'est pas un parti de la bourgeoisie dans ses
 A diverses branches, et par suite, elle n'est pas au service des
 intérêts particuliers et des goûts de domination de la boursi geoisie, comme le parti national-libéral et le parti progresF% siste.
-10 Elle n'est pas un parti de la caste sacerdotale, et par
+Elle n'est pas un parti de la caste sacerdotale, et par
 suite elle n'est pas au service des intérêts particuliers et
 des goûts de domination de la caste des prêtres, comme le
 centre catholique et la faction protestante du christianisme
@@ -4391,16 +4267,13 @@ Nous déclarons expressément que c'est à notre avis un
 
 (des devoir de l'État, de donner à ceux qui peuvent être lésés
 
--5% dans leurs intérêts par l'abolition nécessaire des lois nuisi-
-
-bles à l'intérêt commun, une indemnité, autant que celaest possible et conciliable avec l'intérêt de l'ensemble.
+-5% dans leurs intérêts par l'abolition nécessaire des lois nuisibles à l'intérêt commun, une indemnité, autant que celaest possible et conciliable avec l'intérêt de l'ensemble.
 
 ÉSe Nous avons des devoirs de l'État envers les individus une
 plus haute idée que nos adversaires, et nous n'en dévierons
 pas, même si ce sont des adversaires que nous avons en face
 
-Je ne cite point ces magnifiques paroles pour cou-
-vrir d'une autorité révolutionnaire la politique
+Je ne cite point ces magnifiques paroles pour couvrir d'une autorité révolutionnaire la politique
 socialiste que j'ai en vue. Le Parti socialiste serait
 bien misérable et bien lâche si chacun de nous n'y
 disait pas toute sa pensée sans autre recours qu'à
@@ -4432,8 +4305,7 @@ l'impression qu'il est à la fois généreux et pratique,
 ardent au combat et ami de la paix, très ferme contre
 à les institutions iniques et décidé à les abattre méthodiquement, très conciliant aussi envers les per- à
 
-! sonnes, il avancerait d'un demi-siècle la vraie Révo-
-lution sociale, celle qui serait dans les choses, dans
+! sonnes, il avancerait d'un demi-siècle la vraie Révolution sociale, celle qui serait dans les choses, dans
 ; les lois et dans les cœurs, non dans les formules et
 dans les mots, et il épargnerait à la grande œuvre
 de la Révolution prolétarienne l''écœurante et cruelle
@@ -4540,8 +4412,7 @@ pris conscience d'eux-mêmes. Partout ils redoublent
 d'effort. La classe ouvrière est sortie du demisommeil et de la passivité. Mais la petite bourgeoisie aussi est agissante. Malgré le poids du
 système économique qui si souvent l'écrase, elle n'a
 point tout à fait fléchi: elle tente de se redresser. Et
-si bien souvent elle demande son salut aux concep-
-tions les plus rétrogrades, à la politique la plus
+si bien souvent elle demande son salut aux conceptions les plus rétrogrades, à la politique la plus
 détestable et au plus stérile et avilissant nationalisme, elle n'en est pas moins une force active et
 passionnée. Elle forme des ligues, et à Paris elle
 tient en échec la démocratie socialiste et républi-
@@ -4587,7 +4458,7 @@ de puissance que les classes privilégiées d'avant
 
 Fes 1789. La bourgeoisie industrielle est restée vivante.
 : Elle suit les lois du progrès scientifique. Elle adopte
-à; sans cesse de nouvelles méthodes de production,
+sans cesse de nouvelles méthodes de production,
 elle renouvelle son outillage. Et même au point de
 1 vue de la lutte sociale, de la lutte des classes, elle
 renouvelle sa méthode de combat: l'invention des À
@@ -4596,8 +4467,7 @@ renouvelle sa méthode de combat: l'invention des À
 entre un grand prélat d'ancien régime et un grand f. capitaliste d'aujourd'hui! Il en est, comme certains
 à En milliardaires américains, qui ont hérité de l'activité
 
-de Napoléon. Et en France même, dans des propor-
-tions plus modestes, la classe capitaliste est toujours à « en éveil. Ce n'est pas à des classes nonchalantes et
+de Napoléon. Et en France même, dans des proportions plus modestes, la classe capitaliste est toujours à « en éveil. Ce n'est pas à des classes nonchalantes et
 assoupies, c'est à des classes agissantes, voyantes, hardies que le prolétariat doit arracher
 leur privilège. Comment le pourrait-il s'il n'apas …
 418 avec lui l'ensemble de la nation? Si la masse dela
@@ -4637,8 +4507,7 @@ De même, quand la Révolution abolit les droits
 féodaux, c'était aussi une mesure précise, aux
 
 effets connus d'avance et limités. Sans doute, il y
-avait des droits féodaux engagés dans des pro-
-priétés non féodales. Mais dans l'ensemble, c'étaient les seigneurs qui étaient atteints. La nature
+avait des droits féodaux engagés dans des propriétés non féodales. Mais dans l'ensemble, c'étaient les seigneurs qui étaient atteints. La nature
 même de la redevance féodale, qui supposait un lien de dépendance personnelle, en réservait le
 bénéfice à une catégorie de personnes.
 
@@ -4655,11 +4524,9 @@ comme la noblesse. Les titres qui la représentent
 
 : que le dit l'optimisme de commande des écono-
 
-Ê; mistes bourgeois. Maïs enfin, ils ne sont pas ne réservés à telle catégorie de titulaires, et ils sont
+mistes bourgeois. Maïs enfin, ils ne sont pas ne réservés à telle catégorie de titulaires, et ils sont
 
-4 assez largement disséminés. Il y a de petits posses-
-
-seurs jusque-dans les villages. Et si un coup de
+4 assez largement disséminés. Il y a de petits possesseurs jusque-dans les villages. Et si un coup de
 
 minorité abolissait un moment la propriété capitaæ
 
@@ -4728,9 +4595,7 @@ D. rente du sol, tout bénéfice commercial, tout divi-
 7158 dende et profit industriel soient abolis; si à cette ne destruction du capitalisme ne s'ajoutait pas immé_ diatement une organisation socialiste, si la société
 ne savait pas d'emblée comment, par qui, sera
 conduit le travail, quelle sera l'action de l'État, celle de la commune, celle du syndicat, comment,
-d'après quels principes seront rémunérés les pro-
-
-ducteurs, si elle n'était pas, en un mot, capable.
+d'après quels principes seront rémunérés les producteurs, si elle n'était pas, en un mot, capable.
 
 d'assurer le fonctionnement d'un système social
 nouveau, elle tomberait dans un abîme de désordre
@@ -4743,8 +4608,7 @@ fonctionner qu'avec le consentement de l'immense
 majorité des citoyens. Et c'est la majorité des
 citoyens qui en multipliera peu à peu les ébauches
 et les germes. C'est elle qui, du chaos capitaliste,
-fera surgir graduellement des types variés de pro-
-priété sociale, coopérative, communale et corporative, et elle n'abattra les derniers pans du système
+fera surgir graduellement des types variés de propriété sociale, coopérative, communale et corporative, et elle n'abattra les derniers pans du système
 capitaliste que lorsque les fondements de l'ordre
 socialiste seront assurés, lorsque l'édifice nouveau
 pourra mettre les hommes à l'abri. A cette œuvre
@@ -4940,9 +4804,7 @@ Par exemple on comprend très bien que lescor-
 
 3 arrivent à se passionner pour la journée de huit
 
-heures, pour les retraites de vieillesse et d'inva-
-
-lidité, pour l'assurance sérieuse et certaine contre
+heures, pour les retraites de vieillesse et d'invalidité, pour l'assurance sérieuse et certaine contre
 le chômage. On comprend, si les pouvoirs publics a résistent ou éludent, que la classe ouvrière, dans à la profondeur de sa conscience, accumule assez
 
 d'énergie et de passion pour déclarer une grande et
@@ -4991,12 +4853,10 @@ cohérent du droit légal de grève, mais comme le
 fraction militante du prolétariat ne suflira point à
 2. C'est pourtant à cette conception que se sont
 À arrêtés quelques-uns des théoriciens de la grève
-générale. Ils croient que la grève générale des cor-
-porations les plus importantes suflira à déterminer
+générale. Ils croient que la grève générale des corporations les plus importantes suflira à déterminer
 la Révolution sociale, c'est-à-dire la chute de tout à
 le système capitaliste et l'avènement du commua
-nisme démocratique et prolétarien. La vie écono-
-mique du pays sera suspendue; les voies ferrées
+nisme démocratique et prolétarien. La vie économique du pays sera suspendue; les voies ferrées
 es seront désertes; la houille nécessaire à l'industrie
 
 restera ensevelie sous terre: les navires ne ront même plus aborder les quais où nul ouvrier
@@ -5028,7 +4888,7 @@ ne attachent tous ce sens. Mais je dis que pour ceuxà qui y voient l'instrument
 Or, en ce sens révolutionnaire, je crois que c'est
 4 une idée fausse. D'abord, une tactique est singulièLS 3 A
 4 rement dangereuse quand elle ne peut échouer UNE
-4 FOIS sans entraîner pour la classe ouvrière des
+FOIS sans entraîner pour la classe ouvrière des
 
 Les partisans de la grève générale ainsi entendue
 DER sont obligés, qu'on le note bien, DE RÉUSSIR
@@ -5136,8 +4996,7 @@ paset ne peut pas lui assigner de limite. Par consé-
 Eee quent, le prolétariat, en ouvrant la grève générale,
 sait qu'il exerce un droit légal; c'est donc avec toute
 la puissance de la légalité qu'il entre dansle mouve_ ment, et bien des travailleurs qui auraient répugné
-à l'emploi prémédité de la force et à l'action délibé-
-rément révolutionnaire, n'hésiteront pas à mani-
+à l'emploi prémédité de la force et à l'action délibérément révolutionnaire, n'hésiteront pas à mani-
 4 fester leur irritation contre les injustices sociales
 parune démarche menaçante, mais qui ne les jette
 :*e pas dès la première heure et de sang-froid hors de
@@ -5174,8 +5033,7 @@ révolution. Et comme tout mécanisme qu'onn'apu
 éprouver par des expériences répétées avant d'en
 faire un emploi décisif, celui-ci expose à bien des
 Er:: mécomptes les hommes de bonne foi qui attendent
-ES. tout de lui. Créer par un moyen factice une excita-
-tion révolutionnaire que la seule action des souf-
+ES. tout de lui. Créer par un moyen factice une excitation révolutionnaire que la seule action des souf-
 
 “6 frances, des misères, des injustices usuelles n'aurait
 pas suffi à produire, est une entreprise bien
@@ -5185,7 +5043,7 @@ plus forte raison peut-on dire qu'elle ne se fabrique
 2 à ingénieux soit-il, ne peut suppléer la préparation
 révolutionnaire des choses et des esprits. Il ne
 suflira pasde poser d'abord la grève générale pour en
-(3 à: faireensuite réussir la Révolution. Il se peut très bien
+(3 faireensuite réussir la Révolution. Il se peut très bien
 74 que les prolétaires, s'ils ont besoin, à l'origine,pour
 entrer dans la grande action, d'un prétexte etmême
 108 d'une illusion de légalité, reculent devant l'emploi
@@ -5258,8 +5116,7 @@ fait rage, en même temps que la guerre étrangère. La
 Vendée, la Bretagne, le Midi, Lyon sont soulevés et Ne:
 en feu. La moitié de laFrance estarmée contrel'autre
 moitié. L'été aride et ardent a appauvri les mois- NF.
-Le. sons. Le blé circule malaisément, chaque départe-
-ment, chaque district voulant se réserver le plus de
+Le. sons. Le blé circule malaisément, chaque département, chaque district voulant se réserver le plus de
 grain possible. Bien que Paris ne soit pas investi, il
 À est soumis à un véritable régime d'état de siège: il
 ; y faut faire queue à la porte des boulangers; le
@@ -5280,13 +5137,7 @@ tout, les sources profondes de la vie ne sont pas a
 : atteintes, et elles jaillissent de nouveau avec une
 merveilleuse abondance dès les premiers jours de
 
-É En supposant même qu'une grève générale révo-
-
-lutionnaire parvienne à obstruer les ports, à immo-
-
-biliser les locomotives, à détruire les voies ferrées, à occuper souverainement quelques régions parti-
-
-culièrement ouvrières, à menacer et à réduire
+É En supposant même qu'une grève générale révolutionnaire parvienne à obstruer les ports, à immobiliser les locomotives, à détruire les voies ferrées, à occuper souverainement quelques régions particulièrement ouvrières, à menacer et à réduire
 l'approvisionnement de quelques grandes villes et
 dela capitale, l'ingénieuse nécessité fera apparaître À
 d'innombrables ressources cachées. Au besoin, la
@@ -5301,8 +5152,7 @@ propriété individuelle ne veulent pas capituler, si
 2. la grande majorité des citoyens est opposée au
 
 nouvel ordre social que la grève générale veut
-En. instaurer par un coup de surprise, la société bour-
-geoise et la propriété individuelle trouveront le
+En. instaurer par un coup de surprise, la société bourgeoise et la propriété individuelle trouveront le
 10 moyen de vivre, de se défendre, de rallier peu à
 peu, dans le désordre même et le désarroi de la vie
 
@@ -5327,8 +5177,7 @@ Paris, comme en 1871, — et avec les éléments sociaux dont se compose Paris, 
 entrées en branle. Et elles ne tarderaient pas à y
 entrer spontanément. Qu'on n'oublie pas qu'aujourd'hui, avec les sociétés de tir et de gymnastique où
 dominent tant d'influences réactionnaires, avec les
-habitudes de sport de la haute et moyenne bour-
-geoisie, avec l'entraînement militaire des classes
+habitudes de sport de la haute et moyenne bourgeoisie, avec l'entraînement militaire des classes
 possédantes, les privilégiés, les bourgeois, les capitalistes petits et grands, les boutiquiers exaspérés
 seraient capables même d'une action physique très
 Et pendant ce temps, que ferait la Révolution?
@@ -5379,8 +5228,7 @@ que par la conscience d'une vaste unité, par
 l'ardente communication des forces et des.
 . enthousiasmes. C'est par l'organisation d'une forte
 représentation etaction de classe, économique et
-politique, pénétrant tout et reliant tout, que le pro-
-létariat accomplira sa révolution. Le morcellement
+politique, pénétrant tout et reliant tout, que le prolétariat accomplira sa révolution. Le morcellement
 est un retour à l'état féodal. Dans les groupes
 isolés, retombés par l'arrêt de la circulation à une
 civilisation inférieure, ce sont les oligarchies possé-
@@ -5457,8 +5305,7 @@ de frapper l'ennemi plus encore que de se sauver
 soi-même. Eee
 Mais la classe ouvrière serait dupe d'une illusion
 funeste et d'une sorte d'obsession maladive, si elle
-prenait ce qui ne peut être qu'une tactique de déses-
-poir pour une méthode de révolution. En dehors
+prenait ce qui ne peut être qu'une tactique de désespoir pour une méthode de révolution. En dehors
 des sursauts convulsifs qui échappent à toute pré
 vision et à toute règle, et qui sont parfois la ressource suprême de l'histoire aux abois, il n'y a ‘es
 are aujourd'hui pour le socialisme qu'une méthode
@@ -5594,9 +5441,7 @@ Mic. des organismes nationaux, la propriété sociale aura …
 
 Le 3 la forme d'une propriété nationale. L'action des
 
-prolétaires s'exercera de plus en plus internatio-
-
-nalement. Les diverses nations en voie d'évolution
+prolétaires s'exercera de plus en plus internationalement. Les diverses nations en voie d'évolution
 
 vers Le socialisme régleront de plus en plus leurs
 
@@ -5625,18 +5470,14 @@ moment de la durée, ne doit être laissée en dehors
 
 de la sphère du droit. Aucune ne doit être exposée
 
-à être la proie ou l'instrument d'une autre per-
-
-sonne. Aucune ne doit être privée des moyens positifs de travailler librement, sans dépendance
+à être la proie ou l'instrument d'une autre personne. Aucune ne doit être privée des moyens positifs de travailler librement, sans dépendance
 
 servile à l'égard de qui que ce soit.
 
 C'est donc dans la nation que le droit de tous les
 individus, aujourd'hui, demain et toujours, trouve
 : 0 sa garantie. Et si nous transférons à la communauté
-nationale ce qui fut la propriété de classe des capi-
-
-talistes, ce n'est pas pour faire de la nation une à idole; ce n'est pas pour lui sacrifier la liberté des
+nationale ce qui fut la propriété de classe des capitalistes, ce n'est pas pour faire de la nation une à idole; ce n'est pas pour lui sacrifier la liberté des
 
 individus. C'est, au contraire, pour qu'elle puisse
 
@@ -5792,8 +5633,7 @@ nisme. Mais cette logique interne de l'idée de droit
 et d'humanité serait restée inefficace et dormante
 sans la vigoureuse action extérieure du prolétariat.
 Dès les premiers jours de la Révolution, il intervient. Il n'écoute pas les absurdes conseils de classe
-de ceux qui, comme Marat, lui disent: « Que fais-
-tu? et pourquoi vas-tu prendre la Bastille, quin'a
+de ceux qui, comme Marat, lui disent: « Que faistu? et pourquoi vas-tu prendre la Bastille, quin'a
 é jamais enfermé dans ses murs de prolétaires? » Il
 marche; il livre l'assaut; il décide du succès des
 grandes journées; il court aux frontières; il sauve
@@ -5804,8 +5644,7 @@ de 1789 à 1792, une démocratie pure, où parfois “4
 l'action des prolétaires est dominante. A déployer
 
 sa force, il prend confiance en lui-même, etil finit)
-à parsedire, avec Babeuf, qu'ayant créé une puis-
-pour fonder le bonheur commun. À Ne -
+à parsedire, avec Babeuf, qu'ayant créé une puispour fonder le bonheur commun. À Ne -
 es Ainsi, par l'action des prolétaires, le commu-
 À nisme cesse d'être une vague spéculation philosoÉ phique pour devenir un parti, une force vivante.
 Ainsi, le socialisme surgit de la Révolution fran- 2:00
@@ -5818,8 +5657,7 @@ rienne naissante. Il n'est donc pas une utopie
 des régimes politiques, le nouvel ordre bourgeois
 créé par la Révolution se développe. Voici que sous
 l'Empire, sous la Restauration, le système éconoJ; mique de la bourgeoisie, fondé sur la concurrence
-es illimitée, commence à produire ses effets: accroisse-
-ment incontestable de richesse, mais immoralité,
+es illimitée, commence à produire ses effets: accroissement incontestable de richesse, mais immoralité,
 : ruse, perpétuel combat, désordre et oppression. — ”.
 ; Le trait de génie de Fourier fut de concevoir qu'il à
 était possible de remédier au désordre, d'épurer et
@@ -5882,9 +5720,7 @@ l'œuvre de Proudhon, des flottements et des contradictions; de un singulier mé
 
 : de révolution selon qu'ils'applique à sauver par des
 combinaisons factices de crédit la petite bourgeoisie industrielle ou qu'il pressent l'avènement de la classe ouvrière, force de révolution. Il aurait voulu
-suspendre les événements, ajourner la crise révolu-
-tionnaire de 1848 pour donner à l'évolution écono-
-mique le temps de dessiner plus nettement sa ligne, à
+suspendre les événements, ajourner la crise révolutionnaire de 1848 pour donner à l'évolution économique le temps de dessiner plus nettement sa ligne, à
 et de mieux orienter les esprits. Maïs, ici encore,.
 , d'où viennent ces hésitations, ces scrupules ou même
 
@@ -5902,7 +5738,7 @@ que la croissance de la grande industrie susciteun
 prolétariat ouvrier, toujours plus nombreux,
 
 toujours plus cohérent, toujours plus conscient.
-4 Ceux qui avec Marx ont salué l'avènement de cette
+Ceux qui avec Marx ont salué l'avènement de cette
 À puissance décisive, ceux qui ont compris que par
 
 4 elle le monde serait transformé ont s'exagérerla
@@ -5917,8 +5753,7 @@ l'excès le problème et grossir la puissance d'abFN sorption du capital concent
 2 nous apporte l'étude de la réalité toujours compli_ quéeet multiple, il reste vrai que la classe purek< ment prolétarienne grandit en nombre, qu'elle
 représente une fraction toujours croissante des
 sociétés humaines, qu'elle est groupée en des centres » de production toujours plus vastes; il reste vrai “AIS à
-qu'elle est toute préparée à concevoir, par la pro-
-duction en grand, la propriété en grand, dont la
+qu'elle est toute préparée à concevoir, par la production en grand, la propriété en grand, dont la
 limite est la propriété sociale. “1
 ? À Ainsi, le socialisme, qui avec Babeuf fut comme
 4 le frisson le plus ardent de la Révolution démocra- #4
@@ -5933,13 +5768,11 @@ puissances sociales, celle qui grandit sans cesse et
 qui finira par déplacer à son profit, c'est-à-dire au
 1 profit de l'humanité dont elle est maintenant l'ex-
 : pression la plus haute, l'équilibre du monde social. Le
-Non, le socialisme n'est pas une conception arbi-
-pleine réalité; il est une grande force de vie, mêlée
+Non, le socialisme n'est pas une conception arbipleine réalité; il est une grande force de vie, mêlée
 à toute la vie et capable bientôt d'en prendre la
 
 direction. A l'application incomplète de la justice
-et du droit humain que faisait la Révolution démo-
-cratique et bourgeoise, il a opposé la pleine et
+et du droit humain que faisait la Révolution démocratique et bourgeoise, il a opposé la pleine et
 décisive interprétation des Droits de l'homme. A
 l'organisation de richesse incomplète, étroite et
 chaotique qu'essayait le capitalisme, il a opposé
@@ -5984,17 +5817,14 @@ travail, fédérations de métiers, fédérations d'in- à
 Et ainsi, il est certain dès maintenant que ce n'est
 point par la pesante monotonie d'une bureaucratie
 Mais la nation, investie du droit social et souverain
-de propriété, aura des organes sans nombre, com-
-munes, coopératives, syndicats, qui donneront à la
+de propriété, aura des organes sans nombre, communes, coopératives, syndicats, qui donneront à la
 propriété sociale le mouvement le plus souple et le.
 plus libre, qui l'harmoniseront avec la mobilité et se
 4 la variété infinie des forces individuelles. Il y a à
 donc une préparation technique du socialisme Les
 comme il y a une préparation intellectuelle et
 sociale. Ceux-là sont des enfants qui, s'enfiévrant
-de l'œuvre déjà accomplie, croient qu'il leur suflirait maintenant d'un décret, d'un Fiat lux pro-
-
-létarien pour faire surgir d'emblée le monde
+de l'œuvre déjà accomplie, croient qu'il leur suflirait maintenant d'un décret, d'un Fiat lux prolétarien pour faire surgir d'emblée le monde
 
 socialiste. Mais ceux-là sont des insensés quine
 
@@ -6003,7 +5833,7 @@ socialiste. Mais ceux-là sont des insensés quine
 Ce sera la honte intellectuelle du parti radical de
 
 5 n'avoir répondu à l'immense problème qui nous à presse tous que par une équivoque formule électo- a rale: « Maintien de la propriété individuelle. » La
-formule pourra sans doute servir quelque temps à ù: exciter contre le socialisme les ignorances, les
+formule pourra sans doute servir quelque temps à exciter contre le socialisme les ignorances, les
 
 4: frayeurs et les égoïsmes. Mais elle tuera le parti
 : qui est réduit à en faire usage.
@@ -6040,8 +5870,7 @@ d'une façon générale et abstraite, le mot de propriété individuelle ne sign
 humaine la propriété individuelle a changé bien
 des fois de forme et de substance, de sens et de
 contenu. La propriété individuelle a été, dans les
-sociétés qui ont précédé la nôtre, la forme d'oppres-
-sions définitivement abolies. L'esclavage a été un
+sociétés qui ont précédé la nôtre, la forme d'oppressions définitivement abolies. L'esclavage a été un
 des modes de la propriété individuelle. IL y avait à
 Athènes et à Rome des esclaves publics, esclaves de
 la cité ou de l'État. Mais la plupart des esclavesfaisaient partie du patrimoine individuel des citoyens.
@@ -6051,9 +5880,7 @@ ils travaillaient à son profit dans des ateliers
 urbains. Ce sont des individus qui les possédaient,
 qui en disposaient, qui les soumettaient au labeur A
 
-; forcé, qui les donnaient, les vendaient, les trans-
-
-ta mettaient. Et de même quand, après l'effondrement
+; forcé, qui les donnaient, les vendaient, les transta mettaient. Et de même quand, après l'effondrement
 De de la société antique et du régime romain fondé sur la conquête, l'esclavage fut amendé en servage, les
 
 serfs aussi furent sur la glèbe objets de quelque
@@ -6101,7 +5928,7 @@ serf étaient plus heureux que le salarié. La condi- y tion matérielle et mora
 
 serf. Mais, en ce moment, il ne s'agit point de cela.
 
-Je dis simplement qu'aujourd'hui la propriété indi- ne. viduelle a la forme capitaliste, qu'elle permet à: 1 "4
+Je dis simplement qu'aujourd'hui la propriété indi- ne. viduelle a la forme capitaliste, qu'elle permet 1 "4
 
 à une minorité d'individus privilégiés de disposer
 
@@ -6116,12 +5943,9 @@ ne signifie rien, ou cela signifie qu'ils veulentmain- tenir la propriété capi
 Le Quiconque, en Grèce et à Rome, aurait déclaré
 tout simplement qu'il entendait maintenir la pro
 
-: priété privée, eût déclaré par même qu'il mainte-
-
-nait l'esclavage. Quiconque, au Moyen-Age, eût
+: priété privée, eût déclaré par même qu'il maintenait l'esclavage. Quiconque, au Moyen-Age, eût
 déclaré tout simplement qu'il entendait maintenir la
-propriété individuelle ou personnelle, aurait main-
-tenu par même le servage et la féodalité. Et
+propriété individuelle ou personnelle, aurait maintenu par même le servage et la féodalité. Et
 aujourd'hui, quand les radicaux, en une formule
 toute générale, annoncent au monde qu'ils veulent
 maintenir contre nous la propriété individuelle, ils
@@ -6155,8 +5979,7 @@ Au contraire, à la fin du dix-huitième siècle,
 quand l'heure fut venue où les bourgeois et les
 paysans purent abattre le système féodal, c'est dans
 le sens d'une simplification de la propriété que »
-s'exerça la Révolution. Elle débarrassa la pro-
-priété industrielle de toutes les servitudes et com-!
+s'exerça la Révolution. Elle débarrassa la propriété industrielle de toutes les servitudes et com-!
 plications du régime corporatif. Elle débarrassa
 : la propriété rurale de l'énorme enchevêtrement des à
 droits féodaux et ecclésiastiques. Le bourgeois, le
@@ -6189,8 +6012,7 @@ propriété, au Moyen-Age, a un caractère plus
 de nos jours. Loin d'être immuable, le concept de
 propriété s'est donc modifié au cours des siècles
 nul doute qu'il ne se modifie encore à l'avenir, qu'il
-ne suive dans leur évolution les phénomènes écono-
-miques et sociaux. »
+ne suive dans leur évolution les phénomènes économiques et sociaux. »
 
 Voilà la grande et large conclusion à laquelle …
 
@@ -6330,9 +6152,7 @@ Nous, socialistes, pour démembrer ou absorber
 
 dans le sens de la propriété collective le mouj, vement social, il nous suflira bien souvent d'élargir
 
-certaines pratiques de la société bourgeoise, d'appli-
-
-quer grandement quelques articles de son code, et
+certaines pratiques de la société bourgeoise, d'appliquer grandement quelques articles de son code, et
 
 : d'accélérer, dans les voies où elle est engagée déjà, la marche de notre législation. Ceux qui s'instituent les gardiens de la propriété individuelle ne se
 
@@ -6387,7 +6207,7 @@ conserver la substance ». Ainsi l'usufruitier d'un
 4 domaine recueille, pendant toute la durée de l'usu
 fruit, les fruits naturels ou industriels de la terre,
 ceux qu'elle produit spontanément et ceux qu'en à
-obtient la culture; mais il ne peut ni aliéner ni:.0
+obtient la culture; mais il ne peut ni aliéner
 2 morceler ce domaine, ni en entamer les valeurs #0
 permanentes, comme les arbres de haute futaie.
 E:. Ainsi, pendant toute la durée de l'usufruit, il n'y a
@@ -6419,9 +6239,7 @@ l'usage exclusif de la chose, ou à l'occupation à entière de l'immeuble. Son 
 : bitation est réglé par les conditions les plus va-
 
 : riables, qui créent les rapports de propriété les plus à complexes et les plus instables.
-« Les droits d'usage et d'habitation, ditl'article628
-
-du Code civil, se règlent par le titre qui lesa
+« Les droits d'usage et d'habitation, ditl'articledu Code civil, se règlent par le titre qui lesa
 à établis, et reçoivent, d'après ses dispositions, plus ou moins d'étendue. »
 
 Et les articles suivants (629-635) précisent: #2
@@ -6495,8 +6313,7 @@ analogue à l'ancienne' vassalité, Et l'article
 : héritage sur un autre. »
 
 Pari Ces servitudes sont très diverses. Tantôt elles ont
-pour objet de rendre possible à un individu l'exer-
-cice de son droit, qui serait supprimé par l'exercice
+pour objet de rendre possible à un individu l'exercice de son droit, qui serait supprimé par l'exercice
 entier du droit de propriété de ceux qui l'entourent. pe.
 Ainsi le droit de passage::
 Article 682: « Le propriétaire dont les fonds
@@ -6520,8 +6337,7 @@ commune de leur propriété. Ainsi, en vertu de”
 
 l'article 664, « lorsque les différents étages d'une
 maison appartiennent à divers propriétaires, si les
-titres de propriété ne règlent pas le mode de répa-
-rations et reconstructions, elles doivent être faites
+titres de propriété ne règlent pas le mode de réparations et reconstructions, elles doivent être faites
 ainsi qu'il suit
 « Les gros murs et le toit sont à la charge de tous
 les propriétaires, chacun en proportion de la valeur
@@ -6590,7 +6406,7 @@ pas des conclusions forcées et factices, que ces
 démembrements et restrictions de la propriété ne
 nous font point sortir encore de la sphère de la
 propriété individuelle et bourgeoise. C'est en vertu
-; du mode bourgeois d'acquisition que fonctionnent À!
+; du mode bourgeois d'acquisition que fonctionnent
 4 l'usufruit, l'hypothèque, la servitude. Et je ne
 conteste point que ce soient des modes de la pro
 priété individuelle. Mais je dis que, déjà, par la
@@ -6735,7 +6551,7 @@ revenus du capital et revenus du travail, à l'action à
 ce directe des individus. C'est la société bourgeoise #3
 elle-même qui a mis tous les ans quatre milliards,
 c'est-à-dire la représentation d'un capital de cent
-É: milliards, en dehors de la propriété individuelle,
+milliards, en dehors de la propriété individuelle,
 È ï définie parle droit de disposer. C'est elle qui a créé, “4
 à mi-chemin de la propriété individuelle et du com- +4
 munisme, une propriété collective d'État, une à
@@ -6752,8 +6568,7 @@ ministre des finances pour les retraites ouvrières.
 Aujourd'hui, dans le budget de l'État, la partiela
 
 plus bourgeoise assurément et la plus imprégnée de
-propriété individuelle, c'est la partie qui est consa-
-crée au service de la dette, au payement des rentes;
+propriété individuelle, c'est la partie qui est consacrée au service de la dette, au payement des rentes;
 car d'abord, c'est une des forces les plus con
 
 : stantes, les plus certaines de la bourgeoisie, et en
@@ -6799,8 +6614,7 @@ loi qu'ils soutiennent, et que c'est leur honneur de “4
 - soutenir, une importante partie du budget soit “2
 détournée de la propriété individuelle.
 J'entends bien que chaque salarié, chaque parti- cipant de la caisse aura, dans le projet, son compte
-individuel, son titre individuel, son droit indivi-
-duel. Je le sais, et je m'en réjouis, car le communisme n'est pas la confusion. Mais comparez cette ï propriété des salariés avec la propriété du rentier
+individuel, son titre individuel, son droit individuel. Je le sais, et je m'en réjouis, car le communisme n'est pas la confusion. Mais comparez cette ï propriété des salariés avec la propriété du rentier
 . bourgeois qui la veille possédait les titres, et dites
 si celle-ci n'avait pas un caractère beaucoup plus marqué de propriété individuelle.
 ! D'abord, c'est selon les modes bourgeois d'acqui- sition que le rentier avait réalisé les fonds placés par lui en titres d'État; puis, c'est par un acte de sa
@@ -6886,24 +6700,20 @@ et que si l'impôt pouvait être considéré comme une
 4 sorte de propriété collective, ou même comme un
 germe de cette propriété, il y aurait de tout
 É temps des germes de communisme. Le
-Ce qui est nouveau, c'est que cette propriété col-
-lective d'État qui s'appelle l'impôt ait pris une si
+Ce qui est nouveau, c'est que cette propriété collective d'État qui s'appelle l'impôt ait pris une si
 énorme extension dans une société qui a inscrit dans
-ses codes le droit souverain de la propriété indivi-
-duelle. Ce qui est nouveau, c'est que la société
+ses codes le droit souverain de la propriété individuelle. Ce qui est nouveau, c'est que la société
 bourgeoise et bourgeoisement individualiste ait été à
 conduite, pour assurer son propre fonctionnement,
 à créer cette propriété d'État, qui représente un à
 cinquième de l'activité nationale, et qui, malgré sa
 destination première de classe, est, au moins par sa
-forme collective, en opposition avec la forme indi-
-viduelle de la propriété. Ce qui est nouveau et?
+forme collective, en opposition avec la forme individuelle de la propriété. Ce qui est nouveau et?
 important, c'est que cette propriété collective d'État
 s'accroisse et évolue dans une société démocratique
 où le prolétariat grandit en nombre et en force;
 c'est, par conséquent, qu'une démocratie toute péné- À
-trée de pensée prolétarienne puisse peu à peu amé-
-nager pour le bien du prolétariat et selon le droit
+trée de pensée prolétarienne puisse peu à peu aménager pour le bien du prolétariat et selon le droit
 communiste cette immense propriété collective dont
 , la société bourgeoise elle-mème a peu à peu créé
 et élargi l'habitude.
@@ -6971,7 +6781,7 @@ s'ilne laisse à son décès qu'un enfant légitime; le …
 tiers, s'il laisse deux enfants; le quart, s'ilen laisse
 1 trois ou un plus grand nombre. »
 NE. Ainsi le droit individuel du citoyen français
-;; sur sa propriété est limité étroitement. En vain #4,
+sur sa propriété est limité étroitement. En vain #4,
 ; le paysan propriétaire alléguera-t-il qu'il a peiné
 prodigieusement pour acquérir un petit domaine;
 LA que ce domaine ne peut pas sans périr, se DES
@@ -7004,9 +6814,7 @@ ne voulut admettre aucune, et le Code civilna
 
 70 lité domestique selon laquelle elle décomposait les
 
-biens des citoyens. En vain, aujourd'hui, l'indus-
-
-triel audacieux qui par son initiative aura crééune
+biens des citoyens. En vain, aujourd'hui, l'industriel audacieux qui par son initiative aura crééune
 
 7 grande industrie voudra-t-il la laisser tout entière
 4 ou presque tout entière au seul héritier capable,.
@@ -7035,18 +6843,15 @@ social, en vue d'une plus large diffusion des richesses.
 Notez que dans les biens possédés par l'individu,
 la loi de l'État ne fait aucune différence de forme
 ou d'origine, qu'elle les soustrait tous, indistincte-
-à ment, à la volonté individuelle, au droit indivi-
-duel, qu'elle les soumet tous aux mêmes règles
+à ment, à la volonté individuelle, au droit individuel, qu'elle les soumet tous aux mêmes règles
 
 On pourrait comprendre, à la rigueur, au point
-de vue de la propriété individuelle, que la loi de à l'État obligeat le père à transmettre à tous ses en-
-fants la part de ses biens que lui-même a reçue de
+de vue de la propriété individuelle, que la loi de à l'État obligeat le père à transmettre à tous ses enfants la part de ses biens que lui-même a reçue de
 ses ascendants. Ce serait comme une sorte de
 réserve héréditaire, de patrimoine familial que le Ne:
 père transmettrait comme il l'a reçu. Mais pour À
 4 cette part des biens que le père lui-même a acquise,
-34 qui est son œuvre propre, le prix de son effort per-
-sonnel, peut-être la rançon de sa vie épuisée par le
+34 qui est son œuvre propre, le prix de son effort personnel, peut-être la rançon de sa vie épuisée par le
 4 souci et le labeur, comment est-il possible, sans
 violer à fond propriété individuelle, de ne pas
 4 lui en laisser, à lui et à lui seul, l'entière disposi-
@@ -7074,8 +6879,7 @@ succéder de droit, comme s'ils étaient l'enfant lui-,
 À même. Les petits-fils, les arrière-petits-fils héritent
 de droit, si la mort a emporté les générations qui
 les séparent du premier ascendant. Quand même
-les arrière-petits-fils seraient déjà riches par l'héri-
-rte tage recueilli de leur père et de leur grand-père, le
+les arrière-petits-fils seraient déjà riches par l'hérirte tage recueilli de leur père et de leur grand-père, le
 à bisaïeul est tenu de leur réserver leur part. Ainsi,
 la propriété individuelle est grevée d'obligations
 décisives au profit de la famille pour toute la suite
@@ -7128,9 +6932,7 @@ une partie de son bien est d'une fragilité extrême,
 toujours exposé à être caduc. Toutes les conventions qui se rattachent à l'acte de volonté par lequel
 il a cru disposer d'une partie de ses biens sont ù sujettes, si loin qu'elles s'étendent, à la même
 
-L'article 920 du Code civil dit: « Les disposi-
-
-tions, soit entre vifs, soit à cause de mort, qui
+L'article 920 du Code civil dit: « Les dispositions, soit entre vifs, soit à cause de mort, qui
 
 _excéderont la quotité disponible, seront réductibles
 
@@ -7142,7 +6944,7 @@ profit desquels la loi fait la réserve, par leurs héri- …
 1 tiers ou ayants cause. Les donataires, les léga-
 
 1 taires, ni les créanciers du défunt ne pourront de- En
-à mander cette réduction ni en profiter. »!
+à mander cette réduction ni en profiter.
 
 a Article 922: « La réduction se détermine en forï mant une masse de tous les biens existants au décès à du donateur ou testateur. On y réunit fictivement Eee ceux dont il a été disposé par donations entre
 “Foi d'après leur état à l'époque des donations, et leur
@@ -7175,8 +6977,7 @@ donation, de quelque paleur que ces donations
 puissent être, et à quelque titre qu'elles aient été
 : faites, et encore qu'elles fussent mutuelles et ré- …
 munératoires, même celles qui auraient été faites À
-ME en faveur du mariage par autres que par les ascen-
-dants aux conjoints, ou par les conjoints l'un à
+ME en faveur du mariage par autres que par les ascendants aux conjoints, ou par les conjoints l'un à
 l'autre, demeureront révoquées de plein droit par
 à la survenance d'un enfant légitime du donateur,
 . même d'un posthume, ou par la légitimation d'un
@@ -7228,8 +7029,7 @@ dents ne seront valables qu'autant que la charge de
 É de restitution sera au profit de tous les enfants nés à É Le
 ouà naître du grevé, sans exception d'âge ou de ne.
 Voilà encore une bien curieuse combinaison de
-É propriété, pour assurer contre toute mainmise in-
-dividuelle et contre toute répartition de privilèges
+É propriété, pour assurer contre toute mainmise individuelle et contre toute répartition de privilèges
 la propriété familiale. Le père peut, d'après la loi, de
 selon le nombre de ses enfants. Cette quotité dis
 ponible, il peut, s'il craint la dissipation de ses ne.
@@ -7243,8 +7043,7 @@ au partage. Il faut que tous les petits-fils ou à
 neveux soient assurés d'avoir part égale. La loi ne
 se charge de convoyer à destination et jusqu'à la
 deuxième génération la quotité disponible donnée
-par l'ascendant, qu'à la condition qu'elle sera re-
-mise, par portions égales, à tous les héritiers du
+par l'ascendant, qu'à la condition qu'elle sera remise, par portions égales, à tous les héritiers du
 même ordre, qu'il n'y aura ni préférence ni privi
 lège. Ainsi, même la quotité disponible, soustraite mn.
 à la première génération à la loi du partage égal, y AN
@@ -7339,7 +7138,7 @@ Tandis qu'aujourd'hui le père peut disposer dela
 moitié de.son bien s'il a un enfant, du tiers s'il en a
 disposer au profit d'un de ses enfants, qui recevra
 ainsi une part plus grande que les autres, la Con-
-#3 vention décrète, le 7 mars 1793, que « la faculté de
+3 vention décrète, le 7 mars 1793, que « la faculté de
 disposer de ses biens, soit à cause de mort, soit
 ; entre vifs, soit par donation contractuelle en ligne
 directe, est abolie, et que, en conséquence, tous les
@@ -7354,8 +7153,7 @@ volonté individuelle de l'ascendant ne compte pas
 il n'est pas vraiment propriétaire; il n'est que le
 
 gérant d'une propriété sur laquelle tous les descendants du même degré ont, par la loi de l'État, un
-- droit égal et souverain. Et non seulement l'ascen-
-dant ne peut favoriser aucun de ses descendants, «
+- droit égal et souverain. Et non seulement l'ascendant ne peut favoriser aucun de ses descendants, «
 non seulement il ne peut accroître la part d'aucun
 d'eux en leur donnant la quotité disponible, mais
 cette quotité est réduite presque à rien. Ce n'est pas -
@@ -7397,8 +7195,7 @@ disposer d'un sixième.
 
 : Vraiment, au point de vue du droit si important
 de disposer des biens par donation ou testament, la à
-propriété individuelle, dans le droit révolution-
-naire, n'existe plus.
+propriété individuelle, dans le droit révolutionnaire, n'existe plus.
 Le Comité de législation de la Convention voulait
 
 aller plus loin encore dans la voie du morcellement
@@ -7412,14 +7209,13 @@ une partie essentielle des droits dont l'ensemble
 Tes constitue la propriété individuelle.
 La faculté de disposer, qui est l'essence même de
 la propriété individuelle, n'est pas simple: elle peut
-: È, s'exercer sous diverses formes et en diverses direc
+: s'exercer sous diverses formes et en diverses direc
 tions. La Convention élimine une de ces formes,
-ferme une de ces directions; et M. Sagnac, résu-
-mant en ce point l'œuvre révolutionnaire, a
+ferme une de ces directions; et M. Sagnac, résumant en ce point l'œuvre révolutionnaire, a
 écrire sans aucun parti pris de système:
 La fortune appartient moins à l'individu qu'à la
 famille, c'est-à-dire à tous les parents, si éloignés qu'ils
-1 L'individu n'a vraiment en toute propriété, avec droit
+L'individu n'a vraiment en toute propriété, avec droit
 absolu d'user, d'abuser, de disposer, que le sixième ou des
 le dixième de son avoir, et encore ne peut-il faire servir
 1 cette portion disponible à détruire « la sainte égalité »
@@ -7437,8 +7233,7 @@ Le que depuis le 14 juillet 1589 la nation est rentrée
 virtuellement en possession de tous ses droits, que
 tous les privilèges et abus du passé sont abolis de
 4 fait comme de droit depuis cette date, et que les
-inévitables délais pris par la Révolution pour for-
-muler en lois le droit nouveau ne sauraient étreun
+inévitables délais pris par la Révolution pour formuler en lois le droit nouveau ne sauraient étreun
 5 prolongement de l'iniquité ancienne. Elle décrète
 à en conséquence que toutes les successions ouvertes
 du mois de juillet 1789 au mois de novembre 1793
@@ -7456,7 +7251,7 @@ son fond; tous les rapports domestiques sont “4
 modifiés; tous les rapports de propriété sont =.
 2 changés; toutes les racines de la volonté indivi_ duelle sont arrachées, et c'est un droit socialnou …
 
-a: veau qui, sous la forme de la propriété familiale et
+veau qui, sous la forme de la propriété familiale et
 de l'égalité forcée du partage, chasse, pour ainsi À
 4 dire, le droit absolu de la propriété individuelle. Si.
 à Nous opposera-t-on que ces dispositions si vigou-
@@ -7503,9 +7298,7 @@ c'est déjà bien assez pour l'individu d'avoir, de son
 vivant et par des actes qui n'engagent pas le fond
 même de la propriété, administré librement le
 
-domaine particulier qu'il s'est constitué dans l'acti-
-
-vité sociale. Il ne peut pas prétendre prolonger son
+domaine particulier qu'il s'est constitué dans l'activité sociale. Il ne peut pas prétendre prolonger son
 
 droit, sa volonté au delà du tombeau, et commander
 dans la mort. C'est la société vivante, la société
@@ -7639,8 +7432,7 @@ classe prolétarienne de la classe capitaliste et
 bourgeoise, font plus vivement et plus cruellement
 sentir aux prolétaires tout ce qui leur manque de
 garanties, de bien-être et de droits, comme les
-cadets de famille souffraient d'autant plus de l'iné-
-galité familiale qu'ils étaient sans cesse heurtés à
+cadets de famille souffraient d'autant plus de l'inégalité familiale qu'ils étaient sans cesse heurtés à
 l'enfant privilégié par l'ironique familiarité de la à
 vie commune, maintenant done, le cri de la nature
 s'élargit, et ce n'est plus l'égalité familiale, c'est
@@ -7692,8 +7484,7 @@ les descendants d'un même degré, si elle a appelé À
 à La Convention espérait, en disséminant, en
 É émiettant à chaque génération les fortunes acquises,
 Ê prévenir la trop grande disproportion des biens.
-Elle espérait, par l'intermédiaire de l'égalité fami-
-liale, réaliser le plus haut degré possible d'égalité
+Elle espérait, par l'intermédiaire de l'égalité familiale, réaliser le plus haut degré possible d'égalité
 ÊF: sociale. À vrai dire, elle ne pouvait imaginer un
 4 autre chemin. Le partage universel et égal detous
 *. les biens entre tous les citoyens est un système
@@ -7769,8 +7560,7 @@ pendant plusieurs générations sur des têtes privilégiées »
 
 des fortunes capables d'alarmer la liberté publique...
 Toutes dispositions de ce genre, ayant pour objet
-principal d'empécher la division des héritages, si favo-
-rable, si nécessaire même à la liberté, et de perpétuer
+principal d'empécher la division des héritages, si favorable, si nécessaire même à la liberté, et de perpétuer
 4 ainsi, de degré en degré, le despotisme des propriétés,
 et par conséquent des personnes, doivent être enve-
 1 loppées dans la même proscription.
@@ -7789,8 +7579,7 @@ en possession; et ce sera un frappant exemple par
 lequel Lassalle, dans un des plus vigoureux chate pitres de son livre sur les « Droits acquis illus- à
 trera sa théorie révolutionnaire du droit. “4
 ne La Convention était poussée en outre dans cette
-a voie par les réclamations des prolétaires, qui com-
-mençaient à signifier à la Révolution qu'ils n'entenF daient pas êtres dupes. La Révolution répondait:
+a voie par les réclamations des prolétaires, qui commençaient à signifier à la Révolution qu'ils n'entenF daient pas êtres dupes. La Révolution répondait:
 5; « Pas de loi agraire; pas d'anarchie; pas de nivelle-
 2 ment violent des fortunes; mais nivellement
 D. graduel par le partage égal des biens des familles à
@@ -7848,8 +7637,7 @@ der. Seulement, ce qu'il possédait sous une forme,
 
 ; il le possède maintenant sous une autre. De à
 l'expropriation socialiste, qui changera le système de la propriété, qui fera passer la propriété des
-moyens de production des individus à la commu-
-nauté nationale, il y a un abîme. Et cet abîme, seul
+moyens de production des individus à la communauté nationale, il y a un abîme. Et cet abîme, seul
 le mouvement de classe du prolétariat organisé peut le franchir. J'ai le droit de retenir cependant
 que dès aujourd'hui et dans la loi bourgeoise
 même, la forme de la propriété individuelle est à
@@ -7886,9 +7674,7 @@ l'État se substitue, dans la propriété de ces denrées,
 au propriétaire individuel; mais il l'indemnise par
 le prix même qu'il a fixé, et puisque la loi permet
 l'expropriation du fonds moyennant indemnité,
-pourquoi ne permettrait-elle pas de même l'expro-
-
-priation des produits du fonds? Beffroy, dans la
+pourquoi ne permettrait-elle pas de même l'expropriation des produits du fonds? Beffroy, dans la
 séance du 8 décembre 1592, donna à l'argument une à
 forme saisissante: « Nous nous plaignons, nous, de
 ce qu'on regarde la propriété des grains comme
@@ -8200,8 +7986,7 @@ Quand l'homme possède personnellement un
 un lien serré entre le propriétaire et sa propriété.
 3 lui-même, on peut presque dire physiquement que
 le propriétaire fait corps avec sa propriété. Il y a
-. entre le paysan propriétaire et la terre qu'il tra-
-vaille échange de substance et de force. Le blé
+. entre le paysan propriétaire et la terre qu'il travaille échange de substance et de force. Le blé
 germé de l'effort paysan nourrit la force paysanne.
 L'homme fait la terre et la terre fait l'homme. Même
 4 quand le propriétaire du domaine ne le cultive pas
@@ -8268,9 +8053,7 @@ petit et moyen commerçant donnent à leurs affaires,
 ils n'ont à consulter qu'eux-mêmes et les nécessités
 : économiques. Ils ne sont pas liés par le vote d'une
 majorité d'actionnaires: c'est leur volonté personnelle qui décide; c'est leur action personnelle qui
-Enfin, et c'estle dernier trait de la propriété vrai-
-ment personnelle, la responsabilité civile et com-
-merciale de l'individu possédant est engagée
+Enfin, et c'estle dernier trait de la propriété vraiment personnelle, la responsabilité civile et commerciale de l'individu possédant est engagée
 - toujours toute entière. L'homme qui a un domaine
 À foncier ne peut pas diviser ses responsabilités. IL
 ne peut pas dire: « Voici des dépenses que je fais
@@ -8330,9 +8113,7 @@ l'individu tout entier qui est en cause. Naguère
 
 encore et avant l'abolition de la contrainte par
 
-corps, il devait répondre lui-même, sur sa personne à physique, de toute sa dette. La propriété et le pro-
-
-priétaire faisaient si bien corps que la faillite de la
+corps, il devait répondre lui-même, sur sa personne à physique, de toute sa dette. La propriété et le propriétaire faisaient si bien corps que la faillite de la
 propriété entraînait la faillite de la liberté, et que
 l'individu était sous les verroux en même temps
 que son bien était sous les scellés.
@@ -8410,8 +8191,7 @@ il y a des associés d'un autre ordre, les commandi_ taires. Ils ne dirigent pas
 sont, comme dit la loi, de simples bailleurs de
 À fonds. Ils ne sont pas des actionnaires, puisque les
 à actionnaires choisissent les administrateurs de …
-l'entreprise, tandis que, dans la société en com-
-mandite, c'est par l'acte même de société que sont
+l'entreprise, tandis que, dans la société en commandite, c'est par l'acte même de société que sont
 constitués les chefs responsables de la société. Mais
 4 le commanditaire prépare et annonce l'actionnaire
 3 par deux traits: le défaut de gestion personnelleet
@@ -8526,9 +8306,7 @@ vue fonctionner. Ils en ignorent le mécanisme
 technique et économique. Ils n'en savent ou ils
 n'en demandent qu'une chose: Que rapporte-t-elle?
 
-Quel en est le dividende? Quelle en est l'allure sur le marché des valeurs? C'est à travers le papier mort du compte rendu administratif qu'ils l'aper257
-
-çoivent. Souvent ils sont très éloignés; ils n'ont
+Quel en est le dividende? Quelle en est l'allure sur le marché des valeurs? C'est à travers le papier mort du compte rendu administratif qu'ils l'aperçoivent. Souvent ils sont très éloignés; ils n'ont
 jamais de leurs yeux l'horizon noirci par la À
 fumée de leurs usines.
 
@@ -8709,9 +8487,7 @@ récente sur la liquidation judiciaire, où le même
 
 : line pourra être consenti de traité entre les créan- À
 
-ciers délibérants et le débiteur failli qu'après l'accom-
-
-plissement des formalités ci-dessus prescrites. Cetraité
+ciers délibérants et le débiteur failli qu'après l'accomplissement des formalités ci-dessus prescrites. Cetraité
 
 ne s'établira que par le concours d'un nombre de
 créanciers formant la majorité, et représentant en outre
@@ -8800,8 +8576,7 @@ instant à la Bourse pour voir comment les titres
 s'échangent contre des titres et quelles formes va-
 &. riées une même propriété peut revêtir de l''ouverÈ ture à la clôture du marché. Comme le vent d'au
 4 tomne mêle en de vastes tourbillons les feuilles
-5 arrachées à toutes les essences de la forêt, la spécu-
-lation mêle les feuilles d'or arrachées à toutes les Es
+5 arrachées à toutes les essences de la forêt, la spéculation mêle les feuilles d'or arrachées à toutes les Es
 variétés du travail humain. Los
 Par cette faculté illimitée d'échange, par cette à
 24 mobilité infinie, le titre d'une entreprise particu- lière cesse d'être en effet attaché à cette entreprise
@@ -8830,11 +8605,9 @@ portefeuille des actions des chemins de fer, des nest ne:
 
 È actions des mines, des actions des aciéries et des
 tissages. Ils ont par le droit de participer aux
-assemblées générales d'un grand nombre d'industries: ils participent donc à la direction de la pro-
-duction dans ses formes diverses et dans presque
+assemblées générales d'un grand nombre d'industries: ils participent donc à la direction de la production dans ses formes diverses et dans presque
 toute son étendue.
-Tandis que dans la propriété vraiment person-
-nelle, l'action du possédant est limitée à une forme
+Tandis que dans la propriété vraiment personnelle, l'action du possédant est limitée à une forme
 : de propriété et y est souveraine, dans le système
 des sociétés anonymes, l'action du possédant
 s'étend ou peut s'étendre à un champ de production
@@ -8874,8 +8647,7 @@ des sociétés anonymes, l'action du possédant
 s'étend ou peut s'étendre à un champ de production À
 extrêmement vaste, à un très grand nombre d'entreprises; mais, en chacune d'elles, elle est limitée et
 enveloppée par le droit des autres actionnaires, des
-autres possédants. Le mouvement même de la propriété bourgeoise et capitaliste tend donc à univer-
-saliser le droit du possédant, mais en lui retirant,
+autres possédants. Le mouvement même de la propriété bourgeoise et capitaliste tend donc à universaliser le droit du possédant, mais en lui retirant,
 à chacun des points de son domaine agrandi, sa
 force décisive. Sa puissance s'exerce partout, mais
 elle n'est partout qu'une fraction minime de la puissance totale; partout associé, nulle part souverain. à

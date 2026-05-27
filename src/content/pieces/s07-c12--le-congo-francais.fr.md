@@ -40,13 +40,11 @@ Le nes; ce cahier comptait comme premier cahier de la;
 sixième série et nos abonnés l'ont reçu à sa date, le
 _2 octobre 190%, comme premier cahier de la sixième;
 se rie; toute personne qui jusqu'au 31 décembre 1905
-s'abonnait rétrospectivement à la sixième série le rece-
-vait, par le fait même de son abonnement, en tête de la À à
+s'abonnait rétrospectivement à la sixième série le recevait, par le fait même de son abonnement, en tête de la À à
 série; nous l'envoyons contre un mandat de cinq francs
 àtoute personne qui nous en fait la demande.
 À Pour amorcer tout travail que l'on aurait à commencer rer
-4 dans notre premier catalogue analytique sommaire, con-
-sulter le petit index alphabétique provisoire que nous
+4 dans notre premier catalogue analytique sommaire, consulter le petit index alphabétique provisoire que nous
 ù avons établi de ce catalogue analytique sommaire. -
 jésus, forme un cahier très maniable de XII 60 pages
 ‘très claires, marqué un franc: ce cahier comptait
@@ -58,8 +56,7 @@ personne qui s'abonne à la septième série, qui est la
 a ment, en tête de la série; nous l'envoyons contre un
 . mandat de un franc à toute personne qui nous en fait
 Pour la sixième série, année ouvrière 1904-1905, et de:
-en attendant que paraisse le catalogue analytique som-
-maire de nos deuxièmes cinq séries, 1904-1909, on
+en attendant que paraisse le catalogue analytique sommaire de nos deuxièmes cinq séries, 1904-1909, on
 peut consulter, — provisoirement, — la petite table Mt.
 analytique très sommaire que nous avons publiée en fin
 de ce cahier index.
@@ -76,8 +73,7 @@ Des mêmes auteurs, et dans le même sens, en vente
 Sixième cahier de la septième série, un cahier jaune
 Prerre Mie. — le Congo léopoldien, — avec une
 préface de E. D. Morez; — préface; — Pierre Mille,
-l'enfer du Congo léopoldien; — les témoignages, dépositions; témoignages non communiqués à la Comnis-
-sion pendant les séances; règlements établis par la (
+l'enfer du Congo léopoldien; — les témoignages, dépositions; témoignages non communiqués à la Comnission pendant les séances; règlements établis par la (
 Commission, visite de M. Malfeyt, Haut Commissaire
 Royal, et ce qui en résulta; les règlements et la visite;
 ce qui fut dit et fait après le départ de la commission;
@@ -95,11 +91,8 @@ peu de bonté même dans un territoire français, dans un
 des pays de la domination française.
 
 Une des innombrables raisons pour lesquelles il faut
-que les territoires français demeurent territoires fran-
-çais, que les pays de la domination française demeurent
-pays de la domination française est en effet qu'en ter-
-
-ni dti ‘Charles Pégoy 7 NAS
+que les territoires français demeurent territoires français, que les pays de la domination française demeurent
+pays de la domination française est en effet qu'en terni dti ‘Charles Pégoy 7 NAS
 4 ritoire français, en pays de domination française nous TA
 pouvons introduire de la justice, de l'intelligence, de
 3 l'humanité, de la bonté par un effort direct exercé sur
@@ -111,8 +104,7 @@ de même -un peu saisissable. Et le gouvernement impé-
 À rial étranger dont on veut nous faire un maître ne
 nous est pour ainsi dire aucunement saisissable.
 Nul ne prévoyait alors comment finirait cette mission,
-3 6 dans quel deuil elle s'achèverait, et dans quelle tris-
-tesse; dans quel escamotage on essaierait d'en faire …_.
+3 6 dans quel deuil elle s'achèverait, et dans quelle tristesse; dans quel escamotage on essaierait d'en faire …_.
 ME oublier les résultats. Sauvons-en du moins ce que nous
 Ê Challaye nous a rapporté, de cette mission, le cahier
 que l'on lire. Nous plaçons ce cahier sous l'invoca- Ar.
@@ -138,8 +130,7 @@ ou même toute une conclusion, nous demanderons à
 notre collaborateur M. Pierre Mille de nous donner ces
 commentaires ou cette conclusion en post-scriptum à la
 fin du présent cahier, ou même dans un cahier à venir (
-de cette septième série, ou même enfin nous consacre-
-rons tout un nouveau cahier à ces graves questions.
+de cette septième série, ou même enfin nous consacrerons tout un nouveau cahier à ces graves questions.
 — Note du gérant.]
 
 en vente à la librairie des cahiers
@@ -207,29 +198,24 @@ Une immense tristesse vint alourdir encore le poids
 de toute cette fatigue physique et intellectuelle. M. de À
 Brazza aimait passionnément ce Congo; qu'il avait;
 exploré et gagné à la France, puis gouverné et organisé; À
-, il souffrit de le trouver en une situation vraiment alar-
-mante. Il vit une administration despotique et avide
+, il souffrit de le trouver en une situation vraiment alarmante. Il vit une administration despotique et avide
 
 établir des impôts mal calculés ou vexatoires, en
-exiger le recouvrement par des procédés souvent bru-
-taux, effrayer les indigènes et les éloigner des postes
+exiger le recouvrement par des procédés souvent brutaux, effrayer les indigènes et les éloigner des postes
 
 au lieu de les en rapprocher par une efficace protection.
 IL vit les compagnies concessionnaires, rapaces et
 
 cyniques, essayer de reconstituer un nouvel esclavage,
-tâcher d'imposer aux noirs, par la menace ou la vio-
-lence, un travail mal rémunéré, au lieu de chercher à;
+tâcher d'imposer aux noirs, par la menace ou la violence, un travail mal rémunéré, au lieu de chercher
 
 les attirer par un libre et loyal commerce. Il apprit les
 des nègres les plus barbares. Il connut dans tous ses;
-détails l'odieuse histoire du Haut-Chari: portage obli-
-gatoire, camps d'otages, razzias et massacres. De ces
+détails l'odieuse histoire du Haut-Chari: portage obligatoire, camps d'otages, razzias et massacres. De ces
 sinistres découvertes, M. de Brazza souffrit au plus
 intime du cœur. Ce chagrin héroïque, cette tristesse
 sublime usèrent ses forces, hâtèrent sa fin.!
-M. de Brazza souffrit d'abord d'indispositions passa-
-gères en revenant de Fort-Crampel à Fort-de-Possel. À
+M. de Brazza souffrit d'abord d'indispositions passagères en revenant de Fort-Crampel à Fort-de-Possel. À
 Malaises légers dont nul ne s'étonna: il est rare qu'on
 4 fasse impunément les pénibles étapes de la route du
 Haut-Chari. Puis, vers le miliéu d'août, sur le vapeur;
@@ -238,8 +224,7 @@ souffrir de la dysenterie et dut s'aliter quelques jours
 A Brazzaville, du 19 au 29 août, il garda la chambre,
 passa ses journées étendu sur une chaise longue. Il
 
-continuait pourtant à s'occuper activement de sa mis-
-sion. Comme je suivais alors toutes les audiences du À
+continuait pourtant à s'occuper activement de sa mission. Comme je suivais alors toutes les audiences du À
 procès Toqué-Gaud, il me faisait appeler chaque soir
 pour m'en demander le compte rendu oral. Je l'entends
 encore me dire, mélant le français et l'anglais en une
@@ -247,8 +232,7 @@ question plaisante: « Quels sont les gossips (potins) de
 la ville? » Il gardait toujours le même entrain, la même
 Le 29 août, au matin, nous quittons Brazzaville. Ciel
 noir et gris, vaguement funèbre, teintes d'automne (c'est
-fin de la saison sèche), pâle lumière morose: impres-
-sion de lourde mélancolie, on ne sait pourquoi... Pour
+fin de la saison sèche), pâle lumière morose: impression de lourde mélancolie, on ne sait pourquoi... Pour
 aller de sa demeure au bateau (la distance est grande),
 M. de Brazza a fait demander un tipoye. Au moment.:
 de s'étendre sur cette espèce de hamac, il change brusquement de décision, déclare qu'il préfère marcher. à
@@ -273,16 +257,14 @@ docteurs qui soignent M. de Brazza se taisent par dis-
 
 crétion professionnelle; ils ne peuvent s'empêcher de
 à un réel danger. M. de Brazza nous a jadis conté, en
-riant, qu'il a été plusieurs fois condamné par les médecins et qu'il ne s'en porte pas plus mal. Une fois, parais-
-sant endormi, il entendit deux docteurs, échangeant
+riant, qu'il a été plusieurs fois condamné par les médecins et qu'il ne s'en porte pas plus mal. Une fois, paraissant endormi, il entendit deux docteurs, échangeant
 leurs impressions à voix basse, lui donner deux heures!
 à vivre; le lendemain il se levait, rétabli. Nous comptons tous que ce miracle de vitalité et d'énergie se
 La maladie s'aggrave peu à peu. Quelques jours
 après l'escale de Libreville, M. de Brazza fait appeler
 M. Hoarau-Desruisseaux, inspecteur général des colonies, lui remet la direction de la mission, lui donne le:
 mandat de transmettre au ministère les résultats de
-l'enquête. Cette œuvre (dont M. de Brazza est si juste-
-ment fier), pour qu'il la confie aux soins d'un autre, il
+l'enquête. Cette œuvre (dont M. de Brazza est si justement fier), pour qu'il la confie aux soins d'un autre, il
 faut qu'il se sente incapable de l'achever lui-même;
 il faut qu'il se sache très malade... A l'un des membres
 de la mission, ému jusqu'aux larmes, il déclare qu'il
@@ -332,8 +314,7 @@ Brazza répond d'un geste vague au salut d'adieu des A
 membres de la mission. Au passage, je peux serrer,
 pour la dernière fois, sa main maigre et moite.. Une ne.
 douloureuse émotion fait trembler les cœurs. Il y a des:!
-larmes dans quelques yeux. Ce départ, cette sépara-
-tion, cette marche à la mort prochaine, c'est plus triste à
+larmes dans quelques yeux. Ce départ, cette séparation, cette marche à la mort prochaine, c'est plus triste à
 qu'un enterrement. Au:
 Je ne rappellerai pas ici l'histoire du grand homme
 qui nous a quittés. Je dirai seulement quel regret il
@@ -346,15 +327,13 @@ idéalisme chevaleresque, pour sa bonté secrète et sa
 générosité primesautière, pour son amour de la patrie
 volontairement choisie, pour sa passion de la liberté et
 de la justice. Son nom symbolisera, dans l'histoire du Du”
-monde, une politique indigène nouvelle, faite d'intelli-
-gence psychologique, de sympathie et d'équité: la
+monde, une politique indigène nouvelle, faite d'intelligence psychologique, de sympathie et d'équité: la
 seule méthode coloniale qui puisse convenir à une ne -
 démocratie comme la nôtre, civilisatrice et libératrice.
 
 Pour arriver à résoudre les problèmes qui se posent
 Le actuellement au Congo Français, il faut étudier à part
-les trois groupes d'hommes qui s'y trouvent en pré-
-ah sence: les indigènes, les commerçants, les fonction-
+les trois groupes d'hommes qui s'y trouvent en préah sence: les indigènes, les commerçants, les fonction-
 Les indigènes du Congo Français AN
 Quelques remarques PUR. ne.
 4 psychologiques et sociologiques ne
@@ -375,8 +354,7 @@ De voluptueuse et molle; les Pahouins, sauvages et fiers, (Hs
 ni: batailleurs et commerçants; les Loangos, peuple de se
 domestiques superficiellement européanisés; les Baté-
 “24 kés, grands aristocrates paresseux; les Ballalis les
-Bakongos, fins, vigoureux et actifs; les Bondjos, bru-
-taux et sanguinaires..
+Bakongos, fins, vigoureux et actifs; les Bondjos, brutaux et sanguinaires..
 Cependant on peut provisoirement négliger ces
 1 différences: il y a entre tous les noirs du Congo
 AE: assez de ressemblances pour qu'on puisse caractériser
@@ -477,13 +455,11 @@ Ce n'est pas qu'à proprement parler les idées générales
 ils généralisent instinctivement, sous l'influence des
 nécessités pratiques; ils distinguent les objets en utiles
 . ou nuisibles; ils groupent les choses en catégories,:
-selon qu'elles présentent des avantages ou des inconvé-
-nients analogues. (Les philosophes professionnels remar-:
+selon qu'elles présentent des avantages ou des inconvénients analogues. (Les philosophes professionnels remar-:
 queront que l'étude du sauvage confirme entièrement
 la nouvelle théorie de la généralisation exposée par
 M. Henri Bergson dans son admirable ouvrage Matière
-. et Mémoire.) Seulement ces idées générales ne s'ap-
-pliquent qu'à un nombre restreint d'objets matériels.
+. et Mémoire.) Seulement ces idées générales ne s'appliquent qu'à un nombre restreint d'objets matériels.
 Les mots imprécis expriment mal des idées vagues. je
 - Surtout le noir ne se doute pas de ce que peut être une
 . explication positive des phénomènes. Son anthropo-
@@ -547,8 +523,7 @@ poussent les blancs à l'action? L'ambition, qui souhaite +4
 de futures jouissances, ou réclame de futurs triomphes; "#4
 la foi religieuse, qui espère une éternelle vie future; 4,5
 l'enthousiasme humanitaire, qui rêve pour l'espèce:
-- humaine un progrès indéfini. Toutes ces forces senti-
-entales entraînent l'Europe blanche et la blanche LE.
+- humaine un progrès indéfini. Toutes ces forces sentientales entraînent l'Europe blanche et la blanche LE.
 Amérique vers une vie toujours plus active, plus rapide, a
 à plu intense. Au contraire, le noir, calme et fataliste,: (0
 se satisfait de l'heure qui passe, sans rien demander "Cet
@@ -611,7 +586,7 @@ esclaves de case était plutôt douce au Congo: ils
 
 échange d'un travail facile, ils recevaient la même
 
-nourriture, menaient la même vie, participaient aux à!
+nourriture, menaient la même vie, participaient aux
 … mêmes réjouissances que tous les membres de la
 
 famille. Il y avait beaucoup moins de différence entre la
@@ -655,7 +630,7 @@ L'anthropophage mange la chair d'un homme étranger
 à sa famille où à sa tribu sans plus de remords que
 04 nous, quand nous mangeons un rosbif ou une côtelette.
 
-28 Le respect de la vie, que le bouddhiste étend à tous
+Le respect de la vie, que le bouddhiste étend à tous
 74 les vivants, nous ne l'étendons qu'aux hommes; l'anthro-
 
 54 phage ne l'étend qu'à un tout petit nombre d'hommes
@@ -698,9 +673,7 @@ mangent leurs parents au premier signe de décrépi-
 
 On m'a conté cette bonne histoire d'anthropophagie,
 
-absolument authentique. Elle se passe non pas à l'inté-
-
-rieur de l'Afrique, mais à Brazzaville. Elle a pour héros
+absolument authentique. Elle se passe non pas à l'intérieur de l'Afrique, mais à Brazzaville. Elle a pour héros
 
 _non des primitifs perdus en un lointain village, mais des Ne
 
@@ -717,7 +690,7 @@ l'opération nécessaire. Alors les tirailleurs, montrant la
 £4 — Tu ne fais rien de cette viande? disent-ils au
 en docteur; donne-la-nous à manger.
 4 — Mais elle est pourrie, cette jambe; elle sent mau-
-;: — ne fait rien, on ne mange pas l'odeur. AR.
+— ne fait rien, on ne mange pas l'odeur. AR.
 A Le docteur essaye vainement d'expliquer aux tiraik
 A leurs qu'il ne faut pas manger de la chair d'homme.
 Les Yakomas ne veulent rien entendre. Et comme ils
@@ -729,8 +702,7 @@ Cette brève étude montre à quel point sont primitifs
 psychologique ou leur vie sociale. Ce n'est pas du tout
 À une raison pour les mépriser ou les maltraiter; c'est, au
 48 contraire, un motif pour les juger avec indulgence etne
-pas trop exiger d'eux. Il est impossible d'obliger brus-
-quement à un travail intensif des races habituées
+pas trop exiger d'eux. Il est impossible d'obliger brusquement à un travail intensif des races habituées
 ne depuis des siècles à ne rien faire; il serait absurde de
 ; prétendre imposer immédiatement à des sauvages les
 4 mêmes charges sociales qu'à des civilisés.
@@ -738,13 +710,12 @@ ne depuis des siècles à ne rien faire; il serait absurde de
 et la situation des indigènes
 Le Congo Français possède des richesses naturelles
 - considérables. C'est un pays chaud, —situé exactement à
-1 sous l'équateur, — et très humide, arrosé de pluies tor-
-rentielles pendant une partie de l'année. Cette chaleur,
+1 sous l'équateur, — et très humide, arrosé de pluies torrentielles pendant une partie de l'année. Cette chaleur,
 cette humidité favorisent la végétation. L'Afrique équa-
 ‘toriale est couverte de grandes forêts et de haute A
 brousse. Dans les forêts les lianes à caoutchouc abon- à
 dent. (r) Dans la brousse rôdent des bandes d'éléphants.
-4 Le caoutchouc et l'ivoire sont les richesses précieuses
+Le caoutchouc et l'ivoire sont les richesses précieuses
 - qui ont attiré au centre de l'Afrique les blancs avides et ou
 hardis. De l'intérieur (Moyen-Congo et Oubangui-Chari) À.
 5 il n'est actuellement avantageux d'exporter que des pro-
@@ -783,8 +754,7 @@ Le caoutchouc exporté passe de 546 tonnes en 1896 à
 est surtout appréciable au Moyen-Congo). L'ivoire passe
 … 14.572 en 1904 (le progrès n'est sensible que dans la zone à
 . côtière). Le cacao exporté passe de 8 tonnes en 1897 à
-a Si maintenant nous comparons l'ensemble des expor-
-tations dans les dix dernières années, nous les voyons
+a Si maintenant nous comparons l'ensemble des exportations dans les dix dernières années, nous les voyons
 croître régulièrement, passer de 4.700.000 tonnes en
 caoutchoucet l'ivoire, principaux articles d'exportation,
 étant, au point de vue des droits de douane, évalués bre
@@ -811,7 +781,7 @@ D'abord distinguons deux sortes d'entreprises comLe? merciales et agricoles: d'u
 A merce indépendantes et les petites concessions; d'autre
 5 part les grandes compagnies concessionnaires.
 Il y dans les villes les plus importantes de la colo-
-À; nie, quelques commerçants libres, français ou étran
+nie, quelques commerçants libres, français ou étran
 gers, vendant aux indigènes les produits d'Europe. La
 concurrence qui s'établit nécessairement entre ces maïi-
 “6 sons de commerce les amène à tenir compte, autant que
@@ -821,10 +791,9 @@ possible, des goûts des consommateurs noirs; elle les
 : européens qu'ils désirent, sont par même encouragés
 }. SA à travailler pour gagner de l'argent. Le libre commerce
 a pour conséquence le libre travail. à
-70 Dans les rares parties du Congo qui ne sont pas attri-
-buées à quelque grande Compagnie, il y a de petites
+Dans les rares parties du Congo qui ne sont pas attribuées à quelque grande Compagnie, il y a de petites
 ; 4 concessions agricoles. (1) Elles appartiennent à des.
-4 La concession de jouissance d'une terre domaniale au Congo
+La concession de jouissance d'une terre domaniale au Congo
 : à Français peut être accordée, lorsque la superficie de cette concession
 AUS ne dépasse pas 10.000 hectares, par le Commissaire-Général du
 
@@ -847,8 +816,7 @@ gresser ces populations primitives, si longtemps immo- À
 peu la main-d'œuvre indispensable au développement;
 économique de la colonie. (1)
 Il est probable que si des moyens de communication
-avaient rendu accessible l'intérieur du pays, les commer-
-çants libres et les colons l'auraient exploité comme ils
+avaient rendu accessible l'intérieur du pays, les commerçants libres et les colons l'auraient exploité comme ils
 Gouvernement en Conseil d'administration. Les terres domaniales
 
 peuvent être aliénées à titre gratuit au profit de l'exploitant d'une
@@ -874,19 +842,18 @@ ni Français.
 LE. L'histoire de la formation des Compagnies concession-
 44 naires est extrêmement intéressante. Au-delà des faits
 de précis, souventscandaleux, on‘devine de louchesintrigues
-‘Eos financières et politiciennes, toutes sortes de marchanCA. A:
+‘Eos financières et politiciennes, toutes sortes de marchanCA.
 158 dages, de trahisons, de lâchetés, de corruptions: on
 a sent puer ici toutes les maladies honteuses dont crève
 notre République bourgeoise.
-16 C'est autour de 1890 qu'un certain nombre de capita- …
+C'est autour de 1890 qu'un certain nombre de capita- …
 IFR listes et de parlementaires commencent à réclamer la
 600 formation de Compagnies privilégiées, destinées à
 Gabon par un jeune colon (M. Stéphan) qui possède une plantation À
 1730 de cacaoyers dans le Como et emploie comme travailleurs des
 Qu! Pahouins venus volontairement à lui, qu'il nourrit bien et paie en
 argent. — Dans une plantation d'arbres à caoutchouc, que jai
-CE visitée au bord du Congo, le colon, grand chasseur, a la réputa-
-tion de bien nourrir ses employés noirs, qu'il attire et retient par
+CE visitée au bord du Congo, le colon, grand chasseur, a la réputation de bien nourrir ses employés noirs, qu'il attire et retient par
 19 leur désir de viande, etc. etc.:
 ; de. Cétait la solution préconisée par M. de Brazza. Dès 1886 il
 ANR signalait le danger d'une exploitation trop rapide: « Que la
@@ -948,14 +915,12 @@ Il leur livrait, pour un siècle, toute la colonie, gratuite-:
 ment, sans rien leur demander en échange de ce royal
 cadeau. Il leur accordait les moyens légaux de dépouiller
 les indigènes de leurs terres, de les opprimer sans le
-Ce projet, qui aurait réalisé tous les vœux des finan-
-ciers désireux de se partager le Congo, rencontra une
+Ce projet, qui aurait réalisé tous les vœux des financiers désireux de se partager le Congo, rencontra une
 vive opposition, d'abord à la Commission administra-.
 tive chargée de l'étudier, puis au Conseil supérieur des
 Colonies. Il triompha, adopté à la majorité des voix,
 par ces deux assemblées. Mais dans l'intervalle un
-nouveau ministère (2) hésita à prendre la grosse res-
-ponsabilité d'un pareil décret, résolut de faire trancher:
+nouveau ministère (2) hésita à prendre la grosse responsabilité d'un pareil décret, résolut de faire trancher:
 le problème par le Parlement, lui soumit un projet de
 loi créant des Compagnies privilégiées (16 juillet 1897).
 Au Sénat une Commission, divisée entre partisans et;
@@ -967,9 +932,7 @@ obligations et certaines redevances, leur donnant le
 (1) Eugène Etienne. Les Compagnies de Colonisation (Challamel,
 Paris, 1897). Cf. J. Lefébure. Le régime des Concessions au Congo (
 (Thèse pour le Doctorat, 1904), pages 44-47.
-(2) M. de Freycinet, président du Conseil; M. Jamais, sous-secré-
-
-droit d'entretenir une force de police, mais ne leur
+(2) M. de Freycinet, président du Conseil; M. Jamais, sous-secrédroit d'entretenir une force de police, mais ne leur
 Pendant que se poursuivaient ces discussions parle- à
 mentaires, un nouveau sous-secrétaire d'État aux Colo-
 , nies, M. Delcassé, « résolvait sans bruit la question des
@@ -1003,8 +966,7 @@ Chailley-Bert, secrétaire général de l'Union Coloniale, au banquet de cette S
 3 côte d'Ivoire). Bien que les concessionnaires n'eussent
 pas tenu leurs engagements, (1) le Conseil d'État, saisi
 : de la question, décida qu'une indemnité leur était due.
-ne M. André Lebon, successeur de M. Chautemps, s'en-
-tendit avec la Société du Haut-Ogôoué: la Compagnie
+ne M. André Lebon, successeur de M. Chautemps, s'entendit avec la Société du Haut-Ogôoué: la Compagnie
 abandonna le droit de police qu'elle avait reçu; et elle
 s'engagea à faire certains travaux d'utilité publique;
 mais elle garda la concession de son immense territoire,
@@ -1022,7 +984,7 @@ Belge: on admira les bénéfices réalisés soit par l'Etat
 (1) Le capital de 2 millions exigé de la Société Daumas comme de
 la Société Verdier ne fut pas apporté intégralement en argent: les
 concessionnaires apportèrent dans la Société le territoire de la
-#2 concession, évalué à 1 million par M. Daumas, à 1.440.000 francs À
+2 concession, évalué à 1 million par M. Daumas, à 1.440.000 francs À
 2: par M. Verdier.
 a (2) Cf. J. Lefébure. Le régime des Concessions au Congo, pages 51-- Ne.
 TE 58, et H. Cuvillier-Fleury. La mise en valeur du Congo Français
@@ -1070,8 +1032,7 @@ sixième cahier de la septième série.
 rive droite. La Compagnie du Chemin de fer belge sou
 haïtait que les exportations et importations du Congo
 Français s'accrussent, ce qui augmenterait son trafic.
-Enfin le souverain de l'État Indépendant, ayant sup-
-primé, en fait, la liberté du commerce à l'intérieur de
+Enfin le souverain de l'État Indépendant, ayant supprimé, en fait, la liberté du commerce à l'intérieur de
 son vaste domaine, avait intérêt à ce que la France
 13 suivit son exemple, pour qu'elle fût obligée de défendre
 devant les autres nations la thèse juridique du Congo;
@@ -1093,9 +1054,7 @@ Cf. E.-D Morel. Problèmes de l'Ouest Africain, traduction À
 Duchêne (Paris, Challamel, 1904), pages 278-291. Il y eut dès 1897 une À
 tentative faite pour obtenir, en faveur d'une société franco-belge,
 . une concession de vingt-cinq millions d'hectares dans le Haut-
-Oubangui. (H. Cuvillier-Fleury. La mise en valeur du Congo Fran-
-
-tion agricole, forestière et industrielle des terres domaniales, situées dans le territoire défini par le décret de
+Oubangui. (H. Cuvillier-Fleury. La mise en valeur du Congo Frantion agricole, forestière et industrielle des terres domaniales, situées dans le territoire défini par le décret de
 concession ». (Cahier des charges, article 1) La concession ne devient définitive que lorsque le titulaire s'est
 valablement substitué une Société anonyme, après
 
@@ -1138,21 +1097,17 @@ S. (Cahier des charges, article 19), et à la construction des
 : cas de quatre compagnies). Elle doit enfin construire et
 À entretenir des bateaux à vapeur soumis à un droit de
 réquisition, transportant gratuitement la poste et à tarif
-réduit les fonctionnaires et le matériel des construc-
-ne tions. (Cahier des charges, articles 11-18)
+réduit les fonctionnaires et le matériel des construcne tions. (Cahier des charges, articles 11-18)
 Le décret constituant les Sociétés leur accorde la
 3 concession « sous la réserve des droits résultant pour
 les tiers et des obligations résultant pour les conces-
 Ê sionnaires des stipulations des actes généraux de Berlin
 : et de Bruxelles en date des 26 février 1885 et 2 juillet
-1890 puis sous la réserve des droits acquis antérieu-
-rement par des tiers, et des droits des indigènes.
+1890 puis sous la réserve des droits acquis antérieurement par des tiers, et des droits des indigènes.
 
-(Décret, article 1) Les indigènes conservent les vil-
-lages occupés par eux, et les terrains de forêts, de
+(Décret, article 1) Les indigènes conservent les villages occupés par eux, et les terrains de forêts, de
 pâturages où de cultures qui leur sont nécessaires.
-Leurs mœurs, coutumes, religion et organisation doi-
-vent être respectées. (Décret, article 10) Le cahier des À
+Leurs mœurs, coutumes, religion et organisation doivent être respectées. (Décret, article 10) Le cahier des À
 à charges prévoit dans quelles conditions l'État pourra
 racheter la concession, la retirer totalement ou partiel- A
 4] lement, prononcer la déchéance de la Société. (Cahier
@@ -1186,11 +1141,9 @@ riches qu'ils voudraient poursuivre eux-mêmes pour en
 tirer profit. Mais « ils n'ont pas droit à réclamer des
 … forêts domaniales dans le but de faire commerce de
 leurs produits naturels et de constituer ainsi une
-concurrence ruineuse pour le concessionnaire ». (Para-
-graphe 18) (1) — Enfin les instructions ministérielles
+concurrence ruineuse pour le concessionnaire ». (Paragraphe 18) (1) — Enfin les instructions ministérielles
 a (1) y a lieu de signaler ici un important arrêté pris par
-À Gentil, commissaire-général, à la date du 9 octobre 1903, préci-
-sant les droits des indigènes, et les étendant plus que ne le font
+À Gentil, commissaire-général, à la date du 9 octobre 1903, précisant les droits des indigènes, et les étendant plus que ne le font
 “Je 165 instructions ministérielles de M. Guillain. Tenant compte du )
 “fait qu'il est impossible de constituer des réserves indigènes ne
 contenant ni arbres d'essences riches ni arbres ou lianes à caout-
@@ -1231,11 +1184,9 @@ concessionnaires, la superficie concédée, le capital minimum, les
 (2) J. Lefébure. Le régime des Concessions au Congo, page
 
 4 tèrent les Sociétés concessionnaires du Congo Frans.
-La création de ces Compagnies donna lieu à des spé-
-culations effrénées. Les promoteurs de plusieurs de ces.
+La création de ces Compagnies donna lieu à des spéculations effrénées. Les promoteurs de plusieurs de ces.
 4 entreprises cherchaient seulement à en faire monter les
-actions pour les revendre ensuite avec de sérieux béné-
-fices. Les cours n'étant pas soutenus, les actions se
+actions pour les revendre ensuite avec de sérieux bénéfices. Les cours n'étant pas soutenus, les actions se
 2 trouvèrent dépréciées et une crise très grave survint. (2)
 : Quelques-unes de ces Compagnies résilièrent, se plaignant de l'insuffisance des ressources naturelles, du
 caractère marécageux du pays; le cautionnement versé
@@ -1249,7 +1200,7 @@ On évalue les capitaux belges aux cinq sixièmes du capital total.
 à voqua dans la presse de vives polémiques, le 7 octobre 1905,
 M. Etienne, ministre de l'intérieur, linitiateur du régime des
 grandes concessions, se rendit à Bruxelles, accompagné de
-M. Trouillet, directeur de La Dépêche Coloniale, organe dévoué à:
+M. Trouillet, directeur de La Dépêche Coloniale, organe dévoué
 la cause du roi Léopold et des Compagnies concessionnaires. Le
 roi Léopold les retint à déjeuner, puis les invita à diner avec les
 principaux fonctionnaires de l'Etat Indépendant. « Au cours de
@@ -1272,8 +1223,7 @@ sont les avantages, quels sont les dangers du régime
 
 des grandes concessions décidé en 1898, réalisé en
 A l'actif des Compagnies concessionnaires, on dit!
-d'abord qu'elles ont puissamment contribué au dévelop-
-pement commercial du pays. Si le commerce total du;
+d'abord qu'elles ont puissamment contribué au développement commercial du pays. Si le commerce total du;
 Congo a doublé en dix ans, c'est à elles surtout qu'on.
 le doit; c'est à elles qu'on doit l'accroissement continu
 un des exportations d'ivoire et de caoutchouc. (3)
@@ -1281,10 +1231,9 @@ un des exportations d'ivoire et de caoutchouc. (3)
 Vas Une Société dont le compte profits et pertes porte au débit À
 4 276.000 francs et au crédit 20.000 francs, accorde 20.000 francs de
 jetons de présence au conseil d'administration et 10.500 francs de À
-(2) Pour l'ensemble des trente-deux Compagnies concession-
-naires subsistant actuellement, les pertes ont dépassé les béné-
+(2) Pour l'ensemble des trente-deux Compagnies concessionnaires subsistant actuellement, les pertes ont dépassé les béné-
 
-20 Sociétés perdent 1.195.000 francs, soit un excédent de bénéfices de
+Sociétés perdent 1.195.000 francs, soit un excédent de bénéfices de
 
 ‘ER 1.720.000 francs (environ 5 du capital engagé, 35.000.000 de francs).
 
@@ -1298,8 +1247,7 @@ SAME toutes ses parties. Les richesses naturelles de la côte étaient mieux à
 
 de exploitées avant le régime des grandes concessions. L'établis-
 
-A sement du monopole a fait baisser les exportations. Telle pro-
-vince qui exporte péniblement 15 tonnes de caoutchouc en expor-
+A sement du monopole a fait baisser les exportations. Telle province qui exporte péniblement 15 tonnes de caoutchouc en expor-
 144 tait jadis 60; telle qui exporte 30 tonnes en exportait jadis 120. Au
 
 FAR contraire, la région du Bas-Ogôoué a exporté davantage à la suite
@@ -1324,23 +1272,18 @@ des Compagnies concessionnaires. Passons en revue
 maintenant les inconvénients et les dangers que signalent
 les adversaires de ce régime.
 D'abord, au point de vue international, le régime
-des grandes concessions a été déjà l'occasion de diff-
-
-tiennent à la meilleure administration des maisons de commerce
+des grandes concessions a été déjà l'occasion de difftiennent à la meilleure administration des maisons de commerce
 à particulières, surtout à la supériorité de leur personnel: elles
 employaient des traitants noirs, hommes de confiance, laissant
 ; leurs économies à la factorerie, recevant de fortes avances en
 marchandises, allant chercher loin le caoutchouc. Les Compagnies actuelles de la côte, souvent mal administrées à Paris,
 emploient au Congo un personnel blanc et noir très inférieur.
-(1) Si cette différence est due, pour le Gabon, à un tarif difré-
-rentiel (les produits français entrant en franchise, les produits
+(1) Si cette différence est due, pour le Gabon, à un tarif difrérentiel (les produits français entrant en franchise, les produits
 étrangers payant les droits du tarif général métropolitain) il n'en
 est pas de même pour le Moyen-Congo et l'Oubangui-Chari, où,
 en vertu de l'acte de Bruxelles, toutes les marchandises, françaises
 ou étrangères, payent le même droit (10 o/o valorem). ici
-Fa) aussi, les marchandises françaises l'emportent sur les marchan-
-
-cultés sérieuses; il peut devenir la cause de réels dan-
+Fa) aussi, les marchandises françaises l'emportent sur les marchancultés sérieuses; il peut devenir la cause de réels dan-
 : Deux maisons de commerce anglaises, John Holt and C°,
 À et Hatton and Cookson, possédaient depuis longtemps
 des factoreries dans les régions de la côte où vinrent!
@@ -1388,8 +1331,7 @@ sont des terres vacantes et sans maîtres. L'État peut en
 disposer pour lui-même ou en conférer à d'autres la
 possession; il peut aussi, provisoirement et moyennant
 redevances, les concéder à des particuliers, ou à des
-Sociétés. Désormais, si tous conservent le droit de commercer, nul n'a plus droit aux produits du sol, légitime-
-ment possédés par les Compagnies concessionnaires. La
+Sociétés. Désormais, si tous conservent le droit de commercer, nul n'a plus droit aux produits du sol, légitimement possédés par les Compagnies concessionnaires. La
 situation est celle d'un propriétaire qui, après des années
 d'indifférence, fait clore son domaine et garder sa chasse.
 
@@ -1401,8 +1343,7 @@ pour les produits de toute nationalité.
 
 Les concessionnaires ne sont pas des commerçants; …
 ce sont des propriétaires, ou plutôt les tenanciers d'un: Ni
-À grand propriétaire, l'État: dans aucun pays, le proprié-
-taire qui exploite et vend les produits du sol n'est réputé
+À grand propriétaire, l'État: dans aucun pays, le propriétaire qui exploite et vend les produits du sol n'est réputé
 commerçant. Le monopole des Compagnies concession-
 É naires est un monopole de propriété; ce n'est pas
 4 ‘un monopole de commerce. La liberté du commerce
@@ -1420,8 +1361,7 @@ impossible par suite du monopole attribué aux Compa-
 pe: travaillent pas, il n'y a rien à acheter que les produits
 
 du sol qui appartiennent aux Compagnies concession- À
-Se naires. Et dans ce pays où les indigènes n'ont pas d'ar-
-gent, on ne peut leur vendre aucun objet manufacturé
+Se naires. Et dans ce pays où les indigènes n'ont pas d'argent, on ne peut leur vendre aucun objet manufacturé
 148 qu'en l'échangeant contre les produits naturels, l'ivoire
 Le ou le caoutchouc, qui appartiennent aux Compagnies
 concessionnaires. Ainsi le régime des grandes concesAl sions met fin au libre commerce d'achat et de vente: il
@@ -1433,21 +1373,17 @@ ne ( Cf. Consultation demandée par l'Union Congolaise à Bar-
 concessions au Congo, pages 247 et suivantes. H. Cuvillier-Fleury.
 
 Le: La mise en valeur du Congo Français, pages 194 et suivantes.
-LEUR (2) La thèse a été soutenue surtout par E.-D. Morel, en partieu-
-lier dans un livre The british case french Congo et dans de
+LEUR (2) La thèse a été soutenue surtout par E.-D. Morel, en partieulier dans un livre The british case french Congo et dans de
 
 Une nouvelle conférence internationale africaine, si
 elle se réunissait, (1) comment résoudrait-elle le pro- de
 à blème? Il faut prévoir le cas où, influencée par les: à
-. solides raisons de fait plutôt que par les subtils argu-
-fr" ments de droit, elle déciderait que le régime des grandes de
+. solides raisons de fait plutôt que par les subtils argufr" ments de droit, elle déciderait que le régime des grandes de
 As concessions est contraire à l'acte de Berlin, et en exige-
 É rait la suppression au nom de ce traité solennellement
-ral conclu. — Alors, sans doute, les concessionnaires récla-
-méraient de formidables indemnités en échange de leur
+ral conclu. — Alors, sans doute, les concessionnaires réclaméraient de formidables indemnités en échange de leur
 À monopole. Dans l'état actuel de notre législation, il ne
-serait peut-être pas possible d'éviter à l'État cette colos-
-sale et absurde dépense.
+serait peut-être pas possible d'éviter à l'État cette colossale et absurde dépense.
 Le grave danger national résultant des difficultés à
 … iniernationales que peut provoquer l'établissement du
 5 régime des grandes concessions à l'intérieur du bassin
@@ -1467,14 +1403,10 @@ mi: au point de vue des indigènes, dont l'acte de Berlin oblige à amé- À
 : terre, spécialement pour mettre fin aux « atrocités du Congo
 
 É Compagnies concessionnaires n'ont fait jusqu'ici aucun
-à effort pour domestiquer les éléphants. (1) IL est à crain-
-dre que le caoutchouc aussi disparaisse vite. Les indi-
-ire gènes, au lieu d'inciser, de saigner les lianes, les
+à effort pour domestiquer les éléphants. (1) IL est à craindre que le caoutchouc aussi disparaisse vite. Les indiire gènes, au lieu d'inciser, de saigner les lianes, les
 e. coupent, les arrachent, les saccagent: ils sont aussi
-ÉEUR pressés d'avoir terminé leur corvée que les concession-
-paires sont pressés de toucher les intérêts de leurs capi-
-: É taux, et les employés des sociétés, leurs parts de béné-
-fices. Quand la « rafle » se sera prolongée trente ans,
+ÉEUR pressés d'avoir terminé leur corvée que les concessionpaires sont pressés de toucher les intérêts de leurs capi-
+: É taux, et les employés des sociétés, leurs parts de bénéfices. Quand la « rafle » se sera prolongée trente ans,
 : (c'est le temps que doivent durer les concessions), il ne;
 restera de lianes qu'aux régions inaccessibles de la
 à forêt (2): le pays aura perdu presque toute sa valeur.
@@ -1517,9 +1449,7 @@ Le cahier des charges permet seulement au gouverneur,
 après mise en demeure au concessionnaire, de demander
 le retrait de la concession de quarante hectares par
 
-: Actuellement il n'y a peut-être pas une seule Compa-
-
-gnie qui ait exécuté cette clause du cahier des charges.
+: Actuellement il n'y a peut-être pas une seule Compagnie qui ait exécuté cette clause du cahier des charges.
 En tout cas l'immense majorité l'a systématiquement
 violée. (1) Et aucune société ne s'est retirer même
 quelques hectares de son immense concession.
@@ -1543,17 +1473,14 @@ dite Kasaï rouge, qui valait8 francs le kilogramme en 1902, atteint
 DA" La conséquence fatale, c'est l'épuisement intensif du
 pays. Il n'est pas étonnant que les exportations de
 caoutchouc et d'ivoire croissent, que le commerce soit
-Pre en progrès. Cet avantage apparent, ou plutôt provi-
-soire, cache un réel danger durable. La prospérité
-. superficielle du Congo présent assure la misère défini-
-tive du Congo futur. 14°
+Pre en progrès. Cet avantage apparent, ou plutôt provisoire, cache un réel danger durable. La prospérité
+. superficielle du Congo présent assure la misère définitive du Congo futur. 14°
 AN C'est surtout au point de vue de la politique indigène
 Dan: que les Compagnies concessionnaires méritent les plus
 ni Let vives critiques. Rémunérant trop mal le travail des
 41 noirs, elles ne peuvent compter sur leur coopération
 volontaire; elles sont conduites ainsi à employer la (
-Dans les pays jouissant d'une absolue liberté com-
-merciale, la concurrence qui s'établit entre les commer-
+Dans les pays jouissant d'une absolue liberté commerciale, la concurrence qui s'établit entre les commer-
 ‘ER çants européens les oblige à acheter à un prix relati-
 {1 vement élevé le caoutchouc apporté par les noirs: 4 à
 RUN 5 francs le kilogramme, par exemple, en Guinée Fran-
@@ -1583,9 +1510,7 @@ le récolter; et elles évaluent ce travail au plus bas à
 prix. (1) — D'autre part, c'est en marchandises, et non
 ê pas en argent, que les Compagnies payent les produits À
 du sol, ou plutôt (selon leur thèse) le travail nécessaire ne
-à leur récolte, Dans les factoreries souvent mal appro-
-visionnées de la Société, l'indigène ne trouve pas tou-
-jours les objets qu'il désire. Surtout les marchandises
+à leur récolte, Dans les factoreries souvent mal approvisionnées de la Société, l'indigène ne trouve pas toujours les objets qu'il désire. Surtout les marchandises
 sont évaluées à très haut prix; souvent à
 500 o/o de leur valeur réelle (prix de revient et prix de
 transport). Un morceau d'étoffe qui revient à moins de
@@ -1614,7 +1539,7 @@ compagnie du bassin de la Sangha le vend même
 ; 10 francs le kilogramme quand le noir apporte de l'ar1e. gent au lieu de caoutchouc!)
 Ainsi, en échange de caoutchouc, évalué à un prix
 dérisoire, les indigènes reçoivent des marchandises
-à; évaluées à des prix exorbitants. Ils se sentent pables d'obtenir facilement les produits d'Europe qu'ils
+évaluées à des prix exorbitants. Ils se sentent pables d'obtenir facilement les produits d'Europe qu'ils
 À désirent: paresseux de naissance, ils ne sont pas encou-
 — ragés à travailler; ils ne font aucun effort pour sortir;
 de leur condition misérable. Le régime des grandes
@@ -1677,8 +1602,7 @@ A ï « puissent « continuer ces pratiques » (page 60), c'està-dire
 15 constituer à leur profit une nouvelle forme d'esclavage.
 Et il ajoute: « Si le mot esclave choque et paraît mal-
 210 sonnant, il n'y a qu'à le remplacer par celui de captif. »
-En tout cas l'auteur réclame que les agents des Com-
-pagnies reçoivent « les pouvoirs de police que l'admi-
+En tout cas l'auteur réclame que les agents des Compagnies reçoivent « les pouvoirs de police que l'admi-
 Mec nistration locale est impuissante à exercer elle-même »
 (page 69), et même que l'État leur confie des « fonctions!
 judiciaires » (page 73). On comprend pourquoi.:
@@ -1688,8 +1612,7 @@ judiciaires » (page 73). On comprend pourquoi.:
 “15 « L'indigène ne sera jamais moralisé que par le tra-!
 2 vail, et ce travail devra être obligatoire pour devenir
 dE dans la suite libre. » (1)
-Les thèses soutenues à cette occasion par les Compa-
-gnies concessionnaires fourmillent de sophismes. De ce
+Les thèses soutenues à cette occasion par les Compagnies concessionnaires fourmillent de sophismes. De ce
 4 que l'esclavage du noir au service du noir est plutôt
 4 4 5 doux, il n'en résulte pas que l'esclavage du noir au ser-;
 vice du blanc serait aussi inoffensif: le maître blanc
@@ -1712,8 +1635,7 @@ Enfin, il est juste de constater que bien des noirs, au
 à leur travail est suffisamment, honnêtement rémunéré.
 C'est le cas des indigènes au service des particuliers. (2)
 de C'est le cas de ceux qui travaillent dans plusieurs
-petites concessions agricolés (3) et aussi dans les mis-
-sions catholiques et protestantes. Les Compagnies;
+petites concessions agricolés (3) et aussi dans les missions catholiques et protestantes. Les Compagnies;
 de: concessionnaires pourraient, elles aussi, obtenir du tra__ À vail des noirs si elles le rémunéraient honnêtement. PARLE
 L'État n'a pas accordé aux Compagnies le droit de
 contraindre les noirs au travail. (4) Cependant, toutes les pole
@@ -1735,10 +1657,7 @@ un grand nombre d'indigènes demandant à être engagés par elle. À
 4 (3) Voir plus haut.
 de (4) Jexpliquerai plus bas comment l'organisation de l'impôt et
 Surtout le récent projet imaginé par l'administration actuelle du
-Congo réalisent une partie des désirs des Compagnies conces-
-
-ni agents, — procès où l'agent fut acquitté et la Compa-
-gnie condamnée à mille francs de dommages-intérêts
+Congo réalisent une partie des désirs des Compagnies concesni agents, — procès où l'agent fut acquitté et la Compagnie condamnée à mille francs de dommages-intérêts
 ; pour abus de citation directe, — il a été donné lecture
 140 de lettres confidentielles envoyées par la Société à son
 directeur en Afrique; on y rencontre des phrases À
@@ -1760,8 +1679,7 @@ certaines régions, qui appellent garde-pavillons les À
 agents noirs de l'État, donnent aux agents noirs des
 Compagnies concessionnaires ce nom, infiniment spiri-
 : tuel: garde-pavillon-caoutchouc. Certaines Compagnies
-(2) La vie des employés blancs de certaines Compagnies est extré-
-mement misérable. Beaucoup sont mal ravitaillés, dans ce pays où
+(2) La vie des employés blancs de certaines Compagnies est extrémement misérable. Beaucoup sont mal ravitaillés, dans ce pays où
 l'on doit faire venir d'Europe même les aliments et les objets de
 première nécessité. Beaucoup manquent des médicaments indispensables. Beaucoup sont très mal payés, subissent des contrats
 léonins. Les procès engagés entre certaines Sociétés (par exemple À
@@ -1780,8 +1698,7 @@ terroriser les indigènes par la vue de leurs fusils. (1)
 Quand la menace ne suffit pas, (2) on emploie la violence pour obliger les noirs à aller chercher du
 caoutchouc. Un procédé employé avec succès consiste
 à arrêter le chef du village, à l'amarrer (comme on dit
-là-bas) et à ne le relâcher que contre une certaine quan-
-tité de caoutchouc ou d'ivoire. (3)
+là-bas) et à ne le relâcher que contre une certaine quantité de caoutchouc ou d'ivoire. (3)
 L'administration actuelle du Congo, pourtant si favorable aux
 Compagnies concessionnaires, a leur interdire de coiffer leurs
 employés noirs de la chéchia rouge, insigne des gardes régionaux
@@ -1830,8 +1747,7 @@ obligés, à coups de chicotte, à se livrer gratuitement à la récolte
 A à du caoutchouc pour le compte de la factorerie... J'ai des noirs
 emprisonnés et frappés jusqu'à ce qu'ils se décident à dire où ils
 mie. avaient caché leur ivoire.
-10 « Et voilà pourquoi les magasins de la factorerie étaient dépour-
-vus de marchandises [d'échange]. » Etc., etc. (Journal, 28 avril
+10 « Et voilà pourquoi les magasins de la factorerie étaient dépourvus de marchandises [d'échange]. » Etc., etc. (Journal, 28 avril
 Le À (1) Sauf quand ils habitent aux limites d'un territoire non con-.
 “HECE cédé ou d'une autre concession. Il y a lieu de remarquer que la « CHER situation des indigènes est meilleure à ces frontières: le caoutchouc …
 1 est payé plus cher; et l'on évite d'ordinaire les procédés violents
@@ -1882,8 +1798,7 @@ boules de caoutchouc. Saisissant symbole, exprimant )
 À bien l'unique cause de ces barbares et justes révoltes!
 se L'étude des Compagnies concessionnaires montre que
 les avantages de ce régime sont plus apparents que
-réels, plus provisoires que durables; que ses inconvé-
-nients sont graves, multiples et permanents. Au point
+réels, plus provisoires que durables; que ses inconvénients sont graves, multiples et permanents. Au point
 de vue international, au point de vue économique, au
 point de vue de la politique indigène, cette méthode de
 7: colonisation est dangereuse. — Quelles conclusions
@@ -1903,8 +1818,7 @@ ministres, d'arracher plusieurs dizaines de millions aux
 ouvriers et paysans de France.
 1 (1) Rappelons que le Conseil d'Etat a condamné l'Etat dans laf-;
 faire des concessions quasi-gratuites Verdier et Daumas où les:
-concessionnaires avaient pourtant de graves torts. M. Paul Bour-
-darie dit dans un discours: « Le principe des concessions, n'y
+concessionnaires avaient pourtant de graves torts. M. Paul Bourdarie dit dans un discours: « Le principe des concessions, n'y
 Le touchez pas, cela pourrait vous coûler une centaine de millions. »
 2 (Dépêche Coloniale, 13 janvier 1906) L'article 30 du cahier des charges
 4 5 expose dans quelles conditions l'Etat peut racheter les concessions. À
@@ -1917,9 +1831,7 @@ n'importe quelle Compagnie. Il peut et doit s'interdire
 
 de donner aucune nouvelle concession soit dans les
 
-quelques territoires non concédés, soit dans les terri-
-
-toires actuellement abandonnés par les Compagnies
+quelques territoires non concédés, soit dans les territoires actuellement abandonnés par les Compagnies
 
 concessionnaires qui ont, avec le consentement de l'État
 
@@ -1933,9 +1845,7 @@ prononcée si dans un délai de deux ans, à dater de
 la signature du décret de: concession, il n'a pas effectivement commencé la mise en exploitation des terres
 concédées, ou si, l'ayant commencée, il ne la continue
 ni ne l'augmente progressivement. (Article 31, numéro 1)
-Sans doute, l'insuffisance des plantations faites, n'auto-
-
-rise que le retrait partiel d'un nombre minime d'hectares.
+Sans doute, l'insuffisance des plantations faites, n'autorise que le retrait partiel d'un nombre minime d'hectares.
 (Article 32) Mais l'absence totale des plantations
 prouve évidemment que le concessionnaire ne met
 pas les terres concédées en exploitation progressive.
@@ -1951,13 +1861,11 @@ Sans doute, l'article 31 du cahier des charges prescrit
 me: qu'en cas de déchéance la concession doit être mise en.
 adjudication, et le nouveau concessionnaire, substitué
 1 au concessionnaire évincé, pour les charges, obligations
-- et avantages qui s'y rattachent. Mais d'abord la dé-
-chéance des Sociétés les plus gravement compromises
+- et avantages qui s'y rattachent. Mais d'abord la déchéance des Sociétés les plus gravement compromises
 serait pour les autres un salutaire avertissement, même
 De. si elle n'avait pour conséquence que de substituer une
 Société à une autre. Puis, en vertu du même article du
-ove cahier des charges, nul ne peut concourir à ladjudica-
-tion, s'il n'est agréé par le Ministre des Colonies, — qui
+ove cahier des charges, nul ne peut concourir à ladjudication, s'il n'est agréé par le Ministre des Colonies, — qui
 ‘ASS peut repousser tous les concurrents, s'il tient à rétablir
 Ne le commerce libre; — et au bout de deux adjudications « 8 sans résultat, la concession est « annulée purement et
 simplement les Compagnies ne gardent que les terres …
@@ -1987,11 +1895,9 @@ pourrait modifier ce décret ancien; il pourrait étendre
 ceux des noirs qui, non munis de contrats, apportent du ne
 … Le paiement en argent de tous les salaires par les +0
 Compagnies concessionnaires, aussi bien que par l'État ‘#0
-et les particuliers, aurait pour le pays les plus heu-
-reuses conséquences. Des maisons de commerce libres
+et les particuliers, aurait pour le pays les plus heureuses conséquences. Des maisons de commerce libres
 auraient intérêt à s'établir pour vendre les produits
-… d'Europe, partout où les indigènes seraient assez nombreux et assez riches. Aucun article du Décret consti-
-tuant les concessions, ni du cahier des charges, n'empé-
+… d'Europe, partout où les indigènes seraient assez nombreux et assez riches. Aucun article du Décret constituant les concessions, ni du cahier des charges, n'empé-
 
 … cheraït ces maisons de commerce libre de se fixer
 - même en territoire concédé. Au contraire, le décret
@@ -2015,7 +1921,7 @@ réservés aux indigènes et sur les terrains concédés. Ce
 a serait le rétablissement, sinon de l'absolue liberté du
 4 commerce, du moins d'une entière liberté de la vente,
 4 même en territoires concédés. (1)
-1 Les indigènes (c'est un fait incontestable) prennent vite le rôle de l'argent, s'habituent vite à son
+Les indigènes (c'est un fait incontestable) prennent vite le rôle de l'argent, s'habituent vite à son
 4 usage. (2) Payés en argent, ils pourraient acheter ce
 4 qu'ils voudraient, où ils voudraient; la concurrence
 . obligerait les commerçants à avoir des magasins bien
@@ -2025,13 +1931,12 @@ a serait le rétablissement, sinon de l'absolue liberté du
 ( Il est probable que d'abord s'installeraient de toutes petites
 ; factoreries, tenues par des Sénégalais, des Foulbés, des Syriens,
 peut-être par des Portugais. — Les Portugais, petits commerçants
-habiles, sont parfois considérés comme occupant une situation «, intermédiaire entre les blancs et les noirs; on dit plaisamment au
+habiles, sont parfois considérés comme occupant une situation intermédiaire entre les blancs et les noirs; on dit plaisamment au
 ; Congo: « Les blancs, les Portugais et les noirs. » — Ensuite,
 quand l'argent se serait largement répandu, des maisons plus
 importantes, françaises, belges, anglaises, pourraient s'installer.
 Récemment un Syrien est venu, du nord, dans le territoire des
-Sultanats, et a acheté les six centièmes de l'ivoire produit con-
-formément à l'arrêté du 9 octobre 1905.
+Sultanats, et a acheté les six centièmes de l'ivoire produit conformément à l'arrêté du 9 octobre 1905.
 (2) Tous les administrateurs, tous les voyageurs mêmes en ont
 fait l'expérience. Par suite des paiements en argent faits par
 Padministration et quelques colons, l'argent commence à se
@@ -2046,9 +1951,7 @@ Y été jusqu'à leur promettre, pour leur éviter toute perte, de prendre
 _Jes Compagnies pour les empêcher d'avoir recours à la
 violence, pour les obliger à commercer honnêtement.
 Il serait souhaitable qu'il y ait un administrateur au À
-- centre de chaque ‘concession (les limites de la circon-
-scription administrative coïncidant avec celles du terri-
-toire concédé), pour que le contrôle soit plus direct. Cet
+- centre de chaque ‘concession (les limites de la circonscription administrative coïncidant avec celles du territoire concédé), pour que le contrôle soit plus direct. Cet
 administrateur devrait avoir à sa disposition un nombre
 … suffisant de gardes régionaux. Les Compagnies conces-
 … sionnaires se plaignent actuellement, non sans quelque
@@ -2082,44 +1985,41 @@ pareilles disgrâces. Cette crainte les paralyse; elle les
 10 incline au silence ou à la complicité. — Il importe que
 le gouvernement de la métropole, échappant à dehon7 teuses influences, réveille le courage de fonctionnaires …
 ne trop timorés, manifeste énergiquement sa volonté de
-aus mettre fin à un régime d'injuste monopole et de tyran-
-pue Surtout, de la faute commise au Congo, tirons une
+aus mettre fin à un régime d'injuste monopole et de tyranpue Surtout, de la faute commise au Congo, tirons une
 Mere leçon pour l'avenir. Les Compagnies privilégiées de
 colonisation méritent d'être enfin et pour toujours damnées. C'est une expérience manquée, à ne recomAIRE mencer jamais, nulle part.
 
 Tablea des Compagnies concessionnaires À
 
-1 Ritaine-Descamps.............. Société de l'Afrique Française......
-2 Tréchot frères.................. Compagnie Française du Haut-Congovf) 3 Gimmig et Campagne.......... Compagnie de la Sangha.......... En
+Ritaine-Descamps.............. Société de l'Afrique Française......
+Tréchot frères.................. Compagnie Française du Haut-Congovf) 3 Gimmig et Campagne.......... Compagnie de la Sangha.......... En
 Le" 6 Nouzaret........................ Société Commerciale et Agricole
-7 Nicol Bernain................... Société de l'Afrique Equatoriale...
+Nicol Bernain................... Société de l'Afrique Equatoriale...
 FOUDRE PERRET Société de la Haute-Sangha.........
-12 Faure et Boutelleau, Desbrières Compagnie française du Congo.:...s
-13 Jacta-Decourcelles.............. Société Agricole et Commerciale de pe:
-15 Siegfried, Baverat, Mollier et
+Faure et Boutelleau, Desbrières Compagnie française du Congo.:...s
+Jacta-Decourcelles.............. Société Agricole et Commerciale de pe:
+Siegfried, Baverat, Mollier et
 (1) J'emprunte ce tableau à l'ouvrage de M. Lefébure: Le régime des concessio
 
 : 23 Vergnes, Lindeboom et de De-
 lignau......................... Compagnie Française du Congo Occid
 26 pro Française du Congo et des Colonies Africaines... Compagnie Commerciale de Colonis
-30 De Brancion, Seguin et Mont- )
-33 Bouvier........,................ Compagnie Agricole, Industrielle et
-34 Société du Bas-Ogôoué......... Société Agricole et Commerciale
+De Brancion, Seguin et Mont- )
+Bouvier........,................ Compagnie Agricole, Industrielle et
+Société du Bas-Ogôoué......... Société Agricole et Commerciale
 Bareneti: dists tu à Compagnie du Littoral Beviic).
-36 Mimerel, Paquier, Kunkler..... Compagnie de la N'Goko Ouesso...:
-33 Bouchard, Couvreux, Watel,ete. Sultanats du Haut-Oubangui........ 4 1"
-39 Laroche-Robin.................. Compagnie Française de l'Oubangui-On » Flachon, mandataire de de
+Mimerel, Paquier, Kunkler..... Compagnie de la N'Goko Ouesso...:
+Bouchard, Couvreux, Watel,ete. Sultanats du Haut-Oubangui........ 4 1"
+Laroche-Robin.................. Compagnie Française de l'Oubangui-On » Flachon, mandataire de de
 Béhagle....................... Compagnie Française de l''Ouahmé et
 
 -.1
 L'administration et la politique indigène à
 je au Congo Français
-sa Peu de colonies au monde sont aussi difficiles à admi-
-nistrer que le Congo Français. D'abord l'exubérante
+sa Peu de colonies au monde sont aussi difficiles à administrer que le Congo Français. D'abord l'exubérante
 nature tropicale oppose sa puissance énorme aux
 médiocres efforts humains. Puis les indigènes sont trop
-primitifs pour s'adapter aisément aux exigences euro-
-péennes. Enfin la métropole a beaucoup moins fait pour.
+primitifs pour s'adapter aisément aux exigences européennes. Enfin la métropole a beaucoup moins fait pour.
 le Congo que pour ses autres colonies; elle par
 exemple, beaucoup moins dépensé pour lui que pour
 Madagascar, pays moins étendu et moins peuplé. Sous!
@@ -2137,7 +2037,7 @@ quelque vaillance: désireuse d'éblouir la métropole par
 nistration congolaise n'a pas osé lui avouer toutes les
 difficultés de sa tâche; elle a hésité à confesser cette
 vérité décevante, — qu'il faut se décider à proclamer
-bien haut —: la transformation d'un pays si vaste, aux
+bien haut la transformation d'un pays si vaste, aux
 populations si primitives, exigera des siècles et non pas
 des mois; l'exploitation des richesses naturelles (si elle
 ménage l'avenir, — sol et main-d'œuvre, ne pourra
@@ -2163,9 +2063,7 @@ régime des eaux, le climat, les populations, la situation
 4 internationale. (1) Le Gabon doit jouir d'une autonomie
 à la fois administrative et financière; il est placé sous À
 4 l'autorité d'un lieutenant-gouverneur, soumis à la haute
-direction du commissaire-général, et a un budget parti-
-culier. Les trois autres territoires sont placés sous l'au-
-torité directe du commissaire général: un délégué
+direction du commissaire-général, et a un budget particulier. Les trois autres territoires sont placés sous l'autorité directe du commissaire général: un délégué
 administre l'Oubangui-Chari, un officier commande le
 territoire militaire du Tchad. Il y a un seul budget pour
 les trois régions: ce qu'on appelle la section spéciale du
@@ -2193,8 +2091,7 @@ Congo et non à l'Oubangui-Chari, parce que les communications!
 sont plus faciles et directes.
 
 dent à Brazzaville; de juin 1904 à juin 1905, en un an,
-sept chefs de poste se succèdent à Cap-Lopez. Impos-
-sible alors aux administrateurs de s'intéresser à la
+sept chefs de poste se succèdent à Cap-Lopez. Impossible alors aux administrateurs de s'intéresser à la
 région qu'ils dirigent, d'y apprendre le dialecte particulier du pays, d'y gagner l'estime (indispensable) des;
 indigènes, d'y faire œuvre utile. (1) Enfin, s'il arrive
 quelque mission chargée par le gouvernement de la
@@ -2232,26 +2129,21 @@ le but est de voir et de le renseigner, lui Ministre... etc. (Lettre du
 régions déjà distinguées par le décret du 29 décembre
 À 1903; créer, dans l'Oubangui-Chari, un gouvernement
 spécial, comme au Gabon (la capitale en devrait être {4
-sans doute Fort-Sibut), et y rattacher le territoire mili-
-taire du Tchad; augmenter l'indépendance et la respon-
-sabilité personnelle du lieutenant-gouverneur du Gabon
+sans doute Fort-Sibut), et y rattacher le territoire militaire du Tchad; augmenter l'indépendance et la responsabilité personnelle du lieutenant-gouverneur du Gabon
 et du lieutenant-gouverneur de l'Afrique centrale
 (Oubangui-Chari-Tchad), sous la lointaine direction du
 : commissaire général, gouvernant le Moyen-Congo. Il À
 faudrait constituer un budget général (dépenses et -
 recettes communes) et trois budgets locaux (dénenses
-et recettes spéciales des trois gouvernements). IL fau-
-drait éviter à tous les fonctionnaires des déplacements
+et recettes spéciales des trois gouvernements). IL faudrait éviter à tous les fonctionnaires des déplacements
 trop fréquents; il faudrait les encourager par des
 primes à apprendre les langues du pays; il faudrait à
 « leur permettre de constituer, — à l'aide de taxes locales
 ou de prélèvements sur les recettes locales du budget;
-général, — des budgets régionaux permettant d'accom-
-plir des travaux immédiatement utiles aux commerçants
+général, — des budgets régionaux permettant d'accomplir des travaux immédiatement utiles aux commerçants
 et aux indigènes: moyens de communication, ponts,
 marchés, écoles, etc. Il faudrait, (nous l'avons déjà dit),
-faire coïncider les régions administratives avec les ter-
-ritoires des grandes concessions; les administrateurs A
+faire coïncider les régions administratives avec les territoires des grandes concessions; les administrateurs A
 pourraient mieux maintenir l'ordre nécessaire, surveiller
 les agents, blancs et noirs, des Compagnies, les empêcher
 d'exercer sur les indigènes leurs habituelles violences.
@@ -2296,15 +2188,12 @@ la fin de leur séjour les fonctionnaires, employés,
 gardes régionaux français et indigènes vivant dans à
 ; l'intérieur de la colonie. (1) Le Congo n'a pas encoré
 se passer d'une subvention de la métropole. (2)
-L'administration actuelle s'est particulièrement pré-
-occupée d'arriver à équilibrer le budget de la colonie.
+L'administration actuelle s'est particulièrement préoccupée d'arriver à équilibrer le budget de la colonie.
 Il est certain qu'à ce point de vue un réel progrès s'est
 Les principales recettes proviennent des droits de
 douane, de l'impôt indigène, des redevances fixes des
-Compagnies concessionnaires. Droits de douane à l'en-
-trée: au Gabon, les marchandises étrangères sont:
-soumises au tarif métropolitain français; dans le « bas-
-sin conventionnel » du Congo (Moyen-CongoetOubanguiChari), en vertu de l'acte de Bruxelles (1889), modifiant:
+Compagnies concessionnaires. Droits de douane à l'entrée: au Gabon, les marchandises étrangères sont:
+soumises au tarif métropolitain français; dans le « bassin conventionnel » du Congo (Moyen-CongoetOubanguiChari), en vertu de l'acte de Bruxelles (1889), modifiant:
 l'acte de Berlin (1884), les marchandises de toute prove- à
 nance sont taxées 10 0/0 valorem. Droits de douane:
 à la sortie: l'ivoire et le caoutchouc payent 10 0/0
@@ -2315,8 +2204,7 @@ conventionnel elle est déterminée une fois pour toutes
 par le protocole de Lisbonne (1892); la valeur officielle
 est bien inférieure à la valeur réelle (4 francs le kilo-
 (1) Au 1* janvier 1904, la totalisation des livrets de solde permit!
-de constater que la colonie (Gabon et Congo) avait à payer envi-
-ron 200.000 francs. Il y avait des gardes régionaux qui n'avaient
+de constater que la colonie (Gabon et Congo) avait à payer environ 200.000 francs. Il y avait des gardes régionaux qui n'avaient
 pas été payés depuis 1893!
 
 gramme de caoutchouc, alors qu'il vaut de 8 à 10 francs).
@@ -2348,10 +2236,7 @@ non seulement pour améliorer la condition des indigènes,
 mais même pour rendre la vie possible aux blancs.
 Quant aux travaux publics, on ne pourra créer
 l'outillage économique indispensable au développement
-de la colonie sans un emprunt; c'est dans cette inten-
-tion, pour rendre cet emprunt possible, que l'administra-
-tion du Congo s'est particulièrement préoccupée d'amé-
-liorer la situation financière. Il y aura lieu alors
+de la colonie sans un emprunt; c'est dans cette intention, pour rendre cet emprunt possible, que l'administration du Congo s'est particulièrement préoccupée d'améliorer la situation financière. Il y aura lieu alors
 d'élaborer un projet de travaux publics, en s'inspirant
 des besoins généraux de la colonie, et non pas des À
 intérêts particuliers de quelques concessionnaires in- à
@@ -2373,9 +2258,7 @@ wharfs, flottille). Ensuite, viendra l'établissement de (
 Fort-Sibut et Fort-Lamy). Enfin, en dernier lieu, au
 
 point de vue de l'urgence, on peut placer la construction;
-d'un chemin de fer Gabon-Congo, si les études actuelle-
-
-ment entreprises le montrent possible. Dès maintenant,
+d'un chemin de fer Gabon-Congo, si les études actuellement entreprises le montrent possible. Dès maintenant,
 
 on peut se rendre compte que l'établissement d'une voie
 
@@ -2407,9 +2290,7 @@ l'énorme travail de l'établissement d'une voie ferrée. (x)
 
 S'il est juste de reconnaître que l'administration
 
-actuelle du Congo, exclusivement préoccupée d'amé-
-
-liorer l'état des finances, a vu, sur ce point particulier,
+actuelle du Congo, exclusivement préoccupée d'améliorer l'état des finances, a vu, sur ce point particulier,
 
 ses efforts couronnés de succès, il faut constater en
 
@@ -2423,11 +2304,7 @@ compromettent l'avenir de notre Congo et le bon renom
 
 de la colonisation française.
 
-(1) L'Etat, en vertu du cahier des charges, fait payer une contri-
-
-bution particulière pour l'établissement du télégraphe, aux Com-
-
-pagnies dont une ligne télégraphique doit traverser la concession:
+(1) L'Etat, en vertu du cahier des charges, fait payer une contribution particulière pour l'établissement du télégraphe, aux Compagnies dont une ligne télégraphique doit traverser la concession:
 
 c'est tout à fait juste, puisque la Société doit être la première à
 
@@ -2450,8 +2327,7 @@ des soulèvements, que l'État réprime à main armée,
 utilisant parfois contre certains villages les habitants de
 On ajoute: en même temps que la paix, nous avons:
 apporté aux indigènes la justice. — Il est vrai que, dans
-certains endroits, les indigènes font régler leurs diffé-
-rends, leurs palabres, par ceux des administrateurs en
+certains endroits, les indigènes font régler leurs différends, leurs palabres, par ceux des administrateurs en
 qui ils ont confiance; c'est une tâche très délicate, il
 s'agit de savoir quel compte tenir des traditions locales,
 souvent barbares, ou de notre idéal européen moderne,
@@ -2460,8 +2336,7 @@ souvent inapplicable. — Mais en ce qui concerne les
 aux blancs, est très dure aux noirs. Les formes légales;
 sont souvent violées par des arrestations arbitraires.
 Puis il y a eu, à la suite de crimes contre les indigènes,
-trop de non-lieux injustifiés, trop d'acquittements scan-
-daleux, trop de condamnations dérisoires. (2) Un agent
+trop de non-lieux injustifiés, trop d'acquittements scandaleux, trop de condamnations dérisoires. (2) Un agent
 (1) Lire plus haut les révoltes provoquées par les Compagnies:
 concessionnaires; et plus bas les expéditions entreprises par l'Etat
 à la suite du refus de l'impôt.
@@ -2507,8 +2382,7 @@ aux Compagnies concessionnaires, par suite de l'insuffi- "4
 sante rétribution du travail nécessaire à la récolte du
 Nous n'avons encore presque rien fait pour améliorer
 di. le déplorable état sanitaire des indigènes. La variole
-ï décime ces malheureuses populations. Une maladie épi-
-démique extrêmement grave, encore mal étudiée, et dont À
+ï décime ces malheureuses populations. Une maladie épidémique extrêmement grave, encore mal étudiée, et dont À
 on ne connaît pas de remède, la maladie du sommeil,
 est en train de dépeupler bien des régions du Congo. (2)
 ! 4 y aurait lieu d'étudier particulièrement la situation faite
@@ -2517,21 +2391,18 @@ de travail contient quelques sages prescriptions. Les contrats de
 louage de services sont passés devant un fonctionnaire (adminis- {4
 RU. trateur, chef de poste) qui s'assure que l'engagé contracte librement.
 
-È L'engagé reçoit un livret signé par le représentant de l'adminis-
-tration. Les salaires, évalués en argent français, sont payés en À
+È L'engagé reçoit un livret signé par le représentant de l'administration. Les salaires, évalués en argent français, sont payés en À
 à numéraire ou en marchandises. La ration est déterminée.
 Maïs, en fait, ces prescriptions, dans ce qu'elles ont de favorable » aux noirs, ne sont pas appliquées. Les noirs ignorent souvent.
 à pour combien de temps ils contractent, quel travail ils auront à
 faire. Les livrets sont gardés par l'employeur, souvent ils ne sont
-É L+) pas visés par l'administrateur. Les contrats sont enregistrés plu-
-sieurs mois après qu'ils ont été passés. La nature de la ration n'est
+É L+) pas visés par l'administrateur. Les contrats sont enregistrés plusieurs mois après qu'ils ont été passés. La nature de la ration n'est
 jamais précisée. Les contrats portent souvent cette mention: « Le
 contrat sera résilié, sans aucune indemnité de résiliation, lorsque,
 pour un motif quelconque, le travailleur ne rendra plus de services À
 à la Compagnie. » C'est une façon de tourner l'article du décret
 ARE obligeant l'employeur à soigner gratuitement l'employé en cas de
-. maladie. L'administration elle-même traite fort mal ses travail-
-leurs. Les Bakongos, employés à installer la ligne télégraphique
+. maladie. L'administration elle-même traite fort mal ses travailleurs. Les Bakongos, employés à installer la ligne télégraphique
 ER! Bangui-Impfondo, touchent o franc 35 centimes par jour pour
 indemnité de vivres (en un pays très pauvre), et ne reçoivent
 Pur (2) Il est possible même que l'état sanitaire des indigènes ait
@@ -2540,12 +2411,10 @@ détruisent les populations de la côte. Nos exigences aussi troublent
 la vie des populations primitives de l'intérieur longtemps réfrac-
 a taires à tout travail. À
 
-Enfin l'État n'a rien fait pour développer la vie intel-
-lectuelle et morale des indigènes. (1) Les seules écoles
+Enfin l'État n'a rien fait pour développer la vie intellectuelle et morale des indigènes. (1) Les seules écoles
 où les noirs reçoivent quelque instruction profession- si
 nelle et quelque enseignement de la langue française
-appartiennent aux missions, catholiques et protes-
-tantes. Cet effort, méritoire, est tout à fait insuffisant
+appartiennent aux missions, catholiques et protestantes. Cet effort, méritoire, est tout à fait insuffisant
 dans l'ensemble du pays. (2)
 
 Ainsi les indigènes ne retirent presque aucun avantage qui leur soit appréciable, de notre présence parmi
@@ -2578,24 +2447,21 @@ contribuer à la prospérité matérielle de la mission.
 
 paiement de certains impôts, et, dans bien des régions,
 l'exécution de certaines corvées, pagayage ou portage
-Il y a des impôts qui sont à la fois ridicules et vexa-
-toires. Les seules distractions des indigènes, ce sont les
+Il y a des impôts qui sont à la fois ridicules et vexatoires. Les seules distractions des indigènes, ce sont les
 danses collectives qu'on appelle là-bas des tam-tams.
 les habitants de certaines grandes villes, Libreville
 par exemple, sont obligés de payer un impôt de
 cinq francs par tam-tam! Cet impôt, qui à Libreville ne
 produit même pas la somme dérisoire de deux
 cents francs, exaspère les noirs, stupéfaits de ne pas
-È pouvoir se livrer gratuitement à la plus innocente mani-
-festation de joie!
+È pouvoir se livrer gratuitement à la plus innocente manifestation de joie!
 D'autres impôts sont scandaleux. Autrefois les noirs
 3 fabriquaient du sel au bord de la mer. L'État a d'abord À
 prohibé cette industrie locale; puis, levant la prohibi-
 ; tion, il a mis un impôt de deux cents francs (ramené
 actuellement à cent francs) sur les cases à sel. Les noirs
 de la région sont trop pauvres. pour avoir cent francs à - à
-eux! L'impôt a pour objet, en leur interdisant la fabri-
-cation du sel, de les obliger à acheter ce produit indis4 pensable aux Compagnies concessionnaires! Tout le
+eux! L'impôt a pour objet, en leur interdisant la fabrication du sel, de les obliger à acheter ce produit indis4 pensable aux Compagnies concessionnaires! Tout le
 4 long desla côte, les chefs indigènes protestent contre
 cette absurde prohibition d'une ancienne industrie:
 À. locale, qui constituait jadis la principale, sinon l'unique
@@ -2614,19 +2480,15 @@ possèdent rien. (1) Puis, une fois l'impôt établi, sur leur À
 demande, les Sociétés protestèrent, sous prétexte que
 le caoutchouc, versé par les indigènes pour limpôt,
 est récolté dans les forêts qui leur sont concédées. (2)
-Enfin, révélant leurs intentions secrètes, elles proposè-
-rent une solution que l'Etat dut accepter: le caoutchouc
-versé comme impôt aux administrateurs, par les indigènes des territoires concédés, serait remis à la Com-
-pagnie concessionnaire et remboursé par elle à l'État. (3) À
+Enfin, révélant leurs intentions secrètes, elles proposèrent une solution que l'Etat dut accepter: le caoutchouc
+versé comme impôt aux administrateurs, par les indigènes des territoires concédés, serait remis à la Compagnie concessionnaire et remboursé par elle à l'État. (3) À
 C'est le système actuellement en vigueur. Les prix de
 rétrocession sont établis par les commissions des
 
 L'impôt de trois francs par tête n'est pas, en luimême, excessif; il n'oblige les indigènes qu'à un petit
 nombre de journées de travail. Pourtant il paraît lourd
 aux noirs, qui n'ont jamais été soumis à une adminis-;
-tration régulière. D'un bout à l'autre du pays, ils l'ap-
-
-pellent l'amende; ils y voient l'amende infligée par le
+tration régulière. D'un bout à l'autre du pays, ils l'appellent l'amende; ils y voient l'amende infligée par le
 
 (1) Voir Instructions ministérielles du 30 novembre 1900, citées
 par capitaine Renard. La Colonisation au Congo Français, page
@@ -2654,16 +2516,14 @@ ici c'est seulement les hommes adultes qui le païent,
 ï tants; tel administrateur, se heurtant au refus de vil-
 3 lages qui paient mal, le réclame deux fois aux villages
 qui paient bien. D'autres administrateurs, à la suite
-d'une simple circulaire du commissaire général annon-
-çant qu'il étudie le projet d'élever l'impôt à cinq francs,
+d'une simple circulaire du commissaire général annonçant qu'il étudie le projet d'élever l'impôt à cinq francs,
 . réclament tout de suite cinq francs; ce qui est parfaitement illégal; pourtant les rôles de l'impôt basés sur À
 cette taxe illégale sont approuvés en conseil d'admi-
 ; La perception de l'impôt indigène occupe presque À
 tout le temps des administrateurs, ne leur laisse souvent presque aucun loisir pour leurs autres fonctions,
 justice, instruction publique, reconnaissance du pays,
 étude des langues indigènes, surveillance des Compa-
-1 gnies concessionnaires, etc. Cette circulaire du com-
-missaire général (19 mars 1903) a produit sur eux tous
+1 gnies concessionnaires, etc. Cette circulaire du commissaire général (19 mars 1903) a produit sur eux tous
 une profonde impression:
 « Mon attention a été attirée sur le peu d'importance
 des recouvrements effectués au titre de l'impôt. J'ai à
@@ -2697,8 +2557,7 @@ manger l'un des cadavres. (1)
 Dans l'Oubangui-Chari, il s'est passé, à propos d'impôt,
 un monstrueux drame. En avril 1904, un administrateur,
 . obéissant à l'esprit de la célèbre circulaire du 19 mars
-1903, envoie de Bangui, un commis des affaires indi-
-gènes lever l'impôt dans les environs de Mongoumba. (2)
+1903, envoie de Bangui, un commis des affaires indigènes lever l'impôt dans les environs de Mongoumba. (2)
 (2) Le commis des affaires indigènes écrit à l'administrateur
 cette-phrase d'une bassesse révoltante: « Ma décision, je vous la
 donne: faire mon possible pour faire de limpôt, ce qui est mon
@@ -2731,8 +2590,7 @@ Histoire de la dernière Mission Brazsa, d'après le registre de cor- LF. respon
 de sa famille, par M. Amédée Britsch. Correspondant, 10 janvier
 L'administrateur de Bangui avait soumis son plan pour la:
 perception de l'impôt au Directeur Colonial de la Compagnie des:
-; caoutchoucs et produits de la Lobaye. M. de Brazza écrit à ce pro-
-pos: « Ce fait a son importance, car il montre la liaison étroite;
+; caoutchoucs et produits de la Lobaye. M. de Brazza écrit à ce propos: « Ce fait a son importance, car il montre la liaison étroite;
 42 qui existait alors entre les représentants de l'administration et
 ; cette société, liaison qui n'est pas sans danger quand il s'agit de
 la perception de l'impôt en nature. » (Rapport précédemment cité)
@@ -2753,8 +2611,7 @@ ne peut manquer d'en informer la justice; mais elle ne
 se préoccupe pas de faire une sérieuse enquête; faute de.
 de preuves, sur un fait pourtant facile à prouver, la justice accorde un non-lieu. L'administrateur, qui a ordonné:
 l'expédition, est déplacé, mais déplacé avantageuse-:
-ment, — envoyé de Bangui, poste détestable, à Brazza-
-ville, poste unanimement désiré, et capitale de la
+ment, — envoyé de Bangui, poste détestable, à Brazzaville, poste unanimement désiré, et capitale de la
 Les razzias de femmes et enfants n'ont pas toujours
 d'aussi meurtrières conséquences; mais elles continuent
 à être considérées comme un moyen de gouvernement.
@@ -2769,15 +2626,13 @@ administration élabore un nouveau projet d'impôt,
 Le destiné à faire peser sur les indigènes une tyrannie
 Y 4 » encore plus lourde. Elle propose de confier aux Compa-
 4 gnies concessionnaires elles-mêmes le soin de lever,
-pour l'Etat, l'impôt en nature: les indigènes apporte-
-pen” raient le caoutchouc aux Sociétés; celles-ci retiendraient,
+pour l'Etat, l'impôt en nature: les indigènes apportepen” raient le caoutchouc aux Sociétés; celles-ci retiendraient,
 sur le prix payé aux noirs, les sommes à verser pour
 ma l'impôt à l'État.
 Ce projet estexpérimenté aux environs de Brazzaville. à
 Les indigènes, à proximité de la capitale du pays,
 SES peuvent assez facilement se procurer de l'argent, en
-Brit travaillant pour les Européens; aussi payent-ils volon-
-tiers en numéraire la plus grande partie de leurs impôts.
+Brit travaillant pour les Européens; aussi payent-ils volontiers en numéraire la plus grande partie de leurs impôts.
 Mais voici qu'une usine nouvelle s'installe, exploitant
 11 le caoutchouc contenu dans les racines de certaines
 herbes: l'administration oblige les indigènes à apporter
@@ -2809,16 +2664,14 @@ minime de caoutchouc; ils se verraient seulement
 contraints par l'État, — par les tirailleurs et gardes
 régionaux de l'État, — à porter du caoutchouc aux
 agents des Compagnies concessionnairés; ils se sentiraient devenus définitivement leurs esclaves. (1) L'Etat,
-abdiquant ses droits de souveraineté, livrerait les indigènes à la tyrannie rapace des Sociétés toutes puis-
-santes: sa force, son légitime pouvoir seraient désormais mis au service des pires intérêts privés. y
+abdiquant ses droits de souveraineté, livrerait les indigènes à la tyrannie rapace des Sociétés toutes puissantes: sa force, son légitime pouvoir seraient désormais mis au service des pires intérêts privés. y
 Ce procédé de perception de l'impôt assimilerait sans
 aucune différence le Congo Français au Congo Belge,
 entraînerait fatalement dans notre colonie les crimes
 qu'à Paris on avait saisi le Ministre de cette affaire. bref, qu'on
 exploitait à mon encontre l'équivoque posée par M. Gentil.
 « Les indigènes étaient libres de choisir, à en croire la lettre
-adressée à ce sujet au Ministre; mais en réalité, on les contrai-
-gnait à apporter de lPécorce d'herbe et on avait négligé de leur
+adressée à ce sujet au Ministre; mais en réalité, on les contraignait à apporter de lPécorce d'herbe et on avait négligé de leur
 parler de cette liberté. » (Lettre de M. de Brazza, 24 août 1905.
 (1) Les Compagnies disent que l'avantage de cette méthode serait
 que les indigènes payeraient l'impôt sans le savoir. Supposez qu'un
@@ -2906,8 +2759,7 @@ procurer des porteurs. Toqué a résumé la situation d'un mot: «
 
 Pour éviter le portage, (r) et les mille vexations qui ne.
 l'accompagnent, (2) les noirs qui survivent s'enfuient le
-de plus loin possible de la route. On les punit pour déser-
-tion; on essaie de les retenir, de les rappeler; (3) mais
+de plus loin possible de la route. On les punit pour désertion; on essaie de les retenir, de les rappeler; (3) mais
 1 en vain. Le pays se dépeuple rapidement.
 ï é Manquant de main-d'œuvre, la Compagnie conces-
 5 sionnaire proteste. L'administration se décide à essayer +1
@@ -2974,10 +2826,9 @@ dans le passé et surtout dans le présent, j'ai été amené à relever;
 de graves abus de répression commis au moment même où on
 allait y apprendre l'envoi de ma mission.
 ï « De plus, j'ai constaté que le portage ayant été aboli à grands
-fracas, les indigènes de ces régions vont être astreints à un por-
-tage plus intensif encore que par le passé. » (Lettre de M. de;
+fracas, les indigènes de ces régions vont être astreints à un portage plus intensif encore que par le passé. » (Lettre de M. de;
 
-ê elle évite autant que possible (du moins à Fort-Crampel) à; À
+ê elle évite autant que possible (du moins à Fort-Crampel) À
 5 l'emploi des moyens brutaux. Mais en vertu des tarifs
 fixés en haut lieu, elle est obligée de rémunérer trop
 ï faiblement le travail des porteurs. (1) Et en l'absence
@@ -3009,8 +2860,7 @@ loute valeur dans le pays!
 
 tement à notre contact, de les habituer ainsi peu à peu:
 Des réformes immédiates s'imposent.Il faut modifier
-entièrement la vie administrative, comme la vie écono-
-mique, du Congo Français. (1) ni
+entièrement la vie administrative, comme la vie économique, du Congo Français. (1) ni
 Il faut que la Métropole, par des instructions formelles
 et énergiques, oblige l'administration et la magistrature ï » de la colonie à poursuivre et à punir toutes les violences
 commises contre les indigènes; il faut qu'elle interdise
@@ -3050,7 +2900,7 @@ D'EME l'impôt de capitation est probablement nécessaire à …
 Ron l'équilibre du budget de cette colonie qui manque 6 gent. Mais les administrateurs devraient avoir le droit
 de tenir compte des conditions spéciales qui empêchent
 +4 2 parfois de pouvoir lever l'impôt pacifiquement. L'admi-
-:; nistration devrait encourager les noirs, et surtout leurs
+nistration devrait encourager les noirs, et surtout leurs
 1:13 chefs, par des récompenses, à payer régulièrement l'im- …
 pôt. Surtout il faut que les sommes prélevées sur les
 dar Ces inspecteurs coloniaux ou ces protecteurs des indigènes
@@ -3113,8 +2963,7 @@ réussir cette hardie tentative. (Voir Le Temps du 13 décembre 1905) GLARL:
 (3) La Compagnie concessionnaire, l'Ouahmé-Nana, a obtenu que
 Vadministration se charge d'assurer ses transports, à un prix fixé
 très bas; en 1904 elle a demandé le transport de 68 tonnes; en 1905 Ait.
-son transit s'élèvera à 120 tonnes. Les transports de l'administra-
-si tion s'élèvent à 30 tonnes. Ce serait au moins 150 tonnes, soit EUR?
+son transit s'élèvera à 120 tonnes. Les transports de l'administrasi tion s'élèvent à 30 tonnes. Ce serait au moins 150 tonnes, soit EUR?
 6.000 charges, qui continueront à passer par la voie du portage
 
 traînées par les chevaux qu'on trouve en abondanceet
@@ -3122,8 +2971,7 @@ traînées par les chevaux qu'on trouve en abondanceet
 œuvres urgentes auxquelles la colonie doit, avant toute
 
 on autre dépense, consacrer ses ressources.
-Il ne suflit pas de mettre fin aux crimes et aux vio-
-lences. Il faut aussi que les indigènes trouvent à notre
+Il ne suflit pas de mettre fin aux crimes et aux violences. Il faut aussi que les indigènes trouvent à notre
 
 à domination des avantages appréciables. Une double
 ? tâche s'impose: la conservation de ces races, leur déve-
@@ -3144,7 +2992,7 @@ de théoriques et désintéressées. IL s'agit seulement de
 sa donner au plus grand nombre d'entre eux quelque
 ( enseignement professionnel ou agricole, et à un certain
 1 nombre d'entre eux la connaissance de la langue (1) Les chevaux capables de traîner des voiturettes du genre des à
-Arabas Lefècre abondent au Tchad, et ils n'y coûtent que 19 à;
+Arabas Lefècre abondent au Tchad, et ils n'y coûtent que
 15 francs. — En attendant, il faut absolument nourrir et bien payer
 les porteurs qu'on sera obligé de continuer à réquisitionner.
 
@@ -3153,8 +3001,7 @@ L'administrateur de Fort-Crampel estime qu'on trouverait sur place
 1100 ration en nature un salaire de o franc 60 par jour de portage et À
 ; 0 franc 30 par jour de retour à vide.
 
-çaise. Ayant appris un métier, ils travailleront, s'enri-
-chiront, mèneront une vie plus large et plus libre;
+çaise. Ayant appris un métier, ils travailleront, s'enrichiront, mèneront une vie plus large et plus libre;
 sachant le français, ils pourront mieux défendre leurs
 intérêts et leurs droits. L'enseignement professionnel aus
 fournira à la colonie les travailleurs nécessaires à son ni
@@ -3162,9 +3009,7 @@ développement économique; l'enseignement de la langue
 française multipliera les intermédiaires indispensables à
 entre nous et nos sujets. (1) Il faut que l'État ajoute ses!
 écoles à celles des missions chrétiennes pour qu'un plus (
-il faut qu'il offre le modèle du meilleur des enseigne-
-ments, donné sans aucune préoccupation confes-
-sionnelle, simplement dans l'intérêt des indigènes et de RQN
+il faut qu'il offre le modèle du meilleur des enseignements, donné sans aucune préoccupation confessionnelle, simplement dans l'intérêt des indigènes et de RQN
 la colonie.
 Sans doute il serait inintelligent de croire que l'instruction, même largement répandue, transformera ces "2
 races à demi sauvages en quelques années. Plus les
@@ -3195,20 +3040,16 @@ fétichistes, condamnées par l'expérience journalière,
 seront remplacées par des notions plus positives. Le
 23 contact d'une culture plus universelle élargira peu à
 peu ces âmes étroites. Notre enseignement provoquera
-; l'évolution de ces races longtemps immobiles, détermi-
-nera leur progrès.
+; l'évolution de ces races longtemps immobiles, déterminera leur progrès.
 Les réformes ne valent que par les hommes qui les
 ne appliquent. Pour changer l'esprit de l'administration du
 ; Congo, il faut changer les hauts fonctionnaires responNe sables de l'orientation donnée à la colonie. (1) Les « petits fonctionnaires suivent docilement l'inspiration de
 leurs chefs. Quand on leur ordonne de percevoir l'impôt
-par tous les moyens, ils n'hésitent pas à commettre les «; pires violences. Du jour où ils se sauront punis pour
+par tous les moyens, ils n'hésitent pas à commettre les pires violences. Du jour où ils se sauront punis pour
 tout attentat aux droits des indigènes, récompensés
-pour tout progrès réel accompli, ils pratiqueront d'eux-
-mêmes une politique de labeur pacifique, d'exacte jus-
-tice, de ferme douceur.
+pour tout progrès réel accompli, ils pratiqueront d'euxmêmes une politique de labeur pacifique, d'exacte justice, de ferme douceur.
 Plus éloquemment que n'importe quelle promesse, le
-changement du haut personnel administratif symboli-
-sera la rupture avec un passé mauvais, l'avènement
+changement du haut personnel administratif symbolisera la rupture avec un passé mauvais, l'avènement
 d'un régime meilleur, toute une bienfaisante révolution.
 (1) « Je rentre avec le sentiment que nulle réforme n'est possible
 sans un changement auquel il doit être procédé avec toutes les
@@ -3217,7 +3058,7 @@ pour les services rendus par M. Gentil, aussi bien que le souci de
 notre dignité. » (Lettre de M. de Brazza. — 24 août 1905. — Temps,
 
 À rez-de-chaussée, Paris, cinquième arrondissement. “Al
-4 Nos Cahiers sont édités par des souscriptions men-
+Nos Cahiers sont édités par des souscriptions men-
 : 11 suelles régulières et par des souscriptions extraordiEs naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraissent par séries: une série paraît
@@ -3234,7 +3075,7 @@ Prix de l'abonnement, pour chaque série annuelle
 1 pendant le cours de cette série: À
 20 naine... Autres pays de l'Union postale uni_10100e verselle....... vingt-cinq francs
 Abonnement sur whatman... cent francs pour tous pays
-14 Les exemplaires sur whatman, tirage non réimposé,
+Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du
 or. souscripteur; le tirage à part sur whatman a commencé à
 de fonctionner au premier janvier 1906; les inscrip=
@@ -3258,11 +3099,11 @@ Nous engageons nos abonnés de certains pays à nous
 recommandés à la poste; la recommandation postale,
 ne comportant une transmission de signature, garantit le
 destinataire contre certains abus: pour cette recom-
-É; mandation, pour tous pays, en sus, cinq francs.
+mandation, pour tous pays, en sus, cinq francs.
 Automatiquement et sans augmentation de prix les
 REX exemplaires sur whatman sont tous recommandés et
 envoyés aux souscripteurs dans des enveloppes-sacs.
-4 L'abonnement ordinaire cesse de fonctionner pour
+L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
 44 l'achèvement de cette série; ainsi du premier octobre
 1% au 31 décembre 1905 on pouvait encore avoir pour vingt

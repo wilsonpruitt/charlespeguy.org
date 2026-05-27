@@ -35,8 +35,8 @@ DUAL Qui, pour dépenser ta sève exubérante,
 Tu te lasses parfois pate
 De la poussière des pieds trop lourds, 1}
 ; Tu te lasses des mains qui comptent des denrées, QUE.
-6 Tu te lasses des bouches qui donnent des baïsers
-1 Arbre fier, tu languis d'abriter les grand routes;
+Tu te lasses des bouches qui donnent des baïsers
+Arbre fier, tu languis d'abriter les grand routes;
 Lëés bénédictions des foules te dessèchent,
 Et pour épanouir tes branches vigoureuses,
 Pour redresser tes feuilles et pour rendre à tes fleurs à
@@ -62,7 +62,7 @@ Ils vont, rêvant d'étés riches comme vos étés,
 Et d'automnes, comme vos automnes,
 Dont les vents
 Ne peuvent qu'emporter vos semences ailées,
-4 Et laissent triomphants, quand tout meurt près de vous,
+Et laissent triomphants, quand tout meurt près de vous,
 Vos solides rameaux qui jaunissent à peine.
 
 Pourquoi rendis-tu
@@ -76,7 +76,6 @@ A mon front sans peur,
 Vivre dans ton ombre.
 
 Sur les pentes tièdes,
-Mesfrères heureux.;
 as VAE Vois, mes bras si las, Mt)
 Rens Las de supplier,
 Pendent, vers la neige,
@@ -117,7 +116,7 @@ Et criez en passant, au pêcheur immobile:
 ‘FR « Regarde ton bouchon, pêcheur, pêcheur stupide! »
 : Rayez de fugitif la campagne éternelle, dsl “5
 Espiègles amusants qui ne comprenez pas Res. “Fat
-30 Que l'eau veut des amants plus mesurés que vous.
+Que l'eau veut des amants plus mesurés que vous.
 Vous ne comprenez pas ce pêcheur immobile,
 Toujours, toujours penché sur son bouchon stupide,
 nee Et qui ne vous voit pas et ne vous entend pas; KPNS
@@ -211,7 +210,7 @@ J'ai des draps tirés, des cires allumées
 
 Au pied des lits j'ai des femmes agenouillées, Un.
 
-3 Mais ton odeur, à pourriture, me rend lâche.
+Mais ton odeur, à pourriture, me rend lâche.
 
 ne Et je ne peux m'enfuir dans vos villes parées, “3
 
@@ -256,7 +255,7 @@ Ma barque, lentement descend le fil de l'eau.
 Les arbres sont penchés sur la rivière calme;
 Un poisson saute en l'air en faisant un bruit plats
 A coups secs, un pêcheur fiche un pieu dans la rive.:
-4 De gros nuages blancs tombent du ciel dans l'eau.
+De gros nuages blancs tombent du ciel dans l'eau.
 Mon cœur, tu ne bats plus de la fièvre des villes.
 Oublie tous tes ennuis et toutes tes douleurs.
 Détends-toi, cœur ardent, malade de trop vivre, 2:00
@@ -282,11 +281,7 @@ Ma barque, lentement, descend le fil de l'eau. Dora
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 
-Nos Cahiers sont édités par des souscriptions men-
-
-suelles régulières et par des souscriptions extraordi-
-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
@@ -304,8 +299,7 @@ Abonnement sur whatman... cent francs pour tous pays
 , Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du
 souscripteur; le tirage à part sur whatman commence
-de fonctionner au premier janvier 1906; les inscrip-
-tions pour cet abonnement particulier sont reçues en
+de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en
 tout temps et reçoivent un numéro d'ordre déterminé
 automatiquement par le rang même qu'elles occupent à
 dans l'ordre de l'arrivée, les numéros les plus bas venant
@@ -375,8 +369,7 @@ parmi les éditions de cet ordre. Je redemande à nos
 amis et à nos abonnés de faire un effort marqué en
 sens, premièrement, s'ils peuvent, en s'y abonnant euxmêmes, deuxièmement en nous cherchant des abonnés
 de cet ordre. Je suis assuré qu'un assez grand nombre
-de personnes, qui ne se fussent point abonnées immé-
-diatement à l'édition ordinaire, s'abonneront beaucoup
+de personnes, qui ne se fussent point abonnées immédiatement à l'édition ordinaire, s'abonneront beaucoup
 plus vite à cette édition sur whatman.
 
 Les conditions de pureté qui sont exigibles de toute
@@ -445,12 +438,10 @@ trois actes, — anciennement aux éditions de la Revue
 d'art dramatique et musical, — un volume de 94 pages
 Nous continuons ainsi à rassembler à la librairie des
 cahiers les anciennes œuvres de notre collaborateur; à
-cette Montespar complète sensiblement notre collec-
-tion; pour la recevoir, envoyer un mandat de deux
+cette Montespar complète sensiblement notre collection; pour la recevoir, envoyer un mandat de deux
 francs à M. André Bourgeois, administrateur des À
 On a lire dans un assez grand nombre de;
-journaux que le prix de cinq mille francs de la Vie heu-
-reuse avait été décerné à notre collaborateur M. Romain
+journaux que le prix de cinq mille francs de la Vie heureuse avait été décerné à notre collaborateur M. Romain
 Rolland pour son Jean-Christophe. Là-dessus quelques À
 langues ont commencé de marcher. Je ne veux point
 me mêler à ces commentaires. Je suis de ceux qui;
@@ -477,25 +468,17 @@ quatre autres Académies nationales, et des Académies
 privées, comme est l'académie Goncourt, et de toutes
 les autres institutions et fondations publiques et privées
 similaires. Il ne s'agit point de discuter en l'air et
-priori. Toutes ces institutions se valent. Nulle discrimi-
-
-nation nese peut introduire parmi elles en théorie. Mais
+priori. Toutes ces institutions se valent. Nulle discrimination nese peut introduire parmi elles en théorie. Mais
 
 c'est en fait, a posteriori, par leurs choix mêmes, que de
 
 telles institutions se justifient, se légitiment, se distin-
 
-ê guent. Celle qui fait les meilleurs choix est par défini-
+ê guent. Celle qui fait les meilleurs choix est par définition celle qui est la meilleure, étant celle qui est la plus
 
-tion celle qui est la meilleure, étant celle qui est la plus
+intelligente. Et la plus courageuse. Et le prix le meilleur et le plus honorable est celui qui est le mieux
 
-intelligente. Et la plus courageuse. Et le prix le meil-
-
-leur et le plus honorable est celui qui est le mieux
-
-donné, qui tombe le mieux. Pour moi je sais particu-
-
-lièrement gré à des personnes que je ne connaissais
+donné, qui tombe le mieux. Pour moi je sais particulièrement gré à des personnes que je ne connaissais
 
 1 point personnellement d'avoir d'elles-mêmes pensé à
 lire ces cahiers de notre collaborateur.
@@ -525,8 +508,7 @@ pas été donné à beaucoup de secondaires, et ce qui m'a
 précisément dispensé, dans ces derniers temps, de
 tomber après tant d'autres dans cette démagogie pri- …
 maire, — et un plein semestre à l'école primaire supé- me
-rieure. J'avais écrit: tu nous as fourni. Les composi-
-teurs ont composé: nous a fourni.
+rieure. J'avais écrit: tu nous as fourni. Les compositeurs ont composé: nous a fourni.
 Peut-être ont-ils pensé que c'était encore un moyen De;
 d'assurer encore un peu plus le célèbre serré du texte.
 Et puis il paraît que c'est le métier des compositeurs de
@@ -568,9 +550,7 @@ tomber sur la dite virgule.
 
 Et ce qu'il y a de plus fort, c'est que la même faute,
 tu nous a fourni, exactement dans les mêmes conditions,
-a été commise même cahier, page 39, dans le recom-
-
-mencement définitif du même texte. De la part de celui
+a été commise même cahier, page 39, dans le recommencement définitif du même texte. De la part de celui
 ou de ceux qui l'ont faite, c'est ce que l'on ne saurait
 nier avoir été un peu de cette constance qui fait tant
 

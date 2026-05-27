@@ -12,8 +12,7 @@ wordCount: 39348
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un si
-grand nombre de documents, de textes formant dos-
-siers, de renseignements et de commentaires; — un
+grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un
 si grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — "un
 si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes,
@@ -28,8 +27,7 @@ sommaire, 1900-1904, de nos cinq premières séries.
 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il sufjit de le Lire pour trouver, à leur « « place, les références demandées. à
 
 Ce catalogue, grand jésus, forme un cahier
@@ -69,13 +67,12 @@ Tee du cahier lui-même, dans la série ainsi
 déterminée, en chiffres arabes, de sorte
 n. ‘que par exemple doit évidemment se
 FAUN lire dix-septième cahier de la cinquième td,
-3 RER faut, la date du fini d'imprimer, ou, à son. PE.
+RER faut, la date du fini d'imprimer, ou, à son. PE.
 
 De. défaut, la date du cahier même;.
 ù_., c)le prix actuel; es
 quand il y a lieu, c'est-à-dire pour nos
-‘NU éditions antérieures et pour nos cinq pre-
-mières séries, la page du catalogue ana- QU.
+‘NU éditions antérieures et pour nos cinq premières séries, la page du catalogue ana- QU.
 lytique sommaire où ce cahier se trouve
 pas (TE catalogué.
 Romain Rolland, — Aërt, — trois actes, — premier août
@@ -83,9 +80,7 @@ Romain Rolland, — Aërt, — trois actes, — premier août
 Ati un volume en voie d'épuisement.. sept francs 2 ‘ia
 — le Triomphe de la Raison, — trois actes, — 20 oc- te
 0 _tobre 1899, un volume en voie d'épuisement..............
-un cahier épuisé, n'est plus mis en vente que dans les col-
-
-lections complètes de la deuxième série............... 99 3444
+un cahier épuisé, n'est plus mis en vente que dans les collections complètes de la deuxième série............... 99 3444
 
 Romain Rolland, — une introduction à une lettre inédite
 de Tolstoi, adressée à Romain Rolland (Il-9, samedi
@@ -132,8 +127,7 @@ cahiers ne seront pas réimprimés; aussitôt qu'ils seront
 venus en voie d'épuisement, ce qui ne saurait plus tarder, nous les porterons au prix de douze francs l'un
 Jusqu'à leur entier épuisement; à dater du jour où ils
 seront complètement épuisés, ils ne seront plus mis en
-vente que dans nos collections complètes de nos cinquième et sixième séries, jusqu'à ce que ces séries ellesmêmes viennent en voie d'épuisement puis soient complè-
-tement épuisées. Alors ils ne seront forcément plus mis
+vente que dans nos collections complètes de nos cinquième et sixième séries, jusqu'à ce que ces séries ellesmêmes viennent en voie d'épuisement puis soient complètement épuisées. Alors ils ne seront forcément plus mis
 en vente du tout.:
 
 quatrième cahier de la huitième série
@@ -155,8 +149,7 @@ cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 cinquième arrondissement. On recevra par le retour
 du courrier les trois cahiers indiqués ci-dessus;
 
-Pou Pre atre premiers livres de Jean-Chris-
-tophe, il suffit d'envoyer un mandat de dix-neuf francs
+Pou Pre atre premiers livres de Jean-Christophe, il suffit d'envoyer un mandat de dix-neuf francs
 cinq nante à M. André Bourgeois, même titre, même
 adresse. On recevra par le retour du courrier: +718
 les trois cahiers indiqués ci-dessus formant lestrois
@@ -218,8 +211,7 @@ bras de son fils, mouillé de neige qui fondait; et
 Il monta dans sa chambre, quatre à quatre. Il pouvait à peine se voir dans sa petite glace, tant le jour
 était sombre, Mais son cœur jubilait. Sa chambre
 étroite et basse, où il avait peine à remuer, lui semblait
-un royaume. Il ferma la porte à clef, et rit de contente-
-ment. Enfin, il allait se retrouver soi-même! Depuis
+un royaume. Il ferma la porte à clef, et rit de contentement. Enfin, il allait se retrouver soi-même! Depuis
 A combien de temps s'était-il perdu! avait hâte de se
 ns. plonger dans sa pensée, comme un baïgneur dans eau.
 à Elle lui apparaissait comme an grand lac qui se fondait
@@ -267,8 +259,7 @@ n'écoutant guère. Bien qu'elle fût fière de son fils, elle AS.
 ; n'attachait pas grande importance à ses projets
 artistiques; elle pensait: « Il est heureux: c'est l'essen-
 à tiel. » — Tout en se grisant de ses discours, il regardait
-la chère figure de sa mère, avec son fichu noir sévère-
-ment serré autour de la tête, ses cheveux blanes, ses
+la chère figure de sa mère, avec son fichu noir sévèrement serré autour de la tête, ses cheveux blanes, ses
 yeux jeunes qui le couvaient d'amour, son beau calme
 indulgent. Il lisait toutes ses pensées en elle. Il lui dit,
 à — Cela vest bien égal, hein? tout ce que je te
@@ -324,8 +315,7 @@ juif, où étaient empilés dans la même chambre des LA
 
 objets rares, des étoffes précieuses, des ferrailles, des
 4 _guenilles. Il ne savait pas distinguer ce qui avait le plus
-Se de prix: tout l'amusait également. C'étaient des frôle-
-ments d'accords, des couleurs qui sonnaient comme des
+Se de prix: tout l'amusait également. C'étaient des frôlements d'accords, des couleurs qui sonnaient comme des
 cloches, des harmonies qui bourdonnaient comme des
 4 abeïlles, des mélodies souriantes comme des lèvres
 amoureuses. C'étaient des visions de paysages, des
@@ -351,8 +341,7 @@ Il les tournait et les retournait; il les rejetait, il les reprenait. Non, il ne
 les mêmes, ils ne se laissaient pas attraper deux fois;
 constamment, ils changeaient; ils changeaïent dans
 ses mains, sous ses yeux, tandis qu'il les regardait. Il
-fallait se hâter; et il ne le pouvait point: il était con-
-fondu par sa lenteur au travail. Il eût voulu tout faire
+fallait se hâter; et il ne le pouvait point: il était confondu par sa lenteur au travail. Il eût voulu tout faire
 en un jour, et il avait une difficulté terrible à exécuter
 le moindre ouvrage. Le pire était qu'il s'en dégoûtait,
 quand il était encore au commencement. Ses rêves
@@ -360,8 +349,7 @@ passaient, et il passait lui-même; tandis qu'il faisait
 une chose, il regrettait de n'en pas faire une autre. Il
 semblait qu'il lui suffit d'avoir fait choix d'un deses
 beaux sujets, pour que le beau sujet ne l'intéressât plus.
-Ainsi, toutes ses richesses lui étaient inutiles. Ses pensées n'étaient vivantes qu'à la condition qu'il n'y tou-
-chât point: tout ce qu'il réussissait à atteindre était
+Ainsi, toutes ses richesses lui étaient inutiles. Ses pensées n'étaient vivantes qu'à la condition qu'il n'y touchât point: tout ce qu'il réussissait à atteindre était
 déjà mort. C'était le supplice de Tantale: à portée de
 sa main, des fruits qui devenaient pierre, aussitôt qu'il
 les prenait; près de ses lèvres, une eau fraîche, qui
@@ -373,9 +361,7 @@ sources qu'il avait conquises, à ses œuvres anciennes.
 .… La dégoûtante boisson! A la première gorgée, il la
 recracha en jurant. Quoi! cette eau tiède, cette musique insipide, c'était sa musique? — Il relut la suite
 de ses compositions. Cette lecture l'atterra: il n'y
-comprenait plus rien, il ne comprenait même plus com-
-
-ment il avait les écrire. Il rougissait. Une fois, il lui
+comprenait plus rien, il ne comprenait même plus comment il avait les écrire. Il rougissait. Une fois, il lui
 arriva, après une page plus niaise que les autres, de se
 retourner pour voir s'il n'y avait personne dans la
 chambre, et d'aller se cacher la figure dans son oreiller,
@@ -385,8 +371,7 @@ qu'elles étaient de lui.
 
 — Ah! l'idiot! criait-il, en se tordant de rire.
 
-Mais rien ne l'afiectait davantage que les composi-
-tions où il avait prétendu exprimer des sentiments
+Mais rien ne l'afiectait davantage que les compositions où il avait prétendu exprimer des sentiments
 passionnés: chagrins ou joies d'amour. Il bondissait
 sur sa chaise, comme si une mouche l'avait piqué; il
 martelait la table à coups de poing, et se frappait la
@@ -400,18 +385,14 @@ le menton, et ïil disait:
 as! Je t'apprendrai à mentir, chenapan! A l'eau, monsieur, à l'eau! -
 
 Il s'enfonçait la figure dans sa cuvette, et il la maïintenait sous l'eau, jusqu'à ce qu'il étouffât. Quand il
-sortait de là, écarlate, les yeux hors de la tête, et souf-
-
-flant comme un phoque, il allait précipitamment à sa
-table, sans prendre la peine d'éponger l'eau qui ruisseEx lait en rigoles autour de lui; il saisissait les compo-
-sitions maudites, et il les déchirait avec rage, en
+sortait de là, écarlate, les yeux hors de la tête, et soufflant comme un phoque, il allait précipitamment à sa
+table, sans prendre la peine d'éponger l'eau qui ruisseEx lait en rigoles autour de lui; il saisissait les compositions maudites, et il les déchirait avec rage, en
 — Tiens, canaille!.. Tiens, tiens, tiens!.….
 Alors, il était soulagé.
 Ce qui l'exaspérait surtout dans ces œuvres, c'était
 leur mensonge. Rien de senti. Une phraséologie apprise
 par cœur, une rhétorique d'écolier: il parlait de l'amour,
-comme un aveugle des couleurs; il en parlait par ouï-
-dire, en répétant les niaiseries courantes. Et ce n'était
+comme un aveugle des couleurs; il en parlait par ouïdire, en répétant les niaiseries courantes. Et ce n'était
 pas seulement l'amour, c'étaient toutes les passions qui
 NE lui avaient servi de thèmes à des déclamations. — Pour-
 4 tant, il s'était toujours eflorcé d'être sincère. — Mais il
@@ -428,14 +409,13 @@ Le dégoût que lui inspirèrent ses compositions.
 anciennes, produites sans passion, fit qu'avec son exa-
 À gération accoutumée, il décida de ne plus rien écrire,
 qu'il ne fût contraint d'écrire par une nécessité pas-
-;! sionnée; et, laissant sa poursuite aux idées, il jura
+sionnée; et, laissant sa poursuite aux idées, il jura
 “ai de renoncer pour toujours à la musique, si la création
 ne s'imposail à lui, à coups de tonnerre,
 
 Il parlait ainsi, parce qu'il savait bien que l'orage
 Le tonnerre tombe où il veut, et quand il veut. Mais
-ily a des sommets qui l'attirent. Certains lieux — cer-
-taines âmes — sont des nids d'orages: ils les créent ou
+ily a des sommets qui l'attirent. Certains lieux — certaines âmes — sont des nids d'orages: ils les créent ou
 les. aspirent de tous les points de l'horizon; et, de
 même que certains mois de l'année, certains âges de la
 . vie sont si saturés d'électricité, que les coups de foudre ni.
@@ -450,8 +430,7 @@ sombres et chaudes passent; un vent de feu s'élève;
 les nerfs frémissent par tout le corps, comme des
 feuilles. Puis, le silence retombe. Le ciel continue de
 couver la foudre.
-Il y a à cette attente une angoisse voluptueuse. Mal-
-gré le malaise qui vous oppresse, on sent passer dans
+Il y a à cette attente une angoisse voluptueuse. Malgré le malaise qui vous oppresse, on sent passer dans
 ses veines le feu qui brûle l'univers. L'âme soûle à
 bouillonne dans la fournaise, comme le raisin dans la
 
@@ -469,8 +448,7 @@ de l'être. Masses épaisses d'un bleu noir, que déchirent
 É les saccades frénétiques des éclairs, ils s'avancent, d'un
 vol vertigineux et lourd, cernant l'horizon de l'âme, et
 brusquement rabattant leurs deux ailes sur le ciel
-à étoufté, éteignant la lumière. Heure de folie! Les Élé-
-ments exaspérés, déchaînés de la cage où les tiennent
+à étoufté, éteignant la lumière. Heure de folie! Les Éléments exaspérés, déchaînés de la cage où les tiennent
 1 enfermés les Lois qui assurent l'équilibre de l'esprit et
 l'existence des choses, règnent, informes et colossaux,
 dans la nuit de la conscience. On sent qu'on agonise.
@@ -500,8 +478,7 @@ bonheurs: il couronne un cadavre.
 
 ( Quand Christophe était frappé par le jet de lumière,
 
-4 ‘une décharge électrique lui parcourait le corps; il trem-
-blait de saisissement. C'était comme si, en pleine mer,
+4 ‘une décharge électrique lui parcourait le corps; il tremblait de saisissement. C'était comme si, en pleine mer,
 
 À en pleine nuit, il voyait tout à coup terre. Ou, c'était
 À comme si, passant au milieu d'une foule, il venait de
@@ -521,18 +498,14 @@ connaissait bien, et avait fini par savoir ce que cela À
 signifiait. Elle disait à Christophe qu'il était comme une
 0 poule qui vient de pondre un œuf.
 Il était percé de part en part par l'idée musicale. )
-Tantôt, elle avait la forme d'une phrase isolée et comA plète; plus fréquemment, d'une grande nébuleuse enve-
-loppant toute une œuvre: la structure du morceau, ses
-:; lignes générales se laissaient deviner au travers d'un
+Tantôt, elle avait la forme d'une phrase isolée et comA plète; plus fréquemment, d'une grande nébuleuse enveloppant toute une œuvre: la structure du morceau, ses
+lignes générales se laissaient deviner au travers d'un
 voile, que lacéraient par places des phrases éblouis-
-À santes, se détachant de l'ombre avec une netteté seulp-
-turale. Ce n'était qu'un éclair; parfois, il en venait
+À santes, se détachant de l'ombre avec une netteté seulpturale. Ce n'était qu'un éclair; parfois, il en venait
 
 À d'autres, coup sur coup: chacun illuminait d'autres [10
 coins de la nuit. Mais d'ordinaire, la force capricieuse,;
-- après s'être manifestée une fois, à l'improviste, dispa-
-raissait pour plusieurs jours dans ses retraites mysté-
-rieuses, en laissant derrière elle un sillon lumineux.
+- après s'être manifestée une fois, à l'improviste, disparaissait pour plusieurs jours dans ses retraites mystérieuses, en laissant derrière elle un sillon lumineux.
 Cette jouissance de l'inspiration était si vive, que
 Christophe prit le dégoût de tout le reste. L'artiste
 4 d'expérience sait bien que l'inspiration est rare, et que
@@ -554,8 +527,7 @@ oreilles, tout ce que heurtait son être dans sa vie quotidienne; chaque regard,
 l'âme des moissons de rêves. Dans le ciel sans bornes
 de sa pensée, il voyait couler des millions d'étoiles laiteuses, des rivières de vivantes lueurs. — Et pourtant, » même alors, il y avait des moments où tout s'éteignait
 d'un coup. Et bien que la nuit ne durât point, bien qu'il
-n'eût guère le temps de souffrir encore des silences pro-
-longés de l'âme, il n'était pas sans un secret effroi de
+n'eût guère le temps de souffrir encore des silences prolongés de l'âme, il n'était pas sans un secret effroi de
 cette puissance inconnue, qui venait le visiter, le quit-
 
 À tait, revenait, disparaissait… pour combien de temps,
@@ -574,9 +546,7 @@ Toutefois, s'il n'y avait aucun danger, pour l'instant,
 que la source tarît, Christophe pouvait se rendre compte
 déjà que jamais elle ne suflisait à alimenter une œuvre
 
-tout entière. Les idées se présentaient presque tou-
-
-jours à l'état brut: il fallait les dégager péniblement de
+tout entière. Les idées se présentaient presque toujours à l'état brut: il fallait les dégager péniblement de
 la gangue. Et toujours elles se présentaient sans suite,
 
 par bonds et par saccades; pour les relier entre elles,
@@ -588,16 +558,12 @@ modèle intérieur, quand il était toujours forcé de le
 transformer plus ou moins pour le rendre intelligible.
 — Bien plus: il arrivait qu'il en faussât entièrement le
 
-1 sens. Avec quelque violence que le frappât l'idée musi-
-
-cale, il lui eût été impossible souvent de dire ce qu'elle
+1 sens. Avec quelque violence que le frappât l'idée musicale, il lui eût été impossible souvent de dire ce qu'elle
 signifiait. Elle faisait irruption des souterrains de l'Être,
 bien au delà des frontières où commence la conscience;
 et, dans cette Force toute pure, qui échappait aux
 
-mesures communes, la conscience ne parvenait à recon-
-
-naître aucune des préoccupations qui l'agitaient, aucun
+mesures communes, la conscience ne parvenait à reconnaître aucune des préoccupations qui l'agitaient, aucun
 
 des sentiments humains qu'elle définit et qu'elle classe:
 
@@ -650,8 +616,7 @@ F. quelques génies qui peuvent s'en dégager, à la suite de
 
 crises héroïques, où ils se trouvent seuls, dans le libre
 Que univers de leur pensée.
-Ce fut une occasion insignifiante qui révéla brusque-
-ment à Christophe le mensonge de l'art allemand. S'il
+Ce fut une occasion insignifiante qui révéla brusquement à Christophe le mensonge de l'art allemand. S'il
 ne l'avait point jusque-là, ce n'était pas faute de
 l'avoir toujours sous les yeux; mais il en était trop “1
 près, il manquait de recul. Maintenant, la montagne lui “10
@@ -718,9 +683,7 @@ pleins de sensibilité. Ils étaient quarante qui chantaient
 
 comme quatre; on eût dit qu'ils se fussent appliqués à
 
-; effacer de leur exécution toute trace de style propre-
-
-ment choral: c'était une recherche de petits effets
+; effacer de leur exécution toute trace de style proprement choral: c'était une recherche de petits effets
 
 mélodiques, de petites nuances timides et pleurardes,
 
@@ -749,9 +712,7 @@ d'Egmont, dont le désordre pompeux et la correcte
 à agitation le blessait, en cet instant, comme un manque
 de franchise. Sans doute, ce n'était pas Beethoven ni
 
-Schumann qu'il entendait, c'étaient leurs ridicules inter-
-
-prèles, c'était leur public ruminant, dont l'épaisse sottise se répandait autour des œuvres, comme ure lourde
+Schumann qu'il entendait, c'étaient leurs ridicules interprèles, c'était leur public ruminant, dont l'épaisse sottise se répandait autour des œuvres, comme ure lourde
 
 KL: buée, — N'importe! Il y avait dans les œuvres, même
 
@@ -761,9 +722,7 @@ Christophe n'y avait encore jamais senti, — Quoi done?
 
 Il n'osait l'analvser, estimant sacrilège de discuter
 
-+4 ses maîtres bien-aimés, Mais il avait beau ne pas vou-
-
-loir voir: il avait vu. Et, malgré lui, il continuait de
++4 ses maîtres bien-aimés, Mais il avait beau ne pas vouloir voir: il avait vu. Et, malgré lui, il continuait de
 
 . voir; comme la Vergognosa de Pise, il regardait entre
 !. ses doigts.
@@ -780,10 +739,8 @@ Mendelssohn, d'un Brahms, d'un Schumann, et, à leur
 ; suite, de toute cette légion de petits auteurs de Lieder
 . emphatiques et pleurnicheurs! Toute en sable. Point
 - de roc. Une glaise humide et informe. — Tout cela était
-si niais et si enfantin, souvent, que Christophe ne pouvait croire que le public n'en fût pas frappé. Il regar-
-dait autour de lui; mais il ne vit que des figures béates,
-convaincues à l'avance de la beauté de ce qu'ils entendaient et du plaisir qu'ils devaient y prendre. Com-
-ment se fussent-ils permis de juger par eux-mêmes? Ils
+si niais et si enfantin, souvent, que Christophe ne pouvait croire que le public n'en fût pas frappé. Il regardait autour de lui; mais il ne vit que des figures béates,
+convaincues à l'avance de la beauté de ce qu'ils entendaient et du plaisir qu'ils devaient y prendre. Comment se fussent-ils permis de juger par eux-mêmes? Ils
 étaient pleins de respect pour ces noms consacrés.
 Que ne respectaient-ils point? Ils étaient respectueux
 devant leur programme, devant leur verre à boire,!
@@ -791,10 +748,9 @@ devant leur programme, devant leur verre à boire,!
 donnaient de « l'Excellence » à tout ce qui, de près ou
 de loin, se rapportait à eux.
 Christophe considérait alternativement le public et les:
-. œuvres: les œuvres reflétaient le public, le public reflé-
-tait les œuvres, comme une boule de jardin. Christophe
+. œuvres: les œuvres reflétaient le public, le public reflétait les œuvres, comme une boule de jardin. Christophe
 sentait le rire le gagner, et il faisait des grimaces. Il se
-contenait pourtant. Mais quand « les hommes du Sud »:
+contenait pourtant. Mais quand « les hommes du Sud
 
 vinrent chanter avec solennité l'Aveu rougiss ant d'une
 14 jeune fille amoureuse, Ghristophe n'y tint plus. un écla ANR)
@@ -808,9 +764,7 @@ entré Christophe et sa ville.
 
 A la suite de cette épreuve, Christophe, rentré chez
 
-lui, s'avisa de relire les œuvres des musiciens « consa-
-
-crés ». Il fut consterné, en s'apercevant que certains
+lui, s'avisa de relire les œuvres des musiciens « consacrés ». Il fut consterné, en s'apercevant que certains
 
 des maîtres qu'il aimait le mieux avaient menti. Il
 
@@ -856,9 +810,7 @@ Dès les premiers regards, il vit qu'elles n'étaient pas
 
 plus immaculées que les autres. Il n'eut pas le courage
 
-de continuer. À certains moments, il s'arrêtait, il fer-
-
-mait le livre; comme le fils de Noé, il jetait le manteau
+de continuer. À certains moments, il s'arrêtait, il fermait le livre; comme le fils de Noé, il jetait le manteau
 sur la nudité de son père...
 
 Il était, après, abattu, au milieu de ces ruines. Il eût
@@ -875,9 +827,7 @@ la griserie de sa force neuve, il sentait — non sans
 raison, peut-être — qu'à peu d'exceptions près, il n'y a
 presque aucun rapport entre les passions vivantes et
 
-. l'expression que l'art s'est évertué, jusqu'ici, à en don-
-
-ner. Maïs il se trompait en pensant que lui-même était
+. l'expression que l'art s'est évertué, jusqu'ici, à en donner. Maïs il se trompait en pensant que lui-même était
 
 plus heureux ou plus vrai, quand il les exprimait,
 
@@ -910,15 +860,13 @@ les demi-dieux, les Prophètes, les Pères de l'Église,
 métaient pas épargnés. Même le grand Sébastien,
 l'homme deux ou trois fois séculaire, qui portait en lui
 le passé et l'avenir, — Bach, — n'était pas pur de tout
-mensonge, de toute niaiserie de la mode, de tout bavar-
-dage d'école. Cet homme qui avait Dieu, cet homme
+mensonge, de toute niaiserie de la mode, de tout bavardage d'école. Cet homme qui avait Dieu, cet homme
 qui vivait en Dieu semblait parfois à Christophe d'une
 religion insipide et sucrée, style jésuite, rococo. Il y
 avait dans ses cantates des airs de langueur amoureuse
 et dévote — (des dialogues de l'Ame qui coquette avec
 Jésus) — qui écœuraient Christophe: il croyait voir des
-chérubins joufflus, avec des ronds de jambe et des dra-
-peries qui s'envolent. Puis, il avait le sentiment que le
+chérubins joufflus, avec des ronds de jambe et des draperies qui s'envolent. Puis, il avait le sentiment que le
 . génial Cantor écrivait toujours dans sa chambre close:
 cela sentait le renfermé; il n'y avait pas dans sa
 . musique cet air fort du dehors qui souffle chez d'autres,
@@ -967,8 +915,7 @@ Ce faux idéalisme était la plaie, même des plus grands,
 grinçait des dents. Lohengrin lui paraissait d'un mensonge à hurler. Il haïssait cette chevalerie de pacotille,
 cette bondieuserie hypocrite, ce héros sans peur et sans
 cœur, incarnation d'une vertu égoiste et froide qui
-s'admire et qui s'aime avec prédilection. Il le connaissait trop, il l'avait dans la réalité, ce type du phax risien allemand, bellâtre, impeccable et dur, en adora-
-tion devant sa propre image à la divinité de laquelle il
+s'admire et qui s'aime avec prédilection. Il le connaissait trop, il l'avait dans la réalité, ce type du phax risien allemand, bellâtre, impeccable et dur, en adoration devant sa propre image à la divinité de laquelle il
 n'a point de peine à sacrifier les autres. Le Hollandais
 Volant l'accablait de sa sentimentalité massive et de
 son morne ennui. Les barbares décadents de la Tétralogie étaient, en amour, d'une fadeurs écœurante.
@@ -986,16 +933,14 @@ instant; pour qu'ils le fussent, il fallait qu'ils voulussent
 ù de petites filles mystiques et gnangnan,
 Et Christophe avait beau faire: dès qu'il entendait
 cette musique, il était repris, comme les autres, plus
-; que les autres, par le torrent, et par la volonté diabo-
-lique de l'homme qui l'avait déchaîné. Il riait, et il
+; que les autres, par le torrent, et par la volonté diabolique de l'homme qui l'avait déchaîné. Il riait, et il
 tremblait, et il avait les joues allumées; il sentait
 passer en lui des chevauchées d'armées; et il pensait
 que tout était permis et qu'il fallait tout passer à ceux
 qui portaient en eux ces ouragans. Quels cris de joie il
 poussait quand, dans les œuvres sacrées qu'il ne feuilletait plus qu'en tremblant, il retrouvait son émotion À
 d'autrefois, toujours aussi ardente, sans que rien vint
-ternir la pureté de ce qu'il aimait! C'étaient de glo-
-rieuses épaves qu'il sauvait du naufrage. Quel bonheur;
+ternir la pureté de ce qu'il aimait! C'étaient de glorieuses épaves qu'il sauvait du naufrage. Quel bonheur;
 il en avait! Il lui semblait qu'il sauvait une partie de;
 lui-même. Et n'était-ce point lui-même? Ces grands
 : Allemands, contre lesquels il s'acharnait, n'étaient-ils
@@ -1024,8 +969,7 @@ avait reçues. Plus tard, plus tard, il devait sentir tout
 ce qu'il lui devait, et combien elle lui était chère...
 Mais il était dans une période de réaction aveugle
 contre toutes les idoles de son enfance, Il s'en voulait
-et il leur en voulait d'avoir cru en elles avec un aban-
-don passionné. — Et il était bien qu'il en fût ainsi, Il y
+et il leur en voulait d'avoir cru en elles avec un abandon passionné. — Et il était bien qu'il en fût ainsi, Il y
 a un âge de la vie, où il faut oser être injuste, où il faut
 oser faire table rase de toutes les admirations et de
 tous les respects appris, et tout nier — mensonges et
@@ -1041,9 +985,7 @@ Son instinct le poussait à éliminer de son être tous les
 
 Avant tout, cette écœurante sensibilité, qui dégouttait
 
-de toute l'âme allemande comme d'un souterrain hu-
-
-mide et sentant le moisi. De la lumière! De la lumière!
+de toute l'âme allemande comme d'un souterrain humide et sentant le moisi. De la lumière! De la lumière!
 Un air rude et sec, qui balayât les miasmes du marais,
 
 les fades relents de ces Lieder, de ces Liedchen, de ces
@@ -1099,8 +1041,7 @@ homme, comme elles sont. — Partout, la même timi-:
 dité, le même manque de franchise virile. Partout, le
 même enthousiasme à froid, la même solennité pom-
 
-4 peuse et mensongère, dans le patriotisme, dans la bois-
-son, dans la religion. Les Trinklieder (chants à boire)
+4 peuse et mensongère, dans le patriotisme, dans la boisson, dans la religion. Les Trinklieder (chants à boire)
 4 étaient des prosopopées au vin ou à la coupe: « Du
 herrlich Glas.…. » Toi, noble verre... La foi — la à
 
@@ -1118,10 +1059,8 @@ franche. — Au fond, il était plus idéaliste que les autres,
 et il n'avait pas — il ne devait pas avoir — de plus réels »
 ennemis que ces réalistes brutaux, qu'il croyait préférer.
 Il était aveuglé par sa passion. Il se sentait glacé par
-le brouillard, le mensonge anémique, « les Idées-
-fantômes sans soleil ». Il aspirait au soleil de toutes
-les forces de son être. Il ne voyait pas, dans son mé-
-pris juvénile pour l'hypocrisie qui l'entourait, ou pour
+le brouillard, le mensonge anémique, « les Idéesfantômes sans soleil ». Il aspirait au soleil de toutes
+les forces de son être. Il ne voyait pas, dans son mépris juvénile pour l'hypocrisie qui l'entourait, ou pour
 ! ce qu'il nommait tel, la haute sagesse pratique de la
 : race, qui s'élait bâti peu à peu son grandiose idéalisme,
 à pour dompter ses instincts sauvages, ou pour en tirer
@@ -1143,15 +1082,13 @@ faut de longs et pénibles efforts; rien n'est plus difficile.
 que d'être tout à fait vrai dans la société moderne,
 avec l'héritage écrasant d'habitudes paresseuses, transmis par les générations. Cela est surtout difficile pour
 les gens, ou les peuples, qui ont la manie indiscrète de
-laisser parler leur cœur — de le faire parler — sans re-
-pos, quand il n'aurait rien de mieux à faire, le plus
+laisser parler leur cœur — de le faire parler — sans repos, quand il n'aurait rien de mieux à faire, le plus
 Le cœur de Christophe était bien allemand, en cela: ni.
 il n'avait pas encore appris la vertu de se taire;
 d'ailleurs, elle n'était pas de son âge. Il tenait de son
 père le besoin de parler, et de parler bruyamment,
 Ilen avait conscience, et il luttait contre; mais cette
-lutte paralysait une partie de ses forces, — Il en sou-
-tenait une autre contre l'hérédité non moins fâcheuse
+lutte paralysait une partie de ses forces, — Il en soutenait une autre contre l'hérédité non moins fâcheuse
 qu'il tenait de son grand père: une difficulté extrême
 à s'exprimer exactement. — Il était fils de virtuose.
 
@@ -1167,18 +1104,15 @@ de son génie, alourdi par le fardeau d'un passé parasite, qui s'incrustait à 
 se défaire, il avançait en trébuchant, et il était beaucoup plus près qu'il ne pensait de tout ce qu'il proscrivait. Toutes ses œuvres d'alors étaient un mélange
 de vérité et de boursouflure, de vigueur lucide et de
 bêtise bredouillante. Ce n'était que par instants que sa
-. personnalité arrivait à percer l'enveloppe de ces per-
-sonnalités mortes qui ligotaient tous ses mouvements.
+. personnalité arrivait à percer l'enveloppe de ces personnalités mortes qui ligotaient tous ses mouvements.
 Il était seul. Il n'avait aucun guide qui l'aïdât à sortir
 du bourbier. Quand il se croyait dehors, il s'y enfonçait
 de plus belle. Il allait à l'aveuglette, gaspillant son
-temps et ses forces en essais malheureux. Nulle expé-
-rience ne lui était épargnée; et, dans le désordre de
+temps et ses forces en essais malheureux. Nulle expérience ne lui était épargnée; et, dans le désordre de
 cette agitation créatrice, il ne se rendait pas compte de
 ce qui valait le mieux parmi tout ce qu'il créait. Il
 s'empêtrait dans des projets absurdes, des poèmes
-symphoniques, qui avaient des prétentions philoso-
-phiques et des dimensions monstrueuses. Son esprit
+symphoniques, qui avaient des prétentions philosophiques et des dimensions monstrueuses. Son esprit
 était trop sincère pour pouvoir s'y lier longtemps; et il
 4 les abandonnait avec dégoût, avant d'en avoir esquissé
 une seule partie, Ou bien, il prétendait traduire dans
@@ -1188,8 +1122,7 @@ poésie. Alors, il pataugeait dans un domaine qui n'était
 pas le sien. Quand il se traçait lui-même ses scénarios, —
 (car il ne doutait de rien), — c'étaient de pures âneries;
 et quand il s'attaquait aux grandes œuvres de Gœthe,
-de Kleist, de Hebel, ou de Shakespeare; il les comprenait tout de travers. Ce n'était pas manque ‘“d'intelli-
-gence;, mais manque d'esprit critique; il ne savait pas
+de Kleist, de Hebel, ou de Shakespeare; il les comprenait tout de travers. Ce n'était pas manque ‘“d'intelligence;, mais manque d'esprit critique; il ne savait pas
 encore comprendre les autres, il était trop préoccupé
 de lui-même: c'était lui-même qu'il retrouvait partout,
 avec son âme naïve et boursouflée.
@@ -1251,8 +1184,7 @@ vertu. Vivre, vivre trop!.. Qui ne sent point en lui cette ‘Al
 ivresse de la force, cette jubilation de vivre, — füt-ce
 au fond du malheur, — n'est pas un artiste. C'est la à
 pierre de touche. La vraie grandeur se reconnaît au
-pouvoir de jubiler, dans la joie et la peine. Un Mendels-
-sobhn ou un Brahms, dieux des brouillards d'octobre et
+pouvoir de jubiler, dans la joie et la peine. Un Mendelssobhn ou un Brahms, dieux des brouillards d'octobre et
 de la petite pluie, n'ont jamais connu ce pouvoir divin.
 Christophe le sentait en lui; et il faisait montre de sa
 joie, avec une naïveté imprudente. Il n'y voyait point
@@ -1331,9 +1263,8 @@ vénérés; il avait, disait-on, appelé l'Elias de Mendels-
 . sohn« des patenôtres de clergyman hypocrite et traité
 
 certains Lieder de Schumann de « musique de Back-
-Jisch »: — et cela, quand les augustes princes venaient
-d'affirmer leurs préférences pour ces œuvres! Le grand-
-duc avait mis fin à ces impertinences, en disant sèche
+Jisch — et cela, quand les augustes princes venaient
+d'affirmer leurs préférences pour ces œuvres! Le grandduc avait mis fin à ces impertinences, en disant sèche
 — On douterait parfois, Monsieur, à vous entendre,
 que vous soyez Allemand.
 Ce. mot vengeur, tombé de si haut, ne manqua
@@ -1462,29 +1393,23 @@ avait l'honneur d'interpréter les Lieder de Maître
 se lassait point de les lui entendre dire.
 — Tant pis! Tant pis! cria Christophe.
 Elle lui demanda, avec un sourire hautain, de vouloir
-bien lui expliquer le sens de cette exclamation énigma-
-tique. Il répondit que Brahms n'ayant jamais su, de sa
+bien lui expliquer le sens de cette exclamation énigmatique. Il répondit que Brahms n'ayant jamais su, de sa
 vie, ce que c'était que le naturel, ses éloges étaient les
 pires de tous les blâmes, et que bien que lui — Christophe — fût très peu poli parfois, ainsi qu'elle l'avait
 fait justement remarquer, jamais il ne se fût permis de
 lui dire quelque chose d'aussi désobligeant.
-La discussion continua sur ce ton; et la dame s'obs-
-tina à chanter à sa façon, avec un pathétique écrasant
+La discussion continua sur ce ton; et la dame s'obstina à chanter à sa façon, avec un pathétique écrasant
 et des effets de mélodrame, — jusqu'au jour où Christophe déclara froidement qu'il le voyait bien: telle
 était sa nature, on n'y pouvait rien changer; mais
 puisque les Lieder ne pouvaient être chantés comme ils
 devaient l'être, ils ne seraient pas chantés du tout: il
 les retirait du programme. — On était à la veille du:
 concert, on comptait sur ces Lieder: elle-même en avait
-parlé; elle était assez musicienne pour en avoir appré-
-cié certaines qualités; Christophe lui faisait un affront
-et comme elle n'était pas sûre que le concert du lende-
-main ne consacrerait point la renommée de Christophe,
+parlé; elle était assez musicienne pour en avoir apprécié certaines qualités; Christophe lui faisait un affront
+et comme elle n'était pas sûre que le concert du lendemain ne consacrerait point la renommée de Christophe,
 elle ne voulait pas se brouiller avec un astre naissant. À
 
-Elle plia donc soudain; et, pendant la dernière répé-
-tition, elle se soumit docilement à tout ce que Chris-
-tophe voulut d'elle. Mais elle était bien décidée, — au
+Elle plia donc soudain; et, pendant la dernière répétition, elle se soumit docilement à tout ce que Christophe voulut d'elle. Mais elle était bien décidée, — au
 concert, — à n'en faire qu'à sa tête.
 Le jour vint. Christophe n'avait aucune inquiétude.
 Il était trop plein de sa musique pour pouvoir la juger.
@@ -1495,8 +1420,7 @@ aller au fond des choses, il faut braver le respect
 humain, la politesse, la pudeur, le souci des mensonges
 sociaux, sous qui le cœur gît étouffé. Si l'on veut
 r'effaroucher personne et atteindre au succès, il faut se
-résigner, toute sa vie, à rester dans une moyenne convenue et ne donner aux médiocres que la vérité mé-
-diocre, mitigée, diluée, qu'ils sont capables d'assimiler;
+résigner, toute sa vie, à rester dans une moyenne convenue et ne donner aux médiocres que la vérité médiocre, mitigée, diluée, qu'ils sont capables d'assimiler;
 il faut demeurer en deçà de la vie. On n'est grand que
 quand on a mis sous ses pieds cette inquiétude. Christophe marchait dessus. On pouvait bien le siffler: il
 était sûr de ne pas laisser indifférent. Il s'amusait des
@@ -1510,8 +1434,7 @@ comme le Rhin!
 Il eut une première déconvenue, Le grand-duc ne vint
 
 ait Jean-Christophe ML:
-pas. La loge princière ne fut occupée que'par des com-
-parses: quelques dames d'honneur. Christophe en ressentit une sourde irritation. Il pensa: « Cet imbécile
+pas. La loge princière ne fut occupée que'par des comparses: quelques dames d'honneur. Christophe en ressentit une sourde irritation. Il pensa: « Cet imbécile
 me boude. Il ne sait que penser de mes œuvres: il a
 peur de se compromettre. » Il haussa les épaules,
 feignant de ne pas se soucier d'une pareille niaiserie.
@@ -1546,8 +1469,7 @@ Rien. Sommeil complet. Néant, On sentait que chaque
 phrase s'enfonçait dans des goufires d'indifférence.
 Christophe, le dos tourné au public, occupé de son
 
-orchestre; n'en percevait pas moins tout ce qui se pas-
-sait dans la salle, avec ces antennes intérieures, dont
+orchestre; n'en percevait pas moins tout ce qui se passait dans la salle, avec ces antennes intérieures, dont
 tout vrai musicien est doué, et qui lui permettent de
 percevoir si ce qu'il joue trouve de l'écho au fond des
 cœurs qui l'entourent. Il continuait de battre la
@@ -1585,8 +1507,7 @@ n'osait regarder ni à droite, ni à gauche. Il avait envie
 de pleurer; et, en même temps, il frémissait de colère.
 Il eût voulu se lever et leur crier à tous: « Vous nennuyez! Ah! comme vous m'ennuyez! Je n'en peux.
 plus! Allez-vous en! Allez-vous en, tous! »
-Le public se réveillait un peu: il attendait la chan-
-teuse, — il était accoutumé à l'applaudir. Dans cet
+Le public se réveillait un peu: il attendait la chanteuse, — il était accoutumé à l'applaudir. Dans cet
 océan d'œuvres nouvelles, où il errait sans boussole,
 elle au moins lui était une certitude, une terre connue
 et solide, où il ne risquait pas de se perdre. Christophe
@@ -1598,8 +1519,7 @@ de paraître. Ils se dévisagèrent avec hostilité, Au lieu
 de lui offrir le bras, Christophe enfonça ses mains dans
 ses poches, et la laissa entrer seule. Elle passa, furieuse
 et décontenancée. Il la suivait, d'un air ennuyé, Aussitôt
-qu'elle parut, la salle lui fit une ovation: c'était un sou-
-lagement pour tous; les visages s'éclairaient, le public
+qu'elle parut, la salle lui fit une ovation: c'était un soulagement pour tous; les visages s'éclairaient, le public
 s'animait, toutes les lorgnettes étaient en joue. Sûre de
 son pouvoir, elle attaqua les Lieder, à sa manière, bien
 entendu, et sans tenir aucun compte des observations
@@ -1660,8 +1580,7 @@ Elle ne s'aperçut pas de cette nouvelle insolence; elle
 sortit précipitamment, s'enferma dans sa loge; et là,
 pendant un quart d'heure, elle se soulagea le cœur du
 flot de rancune et de rage qui s'y était accumulé: crise
-de nerfs, déluge de larmes, invectives indignées, impré-
-cations contre Christophe, — rien n'y manqua. On
+de nerfs, déluge de larmes, invectives indignées, imprécations contre Christophe, — rien n'y manqua. On
 entendait ses cris de fureur à travers la porte fermée.
 Ceux de ses amis qui réussirent à entrer racontèrent
 partout, en sortant, que Christophe s'était conduit
@@ -1678,8 +1597,7 @@ ce fut la fin du concert.
 
 On se doute bien que le grand-duc et tout le monde
 
-de la cour, — cette petite ville de province, canca-
-nière et ennuyée, — ne perdirent aucun détail de ce qui
+de la cour, — cette petite ville de province, cancanière et ennuyée, — ne perdirent aucun détail de ce qui
 s'était passé. Les journaux amis de la cantatrice ne
 firent pas d'allusion à l'incident; mais ils furent tous
 d'accord pour exalter l'art de la chanteuse, en se contentant de mentionner, à titre de renseignement, les Lieder
@@ -1712,8 +1630,7 @@ déplussent. Elles étaient insuffisamment mûries. Elles
 étaient, en second lieu, trop avancées pour être comprises, du premier coup. Et enfin, on était trop heureux
 de donner une leçon à l'impertinent jeune homme.
 Mais Christophe n'avait pas l'esprit assez rassis pour
-admettre la légitimité de sa défaite. Il lui mañquaïit sur-
-tout la sérénité que donne au vrai artiste l'expérience
+admettre la légitimité de sa défaite. Il lui mañquaïit surtout la sérénité que donne au vrai artiste l'expérience
 douloureuse d'une longue incompréhension des hommes
 et de leur incurable bêtise. Sa naïve confiance dans le
 public et dans le. succès, qu'il croyait bonnement
@@ -1763,9 +1680,7 @@ quand elle est recouverte de la crasse des ans.
 
 - comprit pas quand il était présent, et qu'on le comprit
 
-… quand il était passé. Il préférait croire qu'on ne le com-
-
-prenait pas du tout, en aucun cas, jamais. Et il enra-
+… quand il était passé. Il préférait croire qu'on ne le comprenait pas du tout, en aucun cas, jamais. Et il enra-
 
 44 geait. Il eut le ridicule de vouloir se faire comprendre,
 de s'expliquer, de discuter, bien que cela ne servit à
@@ -1834,8 +1749,7 @@ se rouler aux pieds de tout ce qui était officiel, consacré,
 « arrivé et il était hors de lui qu'on voulat l'empêcher
 de faire le laquais, tout à son aise.
 
-Ainsi, Kubh gémissait, Weigl faisait des gestes déses-
-pérés, Krause disait des coq-à-l'âne, et Spitz criait d'une
+Ainsi, Kubh gémissait, Weigl faisait des gestes désespérés, Krause disait des coq-à-l'âne, et Spitz criait d'une
 
 : voix aigre. Mais Christophe, imperturbable, criait plus:
 fort que les autres; et il disait des choses énormes sur
@@ -1858,8 +1772,7 @@ une démonstration et” harcelé par Spitz, patauger, bredouiller, bégayer de 
 le mot qu'il cherchait, — un roc, pour écraser son
 adversaire. Et son plaisir était sans bornes, quand
 Christophe, emporté par la passion bien au delà de sa
-pensée, énonçait des paradoxes monstrueux, qui fai-
-saient barrir son auditoire.
+pensée, énonçait des paradoxes monstrueux, qui faisaient barrir son auditoire.
 Enfin, ils se séparèrent, lassés de sentir et d'affirmer
 chacun sa supériorité. Au moment où Christophe, resté
 le dernier dans la salle, allait passer le seuil, il fut
@@ -1879,8 +1792,7 @@ pas de moi? A
 Vous êtes de mon avis”?
 , — Écoutez, fit Mannheim, pour dire la vérité, je ne
 suis pas musicien, je ne connais rien à la musique. La
-seule musique qui me plaise, — (ce n'est pas trop flat-
-teur, ce que je vais vous dire), — c'est la vôtre. Enfin, À
+seule musique qui me plaise, — (ce n'est pas trop flatteur, ce que je vais vous dire), — c'est la vôtre. Enfin, À
 c'est pour vous montrer que je n'ai pourtant pas trop
 : — Hé! hé! — fit Christophe, sceptique, flalté tout de;
 même, — ce n'est pas une preuve.
@@ -1889,8 +1801,7 @@ ce n'est pas une preuve. Aussi, je ne me risque pas à
 juger ce que vous dites des musiciens allemands. Mais.
 c'est si vrai, en tout cas, des Allemands en général, des
 vieux Allemands, de tous ces idiots romantiques, avec
-leur pensée rance, leur émotion lacrymatoire, ces rabâ-
-chages séniles qu'on veut que nous admirions, « cet!
+leur pensée rance, leur émotion lacrymatoire, ces rabâchages séniles qu'on veut que nous admirions, « cet!
 éternel Hier, qui a toujours été, et qui sera toujours,
 et qui fera loi demain parce qu'il a fait loi aujourd'hui.…..! »
 Il récita quelques vers du passage fameux de
@@ -1939,9 +1850,7 @@ attention, et se donnait beaucoup de mal pour les discuter; il sympathisait en p
 il éprouvait une gêne de les entendre outrer d'une
 façon caricaturesque. Mais, comme il prêtait aux autres
 son propre sérieux, il se disait que peut-être son interlocuteur, qui semblait plus instruit que lui et parlait
-plus facilement, avait raison et qu'il tirait les consé-
-quences logiques de ses principes. L'orgueilleux Chris-
-tophe, à qui tant de gens ne pardonnaient pas d'avoir
+plus facilement, avait raison et qu'il tirait les conséquences logiques de ses principes. L'orgueilleux Christophe, à qui tant de gens ne pardonnaient pas d'avoir
 foi en lui-même, était tout au contraire d'une modestie
 naïve, qui le rendait souvent dupe, vis-à-vis de ceux
 qui avaient reçu une meilleure éducation que lui, —
@@ -1956,8 +1865,7 @@ bourdes, ou même pour les comprendre; et, tout en
 s'en moquant, il était reconnaissant de l'importance
 que Christophe lui attribuait: il le trouvait ridicule et
 Ils se quittèrent fort bons amis; et Christophe ne fut
-pas peu surpris de voir, trois heures plus tard, à la ré-
-pétition du théâtre, surgir de la petite porte qui donnait
+pas peu surpris de voir, trois heures plus tard, à la répétition du théâtre, surgir de la petite porte qui donnait
 
 accès à l'orchestre la tête de Mannheim, radieuse et
 grimaçante, qui lui faisait des signes mystérieux. Quand
@@ -2099,8 +2007,7 @@ et souper avec les actrices.
 Christophe se trouva mal à l'aise dans ce milieu. Ils
 parlaient surtout de femmes et de chevaux; et ils en
 parlaient sans grâce. Ils étaient compassés. Adalbert
-s'exprimait d'une voix blanche et lente, avec une politesse raffinée, ennuyée, ennuyeuse. Adolf Mai, le secré-
-taire de la rédaction, lourd, trapu, la tête enfoncée dans
+s'exprimait d'une voix blanche et lente, avec une politesse raffinée, ennuyée, ennuyeuse. Adolf Mai, le secrétaire de la rédaction, lourd, trapu, la tête enfoncée dans
 les épaules, l'air brutal, voulait toujours avoir raison;
 
 il tranchaït sur tout, n'écoutait jamais ce qu'on lui
@@ -2122,7 +2029,7 @@ quand on possède tout, de nier la société; car on se
 dégage ainsi de ce qu'on lui doit. Tel, un voleur qui,
 après avoir détroussé un passant, lui dirait: « Qu'est-ce
 que tu fais encore ici? Va-t-en! Je n'ai plus besoin de
-toi. Je ne te connais plus. »;
+toi. Je ne te connais plus.
 Christophe, dans tout le groupe, n'éprouvait de sympathie que pour Mannheim: c'était assurément le plus
 vivant des cinq; il s'amusait de tout ce qu'il disait et de
 tout ce qu'on disait; bégayant, bredouillant, äânonnant,
@@ -2178,8 +2085,7 @@ lui. Christophe se trouva en tête à tête avec le père de
 son nouvel ami, le banquier Lothar Mannheim, et
 avec la sœur de Franz, Judith.
 
-C'était la première fois qu'il pénétrait dans un inté-
-rieur israélite. Bien qu'assez nombreuse dans la petite
+C'était la première fois qu'il pénétrait dans un intérieur israélite. Bien qu'assez nombreuse dans la petite
 ville, et y tenant une place importante par sa richesse,
 sa cohésion, et son intelligence, la société juive vivait
 un peu à part de l'autre. Au reste, il existait toujours!
@@ -2188,9 +2094,7 @@ secrète hostilité, bonasse, mais injurieuse. Ces sentiments étaient ceux de l
 grand-père n'aimait pas les Juifs; mais l'ironie du sort
 avait fait que ses deux meilleurs élèves pour la musique
 — (l'un, devenu compositeur, l'autre, virtuose illustre) —
-étaient israélites; et le brave homme était fort malheu91
-
-ne" Jean-Christophe: CVNONRRRMON
+étaient israélites; et le brave homme était fort malheune" Jean-Christophe: CVNONRRRMON
 reux: car il y avait des moments où il eût voulu
 4 embrasser ces deux bons musiciens; et puis, il se
 souvenait avec tristesse qu'ils avaient mis Dieu ‘en
@@ -2250,21 +2154,17 @@ d'intimité avec aucun d'entre eux. Jamais surtout il
 n'avait l'occasion d'approcher l'élite de la société
 
 Le dîner chez les Mannheim avait donc pour lui l'attrait de la nouveauté, et, un peu, du fruit défendu.
-L'Ëve qui lui présentait ce fruit le rendait plus savou-
-
-reux. Depuis l'instant qu'il était entré, Christophe À
+L'Ëve qui lui présentait ce fruit le rendait plus savoureux. Depuis l'instant qu'il était entré, Christophe À
 14 n'avait plus d'yeux que pour Judith Mannheim. Elle
 appartenait à une espèce différente de toutes les femmes
 qu'il connaissait jusque-là. Grande et svelte, un peu
-maigre, bien que solidement charpentée, la figure enca-
-drée de cheveux noirs, peu abondants, mais épais, et
+maigre, bien que solidement charpentée, la figure encadrée de cheveux noirs, peu abondants, mais épais, et
 plantés bas, qui couvraient les tempes et le front osseux
 et doré, un peu myope, les paupières grosses, l'œil
 légèrement bombé, le nez assez fort aux narines dilatées, les joues d'une maigreur intelligente, le menton
 lourd, le teint assez coloré, elle avait un beau profil,
 énergique et net; de face, l'expression était plus trouble,
-incertaine, composite; les yeux et les joues étaient iné-
-gaux. On sentait en elle une forte race, et, dans le
+incertaine, composite; les yeux et les joues étaient inégaux. On sentait en elle une forte race, et, dans le
 . moule de cette race, jetés confusément, des éléments
 multiples, disparates, de qualité douteuse et inégale, de
 très beaux et de très vulgaires. Sa beauté résidait surtout dans sa belle bouche silencieuse, et dans ses admirables yeux, qui semblaient plus profonds à cause de
@@ -2274,8 +2174,7 @@ yeux, qui sont ceux d'une race, plus que d'un individu,
 À pour lire sous leur voile humide et ardent l'âme réelle
 de la femme qui était devant lui. C'était l'âme du peuple
 : d'Israël qu'il découvrait dans ces yeux brûlants et
-mornes, qui la portaient en eux, sans le savoir eux-
-mêmes. Il y était perdu. Ce ne fut que beaucoup plus
+mornes, qui la portaient en eux, sans le savoir euxmêmes. Il y était perdu. Ce ne fut que beaucoup plus
 tard, peu à peu, après s'être bien souvent égaré dans de
 , telles prunelles, qu'il apprit à retrouver sa route sur
 2" cette mer orientale.
@@ -2309,8 +2208,7 @@ solide pour réussir, si elle eût voulu, en n'importe
 quelles sciences, et que, bien mieux que son frère, elle
 eût fait le véritable successeur du banquier Lothar
 Mannheim. Mais elle préférait l'intelligence vivante,
-_celle qui s'applique aux hommes. Elle jouissait de péné-
-trer une âme, de peser sa valeur — (elle y mettait
+_celle qui s'applique aux hommes. Elle jouissait de pénétrer une âme, de peser sa valeur — (elle y mettait
 autant d'attention scrupuleuse que la Juive de Matsys à
 peser ses écus); — elle savait, avec une divmation merveilleuse, trouver en moins de rien le défaut de la
 
@@ -2321,8 +2219,7 @@ si sentir maîtresse. Mais elle ne s'attardait point à sa vice
 1% curiosité et son orgueil satisfaits, elle ne s'y intéressait
 ; plus, et passait à un autre objet. Toute cette force rese tait stérile. Dans cette âme si vivante, il y avait quelque
 
-chose de mort. Elle portait en elle le génie de la curio-
-sité et de l'ennui.
+chose de mort. Elle portait en elle le génie de la curiosité et de l'ennui.
 
 Ainsi, elle regardait Christophe, qui la regardait. Elle
 parlait à peine. Il lui suffisait d'un sourire imperceptible, au coin de la bouche: Christophe était hypnotisé
@@ -2334,8 +2231,7 @@ Elle revisait froidement le jugement de son frère sur
 Christophe: elle connaissait les hâbleries de Franz;
 son ironie avait beau jeu, quand elle avait paraître
 Christophe, dont son frère lui avait vanté la beauté et
-la distinction — (il semblait que Franz eût un don spé-
-cial pour voir le contraire de l'évidence; ou peut-être
+la distinction — (il semblait que Franz eût un don spécial pour voir le contraire de l'évidence; ou peut-être
 prenait-il à le croire un amusement paradoxal). — Mais,
 en étudiant mieux Christophe, elle reconnut que pourtant tout n'était pas faux dans ce que Franz en avait
 dit; et, à mesure qu'elle avançait à la découverte, elle
@@ -2358,11 +2254,7 @@ courtoise de ses manières, quelques remarques brèves,
 justes, nullement louangeuses, montrèrent l'intérêt
 qu'elle prenait de plus en plus à Christophe.
 
-je Christophe s'en aperçut; et il en fut fier: car il sen-
-
-tait le prix d'un tel jugement et la rareté de son appro-
-
-bation. Il ne cachait pas le désir qu'il avait de le
+je Christophe s'en aperçut; et il en fut fier: car il sentait le prix d'un tel jugement et la rareté de son approbation. Il ne cachait pas le désir qu'il avait de le
 
 conquérir; et il y mettait une naïveté, qui faisait sourire
 ses trois hôtes: il ne parlait plus qu'à Judith, et pour
@@ -2399,8 +2291,7 @@ avoue une ignorance, c'est pour en tirer vanité.) —
 Comme Christophe, de son côté, mañifestait élairement, À
 
 avec une impolitesse dénuée de malice, qu'il pouvait de
-sans regret se passer de la société de Monsieur le ban-
-quier, et que la conversation de Mademoiselle Judith
+sans regret se passer de la société de Monsieur le banquier, et que la conversation de Mademoiselle Judith
 Mannheim suffisait entièrement à occuper sa soirée, le
 vieux Lothar, amusé, s'était installé au coin de son feu;
 et il lisait son journal, écoutant vaguement, d'une
@@ -2408,10 +2299,8 @@ oreille ironique, les billevesées de Christophe et sa
 musique bizarre, qui le faisait rire parfois d'un rire
 silencieux, à la pensée qu'il pouvait y avoir des gens
 qui comprenaient cela et qui y trouvaient plaisir. Il ne
-se donnait même plus la peine de suivre la conversa-
-tion; il s'en remettait à l'intelligence de sa fille de lui
-dire ce que valait au juste le nouveau venu. Elle s'ac-
-quittait en conscience de sa tâche.
+se donnait même plus la peine de suivre la conversation; il s'en remettait à l'intelligence de sa fille de lui
+dire ce que valait au juste le nouveau venu. Elle s'acquittait en conscience de sa tâche.
 Quand Christophe fut parti, Lothar demanda à
 — Eh bien, tu l'as assez confessé: qu'est-ce que tu en
 dis, de l'artiste?
@@ -2426,8 +2315,7 @@ faudra donc l'aider.
 Christophe emportait, de son côté, l'admiration de
 Judith Mannheim. Il n'était pourtant pas épris, comme
 le croyait Judith. Tous deux, — elle avec sa finesse, lui
-avec son instinct qui lui tenait lieu d'esprit, — se mépré-
-naient également l'un sur l'autre. Christophe était fasciné par l'énigme de cette figure et par l'intensité de sa
+avec son instinct qui lui tenait lieu d'esprit, — se méprénaient également l'un sur l'autre. Christophe était fasciné par l'énigme de cette figure et par l'intensité de sa
 vie cérébrale; mais il ne l'aimait pas. Ses yeux et
 son intelligence étaient pris: son cœur ne l'était' pas.
 — Pourquoi? — Il eût été assez difficile de le dire.
@@ -2489,14 +2377,12 @@ bien autre prix pour une âme féminine). — Elle ne
 l'exerçait même pas: Christophe n'en faisait qu'à sa
 . tête. Judith avait l'esprit impérieux. Elle était habituée
 à pétrir à sa guise les pensées assez molles des jeunes
-gens qu'elle connaissait. Comme elle les jugeait médio-
-cres, elle trouvait peu de plaisir à les dominer. Avec
+gens qu'elle connaissait. Comme elle les jugeait médiocres, elle trouvait peu de plaisir à les dominer. Avec
 Christophe, il y avait plus d'intérêt, parce qu'il y avait
 plus de difficulté. Ses projets la laissaient indifférente;
 mais il lui eût plu de diriger cette pensée neuve,
 cette force mal dégrossie, et de les mettre en valeur,
-— à sa façon bien entendu, et non à celle de Chris-
-tophe, qu'elle ne se souciait pas de comprendre.
+— à sa façon bien entendu, et non à celle de Christophe, qu'elle ne se souciait pas de comprendre.
 Elle avait tout de suite que ce ne serait pas sans
 lutte; elle avait noté dans Christophe toutes sortes de
 partis-pris, d'idées qui lui semblaient extravagantes et
@@ -2562,8 +2448,7 @@ Pour le comprendre, il eût fallu qu'elle pût comprendre
 aussi que le succès n'était pas son but, que son but
 était sa foi. Il croyait dans l'art, il croyait dans son art,
 
-il croyait en lui-même, comme en des réalités supé-
-rieures non seulement à toute raison d'intérêt, mais à sa
+il croyait en lui-même, comme en des réalités supérieures non seulement à toute raison d'intérêt, mais à sa
 vie. Quand, un peu impatienté par ses observations, il
 le lui dit, avec une emphase naïve, elle commença par
 hausser les épaules: elle ne le prit pas au sérieux. Elle
@@ -2593,8 +2478,7 @@ habitudes d'esprit: plus encore, à vrai dire, les habi_ tudes que l'esprit. Mai
 nature chez tous les hommes, étant chez la plupart la
 ._ seule et unique nature, il en résulte que la majorité des
 citoyens autochtones d'un pays seraient fort mal venus
-à reprocher aux Israélites le manque d'un esprit natio-
-nal, profond et raisonné, qu'ils n'ont eux-mêmes à aucun
+à reprocher aux Israélites le manque d'un esprit national, profond et raisonné, qu'ils n'ont eux-mêmes à aucun
 
 Les femmes, toujours plus sensibles aux influences
 extérieures, plus promptes à s'adapter aux conditions
@@ -2617,15 +2501,13 @@ s'habiller, — parfois jusqu'à l'outrance. — Judith leur
 faisait ressortir ce qu'il y avait d'exceptionnel dans son
 intelligence, ce qui dans sa personne était son œuvre.
 Elle n'en avait pas moins la plupart des travers des
-autres. Beaucoup plus libre qu'elles — presque absolu-
-ment libre — sur le terrain moral, elle ne l'était pas plus À
+autres. Beaucoup plus libre qu'elles — presque absolument libre — sur le terrain moral, elle ne l'était pas plus À
 qu'elles sur le terrain social; ou du moins, son intérêt
 pratique venait ici se substituer à sa raison libre. Elle
 croyait au monde, aux classes, aux préjugés, parce que,
 tout compte fait, elle y trouvait son avantage. Elle avait
 beau railler l'esprit allemand: elle était attachée à la
-mode allemande. Elle sentait intelligemment la médio-
-crité de tel artiste reconnu; mais elle ne laissait pas de
+mode allemande. Elle sentait intelligemment la médiocrité de tel artiste reconnu; mais elle ne laissait pas de
 
 à le respecter, parce qu'il était reconnu; et si, personnellement, elle était en relations avec lui, elle l'admirait: car.
 sa vanité en était flattée. Elle aimait peu les œuvres de
@@ -2643,8 +2525,7 @@ officier n'en est pas moins un homme d'une autre casté;
 et il est plus difficile à une Juive allemande qu'à une
 autre femme d'entrer dans cette caste. Quoiqu'elle ne
 fût pas dupe de ces niaiseries féodales, et qu'elle sût
-fort bien que si elle venait à épouser le premier lieute-
-nant Detlev von Fleischer, c'était elle qui lui ferait un
+fort bien que si elle venait à épouser le premier lieutenant Detlev von Fleischer, c'était elle qui lui ferait un
 grand honneur, elle s'évertuait à le conquérir; elle
 s'humiliait à faire les yeux doux à ce crétin et à flatter
 son amour-propre. La Juive orgueilleusé, et qui avait
@@ -2665,8 +2546,7 @@ de Judith, sa froideur, sa médiocrité de caractère. Il à
 n'avait pas le temps d'être pris à fond. Ce fut assez
 déjà pour le faire souffrir, pour lui donner une sorte de
 fièvre. Sans aimer Judith, il aimait ce qu'elle auraitpu
-être — ce qu'elle aurait être. Ses beaux yeux exer-
-çaient sur lui une fascination douloureuse: il ne cessait
+être — ce qu'elle aurait être. Ses beaux yeux exerçaient sur lui une fascination douloureuse: il ne cessait
 plus de les voir, il ne pouvait les oublier; quoiqu'il sût
 maintenant l'âme morne, qui dormait au fond, il continuait de les voir, comme il voulait les voir, comme il
 les avait vus d'abord, C'était une de ces hallucinations d'amour sans amour, qui tiennent tant de place
@@ -2695,8 +2575,7 @@ avait beaucoup espéré. Il avait espéré trouver dans
 cette race forte et à part des autres un allié dans sa
 lutte. Il perdit cet espoir. Avec la mobilité d'intuition
 passionnée, qui le faisait sauter d'un extrême à l'autre,
-il se persuada aussitôt que cette race était beau-
-coup plus faible qu'on ne le disait, et beaucoup plus
+il se persuada aussitôt que cette race était beaucoup plus faible qu'on ne le disait, et beaucoup plus
 du dehors. Elle était faible de sa propre faiblesse et de
 toutes celles du monde, ramassées sur son chemin. Ce
 n'était pas encore qu'il pouvait trouver le point -
@@ -2733,9 +2612,7 @@ On s'en passa; et, en effet, son absence ne fit pas un
 grand vide aux soirées des Mannheim, Mais Judith, en
 dépit d'elle-même, garda rancune à Christophe. Elle
 trouvait naturel de ne pas se soucier de lui, quand il
-était là; et elle Ini permettait d'en témoigner du dé-
-
-plaisir; mais que ce déplaisir allât jusqu'à rompre
+était là; et elle Ini permettait d'en témoigner du déplaisir; mais que ce déplaisir allât jusqu'à rompre
 
 toutes relations lui semblait d'un orgueil stupide et
 
@@ -2803,17 +2680,14 @@ prudence! — Vous êtes au-dessus des partis, dites-vous?:
 — Au-dessus: cela veut dire au-dessous... »
 
 Et il leur citait les vers du vieux Gottfried Keller, le
-rude bourgeois de Zurich, — un des écrivains d'Alle113
-
-magne qui lui étaient le plus chers par sa vigoureuse *.
+rude bourgeois de Zurich, — un des écrivains d'Allemagne qui lui étaient le plus chers par sa vigoureuse *.
 loyauté et son âpre saveur du terroir: à
 
 Qui se flatte avec de fières mines d'être au-dessus des
 partis, celui-là bien plutôt reste incommensurablement
 
 — « Ayez le courage d'être vrais, continuait-il. Ayez
-le courage d'être laids. Si vous aimez la mauvaise mu-
-sique, dites-le franchement. Montrez-vous, voyez-vous
+le courage d'être laids. Si vous aimez la mauvaise musique, dites-le franchement. Montrez-vous, voyez-vous
 
 tels que vous êtes. Débarhouillez-vous l'âme du fard
 dégoûtant de tous vos compromis et de toutes vos équivoques. Lavez-la à grande eau. Depuis combien de
@@ -2822,8 +2696,7 @@ m'en vais vous les montrer. Compositeurs, virtuoses,
 chefs d'orchestre, chanteurs, et toi, cher public, vous
 saurez une bonne fois qui vous êtes. — Soyeztoutce
 que vous voudrez; mais, par tous les diables! soyez
-vrais! Soyez vrais, dussent les artistes et l'art — dussé-
-je moi-même être le premier à en souffrir! Si l'art et la
+vrais! Soyez vrais, dussent les artistes et l'art — dusséje moi-même être le premier à en souffrir! Si l'art et la
 vérité ne peuvent vivre ensemble, que l'art disparaisse!
 
 La vérité, c'est la vie. La mort, c'est le mensonge. »
@@ -2841,9 +2714,7 @@ On fut seulement choqué du ton général; on s'accordait
 
 à le trouver peu convenable, surtout de la part d'un
 
-cèrent à s'agiter et protestèrent avec aigreur: ils pré-
-
-voyaient que Christophe n'en resterait pas là. D'autres
+cèrent à s'agiter et protestèrent avec aigreur: ils prévoyaient que Christophe n'en resterait pas là. D'autres
 
 se crurent plus habiles, en félicitant Christophe de son
 
@@ -2866,8 +2737,7 @@ faire une observation à ses musiciens et suivait docilement les mouvements qu'i
 vingt ans de succès, ou, pour le moins, couvert par l'estampille officielle de quelque dignité académique. Christophe applaudissait ironiquement à ses hardiesses; il le
 félicitait d'avoir découvert Gade, Dvorak, ou Tschaikowsky; il s'extasiait sur l'immuable correction, l'égalité métronomique, le jeu éternellement fein-nuanciert
 (finement nuancé) de son orchestre; il proposait de lui
-orchestrer pour son prochain concert l'École de la Vélocité de Czerny; et il le conjurait de ne pas tant se fatiguer, de ne pas tant se passionner, de ménager sa pré-
-cieuse santé. — Ou c'étaient des cris d'indignation à
+orchestrer pour son prochain concert l'École de la Vélocité de Czerny; et il le conjurait de ne pas tant se fatiguer, de ne pas tant se passionner, de ménager sa précieuse santé. — Ou c'étaient des cris d'indignation à
 
 propos de la façon dont il avait conduit l'Héroïque de
 
@@ -2908,8 +2778,7 @@ qu'il les nommait, il l'était moins encore pour les
 écuyers de cirque de l'orchestre, pour les Xapellmeister
 illustres qui venaient en tournée faire admirer leurs
 
-ronds de bras et leurs mains fardées, ceux qui exer-
-çaient leur virtuosité sur le dos des grands maîtres,
+ronds de bras et leurs mains fardées, ceux qui exerçaient leur virtuosité sur le dos des grands maîtres,
 s'évertuaient à rendre méconnaissables les œuvres les
 plus connues, et faisaient des cabrioles à travers le
 cerceau de la Symphonie en mineur. Il les traitait
@@ -2928,8 +2797,7 @@ mèche sur les yeux, — d'exécuter un andante enfantin
 de Mozart. — Certes, il ne méconnaissait point le plaisir
 de la difficulté vaincue. Lui aussi l'avait goûté: c'était
 pour lui une des joies de la vie. Mais n'en voir que le
-côté le plus matériel, et finir par y réduire tout l'hé-
-roïsme de l'art, lui paraissait grotesque et dégradant.
+côté le plus matériel, et finir par y réduire tout l'héroïsme de l'art, lui paraissait grotesque et dégradant.
 Il ne pardonnaït pas aux « lions ou aux « panthères
 du piano ». — Mais il n'était pas non plus très indulgent pour les braves pédants, célèbres en Allemagne, -
 qui, justement soucieux de ne point altérer le texte des!
@@ -3014,8 +2882,7 @@ mêler à aucune bataille d'art; il se tenait prudemment
 en dehors de toute question brûlante; et, de peur de se
 
 tromper, il applandissait tout. Et voici que aristoph
-Jui faisait un crime d'applaudir!.… D'applaudir les mé-
-chantes œuvres? — C'eût été déjà fort! Mais Christophe
+Jui faisait un crime d'applaudir!.… D'applaudir les méchantes œuvres? — C'eût été déjà fort! Mais Christophe
 allait plus loin: ce qu'il lui reprochait le plus d'applaudir, c'étaient les grandes œuvres:
 — « Farceurs, leur disait-il, vous voudriez faire croire
 que vous avez tant d'enthousiasme que cela? Allons
@@ -3025,14 +2892,12 @@ Applaudissez, si vous voulez, les œuvres ou les pages,
 qui, dans quelque mesure, appellent l'applaudissement.;
 Applaudissez les conclusions bruyantes, qui ont été
 faites, comme disait Mozart, « pour les longues oreiïlles ».
-Là, donnez-vous en à cœur joie: les braiments sont pré-
-vus; ils font partie du concert. — Mais après la Missa
+Là, donnez-vous en à cœur joie: les braiments sont prévus; ils font partie du concert. — Mais après la Missa
 Solemnis de Beethoven! Malheureux!... C'est le Jugement Dernier, vous venez de voir se dérouler le Gloria
 affolant, comme une tempête sur l'océan, vous avez à
 passer la trombe d'une volonté athlétique et forcenée,
 qui s'arrête, se brise, se retient aux nuées, cramponnée des deux poings au-dessus de l'abîme, et se
-lançant de nouveau dans l'espace, à toute volée. La ra-
-fale hurle et se tord. Et c'est, au plus fort de l'ouragan,
+lançant de nouveau dans l'espace, à toute volée. La rafale hurle et se tord. Et c'est, au plus fort de l'ouragan,
 une brusque modulation, un miroitement de ton qui
 troue les ténèbres du ciel et tombe sur la mer livide,!
 comme une plaque de lumière. C'est la fin: le vol;
@@ -3065,9 +2930,7 @@ inviolable de la médiocrité: — la Critique. Il bombarda
 ses confrères. L'un d'eux s'était permis d'attaquer le
 mieux doué des compositeurs vivants, le représentant
 le plus avancé de la nouvelle école, Hassler, auteur de
-symphonies à programme, à vrai dire assez extrava-
-
-gantes, mais pleines de génie. Christophe qui, — on
+symphonies à programme, à vrai dire assez extravagantes, mais pleines de génie. Christophe qui, — on
 s'en souvient peut-être, — lui avait été présenté, quand
 il était enfant, gardait toujours pour lui une tendresse
 secrète, en reconnaissance de l'enthousiasme et de
@@ -3156,13 +3019,9 @@ secrète: il dit qu'il n'y avait pas de combat sans
 quelques têtes cassées. Naturellement, il entendait bien
 que ce ne serait point la sienne; il se croyait à l'abri
 
-; des coups, par sa situation de famille et par ses rela-
+; des coups, par sa situation de famille et par ses relations; et il ne voyait pas de mal à ce que les Juifs, ses
 
-tions; et il ne voyait pas de mal à ce que les Juifs, ses
-
-alliés, fussent un peu houspillés. Ehrenfeld et Golden-
-
-ring, indemnes jusque-là, ne se fussent pas troublés de
+alliés, fussent un peu houspillés. Ehrenfeld et Goldenring, indemnes jusque-là, ne se fussent pas troublés de
 quelques attaques: ils étaient capables de répondre.
 Ce qui leur était beaucoup plus sensible, c'était l'obstination avec laquelle Christophe s'acharnaït à les mettre
 mal avec tous leurs amis, et surtout avec leurs amies.
@@ -3246,30 +3105,24 @@ grouper toujours comme des troupeaux, à ne pouvoir
 rien faire seuls: ni chanter, ni se promener, ni boire. Il
 avait l'aversion de tout Vereinswesen. Mais, à tout
 prendre, il était mieux disposé pour un Wagner-Verein
-que pour tout autre Verein: c'était au moins un pré-
-texte à de beaux concerts; et bien qu'il ne partageñt
+que pour tout autre Verein: c'était au moins un prétexte à de beaux concerts; et bien qu'il ne partageñt
 pas toutes les idées des Wagnériens sur l'art, il en
 était plus près que des autres groupements musicaux.
 Il pouvait, semblait-il, trouver un terrain d'entente avec
 un parti, qui se montrait aussi injuste que lui pour
-Brahms et les « Brahmines ». Il se laissa donc pré-
-senter. Mannheim fut l'intermédiaire. Sans être musi-
-cien, il faisait partie du Wagner-Verein: il connaissait
+Brahms et les « Brahmines ». Il se laissa donc présenter. Mannheim fut l'intermédiaire. Sans être musicien, il faisait partie du Wagner-Verein: il connaissait
 
 tout le monde. — Le comité de direction n'avait pas
 manqué de suivre la campagne, que Christophe menait
 dans la Revue. Certaines exécutions qu'il avait faites
 dans le camp opposé lui avaient paru témoigner d'une
-poigne vigoureuse, qu'il serait bon d'avoir à son ser-
-vice. Christophe avait bien aussi décoché quelques
+poigne vigoureuse, qu'il serait bon d'avoir à son service. Christophe avait bien aussi décoché quelques
 pointes irrespectueuses contre l'idole sainte; mais on
-avait préféré fermer les yeux là-dessus; — et, peut-
-être, ces premières attaques, assez inoffensives encore,
+avait préféré fermer les yeux là-dessus; — et, peutêtre, ces premières attaques, assez inoffensives encore,
 n'avaient-elles pas été étrangères, sans que l'on en convint, à la hâte que l'on avait d'accaparer Christophe,!
 avant qu'il eût le temps de se prononcer davantage.
 On vint très aimablement lui demander la permission.
-d'exécuter quelques-unes de ses mélodies à un des pro-
-chains concerts de l'Association. Christophe, flatté,
+d'exécuter quelques-unes de ses mélodies à un des prochains concerts de l'Association. Christophe, flatté,
 accepta: il vint au Wagner-Verein; et, poussé par
 Mannheim, il finit par s'y laisser inscrire.
 A la tête du Wagner-Verein étaient alors deux
@@ -3305,8 +3158,7 @@ une personnalité énergique, fût devenu en musique un
 mouton de Panurge; toute son originalité s'était dépensée à être un peu plus stupide que les autres. Trop
 peu sûr de lui-même en musique pour se fier à son sentiment personnel, il suivait servilement les interprétations que donnaient de Wagner les Xapellmeister et les
 artistes patentés par Bayreuth. Il eût voulu faire reproduire jusqu'aux moindres détails de la mise en scène et
-des costumes multicolores, qui ravissaient le goût pué-
-ril et barbare de la petite cour de Wahnfried. Il était
+des costumes multicolores, qui ravissaient le goût puéril et barbare de la petite cour de Wahnfried. Il était
 de l'espèce de ce fanatique de Michel-Ange, qui reproduisait dans ses copies jusqu'aux fissures de la muraille
 et aux moisissures, qui, s'étant introduites dans l'œuvre
 sacrée, étaient devenues, de ce fait, elles-mêmes sacrées.
@@ -3352,8 +3204,7 @@ changer, les hommes restaient les mêmes; et, en définitive, rien ne comptait q
 étäient ce qu'ils étaient. S'ils étaient nés médiocres et
 serviles, le génie même se faisait médiocre, en passant
 par leurs âmes, et le cri d'affranchissement du héros
-brisant ses fers devenait l'acte de servitude des géné-
-rations à venir. — Christophe ne put se tenir d'exprimer
+brisant ses fers devenait l'acte de servitude des générations à venir. — Christophe ne put se tenir d'exprimer
 ses sentiments. Il ne laissa point passer une occasion
 de dauber sur le fétichisme en art. Il déclarait qu'il ne
 fallait plus d'idoles, plus de classiques, d'aucune sorte,
@@ -3370,9 +3221,7 @@ mêmes gens qui exaltaient Wagner, depuis qu'il était
 mort, n'eussent été des premiers à l'étrangler quand il
 était vivant: — en quoi il leur faisait tort. Un Kling et
 
-un Lauber avaient eu, eux aussi, leur heure d'illumina-
-
-tion; ils avaient été de l'avant, il y avait quelque vingt
+un Lauber avaient eu, eux aussi, leur heure d'illumination; ils avaient été de l'avant, il y avait quelque vingt
 
 ans; puis, comme la plupart des gens, ils avaient campé
 
@@ -3397,9 +3246,7 @@ train; Kling et Lauber, en laissant dire, semblaient s'y
 associer, On se fût bien gardé pourtant de rompre avec
 Christophe: d'abord parce que les cerveaux rhénans se
 plaisent aux solutions mixtes, aux solutions qui n'en
-sont point, et qui ont le privilège de prolonger indéfiniment une situation ambiguë; ensuite parce qu'on espé-
-
-rait bien, malgré tout, finir par faire de lui ce qu'on
+sont point, et qui ont le privilège de prolonger indéfiniment une situation ambiguë; ensuite parce qu'on espérait bien, malgré tout, finir par faire de lui ce qu'on
 
 voulait, sinon par persuasion, du moins par lassitude.
 
@@ -3407,9 +3254,7 @@ Mais Christophe ne leur en laissa pas le temps.
 
 Quand il croyait sentir qu'un homme avait, au fond, de
 
-l'antipathie pour lui,, mais qu'il n'en voulait pas con-
-
-venir et qu'il cherchait à se faire illusion, afin de rester
+l'antipathie pour lui,, mais qu'il n'en voulait pas convenir et qu'il cherchait à se faire illusion, afin de rester
 
 en bons termes avec lui, il n'avait pas de cesse qu'il
 
@@ -3541,8 +3386,7 @@ commençait à l'agacer; et il cessa de le soutenir. Toute,
 la Revue s'ingénia dès lors à le faire taire. Mais allez
 donc museler un chien en train de dévorer sa proie!
 Tout ce qu'on lui disait ne faisait que l'exciter davantage. Il les appelait capons, et il déclarait qu'il dirait
-tôut — tout ce qu'il avait le devoir de dire. S'ils vou-
-laient le mettre à la porte, libre à eux! Toute la ville
+tôut — tout ce qu'il avait le devoir de dire. S'ils voulaient le mettre à la porte, libre à eux! Toute la ville
 
 saurait qu'ils étaient aussi couards que les autres; mais
 lui, ne s'en irait pas de lui-même.
@@ -3564,24 +3408,18 @@ déshonore une Revue; et Christophe, qui ne regardait
 celui dont il disait du mal le, comprendrait toujours
 assez. Mannheim profita de l'occasion: il dit que Christophe avait raison, que la correction d'épreuves était un;
 métier de prote; et il offrit de l'en décharger. Christophe fut près de se confondre en remerciements; mais
-tous lui dirent, d'un commun accord, que cet arran-
-
-gement leur rendait service, en évitant à la Revue une
+tous lui dirent, d'un commun accord, que cet arrangement leur rendait service, en évitant à la Revue une
 perte de temps. Christophe abandonna donc ses
 épreuves à Mannheim, en le priant de les bien corriger.
 Mannheim n'y manqua point: ce fut un jeu pour lui.
 D'abord, il ne se risqua prudemment qu'à atténuer
-quelques termes, à laisser tomber et quelques épi-
-
-thètes malgracieuses. Enhardi par le succès, il poussa
+quelques termes, à laisser tomber et quelques épithètes malgracieuses. Enhardi par le succès, il poussa
 plus loin ses expériences: il commença à remanier les
 phrases et le sens; il déployait à cet exercice une vraie
 virtuosité. Tout l'art consistait, en conservant le gros de
 la phrase et son allure caractéristique, à lui faire dire
 exactement le contraire de ce que Christophe avait
-voulu dire. Mannheim se donnait plus de mal pour défi-
-
-gurer les articles de Christophe, qu'il n'en aurait à
+voulu dire. Mannheim se donnait plus de mal pour défigurer les articles de Christophe, qu'il n'en aurait à
 en écrire lui-même; jamais il n'avait tant travaillé de sa
 vie. Mais il jouissait du résultat: certains musiciens,
 que Christophe poursuivait jusque-là de ses sarcasmes,
@@ -3597,9 +3435,7 @@ C'étaient des éclats de rire. Ehrenfeld et Goldenring
 Et il continuait de plus belle.
 
 Christophe ne s'apercevait de rien. Il venait à la.
-Revue, déposait sa copie et ne s'en inquiétait plus. Quel-
-
-quefois, il lui arrivait de prendre Mannheim à part:
+Revue, déposait sa copie et ne s'en inquiétait plus. Quelquefois, il lui arrivait de prendre Mannheim à part:
 
 — Cette fois, je leur ai dit leur fait, à ces canailles,
 
@@ -3661,18 +3497,13 @@ beaux jours devant nous... Et puis, je lui fais des amis.
 
 Tandis que la Revue de Waldhaus rendait à Christophe le mauvais service de lui faire sentir d'une façon
 outrée les défauts de la musique allemande, et de
-s'exagérer beaucoup ce qui le séparait de ses compa-
-
-triotes, — il apprenait aussi, par ses amis d'un jour, à
+s'exagérer beaucoup ce qui le séparait de ses compatriotes, — il apprenait aussi, par ses amis d'un jour, à
 connaître un peu la littérature contemporaine en
 Allemagne; et il la jugeait avec le même emporte
 
 ‘Il avait vécu jusque-là tout à fait en dehors du mouvement littéraire. Son éducation était restée fort incomplète: il n'y avait point de livres à la maison, hors
-quelques ouvrages dépareillés, épaves de la biblio-
-thèque du grand-père, et une liasse de petits volumes
-d'une collection populaire à vingt pfennig, que Chris-
-
-tophe achetait au hasard, qu'il emportait dans ses promenades, et qu'il semait de ci, de là. Depuis les jours
+quelques ouvrages dépareillés, épaves de la bibliothèque du grand-père, et une liasse de petits volumes
+d'une collection populaire à vingt pfennig, que Christophe achetait au hasard, qu'il emportait dans ses promenades, et qu'il semait de ci, de là. Depuis les jours
 lointains chez madame de Kerich, qui lui avait révélé
 Schiller, Goethe et Shakespeare, il n'avait pas été dirigé
 dans ses lectures; et il allait à l'aventure. Il avait économisé sou par sou pour s'acheter une belle édition de
@@ -3719,8 +3550,7 @@ Calme et morne, l'atmosphère décolorée s'amassait
 
 autour de lui, comme un brouillard opaque. Silencieuse,
 subtile, tenace, elle s'incrustait en lui; elle pénétrait
-par tous ses pores. Une Stimmung écrasante envelop-
-pait l'âme comme une chape de plomb, l'aveuglait,
+par tous ses pores. Une Stimmung écrasante enveloppait l'âme comme une chape de plomb, l'aveuglait,
 l''étouffait. Une hantise perpétuelle pesait sur tous ces
 êtres, — une sorte d'envoûtement. Tous succombaient
 sous le faix d'une hérédité de malheur ou de vices:
@@ -3747,14 +3577,12 @@ toute la force de la nation s'était dépensée en deux ou
 trois êtres prodigieux, un Bismarck, un Wagner, et
 qu'après cette formidable éruption de rocs et de laves
 bouillantes, il ne restât plus assez de feu sous l'écorce
-distendue et refroidie de l'Allemagne. Dans cette Alle-
-magne-Hamlet, combien de fois la tension gigantesque à
+distendue et refroidie de l'Allemagne. Dans cette Allemagne-Hamlet, combien de fois la tension gigantesque à
 
 des énergies ne cache-t-elle pas des âmes vagues, des
 volontés sans racines profondes, des intelligences mal
 accoutumées à l'action et tout près, constamment, de
-sombrer dans le vertige! La littérature nouvelle dé-
-voilait sans pudeur ce mal profond de l'âme. Tous les
+sombrer dans le vertige! La littérature nouvelle dévoilait sans pudeur ce mal profond de l'âme. Tous les
 héros de ces poètes étaient comme celui de Jean-Paul,
 l'homme qui avait trois âmes et pas une volonté.
 
@@ -3807,8 +3635,7 @@ aussi, les bêtes de proie héréditaires: elles le guettaient, À
 elles lui faisaient escorte, la langue pendante et les -
 crocs aiguisés; il entendait leur souflle derrière son dos;
 il savait que s'il trébuchait, elles se jetteraient sur lui.
-— Mais il ne trébucherait pas! Et le sentiment du dan-
-ger, au lieu de l'accabler, dilatait ses forces, et lui
+— Mais il ne trébucherait pas! Et le sentiment du danger, au lieu de l'accabler, dilatait ses forces, et lui
 causait une exaltation héroïque.
 Ces pleutres au contraire, prostrés d'épouvante,
 étaient comme un troupeau à l'abattoir, qui attend
@@ -3831,8 +3658,7 @@ un romanesque de petites filles, une manie de confessions sentimentales. Toujour
 languissantes, solitaires, de faux grands hommes
 incompris, des femmes fatales, des Dames de la mer. Et
 toujours, ce fond bourbeux, ces sables mouvants, cette
-brume des cœurs, « le gris sur gris du Nord l'intolé-
-rable ennui. — « Avant le lever du soleil s'intitulait
+brume des cœurs, « le gris sur gris du Nord l'intolérable ennui. — « Avant le lever du soleil s'intitulait
 la première œuvre du réalisme allemand. Le soleil
 ne s'était jamais levé. Comme chantait un de leurs
 
@@ -3848,8 +3674,7 @@ dans l'ancienne convention; ils en venaient à des compromis. Et c'était mainte
 le plus faux, un néo-idéalisme de littérateurs blasés,
 qui n'avaient même plus l'excuse de puiser aux sources à
 vives de la nation, qui trouvaient plus de saveur
-aux boissons étrangères ou rares, et mêlaient bizarre-
-ment, pour réveiller leur soif, Maeterlink et Nietzsche,
+aux boissons étrangères ou rares, et mêlaient bizarrement, pour réveiller leur soif, Maeterlink et Nietzsche,
 Ibsen et d'Annunzio, Verlaine et Oscar Wilde. Ils se
 disaient des Dionysiens, émancipés des apparences.
 Cela leur donnait beau jeu pour tourner le dos à la vie
@@ -3859,19 +3684,15 @@ les yeux fermés. Ils craignaient de rencontrer le regard
 de la Gorgone. — la face éblouissante de la réalité. Ils
 s'efforçaient de tendre entre elle et leur pensée, (comme
 l'un d'entre eux avait proposé de le faire au théâtre,
-entre la scène et la salle), un velum de gaze transpa-
-rente, qui atténuût le spectacle et reculât dans un loin-
-tain inoflensif et truqué la redoutable vie. Le grand
+entre la scène et la salle), un velum de gaze transparente, qui atténuût le spectacle et reculât dans un lointain inoflensif et truqué la redoutable vie. Le grand
 public assistait à ces volte-face du goût, avec une
 quiétude parfaite: rien ne parvenait à l'étonner; tout
-lui était bon: le naturalisme, le symbolisme, les clas-
-siques, les romantiques, les juiveries irrespectueuses,
+lui était bon: le naturalisme, le symbolisme, les classiques, les romantiques, les juiveries irrespectueuses,
 
 les flagorneries officielles, les vaudevilles, les pièces à
 thèse, les polissonneries françaises; il voulait tout ce
 
-, qu'on voulait, et suivait, avec une complaisance inalté-
-rable et uniforme, toutes les sautes saugrenues des
+, qu'on voulait, et suivait, avec une complaisance inaltérable et uniforme, toutes les sautes saugrenues des
 pensées qui pensaient pour lui:
 
 — « Voyez-vous ce nuage là-bas qui a la forme d'un
@@ -3902,9 +3723,7 @@ sa mine, criant que le jour était proche, que l'aurore
 commençait à luire, et s'enfonçant, pour la chercher,
 avec des éclats de rire frénétiques, dans les entrailles
 de la nuit. Toute la caverne était illuminée par ses
-reflets rougeâtres qui dansaient. Et puis, un vent gla-
-
-cial avait soufilé la torche; et tout s'était éteint.
+reflets rougeâtres qui dansaient. Et puis, un vent glacial avait soufilé la torche; et tout s'était éteint.
 
 Christophe fuyait la mine et la nuit étouffante. Il avait
 hâte de retourner dans le clair monde,

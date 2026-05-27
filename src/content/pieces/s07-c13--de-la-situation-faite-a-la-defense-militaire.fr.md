@@ -38,10 +38,9 @@ de 120 pages; grand jésus; nous le vendons « deux francs. è «
 de la situation faite
 QUE. la Sorbonne, au rez-de-chaussée À
 
-4 Nous avons publié dans nos éditions antérieures et À
+Nous avons publié dans nos éditions antérieures et À
 7 dans nos cinq premières séries, 1900-1904, un si à
-grand nombre de documents, de textes formant dos-
-si grand nombre de cahiers de lettres, — nouvelles,
+grand nombre de documents, de textes formant dossi grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un A
 1 si grand nombre de cahiers d'histoire et de philoso-
 MAL phie; et ces documents, renseignements, textes, dos-
@@ -49,16 +48,14 @@ MAL phie; et ces documents, renseignements, textes, dos-
 et de philosophie étaient si considérables que nous ne
 de pouvons pas songer à en donner ici l'énoncé même le
 plus succinct; pour savoir ce qui a paru dans les cinq
-premières séries des cahiers, il suffit d'envoyer un man-
-dat de cinq francs à André Bourgeois, administraFENTE:
+premières séries des cahiers, il suffit d'envoyer un mandat de cinq francs à André Bourgeois, administraFENTE:
 teurdes cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
 Paris, cinquième arrondissement; on recevra en retour
 220380
 le catalogue analytique sommaire, 1900-1904, de nos
 CES Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé A.
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé A.
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées. à
 1% Ce catalogue, grand jésus, forme un cahier
@@ -73,8 +70,7 @@ s'abonnait rétrospectivement à la sixième série le rece-
 1 série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 Pour amorcer tout travail que l'on aurait à commencer …
-dans notre premier catalogue analytique sommaire, con-
-sulter le petit index alphabétique provisoire que nous ‘Al
+dans notre premier catalogue analytique sommaire, consulter le petit index alphabétique provisoire que nous ‘Al
 avons établi de ce catalogue analytique sommaire.
 NE. Ce petit index alphabétique provisoire, grand de
 Jésus, forme un cahier très maniable de XII 60 pages
@@ -83,8 +79,7 @@ comme premier cahier de la septième série nos.
 abonnés l'ont reçu à sa date, le premier octobre 1905,
 118 comme premier cahier de la septième série; toute UN
 MN: personne qui s'abonne à la septième série, qui est la à
-Ni série en cours, le reçoit, par le fait même de son abonne-
-ment, en téte de la série; nous l'envoyons contre un
+Ni série en cours, le reçoit, par le fait même de son abonnement, en téte de la série; nous l'envoyons contre un
 de mandat de un franc à toute personne qui nous en fait
 Pour la sixième série, année ouvrière 1904-1905,et
 : en attendant que paraïsse le catalogue analytique som
@@ -115,8 +110,7 @@ Justement pour cela cette proposition n'apporte plus,
 jourd'hui, aucun caractère discriminant. Et s'imaginer
 jourd'hui qu'on a vidé une histoire de son contenu
 humanité parce qu'on a dit qu'il y a dans cette histoire
-affaires financières, c'est commettre un des intellec-
-alismes les plus marqués de tous ceux qui aujourd'hui
+affaires financières, c'est commettre un des intellecalismes les plus marqués de tous ceux qui aujourd'hui
 asitent le vieux socialisme révolutionnaire.
 Je vais plus loin: les financiers, qui sont eux-mêmes:
 parasites, ne peuvent vivre qu'à la condition de
@@ -124,8 +118,7 @@ parasites, ne peuvent vivre qu'à la condition de
 parasiter quelque réalité. S'il n'y avait point de la mon-…
 naie, il n'y aurait point de papier-monnaie. S'il n'y avait
 jamais quelque mine d'or dans la réalité, il n'y aurait
-jamais avoir aucune opération financière, même fic-
-tive, sur les mines d'or. Une opération financière, même.
+jamais avoir aucune opération financière, même fictive, sur les mines d'or. Une opération financière, même.
 fictive, requiert toujours une certaine couverture, au À
 moins présumée, de réalité.
 Quand donc on dit qu'il y a des affaires financières
@@ -203,23 +196,14 @@ de la défense nationale, et pour faire ressortir l'état
 d'infériorité où nous place la crise morale que traverse À
 l'armée.
 
-Comme toujours, il faut faire ici la part des exagéra-
-
-tions inspirées par la passion politique. Dès qu'un
+Comme toujours, il faut faire ici la part des exagérations inspirées par la passion politique. Dès qu'un
 - danger surgit à l'horizon, les adversaires du régime
 
-4 établi s'empressent d'en profiter pour incriminer les in-
-
-stitutions qu'ils ont intérêt à combattre. Mais il est indé-
-
-niable qu'il y eut quelque chose de plus.
+4 établi s'empressent d'en profiter pour incriminer les institutions qu'ils ont intérêt à combattre. Mais il est indéniable qu'il y eut quelque chose de plus.
 
 L'émotion n'est pas née seulement des clameurs
 
-poussées par les ennemis de la République. Une appré-
-hension s'est propagée dans les rangs mêmes des répu-
-
-blicains, juste au moment où le plus grand sang-froid
+poussées par les ennemis de la République. Une appréhension s'est propagée dans les rangs mêmes des républicains, juste au moment où le plus grand sang-froid
 est non seulement nécessaire, mais encore pleinement
 ; Portés aux extrêmes, nous avons la mauvaise habitude, en France, de passer avec une facilité incroyable
 de l'excès de confiance à une complète défiance de nos
@@ -235,22 +219,19 @@ fusils des armées étrangères. Nos approvisionnements
 de guerre ont été calculés avec une prodigalité qui peut
 faire négliger les manquements partiels et momentanés
 signalés parfois sur tel ou tel point du territoire. Notre
-industrie est outillée pour aider puissamment l'admi-
-nistration militaire en cas de mobilisation. Notre réseau à
+industrie est outillée pour aider puissamment l'administration militaire en cas de mobilisation. Notre réseau à
 de chemins de fer est organisé de façon à permettre
 une concentration rapide des troupes. Nos places fortes
 sont redoutables; elles sont dotées de tout ce qu'il faut
 pour assurer une défense énergique.
 Sans doute l'Allemagne nous distance au point de vue
-du nombre d'hommes. Sa population de plus de 56 mil-
-lions d'habitants laisse loin derrière elle nos 39 millions.
+du nombre d'hommes. Sa population de plus de 56 millions d'habitants laisse loin derrière elle nos 39 millions.
 
 Cependant, jusqu'ici, cette différence n'a pas conduit à
 donner aux effectifs de l'armée allemande une supério-
 À rité aussi considérable qu'on pourrait se l'imaginer.
 À Sur le pied de paix, l'Allemagne entretient en chiffres
-ronds (non compris les médecins et autres non-combat-
-tants) 24.000 officiers et 600.000 sous-ofliciers et soldats,
+ronds (non compris les médecins et autres non-combattants) 24.000 officiers et 600.000 sous-ofliciers et soldats,
 tandis que la France a sous les drapeaux 24.000 officiers
 1 et environ 550.000 sous-officiers et soldats compris
 les troupes coloniales stationnées dans la métropole).
@@ -291,14 +272,12 @@ Sans aller plus loin dans cet ordre d'idées, je tiens à (
 constater seulement que si, depuis 1870, des efforts À
 sérieux ont été faits pour mettre nos officiers à hauteur
 de leur tâche, si en particulier, au point de vue de la
-réorganisation du service d'état-major, les résultats obte-
-nus sont considérables, la lutte a été rude contre l'esprit
+réorganisation du service d'état-major, les résultats obtenus sont considérables, la lutte a été rude contre l'esprit
 ancien qui, érigeant en dogme l'infaillibilité du chef,
 substituait à l'initiative intelligente le principe de l'obéis-;
 sance passive, et donnait le pas à la mémoire sur le juge-
 à - ment, à la formule sur le bon sens. Mais aujourd'hui, à
-le progrès est certain. Il s'affirme chaque jour davan-
-tage. Il compense en partie les autres causes d'infé-
+le progrès est certain. Il s'affirme chaque jour davantage. Il compense en partie les autres causes d'infé-
 34 riorité de notre commandement.
 Une ressource, d'ailleurs, nous permet d'envisager
 Ah l'avenir avec confiance. Ressource précieuse qui échappe
@@ -370,12 +349,9 @@ population et celui de la nôtre, l'effectif du contingent
 annuellement appelé sous les drapeaux est, aujourd'hui
 encore, presque le même en France et en Allemagne.
 Le total de l'effectif de paix allemand est cependant
-plus considérable que le nôtre. C'est parce qu'il s'aug-
-mente du nombre des sous-officiers qui, en Allemagne,
+plus considérable que le nôtre. C'est parce qu'il s'augmente du nombre des sous-officiers qui, en Allemagne,
 sont tous rengagés. À
-L'armée allemande de première ligne est donc com-
-
-posée des éléments les plus robustes de la nation. Les
+L'armée allemande de première ligne est donc composée des éléments les plus robustes de la nation. Les
 hommes de second choix sont appelés en cas de guerre
 seulement, pour former les dépôts et, plus tard, boucher À
 les vides.
@@ -416,8 +392,7 @@ d'après leur ancienneté. Aussi l'avancement à Georges Picquart.
 à cienneté est-il de règle, avec cette réserve toutefois que
 l'officier reconnu incapable de passer au grade supérieur Se
 prend sa retraite au moment où arrive son tour de pro-
-Quelques avantages sont réservés aux officiers d'état-
-major, afin de leur permettre d'arriver plus vite aux
+Quelques avantages sont réservés aux officiers d'étatmajor, afin de leur permettre d'arriver plus vite aux
 « grades supérieurs, Cette exception est pleinement justi- À
 fiée par la valeur de ce corps d'élite qui est devenu un
 19 modèle pour toutes les armées, depuis que Moltke la à
@@ -430,12 +405,10 @@ jé! stances les devoirs qui lui incombent, Mais l'exclusi-
 ; visme qui, dans certains cas, fait sa force, peut en
 revanche, dans d'autres circonstances, être pour lui une
 ) Je ne veux pas m'étendre sur les symptômes fâcheux
-et sans doute exagérés que quelques romanciers pré-
-tendent avoir découverts dans telle ou telle « Petite
+et sans doute exagérés que quelques romanciers prétendent avoir découverts dans telle ou telle « Petite
 Garnison » et qui tendraient à faire croire que sous
 1 cette belle façade se cachent des germes de décomposi- “4
-Maïs, à un autre point de vue, n'avons-nous pas con-
-staté, en 1870, combien les corps allemands les plus;
+Maïs, à un autre point de vue, n'avons-nous pas constaté, en 1870, combien les corps allemands les plus;
 -éprouvés par le feu souffraient cruellement du manque
 Cette situation ne menaçait-elle pas de devenir cri- À
 À tique pour certaines de ces unités si la paix ne fût
@@ -457,8 +430,7 @@ cependant à opposer aux vainqueurs de nos vieilles
 bandes, que les troupes improvisées de la Défense
 nationale, mal armées, mal équipées, dépourvues de
 toute instruction militaire.
-ni Quand on compare notre situation vis-à-vis de l'Alle-
-magne avec ce qu'elle était alors, on a le droit d'attendre
+ni Quand on compare notre situation vis-à-vis de l'Allemagne avec ce qu'elle était alors, on a le droit d'attendre
 les événements avec sérénité.
 On aurait croire qu'après la première émotion
 causée par l'affaire du Maroc, chacun se serait ressaisi.
@@ -480,28 +452,23 @@ D'autres allégations, en revanche, s'appuient sur des
 données précises. On nous oppose des chiffres. On nous à
 met en présence de faits. Telles, par exemple, les déclarations alarmantes qui ont été citées ici-même, d'après
 un journal du matin, et dont je rappelle sommairement
-la teneur: « L'armée allemande de premier choc, repré-
-sentant une force de 400.000 hommes, peut être amenée
+la teneur: « L'armée allemande de premier choc, représentant une force de 400.000 hommes, peut être amenée
 ; en vingt-quatre heures au delà de la frontière, grâce à
 un système de chemins de fer permettant une concen-!
-Ù tration offensive. À ces 400.000 hommes nous n'en pour-
-rions opposer que 80,000, car il nous faut vingt jours
+Ù tration offensive. À ces 400.000 hommes nous n'en pourrions opposer que 80,000, car il nous faut vingt jours
 pour mobiliser notre armée de seconde ligne. Enfin,
 dans les régiments de l'Est nos effectifs sont de 90 à )
 95 hommes par compagnie, alors que les régiments
 allemands ont tous sur le pied de paix des compagnies À
 Voilà un tableau bien sombre. Dans quelle mesure à
 
-correspond-il à la réalité? C'est ce qu'il peut être inté-
-ressant de rechercher.
+correspond-il à la réalité? C'est ce qu'il peut être intéressant de rechercher.
 
 L'Allemagne a fait, comme on sait, de l'Alsace-
 
 Lorraine une sorte de marche: le glacis de l'empire.
 
-Le corps d'armée de Metz (16°), celui de Stras-
-
-bourg (15°), et, en Haute-Alsace, une partie du corps
+Le corps d'armée de Metz (16°), celui de Strasbourg (15°), et, en Haute-Alsace, une partie du corps
 
 d'armée badoïs (14°), sont établis dans nos anciennes
 
@@ -511,9 +478,7 @@ de guerre ils sont chargés de protéger, de « couvrir » la
 mobilisation du reste de l'armée, sa concentration par
 voies ferrées et son débarquement à proximité de notre
 
-Pour mettre ces troupes en état de remplir effective-
-
-ment leur rôle, on ne leur a pas seulement donné l'appui
+Pour mettre ces troupes en état de remplir effectivement leur rôle, on ne leur a pas seulement donné l'appui
 
 de forteresses puissantes telles que Thionville, Metz,
 Strasbourg. On a encore augmenté leurs effectifs du
@@ -555,13 +520,10 @@ hommes, sur le pied de paix, et, dans ces conditions, il à
 peut ne pas paraître absurde, à première vue, de sup- il
 poser qu'une bonne partie de ces forces, soit 400.000
 4 hommes, seraient destinées à envahir notre frontière, “4
-non pas en vingt-quatre heures, — la capacité de trans-
-
-port des chemins de fer, même allemands, n'a pas
+non pas en vingt-quatre heures, — la capacité de transport des chemins de fer, même allemands, n'a pas
 
 encore atteint ces proportions, — mais du moins en (
-La question présente un autre aspect quand on con-
-naît les besoins d'une armée, quand on sait ce qu'il lui
+La question présente un autre aspect quand on connaît les besoins d'une armée, quand on sait ce qu'il lui
 faut pour entrer en opérations, c'est-à-dire pour se
 1 battre, pour subsister, pour se ravitailler sur un territoire;
 
@@ -576,19 +538,16 @@ frontière des corps d'armée non mobilisés, avant même
 la déclaration de guerre.
 Une pareille démonstration ne signifierait rien. Des
 troupes dépourvues des attelages, des trains et des
-rechanges de toute sorte que la mobilisation doit préci-
-sément leur fournir, ne pourraient pas même risquer à
+rechanges de toute sorte que la mobilisation doit précisément leur fournir, ne pourraient pas même risquer à
 une bataille. Par contre, elles se ressentiraient longtemps
 des difficultés énormes que l'on éprouve à pourvoir un
 corps de ce qui lui manque, après qu'il a quitté son
 centre normal de recrutement et d'approvisionnement.
 L'Allemagne s'est toujours fait remarquer par sa
-façon méthodique de procéder aux opérations de mobi-
-lisation. Le 11 juillet 1870, le roi Guillaume, ému de
+façon méthodique de procéder aux opérations de mobilisation. Le 11 juillet 1870, le roi Guillaume, ému de
 l'attitude menaçante de la France, avait invité son
 ministre de la guerre, von Roon, à lui proposer quelques
-mesures préparatoires en vue d'une mobilisation pos-
-sible. Le ministre demanda de n'en rien faire. Il
+mesures préparatoires en vue d'une mobilisation possible. Le ministre demanda de n'en rien faire. Il
 déconseiïlla même de donner aucun ordre au sujet de
 Saarlouis, petite place située très en l'air, à 7 kilomètres -
 seulement de la frontière française, IL voulait que tout
@@ -604,23 +563,15 @@ Les forces de couverture dont nous disposons sont,
 d'ailleurs, suffisantes pour tenir en échec la couverture
 
 allemande et pour nous permettre d'accomplir en toute
-sécurité nos opérations de mobilisation et de concentra-
-
-tion qui, quoi qu'on en ait dit, ne dureraient certaine-
-
-ment pas vingt jours, ni même sensiblement plus que À
-les opérations correspondantes allemandes, — à condi-
-
-tion, bien entendu, que tout se passe avec calme et
+sécurité nos opérations de mobilisation et de concentration qui, quoi qu'on en ait dit, ne dureraient certainement pas vingt jours, ni même sensiblement plus que À
+les opérations correspondantes allemandes, — à condition, bien entendu, que tout se passe avec calme et
 Notre frontière est jalonnée, comme du côté allemand,
 par trois corps d'armée (6°, 20° et 7°).
 Quand bien même nos effectifs seraient descendus à
-90 ou 95 hommes par compagnie, — et cela reste à prou-
-ver, — nous pourrions mettre en ligne, le premier jour,
+90 ou 95 hommes par compagnie, — et cela reste à prouver, — nous pourrions mettre en ligne, le premier jour,
 presque autant de fusils que nos adversaires. Nos corps
 d'armée comptent, en effet, plus de compagnies que les
-corps allemands correspondants, ce qui rétablit l'équi-
-valence du nombre.
+corps allemands correspondants, ce qui rétablit l'équivalence du nombre.
 Notre cavalerie de couverture est un peu plus nom- À
 breuse que celle des Allemands. Des troupes à cheval
 ne pouvant être d'aucune utilité dans les Alpes, nous
@@ -633,8 +584,7 @@ Quant à notre artillerie de couverture elle comprend, À
 celle des Allemands. Mais nous avons beaucoup moins!
 de canons. La différence est d'un tiers environ. Elle
 provient de ce que nos batteries montées comptent
-quatre pièces seulement tandis que les batteries alle-
-mandes en ont six.
+quatre pièces seulement tandis que les batteries allemandes en ont six.
 
 Les artilleurs envisagent cette situation avec sérénité.
 
@@ -706,8 +656,7 @@ est le chemin de Paris.!
 Mais elle est barrée, dès son origine, par les forts de
 À Liége, construits d'après les dernières idées du général
 Brialmont. Ce sont des massifs énormes de béton de
-ciment, d'où émergent des coupoles cuirassées, tour-
-nantes ou à éclipse, garnies de canons de place du plus
+ciment, d'où émergent des coupoles cuirassées, tournantes ou à éclipse, garnies de canons de place du plus
 En amont de Liége, la place de Namur est organisée
 d'après les mêmes principes.:
 ( Une armée d'invasion allemande pourrait éviter, il est
@@ -744,11 +693,7 @@ remplir une tâche relativement aisée: celle de concen-;
 
 trer sur son propre territoire, —enutilisantlesressources
 
-de son réseau ferré, — les forces nécessaires pour s'op-
-
-poser à la marche de l'envahisseur. Ces forces trouve-
-
-ligne, le camp retranché de Maubeuge; plus en arrière,
+de son réseau ferré, — les forces nécessaires pour s'opposer à la marche de l'envahisseur. Ces forces trouveligne, le camp retranché de Maubeuge; plus en arrière,
 les groupes fortifiés de La Fère, de Laon et de Reims.
 
 Je crois en avoir assez dit pour montrer que, même
@@ -785,8 +730,7 @@ entreprises de voisins puissants. Comme la Suisse elle
 est préparée à se défendre, en cas de besoin. Mais elle
 a résolu le problème d'une façon très différente.
 . La république helvétique fonde ses institutions militaires sur le principe du service obligatoire pour tous.
-En temps de guerre, elle dispose d'un nombre de défen-
-seurs qui est celui de tous les citoyens valides. Mais
+En temps de guerre, elle dispose d'un nombre de défenseurs qui est celui de tous les citoyens valides. Mais
 elle n'a pas d'armée permanente. Les recrues et les
 À réserves ne restent sous les drapeaux que pendant le:
 temps strictement nécessaire à leur instruction. Enfin le
@@ -807,8 +751,7 @@ moyen d'engagements volontaires, en partie au moyen du
 ï tirage au sort. Le remplacement à prix d'argentestadmis.
 Malgré un courant très marqué qui s'est établi dans
 À les milieux libéraux en faveur du service militaire obligatoire, les dernières modifications apportées, en 1902,
-ï à la loi du recrutement n'ont fait qu'accentuer le carac-
-tère des dispositions existant alors. Le nombre des
+ï à la loi du recrutement n'ont fait qu'accentuer le caractère des dispositions existant alors. Le nombre des
 soldats de métier (volontaires de carrière et rengagés)
 il a été augmenté. Par compensation, on a diminué le.
 4 temps de service auquel sont soumis, en temps de paix,
@@ -857,8 +800,7 @@ Dès lors la situation s'est trouvée changée sur toute
 la frontière orientale de la Belgique, car ces fortifications
 
 ne servent pas seulement de tampon entre la Franceet
-l'Allemagne. Elles contribuent encore à la défense géné-
-rale du pays.
+l'Allemagne. Elles contribuent encore à la défense générale du pays.
 : En cas d'invasion allemande, l'armée d'opérations
 , belge peut s'y appuyer pour disputer à l'adversaire la:
 ligne de la Meuse et protéger ainsi la plus grande partie
@@ -880,9 +822,7 @@ teur des exigences de la guerre moderne. Cependant si
 détachés, ne faudra-t-il pas plus de défenseurs que ceux
 dont on dispose aujourd'hui? Ne sera-t-il pas nécessaire
 d'augmenter l'effectif de l'armée? A ce sujet les avis
-: sont partagés. Mais il est certain que cette augmenta-
-tion la Belgique pourrait la réaliser facilement enadop-
-tant le service militaire obligatoire.
+: sont partagés. Mais il est certain que cette augmentation la Belgique pourrait la réaliser facilement enadoptant le service militaire obligatoire.
 La Suisse, qui a un peu plus de trois millions d'habitants, met sur pied en cas de guerre près de trois cent
 1 mille hommes armés, sans compter le landsturm non
 La Belgique, dont la population est double de celle de
@@ -906,8 +846,7 @@ du droit des neutres y regardera certainement à deux
 fois avant de traiter le territoire belge comme une zone
 de parcours favorable à la réalisation de ses plans stra-
 … tégiques. Mais cela ne sufñlit pas.
-En cas de conflagration générale, quand tous les élé-
-ments sont déchaïnés, quand les appétits de conquête
+En cas de conflagration générale, quand tous les éléments sont déchaïnés, quand les appétits de conquête
 s'éveillent, un petit pays n'a de chances de conserver
 son intégrité que s'il est en état de fournir contre un
 envahisseur la plus grande somme d'efforts dont il est
@@ -919,14 +858,12 @@ secours des autres.
 
 4: Tout le monde connaît la supériorité incontestable de
 
-à la marine britannique. On est moins bien fixé en géné-
-ral, dans le public, sur l'état des forces de terre dont
+à la marine britannique. On est moins bien fixé en général, dans le public, sur l'état des forces de terre dont
 (24 disposerait le gouvernement anglais en cas de conflit
 1 avec une grande puissance européenne.
 En réalité, les troupes régulières anglaises ne sont
 pas autre chose qu'une armée coloniale dont la portion À
-principale, stationnée sur le territoire des Iles Britanni-
-ques, alimente les garnisons européennes des Indes et
+principale, stationnée sur le territoire des Iles Britanniques, alimente les garnisons européennes des Indes et
 des autres possessions d'outre-mer.;
 Quand un bataillon a passé un temps plus ou moins:
 5 long aux colonies, il rentre en Angleterre, en Ecosse ou
@@ -952,11 +889,8 @@ dans une guerre européenne.: À
 Il faut de plus considérer que, le service militaire
 À n'étant pas obligatoire pour les sujets britanniques,
 (4 toutes les forces militaires, quelles qu'elles soient, sont
-! recrutées par voie d'engagements volontaires. Le nom-
-
-bre et la qualité des recrues sont donc soumis aux
-fluctuations de l'offre et de la demande. C'est une situa-
-tion fort aléatoire. À
+! recrutées par voie d'engagements volontaires. Le nombre et la qualité des recrues sont donc soumis aux
+fluctuations de l'offre et de la demande. C'est une situation fort aléatoire. À
 À Le Royaume-Uni possède d'ailleurs, en outre de ses
 forces régulières, ce que l'on appelle les forces liaires: milice, yeomanry, volontaires.
 Les miliciens sont des gens qui moyennant une prime
@@ -977,8 +911,7 @@ fermiers qui, généralement, fournissent eux-mêmes leur
 monture. L'effectif des yeomen est d'environ 28.000
 
 un Georges Picquart FENTE
-Enfin les volontaires, composés d'infanterie, d'artil-
-lerie à pied et de troupes spéciales (du génie, des che- à
+Enfin les volontaires, composés d'infanterie, d'artillerie à pied et de troupes spéciales (du génie, des che- à
 mins de fer, etc.) sont au nombre de 250.000, dont!
 C'est en somme une espèce de garde nationale au sujet
 ; de laquelle la commission de lord Norfolk n'est pas
@@ -989,8 +922,7 @@ alors secrétaire d'État à la guerre, avait été frappé des
 difficultés de la mobilisation et, d'une façon générale,
 RAT de la faiblesse de l'organisation des troupes anglaises.
 Pour y remédier il avait élaboré un système très séduisant qui consistait à entretenir dans la métropole six
-corps d'armée pourvus en tout temps de leurs états-
-majors, de leurs services divers, et se mobilisant au
+corps d'armée pourvus en tout temps de leurs étatsmajors, de leurs services divers, et se mobilisant au
 moyen des ressources du territoire qui leur était
 affecté, comme cela se passe en France, en Allemagne
 et ailleurs.
@@ -1036,24 +968,24 @@ dirigée de concert avec la marine contre un port de
 fi. Elle apporterait dans de semblables actions de guerre
 0 les qualités et les défauts inhérents aux armées de
 ÈTRE métier et, en plus, la froide obstination propre aux
-18 Mais le rôle d'une si petite armée ne peut être
+Mais le rôle d'une si petite armée ne peut être
 4 qu'épisodique au début d'un conflit où s'entrechoque-
 A raient plusieurs grandes puissances militaires. Comme
 l'a dit spirituellement un membre de la Chambre des
-À: Communes, il y a quelques années, ce ne serait qu'une
+Communes, il y a quelques années, ce ne serait qu'une
 guêpe dans un nid de frelons.:
 A 4 forces plus considérables, soit pour intervenir efficace
 30 ment sur un échiquier européen, soit simplement pour
 DRE: mieux assurer la défense du Royaume-Uni, il est
 24 nécessaire qu'elle les crée de toutes pièces en ayant
 3060 recours au service militaire obligatoire, mitigé ou non.
-1 Le recrutement par voie d'engagements volontaires est
+Le recrutement par voie d'engagements volontaires est
 incapable de les lui fournir.
 La puissance de l'armement moderne
 : L'industrie est arrivée à perfectionner d'une façon
 vraiment extraordinaire les instruments de mortqueles
 peuples civilisés emploient pour faire la guerre.
-4 Toute armée qui se respecte possède aujourd'hui un
+Toute armée qui se respecte possède aujourd'hui un
 ne fusil à tir rapide dont les balles atteignent efficacement
 "4108 l'adversaire à 2.000 mètres et plus.
 
@@ -1097,9 +1029,7 @@ Mais alors, que doit être une bataille moderne? Une
 
 en deux ou trois minutes fait couler des flots de
 
-En aucune façon. Des statistiques officielles, irréfuta-
-
-bles, le démontrent. Non seulement une bataille gagnée
+En aucune façon. Des statistiques officielles, irréfutables, le démontrent. Non seulement une bataille gagnée
 14 ou perdue coûte proportionnellement moins de monde
 : qu'autrefois, mais encore il faut beaucoup plus de temps
 pour obtenir un résultat. L'œuvre de mort s'accomplit
@@ -1125,8 +1055,7 @@ alliées eurent 16 hommes, sur cent, hors de combat, les
 "Ve ce qu'elles étaient par le passé. Sans doute, à Wærth,
 les Français perdirent 30 0/0 de leurs soldats, en huit
 heures, mais près de la moitié des manquants sont des
-prisonniers non blessés; quant aux Allemands, ils lais-
-sent ce jour-là 11 0/0 des leurs sur le carreau. Mars-la-
+prisonniers non blessés; quant aux Allemands, ils laissent ce jour-là 11 0/0 des leurs sur le carreau. Mars-la-
 : Tour, une des actions les plus sanglantes de la guerre,
 
 heures. A Gravelotte, les deux partis perdent 10 0/0,
@@ -1166,16 +1095,14 @@ il ces batailles 11 0/0, dans la deuxième 22, dans la troi-.
 14 et d'hommes dispersés). C'est tout le dommage qu'ont
 produire l'entrain japonais et la ténacité russe
 opposés l'un à l'autre dans des combats d'une longueur
-de a Comment expliquer cette anomalie entre l'effet ter-
-rible des armes modernes et le résultat pratique ob-
+de a Comment expliquer cette anomalie entre l'effet terrible des armes modernes et le résultat pratique ob-
 FER Quand les fusils portaient efficacement à 2 ou 300mè-
 14 tres; quand les canons ne commençaient à cracher la
 144 mitraille qu'à 4 ou mètres, les troupes marchaient
 1 à la bataille en lignes serrées ou en colonnes profondes.
 0) Les gens des premiers rangs voyaient distinctement
 MA leurs adversaires bien avant que l'on en vint aux mains.
-Et, lorsqu'à la voix de leurs chefs, les soldats commen-
-de!; çaient le feu ou se précipitaient en avant, à l'arme
+Et, lorsqu'à la voix de leurs chefs, les soldats commende!; çaient le feu ou se précipitaient en avant, à l'arme
 ï blanche, ils étaient déjà trop près de l'ennemi pour que
 qua la lutte ne devint pas immédiatement très sérieuse.
 L'ardeur n'avait pas le temps de se refroïdir avant le
@@ -1183,8 +1110,7 @@ choc définitif. L'action était courte et brutale.
 À Aujourd'hui, grâce à la grande portée des armes, le
 . tir commence à des distances invraisemblables, dès
 à que les officiers, munis de leurs lunettes de campagne,
-aperçoivent quelque chose qui ressemble à un adver-
-saire. Entre les deux armées opposées s'étend une zone
+aperçoivent quelque chose qui ressemble à un adversaire. Entre les deux armées opposées s'étend une zone
 immense, d'un vide effrayant, battue à chaque instant
 par des rafales de plomb qu'envoie un ennemi invipa sible. Les régiments s'engagent avec précautions dans
 
@@ -1207,14 +1133,11 @@ taille, par l'appréhension qu'il cause que par les pertes;
 qu'il occasionne. à
 Dans quelques semaines, les jeunes gens que leur âge (
 appelle à remplir leur devoir militaire seront sous les
-… drapeaux, et plus d'une famille est en train de se de-
-mander, anxieuse, vers quels rivages lointains partira
+… drapeaux, et plus d'une famille est en train de se demander, anxieuse, vers quels rivages lointains partira
 … l'enfant que le régiment prendre. a
 Mais, cette année-ci, nos futurs soldats n'auront, pour
 . la plupart, que peu de chemin à faire pour rejoindre
-. leur corps, car M. Berteaux, à l'exemple de son prédé-
-
-cesseur, paraît décidé à s'engager franchement dans la
+. leur corps, car M. Berteaux, à l'exemple de son prédécesseur, paraît décidé à s'engager franchement dans la
 voie du recrutement régional, le seul qui s'accordeavec
 4 le principe de la nation armée.
 
@@ -1223,23 +1146,16 @@ Sans doute, il est des exigences techniques avec les-
 4 quelles il faut compter. Notre région de l'Est contient
 forcément plus de régiments que la population locale
 
-n'en peut fournir; la Bretagne produit beaucoup de crues illettrées incapables de remplir les fonctions de « 4 gradé; nos troupes d'Afrique ont besoin d'être renfor-
-cées par des hommes venus de la métropole, etc., etc.
+n'en peut fournir; la Bretagne produit beaucoup de crues illettrées incapables de remplir les fonctions de « 4 gradé; nos troupes d'Afrique ont besoin d'être renforcées par des hommes venus de la métropole, etc., etc.
 Il est donc nécessaire d'envoyer dans l'Est des recrues
 
-1 de complément prises dans d'autres régions; il est in-
+1 de complément prises dans d'autres régions; il est indispensable de diriger sur les corps de Bretagne des
 
-dispensable de diriger sur les corps de Bretagne des
+: garçons instruits en échange d'un nombre équivalent « 5 de Bretons; et il faut prélever sur les subdivisions désignées à cet effet la quote-part réclamée par les corps
+É d'Afrique, sans compter ce qu'exigent les régiments coloniaux. D'autre part, on a cru devoir maintenir les
+dispositions traditionnelles qui consistent à répartir au
 
-: garçons instruits en échange d'un nombre équivalent « 5 de Bretons; et il faut prélever sur les subdivisions dési-
-
-gnées à cet effet la quote-part réclamée par les corps
-É d'Afrique, sans compter ce qu'exigent les régiments co-
-loniaux. D'autre part, on a cru devoir maintenir les
-À: dispositions traditionnelles qui consistent à répartir au
-
-loin le contingent fourni par les grosses aggloméra-
-tions urbaines telles que Paris et Lyon.
+loin le contingent fourni par les grosses agglomérations urbaines telles que Paris et Lyon.
 
 É Mais, en règle générale, et notamment en ce qui con-
 
@@ -1248,8 +1164,7 @@ f. cerne l'infanterie, les jeunes gens domiciliés dans une
 subdivision de région sont affectés au régiment staFe tionné dans cette subdivision et lorsqu'il s'agit de four-
 
 : nir des soldats à plusieurs régiments, les commandants
-de recrutement ont ordre de grouper autant que pos-
-sible les hommes de chaque canton et de chaque com- « 4 mune pour les envoyer au même corps.
+de recrutement ont ordre de grouper autant que possible les hommes de chaque canton et de chaque com- « 4 mune pour les envoyer au même corps.
 Quant aux jeunes soldats mariés ou aux veufs avec
 enfants, ils font de droit leur service militaire dans le
 a régiment qui tient garnison au lieu de leur résidence,
@@ -1257,8 +1172,7 @@ a régiment qui tient garnison au lieu de leur résidence,
 - ou, à défaut, dans le régiment le plus voisin. C'est une
 prime au mariage qui réjouira certainement le cœur de
 Quelle différence avec ce qui se passait autrefois,
-sous le second Empire, par exemple! Bien loin de favo-
-riser le recrutement régional, on cherchait alors à
+sous le second Empire, par exemple! Bien loin de favoriser le recrutement régional, on cherchait alors à
 dépayser le conscrit par tous les moyens possibles pour
 creuser un abîme entre lui et la société civile.
 Non seulement le jeune soldat était envoyé systématiquement dans un régiment fort éloigné de son lieu
@@ -1296,8 +1210,7 @@ ni en temps de guerre, ni pour les manœuvres, les
 F. 4 réservistes ne rejoignaient le régiment qui les avait
 (3 instruits comme jeunes soldats,
 
-La rapidité de la mobilisation exige, en effet, impé-
-rieusement, que les hommes de la réserve se rendent à
+La rapidité de la mobilisation exige, en effet, impérieusement, que les hommes de la réserve se rendent à
 È la caserne, en cas de guerre, par le plus court chemin. « On est donc obligé de les affecter au régiment le plus
 à ne voisin de leur domicile, c'est-à-dire à celui-là même où
 Te il était interdit de les envoyer pour accomplir leur serRON, vice actif.
@@ -1312,7 +1225,7 @@ UNE 2 aux réservistes en temps de paix, exercices dont la
 
 plus, comme autrefois, de mettre l'homme en contact »
 1 avec un milieu nouveau. à
-A; Les dispositions adoptées cette année pourlaréparti-
+Les dispositions adoptées cette année pourlaréparti-
 
 Ton tion du contingent tiennent largement compte de ces
 1 desiderata. Elles marquent un pas de plus vers la.
@@ -1327,8 +1240,7 @@ Pour bien des gens elles ne sont pas autre chose
 qu'un spectacle coûteux, une caricature de la guerre,
 . inventée pour permettre aux grands chefs de parader à
 la tête de leurs troupes et pour donner aux populations je
-ébahies l'illusion que la machine de guerre dont l'entre-
-tien pèse si lourdement sur le pays est bien un instru-;
+ébahies l'illusion que la machine de guerre dont l'entretien pèse si lourdement sur le pays est bien un instru-;
 . ment de défense puissant et redoutable.
 A dire vrai, ces canonnades, ces pétarades sans fin,
 … ces assauts où chacun déploie d'autant plus de valeur
@@ -1361,8 +1273,7 @@ de la mobilisation.
 De même qu'il serait insensé de mettre en service un
 à cuirassé ou un croiseur sans avoir expérimenté en mer À
 FRE la manière dont se comportent au cours d'une action
-d'ensemble, leur artillerie, leurs appareils de propul-
-sion, de direction, etc., etc., de même ce serait courir
+d'ensemble, leur artillerie, leurs appareils de propulsion, de direction, etc., etc., de même ce serait courir
 2 au-devant des plus graves mécomptes que d'attendre le
 ? moment du danger pour faire jouer le mécanisme
 14 humain dont l'ensemble (états-majors, services divers « et troupes) constitue ce que l'on appelle une armée
@@ -1383,14 +1294,12 @@ d'une action de guerre réelle. Elles donnent souvent lieu
 
 à des invraisemblances criantes, parce qu'il manque à
 aux manœuvres du temps de paix certains éléments
-dont la puissance est décisive en campagne, notam-
-ment: l'effet destructif du feu, l'impression produite par
+dont la puissance est décisive en campagne, notamment: l'effet destructif du feu, l'impression produite par
 les pertes.
 L'usage de faire décider par des arbitres si une troupe
 a réussi ou non à repousser l'ennemi est un simple;
 expédient, de valeur douteuse. L'arbitre ne peut fonder
-ses appréciations que sur l'effectif des troupes en pré-
-sence, sur la nature du terrain où l'on combat, sur
+ses appréciations que sur l'effectif des troupes en présence, sur la nature du terrain où l'on combat, sur
 : l'opportunité plus ou moins discutable des dispositions
 prises. Les forces morales n'entrent point en ligne de
 compte, et ce sont elles pourtant qui, à la guerre, font
@@ -1417,8 +1326,7 @@ temps de guerre.
 Cette manière de comprendre la question permettrait ER.
 à l'activité des états-majors et des troupes de s'exercer
 tout entière dans les limites de la vraisemblance. Elle
-ferait cesser cette comédie trompeuse des batailles figu-
-rées, à la réussite de laquelle on sacrifie trop souvent la ge:
+ferait cesser cette comédie trompeuse des batailles figurées, à la réussite de laquelle on sacrifie trop souvent la ge:
 partie vraiment sérieuse et utile des grandes manœu- #4
 ; Quant à l'instruction des troupes en vue du combat,
 elle doit être donnée sur des champs de tir en terrain
@@ -1437,22 +1345,18 @@ en croire, ils possédaient le secret de vaincre. Et comment en douter quand on 
 doctoral les fautes qui avaient conduit tant de généraux
 à la défaite: celui-ci ne s'était pas gardé suffisamment
 
-sur sa droite; celui-là n'avait pas accordé assez d'atten-
-tion aux dangers qui menaçaient sa gauche; tel autre, ail
+sur sa droite; celui-là n'avait pas accordé assez d'attention aux dangers qui menaçaient sa gauche; tel autre, ail
 — qui l'eût cru! — s'était montré assez inepte pour se
 Quant au vainqueur, sa marche oblique, son ordre
 1 échelonné ou son mouvement tournant avaient produit
 . un effet décisif. C'est avec une désinvolture parfaite je
-: qu'en un tour de main il avait coupé et enveloppé l'ar-
-mée ennemie, ni plus ni moins que s'il s'était agi d'une
-Tout cela donnait à nos jeunes imaginations l'impres-
-sion que la guerre est une sorte de jeu dont les soldats
+: qu'en un tour de main il avait coupé et enveloppé l'armée ennemie, ni plus ni moins que s'il s'était agi d'une
+Tout cela donnait à nos jeunes imaginations l'impression que la guerre est une sorte de jeu dont les soldats
 sont les pions, et où il suffit, pour gagner, d'observer
 certaines règles, d'une rigueur mathématique.
 ( Cependant un de nos professeurs tenait un langage
 différent. Il n'avait pas l'honneur envié d'enseigner la
-tactique et la stratégie. Sa tâche, plus modeste, consis-
-tait à nous inculquer les arides principes de l'administration militaire. Mais il s'évadait parfois de sa besogne
+tactique et la stratégie. Sa tâche, plus modeste, consistait à nous inculquer les arides principes de l'administration militaire. Mais il s'évadait parfois de sa besogne
 À coutumière, — par quel subterfuge, je n'en sais plus?
 rien, — et alors il nous entretenait longuement des
 forces morales sans lesquelles, disait-il, tout n'est que
@@ -1461,8 +1365,7 @@ pourtant qui disait vrai et ceux d'entre nous dans l'es- à
 prit desquels il a déposé la graine qui germa plus tard
 devraient lui en garder un souvenir reconnaissant.
 - Les forces morales! Elles sont tout à la guerre. Sans
-elles les plus habiles combinaisons échouent misérable-
-ment. Grâce à elles les manœuvres les plus simples
+elles les plus habiles combinaisons échouent misérablement. Grâce à elles les manœuvres les plus simples
 -comme ies plus osées permettent d'aboutir au succès.
 
 Car le soldat n'est pas un automate, bien qu'on ait
@@ -1481,9 +1384,7 @@ peur des coups, ne suffisent pas pour l'élever au-dessus
 
 de ces misères, pour lui permettre de les traverser sans
 défaillance. Il n'y a de salut que dans un sentiment
-profond du devoir, dans un esprit de solidarité, de dé-
-
-vouement et d'abnégation poussé jusqu'à ses dernières
+profond du devoir, dans un esprit de solidarité, de dévouement et d'abnégation poussé jusqu'à ses dernières
 
 De semblables qualités se trouvent en germe dans la
 plupart des individus, maïs elles ne peuvent atteindre
@@ -1496,9 +1397,7 @@ française on ait abouti dans ce sens à des idées plus
 
 saines que celles que l'on professait autrefois.
 
-Sous l'impulsion ministérielle, secondée par l'initia-
-
-tive de quelques esprits éclairés, des efforts ont été
+Sous l'impulsion ministérielle, secondée par l'initiative de quelques esprits éclairés, des efforts ont été
 tentés de divers côtés, au régiment comme aux écoles
 militaires, pour substituer un idéal nouveau à l''ancienne et stérile école qui ne connaissait rien au delà
 
@@ -1513,16 +1412,14 @@ Mais dans cet ordre d'idées comme en beaucoup
 d'autres, il est un peuple que notre ignorance traitait,
 
 hier encore, de barbare, et qui s'est révélé tout à coup à
-supérieur à ceux qui prétendaient lui montrer le che-
-min. Je veux parler des Japonais.
+supérieur à ceux qui prétendaient lui montrer le chemin. Je veux parler des Japonais.
 Nous connaissons assez les détails de la longue guerre
 qui vient de finir pour savoir combien les soldats du
 - mikado furent admirables au feu, et pour nous rendre;
 compte de l'abnégation avec laquelle ils réalisèrent les
 combinaisons de leur état-major.
 Ce que l'on ignore plus généralement, c'est le langage
-que leurs chefs sont habitués à leur parler, c'est la nature des sentiments que l'on cherche à tenir constam-
-ment éveillés dans leur esprit.
+que leurs chefs sont habitués à leur parler, c'est la nature des sentiments que l'on cherche à tenir constamment éveillés dans leur esprit.
 . Comme document intéressant à ce sujet, nous avons:
 les ordres du général Oku, dont un exemplaire, tombé
 entre les mains des Russes, a été publié récemment. En
@@ -1540,7 +1437,7 @@ que nous soyons arrivés au but.
 « Le véritable fondement d'une forte discipline, ce
 sont les bonnes relations, résultat d'une confiance mutuelle, qui doivent exister entre supérieurs et subordonnés.
 
-« Un chef ne doit jamais se laisser influencer par des «: considérations personnelles. Il ne doit avoir en vue que
+« Un chef ne doit jamais se laisser influencer par des considérations personnelles. Il ne doit avoir en vue que
 le bien du service, le bien général. » à
 Un autre passage dénote une singulière préoccu- à
 pation de faire toujours mieux sans se laisser distraire
@@ -1647,9 +1544,7 @@ Mais ce tableau répond-il bien à la réalité?
 aujourd'hui par les deux premiers articles de M. de
 É Lanessan, et en réservant le troisième pour une étude
 
-! M. de Lanessan dit qu'une guerre peut surgir à l'im-
-
-proviste. En cela il a parfaitement raison. C'est même
+! M. de Lanessan dit qu'une guerre peut surgir à l'improviste. En cela il a parfaitement raison. C'est même
 
 pour parer à cette éventualité qu'en France comme en
 Allemagne il existe des forteresses et des troupes de
@@ -1695,8 +1590,7 @@ corps d'armée, sauf à la frontière russe, où il y en a
 M. de Lanessan dit qu'au lieu d'avoir 5 officiers et
 154 hommes par batterie d'artillerie (effectif de guerre)
 nous n'avons que 5 officiers et 130 hommes. Comparons
-ces chiffres avec ceux des effectifs de couverture allemands: la batterie montée allemande renforcée, a 4 offi-
-ciers et 128 hommes; la batterie à cheval, 4 officiers et
+ces chiffres avec ceux des effectifs de couverture allemands: la batterie montée allemande renforcée, a 4 officiers et 128 hommes; la batterie à cheval, 4 officiers et
 121 hommes. Je ne vois pas où réside notre infériorité.
 M. de Lanessan dit qu'avec le service de trois ans
 nous avions les 2/3 des hommes de chaque compagnie
@@ -1710,8 +1604,7 @@ pourvus d'une instruction suflisante à un moment quel-
 è he: feraient que d'arriver. À
 À Mais l'infanterie allemande est dans une situation
 ; 1 absolument analogue, et cela depuis 1893, date à la-
-0 quelle le service de deux ans a été adopté en Alle-
-se magne! Remarquons, en outre, que depuis cette année0 les recrues françaises et allemandes sont incorporées
+0 quelle le service de deux ans a été adopté en Allese magne! Remarquons, en outre, que depuis cette année0 les recrues françaises et allemandes sont incorporées
 14 à la même époque, au commencement d'octobre. L'inKa struction de ces hommes se poursuit donc parallèlement.
 « —-on ne saurait s'en prendre aux défauts d'organisake tion invoqués par M. de Lanessan. )
 Je passe à la question de nos forteresses.
@@ -1738,8 +1631,7 @@ mobilisation, voilà tout.
 
 Dans ces conditions, il est presque sans intérêt de
 
-faire ressortir les autres difficultés techniques que pré-
-senterait une attaque improvisée comme celle dont s'effraie M. de Lanessan.
+faire ressortir les autres difficultés techniques que présenterait une attaque improvisée comme celle dont s'effraie M. de Lanessan.
 
 Cependant l'un des officiers les plus compétents de
 larme de l'artillerie, M. le général Langlois, ancien
@@ -1839,8 +1731,7 @@ Elle serait réduite à la défensive. Elle se trouverait
 À identiquement dans le même état que nos corps d'ar-
 À mée jetés étourdiment à la frontière au début de la;
 ( Ne l'oublions pas: les troupes de couverture sont
-susceptibles de fournir une certaine résistance et d'exé-
-cuter de petites opérations de guerre dans un rayon
+susceptibles de fournir une certaine résistance et d'exécuter de petites opérations de guerre dans un rayon
 restreint, parce qu'elles ont un effectif renforcé et
 à qu'elles peuvent se ravitailler dans les dépôts et les
 places fortes du voisinage.
@@ -1874,9 +1765,7 @@ de manière à pouvoir déboucher avec toutes leurs
 forces dans ce même délai de vingt-quatre heures.
 
 « Grâce au recrutement régional, il ne faut pas plus
-de deux jours aux corps d'armée allemands pour incor-
-
-porer leurs réservistes. Cinq jours plus tard, leur armée
+de deux jours aux corps d'armée allemands pour incorporer leurs réservistes. Cinq jours plus tard, leur armée
 de campagne peut être rendue et constituée sur le lieu
 de rassemblement, prête à prendre l'offensive. Et il est
 possible au gouvernement de Berlin de faire tout cela
@@ -1884,8 +1773,7 @@ sans rien dire, sans même que nous puissions faire
 
 entendre une plainte, dont le résultat le moins douteux
 serait la rupture diplomatique et l'entrée en campagne
-immédiate de forces déjà constituées, déjà rendues peut-
-être sur le lieu de l'offensive. »
+immédiate de forces déjà constituées, déjà rendues peutêtre sur le lieu de l'offensive. »
 
 A qui M. de Lanessan fera-t-il croire que le gouvernement de Berlin peut procéder à une mobilisation
 générale « sans rien dire ». Et quelle faible idée se
@@ -1944,13 +1832,12 @@ Il nous faut douze jours pour rassembler nos troupes.
 ‘ri Il faut vingt-quatre heures aux Allemands. »
 . M. de Lanessan trouve que nos places sont à la a
 merci de l'artillerie allemande. Par contre, après avoir
-énuméré les places allemandes, il les trouve inexpu-
-gnables, « parce que nous n'avons aucune pièce (1
+énuméré les places allemandes, il les trouve inexpugnables, « parce que nous n'avons aucune pièce (1
 d'artillerie lourde de campagne ». NE
 HEuT J'ai déjà l'occasion de dire que l'honorable député
 fait erreur: nous possédons une artillerie lourde d'ar-
 à mée et une artillerie lourde de corps d'armée.
-RES Ce matériel serait d'ailleurs insuffisant pour venir à:
+RES Ce matériel serait d'ailleurs insuffisant pour venir
 bout des forteresses d'Alsace-Lorraine, de même que la
 grosse artillerie de campagne allemande échouerait
 À probablement devant nos places fortes.
@@ -1959,17 +1846,14 @@ Une artillerie de ce genre est faite pour agir contre
 les obstacles matériels du champ de bataille, que les +5
 pièces légères ne peuvent entamer. Elle peut être utile
 contre une position fortifiée, ou même contre des forts
-d'arrêt isolés. Pour se rendre maître d'un camp retran-
-ché régulier, il faut les moyens, plus puissants, que:
+d'arrêt isolés. Pour se rendre maître d'un camp retranché régulier, il faut les moyens, plus puissants, que:
 fournissent les parcs de siège. À
 Dans son quatrième et dernier article, M. de Lanes-:
 san conclut. Comme il était facile de le prévoir, il
 demande: la modification du recrutement de nos sol- il
 dats; la création d'une artillerie lourde de campagne À
-(qui existe); l'amélioration de l'armement et de la pro-
-tection des forteresses de couverture. Il fait ressortir en
-; outre la nécessité de construire des voies ferrées nou-
-velles pour faciliter la concentration des troupes vers la
+(qui existe); l'amélioration de l'armement et de la protection des forteresses de couverture. Il fait ressortir en
+; outre la nécessité de construire des voies ferrées nouvelles pour faciliter la concentration des troupes vers la
 frontière, et il insiste pour que l'on fortifie Nancy. Coût
 total: de 500 à 600 millions.
 Je crois avoir démontré suffisamment ce qu'il faut
@@ -1981,8 +1865,7 @@ invasion brusque du territoire et annihilation de nos
 Nous n'éprouvons nul besoin, pour parer à ce péril
 imaginaire, de changer un système de recrutement qui
 est précisément analogue à celui de notre adversaire et
-qui, pour la première fois, nous permet de réaliser l'éga-
-lité de tous les citoyens devant le devoir militaire.
+qui, pour la première fois, nous permet de réaliser l'égalité de tous les citoyens devant le devoir militaire.
 Nous n'avons nul besoin de créer un matériel de
 grosse artillerie qui existe déjà et peut-être vaudrait-il
 
@@ -2007,8 +1890,7 @@ en France, — peut, il est vrai, nous faire envisager avec
 . peine la perspective de laisser une de nos plus belles
 ; cités exposée sans défense aux vicissitudes de la
 guerre. Mais, si l'on y réfléchit un peu, ne voit-on pas
-qu'à notre époque une ville ouverte est rarement appe-
-lée à subir des épreuves aussi terribles que celles
+qu'à notre époque une ville ouverte est rarement appelée à subir des épreuves aussi terribles que celles
 qui attendent immanquablement une ville forte assié-
 
 En tout cas le budget de la guerre est assez grevé à
@@ -2018,8 +1900,7 @@ avant d'engager le pays dans des dépenses extraordinaires aussi importantes.
 Les progrès les plus urgents à accomplir ne sont pas
 
 d'ordre matériel. Ils ne s'achètent pas avec des millions.
-Ce qu'il nous faut avant tout, c'est un meilleur commandement, c'est une cohésion plus grande entre les diffé-
-rents éléments qui composent la nation armée.
+Ce qu'il nous faut avant tout, c'est un meilleur commandement, c'est une cohésion plus grande entre les différents éléments qui composent la nation armée.
 Il serait également désirable que nos esprits se
 laissent moins facilement impressionner par des fantômes et qu'ils s'habituent à discerner avec plus de
 sang-froid ce qui constitue réellement le fort et le faible
@@ -2061,8 +1942,7 @@ M. Mais ceci est mieux:
 
 3 habitants du pays envahi; naturellement ils méritent la
 
-mort s'ils ne sont pas fidèles. D'ailleurs il est parfaite-
-ment légitime d'aller plus loin encore et d'obliger les
+mort s'ils ne sont pas fidèles. D'ailleurs il est parfaitement légitime d'aller plus loin encore et d'obliger les
 non-belligérants à fournir des indications sur les mouve-
 à. ments de leur armée nationale, sur les ressources et les
 À secrets militaires de leurs compatriotes. Et le Grand
@@ -2097,8 +1977,7 @@ doit aux propriétés, à l'honneur de l'individu, à l'hon- à
 À neur des femmes ». Par conséquent, se servir de gens
 pareils dans une guerre européenne, équivaut à faire;
 usage de ces moyens de destruction barbares, réprouvés?
-; par tous, qui s'appellent: « l'assassinat, l''empoisonne-
-ment des puits et des aliments, la mise à prix de la tête
+; par tous, qui s'appellent: « l'assassinat, l''empoisonnement des puits et des aliments, la mise à prix de la tête
 d'un adversaire, etc., etc. (sic) »
 Pauvres turcos! Sans doute ils n'entendent rien aux
 é sentiments chrétiens dont le Grand État-Major nous
@@ -2134,8 +2013,7 @@ non seulement l'état-major, mais encore tout le système
 militaire de la Turquie et, à l'issue de la guerre grécoturque de 1897, il a publié un récit de la campagne,
 dans lequel il constate avec amour les progrès de ses
 Mais il y a plus. Toute une pléiade d'officiers ottomans sont venus perfectionner leur instruction dans l'armée prussienne. Ils ont fait des stages dans les régile ments et y ont exercé un commandement effectif, — ce
-qui par parenthèse a cruellement afiliger l'âme chré-
-tienne des soldats allemands placés sous leurs ordres.
+qui par parenthèse a cruellement afiliger l'âme chrétienne des soldats allemands placés sous leurs ordres.
 L'un d'entre eux, Pertev Bey, ayant servi auprès du
 
 comte de Haeseler, alors commandant du 16° corps
@@ -2191,9 +2069,7 @@ légèrement au choc revient en avant et replace le canon
 
 À Sans être artilleur, il suffit d'avoir tirer les anciens
 
-canons, d'avoir observé le saut formidable qu'ils fai-
-
-saient en arrière quand le coup partait, et d'avoir
+canons, d'avoir observé le saut formidable qu'ils faisaient en arrière quand le coup partait, et d'avoir
 
 te remarqué la peine que l'on avait ensuite à les remettre;
 dans la direction exacte du but, pour se rendre compte.
@@ -2210,11 +2086,7 @@ conséquent avec autant de sûreté que de rapidité. Aussi,
 
 je grâce à ce perfectionnement et à quelques autres qu'il
 
-est inutile de mentionner ici, notre canon tire-t-il nor-
-
-malement, par minute, vingt coups parfaitement ajus-
-
-tés. On peut même aller un peu plus vite en cas de
+est inutile de mentionner ici, notre canon tire-t-il normalement, par minute, vingt coups parfaitement ajustés. On peut même aller un peu plus vite en cas de
 
 Le canon de campagne allemand est d'un calibre;
 
@@ -2228,13 +2100,11 @@ Les Allemands ont adopté ce matériel un peu hâtive-;
 
 ment, en 1896; ils ont achevé d'en armer les troupes
 
-en 1899. Mais après avoir reconnu combien il est infé-
-rieur au nôtre, ils n'ont pas hésité devant les frais
+en 1899. Mais après avoir reconnu combien il est inférieur au nôtre, ils n'ont pas hésité devant les frais
 d'une transformation renouvelée à si brève échéance, "4
 et ils sont en train de le réfectionner.
 Le secret relatif aux détails de cette opération est
-assez bien gardé pour que l'on manque de données pré-
-cises. Cependant tout porte à croire que, contrairement
+assez bien gardé pour que l'on manque de données précises. Cependant tout porte à croire que, contrairement
 à ce qui a été dit dans les journaux, nos voisins ont
 conservé les anciens canons, — les anciens « tubes
 pour me servir de l'expression technique, et qu'ils Ne
@@ -2244,10 +2114,8 @@ comme le nôtre, de boucliers métalliques protégeant
 les servants.
 En évitant de refaire un matériel entièrement neuf,
 les Allemands diminuent la dépense, mais ils gagnent
-aussi du temps, et l'on peut s'attendre à voir prochai-
-nement toutes leurs batteries munies de cette pièce per- À
-fectionnée. Ce jour-là, ils n'auront pas seulement rat-
-trapé l'avance que nous avions sur eux au point de vue
+aussi du temps, et l'on peut s'attendre à voir prochainement toutes leurs batteries munies de cette pièce per- À
+fectionnée. Ce jour-là, ils n'auront pas seulement rattrapé l'avance que nous avions sur eux au point de vue
 de l'artillerie: ils nous auront dépassés de beaucoup, et
 Quand notre nouveau matériel a été mis en service,
 on a réduit de six à quatre le nombre des pièces qui
@@ -2259,16 +2127,13 @@ pièces un approvisionnement de projectiles qui fût en
 rapport avec la rapidité de leur tir, sans que l'effectif
 dela batterie en hommes, chevaux et voitures fût sen-:
 
-siblement modifié. Cet expédient est évidemment com-
-mode au point de vue de l'organisation, de l'administration, et même de la conduite du feu, puisqu'il réduit
+siblement modifié. Cet expédient est évidemment commode au point de vue de l'organisation, de l'administration, et même de la conduite du feu, puisqu'il réduit
 le nombre des unités dont le capitaine doit s'occuper À
 pendant le tir. Mais il est fortement discutable, d'autre
 part, et je ne sache pas que l'on aït jamais songé,
-par exemple, à réduire le nombre des tireurs d'in-
-fanterie lorsqu'ont paru les armes à répétition, sous
+par exemple, à réduire le nombre des tireurs d'infanterie lorsqu'ont paru les armes à répétition, sous
 prétexte qu'un nouveau fusil en valait deux ou trois:
-Quoi qu'il en soit, les Allemands ne paraissent aucu-
-nement disposés à diminuer le nombre des pièces de:
+Quoi qu'il en soit, les Allemands ne paraissent aucunement disposés à diminuer le nombre des pièces de:
 leurs batteries, et comme ils mettent en ligne autant de
 batteries que nous, à peu de chose près, nous allons
 nous trouver ayant un tiers de bouches à feu de moins
@@ -2292,16 +2157,13 @@ faut pas sacrifier l'essentiel, c'est-à-dire la pièce légère,
 larme de bataille. On ne tire pas les perdreaux à
 balle, pas plus qu'on ne combat des lignes d'infanterie
 avec des obus de 15 centimètres.
-Un côté de la question sur lequel il est urgent de por-
-ter son attention est le ravitaillement en munitions. Du
+Un côté de la question sur lequel il est urgent de porter son attention est le ravitaillement en munitions. Du
 moment que nos canons sont à tir rapide, la consommation en projectiles sera énorme; c'est fatal; il faut
-s'y résigner. Les convois de munitions devront être pré-
-vus en conséquence, et si l'on craint de manquer de
+s'y résigner. Les convois de munitions devront être prévus en conséquence, et si l'on craint de manquer de
 chevaux pour traîner tant de voitures, ce sera le cas
 d'étudier l'emploi de la traction automobile, du moins
 pour les échelons les plus éloignés du champ de bataille.
-Dans quelques semaines, dans quelques jours peut-
-être, paraîtront les tableaux d'avancement des officiers
+Dans quelques semaines, dans quelques jours peutêtre, paraîtront les tableaux d'avancement des officiers
 de l'armée française pour 1906; tableaux « impatiemment attendus suivant l'expression consacrée; source
 de joie pour quelques-uns, cause de dépit et de découragement pour le plus grand nombre, car si la foule est
 grande, de ceux qui prétendent y figurer, le chiffre des
@@ -2329,7 +2191,7 @@ Si l'on en juge d'après la multiplicité et la diversité
 des décrets, règlements, instructions et circulaires de
 tout genre qui ont paru depuis seulement une trentaine
 d'années pour régler l'application de l'avancement au
-ï, choix, il n'est pas de question sur laquelle les procédés
+choix, il n'est pas de question sur laquelle les procédés
 CE aient autant varié, préuve évidente de la difficulté
 A d'arriver à une solution satisfaisante,
 Tantôt le ministre abdique une partie de ses préro
@@ -2355,8 +2217,7 @@ brigade réunit ses colonels; le général de division
 réunit ses brigadiers; le général en chef réunit ses divi- à À
 sionnaires, et de ces conférences successives sort, dans à
 chaque corps d'armée, un tableau des officiers proposés
-pour le grade supérieur, classés suivant l'ordre de pré-
-férence définitivement arrêté par le commandant de
+pour le grade supérieur, classés suivant l'ordre de préférence définitivement arrêté par le commandant de
 Les propositions pour le grade de colonel et au-dessus
 vont, en outre, aux généraux inspecteurs de corps à
 d'armée qui réduisent chacun en un tableau unique,
@@ -2364,13 +2225,11 @@ transformé à leur guise, les listes des corps d'armée
 dont ils ont l'inspection.
 Le travail personnel du ministre, ou plutôt celui de
 son cabinet, consiste alors à fusionner en un tableau
-général les tableaux des corps d'armée pour les propo-
-sitions jusqu'au grade de lieutenant-colonel inclus, et
+général les tableaux des corps d'armée pour les propositions jusqu'au grade de lieutenant-colonel inclus, et
 les tableaux des inspecteurs de corps d'armée, pour les A
 propositions relatives aux grades plus élevés.
 Comme ce classement est fondé, — en théorie, — sur
-les notes des officiers, et que tout oflicier a connaïis-
-sance, maintenant, de ses notes, il s'ensuit que tout
+les notes des officiers, et que tout oflicier a connaïissance, maintenant, de ses notes, il s'ensuit que tout
 doit se passer, — toujours théoriquement, — de la façon
 
 la plus loyale et la plus propre à assurer un excellent
@@ -2401,17 +2260,14 @@ pendant quelques mois, — sans préjudice des faveurs
 De pareils errements sont contagieux. Aussi,
 M. Étienne ne devra-t-il pas s'étonner si les états de
 proposition qu'on lui soumet sont encombrés d'ofliciers
-d'ordonnance, de membres des « grandes familles mili72
-
-taires et de « postards transformés pour la circon-
+d'ordonnance, de membres des « grandes familles militaires et de « postards transformés pour la circon-
 
 ? Mais quelle que soit sa bonne volonté, il restera
 précis et sûrs. Il pourra peut-être écarter quelques choix
 scandaleux, réparer quelques injustices trop criantes. Il?
 sera hors d'état d'empêcher que l'œuvre, dans son
 ensemble, ne reste médiocre, car c'est le système en
-lui-même qui est mauvais, ce sont ses défauts qui don-
-nent beau jeu à l'ardeur des intrigants et des arrivistes
+lui-même qui est mauvais, ce sont ses défauts qui donnent beau jeu à l'ardeur des intrigants et des arrivistes
 et à l'action des coteries.;
 
 Tant que nous n'aurons pas une nouvelle loi d'avancement, fondée sur des règles précises, limitant les
@@ -2428,9 +2284,7 @@ jour. Chaque officier connaît ses notes et sait quel rang
 
 : ses chefs lui assignent sur la liste des candidats au
 
-grade supérieur. Il était évident, dès lors, qu'il ne pour-
-
-exercés dans les corps de troupe, milieux nombreux, où
+grade supérieur. Il était évident, dès lors, qu'il ne pourexercés dans les corps de troupe, milieux nombreux, où
 : l'on se connaît, où les passe-droits donnent facilement
 prétexte à récriminations et à commentaires, sinon à
 réclamations. Mais si un chef dépourvu de jugement ou
@@ -2466,8 +2320,7 @@ communications relatives à la guerre de Mandchourie
 ont toujours conclu, invariablement, à la victoire de
 Kouropatkine. Ce « flair d'artilleur » ne pouvait manquer
 d'être récompensé d'une manière éclatante.
-Quoi qu'il en soit, la préférence donnée aux « embus-
-qués » sur les officiers de iroupe est, ici, évidente, et
+Quoi qu'il en soit, la préférence donnée aux « embusqués » sur les officiers de iroupe est, ici, évidente, et
 j'en pourrais citer d'autres exemples, nombreux et pro-
 De pareïls symptômes sont inquiétants. Sacrifier des
 gens attachés à un labeur qui constitue le métier militaire par excellence.et d'autre part favoriser outre mesure
@@ -2499,23 +2352,17 @@ Le cabinet militaire de M. Étienne compte, en plus du
 général chef de cabinet, dix-huit officiers de l'armée, du
 grade de lieutenant à celui de lieutenant-colonel. Sur
 VAE ces dix-huit officiers, neuf faisaient déjà partie du ca-
-{5 Or, deux mois à peine se sont écoulés depuis la dé-
-mission de M. Berteaux, et déjà seize de ces officiers À
+{5 Or, deux mois à peine se sont écoulés depuis la démission de M. Berteaux, et déjà seize de ces officiers À
 ont récolté, qui une croix, qui un avancement, qui une
-: inscription au tableau, les uns à la suite du « testa-
-
-ment » du ministre sortant, les autres par don de
+: inscription au tableau, les uns à la suite du « testament » du ministre sortant, les autres par don de
 
 à joyeux avènement du ministre nouveau.
 
 Deux officiers seulement n'ont rien obtenu pendant
 
-ce court laps de temps: l'un parce qu'il avait été ré-
-
-cemment promu, hors tour, au grade supérieur, par
+ce court laps de temps: l'un parce qu'il avait été récemment promu, hors tour, au grade supérieur, par
 M. Berteaux, l'autre, — le pauvre, — parce qu'à son:
-arrivée au ministère, avec M. Étienne, il était déjà che-
-valier de la Légion d'honneur, et fraîchement pourvu
+arrivée au ministère, avec M. Étienne, il était déjà chevalier de la Légion d'honneur, et fraîchement pourvu
 
 d'un nouveau galon.
 Tous ceux qui étaient encore en état d'attraper
@@ -2532,8 +2379,7 @@ ministre au milieu du brouhaha des recommandations
 et des sollicitations.
 à Généralement, on se bornaïit à récompenser les ser- à
 vices rendus; ici, l'on a surtout récompensé les services
-à rendre; de cette manière, l'un au moins des deux in-
-téressés est sûr de n'être pas volé!
+à rendre; de cette manière, l'un au moins des deux intéressés est sûr de n'être pas volé!
 Mais les faveurs ministérielles ne se distinguent pas
 seulement par leur profusion. Elles s'exercent encore
 ; dans des conditions vraiment peu ordinaires.
@@ -2546,11 +2392,9 @@ influent que M. Étienne connaît bien: « Le charger
 d'une nouvelle mission? Mais je n'en vois pas d'autre à
 lui donner que de l'envoyer dans un régiment. C'est la À
 seule qu'il n'ait encore jamais remplie. »
-Je m'empresse d'ajouter que ce ministre pince-sans-
-rire n'a point mis sa menace à exécution. L'oflicier
+Je m'empresse d'ajouter que ce ministre pince-sansrire n'a point mis sa menace à exécution. L'oflicier
 ; a continué à éviter le régiment; il vient d'en être
-récompensé par un choix qui lui fait gagner des centaines de rangs sur les plus favorisés de ses camarades. Il n'est, d'ailleurs, pas breveté, et c'est cette ab-
-sence du diplôme d'instruction militaire supérieure qui
+récompensé par un choix qui lui fait gagner des centaines de rangs sur les plus favorisés de ses camarades. Il n'est, d'ailleurs, pas breveté, et c'est cette absence du diplôme d'instruction militaire supérieure qui
 lui permettra, sans doute, par une anomalie singulière,
 d'être promu légalement, dans un avenir prochain, sans
 avoir jamais exercé de commandement. Le législateur
@@ -2559,8 +2403,7 @@ avoir jamais exercé de commandement. Le législateur
 6 jamais dans la troupe, et c'est une simple circulaire
 ministérielle, facilement révocable, qui invite les offciers non brevetés à remplir un emploi de leur grade
 avant de gagner l'échelon supérieur.
-: Par contre, c'est une loi qui oblige les officiers breve-
-tés d'état-major à passer deux ans dans un régiment
+: Par contre, c'est une loi qui oblige les officiers brevetés d'état-major à passer deux ans dans un régiment
 comme capitaines avant d'être promus commandants,
 et deux ans en qualité de commandants avant d'être
 promus lieutenants-colonels. Dans le même ordre
@@ -2609,16 +2452,13 @@ Enfin, comme la durée du service atteignait huit,
 ,
 
 sept ou cinq ans, suivant les époques, — et même plus, à
-ï en cas de rengagement, — on ne voyait que des avan-
-tages à occuper les hommes qui avaient terminé leur
+ï en cas de rengagement, — on ne voyait que des avantages à occuper les hommes qui avaient terminé leur
 instruction, en leur faisant remplir, dans l'intérieur du
 régiment, toutes sortes d'emplois. Cependant, beaucoup
 de soldats auraient encore croupi dans l'oisiveté si l'on
 n'avait multiplié les revues, les manœuvres de parade, et
 si l'on n'avait fait de larges emprunts à la main-d'œuvre
-militaire pour le travail des arsenaux, pour les con-
-structions du génie et même pour des entreprises d'uti-
-lité générale ou privée.
+militaire pour le travail des arsenaux, pour les constructions du génie et même pour des entreprises d'utilité générale ou privée.
 Pendant les années qui suivirent la guerre de 1870-
 ( 1871, la durée du service militaire fut diminuée en à
 même temps que l'obligation de servir s'étendit à toutes
@@ -2643,8 +2483,7 @@ armes; une foule de jeunes gens perdent, à remplir des
 fonctions serviles ou sédentaires, le temps qu'ils
 devraient consacrer à devenir des soldats.
 
-D'après les calculs faits par des personnalités compé-
-tentes, c'est à plus de cent mille hommes que s'élève le
+D'après les calculs faits par des personnalités compétentes, c'est à plus de cent mille hommes que s'élève le
 
 ù chiffre des ordonnances, garçons de cantines et de
 
@@ -2653,8 +2492,7 @@ moitié d'un contingent annuel, le quart de leffectif
 fourni par le service de deux ans! à
 
 Que dirait-on si les enfants, que l'obligation de
-l'instruction primaire force? » fréquenter l'école, em-
-ployaient leurs heures de classe à servir l'instituteur, à
+l'instruction primaire force? » fréquenter l'école, employaient leurs heures de classe à servir l'instituteur, à
 faire son ménage, à cultiver son jardin, ou à entretenir
 les bâtiments scolaires? C'est pourtant quelque chose
 d'analogue qui se passe dans cette grande école:
@@ -2743,8 +2581,7 @@ pour l'état moral de l'armée, que d'entrer résolument,
 à cet égard, dans une voie nouvelle et d'apporter plus
 de justice dans l'appréciation des services rendus.
 
-Ainsi comprise, dégagée du poids mort qui est l'héri-
-tage d'institutions vieillies, l'application du service de:
+Ainsi comprise, dégagée du poids mort qui est l'héritage d'institutions vieillies, l'application du service de:
 deux ans ne peut que tourner à la confusion des détracteurs de la loi nouvelle. Loin d'amener la décadence de
 nos forces militaires, elle sera une garantie puissante
 d'homogénéité et de valeur professionnelle.
@@ -2762,8 +2599,7 @@ Cependant l'innovation n'est pas du goût de tout le
 monde. Il existe une catégorie de Français qui veulent
 bien être officiers, mais pour qui le métier de soldat
 reste sans charmes. Rien n'illustre mieux cet état
-d'esprit que l'histoire incroyable, et pourtant authen-
-tique, de ce rejeton d'une très noble famille qui ayant
+d'esprit que l'histoire incroyable, et pourtant authentique, de ce rejeton d'une très noble famille qui ayant
 échoué à Saint-Cyr, il y a quelques années, préféra:
 déserter plutôt que de servir son pays comme simple
 Ce jeune homme avait évidemment des traditions
@@ -2821,10 +2657,8 @@ armée n'est qu'un troupeau voué aux paniques et aux
 Aujourd'hui encore, quand un jeune homme, sorti
 des grandes écoles, arrive au régiment, investi de cette
 ; autorité redoutable, qui est celle de l'officier sur le
-soldat, il tombe dans un milieu dont il a certes beau-
-coup entendu parler, mais qui, pratiquement, lui est
-À tardent pas à se faire sentir. Ce nouveau venu, géné-
-ralement gonflé d'une science fraîchement acquise, — et
+soldat, il tombe dans un milieu dont il a certes beaucoup entendu parler, mais qui, pratiquement, lui est
+À tardent pas à se faire sentir. Ce nouveau venu, généralement gonflé d'une science fraîchement acquise, — et
 4 souvent bien creuse, — effarouche les hommes de troupe
 plutôt qu'il ne les conquiert, et les sous-officiers rompus
 au métier, qui observent en sa présence un respect de
@@ -2832,7 +2666,7 @@ commande, ne se gênent pas pour prendre leur revanche
 derrière son dos en riant de son inexpérience et de ses
 Certaines natures, bien douées, savent vaincre ces
 
-premières difficultés. L'instinct du devoir les conduit à:
+premières difficultés. L'instinct du devoir les conduit
 reconnaître et à combler les lacunes de leur éducation
 militaire. Mais ils restent nombreux ceux qui, traînant
 dans les casernes un incurable ennui, négligeant des
@@ -2863,7 +2697,7 @@ cet ordre d'idées, il ne faut pas commencer par tourner
 . la loi en faisant une situation spéciale aux élèves
 
 des grandes écoles, pendant leur séjour dans #0
-5 Il importe, au contraire, que ces jeunes gens suivent
+Il importe, au contraire, que ces jeunes gens suivent
 la règle commune, qu'ils mènent réellement la vie du
 soldat, qu'ils gagnent, par les mêmes moyens que les …
 {5150 autres troupiers, leurs galons de caporal et de sergent,
@@ -2875,13 +2709,11 @@ des chefs particulièrement intelligents, énergiques,
 pur Nulle initiation ne vaut celle-là. ù Le.
 
 rez-de-chaussée, Paris, cinquième arrondissement.
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi4 naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi4 naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraïssent par séries; une série paraît
 È dans le temps d'une année scolaire, d'une année;
-ouvrière, d'octobre-novembre à juin-juillet; l'abonne-
-ment se prend pour une série.
+ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série.
 On peut souscrire cet abonnement à tout moment de
 l'année, mais l'abonnement ainsi souscrit est, de droit,
 ; valable pour la série en cours, et pour toute cette série.

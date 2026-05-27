@@ -49,13 +49,11 @@ l'énoncé méme le plus succinct; pour savoir ce qui a
 38 paru dans les cinq premières séries des cahiers, il
 1 suffit d'envoyer un mandat de cinq francs à M. André
 Bourgeois, administrateur des cahiers, 8, rue de la Sor- il
-D. bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-ment; on recevra en retour le catalogue analytique “7
+D. bonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique “7
 1; sommaire, 1900-1904, de nos cinq premières séries.
 pen Ce catalogue a été justement établi pour donner,
 : autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-ni rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions anténi rieures et de nos cinq premières séries; tout y est classé
 4 dans l'ordre; il suffit de le lire pour trouver, à leur Ce
 place, les références demandées.
 HR: Ce catalogue, grand jésus, forme un cahier
@@ -77,8 +75,7 @@ analytique très sommaire que nous en avons établie et
 que nous avons publiée en fin du premier cahier de la: 3488
 
 Pour amorcer tout travail que l'on aurait à commencer DU:
-ù dans notre premier catalogue analytique sommaire, con-
-sulter le petit index alphabétique provisoire que nous Que
+ù dans notre premier catalogue analytique sommaire, consulter le petit index alphabétique provisoire que nous Que
 avons établi automatiquement de ce catalogue analy- 1108
 tique sommaire dans l'index total de nos éditions anté-
 
@@ -115,10 +112,9 @@ peuple polonais aux exactions de la germanisation prus- AU
 Die deuxième exemplaire de souche, exemplaire de lad- …
 Hit. troisième exemplaire de souche, exemplaire de l'im-
 1 dix exemplaires d'abonnement, numérotés de 1 à
-10 Tous nos exemplaires sur whatman sont numérotés
+Tous nos exemplaires sur whatman sont numérotés
 0 à la presse et imprimés au nom du souscripteur; nos
-4 tirages d'exemplaires sur whatman sont rigoureuse-
-stant souscrits; nous ne vendons point d'exemplaires
+4 tirages d'exemplaires sur whatman sont rigoureusestant souscrits; nous ne vendons point d'exemplaires
 ‘$i sur whatman en dehors de l'abonnement; l'abonnement
 VUE) sur whatman à cette huitième série est de cent francs
 ‘+330 pour tous pays. À
@@ -152,8 +148,7 @@ la population slave. Mais qu'est-ce qu'on entend par
 « germanisation S'agit-il seulement d'inculquer aux
 habitants de l'Est des sentiments de loyalisme envers
 l'État prussien, de gratitude et d'admiration pour la
-- culture allemande? A en croire les déclarations ofli-
-cielles, on pourrait le penser, et quelques Allemands
+- culture allemande? A en croire les déclarations oflicielles, on pourrait le penser, et quelques Allemands
 naïfs le pensent en effet. Pourtant il n'en est rien. Ce ‘ia
 loyalisme, certes, on l'exige. Mais quelles seront les
 garanties de cette soumission ou de cet abandon de
@@ -196,9 +191,7 @@ Les Irlandais n'ont pas perdu leur nationalité en per-
 forme un tout à part. La question agraire comme la
 4 question religieuse suffisent à préserver l'Irlande d'une
 Le assimilation complète avec l'Angleterre. En Allemagne,
-4 il y a trop de catholiques pour que question reli-
-
-gieuse, malgré son importance, soit une sauvegarde
+4 il y a trop de catholiques pour que question religieuse, malgré son importance, soit une sauvegarde
 
 suffisante pour le caractère national. C'est la langue
 '. qui unit les Polonais, elle seule maintient l'unité du
@@ -221,8 +214,7 @@ langues, et comme ce sont surtout les classes cultivées
 enlever ce privilège. Loin de forcer les allogènes à
 apprendre l'allemand, il faudrait au contraire apprendre
 le polonais aux Allemands, qui seraient alors beau- ù à
-coup mieux armés pour la lutte économique. Cette ar-
-gumentation porte à faux. La réalité est brutale: où
+coup mieux armés pour la lutte économique. Cette argumentation porte à faux. La réalité est brutale: où
 bien les Polonais conserveront leur langue, et alors ils
 ne seront pas germanisés; ou bien ils parleront alle- “50
 mand, et alors ils perdront leur nationalité. C'est en "48
@@ -231,8 +223,7 @@ Les vrais hakatistes sont logiques, lorsqu'ils refusent
 de se servir du polonais en quoi que ce soit; pour eux, "2
 apprendre la langue des ennemis, c'est déjà une sorte 5:14
 de trahison. Les commerçants polonais qui ne veulent pont
-pas parler allemand doivent être inexorablement boy-
-cotiés. Pour cette croisade, il faut embrigader jusqu'aux
+pas parler allemand doivent être inexorablement boycotiés. Pour cette croisade, il faut embrigader jusqu'aux
 enfants: « Le marchand, à qui vous achetez quelque
 chose, doit vous répondre en allemand; sans quoi vous
 devez simplement sortir du magasin. Et alors, il faut
@@ -258,8 +249,7 @@ patrie a raison ou tort, mais à appliquer le principe
 
 à « right wring, country ». (2) Ces conseils prennent
 1; parfois un ton doucereux et patelin, qui écœure quelque
-peu le lecteur non prévenu. Il s'agit d'apprendre l'alle-
-ta mand aux enfants polonais, et cela gratuitement.
+peu le lecteur non prévenu. Il s'agit d'apprendre l'alleta mand aux enfants polonais, et cela gratuitement.
 « Cela n'est pas cruel, cela est gentil de notre part. » (3)
 les petits Polonais jouer avec vous, mais qu'il n'y ait à
 jamais plus de Polonais que d'Allemands participant au
@@ -300,9 +290,7 @@ année de service à tous les soldats polonais, danois ou
 lorrains, qui n'auraient pas appris convenablement
 l'allemand après les deux ans passés au régiment. (2)
 
-Cette mesure ne sera pas appliquée parce qu'elle soulè-
-
-verait trop de protestations et parce qu'en outre elle
+Cette mesure ne sera pas appliquée parce qu'elle soulèverait trop de protestations et parce qu'en outre elle
 
 serait inutile, Il ne s'agit pas seulement d'apprendre
 l'allemand, il s'agit de faire désapprendre le polonais. je
@@ -339,17 +327,14 @@ que lorsqu'il constitue un métier, c'est-à-dire lorsque
 7 les maîtres en vivent. Mais nous avons déjà que le À
 gouvernement prussien ne se gêne guère pour inter- A
 ( 14 préter les textes à sa façon. Il a interdit aux dames de
-Posen de donner des leçons gratuites de polonais. Inter-
-ne pellé à ce sujet à la chambre des députés (7 mars 1900),
+Posen de donner des leçons gratuites de polonais. Interne pellé à ce sujet à la chambre des députés (7 mars 1900),
 4 le ministre de l'instruction publique, M. Studt, déclara
 : crânement qu'il était nécessaire d'assimiler les leçons
 particulières gratuites à un métier, parce que sans cela
 a « elles pousseraient comme des champignons ».
 ne La concurrence étant ainsi écartée, il n'y a qu'à faire à
-de chaque école publique un petit centre de germani-
-sation. Depuis le. Kulturkampf, le gouvernement se
-trouve bien armé. La loi du 11 mars 1872, une des fa-
-meuses loi de Falk, annulant le règlement scolaire du
+de chaque école publique un petit centre de germanisation. Depuis le. Kulturkampf, le gouvernement se
+trouve bien armé. La loi du 11 mars 1872, une des fameuses loi de Falk, annulant le règlement scolaire du
 11 décembre 1845, enleva l'inspection au clergé. (3)
 
 1:10 Celui-ci n'a plus que le droit de s'occuper de l'instruc-
@@ -371,8 +356,7 @@ peut enseigner dans une école publique. (1)
 instituteurs dans sa main. Il a seul le droit de nomina- "0
 tion en Posnanie et en Prusse Occidentale; (2) de plus,
 les maîtres et maîtresses primaires sont assimilés aux
-fonctionnaires politiques, c'est-à-dire qu'on peut les dé-
-placer « pour raisons de service ». Cette loi, véritable
+fonctionnaires politiques, c'est-à-dire qu'on peut les déplacer « pour raisons de service ». Cette loi, véritable
 loi d'exception, vise les Polonais, car non seulement
 elle n'est applicable qu'à la Posnanie et à la Prusse
 Occidentale, mais les cercles allemands de Deutsch-
@@ -406,8 +390,7 @@ correctement l'allemand. Pour remédier à cette situation,
 le gouvernement a créé en 1904 de nouvelles écoles;
 normales dans la province de Posen, et cherché à y À
 ï attirer des jeunes gens de Westphalie et du pays rhénan À
-par un traitement de faveur. On leur promet une allo-
-cation spéciale de 150 marks et le remboursement de
+par un traitement de faveur. On leur promet une allocation spéciale de 150 marks et le remboursement de
 leurs frais de voyage pendant les vacances. Seulement À
 les Allemands de l'Ouest montrent beaucoup de répu-
 4 tuteurs, nommés en Posnanie, se font délivrer des cer- Ne
@@ -428,8 +411,7 @@ A nanie et de la Prusse Occidentale adressent une pétition à la!
 Chambre des députés pour obtenir ce dixième « colonial ». (Voyez
 
 2404 Schlesische Schulzeitung, 18 février 1904.) Dans sa séance du 29 oc-
-Du tobre 1905, le comité de l'Ostmarkenverein demande que ce trai-
-tement de faveur soit accordé aussi aux instituteurs de la Haute-;
+Du tobre 1905, le comité de l'Ostmarkenverein demande que ce traitement de faveur soit accordé aussi aux instituteurs de la Haute-;
 1100 Silésie et de la Warmie. Voyez Ostmark, 11, page
 (as é (3) Voyez le récit d'un ancien instituteur: Ostmark, II,
 
@@ -449,14 +431,10 @@ Allemands, (4) ont à peu près disparu. (5) ‘ES
 C'est au sujet de l'enseignement religieux que la lutte
 a été la plus chaude. Les Allemands ne se lassent pas
 de réclamer l'abolition de ce qui reste d'enseignement
-polonais. (6) Quant aux Polonais, ils n'ont cessé de pro-
-tester contre cette atteinte portée à la fois à leurs senti-
-ments religieux et à leur langue nationale. (7):
-Aucune mesure du gouvernement n'a été aussi mala-
-droite, car sans gain réel pour la germanisation, elle a
+polonais. (6) Quant aux Polonais, ils n'ont cessé de protester contre cette atteinte portée à la fois à leurs sentiments religieux et à leur langue nationale. (7):
+Aucune mesure du gouvernement n'a été aussi maladroite, car sans gain réel pour la germanisation, elle a
 exaspéré les populations de l'Est. Les tristes événe-
-(à) Décrets du 20 septembre 1872 pour la Haute-Silésie, du 94 juil-
-let 1873 pour la Prusse Orientale et Occidentale, du 27 octobre 1873
+(à) Décrets du 20 septembre 1872 pour la Haute-Silésie, du 94 juillet 1873 pour la Prusse Orientale et Occidentale, du 27 octobre 1873
 pour la Posnanie.
 (3) Sur la législation scolaire, voyez Franke: Verordnungen
 6) En 1898, il y avait encore au gymnase de Lissa six heures
@@ -473,37 +451,30 @@ l'enseignement dans une langue étrangère, qu'ils ne
 comprennent pas au début, qu'ils détestent, parce
 104 qu'elle leur est imposée. A cette difficulté spéciale s'en
 15 ajoutent d'autres, qui font de la tâche d'un instituteur
-14 une des plus pénibles qu'on puisse imaginer. Les pro-
-nt: vinces orientales de la Prusse souffrent d'une « crise de
+14 une des plus pénibles qu'on puisse imaginer. Les pront: vinces orientales de la Prusse souffrent d'une « crise de
 LE l'enseignement primaire » autrement grave que cell.
 :2 dont on parle parfois chez nous. Examinons par;
 ; 0 exemple l'état des écoles de la Haute-Silésie. Nous choi-
 }. sissons ce pays, parce qu'une série d'articles d'un insti-;
 tuteur de cette région ont attiré l'attention sur cette
-à question, en jetant une lumière vive sur l'état lamen-
-table des écoles silésiennes. (1) C'est le réquisitoire élo-
+à question, en jetant une lumière vive sur l'état lamentable des écoles silésiennes. (1) C'est le réquisitoire élo-
 0 quent d'un homme qui souffre et qui crie sa misère.
 Voici en résumé ce que nous apprenons sur les écoles;
 le: de la Haute-Silésie. À
 D'abord les bâtiments scolaires sont insuffisants; ils
 ne contiennent pas assez de salles pour les nombreuses
-28 classes qu'ils devraient abriter. C'est au point qu'on a;
-inventer un système de roulement entre les diffé-
-rentes classes; parfois l'une doit attendre dans le corri-
+28 classes qu'ils devraient abriter. C'est au point qu'on
+inventer un système de roulement entre les différentes classes; parfois l'une doit attendre dans le corri-
 à 4) dor, jusqu'à ce qu'une salle soit libre. ILsarrive que des
-: lehrer oberschlesischen Industriebezirk, dans la Schlesische Schul-
-zeitung des 18 février, 25 février et 3 mars 1904.: À
+: lehrer oberschlesischen Industriebezirk, dans la Schlesische Schulzeitung des 18 février, 25 février et 3 mars 1904.: À
 
 enfants sont refusés et ajournés à un an, faute de place.
 Et pourtant les classes sont bourrées, si bien que l'insti-
 ; tuteur ne sait plus où donner de la tête. Dans le cercle
-d'inspection de Kônigshütte, qui est un des plus favo-
-risés, il y a une moyenne de 70 élèves par maître; à LPRE
+d'inspection de Kônigshütte, qui est un des plus favorisés, il y a une moyenne de 70 élèves par maître; à LPRE
 Bogutschütz, il y en a 84, à Brzezinka 94. Pour avoir des [40
-classes avec une moyenne de 65 élèves, il faudrait nom-
-mer 258 instituteurs de plus. Dans ces classes surpleines, Et;
-Vair est vicié; maître et enfants en souffrent. Tout insti-
-tuteur devrait prendre comme devise: « Apprends à
+classes avec une moyenne de 65 élèves, il faudrait nommer 258 instituteurs de plus. Dans ces classes surpleines, Et;
+Vair est vicié; maître et enfants en souffrent. Tout instituteur devrait prendre comme devise: « Apprends à
 souffrir sans te plaindre. » Comment, avec une pareille
 masse d'élèves, un maître peut-il leur apprendre quelque;
 chose? Il y a impossibilité complète de suivre le pro- À Ke.
@@ -530,8 +501,7 @@ que polonais et pour le moins autant qui ne parlent l'al- Ni
 lemand que très mal. Des familles, le maître n'a à
 
 14 attendre aucune aide. Elles excitent au contraire les
-enfants contre lui, car il est le germanisateur, l'étran-
-ger dont on se méfie. Il est surchargé: il a trente-deux
+enfants contre lui, car il est le germanisateur, l'étranger dont on se méfie. Il est surchargé: il a trente-deux
 ne, heures de classe par semaine.
 EN À Pour peu qu'il tombe malade, toute l'école se trouve
 4 désorganisée, et son absence ajoute un poids effrayant
@@ -569,8 +539,7 @@ L'assemblée des instituteurs du cercle scolaire de
 
 Gusty en 1904, appelé l'attention sur des chiffres
 vraiment effrayants. (2) A Possadowo, un maître a plus
-de 130 élèves, à Zalesik 160, à Csolkowo 150, à Grapo-
-nop 144. A Plonkowo, un senl instituteur à à donner
+de 130 élèves, à Zalesik 160, à Csolkowo 150, à Graponop 144. A Plonkowo, un senl instituteur à à donner
 l'enseignement, dans deux classes, à 236 enfants! En Der
 1904, dans l'école catholique de Bukowiec, pendant 14108
 plusieurs mois, 235 élèves n'ont qu'un seul maître. À A
@@ -619,8 +588,7 @@ statistique de l'empire allemand, année 1890.
 É Mais la germanisation par l'école a un côté plus ne
 sombre encore et plus triste. Pour mater les enfants
 
-polonais, les instituteurs usent et abusent des châti-
-ments corporels, cette honte de la pédagogie alle- #0 À
+polonais, les instituteurs usent et abusent des châtiments corporels, cette honte de la pédagogie alle- #0 À
 mande. (1) Ainsi, c'est par des coups que l'on inculque A
 
 à de malheureux écoliers l'amour de la langue alle- AN.
@@ -636,9 +604,7 @@ faits comme ceux de Wreschen, ils peuvent obtenir de:
 l'avancement, être loués par des journaux et défendus
 
 à la tribune par des ministres, leur vraie carrière ‘ER
-pédagogique est finie. Les bourreaux sont des ger-
-
-manisateurs sans doute; ils ne seront jamais des édu- 5:40
+pédagogique est finie. Les bourreaux sont des germanisateurs sans doute; ils ne seront jamais des édu- 5:40
 
 Les incidents de Wreschen ont soulevé à juste titre er:
 
@@ -650,9 +616,7 @@ avait consterné la population. Le 16 mai, une assemblée
 populaire avait protesté contre la germanisation de la 1 Au
 religion. Les esprits étaient très excités. Les enfants
 
-(1) Les instituteurs prussiens se donnent un bien mauvais certi-
-
-ficat pédagogique en proclamant la nécessité des peines corpo- Par
+(1) Les instituteurs prussiens se donnent un bien mauvais certificat pédagogique en proclamant la nécessité des peines corpo- Par
 relles. Voyez Hic, haec, hoc, der Lehrer mit dem Stock, dans le sup- je
 plément de la Schlesische Schulzeitung du 18 février 1904.
 (2) Sur les incidents de Wreschen, voyez, outre les journaux +06
@@ -660,9 +624,7 @@ plément de la Schlesische Schulzeitung du 18 février 1904.
 le 13 janvier 1902 Voyez aussi le point de vue allemand dans 1 en
 assow: Ouvrage cité, pages 184 et suivantes.
 
-4 refusèrent d'emporter chez eux leurs catéchismes alle-
-
-de mands, en donnant comme motif que leurs parents et
+4 refusèrent d'emporter chez eux leurs catéchismes allede mands, en donnant comme motif que leurs parents et
 
 À le vicaire Laskowski le leur avaient défendu. Puis, les
 
@@ -717,8 +679,7 @@ Posen, châtie un élève polonais de telle sorte, que celui-ci est
 forcé de garder la chambre pendant huit jours. Voyez Ostmark,
 
 Le résultat de cette méthode barbare, c'est l'hostilité
-déclarée entre le maître allemand et ses élèves. L'insti-
-tuteur de Granowo, qui à blessé un enfant en le
+déclarée entre le maître allemand et ses élèves. L'instituteur de Granowo, qui à blessé un enfant en le
 
 châtiant, est acquitté; mais la population casse les l'NU
 
@@ -732,8 +693,7 @@ vont néanmoins avec leurs parents. Le lendemain, ils 11208
 
 sont punis, mais un d'entre eux lance une pierre contre au.
 son maître. (2) (1
-Que dire de la manière dont on enseigne le patrio-
-tisme prussien aux enfants polonais? Est-ce moral de ‘(0
+Que dire de la manière dont on enseigne le patriotisme prussien aux enfants polonais? Est-ce moral de ‘(0
 
 les forcer à participer à des fêtes qui sont pour eux des je
 deuils? N'est-ce pas leur donner le choix entre la pie
@@ -756,7 +716,7 @@ me réjouis d'être Allemande! » s'écria: « Je me réjouis de ne pas: (NES
 être une Allemande! » Voyez Ostmark, IV, 7, page 57. A Bukowiec FER
 (Posnanie), la fille d'un maître d'école répondit à un autre institu- je ni
 
-È teur, qui faisait chanter « Ich bin ein Preusse »: « Je ne suis pas 11.110
+È teur, qui faisait chanter « Ich bin ein Preusse « Je ne suis pas 11.110
 Prussienne, je suis Polonaise. » Son père fut déplacé.
 
 En ler et de Herder, n'hésitent pas à violer l'âme des
@@ -807,10 +767,8 @@ Si l'école doit être le moyen principal pour favoriser
 1 l'expansion de l'allemand, il sans dire que bien
 d'autres mesures sont destinées à entraver l'emploi de À
 ï la langue polonaise. Le mouvement hakatiste a gagné;
-:, le bassin rhéno-westphalien. S'inspirant des disposi-
-tions prises par les autorités russes dans les districts
-à industriels de Lodz et de Sosnowicze, (1) le gouverne-
-ment prussien a cherché à imposer l'allemand aux
+le bassin rhéno-westphalien. S'inspirant des dispositions prises par les autorités russes dans les districts
+à industriels de Lodz et de Sosnowicze, (1) le gouvernement prussien a cherché à imposer l'allemand aux
 mineurs polonais. Le règlement (Bergpolizei-Verordnung)
 du 25 janvier 1899 ne permet d'employer des ouvriers
 étrangers dans les mines que s'ils savent assez!
@@ -842,8 +800,7 @@ les accointances avec l''Ostmarkenverein, le décret de
 1899 n'est pas encore assez sévère. La société demande «
 qu'il soit appliqué à toutes les industries; elle exige en
 outre des mesures supplémentaires, telles que la défense
-d'introduire des journaux polonais étrangers, l'interdic-
-tion d'employer le polonais dans les réunions publiques,
+d'introduire des journaux polonais étrangers, l'interdiction d'employer le polonais dans les réunions publiques,
 l'expulsion des ouvriers originaires de la Pologne russe à
 et de la Galicie, etc. Il ne serait nullement surprenant
 que le gouvernement ne complète son fameux décret en
@@ -852,8 +809,7 @@ s'inspirant de ces conseils.
 Mieux encore que les textes législatifs, les menus faits
 et les conflits d'ordre secondaire montrent l'âpreté qu'a.
 pris le combat linguistique. La « question postale » est
-un exemple typique de l'esprit qui anime l'administra-
-tion prussienne, (1) Le conflit se dessina en 1900 et ne:.
+un exemple typique de l'esprit qui anime l'administration prussienne, (1) Le conflit se dessina en 1900 et ne:.
 tarda pas à devenir aigu. Jusque-là, la poste avait
 accepté sans embarras les lettres dont l'adresse était À
 
@@ -862,12 +818,10 @@ Jfrage. Berlin 1902, pages 47-84 et Herr: Ouvrage cité, pages 78-81.
 
 de la résistance du peuple polonais
 à écrite en polonais. Mais devant la persécution de leur
-. langue, les Polonais se mirent à écrire systématique-
-ment toutes les adresses dans leur idiome. Ce fut un
+. langue, les Polonais se mirent à écrire systématiquement toutes les adresses dans leur idiome. Ce fut un
 ! journal de la Haute-Silésie qui lança l'idée, (1) laquelle
 à fit rapidement son chemin. (2)
-Le nombre des adresses en polonais augmenta consi-
-dérablement. L'administration postale répondit à ce À
+Le nombre des adresses en polonais augmenta considérablement. L'administration postale répondit à ce À
 à qu'il lui plut de considérer comme une provocation en
 Fi: mettant au rebut beaucoup de ces lettres ou en les
 ï retournant à l'expéditeur. C'est à propos de ces faits À
@@ -902,10 +856,7 @@ mandats, lettres‘recommandées ou avec valeur déclarée, À
 
 les suscriptions devaient être en allemand, faute de
 
-quoi les envois seraient refusés. — Bien entendu, l'admi-
-nistration postale s'arrangea, sous prétexte de traduc-
-
-tion, à faire subir aux lettres polonaises de longs A
+quoi les envois seraient refusés. — Bien entendu, l'administration postale s'arrangea, sous prétexte de traduction, à faire subir aux lettres polonaises de longs A
 retards. D'où protestations indignées des députés
 slaves. (2) Le 13 mars 1902, M. de Glebocki se plaignait a
 
@@ -921,9 +872,7 @@ nous avons nos dénominations officielles allemandes
 pour les localités. Nous ne connaissons pas les noms
 
 qu'il vous plaît d'inscrire. Il n'y a pas de géographie à
-Lorsqu'on sait avec quelle désinvolture le gouverne-
-
-ment débaptise les localités polonaises pour les affubler
+Lorsqu'on sait avec quelle désinvolture le gouvernement débaptise les localités polonaises pour les affubler
 de noms allemands, on comprend la cruelle ironie de A
 
 l'allusion à la géographie polonaise.
@@ -946,9 +895,7 @@ Du côté allemand, le professeur Delbrück fut le seul À
 
 à protester contre cette stupide politique de coups à
 
-Cette petite lutte postale eut ses côtés comiques. Par-
-fois les Polonais écrivirent leurs adresses en fran-
-çais, (3) et les lettres arrivèrent à destination; ou bien
+Cette petite lutte postale eut ses côtés comiques. Parfois les Polonais écrivirent leurs adresses en français, (3) et les lettres arrivèrent à destination; ou bien
 
 ils mirent sur le verso de l'enveloppe un petit lexique à
 ! l'usage des employés postaux. D'autres fois, ils s'amu- à
@@ -960,9 +907,7 @@ de villes allemandes. (4)
 Les hakatistes ne sont pas satisfaits non plus de la,
 
 création des centres de traduction. (5) Ils voudraient
-l'interdiction absolue du polonais dans le service inté-
-
-rieur de la poste. Les uns cherchent à prouver que,
+l'interdiction absolue du polonais dans le service intérieur de la poste. Les uns cherchent à prouver que,
 l'allemand est ipso facto la langue postale. (6) D'autres
 ergotent, avec une pédanterie tudesque, sur le para-!
 
@@ -975,14 +920,13 @@ n'y ait aucune incertitude. » C'est ce mot « clairement »
 
 (2) Voyez Preussische Jahrbücher, janvier 1902, page
 (3) Voyez Lech du 19 janvier 1901. À
-(4) Ainsi « Giessen » verser) devient « Lac »; Baden-Baden À
+(4) Ainsi « Giessen » verser) devient « Lac Baden-Baden À
 
 baden » comme infinitif — baigner) devient « Kapac-Kapac » À
 (baigner-baigner). Voir Massow, page or.
 (6) Voyez Zorn, dans Verwaltungsarchiv, volume pages 1 et
 
-conformément à leur théorie. Ils ont consulté le diction-
-naire de Grimm et se basent sur sa définition du mot
+conformément à leur théorie. Ils ont consulté le dictionnaire de Grimm et se basent sur sa définition du mot
 « clairement » pour l'étendre à la langue elle-même. Ce
 
 qui est clair, disent-ils, c'est ce qui est compris, donc À
@@ -1045,11 +989,7 @@ ville d''Inowrazlaw s'est vue subitement transformée en
 
 à Il reste encore beaucoup à faire pour débaptiser
 toutes les communes polonaises, et les germanisateurs
-ont une belle besogne devant eux. Peut-être verrons-
-
-nous aussi l'état-civil refuser d'inscrire lès prénoms polo-
-
-nais comme il l'a fait pour les noms français en Alsace-
+ont une belle besogne devant eux. Peut-être verronsnous aussi l'état-civil refuser d'inscrire lès prénoms polonais comme il l'a fait pour les noms français en Alsace-
 
 Il sans dire que la langue administrative est
 
@@ -1083,8 +1023,7 @@ rappellent celles de notre Conseil d'État, a même inter- ne
 è prété la loi de 1876 en assimilant les poteaux indicateurs
 aux inscriptions officielles, qui ne peuvent être qu'en
 Le Code civil autorise, il est vrai, les testaments en pat
-polonais. (2) Mais un règlement d'administration pu-
-blique (3) prescrit que les frais des actesnotariés seront
+polonais. (2) Mais un règlement d'administration publique (3) prescrit que les frais des actesnotariés seront
 élevés d'un quart pour toute personne qui se servira
 d'une langue étrangère.
 Pour les tribunaux, on n'a encore osé réduire les
@@ -1137,27 +1076,20 @@ question fut de nouveau portée devant « Oberver- )
 waltungsgericht qui, par décision du 5 octobre 1897,
 se prononça contre le ministre et confirma l'arrêt de
 1876. (1) D'après ce jugement, l'usage d'une langue A
-étrangère ne pouvait être interdit que si les organisa-
-teurs d'une réunion publique s'en servaient dans l'inten-
-
-tion évidente d'empêcher la surveillance de la police.;
+étrangère ne pouvait être interdit que si les organisateurs d'une réunion publique s'en servaient dans l'intention évidente d'empêcher la surveillance de la police.;
 
 L'administration crut pouvoir se baser sur ce juge-;
-ment même pour réaliser ses vues. Elle prétexta doréna-
-
-vant l'intention des organisateurs de rendre illusoire le
+ment même pour réaliser ses vues. Elle prétexta dorénavant l'intention des organisateurs de rendre illusoire le
 
 droit de surveillance. Maïs cette fois encore, le tribunal
 fit son devoir. Par un arrêt du 21 novembre 1899, il:
 déclara l'interdiction des réunions polonaises illégale,
 rien ne prouvant l'intention prêtée aux organisateurs. (2)
 
-Le point de vue légal, défendu par le Tribunal admi-
-nistratif, mécontenta fort les Allemands. Il fut vivement
+Le point de vue légal, défendu par le Tribunal administratif, mécontenta fort les Allemands. Il fut vivement
 critiqué, et les articles contre le droit de parler polonais
 dans les réunions publiques se firent assez nombreux;
-pour agiter l'opinion et exercer une pression sur le gou-
-vernement. (3) Celui-ci ne demandait qu'à être soutenu.
+pour agiter l'opinion et exercer une pression sur le gouvernement. (3) Celui-ci ne demandait qu'à être soutenu.
 De nouveau, la police reçut l'ordre d'interdire les )
 réunions polonaises, en particulier dans le cercle de
 
@@ -1166,7 +1098,7 @@ Arrêts: Volume XXXII, pages 396 et suivantes.;
 
 (G) Voyez l'article de Blümke dans la Deutsche Zeitung des 24 et
 À 25 décembre 1897, et Zorn: Verwaltungsarchie. Volume Heft
-0 Voyez Külnische Zeitung du 13 février 1902.:
+Voyez Külnische Zeitung du 13 février 1902.:
 
 44 de la résistance du peuple polonais
 4 tales: d'où nouvelles protestations des députés polonais
@@ -1174,11 +1106,9 @@ et nouvel arrêt du Tribunal administratif supérieur. (1):
 "ui Deux auteurs allemands (2) ont facilement prouvé que
 ; tous les arguments invoqués en faveur de la thèse haka-:
 tiste n'ont aucune valeur. Mais leurs conclusions sont
-une terrible menace pour les Polonais: puisque la légis-
-lation actuelle ne permet pas d'interdire l'usage de la
+une terrible menace pour les Polonais: puisque la législation actuelle ne permet pas d'interdire l'usage de la
 a langue slave dans les réunions publiques, il faut faire;
-mi: une loi spéciale. 11 suffira, dit Paalzow, d'une adjonc-
-it: tion à la loi du 11 mars 1850 sur le droit de réunion. — À
+mi: une loi spéciale. 11 suffira, dit Paalzow, d'une adjoncit: tion à la loi du 11 mars 1850 sur le droit de réunion. — À
 1% Dans la séance du 16 janvier 1905, à la Chambre des
 députés, le ministre de l'intérieur annonçait en effet
 À 4 cette loi, que le parti hakatiste n'a cessé de réclamer.
@@ -1192,8 +1122,7 @@ Le. recevra sous peu une grave atteinte et qu'une des plus Ne
 tungsgerichts vom 20 März 1903, dans Ostmark, IX, 9. Conférez la
 conférence de Wagner sur le droit de réunion: supplément de
 4 (2) Paalzow: Ouvrage cité, et Hubrich: Die Sprachenfreiheit
-il (3) Voyez le vœu exprimé par le comité général de lPOstmarken-
-verein dans sa séance plénière du 29 octobre 1905. (Ostmark,
+il (3) Voyez le vœu exprimé par le comité général de lPOstmarkenverein dans sa séance plénière du 29 octobre 1905. (Ostmark,
 
 précieuses conquêtes de 1848 sera escamotée, de telle a
 sorte que la Prusse ressemblera de plus en plus à sa
@@ -1218,8 +1147,7 @@ soit sérieusement proposé est à tel point caractéris-
 : Le suprême refuge de la langue polonaise, c'est
 Le l'église. C'est une des raisons pour lesquelles la cause
 nationale est encore si intimement liée au catholicisme. te
-à Nous reviendrons là-dessus, lorsque nous nous occupe-
-rons des partis politiques. Pour l'instant, il importe
+à Nous reviendrons là-dessus, lorsque nous nous occuperons des partis politiques. Pour l'instant, il importe
 seulement de souligner l'importance considérable du se
 1 facteur religieux en tant que soutien du polonais. Sur
 
@@ -1233,8 +1161,7 @@ favorisent la besogne de germanisation, en faisant
 construire des églises évangéliques et en subvenant au À
 culte des paroisses protestantes. La Société « Gustave-
 Adolphe fondée en 1832, se défend de poursuivre un À
-but politique. (1) Mais en soutenant les églises protes-
-tantes disséminées en pays catholique, elle rend indirectement service à la propagation de l'allemand. Cette
+but politique. (1) Mais en soutenant les églises protestantes disséminées en pays catholique, elle rend indirectement service à la propagation de l'allemand. Cette
 association, dont l'action s'étend même à l'étranger
 (Autriche-Hongrie, France, Espagne, etc.), dispose d'un
 capital considérable. (2) Déjà en 1882, elle venait en
@@ -1247,7 +1174,7 @@ mand créée en 1887, a un caractère beaucoup plus
 agressif et chauvin. C'est une organisation de combat,
 Dans son organe la Wartburg, le surintendant Meyer
 préconise un nouveau Kulturkampf et parle de « donner
-4 Haupt und Gliedern. Leipzig 1882. Et Dr. Herm. Ferd. von
+Haupt und Gliedern. Leipzig 1882. Et Dr. Herm. Ferd. von
 Criegern: Der Gustao-Adolf- Verein den ersten 50 Jahren seines
 Bestehens. Leipzig 1882. Voyez aussi: Atlas des Gustav-Adolf-
 (2) En une seule année, elle distribua des secours pour plus d'un
@@ -1277,8 +1204,7 @@ pas la langue nationale, c'est à l'initiative privée, c'est
 aux familles à combler cette lacune, en apprenant aux;
 enfants à lire et à écrire. Le clergé, et les Allemands Jai
 5 ne cessent de le lui reprocher, fait tout ce qu'il peut:
-pour cela. (4) Des sociétés aussi bien que des particu-
-liers distribuent des abécédaires et des livres de lecture,
+pour cela. (4) Des sociétés aussi bien que des particuliers distribuent des abécédaires et des livres de lecture,
 
 (2) Voyez Ostmark, 10, page 79. Voyez aussi les faits cités par le
 ministre des cultes à la Chambre des députés, 8 mars 1900.
@@ -1303,13 +1229,9 @@ somme, elle fonde 49 bibliothèques nouvelles et met en circulation
 
 Quelques Allemands peu clairvoyants se sont réjouis
 à de voir le bloc polonais se scinder en partis politiques
-distincts, comme si la manifestation naturelle de ten-
-dances différentes devait briser sa force de résistance. fe,
+distincts, comme si la manifestation naturelle de tendances différentes devait briser sa force de résistance. fe,
 Dans le hasard d'une lutte électorale, il se peut en effet
-que la multiplicité des candidatures donne momentané-
-
-ment la représentation d'une circonscription à un Alle-
-mand. Cela n'a qu'une faible importance. Il faut au À
+que la multiplicité des candidatures donne momentanément la représentation d'une circonscription à un Allemand. Cela n'a qu'une faible importance. Il faut au À
 contraire voir une preuve de vitalité et de force dans AL.
 ce fait, que les Polonais, solidement unis par l'idée Ait
 nationale, sont représentés par des partis différents,
@@ -1321,14 +1243,12 @@ diversité de leurs opinions politiques. Es.
 L'avènement des Jeunes Tchèques n'a nullement af-
 4 faibli la cause slave. Il en est de même des Polonais
 prussiens, dont la lente évolution à gauche est un signe À
-4 de robustesse et de santé, de même que la quasi-unani-
-mité et l'immobilité rigide de la députation galicienne
+4 de robustesse et de santé, de même que la quasi-unanimité et l'immobilité rigide de la députation galicienne
 
 sont un symptôme de maladie.
 
 de la résistance du peuple polonais "1
-Le mouvement social qui a créé la bourgeoisie polo-
-naise et réveillé les couches populaires de leur long
+Le mouvement social qui a créé la bourgeoisie polonaise et réveillé les couches populaires de leur long
 sommeil s'est naturellement répercuté dans le domaine
 À L'idéal polonais a changé, et avec lui les partis se
 sont transformés.
@@ -1338,10 +1258,8 @@ son rôle soit absolument fini; la députation polonaise À
 au Reichstag comprend encore parmi ses membres un
 prince Radziwill, un comte Mielzinski et cinq posses-
 : seurs de biens équestres. Mais depuis l'échec piteux À
-À du parti de la Cour, le « parti national qui l'a rem-
-placé, a jeter du lest. De peur d'être submergé par
-le parti populaire, il s'est quelque peu teinté de radica-
-lisme. Il est destiné à s'affaiblir de plus en plus, même
+À du parti de la Cour, le « parti national qui l'a remplacé, a jeter du lest. De peur d'être submergé par
+le parti populaire, il s'est quelque peu teinté de radicalisme. Il est destiné à s'affaiblir de plus en plus, même
 en Posnanie et en Prusse Occidentale. À
 Le parti catholique, celui qui tient à l'alliance avec
 le Centre, est encore très fort. Les intérêts religieux et
@@ -1352,9 +1270,7 @@ ses prêtres. C'est grâce au clergé surtout que le paysan à
 polonais a été complètement gagné à la cause nationale. À
 Longtemps, les représentants les plus distingués des
 4% populations de l'Est au Parlement furent des curés.
-Ce sont des prêtres en grande partie qui ont orga-
-niser la lutte économique, en créant des sociétés agri-
-coles et de crédit. Ce sont eux encore qui ont entrepris;
+Ce sont des prêtres en grande partie qui ont organiser la lutte économique, en créant des sociétés agricoles et de crédit. Ce sont eux encore qui ont entrepris;
 la tâche difficile de moraliser les masses, en engageant
 un combat nécessaire contre l'alcoolisme, et qui ontpu,
 par leur persévérance, arriver à des résultats que leurs
@@ -1438,31 +1354,25 @@ locaux; ils ne seront qu'un des partis prussiens, et. ù à
 nécessairement un des moindres. Dans le second cas,
 ; au contraire, leur action pénétrera les couches popu-
 ; laires; elle dépassera les frontières, et se répercutant
-en Russie et en Galicie, elle deviendra un facteur impor-
-tant dans le-grand combat entre la liberté et la réaction.
+en Russie et en Galicie, elle deviendra un facteur important dans le-grand combat entre la liberté et la réaction.
 En réclamant toutes les libertés, cette politique
 échappera aux petites intrigues des politiciens; elle
 sera vraiment nationale, et même plus que cela; elle
-tendra à refaire de la Pologne le champion du droit à!
+tendra à refaire de la Pologne le champion du droit
 dans l'Europe orientale... Ce n'est encore qu'un rêve De
-d'avenir. Pour le réaliser, il est nécessaire que les Polo-
-nais d'Allemagne cessent de ne jouer un rôle que dans
+d'avenir. Pour le réaliser, il est nécessaire que les Polonais d'Allemagne cessent de ne jouer un rôle que dans
 
 Voyez en particulier le Goniec Wielkopolski du 8 août
 
 ne de la résistance du peuple polonais
 
-la vie politique prussienne; il faut qu'ils marchent d'ac-
-
-cord avec leurs frères de Russie et qu'ils entraînent la
+la vie politique prussienne; il faut qu'ils marchent d'accord avec leurs frères de Russie et qu'ils entraînent la
 pauvre Galicie, qui s'attarde dans un passé dange-
 
 à La politique pontificale, qui ne se soucie nullement
 du droit des peuples, ne peut qu'aider les Polonais à À
 
-secouer le joug clérical. Vis-à-vis des nationalités catho-
-
-liques, l'attitude du Vatican a toujours été étrange.
+secouer le joug clérical. Vis-à-vis des nationalités catholiques, l'attitude du Vatican a toujours été étrange.
 S'inspirant de la parole de l'Écriture: « Rendez à César
 
 ce qui est à César la curie romaine s'attache trop
@@ -1513,8 +1423,7 @@ scandalisé les Polonais. A
 L'épiscopat allemand, dans les diocèses où il y a une
 population slave, n'a pas non plus témoigné beaucoup sa
 de sollicitude pour les Polonais. Le cardinal Kopp,
-prince-évêque de Breslau, s'est distingué particulière-
-ment par son animosité envers les Polonais silésiens. (2) À
+prince-évêque de Breslau, s'est distingué particulièrement par son animosité envers les Polonais silésiens. (2) À
 En octobre 1890, il adresse un mandement aux ecclé- à
 siastiques de son diocèse, dans lequel il recommande
 (1) Voyez Osservatore romano du 12 décembre 1905. Conférez bi:
@@ -1530,8 +1439,7 @@ Kietz: Ouvrage cité, page 91. je
 de donner l'enseignement religieux en allemand partout Le
 ù où cela sera possible. Lors des élections de juin 1903, il
 lance, quelques jours avant le scrutin, une lettre pasto- à
-rale, dans laquelle il attaque violemment la presse hos-
-tile au Centre, et en particulier les socialistes et les
+rale, dans laquelle il attaque violemment la presse hostile au Centre, et en particulier les socialistes et les
 :. En Westphalie, l'évêque de Paderborn s'obstine à
 ! refuser des curés polonais aux nombreux Slaves établis
 É dans les districts industriels. D'où un conflit aigu entre
@@ -1543,8 +1451,7 @@ Liss accusa monseigneur Simar d'avoir parlé des Polo- À
 sa relation malgré le démenti épiscopal. (2) À
 Les Polonais s'indignèrent, et le mot d'ordre fut donné
 4 de secouer la tutelle du Centre allemand: « Le Centre Le:
-traite les Polonais comme des Ilotes. Entre les Polo-
-nais et le Centre, la paix ne peut régner qu'aux condi-
+traite les Polonais comme des Ilotes. Entre les Polonais et le Centre, la paix ne peut régner qu'aux condi-
 À tions suivantes: dans les affaires religieuses, unité; à
 1 dans la politique, liberté; dans tout le reste, amour
 Le chrétien. » (3) Le Goniec Wielkopolski était déjà parti
@@ -1605,9 +1512,7 @@ recevoir la demande d'ane société polonaise, parce
 qu'elle n'était pas écrite en allemand. (1)
 La presse polonaise cesse d'appuyer ceux qu'elle
 appelle les « germanisateurs catholiques ». « Le peuple a
-se convaincre, dit un journal de Posen, que la domi-
-
-nation du Centre dans la Haute-Silésie absolument
+se convaincre, dit un journal de Posen, que la domination du Centre dans la Haute-Silésie absolument
 polonaise est une prétention ridicule. » (2) Les Dziennik
 Berlinski éditent un pamphlet anonyme contre le parti
 catholique. (3) En octobre 1901, un appel électoral est à
@@ -1634,8 +1539,7 @@ radicaux et recommander l'abstention à tous les élec-
 teurs polonais. Dans la circonscription de Pless-Rybnik,
 le Centre parvint à garder deux sièges sur trois, grâce
 aux scrupules de quelques Polonais, qui n'osèrent
-s'abstenir. Mais il perdit, au profit des candidats natio-
-naux-libéraux, les deux sièges de Beuthen-Tarnowitz.
+s'abstenir. Mais il perdit, au profit des candidats nationaux-libéraux, les deux sièges de Beuthen-Tarnowitz.
 La leçon était d'autant plus sensible, que cette dernière
 circonscription était l'ancien fief électoral du comte
 Ballestrem, l'ex-président du Reichstag, nommé depuis;
@@ -1646,12 +1550,10 @@ du député Dr. Moritz, qui appartenait au Centre. Grâce
 aux Polonais, le candidat catholique échoua. Ce fut un à
 conservateur qui fut élu. (1)
 En 1903, aux élections pour le Reichstag, les Polonais
-avaient remporté une victoire signalée dans la circon-
-scription silésienne de Kattowitz-Zahrze, qui de 1874 à
+avaient remporté une victoire signalée dans la circonscription silésienne de Kattowitz-Zahrze, qui de 1874 à
 1903 avait été représentée par un membre du Centre.
 à Grâce à l'appui des socialistes, M. Korfanty, un des à
-chefs du mouvement polonais anticatholique, lem-
-porta. (2) Son élection fut cassée, mais le 12 octobre
+chefs du mouvement polonais anticatholique, lemporta. (2) Son élection fut cassée, mais le 12 octobre
 sa victoire fut éclatante. Alors qu'en 1903, il
 n'avait été élu qu'au scrutin de ballottage et seulement
 par quelques centaines de voix de majorité, il fut nommé!
@@ -1668,9 +1570,7 @@ Courrier Européen du 6 janvier 1905. se
 
 de la résistance du peuple polonais 1)
 Le parti clérical jouait de malheur. Peu de temps
-après, M. Krolik, député au Reichstag pour la circon-
-
-scription Beuthen-Tarnowitz, sortait de la fraction du
+après, M. Krolik, député au Reichstag pour la circonscription Beuthen-Tarnowitz, sortait de la fraction du
 ) Centre pour entrer dans le groupe polonais. (1) «.
 La défection des Polonais est un grave danger pour
 le Centre, spécialement dans la Prusse Rhénane où
@@ -1688,8 +1588,7 @@ mouvement sérieux de ce côté. Et pourtant, comme le
 près du Polonais que l'Allemand catholique. » (3) Il y a
 des Polonais catholiques à l'esprit assez large pour
 fraterniser avec leurs frères protestants. Au commence- À
-! ment du dix-neuvième siècle, le prince Antoine Sul-
-il kowski fut le protecteur et le bienfaiteur de la célèbre
+! ment du dix-neuvième siècle, le prince Antoine Sulil kowski fut le protecteur et le bienfaiteur de la célèbre
 Un école protestante de Lissa (Leszno). (4) Actuellement
 les relations entre les deux religions sont devenues
 à (2) Les Polonais protestants des cercles d'Ostrowo, Schildberg et
@@ -1727,8 +1626,7 @@ par le Parti Socialiste Polonais de la Pologne russe,
 
 qui place l'indépendance nationale parmi ses premières “.
 
-revendications. (3) En brisant avec le clergé et la bour-
-geoisie, ce parti ne se désintéresse aucunement de la
+revendications. (3) En brisant avec le clergé et la bourgeoisie, ce parti ne se désintéresse aucunement de la
 question purement politique. Il était représenté à la con- je
 férence de Paris, où les organisations révolutionnaires
 
@@ -1738,9 +1636,7 @@ Or, dans la déclaration de principes, les délégués de- à
 
 . (à) Jusqu'ici, il n'y a qu'une seule société polonaise socialiste: )
 
-Une brochure de propagande du parti est intitulée: Le socia-
-
-liste peut-il aussi être catholique? La réponse est naturellement
+Une brochure de propagande du parti est intitulée: Le socialiste peut-il aussi être catholique? La réponse est naturellement
 
 affirmative. Voyez la traduction de cette plaquette dans Die Polen cut
 rheinisch-westfälischen Steinkohlenbezirke, pages 155-162.
@@ -1768,9 +1664,7 @@ C'est ce point de vue si naturel que les socialistes
 ne veulent pas comprendre. Pourtant il s'agit non seu-
 
 4 lement d'une question dont il est impossible de se
-désintéresser sans porter atteinte aux principes fonda-
-mentaux de justice, il s'agit de la vie même du socia-
-lisme en Pologne. Car il ne faut pas se le dissimuler, si (4
+désintéresser sans porter atteinte aux principes fondamentaux de justice, il s'agit de la vie même du socialisme en Pologne. Car il ne faut pas se le dissimuler, si (4
 
 le parti socialiste polonais abandonne les revendications
 nationales, il mourra tout simplement.
@@ -1788,23 +1682,19 @@ prennent une résolution où se trouve cette phrase très nette
 l'indépendance de la Pologne et la débâcle du régime tsariste… »
 
 et Rosa Luxemburg. (1) Cette dernière prononça les
-paroles suivantes, qu'il faut citer à cause de leur gra-
-vité et du danger qu'elles nous semblent renfermer:
-Vous savez qu'il y a dans le mouvement socialiste polo-
-nais deux courants. D'une part, les socialisies purement
+paroles suivantes, qu'il faut citer à cause de leur gravité et du danger qu'elles nous semblent renfermer:
+Vous savez qu'il y a dans le mouvement socialiste polonais deux courants. D'une part, les socialisies purement
 internationalistes, qui acceptent l'annexion, et qui veulent
 marcher la main dans la main avec leurs frères de tous les (4
 pays, sans s'occuper du malheureux partage qui s'est opéré
 entre la Russie, l'Allemagne et l'Autriche. Ce sont mes
-amis et moi qui avons l'honneur de représenter cette fraction. D'autre part, les socialistes plus ou moins nationa-
-listes, qui suivent avant tout le plan utopique et fantaisiste
+amis et moi qui avons l'honneur de représenter cette fraction. D'autre part, les socialistes plus ou moins nationalistes, qui suivent avant tout le plan utopique et fantaisiste
 de la reconstitution de la Pologne. C'est précisément contre
 cette utopie nuisible, contre cette tendance nationaliste que
 nous luttons énergiquement, convaincus que le prolétariat
 n'est pas en état de changer la géographie politique et ca-
 Pitaliste, ni de reconstruire des États bourgeois, mais qu'il
-est contraint de s'organiser sur les bases politiques exis-
-tantes, créées historiquement, pour réaliser la conquête du,
+est contraint de s'organiser sur les bases politiques existantes, créées historiquement, pour réaliser la conquête du,
 pouvoir socialiste et la République sociale. (2)
 ; La citoyenne Luxemburg a le mérite de poser la
 question clairement. Voilà la théorie allemande dans
@@ -1822,17 +1712,11 @@ Seizième cahier de la deuxième série.
 
 de la résistance du peuple polonais
 
-ï bases politiques actuelles ont été « créées historique-
-
-ment Quel est l'état, quelle est l'habitude, quelle est
+ï bases politiques actuelles ont été « créées historiquement Quel est l'état, quelle est l'habitude, quelle est
 
 ‘la tendance, quelle est l'injustice qui n'ait été créée!
-historiquement? Cela ne veut rien dire du tout. L'au-
-
-tocratie russe, la barbarie hamidienne, le capitalisme
-bourgeois aussi ont été créés historiquement. Si le pro-
-
-létariat n'est pas en état de « changer la géographie
+historiquement? Cela ne veut rien dire du tout. L'autocratie russe, la barbarie hamidienne, le capitalisme
+bourgeois aussi ont été créés historiquement. Si le prolétariat n'est pas en état de « changer la géographie
 
 politique et capitaliste il est difficile de comprendre
 
@@ -1866,11 +1750,7 @@ lutte, c'est certain. Et alors, par un procédé simpliste,
 
 on lui dénie le droit d'exister.
 
-4" Mais la négation ne mène pas loin. Il y a des ques-
-
-tions qu'on ne peut écarter d'un simple geste d'impa-
-
-tience ou de dédain. Chaque fois qu'on a cru naïvement
+4" Mais la négation ne mène pas loin. Il y a des questions qu'on ne peut écarter d'un simple geste d'impatience ou de dédain. Chaque fois qu'on a cru naïvement
 
 À en avoir fini avec la question du droit des nationalités,
 
@@ -1893,12 +1773,9 @@ L'avenir du Socialisme dépend de la manière dont il
 
 abordera les questions de justice, toutes. Nous voyons
 
-en ce moment le côté polonais ou allemand du pro-
+en ce moment le côté polonais ou allemand du problème, mais nous n'oublions pas qu'il est universel.
 
-blème, mais nous n'oublions pas qu'il est universel.
-
-Lors de l'Affaire (il faut toujours y revenir), le socia-
-lisme français n'a éluder le problème; il a bien fallu
+Lors de l'Affaire (il faut toujours y revenir), le socialisme français n'a éluder le problème; il a bien fallu
 prendre parti, car s'abstenir, c'eût été aussi prendre
 
 parti. Le jour où le Socialisme, de propos délibéré,
@@ -1919,10 +1796,7 @@ est un Bloc. Il ne restera qu'une théorie et des chiffres,
 JE c'est-à-dire du vent.
 Les Allemands semblent être les seuls à ne pas com- a
 É prendre l'importance du facteur national. Pourtant les à
-organisations socialistes qui l'ont négligé s'en sont tou-
-jours mal trouvées, et leur attitude a provoqué des scis-
-
-sions. (1) Il était impossible que les socialistes polonais.
+organisations socialistes qui l'ont négligé s'en sont toujours mal trouvées, et leur attitude a provoqué des scissions. (1) Il était impossible que les socialistes polonais.
 C'est ainsi que le « Bund » est sorti du parti socialiste russe.
 
 Voyez Eberlin: Les partis juifs en Russie. Cahiers de la Quinzaine.
@@ -1948,11 +1822,9 @@ toutes les divergences, les Polonais forment une masse;
 à Il a fallu bien des années pour arriver à ce résultat.
 ; Il y a cinquante ans, la Silésie dormait encore, et le
 4 paysan posnanien lui-même ne connaissait guère, à côté À
-de ses intérêts matériels, que des aspirations reli-
-gieuses. S'il en est autrement aujourd'hui, le peuple À
+de ses intérêts matériels, que des aspirations religieuses. S'il en est autrement aujourd'hui, le peuple À
 : polonais le doit en grande partie à la presse. On ne
-saurait exagérer le rôle qu'elle joue. Les journaux polo-
-nais ont été, avec les associations, le grand moyen
+saurait exagérer le rôle qu'elle joue. Les journaux polonais ont été, avec les associations, le grand moyen
 d'éducation pour la nation. Comme le dit un journal À
 galicien, « ils ont fait office à la fois d'Université,
 ; d'école, d'organisation politique, de parlement national
@@ -1990,7 +1862,7 @@ ni (1) Le premier juin 1900, paraît à Krotoschin une nouvelle feuille, 4)
 le Chorongiew (drapeau); un mois après naît à Wongrowitz le:
 a Palucsanin. En 1902, paraît en Silésie le Gornoslonzak. A Danzig, il
 1 il a pas moins de trois journaux polonais: Gazeta Gdanska,
-1 En 1906, se fonde à Brème la Bremia, qui s'adresse spécialement
+En 1906, se fonde à Brème la Bremia, qui s'adresse spécialement
 1% Ne pas oublier que certains journaux galiciens, spécialement le
 AN Lech, sont très lus en Prusse.
 
@@ -2004,8 +1876,7 @@ Où depuis un siècle nous pleurons sur les tombeaux de nos pères, À
 ; Ne nous induisez pas en tentation,
 Mais délivrez, par une parole sacrée, notre chère patrie. (1)
 De pareilles paroles, incessamment répétées, unissant
-ne l'idée religieuse à l'aspiration nationale, se gravent pro-
-fondément dans l'âme mystique du peuple polonais. Ces
+ne l'idée religieuse à l'aspiration nationale, se gravent profondément dans l'âme mystique du peuple polonais. Ces
 58 poésies, avec la vie de Kosciusko, quelques chants
 patriotiques et tout au plus quelques vers de Mickiewiez,
 forment toute sa littérature.
@@ -2014,12 +1885,10 @@ malgré toutes les armes dont dispose le gouvernement
 ke: (x) Voyez la traduction allemande complète de cette poésie, dans #1
 
 Celui-ci poursuit depuis quelques années une politique
-É administrative très ferme, visant nettement à l'écrase-
-ment des Slaves. Cependant son action, comme nous le nue
+É administrative très ferme, visant nettement à l'écrasement des Slaves. Cependant son action, comme nous le nue
 verrons, ne suffit pas aux pangermanistes, qui récla-;
 ment toute une législation nouvelle, de manière à
-étouffer l'influence polonaise jusque dans ses manifes-
-tations les plus légales.;
+étouffer l'influence polonaise jusque dans ses manifestations les plus légales.;
 La politique ecclésiastique prussienne a été longtemps ME
 hésitante. Elle est rendue plus difficile par le nombre
 relativement grand des circonscriptions diocésaines des
@@ -2034,9 +1903,7 @@ grande partie de la Prusse Occidentale, maïs aussi sur de
 poméraniens (Lauenburg, Bütow et Rummelsburg), ne
 enfin sur le diaconat de Pomésanie (cercles de Neïden- à
 burg et d'Osterode), en Prusse Orientale.
-LR. L'archevêque de Posen-Gnesen est le chef ecclésias-
-
-de la résistance du peuple polonais "4
+LR. L'archevêque de Posen-Gnesen est le chef ecclésiasde la résistance du peuple polonais "4
 tique de la Posnanie (moins le cercle rural de Bromberg),
 
 ; du cercle de Deutsch-Krone et d'une partie de celui de (4
@@ -2055,9 +1922,7 @@ de Posen seul était, hier encore, administré par un
 Polonais. En admettant un Slave sur le siège de saint
 Adalbert, le gouvernement avait espéré grâce à lui tenir
 
-le clergé posnanien dans sa main. (3) L'influence de l'ar-
-
-chevèque de Posen est immense. Bien qu'il n'ait plus
+le clergé posnanien dans sa main. (3) L'influence de l'archevèque de Posen est immense. Bien qu'il n'ait plus
 droit au titre de « primat de Pologne (4) les paysans
 
 polonais le considèrent en quelque sorte comme le
@@ -2067,8 +1932,7 @@ représentant officiel de la nation. (5) Stablewski, le der- À
 nier archevêque, avait évidemment une position déli-;
 
 : cate, souvent difficile. Il cherchait à tenir la balance
-Moins l'archi-presbytériat de Katscher, qui dépend de lar-
-chevêque d'Olmütz, et le décanat de Neurode, qui fait partie de
+Moins l'archi-presbytériat de Katscher, qui dépend de larchevêque d'Olmütz, et le décanat de Neurode, qui fait partie de
 
 l''archevêché de Prague.
 
@@ -2101,8 +1965,7 @@ nationales. Il lui est arrivé, lors des élections, de prendre
 parti et de désavouer un candidat germanophile. (3)
 Il est peu probable que, d'une manière générale, le
 gouvernement consente à laisser occuper de nouveau
-le siège archiépiscopal par un Polonais. La nomina-
-tion de l'archevêque est réglée par le Breve quod de
+le siège archiépiscopal par un Polonais. La nomination de l'archevêque est réglée par le Breve quod de
 Jfidelium. Les chapitres de Posen et de Gnesen proposent une liste de candidats au gouvernement, mais
 le consentement du roi est réservé. (4) Les deux cha-
 : pitres ont jusqu'ici une majorité polonaise. Mais
@@ -2128,9 +1991,7 @@ recours qu'auprès du ministre des cultes. Seulement
 il reste toujours à l'archevêque la ressource de faire
 
 des nominations provisoires. «
-En réalité, ce ne sont pas les textes de lois qui man-
-quent au gouvernement. Il est paralysé dans sa poli-
-tique religieuse par le spectre du Kulturkampf.
+En réalité, ce ne sont pas les textes de lois qui manquent au gouvernement. Il est paralysé dans sa politique religieuse par le spectre du Kulturkampf.
 Il en est autrement de l'administration proprement
 à dite. Là, l'influence gouvernementale peut se donner
 libre carrière. (1) Il sans dire que les fonctionnaires
@@ -2140,8 +2001,7 @@ qu'on leur demandait jadis, n'est plus de mise. Ce:
 qu'on attend de leur obéissance, une circulaire minis-
 : térielle l'indique clairement: -
 Il incombe aux fonctionnaires de fortifier par leur exemple
-à l'esprit patriotique et de seconder les efforts de la popula-
-tion allemande dans ce sens. (2)
+à l'esprit patriotique et de seconder les efforts de la population allemande dans ce sens. (2)
 : Ce qui veut dire: ne pas parler polonais; entrer, si
 possible, dans l''Ostmarkenverein, et surtout ne pas
 épouser une Polonaise. L'administration n'hésite pas à
@@ -2169,21 +2029,17 @@ fonctionnaires allemands qui apprennent le polonais. à
 sont du moins plus logiques. (3)
 On a proposé parfois de changer complètement l'or- à
 ganisation provinciale, soit en formant de toutes les
-parties polonaises du pays un gouvernement particu-
-lier, fortement centralisé et plus facile à surveiller;
+parties polonaises du pays un gouvernement particulier, fortement centralisé et plus facile à surveiller;
 soit au contraire en supprimant la Posnanie, pour la
 partager entre les provinces limitrophes. Ces projets à
-ont été repoussés comme étant des remèdes dange-
-reux. Dans le premier cas, en effet, ce serait donner
+ont été repoussés comme étant des remèdes dangereux. Dans le premier cas, en effet, ce serait donner
 aux Polonais l'unité administrative qui leur manque
 
 de la résistance du peuple polonais
 
 dans le second, ce serait renforcer l'élément polonais
 - en Silésie et en Prusse Occidentale.
-Par contre, il peut être avantageux pour la germani-
-
-sation de diviser les cercles à majorité polonaise, de
+Par contre, il peut être avantageux pour la germanisation de diviser les cercles à majorité polonaise, de
 
 manière à en faciliter la surveillance et l'administra- À
 
@@ -2211,9 +2067,7 @@ grandes (152.629 et 213.660 hectares), ce qui complique la tâche du À
 Voyez Amisblatt der Regierung Posen, 1901, pages 324 et
 (3) A consulter sur l'administration locale: Flandin: Znstitutions
 politiques de l'Europe contemporaine. Allemagne, pages 196-209 (très A
-insuffisant). — Oscar Pyfferven: L'électorat politique et adminis-
-
-administratif prussien est extrêmement compliqué: ilne "14
+insuffisant). — Oscar Pyfferven: L'électorat politique et adminisadministratif prussien est extrêmement compliqué: ilne "14
 varie pas seulement de province à province, mais encore;
 ; souvent de commune à commune. (1) D'une manière
 générale, les citoyens fortunés sont favorisés au détriment des pauvres, ce qui restreint considérablement les
@@ -2221,11 +2075,7 @@ générale, les citoyens fortunés sont favorisés au détriment des pauvres, ce
 ‘avoir droit de vote, il faut, dans la plupart des com- à
 munes rurales des provinces orientales, posséder au
 
-moins un revenu annuel de 900 marks ou, avecunrevenu-
-
-de 660 à 900 marks, payer du moins des impôts com-
-
-munaux. Les électeurs sont divisés en trois classes
+moins un revenu annuel de 900 marks ou, avecunrevenude 660 à 900 marks, payer du moins des impôts communaux. Les électeurs sont divisés en trois classes
 ayant une force électorale équivalente, chaque classe
 représentant le tiers de la totalité des impôts. En outre,!
 le vote est public, ce qui permet à l'administration!
@@ -2242,13 +2092,11 @@ y Le choïx du bourgmestre et de son adjoint doit être
 
 approuvé par le gouvernement, qui peut refuser son
 
-Monarchie. — Von Stengel: Wôrterbuch des deutschen Verwaltungs-
-
-rechts. — Otto Mayer: Le droit administratif allemand, édition
+Monarchie. — Von Stengel: Wôrterbuch des deutschen Verwaltungsrechts. — Otto Mayer: Le droit administratif allemand, édition
 
 française par l'auteur, 4 volumes. Paris. (Giard et Brière)
 
-4 La loi du 30 janvier 1900 pas imposé l'uniformité. Elle
+La loi du 30 janvier 1900 pas imposé l'uniformité. Elle
 
 a permet, dans de certaines limites, aux conseils communaux, de
 
@@ -2275,8 +2123,7 @@ pour les communes urbaïnes, (5) jusqu'à six semaines
 pour les communes rurales; (6) il voudrait voir conférer
 le droit de dissolution au gouverneur de la province et
 faire ajourner les élections à deux ans.
-; Il voudrait soumettre la plupart des communes ur-
-baïnes, comme les communes rurales le sont déjà, à la
+; Il voudrait soumettre la plupart des communes urbaïnes, comme les communes rurales le sont déjà, à la
 (1) Dans les grandes villes, le bourgmestre est du reste en général.
 un fonctionnaire de carrière. À noter encore, que l'« Amtmann »
 ou bourgmestre qui est à la tête d'un bailliage (groupe cantonal)
@@ -2330,8 +2177,7 @@ L'organisation du Landtag provincial repose sur les.
 de cercle. aussi, nous trouvons les trois ordres:
 ordre équestre, villes et campagnes.
 Le fisc, c'est-à-dire le gouvernement, jouit de plusieurs
-Le voix à ces États provinciaux, grâce aux achats de cer-
-tains grands domaines faits par la Commission de
+Le voix à ces États provinciaux, grâce aux achats de certains grands domaines faits par la Commission de
 colonisation. Ce cumul enlève la représentation aux
 Polonais, même où ils sont en grande majorité. (3)
 De plus, dès 1889, le gouvernement s'est fait octroyer le
@@ -2372,12 +2218,10 @@ Mais il sans dire qu'ils ne peuvent y jouer aucun rôle marKe: quant.! à (Li
 
 de la résistance du peuple polonais
 Polonais n'ont jamais été plus de vingt. C'est ce qui
-explique pourquoi ils sont forcés, dans mainte circon-
-stance, d'avoir recours aux forces compactes du Centre.
+explique pourquoi ils sont forcés, dans mainte circonstance, d'avoir recours aux forces compactes du Centre.
 Les Polonais soutiennent de leur vote, lorsque l'occasion
 s'en présente, l'unique député danois dans ses revendi-
-À cations en faveur des populations du Sleswig septen-
-trional. Ils sont naturellement hostiles à toutes les lois
+À cations en faveur des populations du Sleswig septentrional. Ils sont naturellement hostiles à toutes les lois
 d'exception, et leurs voix se rencontrent souvent avec
 1 celles des socialistes. Ils ne votent pas systématique- À
 ment contre les crédits pour l'armée et la marine, mais, )
@@ -2386,15 +2230,13 @@ régulière. En février 1905, ils ont été seuls avec les
 socialistes à refuser les crédits supplémentaires pour
 l'expédition du Sud-Ouest africain. À
 Leur rôle consiste essentiellement à protester contre À
-. les mesures arbitraires destinées à écraser leur natio-
-nalité. Et cette action, quelque platonique qu'elle
+. les mesures arbitraires destinées à écraser leur nationalité. Et cette action, quelque platonique qu'elle
 paraisse, n'est pas absolument stérile. Le Reichstag est (
 une tribune assez retentissante. C'est pour l'Europe, À
 c'est pour l'opinion publique que les députés polonais y
 parlent. Par leur intervention, ils rappellent au monde
 civilisé qu'il existe une question polonaise en Allemagne.
-C'est déjà un résultat appréciable que d'empèêcher l'af-
-freuse prescription de l'oubli.
+C'est déjà un résultat appréciable que d'empèêcher l'affreuse prescription de l'oubli.
 En outre, les luttes électorales contribuent à maintenir
 éveillé le sentiment national. Le tableau suivant (1)
 (1) Pour le détail complet des élections au Reichstag dans toutes
@@ -2471,14 +2313,12 @@ F. Il est vrai que, d'un autre côté, le parti socialiste
 Dans le congrès qu'il a tenu à Kattowitz (avril 1906), il À
 a décidé de se réconcilier avec le grand parti allemand,
 dont il adopte le programme. Mais il garde son organi-
-3744 Les Allemands n'ont pas plus désarmé que les Polo-
-nais, cela sans dire. L'Ostmarkenverein continue à
+3744 Les Allemands n'ont pas plus désarmé que les Polonais, cela sans dire. L'Ostmarkenverein continue à
 4 mobiliser les partisans de la germanisation brutale. (1)
 En août 1906, les hakatistes ont célébré une grande
 fête à Marienburg. Ils furent récompensés de leur loya-;
 lisme bruyant par un télégramme de l'empereur ainsi jh.
-: que par les encouragements du chancelier. La commis-
-sion de colonisation poursuit son plan savant. Toutefois
+: que par les encouragements du chancelier. La commission de colonisation poursuit son plan savant. Toutefois
 ‘elle se heurte aux mêmes difficultés: refus des Polonais
 4 de vendre leurs terres et augmentation incessante du ne
 prix des terrains. (2) Aussi les hakatistes ne cessent-ils
@@ -2503,12 +2343,9 @@ destinées à la solution de cette question s'impose. Il sou-
 à mettra à la Diète un projet de loi en concordance avec cette À
 En attendant, le gouvernement montre par des actes
 la crainte que lui inspirent les sociétés de gymnastique.
-polonaises. Dernièrement encore (janvier 1907), il inten-
-tait un procès contre vingt-deux Polonais, parmi les-
-quels M. de Koscielsky, accusé d'avoir mis le parc de
+polonaises. Dernièrement encore (janvier 1907), il intentait un procès contre vingt-deux Polonais, parmi lesquels M. de Koscielsky, accusé d'avoir mis le parc de
 sa propriété de Miloslaw à la disposition d'une réunion
-sokoliste secrète. Il est vrai que, faute de preuves sufli-
-santes, le tribunal de Gnesen a été forcé d'acquitter les
+sokoliste secrète. Il est vrai que, faute de preuves suflisantes, le tribunal de Gnesen a été forcé d'acquitter les
 À Le 24 novembre 1906, la cause slave faisait une
 grande perte par la mort de l'archevèêque de Posen,
 M. de Stablewski. Le chapitre de Posen a élu comme À
@@ -2522,15 +2359,13 @@ dit-on, à l'évêque de Kulm, dont les tendances germa- tr:
 , nisatrices sont connues. Mais les chanoines de Posen-;
 Gnesen ne se le laisseront certainement pas imposer
 ) facilement. Peut-être, grâce à la politique du Saint-Siège, NE
-si favorable à la Prusse, trouvera-t-on un de ces com-
-promis dont Rome a le secret. Moyennant l'abandon de
+si favorable à la Prusse, trouvera-t-on un de ces compromis dont Rome a le secret. Moyennant l'abandon de
 4 la grève scolaire, peut-être l'empereur accepterait-il un
-Polonais modéré. La solution, quelle qu'elle soit, méri-
-tera d'attirer l'attention. à
+Polonais modéré. La solution, quelle qu'elle soit, méritera d'attirer l'attention. à
 
 ï Le fait le plus saiïllant de cette dernière année est
 incontestablement la grève scolaire. Non que les petits
-Polonais se refusent à aller à l'école; ils se bornent à!
+Polonais se refusent à aller à l'école; ils se bornent
 demander l'instruction religieuse dans leur langue et à
 
 ne pas répondre aux questions qui leur sont adressées
@@ -2538,8 +2373,7 @@ en allemand. Mais cette simple attitude met les auto- À
 
 rités scolaires et le gouvernement lui-même dans une
 
-position singulièrement désagréable. IL y a quelque ri-
-dicule à mettre les inspecteurs et les « landräte » sur
+position singulièrement désagréable. IL y a quelque ridicule à mettre les inspecteurs et les « landräte » sur
 les dents, à charger le rôle des tribunaux, à compulser À
 
 des circulaires, tout cela pour briser la résistance
@@ -2549,8 +2383,7 @@ Les fouetteurs de Wreschen n'osent plus recourir aux
 
 coups. Mais les moyens de répression n'en sont pas;
 
-ta plus beaux. Les élèves récalcitrants sont mis régulière-
-ment aux arrêts; on les place d'office dans des classes
+ta plus beaux. Les élèves récalcitrants sont mis régulièrement aux arrêts; on les place d'office dans des classes
 inférieures, de manière à prolonger inutilement d'un an
 
 ou deux le temps qu'ils ont à passer à l'école; on leur;
@@ -2574,8 +2407,7 @@ de répression trouvé par le tribunal de Zabrze. Des
 parents, dont les enfants ont, sur leur ordre, refusé de
 recevoir l'instruction religieuse en allemand, ont été
 privés de leurs droits paternels. (1) Les enfants leur
-ont été enlevés et placés dans des institutions spé-
-ciales. On voudrait espérer que ces juges n'ont pas
+ont été enlevés et placés dans des institutions spéciales. On voudrait espérer que ces juges n'ont pas
 d'enfants. En tout cas, des mesures aussi cruellement
 iniques révèlent un état d'âme effrayant.
 « Ostmarkenverein » a trouvé son homme dans le
@@ -2596,8 +2428,7 @@ Le Temps (20 novembre 1906) a donné la traduction d'un de
 ces jugements. à
 (2) Voyez les félicitations du comité central de cette société dans
 Ostmark, XI, 11. Voyez aussi Die Wahrheit über den polnischen
-Schülerstreich, publié dernièrement par les soins de l''Ostmarken-
-verein, et distribué à plus d'un million d'exemplaires.
+Schülerstreich, publié dernièrement par les soins de l''Ostmarkenverein, et distribué à plus d'un million d'exemplaires.
 
 de la résistance du peuple polonais
 grand romancier représente bien l'opinion de tous les
@@ -2628,20 +2459,16 @@ aide de la curie romaine. Jusqu'ici le Pape a évité de se "4
 2 (2) On sait que le cardinal Kopp est absolument opposé aux à
 Polonais. Par contre, l'archevêque de Léopol a défendu la cause
 polonaise dans un rapport au cardinal Merry del Val. En janvier,
-la Correspondance politique de Vienne, ordinairement bien infor-
-mée, annonça que le Pape ne désavouerait pas le clergé posnanien. À
+la Correspondance politique de Vienne, ordinairement bien informée, annonça que le Pape ne désavouerait pas le clergé posnanien. À
 Mais, d'après le Temps (premier février 1907), monseigneur Li- “3
 4 kowski, administrateur provisoire du diocèse de Posen, aurait NE.
 
 informé les'curés que le Pape désirait la fin de la grève scolaire.
 
-è; Il se trouve évidemment fort gêné, car le clergé polo-
-nais tout entier a pris parti pour la grève.,
+Il se trouve évidemment fort gêné, car le clergé polonais tout entier a pris parti pour la grève.,
 L'archevèque Stablewski, se basant sur une décision;
-du concile de Trente, avait demandé lui-même à plu-
-sieurs reprises le rétablissement de l'instruction reli-;
-gieuse en polonais, en particulier dans sa lettre pasto-
-rale du 8 octobre. (1) Ce qu'il y a de certain, c'est que
+du concile de Trente, avait demandé lui-même à plusieurs reprises le rétablissement de l'instruction reli-;
+gieuse en polonais, en particulier dans sa lettre pastorale du 8 octobre. (1) Ce qu'il y a de certain, c'est que
 les Polonais feront bien de se rappeler l'attitude du
 Saint-Siège vis-à-vis des Irlandais et de ne pas attendre
 un encouragement de ce côté.
@@ -2657,10 +2484,8 @@ Silésie (Oppeln, Pless et Lublinitz) et une en Prusse
 Occidentale (Schwetz). A Thorn-Kulm, le candidat
 national-libéral n'a été élu contre le Polonais que par
 onze voix de majorité. à
-Dans la circonscription silésienne de Gross-Strehlitz-
-nommé que grâce à l'appoint des voix conservatrices. (2) Si
-.(1) Rappelons qu'en 1873, Stablewski, alors chargé de l'instruc-
-tion religieuse au gymnase de Schrimm, préféra abandonner ses
+Dans la circonscription silésienne de Gross-Strehlitznommé que grâce à l'appoint des voix conservatrices. (2) Si
+.(1) Rappelons qu'en 1873, Stablewski, alors chargé de l'instruction religieuse au gymnase de Schrimm, préféra abandonner ses
 fonctions plutôt que de donner son enseignement en allemand.
 (Voyez Achter Jahresbericht des Küniglischen Gymnasiums
 (2) Il y a ballottage, en outre, dans les circonscriptions de À
@@ -2687,17 +2512,13 @@ Schiele: Briefe über Landflucht und Polenfrage. Berlin, 1906.
 Si le mot de Renan est juste: « L'existence d'une
 
 : nation est un plébiscite de tous les jours la Pologne
-n'a cessé de prouver son existence. Elle est bien vi-
-vante, certes, cette nation que tant d'années d'oppres-
-sion n'ont pas tuée. Pourra-t-on jamais la tuer? Nous
+n'a cessé de prouver son existence. Elle est bien vivante, certes, cette nation que tant d'années d'oppression n'ont pas tuée. Pourra-t-on jamais la tuer? Nous
 n'avons pas l'optimisme aussi fort que Caro, qui disait
 après l'année terrible:
 
 Le lien véritable de la patrie eomme de la famille, c'est
 
-l'amour, la sympathie, la communion des âmes. Voilà pour-
-
-quoi la patrie est, en définitive, inattaquable et indestruc- per
+l'amour, la sympathie, la communion des âmes. Voilà pourquoi la patrie est, en définitive, inattaquable et indestruc- per
 tible. On en peut briser, par la violence, l'unité extérieure
 4 et matérielle, mais l'unité morale, qui est le meilleur de la à
 patrie, qui en est le fond même, échappe à tous les coups
@@ -2710,14 +2531,11 @@ habilement ou brutalement ce qui constitue l'armature
 ï l'unité morale.;
 (1) Revue politique et littéraire. 1871, page
 
-Si son travail est méthodique et fort, si les circon-
-stances la favorisent, si elle dispose d'une durée suffi-
-sante, l'assimilation forcée est possible.
+Si son travail est méthodique et fort, si les circonstances la favorisent, si elle dispose d'une durée suffisante, l'assimilation forcée est possible.
 Il n'en reste pas moins que le succès d'un pareil
 crime est très difficile, beaucoup plus difficile que les.
 Allemands ne se l'imaginent. La volonté consciente à
-d'un peuple est tout de même un terrible obstacle. Jus-
-qu'ici, les Polonais n'ont aucune raison de désespérer,
+d'un peuple est tout de même un terrible obstacle. Jusqu'ici, les Polonais n'ont aucune raison de désespérer,
 et rien ne dit que le jour de la justice ne viendra pas A
 ; pour eux. À
 Puisse ce jour venir pour tous les peuples! à
@@ -2735,8 +2553,7 @@ naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraissent par séries; une série paraît [Ans
 dans le temps d'une année scolaire, d'une année
-ouvrière, d'octobre-novembre à juin-juillet; l'abonne-
-ment se prend pour une série.
+ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série.
 On peut souscrire cet abonnement à tout moment de
 l'année, mais l'abortnement ainsi souscrit est, de droit,
 valable pour la série encours.
@@ -2747,8 +2564,7 @@ Abonnement sur whatman... cent francs pour tous pays:
 Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du
 souscripteur; le tirage à part sur whatman a commencé
-de fonctionner au premier janvier 1906; les inscrip-
-tions pour cet abonnement particulier sont reçues en
+de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en
 tout temps et reçoivent un numéro d'ordre déterminé
 automatiquement par le rang méme qu'elles occupent
 dans l'ordre de l'arrivée, les numéros les plüs bas venant “0
@@ -2766,8 +2582,7 @@ demander un abonnement recommandé; tous les cahiers
 de l'abonnement recommandé sont empaquetés à part et
 recommandés à la poste; la recommandation postale,
 comportant une transmission de signature, garantit le
-destinataire contre certains abus: pour cette recom-
-mandation, pour tous pays, en sus, cinq francs. y
+destinataire contre certains abus: pour cette recommandation, pour tous pays, en sus, cinq francs. y
 
 Automatiquement et sans augmentation de prix les
 exemplaires sur whatman sont tous recommandés et

@@ -58,8 +58,7 @@ purs, qui eût l'âme assez intacte pour avoir le droit de
 É parler, et la voix assez forte pour se faire entendre. J'ai
 - bâti patiemment ce héros. Avant de me décider à écrire
 
-la première ligne de l'ouvrage, je l'ai porté en moi pen-
-dant des années; Christophe ne s'est mis en route que
+la première ligne de l'ouvrage, je l'ai porté en moi pendant des années; Christophe ne s'est mis en route que
 
 quand j'avais déjà reconnu pour lui la route jusqu'au
 
@@ -87,14 +86,12 @@ be: ouvrage? Un poème? — Qu'avez-vous besoin d'un nom?
 
 . un roman, ou un poème? C'est un homme que je fais.
 La vie d'un homme ne s'enferme point dans le cadre
-“2 d'une forme littéraire. Sa loi est en elle; et chaque vie a:
+“2 d'une forme littéraire. Sa loi est en elle; et chaque vie
 de sa loi. Son régime est celui d'une force de la nature. IL
 DE. y a des vies humaines qui sont des lacs tranquilles,
 É. d'autres de grands cieux clairs où voguent les nuages,
 
-d'autres des plaines fécondes, d'autres des cimes déchi-
-
-quetées. Jean-Christophe m'est toujours apparu comme
+d'autres des plaines fécondes, d'autres des cimes déchiquetées. Jean-Christophe m'est toujours apparu comme
 un fleuve; je l'ai dit, dès les premières pages. — Il est
 des zones dans le cours des fleuves, où.ils s'étendent,
 semblent dormir, reflétant la campagne qui les entoure,
@@ -109,22 +106,20 @@ mer, — où nous allons tous.
 
 : J'ai un ami! Douceur d'avoir trouvé une âme, où se
 4 blottir au milieu de la tourmente, un abri tendreet sûr,
-où l'on respire enfin, attendant que s'apaisent les batte-
-ments d'un cœur haletant! N'être plus seul, ne devoir
+où l'on respire enfin, attendant que s'apaisent les battements d'un cœur haletant! N'être plus seul, ne devoir
 plus rester.armé toujours, les yeux toujours ouverts et
 4 brûlés par les veilles, jusqu'à ce que la fatigue vous
 . livre à l'ennemi! Avoir le cher compagnon, entre les
 mains duquel on a remis tout son être, — qui a remis
 tout son être en vos mains. Goûter enfin le repos, dor_ mir tandis qu'il veille, veiller tandis qu'il dort. Connaître
--: la joie de protéger celui qu'on aime, et qui se confie à
+la joie de protéger celui qu'on aime, et qui se confie à
 vous, comme un petit enfant. Connaître la joie plus » - grande de s'abandonner à lui, de sentir qu'il tient tous
 - vos secrets, qu'il dispose de vous. Vieilli, usé, lassé de
 : porter depuis tant d'années la vie, renaître jeune et
 frais dans le corps de l'ami, voir avec ses yeux le
 2 monde renouvelé, étreindre avec ses sens les belles
 choses passagères, jouir avec son cœur de la splendeur
-É _de vivre. Souffrir même avec lui... Ah! même la souf-
-france est joie, pourvu qu'on soit ensemble!
+É _de vivre. Souffrir même avec lui... Ah! même la souffrance est joie, pourvu qu'on soit ensemble!
 J'ai un ami! Loin de moi, près de moi, toujours en:
 È moi. Je l'ai, je suis à lui. Mon ami m'aime. Mon ami
 m'a. L'amour a nos âmes en une âme mélées.
@@ -143,9 +138,7 @@ exhalaït des odeurs malpropres et variées. Les marches,
 aux tournants raides, avaient une inclinaison vers le
 mur, sali d'inscriptions au crayon. Au troisième, une
 femme, aux cheveux gris défaits, avec une camisole qui
-bâillait, ouvrit la porte, en entendant monter, et la re-
-
-ferma brutalement, quand elle vit Christophe. Il y avait
+bâillait, ouvrit la porte, en entendant monter, et la referma brutalement, quand elle vit Christophe. Il y avait
 plusieurs logements par palier; et, à travers les portes
 mal jointes, on entendait des enfants se bousculer*et
 piailler. C'était un grouillement de vies sales et
@@ -310,8 +303,7 @@ grondement de l'omnibus dans la rue.
 
 — Et cette maison! continua Christophe. Cette maison
 qui transpire la saleté, la chaleur malpropre, l'ignoble
-misère, comment pouvez-vous rentrer tous les soirs là-
-dedans”? Est-ce que cela ne vous décourage pas? Moi,
+misère, comment pouvez-vous rentrer tous les soirs làdedans”? Est-ce que cela ne vous décourage pas? Moi,
 il me serait impossible d'y vivre. J'aimerais mieux coucher sous un pont.
 
 — J'en ai souffert aussi, les premiers temps. Je suis
@@ -354,8 +346,7 @@ faire? Il faut vivre.
 — Comment vivez-vous?
 — Je donne des leçons.
 — Des leçons de quoi?
-De tout. Des répétitions de latin, de grec, d'his-
-toire. Je prépare au baccalauréat. J'ai aussi un cours -
+De tout. Des répétitions de latin, de grec, d'histoire. Je prépare au baccalauréat. J'ai aussi un cours -
 de Morale dans une École municipale.
 — Un cours de quoi?
 — Quelle diable de sottise est-ce On enseigne la
@@ -369,13 +360,11 @@ la plus mauvaise façon pour le faire. Le bien n'est pas
 une science, c'est une action. Il n'y a que les neuras-:
 théniques, pour discutailler sur la morale: et la première
 
-Le de toutes les lois morales est de ne pas être neurasthé-
-nique. Diables de pédants! Ils sont comme des culs-de__ jatte qui voudraient m''apprendre à marcher.
+Le de toutes les lois morales est de ne pas être neurasthénique. Diables de pédants! Ils sont comme des culs-de__ jatte qui voudraient m''apprendre à marcher.
 te — Ce n'est pas pour vous qu'ils parlent. Vous, vous
 savez; mais il y en a tant qui ne savent pas!
 — Eh bien, laissez-les, comme les enfants, se traîner
-à quatre pattes, jusqu'à ce qu'ils aient appris d'eux-
-mêmes. Mais sur deux pattes ou sur quatre, la première
+à quatre pattes, jusqu'à ce qu'ils aient appris d'euxmêmes. Mais sur deux pattes ou sur quatre, la première
 
 - chose, c'est qu'ils marchent.
 marchait à grands pas d'un bout à l'autre de la
@@ -449,8 +438,7 @@ Luxembourg. Il s'étendit sur un banc à l'ombre, et
 ferma les yeux. L'air était immobile et lourd; il y avait
 peu de promeneurs. On entendait, très affaibli, le bruit
 inégal du jet d'eau, et parfois le grésillement du sable
-sous un pas. Christophe se sentait une fainéantise irré-
-sistible, il s'engourdissait comme un lézard au soleil;
+sous un pas. Christophe se sentait une fainéantise irrésistible, il s'engourdissait comme un lézard au soleil;
 l'ombre était depuis longtemps partie de dessus son
 visage; mais il ne se décidait pas à faire un mouvement. Ses pensées tournaient en rond; il n'essayait pas
 de les fixer; elles étaient toutes baïgnées dans une
@@ -464,9 +452,7 @@ Jean-Christophe à Paris axe (ra
 sa maison, en sifflant. Il fit un Rondo en canon sur le
 cri d'un marchand. Même les mélodies tristes prenaient
 en lui une allure réjouie. En passant devant la blanchisserie de sa rue, il jeta, comme d'habitude, un
-coup d'œil dans la boutique, et vit la petite rous-
-
-sotte, au teint mat, rosé par la chaleur, qui repassait,
+coup d'œil dans la boutique, et vit la petite roussotte, au teint mat, rosé par la chaleur, qui repassait,
 ses bras grêles nus presque jusqu'à l'épaule, son corsage à
 ouvert; elle lui lança, comme d'habitude, une œiïllade
 effrontée; pour la première fois, ce regard glissa sur le
@@ -489,9 +475,7 @@ y en a deux: il y a la façon de ceux qui aiment avec tout
 eux-mêmes, et la façon de ceux qui ne donnent à l'amour
 qu'une part de leur superflu. Dieu me préserve de cette
 ladrerie de cœur!
-Il s'arrêta de penser, par une sorte de pudeur à pour-
-
-suivre plus avant. Longtemps, il resta à sourire à son
+Il s'arrêta de penser, par une sorte de pudeur à poursuivre plus avant. Longtemps, il resta à sourire à son
 rêve intérieur. Son cœur chantait, dans le silence:
 
 — Du bist mein, und nun ist das Meine meiner als jemals…
@@ -514,8 +498,7 @@ avancer par Hecht. Olivier rougit, et refusa. Christophe,
 mécontent, voulut les jeter à un Italien, qui jouait dans
 la cour. Olivier l'en empécha. Christophe repartit,
 blessé en apparence, en réalité furieux contre lui-même
-de sa maladresse, à laquelle il attribuait le refus d'Oli-
-vier. Une lettre de son ami vint mettre un baume sur
+de sa maladresse, à laquelle il attribuait le refus d'Olivier. Une lettre de son ami vint mettre un baume sur
 sa blessure. Olivier lui écrivait ce qu'il ne pouvait lui
 exprimer de vive voix: son bonheur de le connaître, et
 son émotion de ce que Christophe avait voulu faire pour
@@ -537,13 +520,11 @@ tant à Paris, qui se cachent, ignorés. On ne voyait personne dans les allées 
 hauts et plus touffus que ceux du Luxembourg, frissonnaient au soleil; des bandes d'oiseaux chantaïent; dès
 l'aube, c'étaient les flûtes des merles, et puis le choral
 tumultueux et rythmé des moineaux; et le soir, en été,
-les cris délirants des martinets, qui fendaient l'air lumi-
-neux et patinaient dans le ciel. Et la nuit, sous la lune,
+les cris délirants des martinets, qui fendaient l'air lumineux et patinaient dans le ciel. Et la nuit, sous la lune,
 telles que les bulles d'air qui montent à la surface d'un
 étang, les notes perlées des crapauds. On eût oublié
 que Paris était là, si la vieille maison n'eût constam-:
-ment tremblé du grondement des lourdes voitures lointaines, comme si la terre avait été remuée par un fris-
-son de fièvre.
+ment tremblé du grondement des lourdes voitures lointaines, comme si la terre avait été remuée par un frisson de fièvre.
 L'une des chambres était plus large et plus belle que
 les autres. Ce fut un débat entre les deux amis à qui ne
 l'aurait pas. Il fallut la tirer au sort; et Christophe, qui
@@ -564,8 +545,7 @@ ils se parlaient à peine, ils osaient à peine parler; il
 leur suffisait de se sentir l'un à côté de l'autre, d'échanger un regard, un mot qui leur prouvait que leur pensée,
 après de longs silences, suivait le même cours. Sans se
 faire aucune question, même sans se regarder, ils se
-voyaient sans cesse. Celui qui aime se modèle incon-
-sciemment sur l'âme de celui qu'il aime: il a si grand
+voyaient sans cesse. Celui qui aime se modèle inconsciemment sur l'âme de celui qu'il aime: il a si grand
 désir de ne pas le blesser, d'être tout ce qu'il est,
 que, par une intuition mystérieuse et soudaine, il lit
 au fond de lui les mouvements imperceptibles. L'ami
@@ -575,8 +555,7 @@ jour où la force profonde, le démon de la race, se
 délivre brusquement et déchire l'enveloppe de l'amour,
 qui le lie.
 Christophe parlait à mi-voix, il marchaït doucement,
-il prenait garde de faire du bruit dans la chambre voi-
-sine de celle du silencieux Olivier; il était transfiguré.
+il prenait garde de faire du bruit dans la chambre voisine de celle du silencieux Olivier; il était transfiguré.
 par l'amitié; il avait une expression de bonheur, de
 confiance, de jeunesse, qu'on ne lui avait jamais vue. Il
 adorait Olivier. Il eût été bien facile à celui-ci d'abuser
@@ -730,9 +709,7 @@ et auxquelles il se dévouait, comme tant d'autres jeunes
 2 faire paraître tout ce qui valait, en lui, de vivre.
 
 Il était doux, poli, patient en apparence, mais d'une
-sensibilité excessive. Une parole un peu vive le bles-
-
-sait jusqu'au sang; une injustice le bouleversait; il en
+sensibilité excessive. Une parole un peu vive le blessait jusqu'au sang; une injustice le bouleversait; il en
 . souffrait pour lui et pour les autres. Certaines vilenies,
 
 commises il y avait des siècles, le déchiraient encore,:
@@ -789,8 +766,7 @@ d'exaltation et de périodes de dépression, se suivant
 d'une façon brusque et fatale. Au moment où il se sentait le plus calme et même heureux, il pouvait être sûr
 que le chagrin le guettait. Et soudain, en effet, il était
 terrassé par lui, sans l'avoir venir. Alors, il ne lui
-suffisait pas d'être malheureux; il fallait qu'il se repre-
-chât son malheur, qu'il fit le procès de ses paroles, de
+suffisait pas d'être malheureux; il fallait qu'il se reprechât son malheur, qu'il fit le procès de ses paroles, de
 ses actes, de son honnêteté, qu'il prit le parti des autres
 
 - contre lui-même. Son cœur sautait dans sa poitrine, il
@@ -848,16 +824,13 @@ de sa robustesse physique et morale, qui tendait à
 
 l'optimisme, même dans la douleur, même dans l'injus-
 : tice et dans la haine. Il lui prenait bien davantage,
-selon la loi du génie, qui a beau donner, il prend tou-
-jours en amour beaucoup plus qu'il ne donne, quia
+selon la loi du génie, qui a beau donner, il prend toujours en amour beaucoup plus qu'il ne donne, quia
 nominor leo, parce qu'il est le génie, et que le génie,
 c'est pour moitié de savoir absorber tout ce qu'il y a de
 
 É grand autour de soi, et de le faire plus grand. La
 sagesse populaire dit qu'aux riches la richesse. La
-force aux forts. Christophe se nourrissait de la pen-
-
-sée d'Olivier; il s'imprégnait de son calme intellectuel,
+force aux forts. Christophe se nourrissait de la pensée d'Olivier; il s'imprégnait de son calme intellectuel,
 de son détachement d'esprit, de cette vue lointaine des
 
 choses, qui comprenait et dominait tout, en silence.
@@ -865,7 +838,7 @@ Mais transplantées en lui, dans une terre plus riche,
 
 4 les vertus de son ami poussaient avec une bien autre
 
-;, Ils s'émerveillaient tous deux de ce qu'ils décou-
+Ils s'émerveillaient tous deux de ce qu'ils décou-
 
 à. vraient l'un dans l'autre. Que de choses à partager!
 
@@ -878,8 +851,7 @@ Christophe ne pouvait comprendre qu'Olivier fût » Français. Son ami ressembla
 à çais qu'il avait vus! Avant de l'avoir rencontré, il
 n'était pas loin de prendre pour le type de l'esprit
 È français moderne Lucien Lévy-Cœur, qui n'en était que
-la caricature. Et voici que l'exemple d'Olivier lui mon-
-trait qu'il pouvait y avoir à Paris des esprits aussi
+la caricature. Et voici que l'exemple d'Olivier lui montrait qu'il pouvait y avoir à Paris des esprits aussi
 … libres, et plus libres de pensée qu'un Lucien Lévy-
 Ê. Cœur, qui pourtant restaient purs et stoïques, autant
 . que quiconque en Europe. Christophe voulait prouver
@@ -938,8 +910,7 @@ ou pour servir sa foi? Il y a des milliers de gens comme
 moi, et plus méritants que moi, plus pieux, plus
 humbles, qui, jusqu'au jour de leur mort, servent sans
 . défaillance un idéal, un Dieu, qui ne leur répond pas.
-Tu ne connais pas le menu peuple économe, métho-
-dique, laborieux, tranquille, avec au fond du cœur une
+Tu ne connais pas le menu peuple économe, méthodique, laborieux, tranquille, avec au fond du cœur une
 - flamme qui sommeiïlle, — ce peuple sacrifié, qu'a
 à défendu jadis contre l'égoïsme des grands mon « pays
 le vieux Vauban aux yeux bleus. Tu ne connais pas le:
@@ -964,20 +935,16 @@ de l'esprit français? T'es-tu jamais penché sur l'abime
 de Pascal? Comment est-il permis de calomnier
 peuple qui, depuis plus de dix siècles, agit et crée, un
 peuple qui a pétri le monde à son image par lart
-gothique, par le dix-septième siècle, et par la Révolu-
-tion, — un peuple qui, vingt fois, a passé par l'épreuve
+gothique, par le dix-septième siècle, et par la Révolution, — un peuple qui, vingt fois, a passé par l'épreuve
 du feu et s'y est retrempé, et qui, sans mourir jamais,:
 a ressuscité vingt fois!... — Vous êtes tous de même.
 Tous tes compatriotes qui viennent chez nous ne voient
 . que les parasites qui nous rongent, les aventuriers des
-lettres, de la politique et de la finance, avec leurs pour-
-voyeurs, leurs clients leurs catins; et ils jugent
+lettres, de la politique et de la finance, avec leurs pourvoyeurs, leurs clients leurs catins; et ils jugent
 la France d'après ces misérables qui la dévorent.Pas
 un de vous ne songe à la vraie France opprimée,
-aux réserves de vie qui sont dans la province fran-
-çaise, à tout ce peuple qui travaille, indifférent au
-vacarme de ses maîtres d'un jour... Oui, c'est trop natu-
-rel que vous n'en connaissiez rien, je ne vous en fais
+aux réserves de vie qui sont dans la province française, à tout ce peuple qui travaille, indifférent au
+vacarme de ses maîtres d'un jour... Oui, c'est trop naturel que vous n'en connaissiez rien, je ne vous en fais
 pas un reproche: comment le pourriez-vous? C'est à
 peine si la France est connue des Français. Les meilleurs d'entre nous sont bloqués, prisonniers sur notre
 - propre sol... On ne saura jamais tout ce que nous
@@ -1083,17 +1050,14 @@ entrait dans le silence et la nuit. Ses oreilles bourdon3
 Jean-Christophe à Paris
 naïent. Il ne voyait plus rien. Sur le premier moment, Se À
 avec son ardent amour de la vie, il fut choqué du
-contraste entre l'agitation du dehors et le calme inté-
-rieur. Dchors, mugissaient des torrents de passion, qui
+contraste entre l'agitation du dehors et le calme intérieur. Dchors, mugissaient des torrents de passion, qui
 bouleversaient la France, qui remuaient l'humanité. Et
 rien, au premier regard, n'en paraissait dans l'art.
 Christophe demandait à Olivier:
-— Vous avez été soulevés jusqu'aux étoiles et préci-
-pités jusqu'aux abîmes par votre Affaire Dreyfus. Où
+— Vous avez été soulevés jusqu'aux étoiles et précipités jusqu'aux abîmes par votre Affaire Dreyfus. Où
 est le poète, en qui a passé la tourmente? Il se livre,
 en ce moment, dans les âmes religieuses, le pius beau
-combat qu'il y ait eu, depuis des siècles, entre l'auto-
-rité de l'Église et les droits de la conscience. Où est le
+combat qu'il y ait eu, depuis des siècles, entre l'autorité de l'Église et les droits de la conscience. Où est le
 poète, en qui se reflète cette angoisse sacrée? Le;
 peuple des ouvriers se prépare à la guerre, des nations
 meurent, des nations ressuscitent, les Arméniens sont
@@ -1202,8 +1166,7 @@ peu trop intellectuelle pour son goût, une belle fille du;
 - peuple, simple, saine, robuste, qui ne raisonne point
 . tant, mais qui aime.
 
-Le même odor bellezza montait de tout l'art fran-
-çais, comme une odeur de fraises et de framboises
+Le même odor bellezza montait de tout l'art français, comme une odeur de fraises et de framboises
 mûres monte des bois d'automne chauffés par le soleil.
 La musique était un de ces petits fraisiers, dissimulés
 dans l'herbe, mais dont l'haleine suffit à griser tout un
@@ -1213,8 +1176,7 @@ autrement touffus, aux baies plus éclatantes. Maïs voici
 - que le parfum délicat le faisait se retourner; avec l'aide
 d'Olivier, il découvrait au milieu des pierres, des
 ronces, des feuilles mortes, qui usurpaient le nom de
-musique, l'art raffiné et ingénu d'une poignée de musi-
-ciens. Parmi les champs maraîchers et les fumées
+musique, l'art raffiné et ingénu d'une poignée de musiciens. Parmi les champs maraîchers et les fumées
 d'usines de la démocratie, au cœur de la Plaine-SaintDenis, dans un petit bois sacré, des faunes insouciants
 dansaient. Christophe écoutait avec surprise leur chant
 de flûte, ironique et serein, qui ne ressemblait à rien de -
@@ -1259,8 +1221,7 @@ fourriers du monde. mas
 
 Jean-Christophe à Paris Rat MES
 Christophe admirait l'initiative de cette musique
-qui renaissait d'hier, et qui déjà marchaït à l'avantgarde de l'art. Quelle vaiïllance il y avait dans cette élé-
-gante et menue petite personne! Il devenait indulgent
+qui renaissait d'hier, et qui déjà marchaït à l'avantgarde de l'art. Quelle vaiïllance il y avait dans cette élégante et menue petite personne! Il devenait indulgent
 pour les sottises, qu'il avait naguère relevées en elle.
 Seuls, ceux qui ne font rien ne se trompent jamais.
 Mais l'erreur qui s'efforce vers la vérité vivante est
@@ -1275,8 +1236,7 @@ du respect pour ceux qui avaient été les artisans du relèvement de l'art nati
 .chicaner sur les étroitesses de leur esthétique, voire sur
 leur manque de génie. Ils avaient créé bien plus qu'une
 œuvre: un peuple musicien. Entre tous les grands
-ouvriers, qui avaient forgé la nouvelle musique fran-
-çaise, une figure lui était surtout chère: celle de César
+ouvriers, qui avaient forgé la nouvelle musique française, une figure lui était surtout chère: celle de César
 Franck, qui, mort avant de voir la victoire qu'il avait
 préparée, avait, comme le vieux Schütz, gardé intacts
 en lui, pendant les années les plus sombres de Part
@@ -1333,8 +1293,7 @@ frisson de vie nouvelle parcourait les vastes corps à
 engourdis du protestantisme et du judaïsme. Touss'ap_ pliquaient, avec une généreuse émulation, à créer la
 1 religion d'une humanité libre, qui ne sacrifiât rien, ni
 de ses puissances de raison, ni de ses puissances d'en-
-Cette exaltation religieuse n'était pas le privilège des religions; elle était l'âme du mouvement ré-
-volutionnaire. Elle prenait un caractère tragique.
+Cette exaltation religieuse n'était pas le privilège des religions; elle était l'âme du mouvement révolutionnaire. Elle prenait un caractère tragique.
 
 Christophe n'avait jusqu'alors que le bas socialisme,
 
@@ -1345,7 +1304,7 @@ Bonheur, ou, pour parler plus franc, du Plaisir universel ‘que Science, aux ma
 
 … disaient-ils, leur procurer. Contre cet optimisme nauD bona Christophe voyait maintenant se dresser la
 réaction mystique et forcenée de l'élite qui guidait au
-4 à combat les Syndicats ouvriers. C'était un appel à « la -:
+4 à combat les Syndicats ouvriers. C'était un appel à « la
 guerre, qui engendre le sublime à la guerre héroïque,
 3 « qui seule peut redonner au monde mourant un sens,
 un but, un idéal ». Ces grands Révolutionnaires, qui;
@@ -1359,12 +1318,9 @@ renouvelé. — Si l'on pouvait douter que l'armée, que
 7 - ces chefs lançaïent à l'assaut du vieux monde, comprit
 ce mysticisme guerrier, qui appliquait à l'action violente
 Kant et Nietzsche à la fois, ce n'en était pas moins un tee
-spectacle saisissant que cette aristocratie révolution-
+spectacle saisissant que cette aristocratie révolutionnaire, dont le pessimisme enivré, la fureur de vie
 
-naire, dont le pessimisme enivré, la fureur de vie
-
-héroïque, la foi exaltée dans la guerre et dans le sacri-
-fice, semblaient l'idéal militaire et religieux d'un Ordre
+héroïque, la foi exaltée dans la guerre et dans le sacrifice, semblaient l'idéal militaire et religieux d'un Ordre
 
 — Teutonique ou de Samouraï Japonais.
 
@@ -1373,9 +1329,7 @@ fice, semblaient l'idéal militaire et religieux d'un Ordre
 . çaise, dont les traits se conservaient immuables depuis
 
 …._ des siècles. Par les yeux d'Olivier, Christophe les:
-- retrouvait dans les tribuns et les proconsuls de la Con-
-
-vention, dans certains des penseurs, des hommes
+- retrouvait dans les tribuns et les proconsuls de la Convention, dans certains des penseurs, des hommes
 
 d'action, des réformateurs français de l'Ancien Régime.
 
@@ -1431,16 +1385,12 @@ hauteurs, l'air était si pur, si raréfié, que Christophe
 avait peine à respirer. On voyait des artistes, qui
 
 à prétendaient à la liberté absolue, illimitée, du rêve,
-— subjectivistes effrénés, méprisant, comme Flau-
-bert, « les brutes qui croient à la réalité des choses
-— des penseurs, dont la pensée ondoyante et mul-
-tiple, se calquant sur le flot sans fin des choses
+— subjectivistes effrénés, méprisant, comme Flaubert, « les brutes qui croient à la réalité des choses
+— des penseurs, dont la pensée ondoyante et multiple, se calquant sur le flot sans fin des choses
 mouvantes, allait « coulant et roulant sans cesse ne
 
 se fixant nulle part, nulle part ne rencontrant le sol
-résistant, le roc, et « ne peignait pas l'être, mais pei-
-gnait le passage comme disait Montaigne, « le pas-
-sage éternel, de jour en jour, de minute en minute
+résistant, le roc, et « ne peignait pas l'être, mais peignait le passage comme disait Montaigne, « le passage éternel, de jour en jour, de minute en minute
 des savants qui savaient le vide et le néant universel,
 dans lequel l'homme a fabriqué sa pensée, son Dieu,
 
@@ -1477,8 +1427,7 @@ ne Christophe, penché auprès d'eux, essayait de regarder
 
 … parce qu'il s'était dégagé de toute autre loi que celles
 
-3. de sa conscience, il sentait, avec un peu d'effroi, com-
-bien il l'était peu, auprès de ces Français affranchis
+3. de sa conscience, il sentait, avec un peu d'effroi, combien il l'était peu, auprès de ces Français affranchis
 
 5 même de toute loi absolue de l'esprit, de tout impératif
 
@@ -1496,9 +1445,7 @@ Jautoritarisme allemand; et il disait:
 
 4 — Votre joie est un leurre, le rêve d'un fumeur
 d'opium. Vous vous grisez de liberté, vous oubliez la!
-vie. La liberté absolue, c'est la folie pour l'esprit, l'anar-
-
-chie pour l'État. La liberté! Qui est libre, en ce monde? à
+vie. La liberté absolue, c'est la folie pour l'esprit, l'anarchie pour l'État. La liberté! Qui est libre, en ce monde? à
 Qui est libre dans votre République? — Les gredins.
 
 Vous, les meilleurs, vous êtes étouffés. Vous ne pouvez
@@ -1538,8 +1485,7 @@ s'efforce éternellement de parvenir au faîte; — ceux qui
 mènent la guerre sainte contre l'ignorance, la maladie,
 la misère; la fièvre d'inventions, le délire raisonné des
 Prométhées et des Icares modernes, qui conquièrent la
-lumière et frayent les routes de l'air; le combat gigan-
-tesque de la science contre la nature qu'elle dompte; —
+lumière et frayent les routes de l'air; le combat gigantesque de la science contre la nature qu'elle dompte; —
 plus bas, la petite troupe silencieuse, les hommes et les
 femmes de bonne volonté, les cœurs braves et humbles,
 qui, au prix de mille efforts, ont atteint à mi-côte, et ne
@@ -1562,8 +1508,7 @@ bonnes ou malfaisantes.
 — Le peuple? Il cultive son jardin. Il ne s'inquiète pas
 - de nous. Chaque groupe de l'élite essaie de l'accaparer.
 Il ne se soucie d'aucun. Naguère, il écoutait encore, au
-moins par distraction, le boniment des bateleurs poli-
-tiques. A présent, il ne se dérange plus. Ils sont quelques
+moins par distraction, le boniment des bateleurs politiques. A présent, il ne se dérange plus. Ils sont quelques
 millions qui n'usent même pas de leurs droits d'électeurs.::
 Que les partis se cassent la tête entre eux, le peuple
 ils ne viennent à fouler ses champs: auquel cas, il se de
@@ -1615,9 +1560,7 @@ et de la faire plus belle.
 
 à L'étrange peuple! Chacun le dit inconstant; et rien
 
-ne change, en lui. Les yeux avertis d'Olivier retrou-
-
-vaient dans la statuaire gothique tous les types des
+ne change, en lui. Les yeux avertis d'Olivier retrouvaient dans la statuaire gothique tous les types des
 
 provinces d'aujourd'hui; de même que dans les crayons
 
@@ -1635,15 +1578,11 @@ consciences d'aujourd'hui. L'esprit de Pascal était vivant,
 
 3 non seulement chez l'élite raisonneuse et religieuse,
 
-mais chez d'obscurs bourgeois, ou chez des syndica-
-
-listes révolutionnaires. L'art de Corneille et de Racine
+mais chez d'obscurs bourgeois, ou chez des syndicalistes révolutionnaires. L'art de Corneille et de Racine
 
 était vivant pour le peuple, plus encore que pour
 
-l'élite, car il était moins pénétré d'influences étran-
-
-gères; un petit employé de Paris se sentait plus près
+l'élite, car il était moins pénétré d'influences étrangères; un petit employé de Paris se sentait plus près
 d'une tragédie du temps du roi Louis XIV que d'un
 roman de Tolstoï ou d'an drame d'Ibsen. Les chants du
 moyen-âge, le vieux Tristan français, avaient plus de
@@ -1661,11 +1600,8 @@ et chaque jardin, chaque lopin était séparé des autres
 par des murs, des haies vives, des clôtures de toute
 sorte. Tout au plus s'il y avait, et là, quelques prés
 et quelques bois communaux, ou si les habitants d'un
--côté de la rivière se trouvaient forcément plus rappro-
-chés entre eux que de ceux de l'autre côté. Chacun s'en-
-fermait chez soi; et il semblait que cet individualisme à
-jaloux, au lieu de s'affaiblir après des siècles de voisi-
-nage, fût plus fort que jamais. Christophe pensait:;
+-côté de la rivière se trouvaient forcément plus rapprochés entre eux que de ceux de l'autre côté. Chacun s'enfermait chez soi; et il semblait que cet individualisme à
+jaloux, au lieu de s'affaiblir après des siècles de voisinage, fût plus fort que jamais. Christophe pensait:;
 — Comme ils sont seuls! #2
 
 Rien de plus caractéristique, en ce sens, que la
@@ -1857,9 +1793,7 @@ Christophe parvint à arracher de loin en loin quelques
 
 gré de justifier son pessimisme. Justement, on venait de
 
-. Jui offrir au Brésil une situation avantageuse, une entre-
-
-prise à diriger; mais il avait refusé, par crainte des
+. Jui offrir au Brésil une situation avantageuse, une entreprise à diriger; mais il avait refusé, par crainte des
 
 risques du climat pour la santé des siens.
 
@@ -1922,8 +1856,7 @@ tout: histoire, philosophie, poètes décadents; il était
 au courant de tout: théâtre, expositions, concerts; il « avait un culte attendrissant de l'art, de la littérature,
 54 de la pensée bourgeoise: elles le fascinaient. Il était
 4 imbibé de l'idéologie vague et brûlante qui faisait
-É. délirer les bourgeois des premiers temps de la Révolu-
-tion. Il croyait avec certitude à l'infaillibilité de la …
+É. délirer les bourgeois des premiers temps de la Révolution. Il croyait avec certitude à l'infaillibilité de la …
 Pavènement prochain du bonheur sur la terre, à la
 science omnipotente, à l'Humanité-Dieu, et à la France,
 fille aînée de l'Humanité. IL avait un anticlérica-
@@ -1988,8 +1921,7 @@ avoir je ne sais quel secret magique, un « Sésame,
 — D'un côté, habitaient deux dames, qui s'hypnoti-
 3 saient dans un deuil déjà ancien: madame Germain,
 —…. une femme de trente-cinq ans, qui avait perdu son mari
-…. et sa petite fille, et qui vivait en recluse, avec sa belle-
-mère, âgée et dévote. — De l'autre côté du palier, était
+…. et sa petite fille, et qui vivait en recluse, avec sa bellemère, âgée et dévote. — De l'autre côté du palier, était
 Nu. installé un personnage énigmatique, d'âge indécis,
 . entre cinquante et soixante ans, avec une fillette d'une
 4 dizaine d'années. Il était chauve, avait une belle barbe
@@ -2000,14 +1932,12 @@ monsieur Watelet. On le disait anarchiste, révolution-
 où Belge. En réalité, il était Français du Nord, et il
 Fe. n'était plus guère révolutionnaire; mais il vivait sur sa
 … réputation passée. Il avait été mêlé à la Commune de
-71, condamné à mort; il avait échappé, il ne savait lui-
-même comment; et pendant une dizaine d'années, il
+71, condamné à mort; il avait échappé, il ne savait luimême comment; et pendant une dizaine d'années, il
 4 avait vécu un peu partout en Europe. Il avait été le
 témoin de tant de vilenies pendant la tourmente pari- à
 4 … sienne, et après, et aussi dans lexil, et aussi depuis
 - son retour, parmi ses anciens compagnons ralliés au
-8 pouvoir, et aussi dans les rangs de tous les partisrévo-
-lutionnaires, qu'il s'était retiré d'eux, gardant pacifi-
+8 pouvoir, et aussi dans les rangs de tous les partisrévolutionnaires, qu'il s'était retiré d'eux, gardant pacifi-
 . quement ses convictions pour lui-même, sans tache, et;
 inutiles. Il lisait beaucoup, écrivait un peu des livres
 - doucement incendiaires, tenait — ce qu'on préten-:
@@ -2015,8 +1945,7 @@ inutiles. Il lisait beaucoup, écrivait un peu des livres
 
 Jean-Christophe à Paris Nes
 dans l'Inde, ou dans l'Extrême-Orient, s'occupait de la
-révolution universelle, et, en même temps, de recher-
-ches non moins universelles, mais d'aspect plus débonnaire: une langue universelle, une méthode nouvelle
+révolution universelle, et, en même temps, de recherches non moins universelles, mais d'aspect plus débonnaire: une langue universelle, une méthode nouvelle
 pour l'enseignement populaire de la musique. Il ne
 frayait avec personne dans la maison; il se contentait
 d'échanger avec ceux qu'il rencontrait des saluts
@@ -2025,8 +1954,7 @@ Christophe quelques mots de sa méthode musicale.
 C'était ce qui pouvait le moins intéresser Christophe:
 les signes de sa pensée ne lui importaient guère; en
 quelque langue que ce fût, il fût toujours parvenu à
-- l'exprimer. Mais l'autre n'en démordait point, et conti-
-nuait d'expliquer son système, avec un doux entêtement; du reste de sa vie, Christophe ne put rien
+- l'exprimer. Mais l'autre n'en démordait point, et continuait d'expliquer son système, avec un doux entêtement; du reste de sa vie, Christophe ne put rien
 savoir. Aussi ne s'arrêtait-il plus, quand il le croisaïit à
 dans l'escalier, que pour regarder la fillette, qui toujours l'accompagnait: une petite fille blonde, pâlotte,
 de sang pauvre, les yeux bleus, le profil d'un dessin:
@@ -2046,8 +1974,7 @@ la charité seul; il s'en cachait: il y trouvait une
 4 jouissance secrète. Il avait appris la médecine, afin
 de se rendre utile. Un jour qu'il était entré chez
 un ouvrier du quartier, il avait trouvé des malades,
-il s'était mis à les soigner; il avait quelques connaissances médicales, il avait entrepris de les com-
-pléter, d'étudier. Il ne pouvait voir un enfant souf_frir: cela lui déchirait le cœur. Mais aussi, quelle
+il s'était mis à les soigner; il avait quelques connaissances médicales, il avait entrepris de les compléter, d'étudier. Il ne pouvait voir un enfant souf_frir: cela lui déchirait le cœur. Mais aussi, quelle
 joie exquise, quand il était parvenu à arracher au
 mal un de ces pauvres petits êtres, quand un pâle
 sourire reparaissait, pour la première fois, sur le
@@ -2087,8 +2014,7 @@ voyait pas, il aimait trop. Hélas! cet incertain, cet
 de notre chair? Christophe essaya de lui faire faire
 connaissance avec les fillettes de l'ingénieur. Mais dela
 part de Elsberger comme de celle de Watelet, il se
-heurta à une fin de non-recevoir, polie, mais catégo-
-rique. Ces gens-là semblaient mettre leur point d'hon-
+heurta à une fin de non-recevoir, polie, mais catégorique. Ces gens-là semblaient mettre leur point d'hon-
 : neur à s'enterrer vivants, chacun dans une case à part.
 A la rigueur, ils eussent consenti, chacun, à aider
 l'autre; mais chacun avait peur qu'on ne crût quec'était
@@ -2161,8 +2087,7 @@ souffrances les pénétraient d'amour et de pitié. Les
 : beaux livres aussi, les bons livres, lus en commun,
 
 : Jean-Christophe à Paris
-étaient un bonheur. Mais il n'y en a guère dans la litté-
-rature d'aujourd'hui: les écrivains ne s'occupent pas
+étaient un bonheur. Mais il n'y en a guère dans la littérature d'aujourd'hui: les écrivains ne s'occupent pas
 de ceux qui ne peuvent leur apporter ni réputation, ni
 plaisir, ni argent, comme ces humbles lecteurs, qu'on
 ne voit jamais dans le monde, qui n'écrivent nulle part,
@@ -2192,19 +2117,13 @@ sa femme. Elle ne le lui reprochaït pourtant pas, elle en
 eût bien fait autant. — Et avec cela, ils formaient toujours de beaux projets d'économies, en vue d'un voyage
 en Italie, — qu'ils ne feraient jamais, ils le savaient eux-
 
-À mêmes; et ils étaient les premiers à rire de leur incapa-
+À mêmes; et ils étaient les premiers à rire de leur incapaeité à garder de l'argent. Arnaud se consolait. Sa chère
 
-eité à garder de l'argent. Arnaud se consolait. Sa chère
-
-- femme lui suffisait, et sa vie de travail et de joies inté-
-
-rieures. Est-ce que cela ne lui suffisait pas aussi, à elle?
+- femme lui suffisait, et sa vie de travail et de joies intérieures. Est-ce que cela ne lui suffisait pas aussi, à elle?
 
 — Elle disait: oui. Elle n'osait pas dire qu'il lui serait.
 
-doux que son mari eût quelque réputation, qui rejaillirait un peu sur elle, qui éclairerait sa vie, qui y appor-
-
-terait du bien-être: c'est beau, la joie intérieure; mais
+doux que son mari eût quelque réputation, qui rejaillirait un peu sur elle, qui éclairerait sa vie, qui y apporterait du bien-être: c'est beau, la joie intérieure; mais
 
 “4 un peu de lumière du dehors fait tant de bien, aussi, de
 temps en temps! Mais elle ne disait rien, d'abord
@@ -2212,9 +2131,7 @@ parce qu'elle était timide; et puis, parce qu'elle savait
 
 que même s'il voulait parvenir à la réputation, il ne
 
-. serait pas sûr de pouvoir: il était trop tard, main-
-
-tenant! Leur plus gros regret était de ne pas avoir
+. serait pas sûr de pouvoir: il était trop tard, maintenant! Leur plus gros regret était de ne pas avoir
 
 d'enfant. Ils se le cachaient mutuellement; et ils n'en
 
@@ -2262,19 +2179,16 @@ au contraire. Ils n'étaient pas aimés. Et sans doute, ils
 ne faisaient rien pour cela. Pourtant, ils eussent mérité
 d'être un peu mieux connus: ils étaient, l'un et l'autre,
 d'excellentes gens, et d'intelligence remarquable. Le
-mari, âgé d'une cinquantaine d'années, était assyrio-
-logue, fort connu par des fouilles célèbres dans l'Asie
+mari, âgé d'une cinquantaine d'années, était assyriologue, fort connu par des fouilles célèbres dans l'Asie
 centrale; esprit ouvert et curieux comme la plupart des
 esprits de sa race, il ne se limitait pas à ses études
-spéciales; il s'intéressait à une infinité de choses: beaux-
-arts, questions sociales, toutes les manifestations de
+spéciales; il s'intéressait à une infinité de choses: beauxarts, questions sociales, toutes les manifestations de
 la pensée contemporaine. Elles ne suffisaient pas à
 loccuper: car elles l'amusaient toutes, et aucune ne
 le passionnaiït. IL était très intelligent, trop intelligent,
 trop libre de tout lien, toujours prêt à détruire d'une
 main ce qu'il construisait de l'autre; car il construisait
-beaucoup: œuvres et théories; c'était un grand travail-
-leur; par habitude, par hygiène d'esprit, il continuait
+beaucoup: œuvres et théories; c'était un grand travailleur; par habitude, par hygiène d'esprit, il continuait
 : de creuser patiemment et assez profondément son
 sillon dans la science, sans croire à l'utilité de ce qu'il
 
@@ -2310,8 +2224,7 @@ attirer des amis. Pourtant, il avait la meilleure volonté;
 de faire du bien aux gens; il en faisait; mais on
 É. lui en savait peu de gré; ses obligés même ne lui
 
-pardonnaient pas, en secret, de s'être aperçus ridi-
-si cules, dans ses yeux. Il avait besoin de ne pas trop voir
+pardonnaient pas, en secret, de s'être aperçus ridisi cules, dans ses yeux. Il avait besoin de ne pas trop voir
 - les gens pour les aimer. Non qu'il fût misanthrope.:
 Il était trop peu sûr de soi pour ce rôle. Il était timide
 vis-à-vis de ce monde, qu'il raillait; au fond, il n'était
@@ -2420,10 +2333,8 @@ aigrelette, ou, pour changer, faisait gauchement vagir
 un harmonium poussif, au grand amusement — ou -
 agacement de Christophe — (cela dépendait des jours).
 ._ Tous ces gens-là vivaient côte à côte, dans la maison
-au jardin fermé, abrités des souflles du monde, her-
-métiquement clos même les uns aux autres. Seul,
-Christophe, avec son besoin d'expansion et son trop-
-plein de vie, les enveloppait tous, sans qu'ils le sussent,
+au jardin fermé, abrités des souflles du monde, hermétiquement clos même les uns aux autres. Seul,
+Christophe, avec son besoin d'expansion et son tropplein de vie, les enveloppait tous, sans qu'ils le sussent,
 de sa vaste sympathie, aveugle et clairvoyante. Il ne;
 les comprenait pas. Il n'avait pas les moyens de les à
 comprendre. Il lui manquait l'intelligence psychologique
@@ -2434,15 +2345,13 @@ lointaines, l'engourdissement de douleur de la femme;
 en deuil, le silence stoïque des pensées orgueilleuses
 du prêtre, du juif, de l'ingénieur, du révolutionnaire; la
 flamme pâle et douce de tendresse et de foi qui, sans À
-bruit, consumait les deux cœurs des Arnaud; l'aspira-
-tion naïve de l'homme du peuple vers la lumière; la
+bruit, consumait les deux cœurs des Arnaud; l'aspiration naïve de l'homme du peuple vers la lumière; la
 révolte refoulée et l'action inutile que l'officier étouffait
 en lui; et le calme résigné de la jeune fille, qui rêvait
 à l'ombre des lilas. Mais cette musique silencieuse des
 âmes, Christophe était le seul à la pénétrer; ils ne l'entendaient pas; chacun s'absorbait dans sa tristesse et …
 dans ses rêves.
-Tous travaillaient d'ailleurs, et le vieux savant scep-
-tique, et l'ingénieur pessimiste, et le prêtre, et l'anar- A
+Tous travaillaient d'ailleurs, et le vieux savant sceptique, et l'ingénieur pessimiste, et le prêtre, et l'anar- A
 chiste, et tous ces orgueilleux, ou ces découragés. Et, -
 sur le toit, le maçon chantait.
 
@@ -2467,9 +2376,9 @@ Quand ce fut à Æsope, et qu'on lui eut aussi demandé
 
 ;. ce qu'il sçavoit faire: — Rien, fit-il, car ceux-cy ont
 
-tout préoccupé; ils sçavent tout. »;
+tout préoccupé; ils sçavent tout.
 
-3 Pure attitude de réaction dédaigneuse contre « l'im-:
+Pure attitude de réaction dédaigneuse contre « l'im-:
 pudence, comme disait déjà Montaigne, de ceux qui
 
 font profession de savoir, et contre leur outrecuidance
@@ -2507,11 +2416,7 @@ l'action, pour la vie.
 
 Ils n'en avaient cure. Plus la France se démocratisait,
 
-plus sa pensée, son art, sa science semblaient s'aristo-
-
-cratiser. La science, abritée derrière ses langues spé-
-
-ciales, au fond de son sanctuaire, recouverte d'un triple
+plus sa pensée, son art, sa science semblaient s'aristocratiser. La science, abritée derrière ses langues spéciales, au fond de son sanctuaire, recouverte d'un triple
 voile, que les initiés seuls avaient le pouvoir d'écarter,
 
 était moins accessible qu'au temps de Buffon et des
@@ -2528,9 +2433,7 @@ parmi ceux qui donnaient le pas aux idées morales sur
 
 les idées esthétiques, régnait souvent un étrange esprit
 
-aristocratique. Ils paraïissaient plus occupés de con-
-
-server en eux la pureté de leur flamme intérieure que à
+aristocratique. Ils paraïissaient plus occupés de conserver en eux la pureté de leur flamme intérieure que à
 
 de la communiquer aux autres. On eût dit qu'ils ne ne
 
@@ -2538,18 +2441,12 @@ tenaient pas à faire vaincre leurs idées, mais seulement
 
 à les affirmer.:
 
-Il en était pourtant dans le nombre, qui se mé-
-
-laient d'art populaire. Entre les plus sincères, les uns
+Il en était pourtant dans le nombre, qui se mélaient d'art populaire. Entre les plus sincères, les uns
 jetaient dans leurs œuvres des idées anarchistes, destructives, des vérités à venir, lointaines, qui seraient
 
 peut-être bienfaisantes dans un siècle, ou dans vingt,
 
-mais qui, pour le moment, corrodaient l'âme, la brû-
-
-laient; les autres écrivaient des pièces amères, ou iro-
-
-niques, sans illusions, très tristes. Christophe en avait
+mais qui, pour le moment, corrodaient l'âme, la brûlaient; les autres écrivaient des pièces amères, ou ironiques, sans illusions, très tristes. Christophe en avait
 
 les jarrets coupés, pour deux jours, après les avoir
 
@@ -2597,20 +2494,19 @@ Christophe lui répondit par les paroles de Goethe:
 plus hautes que celles qui peuvent servir au bien du
 monde. Les autres, nous devons les garder en nous; -
 -semblables aux douces lueurs d'un soleil caché, elles
-répandront leur lumière sur toutes nos actions. »;
+répandront leur lumière sur toutes nos actions.
 Mais ces scrupules ne les touchaient guère. Ils ne se
 demandaient point si l'arc, qu'ils tenaient à la main, lan- à
 çait « l'idée ou la mort ou toutes les deux ensemble.
 Ils étaient trop intellectuels. Ils manquaient d'amour.
 Quand un Français a des idées, il veut les imposer aux
 autres. Quand il n'en a pas, il le veut tout de même. à
-.des autres, il se désintéresse d'agir. C'était la raï-
-son principale pour laquelle cette élite s'occupait
+.des autres, il se désintéresse d'agir. C'était la raïson principale pour laquelle cette élite s'occupait
 peu de politique, sauf pour geindre et se plaindre.
 Chacun s'enfermait dans sa foi, ou dans son manque
 Bien des essais avaient été tentés pour combattre cet:
 individualisme et tâcher de former des groupements
-entre ces hommes; mais la plupart de ces groupes -:
+entre ces hommes; mais la plupart de ces groupes
 avaient immédiatement versé dans des parlotes litté-;
 raires, ou des factions ridicules. Les meilleurs s'annihilaient mutuellement. Il y avait quelques hommes
 
@@ -2635,9 +2531,7 @@ aux autres. Nulle pénétration mutuelle. Il n'y avait una-
 où cette unanimité prenait un caractère épidémique, et,
 généralement, se trompait: car elle était maladive. Un
 . individualisme fou régnait dans tous les ordres de l'ac-
-…._ tivité française: aussi bien dans les travaux scienti-
-fiques que dans le commerce, où il empéchait les négo-
-ciants de s'unir, d'organiser des ententes patronales.
+…._ tivité française: aussi bien dans les travaux scientifiques que dans le commerce, où il empéchait les négociants de s'unir, d'organiser des ententes patronales.
 - Get individualisme n'était pas abondant et débordant,
 mais obstiné, replié. Être seul, ne devoir rien aux
 autres, ne pas se mêler aux autres, de peur de sentir
@@ -2650,8 +2544,7 @@ des revues « à côté des théâtres « à côté des
 ; - groupes « à côté revues, théâtres, groupes n'avaient
 - le plus souvent d'autre raison d'être que le désir de
 être pas avec les autres, l'incapacité de s'unir avec les
-autres dans une action ou une pensée commune, la dé-
-fiance des autres, quand ce n'était pas l'hostilité des:
+autres dans une action ou une pensée commune, la défiance des autres, quand ce n'était pas l'hostilité des:
 partis, qui armait les uns contre les autres les hommes
 les plus dignes de s'entendre.
 Même lorsque des esprits qui s'estimaient se trou
@@ -2668,8 +2561,7 @@ et soi-même; il avait fondé et il rédigeait presque à lui
 seul une revue pour les défendre; il s'était juré d'imposer à l'Europe et à la France elle-même l'idée d'une.
 France pure, héroïque et libre; il croyait fermement
 que le monde reconnaîtrait un jour qu'il écrivait une des
-pagés les plus intrépides de l'histoire de la pensée fran-
-çaise; — et il ne se trompait pas. Christophe eût désiré
+pagés les plus intrépides de l'histoire de la pensée française; — et il ne se trompait pas. Christophe eût désiré
 le connaître davantage et se lier avec lui. Mais ilny
 avait pas moyen. Quoiqu'Olivier eût souvent affaire
 avec lui, ils se voyaient très peu et seulement pour
@@ -2684,9 +2576,7 @@ avec lui, ils se voyaient très peu et seulement pour
 … à discerner, même à leurs propres yeux. D'abord, un
 excès de critique, qui voit trop nettement les différences
 
-irréductibles entre les esprits, et un excès d'intellectua-
-
-lisme qui attache trop d'importance à ces différences;
+irréductibles entre les esprits, et un excès d'intellectualisme qui attache trop d'importance à ces différences;
 
 : un manque de cette puissante et naïve sympathie, qui
 
@@ -2706,9 +2596,7 @@ qu'on n'est pas de la même race, qu'on est de races dif-
 —…. férentes, établies à des âges différents sur le sol de
 France, et qui, tout en étant alliées, ont peu de pensées
 
-3 … communes, et ne doivent pas trop y songer, dans l'inté-
-
-rêt commun. Et, par dessus tout, la passion enivrante
+3 … communes, et ne doivent pas trop y songer, dans l'intérêt commun. Et, par dessus tout, la passion enivrante
 
 —…._ et dangereuse de la liberté, qui fait que, quand on y a
 
@@ -2737,9 +2625,7 @@ Jean-Christophe à Paris SRE
 É découragé, il faut qu'il soit bien fort. Rude école pour À
 
 la volonté libre! Mais ceux qui ont passé par là, en
-gardent, toute leur vie, le dur pli, la manie de l'indépen-
-
-dance, et l'impossibilité de se fondre jamais avec âme
+gardent, toute leur vie, le dur pli, la manie de l'indépendance, et l'impossibilité de se fondre jamais avec âme
 
 5 des autres.
 
@@ -2750,9 +2636,7 @@ toute la bonté, la fierté, l'affection, aboutissaïent à se
 
 retirer de la vie! Mille raisons, bonnes ou mauvaises,
 
-les empêchaient d'agir. Chez les uns, c'était l'obéis-
-
-sance, la timidité, la force de l'habitude. Chez les
+les empêchaient d'agir. Chez les uns, c'était l'obéissance, la timidité, la force de l'habitude. Chez les
 
 - autres, le respect humain, la peur du ridicule, la peur
 
@@ -2776,9 +2660,7 @@ sens, —etparcequ'ils avaient peur qu'on ne les assimilât
 
 dégoût, la fatigue, la peur de l'action, de la souffrance,
 
-de la laïdeur, de la bêtise, du risque, des responsabi-
-
-lités, le terrible: « À quoi bon? » qui anéantit la bonne
+de la laïdeur, de la bêtise, du risque, des responsabilités, le terrible: « À quoi bon? » qui anéantit la bonne
 
 volonté de tant de Français d'aujourd'hui. Ils sont trop
 
@@ -2828,10 +2710,8 @@ pulvériser ses ennemis, de lutter et de vaincre..
 — Tu le peux, dit Olivier, tu es fort, tu es fait pour
 vaincre, par tes défauts — (pardonne — autant que
 par tes qualités. Tu as la chance de n'être pas d'une
-race, d'un peuple trop aristocratique. L'action ne te dé-
-goûte pas. Tu serais même capable, au besoin, d'être
-un homme politique. — Et puis, tu as le bonheur inap-
-préciable d'écrire en musique. On ne te comprend pas,
+race, d'un peuple trop aristocratique. L'action ne te dégoûte pas. Tu serais même capable, au besoin, d'être
+un homme politique. — Et puis, tu as le bonheur inappréciable d'écrire en musique. On ne te comprend pas,
 tu peux tout dire. Si les gens savaient le mépris pour
 nient, et cet hymne perpétuel en l'honneur de ce qu'ils
 s'évertuent à tuer, ils ne te pardonneraient pas, et tu
@@ -2858,8 +2738,7 @@ intelligence, du sens le plus humain, et vous ne faites
 
 rien de tout cela, vous vous laissez dominer, outrager,
 
-fouler aux pieds par une poignée de drôles. Soyez vous-
-mêmes, que diable! N'attendez pas que le ciel vous
+fouler aux pieds par une poignée de drôles. Soyez vousmêmes, que diable! N'attendez pas que le ciel vous
 
 : aide, ou un Napoléon! Levez-vous, unissez-vous. À
 
@@ -2918,8 +2797,7 @@ semble-t-il pas que ce jour est venu?
 — On l'a dit tant de fois depuis des siècles! Et tou-;
 jours notre histoire a démenti ces craintes. Nous avons
 traversé de bien autres épreuves, depuis le temps de la;
-Pucelle, où, dans Paris désert, des bandes de loups rô-
-daiïent. Tout le débordement d'immoralité, la ruée au;
+Pucelle, où, dans Paris désert, des bandes de loups rôdaiïent. Tout le débordement d'immoralité, la ruée au;
 plaisir, la veulerie, l'anarchie de l'heure présente ne
 m'effraie point. Patience! Qui veut durer, doit endurer. - à
 Je sais très bien qu'il y aura ensuite une réaction morale, — qui, d'ailleurs, ne vaudra pas beaucoup mieux, et
@@ -3060,12 +2938,9 @@ Français, nés dans des maisons en deuil, à l'ombre de
 la défaite, nourris de ces pensées découragées, élevés
 pour une revanche sanglante, fatale, et peut-être inutile
 car, si petits qu'ils fussent, la première chose dont ils
-avaient pris conscience, c'était qu'il n'y a pas de jus-
-tice, il n'y a pas de justice en ce monde: la force
+avaient pris conscience, c'était qu'il n'y a pas de justice, il n'y a pas de justice en ce monde: la force
 écrase le droit! De pareilles découvertes laissent l'âme
-d'un enfant dégradée ou grandie pour jamais. Beau108
-
-coup s'abandonnèrent; ils se dirent: « Puisque c'est
+d'un enfant dégradée ou grandie pour jamais. Beaucoup s'abandonnèrent; ils se dirent: « Puisque c'est
 - ainsi, pourquoi lutter? pourquoi agir? Rien w'estrien.
 N'y pensons pas. Jouissons. » — Mais ceux qui ont
 résisté sont à l'épreuve du feu; nulle désillusion ne
@@ -3219,9 +3094,7 @@ Tous me disaient qu'il fallait me mettre en règle avec la:
 culture européenne, dont je m'étais un peu éloignée depuis
 
 le dix-septième siècle, — (mais était-ce bien vrai?),— quele
-bouleversement, produit chez nous par l'expulsion des sol-
-
-dats étrangers, nous avait distraits de l'autre souci, non
+bouleversement, produit chez nous par l'expulsion des soldats étrangers, nous avait distraits de l'autre souci, non
 moins important, de faire venir chez nous les grandsesprits
 
 « Toutes ces raisons — et d'autres — me persuadaient et
@@ -3245,8 +3118,7 @@ eux souvent, sinon toujours, plusieurs de ces idées, que
 vous écoutez, les oreilles dressées, comme des nouveautés:
 inouïes, quand elles vous sont trompettées dans la langue
 
-« Il y a quelques années, on faisait grand bruit de la phi-
-losophie positiviste; elle était portée en triomphe par les
+« Il y a quelques années, on faisait grand bruit de la philosophie positiviste; elle était portée en triomphe par les
 places et les Universités, comme le just out de la pensée.
 
 Mais s'il y avait quelqu'un qui eût lu, par hasard, tout
@@ -3255,7 +3127,7 @@ Telesio et tout Galilée, il aurait répondre: « Mais qu'est-;
 ce que vous venez nous conter? Tout ce qu'il y a de bon à
 
 dans ce pasticcio, nous le connaissons depuis un moment,
-Grand merci du souvenir, mais laissez-nous la paix! »:
+Grand merci du souvenir, mais laissez-nous la paix!
 . « Prenons un autre exemple: le prétendu idéalisme alle-
 : mand (la guerre de Trente ans de la philosophie). Il »'y a
 rien à dire au sujet de Kant, de Fichte, de Schelling, et de
@@ -3268,8 +3140,7 @@ et Giambattista Vico, et de ne pas continuer à faire du
 ; premier je ne sais quel labarum maçonnique, et du second
 un timide précurseur de la sociologie? Et sans doute que
 4 les représentants, chez nous, de Hegel et C*, font tout le
-3 possible pour qu'on lise et comprenne aussi les vieux idéa-
-listes du pays; mais où sont, excepté en eux, les traces de:
+3 possible pour qu'on lise et comprenne aussi les vieux idéalistes du pays; mais où sont, excepté en eux, les traces de:
 cette lecture et de cette étude?
 « Passons à un autre sujet, qui a fait quelque bruit, dans
 ces temps derniers. Le modernisme italien est après
@@ -3279,11 +3150,9 @@ sonne, nous ne connaissons pas en Italie un Loisy ou un
 becquée de ces étrangers? Et pourquoi n'ont-ils pas étudié
 et fait connaître ces catholiques italiens, qui, bien avant les
 Anglais et les Français, se sont trouvés dans le mauvais:
-- pas que l'on sait? Des cas de conscience absolument sem-
-blables à ceux des néo-catholiques d'aujourd'hui se rencon-
+- pas que l'on sait? Des cas de conscience absolument semblables à ceux des néo-catholiques d'aujourd'hui se rencon-
 : trent chez les deux plus grands esprits italiens du dix__ septième siècle: Galilée et fra Paolo Sarpi. Tous deux sont
-catholiques; mais, chez le premier, c'est le cas de l'oppo-
-sition entre la vérité scientifique et le texte biblique; chez
+catholiques; mais, chez le premier, c'est le cas de l'opposition entre la vérité scientifique et le texte biblique; chez
 l'autre, entre le pouvoir civil et le pouvoir religieux. Tous
 
 deux cherchent à se sauver et à sauver l'Église avec des.
@@ -3369,8 +3238,7 @@ de fra Paolo Sarpi, où l'on trouverait bien la moitié de la
 philosophie de Locke, sont restées inconnues jusqu'à pré-
 5 sent... C'est ainsi. »
 Assez! L'Italie ne parle pius. C'est moi qui parle; et je
-répète que je ne veux engager personne à faire le nationa-
-liste, enragé de sa culture. J'ai un plaisir extrême à ce
+répète que je ne veux engager personne à faire le nationaliste, enragé de sa culture. J'ai un plaisir extrême à ce
 qu'on lise et à ce qu'on étudie les grands étrangers; mais
 je voudrais qu'on lùt et qu'on étudiàt un peu plus les
 
@@ -3408,9 +3276,7 @@ Le 20 ventôse, an (10 mars 1794), le Comité de Salut
 
 « 1° Que le Théâtre Français serait uniquement consücré
 
-aux représentations données de par et pour le peuple, à cer-
-
-taines époques de chaque mois;
+aux représentations données de par et pour le peuple, à certaines époques de chaque mois;
 
 « 2 Que l'édifice serait orné, en dehors, de l'inscription A
 suivante: TRÉATRE PEUPLE, et que les sociétés d'artistes
@@ -3430,14 +3296,12 @@ Public appelait les poètes « à célébrer les principaux
 annales d'un grand peuple conquérant sa liberté, attaquée
 par tous les tyrans de l'Europe. »
 
-La place de la Révolution (place de la Concorde), con-
-vertie en cirque, devait servir aux spectacles populaires et
+La place de la Révolution (place de la Concorde), convertie en cirque, devait servir aux spectacles populaires et
 
 Tous ces projets d'art républicain s'écroulèrent, le
 9 thermidor, avec les chefs de la République.
 Lorsqu'il y a une dizaine d'années, un certain nombre
-de jeunes écrivains, groupés autour de la Revue d'Art Dra-
-matique, prirent l'initiative d'un mouvement pour fonder
+de jeunes écrivains, groupés autour de la Revue d'Art Dramatique, prirent l'initiative d'un mouvement pour fonder
 - un Théâtre du Peuple à Paris, (1) ils ne firent donc que;
 (1) J'ai raconté leurs tentatives et résumé leurs aspirations dans à
 un volume, intitulé le Théâtre du Peuple, qui parut, en novembre
@@ -3501,7 +3365,7 @@ intérêts de l'humanité: la domination et la liberté, — ms:
 maintenant, l'art aussi, sur le théâtre où il évoque des se
 ne ombres, peut tenter un vol plus hardi; il le peut, il le doit
 même, s'il ne veut s'effacer, couvert de honte, devant le
-théâtre de la vie. »: SEULE
+théâtre de la vie. SEULE
 
 ._ Notre catalogue analytique sommaire............
 Roman Rorrann. — Jean-Christophe à
@@ -3586,8 +3450,7 @@ elle sépare le gros du peuple, qui s'endort, ou qui tombe,
 
 de Vélite qui continue sa marche. L'élite le saït, et elle
 
-“en souffre; même chez les plus vaillants, il y a une mé-
-lancolie secrète, le sentiment de leur impuissance et de
+“en souffre; même chez les plus vaillants, il y a une mélancolie secrète, le sentiment de leur impuissance et de
 
 ; eur isolement. Et le pire, — séparés du corps de leur
 
@@ -3602,9 +3465,7 @@ ne songent pas que la virile maxime veut dire:
 O hommes, aidez-vous! » À tous il manque la con-.
 
 fiance, l'expansion de sympathie et le besoin d'action
-“commune, que donne la victoire d'une race, le senti-
-
-ment de la plénitude, du passage au zénith.
+“commune, que donne la victoire d'une race, le sentiment de la plénitude, du passage au zénith.
 
 Christophe et Olivier en savaient quelque chose. Dans
 
@@ -3649,11 +3510,7 @@ cette parole du haut de la chaire déforme presque fata-
 4 lement la pensée; si l'on n'y prend très garde, elle
 
 risque d'entraîner peu à peu à un certain cabotinisme
-dans les gestes, La diction, l'attitude, la façon de pré-
-
-senter les idées, — dans la mentalité même. La confé-
-
-rence est un genre qui oscille entre deux écueils: la
+dans les gestes, La diction, l'attitude, la façon de présenter les idées, — dans la mentalité même. La conférence est un genre qui oscille entre deux écueils: la
 
 ; comédie ennuyeuse et le pédantisme mondaiïin. Cette
 forme de monologue à haute voix, en présence de
@@ -3676,9 +3533,7 @@ retenir sur le penchant de ses songeries, il se mit à
 
 écrire. Il avait la naïve croyance qu'ayant une valeur
 
-artistique, cette valeur ne pouvait manquer d'êtrerecon-
-
-nue, sans qu'il fit rien pour cela.
+artistique, cette valeur ne pouvait manquer d'êtrereconnue, sans qu'il fit rien pour cela.
 
 À Il fut bien détrompé. Impossible de rien publier. Il
 
@@ -3727,10 +3582,8 @@ manuscrits par la poste, ou de les déposer au bureau
 du théâtre ou de la revue: ils y restaient des mois, des
 années, sans qu'on les lût. Le hasard fit pourtant qu'un
 jour, il rencontra un de ses anciens camarades de lycée,
-un aimable paresseux, qui lui avait gardé une recon-
-naissance admirative, pour la complaisance et la facilité avec laquelle Olivier lui faisait ses devoirs d'école;
-ilne connaissait rien à la littérature; mais il connais-
-sait les littérateurs, ce qui valait beaucoup mieux: et
+un aimable paresseux, qui lui avait gardé une reconnaissance admirative, pour la complaisance et la facilité avec laquelle Olivier lui faisait ses devoirs d'école;
+ilne connaissait rien à la littérature; mais il connaissait les littérateurs, ce qui valait beaucoup mieux: et
 même, riche et mondain, il se laissait, par snobisme, à
 
 . discrètement, exploiter par eux. Il dit un mot pour
@@ -3790,9 +3643,7 @@ et il n'avait d'autre pensée que de revenir pour tenter
 
 poste était passée, quand le silence de sa chambre
 
-N. n'était plus troublé que par les pas brutaux de ses voi-
-
-sins au-dessus de sa tête, il se sentait étouffer dans
+N. n'était plus troublé que par les pas brutaux de ses voisins au-dessus de sa tête, il se sentait étouffer dans
 
 cette indifférence. Un mot de réponse, un mot! Se CORTE
 
@@ -3824,8 +3675,7 @@ gens qui le pensaient. Mais il ne savait pas que ces
 braves gens ne le lisaient pas, et qu'ils n'avaient aucune;
 part à l'opinion littéraire, ni à rien, ni à rien. S'il s'en
 trouvait deux ou trois, de ci, de là, sous les yeux des-,
-quels ses lignes étaient parvenués, et qui sympathi-
-saient avec lui, jamais ils ne le luidiraient;ils restaient
+quels ses lignes étaient parvenués, et qui sympathisaient avec lui, jamais ils ne le luidiraient;ils restaient
 guindés dans leur silence, aplatis. De même qu'ils ne
 
 votaient pas, ils s'abstenaient de prendre parti en
@@ -3869,7 +3719,7 @@ n'admettre la supériorité de talent que quand elle se
 
 : Dans un tel état de choses, trois partis étaient
 
-possibles: briser les résistances par la force; se plier à:
+possibles: briser les résistances par la force; se plier
 
 è des compromis humiliants; ou se résigner à n'écrireque
 
@@ -3886,8 +3736,7 @@ Christophe tomba comme un orage, au milieu de
 cette vie crépusculaire. Il était hors de lui de voir la
 vilenie des gens et la patience d'Olivier:
 — Mais tu n'as donc pas de sang? disait-il. Comment
-peux-tu supporter une telle vie? Toi qui te sais supé-
-rieur à ce bétail, tu te laisses écraser par lui, sans » résistance!;
+peux-tu supporter une telle vie? Toi qui te sais supérieur à ce bétail, tu te laisses écraser par lui, sans » résistance!;
 
 — Que veux-tu? disait Olivier, je ne sais pas me
 défendre, j'ai le dégoût de lutter avec des gens que je
@@ -3930,8 +3779,7 @@ d'Achille sanglant. Mais le dieu de la Bible est un vieux » Juif, maniaque et m
 - son temps à gronder, menacer, hurler comme un loup
 
 . enragé, délirer tout seul, enfermé dans son nuage. Je ne à
-… le comprends pas, jene l'aime pas, ses imprécations éter-
-nelles me cassent la tête, et sa férocité me fait horreur:
+… le comprends pas, jene l'aime pas, ses imprécations éternelles me cassent la tête, et sa férocité me fait horreur:
 +44 Sentence contre l'Égypte.
 Sentence contre le désert de la mer. AE:
 Sentence contre la vallée de la vision.
@@ -3962,8 +3810,7 @@ d'avoir une raison après, pour les faire souffrir:
 convertisse et ne recouvre la santé. — Jusques à quand,
 Seigneur? — Jusqu'à ce qu'il n'y ait plus d'habitants
 dans les maisons, et que la terre soit plongée dans la
-Je ne suis pas assez sot pour méconnaître la puis-
-sance du langage. Mais je ne puis séparer la pensée de
+Je ne suis pas assez sot pour méconnaître la puissance du langage. Mais je ne puis séparer la pensée de
 la forme; et si j'admire parfois ce dieu juif, c'est à la
 façon dont j'admire un tigre, ou un... (Je cherche en
 vain un monstre de Shakespeare à nommer; je n'en
@@ -3985,8 +3832,7 @@ moi, dit Christophe, car je m'en enivre. C'est la pure
 — Si seulement tu l'avais! dit Christophe.
 — Tu dis vrai, je n'en ai même pas la force. Que
 veux-tu? Je ne puis pas ne pas voir les raisons de mes
-ennemis. Je me répète le mot de Chardin: « De la dou-
-ceur! De la douceur! »
+ennemis. Je me répète le mot de Chardin: « De la douceur! De la douceur! »
 — Diable de mouton! dit Christophe. Mais tu auras
 … beau faire, je te ferai sauter le fossé qui t'arrête, je te
 En effet, il prit en main la cause d'Olivier, et se mit
@@ -4011,9 +3857,7 @@ faut savoir déraisonner! Olivier ne s'en faisait pas faute.
 garçon, intransigeant et maladroit pour lui-même, était
 capable de politique, et presque de rouerie, pour le
 
-succès de son ami; il dépensait une énergie et une ingé-
-
-niosité admirables à lui gagner des partisans; il réus- …
+succès de son ami; il dépensait une énergie et une ingéniosité admirables à lui gagner des partisans; il réus- …
 
 sissait à intéresser à lui des critiques musicaux et des
 
@@ -4036,13 +3880,11 @@ Parmi toutes ces difficultés, le seul qui leur vint en
 aide était un Juif d'une quarantaine d'années, nommé
 Taddée Mooch. Il tenait un magasin de photographies
 d'art; mais bien qu'il s'intéressât à son métier, et qu'il
-y apportât beaucoup de goût et d'habileté, il s'inté-
-ressait à tant de choses, à côté, qu'il en négligeait
+y apportât beaucoup de goût et d'habileté, il s'intéressait à tant de choses, à côté, qu'il en négligeait
 son commerce. Quand il s'en occupait, c'était pour
 rechercher des perfectionnements techniques, pour
 s'engouer de procédés de reproduction nouveaux, qui,
-malgré leur ingéniosité, réussissaient rarement, et coû-
-taient beaucoup d'argent. Il lisait énormément, et se
+malgré leur ingéniosité, réussissaient rarement, et coûtaient beaucoup d'argent. Il lisait énormément, et se
 tenait à l'affat de toutes les idées neuves, en philosophie, en art, en science, en politique; il avait un flair
 surprenant pour découvrir les forces indépendantes et
 originales: on eût dit qu'il en subissait l'aimant caché.
@@ -4058,9 +3900,7 @@ Christophe s'y refusa d'abord; il était las de ses
 expériences avec la race d'Israël. Olivier, en riant,
 insista pour qu'if le vit, disant qu'il ne connaissait pas
 
-mieux les Juifs qu'il ne connaissait la France. Chris-
-
-tophe consentit donc; mais la première fois qu'il
+mieux les Juifs qu'il ne connaissait la France. Christophe consentit donc; mais la première fois qu'il
 
 Jean-Christophe à Paris
 vit Taddée Mooch, il fit la grimace. Mooch était,
@@ -4080,8 +3920,7 @@ seulement. Mais un empressement à se rendre utile; et,
 
 avant même qu'on lui eût rien demandé, un service
 accompli. Il revenait souvent, trop souvent; et presque.
-toujours, il apportait quelque bonne nouvelle: un tra-
-vail à faire pour l'un des deux amis, un article d'art ou
+toujours, il apportait quelque bonne nouvelle: un travail à faire pour l'un des deux amis, un article d'art ou
 des cours pour Olivier, des leçons de musique pour
 Christophe. Il ne restait jamais longtemps. IL mettait
 une certaine affectation à ne pas s'imposer. Peut-être à
@@ -4118,15 +3957,13 @@ lui. Il en était tout malheureux, et il tâchait d'effacer la
 . blessure causée par son ami.,
 Mooch sourit, avec une ironie triste, et il répondit
 C'est un bien plus grand malheur d'être un.
-Christophe ne vit qu'une boutade. Mais le pessi-
-misme de cette parole était plus profond qu'il ne ginait; et Olivier, avec la finesse de sa sensibilité, en Me » avait l'intuition. Sous le Mooch qu'on connaissait, il en
+Christophe ne vit qu'une boutade. Mais le pessimisme de cette parole était plus profond qu'il ne ginait; et Olivier, avec la finesse de sa sensibilité, en Me » avait l'intuition. Sous le Mooch qu'on connaissait, il en
 4 était un autre, tout différent, et même en beaucoup de
 à choses entièrement opposé. Sa nature apparente était
 
 Jean-Christophe à Paris À
 le produit d'un long combat contre sa véritable nature.
-Cet homme, qui semblait simple, avait un esprit con-
-tourné, qui, lorsqu'il s'abandonnaït, avait toujours
+Cet homme, qui semblait simple, avait un esprit contourné, qui, lorsqu'il s'abandonnaït, avait toujours
 besoin de compliquer les choses les plus simples et
 .. de donner à ses sentiments les plus vrais un caractère d'ironie maniérée. Cet homme, qui semblait
 modeste et un peu trop humble parfois, avait un fond
@@ -4148,8 +3985,7 @@ gémissant d'effroi. Il cherchait partout des raisons
 d'agir, auxquelles s'accrocher, comme à des bouées
 dans l'eau.
 On paye cher le privilège d'être d'une trop vieille race.
-On porte un faix écrasant de passé, d'épreuves, d'expé-
-riences lassées, d'intelligence et d'affection déçues, —
+On porte un faix écrasant de passé, d'épreuves, d'expériences lassées, d'intelligence et d'affection déçues, —
 toute une cuvée de vie séculaire, au fond de laquelle
 s'est déposé un âcre résidu d'ironie et d'ennui.. L'Ennui,
 l'immense ennui sémite, sans rapports avec notre ennui
@@ -4162,8 +3998,7 @@ même de la joie et de la vie, qui est atteinte, chez cer_ tains Juifs, par un p
 d'intérêt à rien: ni ambition, ni amour, ni plaisir.
 Une seule chose persiste, non pas intacte, mais maladivement hyperesthésiée, en ces déracinés d'Orient,
 épuisés par la dépense d'énergie qu'ils ont faire À
-depuis des siècles, et aspirant à l'ataraxie, sans pou-
-voir y atteindre: la pensée, l'analyse sans fin, qui
+depuis des siècles, et aspirant à l'ataraxie, sans pouvoir y atteindre: la pensée, l'analyse sans fin, qui
 empêche d'avance la possibilité de toute jouissance et
 qui décourage de toute action. Les plus énergiques
 se donnent des rôles, les jouent, plus qu'ils n'agissent
@@ -4238,8 +4073,7 @@ vécu, Weil avait marché à ses côtés, dans l'auréole
 de foi lumineuse et. stoïque, — foi dans la science, NAS
 dans le pouvoir de l'esprit, dans le bonheur futur, —
 - que rayonnait autour d'elle cette âme messianique. AU
-Après qu'elle l'eut laissé seul, Weil, faible et iro-
-nique, s'était laissé couler des hauteurs de cet idéa-;
+Après qu'elle l'eut laissé seul, Weil, faible et ironique, s'était laissé couler des hauteurs de cet idéa-;
 lisme dans les sables de l'Ecclésiaste, que porte en elle
 . toute intelligence juive, et qui sont toujours prêts à la
 boire. Mais jamais il n'avait oublié les heures passées
@@ -4247,16 +4081,13 @@ boire. Mais jamais il n'avait oublié les heures passées
 à à personne, même pas à sa femme, qu'il aimait: c'était
 
 Jean-Christophe à Paris
-; chose sacrée. Et ce vieil homme, qu'on croyait prosaïque et de cœur sec, arrivé au terme de sa vie, se ré-
-pétait en secret la pensée amère et tendre d'un brahmane de l'inde antique:
+; chose sacrée. Et ce vieil homme, qu'on croyait prosaïque et de cœur sec, arrivé au terme de sa vie, se répétait en secret la pensée amère et tendre d'un brahmane de l'inde antique:
 
 . « L'arbre empoisonné du monde produit deux fruits
 plus doux que l'eau de la fontaine de la vie: l'un est la
 poésie, et l'autre est l'amitié. »
 
-Il s'intéressa dès lors à Christophe et à Olivier. Dis-
-
-crètement, connaissant leur fierté, il se fit remettre par
+Il s'intéressa dès lors à Christophe et à Olivier. Discrètement, connaissant leur fierté, il se fit remettre par
 Mooch le volume de poésies d'Olivier, qui venait d'être
 publié; et, sans que les deux amis fissent la moindre
 
@@ -4338,7 +4169,7 @@ ni — Cela est vrai, dit Christophe; ils m'ont encouragé,
 à soutenu, adressé les paroles qui raniment celui qui
 
 lutte, en lui montrant qu'il est compris. Sans doute, de
-ï; ces amis-là, bien peu me sont restés fidèles; leur amitié
+ces amis-là, bien peu me sont restés fidèles; leur amitié
 4 a n'a,été qu'un feu de paille, vite éteint. N'importe! C'est
 beaucoup que cette lueur passagère, dans la nuit, Tu
 as raison: ne soyons pas ingrats.
@@ -4354,10 +4185,8 @@ la nation une saignée plus meurtrière encore que
 l'expulsion des protestants, au dix-septième siècle,
 Sans doute, ils tiennent, en ce moment, une place sans
 proportion avec leur valeur réelle. Ils abusent de l'anar- He)
-chie politique et morale d'aujourd'hui, qu'ils ne con-
-tribuent pas peu à accroître, par goût naturel, et parce
-qu'ils s'y trouvent bien. Les meilleurs, comme cet excel-
-lent Mooch, ont le tort d'identifier très sincèrement les Fine
+chie politique et morale d'aujourd'hui, qu'ils ne contribuent pas peu à accroître, par goût naturel, et parce
+qu'ils s'y trouvent bien. Les meilleurs, comme cet excellent Mooch, ont le tort d'identifier très sincèrement les Fine
 destinées de la France avec leurs rêves juifs, qui nous de
 sont souvent plus dangereux qu'utiles. Mais on ne peut
 pas leur en vouloir de ce qu'ils veulent faire la France
@@ -4440,16 +4269,13 @@ Il reprochait à Olivier ses sophismes, son indulgence
 
 il savait bien quelle absence d'illusions recouvrait son
 
-. indulgence; il savait bien que Christophe croyait à beau-
-
-coup plus de choses que lui, et qu'il les acceptait
+. indulgence; il savait bien que Christophe croyait à beaucoup plus de choses que lui, et qu'il les acceptait
 
 mieux! Mais Christophe, sans regarder ni à droite ni à
 gauche, fonçait droit devant lui. Il en avait surtout à la
 
 — Le grand argument dont ils sont si fiers pour
-« pardonner » aux gredins, c'est, disait-il, que les gre-
-dins sont déjà bien assez malheureux de l'être, ou
+« pardonner » aux gredins, c'est, disait-il, que les gredins sont déjà bien assez malheureux de l'être, ou
 qu'ils sont irresponsables et malades... Mais d'abord,
 il n'est pas vrai que ceux qui font le mal soient malheureux. C'est une idée de morale en action, de
 mélodrames niais, d'optimisme béat et stupide, comme
@@ -4527,23 +4353,17 @@ ES ‘qu'il aimait, le déchirait. Il n'en disait rien par orgueil,
 
 - scient, qui sont chez tout grand artiste. Il sentait qu'à
 
-certains moments, sa vie ne valait pas cher pour Chris-
+certains moments, sa vie ne valait pas cher pour Christophe, au prix d'une belle musique: — (Christophe ne
 
-tophe, au prix d'une belle musique: — (Christophe ne
-
-prenait guère la peine de le lui cacher) — Il le compre-
-naït bien, il trouvait que Christophe avait raison; mais
+prenait guère la peine de le lui cacher) — Il le comprenaït bien, il trouvait que Christophe avait raison; mais
 
 c'était triste.
 
 Et puis, il y avait dans la nature de Christophe toutes
 
-sortes d'éléments troubles, qui échappaient à l'intelli-
+sortes d'éléments troubles, qui échappaient à l'intelligence d'Olivier, et qui l'inquiétaient. C'étaient des bouf-;
 
-gence d'Olivier, et qui l'inquiétaient. C'étaient des bouf-;
-
-fées brusques d'humour baroque et redoutable. Cer-
-tains jours, il ne voulait pas parler; ou il avait des
+fées brusques d'humour baroque et redoutable. Certains jours, il ne voulait pas parler; ou il avait des
 
 - accès de malice diabolique, il cherchait à blesser. Ou
 
@@ -4553,9 +4373,7 @@ née et d'une partie de la nuit. Une fois, il resta deux
 
 jours de suite absent. Dieu sait ce qu'il faisait! Il ne le
 
-savait pas trop lui-même... En vérité, sa puissante na-
-
-ture, comprimée dans cette vie et ce logement étroits,;
+savait pas trop lui-même... En vérité, sa puissante nature, comprimée dans cette vie et ce logement étroits,;
 
 comme dans une cage à poulets, était par moments
 
@@ -4595,8 +4413,7 @@ se produisaient le soir, et que les deux amis devaient
 passer la nuit dans cette désunion, qui était pour tous
 deux un désarroi moral. Christophe se relevait pour
 écrire un mot, qu'il glissait sous la porte d'Olivier;
-et le lendemain, à son réveil, il lui demandait par-
-don. Ou même, dans la nuit, il frappait à sa porte: il
+et le lendemain, à son réveil, il lui demandait pardon. Ou même, dans la nuit, il frappait à sa porte: il
 n'aurait attendre au lendemain pour s'humilier.
 Olivier, d'ordinaire, ne dormait pas plus que lui. Il
 savait bien que Christophe l'aimait et n'avait pas voulu
@@ -4623,12 +4440,10 @@ Maïs cela ne pouvait manquer d'arriver: trop de gens,
 en ce monde, s'intéressent aux affaires des autres, afin
 de les embrouiller.;
 
-Olivier connaissait les Stevens, que Christophe fré-
-queniait naguère; et il avait aussi subi l'attraction de
+Olivier connaissait les Stevens, que Christophe fréqueniait naguère; et il avait aussi subi l'attraction de
 Colette. Si Christophe ne l'avait pas rencontré dans la
 petite cour de son ancienne amie, c'était qu'à ce
-moment, Olivier, accablé par la mort de sa sœur, s'en-
-fermait dans son deuil, et ne voyait plus personne.
+moment, Olivier, accablé par la mort de sa sœur, s'enfermait dans son deuil, et ne voyait plus personne.
 Colette, de son côté, n'avait fait aucun effort pour le
 voir: elle aimait bien Olivier, mais elle n'aimaïtpasles
 gens malheureux; elle se disait si sensible que le
@@ -4696,9 +4511,7 @@ qui mordille, afin qu'on fasse attention à elle. Enjôleuse,
 
 - comme elle savait l'être, elle n'eut pas de peine à faire
 
-- parler Olivier. Personne n'était plus clairvoyant que » lui et moins dupe des gens, quand il en était loin; per-
-
-sonne ne montrait plus de confiance naïve, quand il se A
+- parler Olivier. Personne n'était plus clairvoyant que » lui et moins dupe des gens, quand il en était loin; personne ne montrait plus de confiance naïve, quand il se A
 
 Jean-Christophe à Paris
 trouvait en présence de deux aiïmables yeux. Colette
@@ -4737,8 +4550,7 @@ la salle aussitôt. Autour de lui, c'était le vide, la nuït.
 Dans la rue, il faillit se faire écraser. Il se disait: « Mon
 Olivier était chez Colette. Christophe ferma à clef la
 porte de sa chambre, pour qu'Olivier ne pût pas, ainsi
-qu'à l'ordinaire, causer un moment avec lui, lorsqu'il ren-
-trerait. Il l'entendit, en effet, revenir peu après, tâcher
+qu'à l'ordinaire, causer un moment avec lui, lorsqu'il rentrerait. Il l'entendit, en effet, revenir peu après, tâcher
 d'ouvrir la porte, lui chuchoter bonsoir, à travers la
 serrure: il ne bougea point. Il était assis sur son lit,
 dans l'obscurité, la tête entre les mains, se répétant:
@@ -4768,8 +4580,7 @@ peine pour se défendre: Olivier était sacré pour lui.
 Mais l'indignation qu'il ressentait, avait besoin de se
 . décharger sur quelqu'un; et puisque ce ne pouvait être
 Olivier, ce fut Lucien Lévy-Cœur. Avec son injustice et
-sa passion habituelles, il lui attribua aussitôt respon-
-sabilité de la faute qu'il prêtait à Olivier; et il y avait
+sa passion habituelles, il lui attribua aussitôt responsabilité de la faute qu'il prêtait à Olivier; et il y avait
 pour lui une souffrance de jalousie insupportable à
 penser qu'un homme de cette espèce avait lui
 enlever l'affection de son ami, comme il l'avait déjà;
@@ -4813,8 +4624,7 @@ Christophe méprisait le plus!
 : Et le hasard voulut que, le soir même, les deux Se
 Pour ne pas rester seul avec Olivier, Christophe était
 allé, contre son habitude, à une soirée chez Roussin.
-On jui demanda de jouer. Il le fit à contre-cœur. Tou-
-tefois, au bout d'un instant, il s'était absorbé dans le
+On jui demanda de jouer. Il le fit à contre-cœur. Toutefois, au bout d'un instant, il s'était absorbé dans le
 morceau qu'il jouait, lorsque, levant les yeux, il aperçut:
 . à quelques pas, dans un groupe, les yeux ironiques de
 Lucien Lévy-Cœur, qui l'observaient. Il s'arrêta net, au
@@ -4855,8 +4665,7 @@ Il se leva, d'un bond. >.
 grand dans le monde, continua-t-il avec fureur. A la
 porte, cabot, ou je te flanque par la fenêtre!
 Il s'avançait vers lui. Les dames s'écartèrent avec de
-petits cris. Il y eut quelque désordre. Christophe fut en-
-touré aussitôt. Lucien Lévy-Cœur s'était à demi soulevé;
+petits cris. Il y eut quelque désordre. Christophe fut entouré aussitôt. Lucien Lévy-Cœur s'était à demi soulevé;
 puis il reprit sa pose négligente dans son fauteuil.:
 - Appelant à voix basse un domestique qui passait, il lui
 . remit une carte; et il continua l'entretien, comme si;
@@ -4938,15 +4747,12 @@ maison. Christophe demanda une arme, et se fit
 expliquer comment il fallait la tenir. Au premier coup,
 il faillit tuer le gérant; il recommença deux fois, trois
 fois, et ne réussit pas mieux; il s'impatienta: ce fut
-bien pis. Autour de lui, quelques jeunes gens regar-
-daient et riaient. Il n'y faisait pas attention. Avec sa
-ténacité d'Allemand, il s'obstina, si indifférent aux mo-
-queries et si décidé à réussir que, comme il arrive
+bien pis. Autour de lui, quelques jeunes gens regardaient et riaient. Il n'y faisait pas attention. Avec sa
+ténacité d'Allemand, il s'obstina, si indifférent aux moqueries et si décidé à réussir que, comme il arrive
 toujours, on ne tarda pas à s'intéresser à cette patience
 maladroite; un des spectateurs lui donna des conseïls.
 Lui, si violent d'habitude, écoutait tout, avec une docilité d'enfant; il luttait contre ses nerfs, qui faisaient
-trembler sa main; il se raidissait, les sourcils con-
-tractés; la sueur coulait sur ses joues; il ne disait pas
+trembler sa main; il se raidissait, les sourcils contractés; la sueur coulait sur ses joues; il ne disait pas
 un mot; mais, de temps en temps, il avait un sursaut
 de colère; puis, il se remettait à tirer. Il resta deux
 heures. Après deux heures, il mettait dans le but. Rien
@@ -4965,8 +4771,7 @@ accuser Olivier, il finit par deviner. Comme il était de
 sang-froid et qu'il connaissait les deux amis, il ne douta
 point qu'Olivier ne fût innocent de la petite trahison
 qui lui était imputée. Il se mit en quête, et n'eut pas de
-peine à découvrir que tout le mal venait des bavar-
-dages de Colette et de Lévy-Cœur. Il revint précipitamment en apporter la preuve à Christophe; il se figurait
+peine à découvrir que tout le mal venait des bavardages de Colette et de Lévy-Cœur. Il revint précipitamment en apporter la preuve à Christophe; il se figurait
 ainsi empêcher la rencontre. Mais ce fut tout le contraire: Christophe n'en conçut que plus de ressentiment
 contre Lévy-Cœur, quand il sut que, grâce à lui, il avait
 douter de son ami. Pour se débarrasser de Mooch,:
@@ -4981,11 +4786,7 @@ voiture montait l'allée à travers bois, réveilla brusqueS ment l'attention de
 - l'affaire serait finie, et s'il pourrait revenir à temps
 pour terminer encore dans la journée un travail commencé aux Manuscrits de la Bibliothèque Nationale.
 ! Des trois compagnons de Christophe, il était celui qui
-s'intéressait le plus à l'issue du combat, par amour-
-
-propre germanique. Goujart ne s'occupait ni de Chris-
-
-tophe, ni de l'autre Allemand, et causait de sujets
+s'intéressait le plus à l'issue du combat, par amourpropre germanique. Goujart ne s'occupait ni de Christophe, ni de l'autre Allemand, et causait de sujets
 
 scabreux de physiologie égrillarde avec le docteur
 
@@ -4994,9 +4795,7 @@ avait naguère comme voisin de palier, et qui venait
 
 : parfois lui emprunter sa lampe à esprit-de-vin, son
 parapluie, ses tasses à café, qu'il rapportait invariablement cassés. Il lui donnait en échange des consuliations gratuites, essayait sur lui des remèdes, et.
-s'amusait de sa naïveté. Sous son impassibilité d'hi-
-
-dalgo castillan, somnolait une gouaillerie perpétuelle.
+s'amusait de sa naïveté. Sous son impassibilité d'hidalgo castillan, somnolait une gouaillerie perpétuelle.
 
 Il était prodigieusement réjoui de cette aventure, qui
 lui paraissait burlesque; et d'avance, il escomptait les
@@ -5006,8 +4805,7 @@ brave Krafft. — C'était le plus clair de la pensée du
 
 trio: ils envisageaient la chose surtout comme une de
 partie de plaisir, qui ne leur coûtait rien. Aucun n'attri- 4°
-buaït la moïadre importance au duel. Ils étaient d'ail-
-leurs préparés, avec un calme égal, à toutes les éven- Se
+buaït la moïadre importance au duel. Ils étaient d'ailleurs préparés, avec un calme égal, à toutes les éven- Se
 Ils arrivèrent au rendez-vous, avant les autres. Une À
 petite auberge au fond des bois. C'était un endroit de De
 plaisir, plus ou moins malpropre, où les Parisiens
@@ -5025,11 +4823,10 @@ désappris de parler. Re:
 L'arrivée de la voiture souleva à l'auberge un petit À
 brouhaha. Goujart, qui connaissait de longue date la se
 maison et les gens, déclara qu'il se chargeait de tout. LEE
-- Barth entraîna Christophe sous une tonnelle, et com-
-manda de la bière. L'air était exquisément tiède et
+- Barth entraîna Christophe sous une tonnelle, et commanda de la bière. L'air était exquisément tiède et
 rempli du bourdonnement des abeilles. Christophe
 - oubliait pourquoi il était venu. Barth, vidant la bou
-teille, dit, après un silence: o, » — Je vois ce que je vais faire.
+teille, dit, après un silence: » — Je vois ce que je vais faire.
 
 — J'aurai encore le temps: j'irai à Versailles, après.
 
@@ -5093,8 +4890,7 @@ les témoins n'eussent pas veillé à l'innocuité de la rencontre: il savait qu
 l'apparence de victime à un ennemi, qu'il est beaucoup
 plus sûr d'éliminer sans bruit. Mais Christophe, sa veste;
 jetée, sa chemise ouverte sur son large cou et ses poi-.
-gnets robustes, attendait, le front baissé, les yeux d'ure-
-ment fixés sur Lévy-Cœur, toute son énergie ramassée
+gnets robustes, attendait, le front baissé, les yeux d'urement fixés sur Lévy-Cœur, toute son énergie ramassée
 sur elle-même; la volonté du meurtre était implacable-
 
 . ment inscrite sur tous les traits de son visage; et le
@@ -5130,8 +4926,7 @@ alla, à grands pas, vers le bois, en parlant haut, et en
 faisant des gestes furieux. Il ne s'apercevait même pas
 
 : qu'il avait laissé sur le terrain son veston et son chapeau.
-Il s'enfonça dans la forêt. Il entendit ses témoins l'appeler, en riant; puis, ils se lassèrent, et ne s'inquié-
-tèrent plus de lui. Un roulement de voitures qui s'éloignaïient lui apprit bientôt qu'ils étaient partis. Il resta
+Il s'enfonça dans la forêt. Il entendit ses témoins l'appeler, en riant; puis, ils se lassèrent, et ne s'inquiétèrent plus de lui. Un roulement de voitures qui s'éloignaïient lui apprit bientôt qu'ils étaient partis. Il resta
 ; seul, au milieu des arbres silencieux. Sa fureur était …
 ; tombée. Il se jeta par terre, et se vautra dans l'herbe.
 Peu après, Mooch arrivait à l'auberge. Il était, depuis
@@ -5165,8 +4960,7 @@ il dit, en riant:
 Olivier ne put en tirer une parole de plus. Mooch
 raconta les choses. Olivier, atterré, rompit avec Colette,
 et supplia Christophe de lui pardonner son imprudence.
-Christophe, incorrigible, lui récita un vieux dicton fran-
-çais en l'arrangeant malignement à sa façon pour faire
+Christophe, incorrigible, lui récita un vieux dicton français en l'arrangeant malignement à sa façon pour faire
 enrager le bon Mooch, qui assistait, tout heureux,
 bonheur des deux amis::
 
@@ -5179,8 +4973,7 @@ Libera nos, Domine!
 
 L'amitié était retrouvée. La menace de la perdre, qui
 à l'avait effleurée, ne faisait que la rendre plus chère.
-Les légers malentendus s'étaient évanouis; les diffé-
-rences mêmes entre les deux amis étaient un attrait de
+Les légers malentendus s'étaient évanouis; les différences mêmes entre les deux amis étaient un attrait de
 plus. Christophe embrassait dans son âme l'âme des
 deux patries, harmonieusement unies. Il se sentait le
 cœur riche et plein; et cette abondance heureuse se
@@ -5188,8 +4981,7 @@ traduisait, comme à l'ordinaire chez lui, par un ruisseau
 de musique.
 Olivier s'en émerveillait. Avec son excès de critique,
 il n'était pas loin de croire que la musique, qu'il adoraït,
-avait dit son dernier mot. Il était hanté de l'idée maladive qu'à un certain degré du progrès succède fatale-
-ment la décadence; et il tremblaït que le bel art, qui lui.
+avait dit son dernier mot. Il était hanté de l'idée maladive qu'à un certain degré du progrès succède fatalement la décadence; et il tremblaït que le bel art, qui lui.
 faisait aimer la vie, ne s'arrêtât tout d'un coup, tari, « par le sol. Christophe s'égayait de ces pensées pusillanimes. Par esprit de contradiction, il prétendait que
 rien n'avait été fait avant lui, que tout était à faire.
 Olivier lui alléguait l'exemple de la musique française,
@@ -5216,8 +5008,7 @@ bouffes.. — Vous êtes un peuple de romanciers, et vous
 ne faites pas de romans en musique: (car je ne compte
 pas pour tels les feuilletons de Gustave Charpentier).
 Vous nutilisez pas vos dons d'analyse psychologique,
-votre pénétration des caractères. Ah! si j'étais Fran-
-çais, je vous ferais des portraits en musique... (Veux-iu
+votre pénétration des caractères. Ah! si j'étais Français, je vous ferais des portraits en musique... (Veux-iu
 que je te dessine la petite, assise en bas, dans le jar- TEE
 din, sous les lilas?).… Je vous écrirais du Stendhal
 pour quatuor à cordes, des Princesse de C'èves, pour
@@ -5273,12 +5064,10 @@ Gottfried, lorsqu'ils me parlaient, de quel ton de
 respect et d'amour attendri, du bel art des sons!
 Disposer de ces divines puissances, et en faire un tel »
 
-usage! Un météore incendiaire! Une Ysolde, pro-
-stituée juive. La luxure douloureuse et bestiale. La fré-:
+usage! Un météore incendiaire! Une Ysolde, prostituée juive. La luxure douloureuse et bestiale. La fré-:
 nésie du meurtre, du viol, de l'inceste, des instincts RES
 - déchaïnés, qui gronde au fond de la décadence alle
-mande….. Et, de votre côté, le spasme du suicide mé-
-lancolique et voluptueux, qui râle dans votre décadence
+mande….. Et, de votre côté, le spasme du suicide mélancolique et voluptueux, qui râle dans votre décadence
 française... Ici, la bête; et là, la proie. Où, l'homme?
 - Voire Debussy est le génie du bon goût; Strauss, le
 génie du mauvais. Le premier est bien fade. Mais le
@@ -5334,8 +5123,7 @@ une maison à six étages, qui supprimait la vue et ache- à
 vait le blocus autour de lui. Il avaït de plus l'agrément
 d'entendre grincer des poulies, gratter des pierres, et
 clouer des planches, tous les jours, du matin au soir.
-, Il avait retrouvé, parmi les ouvriers, son ami le cou-
-vreur, avec qui il avait fait connaissance, naguère, sur
+, Il avait retrouvé, parmi les ouvriers, son ami le couvreur, avec qui il avait fait connaissance, naguère, sur
 le toit. Ils échangeaïent de loin des signes d'intelligence. Même, l'ayant rencontré, une fois, dans la rue,
 
 Jean-Christophe à Paris
@@ -5358,8 +5146,7 @@ comme le poële de Descartes, d'où la pensée comprimée
 
 jaillit vers le ciel libre. Mais Christophe avait besoin de
 plus d'air. Confiné dans cet étroit espace, il prenait sa
-revanche, en se mêlant aux âmes de ceux qui l'entou-
-raient. Il les buvait. Il les mettait en musique. Olivier
+revanche, en se mêlant aux âmes de ceux qui l'entouraient. Il les buvait. Il les mettait en musique. Olivier
 lui disait qu'il avait l'air d'un amoureux.
 — Si je l'étais, répondait Christophe, je ne verrais
 plus rien, je n'aimerais plus rien, rien ne m'intéresserait, en dehors de mon amour.
@@ -5400,8 +5187,7 @@ L'ingénieur Elsberger ressentait aussi la contagion de
 - son humeur devint jamais entreprenante, au point de
 lui faire quitter la France, pour aller chercher fortume
 ailleurs. C'eût été trop demander. Mais il sortait de son FPE
-atonie; il reprenait goût à des recherches, à des lec-
-tures, à des travaux scientifiques, qu'il avait laissés de
+atonie; il reprenait goût à des recherches, à des lectures, à des travaux scientifiques, qu'il avait laissés de
 à côté, depuis longtemps. On l'eût bien étonné, si on lui
 : avait dit que Christophe était pour quelque chose dans
 ce réveil d'intérêt à son métier; et le plus étonné eût
@@ -5445,7 +5231,7 @@ ne s'en esmeut point, et de teste en pied, n'en tressault « point, comme doucem
 : que si c'est une mode d'aimer la musique en France,
 ; la mode n'est pas d'hier.
 Qu'on aimäât la musique en France était moins encore
-pour étonner Christophe que le faït qu'on y aimât, à;
+pour étonner Christophe que le faït qu'on y aimât,
 peu de choses près, la même musique qu'en Allemagne.
 : Dans le monde des artistes et des snobs parisiens, qu'il
 avait d'abord, il était de bon ton de traiter les maftres allemands en étrangers de distinction, que lon ne -
@@ -5475,8 +5261,7 @@ artistes de sa race. HERVE
 — Mais pas du tout! protestaient-ils. Ce sont nos
 critiques qui se permettent de parler en notre nom.
 Comme ils suivent toujours la mode, ils prétendent
-aussi que nous la suivions. Mais nous ne nous inquié-
-tons pas plus d'eux qu'ils ne s'inquiètent de nous. Voilà
+aussi que nous la suivions. Mais nous ne nous inquiétons pas plus d'eux qu'ils ne s'inquiètent de nous. Voilà
 de plaisants animaux qui veulent nous apprendre ce
 qui est, ou n'est pas Français! A nous, Français de
 vieille France! Ils viennent nous dire que notre
@@ -5506,8 +5291,7 @@ d'Allemagne. Les Arnaud lui rappelaïent son cher vieux
 Schulz, avec son amour si pur, si désintéressé, de l'art,
 - son oubli de soi-même, sa dévotion au beau. Et illes
 aimait, en souvenir de lui.:
-En même temps qu'il découvrait l'absurdité des fron-
-tières morales entre les bonnes gens des races diffé-.
+En même temps qu'il découvrait l'absurdité des frontières morales entre les bonnes gens des races diffé-.
 rentes, Christophe sentait l'absurdité des frontières
 entre les pensées différentes des bonnes gens d'une -
 même race. Grâce à lui, et sans qu'il leût cherché,
@@ -5559,8 +5343,7 @@ Croisades, le soufflet de Boniface VIII, Galilée qui rejeta.
 la terre dans l'espace vertigineux, les infiniment petits
 plus puissants que les grands, la fin des royautés et
 celle des Concordats, tout cela désorientait pour
-temps les consciences. Les uns s'attachaient désespé-
-rément à ce qui tombait; les autres prenaient une
+temps les consciences. Les uns s'attachaient désespérément à ce qui tombait; les autres prenaient une
 Le planche, au hasard, et allaient à la dérive. L'abbé
 
 à Corneille se demandait seulement: « Où sont les
@@ -5619,9 +5402,8 @@ il se résignait. Il savait combien comptent peu les
 jours d'épreuves, dans la longue histoire de l'Église.
 — Seulement, à se replier en lui, dans sa résignation
 muette, il s'anémiait lentement, il prenait une timidité, une peur de parler, qui lui rendaït de plus en
-plus difficile la moindre démarche, et peu à peu l'enve-
-loppait d'une torpeur de silence. Il sentait tomber,
-:: avec tristesse, mais sans pouvoir prendre l'initiative de
+plus difficile la moindre démarche, et peu à peu l'enveloppait d'une torpeur de silence. Il sentait tomber,
+avec tristesse, mais sans pouvoir prendre l'initiative de
 : réagir. La rencontre de Christophe lui fut d'un grand
 
 secours. La juvénile ardeur, l'intérêt affectueux et naïf
@@ -5642,11 +5424,9 @@ le plaisir qu'il avait à causer avec des gens bien élevés
 Femportèrent sur son anticléricalisme. Il était surpris
 du ton affable, qui régnait entre M. Watelet et l'abbé:
 Corneille; il ne l'était pas moins de voir un prêtre, qui:
-était démocrate, et un révolutionnaire, qui était aristo-
-crate; cela renversait toutes ses idées reçues. Il cherchaïit vainement dans quelles catégories sociales il
+était démocrate, et un révolutionnaire, qui était aristocrate; cela renversait toutes ses idées reçues. Il cherchaïit vainement dans quelles catégories sociales il
 pourrait les classer: car il avait besoin de classer les Hit
-gens, pour les comprendre. Il n'était pas facile de trou-
-ver un Compartiment où ranger la paisible liberté de
+gens, pour les comprendre. Il n'était pas facile de trouver un Compartiment où ranger la paisible liberté de
 ce prêtre, qui avait Anatole France et Renan, et qui;
 en parlait tranquillement, avec justice et avec justesse.
 En matière de science, l'abbé Corneille avait pour règle
@@ -5667,8 +5447,7 @@ de soupçonner un tel état d'esprit. L'abbé Corneille
 Es. Jean-Christophe à Paris LAN
 des paysans français, qu'il avait vus un jour. Une
 jeune Anglaise leur demandait son chemin. Elleleur
-parlaït anglais. Ils écoutaient gravement, sans comprendre. Puis ïls parlaient français. Elle ne com-
-prenait pas. Alors, ils se regardaient entre eux, avec
+parlaït anglais. Ils écoutaient gravement, sans comprendre. Puis ïls parlaient français. Elle ne comprenait pas. Alors, ils se regardaient entre eux, avec
 Ù pitié, hochaïent la tête, et disaient, en reprenant leur
 ; — C'est-y malheureux, tout de même! Une si belle
 è Comme s'ils l'eussent jugée muette, sourde, ou
@@ -5692,7 +5471,7 @@ comprendre mutuellement leurs idées, ni peut-être
 même de les connaître, arrivaient à s'aimer, sans trop
 SE savoir pourquoi. Ils étaient tout surpris de se trouver
 PES si près l'un de l'autre. Ils ne l'eussent jamais pensé.—
-à: Christophe était entre eux.
+Christophe était entre eux.
 
 Il avaït d'innocentes alliées dans les trois enfants, —
 ‘les deux petites Elsberger, et la fillette adoptive de
@@ -5713,8 +5492,7 @@ que s'il avait dix ans; les promeneurs jetaient, en
 passant, un coup d'œil amusé et raïlleur sur ce grand
 garçon, qui courait, en poussant des cris, et tournait » autour des arbres, poursuivi par trois petites filles. Et
 comme les parents, toujours soupçonneux, se mon-
-- traient peu disposés à ce que ces parties au Luxem-
-bourg se renouvelassent souvent, — (car ils ne pouvaient
+- traient peu disposés à ce que ces parties au Luxembourg se renouvelassent souvent, — (car ils ne pouvaient
 … les surveiller d'assez près) — Christophe trouva moyen;
 de faire inviter les enfants à jouer dans le jardin même
 … de la maison, par le commandant Chabran, qui habitait
@@ -5780,8 +5558,7 @@ enchanta l'officier. Il regardait ce succès comme une
 revanche sur l'Allemagne.Ilinvita Christophe à déjeuner. -
 La franchise de Christophe, qui trouva détestables ses
 compositions musicales, et qui poussa les hauts cris,
-quand Chabran commença à massacrer sur son harmo-
-nium un andante de Haydn, acheva de le conquérir.
+quand Chabran commença à massacrer sur son harmonium un andante de Haydn, acheva de le conquérir.
 Depuis, ils avaient d'assez fréquents entretiens. Mais
 mon plus sur la musique. Christophe trouvait un intérêt
 médiocre à écouter sur ce sujet les billevesées de son
@@ -5820,13 +5597,11 @@ réduit à se dévorer en des jeux ridicules. Il se demanj dait comment il avait
 demanda à lui-même. Sur ses rancœurs, le commandant
 semblait peu disposé, d'abord, à s'expliquer avec un
 
-étranger. Mais les Français ont la langue longue, sur-
-tout lorsqu'il s'agit de s'accuser les uns les autres:
+étranger. Mais les Français ont la langue longue, surtout lorsqu'il s'agit de s'accuser les uns les autres:
 — Que voulez-vous que je foute, dit-il, dans leur
 armée d'aujourd'hui? Les marins font de la littérature.
 Les fantassins font de la sociologie. Ils font de tout,
-sauf de la guerre. Ils n'y préparent même plus, ils pré-
-parent à ne plus la faire; ils font la philosophie de la
+sauf de la guerre. Ils n'y préparent même plus, ils préparent à ne plus la faire; ils font la philosophie de la
 guerre... La philosophie de la guerre! Un jeu d'ânes à
 battus, qui méditent sur les coups, qu'ils recevront un
 jour!.. Discutailler, philosophaiïller, non, ce n'est pas
@@ -5855,9 +5630,7 @@ des esthètes et des sociologues. Toutefois, il ne comprenait pas que ce vigoure
 
 aux autres. C'est être son pire ennemi, que ne pas
 
-à combattre ses ennemis. Il y avait chez tous ces Fran-
-
-çais de quelque prix un esprit d'abdication, un reponcement singulier. — Christophe le retrouvait plus profond
+à combattre ses ennemis. Il y avait chez tous ces Français de quelque prix un esprit d'abdication, un reponcement singulier. — Christophe le retrouvait plus profond
 et plus touchant, chez la fille de l'officier.
 
 : Elle se nommaïit Céline. Elle avait des cheveux fins,
@@ -5971,8 +5744,7 @@ miante. D'autant plus oppressive que ces families çaises sont réduites au mini
 ; loin. Amour frileux, peureux, ramassé sur lui-même,
 comme un avare qui serre sa poignée d'or.
 Une circonstance fortuite, en intéressant davantage
-À Christophe à la jeune fille, vint lui montrer ce resserre-
-ment des affections françaises, cette peur de vivre, de
+À Christophe à la jeune fille, vint lui montrer ce resserrement des affections françaises, cette peur de vivre, de
 1 se ‘livrer, de prendre ce qui est son bien.
 à L'ingénieur Elsberger avait un frère cadet, de dix ans
 
@@ -5982,8 +5754,7 @@ avec des aspirations artistiques: ils voudraient bien
 : faire de Fart; mais ils ne voudraient pas compromettre
 A leur situation bourgeoise. A la vérité, ce n'est point
 un problème très difficile; et la plupart des artistes d'à
-; présent l'ont résolu sans risques. Encore faut-il le vou-
-loir; et, de ce pauvre effort d'énergie, tous ne sont
+; présent l'ont résolu sans risques. Encore faut-il le vouloir; et, de ce pauvre effort d'énergie, tous ne sont
 pas capables; ils ne sont pas assez sûrs de vouloir ce
 ; qu'ils veulent; et à mesure que leur situation bour-
 ; geoise devient plus assurée, ils s'y laissent couler, sans
@@ -5998,8 +5769,7 @@ aient effacé la trace de cette vieille amertume. Tel était
 le cas d'Augustin Elsberger. Il eût voulu faire de la:
 è littérature; mais son frère, très entier dans ses façons
 de penser, avait voulu qu'il entrât, comme lui, dans la
-carrière scientifique. Augustin était intelligent, passa-
-blement doué pour les sciences, — ou les lettres, — À
+carrière scientifique. Augustin était intelligent, passablement doué pour les sciences, — ou les lettres, — À
 indifféremment; il n'était pas assez sûr d'être un artiste,
 et il était trop sûr d'être un bourgeois: il s'était plié,
 , provisoirement d'abord — (on sait ce que ce mot veut
@@ -6039,15 +5809,12 @@ la famille Elsberger était liée depuis longtemps avec
 Jean-Christophe à Paris
 celle du commandant; mais, après avoir été très in- À
 times, la politique, des événements récents les avaient
-séparées; et depuis, elles ne se voyaient plus. Chris-
-tophe ne cacha point qu'il trouvait cela idiot. Ne pou-
-vait-on penser différemment, et continuer de s'estimer?
+séparées; et depuis, elles ne se voyaient plus. Christophe ne cacha point qu'il trouvait cela idiot. Ne pouvait-on penser différemment, et continuer de s'estimer?
 Augustin dit que oui, et protesta de sa liberté d'esprit
 mais il excepta de sa tolérance deux ou trois questions,
 sur lesquelles, selon lui, il n'était pas permis d'avoir un
 avis différent du sien; et il nomma la fameuse Affaire.
-Là-dessus, il déraisonna, comme c'est l'usage. Chris-
-tophe connaissait l'usage: il n'essaya point de discuter;
+Là-dessus, il déraisonna, comme c'est l'usage. Christophe connaissait l'usage: il n'essaya point de discuter;
 - mais il demanda si cette Affaire ne finirait pas un jour,
 ou si sa malédiction devait s'étendre jusqu'à la fin des
 temps, sur les enfants des enfants de nos petits-enfants.
@@ -6103,17 +5870,13 @@ Augustin parla de ses scrupules: sa situation n'était
 ; pas faite; il n'avait pas de fortune; peu de santé. Il se
 demandait s'il avait le droit de se marier dans de telles
 
-conditions. C'était une grande responsabilité. Ne ris-
-
-quait-il pas de faire le malheur de celle qu'il aimait, et » le sien, — sans parler des enfants à venir?.. Il valait
+conditions. C'était une grande responsabilité. Ne risquait-il pas de faire le malheur de celle qu'il aimait, et » le sien, — sans parler des enfants à venir?.. Il valait
 
 mieux attendre, — ou renoncer.
 
 Christophe haussa les épaules:
 
-À — Belle facon d'aimer! Si elle aime, elle sera heu-
-
-reuse de se dévouer. Et quant aux enfants, vous autres,
+À — Belle facon d'aimer! Si elle aime, elle sera heureuse de se dévouer. Et quant aux enfants, vous autres,
 
 Che Le Français, vous êtes ridicules. Vous en lâche: À
 (1 dans la vie que si vous êtes sûrs d'en faire de petits
@@ -6178,15 +5941,12 @@ rage, quand il lisait certaines de leurs chroniques.
 — Mais ils n'ont donc pas de cœur? disait-il. Oh! les
 — À qui en as-tu? demandait Olivier. Toujours à
 quelques drôles de la Foire sur la Place?
-— Non. Aux honnêtes gens. Les gredins font leur mé-
-tier: ils mentent, ils pillent, ils volent, ils assassinent.
+— Non. Aux honnêtes gens. Les gredins font leur métier: ils mentent, ils pillent, ils volent, ils assassinent.
 Mais les autres, — ceux qui les laissent faire, tout en les
 méprisant, — je les méprise mille fois davantage. Si
 ANR leurs confrères de la presse, si les critiques honnêtes et
 instruits, siles artistes, sur le dos desquels ces Arlequins
-s'escriment, ne les laissaient faire, en silence, par timi-
-
-dité, par peur de se compromettre, ou par un honteux
+s'escriment, ne les laissaient faire, en silence, par timidité, par peur de se compromettre, ou par un honteux
 calcul de ménagements réciproques, par une sorte de
 pacte secret conclu avec l'ennemi, pour rester à Fabri
 de ses coups, — s'ils ne les laissaient se parer de leur
@@ -6240,8 +6000,7 @@ n'aiment pas? Ils s'intoxiquent avec, sans plaisir, par
 docilité; et ils meurent d'ennui dans ce mensonge! À
 
 Christophe passait au milieu des incertains et des
-découragés, comme le vent qui secoue les arbres endor-
-mis. Il n'essayait pas de leur incuiquer sa façon de »
+découragés, comme le vent qui secoue les arbres endormis. Il n'essayait pas de leur incuiquer sa façon de »
 , penser; il leur soufflait l'énergie de penser par euxmêmes. Il disait
 — Vous êtes trop humbles. Le grand ennemi, c'ést la
 neurasthénie, le doute. On peut, on doit être tolérant et
@@ -6296,8 +6055,7 @@ tous la même chose.
 
 M. Weil et le commandant auraient eu, en particulier, beaucoup de raisons pour s'entendre. Par un de
 ces contrastes si fréquents chez les hommes de pensée,
-M. Weil, qui ne sortait pas de ses livres et vivait uni-
-quement de la vie de l'esprit, était passionné de choses
+M. Weil, qui ne sortait pas de ses livres et vivait uniquement de la vie de l'esprit, était passionné de choses
 militaires. « Nous sommes tous de lopins disait le
 demi-Juif Montaigne, appliquant à tous les hommes ce
 
@@ -6317,15 +6075,13 @@ se railler de cette « Napoléonite son ironie s'en
 égayait; mais il n'en continuait pas moins à se griser de
 ces belles histoires, comme un enfant qui joue; à certains épisodes, il avait la larme à l'œil: quand il re-?
 
-.. marquait cette faiblesse, il se tordait de rire, en s'appe-
-lant vieille bête. À vrai dire, c'était moins le patriotisme RER
+.. marquait cette faiblesse, il se tordait de rire, en s'appelant vieille bête. À vrai dire, c'était moins le patriotisme RER
 que l'intérêt romanesque et l'amour platonique de:
 
 l'action, qui le rendaient Napoléonien. Pourtant, il
 était excellent patriote, plus attaché à la France que:
 beaucoup de Français autochtones. Les antisémites
-français font une mauvaise action et une sottise, en dé-
-courageant, par leurs soupçons injurieux, les sentiments
+français font une mauvaise action et une sottise, en décourageant, par leurs soupçons injurieux, les sentiments
 français des Juifs établis en France. En dehors des raisons qui font que toute famille s'est nécessairement
 attachée, au bout d'une ou deux générations, au sol où
 elle s'est fixée, et que le sang de la terre est devenu
@@ -6370,8 +6126,7 @@ est-ce que c'est une façon de se battre, cela?
 — Il n'est pas question de se battre, répondit le com-! à
 mandant, on ne se bat pas contre la France. Dans des
 luttes comme celles-ci, il faut parler, discuter, voter,
-subir des contacts déplaisants avec des tas de fri-
-pouilles: cela ne me pas.
+subir des contacts déplaisants avec des tas de fripouilles: cela ne me pas.
 4 — Vous êtes bien dégoûté! En Afrique, vous en avez -
 ê — Parole d'honneur, cela me dégoûtait moins. Et puis,
 on pouvait toujours leur casser la gueule! D'ailleurs,
@@ -6406,12 +6161,10 @@ pas la même chose: ils usent d'armes malhonnèêtes, “ki
 À du moyen-âge, qui se sont trouvés, pour la première
 
 Jean-Christophe à Paris +18 AS
-fois, en présence de la poudre à canon. Que voulez-
-vous? La guerre évolue.
+fois, en présence de la poudre à canon. Que voulezvous? La guerre évolue.
 — Soit. Mais alors, soyons francs, et disons que c'est
 la guerre. À
-— Supposez qu'un ennemi commun menace la civili-
-sation de l'Europe, est-ce que vous ne vous allieriez pas
+— Supposez qu'un ennemi commun menace la civilisation de l'Europe, est-ce que vous ne vous allieriez pas
 — Nous l'avons fait, en Chine.
 — Regardez donc autour de vous. Est-ce que votre
 pays, est-ce que tous nos pays d'Europe ne sont pas, À
@@ -6426,9 +6179,7 @@ Voilà des gens qui soutiennent contre vous un idéal
 différent du vôtre! Un idéal est une force, vous
 pouvez la nier; dans la iutte, que vous avez récemment
 engagée, de: l'idéal de vos adversaires, qui vous a
-battus. Au lieu de vous user contre lui, que ne l'em-
-ployez-vous avec le vôtre, côte à côte, contre les enne-
-mis de tout idéal, contre les exploiteurs de la patrie, de
+battus. Au lieu de vous user contre lui, que ne l'employez-vous avec le vôtre, côte à côte, contre les ennemis de tout idéal, contre les exploiteurs de la patrie, de
 la pensée, les pourrisseurs de la civilisation européenne?
 — Pour qui? Il faudrait s'entendre d'abord. Pour
 faire triompher nos adversaires?
@@ -6470,9 +6221,7 @@ Il riait de tout son cœur.
 Jean-Christophe à Paris RSA
 : — Mais je suis des vôtres! Cest le même combat, …
 partout. Serrons les rangs! HAUSSE
-Le commandant approuvait; mais les choses en res-
-taient là. Alors, Christophe s'obstinait, remettant l'en-
-tretien sur M. Weil et sur les Elsiggger- Et l'officier,
+Le commandant approuvait; mais les choses en restaient là. Alors, Christophe s'obstinait, remettant l'entretien sur M. Weil et sur les Elsiggger- Et l'officier,
 qui n'était pas moins obstiné, reprenait ses éternels
 arguments contre les Juifs et contre les Dreyfusards,
 à sans que tout ce que disait Christophe parût avoir le à
@@ -6507,8 +6256,7 @@ Le commandant se tut, et feignit de n'avoir pas RES
 entendu. Il était lui-même beaucoup moins insensible à
 l'influence de Christophe qu'il ne voulait en avoir l'air.
 Son étroitesse de jugement et sa violence ne l'empé- See:
-chaïent point d'avoir un sens très droit et de la généro-
-sité de cœur. Il aimait Christophe, il aimait sa franchise
+chaïent point d'avoir un sens très droit et de la générosité de cœur. Il aimait Christophe, il aimait sa franchise
 et sa santé morale, et il avait souvent le regret cuisant À AN à
 que Christophe fût un Allemand. Il avait beau sem.
 porter, dans les discussions avec lui; il cherchaït ces nee
@@ -6537,8 +6285,7 @@ de printemps, à travers les vieux murs et les fenêtres
 . closes de la maison engourdie; elle ressuscitait des
 cœurs, que la douleur, la faiblesse, l'isolement, ron « geaient depuis des années, desséchaient, avaient laissés;
 ; pour morts. Puissance des âmes sur les âmes! Celles
-qui la subissent et celles qui l'exercent l'ignorent égale-
-ment. Et pourtant, la vie du monde est faite des flux
+qui la subissent et celles qui l'exercent l'ignorent également. Et pourtant, la vie du monde est faite des flux
 et des reflux, que régit cette force d'attraction mysté-
 Deux étages au-dessous de l'appartement de Chris
 tophe et d'Olivier, habitait, comme on l'a vu, une jeune à
@@ -6580,12 +6327,11 @@ elle le voulait durement, désespérément; mais elle en
 …. — Pourquoi ceux-là ne sont-ils pas morts?
 y avait, dans le quartier, une petite fille qui, de
 “taille, de démarche, ressemblait à la sienne. Quand elle
-la voyait de dos, avec ses petites nattes, elle en trem-
-blait. Elle se mettait à la suivre; et quand la petite se,
+la voyait de dos, avec ses petites nattes, elle en tremblait. Elle se mettait à la suivre; et quand la petite se,
 _retournait, et qu'elle voyait que ce n'était pas « elle
 elle avait envie de l'étrangler. Elle se plaignait que les
 — cependant bien tranquilles, bien
-_comprimées par leur éducation, — fissent du bruit, à;
+_comprimées par leur éducation, — fissent du bruit,
 
 ; l'étage au-dessus; et dès que les pauvres enfants trotti- À
 naient dans leur chambre, elle envoyait sa domestique
@@ -6594,10 +6340,8 @@ chez les voisins réclamer le silence. Christophe, qui la
 saisi du regard dur qu'elle leur jeta.
 Un soir d'été que cette morte vivante s'hypnotisait
 À dans son néant, assise dans l'obscurité, près de sa
-fenêtre, elle entendit jouer Christophe. Il avait l'habi-
-tude de rêver, au piano, à cette heure. Cette musique « l'irrita, en troublant le vide où elle s'engourdissait.
-Elle ferma la fenêtre avec colère. La musique la pour-
-suivit jusqu'au fond de la chambre. Madame Germain
+fenêtre, elle entendit jouer Christophe. Il avait l'habitude de rêver, au piano, à cette heure. Cette musique « l'irrita, en troublant le vide où elle s'engourdissait.
+Elle ferma la fenêtre avec colère. La musique la poursuivit jusqu'au fond de la chambre. Madame Germain
 Es ressentit pour elle une sorte de haïne. Elle eût voulu À
 empêcher Christophe de jouer; mais elle n'en agit
 aucun droit. Chaque jour maintenant, à la même heure,
@@ -6671,12 +6415,10 @@ poitrine. Christophe fut pénétré de compassion, moins
 encore par la pensée de son malheureux voisin que par
 ; celle de l'enfant, qui se trouvait abandonnée. On ne
 connaissait aucun parent à M. Watelet, et il y avait
-tout lieu de croire qu'il la laissait à peu près sans res-
-sources. Christophe monta, quatre à quatre, et entra »
+tout lieu de croire qu'il la laissait à peu près sans ressources. Christophe monta, quatre à quatre, et entra »
 dans l'appartement du troisième, dont la porte était:
 ouverte, Il trouva l'abbé Corneille auprès du mort,etla
-petite fille en larmes, qui appelait son papa; la con-
-cierge essayait maladroitement de la consoler. Chris- »
+petite fille en larmes, qui appelait son papa; la concierge essayait maladroitement de la consoler. Chris- »
 ; tophe prit l'enfant dans ses bras, il lui dit des mots
 tendres. La petite s'accrocha désespérément à lui; ne
 pouvait songer à la quitter; il voulut l'emporter de
@@ -6724,8 +6466,7 @@ A NE elle fut partie. RNCS
 Olivier sourit, et l''embrassa.
 A peu de jours de là, Christophe reçut par la poste a
 : de une photographie, qui représentait une petite fille
-ne inconnue, assise sur un tabouret, ses menottes sage-
-ment croisées sur ses genoux, et qui le regardait avec
+ne inconnue, assise sur un tabouret, ses menottes sagement croisées sur ses genoux, et qui le regardait avec
 des yeux clairs et mélancoliques. Au-dessous, il y avait
 ces mots écrits: 1 LORIENT
 1 « Ma petite morte vous remercie. » CAN
@@ -6747,8 +6488,7 @@ normale, harmonieuse, — joie d'un utile emploi de son
 que l'on sert à quelque chose de grand. Pour cela, il
 faudrait un pays qui se portât bien, une patrie qui fût si
 3 dans une période de grandeur, ou — (ce qui vaut mieux
-encore) — d'acheminement vers la grandeur. Et il fau-
-drait aussi — (les deux vont ensemble) — un pouvoir
+encore) — d'acheminement vers la grandeur. Et il faudrait aussi — (les deux vont ensemble) — un pouvoir
 qui sût mettre en œuvre toutes les énergies de la a
 . nation, un pouvoir intelligent et fort, qui fût au-dessus
 À des partis. Or, il n'est de pouvoir au-dessus des
@@ -6759,7 +6499,7 @@ Je chien couchant des médiocres, mais qui s'impose à
 4 tous par les services rendus: général victorieux, dicta-
 
 NAS Jean-Christophe Gris j'Re
-#0 ture de Salut public, suprématie de l'intell gence.…
+0 ture de Salut public, suprématie de l'intell gence.…
 Que sais-je? Cela ne dépend pas de nous. Il faut que
 l'occasion naiïsse, et aussi les hommes qui sachent la
 saisir; il faut du bonheur et du génie. Attendons et.
@@ -6768,12 +6508,10 @@ science, du travail, de la vieille France et dela France
 nouvelle, de la plus grandé France... Quelle poussée ce
 serait, si le mot était dit, le mot magique quilancerait
 NE toutes ces forces unies! Ce mot, naturellement, ce est
-A ni toi, ni moi, qui pouvons le dire. Qui le dira? La vic-
-toire, la gloire?.. Patience! L'essentiel, c'est que tout ce
+A ni toi, ni moi, qui pouvons le dire. Qui le dira? La victoire, la gloire?.. Patience! L'essentiel, c'est que tout ce
 qui est fort dans la race se recueille, ne se détruise pas
 FREIN soi-même, ne se décourage pas avant l'heure. Bonheur
-et génie ne viennent qu'aux peuples qui ont les méri-
-ter par des siècles de patience stoïque, de labeur et …
+et génie ne viennent qu'aux peuples qui ont les mériter par des siècles de patience stoïque, de labeur et …
 FAN Qui sait? dit Christophe. Ils viennent souvent
 plus tôt qu'on ne croit, — au moment où on les attend
 PAPA) le moins. Vous tablez trop sur les siècles. Préparez_! vous. Ceignez vos reins. Ayez toujours vos souliers
@@ -6803,8 +6541,7 @@ net dictent à l'État, parfois avec la complicité secrète de
 (9 prendre parti; ses insolents journaux la sommaient de
 a « se déclarer pour l'Allemagne, ou sinon menaçaient de
 À lui faire payer les premiers frais de la guerre; ils pré-
-“4 tendaient arracher son alliance par la peur, et la trai-
-iaient d'avance en vassale battue et contente, — pour
+“4 tendaient arracher son alliance par la peur, et la traiiaient d'avance en vassale battue et contente, — pour
 tout dire,en Autriche. On reconnaissait démence
 
 Jean-Christophe à Paris
@@ -6818,7 +6555,7 @@ l'Europe, que l'Allemagne n'avait jamais connus, cette
 l'Allemagne en attendait. Elle avait fait cabrer son
 orgueil assoupi; la France frémissait, de la base à la
 cime; et les plus indifférents en criaient de colère. à
-La masse de la nation allemande n'était pour rien «: dans ces provocations, qui la choquaient elle-même
+La masse de la nation allemande n'était pour rien dans ces provocations, qui la choquaient elle-même
 les braves gens de tous pays ne demandent qu'à vivre
 en paix; et ceux d'Allemagne sont particulièrement
 pacifiques, affectueux, désireux d'être bien avec tous,et
@@ -6833,16 +6570,13 @@ des chefs, et qui en fait la Marseillaise où la Wacht amd
 C'était un coup terrible pour Christophe et Olivier.
 Ils étaient tellement habitués à s'aimer qu'ils ne conce="
 vaient plus pourquoi leurs pays ne faisaient pas de.
-même. Les raisons de cette hostilité persistante, brus-
-quement réveillée, leur échappaient à tous deux, et. à
+même. Les raisons de cette hostilité persistante, brusquement réveillée, leur échappaient à tous deux, et. à
 surtout à Christophe, qui, en sa qualité d'Allemand,
 n'avait aucun motif d'en vouloir à un peuple, que son
 
 peuple avait vaincu. Tout en étant choqué lui-même de
 
-J'insupportable orgueil de quelques-uns de ses compa-
-
-triotes, et en s'associant, dans une certaine mesure,
+J'insupportable orgueil de quelques-uns de ses compatriotes, et en s'associant, dans une certaine mesure,
 
 à lindignation des Français contre cette sommation
 
@@ -6870,9 +6604,7 @@ r. YAlsace-Lorraine. A l'école, il avait appris à considérer
 
 … l'annexion de ces pays comme un acte de justice, qui
 
-avait fait rentrer, après des siècles de sujétion étran-
-
-gère, une terre allemande dans la patrie allemande.
+avait fait rentrer, après des siècles de sujétion étrangère, une terre allemande dans la patrie allemande.
 
 4 … Aussi, tomba-t-il de son haut, quand il découvrit que son FRE
 
@@ -6888,9 +6620,7 @@ lui dire, sans passion, sans colère, avec une tristesse
 
 profonde, qu'un grand peuple pouvait bien renoncer à
 
-se venger d'un tel crime, mais qu'il ne pouvait y sou-
-
-scrire, sans se déshonorer.
+se venger d'un tel crime, mais qu'il ne pouvait y souscrire, sans se déshonorer.
 
 Ils eurent beaucoup de peine à se comprendre. Les À
 
@@ -6914,8 +6644,7 @@ ou déguisées, et même de services réels, rendus par
 lexacte et intelligente administration allemande, les
 Alsaciens persistaient à ne pas vouloir être Allemands;
 et, quand leur volonté lassée eût fini par céder, rien ne:
-pouvait effacer les souffrances des générations conel traintes à s'exiler de la terre natale, ou, plus doulou-
-reusement encore, ne pouvant en partir et contraintes"
+pouvait effacer les souffrances des générations conel traintes à s'exiler de la terre natale, ou, plus douloureusement encore, ne pouvant en partir et contraintes"
 à y subir un joug qui leur était odieux, le vol de leur
 pays et l'asservissement de leur peuple.
 Christophe avouait naïvement qu'il n'avait jamais,
@@ -6941,8 +6670,7 @@ elle l'était plus encore pour Olivier. Ce n'était pas
 . assez de la tristesse d'une lutte fratricide entre les deux
 nations les mieux faites pour s'associer. En France
 même, une partie de la nation s'apprêtait à lutter contre:
-l'autre partie. Depuis des années, les doctrines paci-
-fistes et antimilitaristes se répandaient, propagées à la
+l'autre partie. Depuis des années, les doctrines pacifistes et antimilitaristes se répandaient, propagées à la
 …. fois par les éléments les plus nobles et les plus vils de
 nation. L'État les avait longtemps laissé faire, avec
 le dilettantisme énervé qu'il apportait à tout ce qui ne
@@ -6976,17 +6704,14 @@ amis ne partiraient pas pour la frontière, avant d'avoir
 réglé leur compte aux ennemis intérieurs. Augustin
 Elsberger prenait le parti de Mooch. Christophe tomba,
 un jour, dans une scène terrible entre les deux frères.
-Ils se menaçaient l'un l'autig de se faire fusiller. Mal-
-gré le ton de plaisanterie, qui faisait passer ces paroles
+Ils se menaçaient l'un l'autig de se faire fusiller. Malgré le ton de plaisanterie, qui faisait passer ces paroles
 : meurtrières, on avait le sentiment qu'ils ne disaient rien
 tous deux, qu'ils ne fussent décidés à accomplir. Christophé considérait avec étonnement cette absurdenation,
 qui est toujours prête à se suicider pour des idées. Des #4
 fous. Des fous logiques. Ce sont les bons. Chacun ne
 voit que son idée, et veut aller jusqu'au bout, sans se
-déranger d'un pas. Et cela ne sert à rien: car ils s'an-
-nihilent l'un l'autre. Les humanitaristes font la guerre
-aux patriotes. Les patriotes font la guerre aux humani-
-taristes. Pendant ce temps, l'ennemi vient, et écrase à
+déranger d'un pas. Et cela ne sert à rien: car ils s'annihilent l'un l'autre. Les humanitaristes font la guerre
+aux patriotes. Les patriotes font la guerre aux humanitaristes. Pendant ce temps, l'ennemi vient, et écrase à
 la fois la patrie et l'humanité.
 — Mais enfin, demandait Christophe à Augustin”
 à Elsberger, vous êtes-vous entendus avec les prolétaires Ta
@@ -6996,8 +6721,7 @@ ce doit être nous. Nous avons toujours été les preémiers.«; À nous de donn
 
 4 — Et si les autres ne marchent pas?
 2. — Avez-vous des traités, un plan tracé d'avance?
-— Qu'est:il besoin de traités? Notre force est supé-
-rieure à toutes les diplomaties.
+— Qu'est:il besoin de traités? Notre force est supérieure à toutes les diplomaties.
 — Ce n'est pas une question d'idéologie, mais de
 stratégie. Si vous voulez tuer la guerre, prenez à la
 guerre ses méthodes. Dressez votre plan d'opérations
@@ -7009,8 +6733,7 @@ d'un côté, d'énormes forces organisées de l'autre, — le
 
 - résultat est certain: vous serez écrasés. Augustin n'écoutait pas. Il haussait les épaules et se
 contentait de menaces vagues: il suflisait, disait-il,
-d'une poignée de sable au bon endroit, dans l'engre-
-nage, pour briser la machine tout entière. À
+d'une poignée de sable au bon endroit, dans l'engrenage, pour briser la machine tout entière. À
 À Mais autre chose est de discuter à loisir, d'une façon LE
 théorique, ou d'avoir à mettre ses pensées en pratique,
 : surtout quand il faut prendre parti sur-le-champ.…:
@@ -7024,17 +6747,14 @@ pas vous, c'est cette Force inconnue, dont les lois gou- À
 Les intelligences les plus fermes, les plus sûres de
 
 leur foi, la voyaient se dissoudre, au souffle de la
-réalité, vacillaient, tremblaient de se décider, et sou-
-vent, à leur grande surprise, se décidaient dans un
+réalité, vacillaient, tremblaient de se décider, et souvent, à leur grande surprise, se décidaient dans un
 
 . autre sens que celui qu'elles avaient prévu. rtains
 des plus ardents à combattre la guerre sentaient se
 Hets réveiller, avec une violence inattendue, le vigoureux
 orgueil et la passion de la patrie. Christophe voyait »
-Un des socialistes, et jusqu'à des syndicalistes révolution-
-naïres, qui étaient écartelés entre ces devoirs et ces
-passions ennemis. Dans les premières heures du con-
-ta flit, où il ne croyait pas encore au sérieux de l'affaire,
+Un des socialistes, et jusqu'à des syndicalistes révolutionnaïres, qui étaient écartelés entre ces devoirs et ces
+passions ennemis. Dans les premières heures du conta flit, où il ne croyait pas encore au sérieux de l'affaire,
 idità Augustin Elsberger, avec la maladresse alle
 VUE mande, que c'était le moment d'appliquer ses théories,
 NEA s'il ne voulait pas que l'Allemagne prit la France.
@@ -7042,16 +6762,12 @@ L'autre bondit, et répondit, avec colère: DRE
 — Essayez un peu! Bougres, qui n'êtes même pas
 foutus de museler votre empereur, et de secouer le joug,
 malgré votre sacro-saint Parti socialiste, avec ses
-quatre cent mille adhérents, et ses trois millions d'élec-
-teurs! Nous nous en chargeons, nous autres! Prenez-
-nous. Nous vous prendrons. de
+quatre cent mille adhérents, et ses trois millions d'électeurs! Nous nous en chargeons, nous autres! Preneznous. Nous vous prendrons. de
 . À mesure que l'attente se prolongeait, la fièvre couAP vait chez tous. Augustin était torturé. Savoir qu'une
 CAES foi est vraie, et qu'on ne peut la défendre! Et puis, à
 es se sentir atteint par cette épidémie morale, qui propage
-dans les peuples la puissante folie des pensées collec-
-me tives, le souffle de la guerre! Elle travaillait tous ces
-gens qui entouraient Christophe, et Christophe Jai-
-les uns des autres.
+dans les peuples la puissante folie des pensées collecme tives, le souffle de la guerre! Elle travaillait tous ces
+gens qui entouraient Christophe, et Christophe Jailes uns des autres.
 Mais il était impossible de rester longtemps dans cet.
 ne état d'incertitude. Le vent de l'action rejetait, bon gré,
 mal gré, les irrésolus dans l'un ou l'autre parti. Etun
@@ -7068,8 +6784,7 @@ Hamiltoz avait la larme à l'œil. Et tous étaient sincères,
 tous étaient pris par la contagion. Augustin Elsberger
 et ses amis syndicalistes, aussi bien que les autres, —.
 plus que les autres: écrasés par la nécessité des choses,
-obligés à un parti qu'ils détestaient, ils s'y détermi-
-naient avec une fureur sombre, une rage pessimiste,
+obligés à un parti qu'ils détestaient, ils s'y déterminaient avec une fureur sombre, une rage pessimiste,
 qui faisait d'eux des instruments forcenés pour l'action. L'ouvrier Aubert, tiraillé entre son humanitarisme appris et son chauvinisme instinctif, avait failli
 en perdre la tête. Après plusieurs nuits blanches, il.
 : avait fini par trouver une formule qui arrangeait tout:
@@ -7101,8 +6816,7 @@ déchirements intérieurs, qu'il prévoyait malgré tout, il
 savait la grandeur des deux fois ennemies, qui tôt où
 tard allaient se livrer bataille; il savait aussi que c'est
 le rôle de la France d'être le champ d'expériences si
-pour le progrès humain, et que toutes les idées nou-
-velles ont besoin, pour fleurir, d'être arrosées de son
+pour le progrès humain, et que toutes les idées nouvelles ont besoin, pour fleurir, d'être arrosées de son
 , sang. Pour lui, il se refusait à prendre parti dansla
 mêlée. Dans cet entrégorgement de la civilisation, il eût De
 redit volontiers la devise d'Antigone: « Je suis fait pour “4
@@ -7114,14 +6828,12 @@ prêtaient à se hair, il sentait que le devoir, ainsi que le
 bonheur, de deux âmes comme la sienne et celle de
 Christophe, était de s'aimer, et de garder leur raison 4 à
 intacte, dans la tourmente. Il se souvenait de Goethe;
-refusant de s'associer au mouvement de haine libéra-
-trice, qui lançait en 1813 l'Allemagne contre la France. NW:
+refusant de s'associer au mouvement de haine libératrice, qui lançait en 1813 l'Allemagne contre la France. NW:
 
 Je Christophe sentait tout cela; et pourtant, il métait
 point tranquille. Lui qui avait en quelque sorte déserté
 d'Allemagne, qui n'y pouvait rentrer, lui qui était nourri
-de la pensée Européenne des grands Allemands du dix-
-huitième siècle, chers à son vieil ami Schulz, et qui
+de la pensée Européenne des grands Allemands du dixhuitième siècle, chers à son vieil ami Schulz, et qui
 détestait l'esprit de l'Allemagne nouvelle, militariste et
 mercantile, il entendait se lever en lui une bourrasque
 de passions; et il ne savait pas de quel côté elle allait
@@ -7290,8 +7002,7 @@ Christophe s'était rejeté dans la création, avec un
 entrain décuplé. Il y entraïnait avec lui Olivier. Ils s'é-
 taient mis à composer ensemble, par réaction contre
 les pensées sombres, une épopée Rabelaisienne. Elle
-: était teinte de ce large matérialisme, qui suit les pé-
-riodes de compression morale. Aux héros légendaires,
+: était teinte de ce large matérialisme, qui suit les périodes de compression morale. Aux héros légendaires,
 — Gargantua, frère Jean, Panurge, — Olivier avait
 ajouté, sous l'inspiration de Christophe, un personnage
 nouveau, un paysan, Jacques Patience, naïf, rusé,
@@ -7309,17 +7020,14 @@ grande boucke silencieuse. Un beau jour, en effet,
 
 - Jean-Christophe à Paris
 Gargantua et frère Jean se noyaient, en croisade.
-Patience les regrettait bonnement, se consolait gaie-
-ment, sauvait Panurge qui se noyait, et disait: « Je Ne
+Patience les regrettait bonnement, se consolait gaiement, sauvait Panurge qui se noyait, et disait: « Je Ne
 sais bien que tu me joueras encore des tours, je ne suis à
 pas dupe; mais je ne puis me passer de toi: tu es utile à
 Sur ce poème, Christophe composait de grands à à
 à tableaux symphoniques, avec soli et chœurs, des batailles À
-héroï-comiques, des kermesses déboutonnées, des bouf-
-fonneries vocales, des madrigaux à la annequin, d'une À
+héroï-comiques, des kermesses déboutonnées, des bouffonneries vocales, des madrigaux à la annequin, d'une À
 joie énorme et enfantine, une tempête sur la mer, l'Ile
-sonnante et ses cloches, et, à la fin, une symphonie pas-
-torale, pleine de l'air des prairies, de l'allégresse sereine -
+sonnante et ses cloches, et, à la fin, une symphonie pastorale, pleine de l'air des prairies, de l'allégresse sereine -
 des flûtes et des hautbois, et des chansons populaires
 de la vieille France, à l'âme claire. — Les deux amis
 ; travaillaient dans une jubilation continuelle. Le maïgriot
@@ -7331,8 +7039,7 @@ accouplement de deux âmes amies. Elles avaient fini
 par se fondre si bien qu'il leur arrivait d'avoir les
 mêmes éclairs de pensée, à la fois. Ou bien Christophe à à
 écrivait la musique d'une scène, dont Olivier trouvait
-ensuite les paroles. Il l'emportait dans son sillage impé-
-tueux. Son esprit couvrait l'autre, et le fécondait.
+ensuite les paroles. Il l'emportait dans son sillage impétueux. Son esprit couvrait l'autre, et le fécondait.
 Au bonheur de créer se joignait le plaisir de vaincre.
 Hecht venait de se décider à publier le David; et la, 2.10.
 partition, bien lancée, avait un retentissement immé- 4%
@@ -7342,8 +7049,7 @@ ami de Hecht, établi en Angleterre, s'était enthou®
 siasmé pour l'œuvre; il l'avait donnée, à plusieurs de
 : ses concerts, avec un succès considérable, qui s'était
 répercuté, avec l'enthousiasme du kapellmeister, en
-Allemagne, où le David avait été joué aussi. Le kapell-
-meister s'était mis en relations avec Christophe; il lui:
+Allemagne, où le David avait été joué aussi. Le kapellmeister s'était mis en relations avec Christophe; il lui:
 avait demandé d'autres ouvrages, il lui avait offert ses
 services, il faisait pour lui une propagande acharnée.
 On redécouvrit en Allemagne l/phigénie, qui y avait
@@ -7351,14 +7057,11 @@ On redécouvrit en Allemagne l/phigénie, qui y avait
 La Frankfurter Zeitung publia, la première, un article
 retentissant. D'autres suivirent. Alors, quelques-uns, en
 France, s'avisèrent qu'ils avaient chez eux un grand
-musicien. Un des directeurs de concerts de Paris de-
-manda à Christophe son épopée Rabelaisienne, ayant (2
+musicien. Un des directeurs de concerts de Paris demanda à Christophe son épopée Rabelaisienne, ayant (2
 qu'elle fût finie; et Goujart, pressentant la célébrité (se
 d'un génie de ses amis, qu'il avait découvert. Il célébra -
-dans un article son admirable David, — ne se souve-
-nant même plus qu'il lui avait consacré, dans un article
-de l'an passé, deux lignes injurieuses. Et personne au-
-tour de lui ne s'en souvenait davaniage,ou ne songeait?
+dans un article son admirable David, — ne se souvenant même plus qu'il lui avait consacré, dans un article
+de l'an passé, deux lignes injurieuses. Et personne autour de lui ne s'en souvenait davaniage,ou ne songeait?
 à s'étonner du revirement. Combien à Paris ont bafoué
 Wagner et Franck, qui les célèbrent aujourd'hui, et. a
 s'en servent pour écraser des artistes nouveaux, qu'ils
@@ -7387,7 +7090,7 @@ une revanche pour lui de voir cette misérable production, qui lui avait valu na
 par les critiques allemands, et demandée par les
 théâtres, comme le lui apprenait une lettre venue de
 Dresde, où on lui disait qu'on serait heureux de monter
-la pièce, pour la saison prochaine. “4 »,
+la pièce, pour la saison prochaine. “4
 
 Le jour même où Christophe recevait cette nouvelle,
 qui lui faisait entrevoir enfin, après des années de misère, des horizons plus calmes et la victoire au loin,
@@ -7494,8 +7197,7 @@ Jean-Christophe à Paris
 ; artère, toutes les forces de vie de l'une et l'autre rives.
 — Étrange sérénité, calme et clarté soudains, qui lui
 . apparaissaient, comme il arrive parfois, à l'heure la
-plus sombre... Puis, la vision se dissipa; et, seule, repa-
-rut la figure douloureuse et tendre de la vieille maman.
+plus sombre... Puis, la vision se dissipa; et, seule, reparut la figure douloureuse et tendre de la vieille maman.
 L'aube s'annonçait à peine, lorsqu'il arriva dans la
 petite ville allemande. Il lui fallait prendre garde de
 n'être pas reconnu; Car il était toujours sous le coup
@@ -7523,8 +7225,7 @@ main sur sa bouche, pour s'empêcher de crier. Com. »
 
 ment allait-il trouver celle qui était là, celle qu'il avait
 
-abandonnée?.… 11 reprit haleine, et courut presque; jus-
-qu'à la porte. Elle était entrouverte. Il la poussa. Per- Me
+abandonnée?.… 11 reprit haleine, et courut presque; jusqu'à la porte. Elle était entrouverte. Il la poussa. Per- Me
 sonne. Le vieil escalier de bois craquait sous ses pas.:
 
 11 monta à l'étage au-dessus. La maison semblait vide.
@@ -7545,8 +7246,7 @@ affaires; elle n'était pas trop exacte, et tardait souvent -
 comme elle trouvait tout naturel d'avoir mal. Elle était
 d'une patience angélique, étant habituée à souffrir. Elle
 avait le cœur malade, et des suffocations, pendant les- SRE
-quelles elle croyait qu'elle allaït mourir: les yeux di-
-latés, les mains crispées sur ses draps, la sueur coulant
+quelles elle croyait qu'elle allaït mourir: les yeux dilatés, les mains crispées sur ses draps, la sueur coulant
 sur son visage. Elle ne se plaignaïit pas. Elle savait que:
 ce devait être ainsi. Elle était prête; elle avait déjà
 reçu les sacrements. Elle n'avait qu'une inquiétude::
@@ -7562,16 +7262,14 @@ son amour des premiers temps, celle du vieux grand-:
 
 47 ment touchant pour tous ceux qui avaient été bons, si
 à peu que ce fût, pour elle. Elle avait épinglé sur le drap
-son de son lit, tout près de son visage, la dernière photoHe graphie que Christophe lui avait envoyée; et ses der-
-nières lettres étaient sous l'oreiller. Elle avait conservé
+son de son lit, tout près de son visage, la dernière photoHe graphie que Christophe lui avait envoyée; et ses dernières lettres étaient sous l'oreiller. Elle avait conservé
 l'amour de l'ordre et de la propreté méticuleuse;etelle
 souffrait de ce que tout, dans sa chambre, ne füt pas
 parfaitement rangé. Elle s'intéressait aux petits bruits
 du dehors, qui marquaient pour elle les divers moments
 du jour. Il avait si longtemps qu'elle les entendait!
 . Toute sa vie passée dans cet étroit espace. Elle penLe sait à son cher Christophe. Quel immense désir elle
-avait qu'il füt là, près d'elle, en ce moment! Et pour-
-je tant, même à ce qu'il ne fût pas elle était résignée.…
+avait qu'il füt là, près d'elle, en ce moment! Et pourje tant, même à ce qu'il ne fût pas elle était résignée.…
 a Elle était sûre de le revoir là-haut. Elle n'avait qu'à
 dan fermer les yeux pour le voir déjà. Elle passait des
 journées, assoupie, au milieu du passé.
@@ -7777,13 +7475,10 @@ Christophe ne rentrât pas seul à Paris.
 Le train partit, et Olivier revint à la maison, où il
 trouva, à l'entrée, deux gendarmes qui attendaient le
 retour de Christophe. Ils prirent Olivier pour lui. Olivier
-ne se pressa point d'éclaircir une méprise, qui favo-
-risait la fuite de Christophe. Au reste, la police ne …
+ne se pressa point d'éclaircir une méprise, qui favorisait la fuite de Christophe. Au reste, la police ne …
 manifesta aucune déconvenue de son erreur; elle mon-
 
-« trait un empressement assez tiède à rechercher le fugi-
-
-tif, et il sembla même à Olivier qu'au fond, elle n'était
+« trait un empressement assez tiède à rechercher le fugitif, et il sembla même à Olivier qu'au fond, elle n'était
 pas fâchée que Christophe fût parti.
 
 Olivier resta jusqu'au lendemain matin, pour l'enterrement de Louisa. Le frère de Christophe, Rodolphe,
@@ -7810,8 +7505,7 @@ les coups sourds de la cognée. Ils arrivèrent à une clai-
 : rière, au sommet d'une colline. Au-dessous d'eux, dans
 un vallon étroit, encore en pays allemand, le toit rouge
 d'une maison forestière, un petit pré, comme un lac
-vert entre les bois. Tout autour, l'océan des forêts bleu-
-sombre, enveloppées de vapeurs. Des brouillards se #4
+vert entre les bois. Tout autour, l'océan des forêts bleusombre, enveloppées de vapeurs. Des brouillards se #4
 glissaient entre les branches des sapins. Un voile transparent amollissait les lignes, amortissait les couleurs. “4
 Tout était immobile. Ni bruit de pas, ni son de voix.
 Quelques gouttes de pluie sonnaïient sur le cuivre doré
@@ -7830,8 +7524,7 @@ nous. Pense à lui.
 
 Ils se regardèrent tous deux, et chacun ne sentit plus
 sa peine, mais celle de son ami. Ils se prirent la main.
-Une sereine mélancolie les enveloppait tous deux. Doucement, sans un souffle d'air, le voile de vapeurs s'effa-
-çait; le ciel bleu refleurissait. Douceur attendrissante
+Une sereine mélancolie les enveloppait tous deux. Doucement, sans un souffle d'air, le voile de vapeurs s'effaçait; le ciel bleu refleurissait. Douceur attendrissante
 
 de la terre après la pluie... Si près de nous, si tendre!
 Elle vous prend dans ses bras, sur son sein, avec un
@@ -7960,7 +7653,7 @@ recommandés à la poste; la recommandation postale, __.
 comportant une transmission de signature, garantit le —.
 destinataire contre certains abus; pour cette recom- es ne
 mandation, pour tous pays, en sus, cinq francs..
-Automatiquement et sans augmentation de prix les À:
+Automatiquement et sans augmentation de prix les
 exemplaires sur whatman sont tous recommandés et
 envoyés aux souscripteurs dans des enveloppes-sacs.
 L'abonnement ordinaire cesse de fonctionner pour!

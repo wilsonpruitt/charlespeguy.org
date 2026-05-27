@@ -34,9 +34,7 @@ que, au risque de se corrompre, elles cherchent à
 5 à la vie publique: il ne faudrait pas que les
 devinssent des tours nouvelles où des hommes de
 
-la classe ouvrière s'enfermeraient avec des intellec-
-
-tuels. Qu'au moment de leur naissance, leur vie soit
+la classe ouvrière s'enfermeraient avec des intellectuels. Qu'au moment de leur naissance, leur vie soit
 
 È tout intérieure, c'est nécessaire; mais, quand elles sont grandissantes, elles doivent témoigner de leur
 
@@ -52,9 +50,7 @@ commencent à jouer ce rôle; à Paris, elles ont
 
 A affirmer en plusieurs occasions leur force extérieure
 
-È (campagne contre l'emploi du blanc de céruse, mou-
-
-vement de sympathie vers les étudiants russes..….).
+È (campagne contre l'emploi du blanc de céruse, mouvement de sympathie vers les étudiants russes..….).
 
 Pour agir ainsi extérieurement, elles ont à envi- à sager quels liens les uniront entre elles, quels liens
 
@@ -83,8 +79,7 @@ des Universités Populaires. Elle s'est fondée au
 classe ouvrière, et elle n'a réuni que des individualités bourgeoises; elle ne doit donc point intervenir
 directement dans la conduite des U. P., lesquelles
 sont ouvrières. Mais précisément parce qu'elle réunit des gens qui aiment la liberté pour elle-même, et
-- veulent que la classe ouvrière conquière son éman-
-cipation, elle peut jouer, vis-à-vis de l'ensemble
+- veulent que la classe ouvrière conquière son émancipation, elle peut jouer, vis-à-vis de l'ensemble
 — des U. P., le rôle que j'ai attribué aux intellectuels
 isolés vis-à-vis de chaque U.P.: un rôle consultatif.
 Que la Société des U. P., sans prétendre à aucune
@@ -257,8 +252,7 @@ savoir si, en fait, nos représentants donnent toute
 2 nous contentons de cette situation. »
 Pourquoi donc fait-on des lois sur les associations
 religieuses, si celles-ci se contentent du régime du
-Avant la Révolution le problème de la main-
-morte se posait surtout au point de vue agronoci mique; on observait que les vastes domaines des
+Avant la Révolution le problème de la mainmorte se posait surtout au point de vue agronoci mique; on observait que les vastes domaines des
 abbayes étaient souvent négligés, parce que les
 moines ne voulaient pas se priver d'une partie de
 “4 leurs revenus pour faire des améliorations; les
@@ -336,9 +330,7 @@ une progression croissante. Ce qu'il y a surtout
 d'essentiel dans les pays de liberté moderne, c'est le contrôle exercé par le premier venu sur les pou- voirs publics; et la législation relative à la presse a
 
 été rédigée de manière à ce que le contrôle puisse s'exercer à peu près sans limites. Le respect de l'autorité est réduit à rien en politique, tout comme
-en industrie; la revision des lois est perpétuelle-
-
-ment à l'ordre du jour, comme la transformation
+en industrie; la revision des lois est perpétuellement à l'ordre du jour, comme la transformation
 
 des procédés techniques reçus.
 
@@ -358,9 +350,7 @@ la nature, cette indépendance de chaque produc- teur qui essaie ce qu'il invent
 
 É anciens des choses pour essayer au hasard du génie de chacun. Il semble à l'Église que cette audace du
 
-"4 Prométhée moderne ressemble fort à un sacrilège aussi n'a-t-elle pas manqué de lancer des ana-
-
-thèmes contre cet esprit qui ne respecte rien.
+"4 Prométhée moderne ressemble fort à un sacrilège aussi n'a-t-elle pas manqué de lancer des anathèmes contre cet esprit qui ne respecte rien.
 
 Les auteurs catholiques ont assez généralement bien que l'anarchie religieuse, l'anarchie poli-
 
@@ -374,9 +364,7 @@ révolte qui s'empara de l'humanité au seizième
 
 siècle; ce seraient trois aberrations de l'esprit,
 
-: dont le protestantisme devrait porter la principale responsabilité. (1) « C'est le même faux dogme de la liberté absolue qui, après avoir commencé son ne œuvre de destruction dans le domaine religieux, après avoir continué ses ravages dans l'ordre poli-
-
-tique, devait compléter son action dissolvante dans à A l'ordre économique. » Il semble beaucoup plus vrai-
+: dont le protestantisme devrait porter la principale responsabilité. (1) « C'est le même faux dogme de la liberté absolue qui, après avoir commencé son ne œuvre de destruction dans le domaine religieux, après avoir continué ses ravages dans l'ordre politique, devait compléter son action dissolvante dans à A l'ordre économique. » Il semble beaucoup plus vrai-
 
 4 semblable que c'est l'inverse qui est vrai; le protesà tantisme est devenu libre quand il a pénétré dans
 4 (1) Charles Antoine, Cours d'économie sociale, pages 190-191. L'auPal teur est jésuite.
@@ -407,13 +395,12 @@ Waltzing. Étude historique sur les corporations professionnelles
 chez les Romains, depuis les origines jusqu'à la chute de l'Empire,
 
 ne L'un des plus grands efforts de la lés islation À
-. moderne a pour but de séparer, autant que pos-
-sible, l'administration et la justice, afin que les
+. moderne a pour but de séparer, autant que possible, l'administration et la justice, afin que les
 habitudes d'esprit que prend l'administrateur ne
 viennent pas vicier l'esprit du juge. Sous l'Ancien
 Régime, il y avait souvent confusion entre ces
 4 deux offices, et nos pères avaient été vivement frapXI pés par des abus qu'ils voulurent faire disparaître.
-2 Dans justice, la discussion s'engageant entre des
+Dans justice, la discussion s'engageant entre des
 4 personnes abstraites qui fondent leurs prétentions
 sur des principes généraux, la qualité des plaideurs
 n'entrant pas en ligne de compte, le citoyen peut se
@@ -460,8 +447,7 @@ entre les amis de l'accusé; ainsi quand un fait était déjà considéré
 ._ légale) il n'était pas admis qu'il y eût une preuve contraire à
 
 rateurs » (article 6); comme dans beaucoup de
-238 mesures prises par le gouvernement révolution-
-naire on retrouve ici l'influence de l'esprit d'Ancien
+238 mesures prises par le gouvernement révolutionnaire on retrouve ici l'influence de l'esprit d'Ancien
 E. 4 Régime si puissant chez Robespierre.
 L'Église —comme les modernes criminologistes —
 4 ne comprend pas que l'accusé puisse prétendre se
@@ -473,8 +459,7 @@ Toutes les personnes qui ont étudier le fonctionNi: nement des oflicialités à
 (550) ont se rendre compte des raisons pratiques qui
 avaient fait donner tant d'extension à l'appel comme
 1 d'abus, au moyen duquel on finit par enlever
-UN presque toutes les affaires aux tribunaux ecclésias-
-tiques pour les porter devant les Parlements: les
+UN presque toutes les affaires aux tribunaux ecclésiastiques pour les porter devant les Parlements: les
 officialités étaient une caricature de la justice.
 L'Église a toujours réclamé avec insistance le
 jugement des testaments et celui des mariages,
@@ -484,8 +469,7 @@ jeu devraient être subordonnés à des considérations
 RUE %. de conscience.
 (Eos Le testament est, pour l'Église, un acte qui
 74 aucune raison économique; il a pour objet des
-:04) œuvres satisfactoires destinées à permettre la puri54
-fication de l'âme du moribond. (1) Tandis que, pour
+:04) œuvres satisfactoires destinées à permettre la purification de l'âme du moribond. (1) Tandis que, pour
 Le Play, le testament se justifie par les besoins du
 domaine paternel, qu'aux convenances de l'exploi- (0 Le à
 tation on doit sacrifier les intérêts des enfants, qu'on RUE
@@ -505,7 +489,7 @@ quels étaient les besoins de son salut et savoir s'il
 prenait la défense du malheureux absent contre des,
 héritiers avides; elle faisait œuvre de protection et
 de charité — en même temps qu'elle augmentait ses
-4 Le mariage a des fins très multiples; mais ce qui
+Le mariage a des fins très multiples; mais ce qui
 est surtout important, ce qui a justifié, d'après le
 A catéchisme romain, la dignité de sacrement qu'on EUA:
 lui reconnaît, c'est qu'il sert à procréer des sujets
@@ -576,16 +560,14 @@ juge convenable; il n'y a guère de cas où les canoRU..
 “44 juridique aux décisions les plus arbitraires; mais
 comme toutes leurs subtilités ne seraient pas encore
 à toujours suffisantes, l'Église s'est assuré la faculté
-de passer par-dessus les règles, en réservant au pon-
-tife romain le droit de décider ce qu'il juge bon de
+de passer par-dessus les règles, en réservant au pontife romain le droit de décider ce qu'il juge bon de
 À décider pour le plus grand bien de la communauté.
 Cette intervention, qui donne tant de liberté à
 l'administration, supprime à peu près totalement le
 droit: pour employer le langage des philosophes
 grecs, l'Église substitue le régime des décrets au
 …. régime des lois. (1)
-Le droit ecclésiastique est un droit tout à fait ana-
-logue à la partie du droit pénal qui s'occupe des
+Le droit ecclésiastique est un droit tout à fait analogue à la partie du droit pénal qui s'occupe des
 crimes politiques; les condamnations prononcées
 pour délit politique n'ont jamais été assimilées aux
 condamnations ordinaires. Le type le plus parfait
@@ -640,12 +622,11 @@ que cela est insuffisant et qu'il faut faire dériver
 cette opposition des théories que la société moderne
 à et l'Église se font sur la science. Taine a soutenu
 4 cette opinion et il est nécessaire d'en dire quelques
-64 Pendant très longtemps les représentants des
+Pendant très longtemps les représentants des
 idées libérales ont prétendu que le monde est verné par des principes; mais dans ces dernières
 5 années il s'est produit un grand changement dans
 leur manière de penser; on pourrait dire que
-; d'idéalistes ils sont devenus matérialistes. La pra-
-tique du gouvernement leur a montré que les choses
+; d'idéalistes ils sont devenus matérialistes. La pratique du gouvernement leur a montré que les choses
 “2 ne se passent point aussi simplement qu'ils le
 
 croyaient autrefois et ils proclament maintenant
@@ -737,7 +718,7 @@ furent pas des luttes entre deux conceptions scienW tifiques plutôt que de vrai
 A les dénonciations des théologiens servaient souvent
 É à satisfaire bien des haïnes, comme nous l'a montré
 M. Lea dans son Histoire de l'Inquisition.
-148 Les théologiens qui condamnèrent Galilée
+Les théologiens qui condamnèrent Galilée
 croyaient que les nouvelles théories astronomiques
 pourraient troubler les âmes, parce qu'on avait
 toujours expliqué l'Écriture en se servant de la
@@ -795,8 +776,7 @@ même que nous ne savons bien exprimer nos
 
 finissons par nous attacher, d'une manière particu_ lière, aux idées que nous manifestons en nous
 servant des acquisitions les plus anciennes de
-notre mémoire. Les hommes qui ont reçu l'ensei-
-gnement primaire dans les écoles publiques créées
+notre mémoire. Les hommes qui ont reçu l'enseignement primaire dans les écoles publiques créées
 depuis la guerre ne peuvent parler d'histoire et de
 politique sans utiliser le vocabulaire extrêmement
 2°106 restreint qu'on leur a appris à manier, et ce voca_ bulaire est républicain et nationaliste. Ils sont
@@ -828,12 +808,11 @@ réactionnaires pour établir, avec leur aide, des
 écoles d'opposition. Aujourd'hui le clergé commence
 à comprendre qu'il a commis une grande faute et
 qu'il s'est trop laissé aller à des considérations
-d'intérêt immédiat et matériel; c'est par son impru-
-dence qu'il a créé une lutte de l'Église et de l'État.
+d'intérêt immédiat et matériel; c'est par son imprudence qu'il a créé une lutte de l'Église et de l'État.
 Quand il a que la République était bien assise,
 il a faussé compagnie aux monarchistes et a haute23
 114 ment proclamé son attachement a Constitution
-1 Les prêtres ont que l'enseignement laïque
+Les prêtres ont que l'enseignement laïque
 avait si fort attaché les nouvelles générations à la
 4 te formule républicaine qu'il était dangereux de ne
 31 pas reconnaître le fait accompli et ils ont pensé
@@ -854,8 +833,7 @@ hs, naïveté, comment le pays était devenu, tout d'un
 54 toujours été; il ne s'était passionné que pour la
 défense de la République par l'enseignement pri
 0 #4 maire. Il arriva même un moment où les polémiques
-me anticléricales semblèrent inintelligibles et souye-
-rainement ridicules. Il a fallu l'affaire Dreyfus pour
+me anticléricales semblèrent inintelligibles et souyerainement ridicules. Il a fallu l'affaire Dreyfus pour
 les faire renaître.!
 
 Ce ne sont pas des conflits idéologiques qui ont
@@ -899,8 +877,7 @@ De peu de gens s'occupèrent de se former une opinion
 ::0 sur ces dogmes, qui furent acceptés sans diflicultés.
 LA Le catholicisme donna ainsi la preuve qu'en
 LAN devenant beaucoup plus ardent, il était devenu
-beaucoup plus étranger à la philosophie qu'autre-
-fois; la philosophie ne comporte pas de division de
+beaucoup plus étranger à la philosophie qu'autrefois; la philosophie ne comporte pas de division de
 la société en classe pensante et en classes dégagées
 4 40 de la faculté de raisonner; la philosophie est toute
 L'art, la religion, la philosophie sont considérés
@@ -938,8 +915,7 @@ l'église, non point qu'il ait été converti à desidées
 nouvelles par des libres-penseurs urbains, mais
 744 parce qu'il n'a plus peur de son curé autant qu'au_ trefois. M. Gebhardt dit à propos de l'Italie
 “9 moderne: (1) « Depuis qu'un régime libéral a
-dispensé les Italiens d'un faux semblant de reli-
-giosité politique, le trait caractéristique du catho170 licisme, c'est l'indifférence. Elle n'empêche point
+dispensé les Italiens d'un faux semblant de religiosité politique, le trait caractéristique du catho170 licisme, c'est l'indifférence. Elle n'empêche point
 22 une pratique languissante, distraite, pour ainsi dire
 4 14 morcelée ou fortuite du culte ou de la discipline
 sacramentelle. Cette piété n'est point l'effet d'une
@@ -1079,8 +1055,7 @@ les faire cadrer à ses vues, à sa politique, mais par
 …. j'influence des choses temporelles ».
 1 4 On s'étonne parfois que la cour de Rome se
 montre si docile et qu'elle accepte, sans trop se
-m…. plaindre, des mesures contre lesquelles elle élève-
-raitles plus violentes protestations, si elles étaient
+m…. plaindre, des mesures contre lesquelles elle élèveraitles plus violentes protestations, si elles étaient
 (1) On peut appliquer à l'hypothèse de la disparition de l'Église ce
 à que M. Nordau dit de la disparition des différences de langues
 1 (Paradoxes sociologiques, page 156). L'hypothèse comporte un laps de
@@ -1112,8 +1087,7 @@ Pape des paroles d'encouragement, (1) capables de à
 4, (1) C'est du moins une opinion généralement répandue en Jialie. Il
 LE y eut, il y a quelques années, une assez vive polémique parce que À
 
-ê&* lui faire croire que la Fille aînée de l'Église défen-
-drait le Vatican en cas de conflit avec l'Italie.
+ê&* lui faire croire que la Fille aînée de l'Église défendrait le Vatican en cas de conflit avec l'Italie.
 Depuis le Concordat, la cour de Rome a toujours
 considéré les intérêts particuliers des catholiques
 français comme pouvant être négligés et devant
@@ -1180,8 +1154,7 @@ Les lois dépendent du peuple, mais d'une manière
 Les constitutions libérales n'ont pas tant pour
 but de permettre l'accomplissement des volontés
 4 populaires que de créer des obstacles aux volontés
-“des partis, de manière à assurer une certaine conti-
-nuité dans la législation. Le régime parlementaire
+“des partis, de manière à assurer une certaine continuité dans la législation. Le régime parlementaire
 3 est pratiquement parvenu, beaucoup mieux que
 n'auraient le faire toutes les constitutions les
 (1) Sur la grande différence qui existe entre l'opinion d'un Parle- de
@@ -1318,9 +1291,7 @@ désir —ardent, mais vague — vers ce qui semble être »
 mieux. Le caractère vraiment neuf de la législation à
 moderne résulte de ce que le législateur se croit
 tenu de donner satisfaction à cette aspiration; on a
-É pourrait dire, en imitant les formules révolution-
-
-naires, que le premier de tous nos droits est le À
+É pourrait dire, en imitant les formules révolutionnaires, que le premier de tous nos droits est le À
 
 droit au progrès par la liberté. La politique à. _modèle sur l'économie et cherche à réaliser ce pro
 4 é grès par des procédés qui rappellent, à bien des À
@@ -1334,9 +1305,7 @@ sa politique se résume dans cette formule célèbre;
 elle ne considère l'amélioration relative qui peut
 
 4 en résulter; elle la juge d'après sa conformité au
-A 4 but final; elle se demande si cette mesure constitue un acheminement vers l'état de raison qu'elle pré-
-
-tend réaliser dans l'avenir. Il y a une grande analogie
+A 4 but final; elle se demande si cette mesure constitue un acheminement vers l'état de raison qu'elle prétend réaliser dans l'avenir. Il y a une grande analogie
 
 entre son attitude et celle de certains socialdémo- crates allemands, le mouvement et le but final rem-
 
@@ -1387,8 +1356,7 @@ parce qu'alors les questions se poseraient avec une pi)
 anrait beaucoup plus de peine à faire accepter une
 politique extérieure aussi favorable à l'Église qu'est
 ÿ. la politique suivie par nos gouvernants depuis des
-à années. Il pourrait même arriver que le parti clé-
-rical parlementaire refusât de vendre les intérêts
+à années. Il pourrait même arriver que le parti clérical parlementaire refusât de vendre les intérêts
 des prêtres français en échange d'avantages consentis en faveur de missionnaires opérant dans des
 pays lointains. Il serait évidemment plus dificile
 de faire de l'anticléricalisme en France et du cléricalisme en Orient, lorsque dans le Parlement il y
@@ -1413,8 +1381,7 @@ Inversement il me semble que le pontificat s'efforcera en France de gagner des p
 les divers groupes républicains, plutôt que de se
 faire représenter par un parti qui ne pourrait que
 créer des conflits.
-En Italie le pontificat se trouve dans une situa-
-tion encore plus délicate qu'en France, parce qu'il
+En Italie le pontificat se trouve dans une situation encore plus délicate qu'en France, parce qu'il
 est difficile aux cléricaux de ne pas froisser les
 sentiments patriotiques d'un pays récemment
 1 unifié. À l'origine il a conseillé aux catholiques
@@ -1507,8 +1474,7 @@ soient plus fortes que celle qui nous fait désirer le
 En 1815 le clergé crut le moment venu de
 4 reprendre l'offensive; mais, à cette époque, les
 souvenirs de la Révolution étaient si vivaces,
-l'armée était si opposée aux curés et les proprié-
-taires de biens nationaux si effrayés, que l'audace
+l'armée était si opposée aux curés et les propriétaires de biens nationaux si effrayés, que l'audace
 de l'Église devait soulever le pays contre le
 A gouvernement qui la protégeait. Sous le règne de
 Louis-Philippe, les cléricaux adoptent une nouvelle
@@ -1522,8 +1488,7 @@ orléaniste; en 1848, ils se signalent parmi les plus
 
 ardents républicains et prononcent des sermons au
 pied des arbres de la liberté; mais l'expédition de +210
-Rome vient bientôt les brouiller avec les démo-
-crates; cette affaire fut, de leur part, la plus grande
+Rome vient bientôt les brouiller avec les démocrates; cette affaire fut, de leur part, la plus grande
 imprudence qu'ils aient commise en un demi-siècle,
 Quand arrive le coup d'État, la « bohème »
 bonapartiste (x) n'a pas d'alliés plus dévoués que
@@ -1565,9 +1530,7 @@ la domination cléricale était posé brutalement;
 
 tout le monde en comprenait nettement la portée;
 l'Église ne cessa de perdre de son influence dans le
-pays, jusqu'au jour où commença la lutte sur l'ensei-
-
-gnement laïque. L'Église fut encore vaincue.
+pays, jusqu'au jour où commença la lutte sur l'enseignement laïque. L'Église fut encore vaincue.
 
 Lorsque le calme fut rétabli dans les esprits,
 l'Église reprit son travail d'attaque et ses partisans
@@ -1653,8 +1616,7 @@ interrompit le travail souterrain de la diplomatie 4}
 eux et qui furent enivrés par leurs premiers succès;
 - illeur sembla que le jour était venu d'écraser le
 4 parti gambettiste déjà fort ébranlé depuis les
-scandales du Panama. À des vengeances person-
-nelles, à des rancunes vieilles de dix ans, on À
+scandales du Panama. À des vengeances personnelles, à des rancunes vieilles de dix ans, on À
 - sacrifia les avantages conquis péniblement depuis
 le ralliement du clergé à la République.
 Cette campagne réveilla de leur torpeur beaucoup
@@ -1680,8 +1642,7 @@ formant une classe isolée, faite pour la lutte contre
 4 d'hommes politiques qui avaient longtemps prêché à
 A le respect de l'armée. Les radicaux hésitaient
 ne beaucoup à prendre la défense d'un officier riche,
-parce qu'ils avaient peur d'être accusés de corruption, eux qui avaient si souvent dénoncé la corrup-
-tion des opportunistes. Il leur paraissait extrêmeÀ ment dangereux de s'engager dans une affaire
+parce qu'ils avaient peur d'être accusés de corruption, eux qui avaient si souvent dénoncé la corruption des opportunistes. Il leur paraissait extrêmeÀ ment dangereux de s'engager dans une affaire
 confuse, qui devait toujours rester mystérieuse et qui renfermait des aventures romanesques, alors
 É. que, dans les souvenirs populaires, la guerre de
 1870 m'avait été qu'une suite de trahisons plus
@@ -1704,8 +1665,7 @@ toutes les luttes qui se produisent chez nous inté- des
 ressent tous les esprits libéraux: il n'y a pas de
 pays, en effet, où les forces réactionnaires soient
 aussi puissantes que dans le nôtre; quand elles sont
-vaincues, tous les partis de résistance sont décou-
-ragés et tous les partis avancés sont animés d'une
+vaincues, tous les partis de résistance sont découragés et tous les partis avancés sont animés d'une
 ardeur nouvelle. C'est ce qui explique pourquoi on
 Il y eut à l'étranger des gens qui s'intéressèrent à l'affaire
 Ê Dreyfus tout en étant fort réactionnaires; ce fait est remarquable
@@ -1895,8 +1855,7 @@ doive toujours se produire; si vraiment l'Université
 ne forme pas des républicains ou n'en forme qu'une
 assez minime proportion, peut-être devons-nous à
 redouter que les prochaines révolutions ne soient
-guère pénétrées d'esprit libéral. Le parti politico-
-scolastique, qui combat l'Église, a exactement le
+guère pénétrées d'esprit libéral. Le parti politicoscolastique, qui combat l'Église, a exactement le
 même esprit que celle; il voudrait faire marcher À
 le monde à son gré. IL a toutes les ambitions des à
 anciens saint-simoniens qui prétendaient tout conse stituer sous la forme hiérarchique.
@@ -1919,7 +1878,7 @@ est fondé sur la concurrence très développée des
 métiers: tout notre droit est imbu de l'idée d'une
 concurrence illimitée; presque toutes nos pensées
 4 en portent la marque. Or, de nos jours, cette;
-concurrence est menacée: par la constitution de À!
+concurrence est menacée: par la constitution de
 grandes entreprises transformant les moyens à
 ne patrons en employés et par le développement du
 socialisme d'État. C'est donc une question très
@@ -1938,8 +1897,7 @@ discipline est difficile à imposer à une population qui se livre au commerce m
 que de supprimer dans l'enseignement tout ce qui
 tend à augmenter la force du pouvoir central. Marx
 avait bien raison quand, en 1855, (1) il signalait
-l'opportunité de créer, avec l'aide purement finan-
-cière du Trésor public, des écoles soustraites à la
+l'opportunité de créer, avec l'aide purement financière du Trésor public, des écoles soustraites à la
 fois aux influences de l'État et de l'Église. Je crois
 que cette opinion est une des plus importantes que
 l'on trouve dans ses écrits; nous voyons par qu'il
@@ -1997,8 +1955,7 @@ qui se produisirent dans les républiques grecques
 et italiennes nous semblent aujourd'hui tout à fait
 défendre le Droit et la Vérité. Les anciennes factions démagogiques étaient fondées sur la simple
 division de la Cité en riches et en pauvres; elles
-amenèrent la ruine de tous les pays où elles se pro-
-duisirent; jusqu'ici les États modernes ont marché,
+amenèrent la ruine de tous les pays où elles se produisirent; jusqu'ici les États modernes ont marché,
 d'une manière plus ou moins chancelante, dans une
 voie que tous regardent comme progressive; les
 socialistes comptent bien faire réaliser au monde
@@ -2018,8 +1975,7 @@ bien que pour Marx le socialisme n'est pas un:
 démocratie est ainsi, dans une certaine mesure, le À sa
 contraire du socialisme, elle est aussi un aliment de
 Du: son progrès, car c'est grâce à elle que l'éducation
-populaire peut se faire de la manière la plus com-
-plète. La contradiction entre démocratie et socia_ lisme porte surtout sur l'économie; leur accord, sur si
+populaire peut se faire de la manière la plus complète. La contradiction entre démocratie et socia_ lisme porte surtout sur l'économie; leur accord, sur si
 le côté spirituel de la vie sociale. "4
 
 AS Marx avait observé (1) que les démocrates s'ima- PU.
@@ -2031,9 +1987,7 @@ faire disparaître des tyrannies, pour combattre les
 états qui prétendent gouverner — soit en raison du
 talent, soiten raison de leurs professions—;ilscher- je
 L. _chent à développer l'esprit de liberté et à augmen_ ter les garanties juridiques données aux hommes;
-leur attitude les éloigne des considérations écono-
-
-miques. Les socialistes ont aussi à lutter contre les
+leur attitude les éloigne des considérations économiques. Les socialistes ont aussi à lutter contre les
 
 mêmes ennemis que les démocrates et ils partiD #3 (1) Marx. La lutte des classes, page
 cipent à toutes les luttes pour la liberté, comme
@@ -2106,9 +2060,7 @@ du socialisme dans les campagnes que l'action anti- fil
 eléricale; qu'on lise, d'ailleurs, les journaux socialistes de province, on verra que leur principal moyen
 d'influence est la guerre contre les curés.
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-Nos Cahiers sont édités par des souscriptions men_ suelles régulières et par des souscriptions extraordi-
-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions men_ suelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 La rédaction ni sur l'administration: ces fonctions demeurent libres.
 
 des abonnements de souscription à cent francs;

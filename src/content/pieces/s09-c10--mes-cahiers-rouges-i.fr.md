@@ -61,14 +61,12 @@ que nous ne pouvons pas songer à en donner ici
 l'énoncé méme le plus succinct; pour savoir ce qui a
 paru dans les cinq premières séries des cahiers, il
 suffit d'envoyer un mandat de cinq francs à M. André
-Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondisse-
-ment; on recevra en retour le catalogue analytique
+Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.:
 Ce catalogue, grand jésus, forme un cahier
@@ -97,9 +95,7 @@ avant-propos, et j'ai l'agréable devoir, étant un peu
 responsable de cette publication, d'en mieux faire con- à
 naître l'auteur.
 Ah! qu'elle était belle, à la fin de l'Empire, l'ardeur
-juvénile de ce journalisme où, derrière Jules Vallès, fai-
-
-coqs de bataille montés sur leurs ergots, dressant la
+juvénile de ce journalisme où, derrière Jules Vallès, faicoqs de bataille montés sur leurs ergots, dressant la
 crête et battant des aïles!:
 Qu'elle était belle, cette pension Laveur, où fréquen_ tait Gambetta, où chantait Courbet, où grognait le père
 Toussenel, embêté par Vallès..., où buvaient les autres!
@@ -137,9 +133,7 @@ Et nous terminerons même, si vous voulez, la tournée, par une mention aux caf�
 Rhin, Jeune-France, Salamandre enfin, dit Café des
 
 politiques, où venait parfois Vermorel. À
-Un autre lieu de rendez-vous mémorable était l'impri-
-
-merie de la rue du Jardinet, d'où partaient les brülots,
+Un autre lieu de rendez-vous mémorable était l'imprimerie de la rue du Jardinet, d'où partaient les brülots,
 
 premier) de Maroteau (décembre 1869) dans lequel
 
@@ -149,8 +143,7 @@ Ah! belle jeunesse! Temps des cerises, des moos et
 des lilas de la Closerie! Temps où les amendes et quel …
 
 à ques mois de Sainte-Pélagie, infligés par la sixième
-chambre pour un article, un dessin, un trait, une allu-
-sion, épargnaient à des feuilles, éphémères sans cela,
+chambre pour un article, un dessin, un trait, une allusion, épargnaient à des feuilles, éphémères sans cela,
 la honte de mourir obscures!
 
 ï Et ces révolutionnaires étaient poètes, et ces poètes
@@ -175,8 +168,7 @@ comme Gaillard et comme Dereure.
 Cependant, l'horizon se couvrait. L'air se chargeaït
 À d'orage. Il tombait déjà quelques gouttes de sang.
 Le 10 janvier, Pierre Bonaparte assassinait Victor
-Noir. Le 12, cent mille personnes assistaient à ses funé-
-railles. Le 21, Félix Pyat faisait lire au banquet de
+Noir. Le 12, cent mille personnes assistaient à ses funérailles. Le 21, Félix Pyat faisait lire au banquet de
 Saint-Mandé son toast: À une petite balle. Le 7 février,
 Y Flourens prenait au collet, dans une réunion publique,
 le commissaire de police Barlet, qu'il promenait en
@@ -186,8 +178,7 @@ police qui se présentait chez lui pour l'arrêter.
 On frappait les journaux, on frappait les journalistes,
 on frappait l'Internationale...; mais il n'y avait que
 l'Empire de touché. Par exemple, il l'était bien. Il ne lui
-restait qu'une alternative: saigner Paris qui, au plé-
-biscite, avait voté non en majorité, — ou saigner la
+restait qu'une alternative: saigner Paris qui, au plébiscite, avait voté non en majorité, — ou saigner la
 
 - France. Il saigna la France. Mais ce fut lui qui en
 Maxime Vuillaume endosse l'uniforme comme tout le
@@ -265,8 +256,7 @@ que du reste personne de la table n'a — avait du
 talent. Sainte-Beuve a professé que la preuve qu'il n'en
 avait pas, c'est que ses contemporains ne lui en avaient
 pas reconnu. »
-Je souscris, cela de soi, au jugement des Goncourt, mais ne vous hâtez pas d'inférer de ma sévé-
-rité pour les petits-fils d'Hébert, qu'elle me met en
+Je souscris, cela de soi, au jugement des Goncourt, mais ne vous hâtez pas d'inférer de ma sévérité pour les petits-fils d'Hébert, qu'elle me met en
 contradiction avec moi-même,
 L'apologiste des Hébertistes, Gustave Tridon, de
 
@@ -276,8 +266,7 @@ son côté, fort bien répondu aux détracteurs de son
 sur le boulevard! »
 
 Lequel d'entre vous trois, Vuillaume, eût faire
-admettre en sa faveur les mêmes circonstances atté-
-nuantes? Aucun. Voilà le grief. Il eût été préférable de
+admettre en sa faveur les mêmes circonstances atténuantes? Aucun. Voilà le grief. Il eût été préférable de
 laisser au geai sa plume, qui n'était ni la vôtre, ni celle
 de Vermersch, ni celle d'Humbert, fils du Tiers comme
 vous et comme vous galvaudant leur talent et leur élocution pour donner au mouvement communaliste et à
@@ -335,8 +324,7 @@ celles d'un jeune fils de famille, frais émoulu, comme
 De Maxime Vuillaume, en outre, une brochure L'horloge et
 les cloches de la Bastille, Tours, 1896.
 
-vous l'étiez alors, de VÉcole des Mines et des revendi-
-cations mâchées à la brasserie et dans les âcres salles
+vous l'étiez alors, de VÉcole des Mines et des revendications mâchées à la brasserie et dans les âcres salles
 VIRE de rédaction. »
 Je ne le persuadais pas. Il m'objectait: « Croyez-vous,
 en vérité, que ce Mémorial intéresserait beaucoup la
@@ -387,8 +375,7 @@ au pouvoir des Versaillais. Et considérez, par ailleurs,
 cet étonnant Paget-Lupicin pêchant tranquillement à la
 ligne dans les cagnards » de l'ancien Hôtel-Dieu, tandis que la Préfecture de police flambe et que l'armée
 de l'ordre, meute excitée, chasse aux alentours.
-La pêche à la ligne semble être, de toutes les oceu-
-pations, celle qui permet le mieux à l'amateur de
+La pêche à la ligne semble être, de toutes les oceupations, celle qui permet le mieux à l'amateur de
 
 Dans les papiers d'elle que je possède, une femme de
 lettres et d'action que Vuillaume a bien connue et qui
@@ -446,9 +433,7 @@ du Lux embourg
 Six heures du soir, le mercredi 24 maï 1871. En face
 
 de l'hôpital de la Pitié. Le Panthéon est occupé. Les
-- bataillons fédérés descendent dans un inexprimable dé-
-
-sordre. Visages sombres, sales de poussière et de poudre, vêtements déchirés.
+- bataillons fédérés descendent dans un inexprimable désordre. Visages sombres, sales de poussière et de poudre, vêtements déchirés.
 
 — Trahis! Nous sommes trahis! Montmartre est pris.
 
@@ -473,9 +458,7 @@ hâte la large bande rouge de son pantalon, qui peut
 le dénoncer. Peine inutile. La Cour martiale, si mince
 galon qu'il ait conservé, l'infortuné, l'attend.
 
-Les mitrailleuses cahotent sur le pavé de la rue Lacé-
-
-pède, traînées par les combattants. On a abandonné
+Les mitrailleuses cahotent sur le pavé de la rue Lacépède, traînées par les combattants. On a abandonné
 les chevaux là-haut.
 
 Enfin, tout a défilé. Voici encore des civières, devant
@@ -536,10 +519,8 @@ ornée d'un brassard tricolore, brandit un fusil dont il
 écrase la crosse sur le tas.
 
 une journée
-— Encore un! clame-t-il d'une voix furieuse, qui ar-
-rive jusqu'à nous.
-Tout autour, des uniformes, des képis, des ceintu-
-rons, jetés au hasard sur la chaussée.
+— Encore un! clame-t-il d'une voix furieuse, qui arrive jusqu'à nous.
+Tout autour, des uniformes, des képis, des ceinturons, jetés au hasard sur la chaussée.
 Adossés à la grille, deux officiers de gardes nationaux
 de l'ordre. Képi bleu à large bande blanche, revolver
 dans la gaine de cuir jaune, bottes hautes. Sabre au
@@ -575,8 +556,7 @@ pas autre chose à faire.
 Brave homme de garçon! Il a déjà deviné, avant
 même que je l'aie interrogé. Vite il me chercher
 son chapeau rond à lui.
-— Monsieur, ils sont descendus toute la nuit, me ditil rapidement, étouffant sa voix. Il y en a plein le jar-
-din. Moi, j'ai déjà jeté ma vareuse et tout le reste.
+— Monsieur, ils sont descendus toute la nuit, me ditil rapidement, étouffant sa voix. Il y en a plein le jardin. Moi, j'ai déjà jeté ma vareuse et tout le reste.
 Nous sortons, l'ami qui est venu me retrouver dans
 ma chambre, et moi. Le cœur me bat certainement
 ; quand je mets le pied sur la première marche.
@@ -620,8 +600,7 @@ d'armes et d'uniformes.
 près de moi, avec un gros rire, un homme en bourgeois,
 brassardé, lui aussi, aux trois couleurs.
 Avant de continuer sa route, le policier — car.je le
-saurai bientôt, ces hommes à redingote noire et à bras-
-sard tricolore sont les pourvoyeurs des cours martiales
+saurai bientôt, ces hommes à redingote noire et à brassard tricolore sont les pourvoyeurs des cours martiales
 — jette un regard autour de lui.
 — Et dire que dans ces crapules-là, hurle-t-il, il y en
 a qui l'ont construite.
@@ -714,9 +693,7 @@ dernière rencontre, la veille, à la mairie du Panthéon:
 la nuit passée rue Cuvier, le terrible réveil, la fuite à
 travers les cadavres et les barricades.
 
-— J'ai passé la nuit rue de la Montagne-Sainte-Gene-
-
-viève, me dit-il à son tour, et je ne sais comment je suis
+— J'ai passé la nuit rue de la Montagne-Sainte-Geneviève, me dit-il à son tour, et je ne sais comment je suis
 ici. Toute la nuit des perquisitions, des arrestations,
 des fusillades. Tout ce dédale de petites rues noires est
 pavé de morts. Un peloton de chasseurs est monté dans
@@ -821,8 +798,7 @@ une journée
 certainement cette même main qui m'a empoigné ilya
 — Allons, allons! Qu'on ne traîne pas...
 Nous sommes tous deux dans une petite salle obscure,
-où, confusément, je sens que s'agitent des choses mys-
-térieuses et cruelles. Je n'ai pas besoin d'ouvrir longtemps les yeux pour que, rapidement, se détache, pour
+où, confusément, je sens que s'agitent des choses mystérieuses et cruelles. Je n'ai pas besoin d'ouvrir longtemps les yeux pour que, rapidement, se détache, pour
 . ne jamais plus me quitter désormais, une vision d'horreur et de sang.
 Ah! la voilà bien cette cour martiale dont, depuis la
 défaite, on ne prononce le nom qu'avec terreur. Je ne
@@ -1000,17 +976,14 @@ qui fit bruyamment irruption dans la salle.
 
 une journée
 Je comptai une demi-douzaine d'infortunés que l'on
-venait très probablement de rafler dans une perquisi-
-
-tion. Je les vois encore devant moi. l'un, un grand
+venait très probablement de rafler dans une perquisition. Je les vois encore devant moi. l'un, un grand
 diable, avait un pantalon de garde national. Il était en
 
 bras de chemise. Sa figure, creusée de fatigue, disait
 
 assez qu'il s'était battu, qu'il était rentré au logis et, là,
 
-qu'il avait été pris, dénoncé probablement par un voi-
-sin. Deux jeunes gens, deux femmes, l'une d'elles avec
+qu'il avait été pris, dénoncé probablement par un voisin. Deux jeunes gens, deux femmes, l'une d'elles avec
 
 un enfant dans les bras.
 
@@ -1069,9 +1042,7 @@ le Prévôt
 La petite salle retomba dans le silence, coupé et
 par les éclats de rires et les jurons des hommes de
 police. De temps à autre, un prisonnier arrivait, et
-s'asseyait, à la file, sur une des banqueïtes. Des détonations éclataient. Une porte à deux battants s'entr'ou-
-
-une journée
+s'asseyait, à la file, sur une des banqueïtes. Des détonations éclataient. Une porte à deux battants s'entr'ouune journée
 vrit. Je prêtai l'oreille. Des appels, des protestations,
 des sanglots... La porte se referma.
 
@@ -1269,8 +1240,7 @@ Ma conviction était faite. Notre vaillant commandant
 Je ne sus que plus tard la vérité.
 Le commandant des Enfants du Père Duchéne
 n'était pas mort. Au premier jour de la luite dans les
-) rues, il avait remis son sabre à son capitaine d'état-
-major Samson, un vaillant soldat de Crimée et d'Italie,
+) rues, il avait remis son sabre à son capitaine d'étatmajor Samson, un vaillant soldat de Crimée et d'Italie,
 que je vois encore, dans la cour de la caserne, étalant
 (1) Vermersch (Eugène), l'un des trois rédacteurs du Père Duchéne
 (Vermersch-Humbert-Vuillaume). Auteur des /ncendiaires. à
@@ -1371,9 +1341,7 @@ ceux qui attendent
 
 Je me retrouvai dans la petite cour du Sénat. Il était!
 environ une heure. Le désordre y était encore plus
-bruyant que lorsque je l'avais traversée pour la pre-
-
-une journée
+bruyant que lorsque je l'avais traversée pour la preune journée
 mière fois, après notre arrestation. Des soldats débraillés, des officiers en tenue de campagne, des agents à
 brassard, des groupes d'inconnus lamentables, parqués
 et là, et dont on entrevoyait les faces hâves derrière

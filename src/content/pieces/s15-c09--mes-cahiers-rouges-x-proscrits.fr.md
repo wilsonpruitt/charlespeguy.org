@@ -131,9 +131,7 @@ Le peuple parisien reconnaissant.*
 
 Il faut en vérité être bête à manger en un jour toute la paille qu'un âne mange dans un an! Et tu crois qu'ils étudient, qu'ils apprennent quelque chose! Vas-y voir! S'ils revenaient, ils seraient encore plus imbéciles que la première fois, si c'est possible. Ah! tout cela est triste, et si on n'avait pas l'espérance que le peuple les démasquera, on ne saurait pas même en rire, comme Figaro, de peur d'être obligé d'en pleurer.
 Adieu, mon vieux, écris-moi un de ces jours à l'adresse ci-dessous où je ne serai plus que trois semaines: M. William Green, 34, Howland Street, Fitzroy Square, London.
-Ne donne point cette adresse, à moins de m'en prévenir auparavant, parce que je ne veux être en rapport avec per-
-
-sonne. Fais mes compliments aux amis, s'il en reste, et mes amitiés à ta femme.
+Ne donne point cette adresse, à moins de m'en prévenir auparavant, parce que je ne veux être en rapport avec personne. Fais mes compliments aux amis, s'il en reste, et mes amitiés à ta femme.
 Je te serre bien cordialement les mains.
 
 Mon cher ami, j'ai beaucoup tardé à te répondre, et du reste cela ne doit pas t'étonner, car tous les deux nous faisons partie de la grande armée des paresseux. A vrai dire, je te croyais mort, parce que trois mois sans lettre de moi alors que je fais un journal, (1) cela se comprend; mais un homme qui ne fait rien, comme toi, ou du moins qui n'a pas un travail journalier, cela est plus difficile à pardonner. Je t'attendais toujours: ne te voyant pas venir, je me disais: en voilà encore un qui fait le mort. Enfin te voilà, et tout est bien qui finit bien. Je dois m'empresser de te dire, si tu ne le sais déjà, que j'ai quitté depuis six mois environ l'*Union démocratique* qui depuis mon départ n'a fait que tomber de plus en plus et a fini par être remplacé par l'*Avenir* qui a vendu moins encore, je crois, bien qu'il fût infiniment mieux fait, et qui a fini par disparaître faute de fonds, après son vingt-cinquième ou trentième numéro, je ne sais au juste. C'était Hector France, le directeur ou le commandant (c'est tout un) de la caserne Lobau sous la Commune, qui en était le rédacteur en chef. C'est un très gentil garçon, très honnête, et qui porte fièrement — trop fièrement, peut-être, car il empêche de l'aider — les embarras de l'exil. J'aurais désiré que son journal réussît et j'en avais écrit le premier article et deux autres tartines par la suite; mais il est assuré pour moi, maintenant,
@@ -146,9 +144,7 @@ Tu vois, je t'écris à petites journées: aussi bien ce que tu m'as demandé, j
 
 trop d'honneur à Marat que de les lui rapporter entièrement. Il n'a même pas la présence d'esprit de faire un 6 octobre 89; non pas il est vrai cette fois pour ramener le Roi, qui était l'Assemblée de 71, mais pour étouffer à Versailles même toutes les possibilités de trahison. Quant aux journées de Mai, je crois qu'il faut beaucoup rabattre de l'enthousiasme qu'elles ont provoqué. Quand je leur compare les journées de Juin où le peuple lutta cinq grands jours sans un seul canon, avec des armes féodales, avec quelques cartouches, mangeant à peine et ne buvant que du vin très mouillé d'eau, je trouve que la gloire des fédérés est loin d'être comparable à celle de ces pauvres diables qui étaient bien l'armée de la misère, « attaquée, provoquée, et mise à l'état de légitime défense ». Non, je ne puis me rappeler ces forces énormes dont nous disposions, et penser que le peuple, par sa bêtise, c'est le vrai mot, les a laissées se perdre sans aucun profit: tant d'ineptie révolte celui qui médite un peu sur le passé et qui lui demande le mot de l'avenir. Au fond, il n'avait qu'une chose à faire, comme nous le lui avons conseillé dans le *Père Duchêne,* jeter bas la Commune et reprendre lui-même la direction de la Révolution qui n'était plus qu'un cheval de selle pour le grotesque bourgeoisisme des Arnould, des Lefrançais, des Malon et consorts. Il ne l'a pas fait, et c'est justice qu'il ait été vaincu. Plus je réfléchis à tout cela, et plus je me convaincs qu'il n'y a jamais de malheurs immérités. Le monde est aux idées: peu importe après cela le moyen qu'elles emploient pour triompher. Moi, tu sais, je suis pour la force. Je la trouve légitime, et je dis que Thiers est le seul bonhomme qui ait compris la situation: Thiers et le *Père Duchêne* avaient exactement au fond la même politique: la force. Le Président royal de la république impériale sentait, lui, bourgeois, que l'insurrection du 18 Mars, si elle triomphait, arriverait forcément à poser des questions d'où dépendrait la vie de la bourgeoisie. C'était véritablement la théorie de Darwin mise en pratique: la concurrence vitale et le combat pour l'existence. Ou la bourgeoisie devait faire place au prolétariat de plus en plus envahissant, ou le prolétariat devait
 
-être émondé pour qu'il n'étouffât point la bourgeoisie: ça, ce n'est pas de la politique, c'est de l'histoire naturelle: ou l'ivraie tue la moisson, ou le laboureur arrache l'ivraie: le plus simple paysan sait cela, et Thiers fut ce paysan-là. C'est pour cela qu'il remporta la victoire, c'est pour cela qu'il eut le sens commun, et qu'à son point de vue je l'approuve, et dis qu'il était de son devoir, à lui bourgeois, d'agir ainsi. Le *Père Duchêne* avait bien compris cela aussi, et quand nous demandions des têtes, nous étions dans les simples indications du bon sens politique, car le dilemme était bien nettement posé: ou vous, — ou nous. Le peuple, aussi bien que la bourgeoisie, était dans le cas de légitime défense; et dans ce cas la loi elle-même reconnaît le droit de tuer son adversaire. Je travaille en ce moment-ci à quelques petites brochures que je ferai paraître sans doute dans deux mois et que je t'enverrai: cela s'appellera: *la Dictature, la Force, le Droit au vol.* J'expliquerai un peu plus longuement ce que je ne fais que t'indiquer ici. Je déduirai toutes les conséquences du droit indiscutable de la force, et nous verrons bien. On me chassera peut-être d'Angleterre, mais alors j'irai ailleurs et nous aviserons à ce qu'il y a à faire. Tu sais que je n'ai pas beaucoup l'habitude de me laisser déconcerter, mais je suis curieux de voir ce que diront les aristos anglais qui sont bien les plus terribles des propriétaires et les plus attachés au mien, quand je proclamerai hardiment le droit du pauvre à s'emparer de tout ce qui lui est nécessaire pour vivre, fût-ce à main armée, fût-ce par l'assassinat. Je crois que nous rirons bien. Dans cette histoire de la Commune, je développerai également toutes ces idées. Je montrerai là, aussi bien que dans mes brochures, l'unanimité des auteurs à affirmer le droit à la force: c'est le grand cheval de bataille de tous les théoriciens de la politique transcendantale, et je montrerai un accord qu'on n'a pas encore soupçonné jusqu'ici entre Hobbes, J. de Maistre, Marat et Proudhon. Ce sera curieux. Et avec cela, oui, je t'en réponds qu'il y aura des jugements sévères: au fond, je te vois qui m'épargnent. Tous ont péché ou par lâcheté ou par imbécillité, et a la prétention de revenir, se met dans l'idée que remon-
-
-tera au pouvoir. Tas de peigne-culs! C'est bon à être gardeurs de dindons, et veut conduire le peuple. Je vais te faire des peintures de tous ces gaillards-là, au fur et à mesure que leurs noms se présenteront sous ma plume, je te le dis que ça. Car ce sont eux qui sont coupables de tout, et s'il n'avait pas l'exemple des grands, comme dit Massillon, si impudemment étalé sous les yeux, il est probable que le peuple eût pris lui-même une autre attitude. Mais il y avait une douce réciprocité de sentiments médiocres entre les gouvernants et les gouvernés, de sorte que la moindre volonté entière et certaine devait bientôt l'emporter sur les uns et les autres. Maintenant encore, je me demande ceci: s'il y avait pendant la révolution de 1871 un homme assez ferme et assez résolu pour s'emparer du pouvoir, mais dans le but seulement de servir la révolution, et qu'il eût fait dresser dans Paris quelques guillotines où il eût fait faucher par milliers les têtes de la bourgeoisie, est-ce que Versailles n'aurait pas tremblé et ne serait pas, pour tout de bon, entré dans les voies de conciliation? Pour moi, je le crois, et je pense que lorsque nous étions perdus c'était le seul moyen d'éviter le grand massacre. Quelque égoïsme qu'eût d'ailleurs le gouvernement versaillais, il eût reculé, et nous fussions sortis de Paris par une capitulation avec les honneurs de la guerre, ou un armistice rendu certain par des garanties. Virgile a raison: le seul salut qui reste aux vaincus, c'est de n'en espérer aucun. Nous n'en serions pas où nous en sommes si nous avions désespérer à temps.
+être émondé pour qu'il n'étouffât point la bourgeoisie: ça, ce n'est pas de la politique, c'est de l'histoire naturelle: ou l'ivraie tue la moisson, ou le laboureur arrache l'ivraie: le plus simple paysan sait cela, et Thiers fut ce paysan-là. C'est pour cela qu'il remporta la victoire, c'est pour cela qu'il eut le sens commun, et qu'à son point de vue je l'approuve, et dis qu'il était de son devoir, à lui bourgeois, d'agir ainsi. Le *Père Duchêne* avait bien compris cela aussi, et quand nous demandions des têtes, nous étions dans les simples indications du bon sens politique, car le dilemme était bien nettement posé: ou vous, — ou nous. Le peuple, aussi bien que la bourgeoisie, était dans le cas de légitime défense; et dans ce cas la loi elle-même reconnaît le droit de tuer son adversaire. Je travaille en ce moment-ci à quelques petites brochures que je ferai paraître sans doute dans deux mois et que je t'enverrai: cela s'appellera: *la Dictature, la Force, le Droit au vol.* J'expliquerai un peu plus longuement ce que je ne fais que t'indiquer ici. Je déduirai toutes les conséquences du droit indiscutable de la force, et nous verrons bien. On me chassera peut-être d'Angleterre, mais alors j'irai ailleurs et nous aviserons à ce qu'il y a à faire. Tu sais que je n'ai pas beaucoup l'habitude de me laisser déconcerter, mais je suis curieux de voir ce que diront les aristos anglais qui sont bien les plus terribles des propriétaires et les plus attachés au mien, quand je proclamerai hardiment le droit du pauvre à s'emparer de tout ce qui lui est nécessaire pour vivre, fût-ce à main armée, fût-ce par l'assassinat. Je crois que nous rirons bien. Dans cette histoire de la Commune, je développerai également toutes ces idées. Je montrerai là, aussi bien que dans mes brochures, l'unanimité des auteurs à affirmer le droit à la force: c'est le grand cheval de bataille de tous les théoriciens de la politique transcendantale, et je montrerai un accord qu'on n'a pas encore soupçonné jusqu'ici entre Hobbes, J. de Maistre, Marat et Proudhon. Ce sera curieux. Et avec cela, oui, je t'en réponds qu'il y aura des jugements sévères: au fond, je te vois qui m'épargnent. Tous ont péché ou par lâcheté ou par imbécillité, et a la prétention de revenir, se met dans l'idée que remontera au pouvoir. Tas de peigne-culs! C'est bon à être gardeurs de dindons, et veut conduire le peuple. Je vais te faire des peintures de tous ces gaillards-là, au fur et à mesure que leurs noms se présenteront sous ma plume, je te le dis que ça. Car ce sont eux qui sont coupables de tout, et s'il n'avait pas l'exemple des grands, comme dit Massillon, si impudemment étalé sous les yeux, il est probable que le peuple eût pris lui-même une autre attitude. Mais il y avait une douce réciprocité de sentiments médiocres entre les gouvernants et les gouvernés, de sorte que la moindre volonté entière et certaine devait bientôt l'emporter sur les uns et les autres. Maintenant encore, je me demande ceci: s'il y avait pendant la révolution de 1871 un homme assez ferme et assez résolu pour s'emparer du pouvoir, mais dans le but seulement de servir la révolution, et qu'il eût fait dresser dans Paris quelques guillotines où il eût fait faucher par milliers les têtes de la bourgeoisie, est-ce que Versailles n'aurait pas tremblé et ne serait pas, pour tout de bon, entré dans les voies de conciliation? Pour moi, je le crois, et je pense que lorsque nous étions perdus c'était le seul moyen d'éviter le grand massacre. Quelque égoïsme qu'eût d'ailleurs le gouvernement versaillais, il eût reculé, et nous fussions sortis de Paris par une capitulation avec les honneurs de la guerre, ou un armistice rendu certain par des garanties. Virgile a raison: le seul salut qui reste aux vaincus, c'est de n'en espérer aucun. Nous n'en serions pas où nous en sommes si nous avions désespérer à temps.
 Le journal *La Fédération* (1) est mort de sa belle mort. C'était l'œuvre du beau Landeck, du gracieux Vésinier et du profond politique Oudet. Cela a duré six numéros, et tu as juger dans quelle langue et avec quelle adresse tout cela était écrit. Décidément pour faire un civet il faut un lièvre et pour faire un journal, un journaliste. Si tu me demandes ce que j'en pense, il ne me sera pas fort difficile
 
 (1) La collection de la *Fédération* est à la Bibliothèque Nationale, sous la cote 2558.
@@ -234,9 +230,7 @@ Adieu, mon vieux, je te serre bien cordialement les mains ainsi qu'à ta femme d
 aux yeux, comme disait l'autre: nous ferons sauter plus
 tard tout cela sur nos genoux — si nous vivons!
 
-*P.-S.* — Je n'ai pas chez moi d'exemplaire des *Incen-
-diaires,* c'est pourquoi je ne t'en envoie pas par la pré-
-sente. Quand je viendrai en Suisse, je te mettrai sur tes
+*P.-S.* — Je n'ai pas chez moi d'exemplaire des *Incendiaires,* c'est pourquoi je ne t'en envoie pas par la présente. Quand je viendrai en Suisse, je te mettrai sur tes
 *copies* — c'est le mot anglais — tout ce que tu voudras,
 quoique n'en puisse pas beaucoup augmenter la valeur.
 Mais d'ici là, je ferai mieux; si tu désires une dédicace, je
@@ -249,13 +243,11 @@ sans doute s'entendre — si l'opportunité d'une entente se
 faisait un jour sentir, ce qui peut arriver.
 *Vale et me ama.*
 
-Mon cher Vuillaume, je ne t'écris pas, je t'envoie seule-
-ment à la hâte la cinquième brochure dont je te fais mettre
+Mon cher Vuillaume, je ne t'écris pas, je t'envoie seulement à la hâte la cinquième brochure dont je te fais mettre
 à la poste 25 exemplaires. Je t'écrirai ces jours-ci pour
 t'annoncer la naissance d'un enfant. Nous l'attendons il y
 a une douzaine de jours; il paraît qu'il ne veut plus se
-décider. Mais enfin, il me semble que la semaine ne se pas-
-sera pas sans qu'il y ait du nouveau.
+décider. Mais enfin, il me semble que la semaine ne se passera pas sans qu'il y ait du nouveau.
 Je suis plongé jusqu'au cou dans un fouillis inextricable
 de scélératesses, filouteries et autres tours de passe-passe
 qui doit former mon roman sur lequel je travaille à force;
@@ -266,8 +258,7 @@ d'Hugo; il y a encore de beaux jours pour la haute comédie.
 Sornet m'a dit que ta *Cour martiale* était finie dans le
 dernier numéro de la semaine passée. (1) J'attends toujours
 et, comme sœur Anne, ne vois rien venir. A quand?
-La brochure que je t'envoie ne fera pas plaisir à un cer-
-tain nombre de communards, à ce que je crois, mais elle a
+La brochure que je t'envoie ne fera pas plaisir à un certain nombre de communards, à ce que je crois, mais elle a
 à mon sens l'avantage de bien exposer la situation telle
 que nous l'avaient faite les sus-dits galonnés du 18 Mars,
 et de replacer la question de la propagande sur son véri-
@@ -299,12 +290,10 @@ la naissance de cet enfant a emporté le peu d'économies
 que j'avais faites, et je n'ai pas trouvé pour mon roman les
 conditions qui m'eussent permis d'aller contempler les
 Alpes. Mais ce sera certainement pour le mois d'avril: la
-saison était du reste fort avancée, je crois, pour entre-
-prendre un voyage en Suisse, dont on sent mieux le paysage
+saison était du reste fort avancée, je crois, pour entreprendre un voyage en Suisse, dont on sent mieux le paysage
 aux premières heures du printemps. Mon roman est placé,
 mais au *Grelot,* et comme il tiendra assez de place, la
-partie politique y est diminuée d'autant, et ma collabora-
-tion en ce genre, du même coup restreinte; somme toute,
+partie politique y est diminuée d'autant, et ma collaboration en ce genre, du même coup restreinte; somme toute,
 l'éditeur, au lieu de le prendre pour le publier en séries, le
 prend pour son journal; j'y gagne une augmentation de
 15 francs par semaine sur mes appointements ordinaires, —
@@ -322,28 +311,23 @@ conduisit chez Karl Marx. Je n'étais pas fâché de connaître
 le Dieu. Il me reçut de façon très affable, — comme on
 reçoit un homme dont le journal se vend sans réclames à
 soixante mille exemplaires, et qui peut être un instrument
-utile. Il s'assit à côté de moi, bien qu'il y eût quatre ou cinq autres per-
-sonnes dans le salon. Je me tenais sur mes gardes, parce
+utile. Il s'assit à côté de moi, bien qu'il y eût quatre ou cinq autres personnes dans le salon. Je me tenais sur mes gardes, parce
 que je connais la tactique des chefs de secte, qui font comme
 Blanqui, et vous interrogent pendant six heures s'ils restent
 six heures avec vous. Je n'aime pas qu'on me vide comme
 un poulet. Aussi, au lieu de me laisser mettre sur la sellette,
-je cherchai à le faire parler, et il me lâcha à une demi-
-heure l'une de l'autre ces deux phrases caractéristiques, car
+je cherchai à le faire parler, et il me lâcha à une demiheure l'une de l'autre ces deux phrases caractéristiques, car
 pour moi elles sont trop significatives pour qu'elles ne
 soient pas les pivots de son action politique: « La société
 est obligée historiquement de passer par la dictature
 
-ouvrière et « Les races latines sont appelées à dispa-
-raître. » — Je le répète, ces deux phrases, dites à un inter-
-valle d'une demi-heure l'une de l'autre, me frappèrent fort,
+ouvrière et « Les races latines sont appelées à disparaître. » — Je le répète, ces deux phrases, dites à un intervalle d'une demi-heure l'une de l'autre, me frappèrent fort,
 et je cherchai l'association d'idées qui les avait jointes l'une
 à l'autre, et j'arrivai à peu près à cette conclusion: « Toi,
 mon cher, qui crois à la disparition des races latines et
 qui es un Allemand; toi qui crois à la dictature ouvrière et
 qui es un bourgeois; tu dois avoir pour but d'arriver à
-t'emparer de la direction du parti ouvrier, et si tu y par-
-viens, tu emploieras toutes tes forces à l'extension du
+t'emparer de la direction du parti ouvrier, et si tu y parviens, tu emploieras toutes tes forces à l'extension du
 pangermanisme... » (1) Et, en effet, est-ce que toutes ces
 grèves, la seule chose qu'ait faite l'Internationale, n'ont pas
 complètement tourné au profit des races germaniques? Tu
@@ -354,12 +338,10 @@ résistance très considérable; les races latines, qui sont
 des races d'initiative, sont tout à fait dénuées de cette force
 d'inertie, tandis que les races germaniques, massives,
 dépourvues d'élan, en sont particulièrement douées. Les
-unes feront leur révolution activement, les autres passive-
-ment; les unes sont d'attaque, les autres de solidité, et ce
+unes feront leur révolution activement, les autres passivement; les unes sont d'attaque, les autres de solidité, et ce
 qui sert les secondes nuit nécessairement aux premières à
 cause de l'opposition de leurs tempéraments. Cette diversité
-des tempéraments n'agit pas seulement sur leur vie poli-
-tique: la façon dont elles produisent en est encore la
+des tempéraments n'agit pas seulement sur leur vie politique: la façon dont elles produisent en est encore la
 conséquence. Jamais les Germains n'arriveront à l'élégance,
 à la grâce, à la légèreté et au goût des Latins: leur travail
 est coté à un prix inférieur, et ils n'écouleront leurs
@@ -375,36 +357,29 @@ de ses déductions.
 
 à moitié prix, car ils ont moins de besoins que les Latins;
 leur force de résistance leur permet de se priver de ce qui
-fait le génie particulier et le talent inventif de leurs adver-
-saires: il y a dans leur cerveau deux fois moins de phosphore
+fait le génie particulier et le talent inventif de leurs adversaires: il y a dans leur cerveau deux fois moins de phosphore
 à brûler que dans la tête des autres hommes. Quand j'eus
 fait ces réflexions, je me gardai de retourner de nouveau
 chez Marx; je ne fis part à personne de toutes ces pensées...
 Tout à coup arrive le Congrès de La Haye: crac, on ne sait
 pas pourquoi, tout le monde est bouleversé, et à leur
 retour à Londres, Ranvier, Courpet et autres publient une
-brochure pour se séparer du conseil général: je te l'en-
-verrai si tu veux. Enfin la discorde est au camp. Il n'y a
+brochure pour se séparer du conseil général: je te l'enverrai si tu veux. Enfin la discorde est au camp. Il n'y a
 plus que Frankel, La Cecilia, Wroblevski, Lemoussu, qui
 tiennent encore. Aussi je crois que le Congrès de Genève,
 qu'on me dit organisé à l'instigation de Marx et consorts,
 n'aura pas beaucoup d'adhérents à Londres.
 
-On m'a justement prêté ces jours-ci une brochure consi-
-dérable, — 137 pages en petit texte — qui n'est qu'une
+On m'a justement prêté ces jours-ci une brochure considérable, — 137 pages en petit texte — qui n'est qu'une
 immense diatribe de Marx contre Bakounine et l'Alliance
 de la Démocratie socialiste. On y sent que Marx se trouve
 en présence d'un adversaire redoutable et qu'il trouve bons
 tous les moyens capables de le renverser.
 J'ai l'intention de faire une brochure d'actualité: je veux
 passer en revue la situation politique française à l'intérieur
-et à l'extérieur, c'est-à-dire l'esprit national dans ses repré-
-sentants, d'une part, et de l'autre la proscription communa-
-liste. Le titre résumerait mes conclusions et serait: *Pas
-d'amnistie!* — Ma thèse, tu vois cela d'ici, est que les révo-
-lutions sont toujours perdues par les amnisties, qui
-ramènent à la surface des déportés, des exilés et des réfu-
-giés qui n'ont rien appris dans leur absence forcée, et qui
+et à l'extérieur, c'est-à-dire l'esprit national dans ses représentants, d'une part, et de l'autre la proscription communaliste. Le titre résumerait mes conclusions et serait: *Pas
+d'amnistie!* — Ma thèse, tu vois cela d'ici, est que les révolutions sont toujours perdues par les amnisties, qui
+ramènent à la surface des déportés, des exilés et des réfugiés qui n'ont rien appris dans leur absence forcée, et qui
 se font de leurs persécutions, qu'ils ne doivent attribuer
 qu'à leur maladresse, des titres à un commandement où ils
 ne devraient jamais paraître. On a fait sous l'Empire trois
@@ -441,8 +416,7 @@ perdue, ne connaissant personne où j'étais. Il me fut donc
 impossible, sans armes, sans amis, sans une cartouche, de
 tenter quelque chose, attendu que, n'appartenant à rien, je
 n'avais même pas de point de ralliement. Mais je dois
-déclarer que, même sans me trouver dans une impossibi-
-lité physique de faire quelque effort, je ne me serais très
+déclarer que, même sans me trouver dans une impossibilité physique de faire quelque effort, je ne me serais très
 probablement pas battu, pour la raison que je ne serai
 jamais le soldat d'une cause désespérée. Je serai bien de
 
@@ -456,8 +430,7 @@ je pense de ceux qui n'ont pas la force?... C'est qu'ils n'ont
 pas le droit non plus, dont elle n'est que la manifestation
 visible. Nous n'étions pas mûrs et nous avons voulu aller
 trop vite. Il faut que les lois suivent le progrès des mœurs,
-et nous avons voulu changer les lois sans avoir le cou-
-rage de changer les mœurs. Nous avons été aussi vicieux,
+et nous avons voulu changer les lois sans avoir le courage de changer les mœurs. Nous avons été aussi vicieux,
 aussi corrompus, aussi lâches, aussi débauchés et aussi
 avides que nos ennemis. Au lieu de supprimer d'un coup,
 quand nous le pouvions, les hommes qui représentaient les
@@ -516,8 +489,7 @@ se soustrait pas impunément à l'action combinée des
 diverses forces vitales de la foule, et la foule qui a le tort
 de choisir pour chef au jour de l'insurrection un homme
 longtemps éloigné d'elle et qu'elle a depuis longtemps cessé
-d'électriser de son contact, doit s'attendre à le voir com-
-battre ses intentions au lieu de les servir. Le peuple de
+d'électriser de son contact, doit s'attendre à le voir combattre ses intentions au lieu de les servir. Le peuple de
 fut donc vaincu pour avoir oublié sa propre raison, son
 principe et sa force; mais du moins en eut-il l'instinct; du
 moins essaya-t-il de réagir contre la fatalité qui l'entraînait;
@@ -539,11 +511,10 @@ vingt francs, qu'on le laissait fusiller obscurément sans
 même faire un exemple sur les otages scélérats qu'on
 tenait, il ne bougea pas, tant il s'ignorait lui-même, tant il
 savait peu qu'il n'a d'autre principe, d'autre raison d'être
-que la force; il resta tranquille jusqu'aux grandes bou-
-cheries; il ne marcha ni sur le Comité central, ni sur la
+que la force; il resta tranquille jusqu'aux grandes boucheries; il ne marcha ni sur le Comité central, ni sur la
 Commune; on le laissait crever de faim quand on avait la
 Banque sous la main, et il ne fit pas même « l'émeute du
-savon »; quand il voulait faire face à l'ennemi du dehors,
+savon quand il voulait faire face à l'ennemi du dehors,
 il se sentait au dos la conspiration des ennemis du dedans,
 et il ne fit même pas des journées de Septembre; quand
 nous nous efforçâmes de lui souffler dans la langue d'Hébert
@@ -556,10 +527,8 @@ car les fondements même de la logique politique en eussent
 Mais laissons cela; je crois que je finirais bien par faire
 un discours, — peu propre à être contenu dans le cadre
 d'une lettre.
-Je ne puis te donner de détails sur l'achat de nos collec-
-tions par Polo, (2) — car je ne sais pas encore la façon
-dont Simon a procédé. Je t'ai déjà dit qu'il nous est rede-
-vable du règlement du dernier numéro; du règlement de
+Je ne puis te donner de détails sur l'achat de nos collections par Polo, (2) — car je ne sais pas encore la façon
+dont Simon a procédé. Je t'ai déjà dit qu'il nous est redevable du règlement du dernier numéro; du règlement de
 
 (1) Boursier, membre du Comité Central du 18 mars.
 (2) Polo, directeur du journal hebdomadaire illustré *l'Éclipse,*
@@ -597,9 +566,7 @@ attendu qu'il y avait bien d'autres gens à arrêter, et qu'il
 valait mieux s'assurer des gens manifestement hostiles que
 des indifférents, comme je croyais que l'était Polo... J'en
 touchai également un mot à Vermorel, et le lendemain, je
-crois, Polo était relâché... Un peu après, il quitta subrepti-
-cement Paris, confirmant ainsi les soupçons que la préfec-
-ture avait eus sur lui; mais en somme sa fuite n'avait pas
+crois, Polo était relâché... Un peu après, il quitta subrepticement Paris, confirmant ainsi les soupçons que la préfecture avait eus sur lui; mais en somme sa fuite n'avait pas
 
 besoin d'être expliquée par une trahison, il suffisait pour
 la comprendre de connaître son caractère... Maintenant,
@@ -612,10 +579,8 @@ Mahalin (Émile Blondet, de l'*Éclipse),* sous le titre: *Histoire
 anecdotique et biographique du Père Duchêne,* où je suis
 traîné dans la boue.
 Voilà ce qu'on gagne à obliger certaines gens.
-Un mot à propos de X.: ne te livre à lui que très médio-
-crement. C'est un garçon dont la vanité n'est égalée que
-par l'incapacité. C'est un des types de l'Internationale inter-
-nationalisante. Beaucoup de paroles, peu de faits, point
+Un mot à propos de X.: ne te livre à lui que très médiocrement. C'est un garçon dont la vanité n'est égalée que
+par l'incapacité. C'est un des types de l'Internationale internationalisante. Beaucoup de paroles, peu de faits, point
 d'ouvrage. Le poil dans la main, le verre aux lèvres, le
 grelot dans la tête, et c'est tout. Avis à ta personne.
 
@@ -623,14 +588,12 @@ Adieu ma vieille; je te serre bien cordialement les mains
 ainsi qu'à ta femme. La mienne me charge de vous exprimer
 à tous deux ses amitiés.
 
-Je t'écris quelques mots à la hâte pour te donner ma nou-
-velle adresse que voici: M. Duchesne, Black Horse Hotel,
+Je t'écris quelques mots à la hâte pour te donner ma nouvelle adresse que voici: M. Duchesne, Black Horse Hotel,
 
 ... Je vais t'envoyer bientôt mes *Partageux,* précédés
 d'une petite préface dans laquelle je somme les gredins de
 la Commune révolutionnaire de me traduire en justice,
-attendu que je les accuse tous, individuellement et collecti-
-vement, de vol ou de complicité de vol. Nous allons voir si
+attendu que je les accuse tous, individuellement et collectivement, de vol ou de complicité de vol. Nous allons voir si
 ces drôles répondront — car je me fous de faire un ou
 deux ou trois mois de travaux forcés pour diffamation,
 
@@ -639,11 +602,9 @@ en public cette fois.
 Mes amitiés à ta femme, — à toi, poignée de main — et à
 
 J'ai attendu de tes nouvelles ces jours-ci, mais n'en
-voyant pas venir, je me décide à écrire... Je suis absolu-
-ment décidé à quitter l'Angleterre où je me fais tellement
+voyant pas venir, je me décide à écrire... Je suis absolument décidé à quitter l'Angleterre où je me fais tellement
 vieux que je finirais, si j'y restais quelque temps encore,
-par atteindre bientôt les limites de la décrépitude. Je quit-
-terai ce pays du diable, et du spleen, dans trois semaines
+par atteindre bientôt les limites de la décrépitude. Je quitterai ce pays du diable, et du spleen, dans trois semaines
 au plus, — dès que mes dispositions seront prises, en un
 mot. La vie m'est devenue ici insupportable, et il faut que
 j'en change, sous peine de me crétiniser à fond, ce qui n'est
@@ -652,14 +613,10 @@ Belgique — dans le sud de la Belgique — de sorte que nous
 ne serons pas très loin l'un de l'autre. Bien entendu que je
 te confie ce projet, mais que c'est tout à toi, et que
 sous aucun prétexte tu dois n'en parler à qui que ce soit,
-attendu que je ne veux rester en correspondance avec per-
-sonne, à l'exception de toi et de Sornet (qui entre paren-
-thèses devenir mon beau-frère) et que je ne garderai pas
+attendu que je ne veux rester en correspondance avec personne, à l'exception de toi et de Sornet (qui entre parenthèses devenir mon beau-frère) et que je ne garderai pas
 même de relations directes avec les parents de ma femme.
-C'est te dire que je veux avoir la tranquillité la plus com-
-plète, — que je me retire de tous les potins et scies de
-Londres et d'ailleurs, — et que j'ai l'intention de commen-
-cer, comme toi, à m'occuper sérieusement de mes affaires.
+C'est te dire que je veux avoir la tranquillité la plus complète, — que je me retire de tous les potins et scies de
+Londres et d'ailleurs, — et que j'ai l'intention de commencer, comme toi, à m'occuper sérieusement de mes affaires.
 Depuis la Commune, je suis absolument sans nouvelles de
 ma famille; je ne sais ni qui vit, ni qui meurt; j'ai écrit
 deux fois à Lille, à l'honorable Mazure, ex-chef du cabinet
@@ -672,8 +629,7 @@ je n'ai reçu aucune réponse. Mes lettres ont-elles été saisies
 peur de se compromettre, bien que je lui donnasse une
 adresse anglaise où sa réponse n'aurait couru aucun
 danger. De sorte que je ne sais ni si ma mère est morte, ni
-si une tante — dont j'ai à attendre un héritage très impor-
-tant — est morte; ni, enfin, dans quelles dispositions on
+si une tante — dont j'ai à attendre un héritage très important — est morte; ni, enfin, dans quelles dispositions on
 est actuellement chez moi à mon égard. Tu conçois, mon
 fils, que je commence à prendre de l'âge, et que je suis un
 peu trop sur la branche pour que je sois fort rassuré sur
@@ -699,8 +655,7 @@ pouvoir bientôt quitter ce pays. Il est possible que je dise
 adieu à l'Angleterre, samedi en huit. Quoi que tu en dises,
 
 je crois le séjour de la Belgique possible, à la condition
-qu'on n'y fasse pas parler de soi, et qu'on n'ait pas l'im-
-prudence d'y prendre de faux nom, parce qu'en ce cas on
+qu'on n'y fasse pas parler de soi, et qu'on n'ait pas l'imprudence d'y prendre de faux nom, parce qu'en ce cas on
 se fait immédiatement appliquer une condamnation de
 quinze jours à un mois de prison, suivie d'expulsion dès
 qu'elle a été purgée. Je ne sais cependant pas si je m'y
@@ -713,8 +668,7 @@ me nuire considérablement pour l'avenir. Je conçois du
 reste que si je vois les miens, je ne serai pas sans me faire
 remettre aux ailes un certain nombre de plumes, — ce dont
 j'ai grand besoin. Dans tous les cas, nous serons beaucoup
-plus près l'un de l'autre, car c'est à Liége que j'ai l'inten-
-tion d'aller demeurer momentanément. Il faudra bien
+plus près l'un de l'autre, car c'est à Liége que j'ai l'intention d'aller demeurer momentanément. Il faudra bien
 arriver à une solution, d'une façon ou d'une autre, — ou le
 diable sera bien malin, et il aura la queue bien solidement
 attachée au bas des reins si, à force de la lui tirer, je ne
@@ -730,8 +684,7 @@ laisse pisser le mouton, comme on dit. Mais je suis bien
 décidé à m'en aller, et je ferai des pieds et des mains pour
 opérer, moi aussi, mon évasion. Au fond, je ne sais pas ce
 que tous ces gaillards-là veulent de moi, et à quoi je puis
-leur être bon; mais depuis quelque temps, c'est un déchaî-
-nement, et je ne pense pas que ce soit pour mon nez qu'on
+leur être bon; mais depuis quelque temps, c'est un déchaînement, et je ne pense pas que ce soit pour mon nez qu'on
 veut me retirer d'ici, — si on n'avait rien à me faire faire
 
 (1) Albert Regnard (Dr), secrétaire général de la Préfecture de
@@ -743,12 +696,10 @@ Une fois là-bas, la vie étant beaucoup meilleur marché
 qu'ici où elle est atrocement chère, je réaliserai bien
 quelques sous pour pousser jusqu'à ta case, — si je ne me
 décide pas à aller vivre de ton côté.
-Adieu et à bientôt; je vous serre les mains bien cordiale-
-ment à ta femme et à toi.
+Adieu et à bientôt; je vous serre les mains bien cordialement à ta femme et à toi.
 
 Mon vieux, je reçois ta lettre à l'instant et j'y réponds
-immédiatement pour te prévenir que je quitterai l'Angle-
-terre samedi, et ce village-ci vendredi dans l'après-midi. Si
+immédiatement pour te prévenir que je quitterai l'Angleterre samedi, et ce village-ci vendredi dans l'après-midi. Si
 donc, au moment où tu recevras la présente, ta lettre n'était
 point partie, ne l'envoie pas, car je crois qu'elle ne me
 trouverait peut-être plus. Je t'écrirai aussitôt mon arrivée
@@ -780,15 +731,13 @@ plus résistant, — et pour moi, tout s'est bien passé. Inutile
 de te dire ce que je pense du peuple et de l'administration
 belges: c'est l'organisation du vol par l'État et par les
 particuliers. — Mais une fois installé, je crois que tout ira
-mieux, et que la vie y est meilleur marché qu'en Angle-
-terre; on ne plume que le pigeon voyageur. — Je suis dans
+mieux, et que la vie y est meilleur marché qu'en Angleterre; on ne plume que le pigeon voyageur. — Je suis dans
 les meilleures dispositions de travail; et j'espère que je
 vais abattre de la besogne comme il faut. Je vais faire du
 roman à mort, — du roman de métier; j'en ferai un peu
 plus tard *d'études* pour moi, — et je compléterai trois
 volumes de poésies qui sont assez avancés: ce sera du pain
-sur la planche pour quand nous rentrerons, — si nous ren-
-trons. — Voilà de beaux projets! Pourvu que le guignon ne
+sur la planche pour quand nous rentrerons, — si nous rentrons. — Voilà de beaux projets! Pourvu que le guignon ne
 vienne pas encore tout renverser. J'ai l'intention d'être ici
 bien tranquille, et cependant on m'y fera peut-être des
 misères. Il y a toujours des gens qui éprouvent le besoin
@@ -821,16 +770,14 @@ en garde contre la clique.
 
 J'ai reçu hier soir ta lettre, et je t'en remercie fort. Elle
 ne pouvait venir plus à propos, car ce matin nous aurions
-été obligés d'aller voir la femme vénérable que nous déco-
-rons du nom de tante, et ce que nous avions à lui porter
+été obligés d'aller voir la femme vénérable que nous décorons du nom de tante, et ce que nous avions à lui porter
 n'était guère lourd.
 Je ne t'écris pas aujourd'hui, attendu que j'aurai à t'écrire
 demain, pour te donner des nouvelles, au sujet d'une visite
 que je viens de recevoir, il y a une heure. J'avais été faire
 ma déclaration le lendemain de mon arrivée ici, et j'avais
 
-été fort bien reçu. Treize jours se sont passés très tranquille-
-ment. Aujourd'hui, comme je viens de te le dire, j'ai reçu
+été fort bien reçu. Treize jours se sont passés très tranquillement. Aujourd'hui, comme je viens de te le dire, j'ai reçu
 la visite d'un sbire, très poli d'ailleurs, me priant de passer
 demain, de dix heures à une heure, — si j'ai le temps! —
 chez le commissaire de mon quartier. Passé cette heure,
@@ -846,8 +793,7 @@ ta femme et aux tiens.
 
 Je ne t'ai point écrit avant-hier parce que le même soir
 du jour où je t'ai écrit ma dernière lettre, l'agent est revenu
-me prévenir que mon audience était remise au surlende-
-main. J'y suis donc allé hier. Il n'est nullement question
+me prévenir que mon audience était remise au surlendemain. J'y suis donc allé hier. Il n'est nullement question
 de m'expulser. J'ai trouvé un commissaire de police, très
 poli, — plus poli qu'ils n'ont l'habitude de l'être, — et qui
 m'a demandé si j'étais l'auteur du *Père Duchêne.* Je répondis
@@ -858,11 +804,9 @@ formalité imposée à tous les étrangers. Je répondis à ses
 questions, et ce fut tout. Rentré chez moi, ma femme me
 dit que j'avais tort, qu'il aurait mieux valu quitter le
 pays, que l'administration belge ne faisait ces questions
-que pour en transmettre les réponses aux autorités fran-
-çaises et que cela amènerait la suppression des journaux
+que pour en transmettre les réponses aux autorités françaises et que cela amènerait la suppression des journaux
 où j'écrivais. Les femmes sont toujours ainsi. Mais je ne
-m'inquiète pas pour si peu. Je retournai chez mon commis-
-saire, et je le sondai à cet égard: je lui dis même que si
+m'inquiète pas pour si peu. Je retournai chez mon commissaire, et je le sondai à cet égard: je lui dis même que si
 
 cette note devait être transmise à la France, je préférais
 quitter la Belgique, et je vis à la note fût considérée comme
@@ -870,22 +814,19 @@ non avenue. Il me répondit qu'il ne pensait pas que je tinsse
 à m'inquiéter, que cette note lui était demandée par le
 chef de la Sûreté Générale dont l'attention avait été éveillée
 par mon nom, mais qu'il avait l'usage de faire en Belgique
-un dossier à tous les étrangers, pour le cas où ils vien-
-draient à contrevenir aux lois du pays, et qu'il ne croyait
+un dossier à tous les étrangers, pour le cas où ils viendraient à contrevenir aux lois du pays, et qu'il ne croyait
 pas que je fusse exposé de la règle commune. « Je ne vous
 cache pas, a-t-il dit, que vous devez vous attendre, à cause
 de votre nom, que vous avez fait un peu terrible, à une
 surveillance plus assidue que les étrangers ordinaires;
 mais je crois que si vous n'avez l'intention que de vous
 tenir tranquille, on ne cherchera pas à vous inquiéter. »
-— En somme, c'est possible. C'est une garantie pour les auto-
-rités belges que je n'aie pas de moyens d'existence en France,
+— En somme, c'est possible. C'est une garantie pour les autorités belges que je n'aie pas de moyens d'existence en France,
 car de cette façon je n'ai qu'à dépenser mon argent chez
 eux, et n'ai à publier ici rien qui puisse les inquiéter, ni
 même à écrire dans les journaux belges. Du reste, je crois
 que la police française n'ignore pas que je suis ici et je
-travaille; quantité de gens savaient à Londres que je colla-
-borais au *Grelot,* et je crois, malheureusement, qu'il est
+travaille; quantité de gens savaient à Londres que je collaborais au *Grelot,* et je crois, malheureusement, qu'il est
 inévitable, par suite de personnes le sussent, pour que le consulat en fût informé. Je pense
 donc que je n'ai pas trop à m'inquiéter de ce côté; quel
 intérêt auraient à cette dénonciation les autorités belges; tant
@@ -952,24 +893,20 @@ Mes amitiés à ta femme, et à toi ma meilleure poignée de
 J'ai été lent à te répondre, c'est vrai, mais il est survenu
 des événements qui m'ont suffisamment préoccupé. Il y a
 lundi huit jours, j'ai reçu une invitation polie à sortir du
-royaume. Cela dans les trois jours. J'ai écrit à l'administra-
-teur de la Sûreté Générale à Bruxelles pour obtenir un délai
+royaume. Cela dans les trois jours. J'ai écrit à l'administrateur de la Sûreté Générale à Bruxelles pour obtenir un délai
 de huit jours au lieu de trois, — délai qui m'a été accordé.
 Bref, j'ai partir lundi dernier pour aller à Maestricht,
 laissant ici ma femme et mes bagages. Je suis à Liége
 aujourd'hui par hasard, et en cachette, bien que le chef de
 la police de la ville m'ait dit que j'y pouvais venir, quand
-je voulais, en voyageur. Je ne sais encore à quoi me déci-
-der. Des échevins influents de la ville, et un député à la
+je voulais, en voyageur. Je ne sais encore à quoi me décider. Des échevins influents de la ville, et un député à la
 Chambre belge m'ont promis de faire des démarches pour
 moi, — et j'en attends le résultat, n'osant auparavant prendre
 une résolution définitive, car Maestricht est un trou immonde.
 J'y suis provisoirement logé dans un grenier qui n'est rien
 moins que luxueux; mais chez d'assez braves gens, — et
 puis, tu sais, après le Siège de Paris, on n'est plus difficile
-sur rien. J'ai presque arrêté un logement dans la rue Bois-
-le-Duc, mais rien n'est encore définitif; je ne me détermi-
-nerai complètement que dimanche en partant d'ici, si
+sur rien. J'ai presque arrêté un logement dans la rue Boisle-Duc, mais rien n'est encore définitif; je ne me déterminerai complètement que dimanche en partant d'ici, si
 samedi je n'ai pas une réponse, ou du moins des prévisions
 favorables de mon échevin qui est un charmant homme,
 quoi qu'il n'eût point fait le *Père Duchêne* par ferveur
@@ -986,13 +923,10 @@ prie de tourner les talons. Mais « patience! comme disait
 Panurge. J'admire ton flegme à me parler d'aller en Suisse.
 Pour aller là-bas, mon vieux, il faut compter au moins
 150 francs, et je n'ai guère d'économies, comme tu peux
-penser. Nous sommes à peine remis de notre voyage d'Angle-
-terre qui nous a coûté gros. Il ne faut donc point songer
+penser. Nous sommes à peine remis de notre voyage d'Angleterre qui nous a coûté gros. Il ne faut donc point songer
 à cela, — pour de longs mois encore, du moins. En quittant
-Liége j'ai du moins une fiche de consolation: le biblio-
-thécaire de l'Université, bien que connaissant mon cas, m'a
-autorisé à continuer d'emprunter des livres à la Biblio-
-thèque et à les emporter à Maëstricht. Mais cela durera-t-il
+Liége j'ai du moins une fiche de consolation: le bibliothécaire de l'Université, bien que connaissant mon cas, m'a
+autorisé à continuer d'emprunter des livres à la Bibliothèque et à les emporter à Maëstricht. Mais cela durera-t-il
 et ne cédera-t-il pas à certaines pressions ou insinuations?
 Voilà ce qu'on peut toujours se demander. Si les choses
 restent en état, je pourrai toujours travailler un peu à
@@ -1005,8 +939,7 @@ beaucoup encore, mais dans deux ou trois semaines ce sera
 une affaire réglée. Il a neuf ou dix dents, un appétit
 d'enfer, et d'assez bonnes dispositions malicieuses, où je
 n'étais pas là. La mère le gâte un peu, mais enfin il n'y a
-pas trop à se plaindre de lui, — et il sera, je crois, suffisam-
-ment intelligent pour ne pas se laisser vendre des salsifis
+pas trop à se plaindre de lui, — et il sera, je crois, suffisamment intelligent pour ne pas se laisser vendre des salsifis
 pour des asperges.
 Adieu, mon vieux, je t'écrirai dans le commencement de
 la semaine prochaine soit pour te donner des nouvelles
@@ -1078,13 +1011,11 @@ Gérardin. Depuis de longues années, je n'ai pas entendu
 prononcer son nom. Le hasard d'une conversation
 m'apprend que Gérardin vit en Seine-et-Marne, à
 Bellot. Je lui écris. Je lui rappelle que nous nous
-sommes rencontrés, pendant la Commune, en compa-
-gnie de Rossel, l'ami du *Père Duchêne.* Il me répond,
+sommes rencontrés, pendant la Commune, en compagnie de Rossel, l'ami du *Père Duchêne.* Il me répond,
 m'invitant à venir causer du passé. « Je serai enchanté
 — me dit l'ancien membre du Comité de Salut public
 — de vous faire les honneurs de ma Butte, où dans
-une solitude peuplée de souvenirs, j'achève modeste-
-ment la vie du paysan d'Erckmann-Chatrian. »
+une solitude peuplée de souvenirs, j'achève modestement la vie du paysan d'Erckmann-Chatrian. »
 Quelques jours après, je grimpais, avec Gérardin, le
 rude chemin de la Butte Montpoix, qui domine le
 village de Bellot. Tout au sommet, à l'entrée du bois, un
@@ -1096,15 +1027,13 @@ tous deux, assis autour du poêle. Gérardin me dit tout
 d'abord sa vie, mal racontée par les biographes d'après
 la défaite. Maxime du Camp, dans ses *Convulsions,*
 fait naître Gérardin dans la Marne, à Vitry-le-François.
-Jules Clère, dans ses *Hommes de la Commune,* n'in-
-dique pas le lieu de naissance. Même mutisme du
+Jules Clère, dans ses *Hommes de la Commune,* n'indique pas le lieu de naissance. Même mutisme du
 Larousse et du Vapereau. Charles Gérardin est
 Alsacien. Il est à Saint-Louis (Haut-Rhin) en 1843.
 Tout jeune, il fait son apprentissage de graveur à
 Mulhouse, chez le père de Charles Keller. (1) Gérardin
 et Keller se lient d'une amitié qui durera toute la vie.
-Tous deux ardemment patriotes, tous deux profondé-
-ment ulcérés par les défaites qui ont livré leur pays à
+Tous deux ardemment patriotes, tous deux profondément ulcérés par les défaites qui ont livré leur pays à
 l'étranger. Gérardin ignorait, quand je lui écrivis pour
 la première fois, la mort de Keller.
 
@@ -1135,8 +1064,7 @@ d'assistance à la mairie du dix-septième (Batignolles),
 arrondissement qu'il habite depuis plusieurs années.
 Malon, Buisson (les deux frères), Paul Martine (1) sont
 de ses amis. Le 26 mars, Charles Gérardin est nommé,
-avec Varlin, E. Clément, Chalain et Malon, à la Com-
-mune. Varlin, nommé dans trois arrondissements,
+avec Varlin, E. Clément, Chalain et Malon, à la Commune. Varlin, nommé dans trois arrondissements,
 opte pour le sixième (Saint-Sulpice); il est remplacé
 par Aminthe Dupont, (2) beau-frère de Gérardin.
 
@@ -1203,8 +1131,7 @@ et remarqué par ses nombreux discours dans les clubs politi-
 Dès que je fus nommé membre de la Commune, —
 je résolus de diriger tous mes efforts
 sur la défense militaire. La sortie malheureuse de Bergeret,
-Eudes et Duval démontrait, et au delà, que nous man-
-quions totalement d'hommes de guerre. Je songeai à
+Eudes et Duval démontrait, et au delà, que nous manquions totalement d'hommes de guerre. Je songeai à
 Dombrovski, que j'avais rencontré, pendant le Siège, en
 compagnie d'un autre Polonais de ma connaissance,
 Micielski. La lecture, que fit Dombrovski à cette entrevue,
@@ -1221,15 +1148,13 @@ Paris, en remplacement de Bergeret — trop tard, hélas, pour
 pouvoir s'opposer aux folles et tragiques équipées du
 Je revis Dombrovski quelques jours après, quand il
 commandait sur la rive droite. Dans un élan admirable, il
-avait repris Neuilly jusqu'à la Seine. Il me dit qu'il man-
-quait d'un général pour conduire les opérations du Sud.
+avait repris Neuilly jusqu'à la Seine. Il me dit qu'il manquait d'un général pour conduire les opérations du Sud.
 Je lui demandai ce qu'il pensait de Wroblevski, dont
 m'avait parlé avec grands éloges Micielski.
 La réponse de Dombrovski fut tellement flatteuse à
 l'égard de Wroblevski, que je fis inviter ce dernier à me
 venir voir.
-Wroblevski jouissait, parmi ses compatriotes, combat-
-tants de l'insurrection polonaise de 1863, d'un prestige
+Wroblevski jouissait, parmi ses compatriotes, combattants de l'insurrection polonaise de 1863, d'un prestige
 militaire mérité. D'une bravoure à toute épreuve, on racon-
 
 *membres de la Commune*
@@ -1247,17 +1172,14 @@ entre Français.
 — Il s'agit, — lui dis-je, — de sauver la République
 menacée par Versailles.
 Je regardais son acceptation comme si précieuse pour la
-Commune, que je n'hésitai même pas à le menacer d'arres-
-tation, s'il persistait dans son refus.
+Commune, que je n'hésitai même pas à le menacer d'arrestation, s'il persistait dans son refus.
 — Avec nous ou contre nous, — lui dis-je. Dans le second
 cas, mon devoir est de vous arrêter.
 
 *La réunion de la rue des Dames*
 
-Je passais la plus grosse partie de mon temps aux avant-
-postes. J'allais très peu à l'Hôtel de Ville. Je m'étais vite
-aperçu qu'on y discourait beaucoup trop, et qu'on y agis-
-sait fort peu. La seule préoccupation eût être cependant
+Je passais la plus grosse partie de mon temps aux avantpostes. J'allais très peu à l'Hôtel de Ville. Je m'étais vite
+aperçu qu'on y discourait beaucoup trop, et qu'on y agissait fort peu. La seule préoccupation eût être cependant
 la conduite des opérations militaires. C'était un de nos
 fréquents sujets de conversation, aussi bien avec Rossel
 qu'avec Dombrovski. A mon avis, le salut était dans la
@@ -1270,10 +1192,7 @@ de Ville. C'est ce qui me valut de faire partie du premier
 Comité, élu le mai.
 A la veille de la proposition qui fut faite à la Commune,
 dans sa séance du 28 avril, nous eûmes, Rossel, Dombrovski,
-Wroblevski et moi, une réunion rue des Dames, aux Bati-
-
-gnolles. Dombrovski y prit le premier la parole. Il repré-
-senta la situation militaire telle qu'elle était, c'est-à-dire
+Wroblevski et moi, une réunion rue des Dames, aux Batignolles. Dombrovski y prit le premier la parole. Il représenta la situation militaire telle qu'elle était, c'est-à-dire
 très compromise. Avec la coexistence de la Commune et du
 Comité Central, toute action efficace et toute organisation
 étaient impossibles. Il posa ce principe, que les chefs d'une
@@ -1281,11 +1200,9 @@ révolution aussi grande que la révolution communaliste
 devaient être capables de conduire leurs électeurs au
 combat. Il ajouta qu'il considérait la majorité des membres
 de la Commune comme incapables à tous les points de vue
-de remplir cette condition, et que le triomphe étant impos-
-sible avec eux, il fallait vaincre sans eux. Sa conclusion fut:
+de remplir cette condition, et que le triomphe étant impossible avec eux, il fallait vaincre sans eux. Sa conclusion fut:
 la dictature d'un groupe d'hommes jeunes et énergiques,
-l'appel aux volontaires, le casernement des troupes, l'appli-
-cation de la loi martiale aux traîtres et aux lâches, et, enfin,
+l'appel aux volontaires, le casernement des troupes, l'application de la loi martiale aux traîtres et aux lâches, et, enfin,
 dès l'organisation parfaite des volontaires, c'est-à-dire en
 huit ou dix jours, commencement des opérations sur le Sud
 et manifeste à la France. La discussion fut calme et de
@@ -1302,8 +1219,7 @@ j'avais fait depuis mon élection à la Commune, à consacrer
 le meilleur de mes efforts à la défense.
 Peu de jours après, les relations de Rossel et Dombrovski
 devaient se refroidir. Dombrovski reprochait à Rossel de
-ne pas lui envoyer les hommes et les munitions qu'il récla-
-mait. L'acquittement, par le conseil de guerre de Versailles,
+ne pas lui envoyer les hommes et les munitions qu'il réclamait. L'acquittement, par le conseil de guerre de Versailles,
 du directeur du Comité d'artillerie, depuis, suffisamment
 expliqué les raisons secrètes de l'inexécution des ordres.
 Deux jours avant l'arrestation de Rossel, le 8 mai, j'arrivai
@@ -1319,14 +1235,12 @@ certain nombre de régiments, qui seraient casernés et
 tenus à la disposition de Dombrovski. Mais les événements
 devaient bientôt se précipiter. Le lendemain 9, Rossel
 
-Le 10 mai, la Commune, après avoir voté, la veille, l'arres-
-tation de Rossel, décide qu'il sera livré à la Cour martiale,
+Le 10 mai, la Commune, après avoir voté, la veille, l'arrestation de Rossel, décide qu'il sera livré à la Cour martiale,
 et, en attendant, enfermé à Mazas. Rossel est venu à l'Hôtel
 de Ville. Il attend à la questure, sous la garde d'Avrial, qui
 le laisse seul pour retourner en séance. Le vote émis, —
 Malon et moi avons voté contre, — je vais rejoindre Rossel,
-que je trouve dans la chambre bleue (1) servant de perma-
-nence aux membres du Comité de Salut public. J'instruis
+que je trouve dans la chambre bleue (1) servant de permanence aux membres du Comité de Salut public. J'instruis
 Rossel. « Vous n'avez pas, lui dis-je, l'intention de remettre
 votre honneur entre les mains des membres de la Cour
 martiale, dont certains vous sont connus. C'est moi qui
@@ -1347,17 +1261,14 @@ du boulevard Saint-Germain.
 que 23 mai, fut porté Dombrovski, mortellement blessé rue
 Myrrha. Voir Cahier IX, pages 115 et suivantes.
 
-Nous eûmes bientôt des nouvelles l'un de l'autre. Deles-
-cluze, qui nous avait conservé à tous deux ses sympathies,
+Nous eûmes bientôt des nouvelles l'un de l'autre. Delescluze, qui nous avait conservé à tous deux ses sympathies,
 nous envoyait fréquemment un jeune ingénieur, Charles
 Heuzey, qui fut, m'a-t-on dit, pris et fusillé à la caserne
 Lobau. Delescluze me faisait dire d'attendre. J'avais hâte
-de prendre de nouveau part à l'action. J'écrivis à Dom-
-brovski. Je lui dis que je ne serais pas fâché de me battre
+de prendre de nouveau part à l'action. J'écrivis à Dombrovski. Je lui dis que je ne serais pas fâché de me battre
 incognito aux avant-postes. Il me fit répondre de ne pas me
 montrer au quartier général, si je ne voulais être arrêté,
-mais que, dès l'organisation achevée des nouveaux régi-
-ments, Rossel et moi devions avoir chacun un corps à
+mais que, dès l'organisation achevée des nouveaux régiments, Rossel et moi devions avoir chacun un corps à
 commander dans l'opération d'ensemble qui serait tentée.
 Quatre jours après cette réponse de Dombrovski, les
 Versaillais étaient dans Paris. Dombrovski devait tomber,
@@ -1365,8 +1276,7 @@ le 23 mai, à la barricade de la rue Myrrha. Le 28 novembre
 1871, Rossel était fusillé à Satory. Depuis notre évasion de
 l'Hôtel de Ville, je ne l'avais pas revu.
 
-Juin 1913. Une lettre de Lonclas. Je n'ai pas ren-
-contré Lonclas depuis des siècles. Depuis 1875, où il
+Juin 1913. Une lettre de Lonclas. Je n'ai pas rencontré Lonclas depuis des siècles. Depuis 1875, où il
 vint nous surprendre, Vermersch et moi, à Altorf. (1)
 Franchement, je ne croyais plus le revoir. Tout de suite
 quand on m'apporte sa carte, passe devant mes yeux
@@ -1375,8 +1285,7 @@ pleine et rose, barrée d'une moustache châtain clair,
 l'uniforme de colonel chef de la légion. Quelques
 jours après, je le retrouve, la rosette rouge à franges
 d'or des membres de la Commune à la boutonnière.
-Lonclas a été élu à la Commune aux élections complé-
-mentaires d'avril. Tous ces souvenirs se pressent en
+Lonclas a été élu à la Commune aux élections complémentaires d'avril. Tous ces souvenirs se pressent en
 moi, quand il me tend la main, la moustache blanchie,
 — il a soixante-dix-sept ans, — mais l'œil brun toujours
 Nous causons. Je lui rappelle notre course à la
@@ -1400,8 +1309,7 @@ Quand éclata le 18 Mars, —
 garde nationale du douzième arrondissement, quartiers
 des Quinze-Vingts et de Bercy.
 Aussitôt que la nouvelle de la victoire de Montmartre
-m'est connue, je me dirige à la hâte vers l'avenue Dau-
-mesnil, près du boulevard Mazas, lieu habituel de réunion
+m'est connue, je me dirige à la hâte vers l'avenue Daumesnil, près du boulevard Mazas, lieu habituel de réunion
 du bataillon.
 Le bataillon est là, au complet. Onze compagnies. En tout
 1.200 hommes, bien armés, résolus.
@@ -1432,8 +1340,7 @@ Je passe le commandement du bataillon au capitaine
 Declerc, chevalier de la Légion d'honneur, homme très
 énergique, très loyal, véritable type du soldat, et je pars
 pour la rue d'Aligre, escorté de quelques-uns de mes
-C'est ainsi qu'en moins d'une heure, je fus successive-
-ment capitaine, commandant et colonel chef de légion.
+C'est ainsi qu'en moins d'une heure, je fus successivement capitaine, commandant et colonel chef de légion.
 Avancement extraordinairement rapide, comme tu vois.
 Il y avait toutefois une raison à cela, comme te le
 montrer le récit suivant.
@@ -1454,8 +1361,7 @@ Ces canons provenaient de la souscription populaire à
 Il s'agissait de s'emparer de ces canons et de les placer,
 afin qu'ils ne fussent pas livrés aux Prussiens, sous la garde
 jalouse et vigilante de la garde nationale.
-Une expédition fut décidée. On m'en donna le commande-
-ment, que j'acceptai avec enthousiasme.
+Une expédition fut décidée. On m'en donna le commandement, que j'acceptai avec enthousiasme.
 Plusieurs officiers du s'offrirent à m'accompagner.
 Je leur déclarai que je me rendrais d'abord, seul, sans
 escorte, auprès de l'ingénieur des ateliers du P.-L.-M., rue
@@ -1474,11 +1380,9 @@ Je le vois encore, sortant, tête nue, la serviette à la main,
 dans la vaste cour, à l'extrémité de laquelle était son
 Brièvement, mais sur un ton qui ne comportait pas de
 réplique, je sommai l'ingénieur, au nom du Peuple, de me
-remettre les canons qu'il détenait et qui, sans doute, — ajou-
-tai-je, — allaient être livrés à l'ennemi.
+remettre les canons qu'il détenait et qui, sans doute, — ajoutai-je, — allaient être livrés à l'ennemi.
 — Je n'ai pas de canons, — me répondit l'ingénieur. — Et
-du reste, si j'en avais, je ne les livrerais pas à vous, capi-
-taine, qui n'avez aucun mandat du gouvernement.
+du reste, si j'en avais, je ne les livrerais pas à vous, capitaine, qui n'avez aucun mandat du gouvernement.
 — C'est bien, monsieur, répondis-je. Le mandat que vous
 désirez, je me le donne à moi-même, et voici ceux qui vont
 
@@ -1512,8 +1416,7 @@ Je signai le reçu qui m'était demandé. Je le signai au
 nom du peuple de Paris, représenté par le bataillon de
 la garde nationale, dont j'avais exécuté les ordres.
 L'enlèvement des canons du P.-L.-M. fut accueilli dans
-tout le faubourg Saint-Antoine par une explosion d'enthou-
-siasme. On venait de tous les côtés me féliciter de ce bril-
+tout le faubourg Saint-Antoine par une explosion d'enthousiasme. On venait de tous les côtés me féliciter de ce bril-
 Ma compagnie tint à honneur de monter la première
 garde autour de notre butin. Chaque jour, les compagnies
 du se relevaient l'une après l'autre.
@@ -1521,8 +1424,7 @@ Le Comité Central fut avisé.
 
 (1) L'exploit de Lonclas se place dans l'après-midi du 28 février,
 la veille de l'entrée des Prussiens. Charles Yriarte, dans son livre
-*Les Prussiens à Paris et le 18 Mars,* page 44, publie la dépêche sui-
-vante: « Secrétaire général de la préfecture de police à préfet aux
+*Les Prussiens à Paris et le 18 Mars,* page 44, publie la dépêche suivante: « Secrétaire général de la préfecture de police à préfet aux
 affaires générales, 28 février, 3 h. 25 m. soir. Les gardes nationaux
 du douzième arrondissement prennent les armes. Le a formé
 les faisceaux avenue Daumesnil. Ces gardes nationaux prétendent
@@ -2353,9 +2255,7 @@ A Montretout, ainsi que le dit très exactement M. Vuillaume, la conduite du de 
 
 Voici ce que dit M. Justin Bellanger d'Eugène Despois, dont nous avons déjà parlé à diverses reprises ici:
 
-J'ai très particulièrement connu, admiré et aimé cet écrivain de grand mérite doublé d'un citoyen de grand caractère. J'ai été son élève à *Louis-le-Grand* (rhétorique) et aussi à Sainte-Barbe où il conférenciait au temps de Labrouste et de Guérard. On sait quelle fut l'ardeur de ses convictions républicaines et surtout la noblesse avec laquelle il renonça courageusement pour elles à une situation exceptionnellement brillante que ses talents lui avaient faite dans l'Université. Quand le suffrage des citoyens fut appelé à élire un nouveau maire pour le quatorzième arron-
-
-dissement, je fus délégué, moi troisième, par nos camarades du bataillon pour aller offrir à Despois la promesse de nos suffrages en sa faveur, s'il y consentait. Il habitait rue Saint-Jacques. Nous le trouvâmes à son bureau, en face de son écritoire, grave et doux, comme il était toujours. Il nous écouta fort gracieusement et nous remercia de même, s'excusant sur son incapacité absolue pour le métier d'administrateur et son défaut complet d'aptitude aux affaires. « Prenez un épicier, il en saura plus long que moi ». Ce fut exactement ce qu'il nous dit en non sous congédiant. Je lui répondis par je ne sais plus quelle citation de Juvénal, son poète favori, et en entendant ce vers il me regarda plus fixement et me reconnut. On échangea quelques mots sur le passé, et ce fut ainsi que Despois en refusant la mairie du quatorzième donna un exemple de sagesse qui eût être suivi par beaucoup d'ambitieux de ces temps-là.
+J'ai très particulièrement connu, admiré et aimé cet écrivain de grand mérite doublé d'un citoyen de grand caractère. J'ai été son élève à *Louis-le-Grand* (rhétorique) et aussi à Sainte-Barbe où il conférenciait au temps de Labrouste et de Guérard. On sait quelle fut l'ardeur de ses convictions républicaines et surtout la noblesse avec laquelle il renonça courageusement pour elles à une situation exceptionnellement brillante que ses talents lui avaient faite dans l'Université. Quand le suffrage des citoyens fut appelé à élire un nouveau maire pour le quatorzième arrondissement, je fus délégué, moi troisième, par nos camarades du bataillon pour aller offrir à Despois la promesse de nos suffrages en sa faveur, s'il y consentait. Il habitait rue Saint-Jacques. Nous le trouvâmes à son bureau, en face de son écritoire, grave et doux, comme il était toujours. Il nous écouta fort gracieusement et nous remercia de même, s'excusant sur son incapacité absolue pour le métier d'administrateur et son défaut complet d'aptitude aux affaires. « Prenez un épicier, il en saura plus long que moi ». Ce fut exactement ce qu'il nous dit en non sous congédiant. Je lui répondis par je ne sais plus quelle citation de Juvénal, son poète favori, et en entendant ce vers il me regarda plus fixement et me reconnut. On échangea quelques mots sur le passé, et ce fut ainsi que Despois en refusant la mairie du quatorzième donna un exemple de sagesse qui eût être suivi par beaucoup d'ambitieux de ces temps-là.
 
 C'est en toute sincérité que je vous écris ces lignes, et je serai heureux si vous les considérez comme un témoignage de l'exceptionnelle attention avec laquelle je lis vos précieux cahiers. Je vous présente mes bien cordiales salutations.
 

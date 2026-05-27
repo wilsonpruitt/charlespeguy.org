@@ -60,8 +60,7 @@ arrondissement: on recevra en retour le catalogue
 analytique sommaire, 1900-1904, de nos cinq premières séries
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 Ce catalogue, grand jésus, forme un cahier
@@ -90,13 +89,11 @@ d'Aristote n'avait rien dans le monde, malgré tout
 ce qu'a bouleversé l'élève d'Aristote: mais, l'Église se
 l'étant plus tard assimilée, cette même ontologie a remué des foules, provoqué des groupements, des guerres,
 des chutes de domination. Voici que le concept inerte
-est devenu un facteur de l'histoire. C'est qu'il est à pré-
-sent commandé; il le faut professer pour être partie de
+est devenu un facteur de l'histoire. C'est qu'il est à présent commandé; il le faut professer pour être partie de
 la société des bons, pour avoir droit au partage de la
 félicité promise sous conditions. Et cette énergie du
 groupe fermé, aussi bien qu'elle embrasse l'idée, aussi
-bien la repousse: dans l'un et l'autre cas, elle y inté-
-resse le cœur. L'Église fait qu'on a honni etemprisonné
+bien la repousse: dans l'un et l'autre cas, elle y intéresse le cœur. L'Église fait qu'on a honni etemprisonné
 
 catholicisme et critique
 
@@ -119,8 +116,7 @@ des consternations et, peut-être, une scission dans la
 Vous voyez à quelle condition une idée pure engrène
 sur les mobiles d'un groupe d'hommes, à condition
 qu'elle devienne impure un peu: un caractère d'obligation s'y ajoutant, pour commander ou pour défendre,
-un espoir de bonheur s'y mêlant, récompense de l'adhé-
-sion. Mais, réciproquement, observez comme les mobiles du groupe, à partir du moment où la question
+un espoir de bonheur s'y mêlant, récompense de l'adhésion. Mais, réciproquement, observez comme les mobiles du groupe, à partir du moment où la question
 spéculative est devenue sociale, réagissent sur l'idée,
 en la déviant, en détournant de pousser à bout avec
 l'inflexibilité permise à une logique de solitaire. Le
@@ -130,8 +126,7 @@ et réaction offrent à l'historien un beau graphique
 sinueux et pourtant clair.
 
 Cette socialisation pathétique des idées, l'Église l'a
-opérée vingt fois, cent fois, sans cesse, pendant la pé-
-riode d'organisation du dogme, laquelle s'est close, en
+opérée vingt fois, cent fois, sans cesse, pendant la période d'organisation du dogme, laquelle s'est close, en
 Orient, par saint Jean Damascène, et dans notre Occident, à l'époque de Charlemagne.Maintenant, après tant
 desiècles de simple et paisible conservation de l'acquis,
 après Trente, après le Vatican, quelle idée neuve introduite dans le catholicisme ébranlerait encore la sensibilité 2... On a parler, quelque temps, de dériver
@@ -269,12 +264,9 @@ la foi chrétienne rudement qualifiée, repoussée en bloc,
 devient avant tout « notre foi « ma foi » personnelle,
 et l'instinct immédiat de se défendre soi-même en elle
 prime le besoin de se la définir. Alors se produit dans
-la catholicité un brusque arrêt de germination. Assuré-
-ment les consciences qui sont en pleine activité d'investigation ne s'interrompent point; mais on les interrompt.
+la catholicité un brusque arrêt de germination. Assurément les consciences qui sont en pleine activité d'investigation ne s'interrompent point; mais on les interrompt.
 Les Anciens de l'Église ne tolèrent plus les essais
-d'examen. Cette touchante timidité des personnes vieil-
-
-lissantes, devant des curiosités qu'on n'avait pas de
+d'examen. Cette touchante timidité des personnes vieillissantes, devant des curiosités qu'on n'avait pas de
 leur temps, fait place à une impérieuse compression
 des intelligences jeunes.
 
@@ -292,8 +284,7 @@ pour expliquer que les autorités épiscopales et pontificale aient déployé ta
 contre le meilleur cerveau, apparemment, qu'il y ait
 aujourd'hui dans l'Église catholique, M. Alfred Loisy.
 Je crois volontiers qu'en des temps de possession paisible l'on:aurait montré plus d'égards à ce critique excellent. Mais le moment est aux conservateurs purs. Des
-deux grands partis qui sont parmi les clercs, les /nté-
-gristes, comme on dit en jargon de séminaire, et les
+deux grands partis qui sont parmi les clercs, les /ntégristes, comme on dit en jargon de séminaire, et les
 Concessionnistes, c'est le premier qui l'emportera, tant
 que durera la lutte politique du clergé catholique pour
 l'existence. Les Concessionnistes, rejetés déjà par Léon
@@ -304,7 +295,7 @@ catholicisme et critique
 Frères de Saint-Vincent-de-Paul, et par l'abbé Gayraud,
 député du Finistère; en 1902, par M. Turinaz, évêque
 de Nancy. Celui-ci dénonce « les Périls de la foi et de
-la discipline »; les autres parlent « Infiltrations protestantes de « Nouveau Catholicisme etc.
+la discipline les autres parlent « Infiltrations protestantes de « Nouveau Catholicisme etc.
 
 Il est des « Concessionnistes » de deux sortes. Les
 uns effritent petit à petit le Syllabus et se mettent à
@@ -312,16 +303,14 @@ raccommoder le catholicisme avec la mobile civilisation
 post-révolutionnaire: autonomie des peuples et des
 consciences, concurrence ouverte des idées, réforme de
 la société dans le sens socialiste ou dans le sens libertaire: ce sont des catholiques libéraux de la suite de
-Lamennais; à présent, on les dénomme « Américanistes à cause du catholicisme des États-Unis d'Amé-
-rique dont l'exemple les stimule et les autorise. Ceux-là
+Lamennais; à présent, on les dénomme « Américanistes à cause du catholicisme des États-Unis d'Amérique dont l'exemple les stimule et les autorise. Ceux-là
 menacent particulièrement « la discipline selon le classement de l'évêque de Nancy. C'est plutôt « la foi » qui
 est mise en péril par les autres, les Critiques de l'école
 large. A ceux-ci le nom de concessionnistes est tout à
 fait mal appliqué. « On ne fait pas de concession à une
 vérité, de quelque ordre qu'elle soit, lorsqu'on la voit
 et qu'on l'accepte dit M. Loisy. Au contraire, c'est le
-refus de rien concéder à la politique, aux molles con-
-ventions, aux erreurs, qui rend ces critiques fâcheux
+refus de rien concéder à la politique, aux molles conventions, aux erreurs, qui rend ces critiques fâcheux
 aux diplomates d'Église; et les vrais concessionnistes
 sont plutôt ceux qui, voyant où la vérité les pousse, en
 suspendent opportunément la recherche pour ménager
@@ -344,17 +333,14 @@ IL importe donc de les étudier de près, en déterminant
 leur position dans l'histoire intellectuelle de l'orthodoxie
 romaine depuis cent ans. Cinq ou six pages y sufliront,
 où je me contenterai souvent de résumer le livre de
-l'abbé Houtin: La Question Biblique chez les catholiques de France au dix-neuvième siècle; bonne introduc-
-
-tion à l'exposé des idées de M. Loisy, lecture divertissante et fort utile (que, par malheur, la congrégation de
+l'abbé Houtin: La Question Biblique chez les catholiques de France au dix-neuvième siècle; bonne introduction à l'exposé des idées de M. Loisy, lecture divertissante et fort utile (que, par malheur, la congrégation de
 l'Index ne permet plus aux fidèles, quoiqu'on n'y ait
 relevé ni erreur de fait, ni assertion où accrocher le
 grief d'hétérodoxie; — seulement la simple citation,
 avec flegme, des opinions produites par les traditionnistes au cours du dix-neuvième siècle, donne au livre
 un tour de pamphlet).
 
-On ne le peut nier: les conclusions les plus archaï-
-ques sont toujours celles qui prévalent auprès des autorités ecclésiastiques. Officiellement les thèses de
+On ne le peut nier: les conclusions les plus archaïques sont toujours celles qui prévalent auprès des autorités ecclésiastiques. Officiellement les thèses de
 
 catholicisme et critique
 
@@ -445,9 +431,7 @@ latiniste, un phonétiste original, afin de conclure de
 que l'Église favorise les sciences. Car il serait à démontrer que l'Église a formé ceux-ci, les a suscités et aidés,
 plutôt que gênés, dans ce beau labeur scientifique dont
 elle se pare. Son attitude vraie à l'égard de la science
-se révèle mieux, — puisque son pouvoir le plus mani-
-
-feste est un pouvoir d'empêchement, — à rechercher si
+se révèle mieux, — puisque son pouvoir le plus manifeste est un pouvoir d'empêchement, — à rechercher si
 elle a fait la police, comme elle le pouvait, des publications qui sont un outrage à toute saine méthode; parmi
 les milliers de livres qu'elle a interdits, il faudrait
 examiner si, officiellement, elle en a discrédité un seul
@@ -458,8 +442,7 @@ Mais les apologistes tirent avantage des institutions
 de science qui ont été, depuis un siècle, ouvertes aux
 clercs. On cite cinq ou six fondations successivement
 essayées, avant la loi de 1875, en vue de balancer la
-Sorbonne, tenue pour gallicane, et d'élargir SaintSulpice, c'est-à-dire en vue de former une nouvelle géné-
-ration de prêtres plus savants qu'on ne l'est au sortir du
+Sorbonne, tenue pour gallicane, et d'élargir SaintSulpice, c'est-à-dire en vue de former une nouvelle génération de prêtres plus savants qu'on ne l'est au sortir du
 séminaire, savants pour savoir, et plutôt encore savants
 pour défendre solidement la foi: l'école des deux La
 Mennais, celle de l'abbé Bautain, l'oratoire restauré de
@@ -475,8 +458,7 @@ On s'aflige à supputer la levée d'hommes que l'Église
 du dix-neuvième siècle, avec son admirable personnel de
 célibataires pauvres, eût fournir au ministère scientifique.. Il faut avouer que la tradition, en France,
 des Mabillon et des Richard Simon ne s'est pas soutenue.
-Quelle est donc cette entrave, plus forte au dix-neu-
-vième siècle, par laquelle la très grande majorité des
+Quelle est donc cette entrave, plus forte au dix-neuvième siècle, par laquelle la très grande majorité des
 clercs et des laïcs pieux est arrêtée, alors qu'il leur suffirait de réfléchir honnêtement sur la tradition, à l'aide
 de quelques bons livres de méthode d'un facile accès,
 pour regagner du coup un retard de deux ou trois siè-
@@ -491,9 +473,7 @@ condamner le Traité des Études monastiques de Mabillon. Les moines ne sont plu
 réclament le droit d'entretenir des Universités.
 
 Au contraire, ce qui frappe, lorsqu'on lit les ouvrages
-apologétiques du dix-neuvième siècle, c'est le ton mon-
-
-dain, l'aplomb infatué. On y reconnaît une éducation
+apologétiques du dix-neuvième siècle, c'est le ton mondain, l'aplomb infatué. On y reconnaît une éducation
 uniquement « littéraire » et sans dessous. Rien n'est plus
 propre, en effet, à faire passer le goût de la vérité
 exacte. Un bon document sur cet état d'esprit du clergé
@@ -537,22 +517,18 @@ quelque chose qui refroïdit involontairement pour le
 système reçu. » Ces raisonnements de vicomtes se
 retrouvent dans presque tous les écrits traditionnistes
 du dix-neuvième siècle. Celui qu'on vient d'entendre, de
-Victor de Bonald, reparaît, non moïns élégant, soixantecinq ans plus tard, en 1900, dans les conférences ecclé-
-siastiques du diocèse de Versailles. Comme il s'agit
+Victor de Bonald, reparaît, non moïns élégant, soixantecinq ans plus tard, en 1900, dans les conférences ecclésiastiques du diocèse de Versailles. Comme il s'agit
 d'examiner la conclusion des historiens critiques, qui
 met à néant la légende de disciples immédiats de Jésus
 s'en venant en Gaule fonder les évêchés, les curés de
 Versailles objectent: « Imagine-t-on ce quasi dédain de
 la Providence pour notre France? Ce titre de Fille
-aînée qui devait plus tard lui être décerné n'obligeait18
-
-il pas, en quelque sorte, l'Église naissante à la compter
+aînée qui devait plus tard lui être décerné n'obligeaitil pas, en quelque sorte, l'Église naissante à la compter
 parmi les nations évangélisées dès le début? » C'est
 bien encore, chez de modestes curés, la méthode cavalière des apologistes gentilshommes. On croirait déroger
 en se mettant petitement à l'école des faits.
 
-Puis le romantisme était survenu, dont l'improbe rhé-
-torique gagna l'Église par Lacordaire et ses continuateurs; alors à ces démonstrations nonchalantes, dont
+Puis le romantisme était survenu, dont l'improbe rhétorique gagna l'Église par Lacordaire et ses continuateurs; alors à ces démonstrations nonchalantes, dont
 un Ruinart se fût scandalisé, il s'est ajouté une ampleur populaire, dans le ton, et quant à la force probante, un appel aux foules, qui est la perte de toute
 
 raison. Enfin le public catholique, au dix-neuvième
@@ -583,9 +559,7 @@ Hautes Études, membre de l'École française de Rome
 confiée à l'abbé Paulin Martin, à qui l'on donna comme
 auxiliaire, pour l'hébreu, en décembre 1881, l'abbé Alfred Loisy, prêtre du diocèse de Châlons, lequel était
 venu à Paris pour reprendre ses études ecclésiastiques
-après un court ministère dans une paroisse rurale. Celui-ci n'avait pas encore vingt-cinq ans. D'abord auto-
-
-catholicisme et critique
+après un court ministère dans une paroisse rurale. Celui-ci n'avait pas encore vingt-cinq ans. D'abord autocatholicisme et critique
 : didacte, il se mit alors à suivre, à l'École des Hautes
 Études, les cours d'assyrien et d'éthiopien, au Collège
 de France, les explications de textes hébreux que donnait Renan. C'est ainsi, doucement, petitement, que
@@ -598,8 +572,7 @@ surpris de goûter, dans de menues questions d'abord,
 la substitution du savoir au croire. En 1880, M. Duchesne avec quelques amis fonda le Bulletin critique,
 dont la fonction était de compléter l'enseignement positif
 de la méthode en passant au crible et à létrille les
-publications sans méthode. Du coup les études ecclé-
-siastiques sentirent la secousse, la science « édifiante »
+publications sans méthode. Du coup les études ecclésiastiques sentirent la secousse, la science « édifiante »
 ne régna plus avec autant d'assurance.
 
 L'abbé Duchesne, à la différence de M. Loïsy, ne
@@ -644,8 +617,7 @@ propre diocésain étaient traitées avec peu d'égard dans
 une chaire qu'ils protégeaient. En particulier le cardinal
 Bernadou, archevêque de Sens, fut outré de l'irrespect
 avec lequel on retirait la qualité de disciples immédiats
-du Christ aux saints Savinien et Potentien, ses prédé-
-cesseurs sur le siège primatial de Sens, par le fait qu'on
+du Christ aux saints Savinien et Potentien, ses prédécesseurs sur le siège primatial de Sens, par le fait qu'on
 les descendaïit au quatrième siècle. Il en exprima”si
 bien sa paternelle afliction que le coadjuteur de Paris
 (aujourd'hui archevêque), dut par prudence donner au
@@ -679,12 +651,10 @@ en silence. L'archevêque, afin de l'occuper innocemment
 et de l'éteindre, le délégua dans une petite aumônerie,
 chez les dames Dominicaines de Neuilly, pour confesser
 et catéchiser de jeunes demoiselles. Moins heureux que
-son ancien ami, il ne se fit pas ouvrir les portes de l'Institut et des honneurs officiels. Il est resté un simple pré-
-tre, sans soutien, sans autre titre que sa science et la
+son ancien ami, il ne se fit pas ouvrir les portes de l'Institut et des honneurs officiels. Il est resté un simple prétre, sans soutien, sans autre titre que sa science et la
 rectitude ascétique de sa conduite.
 
-Mais il est d'un caractère à tirer parti de ses disgrà-
-ces. Rien ne l'a fait dévier; tous les empêchements de
+Mais il est d'un caractère à tirer parti de ses disgràces. Rien ne l'a fait dévier; tous les empêchements de
 se dépenser au dehors se sont tournés en occasions de
 s'enrichir au dedans. D'abord la dépossession de sa
 chaire d'hébreu lui donna lieu de quitter un peu l'Ancien
@@ -710,14 +680,12 @@ dont sa pensée était entravée; il la donna franche et
 intégrale en deux livres qui ne sont plus du tout d'un
 ecclésiastique prudent. Enfin les récentes censures ou condamnations, en l'amenant à se retirer de
 l'École des Hautes Études et du Corpus inscriptionum
-semiticarum, vont concentrer son effort sur l'achève-
-ment du commentaire des Évangiles synoptiques, qui
+semiticarum, vont concentrer son effort sur l'achèvement du commentaire des Évangiles synoptiques, qui
 s'annonce comme une grande œuvre... Aïnsi chaque
 prohibition fournit à M. Loisy une étape de son avancement intellectuel, ce qui n'était pas sans donte l'intention de ses empêcheurs. Au contraire d'autres, à qui
 leurs audaces ont mieux réussi, deviennent de plus en
 plus incurieux à mesure qu'ils s'élèvent.
-En vérité, cet homme frêle, valétudinaire, de conte-
-nance modeste, d'écriture minuscule, de voix nette et
+En vérité, cet homme frêle, valétudinaire, de contenance modeste, d'écriture minuscule, de voix nette et
 faible, est difficile à abattre. C'est un obstacle sérieux,
 
 plus sérieux que Lamennaïs, car sa force n'est pas dans
@@ -777,8 +745,7 @@ dans sa pensée propre, qui lui semble partout également
 solide, qu'elle soit découverte positive de savant, ou
 spéculation de philosophe.
 
-Considérant d'ensemble cette œuvre de M. Loisy, exé-
-gète, critique et historien, essayons d'en dégager les
+Considérant d'ensemble cette œuvre de M. Loisy, exégète, critique et historien, essayons d'en dégager les
 principes, afin de bien comprendre, non seulement sa
 position à lui, mais, par antithèse, celle de la catholicité
 officielle qui vient de le désavouer.
@@ -794,9 +761,7 @@ faire connaître dans notre pays la thèse générale sur la
 nature desparaboles, avecles arguments qui l'appuient. »
 Si bien qu'on ne sait d'abord si le critique français n'est
 pas un simple truchement. Et partout c'est même effacement, ou même empressement du critique à donner
-comme banales et admises de tout le monde les conclu-
-
-catholicisme et critique
+comme banales et admises de tout le monde les conclucatholicisme et critique
 sions dont on pourrait lui faire honneur, ou lui faire
 grief. Où trouver les idées de M. Loisy lui-même?
 On peut démêler toutefois celles qui lui sont essentielles en observant ce qui, dans les thèses d'autrui, lui
@@ -807,13 +772,11 @@ nous touchons, si je ne me trompe, au centre résistant
 de cette souple pensée. Pour plus de netteté, réduisons
 ce que nous y découvrons à quatre chefs ou articles.
 1° Une règle de méthode, dont l'application range!
-M. Loisy parmi les critiques purement critiques: détermination rigoureuse et entièrement libre des faits histo-
-riques ou philologiques, sans nulle prévention dogmatique, ni égard aux conséquences;
+M. Loisy parmi les critiques purement critiques: détermination rigoureuse et entièrement libre des faits historiques ou philologiques, sans nulle prévention dogmatique, ni égard aux conséquences;
 Un postulat, dont le critique a besoïn pour se
 mettre d'accord avec le théologien: dans le débat sur
 la vérité surnaturelle et a priori des Écritures, distinction du point de vue de l'historicité exacte, qui n'est ni
-défendable, ni même intelligent, pour la grande majo-
-rité des récits (par exemple pour ceux de la Création,
+défendable, ni même intelligent, pour la grande majorité des récits (par exemple pour ceux de la Création,
 du Déluge, et des actes ou paroles de Jésus dans l'évangile de Jean) — et du point de vue de la vérité doctrinale, psychologique, humaine, qu'il faut préserver
 Une théorie explicative des faits que la critique!
 dégage, théorie d'un Développement religieux continu,
@@ -827,8 +790,7 @@ des origines, en réalité se poursuit dans toute l'histoire
 de la religion et en consacre les moments successifs;
 
 4° Une conclusion ferme sur le sens de tout ce travail: nonobstant les règles ou opinions ci-dessus, et
-même en se fondant sur ces opinions, prétention dé-
-clarée, motivée, persistante, de rester fidèle catholique.
+même en se fondant sur ces opinions, prétention déclarée, motivée, persistante, de rester fidèle catholique.
 
 _Manifestement, chacun de ces points, pris à part, se
 retrouve en maint auteur. C'est de les coordonner, sans
@@ -882,9 +844,7 @@ certes plus complaisant aux vieilles thèses que M. Loisy.
 La critique historique de ce dernier est aussi libre qu'il
 se puisse; elle est libre absolument,
 
-D'abord il refuse aux solutions traditionnelles le bé-
-néfice de la possession; ensuite il écarte toute immix-
-tion de la dogmatique dans les recherches de l'historien;
+D'abord il refuse aux solutions traditionnelles le bénéfice de la possession; ensuite il écarte toute immixtion de la dogmatique dans les recherches de l'historien;
 
 enfin il passe outre aux effets scandalisants ou édifiants
 des conclusions de la critique, parmi un public moins
@@ -899,8 +859,7 @@ c'est-à-dire de poser d'abord comme fait d'histoire tout
 le bloc anonyme, composite, sans cesse grossissant, de
 la tradition, quitte à en retrancher véridiquement ce
 qui sera démontré faux, de sorte que la preuve soit
-toujours à la charge de celui qui s'écarte de la tradi-
-tion, — c'est ce qu'aflirme l'illustre communauté de Solesmes en ces termes: « Lorsque certains écrivains catholiques paraissent si fort préoccupés de la crainte de
+toujours à la charge de celui qui s'écarte de la tradition, — c'est ce qu'aflirme l'illustre communauté de Solesmes en ces termes: « Lorsque certains écrivains catholiques paraissent si fort préoccupés de la crainte de
 croire trop, ils s'exposent au danger bien autrement
 sérieux de ne pas croire assez. » Les catholiques doivent
 donc disputer pied à pied à la critique les positions
@@ -939,25 +898,21 @@ crois inutile de chercher un exemple plus significatif
 
 L'abbé Loisy procède de façon exactement contraire.
 
-Pour lui, la critique n'est pas, comme pour dom Gué-
-ranger, @la loi odieuse il lui paraît, non qu'elle
+Pour lui, la critique n'est pas, comme pour dom Guéranger, @la loi odieuse il lui paraît, non qu'elle
 mette obstacle malignement à la joie d'aflirmer, mais
-que seule elle l'autorise et la fonde. L'office de la critique n'est pas, quoi qu'on prétende, restrictif et néga-
-üif;, elle ne retranche de la croyance que Fillusoire,
+que seule elle l'autorise et la fonde. L'office de la critique n'est pas, quoi qu'on prétende, restrictif et négaüif;, elle ne retranche de la croyance que Fillusoire,
 c'est-à-dire ce qui affaiblit la croyance dès lors qu'on
 l'y sent mêlé, en quelque proportion que ce soit. Seule
 la critique établit les faits contingents; et quand elle
 est impuissante à rien établir, il n'y a pas lieu de s'en
 réjouir comme d'un congé donné à l'imagination.
 M. Loisy ne dira donc point, selon la pratique des
-religieux de Solesmes: Puisque sur ce point décidé-
-ment l'on ne sait rien, donnons-nous à cœur joie de
+religieux de Solesmes: Puisque sur ce point décidément l'on ne sait rien, donnons-nous à cœur joie de
 tout croire. Non; quand on ne sait pas, il dit: On ne
 sait pas, — et c'est tout. Mais il se garde bien de savoir avant d'avoir cherché. Il commence par ignorer et
 se méfier; voyons les textes: d'abord la provenance
 des textes, puis la lettre des textes et le sens naturel
-des textes. — Comment atteindrons-nous ce sens naturel si nous souffrons que le sens traditionnel, ecclé-
-siastique, produit d'un travail subséquent et prolongé
+des textes. — Comment atteindrons-nous ce sens naturel si nous souffrons que le sens traditionnel, ecclésiastique, produit d'un travail subséquent et prolongé
 de la conscience religieuse, s'interpose entre nous et le
 texte, pour le dévier? Oublions donc un moment que
 nous sommes enfants de l'Église, afin de voir, sans
@@ -975,9 +930,7 @@ la construction dogmatique qui s'y fonde vacillerait,
 mais que la solidité de celle-ci nous est garantie d'aïlleurs, et qu'ainsi les faits sont vrais parce qu'il faut
 qu'ils le soient; — M. Loisy conseille à lhistorien
 d'ignorer le dogme, du moins provisoirement. Par
-exemple, il n'accorde pas que, voulant restituer l'ensei-
-
-gnement de Jésus, on parte de ceci, que Jésus est Dieu, à
+exemple, il n'accorde pas que, voulant restituer l'enseignement de Jésus, on parte de ceci, que Jésus est Dieu, à
 donc omniscient et tout véridique, pour lui prêter sur
 toutes choses des vues conformes à ce) qui s'est décou-
 
@@ -1017,10 +970,7 @@ aurait nulle objectivité, nulle intégrité, nulle valeur de
 contrôle, ne serait que de l'apologétique travestie en
 histoire. Et si M. Loisy ne reconnaît pas « la tradition »
 pour une source de l'histoire, c'est qu'il sait que la tradition s'est justement formée ainsi, — non comme l'empreinte fidèle, dans les mémoires, d'un fait qui n'est
-plus matériellement saisissable, mais comme laccom-
-
-modation, le plus souvent naïve, du fait à une préoccu-
-pation dogmatique, apologétique.
+plus matériellement saisissable, mais comme laccommodation, le plus souvent naïve, du fait à une préoccupation dogmatique, apologétique.
 
 catholicisme et critique
 Enfin, dernière divergence, tandis que le publiciste
@@ -1059,9 +1009,7 @@ telle démangeaison de savoir, que le diable n'a plus
 grand chose à faire. C'est ainsi que le Quatrième Évangile de M. Loisy, étant un gros livre cher, a échapper longtemps à ses plus vigilants ennemis: on ne la
 
 d'abord discuté nulle part. Mais ses deux petits livres à
-trois francs ont tout de suite circulé, à son grand dommage. On dit que Pie en personne les a lus. Cepen-
-
-dant l'auteur, surpris d'une telle diffusion, suspendait
+trois francs ont tout de suite circulé, à son grand dommage. On dit que Pie en personne les a lus. Cependant l'auteur, surpris d'une telle diffusion, suspendait
 le débit et cherchait l'ombre. Pourquoi tant de bruit?
 Il ne voulait pas émouvoir, mais seulement démontrer,
 pour les quelques-uns qui savent ce que c'est qu'une
@@ -1084,8 +1032,7 @@ Jautre nettement, comme deux citadelles fermées qui
 se menacent, et qu'il suflise de passer de l'une à
 
 l'autre pour avoir d'emblée une vue scientifique des
-objets. C'est peu à peu, au prix d'un renoncement persé-
-vérant, que la vue se fait plus scientifique; on progresse
+objets. C'est peu à peu, au prix d'un renoncement persévérant, que la vue se fait plus scientifique; on progresse
 vers l'objectivité sans y atteindre jamais parfaitement;
 voilà ce qui est d'expérience. La liberté du critique
 exige seulement une détermination préalable de se conformer sans résistance aux faits, à mesure qu'on les
@@ -1113,27 +1060,21 @@ de Mathieu (v, 1), au moment où se place le même discours des Béatitudes. Sol
 de l'accord des documents, il a essayé, dans son com-.
 mentaire de 189%, de combiner doucement les deux
 données en faisant de la plaine un plateau, lieu uni mais
-encore sur les hauteurs, — ce que ne dit point l'évangé-
-liste. Puis, neuf ans plus tard, s'étant mieux appliqué à
+encore sur les hauteurs, — ce que ne dit point l'évangéliste. Puis, neuf ans plus tard, s'étant mieux appliqué à
 ne rien mettre du sien dans les textes, il reconnaît que
 « plaine » ne veut rien dire que « plaine et qu'ainsi il
 faut bien avouer un désaccord entre la mise en scène
 . de Mathieu et celle de Luc. Pour faire saïllir loyalement cette contradiction, il juxtapose les deux textes
 parallèles; mais alors il s'avise que la mention d'une
 montagne dans Mathieu n'est pas sans intention; il observe que dans la préoccupation de l'évangéliste la Loi
-Nouvelle est symétrique de l'Ancienne Loi qu'elle para-
-chève, et il est conduit à cette conjecture, que le rédac-
-teur l'a voulu faire promulguer du haut d'une montagne, A
-comme la première l'avait été du haut du Sinaï. L'inten-
-tion doctrinale se mêle donc au récit. L'examen du
+Nouvelle est symétrique de l'Ancienne Loi qu'elle parachève, et il est conduit à cette conjecture, que le rédacteur l'a voulu faire promulguer du haut d'une montagne, A
+comme la première l'avait été du haut du Sinaï. L'intention doctrinale se mêle donc au récit. L'examen du
 discours même vérifie cette hypothèse vraiment jolie et je
-éclairante, qui est ainsi la récompense d'un plus éner-
-gique effort de soumission aux faits. Que conclure de cet ne
+éclairante, qui est ainsi la récompense d'un plus énergique effort de soumission aux faits. Que conclure de cet ne
 exemple? Que la vue scientifique des faits est une lente
 
 catholicisme et critique A
-conquête, et qui doit toujours être poussée. Mais combien de gens, surtout parmi les ecclésiastiques, et pré-
-cisément parce qu'ils n'ont jamais rien à chercher, ni
+conquête, et qui doit toujours être poussée. Mais combien de gens, surtout parmi les ecclésiastiques, et précisément parce qu'ils n'ont jamais rien à chercher, ni
 expérimenté la résistance d'un fait à une hypothèse
 agréable, n'imaginent même pas ce que c'est qu'un
 petit fait solide, et de quel poids irrésistible il pèse sur
@@ -1163,8 +1104,7 @@ la vérité dont il vit est chose tout à fait indépendante
 des vérités que sa philologie examine et tient en suspens, chose inébranlée par cet examen et sauve en tout
 cas. Un instinct du cœur lui suggère que c'est équivoquer sur le mot vérité que de l'employer ici et là,
 effet pour lui il n'y en a point. Ainsi pense l'abbé Loisy,
-sincèrement, non pour se mettre bien avec ses supé-
-rieurs et les décrets des Conciles, mais pour s'accorder
+sincèrement, non pour se mettre bien avec ses supérieurs et les décrets des Conciles, mais pour s'accorder
 avec lui-même. Tout historien qu'il est, — et au contraire parce qu'étant historien, il sait la nature de la
 certitude historique, — il ne surfait pas celle-ci au point
 
@@ -1181,8 +1121,7 @@ telle chose s'est passée, ce qu'a fait celui-ci ou celui-là, mais
 par celui qui montrera comment les hommes agissent bien,
 c'est-à-dire selon la volonté de Dieu, ou mal, c'est-à-dire
 contre la volonté de Dieu... Il arrive qu'on trouve des
-contes, des fables, des allégories, des légendes où sont dé-
-crites des choses merveilleuses qui ne se sont jamais passées et qui ne se passeront jamais, et qui cependant sont
+contes, des fables, des allégories, des légendes où sont décrites des choses merveilleuses qui ne se sont jamais passées et qui ne se passeront jamais, et qui cependant sont
 
 , vraies, parce qu'elles montrent en quoi consiste la volonté
 de Dieu et où réside la vérité du royaume de Dieu.
@@ -1210,9 +1149,7 @@ c'est ce qu'il est à propos de dire. Quelle distance entre
 loi pour sa conduite actuelle, et simplement le salut;;!
 
 M. Loisy, spéculatif, cherche la trace authentique du
-passé et simplement ce qui est. Or, en fait, l'action spi-
-
-rituelle du Christ apparaît comme liée inséparablement
+passé et simplement ce qui est. Or, en fait, l'action spirituelle du Christ apparaît comme liée inséparablement
 
 à la croyance au Christ ressuscité, vivant, initiateur du
 
@@ -1220,19 +1157,11 @@ royaume de Dieu. Tolstoï, mystique, veut saisir la
 
 vérité religieuse d'un regard direct et neuf; moujik
 
-. positiviste d'à présent, il prétend s'aboucher immédia-
+. positiviste d'à présent, il prétend s'aboucher immédiatement à la prédication galiléenne par delà vingt
 
-tement à la prédication galiléenne par delà vingt
+siècles; il ôte tout le travail subséquent de la conscience religieuse, toute la théologie; il ôte l'Église:
 
-siècles; il ôte tout le travail subséquent de la con-
-
-science religieuse, toute la théologie; il ôte l'Église:
-
-M. Loisy, historien, sait que jamais nous ne nous reti-
-
-rerons de la pensée et du cœur tout cet entre-deux con-
-
-tinu, vivant; il l''accepte donc, et sauve comme vrai
+M. Loisy, historien, sait que jamais nous ne nous retirerons de la pensée et du cœur tout cet entre-deux continu, vivant; il l''accepte donc, et sauve comme vrai
 
 encore cet apport d'une longue humanité fervente à la
 
@@ -1253,8 +1182,7 @@ médiatement et dans la communion avec tout le
 Enfin, venons-en à l'historicité des récits miraculeux:
 Tolstoiï les néglige comme des enveloppes ou les rejette
 comme des mensonges, en bloc; ce sont des choses
-qui ne sont point arrivées; il n'y a que le fait maté-
-riellement arrivé, ou la pure fiction, point de troisième
+qui ne sont point arrivées; il n'y a que le fait matériellement arrivé, ou la pure fiction, point de troisième
 terme. Pour M. Loisy, au contraire, ces récits prodigieux
 ne sont ni menteurs, ni vains; seulement il prie qu'on y
 regarde de près, avec un sens critique un peu délié.
@@ -1269,8 +1197,7 @@ apostolique, ne sont presque jamais mensongers en leur
 teneur. Reconnaïissons done, sauf preuve du contraire,
 les témoins pour sincères. Toutefois, n'oublions pas
 qu'ils sont anciens, qu'ils datent d'un âge où la certitude
-subjective et l'exactitude objective n'étaient pas diffé-
-renciées encore, Un composé de réalité directe et de
+subjective et l'exactitude objective n'étaient pas différenciées encore, Un composé de réalité directe et de
 
 .
 
@@ -1295,8 +1222,7 @@ intervenu. Quoi donc: événement visible, ou idée? L'un
 et l'autre sans doute, si mêlés que la dissociation est
 difficile. S'agit-il du miracle physique, réfléchissez que
 dans les textes nous trouvons non le phénomène tel
-quel, immédiat et nu, mais une représentation du phé-
-nomène. Pour le grand prodige de Jésus ressuscité, les
+quel, immédiat et nu, mais une représentation du phénomène. Pour le grand prodige de Jésus ressuscité, les
 documents ne livrent pas d'emblée au physicien (ou au
 métaphysicien) le fait brut de la résurrection; mais à
 l'historien des idées, le fait psychologique de la croyance
@@ -1310,8 +1236,7 @@ catholicisme et critique
 avec les conséquences que déjà il commence à porter:
 l'Église déjà formée projette son ombre en arrière sur
 ce qui a précédé: la grandeur du fait s'en rehausse. En
-tels autres récits, il est manifeste que l'idée, soit poé-
-tique, soit théologique, est le support du fait: par
+tels autres récits, il est manifeste que l'idée, soit poétique, soit théologique, est le support du fait: par
 exemple la création en six jours et l'épisode du verger
 d'Eden, le Déluge et la Tour de la Confusion des
 
@@ -1328,23 +1253,18 @@ donne, le sachant, des spéculations intemporelles; il
 opère, à vrai dire, sur des récits pré-existants, maïs il
 les pétrit à nouveau. La vérité qu'il veutinculquerm'est,
 point de l'ordre historique, et l'investir d'une autorité de
-cet ordre, c'est prendre l'écorce pour le fruit, Si l'exé-
-gète veut entendre bien les auteurs dont je parle, il ne
+cet ordre, c'est prendre l'écorce pour le fruit, Si l'exégète veut entendre bien les auteurs dont je parle, il ne
 lui suffit pas de cette bonhomie que j'ai vantée comme
 une de ses vertus, par laquelle il perçoit le sens obvie
 et naturel des textes: il faut que, simple avec les
 simples, il soit subtil avec les subtils. Ici c'est Le cas de
 déployer tout ce qu'il a d'acuité et de sens fin du symbole.
 
-L'évangile selon saint Jean se présente comme l'exem-
-
-ple le plus accompli de ces livres à double fond;
+L'évangile selon saint Jean se présente comme l'exemple le plus accompli de ces livres à double fond;
 exemple tout à fait propre à fixer dans l'esprit la notion
 d'une vérité doctrinale non conforme à l'historicité
 
-exacte, insoucieuse de cette historicité, traitant mysti-
-
-quement les faits comme des signes, et pourtant vraie.
+exacte, insoucieuse de cette historicité, traitant mystiquement les faits comme des signes, et pourtant vraie.
 profondément dans son ordre.
 
 le Quatrième Évangile est l'objet du livre capi-
@@ -1367,9 +1287,7 @@ presque toute la pensée médiévale est déjà enclose, du
 intelligences inégales: sa puissance socialisante est
 venue de ce qu'il est symbolique, réceptif de songeries,
 …. de réflexions et d'amour. C'est un graal.
-; Ce caractère a justement été restitué au vieux monu-
-
-catholicisme et critique
+; Ce caractère a justement été restitué au vieux monucatholicisme et critique
 
 ment johannique par la critique réputée négative,
 
@@ -1377,13 +1295,9 @@ depuis Baur, c'est-à-dire depuis environ soixante ans.
 
 Venant après vingt autres, — dont M. Jean Réville est
 
-le plus récent, — M. Loisy a parachevé la démonstra-
+le plus récent, — M. Loisy a parachevé la démonstration dans le détail. Désormais il n'est plus possible de
 
-tion dans le détail. Désormais il n'est plus possible de
-
-soutenir, (autrement que par des arguments théolo-
-
-giques), l'historicité des récits du quatrième évangile;
+soutenir, (autrement que par des arguments théologiques), l'historicité des récits du quatrième évangile;
 
 non pas même dans les termes où Renan l'admettait
 
@@ -1401,9 +1315,7 @@ vide de son historicité, en même temps et à mesure, ce
 
 témoignage sur la vie, dans les âmes, du Verbe de
 
-Dieu fait chair, se révèle avec son authenticité éner-
-
-gique. Le fait merveilleux et réel que nous saisissons
+Dieu fait chair, se révèle avec son authenticité énergique. Le fait merveilleux et réel que nous saisissons
 
 ici, c'est un afilux intense de vie spirituelle, tel que
 
@@ -1424,9 +1336,7 @@ moins consistants que ce fait intérieur et actuel, ils les
 
 ont ployés avec aisance, en conformité à celui-ci, dont
 
-les autres n'étaient qu'image et ombre, comme on rec-
-
-tifie un rêve sur le réel.
+les autres n'étaient qu'image et ombre, comme on rectifie un rêve sur le réel.
 
 Ainsi réapparaît sous les figures le sens de l'auteur,
 dès longtemps extériorisé et perdu. Nous déchiffrons
@@ -1438,8 +1348,7 @@ place dans la bouche divine, par l'emploi du mot « alethinos, véritable qu'il 
 par certaines trouées de clarté qu'il ménage entre ses
 nuages, par cent énigmes manifestement énigmatiques
 qui sont pour avertir le lecteur d'appeler à lui tout
-son sens de la mysticité. Les apologistes ont préféré retenir comme fait matériel toute la thaumaturgie du qua-
-trième évangile, et en faire le garant de la puissance
+son sens de la mysticité. Les apologistes ont préféré retenir comme fait matériel toute la thaumaturgie du quatrième évangile, et en faire le garant de la puissance
 surnaturelle de Jésus. En quoi ils n'ont guère entendu le
 texte d'abord, et pas davantage les intérêts ultérieurs
 de la propagande chrétienne. Car il arrive que cette figure d'un grand magicien qui multiplie des pains, dénature des liquides, remet des cadavres sur pied, commence à nous laisser tièdes, avec la notion que nous
@@ -1483,8 +1392,7 @@ sur le « meilleur vin qui se sert d'abord » dès que l'on
 entend ici la merveille de la révélation tardive, reconnue supérieure à l'ancienne Loi promulguée par
 Moïse. Telles autres paroles bizarres, dont nous fûmes
 
-toujours froissés, s'harmonisent. Par exemple l'apostro-
-phe de Jésus à sa mère, dans ce même festin de Cana:
+toujours froissés, s'harmonisent. Par exemple l'apostrophe de Jésus à sa mère, dans ce même festin de Cana:
 « Qu'y a-t-il entre moi et toi, femme? Mon heure n'est
 
 pas encore venue. » Si nous comprenons que le festin
@@ -1518,9 +1426,7 @@ catholicisme et critique
 
 autres, celle de la fille de Jaïr et celle du jeune homme
 
-de Naïn. Observons qu'à la façon d'un poème symboli-
-
-que, elle s'annonce de loin par une sorte de prélude qui
+de Naïn. Observons qu'à la façon d'un poème symbolique, elle s'annonce de loin par une sorte de prélude qui
 
 en expose le thème: « Comme le Père éveille les morts
 
@@ -1546,9 +1452,7 @@ mendiant repoussé par le mauvais riche et transporté
 
 dans le sein d'Abraham, dont il est dit (Luc, XVI, 31),
 
-qu'il aurait beau revenir de l'autre monde pour en dé-
-
-voiler le secret, il ne convertirait pas les endurcis qui
+qu'il aurait beau revenir de l'autre monde pour en dévoiler le secret, il ne convertirait pas les endurcis qui
 
 ont résisté à Moïse et aux prophètes; ce Lazare dont il
 
@@ -1562,19 +1466,13 @@ quatre journées est aussi l'homme naturel qui depuis
 
 quatre milliers d'années attend, inerte, l''évangile de vie.
 
-Si Marthe s'avance d'abord à la rencontre de l'évoca-
-
-teur, est-ce pas comme la petite communauté juive,
+Si Marthe s'avance d'abord à la rencontre de l'évocateur, est-ce pas comme la petite communauté juive,
 
 convertie la première? Si Marie, appelée tout bas, se
 
 lève à son tour, n'est-ce pas comme l'Église des gentils,
 
-implorant elle aussi le réveil de l'Homme mort? Si de-
-
-vant le Sépulcre Jésus pleure, c'est qu'une telle et si in-
-
-consciente misère est bien digne de la pitié de celui qui
+implorant elle aussi le réveil de l'Homme mort? Si devant le Sépulcre Jésus pleure, c'est qu'une telle et si inconsciente misère est bien digne de la pitié de celui qui
 sait et qui peut; si Jésus, ayant pleuré, se révolte
 des pleurs que versent les assistants, c'est qu'il est
 ‘charnel, lâche et absurde de pleurer comme définitive
@@ -1593,8 +1491,7 @@ vivant à sa manière, comme peut l'être un tableau ou
 un poème, parce que l'auteur n'a pas conçu à froid son
 l'a pas autrefois comme compagnon de Jésus; il le
 voit dans son esprit, comme contemplateur mystique
-de l'Évangile. L'auteur est un grand mystique, le pre-
-mier et le plus grand des mystiques chrétiens. $es
+de l'Évangile. L'auteur est un grand mystique, le premier et le plus grand des mystiques chrétiens. $es
 histoires sont à double sens, comme ses discours, le sens
 matériel étant le symbole du sens spirituel; tous les
 deux sont vrais, le premier comme symbole et l'autre
@@ -1650,8 +1547,7 @@ Ne disons pas que l'action de Dieu est éliminée du
 monde pour cela; disons qu'elle est intériorisée à l'humanité. Aux yeux du chrétien elle éclate dans l'histoire
 ; de sa religion. Appelons chrétien, en effet, celui qui
 : rapporte à une cause transcendante les illuminations de
-la conscience religieuse dans le Christ et dans la por-
-tion de l'humanité qui l'adore; appelons catholique celui
+la conscience religieuse dans le Christ et dans la portion de l'humanité qui l'adore; appelons catholique celui
 qui reconnaît en ces illuminations authentiquement
 produites par Dieu dans les âmes une suite, une continuité de présence, une extension, si bien que de l'Évan-
 ; gile soit sortie sans brisure l'Église romaine. Telle est
@@ -1672,8 +1568,7 @@ des retouches. L'enseignement de Jésus s'y présente
 déjà élaboré selon les besoins des Églises qui le dispensent: les paraboles simples se tournent en allégories;
 des préoccupations nouvelles réfractent le sens qu'on
 est forcé de lire au travers. Bref le travail d'idéalisation
-se trahit de toutes parts; le développement est com-
-mencé. Le point fixe vous manque done, à partir duquel vous pensiez compter les distances. Acceptez, c'est
+se trahit de toutes parts; le développement est commencé. Le point fixe vous manque done, à partir duquel vous pensiez compter les distances. Acceptez, c'est
 le plus sage, d'être dès les Évangiles jeté en plein courant de christianisme mobile.
 
 Maïs, de plus, c'est ne point comprendre qu'il s'agit
@@ -1698,9 +1593,7 @@ vivre dans le divin.
 à La question est donc de reconnaître si, en effet, de
 l'Évangile de Jésus à l'Église romaine contemporaine,
 il y a continuité et constance de direction, de telle sorte!
-que l'on puisse dire que, si Jésus n'a pas conçu et pré-
-déterminé l'Église, du moins il l'a causée, comme par-
-lent les scolastiques, il l'a voulue, et que sa volonté
+que l'on puisse dire que, si Jésus n'a pas conçu et prédéterminé l'Église, du moins il l'a causée, comme parlent les scolastiques, il l'a voulue, et que sa volonté
 continue de la mouvoir. c'est bien ce que professe
 M. Loiïisy, après le cardinal Newman.:
 Le livre de Newman: An Essay on the Development
@@ -1748,8 +1641,7 @@ du droit et ces deux explications optimistes de l'histoire respirent également 
 
 L'Église aurait donc tort, suivant nos auteurs, de se
 refuser au développement: beaucoup d'hérésies sont
-nées d'un esprit mal entendu de conservation. « La ré-
-vélation accuse dans l'Écriture même un développek ment progressif et on ne voit pas pourquoi ce développe1 ment s'arrêterait court à la mort du dernier apôtre. »
+nées d'un esprit mal entendu de conservation. « La révélation accuse dans l'Écriture même un développek ment progressif et on ne voit pas pourquoi ce développe1 ment s'arrêterait court à la mort du dernier apôtre. »
 : Soyons donc assurés qu'il se continue. Seulement, c'est
 une continuité qui parfois échappe au non-croyant. IL
 1) faut observer attentivement l'histoire de l'Église du
@@ -1766,8 +1658,7 @@ Merry del Val, quels virements! Et cependant, pour un
 Newman, la rectitude d'une conduite certainement
 divine se manifeste dans ces sinuosités mêmes.
 
-Il relève, d'abord, que « l'idée fondamentale s'est pré-
-servée voyez si les catholiques d'aujourd'hui ne ressemblent point encore, pour autant qu'ils vivent leur
+Il relève, d'abord, que « l'idée fondamentale s'est préservée voyez si les catholiques d'aujourd'hui ne ressemblent point encore, pour autant qu'ils vivent leur
 religion, aux portraits que Tacite, Pline-le-Jeune, etc.,
 ont tracés des premiers chrétiens; voyez si l'Église se
 comporte, à l'égard des dissidents, autrement qu'elle le
@@ -1779,7 +1670,7 @@ suprême des opinions en matière religieuse, le principe
 de l'interprétation de l'Écriture au sens spirituel, le
 principe de la subordination de la raïson à la foi, n'ont
 pas fléchi depuis les plus anciens temps. Une autre
-marque du développement droit et vivace est la « puissance d'assimilation »; cette puissance s'est manifestée
+marque du développement droit et vivace est la « puissance d'assimilation cette puissance s'est manifestée
 dans l'idée chrétienne catholique, laquelle sut, par
 saint Thomas, s'assimiler puissamment ce qu'on lui eût
 supposé le plus contraire, le rationalisme pur d'Aristote,
@@ -1797,22 +1688,18 @@ perfection s'élabore. C'est un sujet de surprise pour
 l'historien, d'édification pour le lecteur pieux, que d'assister à ce müûrissement; on démêle ainsi, dans les
 textes, comme des « anticipations anciennes » de formules ultérieures; pour n'en citer qu'un exemple, saint
 Ignace d'Antioche paraît deviner la christologie non
-formée encore; n'est-ce pas un signe aussi du droit dé-
-veloppement? Alors se découvre la « suite logique on
+formée encore; n'est-ce pas un signe aussi du droit développement? Alors se découvre la « suite logique on
 
 saisit après coup le lien d'une déduction correcte entre
-les divers articles de la croyance, du culte et de l'orga-
-nisation qui semblaient poussés confusément, et cela
-fournit comme la contre-épreuve de la légitimité du dé-
-veloppement spontané. L'idée s'organise; la controverse
+les divers articles de la croyance, du culte et de l'organisation qui semblaient poussés confusément, et cela
+fournit comme la contre-épreuve de la légitimité du développement spontané. L'idée s'organise; la controverse
 ù arienne dégage la divinité du Christ et en fait saiïllir les
 : conséquences; la doctrine de la pénitence et le baptême
 4 des enfants, la croyance au purgatoire et la prière
 4 pour les morts s'entre-déterminent et se solidifient réci-
 ; proquement. Ce n'est pas tout: pour se conserver,
 l'idée pousse des ramifications; certaines « additions
-: préservatrices » des vérités déjà acquises ont été néces-
-saires à cette fin. Par exemple, la dévotion à Marie
+: préservatrices » des vérités déjà acquises ont été nécessaires à cette fin. Par exemple, la dévotion à Marie
 protège en quelque façon le culte de Jésus; l''infaïllibilité
 4 du souverain pontificat protège l'idée même de la con-
 à tinuité de l'Église. Observons du reste que chacune de
@@ -1828,8 +1715,7 @@ Enfin, la « durée continue » de l'institution chrétienne
 catholique est une preuve de fait de la légitimité du
 développement que son principe a reçu. L'immobilité
 des églises schismatiques, l'inconsistance des confessions protestantes, la chute rapide des systèmes philosophiques rendent plus manifeste, par opposition, la
-continuité de ce développement vivant, en qui le chré-
-tien adore l'accomplissement de la parabole du grain
+continuité de ce développement vivant, en qui le chrétien adore l'accomplissement de la parabole du grain
 de sénevé.
 
 Voilà les idées de Newman sur le Développement
@@ -1837,8 +1723,7 @@ chrétien, telles que M. Loisy les présente, avec un
 discret acquiescement. Sans doute il n'a pas refait pour
 son compte cette démonstration prestigieuse. Mais il
 s'en est assimilé l'esprit. Un pli professionnel dispose
-l'historien à saisir une suite dans les faits qu'il consi-
-dère, à éliminer l'accident, à supposer une nécessité
+l'historien à saisir une suite dans les faits qu'il considère, à éliminer l'accident, à supposer une nécessité
 déterminante. S'il a le sens religieux, il voit volontiers
 dans ce déterminisme transparaître un ordre divin.
 Ainsi pour M. Loisy, ce qui domine, au travers des
@@ -1888,9 +1773,7 @@ Moïse et les introducteurs à la Loi. S'ils paraissent plus
 d'une fois s'en prendre aux rois, M. Loisy pense que
 c'est justement pour préserver contre eux le dépôtde la
 religion ancienne, tandis que « Salomon et ses imitateurs furent infidèles à la vraie tradition israélite, ne
-restèrent pas dans la ligne normale de son développe-
-
-ment ». De même en poussant un peu le prophétisme
+restèrent pas dans la ligne normale de son développement ». De même en poussant un peu le prophétisme
 dans le sens naturel de sa croissance, on se trouve déjà
 de plain pied avec l'Évangile. Le sublime morceau du
 Serviteur de Iahvé qui clôt l'Anonyme de la Captivité
@@ -1910,14 +1793,13 @@ justement dans l'Église, comme partout, les investis de
 l'autorité, sous lesquels dans l'Église plus qu'ailleurs,
 il faut plier; il scandalise les dociles, cramponnés à la
 formule du Vatican sur la conservation des dogmes
-« eodem sensu eademque sententia »; enfin il terrifie
+« eodem sensu eademque sententia enfin il terrifie
 le commun du troupeau, qui se plaît dans l'assurance
 que le travail de Dieu dans les âmes en est au septième
 jour: repos. Donc, aux yeux de l'Église, il se détache
 
 Mais d'autre part, il y tient, aux yeux des détachés,
-car il croit ce mouvement de l'Église chrétienne hété-
-rogène à tous les autres mouvements, fortuits ou du
+car il croit ce mouvement de l'Église chrétienne hétérogène à tous les autres mouvements, fortuits ou du
 moins indécis et confus, qu'enregistre l'histoire; il le
 reconnaît pour un Développement, constant, rectiligne, préservé de tout fourvoiement par « une force
 cachée qui est l'esprit de Dieu et cette thèse le maintient dans un autre plan que les historiens rationalistes
@@ -1981,8 +1863,7 @@ catholicité, dont sa pensée conçoit, accepte et s'assimile
 le principe. Quelques incompatibilités entre la façon
 dont lui-même entend ce principe, et la façon dont on
 l'entend, à la mode d'aujourd'hui ou d'hier, quelques
-brouilles avec les défenseurs attitrés de cette interpré-
-lation courante, n'empêchent point qu'au principe même
+brouilles avec les défenseurs attitrés de cette interprélation courante, n'empêchent point qu'au principe même
 il ne se croie fidèle. Et non seulement au principe, mais
 aux développements du principe dans l'histoire, de
 sorte qu'il reconnaît justifiées, égard aux circonstances, les formules même qu'il repousse dans le passé,
@@ -2008,8 +1889,7 @@ avoir que de cet ordre. Le rationalisme même, que vous
 principes qui lui échappent. Et il faut bien en venir au
 fond dernier, ou premier, de nos connaissances, qui est
 d'intuition, d'expérience immédiate. La division du tra_ vail intellectuel, aujourd'hui, est cause que les critiques
-méconnaissent ce support métaphysique de toute con-
-naissance et de leur critique même: ils sont naïvement
+méconnaissent ce support métaphysique de toute connaissance et de leur critique même: ils sont naïvement
 è relativistes: ils abandonnent aux métaphysiciens le
 déblaiement des principes. Cependant lorsqu'il arrive
 que le critique est en même temps prêtre chrétien, la
@@ -2020,9 +1900,7 @@ aux textes de sa messe quotidienne sans que sa pensée
 sa lecture des règles de vie, et qu'ainsi il est placé, par
 « la pratique, c'est-à-dire au nœud même de la philosophie. C'est pourquoi M. Loisy, philosophe et chrétien
 spirituel, gardera toujours M. Loisy, historien de la
-religion, de résoudre cette histoire en un pur phénomé-
-
-catholicisme et critique
+religion, de résoudre cette histoire en un pur phénomécatholicisme et critique
 nisme. Au travers des phénomènes il saisit l'Esprit, qui
 en est le principe; son expérience des afflux et des
 déficiences de l'Esprit au-dedans de lui-même l'assure
@@ -2097,8 +1975,7 @@ quand ils la regardent. Sa réalité n'en est pas moins
 constante... » Peut-on supposer raisonnablement que le
 critique du Développement chrétien sera, par sa critique, conduit au protestantisme, alors que sa critique
 justement lui remontre en quoi les protestants ont forligné du principe commun et contredit aux faits qui
-apparaissent, et ceci non point par hasard ou inconsé-
-quence, mais par une conséquence de leur protestantisme même?
+apparaissent, et ceci non point par hasard ou inconséquence, mais par une conséquence de leur protestantisme même?
 
 Ainsi l'auteur censuré de l'Évangile et l'Église demeure décidément catholique. Même il est peu de catholiques, parmi ceux qui osent toucher aux sciences, dont
 
@@ -2198,8 +2075,7 @@ obscure! La bonne manière d'être catholique est de
 l'être par la grâce, sans peser ses motifs, par nécessité
 du cœur et sans idées trop claires.
 
-Ce n'est pas à nous, spectateurs et profanes, d'arbi-
-trer ce débat. Il nous semblerait extrêmement curieux
+Ce n'est pas à nous, spectateurs et profanes, d'arbitrer ce débat. Il nous semblerait extrêmement curieux
 et d'infinie conséquence pour les destinées ultérieures
 du catholicisme, de la chrétienté, pour les destinées de
 tout notre Occident, qu'il fût possible, en 1904, avec
@@ -2223,8 +2099,7 @@ homme qui pense: « Ceci n'est pas vrai mais, pour
 ses fidèles: « Ceci n'est pas nôtre. » Et alors, que voulez-vous objecter? En somme, la catholicité se juge
 elle-même. Lorsqu'on lui offre un corps de doctrine fortement établi, qui paraît neuf, qui pourtant se donne
 pour catholique, la catholicité seule peut dire si elle est
-de force à digérer cet aliment offert. Lorsqu'elle se dé-
-tourne sans vouloir examiner, (comme fait l'évêque
+de force à digérer cet aliment offert. Lorsqu'elle se détourne sans vouloir examiner, (comme fait l'évêque
 d'Angers), son refus d'assimiler juge seulement sa puissance d'absorption à un moment donné, sa vitalité actuelle. Et qui prétendra en juger mieux qu'elle?
 
 Au reste, elle ne supprime pas ce qu'elle exclut. La
@@ -2239,19 +2114,14 @@ frontières. Par goût, je vais aux cours d'eau vive. Et je
 ne m'occupe pas de géographie politique.
 
 Ainsi, la question de savoir si M. Loisy a le droit de
-s'incorporer à la catholicité actuelle, ou mieux, sila catho-
-licité actuelle a la force de s'incorporer M. Loisy, n'est
-pas de notre ressort. Que cette question soit d'un inté-
-
-rêt passionnant, j'en conviens, et d'un intérêt universel,
+s'incorporer à la catholicité actuelle, ou mieux, sila catholicité actuelle a la force de s'incorporer M. Loisy, n'est
+pas de notre ressort. Que cette question soit d'un intérêt passionnant, j'en conviens, et d'un intérêt universel,
 je lai dit; mais enfin, il serait impertinent aux profanes d'émettre un avis là-dessus. Témoin détaché, je
 m'abstiendrai décemment de prononcer quelle issue de
 cet embarras eût été la plus utile à l'Église romaine:
 l'Église romaine a le Saint-Esprit pour l'éclairer sur
-ses utilités: il suffit. Et quant à l'avancement de la vé-
-rité dans le monde, qui est le suprême intérêt des gens
-sans Église, je serais très empêché de dire quelle dé-
-marche de l'Église romaine y eût le mieux servi: ou
+ses utilités: il suffit. Et quant à l'avancement de la vérité dans le monde, qui est le suprême intérêt des gens
+sans Église, je serais très empêché de dire quelle démarche de l'Église romaine y eût le mieux servi: ou
 bien un favorable accueil fait à la critique, avec une
 absorption habile, ou bien une belle condamnation
 franche. Je n'ajouterai donc rien, pour apprécier, pour
@@ -2367,8 +2237,7 @@ de l'imprimatur, qui paraît inepte au chercheur libre, —
 « J'avoue ne posséder point l'idée de la science approuvée par les supérieurs dit M. Loisy, — manifeste
 cette solidarité nécessaire. Sans doute, autrefois, il fut
 permis à des théologiens de faire autoriser des spéculations personnelles, par où le dogme s'est développé;
-car autrefois la vigueur d'expansion de l'Église admettait cette spontanéité; mais à présent que l'Église dé-
-fend son vieux dépôt sacré, il ne s'agit plus de le faire
+car autrefois la vigueur d'expansion de l'Église admettait cette spontanéité; mais à présent que l'Église défend son vieux dépôt sacré, il ne s'agit plus de le faire
 fructifier, mais de le garder simplement, elle ne le tient,
 elle n'en préserve le caractère sacré qu'en n'y laissant
 point toucher, surtout point par les prêtres.
@@ -2384,21 +2253,17 @@ sanctuaire non seulement pour se retremper le cœur,
 mais pour apprendre la date de la création du monde.
 
 Il y a une histoire officielle, il y a une science officielle
-catholique. La division entre le spirituel et le scienti90
-
-fique n'est pas faite dans la conscience des catholiques;
+catholique. La division entre le spirituel et le scientifique n'est pas faite dans la conscience des catholiques;
 elle ne s'accomplira qu'au prix de grands déchirements...
 
-Enfin il faut se rappeler que cette Église, qui pré-
-tend administrer aussi l'intelligence, est un corps lié
+Enfin il faut se rappeler que cette Église, qui prétend administrer aussi l'intelligence, est un corps lié
 par la spiritualité, non par l'intelligence: elle embrasse
 des états d'avancement intellectuel prodigieusement
 inégaux. On y trouve, en société avec M. Loisy, avec
 Vacandard, Turmel, Tixeront, les milliers de dupes de
 la fameuse Diana Vâäughan, et les milliers de « Croisés
 de Marie » de N.-D. de la Salette, qui professent que le
-serment de ne point travailler le dimanche est un &pré-
-servatif souverain contre la maladie de la vigne, de la
+serment de ne point travailler le dimanche est un &préservatif souverain contre la maladie de la vigne, de la
 pomme de terre et contre l'indigence.. » Il faut se garder de scandaliser ceux-ci; car enfin ils sont de l'Église.
 faut les attendre, ils sont lents. Et comme l'Église ne
 se peut mouvoir qu'en masse, et avec eux, l'obligation
@@ -2411,13 +2276,10 @@ quelle dure rupture avec les arriérés au cœur d'enfants,
 si on savait qu'elle se rationalise décidément par en
 haut. Va--elle donc se mettre, elle aussi, comme la
 science nouvelle, à ruiner les abris anciens? Alors il
-sortirait du peuple quelque chose de plus populairement religieux, une religion autre, si la religion se fai-
-
-catholicisme et critique
+sortirait du peuple quelque chose de plus populairement religieux, une religion autre, si la religion se faicatholicisme et critique
 
 sait science. Voilà ce qu'il faut ne pas oublier, pour
-être juste envers les évêques, dans la controverse pré-
-sente. Ah! si cette controverse se passait entre clercs
+être juste envers les évêques, dans la controverse présente. Ah! si cette controverse se passait entre clercs
 avertis, elle serait de bonne foi davantage: on parlerait pour discuter, non pour rassurer. Par malheur, il y
 a d'innombrables oreilles de Calibans aux écoutes.
 
@@ -2434,8 +2296,7 @@ plus par des moyens coercitifs, et un docteur en théologie, M. Gaucher, en 1900
 interdire ces frondeurs ». Mais ceci est un anachronisme. Il est même irréalisable, à présent, de faire supprimer un livre qui choque l'orthodoxie, comme Bossuet
 obtint du Conseil du Roi de faire mettre au pilon les
 treize cents exemplaires de l'Histoire critique du Vieux
-Testament. On a barre sur l'auteur, quand il est ecclé-
-siastique, puisqu'on peut l'exclure, et indirectement
+Testament. On a barre sur l'auteur, quand il est ecclésiastique, puisqu'on peut l'exclure, et indirectement
 l'affamer, — argument qu'on n'emploie qu'à regret, car
 enfin il coûte à la charité; — mais pour le livre, il faut
 bien souffrir que l'auteur en soit le maître.
@@ -2466,13 +2327,11 @@ recommander et diriger temporum necessilates congruentius » l'étude des « let
 
 catholicisme et critique
 
-Cette pièce de chancellerie n'est pas seulement co-
-pieuse, onctueuse et pompeuse, comme il convient;
+Cette pièce de chancellerie n'est pas seulement copieuse, onctueuse et pompeuse, comme il convient;
 elle est surtout évasive. A part une permission, celle
 d'admettre que les écrivains sacrés ont pu, et là,
 parler populairement, selon les apparences sensibles,
-sensibiliter; à part une interdiction, celle de faire pré-
-valoir « dans l'art qu'on appelle la critique » les considérations « internes tirées des documents mêmes, sur
+sensibiliter; à part une interdiction, celle de faire prévaloir « dans l'art qu'on appelle la critique » les considérations « internes tirées des documents mêmes, sur
 la considération « externe » des témoignages; à part
 une condamnation, celle de la thèse qui restreint linerrance des textes sacrés à l'enseignement théologique et
 moral qu'ils enveloppent, — on ne peut retirer de ce
@@ -2556,8 +2415,7 @@ l'écrivait au journal l'Univers: « Nicée et Éphèse, dit-il,
 ont répondu à M. Loisy, il y a quinze et seize siècles, et
 la foi de Nicée est éternelle... Le symbole que nous
 chantons tous les dimanches, c'est tout le livre l'Évangile et l'Église réfuté.…. » Et le même pieux curé reprend
-une autre fois dans le même journal: « Il est profondé-
-ment regrettable que des catholiques fassent le jeu des
+une autre fois dans le même journal: « Il est profondément regrettable que des catholiques fassent le jeu des
 protestants et des rationalistes et prononcent a priori
 des décisions, alors que l'Église de Dieu vient de faire
 entendre que ces décisions sont prématurées. » — Il
@@ -2577,9 +2435,7 @@ s'élabore-t-il secrètement quelque nouvelle Défense de
 la Tradition et des Saints-Pères, destinée comme celle
 de Bossuet, à voir le jour avec un retard de quarante
 ans. Cela n'est guère probable; les journaux, revues et
-brochures divulguent, au jour le jour, toutes les res-
-
-catholicisme et critique
+brochures divulguent, au jour le jour, toutes les rescatholicisme et critique
 
 sources de dialectique que l'orthodoxie tient en réserve.
 On les connaît donc. Elles ne sont pas méprisables. Il
@@ -2591,8 +2447,7 @@ poser les questions, et d'abord son droit à les poser.
 Que peut-il sortir de discussions ainsi entamées?
 Passons vite sur cette foisonnante littérature.
 
-La presque unanimité des apologistes se borne à répé-
-ter: Vous faites quelque chose de défendu; — ou:
+La presque unanimité des apologistes se borne à répéter: Vous faites quelque chose de défendu; — ou:
 L'orgueil de l'esprit vous perd; — ou: À quoi bon
 mettre en question ce qu'ont accepté nos devanciers,
 
@@ -2602,8 +2457,7 @@ sa propre altitude de savant qui ne cherche rien et:
 trouve à coup sûr: « Au nom de la science critique,
 dit-il, je vais tout fouiller, exactitude et sens littéral des
 textes, arguments intrinsèques et extrinsèques, pour
-arriver à la conclusion que je tiens d'avance pour certaine.…. » D'une physionomie un peu diverse, Pabbé Fré-
-mont raisonne populairement, par analogies: il objecte
+arriver à la conclusion que je tiens d'avance pour certaine.…. » D'une physionomie un peu diverse, Pabbé Frémont raisonne populairement, par analogies: il objecte
 que la critique intèrne, puisqu'elle ne tient point compte
 
 de la tradition, serait aussi fondée à retirer à M. Thiers,
@@ -2611,9 +2465,7 @@ de la tradition, serait aussi fondée à retirer à M. Thiers,
 et de l'Empire, laquelle « atteste l'intelligence technique
 d'un savant capitaine ».
 
-Il faut mettre à part le tout petit groupe dont le Bul-
-
-letin de Littérature ecclésiastique de Toulouse a publié
+Il faut mettre à part le tout petit groupe dont le Bulletin de Littérature ecclésiastique de Toulouse a publié
 les discussions. Ceux-ci ont soin de se tenir distants de
 M. Loisy, mais sans vouloir se mêler à la foule adverse.
 L'un, M. Batiffol, se restreint à examiner si l'initiateur
@@ -2671,8 +2523,7 @@ encore le plus court, en tout cas le plus sûr, et bientôt
 
 le seul parti? Il s'agit, — l'hypothèse peut sembler folle,
 — il s'agit d'apprendre aux jeunes clercs qui en auront
-le goût sévère et la constance, comment conduire honné-
-tement une recherche. Discipline qui n'est pas si triviale, parmi les libres-penseurs non plus. Il s'agirait
+le goût sévère et la constance, comment conduire honnétement une recherche. Discipline qui n'est pas si triviale, parmi les libres-penseurs non plus. Il s'agirait
 d'abord de ne point exterminer ceux qui osent se former à cette discipline, à leurs frais et risques.
 
 Là-dessus les témoins désintéressés se trouvent d'accord avec nombre de prêtres instruits qui ont, ces dernières années, esquissé des plans de réforme pédagogique du clergé: l'abbé Moreau, l'abbé Aubry, l'abbé
@@ -2743,27 +2594,20 @@ du Quatrième évangile; — il le sera précisément en ce
 
 . qu'il regarde comme parfaite une certaine particulière
 
-sainteté, en ce qu'il s'efforce d'aspirer à lui cette sain-
-
-teté par des voies mystiques et des voies sociales, en
+sainteté, en ce qu'il s'efforce d'aspirer à lui cette sainteté par des voies mystiques et des voies sociales, en
 
 ce qu'il croit la tirer de la Sainte Personne, présente
 
-toujours dans l'Église. La division du travail intellec-
-
-tuel, en même temps qu'elle ira sécularisant les sciences
+toujours dans l'Église. La division du travail intellectuel, en même temps qu'elle ira sécularisant les sciences
 
 catholicisme et critique
 de la nature et des sociétés, ramènera de plus en plus
 la religion à la mystique. Ce lui sera encore un beau
-champ que ce champ bien à elle. Les sondages y décou-
-vriront sans fin des trésors, ou mieux, des abîmes, par
+champ que ce champ bien à elle. Les sondages y découvriront sans fin des trésors, ou mieux, des abîmes, par
 où les âmes songeuses, clientes nées de l'Église, seront
 On peut trouver en effet que les propugnateurs de la
-foi ont choisi maladroiïtement leur terrain. Ils mécon-
-naissent la nature propre de la foi qu'ils défendent. Ce
-n'est pas dans l'ordre historique et critique, sur l'au-
-thenticité des livres; qu'il faut risquer le grand enjeu.
+foi ont choisi maladroiïtement leur terrain. Ils méconnaissent la nature propre de la foi qu'ils défendent. Ce
+n'est pas dans l'ordre historique et critique, sur l'authenticité des livres; qu'il faut risquer le grand enjeu.
 Là-dessus on peut perdre beaucoup, perdre le tout, et
 si l'on gagne, presque rien n'est gagné. A supposer
 qu'il soit gagné que tous les livres sont authentiques et
@@ -2918,7 +2762,7 @@ la femme dolente du Stabat, — n'est point Marie, la
 mère selon la chair, mais la communauté judéochrétienne, comme M. Loisy le montre; pourtant une
 conception très voisine de celle-là fut familière aux
 mystiques; au septième siècle déjà, Isidore de
-Séville prononce: « Marie est la figure de l'Église »;
+Séville prononce: « Marie est la figure de l'Église
 une miniature fameuse de l'Aortus deliciarum, au douzième siècle, groupe sur le calvaire, à côté des personnages traditionnels, l'Église, étendard déployé, couronne en tête, assise sur un animal tétracéphale, emblème des quatre évangiles, recueillant dans un calice
 le sang qui jaillit du flanc percé du Rédempteur; la
 Synagogue aussi est là. Un vitrail splendide à Bourges,
@@ -2978,8 +2822,7 @@ précèdent la guérison de l'aveugle-né (IX, 4). QIL nous
 faut exécuter les œuvres de celui qui m'a envoyé, pendant qu'il fait jour; vient la nuit, où nul ne peut travailler — puis les paroles qui précèdent la résurrection de Lazare: N'y a-t-il pas douze heures du jour?
 Si quelqu'un marche durant le jour, il ne trébuche
 point, parce qu'il voit la lumière de ce monde; mais si:
-quelqu'un marche durant la nuit, il trébuche.…. » Écou-
-tons M. Loisy en son explication: « Les douze heures
+quelqu'un marche durant la nuit, il trébuche.…. » Écoutons M. Loisy en son explication: « Les douze heures
 . du jour marquent le temps assigné par la Providence à
 l'action du Verbe incarné: de même que, pendant le
 jour, on marche en sécurité, parce qu'on a la lumière;
@@ -3042,8 +2885,7 @@ voici qu'il devient nous-même, comme le Fidelis del Imitation, et tout l'évang
 intériorisé. En montant aux cellules du premier étage
 de San Marco, nous le retrouvons, ce « disciple bien
 aimé sur la fresque, en un coin de la composition
-où quelque mystère de la vie du Christ est figuré, timi-
-dement assis, en costume blanc et noir de dominicain,
+où quelque mystère de la vie du Christ est figuré, timidement assis, en costume blanc et noir de dominicain,
 
 116,
 
@@ -3054,8 +2896,7 @@ comme M. Loisy l'interprète, le reconnaîtrait et s'y
 reconnaîtrait aussi lui-même...
 
 Reste l'hypothèse du Développement chrétien, à laquelle plus d'un chrétien résistera, en conscience. Ce
-n'est après tout qu'une hypothèse. Je la trouve élé-
-gante, mais n'oserais lui pronostiquer longue solidité.
+n'est après tout qu'une hypothèse. Je la trouve élégante, mais n'oserais lui pronostiquer longue solidité.
 Dans le catholicisme de Newman c'est une pièce essentielle, qui est seulement adventice dans le catholicisme
 de M. Loisy. Si je l'entends bien, c'est, à ses yeux, un
 échantillon des systèmes apologétiques que la libre
@@ -3072,10 +2913,8 @@ concurremment avec l'autre, paraît encore plus bizarre.
 Lorsqu'on s'affranchit de laccoutumance pour la
 
 catholicisme et critique
-considérer, on sent bien que la structure de notre pen-
-sée, telle que la biologie et l'histoire l'ont façconnée, y ré-;
-pugne de jour en jour plus décidément. Le même dépla-
-cemént se fait, dans les esprits, qui s'est fait touchant
+considérer, on sent bien que la structure de notre pensée, telle que la biologie et l'histoire l'ont façconnée, y ré-;
+pugne de jour en jour plus décidément. Le même déplacemént se fait, dans les esprits, qui s'est fait touchant
 l'idée de « Création ». Sans y prendre garde, les plus:
 stricts catholiques en sont venus à quitter la croyance
 (acceptée de Descartes et de Malebranche), à une Création une fois faite, close avant que l'histoire commence,
@@ -3091,8 +2930,7 @@ croissance continue. Il faut bien le savoir, en effet:
 ce que nous appelons « l'histoire » n'est pas une certaine matière d'étude, mais une certaine perspective
 d'où l'on regarde les choses. nous sommes placés,
 en ce siècle, à ce point de vue historique: les choses
-nous apparaissent, quoi que nous tâchions, contin-
-gentes, en mouvement, entre-conditionnées, enchaînées.
+nous apparaissent, quoi que nous tâchions, contingentes, en mouvement, entre-conditionnées, enchaînées.
 Une religion, même la nôtre dont nous continuons de
 vivre, se présente à nous sous cette catégorie, dès que;
 nous la regardons comme objet d'étude. M. Loisy la;
@@ -3139,10 +2977,8 @@ catholicisme et critique
 terrible justement où la transcendance a son fort,
 dans le christianisme catholique, où la scolastique est
 mêlée de sentiments tendres et jaloux, où tout le suprahumäin de la vieille métaphysique s'appuie sur tout )
-l'intimement humain. Dans le Droit, la même révolu-
-tion ne s'est pas accomplie sans lutte: le vieux « droit
-naturel absolu, transcendant, s'est opiniâtrément dé-
-fendu. Dans la Morale, le renversement est en train de
+l'intimement humain. Dans le Droit, la même révolution ne s'est pas accomplie sans lutte: le vieux « droit
+naturel absolu, transcendant, s'est opiniâtrément défendu. Dans la Morale, le renversement est en train de
 se faire; les tenants du « bien en soi » y assistent le
 cœur serré. Quoi d'étrange à ce que l'institution qui
 fut le garant de la transcendance dans tous les autres
@@ -3151,8 +2987,7 @@ se refuse à ce découronnement et combatte comme;
 pour la vie?..
 Cependant, que les catholiques s'y prêtent ou qu'ils
 y fassent obstacle par un verdict de condamnation, qui,
-désormais, serait un verdict sur eux-mêmes, — la pen-
-sée achèvera sa révolution. On peut déjà prévoir que,
+désormais, serait un verdict sur eux-mêmes, — la pensée achèvera sa révolution. On peut déjà prévoir que,
 dans une génération ou deux, l'insertion de l'absolu
 dans la trame des faits ne sera plus même intelligible.
 

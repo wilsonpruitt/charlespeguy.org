@@ -355,9 +355,7 @@ au loin, dans les rizières. Les femmes, pour saluer,
 détournent la tête et abaissent leur ombrelle, leur
 bizarre ombrelle plane, de couleur claire. Des petites
 filles, des vieillards s'agenouillent; une femme s'accroupit dans l'ornière, enveloppant son enfant de ses
-bras comme pour le protéger contre le méchant Euro-
-
-péen... On s'étonne, quand on est ici depuis peu de
+bras comme pour le protéger contre le méchant Européen... On s'étonne, quand on est ici depuis peu de
 temps, de l'attitude si humble des indigènes: j'ai été
 surpris, l'autre jour, de voir un Javanais s'agenouiller
 devant moi pour me remettre une lettre d'un haut fonctionnaire. Cette servilité de toute une race produit une
@@ -558,8 +556,7 @@ des statues du Dieu; tout au sommet, une grande coupole
 
 Les détails du monument valent certainement mieux
 que l'ensemble: à les examiner de près, je me sens de
-plus en plus intéressé. Les bas-reliefs sculptés sont iné-
-galement conservés; la plupart cependant sont en assez
+plus en plus intéressé. Les bas-reliefs sculptés sont inégalement conservés; la plupart cependant sont en assez
 bon état; beaucoup sont d'une sculpture fine et précise,
 animée d'un sincère esprit religieux. Ils représentent au
 second étage la vie de Bouddha; au troisième la glorification de Bouddha; au quatrième la glorification des
@@ -616,8 +613,7 @@ L'impression religieuse laissée par un tel monument
 devait être puissante. Avec un peu de bonne volonté et
 d'imagination sympathique, aujourd'hui encore on arrive
 à l'éprouver. L'art agit par suggestion: comme le
-rythme en musique et en poésie, en architecture la répé-
-ütion intentionnelle d'un même motif endort peu à peu
+rythme en musique et en poésie, en architecture la répéütion intentionnelle d'un même motif endort peu à peu
 la volonté, jette la conscience en un état voisin de l'hypnose, la rend docile à accepter tous les sentiments suggérés. On se laisse comme hypnotiser peu à peu, à voir
 tous ces Bouddhas, les statues presque semblables des
 grands Bouddhas, les petits Bouddhas tous différents
@@ -666,8 +662,7 @@ tout seul, entre les bas-reliefs des galeries, à monter
 
 jusqu'au sommet de la plus haute coupole. D'ici on distingue mieux la lamentable décrépitude du pauvre
 temple abandonné. L'impression est mélancolique,
-presque douloureuse. Les Javanais, devenus mahomé-
-tans, ont oublié entièrement leur religion ancienne; le
+presque douloureuse. Les Javanais, devenus mahométans, ont oublié entièrement leur religion ancienne; le
 Bouddhisme est mort à Java. Le temps triomphe des
 religions même les plus hautes: les religions doivent
 mourir. Notre Christianisme mourra,
@@ -676,8 +671,7 @@ Assis au sommet du Boro Boedoer, je me demande
 quelle religion remplacera le Christianisme en Europe.
 Une religion supérieure sans doute, supérieure en
 une religion qui ne consistera pas toute en affirmations
-métaphysiques inacceptables, qui ne reposera pas entiè-
-rement sur un fait historique douteux; une religion qui
+métaphysiques inacceptables, qui ne reposera pas entièrement sur un fait historique douteux; une religion qui
 ne considérera pas ce monde comme essentiellement
 et définitivement mauvais, qui ne limitera pas la science,
 qui ne méprisera pas la beauté, qui ne blâmera pas
@@ -828,8 +822,7 @@ française. Un numéro du Lokomotief, de Samarang, qui
 me tombe sous lamain, vante « le socialisme vraiment
 pratique » de Millerand. Les annonces mêmes attestent
 la sympathie pour la France des Hollandais de Java:
-« Produits vraiment français arrivés par la malle fran-
-çaise fait annoncer une modiste.. Et le salon de
+« Produits vraiment français arrivés par la malle française fait annoncer une modiste.. Et le salon de
 l'hôtel où je lis ces journaux locaux est orné de gravures françaises, reproductions de tableaux de nos
 peintres militaires représentant de tristes scènes de la
 
@@ -941,9 +934,7 @@ ouvertures de cet enfer, où, par la volonté du Dieu
 d'amour, brûle éternellement l'innombrable foule des
 
 Mais, comme je suis au dix-neuvième siècle, la
-Science moderne a déposé en moi le germe de sentiments plus calmes et de plus hautes pensées. Ces phé-
-nomènes étonnants, la Science les explique avec séré-
-nité, par son hypothèse du feu central, du foyer gigantesque qui brûle au cœur de la terre. — Orientée par
+Science moderne a déposé en moi le germe de sentiments plus calmes et de plus hautes pensées. Ces phénomènes étonnants, la Science les explique avec sérénité, par son hypothèse du feu central, du foyer gigantesque qui brûle au cœur de la terre. — Orientée par
 ce geste de la Science, l'imagination s'élance. Quelles
 distances prodigieuses cette chaleur traverse-t-elle,
 venant du centre de la terre, pour faire ainsi bouillonner
@@ -992,8 +983,7 @@ militairement et économiquement faible est destiné à
 être le sujet d'un peuple européen militairement et
 économiquement fort. Si le fait de la colonisation est
 
-provisoirement inévitable, c'est par des réformes pré-
-cises réalisables progressivement, non par l'espérance
+provisoirement inévitable, c'est par des réformes précises réalisables progressivement, non par l'espérance
 vague d'une lointaine révolution totale, qu'on peut travailler à libérer les indigènes, comme le réclame la
 justice. Il faut, par conséquent, s'intéresser au détail des
 problèmes coloniaux, étudier toutes les théories coloniales, tous les faits coloniaux. Alors seulement, connaissant ce qui est, on pourra tenter utilement de
@@ -1016,9 +1006,7 @@ cultures, sucre, tabac, thé, indigo, fut peu à peu limité
 à la culture du café. — Organisation économique singulière, à la fois étatiste, puisqu'elle réserve à l'État le
 monopole d'un certain commerce, — et antidémocratique, puisqu'elle repose sur l'oppression des travailleurs contraints de travailler à trop bas prix. Il est
 curieux cependant d'observer que la population, sous
-ce régime qui devait, semble-t-il, la ruiner et l'affai-
-
-blir, s'est, au contraire, prodigieusement accrue, et
+ce régime qui devait, semble-t-il, la ruiner et l'affaiblir, s'est, au contraire, prodigieusement accrue, et
 même enrichie: tant sont grands les avantages économiques d'une organisation méthodique du travail social.
 Si ce régime étatiste eût été en même temps démocratique, si les sommes énormes confisquées par la Hollande avaient été employées au bénéfice des travailleurs
 indigènes, la situation des Javanais en eût été très vite
@@ -1041,8 +1029,7 @@ les Javanais contre la concurrence économique des
 Chinois; ils ont protégé les terres des indigènes contre
 
 les accaparements tentés par les colons européens. La
-législation agraire javanaise est particulièrement inté-
-ressante: les grands domaines appartiennent enmajeure
+législation agraire javanaise est particulièrement intéressante: les grands domaines appartiennent enmajeure
 partie à l'État; les individus n'y sont le plus souvent
 que locataires, pour un petit nombre d'années, ou
 emphytéotes, pour soixante-quinze ans; j'ai admiré
@@ -1060,8 +1047,7 @@ de vue administratif, les Hollandais ont la sagesse
 tentation de l'administration directe: tout fonctionnaire
 hollandais est doublé d'un fonctionnaire indigène de
 rang égal: l'Européen, qui a la réalité du pouvoir, s'attache à conserver l'apparence du gouvernement du
-Javanais parle Javanais. Les ordres donnés par l'intermé-
-diaire du fonctionnaire indigène sont mieux compris et
+Javanais parle Javanais. Les ordres donnés par l'intermédiaire du fonctionnaire indigène sont mieux compris et
 plus facilement exécutés. Enfin, la justice est toujours
 rendue aux indigènes par des juges de leur race, présidés
 par un Européen connaissant la langue et les usages du
@@ -1112,8 +1098,7 @@ des nouveaux traités: qui sait, se demandaient certains
 Hollandais, si l'ambitieux Japon n'acceptera pas un
 jour une telle prière, et ne trouvera pas, dans la protection de ces nouveaux nationaux, un prétexte pour
 
-s'emparer avec sa flotte excellente de l'île mal dé-
-fendue?.. — Ainsi l'admirable colonie d'autrefois
+s'emparer avec sa flotte excellente de l'île mal défendue?.. — Ainsi l'admirable colonie d'autrefois
 décline, mais à la suite d'événements de politique et
 d'économie mondiales, sur lesquels les Hollandais ne
 peuvent rien. Ce n'est pas la faute, en tout cas, de leur
@@ -1185,9 +1170,7 @@ prestige de M. Dominique Bertagna, maire de Bône.
 Quant aux quatre autres candidats républicains, ils
 étaient blackboulés par les candidats antijuifs. A Constantine, M. Morinaud battait M. Cuttoli, qui avait
 essayé de prendre la succession de M. Thomson; à
-Oran, M. Firmin Faure l'emportait sur M. SaintGermain, député sortant; à Alger (deuxième circonscerip-
-
-tion), M. Marchal triomphait de M. Mauguin, ancien
+Oran, M. Firmin Faure l'emportait sur M. SaintGermain, député sortant; à Alger (deuxième circonsceription), M. Marchal triomphait de M. Mauguin, ancien
 sénateur, qui se présentait à la place de M. Bourlier,
 député sortant; et dans la première circonscription
 M. Édouard Drumont écrasait M. Samary, député sortant de nuance antisémite modérée, et M. Bertrand,
@@ -1238,8 +1221,7 @@ en s'imaginant que les antijuifs étaient en grande majorité des cléricaux: l'
 ainsi dire pas en Algérie. En veut-on une preuve? A
 Oran, en 1902, au premier tour de scrutin, les voix
 antijuives étaient sensiblement plus nombreuses que
-les voix judaïsantes et selon toute apparence le docteur Gieure, qui arrivait en tête des candidats antisé-
-mites, devait être élu au second tour. Mais M. Giraud,
+les voix judaïsantes et selon toute apparence le docteur Gieure, qui arrivait en tête des candidats antisémites, devait être élu au second tour. Mais M. Giraud,
 candidat antisémite dont personne n'ignore l'esprit
 républicain, refusa de se désister en faveur de M.Gieure
 
@@ -1259,14 +1241,12 @@ m'avouait sa surprise, lorsqu'il avait un nombre
 assez considérable de réponses à peu près en ces
 termes: « Néant. Je suis libre penseur. » Une anecdote,
 que je tiens de la même personne, jettera plus de jour
-encore sur le peu d'importance que les parents algé-
-riens attachent à l'instruction religieuse de leurs
+encore sur le peu d'importance que les parents algériens attachent à l'instruction religieuse de leurs
 enfants. Un colon, en mettant un fils au petit lycée de
 Ben-Aknoun, avait demandé au directeur de l'établissement de faire suivre à l'enfant les cours de culte.
 voilà qu'à Pâques, en recevant le bulletin trimestriel,
 les parents, qui étaient catholiques, s'aperçoivent que
-leur fils reçoit les leçons du pasteur et non de l'aumô-
-nier. Le père gourmande l'enfant et veut l'obliger à
+leur fils reçoit les leçons du pasteur et non de l'aumônier. Le père gourmande l'enfant et veut l'obliger à
 quitter le cours protestant pour le cours catholique.
 Mais le fils, qui méritait déjà le prix d'instruction religieuse protestante, regimbe, et les parents consentent
 très simplement à laisser l'enfant continuer à suivre les
@@ -1374,8 +1354,7 @@ ouvrière se recrute surtout parmi les indigènes (Kabyles,
 Arabes et même Marocains) et parmi les étrangers
 (Espagnols, Italiens, Maltais). les indigènes ne sont
 pas électeurs, et les étrangers naturalisés sont foncièrement antijuifs, pour des raisons qué nous aurons à
-développer dans la suite. Cependant les ouvriers fran-
-çais, quelque petit que fût leur nombre, disposaient
+développer dans la suite. Cependant les ouvriers français, quelque petit que fût leur nombre, disposaient
 d'une certaine force. Il y avait donc intérêt pour les
 antisémites à aiguiller les socialistes vers l'antisémitisme. Ils n'y manquèrent pas. Un ancien employé de
 chemin de fer, M. Lucien Chaze, aujourd'hui maire de
@@ -1401,9 +1380,7 @@ regardant et en faisant regarder les choses de ce
 dernier point de vue, les antijuifs allaient encore voir
 s'augmenter le nombre de leurs partisans.
 
-Raisons économiques. — Dans les villes les commer-
-çants sont antisémites, et ce sentiment s'explique aisé-
-ment: le Juif est un concurrent, et un concurrent des
+Raisons économiques. — Dans les villes les commerçants sont antisémites, et ce sentiment s'explique aisément: le Juif est un concurrent, et un concurrent des
 plus sérieux. semble fait pour le comptoir, il est
 marchand, il connaît toutes les roueries. IL sait que la
 meilleure réclame est la vitrine, qui attire et fascine;
@@ -1499,8 +1476,7 @@ n'aura pas poussé faute d'eau; ou bien les sauterelles,
 dont les vols élastiques, semblables à dés vols d'étourneaux, font la joie du touriste surpris, se seront abattues sur ses terres et, plus terribles que les inondations
 et que la grêle, auront détruit jusqu'au moindre brin
 d'herbe. Quand ce n'est pas la disette, c'est la surproduction; et la surproduction amène la mévente, qui en
-Algérie entraîne presque toujours la ruine. Car l'Algé-
-rien, désireux de s'enrichir rapidement, ne se livre le
+Algérie entraîne presque toujours la ruine. Car l'Algérien, désireux de s'enrichir rapidement, ne se livre le
 plus souvent qu'à une seule culture, celle qui paraît
 devoir rapporter davantage: hier celle de la vigne,
 demain celle du géranium. Qu'il y ait mévente, il ne
@@ -1538,14 +1514,12 @@ employés de commerce, petits et gros patrons, ils font
 aux Français d'origine une concurrence de tous les instants. Les Italiens, dont les colonies couvrent les côtes
 algérienne et tunisienne, se consacrent plus volontiers
 à la pêche, dont ils ont en quelque façon le monopole.
-Les Maltais, dont l'économie touche à l'avarice, dé-
-butent d'ordinaire en vendant le lait de leurs chèvres;
+Les Maltais, dont l'économie touche à l'avarice, débutent d'ordinaire en vendant le lait de leurs chèvres;
 puis, devenus riches, ils appliquent leur esprit retors et
 madré à des entreprises de maçonnerie et de charroi.
 Quant aux Espagnols, ils n'ont pas de préférence;
 cependant ceux qui viennent des Baléares, — et ils sont
-légion, — s'occupent volontiers des cultures maraï-
-chères: les « huertas » d'Hussein-dey et de MaisonCarrée n'appartiennent guère qu'à des Mahonnais.
+légion, — s'occupent volontiers des cultures maraïchères: les « huertas » d'Hussein-dey et de MaisonCarrée n'appartiennent guère qu'à des Mahonnais.
 
 Mais quels que soient leurs travaux, quel que soit
 leur pays d'origine, qu'ils viennent de La Valette, de
@@ -1621,8 +1595,7 @@ Périllier l'a rappelé à ceux qui auraient été tentés de
 l'oublier, et l'on sait la panique qu'il jeta parmi les
 immigrés, jusqu'au seuil du désert. Ainsi s'explique
 
-aisément lanecdote que conta la Dépéche algré-
-rienne. Au lendemain des dernières élections législatives, un fonctionnaire surprit sa bonne, une Espagnole,
+aisément lanecdote que conta la Dépéche algrérienne. Au lendemain des dernières élections législatives, un fonctionnaire surprit sa bonne, une Espagnole,
 qui pleurait et gémissait. Il lui en demanda la raison,
 et la pauvre petite répondit en sanglotant: « C'est qu'il
 faut que je vous quitte. On m'a dit que si M. Colin était
@@ -1710,9 +1683,7 @@ clairsemées: les Juifs, un petit nombre de Français, et
 dans certaines villes, par suite de circonstances spé-
 
 Jusqu'alors les Juifs avaient été divisés. Ils se partageaient en deux « cçofs dont l'un votait avec les
-opportunistes, l'autre avec les radicaux. Mais, à l'approche du danger, ils écoutèrent les conseils des Consis-
-
-toires, qui prêchaient l'apaisement, et ils s'unirent
+opportunistes, l'autre avec les radicaux. Mais, à l'approche du danger, ils écoutèrent les conseils des Consistoires, qui prêchaient l'apaisement, et ils s'unirent
 contre le danger commun. Sans doute il y eut quelques
 trahisons, et l'on vit par exemple à Alger un Moïse Chaloum signer des articles à l'Antijuif. Mais ces désertions restèrent isolées, et les suffrages israélites allèrent
 aux candidats judaïsants: le « bloc » juif ne fut pas
@@ -1814,9 +1785,7 @@ de dettes, il craignit que ses créanciers ne fissent opposition sur son traitem
 ce danger, il résolut de passer la main à un ami dévoué
 qui, maire de nom, lui servirait ses émoluments sans en
 rien distraire. Et c'est ainsi que M. Antonini, premier
-adjoint, devint maire d'Alger. M. Lionne en fut cruellement irrité. « Lieutenant » de Max Régis, il avait tou-
-
-jours été à la peine, il voulait enfin être aux honneurs.
+adjoint, devint maire d'Alger. M. Lionne en fut cruellement irrité. « Lieutenant » de Max Régis, il avait toujours été à la peine, il voulait enfin être aux honneurs.
 Il trouva mauvais que M. Régis n'eût pas songé à lui;
 et, se séparant bruyamment, il fonda L'Étendard antiJuif, où, sans recourir à l'injure, il attaqua vivement
 
@@ -1974,11 +1943,9 @@ France. La coalition antisémite comprenait surtout des
 
 probablement orienté l'Algérie vers une politique hispanophile, dangereuse pour la métropole. C'est qu'aussi
 bien la crainte du séparatisme n'est pas aussi vaine
-que les optimistes se complaisent à le croire. La « nouvelle France » commence à ne plus être « le prolongement de la France »: les mœurs, les habitudes intellectuelles cessent d'être purement françaises. Qui s'en
+que les optimistes se complaisent à le croire. La « nouvelle France » commence à ne plus être « le prolongement de la France les mœurs, les habitudes intellectuelles cessent d'être purement françaises. Qui s'en
 étonnerait? L'immigration étrangère devient formidable. Laissez Oran, qui est à quelques heures seulement de l'Espagne, et prenez Alger. Descendez au port
-chaque mois, le jour où un vapeur des « Sitgès her-
-
-manos » arrive de Carthagène. Il en sort en foule des
+chaque mois, le jour où un vapeur des « Sitgès hermanos » arrive de Carthagène. Il en sort en foule des
 hommes sees et nerveux, à la face glabre, à l'accou-
 
 . trement pittoresque: un large sombrero leur couvre la
@@ -1995,27 +1962,19 @@ partout ils trouvent des compatriotes déjà installés: la
 plupart des villes d'Algérie ont un quartier espagnol et
 un quartier italien. Ces quartiers se reconnaissent vite;
 ce sont les plus peuplés; il y grouille une population
-d'enfants qu'on chercherait vainement ailleurs. La pué-
-riculture s'y développe en grand; les naïssances attei-
-gneñt un chiffre effrayant, et le nombre des étrangers
+d'enfants qu'on chercherait vainement ailleurs. La puériculture s'y développe en grand; les naïssances atteigneñt un chiffre effrayant, et le nombre des étrangers
 s'augmente ainsi sans cesse et des immigrés et des
-nouveau-nés. Le péril croît. Déjà des tendances mena-
-çantes se sont manifestées. Aux élections municipales,
+nouveau-nés. Le péril croît. Déjà des tendances menaçantes se sont manifestées. Aux élections municipales,
 des communes-élurent des listes entières de naturalisés;
-et les conseillers, fiers de leur triomphe, hissèrent arro-
-gamment sur la mairie le drapeau espagnol, en pré-
-sence des électeurs français humiliés. D'ailleurs les
+et les conseillers, fiers de leur triomphe, hissèrent arrogamment sur la mairie le drapeau espagnol, en présence des électeurs français humiliés. D'ailleurs les
 Algériens qui se mêlent un peu à la population espagnole savent combien l'on méprise dans ce milieu le
-« sopero » et le « gavacho — ce sont les noms dédai-
-gneux dont on affuble les Français, — et combien l'on se
+« sopero » et le « gavacho — ce sont les noms dédaigneux dont on affuble les Français, — et combien l'on se
 moque des quelques naturalisés qui d'aventure ne
 savent plus parler la langue maternelle. Aussi personne
-n'ignore le danger, et on cherche des remèdes, on ima-
-gine des palliatifs. On a songé à supprimer les Écoles
+n'ignore le danger, et on cherche des remèdes, on imagine des palliatifs. On a songé à supprimer les Écoles
 supérieures d'Alger et à obliger ainsi les jeunes gens à
 aller faire en France leurs études de droit, de médecine,
-de pharmacie. après un second projet, on incorpore-
-rait les conscrits algériens dans les régiments de la
+de pharmacie. après un second projet, on incorporerait les conscrits algériens dans les régiments de la
 métropole. De la sorte l'élite et la masse de la jeunesse
 se familiariseraient avec les mœurs et les institutions de
 la France: l'âme algérienne resterait l'âme française.
@@ -2048,9 +2007,7 @@ militaire même, accéléra encore son progrès.
 
 A Alger, dès 1901, les ouvriers français se ressentirent vivement de la concurrence des étrangers et des
 
-- indigènes. Les entrepreneurs embauchaient de préfé-
-
-rence des Espagnols et des Italiens, des Arabes et des
+- indigènes. Les entrepreneurs embauchaient de préférence des Espagnols et des Italiens, des Arabes et des
 Kabyles, gens sobres et accoutumés à une vie de
 misère et de privations. En même temps les travaux se
 faisaient rares; il en résulta que plusieurs centaines de
@@ -2116,8 +2073,7 @@ devait y être appliquée, comme en France. On conçoit
 la consternation des Algériens à cette nouvelle. Le
 meilleur moyen d'échapper au péril, c'était de se faire
 défendre à la Chambre par des représentants autorisés,
-capables d'être écoutés. les protestations des dé-
-putés antijuifs n'avaient d'autre conséquence que d'indisposer le Parlement contre l'Algérie. Il devenait donc
+capables d'être écoutés. les protestations des députés antijuifs n'avaient d'autre conséquence que d'indisposer le Parlement contre l'Algérie. Il devenait donc
 nécessaire délire des candidats républicains: ils”
 furent élus.
 
@@ -2130,9 +2086,7 @@ car avec les Juifs l'Algérie reste française, tandis
 
 qu'avec les étrangers elle risque de briser les liens qui
 
-la rattachent à la métropole. Toutefois, les deux dan-
-
-gers existent; il serait paradoxal de le nier. Comment
+la rattachent à la métropole. Toutefois, les deux dangers existent; il serait paradoxal de le nier. Comment
 
 donc y remédier? Sans doute les sectaires antijuifs et
 

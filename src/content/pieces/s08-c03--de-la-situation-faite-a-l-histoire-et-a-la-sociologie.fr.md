@@ -28,14 +28,13 @@ Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, 
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justément établi pour donner,::
 autant qu'il se pouvait, une imaäg'e en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 Ce catalogue, grand jésus, forme un cahier
 très épais de X114+408 pages très denses, marqué cinq
 
-3 AATTRR 17 ati. remier, qui
+AATTRR 17 ati. remier, qui
 
 francs l'ont reçu à sa date, le
 Ltée EEUTS et nos abonnés PSE AVES
@@ -66,11 +65,9 @@ rieures et de nos sep:
 dans les temps modernes
 Je me propose de rechercher jusqu'à un certain point
 quelle est la situation faite à l'histoire et à la sociologie
-dans les temps modernes. C'est une recherche extrème-
-ment difficile et qui n'a pas été communément tentée,
+dans les temps modernes. C'est une recherche extrèmement difficile et qui n'a pas été communément tentée,
 peut-être parce qu'elle était particulièrement difficile.
-C'est donc une recherche pour laquelle nous ne rece-
-vrons sans doute aucun secours, et pour laquelle partij
+C'est donc une recherche pour laquelle nous ne recevrons sans doute aucun secours, et pour laquelle partij
 culièrement nous ne pouvons attendre aucun secours ni
 des historiens, ni, encore moins, des sociologues professionnels.
 C'est une recherche enfin qui serait infinie si on avait;
@@ -82,8 +79,7 @@ et on voit ces couples attelés et ces équipes de moisson-
 É neuses-lieuses mécaniques sur un même front de biais
 
 s'avancer au pas des chevaux, moissonnant, ramassant
-et liant tout le vaste monde sur une grande largeur-
-et jusque sur toute la largeur d'un champ de blé. Plus
+et liant tout le vaste monde sur une grande largeuret jusque sur toute la largeur d'un champ de blé. Plus
 faibles moissonneurs, moins mécaniques aussi, et d'un: PORN
 monde plus rebelle, et infiniment fort, et infiniment:
 
@@ -132,31 +128,27 @@ reposerait sur le premier.
 considérées comme instituant deux systèmes superposés
 de connaissance, et deux systèmes en un sens indépendants l'un de l'autre, soutiennent une relation telle que:
 tout ce qui est gagné de certitude pour lhistoire n'est
-point gagné pour cela par la dite sociologie et au con-
-traire que tout ce qui ‘est perdu de certitude pour.
+point gagné pour cela par la dite sociologie et au contraire que tout ce qui ‘est perdu de certitude pour.
 l'histoire est perdu automatiquement aussi pour la
 même sociologie.
 La sociologie est une histoire prétendue réformée.
 Partout où l'histoire est incertaine, automatiquement et
 de la même incertitude la sociologie est incertaine.
-Partout où l'histoire est certaine, il ne s'ensuit pas auto-
-matiquement que la sociologie soit certaine, mais il faut;
+Partout où l'histoire est certaine, il ne s'ensuit pas automatiquement que la sociologie soit certaine, mais il faut;
 encore et toujours qu'elle fasse sa preuve.
 Il faut qu'elle apporte toujours une preuve à elle. Elle
 ne peut pas partager comme un pain la preuve de
 l'histoire. À
 Si je ne connais pas avec certitude un événement, il
 
-suit automatiquement que je ne puis pas même ima-
-giner avec certitude une loi dont cet événement soit la
+suit automatiquement que je ne puis pas même imaginer avec certitude une loi dont cet événement soit la
 matière; si je crois que je connais avec certitude un
 événement, il ne suit pas automatiquement, il reste à
 prouver que je puisse imaginer même avec certitude
 une loi dont cet événement soit la matière.
 
 Si je ne connais pas avec certitude un événement du
-temps de Charlemagne, ou, comme le disaient ces sol-
-dats facétieux, un homme, un type dans le genre de
+temps de Charlemagne, ou, comme le disaient ces soldats facétieux, un homme, un type dans le genre de
 Charlemagne, il suit automatiquement que je ne puis
 
 è pas même imaginer avec certitude une loi qui recouvre
@@ -171,8 +163,7 @@ une loi qui recouvre cet événement, dont cet événement
 soit la matière.
 
 Ainsi en ce qui concerne la certitude l'histoire est
-indépendante de la sociologie et la sociologie est indé-
-pendante de l'histoire; chacune des deux n'a que sa
+indépendante de la sociologie et la sociologie est indépendante de l'histoire; chacune des deux n'a que sa
 
 : cerne l'incertitude, l'histoire est indépendante de la
 sociologie, mais la sociologie est dépendante de l'histoire.:
@@ -181,10 +172,7 @@ L'histoire a de l'incertitude et n'a point de certitude
 pour la sociologie.
 
 En ce qui concerne la certitude et l'incertitude, l'histoire est également indépendante de la sociologie; en ce
-qui concerne la certitude, la sociologie est encore indé-
-pendante de l'histoire; mais en ce qui concerne l'incer-
-
-titude cette indépendance cesse de fonctionner: la
+qui concerne la certitude, la sociologie est encore indépendante de l'histoire; mais en ce qui concerne l'incertitude cette indépendance cesse de fonctionner: la
 sociologie devient dépendante de l'histoire.
 En ce qui concerne la certitude, la sociologie est
 indépendante de l'histoire en ce sens que la certitude
@@ -238,7 +226,7 @@ utilité; mais ce serait se ménager les déceptions les;
 plus graves que de s''imaginer qu'en général on à
 recevra des historiens beauéoup de secours dans cette
 
-55 J'entends des historiens qualifiés ou professionnels.
+J'entends des historiens qualifiés ou professionnels.
 Et c'est peut-être parce que Taine et Renan n'étaient
 pas autant qu'on le croit, autant qu'eux-mêmes le À
 « croyaient, aussi proprement, aussi purement, aussi
@@ -258,19 +246,12 @@ pas étonnant que tant de professeurs d'histoire n'aient
 conditions de la science historique.
 à C'est à peine s'ils font de l'histoire, s'ils peuvent en
 faire, s'ils sont outillés, situés pour en faire; ne leur
-.- demandons point de faire de la critique, de la philoso-
-phie, de la métaphysique. Tenons-nous-en à l'histoire.
+.- demandons point de faire de la critique, de la philosophie, de la métaphysique. Tenons-nous-en à l'histoire.
 Ltd Ceux qui appartiennent à l'enseignement primaire sont
 
-à officiellement chargés, sous le gouvernement des pré-
+à officiellement chargés, sous le gouvernement des prépeuple une histoire gratuite, laïque et obligatoire; sous
 
-peuple une histoire gratuite, laïque et obligatoire; sous
-
-- le gouvernement de la République ils sont tenus d'en-
-
-seigner au peuple une histoire de défense républi-
-
-caïine; sous un gouvernement réactionnaire ils seraient
+- le gouvernement de la République ils sont tenus d'enseigner au peuple une histoire de défense républicaïine; sous un gouvernement réactionnaire ils seraient
 contraints, plus brutalement encore, d'enseigner au
 peuple une histoire de défense réactionnaire. Et quand
 même ils auraient la liberté politique et sociale d'enseigner une histoire simplement historique, il n'est point
@@ -296,8 +277,7 @@ c'est-à-dire d'hommes qui recherchent passionnément la
 vérité des événements passés, particulièrement des
 événements humains, et qui le plus ordinairement la!
 
-trouvent, dans la mesure où nous verrons qu'il est pos-
-sible de la trouver.
+trouvent, dans la mesure où nous verrons qu'il est possible de la trouver.
 Quand un jeune homme ou quand un homme de
 quelque maturité dispute, arrache aux fatigues et aux
 tares professionnelles un temps, un esprit qu'ensuite il
@@ -319,8 +299,7 @@ petits jeunes gens maigres, qui possèdent plus ou moins
 approximativement les instruments et les méthodes,
 mais qui ne possèdent aucun contenu. Comme si l'ignorance du présent était une condition indispensable
 pour accéder à la connaissance du passé. Je dis
-maigres pour que l'on ne puisse même pas me soup-
-çonner de penser à notre bon camarade M. Thomas.
+maigres pour que l'on ne puisse même pas me soupçonner de penser à notre bon camarade M. Thomas.
 Qui est, à ce que l'on m'assure, un agrégé d'histoire.
 
 C'est pourtant cette ignorance qui paraît le plus Fee
@@ -378,14 +357,12 @@ a tions qui les surveillent, — au lieu de les administrer,
 4 quelques instruments, des laboratoires, des biblio-
 “42 thèques. Du loisir, de la tranquillité, du repos. Leur
 … donner la divine paix de l'esprit. Autant qu'on peut
-À 1 l'avoir dans une vie ordinaire. Pour moi, au commen-
-cement de cette longue recherche, où nous ne sommes;
+À 1 l'avoir dans une vie ordinaire. Pour moi, au commencement de cette longue recherche, où nous ne sommes;
 RE.. pas sûrs de toujours nous retrouver, je tiens à déclarer
 combien de renseignements et d'enseignements, quel
 secours j'ai reçu de cet admirable personnel, générale- +58
 
-ment sous forme de confidences, quelquefois de con-
-fessions, rarement ou jamais sous forme de déclarations -
+ment sous forme de confidences, quelquefois de confessions, rarement ou jamais sous forme de déclarations -
 écrites, car ils ont femme et enfants.
 
 Ceux-là, quand ils font de l'histoire, savent ce que
@@ -449,12 +426,9 @@ Nous n'aurons pas moins de secours de ces quelques per: …
 sonnes qui, préparées pour entrer dans l'enseignement,
 je nommément dans l'enseignement universitaire, sont sor-
 
-LA) ties d'y entrer pour instituer, à leurs frais, risques et pé-
-rils, et à ceux de leurs amis, en dehors de l'État, delibres
+LA) ties d'y entrer pour instituer, à leurs frais, risques et périls, et à ceux de leurs amis, en dehors de l'État, delibres
 instruments de haute culture, de travail scientifique et:
-d'enseignement extérieur. Nous savons en effet par l'his-
-
-toire des arts, de la philosophie, des sciences, que la;
+d'enseignement extérieur. Nous savons en effet par l'histoire des arts, de la philosophie, des sciences, que la;
 
 à plupart des progrès obtenus en arts, en philosophie, en A
 sciences même, ont été amorcés et souvent même effectués par des personnes qui n'étaient pas de l'école ou qui!
@@ -470,9 +444,7 @@ que de passer directement dans l'enseignement supé-
 : rieur. L'État est merveilleusement organisé pour eux.
 Merveilleusement outillé. Des chambres de chauffe ré-!
 gulièrement aménagées, juxtaposées bout à bout, avec
-des joints hermétiques, une succession de bourses com-
-
-munales, départementales, nationales, publiques, privées, internationales, une tuyauterie soignée de maisons
+des joints hermétiques, une succession de bourses communales, départementales, nationales, publiques, privées, internationales, une tuyauterie soignée de maisons
 et d'écoles, jusqu'aux tièdes sinécures des secrétariats
 et des bibliothèques, les conduisent, les font arriver
 
@@ -496,9 +468,7 @@ es fois pour toutes acquis une connaissance personnelle « - de la réalité imm
 à te - se livrer fructueusement ensuite, et en connaissance de
 cause, aux travaux de la recherche désintéressée. Leur Hoi
 expérience a je ne sais quelle bonté calme, elle reçoit,
-… elle donne, elle communique je ne sais quel avertisse-
-
-ment perpétuel que l'érudition peut nourrir mais qu'elle
+… elle donne, elle communique je ne sais quel avertissement perpétuel que l'érudition peut nourrir mais qu'elle
 ne remplacera jamais.
 Le Que telle soit l'organisation ou plutôt le commande-
 È _. ment de l'Etat dans l'enseignement de lhistoire, c'est +2
@@ -540,8 +510,7 @@ le Babylonien et l'Assyrien; il connaît à fond les
 Égyptiens et leurs dynasties. Il n'a jamais Versailles;
 
 il en compte les degrés; il sait combien d'architectes
-; ont présidé à cet ouvrage; il sait le nom des archi-
-tectes. Dirai-je qu'il croit Henri (Henri le Grand) fils
+; ont présidé à cet ouvrage; il sait le nom des architectes. Dirai-je qu'il croit Henri (Henri le Grand) fils
 de Henri III? Il néglige du moins de rien connaître aux;
 maisons de France, d'Autriche et de Bavière: quelles
 minuties! dit-il, pendant qu'il récite de mémoire toute
@@ -553,21 +522,19 @@ Ninus a deux femmes. On lui dit que le roi jouit
 d'une santé parfaite; et il se souvient que Thetmosis,
 un roi d'Égypte, était valétudinaire, et qu'il tenait cette
 complexion de son aïeul Alipharmutosis. Que ne sait-il
-point? quelle chose lui est cachée de la vénérable anti-
-quité? Il vous dira que Sémiramis, ou, selon quelques- y
+point? quelle chose lui est cachée de la vénérable antiquité? Il vous dira que Sémiramis, ou, selon quelques- y
 
 uns, Sérimaris, parlait comme son fils Nynias; qu'on
 ne les distinguait pas à la parole: si c'était parce que
 la mère avait une voix mâle comme son fils, ou le fils
 une voix efféminée comme sa mère, qu'il n'ose pas le
 décider. IL vous révélera que Nembrot était gaucher,
-et Sésostris ambidextre; que c'est une erreur de s'ima-
-giner qu'un Artaxerxe ait été appelé Longuemain,;
+et Sésostris ambidextre; que c'est une erreur de s'imaginer qu'un Artaxerxe ait été appelé Longuemain,;
 parce que les bras lui tombaïient jusqu'aux genoux, et;
 non à cause qu'il avait une main plus longue que la
 lautre; et il ajoute qu'il y a des auteurs graves qui
 à affirment que c'était la droite; qu'il croit néanmoins à
-être bien fondé à soutenir que c'est la gauche. »;
+être bien fondé à soutenir que c'est la gauche.
 
 à Hermag'oras n'est point seulement un maniaque, et il
 ù n'est point seulement ce qui est beaucoup plus, un
@@ -626,8 +593,7 @@ ne analyse un peu poussée de cette méthode si singu- Del
 1604 lière des inépuisables circumnavigations de Taine. A ce
 résultat nous avaient conduits beaucoup moins les
 procédés que certains aveux de Renan.
-Le De tous les historiens modernes Renan était éminem-
-ment désigné pour apercevoir les immenses difficultés De
+Le De tous les historiens modernes Renan était éminemment désigné pour apercevoir les immenses difficultés De
 ou impossibilités métaphysiques ou physiques, humaines
 ou naturelles qui s'opposent à la constitution d'une
 2%. science historique, moderne, ainsi entendue. Il n'était
@@ -651,8 +617,7 @@ presque impudiques. À défaut du don des larmes, il nd:
 14 _vers tant d'insincérités, on oserait presque dire à travers +. » toutes les insincérités, sous toutes les mondanités, il
 
 garda éternellement ce don originel et métaphysique de
-tristesse; une longue expérience, une expérience person-
-nelle de la vie religieuse l'avait introduit irrévocablement
+tristesse; une longue expérience, une expérience personnelle de la vie religieuse l'avait introduit irrévocablement
 à la méditation métaphysique; un souci perpétuel de
 n'être pas ridicule, même auprès de soi-même, et pour
 cela de n'être pas dupe, même de soi-même, remplaçait
@@ -671,12 +636,10 @@ fit que quelques heures par an; d'une manière générale À
 il vaut mieux qu'un historien commence par faire de
 l'histoire, sans en chercher aussi long. Autrement il n'y
 aurait jamais rien de fait. Il en de l'histoire comme
-de toutes. les autres occupations humaïnes. Un mathé-
-maticien qui resterait fasciné toute sa vie sur le postulat
+de toutes. les autres occupations humaïnes. Un mathématicien qui resterait fasciné toute sa vie sur le postulat
 d'Euclide et sur les autres postulats et définitions
 mathématiques ne ferait peut-être pas avancer beaucoup
-les mathématiques elles-mêmes, les sciences mathéma-
-tiques. Et peut-être en outre et en face, pourse rattraper, À
+les mathématiques elles-mêmes, les sciences mathématiques. Et peut-être en outre et en face, pourse rattraper, À
 
 ne ferait-il pas avancer beaucoup la métaphysique non
 plus, s'il n'était point métaphysicien bien doué, s'il
@@ -718,9 +681,7 @@ faire, c'est ce que l'on ne fera jamais, ce que nul ne
 réussira jamais bien ni tout à fait; et il n'aura jamais À
 une carrière, comme les autres, car il peut y avoir, il a
 y avoir des carrières de savants et d'artistes: il
-aura jamais de carrières de philosophes et de méta-
-physicien. Et ces deux mots jurent d'être même ima-
-ginés ensemble. Il est donc, profondément, presque par
+aura jamais de carrières de philosophes et de métaphysicien. Et ces deux mots jurent d'être même imaginés ensemble. Il est donc, profondément, presque par
 définition, éternellement, un déclassé; je dirais un
 désœuvré, un gauche et emprunté, puisqu'il n'aura
 jamais son œuvre sous la main. Les autres descendent à
@@ -799,8 +760,7 @@ pas musicien, à Rembrandt quelqu'un qui ne serait pas
 
 C'est-à-dire, ainsi que nous le démontrerons, quelqu'un
 dont il n'y a plus, absolument pas à s'occuper.
-Pour un homme comme Michelet ce point de distrac-
-tion, qui existe et qui est capital pour tous les autres
+Pour un homme comme Michelet ce point de distraction, qui existe et qui est capital pour tous les autres
 hommes, n'existe pas.
 Non seulement il n'existe pas pour lui en ce sens qu'il
 réussirait à le passer, avec une certaine difliculté,
@@ -816,13 +776,11 @@ Non seulement ce point de distraction, d'écartèlement
 n'existe absolument pas pour lui, mais il cesse aussi
 
 absolument d'exister pour qui est avec lui; de vient,
-pour le lecteur, pour le spectateur, cet aisé enchante-
-ment que le talent laborieux ne donnera jamais.
+pour le lecteur, pour le spectateur, cet aisé enchantement que le talent laborieux ne donnera jamais.
 
 Ceux qui ne sont pas Michelet font comme ils peuvent. à
 Ils se partagent le travail. La célèbre division du travail
-commence à fonctionner pour eux, mais elle ne com-
-mence à fonctionner que pour eux. sont les uns qui
+commence à fonctionner pour eux, mais elle ne commence à fonctionner que pour eux. sont les uns qui
 vont. Et les autres qui viennent. Ce sont les uns qui
 montent. Et les autres qui descendent. Et sans; #4
 doute vaut-il mieux qu'il en soit ainsi.:
@@ -836,8 +794,7 @@ y ont généralement fort mal réussi, et les savants, il
 faut leur faire cette justice, encore beaucoup plus mal, a
 s'il est possible, que les artistes. Il est fort heureux que
 les historiens professionnels n'aient généralement pas
-généralement de philosophie, car on ne voit pas de raïi-
-son pour qu'ils y eussent réussi davantage. Et ainsi.
+généralement de philosophie, car on ne voit pas de raïison pour qu'ils y eussent réussi davantage. Et ainsi.
 à nous aurions peut-être beaucoup plus de métaphysique
 et de philosophie, mais elle serait mauvaise; et nous
 é aurions, d'autant, beaucoup moins d'histoire, qui a
@@ -855,8 +812,7 @@ une invincible contrariété intérieure. Tous les gens
 intelligents que nous connaissons, et cette engeance
 
 à pullule à Paris en France, haïssent mortellement le
-génie et les œuvres du génie. C'est même le seul sen-
-timent sincère qu'on leur connaisse. “40
+génie et les œuvres du génie. C'est même le seul sentiment sincère qu'on leur connaisse. “40
 Tout autre est la situation d'un Renan, et c'est une
 . situation presque véritablement unique. D'une part en
 effet il n'est point un de ces hommes essentiels, c'est-à- il
@@ -864,8 +820,7 @@ dire qu'il n'est point un de ces hommes où n'apparaît 1£
 pas ce point de rupture. Et d'autre part, sous des nt.
 aspects de frivolités qui allèrent souvent jusqu'à
 . sembler devenir des mondanités odieuses, il est
-constant qu'il eut de constantes préoccupations méta-
-physiques, philosophiques, religieuses. Mais ses occu- +08
+constant qu'il eut de constantes préoccupations métaphysiques, philosophiques, religieuses. Mais ses occu- +08
 pations d'historien et ses préoccupations de philosophe
 - ne communiquaient point entre elles. Du moins ainsi.
 Tantôtilétait d'un côté, tantôt il était de l'autre. Tantôt ni
@@ -932,8 +887,7 @@ concessions au siècle n'étaient qu'un revêtement. Et le
 3 souci métaphysique était dans l'organisme même.
 Nulle part ce souci dans Renan n'apparaît autant que
 dans ce livre singulier, singulièrement copieux, unique sil
-“4 de forme et de teneur dans toute son œuvre, qu'il a lui-
-même intitulé l'Avenir de la Science (pensées de 18/48).
+“4 de forme et de teneur dans toute son œuvre, qu'il a luimême intitulé l'Avenir de la Science (pensées de 18/48).
 à Testament avant la vie, peut-être les plus sincères de
 ù tous, testament au seuil de sa vie d'homme: c'est lui ni
 À qui nous le dit: nunc ossibus meis et caro de “1
@@ -944,8 +898,7 @@ que la vie se faisait longue, parce que la mort tardait à
 venir, parce que l'éternité reniée se faisait attendre. Ou à
 plutôt témoignage entre deux vies, testament après
 ; l'achèvement, après un premier achèvement, qu'il
-pouvait croire définitif, de la vie sacerdotale et reli-
-le commencement de la deuxième carrière, avant
+pouvait croire définitif, de la vie sacerdotale et relile commencement de la deuxième carrière, avant
 ; l'inauguration de la carrière scientifique.
 l'ay quafi peur que voftre Alteffe ne penfe que ne?
 parle pas icy ferieufement; mais cela feroit contraire
@@ -1011,21 +964,17 @@ leur certitude, ainsi que tous ne doivent pas le tenter et;
 . entreprendre (attaquer), ou en méditant ils ont besoin
 de se fatiguer longtemps dans ces choses; mais il suffit
 d'avoir connu le premier livre des Princrres, dans lequel
-sont contenues ces [choses] qui tirées des Métaphy-
-siques pour les Physiques etc. sont nécessaires à savoir..
+sont contenues ces [choses] qui tirées des Métaphysiques pour les Physiques etc. sont nécessaires à savoir..
 Telles sont les limites et les conditions imposées par
 dans nos administrations générales. Au moiïns pour le
 temps, l'importance, la relation. Pour l'usage, lutilsation. Mais le souci métaphysique ressort toujours,
 déborde des limites, brise les conditions. Il est difficile
-de faire une fois pour toutes, semel, sa part à Fin-
-quiétude métaphysique. Descartes lui-même, nous ne
+de faire une fois pour toutes, semel, sa part à Finquiétude métaphysique. Descartes lui-même, nous ne
 savons pas si Descartes n'a donné que fort peu
-d'heures par an aux pensées qui occupent l'entende-
-ment seul, et je sais que les pensées qui occupent
+d'heures par an aux pensées qui occupent l'entendement seul, et je sais que les pensées qui occupent
 l'entendement seul cartésien ne recouvrent pas, tant.
 s'en faut, qu'elles sont fort loin de recouvrir tout À
-ce que nous nommons communément la métaphy-
-sique; mais enfin de tout Descartes ce qui a plus;
+ce que nous nommons communément la métaphysique; mais enfin de tout Descartes ce qui a plus;
 frappé sans doute même les gens de son temps, ce qui À
 en tout cas est le plus demeuré dans mémoire des;
 hommes, ce qui domine aujourd'hui, c'est, à beaucoup
@@ -1033,8 +982,7 @@ près, ce que nous nommons ici la métaphysique, et
 c'est vraiment ce qui en reste. Ainsi Renan. Son histoire
 
 4 ni passera, elle est déjà passée pour sa plus grande part.
-Mais ses préoccupations ne passeront point. Que lisons-
-nous de lui aujourd'hui, sinon, aux deux extrémités de
+Mais ses préoccupations ne passeront point. Que lisonsnous de lui aujourd'hui, sinon, aux deux extrémités de
 É sa vie, les ouvrages où il nous laisse quelque peu voir,
 très peu, de son arrière-pensée métaphysique. Nous ne
 ( lisons point cet entre-deux, ce travail d''Historien, ce
@@ -1054,8 +1002,7 @@ médiaire maturité; nous ne lisons plus ces longues +0
 une arrière curiosité métaphysique et religieuse, avec il.
 une arrière-pensée nous-mêmes, pour y chercher, pour
 À y retrouver de loin en loin ces quelques affleurements,
-ces quelques bouillonnements des sources métaphy-
-siques profondes. Ce que nous lisons, ce sont les
+ces quelques bouillonnements des sources métaphysiques profondes. Ce que nous lisons, ce sont les
 ù métaphysiques initiales et les métaphysiques finales,
 cet Avenir de la Science, et ces Dialogues et fragments
 et poèmes ou drames philosophiques, certitudes, proba- a
@@ -1070,9 +1017,7 @@ notes, il semble bien résulter que le livre publié dans
 
 la vieillesse de Renan par lui-même Renan sous ce titre
 l'Avenir de la Science daterait en effet de 1848; en effet,
-c'est-à-dire comme il nous le dit, partout et particulière-
-
-ment dans sa préface. Il serait permis d'en douter, si
+c'est-à-dire comme il nous le dit, partout et particulièrement dans sa préface. Il serait permis d'en douter, si
 nous n'avions ces preuves extérieures de soutènement, 2°
 historiques, tant ce livre, tant le texte, à une lecture
 
@@ -1083,11 +1028,9 @@ jeune homme. À
 A première vue l'Avenir de la Science est un livre de
 
 jeune homme, surtout si on le compare aux auires
-ouvrages de Renan; une certaine, une singulière abon-
-dance, presque une redondance; comme une chaleur,
+ouvrages de Renan; une certaine, une singulière abondance, presque une redondance; comme une chaleur,
 
-un enthousiasme; une commotion perpétuelle, un mou-
-vement copieux, généreux, un mouvement de vibration
+un enthousiasme; une commotion perpétuelle, un mouvement copieux, généreux, un mouvement de vibration
 
 et de perpétuel va-et-vient sur soi-même.
 
@@ -1095,8 +1038,7 @@ C'est bien ainsi, à ce titre et dans ce sens que ce livre
 
 est généralement lu; et généralement présenté; c'est ainsi
 
-qu'il devint le bréviaire de toute une génération, de la gé-
-nération précisément qui porta la religion de la science
+qu'il devint le bréviaire de toute une génération, de la génération précisément qui porta la religion de la science
 historique à son plus haut point de développement, de
 la génération qui nous a immédiatement précédés.
 
@@ -1106,9 +1048,7 @@ une étude un peu poussée, ce livre est au fond un livre
 
 de duplicité, un livre de feinte ignorance, de feinte
 
-cécité, de feinte surdité, de feinte mutité devant cer-
-
-tains problèmes, devant les seuls problèmes qui,
+cécité, de feinte surdité, de feinte mutité devant certains problèmes, devant les seuls problèmes qui,
 
 comme par hasard, fussent embarrassants, pour lui.
 
@@ -1137,14 +1077,12 @@ tion, immense pour cet âge, ou qui veut se donner
 pour immense, n'y tend qu'à masquer, envelopper,
 noyer les difficultés, les impossibilités métaphysiques
 de l'histoire prématurément apparues à une intelli-
-À gence àvertie. Tout le livre est plein de ces diffi-
-cultés, de ces impossibilités. Tout l'effort sous-tendu du de
+À gence àvertie. Tout le livre est plein de ces difficultés, de ces impossibilités. Tout l'effort sous-tendu du de
 livre est de les embarbouiller ensemble. Afin que le "0
 à lecteur, enthousiaste ou charmé, ne s'y reconnaisse
 plus. C'est un immense et perpétuel détournement d'en- 114 À
 ! thousiasme, disons le mot, un véritable abus de
-confiance, et il y aurait même dans le langage des tribu-
-naux correctionnels un mot technique, le nom d'une ne
+confiance, et il y aurait même dans le langage des tribunaux correctionnels un mot technique, le nom d'une ne
 
 sorte particulière de vol, qui désignerait mieux, et qui. À
 suffirait à désigner ce genre d'opération. ILestincroyable
@@ -1166,10 +1104,8 @@ Mais surtout il est presque incroyable qu'un jeune à
 homme ait pu, dans tout un livre aussi volumineux,
 pendant tout un travail aussi copieux, développer et
 maintenir une telle prudence de vieillard. Faire aussi A
-constamment, aussi précautionneusement, aussi fidèle-
-ment semblant de ne pas voir, de ne pas entendre, de ne
-pas comprendre, quand il était si intelligent, si intellec-
-tuellement intelligent. Oculos habent. Celui qui n'entend
+constamment, aussi précautionneusement, aussi fidèlement semblant de ne pas voir, de ne pas entendre, de ne
+pas comprendre, quand il était si intelligent, si intellectuellement intelligent. Oculos habent. Celui qui n'entend
 pas. Et si obstinément ne pas répondre, faire semblant
 À de ne pas comprendre qu'il faut répondre, à la question, à
 à ce qui est en cause, à ce qu'on lui demande, à ce que!
@@ -1213,9 +1149,7 @@ Je me rangerais volontiers à cette explication, à cette.
 leçon, à cette version, à cette sorte de défense et de
 plaidoyer. Un homme ne fait pas, dans sa même vie,
 deux conversions contraires. Surtout il ne les fait pas à
-quelques années de distance. Peu d'hommes sont capa-
-bles de rompre avec leurs amis politiques pour l'inven-
-tion, pour la défense, pour le maintien, pour la victoire
+quelques années de distance. Peu d'hommes sont capables de rompre avec leurs amis politiques pour l'invention, pour la défense, pour le maintien, pour la victoire
 de la vérité, une fois connue, ce qui est le premier degré
 du courage. Il n'y a pour ainsi dire aucun homme qui,
 pour la même vérité, rompe derechef avec les amis politiques nouveaux qu'il s'est faits en rompant, pour cette
@@ -1246,17 +1180,15 @@ ainsi avec une moitié du monde, non sans un peu de
 retentissement, ils se font généralement des partisans
 4 de l'autre moitié du monde, qui ne demande pas mieux
 que d'être antagoniste à la première. Mais si, pour
-l'amour de cette même vérité, ils vont se mettre sotte-
-ment à rompre avec cette deuxième moitié, qui sera
-4 Ils ne sont point des amis du genre humain, non, cela
+l'amour de cette même vérité, ils vont se mettre sottement à rompre avec cette deuxième moitié, qui sera
+Ils ne sont point des amis du genre humain, non, cela
 à serait indigne d'eux. Et de leur courage. Mais ils vou-
 . draïent bien demeurer les amis de la moitié du genre
 De cette véritable loi historique, au seul sens que
 
 nous puissions reconnaître à cette insidieuse expression;
 si de loi historique, nous avons la plus récente et la
-plus éminente illustration dans cette affaire qu'à pré-
-sent nous avons le droit de retenir, aujourd'hui qu'une
+plus éminente illustration dans cette affaire qu'à présent nous avons le droit de retenir, aujourd'hui qu'une
 . liquidation et qu'une réhabilitation générale définitive- à
 ment l'a fait entrer dans le domaine de l'histoire, défi- fe.
 4 nitivement l'a figée, l'a enterrée dans le passé; nous a
@@ -1267,14 +1199,12 @@ Dreyfus, qui fournira sans doute à l'historien les illus-
 lois, que nous-mêmes donc nous retiendrons et que #4
 nous citerons souvent sans doute, qui pour celle-ci en
 3 particulier, pour cette loi que nous avons trouvée sur
-le chemin de nos recherches, fit semblant de dépar-
-tager les anciens partis et les départagea réellement,:
+le chemin de nos recherches, fit semblant de départager les anciens partis et les départagea réellement,:
 - maïs ne les départagea, réellement, que pour instituer;
 
 des partis nouveaux; et non pas, comme on lPavait
 
-espéré, comme on nous l'avait dit, et formellement pro-
-mis, une humanité nouvelle. En sorte que l'humanité se
+espéré, comme on nous l'avait dit, et formellement promis, une humanité nouvelle. En sorte que l'humanité se
 trouva sensiblement aussi peu avancée après qu'avant
 cette immortelle affaire. Car les dreyfusistes politiques,
 devenus victorieux selon la puissance, n'eurent point de
@@ -1377,16 +1307,14 @@ seconde. Il en vient alors des haïinés incroyables. IL DE
 4 semble que toute la haine de la rupture première, se
 retrouvant, se retournant et se contrariant elle-même,
 se multiplie infiniment, de marcher ainsi à contre sens.
-Ou plutôt quand une ancienne majorité d'hommes, sui-
-vant sa route politique, fausse compagnie à la vérité,
+Ou plutôt quand une ancienne majorité d'hommes, suivant sa route politique, fausse compagnie à la vérité,
 1 elle ne le pardonne point à la petite compagnie qui,:
 : rompant, accompagne la vérité. Mais cette réprobation,
 “4 cette haine et ce ressentiment n'est rien en comparaison;
 de celui que cette petite compagnie à son tour devenue
 À grande, cette minorité devenue majorité, quand à son
 tour elle fausse compagnie à la même misérable vérité
-qui, rompant de nouveau, ne craignent point de conti-
-nüer d'accompagner une vérité désormais solitaire. Il;
+qui, rompant de nouveau, ne craignent point de continüer d'accompagner une vérité désormais solitaire. Il;
 : semble que cette deuxième rupture, dénonçant la de
 première, la remontant, la désavoue pour ainsi dire et
 ; fasse comme un scandale double de retour en arrière
@@ -1395,8 +1323,7 @@ Il était si doux aux autres de légitimer pour ainsi:
 3 dire cette rupture première, de la consolider, comme on
 légitime une révolution, comme on consolide un em- À
 prunt. Voyez quelle était leur situation. Ils avaient à
-à rompu, d'avec la puissance. Ils avaient fait une révolu-
-tion: À leur corps défendant, sans doute, mais enfin ils:
+à rompu, d'avec la puissance. Ils avaient fait une révolution: À leur corps défendant, sans doute, mais enfin ils:
 avaient fait une révolution. Ils étaient sortis. Non sans
 
 une inquiétude, secrète, parce qu'il est doux d'être du
@@ -1411,14 +1338,12 @@ révolution une fois faite et parfaite et que nul ne
 recommencerait, n'oserait recommencer jamais plus.
 Situation unique: ils cumulaient, ils joignaïent ensemble
 toutes les quiétudes que donne le régime établi, la puissance, la domination, la conservation, et toutes les
-inquiétudes, en réalité toutes les imaginations d'inquié-
-tudes que laisse la liberté, la faiblesse, la révolution.
+inquiétudes, en réalité toutes les imaginations d'inquiétudes que laisse la liberté, la faiblesse, la révolution.
 Ces deux jouissances contraires se faisaient valoir, se
 multipliaient infiniment l'une l'autre, l'une par l'autre.
 Ils pouvaient à la fois être heureux autant et plus que
 des conservateurs, que les autres conservateurs, et,
-comme révolutionnaires, mépriser les anciens conser-
-vateurs. Et voilà. qu'en deux ou trois ans tout serait à
+comme révolutionnaires, mépriser les anciens conservateurs. Et voilà. qu'en deux ou trois ans tout serait à
 
 Juste au moment où ils commençaient à faire cette
 fin, où ils commençaient à réussir.
@@ -1456,19 +1381,16 @@ le monde. Bien portée. Portée comme une de ces décora-
 … cette opération première que vous aviez faite en « commun avec lui. Sur cette opération originaire, sur
 
 cette opération dont enfin vous êtes sorti, tout le monde » ne demande qu'à se le rappeler. Comme on a raisonde
-…. dire, qu'il faut toujours se méfier de ses anciens com-
-plices. Ces gens-là feraient croire que cette première;
+…. dire, qu'il faut toujours se méfier de ses anciens complices. Ces gens-là feraient croire que cette première;
 opération, commune, était une opération sérieuse, et
 non pas une opération comme il faut. Ces sortes de
 gens feraient croire qu'une telle opération était une
 
 Charles Péguy de
-opération de petites gens, petite elle-même, une opé-
-ration vulgaire, populaire, une opération révolution=
+opération de petites gens, petite elle-même, une opération vulgaire, populaire, une opération révolution=
 naire enfin, et non point de ces révolutions qui se
 confirment, et qui se marient dans le grand monde.
-Ils éveillent, ils réveillent vraiment de fâcheux souve-
-nirs. Ils vous délégitiment, d'un geste, d'un rappel, une
+Ils éveillent, ils réveillent vraiment de fâcheux souvenirs. Ils vous délégitiment, d'un geste, d'un rappel, une
 première opération qui ne demandait qu'à se légitimer.
 Ils sont les perpétuels parents pauvres, inévitables, des
 
@@ -1553,9 +1475,7 @@ ennemis de prédilection. Aïnsi s'organisent dans le
 è œuvre, autour d'une vie, autour d'une action, un de ces
 parfaits silences qui pour cette sorte sont plus mortels
 que la mort même.
-Et il y a encore l'immense tourbe, la foule innumé-
-
-rable, l'incalculable plèbe de tous ceux qui ne seront À
+Et il y a encore l'immense tourbe, la foule innumérable, l'incalculable plèbe de tous ceux qui ne seront À
 2 jamais ni amis ni ennemis, des morts indiflérents. Et il y
 avait aussi ceux qui étaient ennemis d'avant, d'avance, We:
 avant tout commencement de vie, avant toute explica-:&s
@@ -1574,8 +1494,7 @@ monde moderne contre tout ce qui toucherait à la domi-
 … nation du moderne. C'est une des raisons pour lesquelles
 et cela sans aucun doute, les activités intellectuelles
 sont moins nombreuses dans le monde moderne qu'elles
-ne l'ont jamais été, dans aucun monde, moins considé-
-neuves, moins jaillissantes. Beaucoup moins que dans
+ne l'ont jamais été, dans aucun monde, moins considéneuves, moins jaillissantes. Beaucoup moins que dans
 aucun monde connu. Il faut aux œuvres, à presque Fe:
 toutes les œuvres, et à presque tous les auteurs, sinon À
 un accueil enthousiaste, à défaut même de la simple À
@@ -1584,9 +1503,7 @@ au moins un combat, une bataille, la guerre, le débat,
 tout plutôt qu'un de ces silences comme le monde
 moderne seul a en organiser autour des œuvres et pe.
 … des hommes qui auraient seulement l'air de faire sem-
-.… blant d'être capables d'être suspects de vouloir seule-
-
-ment commencer à marcher contre les superstitions
+.… blant d'être capables d'être suspects de vouloir seulement commencer à marcher contre les superstitions
 Les haiïines intellectuelles modernes ont adopté, ont
 emprunté tout l'arsenal des haïnes politiques anciennes À
 et modernes, et notamment des haines politiques
@@ -1597,15 +1514,12 @@ scientifiques, et plus généralement la méthode. Il
 point menti pour cette méthode particulière que requiert
 l'organisation méthodique, généralement de la haine,
 particulièrement de la haine et du boycottage intel-
-De vient en partie cette grande indigence intellec-
-tuelle des temps modernes.
-La solitude passerait encore, et un homme particulière-
-ment courageux, ou, Comme nous l'avons dit, surcoura- de:
+De vient en partie cette grande indigence intellectuelle des temps modernes.
+La solitude passerait encore, et un homme particulièrement courageux, ou, Comme nous l'avons dit, surcoura- de:
 geux, pourrait porter l'isolement. Mais par l'isolement
 même et comme son complément indispensable le
 monde moderne fait ici jouer sa deuxième sanction,
-celle à laquelle nul ne résiste, car nul ne peut résis-
-ter: l'isolement économique, le boycottage industriel,
+celle à laquelle nul ne résiste, car nul ne peut résister: l'isolement économique, le boycottage industriel,
 c'est-à-dire l'indigence la plus vulgaire, la misère
 et la faim. Les anciennes sanctions, les sanctions
 4 proprement pénales, les sanctions antiques et chré
@@ -1619,9 +1533,7 @@ avaient de pugilaire, elles n'atteignaient pas uniformé- »
 . ment tout, et si elles retombaient lourdement quelques
 
 “4 parts, elles laissaient beaucoup plus passer. Il y avait Ce
-une anarchie dans tout et une ignorance qui se retrou-
-
-vait dans la sanction. Elles laissaient beaucoup plus
+une anarchie dans tout et une ignorance qui se retrouvait dans la sanction. Elles laissaient beaucoup plus
 où elles ne retombaient pas. Le monde moderne peut (4
 
 vanter d'avoir, ici, introduit de la méthode et rien
@@ -1641,29 +1553,23 @@ _de ce premier cahier; sous cette forme, sous cette figure
 
 . Ont commencé de se profiler sur lhorizon de nos T's
 recherches les premiers linéaments du massif mon- il
-tagneux, les premiers profils, et ces dents, ces décou-
-pures, ces profilements bleus, par qui s'annoncent au 1"
+tagneux, les premiers profils, et ces dents, ces découpures, ces profilements bleus, par qui s'annoncent au 1"
 
 voyageur en marche, à l'homme de la plaine, les LS)
-4 mobiles montagnes; ainsi ont commencé -de se des-
-
-siner les premiers tracés de l'énorme question, du
+4 mobiles montagnes; ainsi ont commencé -de se dessiner les premiers tracés de l'énorme question, du
 système, comme disent nos géographes, du problème "3)
 . puissant et statutaire qui fera comme le réduit central
 de ces études. De
-L'ancien problème, le problème des générations pré-
-cédentes, et notamment de la génération qui nous à;
+L'ancien problème, le problème des générations précédentes, et notamment de la génération qui nous
 immédiatement précédés, était de savoir comment et
 pourquoi tout un monde s'était séparé du christianisme,
 particulièrement du catholicisme. il
 ; Tout particulièrement et centralement la question
 était de savoir comment et pourquoi Renan, au commencement de tout ce monde, comment et pourquoi
 tout ce monde, s'était séparé du christianisme, particu- à
-lièrement du catholicisme, comment et pourquoi notam-
-ment, car pour lui la question revêtait cette forme A
+lièrement du catholicisme, comment et pourquoi notamment, car pour lui la question revêtait cette forme A
 culièrement éminente, comment et pourquoi il avait À
-quitté les fonctions du sacerdoce, le ministère ecclésias-
-tique, l'état religieux.
+quitté les fonctions du sacerdoce, le ministère ecclésiastique, l'état religieux.
 Cette ancienne question, cet ancien problème, on peut
 dire qu'il est aujourd'hui à peu près complètement #4
 résolu. Pour cette question particulière de Renan, pour
@@ -1671,9 +1577,7 @@ cette question critique et centrale, dans ces cahiers
 même nous avons la bonne fortune d'en lire et d'en A
 publier une solution, historique, sensiblement complète,
 un énoncé, historique, sensiblement parfait dans le
-cahier que nous avons fait de l'inauguration du monu-
-ment de Renan à Tréguier, des mains de notre colla-
-borateur et de notre ami René Litalien. A
+cahier que nous avons fait de l'inauguration du monument de Renan à Tréguier, des mains de notre collaborateur et de notre ami René Litalien. A
 Cette question particulière et le problème général
 ï qu'elle introduit et représente a été de toutes paris si
 
@@ -1683,10 +1587,9 @@ parfaite qu'enfin elle est trop parfaite.
 ; Et surtout qu'elle a pour ainsi dire tué le problème. (1
 Le problème n'a pas seulement cessé d'être intéressant,
 1 pour nous. Il a disparu. Il a été comme étouffé, comme
-;: sis sous la solution. La solution, trop grosse
+sis sous la solution. La solution, trop grosse
 commère, s'était par mégarde assis sur le plat pro-
-Alors apparaît, dans le silence et dans l'aplatisse-
-ment de l'ancien problème, dans l'effacement de cet
+Alors apparaît, dans le silence et dans l'aplatissement de l'ancien problème, dans l'effacement de cet
 passé, alors apparaît au loin le nouveau problème, le: Es.
 problème de la génération présente, infiniment plus
 difficile, quand ce ne serait que parce qu'il est un pro-
@@ -1709,8 +1612,7 @@ sont proprement les difficultés, les impossibilités, les
 contrariétés, les métaphysiques de l'histoire et de la
 sociologie dans cet âge moderne.
 
-Au lieu d'attendre, de vivre solitaires, de faire n'im-
-porte quoi d'autre. De voir venir. De faire venir.
+Au lieu d'attendre, de vivre solitaires, de faire n'importe quoi d'autre. De voir venir. De faire venir.
 De faire n'importe quel autre métier, qui eût été
 honorable. De se faire, fût-ce de très loin, les annoncia- À
 teurs, füt-ce très isolés, les préparateurs d'un autre
@@ -1728,16 +1630,14 @@ en avons fait l'ingrate et la douloureuse expérience,
 cette métaphysique la plus grossière de toutes, ce
 dogme le plus grossier de tous, aucun problème ne se …
 poserait plus pour nous. L'ancien problème, je l'ai dit, E]|
-a été vidé. Les anciennes difficultés ont été expli-
-quées. Trop expliquées. Trop bien. Trop complaisamment.
+a été vidé. Les anciennes difficultés ont été expliquées. Trop expliquées. Trop bien. Trop complaisamment.
 
 Il n'y aurait plus pour nous aucun problème. La
 situation, la déjà ancienne et classique situation
 d'homme qui a quitté l'Église, qui a perdu le sentiment ‘ai
 
 religieux, qui a quitté le christianisme, qui particulièrement a quitté le catholicisme, qui de sa personne à
-: quitté l'état ecclésiastique est aujourd'hui si parfaitement connue, d'une connaissance si claire et si intellec-
-tuelle, nous l'avons connue par tant de personnes
+: quitté l'état ecclésiastique est aujourd'hui si parfaitement connue, d'une connaissance si claire et si intellectuelle, nous l'avons connue par tant de personnes
 compétentes qui nous l'ont si complaisamment énumérée
 que nous ne pouvons plus, aujourd'hui, nous y intéresser. C'est une situation reçue, étabhie, acquise, usuelle,
 fréquente. C'est la situation de beaucoup d'hommes
@@ -1747,12 +1647,10 @@ de peuples.
 énorme, un problème de relation et de comparaison,
 parce que du même geste qu'ils quittaient l'Église, du
 
-à même mouvement, de la même courbe qu'ils abandon-
-naient le dogme catholique et généralement le dogme
+à même mouvement, de la même courbe qu'ils abandonnaient le dogme catholique et généralement le dogme
 chrétien, du même geste, du même mouvement, du
 1 même accomplissement de courbe ils inventaient, ils
-È fondaient, ils imposaient un dogme infiniment plus autous ritaire, infiniment plus plein de difficultés infinies infini-
-ment plus difficiles, d'impossibilités infinies infiniment
+È fondaient, ils imposaient un dogme infiniment plus autous ritaire, infiniment plus plein de difficultés infinies infiniment plus difficiles, d'impossibilités infinies infiniment
 plus impossibles, infiniment plus plein de contrariétés
 : infinies infiniment plus contraires, tout sommaire enfin,
 Ê À tout plein de grossièretés.
@@ -1762,29 +1660,22 @@ A Pour donner à ma pensée une forme qui réponde
 nous acceptons parfaitement que Renan se soil dés-
 . abonné du christianisme et particulièrement du catholi-
 
-14 cisme, de recevoir et de donner les enseignements chré-
-
-tiens et particulièrement catholiques. Cela, c'est une
+14 cisme, de recevoir et de donner les enseignements chrétiens et particulièrement catholiques. Cela, c'est une
 
 4 affaire classée. Ce qui est nouveau, ce qui fait un fait De
-(Or nouveau, ce qui fait le problème, ce qui fait nos éton-
-nements, commencements, sinon de toute science, au
+(Or nouveau, ce qui fait le problème, ce qui fait nos étonnements, commencements, sinon de toute science, au
 moins de toute étude, ce n'est point ce désabonnement.
 C'est qu'au sortir de cet abonnement traditionnel,
-ce vieil abonnement, il ait, entre tant d'autres, éven-
-tuels, il soit allé souscrire cet abonnement nouveau.
+ce vieil abonnement, il ait, entre tant d'autres, éventuels, il soit allé souscrire cet abonnement nouveau.
 Qu'il se soit abonné à l'insipide revue que le monde
 1 moderne édite et joue pour l'embêtement de l'humanité.
 Et non seulement ce qui fait le problème c'est ce singu
-lier abonnement nouveau. Mais c'est la liaison, la rela-
-tion de ce désabonnement à cet abonnement nouveau.
+lier abonnement nouveau. Mais c'est la liaison, la relation de ce désabonnement à cet abonnement nouveau.
 
 Il a été tiré de ce cahier treize exemplaires sur
 whatman ainsi distribués:
 premier exemplaire de souche, exemplaire du gérant;
-deuxième exemplaire de souche, exemplaire de l'ad-
-troisième exemplaire de souche, exemplaire de lim-
-dix exemplaires d'abonnement, numérotés de 1 à
+deuxième exemplaire de souche, exemplaire de l'adtroisième exemplaire de souche, exemplaire de limdix exemplaires d'abonnement, numérotés de 1 à
 Tous nos exemplaires sur whaiman sont numérotés
 à la presse et imprimés au nom du souscripteur; nos à
 tirages d'exemplaires sur whatman sont rigoureuse- À Le
@@ -1795,13 +1686,10 @@ sur whatman à cette huitième série est de cent francs
 pour tous pays.
 Les Cahiers de la Quinzaine sont composés à la main, “4
 en caractères fin dix-huitième siècle (Didot) de la fon- A
-derie Mayeur (Allainguillaume et compagnie sueces-
-seurs) 21, rue du Montparnasse, à Paris, sixième
+derie Mayeur (Allainguillaume et compagnie suecesseurs) 21, rue du Montparnasse, à Paris, sixième
 
 rez-de-chaussée, Paris, cinquième arrondissement. me
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraissent par séries; une série paraît:
 dans le temps d'une année scolaire, d'une année
@@ -1812,20 +1700,17 @@ l'année, mais l'abonnement ainsi souscrit est, de droit,
 valable pour la série en cours.
 Prix de l'abonnement, pour chaque série annuelle à
 pendant le cours de cette série
-maire........... Autres pays de l'Union postale uni-
-verselle....... vingt-cinq francs
+maire........... Autres pays de l'Union postale universelle....... vingt-cinq francs
 Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du à
 souscripteur; le tirage à part sur whatman a commencé
-de fonctionner au premier janvier 1906; les inscrip-
-tions pour cet abonnement particulier sont reçues en À
+de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en À
 tout temps et reçoivent un numéro. d'ordre déterminé
 automatiquement par le rang même qu'elles occupent « 1%
 
 è dans l'ordre de l'arrivée, les numéros les plus bas venant
-naturellement aux premières inscriptions; c'est ce nu-
-méro d'inscription qui devient automatiquement le
+naturellement aux premières inscriptions; c'est ce numéro d'inscription qui devient automatiquement le
 
 ; numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est strictement limitée au
@@ -1846,8 +1731,7 @@ L'abonnement ordinaire cesse de fonctionner pour “4
 chaque série au plus tard le 31 décembre qui suit -
 l'achèvement de cette série; ainsi du premier octobre on
 au 31 décembre 1906, et sauf épuisement de la septième
-série, on peut encore avoir pour vingt francs les dix-
-neuf cahiers de cette septième série complète. A
+série, on peut encore avoir pour vingt francs les dixneuf cahiers de cette septième série complète. A
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi à dater du premier

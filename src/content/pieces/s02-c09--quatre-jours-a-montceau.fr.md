@@ -31,9 +31,7 @@ patrouille. Montceau-les-Mines est occupé militairement. Depuis un mois les min
 Montceau-les-Mines, dans la vallée de la Bourbince,
 est à la limite du Charolais et de l'Autunois, au pied
 des collines de Combrailles. Ce n'est pas une ville
-proprement parler, mais bien plutôt un territoire d'en-
-
-viron cinq kilomètres carrés, sur lequel sont disséminées ou groupées les maisons des mineurs. Ce territoire, qui comprend les gros villages de Bois du Verne,
+proprement parler, mais bien plutôt un territoire d'environ cinq kilomètres carrés, sur lequel sont disséminées ou groupées les maisons des mineurs. Ce territoire, qui comprend les gros villages de Bois du Verne,
 de Rugny, des Alouettes, de Bois Roulot, de la Croix
 des Oiseaux, de Vernoy, de Lucy, de Bois du Leu, de
 Magny, forme une seule commune, dont la mairie
@@ -75,8 +73,7 @@ ingénieurs et agents de tous grades, les commis aux
 est séparée en deux partis qui maintenant s'appellent
 entre eux les Rouges et les Jaunes. Les Jaunes, parti- Bone
 sans de la Compagnie, les Rouges, ses adversaires.
-Jules Chagot — mort en 1876 — fut le eoncession-
-naire qui donna le premier un grand développement
+Jules Chagot — mort en 1876 — fut le eoncessionnaire qui donna le premier un grand développement
 la mine. Catholique convaincu, plutôt libéral, mais en
 somme de son temps, philanthrope comme on pouvait
 l'être alors, se croyant une mission à remplir, il aimait
@@ -90,9 +87,7 @@ aux Frères. Sœurs et Frères soignèrent les malades, instruisirent les enfant
 et par conséquent dans sa dépendance, ils devinrent vite
 des agents de renseignement et de domination. Le manquement aux oflices, l'absence de pratiques religieuses
 furent de mauvaises nôtes. Les femmes et les hommes
-qui ont actuellement de vingt à trente ans, la généra-
-
-tion élevée dans les écoles religieuses, déclarent avoir
+qui ont actuellement de vingt à trente ans, la génération élevée dans les écoles religieuses, déclarent avoir
 soupé — mais soupé jusque-là — des curés. Le désir d'affranchissement de la surveillance cléricale naquit ainsi
 “et s'accrut rapidement. D'où la première cause du conflit entre les ouvriers et l'autorité patronale. A celle-là,
 la venue des idées socialistes n'allait pas tarder à en
@@ -118,9 +113,7 @@ son temps, où plusieurs générations de ses ascendants
 avaient travaillé, sur laquelle il se trouvait avoir des
 droits de premier occupant, d'ancienneté de possession et d'exploitation. Comment pouvait-il se faire qu'un
 - monsieur quelconque, ayant acheté un morceau de
-papier à la Bourse ou en banque, pût venir non seule-
-
-ment prétendre partager le fruit de son travail, mais
+papier à la Bourse ou en banque, pût venir non seulement prétendre partager le fruit de son travail, mais
 encore lui enlever, sans fatigues, la plus grosse part.
 des bénéfices de l'entreprise, sous forme de dividendes.
 
@@ -130,8 +123,7 @@ joué de lui, qu'on l'avait roulé et qu'en vendant la mine,
 on avait aussi vendu les mineurs. Il se trouva alors, plus
 que jamais, attaché à la terre, esclave condamné
 changer de maître sans le savoir, à être exploité sans
-merci par des indifférents, sans espérance de voir s'amé-
-liorer son sort, courbé sous le joug, non plus d'un individu facile à désigner, mais d'une chose sans nom, sans
+merci par des indifférents, sans espérance de voir s'améliorer son sort, courbé sous le joug, non plus d'un individu facile à désigner, mais d'une chose sans nom, sans
 forme définie, tout d'un coup aux prises avec la puissance formidable et irresponsable du Capital.
 
 Alors l'idée de lutte vint.
@@ -168,10 +160,8 @@ lui-même se tenait en permanence à l'hôtel du Commerce, voisin de la Directio
 Les ouvriers enthousiasmés parcouraient en masse
 les rues de la ville. Les femmes, armées de balais,
 allaient à tour de rôle malicieusement balayer le bas
-des portes et des fenêtres de tous les anciens con-
-seillers non réélus et des adversaires avérés; puis, un
-certain nombre d'entre elles, s'étant concertées, passè-
-rent le canal et se dirigèrent vers la résidence du préfet,
+des portes et des fenêtres de tous les anciens conseillers non réélus et des adversaires avérés; puis, un
+certain nombre d'entre elles, s'étant concertées, passèrent le canal et se dirigèrent vers la résidence du préfet,
 et là, sur un rang, bordant le trottoir, le dos tourné
 vers l'hôtel, à un signal donné, relevèrent leurs jupes
 et montrèrent leur derrière au représentant de l'autorité
@@ -179,9 +169,7 @@ et montrèrent leur derrière au représentant de l'autorité
 Un des premiers actes de la nouvelle municipalité,
 ne pouvant laïciser elle-même l'hôpital, propriété de la
 Compagnie, fut d'en réclamer la laïcisation: elle obtint
-seulement la diminution du nombre des Sœurs infirmières et la réduction du traitement de celles qui res-
-
-taiïent. Elle exigea aussi la vérification des comptes de la
+seulement la diminution du nombre des Sœurs infirmières et la réduction du traitement de celles qui restaiïent. Elle exigea aussi la vérification des comptes de la
 
 Caisse de secours et demanda des explications à la
 Compagnie au sujet d'un déficit de plusieurs centaines
@@ -231,8 +219,7 @@ précédé la grève; depuis le 8, ils n'ont donc plus rien
 reçu de la Compagnie, et ils savent que, lorsqu'ils
 reprendront le travail, il leur faudra encore travailler
 pendant une vingtaine de jours avant de rien toucher.
-Un comité de grève fut nommé qui s'occupa immé-
-diatement de trouver des ressources.
+Un comité de grève fut nommé qui s'occupa immédiatement de trouver des ressources.
 Des mineurs, un bon tiers, avons-nous déjà dit,
 jouissent de quelque aisance; ils ont à eux leur maison, leur jardin d'où ils tirent légumes et fruits, des
 lapins, une douzaine de poules, sept ou huit canards,
@@ -262,8 +249,7 @@ enfin tout le pays donna. Le mouvement fut immense.
 
 Le Syndicat, depuis sa fondation, est divisé en
 trente-trois sections. Chacune de ces sections installa
-une ou plusieurs cuisines selon le chiffre de ses adhé-
-rents; c'est ainsi que certaines sections, comme celle
+une ou plusieurs cuisines selon le chiffre de ses adhérents; c'est ainsi que certaines sections, comme celle
 de Bois-du-Verne, organisèrent cinq et six cuisines.
 
 . Le Syndicat procure aux cuisines la viande et le pain
@@ -276,9 +262,7 @@ délivre à ses membres des bons qu'il paie ensuite aux
 
 Le siège social du Syndicat est installé au-dessus
 d'un café, au premier étage de la maison qui fait le coin
-la salle Pézerat, salle de bal où se tiennent généralement les réunions publiques et où se font les confé-
-
-rences. Sur le mur de la maison, près de l'entrée de la
+la salle Pézerat, salle de bal où se tiennent généralement les réunions publiques et où se font les conférences. Sur le mur de la maison, près de l'entrée de la
 salle, sont collées des affiches dont celle-ci
 
 Les gouvernants de toutes les époques n'ont jamais
@@ -305,8 +289,7 @@ collecteurs du groupe de la Jeunesse socialiste, chez les
 ! Le groupe de la Jeunesse Socialiste
 de Montceau-les-Mines
 
-Derrière la maison occupée par le Syndicat est in-
-stallée la cuisine de la première section dans la ‘cour
+Derrière la maison occupée par le Syndicat est installée la cuisine de la première section dans la ‘cour
 donnant sur la rue de la Cantine. A côté de la porte
 de planches vermoulues surmontée d'un grand drapeau
 rouge, une longue bande de toile rouge a été pendue
@@ -316,8 +299,7 @@ portant en grosses lettres l'inscription:
 La porte poussée, on se trouve dans une petite cour
 à peu près remplie par une baraque de planches et de
 vieilles toiles. C'est la cuisine. Un grand guichet en
-demi-cercle, avec un volet et une tablette, a été amé-
-nagé pour les distributions; à côté, une petite porte
+demi-cercle, avec un volet et une tablette, a été aménagé pour les distributions; à côté, une petite porte
 simplement fermée d'un vieux rideau autrefois rouge.
 
 gauche, écrit à la main
@@ -349,8 +331,7 @@ Une dizaine de forts gaillards sont s'agitant dans la
 vapeur. « Vous venez goûter la soupe? — Bien sûr. »
 
 Et tout de suite l'on vous tend la cuiller. « Excellente,
-mais mettez-y encore un petit peu de sel... » Et la connaissance est vite faite. Cinq énormes marmites chan-
-tent sur des feux de bois; elles contiennent ensemble
+mais mettez-y encore un petit peu de sel... » Et la connaissance est vite faite. Cinq énormes marmites chantent sur des feux de bois; elles contiennent ensemble
 portions. Une table de bois rectangulaire occupe le
 milieu de la tente, de grandes cuillers sont accrochées
 aux murs. Sur des ficelles tendues près du plafond
@@ -427,7 +408,7 @@ bonne volonté. Quand tous les syndiqués sont passés,
 arrivent les vrais misérables, des mariniers dont les
 bateaux sont bloqués par les glaces, des sans-travail,
 grévistes forcés, des mendiants, des « trois sous par
-lieue »; s'il reste de la soupe, on leur en donne, sinon
+lieue s'il reste de la soupe, on leur en donne, sinon
 « Eh bien, vous n'êtes qu'à la première section ici,
 vous en avez encore trente-deux autres à visiter, c'est
 
@@ -447,8 +428,7 @@ vêtus. IL est très fréquent d'entendre le matin, dans les
 groupes ou dans les cuisines: « Allons, viens-tu prendre
 soir, faut que j'aille me faire raser. »
 Pour ces manœuvres, les cuisiniers revêtent la grande
-tenue de service. La plupart portent le costume clas-
-sique des marmitons de bonne maison, bonnet-tampon,
+tenue de service. La plupart portent le costume classique des marmitons de bonne maison, bonnet-tampon,
 courte veste et pantalon d'une blancheur immaculée;
 dans quelques sections seulement, la coiffure est une
 calotte de toile blanche en forme de pot à fleur renversé de
@@ -471,10 +451,8 @@ La Compagnie a toujours entretenu une très nom_ breuse police secrète; il est 
 mouchards sont nombreux; les grévistes sont donc extrêmement défiants, et tout individu suspect qui ne
 donnerait pas d'explications suffisantes de sa présence
 ou de ses allées et venues, pourrait bien s'attirer quelque désagrément.
-Les manifestations se passent sans le moindre désordre. Les grévistes sont gens fort tranquilles qui en au-
-cune façon ne désirent de collisions avec la force armée.
-Les commerçants que la grève atteint dans leurs inté-
-rêts et qui sont plutôt sympathiques aux Jaunes, en
+Les manifestations se passent sans le moindre désordre. Les grévistes sont gens fort tranquilles qui en aucune façon ne désirent de collisions avec la force armée.
+Les commerçants que la grève atteint dans leurs intérêts et qui sont plutôt sympathiques aux Jaunes, en
 gens prudents, restent chezeux. Les ouvriers jaunes qui
 subissent un chômage forcé font de même. Les deux
 cents environ qui travaillent encore, contremaîtres, surveillants, gradés de toute sorte qui sont restés à la mine,
@@ -488,9 +466,7 @@ besognes, suflisant même à peine à conserver la mine
 - en état. On prétend d'ailleurs que la Compagnie les paie
 double; dans tous les cas, ils reçoivent de fortes allocations, et l'on cite tel et tel, employés aux écuries, qui
 sont payés sur le pied de cinq cents francs par mois.
-Si le matin viennent en ville quelques corvées mili-
-
-taires, dans le jour on n'y voit pas un troupier. Il n'y a
+Si le matin viennent en ville quelques corvées militaires, dans le jour on n'y voit pas un troupier. Il n'y a
 pas de postes dans la ville populaire: Seul, un escadron
 de dragons est cantonné, à l'autre bout du pays, à côté
 de l'hôpital, dans les écoles des Sœurs, maïs les bataillons des 13, 27°, 29°, 56° et 134° régiments d'infanterie,
@@ -588,8 +564,7 @@ de rouge. Ce sont les anarchistes qui réclament leur
 place. Un clairon sonne le rassemblement: « Allons les
 hommes de garde, mettez vite sac au dos... » Toute la
 foule se porte sur la place. Tous les cuisiniers et les
-porteurs de drapeaux se massent sur le perron de lhô-
-tel de ville, les deux drapeaux noirs au milieu, entre
+porteurs de drapeaux se massent sur le perron de lhôtel de ville, les deux drapeaux noirs au milieu, entre
 deux hommes armés de fusils dont un baïonnette au
 canon, la lame claire au-dessus des têtes. Trois coups
 de feu éclatent, coups de fusil à blanc disent les uns,
@@ -667,8 +642,7 @@ trois heures que l'on piétine dans la neige, tout le 2"
 monde en a assez. On vote plus ou moins un vague
 ordre du jour, beaucoup de mains restant dans les
 poches: Ah! zut, il fait trop froid pour les lever. »
-Tous les drapeaux, les noirs en tête, rentrent à l'inté-
-rieur de la mairie, les cuisiniers aussi. La foule s'écoule,
+Tous les drapeaux, les noirs en tête, rentrent à l'intérieur de la mairie, les cuisiniers aussi. La foule s'écoule,
 la plupart des grévistes se rendant au domicile des
 Et ce fut un long cortège qui suivit les deux cercueils
 portés chacun, sans drap, sur les épaules de quatre
@@ -721,8 +695,7 @@ sacristie, et trouva même le moyen, à ce propos, de
 à citer saint Paul; il plaignit ses auditrices et les flatta
 
 sous toutes les formes; il fut très applaudi. Guesde fit
-ensuite le tableau de la cité future, celle où l'on travail-
-lera de trois à quatre heures, et même peut-être une
+ensuite le tableau de la cité future, celle où l'on travaillera de trois à quatre heures, et même peut-être une
 heure à peine par jour, et où tout le reste du temps on
 pourra se livrer aux joies de la nature; « eh bien,
 pour arriver à ce résultat, mais vous avez tout ce qu'il
@@ -740,8 +713,7 @@ En somme accueil assez froid. Maxence aussi vint
 dire son mot, raïllant ceux qu'il appelle les chevaliers
 de l'apéritif et du digestif, toujours prêts à souffler la
 tourmente et à fomenter le désordre, mais trouvant « toujours le moyen de disparaître lorsqu'il s'agit de
-récolter. Enfin, sur la demande de Chalmandrier, Bou-
-veri, qui présidait, entonna l'Internationale qu'il ne Me
+récolter. Enfin, sur la demande de Chalmandrier, Bouveri, qui présidait, entonna l'Internationale qu'il ne Me
 savait d'ailleurs pas, et qui lui fut soufflée mot par
 mot par Maxence et les autres, assis derrière lui; cela
 eut un succès énorme et la soirée s'acheva le plus
@@ -800,8 +772,7 @@ disent: il parle bien.
 Maxence est donc très populaire. On appelle Maxence
 tous les nouveau-nés. Il y dit-on, maintenant trois
 balcon, s'y appuie d'une main, et de l'autre se découvre,
-saluant la foule. Comme il neige, on lui crie: « Cha-
-peau, Maxence, mettez votre chapeau! » Maxence sourit
+saluant la foule. Comme il neige, on lui crie: « Chapeau, Maxence, mettez votre chapeau! » Maxence sourit
 d'un vaste sourire. La foule rit enchantée. Maxence met
 son chapeau. Et il parle. « Citoyennes, citoyens. Ce n'est
 pas en cassant des vitres, en brisant des grilles, en saccageant quelques ateliers, que nous ferons la Révolution. Non. C'est au contraire par le calme, la maîtrise
@@ -820,8 +791,7 @@ Voilà à peu près ce que dit Maxence; alors on applaudit
 C'est ainsi que l'on passe ses journées à Montceau.
 
 Mais de l'autre côté du canal, la Compagnie anxieuse
-voit ses machines inertes s'abîmer, les boisements flé-
-chir, les galeries s'emplir d'eau, de gaz irrespirables,
+voit ses machines inertes s'abîmer, les boisements fléchir, les galeries s'emplir d'eau, de gaz irrespirables,
 ou de feu. Les puits Saint-François, Sainte-Eugénie,
 Jules-Chagot et Maugran sont en feu. Les puits SaintLouis, Sainte-Marie, Magny ont cent pieds d'eau. Au
 puits Sainte-Marie les pompes qui puisaient un mètre
@@ -831,8 +801,7 @@ mais C'est tout à fait insuffisant. Les deux cents hommes
 quela Compagnie a garder ne peuvent tout faire. Elle
 ne peut même pas faire appel à ses employés de bureau,
 les commis, que lesgrévistes savent tellement incapables
-de toute besogne à la mine, qu'ils les laissent parfaitement tranquilles, en dehors du conflit; et c'est un spec-
-tacle assez curieux que de voir tous les jours à onze
+de toute besogne à la mine, qu'ils les laissent parfaitement tranquilles, en dehors du conflit; et c'est un spectacle assez curieux que de voir tous les jours à onze
 heures ces bandes d'employés sortir de la Direction —
 où ils n'ont évidemment passer leur matinée qu'à se
 chauffer, — et qui s'en retournent déjeuner chez eux,
@@ -856,8 +825,7 @@ mange des frites à trois heures.
 Alors qui l'emportera? Qui le sait? Cela pas
 un bien grand intérêt. Cela n'a même pas du tout d'intérêt que les similaires de Montmaillot obtiennent ou
 n'obtiennent pas cette fois-ci la même paie que leurs
-camarades des autres puits. On sait bien que cette concession faite ne changera en rien la condition des tra-
-vailleurs. Il n'est pas douteux qu'après cette grève,
+camarades des autres puits. On sait bien que cette concession faite ne changera en rien la condition des travailleurs. Il n'est pas douteux qu'après cette grève,
 d'autres grèves viendront. Car tout ceci n'est bien qu'un
 épisode d'une longue lutte maintenant irrévocablement
 
@@ -892,20 +860,16 @@ M. Péguy recevra le jeudi de huit heures à onze heures
 et de une heure à sept heures.
 
 Adresser à M. André Bourgeois, administrateur des
-cahiers, 16, rue de la Sorbonne, Paris, la correspon-
-dance d'administration et de librairie: abonnements et
+cahiers, 16, rue de la Sorbonne, Paris, la correspondance d'administration et de librairie: abonnements et
 réabonnements, rectifications et changements d'adresse,
 
 cahiers manquants, mandats, indication de nouveaux
 
-abonnés. N'oublier pas d'indiquer dans la correspon-
-
-dance le numéro de l'abonnement, comme il est inscrit
+abonnés. N'oublier pas d'indiquer dans la correspondance le numéro de l'abonnement, comme il est inscrit
 sur l'étiquette, avant le nom.
 Adresser à M. Charles Péguy, gérant des cahiers,
 16,rue de la Sorbonne, Paris, la correspondance de
-rédaction et d'institution. Toute correspondance d'admi-
-nistralion adressée à M. Péguy peut entrainer pour
+rédaction et d'institution. Toute correspondance d'administralion adressée à M. Péguy peut entrainer pour
 la réponse un retard considérable.
 à Nous avons reconstituer avec nos retours quelques
 premières séries complètes. Nous les vendons au prix

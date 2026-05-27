@@ -16,7 +16,7 @@ De avec les bons souhaits des cahiers
 REPRe SE, pour cette nouvelle année de travail;
 
 }ÉEPNER Pour nos petits +.
-488 Pour nos petites
+Pour nos petites
 Pour Marianne Mayer
 
 Monsieur Matou est dans la dixième année de son
@@ -41,9 +41,7 @@ vieille armoire normande à ses protégés, les draps,
 les serviettes et les essuie-mains. S'il ne noircissait
 pas chaque jour son gilet et ses pantalons à la turque,
 il n'aurait pas à les nettoyer avec sa langue. S'il
-n'avait pas à les nettoyer avec sa langue, il n'ava-
-
-lerait point les poils qui sont dessus. Et s'il n'avalait
+n'avait pas à les nettoyer avec sa langue, il n'avalerait point les poils qui sont dessus. Et s'il n'avalait
 point les poils qui sont dessus, il n'aurait pas mal
 
 — Ce raisonnement est admirable, murmurent
@@ -97,7 +95,7 @@ Matou? Monsieur Matou, qui est une manière
 d'anguille, se coule dans votre sanctuaire où il joue
 à piétiner vos protégés avec ses petites semelles
 arrondies et griflues. Même qu'il ose venir se vautrer sur moi, qui suis un vieux, utile et honorable serviteur de la maison. Je lui dis en étouffant
-— car il est très lourd, monsieur Matou —: eh, monsieur Matou, vous m'étouflez; sortez d'ici, que
+— car il est très lourd, monsieur Matou eh, monsieur Matou, vous m'étouflez; sortez d'ici, que
 diable! Sinon, Noémi, sans vous voir, poussera la
 porte, tournera la clef dans la serrure, et vous serez
 
@@ -127,9 +125,7 @@ les draps, les serviettes et les essuie-mains craignent,
 par-dessus tout, d'offenser l'armoire normande, qui
 est une grande dame, et fort susceptible.
 
-— On ne me répond jamais quand je parle, ron-
-
-chonne le tablier. Quel affront pour moi qui suis un
+— On ne me répond jamais quand je parle, ronchonne le tablier. Quel affront pour moi qui suis un
 vieux, utile et honorable serviteur de la maison.
 
 Cependant monsieur Matou somnole ou sommeille
@@ -311,8 +307,7 @@ flairer le peloton de laine grise avec son petit nez
 couleur d'anémone, et rabattre vers les touffes de
 ses favoris la pointe de ses oreilles.
 
-La table à ouvrage qui est une personne d'expé-
-rience — elle a tant déménagé! — voit bien qu'il
+La table à ouvrage qui est une personne d'expérience — elle a tant déménagé! — voit bien qu'il
 se prépare de graves événements.
 
 — Il y aura du grabuge, dit-elle.
@@ -367,8 +362,7 @@ sur deux piliers, sur les deux pattes blanches qui
 prolongent par en bas son beau gilet blanc, la queue
 disposée en rond, autour de lui, à la façon de ces
 bourrelets dont on use contre les courants d'air, —
-monsieur Matou met son petit nez couleur d'ané-
-mone dans les fourrures de son cou, et il observe.
+monsieur Matou met son petit nez couleur d'anémone dans les fourrures de son cou, et il observe.
 
 Après deux minutes d'observation, il plie le genou
 
@@ -497,9 +491,7 @@ fente noire et verticale, ont continué leur promenade à travers la chambre, et
 rencontré l'image d'un gros livre.
 
 Ce gros livre est étendu sur une chaise. Lui aussi
-est grand ouvert. Aux deux pages visibles, mon-
-
-sieur Matou aperçoit des sortes d'espaliers, et sur ces
+est grand ouvert. Aux deux pages visibles, monsieur Matou aperçoit des sortes d'espaliers, et sur ces
 sortes d'espaliers de gentilles taches noires aux
 formes elliptiques. Ces petits êtres elliptiques sont
 d'étranges petits êtres. Les uns ont une queue qu'ils
@@ -666,8 +658,7 @@ maladif. Ses zones de verdure grisonnante tendent
 pays sont de glace pour cet exilé dont les frères
 baïgnent, drus et robustes, là-bas, parmi la pénombre moite et chaude des forêts équatoriales.
 
-Personne au logis n'aime l'araucaria sauf mon-
-sieur Matou. En quoi monsieur Matou montre qu'il
+Personne au logis n'aime l'araucaria sauf monsieur Matou. En quoi monsieur Matou montre qu'il
 n'est pas tout à fait impitoyable, car l'araucaria est
 
 un pauvre arbuste étiolé, souffreteux et débile.
@@ -721,9 +712,7 @@ de la nature. En l'occurrence elle ne saurait souffrir
 le langage du Dictionnaire grec.
 
 — J'admets à la rigueur que cette nymphe soit
-une figure poétique exprimant l'attrait que l'arau-
-
-caria exerce sur monsieur Matou, mais si vous
+une figure poétique exprimant l'attrait que l'araucaria exerce sur monsieur Matou, mais si vous
 croyez qu'elle existe comme vous ou moi nous existons, je dirai, mon cher collègue, que sans doute
 vous extravaguez, et qu'ayant mérité jadis, pour le
 nombre et l'exactitude de vos références, un prix de
@@ -745,8 +734,7 @@ l'anglais et de l'allemand.
 
 Mais la Grammaire comparée de l'anglais et de
 l'allemand n'attend pas d'excuses; sa pensée munie
-d'observations précises et pliée aux bonnes mé-
-thodes expérimentales, s'applique à l'examen du
+d'observations précises et pliée aux bonnes méthodes expérimentales, s'applique à l'examen du
 fait curieux, qui est l'admirable accord du vilain
 petit arbre avec monsieur Matou. Et ce fait curieux
 
@@ -849,7 +837,7 @@ ni les Pères de l'Église.
 Mouton! soupire l'étui à lunettes.
 
 — Bien l'ai-je connu, dit la corbeille: c'était un
-chat des plus respectables et qui faisait honneur à,
+chat des plus respectables et qui faisait honneur
 la maison. Il n'était pas comme monsieur Maïou
 ridiculement orné d'üne grosse cravate en poils et
 d'un gros jabot également en poils, ce qui ne ressemble à rien et ce qui est impertinent dans nos
@@ -902,8 +890,7 @@ garde-manger, et l'une d'elles consistait à suivre de
 près et fort silencieusement la vieille Marie dans
 toutes ses allées et venues, dans tous ses tours et
 détours, prenant bien garde surtout de ne jamais
-passer devant elle, si bien qu'elle n'avait point soup-
-çon de sa présence et qu'elle tirait derrière soi la
+passer devant elle, si bien qu'elle n'avait point soupçon de sa présence et qu'elle tirait derrière soi la
 porte du garde-manger, sans se douter qu'elle laissait monsieur Mouton en tête à tête avec des merlans, du lait et des restes de ragoût. Et cette
 adresse merveilleuse et ces impayables ruses amusaient les gens du logis au point de leur enlever
 
@@ -934,15 +921,12 @@ casse une assiette.
 — Ce monsieur Mouton fut une sorte de bandit,
 ronchonne la Repue des Deux Mondes.
 
-— Faut-il tout de même que le monde soit mé-
-chant pour dire des choses pareilles! gémit la corbeille. Monsieur Mouton un bandit! Lui si bien
+— Faut-il tout de même que le monde soit méchant pour dire des choses pareilles! gémit la corbeille. Monsieur Mouton un bandit! Lui si bien
 élevé, si complaisant et si respectable! Car vous
 
 - saurez, madame la pimbêche, — ceci, bien entendu,
 s'adresse à la Revue des Deux Mondes, — que monsieur Mouton, outre qu'il était fort soigneux de
-son habit blanc, avait pour un chacun les atten-
-
-tions les plus délicates. Ce n'est pas lui qui, par
+son habit blanc, avait pour un chacun les attentions les plus délicates. Ce n'est pas lui qui, par
 malice ou désœuvrement, eût jamais bousculé
 ou culbuté les doctes étuis à lunettes et les pauvres
 vieilles corbeilles où s'entasse tout ce qu'il faut pour
@@ -968,8 +952,7 @@ quelqu'un de considérable, et je tiens pour acquis
 
 qu'avec monsieur Guizot et ce monsieur Thiers,
 dont le portrait pend là-bas au-dessus du bureau
-empire, il honora grandement la bourgeoisie fran-
-çaise. Ses méfaits cessent d'être des méfaits si l'on
+empire, il honora grandement la bourgeoisie française. Ses méfaits cessent d'être des méfaits si l'on
 y envisage, en particulier, la hardiesse et la finesse
 de l'exécution, d'autant que la tenue correcte et les
 sentiments conservateurs de monsieur Mouton
@@ -1039,11 +1022,9 @@ petites chansons légères sur deux fausses notes, —
 ou même sur trois fausses notes, quand je suis bien
 disposé. Aucune loi divine et humaine, jamais au
 grand jamais, ne m'empêcha de picoter du bec, sur
-le sable des allées, les petits vers onctueux et succulents, les petits insectes si plaisants à déchi-
-
-queter, et les bouts de mie de pain — nourriture
+le sable des allées, les petits vers onctueux et succulents, les petits insectes si plaisants à déchiqueter, et les bouts de mie de pain — nourriture
 honnête — et les graines menues — la santé au
-corps —: il n'y a propriétaire si jaloux de ses droits
+corps il n'y a propriétaire si jaloux de ses droits
 qui n'admette, bon gré mal gré, messieurs les moineaux à jouir de ses domaines.
 
 C'est ainsi qu'a penser notre ami le jeune
@@ -1104,8 +1085,7 @@ errantes; il sait les êtres et les choses des toits, les
 tours et détours surprenants des voyages qu'on
 fait au monde des cheminées, des greniers et des
 mansardes, l'aspect redoutable des ramoneurs et
-les tortures de la faim. Et devant ce jardin de dé-
-lices dont les feuillages sifflent, zézayent et tressaillent, et où de longues sauterelles vertes tracent
+les tortures de la faim. Et devant ce jardin de délices dont les feuillages sifflent, zézayent et tressaillent, et où de longues sauterelles vertes tracent
 des ellipses sur l'herbe folle, et où de grosses mouches bleues dans l'air mauve dessinent nerveusement des angles aigus, le chat du dehors aspire à
 une existence plus tranquille, moins errante, moins
 périlleuse, une existence avec des repas quotidiens,
@@ -1171,9 +1151,7 @@ et humaines, ce qui est assurément un appoint con-
 Et le chat du dehors s'enfuyait éperdu vers le
 quartier de cavalerie ou vers les écuries du marchand de vins en gros.
 
-Ces temps sont déjà lointains. Aujourd'hui, mon-
-
-sieur Matou jouit à peu près paisiblement de son
+Ces temps sont déjà lointains. Aujourd'hui, monsieur Matou jouit à peu près paisiblement de son
 domaine herbu et feuillu. N'étant plus menacé d'intrusions nouvelles, il s'assoupit dans la mollesse et
 se désintéresse des questions sociales. Quand il
 aperçoit, débordant une gouttière, le museau d'un
@@ -1347,13 +1325,10 @@ s'acquièrent les connaissances utiles et même superfÎlues. Vous verrez qu'il 
 notamment le poisson et les bains de pieds.
 
 Mais il fut un temps où toutes ces sortes de nonchalance et d'activité ne suffisaient pas, celles-là à
-calmer, celles-ci à fatiguer les inquiétudes singu-
-
-lières d'une âme encore neuve que sollicitait l'inconnu tout proche, — cet inconnu qui bruissait,
+calmer, celles-ci à fatiguer les inquiétudes singulières d'une âme encore neuve que sollicitait l'inconnu tout proche, — cet inconnu qui bruissait,
 murmurait, chantait ou miaulait de l'autre côté des
 
-Monsieur Matou commença par de courtes expé-
-ditions. Ils'en fut chez le marchand de vins en gros,
+Monsieur Matou commença par de courtes expéditions. Ils'en fut chez le marchand de vins en gros,
 vers les écuries, les caves et le grenier à foin.
 vivaient des chats qui, je pense vous l'avoir déjà
 dit, n'avaient ni l'élégance du costume, ni la politesse des mœurs. Parmi eux sévissait même un certain chat jaune de fort mauvaise mine, et selon
@@ -1480,9 +1455,7 @@ Car ces bons géraniums, comme tant de citoyens
 Cependant, Louis allait de porte en porte interroger les voisins. N'avaient-ils pas monsieur
 Matou? Et à ceux qui ne connaissaient pas monsieur
 Matou, Louis fournissait le signalement du voyageur. Mais ces démarches n'aboutirent à rien. Louis
-ne nous rapporta que les condoléances de trois voisines éminemment respectables: la femme du mar-
-
-chand de vins en gros, la blanchisseuse borgne et la
+ne nous rapporta que les condoléances de trois voisines éminemment respectables: la femme du marchand de vins en gros, la blanchisseuse borgne et la
 sage-femme. Car ces trois dames aïmaient les animaux.
 
 Et le deuil tomba sur nous, sur le logis, sur les
@@ -1502,14 +1475,11 @@ nous donnaient à réfléchir sur les conséquences des
 
 Pourtant, de même qu'Odysseus, après avoir erré
 dix ans de mer en mer et d'île en île, revit enfin
-Ithaque sa patrie, sa femme Pénélope et ses trou-
-peaux de cochons, ainsi monsieur Matou, après dix
+Ithaque sa patrie, sa femme Pénélope et ses troupeaux de cochons, ainsi monsieur Matou, après dix
 jours et plus d'un voyage mystérieux, revit sa
 famille, sa cuisine, sa cour et ses géraniums.
 
-Un sauveur se présenta.— Était-ce un garçon bou-
-
-langer ou un garçon marchand de vins? A quelle
+Un sauveur se présenta.— Était-ce un garçon boulanger ou un garçon marchand de vins? A quelle
 corporation appartenait ce personnage oflicieux et
 sympathique? Hélas! beaucoup de circonstances
 remarquables tombent dans l'oubli, — et l'histoire
@@ -1593,9 +1563,7 @@ l'atmosphère humide.
 La fontaine en grès, personne d'âge qui occupeun
 coin de la cuisine, répand, à ce sujet, des propos
 
-— Monsieur Matou, m'a-t-elle dit, s'installe volon-
-
-tiers sur mon couvercle. Il aime la fraîcheur de ce
+— Monsieur Matou, m'a-t-elle dit, s'installe volontiers sur mon couvercle. Il aime la fraîcheur de ce
 contact. Le chant des eaux qui coulent de mon robinet dans les carafes plaît à son âme musicale. Ce
 monsieur Matou est vraiment bien sympathique.
 La pierre à laver, le baquet, la terrine et les
@@ -1677,8 +1645,7 @@ Subitement, monsieur Matou fit cette découverte
 admirable que rien n'était plus pittoresque, ni plus
 sûr, ni plus doux que de se vautrer sur le palier du
 premier étage, dans l'embrasure d'une porte close.
-nuits sur le palier du premier étage dans l'embra-
-sure de la porte close. En vain le marbre froid de
+nuits sur le palier du premier étage dans l'embrasure de la porte close. En vain le marbre froid de
 
 la console lui offrait l'hospitalité. Monsieur Matou
 É attendit pour se coucher sur le marbre froid de la
@@ -1956,8 +1923,7 @@ soudaines, le désordre parfois bizarre de vos actes,
 la loi souvent cruelle de vos appétits. Les plus belles
 
 qualités, même chez l'homme, n'existent pas à l'état
-pur. Les meilleurs d'entre nous obéissent à des dé-
-sirs pernicieux et absurdes dont l'origine fort ancienne échappe encore aux recherches des savants.
+pur. Les meilleurs d'entre nous obéissent à des désirs pernicieux et absurdes dont l'origine fort ancienne échappe encore aux recherches des savants.
 
 Ne craignez point non plus que ce mélange de
 bien et de mal, de raison et de déraison, cette suite
@@ -1985,8 +1951,7 @@ manier, palper, consulter et examiner, je sais ce
 qu'ils penseraient, voudraient et diraient, si la
 
 conscience leur venait soudain. J'ai fait comme si
-la conscience leur était venue. Je l'ai fait sans pré-
-méditation, sans étude, sans effort, comme si de
+la conscience leur était venue. Je l'ai fait sans préméditation, sans étude, sans effort, comme si de
 longue date je connaissais leur langage.
 
 Que voulez-vous? où s'est dépensé l'effort de

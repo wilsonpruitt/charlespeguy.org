@@ -44,9 +44,7 @@ au moins, le Comité est tenu de convoquer, dans le
 délai maximum d'un mois, une Assemblée générale
 
 ARTICLE 24. — Toute revision des présents statuts ne
-peut être faite que par une Assemblée générale extra-
-
-quatorzième cahier de la deuxième série
+peut être faite que par une Assemblée générale extraquatorzième cahier de la deuxième série
 ordinaire convoquée expressément à cet effet, soit sur
 l'initiative du Comité, soit sur demande signée de
 cinquante sociétaires au moins, et ne peut être votée
@@ -60,8 +58,7 @@ au Comité au moins trois semaines avant la date de
 cette Assemblée. Les questions sont mises à la suite
 de l'ordre du jour du Comité.
 Arricze 27. — Les Assemblées générales ordinaires
-sont valables, quel que soit le nombre des membres pré-
-sents, mais les Assemblées extraordinaires doivent
+sont valables, quel que soit le nombre des membres présents, mais les Assemblées extraordinaires doivent
 comprendre au moins un nombre égal au quart des
 Démission et Radiation. — Dissolution
 doit être adressée au Secrétaire général qui la transmet au
@@ -193,8 +190,7 @@ tête leur programme de pillage lorsqu'ils arrivent à
 un village; les uns doivent aller aux chevaux, les
 autres aux fourrures, etc. Je crois que leur puissance se
 militaire est un grand bluff: la guerre de 1877 le
-Les individualités les plus intéressantes se rencon-
-treraient, je crois, parmi les Américains. C'est aussi
+Les individualités les plus intéressantes se rencontreraient, je crois, parmi les Américains. C'est aussi
 chez eux que j'ai trouvé le plus d'idée, le plus de
 discussion, etles manières simples sans grossièreté
 etrépublicaines sans rudeur,comme diraitquelqu'un
@@ -202,8 +198,7 @@ de l'an VI. Ils discutent librement leur impérialisme,
 beaucoup plus tolérant et moins profond que les
 nationalismes français, allemand et anglais. à
 Quant aux Japonais, je n'en parlerai pas. J'aurais
-aimé approfondir l'état d'âme des vieux comman-
-dants à cheveux blancs, qui Samouraïs autrefois
+aimé approfondir l'état d'âme des vieux commandants à cheveux blancs, qui Samouraïs autrefois
 avaient porté le double sabre et s'étaient plus ou
 moins ouvert le ventre; mais je n'ai causer x. ‘#4
 qu'avec de jeunes officiers sortis de Polytechnique “4
@@ -236,9 +231,7 @@ situation actuelle est curieuse à connaître.
 Les missionnaires qui disent, font dire ou laissent
 
 dire en France qu'ils sont à l'étranger de constants
-_etactifs propagateurs de l'influence française, pré-
-tendent ici n'avoir aucun rapport avec les puis-
-sances européennes et demandent avec insistance
+_etactifs propagateurs de l'influence française, prétendent ici n'avoir aucun rapport avec les puissances européennes et demandent avec insistance
 le départ des troupes, dont la présence, disent-ils, ëS.
 leur fait le plus grand tort dans l'espritdes Chinois,
 en donnant à penser qu'ils sont de connivence avec
@@ -253,8 +246,7 @@ exactions des mandarins, qui sont certaines et
 inouïes. La conviction religieuse est au dernier
 plan: c'est le dernier souci du Chinois. “1
 Or, les missionnaires sont-ils des agents d'in- Es.
-fluence européenne? Oui et non. Ils usent de mé-
-thodes européennes, introduisent quelques connais__- sances pratiques de source européenne: mais ils
+fluence européenne? Oui et non. Ils usent de méthodes européennes, introduisent quelques connais__- sances pratiques de source européenne: mais ils
 travaillent exclusivement à leur profit. Ils se font
 Chinois, portent la natte, le costume, parlent la “4
 langue, apprennent à leurs élèves un latin de cui- Ne
@@ -274,16 +266,11 @@ et se fortifient. Certes, les réclamations excessives,
 peut-être même les exactions des Pères ont surexcité
 les Chinois: mais quand les troupes partiront ils
 
-seront armés. Je me demande s'ils n'ont pas l'inten-
-
-tion de réaliser la conversion de la Chine par une
+seront armés. Je me demande s'ils n'ont pas l'intention de réaliser la conversion de la Chine par une
 
 L'exemple du Paraguay est toujours intéressant
 à étudier. Les Jésuites ont formé, d'un peuple qui
-paraît avoir été d'abord pacifique, une nation guer-
-rière qui a étonné le monde (en 1867) par une résis-
-
-tance à l'invasion supérieure peut-être à celle des
+paraît avoir été d'abord pacifique, une nation guerrière qui a étonné le monde (en 1867) par une résistance à l'invasion supérieure peut-être à celle des
 Boers. Qu'adviendrait-il si les missionnaires transformaient ainsi tout ou partie de la Chine? J'ai dit
 parfois, en plaisantant, à un Père, qu'à la prochaine
 campagne de Chine nous les trouverions sans doute
@@ -328,9 +315,7 @@ sur l'étiquette, avant le nom.
 
 Adresser à M. Charles Péguy, gérant des cahiers,
 rue de la Sorbonne, Paris, la correspondance de
-rédaction et d'institution. Toute correspondance d'admi-
-
-nistration adressée à M. Péguy peut entraîner pour
+rédaction et d'institution. Toute correspondance d'administration adressée à M. Péguy peut entraîner pour
 la réponse un retard considérable.
 
 M. André Bourgeois, administrateur des cahiers,
@@ -372,9 +357,7 @@ Monsieur Henri Turot est bien celui qui,
 sous le nom de citoyen Henri Turot, a combattu vivement pour la révolution sociale.
 
 Enfin le Journal est bien cette feuille que
-nos journalistes professionnels ont accoutumé de flétrir, la nommant la maison Letel-
-
-lier. L'argent du Journal est donc ent de
+nos journalistes professionnels ont accoutumé de flétrir, la nommant la maison Letellier. L'argent du Journal est donc ent de
 réclames et d'annonces désormais célèbres.
 
 Depuis Philéas Fogg l'endroit pour un tour
@@ -403,12 +386,7 @@ récemment exercées contre les personnes.
 Les exemples abondaïent. Nous en avons choisi quel- “10
 ques-uns, ceux que nous connaissions le mieux ou qui
 nous paraissaient les plus caractéristiques.
-« Une atteinte particulièrement grave aux libertés élé-
-mentaires, à La liberté privée a été commise par l'auto-
-
-rité gouvernementale de la Haute-Vienne, où un in-
-
-specteur primaire, commandé de service par son préfet,
+« Une atteinte particulièrement grave aux libertés élémentaires, à La liberté privée a été commise par l'autorité gouvernementale de la Haute-Vienne, où un inspecteur primaire, commandé de service par son préfet,
 
 a fait une inqualifiable perquisition dans la bibliothèque
 
@@ -417,9 +395,7 @@ officiel du mercredi 3 juillet dernier
 Discussion au Sénat de l'interpellation de M. Lavertujon sur les actes de M. le Préfet de la Haute-Vienne
 MM. Lavertujon, Leygues, ministre de l'instruction
 
-publique et des beaux-arts; Waldeck-Rousseau, pré-
-
-sident du conseil, ministre de l'intérieur et des cultes.
+publique et des beaux-arts; Waldeck-Rousseau, président du conseil, ministre de l'intérieur et des cultes.
 — Retrait, par M. Lavertujon, de l'ordre du jour
 sur son interpellation.
 
@@ -449,12 +425,10 @@ M. Le PRÉSIDENT (1). — C'est une opinion toute person-
 Messieurs, nos institutrices ou directrices d'écoles eurent
 le tort de se rendre à ces conférences; une d'entre elles eut
 même l'imprudence de se faire présenter au conférencier,
-M. René Bazin, qui venait de parler avec beaucoup d'élo-
-quence sur: La Province dans le roman, sujet des plus
+M. René Bazin, qui venait de parler avec beaucoup d'éloquence sur: La Province dans le roman, sujet des plus
 intéressants pour une provinciale un peu romanesque,
 Quand l'affaire fut connue des inspecteurs primaires, de
-l'inspecteur d'académie et du préfet, on admonesta sévère-
-ment ces institutrices en leur montrant leur imprudence et
+l'inspecteur d'académie et du préfet, on admonesta sévèrement ces institutrices en leur montrant leur imprudence et
 en les invitant à ne plus revenir au Cénacle. Elles n'y
 revinrent pas. Cette affaire avait fait si peu de bruit que
 personne n'y avait pris garde; elle était restée entre l'in-
@@ -468,9 +442,7 @@ la messe, il lui fallait faire revivre cette vieille affaire afin
 de faire montre de son zèle anticlérical et frapper ces malheureuses institutrices. Mais elles étaient nombreuses et
 quelques-unes avaient des défenseurs éloquents et résolus.
 
-L'une d'elles fut très énergiquement défendue par un con-
-
-seiller général radical, et M. Edgar Monteil n'insista pas.
+L'une d'elles fut très énergiquement défendue par un conseiller général radical, et M. Edgar Monteil n'insista pas.
 Une autre se défendait d'elle-même, et c'est précisément
 celle qui avait commis l'imprudence de se faire présenter
 un conférencier: elle était fille du vénérable de la loge; on
@@ -500,8 +472,7 @@ proportion est la même.
 C'est alors que j'ai annoncé mon intention d'interpeller.
 
 M. Monteil, un peu inquiet, sentit — car il n'est point sot,
-loin de — que la punition qu'il avait infligée à ces insti-
-tutrices était un peu disproportionnée avec la faute qu'elles
+loin de — que la punition qu'il avait infligée à ces institutrices était un peu disproportionnée avec la faute qu'elles
 
 avaient commise etqu'elles pouvaient si bien croire oubliée
 
@@ -512,8 +483,7 @@ primaire; il commença par lui dire qu'il n'était pas content
 de lui, lui reprochant de ne pas insufller suflisamment l'es-,
 prit laïque à ses instituteurs; il l'invita à demander son
 changement. M. Gourdon, qui depuis longtemps est
-Limoges où il est estimé de tout le monde, fut un peu aba-
-sourdi de la sortie que lui faisait le préfet. Il se réclama
+Limoges où il est estimé de tout le monde, fut un peu abasourdi de la sortie que lui faisait le préfet. Il se réclama
 des appréciations infiniment flatteuses des prédécesseurs de
 
 M. Monteil et de tous les inspecteurs d'académie quis'étaient
@@ -525,8 +495,7 @@ une femme qui beaucoup trop à la messe. « C'est
 vrai, monsieur le préfet, ma femme à la messe, mais cela
 
 ne m'empêche pas de remplir sérieusement mon devoir
-« Et en outre, vous avez un frère qui est curé. » /Excla-
-mations à droile) — « C'est encore vrai, mais le jour où
+« Et en outre, vous avez un frère qui est curé. » /Exclamations à droile) — « C'est encore vrai, mais le jour où
 mon frère a pris cette profession, il ne m'a pas consulté. »
 Quand il vit M. Gourdon ainsi impressionné par ces
 paroles sévères, le préfet ajouta: « Monsieur, ma police
@@ -584,8 +553,7 @@ Le préfet et l'inspecteur d'académie étaient accusés d'avoir
 signé un mouvement qui avait un caractère exclusivement
 politique et d'avoir frappé, pour obéir à des motifs peu
 honorables, deux institutrices qui, par leur passé et les
-services qu'elles avaient rendus à l'enseignement, se recom-
-mandaient à la bienveillance de leurs chefs.
+services qu'elles avaient rendus à l'enseignement, se recommandaient à la bienveillance de leurs chefs.
 
 L'honorable M. Lavertujon m'annonça qu'il allait m''inter-,
 peller; je crus tout d'abord qu'il s'agissait d'une sorte de
@@ -626,8 +594,7 @@ mondain; dépeupler, si possible, les cours secondaires de
 jeunes filles organisés par l'Université.
 Le Cénacle attira un assez grand nombre d'auditrices.
 Mais bientôt il résolut d'étendre son influence et il s'adressa
-directement à nos institutrices. Il les invita par des circu-
-laires habiles, sous prétexte de littérature, d'histoire ou de
+directement à nos institutrices. Il les invita par des circulaires habiles, sous prétexte de littérature, d'histoire ou de
 pédagogie, à suivre ses cours.
 Une propagande des plus actives fut menée dans ce sens.
 On espérait, après avoir embrigadé nos institutrices,
@@ -637,8 +604,7 @@ P. Dublanchy, supérieur du collège Saint-Martial. Or, le
 collège Saint-Martial est l'établissement d'enseignement
 secondaire qui fait concurrence à notre lycée. C'est assez
 dire quel est l'esprit qui anime le Cénacle et ses profes- "1
-seurs. C'est assez dire aussi qu'à défaut d'autres considé-
-rations un pareil patronage aurait inspirer à tout le
+seurs. C'est assez dire aussi qu'à défaut d'autres considérations un pareil patronage aurait inspirer à tout le
 corps enseignant primaire une prudente réserve.
 On poursuivait évidemment au Cénacle un but politique
 il fallait être bien peu avisé pour ne pas s'en apercevoir.
@@ -729,8 +695,7 @@ Voici, d'après l'enquête à laquelle je me suis livré, ce
 qui s'est passé
 Le préfet a demandé à M. Gourdon de chercher dans la
 bibliothèque de mademoiselle Marsat les deux livres dont
-M. Lavertujon vous a parlé. M. Gourdon, après avoir pré-
-senté ses objections, se rendit chez mademoiselle Marsat.
+M. Lavertujon vous a parlé. M. Gourdon, après avoir présenté ses objections, se rendit chez mademoiselle Marsat.
 Il l'appela dans la salle de la bibliothèque scolaire et
 examina les ouvrages qui s'y trouvaient.
 tion de voir sa bibliothèque personnelle. Mademoiselle
@@ -757,8 +722,7 @@ sérieusement sa responsabilité.
 Les déclarations de M. Leygues ne sont pas moins
 précieuses et moins curieuses pour les théories que pour
 les faits. Il continua et conclut ainsi
-Tels sont, messieurs, les incidents qui ont motivé l'inter-
-pellation de M. Lavertujon. Vous voyez, quand on les serre
+Tels sont, messieurs, les incidents qui ont motivé l'interpellation de M. Lavertujon. Vous voyez, quand on les serre
 de près, quand on les réduit à leur proportion véritable, ce
 
 qu'il en reste.
@@ -783,20 +747,16 @@ qui ne peut souffrir aucune exception.
 « Vous ne devez pas non plus tolérer que, dans les enquêtes
 
 quinzième cahier de la deuxième série
-administratives dont ils sont chargés par leurs chefs hiérarchiques, les inspecteurs de l'enseignement primaire empiè-
-tent sur les attributions de la police ordinaire. Ils ne doivent non plus tenir aucun compte ni de rapports secrets,
+administratives dont ils sont chargés par leurs chefs hiérarchiques, les inspecteurs de l'enseignement primaire empiètent sur les attributions de la police ordinaire. Ils ne doivent non plus tenir aucun compte ni de rapports secrets,
 ni d'indications dont ils ne pourraient contrôler personnellement l'exactitude. Leurs enquêtes doivent être conduites de,
-telle façon que les intéressés puissent toujours avoir con-
-
-naissance des griefs ou accusations formulés contre eux et
+telle façon que les intéressés puissent toujours avoir connaissance des griefs ou accusations formulés contre eux et
 
 soient mis en mesure de s'en justifier. » /Très bien! très bien!)
 J'estime que la conscience est un asile inviolable et que
 le respect de toutes les croyances religieuses et philosophiques s'impose à tout esprit vraiment libre et haut, mais
 nous ne saurions tolérer que, sous un prétexte quelconque,
 les membres du corps enseignant rompent la neutralité scolaire, entrent dans des logis dirigés par des congrégations
-non autorisées et aillent s'y inspirer d'un esprit violem-
-ment hostile à l'esprit laïque qui doit seul animer notre
+non autorisées et aillent s'y inspirer d'un esprit violemment hostile à l'esprit laïque qui doit seul animer notre
 enseignement public. /Très bien! très bien! et applaudissements à gauche et au centre)
 M. Jean Jaurès, professeur agrégé de philosophie,
 en congé, mis en Cause par ses ennemis, qui Sont nombreux, parce qu'il a permis que sa fille fit sa première
@@ -806,10 +766,8 @@ réponse. Elle est très loin de satisfaire celui qui examinerait ce conflit au 
 — et au regard.de cette conscience. Mais elle est bonne
 au sens — et däns la mesure — où elle défend contre;.
 les autorités sociales et politiques les libertés de la vie
-privée. Nous souhaitons que les nombreux collabora-
-teurs de Jaurès à la Petite République lisent la défense se.
-à de Jaurès et constants avec lui-même cessent de dénon-
-cer les petits fonctionnaires, les petites gens quise sont
+privée. Nous souhaitons que les nombreux collaborateurs de Jaurès à la Petite République lisent la défense se.
+à de Jaurès et constants avec lui-même cessent de dénoncer les petits fonctionnaires, les petites gens quise sont
 mis dans la même situation que lui.
 
 Sous ce titre, j'ai dit, il y a trois ans, aux lecteurs de
@@ -878,10 +836,8 @@ allongée. Je mettrai seulement sous les yeux les confrontations les plus typiqu
 quelle est la méthode du polémiste.
 Le premier article est daté du mercredi 19 décembre
 1900. Il à pour titre Ferdinand le Catholique. Il s'agit
-de prouver que le Manuel de l'Histoire de la Littéra-
-ture française, que M. Brunetière a publié en 1898 chez
-Delagrave, est un ouvrage clérical ou, plus précisé-
-ment, jésuite (voir la première colonne de l'article).
+de prouver que le Manuel de l'Histoire de la Littérature française, que M. Brunetière a publié en 1898 chez
+Delagrave, est un ouvrage clérical ou, plus précisément, jésuite (voir la première colonne de l'article).
 L''Universitaire étudie quelques jugements de M. Brunetière: mais il veut obtenir une condamnation. C'est
 donc un vrai réquisitoire qu'il compose, et les procédés
 qu'il emploie ne sont pas sans ressemblance avec ceux
@@ -897,16 +853,14 @@ plus qu'elle ne dit. Mais est-elle rigoureusement exacte?
 Il préche la morale facile de l'abbaye de Thélème et
 « en sa règle n'est que cette clause: Fais ce que voudras. » Seulement, cette morale, quand on l'examine,
 plus loin qu'on ne croirait d'abord; elle a plus de
-portée, sinon plus de profondeur; et la règle des Thélé-
-mites se trouve étre finalement la contradiction ou la
+portée, sinon plus de profondeur; et la règle des Thélémites se trouve étre finalement la contradiction ou la
 négation même de tout ce qu'enseignaient depuis plus
 à de mille ans alors et les mœurs et l'École et l'Église.
 L'Universitaire a déplacé, resserré, supprimé, sans
 nous en prévenir; le texte qu'il cite n'est plus de M. Brunetière, mais du journaliste. Or, si innocente que soit
 à mes yeux la phrase incriminée, elle l'est bien moins
 que la phrase vraie.
-Un peu plus bas, je rencontre une inexactitude nou-
-velle. sa
+Un peu plus bas, je rencontre une inexactitude nouvelle. sa
 Et M. Brunetière ajoute: De l'obscurité de RabeC'est peut-être une question lais; — et que où il est
 de savoir s'il s'est toujours obscur, c'est peut-être une
 Res lunpnre question de savoir s'il s'est
@@ -914,35 +868,27 @@ Res lunpnre question de savoir s'il s'est
 Différence de sens: dans un cas, on critique certaines
 pages de Rabelais; dans l'autre on critiquerait son
 Ce qui suit est moins inexact: du moins le journaliste reproduit-il exactement les textes qu'il cite; mais
-nous savons que des coupures donnent, par leur assemblement, une idée au moins légèrement fausse du pas-
-sage où elles ont été pratiquées.
+nous savons que des coupures donnent, par leur assemblement, une idée au moins légèrement fausse du passage où elles ont été pratiquées.
 Nous voici à Descartes. Et ici je relève une suppression qui est tout à fait de nature à nous égarer sur la
 pensée véritable de l'auteur cité
 Non, en vérité, le Discours Non! en vérité, le Disde la Méthode n'a point fait cours de la Méthode
 époque dans l'histoire de point fait époque dans
-nee pare! Here l'histoire de notre litiéra-
-littérature à fini par devenir tare: ‘Pleine d'obiotes
+nee pare! Here l'histoire de notre litiéralittérature à fini par devenir tare: ‘Pleine d'obiotes
 purement française, elle le A Le
 doit au réveil de l'idée chré- Pour le géomètre, les contienne. temporains du « philosophe/ » l'ont presque ignoré
-comme tel. Et si la littéra-
-ture a fini par secouer le
-joug de toutes ces influen-
-ces, qui semblaient conju-
-rées contre elle pour pécher de devenir purement
+comme tel. Et si la littérature a fini par secouer le
+joug de toutes ces influences, qui semblaient conjurées contre elle pour pécher de devenir purement
 à française, elle le doit à de
 tout autres causes, dont la
 première et la plus imporLe tante a été le réveil de
 l'idée chrétienne sous la
 À Jorme de l'idée janséniste.
 
-Négligeons toutes les différences de texte: la disparition des derniers mots de la phrase est assez inquié-
-tante. Comment l'expliquer? Serait-ce qu'il faut à tout
+Négligeons toutes les différences de texte: la disparition des derniers mots de la phrase est assez inquiétante. Comment l'expliquer? Serait-ce qu'il faut à tout
 prix que M. Brunetière passe pour un jésuite?
 
 Je m'en tiens pour le premier article.
-Un second article paraît le lundi suivant 24 décem-
-
-bre: mais il ne fait pas directement suite au précédent
+Un second article paraît le lundi suivant 24 décembre: mais il ne fait pas directement suite au précédent
 les citations y sont peu nombreuses et exactes.
 
 Enfin, le mercredi 9 janvier 1907, la Petite République
@@ -984,8 +930,7 @@ ment de justice, mais de É derionce
 supériorité du christianisme 74 de For ane
 sur le mahométisme ou sur COnnaissant la supériorité,
 le paganisme. du christianisme sur le
-mahométisme, par exem-
-ple, ou sur le paganisme;
+mahométisme, par exemple, ou sur le paganisme;
 si, du point de vue purement historique et humain,: ARR
 le christianisme a renouvelé la face du monde, —
 et si, d'autre part, l'intolé-
@@ -1025,19 +970,16 @@ Je ne vois pas de moyen terme.
 Et puis, à quoi bon ces réquisitoires? Ils ne sont pas
 
 plus vrais que des plaidoiries. Avec des citations bien
-choisies et sans même y opérer des suppressions avanta-
-geuses, je pourrais prouver tout aussi bien que M. Bru
+choisies et sans même y opérer des suppressions avantageuses, je pourrais prouver tout aussi bien que M. Bru
 netière est libre-penseur.
 Je lis, pages 404-405, petit texte: à
 
-Violence insultante de J. de Maistre dans la polé-
-mique; — et sa tendance au paradoxe. — L'apologie
+Violence insultante de J. de Maistre dans la polémique; — et sa tendance au paradoxe. — L'apologie
 
 S'il n'eût pas rendu plus de services à sa propre cause
 en y mettant plus de modération?;
 Le commencement de l'affaire des Jésuites a précédé
-le brûlement de l'Émile; l'affaire des Calas le suit immé-
-diatement. Jamais émotion ne fut plus légitime, si
+le brûlement de l'Émile; l'affaire des Calas le suit immédiatement. Jamais émotion ne fut plus légitime, si
 Jamais erreur judiciaire ne fut plus déplorable.
 L'Universitaire écrit pourtant, dans l'article du 9 janvier, deuxième colonne, et l'ironie est assez apparente
 Arrêtons-nous devant ce dreyfusard de Voltaire, qui,
@@ -1054,9 +996,7 @@ sources, en expulsant les protestants, mais c'est la moralité publique qui en e
 Il est difficile, j'imagine, d'être plus net dans le blâme,
 
 et pourtant, c'est bien M. Brunetière qui a écrit ces
-Plaisanterie, sans doute, que cette méthode de cita-
-tion: mais ne pourrait-on pas dire aussi que les arti-
-cles de Universitaire sont une plaisanterie prolongée.
+Plaisanterie, sans doute, que cette méthode de citation: mais ne pourrait-on pas dire aussi que les articles de Universitaire sont une plaisanterie prolongée.
 Entre les deux sans doute se trouve la vérité, toute
 simple et même naïve. Quand M. Brunetière publie un
 Manuel d'histoire littéraire, nous pouvons penser qu'il
@@ -1093,8 +1033,7 @@ irrévérence, mais où l'idée de patrie elle-même, une
 idée sacrée pourtant entre toutes, était analysée,
 discutée et même condamnée avec cynisme, comme
 s'il ne devait pas y avoir certains dogmes intangibles
-devant lesquels la Raison n'avait qu'à s'incliner hum-
-blement. Le Sans-Patrie s'oubliait au point de traiter
+devant lesquels la Raison n'avait qu'à s'incliner humblement. Le Sans-Patrie s'oubliait au point de traiter
 le patriotisme de religion imbécile et sanglante.
 disait que les patries actuelles sont des agglomérations
 de gens réunis sous les mêmes lois, par le hasard ou
@@ -1109,15 +1048,13 @@ ou la misère après avoir accompli toutes les besognes
 quinzième cahier de la deuxième série
 “ennuyeuses, répugnantes, pénibles ou dangereuses de
 la société; que dans chaque patrie, à la suite de guerres
-anciennes faites pour les beaux yeux des anciens souverains au temps où ils étaient absolus, il s'est déve-
-loppé, à l'égard des voisins, un sentiment de jalousie
+anciennes faites pour les beaux yeux des anciens souverains au temps où ils étaient absolus, il s'est développé, à l'égard des voisins, un sentiment de jalousie
 - et de haïne qui s'appelle le patriotisme; que ce sentiment patriotique n'est nullement fait d'amour et de
 solidarité pour les compatriotes, car au sein d'une
 même patrie les gras exploitent les maigres sans pitié
 et les haïines sont vives entre cléricaux et anticléricaux,
 patrons et ouvriers, conservateurs et socialistes; il
-écrivait que le patriotisme haineux et jaloux est entre-
-tenu dans chaque pays par les classes dirigeantes,
+écrivait que le patriotisme haineux et jaloux est entretenu dans chaque pays par les classes dirigeantes,
 parce que le patriotisme sert à justifier l'existence des
 armées permanentes, sans lesquelles les déshérités se
 révolteraient contre les privilégiés; il disait enfin que
@@ -1128,8 +1065,7 @@ guerre internationale et que s'ils doivent risquer leur
 vie, ils doivent le faire, non pour les intérêts des riches
 et des gouvernants de tous pays, mais pour améliorer
 leur propre sort.
-Il commentait la devise de l'Internationale: Prolé-
-aires de tous pays, unissez-vous! et il ajoutait mille
+Il commentait la devise de l'Internationale: Proléaires de tous pays, unissez-vous! et il ajoutait mille
 autres propos qui donnaient l'impression fort nette qu'il
 avait jadis, au temps d'une certaine affaire Dreyfus,
 être vendu au syndicat des Juifs et qu'il était vendu
@@ -1176,8 +1112,7 @@ voici ce qu'écrivit le Sans-Patrie dans Le Travailleur
 reçu la lettre suivante, qu'ils se sont empressés de me
 Fidèle à ses traditions, la conférence de Saint-Vincentde-Paul se fait un plaisir et un devoir de vous informer
 qu'une messe solennelle du départ sera célébrée, à la
-cathédrale, le dimanche 11 novembre, à neuf heures pré-
-cises du matin, pour attirer la protection du Ciel sur tous
+cathédrale, le dimanche 11 novembre, à neuf heures précises du matin, pour attirer la protection du Ciel sur tous
 les jeunes conscrits sénonais qui vont joindre leur corps.
 Monsieur l'Archiprêtre y prononcera une allocution de
 Vous êtes particulièrement invité, Monsieur, ainsi que
@@ -1186,7 +1121,7 @@ cérémonie, où une place spéciale vous sera réservée.
 Pour la Conférence
 Je me suis rendu immédiatement chez M. l'Archi- « prêtre, avec qui je suis dans les meiïlleurs termes, »
 De comme avec tout le clergé sénonais, du reste, etila
-bien voulu, par sympathie pour le Travailleur socialiste, «: me donner copie de l'allocution qu'il compte prononcer
+bien voulu, par sympathie pour le Travailleur socialiste, me donner copie de l'allocution qu'il compte prononcer
 à cette religieuse et patriotique cérémonie.
 : Je m'empresse d'en donner la primeur à nos lecteurs:
 Mes très chers frères,
@@ -1232,9 +1167,7 @@ en Angleterre qui ne demandent qu'à vivre en paix avec
 
 vous et qui eux aussi sont vos frères.
 En vérité je vous le dis: le métier de soldat, le métier de
-tueur d'hommes est incompatible avec la qualité de chré-
-
-vous faut renier l'Évangile et votre dieu, ou refuser le
+tueur d'hommes est incompatible avec la qualité de chrévous faut renier l'Évangile et votre dieu, ou refuser le
 
 Les puissants, sans doute, vous traîneront dans leurs
 bagnes, dans les horreurs de Biribi. Eh! ne vaut-il pas
@@ -1259,9 +1192,7 @@ sentir, pour la première fois, ce qu'ils n'ont sans doute
 jamais soupçonné: la portée révolutionnaire du christianisme primitif, au temps où il n'était pas encore
 devenu le fétichisme abêtissant qu'est le catholicisme
 
-actuel; ce pauvre clergé catholique, si étroit et si jouis-
-
-seur, se réveillera-t-il de sa torpeur intellectuelle et
+actuel; ce pauvre clergé catholique, si étroit et si jouisseur, se réveillera-t-il de sa torpeur intellectuelle et
 morale quand l'archiprêtre viendra pour la première
 fois faire vibrer à ses oreilles la parole subversive du
 La polémique s'engagea sur cette présomption. Voici
@@ -1271,8 +1202,7 @@ prêtait gratuitement dans notre dernier numéro; aucun
 de nos lecteurs, nous l'espérons, ne s'y est trompé.
 l'archiprêtre nous fait savoir très sérieusement
 qu'il n'a jamais fait de confidences à Sans-Patrie — cela
-est vrai; — il n'a pas prononcé un traître mot du ser-
-mon que lui attribuait notre ami — rendons-lui encore
+est vrai; — il n'a pas prononcé un traître mot du sermon que lui attribuait notre ami — rendons-lui encore
 cette justice; — même il nous requiert d'insérer le texte
 authentique du véritable sermon qu'il a prononcé. Nous
 sommes trop heureux de pouvoir mettre, sous la dent
@@ -1321,8 +1251,7 @@ patriotisme est une vertu, que le Dieu qui a pleuré sur sa Le
 cité, qui est mort pour le monde les bras en croix, le cœur
 ouvert, nous commande d'aimer comme lui notre patrie
 jusqu'au sang, que quiconque depuis, vit et combat au serre ATTENTATS DANS L'YONNE
-vice de son pays est un être sacré; il ne fait pas seule-
-ment métier de soldat, il fait métier de christ, de sauveur,
+vice de son pays est un être sacré; il ne fait pas seulement métier de soldat, il fait métier de christ, de sauveur,
 et s'il vient à mourir, ce n'est pas une victime simplement,
 cest un martyr, car il a combattu pour les foyers et les
 autels, pro aris et focis. Vous donc, chers jeunes gens, qui,
@@ -1407,8 +1336,7 @@ l'histoire nationale.
 Le discours qu'il met dans bouche dénote pourtant
 un professionnel habitué à la chaire, mais à une autre
 chaire qu'à celle de la vérité; et voilà pourquoi, bien que
-sa traduction trop libre et très fantaisiste du texte évangé-
-lique n'ait, à première vue, aucun air véridique, je me vois
+sa traduction trop libre et très fantaisiste du texte évangélique n'ait, à première vue, aucun air véridique, je me vois
 obligé, parce qu'elle pourrait donner le change à vos lecteurs, d'en désavouer la paternité.
 Si votre correspondant m'avait interviewé comme il le
 dit, voici le texte exact, authentique, qu'il leur aurait transmis, que je vous prie et vous requiers au besoin de leur
@@ -1421,8 +1349,7 @@ D'ailleurs, les reporters que j'ai vus dans mon auditoire, -
 facilement reconnaissables à l'églantine qui fleurissait leur
 boutonnière, pourront confronter avec leurs notes prises
 sur un bénitier fort surpris de leur servir de pupitre. Sous
-la réserve de ce contrôle que j'accepte, loyalement prati-
-qué, veuillez publier, extenso, à la place que vous avez
+la réserve de ce contrôle que j'accepte, loyalement pratiqué, veuillez publier, extenso, à la place que vous avez
 cru devoir donner à une falsification anonyme, ce premier
 article d'un nouveau correspondant qui signe et reste, tant
 que vous le voudrez, gratuitement à votre disposition
@@ -1457,10 +1384,8 @@ de bons apôtres pour nous donner ces conseils désintéressés. Ces conseils, j
 suivre; ma poltronnerie — puisque poltronnerie il y a
 — a d'ailleurs des limites: si mes articles contenaïient
 jamais une diffamation à l'égard d'un particulier, ou
-des propos subversifs et immoraux suséeptibles detom-
-ber sous le coup des justes lois, qu'on me poursuive;
-on verra que je ne me terrerai pas, que je ne me déro-
-berai pas derrière notre camarade gérant. Je connais
+des propos subversifs et immoraux suséeptibles detomber sous le coup des justes lois, qu'on me poursuive;
+on verra que je ne me terrerai pas, que je ne me déroberai pas derrière notre camarade gérant. Je connais
 un anarchiste que j'estime et que je respecte autant que
 je le plains, qui, depuis 189%, est au bagne pour n'en
 avoir pas dit plus long que je n'en dis chaque semaine
@@ -1476,9 +1401,7 @@ au sujet que je dois traiter aujourd'hui, je souhaite
 quinzième cahier de la deuxième série
 
 l'archiprêtre de montrer au service de ses idées, s'il
-y a pour lui un jour quelque danger à le faire, le cou-
-
-rage et l'audace que je mets dès aujourd'hui, malgré
+y a pour lui un jour quelque danger à le faire, le courage et l'audace que je mets dès aujourd'hui, malgré
 
 mon pseudonyme, au service des miennes.
 
@@ -1490,9 +1413,7 @@ attribuais, avec une ironie évidente, dans notre numéro
 d'il y a quinze jours, mon intention manifeste était, non
 point de chercher une querelle personnelle à M. l'abbé
 Olivier, que je ne connaissais alors ni de vue ni de
-à nom, mais de montrer d'une façon frappante et saisissante à nos lectedts combien le catholicisme actuel dif-
-
-fère profondément du christianisme évangélique.
+à nom, mais de montrer d'une façon frappante et saisissante à nos lectedts combien le catholicisme actuel diffère profondément du christianisme évangélique.
 
 à A l'appui de ma thèse, j'ai cité des passages significatifs du fameux sermon sur la montagne: « Vous avez
 appris qu'il a été dit: œil pour œil, et dent pour dent.
@@ -1522,8 +1443,7 @@ frappa un des policiers et lui emporta l'oreille, ce que
 é voyant, Jésus lui dit, au témoignage de Mathieu: « Re-
 mets ton épée en son lieu, car tous ceux qui auront
 pris l'épée périront par l'épée. »
-Ou l'Évangile ne signifie rien, ou ces passages signi-
-fient clairement que Jésus a formellement interdit de
+Ou l'Évangile ne signifie rien, ou ces passages signifient clairement que Jésus a formellement interdit de
 riposter à la violence par la violence. es
 Mais peut-être, comme un simple faussaire du
 deuxième bureau de l'état-major, ai-je altéré sciemment le texte sacré pour lui faire dire le contraire de
@@ -1544,15 +1464,12 @@ exacte, fidèle, littérale, d'un texte latin que M. l'abbé
 Olivier ne saurait récuser sans danger pour son salut
 dans l'autre monde. Au fait, M. l'abbé Olivier ne le
 “connait peut-être pas. Peut-être n'a-t-il jamais entendu
-parler d'un certain texte, communément appelé la Vul-
-
-quinzième cahier de la deuxième série
+parler d'un certain texte, communément appelé la Vulquinzième cahier de la deuxième série
 x. géte, qui est Le seul texte des livres saints que l'Église
 catholique reconnaisse comme authentique et garantisse
 tel; peut-être ignore-t-il qu'un certain concile de Trente,
 réuni au seizième siècle pour enrayer les progrès du
-protestantisme, décida la publication d'une édition défi-
-nitive de la Vulgate; qu'au lendemain du concile, pour
+protestantisme, décida la publication d'une édition définitive de la Vulgate; qu'au lendemain du concile, pour
 se conformer à ses décisions, un pape, Sixte-Quint, fit
 préparer cette édition qui parut sous un de ses successeurs, le pape Clément VIIL. Eh bien! c'est cette édition
 catholique que j'ai sous les yeux, l'édition de 1859,
@@ -1624,9 +1541,7 @@ pape s'est appelé Sixte-Quint et un autre Clément VII. »
 
 Un savant de cette taille ne devrait-il pas occuper la
 
-: Je me demande, stupéfié, comment, à quel prix, par com-
-
-bien d'investigations il a se procurer un volume aussi
+: Je me demande, stupéfié, comment, à quel prix, par combien d'investigations il a se procurer un volume aussi
 
 rare, aussi introuvable que la Biblia sacra, Vulgatae editionis, Sixti Pontificis maximi jussu recognita et Cle-
 
@@ -1666,13 +1581,11 @@ sets 2 et 4: qui resistit potestati, Dei ordinationi resistit…
 est, vindex iram qui malum agit. Priez-le de relire Se.
 en saint Mathieu, chapitre vi, l'histoire du centurion
 qui se flatte, si je comprends le latin, d'avoir des soldats
-sous ses ordres: Habens sub me milites; de leur com-
-mander et d'en être obéi: et s'il trouve, dans ses textes,
+sous ses ordres: Habens sub me milites; de leur commander et d'en être obéi: et s'il trouve, dans ses textes,
 dans cet épisode, un seul mot du « révolutionnaire Jésus »
 ou du plus qualifié de ses disciples et de ses interprètes,
 qui autorise, qui engage à ne pas tirer au sort, à
-refuser de porter les armes et d'en user au besoin, à con-
-damner le recrutement des milices régulières; s'il n'y trouve
+refuser de porter les armes et d'en user au besoin, à condamner le recrutement des milices régulières; s'il n'y trouve
 pas tout le contraire, dix fois plus généreux que lui, je
 m'engage d'honneur, à mon tour, à aller verser en personne
 vingt francs dans le tronc de la veuve à la prochaine tenue “es
@@ -1681,8 +1594,7 @@ dont il voudra profiter, en faveur des frères et amis, pour
 faire pleuvoir sur le temple une manne inattendue et pour
 prélever sur un profane, en faveur des chers afliliés, un
 Archiprètre de Sens
-Nous constatous d'abord que M. l'archiprètre ne con-
-teste plus l'authenticité des textes évangéliques, cités
+Nous constatous d'abord que M. l'archiprètre ne conteste plus l'authenticité des textes évangéliques, cités
 par notre camarade Sans-Patrie, ni l'exactitude de sa
 traduction. Nous en prenons acte.
 l'archiprêtre se replie sur sa seconde ligne de
@@ -1695,8 +1607,7 @@ veuille donc attendre la fin de la démonstration de notre
 l'archiprêtre « qui est plus généreux » que notre
 se ami, dit-il, et qui sans doute aussi est plus riche
 (M. l'abbé ne suit-il pas en toutes choses les préceptes
-de Jésus, ses préceptes sur la pauvreté comme ses pré-
-ceptes sur la non résistance au mal par la violence
+de Jésus, ses préceptes sur la pauvreté comme ses préceptes sur la non résistance au mal par la violence
 l'archiprètre offre, le cas échéant, sion luiprouvequ'il.
 a tort, de verser vingt francs pour le Tronc de la Veuve
 à la prochaine tenue solennelle de la Loge maçonnique
@@ -1704,22 +1615,19 @@ notre ami Sans-Patrie, qui n'a pas l'honneur d'appartenir
 à la franc-maconnerie, malgré ses sympathies pourelle,
 préférerait que M. l'abbé Olivier fit son versement à la
 caisse du Travailleur socialiste. Sans-Patrie, qui est un
-garçon très intéressé, prêche pour son saint. Nous trans-
-mettons respectueusement sa requête à M. l'aréhiprètre.
+garçon très intéressé, prêche pour son saint. Nous transmettons respectueusement sa requête à M. l'aréhiprètre.
 Poe La parole est maintenant à notre camarade: À
 Dans une nouvelle lettre, dont je ne m'amuserai pas
 souligner et à relever les insinuations (l'insinuation est
 décidément un genre où les ecclésiastiques réussissent -
 assez bien), ni les grosses malices, M. l'abbé Olivier
-renonce à contester l'authenticité de mon texte évangé-
-lique et l'exactitude de ma traduction. Celle-ci, « trop
+renonce à contester l'authenticité de mon texte évangélique et l'exactitude de ma traduction. Celle-ci, « trop
 libre et très fantaisiste qui n'avait « à première vue
-Le aucun air véridique à une seconde lecture plus minu-
-tieuse de M. l'abbé Olivier, lui aura semblé, comme je
+Le aucun air véridique à une seconde lecture plus minutieuse de M. l'abbé Olivier, lui aura semblé, comme je
 l'affirmais, exacte, fidèle et littérale. M. l'abbé n'en
 souffle plus mot. J'aurais voulu que franchement, carré
 ment, il avouât que sur le premier point c'est moi qui
-É; Peu importe, d'ailleurs, puisque M. l'abbé Olivier bat
+Peu importe, d'ailleurs, puisque M. l'abbé Olivier bat
 en retraite. Il bat en retraite, maïs il revient à la charge
 avec de nouveaux textes dont je ne songe pas à nier
 l'existence. Il s'agit de savoir s'ils infirment véritable- -
@@ -1739,8 +1647,7 @@ tuer, massacrer l'étranger et l'ennemi de l'État quand le
 gouvernement l'ordonne, il se met tout simplement en
 contradiction manifeste, absolue, avec l'ordre formel,
 impératif, émanant de Jésus-Christ lui-même, et exprimé
-de la façon la plus nette dans le sermon sur la monta-
-gne. Si au contraire il veut dire par qu'il faut être
+de la façon la plus nette dans le sermon sur la montagne. Si au contraire il veut dire par qu'il faut être
 soumis et résigné aux puissances, en sous-entendant
 condition qu'elles ne commandent rien de contraire à la
 loi de Dieu, alors ce texte ne prouve rien non plus contre
@@ -1776,12 +1683,9 @@ scène exactement résumée: Des dévots, juifs, ennemis;
 des doctrines nouvelles de Jésus, essayèrent dele perdre
 en_lui arrachant par surprise une parole imprudente,
 quelque propos subversif contre l'autorité. Ils vinrent
-« Maître, nous savons que tu es véritable, que tu en-
-seignes la voie de Dieu en vérité et que tu ne te soucies
+« Maître, nous savons que tu es véritable, que tu enseignes la voie de Dieu en vérité et que tu ne te soucies
 de personne: car tu ne regardes point à l'apparence des
-« Dis-nous donc ce qu'il te semble de ceci: Est-ilpermis de payer le tribut à César ou non? Et Jésus, con-
-naissant leur malice, leur répondit: Hypocrites, pour-
-quoi me tentez-vous? Montrez-moi la monnaie du tribut;,
+« Dis-nous donc ce qu'il te semble de ceci: Est-ilpermis de payer le tribut à César ou non? Et Jésus, connaissant leur malice, leur répondit: Hypocrites, pourquoi me tentez-vous? Montrez-moi la monnaie du tribut;,
 et ils lui présentèrent un denier.
 « Et leur dit: De qui sont cette image et cette
 « Ils lui répondirent: De César.
@@ -1790,8 +1694,7 @@ qui sont à César et à Dieu celles qui sont à Dieu.
 « Et ayant entendu ceci, ils en furent étonnés et le
 laissant, ils s'en allèrent. »
 l'abbé croit m'embarrasser par le fameux « Rends
-Es: à César ce qui appartient à César ». Cela ne peut vou-
-loir dire, selon mon savant contradicteur, qu'une chose
+Es: à César ce qui appartient à César ». Cela ne peut vouloir dire, selon mon savant contradicteur, qu'une chose
 c'est qu'il faut obéir au gouvernement, même quand il
 demande le service militaire.
 Il faut vraiment n'avoir rien compris à toute cetie
@@ -1801,8 +1704,7 @@ tirer de ce passage de pareilles conclusions. Les enne-!
 mis de Jésus qui, eux, voyaient mieux que M. l'abbé
 Olivier les côtés subversifs de sa prédication, voulaient
 lui faire lâcher une parole qu'on pût interpréter comme
-un propos de perturbateur social. Mais Jésus les con-
-naît, il est en garde: il ne vient d'ailleurs pas soulever
+un propos de perturbateur social. Mais Jésus les connaît, il est en garde: il ne vient d'ailleurs pas soulever
 les Juifs contre César ni contre Hérode; sans répondre
 directement, franchement à la question qu'on lui pose,
 au sujet de l'impôt, il répond finement — par un propos
@@ -1811,21 +1713,17 @@ quinzième cahier de la deuxième série
 très vague et fort peu compromettant: « Rendez à César
 ce qui est à César, et à Dieu ce qui est à Dieu ».
 Mais ce qui est à Dieu, Jésus a précisément pris le
-soin de nous le dire ailleurs: le sermon sur la mon-
-tagne n'a pas d'autre but. C'est que se trouvent, tout
+soin de nous le dire ailleurs: le sermon sur la montagne n'a pas d'autre but. C'est que se trouvent, tout
 au long, les commandements de Dieu et parmi ceux-là
 le commandement formel de ne pas tuer, de ne pas.
 résister au mal par la violence, d'aimer même ses ennemis. Tant que M. l'abbé Olivier n'aura pas établi que
 le texte du sermon sur la montagne que je lui ai objecté
 est inexact, tant qu'il n'aura pas trouvé des paroles du
-Christ approuvant la violence et le massacre, dans certains cas déterminés, j'ai le droit de dire que le chris-
-tianisme primitif est bien une religion douce, ennemie
-de toute violence, les condamnant toutes sans excep-
-tion, la religion de la fraternité universelle.
+Christ approuvant la violence et le massacre, dans certains cas déterminés, j'ai le droit de dire que le christianisme primitif est bien une religion douce, ennemie
+de toute violence, les condamnant toutes sans exception, la religion de la fraternité universelle.
 La beauté et l'honneur du christianisme évangélique,
 sa supériorité sur les religions étroites, locales, nationales du paganisme consistent-elles pas justement
-en cette affirmation que tous les hommes, sans distinc-
-tion de pays, sont fils d'un même dieu, qu'ils doivent se
+en cette affirmation que tous les hommes, sans distinction de pays, sont fils d'un même dieu, qu'ils doivent se
 traiter en frères, refréner par l'amour et la fraternité »
 leurs passions égoïstes et violentes? Otez du christianisme cet admirable sermon sur la montagne qui, même
 aux yeux des athées épris d'idéal, est une des pages les
@@ -1863,9 +1761,7 @@ libre et très fantaisiste. C'est fait et tous vos faux-fuyants
 n'ont pas dépisté nos lecteurs, soyez-en sûr.
 J'ai voulu établir que d'autres textes évangéliques prescrivent l'obéissance aux pouvoirs établis, sauf en ce qui
 est contraire à la loi de Dieu, comme vous dites fort justement, qu'ils imposent la solde de tous les. tributs, qu'ils
-autorisent la puissance du glaive, qu'ils justifient le recru47
-
-quinzième cahier de la' deuxième série
+autorisent la puissance du glaive, qu'ils justifient le recruquinzième cahier de la' deuxième série
 tement des milices publiques. C'est fait, et vos subtilités
 chinoises et vos discussions byzantines ne donnent le
 change à personne, ayez-en l'assurance.
@@ -1887,8 +1783,7 @@ Vous m'accusiez d'insinuations, quand, combattant
 visière levée, j'essayais, pour connaître mon adversaire, de
 percer à jour le masque sous lequel il s'est dérobé jusqu'au
 bout. Comment qualifierez-vous ce genre d'accusations ano- À
-nymes? Peut-être vous les appellerez « un procédé de dis-
-cussion loyale tout au plus « une grosse malice » comme
+nymes? Peut-être vous les appellerez « un procédé de discussion loyale tout au plus « une grosse malice » comme
 vous dites si finement. Eh bien! moi, j'appelle cela, en bon
 français, et en toute vérité évangélique: un mensonge, DE
 une lâcheté, une infamie. Aussi, c'est le tribunal, si j'en 55)
@@ -1915,8 +1810,7 @@ ses lourdes insinuations et ses pénibles efforts pour
 faire dégénérer une discussion purement théorique en
 une question de personnes. Aujourd'hui, pour couvrir
 sa piteuse défaite, n'imagine-t-il pas de greffer sur sa
-polémique avec Sans-Patrie une discussion sur un en-
-trefilet auquel celui-ci est entièrement étranger et qui, ect
+polémique avec Sans-Patrie une discussion sur un entrefilet auquel celui-ci est entièrement étranger et qui, ect
 d'ailleurs, n'a absolument rien à voir avec le débat
 institué sur le christianisme primitif et le catholicisme
 L'administrateur-gérant du Travailleur Socialiste est
@@ -1925,8 +1819,7 @@ Il ne fait, d'ailleurs, aucune difficulté de reconnaître
 qu'une erreur de fait s'est glissée dans l'entrefilet qui
 met si fort en colère M. l'abbé Olivier.
 Les mariages de prêtres que nous annoncions sont
-bien réels, mais il est inexact qu'un vicaire de la Cathé-
-drale ait disparu avec mademoiselle B... Nous avons
+bien réels, mais il est inexact qu'un vicaire de la Cathédrale ait disparu avec mademoiselle B... Nous avons
 confondu avec un autre prêtre d'une autre ville du
 diocèse, actuellement curé de V... Nous rectifions notre
 
@@ -1938,8 +1831,7 @@ Mais nous espérons que, malgré notre rectification,
 les Vicaires ne renonceront pas à leur.intention de
 nous poursuivre pour diffamation ou, à leur défaut,
 le Curé de V... Ce jour-là, nous n'aurons pas de
-peine à prouver au tribunal qu'il n'y a vraiment diffa-
-mation que où il y a intention diffamatoire et que,
+peine à prouver au tribunal qu'il n'y a vraiment diffamation que où il y a intention diffamatoire et que,
 dans notre pensée, il n'entrait aucune intention de diffamer les deux amoureux en cause.
 Loin de jeter la pierre au jeune prêtre qui s'amourache d'une de ses pénitentes et se sauve avec elle
 pour l'épouser, nous le félicitons hautement d'avoir
@@ -1948,8 +1840,7 @@ corruptions pour tant d'ensoutanés restés fidèles au
 froc. Voilà ce que nous dirons au tribunal et bien
 d'autres choses encore plus précises et plus crous
 tillantes, si le procès dont on nous menace vient au
-Hélas! nous tremblons que les intéressés, les calom-
-niés, ne soient comme M. Olivier que des matamores
+Hélas! nous tremblons que les intéressés, les calomniés, ne soient comme M. Olivier que des matamores
 qui menacent tout d'abord d'aller jusqu'au bout et qui,
 au bon moment, se dérobent prudemment. Allons, ne.
 messieurs les Vicaires, allons, monsieur le Curé de V...-
@@ -2036,8 +1927,7 @@ est contraire à l'esprit évangélique; que le métier de
 soldat, de tueur d'hommes est incompatible avec la
 dignité de chrétien. Enfin! M. l'archiprêtre, cessant
 d'ergoter et de nier l'évidence, arrive au nœud de la
-question. Quel malheur, que juste au moment psycho-
-logique, il renonce subitement à controverse!
+question. Quel malheur, que juste au moment psychologique, il renonce subitement à controverse!
 Je continuerai quand même ma démonstration, pour
 nos lecteurs, et après avoir montré l'opposition du
 christianisme primitif et du catholicisme actuel sur la
@@ -2114,8 +2004,7 @@ quinzième cahier de la deuxième série
 Reste l'autre commentaire permis, l'interprétation Ne
 moins logique, mais plus facilement acceptable, plus
 humaine. Elle consiste à dire ceci: « Dans le sermon
-sur la montagne, Jésus a seulement voulu nous propo-
-ser un idéal élevé, sublime, mais qu'il savait fort bien
+sur la montagne, Jésus a seulement voulu nous proposer un idéal élevé, sublime, mais qu'il savait fort bien
 être hors d'atteinte pour le commun des hommes;ilne
 faut donc pas prendre à la lettre la parole évangélique;
 nous devons l'interpréter en ce sens qu'il faut nous
@@ -2127,8 +2016,7 @@ modération l'envahisseur violent qui menace leurs
 évangélique sera plus à la portée de notre faible humanité et elle exercera encore, néanmoins, ane action
 bienfaisante sur la terre. »
 J'admets cette interprétation opportuniste, bien que
-la défense de résister au mal par la violence soit caté-
-gorique et que Jésus, s'il avait voulu faire une exception
+la défense de résister au mal par la violence soit catégorique et que Jésus, s'il avait voulu faire une exception
 en faveur de la patrie, eût pris soin de le faire en
 termes clairs et indiscutables. Mais, alors, quel doit
 être, au moment de la levée des conscrits, le rôle du
@@ -2148,8 +2036,7 @@ soumettre, même sous la menace de la prison ou de la
 mort. Avec la crédulité des ouailles catholiques, si
 confiantes dans la parole de leurs prêtres, en cinquante
 ans de prédications pareilles, l'Église catholique eût
-créé au sein de nos sociétés écrasées de charges mili-
-taires et empoisonnées de chauvinisme jusqu'aux
+créé au sein de nos sociétés écrasées de charges militaires et empoisonnées de chauvinisme jusqu'aux
 moelles, en France et à l'étranger, un courant pacifique
 qui eût emporté pour toujours le culte barbare de la
 force brutale et l'idolâtrie du sabre, elle eût étoufté se
@@ -2166,8 +2053,7 @@ images grandioses qui révèlent en M. l'abbé Olivier un
 nouveau Bossuet (je leur recommañhde tout particulière--
 ment « l'ange de la France feuilletant les registres où
 sont inscrites les réserves saintes de la nation que
-nos lecteurs aïllent droit au fond. Qu'ils jugent la misé-
-rable pensée du prêtre catholique en la comparant à la
+nos lecteurs aïllent droit au fond. Qu'ils jugent la misérable pensée du prêtre catholique en la comparant à la
 parole sublime de Jésus.
 - Pour M. l'abbé Olivier « quiconque, depuis (depuis
 
@@ -2200,20 +2086,16 @@ n'a appris l'histoire que dans le manuel du P. Loriquet.
 Mon distingué contradicteur ne semble-til pas croire,
 en effet, que les héros qu'il propose à l'admiration des
 à conscrits n'ont jamais combattu que pour la défense de
-la patrie, des foyers et des autels? Ne croit-il pas bon-
-
-nement que les armées n'ont servi et ne servent qu'à ce:
+la patrie, des foyers et des autels? Ne croit-il pas bonnement que les armées n'ont servi et ne servent qu'à ce:
 rôle défensif? Voyons? est-ce qu'ils défendaient leurs
 foyers et leurs autels les soudards napoléoniens qui
 ont envahi et saccagé la Prusse en 1806, qui ont voléet
-massacré les Espagnols, de 1809 à 1813, qui ont dé-
-chaïîné contre eux, par la marche sur Moscou, l'insurrection nationale et religieuse du peuple russe? Et les
+massacré les Espagnols, de 1809 à 1813, qui ont déchaïîné contre eux, par la marche sur Moscou, l'insurrection nationale et religieuse du peuple russe? Et les
 Lamoricière, les Mac-Mahon, les Sonis qui ont conquis
 tant de galons et de croix en enfumant les Arabes dans
 les grottes du Dahra, en coupant leurs arbres fruitiers,.
 en incendiant leurs récoltes dans toute l'Algérie, — dans
-une Algérie où la piraterie n'existait plus depuis long-
-temps, — est-ce qu'ils défendaient leurs foyers et leurs
+une Algérie où la piraterie n'existait plus depuis longtemps, — est-ce qu'ils défendaient leurs foyers et leurs
 autels ou plutôt ne venaient-ils pas attaquer les foyers
 et les autels du peuple arabe? Peut-être M. l'abbé Olivier
 se figure-t-il aussi que ce sont les Chinois qui sont venus
@@ -2241,20 +2123,17 @@ des chevaux, à quelques pas de l'endroit où avait été
 “304 crucifié celui qui avait apporté au monde l'Évangile de
 fraternité universelle. Rappellerai-je les massacres
 d'Albigeois, les milliers de victimes de l'Inquisition, les
-horreurs de la Saint-Barthélemy allumées par les prédi-
-cations des moines? A quoi bon puisqu'il n'y a pas un
+horreurs de la Saint-Barthélemy allumées par les prédications des moines? A quoi bon puisqu'il n'y a pas un
 seul de nos lecteurs — sauf M. l'abbé Olivier peut-être
 — qui ne sache que chaque page de l'histoire de l'Église
 catholique est rouge de sang? M. le curé archiprètre,
 en exaltant le métier de tueur d'hommes, est donc resté
 dans la bonne et pure tradition catholique.
-O Jésus, puisque tu fis jadis le tour de force de res-
-susciter trois jours après ta mort — du moins M. l'abbé
+O Jésus, puisque tu fis jadis le tour de force de ressusciter trois jours après ta mort — du moins M. l'abbé
 À Olivier l'enseigne à ses ouailles — il ne te coûterait pas
 beaucoup plus de ressusciter une deuxième fois après
 dix-neuf siècles. Reviens au milieu de nous, doux Galiléen; maïs viens, je t'en supplie, sans le fouet avec
-lequel tu chassas un jour les pharisiens et les mar-
-chands du temple, M. l'abbé Olivier croirait que par
+lequel tu chassas un jour les pharisiens et les marchands du temple, M. l'abbé Olivier croirait que par
 geste méprisant tu as justifié l'emploi de la violence
 contre les mécréants. Cette fois, pour qu'il n'y ait pas
 d'erreur possible au sujet de ton sentiment sur toutes

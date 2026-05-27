@@ -52,8 +52,7 @@ en ayant le regret.
 Owen s'est agenouillé devant Clifford, et lui baise la main.
 Clifford lui donne une petite tape amicale sur la tête.
 : Il meurt. — On se presse autour de lui. — Debora se lève,
-regarde autour d'elle, avec une expression de folie déses-
-pérée, puis court vers la citerne, repoussant ceux qui sont
+regarde autour d'elle, avec une expression de folie désespérée, puis court vers la citerne, repoussant ceux qui sont
 sur son passage.
 DEBORA, avec désespoir
 Je ne peux plus... je ne peux plus haïr!
@@ -263,7 +262,7 @@ Lui dit à mon roi,
 . On pourra crier: le roi boit.
 
 la chanson du roi Dagobert
-4 Le bon roi Dagobert “PAS a
+Le bon roi Dagobert “PAS a
 are Chassait dans la plaine d'Anvers: Mer
 Le grand saint Éloi ce
 Ne Lui dit à mon roi,
@@ -345,7 +344,7 @@ Lui dit Ô mon roi,
 Quand tes gris, marches-tu plus droit.
 
 74000 Quand Dagobert mourut,
-7 Le diable aussitôt accourut;
+Le diable aussitôt accourut;
 Le grand saint Éloi FES
 HAE Lui dit à mon roi,
 Faut vous confesser;
@@ -407,7 +406,7 @@ Ils sont trop verts, dit-il, et bons pour des goujats. (1).
 À (1) Fitil pas mieux que de se plaindre?
 
 Le bon roi Dagobert
-4 Avait semé des blés d'hiver; à
+Avait semé des blés d'hiver; à
 Le grand saint Eloi
 Lui dit Ô mon roi,
 
@@ -426,8 +425,6 @@ Gant de velours et main de fer;
 Le grand saint Éloi
 
 Lui dit ô mon roi,
-
-Suprême bonté;
 
 à — Je sais, dit Dagobert,
 
@@ -543,7 +540,7 @@ Lui dit 6 mon roi, -
 — Dommage, dit le roi, S'ATES he)
 è ou J'eusse été brave cette fois. FÉVR
 De: Le bon roi Dagobert FAR
-8 Le grand saint Eloi mis
+Le grand saint Eloi mis
 Lui dit ô mon roi,
 "jo est pas invitée;
 Vin — C'est vrai, lui dit le roi,
@@ -777,7 +774,7 @@ De biche aux abois:;
 
 1 la chanson du roi Dagobert
 
-4 De biche pàmée: de.
+De biche pàmée: de.
 — Que veux-tu, dit le roi,
 J'aime le son du cor le soir au fond des bois.
 Tous les ans Dagobert Mie

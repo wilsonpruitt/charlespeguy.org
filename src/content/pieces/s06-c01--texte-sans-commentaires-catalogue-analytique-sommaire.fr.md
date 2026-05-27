@@ -27,9 +27,7 @@ ce départ, qui fut lourd, parce qu'il fallait soulever,
 remonter tous les courants de toutes les démagogies.
 
 Par les soins de nos amis, par les soins de nos
-abonnés, par nos soins, ce catalogue analytique sommaire viendra aux mains de personnes qui ne connais-
-
-sent pas nos cahiers, et de personnes qui les connais-
+abonnés, par nos soins, ce catalogue analytique sommaire viendra aux mains de personnes qui ne connaissent pas nos cahiers, et de personnes qui les connais-
 
 - Aux personnes quinous connaissent malnous demandons instamment de se mettre dans la situation des
 personnes qui ne nous connaissent pas; nous leur
@@ -51,15 +49,11 @@ commentaires, les vaines explications.
 
 A tout honnête homme qui ne connaît pas nos cahiers
 
-nous demandons simplement de lire ce catalogue ana-
-
-lytique sommaire; le lire; tout uniment; rien ne vaut,
+nous demandons simplement de lire ce catalogue analytique sommaire; le lire; tout uniment; rien ne vaut,
 
 rien ne remplacera une honnête et simple lecture d'un
 
-texte honnête et simple; nul commentaire, nulle expli-
-
-cation, disons le mot, nul boniment ne vaut près d'un
+texte honnête et simple; nul commentaire, nulle explication, disons le mot, nul boniment ne vaut près d'un
 
 Non pas que ce catalogue analytique sommaire suflise
 à donner de nos cinq premières séries une idée totale;
@@ -69,8 +63,7 @@ peuvent seules donner une idée totale de nos cinq premières séries; j'ai moi-
 catalogue analytique sommaire; j'y ai mis tous mes
 soins; j'y ai passé tout ce que l'on nomme agréablement les loisirs des vacances, ou du moins tout ce que
 l'administration militaire a bien voulu m'en laisser; je
-m'y suis légèrement fourbu; j'y ai mis toute mon appli-
-cation; plus que personne aussi j'en connais les défauts;
+m'y suis légèrement fourbu; j'y ai mis toute mon application; plus que personne aussi j'en connais les défauts;
 les dessinateurs ont accoutumé de dire que rien n'est
 aussi difficile à faire que les raccourcis; je m'en suis
 aperçu; combien de fois ne me suis-je pas arrêté devant
@@ -106,8 +99,7 @@ Qu'ensuite on s'abonne aux cahiers pour deux ans; il
 à cahiers sont si nouveaux, de toute manière, que l'on es-
 à saierait vainement de s'en faire une idée en les compa-
 À il rant, en cherchant des rapprochements, des éléments
-à de connaissance et de comparaison dans les publica-
-tions antérieures; on n'arriverait jamais ainsi, par une
+à de connaissance et de comparaison dans les publications antérieures; on n'arriverait jamais ainsi, par une
 synthèse artificielle et factice, qu'à se représenter du
 à nouveau vieux, et faux; nos cahiers sont du nouveau
 ni, neuf, et vrai; ils ont cette singulière nouveauté, qu'ils
@@ -119,7 +111,7 @@ ils sont; il faut se faire, pour les lire, ou se refaire une
 à 4 eux-mêmes, comme des textes, qu'ils sont, sans penser
 4 à mal; pour lire les cahiers, il faut avoir oublier
 beaucoup; il faut avoir oublié beaucoup de l'école, ap-
-:; pris un peu de la vie.
+pris un peu de la vie.
 à Deux années sont nécessaires pour que l'on ait une
 5 idée de nos cahiers, une idée juste; nous travaillons à
 10 longue échéance;, il n'y a de travail sérieux, et qui
@@ -129,9 +121,7 @@ est plus que jamais vrai que le temps ne respecte rien
 
 de ce que l'on fait sans lui; qu'on lise donc nos cahiers
 
-sans inquiétude et sans étonnement; la contexture n'ap-
-
-paraît, le rythme ne se dessine qu'après un assez long
+sans inquiétude et sans étonnement; la contexture n'apparaît, le rythme ne se dessine qu'après un assez long
 temps; les agités, les aflolés donc, les quotidiens, les "10
 éphémères, les gens qui veulent recevoir des opinions
 toutes faites, pour n'avoir pas à travailler, les malins
@@ -189,9 +179,7 @@ revue d'Art dramatique, achevé d'imprimer le premier
 
 août 1898, un volume de 124 pages, in-16, carré;
 
-marqué trois francs, ce volume est en voie d'épuise-
-
-ment; chacun des derniers exemplaires sept francs
+marqué trois francs, ce volume est en voie d'épuisement; chacun des derniers exemplaires sept francs
 
 MEL drame en trois actes, — représenté pour la première fois
 à Paris, sur le théâtre de l'Œuvre, le 21 juin 1899; épits graphe: Instituons une fête plus touchante, la fête du
@@ -203,8 +191,7 @@ la scène à Paris et en province, en juillet-août 1593;
 primer le 20 octobre 1899, un volume de 92 pages, in-16,
 …._ marqué trois francs, ce volume est en voie d'épuise-
 ; chacun des derniers exemplaires sept francs À
-…. Romax Rocraxp.— Les Loups, trois actes, — repré-
-senté pour la première fois au théâtre de l'Œuvre, le
+…. Romax Rocraxp.— Les Loups, trois actes, — représenté pour la première fois au théâtre de l'Œuvre, le
 . 18 mai 1898, sous le titre de Morituri; épigraphe homo à
 lupus, la scène à Mayence en 1793, éditions de?
 Georges Bellais, un beau volume grand octavo, carré,
@@ -221,8 +208,7 @@ une sorte de préoccupation littéraire peu convenable à
 militant. Et puis, nous avons devant nous tant de travai nous avons si peu fait, qu'il me paraissait dangereux
 - dese retourner vers le passé. A quoi bon lier ces pauvres
 gerbe: quand la moisson commence à peine? Mais ces
-jeunes gens m'ont dit que publier un volume de propa-
-ande, comme on publierait une brochure de propagande,
+jeunes gens m'ont dit que publier un volume de propaande, comme on publierait une brochure de propagande,
 
 c'était encore agir, et je me suis rendu de bon cœur à leur
 Ce sont eux qui ont fait tout le travail, le choix et le
@@ -258,9 +244,9 @@ ee.: Dans l'Ouest;
 
 La Jeunesse pensante et le Peuple;
 
-4 L'Idéal de Justice;
+L'Idéal de Justice;
 
-4 L'esprit des paysans;
+L'esprit des paysans;
 
 La réforme du baccalauréat;
 
@@ -332,8 +318,7 @@ de l'Homme; la grâce de Liard-Courtois, la ligue des Droits,
 de l'Homme et les massacres d'Arménie; de l'affaire:
 Dreyfus, une assignation du colonel Picquart, une lettre
 de Philippe, duc d'Orléans, au duc de Luynes, Dampierre,
-de Kis-Jenoë, 6 décembre, 9 heures matin; contre les bar-
-bares, union populaire contre les courses de taureaux;
+de Kis-Jenoë, 6 décembre, 9 heures matin; contre les barbares, union populaire contre les courses de taureaux;
 marqué un franc cinquante, ce cahier est en voie;
 d'épuisement; chacun des derniers exemplaires
 Deuxième cahier, du 20 janvier 1900, un cahier
@@ -355,13 +340,10 @@ et l'Alliance Communiste Révolutionnaire texte emprunté
 à la Petite République du samedi 15; un article de Jaurès à
 ; en réponse, la lutte de classe, dans la même Petite RépuKe À blique; une lettre du citoyen Carnaud, député, datée de
 Paris le 14 juillet 1899, adressée mon cher Jaurès, reproLe: duite dans la Petite République du dimanche 16; à la suite
-si une lettre du même à Guesde, même date, au citoyen secré-
-taire, pour l'intérieur, du Parti ouvrier français, mon cher
-Guesde, reproduite à la suite dans la même Petite Répu-
-blique; le même jour Jaurès continue sa réponse: Qui
+si une lettre du même à Guesde, même date, au citoyen secrétaire, pour l'intérieur, du Parti ouvrier français, mon cher
+Guesde, reproduite à la suite dans la même Petite République; le même jour Jaurès continue sa réponse: Qui
 trompe-t-on? dans la même Petite République; un article
-de Fournière, premières impressions, dans la Petite Répu-
-blique du lundi 17; le même jour Jaurès continue sa réponse:
+de Fournière, premières impressions, dans la Petite République du lundi 17; le même jour Jaurès continue sa réponse:
 Organisons-nous dans la même Petite République; le lende-
 ! main Jaurès continue sa réponse: Oui, expliquons-nous,
 dans la Petite République du mardi 18; cet article contient
@@ -413,7 +395,7 @@ du mercredi 19, Jaurès continue sa réponse, Les responsadi bilités; dans la m
 citoyen docteur Ferroul, datée de Narbonne, 16 juillet
 1899, adressée mon cher Gérault-Richard; ensuite une
 :Ne lettre du même, député de l'Aude, même date, au citoyen
-7 Guesde, adressée mon cher Guesde; dans la même Petite
+Guesde, adressée mon cher Guesde; dans la même Petite
 République, les démissions: une lettre de E. Degay,
 pate datée Paris, 17 juillet 1899, adressée mon cher Landrin,
 si portant démission de membre du Parti socialiste révo-
@@ -431,12 +413,10 @@ nard Cadenat, député, contre le manifeste; une déclaration
 du citoyen Pastre, député du Gard, et de son comité, datée
 du Vigan, 18 juillet, 5 heures 35, soir; une déclaration de
 Maxence Roldes, Montceau-les-Mines, 18 juillet, 3 heures
-soir, adressée au citoyen Jean Jaurès; dans la Petite Répu-
-blique du vendredi 21 juillet, un article de Maxence
+soir, adressée au citoyen Jean Jaurès; dans la Petite République du vendredi 21 juillet, un article de Maxence
 Roldes, parlons net; une lettre du citoyen Carnaud, en
 réponse à l'article du citoyen Rouanet, courtloise réponse,
-adressée mon cher Rouanet; une lettre du citoyen Légitimus, membre du Conseil national du Parti ouvrier fran-
-çais, député, président du conseil général de la Guadeloupe,
+adressée mon cher Rouanet; une lettre du citoyen Légitimus, membre du Conseil national du Parti ouvrier français, député, président du conseil général de la Guadeloupe,
 datée de Paris, ce 18 juillet 1899, adressée mon cher
 Gérault; une lettre du citoyen E. Brunellière, datée de
 Nantes, le 16 juillet 1899, adressée mon cher Jaurès; une
@@ -483,8 +463,7 @@ vendredi 21 juillet, les États-Généraux du Parti Socialiste;
 un article de Gérault-Richard, les États-Généraux du
 : Parti Socialiste de France; déclaration, communiquée
 ce à la presse, au Comité national de la Fédération des
-travailleurs socialistes de France, pour le Conseil national du Parti ouvrier français, pour la Commission admi-
-nistrative du Parti socialiste révolutionnaire, et pour le
+travailleurs socialistes de France, pour le Conseil national du Parti ouvrier français, pour la Commission administrative du Parti socialiste révolutionnaire, et pour le
 secrétariat de l'Alliance communiste révolutionnaire; l'article de Gérault-Richard contient cette déclaration; dans
 même Petite République, un article de Jaurès, vers l'unité;
 une résolution du Parti Ouvrier Socialiste Révolutionnaire,
@@ -497,15 +476,13 @@ citoyen Breton, député de Vierzon, datée Saint-Briac,
 le 16 juillet 1899, adressée mon cher Breton; dans
 la Petite République du dimanche 6 août un article
 de Jaurès, pour la discussion! dans la même Petite
-République une communication du Comité d'entente socia-
-liste, portant lecture des propositions faites par les diverses
+République une communication du Comité d'entente socialiste, portant lecture des propositions faites par les diverses
 organisations au sujet du Congrès général extraordinaire
 du Parti socialiste, Parti Socialiste Révolutionnaire et Parti
 Ouvrier Français, Confédération des Socialistes indépen-;
 dants, convocation des groupes, ordre du jour du congrès,
 Fédération des Travailleurs Socialistes de France, Parti
-Ouvrier Socialiste Révolutionnaire; dans la Petite Répu-
-blique du jeudi 10 août, une communication du Comité
+Ouvrier Socialiste Révolutionnaire; dans la Petite République du jeudi 10 août, une communication du Comité
 d'entente socialiste: dans la Petite République du samedi
 12 août, une communication du Comité d'entente socialiste,
 portant lecture des propositions faites par le Parti Ouvrier
@@ -545,7 +522,7 @@ Alfredo Bertesi; dans la Petite République du jeudi
 de Princenhage, 25 août 1899, précédée d'une notice
 1 sur l'auteur; dans la Petite République du samedi 16 tembre, notice, réponse de Auguste Bebel, datée de Berlin,
 septembre 1899, adressée chers camarades; dans la Petite
-2 République du jeudi 21 septembre, notice, réponse de
+République du jeudi 21 septembre, notice, réponse de
 Émile Vandervelde, datée de Bruxelles, septembre 1899,
 14 adressée chers camarades; dans la Petite République du
 vendredi 22 septembre, notice, réponse de George Plekha-
@@ -554,14 +531,11 @@ vendredi 22 septembre, notice, réponse de George Plekha-
 
 Gérault-Richard et Jaurès; notice, réponse de Andrea Costa,
 datée de Prison de Imola {Italie}, septembre 99, adressée Ne”
-mes chers amis; dans La Petite République du lundi 25 sep-
-tembre, notice, réponse de Enrico Ferri; dans la Petite
+mes chers amis; dans La Petite République du lundi 25 septembre, notice, réponse de Enrico Ferri; dans la Petite
 République du mardi 26 septembre, notice, réponse brève
 de Wilhelm Liebknecht, datée de Berlin, septembre 1899,
-adressée mes chers amis; notice, réponse de Louis Ber-
-trand, datée de Bruxelles, septembre 1899, adressée chers
-camarades; dans la Petite République du jeudi 28 sep-
-tembre, notice, réponse de Karl Kautsky, datée de Berlin-
+adressée mes chers amis; notice, réponse de Louis Bertrand, datée de Bruxelles, septembre 1899, adressée chers
+camarades; dans la Petite République du jeudi 28 septembre, notice, réponse de Karl Kautsky, datée de Berlin-
 
 Friedenau 12/8 1899, adressée chers camarades; dans la
 Petite République du vendredi 29 septembre, notice, réponse
@@ -608,26 +582,22 @@ Wight), adressée citoyens; dans la Petite République du di-
 réponse de Bruno Schoenlank, adressée chers citoyens,
 datée de Leipzig, le 21 août 1899; dans La Petite Répune. blique du dimanche 19 et dans celle du dimanche 26 nodt vembre, notice, réponse de P.-J. Troelstra; dans la Petite
 République du samedi 9 décembre, notice, réponse de Paul
-Le Singer, adressée chers camarades; dans la Petite Répu-
-en blique du dimanche 31 décembre, notice, réponse de Belif) fort Bax, adressée chers camarades; notice, réponse de
-,: marqué 0 franc 80, ce cahier est en voie d'épuisement;
+Le Singer, adressée chers camarades; dans la Petite Répuen blique du dimanche 31 décembre, notice, réponse de Belif) fort Bax, adressée chers camarades; notice, réponse de
+marqué 0 franc 80, ce cahier est en voie d'épuisement;
 chacun des derniers exemplaires huit francs
 Septième cahier, du 5 avril 1900, un cahier jaune
 
 Toûjours de la grippe
 La dernière préparation et la tenue du congrès socialiste
 national; dernière préparation: La Petite République du
-dimanche 15 octobre publiait du Comité d'entente la cireu-
-laire préparatoire au Congrès général des Organisations a
+dimanche 15 octobre publiait du Comité d'entente la cireulaire préparatoire au Congrès général des Organisations a
 Socialistes Françaises; dans La Petite République du “10
 dimanche 22 octobre, une note du Comité d'entente socialiste, congrès général socialiste; dans la Petite République
 du vendredi 17 novembre, une note de Jaurès, avant le
-congrès, introduisant une communication de l''Aggloméra-
-tion bordelaise du Parti ouvrier français sur le Congrès
+congrès, introduisant une communication de l''Agglomération bordelaise du Parti ouvrier français sur le Congrès
 général des Organisations socialistes françaises, ordre du
 jour du congrès, la lutte des classes et la conquête des
-pouvoirs publics; de l'attitude à prendre par le Parti socia-
-liste dans les conflits des diverses fractions bourgeoises,
+pouvoirs publics; de l'attitude à prendre par le Parti socialiste dans les conflits des diverses fractions bourgeoises,
 militarisme, cléricalisme, antisémitisme, nationalisme; de
 l'unité socialiste, ses conditions théoriques et pratiques;
 tenue du congrès, un complément au compte rendu sténographique officiel; dans la Petite République datée du jeudi
@@ -704,8 +674,7 @@ vendredi 13 avril 1900, Nouvelles du Jour, enregistrant,
 reproduisant et commentant la rectification de Guesde;
 
 Socialisme et collectivisme, conférence donnée par le
-Rte citoyen Émile Vandervelde, député de Charleroi, pro-
-fesseur à l'Université Nouvelle de Bruxelles, sous la
+Rte citoyen Émile Vandervelde, député de Charleroi, professeur à l'Université Nouvelle de Bruxelles, sous la
 présidence du citoyen Albert Poulain, député des
 Ardennes, le mardi 6 mars, à l'Hôtel des Sociétés
 à Savantes; texte revu par l'auteur;
@@ -717,8 +686,7 @@ de 90 pages, bon à tirer du mardi 3 et du mercredi
 Socialiste du 10 juin 1900, une note de Paul Lafargue, Les
 Intellectuels; dans la Petite République du vendredi 15 une
 À rectification de Hubert Lagardelle, directeur du Mouvement
-Socialiste, datée de Paris, le 13 juin 1900, adressée à mon-
-sieur le secrétaire de rédaction du Socialiste, 5, rue Rodier,
+Socialiste, datée de Paris, le 13 juin 1900, adressée à monsieur le secrétaire de rédaction du Socialiste, 5, rue Rodier,
 Paris, cher citoyen, annoncée dans La Petite République
 par une lettre d'envoi adressée mon cher Gérault; dans la
 ; Petite République du dimanche 17 une rectification, lettre
@@ -732,7 +700,7 @@ des Fossés-Saint-Jacques, samedi 16 juin 1900, adressée
 République par une lettre d'envoi adressée citoyen rédac-
 : teur; un article du Socialiste, numéro du 2/ juin, un crime
 à la Chambre;
-à, Comparaison: un article du Parti ouvrier, signé Jean
+Comparaison: un article du Parti ouvrier, signé Jean
 Allemane, numéro du 3 juin 1900, nouvel effort; et un
 . article du Socialiste, numéro du 3 juin, l'affaire Dreyfus,
 
@@ -878,16 +846,14 @@ venue de ces hommes nouveaux comme une source de cor-
 ! nous pourrions les laisser entre eux. Mais, quelque inexacts
 4 que soient les termes où il a été formulé, le problème
 s'impose à nous comme ayant un intérêt général et une
-2 Les partis socialistes constitués dans les autres pays
+Les partis socialistes constitués dans les autres pays
 l'ont trouvé eux aussi, chacun à son heure, sur leur chek: min. Et si la plupart d'entre eux, il est vrai, l'ont résolu
 empiriquement, selon les circonstances du moment, sans
 “4 s'attarder à l'envisager méthodiquement, il ne s'en est pas
 te moins imposé à eux. C'est ainsi, pour ne choisir qu'un
 exemple, que la question des appointements attribués aux
 « travailleurs intellectuels » qui sont au service du parti,
-sat tels que directeurs de journaux et de revues, journa-
-listes, députés, employés de toute sorte, a préoccupé beau-
-de coup nos camarades allemands. Si le problème aujour4 d'hui se pose avec tant d'acuité chez nous, sous une
+sat tels que directeurs de journaux et de revues, journalistes, députés, employés de toute sorte, a préoccupé beaude coup nos camarades allemands. Si le problème aujour4 d'hui se pose avec tant d'acuité chez nous, sous une
 forme générale qu'il n'a revêtue ainsi nulle part ailleurs,
 c'est précisément parce qu'il tient à ce problème encore
 plus vaste, auquel j'ai fait allusion, de l'évolution des
@@ -916,9 +882,7 @@ nouveauté même, courent le risque de rester incomplètes,
 et peut-être infructueuses. Nous tâcherons au moins de
 dégager, si nous le pouvons, les termes du problème.
 
-Nous envisagerons d'abord, avant la situation particu-
-
-lière qui concerne la France, la position générale de la
+Nous envisagerons d'abord, avant la situation particulière qui concerne la France, la position générale de la
 
 question. Je veux dire que nous essaierons de déterminer
 ce qu'il convient d'entendre par socialisme et par intellectuels, de suivre séparément l'évolution de ces deux facteurs
@@ -961,8 +925,7 @@ Au — Je vous nomme, lui dis-je, inspecteur général des
 Nous publions aujourd'hui les deux premiers courriers:
 Voici des notes, faites-en ce que vous voudrez. Elles sont
 exactes autant que je l'ai pu. J'ai supprimé les accusations
-personnelles que nous ne pouvons peut-être pas nous per-
-mettre. On comprendra, et d'autres diront.
+personnelles que nous ne pouvons peut-être pas nous permettre. On comprendra, et d'autres diront.
 à Renouvelez mon abonnement pour mon frère. Faites-moi
 crédit, car je ne me suis pas encore enrichi. Annoncez par-
 - tout que, pour éviter toute confusion, et l'absence de
@@ -1007,8 +970,7 @@ Couverture: Librairie des Cahiers;
 en dehors des collections complètes, il n'en reste aucun
 à exemplaire; il n'est donc mis en vente que dans les colh. lections, complètes, de la deuxième série;
 Huitième cahier de la deuxième série, un cahier blanc
-de 108 pages, bon à tirer du jeudi 28 février, fini d'im-
-von primer du samedi 2 mars 1901:
+de 108 pages, bon à tirer du jeudi 28 février, fini d'imvon primer du samedi 2 mars 1901:
 4100 Jacques de Boisjoslin et à M. Lucien Lévy-Brulhl;
 119 marqué deux francs, ce cahier est en voie d'épuime 14 sement; chacun des derniers exemplaires huit francs
 moi. Neuvième cahier de la deuxième série, un cahier
@@ -1026,8 +988,7 @@ DE du même quelques exemplaires sans couverture, l'un
 Dixième cahier de la deuxième série, un cahier jaune
 de 72 pages, bon à tirer du jeudi 4 avril 1901:
 
-Pour les étudiants russes; appel aux étudiants fran-
-çais; meeting salle d'Arras, 3, rue d'Arras, le mercredi
+Pour les étudiants russes; appel aux étudiants français; meeting salle d'Arras, 3, rue d'Arras, le mercredi
 27 mars 1901 à huit heures et demie du soir, vote d'une
 adresse aux camarades russes; comité de solidarité
 universitaire en faveur des étudiants russes; la crise
@@ -1064,7 +1025,7 @@ ARR chacun des derniers exemplaires douze francs
 (1 ANTONIN LAVERGNE. — Jean Coste ou l'instituteur
 de village; — octobre 189/4-juin 1895, Évreux;
 une préface de l'éditeur;
-#0 Si nos abonnés veulent bien lire d'un esprit non prévenu,
+0 Si nos abonnés veulent bien lire d'un esprit non prévenu,
 ils verront que l'auteur a très honnêtement mis son
 ! attention à n'exagérer pas. Son œuvre est sobre autant
 qu'elle est probe.
@@ -1084,8 +1045,7 @@ Nous dirons plutôt que l'auteur est un historien, historien
 de son temps, de sa région, de son pays, de son entourage,
 de son métier. Primaire, ancien instituteur, de culture pri
 maire, aujourd'hui professeur d'école normale primaire, il
-connaît la vie de l'enseignement primaire par cette expé-
-rience personnelle que rien ne peut remplacer.
+connaît la vie de l'enseignement primaire par cette expérience personnelle que rien ne peut remplacer.
 Les hommes et les institutions dont il nous présente ici
 l'événement sont des plus importantes pour l'assainissement
 de la cité. Nous traiterons ailleurs que dans cette préface la
@@ -1093,8 +1053,7 @@ grosse question de l'enseignement primaire.Mais déjà tous
 les honnêtes gens sont assurés qu'un solide rétablissement
 des instituteurs ferait plus pour les fins qui nous sont
 communément chères que le vain foisonnement des formules, des programmes et des phrases.
-marqué trois francs cinquante, ce cahier est complè-
-tement épuisé; en dehors des collections complètes, il
+marqué trois francs cinquante, ce cahier est complètement épuisé; en dehors des collections complètes, il
 n'en reste aucun exemplaire; il n'est donc mis en vente
 que dans les collections, complètes, de la deuxième
 ANTONIN LAVERGNE. — Jean Coste ou l'Instituteur
@@ -1118,9 +1077,7 @@ A Georges Sorel, quelques mots sur Proudhon; réfé-
 
 Proudhon, La Fédération et l'Unité en Italie, écrit en 1862;
 
-Proudhon, du principe fédératif et de la nécessité de recon-
-
-ne È stituer le parti de la Révolution, écrit en 1863; Proudhon,
+Proudhon, du principe fédératif et de la nécessité de reconne È stituer le parti de la Révolution, écrit en 1863; Proudhon,
 de la justice dans la Révolution et dans l'Église, écrit en
 
 ï À Ludovic Marchand, Jean Grave et Urbain Gohier, dossier,
@@ -1198,9 +1155,7 @@ Mémoires et dossiers pour les libertés du personnel
 
 , Préface du gérant
 
-à à Interpellation Lavertujon: discussion au Sénat de l'inter-
-
-pellation de M. Lavertujon sur les actes de M. le Préfet
+à à Interpellation Lavertujon: discussion au Sénat de l'interpellation de M. Lavertujon sur les actes de M. le Préfet
 
 de la Haute-Vienne: MM. Lavertujon, Leygues, ministre
 
@@ -1226,9 +1181,7 @@ y l'Yonne fit paraître à Sens un organe hebdomadaire: Le
 
 Travailleur Socialiste; l'archiprètre et les conscrits, article
 
-du Sans-Patrie dans le Travailleur, novembre 1900; l'archi-
-
-prêtre et les conscrits, deuxième article; l'archiprètre et les
+du Sans-Patrie dans le Travailleur, novembre 1900; l'archiprêtre et les conscrits, deuxième article; l'archiprètre et les
 
 ! conscrits, troisième article; christianisme et catholicisme;
 
@@ -1238,9 +1191,7 @@ prêtre et les conscrits, deuxième article; l'archiprètre et les
 
 les conscrits, la quatrième et dernière de M. l'Archiprêtre;
 
-lettre ouverte de Sans-Patrie à M. l'Archiprêètre; christia-
-
-nisme et catholicisme, suite; christianisme catholicisme,
+lettre ouverte de Sans-Patrie à M. l'Archiprêètre; christianisme et catholicisme, suite; christianisme catholicisme,
 suite et fin; une épigraphe à un article de Sans-Patrie,
 notre glorieuse armée en Chine;
 
@@ -1290,7 +1241,7 @@ a purement corporatives qui, bien que ne faisant pas de
 l'action législative et parlementaire; en conséquence les
 5 anarchistes sont exclus; vérification des mandats; congrès
 en Allemagne; congrès de Paris; texte proposé par la
-4 Social-democratic Federation d'Angleterre; texte signé par
+Social-democratic Federation d'Angleterre; texte signé par
 ne Liebknecht, Singer, et beaucoup de délégués allemands,
 autrichiens, danois, polonais, hollandais; les anarchistes
 1% et leurs alliés, même s'ils s'appellent communistes antifl parlementaires; d'après Eugène Guérard, les anarchistes
@@ -1301,11 +1252,9 @@ socialiste français adresse en mai 1900 un appel aux orgaEn:. nisations ouvriè
 ne.; du Congrès international de 1900; texte de cet appel;
 adressé Citoyens et camarades; comité d'entente socialiste,
 
-rence de Bruxelles, 27 et 28 mai 1899; dont décisions ci-
-après; remis pouvoirs au Comité général issu du Congrès
+rence de Bruxelles, 27 et 28 mai 1899; dont décisions ciaprès; remis pouvoirs au Comité général issu du Congrès
 des organisations socialistes de décembre 1899; fixation du
-Congrès; le cinquième en date; rappel des congrès précé-
-dents; bureau permanent; fin 1898 substituer aux camarades allemands; un Congrès politique socialiste; première
+Congrès; le cinquième en date; rappel des congrès précédents; bureau permanent; fin 1898 substituer aux camarades allemands; un Congrès politique socialiste; première
 circulaire; conférence de Bruxelles; une difficulté entre le:
 bureau permanent de Londres et le Comité d'entente socialiste; aplanie par la conférence de Bruxelles; transmission
 des pouvoirs; transaction intervenue; résolution de
@@ -1345,8 +1294,7 @@ pr. pour première séance; dix-sept nationalités; Clara Zetkin
 En è Furnémont, belge, secrétaire; Jaurès président de la press mière séance allocution; citoyens et camarades de tous les
 14 pays; joie, émotion profondes; travailleurs organisés de
 si France; prolétaires de tous les pays; contre le capitalisme,
-la bestialité chauvine et le délire nationaliste; antago1e nismes de race, universelle paix; sur controverses ré-
-cemment élevées, discuterons ici, mais saurons aisément
+la bestialité chauvine et le délire nationaliste; antago1e nismes de race, universelle paix; sur controverses récemment élevées, discuterons ici, mais saurons aisément
 : trouver formules d'accord; nous sommes le parti socialiste,
 À c'est-à-dire le parti qui, sans dédaigner l'amélioration
 1? immédiate et constante de ceux qui travaillent, n'oublie
@@ -1406,8 +1354,7 @@ De” de la liberté; monarchie italienne heurtée à obstruction
 inlassable; appelé au pays; pays accroissant voix et dats; attentat de Monza; nous autres, socialistes italiens,
 comme l'a montré notre récent Congrès, nous sommes
 unis; chez nous il peut y avoir des discussions entre nous,
-. mais grâce à l'unité du parti, il ne peut y avoir de diviWe: sions; Adler; autrichien; en Autriche une petite Inter-
-nationale; je parle par expérience; ces enseignements, nous
+. mais grâce à l'unité du parti, il ne peut y avoir de diviWe: sions; Adler; autrichien; en Autriche une petite Internationale; je parle par expérience; ces enseignements, nous
 Fe) les avons payés de notre sang; le meilleur de notre œuvre
 AN est dans cette unification du prolétariat; j'espère que ce
 : 4 Congrès, qui exprimera l'unité de la social-démocratie de
@@ -1415,12 +1362,10 @@ AN est dans cette unification du prolétariat; j'espère que ce
 irrésistible mouvement pour l'unité intérieure du socia-
 : 43 lisme français, qui assurera le triomphe du socialisme;
 1 longue ovation; Vandervelde; belge; nous avons pratiqué
-4 fraternellement l'union socialiste; union des premiers chré-
-me tiens; « comme ils s'aiment! union, force; notre exemple
+4 fraternellement l'union socialiste; union des premiers chréme tiens; « comme ils s'aiment! union, force; notre exemple
 doit vous servir, camarades français; en 1889, dans la
 1 même ville, deux Congrès semblaient ennemis; unité réant lisée l'année suivante; qu'il me soit permis d'espérer que!
-Es Vunité du parti socialiste français soit réalisée prochai-
-nement; socialistes français, unissez-vous; en dépit des
+Es Vunité du parti socialiste français soit réalisée prochainement; socialistes français, unissez-vous; en dépit des
 é apparences, l'union socialiste est en marche chez vous; les
 à militants obscurs qui ne se mêlent pas aux polémiques
 entre les écoles la veulent; les bourgeois de 1793; exhor1 tations; longs applaudissements; cris de vive l'Unité;
@@ -1437,8 +1382,7 @@ hollandais; à l'heure actuelle guéris de la maladie des;
 individus et de l'influence nuisible de l'esprit sectaire; ils
 sont unis; il faut que vous soyez unis, camarades français;
 
-l'ennemi est et vous vous querellez; crime de lèse-prolé-
-tariat; prosopopée; prolétaires, unissez-vous; Plekhanoff;
+l'ennemi est et vous vous querellez; crime de lèse-prolétariat; prosopopée; prolétaires, unissez-vous; Plekhanoff;
 
 russe; intérêts de classe et unité prolétariat russe; le mot
 de Jacoby; en Russie mouvement révolutionnaire commencé par étudiants et gens cultivés; continué par ouvriers;
@@ -1463,23 +1407,17 @@ des ouvriers de toutes les professions, dans tous les quartiers de Saint-Péters
 
 retentissement; Daszynski; polonais; nous voulons la paix
 
-internationale; unité des prolétaires polonais; mais seu-
-
-lement sous le drapeau du socialisme révolutionnaire;
+internationale; unité des prolétaires polonais; mais seulement sous le drapeau du socialisme révolutionnaire;
 
 Nemec; Bohême; si nous ne sommes qu'un petit parti,
 nous sommes cependant de bons socialistes, comme vous
-tous, camarades; Furholz; suisse; nous n'avons pas préci-
-
-sément, en Suisse, une très forte organisation; peut-être
+tous, camarades; Furholz; suisse; nous n'avons pas précisément, en Suisse, une très forte organisation; peut-être
 en serait-il autrement, si nous avions été quelque peu persécutés, au lieu d'être en possession de toutes les libertés
 politiques; quoi qu'il en soit, le Parti ouvrier suisse donne
 l'exemple d'une unité parfaite, malgré la différence des
 langues, des usages, des différents cantons qui composent
 notre pays; Menander; suédois; nous espérons aboutir, en
-Suède, à des résultats importants par le groupement com-
-
-pact de toutes les forces ouvrières et socialistes de notre
+Suède, à des résultats importants par le groupement compact de toutes les forces ouvrières et socialistes de notre
 pays; à mesure que progresse l'industrie suédoise, le
 socialisme croît aussi, parallèlement, et prend place dans
 ! le grand mouvement socialiste international! Iglesias;
@@ -1489,8 +1427,7 @@ Capital; le capitalisme international cherche à opposer
 4 aussi criminels qu'odieux. Vous n'avez pas oublié, rades, les actes du capitalisme espagnol aux Philippines et
 vous voyez ceux du capitalisme anglais en Afrique. Que la
 classe ouvrière internationalement organisée réponde à ces
-Amérique; socialistes américains rôle modeste dans mou-
-vement socialiste international; mais appelés aujourd'hui
+Amérique; socialistes américains rôle modeste dans mouvement socialiste international; mais appelés aujourd'hui
 jouer un des rôles les plus importants; la concentration
 capitaliste américaine, qui chercher à lutter contre le
 capitalisme européen et mettre aux prises les prolétaires
@@ -1517,8 +1454,7 @@ Fribourg; proteste contre méthode de travail proposée par
 le bureau; Singer; propose de rejetet la proposition Fribourg; proposition du bureau adoptée à l'unanimité;
 qu'à cette heure-là, les camarades français seront arrivés à
 s'entendre; Furnémont; grève générale inscrite à l'ordre
-du jour; Singer; entendu; pouvons lever séance; Furné-
-mont; local fermé, clef refusée, incident Dubreuilh; Dubreuilh; se récuse sur Boutié; Boutié; s'explique;
+du jour; Singer; entendu; pouvons lever séance; Furnémont; local fermé, clef refusée, incident Dubreuilh; Dubreuilh; se récuse sur Boutié; Boutié; s'explique;
 
 Réunion de la section française; Allemane; ouvre la
 séance; donne la parole à Delory; Delory; bureau définitif; membres des commissions; puisque la France a droit
@@ -1541,8 +1477,7 @@ nous rallions très volontiers, pour en finir, à la proposition Gérault-Richar
 levées; désignations et votes; deux présidents; vingt-quatre
 noms, appariés, pour les douze commissions;
 
-Séance de l'après-midi; Singer président; Singer; satis-
-présidents par jour, de nationalités différentes; aujourd'hui
+Séance de l'après-midi; Singer président; Singer; satisprésidents par jour, de nationalités différentes; aujourd'hui
 Vaillant et lui; Vaillant; vive la ‘Commune! phrases lon-
 
 10 gues; oraisons funèbres; notre doyen, celui qui a toujours
@@ -1562,14 +1497,14 @@ Du dans les luttes qui s'engagent, le socialisme triomphera;
 
 É seuls discutés en séance plénière les mandats contestés;
 
-10 Delory; rapporteur de la commission de vérification des
+Delory; rapporteur de la commission de vérification des
 
 mandats pour la France; Delory; une réunion de la gauche
-a; française; une proposition; s'en rapporter à la commission -
+française; une proposition; s'en rapporter à la commission -
 4 de vérification pour le Congrès national; total des mandats
 144 ainsi comptés pour la gauche française; pour la droite fran-
 . 84 çaise; deux procédures; Briand; ne se présente pas au nom
-4 À de la section française tout entière; ne s'attendaient pas à
+À de la section française tout entière; ne s'attendaient pas à
 ‘SR ce que Delory fit un rapport d'ensemble, ni à certaines
 réserves; il a été décidé dans le sein du Comité général
 Rat que chaque organisation validerait ses mandats d'une ma-
@@ -1578,9 +1513,7 @@ Rat que chaque organisation validerait ses mandats d'une ma-
 
 1 exception sont poriés au Congrès international; ils ont été
 
-08 acceptés par anticipation, par une décision du Comité géné-
-
-ral; Singer; après délibération avec ses camarades du
+08 acceptés par anticipation, par une décision du Comité général; Singer; après délibération avec ses camarades du
 
 bureau, déclare que tous les mandats français ont été
 
@@ -1611,14 +1544,12 @@ se préparer à la campagne électorale qui bientôt s'ou-
 : vrir, et il a été dans la nécessité de retenir une certaine
 partie de ses forces dans le pays; dix délégués; nulle contestation; Enrico Ferri; en ce qui concerne l'Italie, le Parti
 socialiste se trouve dans la nécessité de se réorganiser dans
-tout le pays, après deux ans de réaction sanglante, réac-
-tionnaire et jésuitique ensuite; c'est pour cette raison que le
+tout le pays, après deux ans de réaction sanglante, réactionnaire et jésuitique ensuite; c'est pour cette raison que le
 Parti socialiste italien n'a envoyer que dix délégués des
 groupes politiques; les groupes économiques, les syndicats,
 en Italie, n'ont pas la liberté d'adhérer au parti socialiste,
 quoiqu'ils y adhèrent d'âme et de foi; nous avons dans la
-délégation: cinq députés au Parlement, cinq autres délé-
-gués pour les groupes politiques; un pour l'Union socialiste des Italiens en Suisse, et trois autres pour les autres
+délégation: cinq députés au Parlement, cinq autres délégués pour les groupes politiques; un pour l'Union socialiste des Italiens en Suisse, et trois autres pour les autres
 groupes socialistes italiens de Paris, de Nogent et d'Ivry;
 en tout, quatorze délégués pour le Parti socialiste italien,
 qui, lui, est unifié; Furnémont; belge; trente-sept délégués
@@ -1638,8 +1569,7 @@ qui seule pourra délivrer le prolétariat du monde entier;
 
 dans toutes nos rencontres sur le champ des principes et
 ? des théories, ce sont toujours eux, les socialistes nationaf: listes, qui sont obligés de capituler; ce sont eux-mêmes
-: qui se mettent en fuite; battus, ils n'osent plus nous ren-
-contrer en plein jour et il ne leur reste comme moyen de
+: qui se mettent en fuite; battus, ils n'osent plus nous rencontrer en plein jour et il ne leur reste comme moyen de
 É lutte contre nous que l'intrigue et la calomnie; fidèles au
 A principe de la politique jésuitique, que le but consacre et
 légitime les moyens, ils cherchent à nous frapper
@@ -1648,8 +1578,7 @@ que nous sommes au service de la police, les porteparole de la politique germani
 grand pour former la majorité et mettre à la porte, de la
 façon la plus simple et la plus commode, leurs adversaires
 A politiques; ne s'agit point elle et ses deux amis pos-
-à sibilité assister aux délibérations du Congrès; elle appar-
-tient aussi à la délégation allemande; mais prolétaires
+à sibilité assister aux délibérations du Congrès; elle appartient aussi à la délégation allemande; mais prolétaires
 polonais dépossédés de délégués Haute-Silésie et Varsovie;
 frères du monde entier; principes justice honneur socialistes;
 11 gorge pleine de larmes obligée dénoncer procédés honteux
@@ -1657,11 +1586,9 @@ frères du monde entier; principes justice honneur socialistes;
 péroraison; Singer; donne la parole à Adler; la donnera à
 É Daszynski; Adler; au bureau à trancher la question; sera
 ; dans le plus large esprit de conciliation; mais au sujet
-14 d'une vérification de mandat, la citoyenne Rosa Luxem-
-burg a prononcé des paroles que je considère comme
+14 d'une vérification de mandat, la citoyenne Rosa Luxemburg a prononcé des paroles que je considère comme
 À absolument calomnieuses à l'égard de Daszynski et des
-autres camarades polonais; au nom de la délégation autri-
-chienne, je déclare que c'est toujours de cœur et d'âme que
+autres camarades polonais; au nom de la délégation autrichienne, je déclare que c'est toujours de cœur et d'âme que
 j'ai combattu sur le terrain de l'internationalisme avec les
 prétendus nationalistes dont on a parlé, qui sont de fidèles
 compagnons; les différends qui existent entre nos camarades polonais sont des différends de nature essentiellement métaphysique, auxquels, en tant que théoricien,
@@ -1680,9 +1607,7 @@ Hyndman et les autres délégués anglais protestent contre
 cette discussion; Dassynski; ni attaqué ni injurié fraction
 adverse; objectivement; nulles phrases; bons internationalistes calomniés; travail de quinze années, incessant,
 pacifique, avec socialistes de tous les pays; membre du
-de cette fraction par socialistes plusieurs nationalités; délé-
-
-gués anglais reprotestent énergiquement; Hyndman; qu'on
+de cette fraction par socialistes plusieurs nationalités; délégués anglais reprotestent énergiquement; Hyndman; qu'on
 
 grès de Londres décidé renvoyät toujours au bureau;
 Rosa Luxemburg; accepte; Singer; entendu; délégué de la
@@ -1693,14 +1618,10 @@ neuf au Congrès de Londres; malgré récent lock-out; Van
 
 Kol; hollandais neuf délégués; validés; n'ont pas d'histoire;
 
-de reconstituer, de fond en comble, le mouvement écono-
-
-mique et syndical sur de véritables bases socialistes; afin
+de reconstituer, de fond en comble, le mouvement économique et syndical sur de véritables bases socialistes; afin
 d'être à même de lutter contre la puissance capitaliste qui
 s'élève en Amérique; mais il paraît qu'il y a une autre
-organisation qui a pris le nom honoré de la Social-démo-
-
-cratie et qui veut se faire représenter ici par des hommes
+organisation qui a pris le nom honoré de la Social-démocratie et qui veut se faire représenter ici par des hommes
 
 À qui ont été expulsés du Parti Ouvrier Socialiste; l'importance de l'unité, en Amérique, est aujourd'hui très grande;
 les Anglais donnent des marques d'impatience; le Parti
@@ -1712,8 +1633,7 @@ assurons qu'il a des intentions honnêtes et qu'il est vraiment socialiste; puis
 contre le socialisme, par un vote général du Parti, et non
 AUS par l'action de certains hommes, par le référendum, par
 1 un vote qui s'opère de l'Atlantique au Pacifique et des
-grands lacs du Nord au golfe du Mexique, il peut être défi-
-nitivement exclu; il n'y a pas un homme imbu d'idées
+grands lacs du Nord au golfe du Mexique, il peut être définitivement exclu; il n'y a pas un homme imbu d'idées
 4 - socialistes sincères qui ait le moindre prétexte pour tâcher
 ù de former un parti en dehors de ce grand parti; marques
 de vive impatience des délégués anglais; mais, ainsi que je
@@ -1722,7 +1642,7 @@ certaines personnes qui avaient des principes opposés au
 socialisme; Hyndman; au bureau; Singer; discussion close;
 20 un seul délégué; étroitement unis; une voix du P. O.F.;
 ‘mn même révolutionnaires; délégué Bulgarie; cette année
-3 ES à gais; délégué de l'Irlande; trois délégués; indication d'un
+ES à gais; délégué de l'Irlande; trois délégués; indication d'un
 13 grand progrès; pays malheureux, retardataire, agriculture,
 Des sans ressources; délégué de la Norvège; récentes élections
 De générales nombre élevé de voix; espérons acquérir quelque
@@ -1730,7 +1650,7 @@ LEUR chose esprit pratique et organisation que trouve en Angle-
 È de terre, quelque chose esprit vif et brillant que trouve en
 4 1 (XX France; Singer; un télégramme regrets socialistes roumains;
 À 1 Jeunes Gardes belges; quête pour grévistes Giromagny;
-4 Troisième journée; séance du mardi 25 septembre 1900;
+Troisième journée; séance du mardi 25 septembre 1900;
 LE 1 matin; Andrea Costa président; Hyndman assiste; Furné-
 44 mont; dépêche socialistes hollandais, espagnols; Costa; tous
 : mandats américains et polonais admis; mise à exécution
@@ -1742,10 +1662,9 @@ Se; Van Kol; Van Kol; unanimité dans la commission sur prinh cipe utilité iné
 devient de plus en plus acharnée de la part de l'Interte nationale des capitalistes, il est urgent d'organiser l'Interr nationale du prolétariat; agiter les masses profondes; propa-
 4 gande gigantesque; faire dominer la volonté du prolétariat;
 
-organisation des Congrès; bon travail; facilités aux délé-
-gués; exécuter les résolutions; formulera ordre du jour
+organisation des Congrès; bon travail; facilités aux délégués; exécuter les résolutions; formulera ordre du jour
 des Congrès; demandera rapports, sur chaque question, à
-chaque nationalité adhérente; un secrétaire général salarié; -;
+chaque nationalité adhérente; un secrétaire général salarié;
 renseignements nécessaires; code explicatif des résolutions:
 général questions à l'ordre du jour; ne parlerons plus dans
 le vide; mais véritablement œuvre utile; un manifeste sur
@@ -1768,8 +1687,7 @@ socialiste quelconque de verser avant toute cotisation celle
 de dix centimes pour le comité international; comme les
 organisations comprennent déjà en France plusieurs centaines de mille adhérents et comme il y a des millions de
 socialistes en Europe, avec dix centimes par année et par
-personne, on arriverait à réunir des sommes considé-
-rables; Anseele; ne pas perdre trop de temps; proposition
+personne, on arriverait à réunir des sommes considérables; Anseele; ne pas perdre trop de temps; proposition
 de classement; principe, somme, pays; Wagner; scinder
 le travail; principe; dix mille francs, trop minime; cent À
 mille ou cinq cent mille, exagérée; cinquante mille; que
@@ -1790,8 +1708,7 @@ du deux sous que trois francs d'un coup; quêtes; ce serait une
 honte de constater que dans le monde entier, socialiste, on
 À 5 ne peut pas trouver cent mille francs; ce serait un aveu
 3 pénible à faire; un délégué; — la clôture;. Enrico Ferri;
-À président de la première commission; il faut distin-
-guer entre les envolées platoniques et les réalisations
+À président de la première commission; il faut distinguer entre les envolées platoniques et les réalisations
 pratiques; par caisses nationales; et les dix mille francs
 7 demandés deviendront ainsi cinq cent mille francs;
 ne Wurm; on ne peut pas obliger les différentes nationalités
@@ -1808,8 +1725,7 @@ te. nation sera libre de trouver les moyens les plus propres à
 procurer l'obole à laquelle elle se sera engagée; dix mille
 à francs n'engage que les organisations politiques; Andrea
 A Costa; aux voix proposition commission, à l'unanimité dix
-À mille francs; adopté à unanimité; Andrea Costa; où sié-
-gera le Comité international; yndman; honneur de pro-
+À mille francs; adopté à unanimité; Andrea Costa; où siégera le Comité international; yndman; honneur de pro-
 À poser Maison du Peuple de Bruxelles; Belgique pays neutre
 2 facilement accessible à tous; Maison du Peuple excellente
 
@@ -1834,8 +1750,7 @@ prise ce matin est une décision d'une haute portée; je vous
 propose de la souligner en criant tous ensemble: vive
 lInternationale des travailleurs! acclamations unanimes et
 prolongées; Barrat; au nom de ses amis du P.0.S. R. une
-proposition; le texte; une grève internationale des baïonnettes; Furnémont; un scrupule; se demande si les délé-
-gués ont le mandat ferme de nommer, au nom de leur
+proposition; le texte; une grève internationale des baïonnettes; Furnémont; un scrupule; se demande si les délégués ont le mandat ferme de nommer, au nom de leur
 pays, celui qui les représentera dans organisation internationale; les délégations dans les Congrès sont composées
 parfois au hasard des circonstances, et les délégués ne
 représentent pas toujours la pensée exacte et précise des
@@ -1879,8 +1794,7 @@ oubliions notre idéal révolutionnaire et que nous oubliions
 couronnes d'immortelles rouges; par souscription intern nationale: vive la Commune; Andrea Costa; accepté par
 13 acclamations; Wurm; rapport sur première question ordre
 
-; du jour examinée par deuxième commission législation inter-
-nationale du travait pañ la limitation de la journée de tra- Le
+; du jour examinée par deuxième commission législation internationale du travait pañ la limitation de la journée de tra- Le
 vail; Wurm; la commission s'associe à la résolution prise
 par Congrès précédents; journée légale de huit heures;:
 mais provisoirement peut légiférer sur journée plus longue;
@@ -1895,8 +1809,7 @@ femme se trouve vis-à-vis de l'homme dans une situation
 à inférieure, quant à sa position légale, elle est plus que
 l'homme sujette à l'exploitation capitaliste. Par le travail
 - industriel, en conquérant sa liberté économique, elle a seulement changé de maître: au lieu de la férule du mari, elle
-est tombée sous le joug honteux du capitalisme, qui l'ex-
-ploite plus durement encore, dans sa modestie et son
+est tombée sous le joug honteux du capitalisme, qui l'exploite plus durement encore, dans sa modestie et son
 amour maternel; par une protection législative eflicace, on
 rendrait la femme consciente de soi-même, de ses devoirs
 et de ses droits humains; plus la protection sera grande,
@@ -1927,16 +1840,14 @@ par machinisme et science on peut arriver à produire
 comme de douze à dix; grands exemples donnés en sieurs pays; si même produit moins, tant mieux; dimi-
 14 urgentes; encore treize, quatorze et quinze heures; syn-
 : dicat; bavardage; en 1870; impatience du public; un
-sai récent congrès bourgeois; pour la réglementation interF nationale du travail; limitation et syndicats; plusieurs délé-
-gués demandent la limitation de la durée des discours;
+sai récent congrès bourgeois; pour la réglementation interF nationale du travail; limitation et syndicats; plusieurs délégués demandent la limitation de la durée des discours;
 minutes; mise aux voix; adoptée à l'unanimité; Andrea
 Le Costa; met aux voix résolution de la commission; adoptée
 à l'unanimité; Andrea Costa; Gheude; rapporteur de la
 À deuxième commission; minimum de salaire; dans les divers
 1" pays; discussion commission assez animée; un peu
 108 embrouillée; deux courants; courant anglais pour fixation
-légale; courant allemand contre fixation légale; ni socialiste; ni pratiquement possible; d'accord sur formule spé-
-ciale; syndicats fortement organisés; autre divergence
+légale; courant allemand contre fixation légale; ni socialiste; ni pratiquement possible; d'accord sur formule spéciale; syndicats fortement organisés; autre divergence
 ; entre majorité et délégués allemands; nécessités de l'exis-
 ; tence envisagées de la façon la plus large; moyens doivent
 logiquement différer suivant les nations; même régions
@@ -1946,8 +1857,7 @@ texte de la résolution; Molkenbuhr; l'Etat ne peut pas
 régler cette question; ni par la voie internationale; le
 : maximum à Paris pendant la Révolution française; non
 réussi; encore moins en situation de réussir, parce que nous
-il n'aurions même pas de puissance pour fixer des prix quel-
-conques; nous ne pouvons pas arriver à fixer partout à la
+il n'aurions même pas de puissance pour fixer des prix quelconques; nous ne pouvons pas arriver à fixer partout à la
 
 fois un salaire minimum, puisque nous ne pouvons pas
 exercer de pression sur le prix des choses nécessaires; la
@@ -1956,8 +1866,7 @@ que les organisations syndicales se fassent partout de plus
 en plus fortes et que les syndicats cherchent à conquérir
 des conditions de vie et de travail meilleures, et aussi le
 salaire le plus élevé possible; camarades anglais résisté et
-proposé fixer quand même minimum de salaire; mais diffé-
-rence de pays; impossible uniforme; organisations syndicales puissantes; pression sur toutes administrations; j'ai
+proposé fixer quand même minimum de salaire; mais différence de pays; impossible uniforme; organisations syndicales puissantes; pression sur toutes administrations; j'ai
 dit aussi que cette exigence du salaire minimum n'avait
 pas un caractère socialiste, et la chose peut paraître paradoxale, mais je m'explique: il a été demandé que l'État
 assure partout un minimum de salaire à ceux qui travaillent. mais nous, nous disons: il ne faut pas seulement
@@ -1969,9 +1878,7 @@ régler cette question d'une manière internationale; elle
 peut être réglée tout au plus nationalement, ou par région;
 je dis en outre que nous pouvons, dans certains cas, par
 l'action syndicale, imposer des conditions de travail aux
-États et aux particuliers; j'indique que les délégués alle-
-
-mands ont voté contre la résolution de la commission,
+États et aux particuliers; j'indique que les délégués allemands ont voté contre la résolution de la commission,
 mais c'est parce qu'il nous en avait été fait une traduction
 inexacte; maintenant que nous en connaissons le texte
 vrai, nous nous y rallions tous; c'est donc à l'unanimité.
@@ -1982,16 +1889,13 @@ socialistes de Hongrie; texte; associations ouvrières de
 Saône-et-Loire, Gueugnon, le Creusot; une collecte à la
 Mai; Boemelburg; maintenir décisions Congrès internationaux antérieurs; texte de la résolution; unanimité;
 outre, deux nationalités ont demandé Fête obligatoire;
-majorité d'avis impossible; faudrait des organisations syn-
-
-dicales ouvrières fortes et bien constituées; une bonne
+majorité d'avis impossible; faudrait des organisations syndicales ouvrières fortes et bien constituées; une bonne
 194 conception de cette manifestation; en attendant, démonset tration plus énergique, plus efficace et plus générale dans
 4 tous pays; propagande très active pour la réduction des,
 1 heures de travail; Journoud\; la section française était une
 15 des deux qui demandaient un engagement ferme pour
 lobligation; réclamation des cahiers de revendications
-5) d'un peuple à son gouvernement; fête du travail, des tra-
-vailleurs; chaque nation ses revendications les plus légi-
+5) d'un peuple à son gouvernement; fête du travail, des travailleurs; chaque nation ses revendications les plus légi-
 “48 times et les plus urgentes, au besoin suffrage universel;
 4 sur obligation, récusés, car dans certaines nations le chô-
 DIE mage général, le premier mai, est interdit et comporte à taines pénalités; appel vibrant; Andrea Costa; met aux
@@ -2040,8 +1944,7 @@ votation, bureau unanime; à chacune des nationalités
 ductiblement divisées en deux fractions, chacune de ces
 fractions un suffrage; la sanction de ces divisions sera
 donc de neutraliser dans le vote l'opinion de pareils pays;
-j'ai le plaisir d'annoncer au Congrès que le Comité géné-
-ral du Parti socialiste français s'est réuni hier soir et a pris
+j'ai le plaisir d'annoncer au Congrès que le Comité général du Parti socialiste français s'est réuni hier soir et a pris
 les mesures d'organisation nécessaires pour la bonne
 marche du Congrès: dans ces conditions, le malentendu qui
 s'était élevé entre le Comité d'organisation et le bureau,
@@ -2049,12 +1952,10 @@ malentendu auquel on aurait grand tort d'attribuer une
 importance, exagérée, se trouve complètement aplani, et
 je tiens à dire, au nom de nous tous, que nous n'avons
 jamais songé à reprocher à nos camarades français un
-manque de fraternité, mais bien un manque d'organisa-
-tion, qui trouve son excuse dans la difficulté d'organiser
+manque de fraternité, mais bien un manque d'organisation, qui trouve son excuse dans la difficulté d'organiser
 hier que manifestation au mur des Fédérés vendredi huit
 
-1 heures et demie; communion de nos sentiments révolu-
-tionnaires; ce rendez-vous groupera certainement militants
+1 heures et demie; communion de nos sentiments révolutionnaires; ce rendez-vous groupera certainement militants
 ï de toutes les fractions et de toutes les nationalités; Furné-
 a mont; le secrétaire de la Fédération des travailleurs
 À socialistes belges se tient à la disposition des délégués des
@@ -2081,7 +1982,7 @@ bre secours, cercles d'art et d'éducation, etc.; résolution votée
 par commission à l'unanimité, citoyens français compris,
 et c'est Lafargue qui a fait ressortir qu'il fallait prendre
 3 une résolution où il n'y eüt pas de différence d'opinion
-;; quant aux moyens; remis à la neuvième question;
+quant aux moyens; remis à la neuvième question;
 Lafargue; plusieurs sorties; à vous décider sur le texte
 seul; commission unanime; non un congrès de principes,
 comme la première Internationale; aujourd'hui partis organisés toute Europe et monde entier; en commun points
@@ -2128,8 +2029,7 @@ résolutions; projets et résolutions, notamment Jules Guesde,
 Enrico Ferri, Karl Kautsky; projet de résolution Kautsky
 a servi de base au débat; deux questions distinctes;
 4 alliances et coalitions; participation éventuelle d'un socia-
-: liste à un gouvernement bourgeois; alliances, débat extré-
-mement bref; continuation et confirmation discussions
+: liste à un gouvernement bourgeois; alliances, débat extrémement bref; continuation et confirmation discussions
 pour texte Parti Ouvrier Français récent congrès d'Ivry;
 lecture du texte; la lutte de classe interdit toute espèce
 “4 d'alliance; mais elle n'interdit pas les coalitions; mais
@@ -2156,36 +2056,30 @@ a. certains de nos camarades français; ce que nous dirions
 
 dans un Congrès national français; contre Millerand; pour a
 Millerand; le Congrès international n'est pas une Cour de à
-justice et d'arbitrage, destinée à prononcer des condamna-
-tions, des flétrissures et à lancer des décrets d'excommu-
-nication; au contraire un rôle de pacification, de conciliation
+justice et d'arbitrage, destinée à prononcer des condamnations, des flétrissures et à lancer des décrets d'excommunication; au contraire un rôle de pacification, de conciliation
 et de tolérance; fermeté inébranlable, questions de principe;
 liberté complète d'action chacune des nationalités, questions
 tactiques; question accessoire et secondaire; question de
 tactique et non de principe; sans passion, sans inutile
 colère; sauf en France, intérêt académique et platonique;;
-participation aux fonctions nominatives; des diffé-
-rences, mais situations non fondamentalement et essentiellement distinctes; dans un pays de régime démocratique et
+participation aux fonctions nominatives; des différences, mais situations non fondamentalement et essentiellement distinctes; dans un pays de régime démocratique et
 parlementaire; ministre aussi bien délégué; mais mandataire, contrôlé, soumis à la juridiction du Parti, organisé; un
 mot de Auer; mandat toujours révocable; expédient; grande
 majorité du parti; gage d'apaisement; par esprit de conciliation résolution Kautsky; question des alliances fondamentale; question de la participation, d'après Jaurès luimême, épisodique; non importante; le portefeuille socialiste ne pèsera jamais bien lourd dans la balance entre la
 - classe ouvrière et la classe capitaliste; le jour où pareille
-question disparaîtra de l'ordre du jour des Congrès socialistes français, un soulagement pour le prolétariat uni-
-versel; la lutte de classe bien autre chose que des batailles
+question disparaîtra de l'ordre du jour des Congrès socialistes français, un soulagement pour le prolétariat universel; la lutte de classe bien autre chose que des batailles
 de couloirs ou des conquêtes de portefeuilles; c'est une
 lutte de tous les instants, par tous les moyens pacifiques
 ou révolutionnaires, pour le but final que nous poursuivons
 tous, et que par l'union intégrale nous saurons un jour
 réaliser; péroraison; la maison est à moi: c'est à vous
-Séance de l'après-midi; même bureau; Vandervelde pré-
-side; Ferri; officiellement rapporteur de la minorité;
+Séance de l'après-midi; même bureau; Vandervelde préside; Ferri; officiellement rapporteur de la minorité;
 facéties; compte rendu commission; participation tout à
 fait défendue en principe, mais tout à fait permise en
 tactique; voté en commission; majorité; puis unanimité défense presque absolue des alliances; résolution
 63,
 
-Italie, battu au Congrès national de Rome; battu aujourj d'hui; mais tous des socialistes et des frères; des majo-
-rités et des minorités; ni des vainqueurs, ni des vaincus;
+Italie, battu au Congrès national de Rome; battu aujourj d'hui; mais tous des socialistes et des frères; des majorités et des minorités; ni des vainqueurs, ni des vaincus;
 si rapporteur de l'unanimité; balancement de la proposi4 tion Kautsky; état d'âme socialiste; traversons une phase
 11 décisive du développement et de l'évolution du grand
 Bebel, participation aux résolutions du Landtag; serait
@@ -2194,13 +2088,12 @@ En, venir à Paris aux assises internationales du socialisme
 4; et pour y prendre une résolution à l'instar de Poncene Pilate qui se laver les mains...; cas individuel, person138 nel Millerand n'intéresse pas le socialisme international;
 mais un cas général dont n'est que le symptôme et l'effet;
 100 une règle, une boussole pour orienter sa conscience de
-À; classe; les cas personnels écartés, la même situation
+classe; les cas personnels écartés, la même situation
 FRE existe partout, Italie moins retentissant; Turati et moi,
 comme Jaurès et Guesde, sauf qu'en Italie avons dépassé la
-:; phase personnaliste; éloge du Parti Ouvrier Français; mais
+phase personnaliste; éloge du Parti Ouvrier Français; mais
 YPa un peu immobiles certaine formule schématique non
-‘marxisme théorique mais surtout une interprétation dog-
-matique des disciples de Karl Marx; en France un autre
+‘marxisme théorique mais surtout une interprétation dogmatique des disciples de Karl Marx; en France un autre
 courant, tout aussi socialiste; organisation économique du
 ‘#3 prolétariat par organisation politique et électorale; droit;
 a affaire Dreyfus; Parti Ouvrier Français contre esprit de
@@ -2216,8 +2109,7 @@ dit: rien n'est dans le mouvement, tout est dans le but
 final; Liebknecht a dit enfin: l'essentiel, c'est le but final;
 
 mais il faut le mouvement pour s'approcher; participation
-aux élections du Landtag; il y a deux ou trois ans défen-
-dues; il y a une quinzaine de jours, à Mayence, Bebel, le;
+aux élections du Landtag; il y a deux ou trois ans défendues; il y a une quinzaine de jours, à Mayence, Bebel, le;
 frère d'armes de Liebknecht, a proposé une résolution qui pau"
 a été approuvée par la majorité, qui non seulement permet, mais rend obligatoire la participation au Landtag;
 ce n'est pas la faute de Jaurès s'il personnifie ce courant du
@@ -2267,7 +2159,7 @@ FAN qu'une fois qu'on admet la possibilité, soit-elle transitoire
 et exceptionnelle, de l'entrée d'un ministre socialiste dans
 ARMES un gouvernement ou d'un maire socialiste dans une
 2008 municipalité où la majorité ne soit pas socialiste, on
-,! vient à contredire le principe de l'interdiction des alliances
+vient à contredire le principe de l'interdiction des alliances
 avec une fraction de la bourgeoisie; c'est pour cela
 3 que j'avais proposé, moi, une motion devant le Congrès
 STAR national de Rome, interdisant d'une façon absolue la parLE ticipation au pouvoir politique ou au pouvoir municipal
@@ -2277,19 +2169,14 @@ notre ami Vandervelde, ce serait le prolétariat qui s'empa4t rerait de la maiso
 HER lorsque le prolétariat se sera emparé de la société humaine,
 la porte; le socialisme poursuit la lutte de classe au nom des
 QE: travailleurs mais pour la rédemption de l'humanité entière!
-4 4 Vandervelde; parlé exclusion non société, mais gouverne-
-
-funérailles officielles du roi Humbert; flétri le régicide;
-non associé aux obsèques officielles; crédits pour l'expé-
-dition de Chine au Parlement français; Sembat; Ferri;
+4 4 Vandervelde; parlé exclusion non société, mais gouvernefunérailles officielles du roi Humbert; flétri le régicide;
+non associé aux obsèques officielles; crédits pour l'expédition de Chine au Parlement français; Sembat; Ferri;
 entreprise de pillage international; résolution Guesde non
 aussi précise qu'aurait voulu; résolution d'Ivry assez à
 complète; Ferri; consentement d'un Parti organisé; unité FA.
 socialiste; texte de l'ancienne résolution Ferri; extrême
-défense des libertés publiques ou des principes élémen-
-taires de la civilisation contemporaine; la République,
-c'est l'atmosphère libre qui permet à nos poumons socia-
-listes de respirer; en Italie; interdiction des alliances, avec
+défense des libertés publiques ou des principes élémentaires de la civilisation contemporaine; la République,
+c'est l'atmosphère libre qui permet à nos poumons socialistes de respirer; en Italie; interdiction des alliances, avec
 permission exceptionnelle et transitoire d'une coalition
 pour une extrême défense; Kautsky conscience socialiste
 d'acier; au prochain Congrès international ferons la balance
@@ -2309,8 +2196,7 @@ tout le monde d'accord; soit même pour conquérir quelque
 réforme ouvrière urgente, tous les partis socialistes du
 monde pratiquent des alliances; presque tout le socialisme
 international a proclamé que, dans l'affaire Dreyfus, le
-prolétariat aurait suivi des conseils funestes si, sous pré-
-texte de ne pas confondre son action avec celle de la bourgeoisie, il avait laissé précisément à une action bourgeoise
+prolétariat aurait suivi des conseils funestes si, sous prétexte de ne pas confondre son action avec celle de la bourgeoisie, il avait laissé précisément à une action bourgeoise
 
 ù le monopole et l'honneur exclusif de la bataille contre le
 28 mensonge; de même pour la loi Heinse, en Allemagne, les
@@ -2340,8 +2226,7 @@ retirer celle-là; sur la participation, la motion Kautsky
 peut-être, mais qui est le seul possible à l'heure présente;
 ù au camarade Vandervelde une remarque; question Millerand purement locale, purement française; oui, elle ne se
 4 pose et même ne peut se poser qu'en France; mais, de
-quelque façon que vous la résolviez, laissez-moi, cama-
-rades de tous les pays, regretter qu'elle ne se pose pas chez
+quelque façon que vous la résolviez, laissez-moi, camarades de tous les pays, regretter qu'elle ne se pose pas chez
 À les socialistes de tous les pays; oui, elle est locale; oui,
 elle est française, en ce sens que le surcroît de liberté et
 o de démocratie que l'institution républicaine apporte au
@@ -2370,8 +2255,7 @@ Suisse; en Belgique; en Angleterre avec un nouveau parti
 libéral contre impérialisme; sous sa forme impersonnelle
 pour des Partis organisés; motion Kautsky laisse juge le
 Parti socialiste dans le monde de trancher la question en
-tenant compte chaque fois des intérêts positifs du prolé-
-tariat, dans une situation politique et sociale déterminée;
+tenant compte chaque fois des intérêts positifs du prolétariat, dans une situation politique et sociale déterminée;
 trop souvent transformé en questions de principe, fondamentales et principielles, des questions qui n'étaient que
 de tactique; interdit, permet, commande; on se donne
 ainsi l'apparence d'être infidèle à la lutte de classe, uniquement parce qu'on l'a fait intervenir où elle n'avait
@@ -2384,14 +2268,11 @@ ambitions personnelles; pratique dangereuse de la collaboration gouvernementale 
 si grave de la nation ou de la liberté que la bourgeoisie
 libérale elle-même reconnaîtra son impuissance à se sauver
 sans le concours des prolétaires organisés, ou lorsque la
-force du prolétariat sera telle que son abstention gouver-
-
-catalogue analytique sommaire:
+force du prolétariat sera telle que son abstention gouvercatalogue analytique sommaire:
 [3 nementale créerait un si grand vide que dans ce vide,
 comme dans un abîme, la vie politique du pays dispa-
 TAN raîtrait; Sembat; rectification à Enrico Ferri sur les députés
-104 français pour l'expédition de Chine; à la tribune du Parle-
-ment français toutes manifestations nécessaires pour opi152 nions internationalistes; délégué par unanimité du groupe
+104 français pour l'expédition de Chine; à la tribune du Parlement français toutes manifestations nécessaires pour opi152 nions internationalistes; délégué par unanimité du groupe
 UE) socialiste pour protestation contre toute expédition colof niale et celle-là en particulier; crédits pour la flotte; jamais
 désunis contre chauvinisme et pour principes internatio4 Pa: nalistes; proposition au comité international, commission
 700 interparlementaire; pas un sou, pas un homme pour les
@@ -2423,8 +2304,7 @@ Cinquième journée; séance du Jeudi 27 septembre 1900;
 Van Kol; décidé par bureau que travaux Congrès terminés
 ce soir; une déclaration des Allemands et des Anglais;
 refusent de voter si la traduction des discours n'est pas
-faite dans le silence le plus absolu; date du prochain Con-
-grès; Allemands 1905; Anglais 1902; Amsterdam ou Vienne;
+faite dans le silence le plus absolu; date du prochain Congrès; Allemands 1905; Anglais 1902; Amsterdam ou Vienne;
 au nom du président des syndicats fédérés de l'Allemagne,
 il a été fait un rapport sur le mouvement social en Alle- JE
 magne; à la disposition de tousles secrétaires d'organisations an
@@ -2442,8 +2322,7 @@ beaucoup plus fortes, elles sont dans la solidarité de classe,
 dans la conscience de classe du prolétariat tout entier; d'un
 autre côté, la situation quant aux travaux d'un Congrès
 international a beaucoup changé par la résolution même
-international et la création d'une commission interparle-
-mentaire; ces deux organes de l'internationalisme prolétarien vont se charger de beaucoup de travaux qui, jusqu'ici,
+international et la création d'une commission interparlementaire; ces deux organes de l'internationalisme prolétarien vont se charger de beaucoup de travaux qui, jusqu'ici,
 étaient l'objet des sessions périodiques du prolétariat
 international; étant donnée cette situation, il se produit un
 amoindrissement du travail et il n'est plus nécessaire que
@@ -2463,7 +2342,7 @@ seront fructueuses pour les travaux du prolétariat;.
 12700 sentiments internationalistes du parti allemand; solidarité
 140 de travaux sérieux; Andrea Costa; appuie proposition
 ni anglaise; comité international en deux ans tout le temps
-5 À d'organiser le Congrès; n'y a jamais préparation; inter11e nationalisme allemand; Congrès internationaux doivent
+À d'organiser le Congrès; n'y a jamais préparation; inter11e nationalisme allemand; Congrès internationaux doivent
 intervenir dans questions nationales; Van Kol; clè-
 (3 ture; Autrichiens et Hollandais; trois ans; deux ans
 Hal 4 repoussée par vingt-et-une voix contre dix-neuf; trois ans
@@ -2475,8 +2354,7 @@ Qu« Vienne inabordable aux délégués russes, police russe en
 48 ordre du jour; neuvième question; la parole à Guesde;
 1400 Guesde; la résolution des alliances interdit, au nom de la
 1 lutte de classe, toute alliance avec une fraction quelconque
-de la classe capitaliste; coalitions, sans confusion de pro-
-gramme ou de tactique, réduites au minimum; jusqu'à
+de la classe capitaliste; coalitions, sans confusion de programme ou de tactique, réduites au minimum; jusqu'à
 élimination complète; examen et approbation des organiNC sations régionales ou nationales auxquelles appartient le
 groupe engagé; avec Kautsky, avec majorité neuvième comfi mission, entrée d'un socialiste isolé dans un gouvernement
 (re bourgeois ne peut être considérée comme le commcenement
@@ -2560,8 +2438,7 @@ socialistes répondent: vous n'aurez pas un kilo de poudre,
 lInternationale que vous êtes en train de créer ici: avec
 un Millerand prussien, avec un Millerand italien, avec un:
 Millerand français, avec un Millerand anglais il n'y a plus
-et nouveau danger sur la route déjà embarrassée du prolé-
-une commission, ne répondrais pas, malgré notre esprit
+et nouveau danger sur la route déjà embarrassée du proléune commission, ne répondrais pas, malgré notre esprit
 d'union nationale et internationale, qu'elle serait respectée;
 proposition de la minorité; frontière infranchissable; que
 les exceptions, à force d'être nombreuses, ne mangent pas
@@ -2623,8 +2500,7 @@ eux; honneur à ces révolutionnaires du passé; Cipriani;
 ; qui sera meurtrière, parce que le monde exploiteur sentira
 
 que c'est la dernière; force politique et force économique;
-un ministère économique; proteste contre le mot défail-
-lance; le mouvement socialiste grandit; si défaillances en
+un ministère économique; proteste contre le mot défaillance; le mouvement socialiste grandit; si défaillances en
 France, non en Belgique; il faut songer à la pratique
 argent, temps, capacité intellectuelle; Van Kol; propositions
 de clôture et de suspension; Vaillant; réponse à Anseele;
@@ -2640,8 +2516,7 @@ compliments et remerciements sel et poivre aux camarades
 
 .. par la force même des choses; nul cas Millerand en Allemagne; on sait bien pourquoi; le journalier de Reuter; si
 même crise en Allemagne, même action qu'en France, mêmes
-alliances; nous ne voulons peut-être pas de fauteuil ministé-
-riel, mais vous pouvez compter sur nous; si en Allemagne
+alliances; nous ne voulons peut-être pas de fauteuil ministériel, mais vous pouvez compter sur nous; si en Allemagne
 une affaire Dreyfus, intervention; si pour ou contre Loubet,
 pour Loubet; en Allemagne assentiment du Parti; en France
 confusion; vraiment on se demande à qui Millerand eût
@@ -2653,20 +2528,16 @@ Séance de l'après-midi; même bureau; Andrea Costa;
 explications Ferri; motion Ferri au Congrès de Rome
 repoussée par cent six voix contre soixante-neuf; Ferri;
 
-tions; Costa; Rome autonomie des organisations régio-
-
-nales; aujourd'hui autonomie des organisations nationales
+tions; Costa; Rome autonomie des organisations régionales; aujourd'hui autonomie des organisations nationales
 
 74 catalogue analytique sommaire
 NL: À en matière de tactique; funérailles de Humbert; bruit; Van
-8 Kol; on votera pour majorité ou minorité; Vandervelde;
+Kol; on votera pour majorité ou minorité; Vandervelde;
 accepte au nom de la commission; Van Kol; par vingt-neuf
 à voix contre neuf, motion Kautsky adoptée; détail du scru-
 à tin; sur alliances, unanimité; Furnémont; communications
-11 et télégrammes; Vinck; vœux électoraux les plus chaleu-
-reux aux anglais et autrichiens; Vandervelde; appuie;
-40 adopté; Van Kol; cinquième commission; politique colo-
-niale; lui-même rapporteur; question primordiale; contre
+11 et télégrammes; Vinck; vœux électoraux les plus chaleureux aux anglais et autrichiens; Vandervelde; appuie;
+40 adopté; Van Kol; cinquième commission; politique coloniale; lui-même rapporteur; question primordiale; contre
 1:11 la politique coloniale capitaliste; vœu que dans tous les
 Die congrès nationaux; qu'on organise le prolétariat colonial;
 1 impérialisme et socialisme; flotte et militarisme; conflits
@@ -2703,9 +2574,7 @@ nent n'a pas de querelle avec la classe ouvrière anglaise; à
 
 qu'elle se souvient que dans les temps de trouble et de
 
-révolution sur le continent, c'est en Angleterre que vien-
-
-nent les réfugiés politiques de l'Europe; car c'est qu'ils
+révolution sur le continent, c'est en Angleterre que viennent les réfugiés politiques de l'Europe; car c'est qu'ils
 trouvent le meilleur asile; ainsi donc, comme socialistes
 anglais, nous ne craignons pas de nous rencontrer avec les
 socialistes du continent; nous savons que ce sont des
@@ -2740,22 +2609,20 @@ Soins, nous avons répondu: eh bien, si vous voulez faire
 408 catalogue analytique sommaire
 te SA travailler la classe ouvrière, qu'on la fasse travailler chez
 ‘Me nous! expansion coloniale, cela veut dire: l'ouvrier tué sur
-10 les champs de bataille, ou taxé et grevé d'impôts formida-
-bles, afin que les capitalistes qui ont des actions dans les
+10 les champs de bataille, ou taxé et grevé d'impôts formidables, afin que les capitalistes qui ont des actions dans les
 mines d'or aient les plus gros dividendes; vous avez fait
 4 en France la triste expérience de cette expansion; vous
 DE avez un empereur, un Napoléon, qui s'imaginait qu'il
 4; allait conquérir le monde... il a été tellement loin qu'il a
 19 reculer; eh bien, en Angleterre, nous passons par la même
-#8 phase: nous allons trop loin et nous devrons reculer;
+8 phase: nous allons trop loin et nous devrons reculer;
 1} 4 si vous assistiez aux réunions électorales en Angleterre,
 258 vous entendriez presque tous les orateurs chauvins répéter
 1150 ce cliché célèbre: le soleil ne se couche jamais sur les posji 1 sessions de la Grande-Bretagne! eh bien, moi, je dis:ily
 l'E a beaucoup d'endroits, sous le drapeau de la Grande-
 {1100 Bretagne, où le soleil ne luit jamais! Louis Maurice; dire
 14 à aux camarades anglais que dans les Antilles la pensée socia-
-a 1 liste se développe; prolétariat antillais; unanimité de répro-
-bation; anglais et français; tendance à s'entendre de plus
+a 1 liste se développe; prolétariat antillais; unanimité de réprobation; anglais et français; tendance à s'entendre de plus
 1218 en plus; organisation méthodique de classe du prolétariat
 pee tique bourgeoise coloniale stigmatisée; par acclamations;
 À a adopté à l'unanimité par acclamations; Furnémont; deux
@@ -2769,25 +2636,21 @@ Ni: économique qui marquerait le commencement de la fin, la
 Et grande débâcle capitaliste; maintenant cette supposition a
 2% beaucoup perdu de probabilité; mais il devient de plus en
 he: plus probable que ce sera au contraire une vaste crise
-ME 1: politique mondiale qui sonner l'heure de mort du capita-
-lisme; peut-être que notre esclavage sera encore plus long
+ME 1: politique mondiale qui sonner l'heure de mort du capitalisme; peut-être que notre esclavage sera encore plus long
 et plus pénible que nous ne le pensons; Marie Bonnevial;
 
 offre une gerbe de fleurs à Clara Zetkin; petit compliment;
 Zetkin; remerciements; femmes socialistes allemandes; un
 ban au camarade Smith; Rosa Luxemburg; résolution de
 la quatrième commission; texte; trois moyens d'action; la à
-conférence de la Haye; Volkaert; organisation de la jeu-
-nesse en vue d'une propagande antimilitariste; organisation
+conférence de la Haye; Volkaert; organisation de la jeunesse en vue d'une propagande antimilitariste; organisation
 des Jeunes-Gardes belges; Van Kol; seconde partie ajoutée
 à la résolution; tsarisme; peuples polonais et finlandais;.
 les Boers; les Arméniens; adopté par acclamation; Van
 Kol; sixième question; parole à Stoermer, rapporteur de la
 commission; organisation des travailleurs maritimes; ma- Dr:
 rins naviguant; industrie des transports; importance;
-mauvaises conditions du travail; action législative; syndicats et groupes politiques; ou seuls, ou joints aux transports; Octors; marins; dockers et camionneurs; une fédé-
-ration régionale, afin que le parti ouvrier dispose de régi-
-ments bien disciplinés; résolutions de la commission; texte;
+mauvaises conditions du travail; action législative; syndicats et groupes politiques; ou seuls, ou joints aux transports; Octors; marins; dockers et camionneurs; une fédération régionale, afin que le parti ouvrier dispose de régiments bien disciplinés; résolutions de la commission; texte;
 dix revendications immédiates des marins; cinq ajoutées
 pour les travailleurs des transports; Van Kol; aux voix;
 adopté à l'unanimité; septième question, suffrage universel; parole au citoyen Pernerstorfer, rapporteur; Pernerstorfer; résolution de la commission; texte; six paragraphes; Van Kol; aux voix; adopté; parole Vinck,
@@ -2795,8 +2658,7 @@ rapporteur sur la question du socialisme municipal; peu
 de mots; beaucoup de choses; Vinck; application des principes généraux du socialisme à un domaine déterminé de
 l'activité politique; non pas réalisation complète de la
 société collectiviste, mais préparer et faciliter l'avènement
-de cette société; domaine économique et domaine poli-
-tique; résolution de la commission; texte; Congrès international des conseillers municipaux socialistes; bureau
+de cette société; domaine économique et domaine politique; résolution de la commission; texte; Congrès international des conseillers municipaux socialistes; bureau
 international; Terwagne; même secrétariat et bureau international; Vinck; d'accord; ainsi amendée, adoptée à l'unanimité; Van Kol; parole au rapporteur onzième commission, trusts; Wibant; texte du rapport présenté par
 la commission; unanimité; Van Kol; dernier article à
 l'ordre du jour question très grave, grève générale, pas
@@ -2811,8 +2673,7 @@ syndicats; opinion faite; échanger respectivement des
 1. et quelques délégués qui ne représentent pas des syndicats;
 non discutable en ce moment; lorsqu'on veut la bataille, il
 ! rire faut d'abord commencer par former les bataillons qui
-5 pourront y aller; aussi longtemps que le prolétariat ne dis-
-sa posera pas de syndicats fortement organisés et nombreux,
+5 pourront y aller; aussi longtemps que le prolétariat ne dissa posera pas de syndicats fortement organisés et nombreux,
 à il ne sera souhaitable que dans l'intérêt de la bourgeoisie
 IE: qu'on déclare la grève générale, parce que cette grève
 générale n'aurait qu'une conséquence, ce serait de livrer le
@@ -2840,8 +2701,7 @@ JE la manière dont la corde soutient le pendu... nous voulons
 1128 savoir si les représentants du prolétariat sont pour ou
 
 contre l'organisation de la grève générale! moralement le
-droit de considérer que je représentais le prolétariat syndiqué de ce pays tout entier; dans tous ses Congrès, natio-
-naux et internationaux, organisation de la grève générale
+droit de considérer que je représentais le prolétariat syndiqué de ce pays tout entier; dans tous ses Congrès, nationaux et internationaux, organisation de la grève générale
 votée à la quasi unanimité; en 1892, au Congrès national
 des corporations ouvrières françaises, la plupart des guesdistes votèrent la grève générale; depuis, ils ont politi-:
 quement l'occasion de changer de tactique; mais en tant « que syndiqués, ils avaient formulé sur cette question leur
@@ -2883,7 +2743,7 @@ Rte il y aura la dictature impersonnelle de la classe ouvrière;
 reste impersonnelle! aujourd'hui, camarades, dans l'état
 nur de concentration des organisations, de centralisation, la
 AE: É dictature ne serait peut-être pas aussi impersonnelle que
-488 Hit l'on veut bien le dire; nous avons fait une expérience d'une
+Hit l'on veut bien le dire; nous avons fait une expérience d'une
 année qui nous permet d'affirmer que si par exemple le
 RNE Comité général du parti socialiste français avait été investi
 1 de l'action dictatoriale, ce n'est pas dans les rangs de la
@@ -2932,16 +2792,13 @@ Paris; Karl Marx et Frédéric Engels, le Manifeste à
 Communiste, traduction nouvelle par Charles Andler,
 avec les articles de Frédéric Engels dans la Réforme,
 
-La deuxième série complète est en voie d'épui-
-sement; chacune des dernières collections,;
+La deuxième série complète est en voie d'épuisement; chacune des dernières collections,;
 complètes, de cette série cent francs
 
 De la deuxième série nous avons formé des collections incomplètes mais continues:
 
 Collections continues, complètes depuis le douzième,
-cahier, inclus, de la deuxième série, c'est-à-dire compre-
-
-nant les douzième, treizième, quatorzième, quinzième,
+cahier, inclus, de la deuxième série, c'est-à-dire comprenant les douzième, treizième, quatorzième, quinzième,
 et seizième cahiers de la deuxième série;
 collections en nombre restreint, chacune de ces collecse tions vingt-cinq francs
 Le Collections continues, complètes depuis le treizième
@@ -2987,7 +2844,7 @@ il importance médiocre ici pour nous; examinant la formaht K. tion d'une instit
 ï organisations locales, et nous arrêter à les déplorer.
 14: Car nous sommes en droit d'aflirmer que l'institution
 : à Le même durera, parce qu'elle ne vient point du simple
-À: caprice de quelques hommes, parce qu'elle répond à un
+caprice de quelques hommes, parce qu'elle répond à un
 DE mouvement historique réel, celui de la classe ouvrière
 É 52 montant vers la direction de la société, vers la liberté.
 
@@ -2995,8 +2852,7 @@ L'U. P. évoluera; elle achèvera de perdre les caractères \\10)
 que lui a donnés la bourgeoisie; elle s'adaptera mieux à
 qu'aujourd'hui au mode de la vie ouvrière. Comment?
 L'expérience seule nous le montrera, et pour cette évolution
-interviendront un grand nombre de facteurs dont quel-
-ques-uns seulement ont été cités ici. On sait l'état lamentable du Parti socialiste aujourd'hui, sa poursuite d'une à
+interviendront un grand nombre de facteurs dont quelques-uns seulement ont été cités ici. On sait l'état lamentable du Parti socialiste aujourd'hui, sa poursuite d'une à
 unité étroite, pour laquelle les individus les meilleurs
 comme les pires dépensent leurs forces, l'immoralité fla- à
 grante de la presse que lit la classe ouvrière; on sait aussi
@@ -3015,11 +2871,9 @@ lourde. Il faut que, au risque d'y périr, les diverses
 jouent leur rôle; que, au risque de se corrompre, elles
 cherchent à influer sur le développement des autres institutions ouvrières, politiques ou économiques. L'on a dit
 qu'au moment où il a fallu maintenir les principes de justice et de liberté individuelle, les intellectuels sont sortis
-de leur « tour d'ivoire et l'on a conçu de grandes espé-
-rances de leur participation à la vie publique; il ne faudrait
+de leur « tour d'ivoire et l'on a conçu de grandes espérances de leur participation à la vie publique; il ne faudrait
 pas que les U. P. devinssent des tours nouvelles où des
-hommes de la classe ouvrière s'enfermeraient avec des intel-
-lectuels. Qu'au moment de leur naissance, leur vie soit tout
+hommes de la classe ouvrière s'enfermeraient avec des intellectuels. Qu'au moment de leur naissance, leur vie soit tout
 intérieure, c'est nécessaire; mais, quand elles sont grandissantes, elles doivent témoigner de leur force en intervenant partout où il faut maintenir les principes de justice
 et de liberté, elles doivent avoir une vie extérieure; sans
 quoi, elles ne mériteraient aucun intérêt.
@@ -3044,8 +2898,7 @@ es aboutirait, soit à une centralisation mauvaise dont Paris
 A serait sans utilité. Ce qui semble devoir se faire, ce sont
 5 des fédérations régionales (dont une pour le département
 
-En: de la Seine); on conçoit les U. P. de villes voisines s'unis-
-sant utilement, travaillant ensemble à des fondations
+En: de la Seine); on conçoit les U. P. de villes voisines s'unissant utilement, travaillant ensemble à des fondations
 Ke. Œd'U. P. dans les centres intermédiaires, organisant des
 À tournées dans les campagnes, se prêtant leurs conférenciers,
 
@@ -3058,9 +2911,7 @@ des services, c'est la Société des Universités Populaires.
 
 d. Elle s'est fondée au moment où la bourgeoisie s'était rapLà prochée de la classe ouvrière, et elle n'a réuni que des
 
-1 4 individualités bourgeoises; elle ne doit donc point inter-
-
-venir directement dans la conduite des U. P., lesquelles
+1 4 individualités bourgeoises; elle ne doit donc point intervenir directement dans la conduite des U. P., lesquelles
 
 4 sont ouvrières. Mais précisément parce qu'elle réunit des
 
@@ -3072,16 +2923,12 @@ jouer, vis-à-vis de l'ensemble des U. P., le rôle que j'aiattri-
 
 1 bué aux intellectuels isolés vis-à-vis de chaque U. P.: un
 
-Que la Société des U. P., sans prétendre à aucune direc-
-
-pre tion précise et immédiate, aide les U. P. de toutes les
+Que la Société des U. P., sans prétendre à aucune direcpre tion précise et immédiate, aide les U. P. de toutes les
 
 manières utiles: qu'elle réunisse les forces intellectuelles
 pour les faire pénétrer dans la classe ouvrière, tout en
 
-Si laissant celle-ci maîtresse de ses destinées et de ses insti-
-
-tutions. Voilà ce qu'elle peut et doit faire, sans réunir
+Si laissant celle-ci maîtresse de ses destinées et de ses institutions. Voilà ce qu'elle peut et doit faire, sans réunir
 autour d'elle, étroitement, organiquement, les U. P. institutions ouvrières.
 
 Quant aux liens qui pourront et devront exister entre
@@ -3151,17 +2998,14 @@ teurs européennes réelles. Quand un philologue fait une
 leçon d'enseignement supérieur sur un texte ancien, il ne
 s'agit absolument que de reconstituer et d'interpréter, le (54
 plus exactement que l'on pourra, l'ancien texte réel. Enfin
-quand un philosophe, historien, fait un cours d'enseigne-
-ment supérieur sur la philosophie d'Épicure, il ne s'agit,
+quand un philosophe, historien, fait un cours d'enseignement supérieur sur la philosophie d'Épicure, il ne s'agit,
 absolument, que de reconstituer et d'interpréter, le plus
 exactement que l'on pourra, la philosophie réelle d'Épicure. à
 C'est aux élèves à s'être mis d'eux-mêmes et d'avance en
 mesure d'écouter ces cours. Il faut qu'ils aient d'avance
-appris la technique, le vocabulaire, la géologie, la cosmo-
-graphie, la physique et la chimie générale, assez d'histoire
+appris la technique, le vocabulaire, la géologie, la cosmographie, la physique et la chimie générale, assez d'histoire
 naturelle, assez d'histoire. Il faut qu'ils aient appris la ta
-grammaire, le vocabulaire, la métrique. Il faut qu'ils sa-
-chent le grec, et au moins un peu l'histoire de la philosophie
+grammaire, le vocabulaire, la métrique. Il faut qu'ils sachent le grec, et au moins un peu l'histoire de la philosophie
 Entendons-nous, et ne laissons pas prétexte à la parodie. L'enseignement supérieur n'est pas celui qui ferait
 exprès d'être inintelligible à son auditoire. Il ne méprise
 pas ses élèves. IL s'efforce de se faire écouter, de se faire
@@ -3184,8 +3028,7 @@ des citoyens.
 Nous savons que la distinction que nous voulons établir
 
 ; est schématique. Mais nous ne croyons pas qu'elle en soit
-moins profonde. Nous savons que de l'enseignement priRE maire à l'enseignement supérieur, en passant par l'ensei-
-gnement secondaire, de l'alphabet au laboratoire, et de
+moins profonde. Nous savons que de l'enseignement priRE maire à l'enseignement supérieur, en passant par l'enseignement secondaire, de l'alphabet au laboratoire, et de
 à l'instituteur au professeur, s'étagent les innombrables
 D. nuances de l'art et de la vie. Mais nous croyons aussi que
 2 lapparente continuité, que la continuité organique réelle
@@ -3213,30 +3056,25 @@ seience. égard aux fonctions de la connaissance, il ne
 Je crois que l'on avancerait beaucoup vers la solution de
 problèmes importants si l'on introduisait dans la recherche
 4 la nouvelle considération de l'enseignement supérieur et de
-; l'enseignement primaire ainsi distingués, si on se deman-
-dait à chaque instant ce qui dans l'enseignement est fait
+; l'enseignement primaire ainsi distingués, si on se demandait à chaque instant ce qui dans l'enseignement est fait
 pour l'élève, et ce qui est fait pour l'objet de la science et
 pour l'objet de la philosophie. Les deux intentions se comfe battent souvent. L'Université de l'État, dont quelques radiKe caux veulent nous faire un monopole infaillible, et qui
 102 ressemble tant à l'Église d'État, a beaucoup retardé, mir
 
 coup faussé le passage de l'enseignement primaire à l'ensei-:
 gnement supérieur en instituant des examens et concours
-tardifs, comme l'agrégation. Si les Facultés et l'Ecole nor-
-male réussissent assez souvent à donner de bons résultats, dE
+tardifs, comme l'agrégation. Si les Facultés et l'Ecole normale réussissent assez souvent à donner de bons résultats, dE
 à former des esprits libres, c'est que la plupart des profes- dre
 seurs et maîtres de conférences réagissent tant qu'ils
 peuvent contre l'institution, réduisent tant qu'ils peuvent le
-bachotage, introduisent tant qu'ils peuvent le véritable tra-
-vail de lettres, de science, de philosophie.
-Beaucoup de problèmes seraient éclairés si l'on commen-
-çait par se demander expressément ce que l'on veut faire
+bachotage, introduisent tant qu'ils peuvent le véritable travail de lettres, de science, de philosophie.
+Beaucoup de problèmes seraient éclairés si l'on commençait par se demander expressément ce que l'on veut faire
 pour l'élève et ce que l'on veut faire pour l'objet: ainsi
 l'organisation de l'enseignement primaire, laïque; l'élimination de l'enseignement congréganiste; la composition
 des programmes; la succession des études; le monopole
 universitaire; la succession des examens et concours; le
 fédéralisme universitaire; l'enseignement littéraire et l'enseignement scientifique; l'enseignement classique et l'enseignement romantique; l'enseignement par l'antique et
-l'enseignement par le moderne; l'enseignement par le fran-
-çais et l'enseignement par les étrangers; l'enseignement
+l'enseignement par le moderne; l'enseignement par le français et l'enseignement par les étrangers; l'enseignement
 par les maîtres, et l'enseignement par les camarades, et
 l'enseignement' par les amis, et l'enseignement par soimême; l'enseignement par l'émulation et l'enseignement
 sans émulation; les méthodes; l'utilisation ou la suppression des grandes Écoles militaires et universitaires; la
@@ -3260,8 +3098,7 @@ A de la pauvreté. Ils en savent, en un sens, autant que leurs
 à 10 monde et le réel s'ils ont connu eux-mêmes l'amour et
 0 à Dans les écoles primaires l'instituteur a sur l'élève cet
 (17 2 avantage que son avance de savoir est doublée, autorisée
-A par une avance de vie. Dans l'université populaire l'insti-
-pas À tuteur, le professeur a l'avance de savoir, mais il n'a plus
+A par une avance de vie. Dans l'université populaire l'instipas À tuteur, le professeur a l'avance de savoir, mais il n'a plus
 (Si Pavance de vie. Même il peut avoir un certain retard de
 ki] Eur vie. L'ouvrier et le paysan, s'ils ont été plus malheureux,
 plus pauvres, peuvent avoir une connaissance plus âpre,
@@ -3274,7 +3111,7 @@ non supérieur, des difficultés propres.
 dans la recherche la distinction de l'enseignement primaire
 14 a et de l'enseignement supérieur, car on doit considérer
 {4 beaucoup de questions, au moins en partie, sous l'aspect
-#81 de l'enseignement: la presse, les journaux, cahiers et
+81 de l'enseignement: la presse, les journaux, cahiers et
 ; 1 152 revues; les romans feuilletons; les annonces; les polé-
 À DE miques; le théâtre; les campagnes électorales; les livres;
 ici 54) la politique; les affiches.
@@ -3287,14 +3124,12 @@ avons défini les mots, que nos cahiers font de l'enseigneOR ment supérieur. Qu
 ne appartient à l'événement de le dire. Mais telles sont nos
 
 intentions. Nous tâchons de faire pour la préparation de
-la révolution sociale, au sens où nous l'entendons, exacte-
-ment ce que l'enseignement supérieur fait pour l'orographie
+la révolution sociale, au sens où nous l'entendons, exactement ce que l'enseignement supérieur fait pour l'orographie
 de l'Europe, le texte ancien, ou la philosophie d'Épicure.
 Nous publions vraiment ce que nous croyons la vérité,
 sans faveur et sans défaveur, sans accommodation, facilité,
 ni agrément.
-Nous croyons qu'il est indispensable que cet enseigne-
-ment supérieur soit produit quelque part. Dans la crois-,
+Nous croyons qu'il est indispensable que cet enseignement supérieur soit produit quelque part. Dans la crois-,
 sante mêlée des mensonges démagogiques, il est indispen-!
 sable qu'un périodique publie librement tout ce qu'il peut
 de vérité libre, sans aucun souci de partialité, sans aucun
@@ -3334,7 +3169,7 @@ du même cahier, neuf exemplaires sans couverture;
 408 seront vendus l'un cinq francs
 1 20 Troisième cahier de la troisième série, un cahier
 : AS jaune de 72 pages, bon à tirer du samedi 26 octobre
-4 Beaucoup d'obscurités sont jetées sur la question du do-
+Beaucoup d'obscurités sont jetées sur la question du do-
 : maine ecclésiastique par suite de l'habitude que l'on a
 prise de le confondre avec le domaine des particuliers; et
 cette confusion tient à l'emploi de la fiction de la personne
@@ -3377,7 +3212,7 @@ reproduire sous cette forme: car je n'ai jamais considéré
 l'article de journal comme une œuvre hâtive et superf-
 - cielle; et j'y mets, par respect pour le prolétariat qui lit
 (SE les journaux socialistes, toute ma conscience d'écrivain.
-54 Je n'ai pas besoin d'avertir qu'ils ne prétendent pas épui-
+Je n'ai pas besoin d'avertir qu'ils ne prétendent pas épui-
 {2 Ne ser les sujets qu'ils traitent. Ils ne sont, évidemment, qu'un
 PIDR fragment, ou plutôt une préparation d'une œuvre plus
 FER 4 vaste, plus dogmatique et plus documentée, où je voudrais
@@ -3410,8 +3245,7 @@ groupés autour des Cahiers de la Quinzaine.
 
 Préface, république et socialisme, datée du 13 oc-
 Il y a onze ans, au moment où la démocratie socialiste A
-allemande élaborait son programme, le projet de pro-
-gramme qui devait être bientôt adopté à Erfurt fut soumis He.
+allemande élaborait son programme, le projet de programme qui devait être bientôt adopté à Erfurt fut soumis He.
 à Engels, l'ami survivant de Marx. Engels fit de graves
 trouvait timide, inconsistante et inefficace. On parle, disait- 2174
 il, de suffrage universel direct, de referendum et d'initia- dr.
@@ -3430,8 +3264,7 @@ publie la revue de Kautsky, la Neue Zeit: #4
 rités révolutionnaires; paroles de Liebknecht; Liebknecht et la tactique; « élargir, non resserrer le
 socialisme et les privilégiés; les raisons de majorité
 grève générale et révolution;
-De la propriété individuelle; les radicaux et la pro-
-priété individuelle; propriété individuelle et code bour- a
+De la propriété individuelle; les radicaux et la propriété individuelle; propriété individuelle et code bour- a
 geois; la propriété individuelle et l'impôt; la propriété
 individuelle et le droit successoral; la Révolution fran-
 
@@ -3617,12 +3450,9 @@ mence un nouvel apprentissage, l'apprentissage de la
 réalité. Quand ensuite il continue son métier, tout le:
 monde sait qu'il faut qu'il se rafraîchisse perpétuellement
 lesprit. On aura beau avoir été reçu premier au brevet
-supérieur; on aura beau avoir amplement passé l'agré-
-gation; même on aura beau avoir scrupuleusement pré-
-paré ses programmes: celui qui vivrait toute sa vie sur sa
+supérieur; on aura beau avoir amplement passé l'agrégation; même on aura beau avoir scrupuleusement préparé ses programmes: celui qui vivrait toute sa vie sur sa
 première préparation professionnelle, celui qui referait
-perpétuellement les mêmes leçons, qui resservirait perpé-
-tuellement les mêmes cours, les mêmes notes, quand même
+perpétuellement les mêmes leçons, qui resservirait perpétuellement les mêmes cours, les mêmes notes, quand même
 ces cours à l'origine auraient été les cours des meilleurs
 maîtres, celui-là ferait bientôt des leçons de plus en plus
 C'est la condition même et la loi de la liberté que l'esprit
@@ -3640,8 +3470,7 @@ Je vais plus loin: n'y aurait-il pas quelque orgueil, —
 
 venu du catholicisme? — à nous imaginer que nous
 . pouvons enseigner le prochain sans commencer par nous
-enseigner nous-mêmes, cultiver le voisin sans avoir comx mencé par nous cultiver nous-mêmes, apprendre au concitoyen sans avoir commencé par nous avoir appris à nous-
-mêmes. C'est une illusion dangereuse que de croire que
+enseigner nous-mêmes, cultiver le voisin sans avoir comx mencé par nous cultiver nous-mêmes, apprendre au concitoyen sans avoir commencé par nous avoir appris à nousmêmes. C'est une illusion dangereuse que de croire que
 l'on peut publier sans recevoir, écrire sans lire, parler
 sans écouter, produire sans se nourrir, donner de soi sans
 Tout ce que nous savons, au contraire, de biologie et en
@@ -3729,8 +3558,7 @@ nous laissons aux bourgeois tout le travail supérieur de
 l'humanité, ce travail sera fait bourgeoisement, c'est-à-dire
 mal, nous n'aurons gardé pour nous qu'un travail décaF pité. L'intérêt commun de l'humanité laborieuse et de
 É l'opérariat humain exige au contraire que ce soient les
-socialistes qui fassent, tant qu'ils peuvent, le travail supé-
-rieur de l'humanité.
+socialistes qui fassent, tant qu'ils peuvent, le travail supérieur de l'humanité.
 : Il faut donc justement que ce soit nous qui lisions les
 documents, les études et contributions, les œuvres qui
 à ennuieraient les paysans et les ouvriers. Si les seuls
@@ -3740,15 +3568,12 @@ rien de ce qu'il y a de mieux dans l'humanité ne passe aux
 paysans, aux ouvriers. Si nous lisons, nous, il en passera
 toujours quelque bien. Ne croyons pas que la seule trans-
 ; cription, le seul décalque des connaissances ait des
-résultats. Ayons l'esprit plus libre. Il n'est pas indispensable que la connaissance reçue ait son application immé-
-diate. La nourriture de l'esprit est à plus longue échéance.
+résultats. Ayons l'esprit plus libre. Il n'est pas indispensable que la connaissance reçue ait son application immédiate. La nourriture de l'esprit est à plus longue échéance.
 Elle est aussi à élaboration plus souple. Il ne s'agit pas
 qu'on reçoive en son esprit des connaissances d'art, de philosophie ou de science, et qu'on les transvase, toutes crues,
-dans l'esprit du paysan. Ni les opérations de la vie corporelle, ni à plus forte raison les opérations de la vie men-
-tale ne sont aussi grossières. Un élément reçu ne ressortira,
+dans l'esprit du paysan. Ni les opérations de la vie corporelle, ni à plus forte raison les opérations de la vie mentale ne sont aussi grossières. Un élément reçu ne ressortira,
 
-que dans quinze ans, et quand il ressortira, qui le recon-
-naîtrait? L'esprit l'a décanté, analysé, composé, travaillé,
+que dans quinze ans, et quand il ressortira, qui le reconnaîtrait? L'esprit l'a décanté, analysé, composé, travaillé,
 filtré, parce que l'esprit vit.
 Nous avons par les soins de Léon Deshairs une
 photographie de Tolstoi et Gorki se promenant ensemble à Tasnaia Poliana; cette photographie a été prise
@@ -3758,8 +3583,7 @@ reproduire à trois cents exemplaires; nous la vendons
 Sixième cahier de la troisième série, un cahier jaune
 de 72 pages, bon à tirer du samedi 28 décembre 1901;
 un franc
-Jean HuGues.— La Grève, — trois actes, pièce repré-
-sentée pour la première fois le samedi 3 novembre 1900,
+Jean HuGues.— La Grève, — trois actes, pièce représentée pour la première fois le samedi 3 novembre 1900,
 sur la scène de l'Émancipation, Université populaire du
 quinzième arrondissement, datée de Paris, août 1900;
 les rôles ont tous été tenus par des ouvriers; dédiée
@@ -3844,9 +3668,7 @@ BERNARD-LAZARE. — ZL'oppression des Juifs dans
 
 l'Europe orientale, — les Juifs en Roumanie, — daté
 
-Il y a seulement trente-cinq ans que, dans l'Europe occi-
-
-dentale, les Juifs ont été émancipés complètement. Si, la
+Il y a seulement trente-cinq ans que, dans l'Europe occidentale, les Juifs ont été émancipés complètement. Si, la
 
 première, en France, l'Assemblée constituante avait, le
 27 septembre 1791, proclamé cette libération et fait un
@@ -3897,9 +3719,7 @@ dominicains, les Juifs avaient trouvé des défenseurs, des
 apologistes même, et le mouvement qui devait aboutir, à
 la veille de la Révolution, aux écrits de Mirabeau et de
 Grégoire en faveur de l'émancipation des Juifs, avait de
-Pendant la première moitié du dix-neuvième siècle, l'an115
-
-tisémitisme doctrinaire se réveilla. Le Juif libéré devint
+Pendant la première moitié du dix-neuvième siècle, l'antisémitisme doctrinaire se réveilla. Le Juif libéré devint
 pour l'Église le symbole de sa défaite, elle affecta de l'en
 tenir pour responsable, alors que son rôle dans la bataille
 avait été nul, et c'est par lui, qu'à plusieurs reprises, elle
@@ -3914,9 +3734,7 @@ aux causes économiques, alors qu'elles les dominaient jadis,
 
 à vivace des préjugés vieux de deux mille ans, peuvent
 
-exaspérer les raisons tirées de la concurrence ou du pro-
-
-tectionnisme chauvin. Seules, elles seraient capables de
+exaspérer les raisons tirées de la concurrence ou du protectionnisme chauvin. Seules, elles seraient capables de
 . faire aboutir l'antisémitisme théorique en le traduisant en
 
 loi. L'Europe occidentale verra-t-elle un tel recul? Il est
@@ -3931,9 +3749,7 @@ l'exemple de ce que peut produire le système quand il est
 
 rigoureusement appliqué. Dans deux pays de l'Europe;
 
-orientale, le droit en est encore à ce stade de son dévelop-
-
-pement où on ne le sépare pas d'une religion déterminée; à
+orientale, le droit en est encore à ce stade de son développement où on ne le sépare pas d'une religion déterminée; à
 
 dans deux pays, le Juif est placé encore sous le régime des
 
@@ -3978,8 +3794,7 @@ personnages sont habitués à ne jamais vivre que pour la
 représentation; singes et perroquets se meuvent au gré
 du caprice de l'imagination de leur créateur, qui souvent,
 pour se donner encore plus de liberté, en font des
-Ici tout est sincère et véridique; point de tirades corné-
-liennes débitées par des guignols. Jean Coste est trop
+Ici tout est sincère et véridique; point de tirades cornéliennes débitées par des guignols. Jean Coste est trop
 pauvre et trop malheureux pour pouvoir être un stoïcien
 et un révolté, ce luxe est permis seulement aux riches: (1)
 tous les jours ne voyons-nous pas avec quelle simplicité
@@ -4002,8 +3817,7 @@ mondaine comprendront mal. La civilisation organise tout
 nous-mêmes; mais à l'épreuve de la pauvreté, tout cet
 échafaudage tombe en miettes; le premier contact de la
 misère nous ouvre la mystérieuse cachette de l'âme; si
-Rousseau a été si pénétrant et a découvert ce qu'il appe-
-lait la nature, c'est que son génie avait été aiguisé par une
+Rousseau a été si pénétrant et a découvert ce qu'il appelait la nature, c'est que son génie avait été aiguisé par une
 à vie toujours voisine de la misère. Que d'hommes de talent
 se sont éteints quand ils ont participé aux mensonges
 conventionnels de la société bourgeoise?
@@ -4029,8 +3843,7 @@ plus fortement trempés, et l'expérience nous apprend que
 si certaines voies se descendent rapidement, il n'est pas
 aisé de les remonter. Peu de gens croient à la possibilité de
 relever la femme tombée; chez elle l'humiliation a fini par
-éteindre toute volonté, elle est comme un automate. Peut-
-être Jean rencontrera-t-il un aide avant que la force lui
+éteindre toute volonté, elle est comme un automate. Peutêtre Jean rencontrera-t-il un aide avant que la force lui
 
 manque: le hasard est grand maître en ce monde: il y a à
 des braves gens, malheureusement leur puissance est le
@@ -4078,13 +3891,11 @@ révoltent pas. Ils n'ont pas la fierté stoïcienne; ils ne sont
 la révolte, ce luxe n'est permis qu'aux riches. Les seuls
 guesdistes peuvent s'imaginer, inertes, que de l'excès de la
 4 misère, de l'excès de la dépression, peut sortir le sursaut
-- de révolte. Les seuls guesdistes peuvent s'imaginer, reli-
-gieux, que de l'excès de l'inanition peut sortir, par miracle,
+- de révolte. Les seuls guesdistes peuvent s'imaginer, religieux, que de l'excès de l'inanition peut sortir, par miracle,
 de la réparation.
 Je ne sais si on entre bien dans le sens des œuvres en
 Le opposant les héros obscurs aux héros cornéliens, en les
-4 eomparant aux héros cornéliens, en mesurant leur supé-
-riorite. Toutes les misères humaines exigent du courage,
+4 eomparant aux héros cornéliens, en mesurant leur supériorite. Toutes les misères humaines exigent du courage,
 a. et je ne serais pas étonné que dans la pensée des grands
 poètes classiques les grands personnages fussent les repré-
 5 sentants éminents de toute l'humanité. Ainsi Polyeucte
@@ -4098,8 +3909,7 @@ a causes de matière sociale, qu'ils sont éminents. Ils ne sont:
 pas d'une classe éminente, mais ils sont toute l'humanité
 considérée sur un plan éminent, comme le roi représentait
 De le royaume. À
-En ce sens les grands stoïciens et les grands révoltés re-
-présenteraient éminemment, ou tragiquement, les modestes
+En ce sens les grands stoïciens et les grands révoltés représenteraient éminemment, ou tragiquement, les modestes
 et les humbles. S'il y avait contrariété des personnages
 à cornéliens aux hommes ordinaires, il nous serait impos-?
 sible de nous retrouver en eux. Mais parce qu'ils sont nos
@@ -4233,7 +4043,7 @@ chœurs? Mais je me défiais de moi-même, et j'avais une
 13 ma vie, qui commençait, au service d'une cause mau-
 ï vaise, quand mon désir était de la rendre utile aux
 J'écrivis à Tolstoy. me répondit le 4 octobre 1887. —
-2 Sa lettre n'a pas besoin de commentaires. Elle reflète la
+Sa lettre n'a pas besoin de commentaires. Elle reflète la
 3 tranquille et limpide lumière de son àme, — cette âme où
 à tout est raison et charité. Elle est écrite avec la bonhomie
 évangélique de cet artiste, insoucieux du style, uniquement
@@ -4244,8 +4054,7 @@ il cause.
 Je tiens seulement à dire combien je me sens aujour-
 : d'hui, — bien plus encore qu'au moment où je reçus
 cette lettre, — pleinement d'accord avec sa pensée. Si je
-regrette que Tolstoy se soit trompé souvent dans l'ap-
-préciation de tel ou tel grand homme, comme Beethoven
+regrette que Tolstoy se soit trompé souvent dans l'appréciation de tel ou tel grand homme, comme Beethoven
 6 ou Wagner, qu'il a le tort de juger sans les connaître,
 ou du moins sans les connaître suffisamment, — si je re-:
 ”. grette aussi qu'il ait jugé de l'art français d'après une
@@ -4266,8 +4075,7 @@ pensions, de ses décorations, de sa gloire officielle. Je lappelle, au node la 
 de parasites qui vivent honteusement à ses dépens. L'art
 ne doit pas être une carrière, il doit être une vocation. «
 vocation ne peut être connue et prouvée que par le sacrifice
-que fait le savant et l'artiste de son repos et de son bien-
-être pour suivre sa vocation. » — dans la civilisation
+que fait le savant et l'artiste de son repos et de son bienêtre pour suivre sa vocation. » — dans la civilisation
 actuelle, il n'y a que les artistes vraiment grands, qui
 fassent de réels sacrifices; ils sont les seuls qui se heurtent
 à de rudes obstacles, parce qu'ils sont les seuls qui se
@@ -4304,8 +4112,7 @@ de tableaux, de sons d'instruments de musique, d'extraits
 de sensations. — Combien de vrais artistes ont déjà,
 doivent encore, pour ne pas vendre leur art, vivre d'un
 autre métier intellectuel à côté de leur art! Et combien ce
-métier intellectuel est plus gênant pour l'imagination créa-
-trice, qu'un travail manuel, qui fatigue le corps, mais laisse
+métier intellectuel est plus gênant pour l'imagination créatrice, qu'un travail manuel, qui fatigue le corps, mais laisse
 4 l'esprit plus libre!
 Mais la beauté du travail artistique n'y perdra-t-elle point?
 L'art n'est-il pas exclusif? Accepte-t-il de se partager avec
@@ -4324,8 +4131,7 @@ aux talents, nous n'en avons que trop. Notre civilisation
 : pue de talents, d'ailleurs parfaitement inutiles, voire parfaitement nuisibles. Quand la plus grande partie d'entre
 eux disparaîtrait, quand il y aurait moins de peintres,
 moins de musiciens, moins d'écrivains, moins de critiques,
-moins de pianistes, moins de cabotins, et moins de journa-
-listes, — ce ne serait pas un grand mal, mais un très grand »
+moins de pianistes, moins de cabotins, et moins de journalistes, — ce ne serait pas un grand mal, mais un très grand »
 bonheur. Et même quand l'art y perdrait en correction, en
 style, en perfection technique, je ne m'en soucierais guère
 
@@ -4365,10 +4171,8 @@ d'envieux plus mangeurs que la foule de nos démagogues,
 Il est permis d'être antichrétien, et je crois bien qu'en un
 sens nous sommes inchrétiens. Mais c'est par un singulier
 malentendu, criminel s'il est volontaire, et singulièrement
-plat s'il est inconscient, c'est par un contresens inouï, redou-
-table en tout cas, voulu ou non voulu, et bête surtout, que
-nos antimilitaristes militaristes, nos anticléricaux clérica-
-listes, nos démocrates autoritaires vont chercher dans
+plat s'il est inconscient, c'est par un contresens inouï, redoutable en tout cas, voulu ou non voulu, et bête surtout, que
+nos antimilitaristes militaristes, nos anticléricaux cléricalistes, nos démocrates autoritaires vont chercher dans
 Tolstoi des excitations qui n'y sont pas, vont voler dans
 Tolstoi des encouragements qui ne sont pas faits pour eux, En
 des exhortations chrétiennes, et qui ne sont pas faites pour à
@@ -4386,8 +4190,7 @@ de sa paix première, antérieure, savante et naïve, désa- RS.
 busée mais pleine et grosse d'espoir, si Tolstoi vivait à
 Paris, allait se promener au Luxembourg, avait affaire à la
 - Chambre et au Sénat, comme il aurait affaire à Antoine et
-à Mounet-Sully, d'abord nous saurions ce qu'est un chré-
-tien véritable, et nous saurions que c'est beaucoup plus fort
+à Mounet-Sully, d'abord nous saurions ce qu'est un chrétien véritable, et nous saurions que c'est beaucoup plus fort
 que monseigneur l'archevêque de Paris, et nous saurions
 que ne se mange pas aussi facilement dans les banquets à
 gras des vendredis redevenus saints, mais il n'aurait pas
@@ -4448,8 +4251,7 @@ les Universités Populaires, 1900-1901, I. — Paris
 et banlieue;
 Les notices que nous publions dans ce Bulletin ont été À
 rédigées par les secrétaires des U. P. qu'elles concernent
-elles constituent par leur seule réunion un document pré-
-cieux sur le développement général des U. P. et sur la vie
+elles constituent par leur seule réunion un document précieux sur le développement général des U. P. et sur la vie
 propre de chacune d'elles.
 Après l'inauguration brillante de la Coopération des
 Idées, quand on vit surgir spontanément dans les divers
@@ -4463,8 +4265,7 @@ gens à qui la peur pour un instant donna l'illusion d'être
 généreux se retirent, ferment leur bourse, remettent leur +4
 espoir dans la platitude qui décourage l'insolence: on
 se passe d'eux. Les U. P. ont continué de se multiplier à
-Paris, en province; elles ont duré et elles vivent. A l'in-
-verse des patronages, que créent et dirigent des bourgeois
+Paris, en province; elles ont duré et elles vivent. A l'inverse des patronages, que créent et dirigent des bourgeois
 avisés ou bienfaisants, beaucoup doivent leur naissance à
 des ouvriers qui sollicitent les intellectuels de venir parmi
 eux et d'y prendre la parole. Le besoin senti crée ainsi
@@ -4489,8 +4290,7 @@ Mais ces groupements multiples, dont chacun jouit de sa
 pleine indépendance, qui semblent s'ignorer, ne sont pas,
 à dire vrai, étrangers les uns aux autres; tous se sentent
 liés par un lien qui, pour être moral, n'en est pas moins
-fort. Les U. P. de Paris et de la banlieue ne sont pas fédé-
-rées, rattachées à un même organe central qui coordonnerait leur action; mais elles se connaissent et librement
+fort. Les U. P. de Paris et de la banlieue ne sont pas fédérées, rattachées à un même organe central qui coordonnerait leur action; mais elles se connaissent et librement
 au siège de la société des U. P., mettent en commun leurs
 expériences, discutent leurs intérêts, parfois prennent des
 décisions, organisent une fête comme celle que nous donnons le 2 mars en l'honneur de Victor Hugo. Par tout le
@@ -4500,8 +4300,7 @@ désespérer; les faits immatériels échappent à la mesure;
 chacun a la conscience de pouvoir bien peu, mais le
 
 grand effort qu'il accomplit, le petit résultat qu'il obtient
-se multiplie par des millions d'efforts et de résultats sem-
-blables: l'avenir fera le total du bien réalisé.
+se multiplie par des millions d'efforts et de résultats semblables: l'avenir fera le total du bien réalisé.
 L'U. P. n'est pas figée dans une forme invariable, elle se
 modifie selon les besoins auxquels elle doit s'adapter, elle
 est quelque chose de souple, de mobile et de vivant; mais,;
@@ -4509,8 +4308,7 @@ quelque forme qu'elle revête, un même esprit la crée et;
 l'anime. Si elle vit, si elle résiste aux causes de dissolution.
 qui la menacent, — manque de ressources, sectarisme,
 exploitation par les politiciens, — c'est, comme je l'ai dit;
-déjà, qu'elle n'est pas seulement « l'extension universi-
-taire une concurrence aux cours d'adultes, des pro
+déjà, qu'elle n'est pas seulement « l'extension universitaire une concurrence aux cours d'adultes, des pro
 grammes, des cours, des discours et des examens; c'est?
 qu'elle marque un moment de l'évolution normale de notre
 démocratie, c'est que, dans la pensée de l'ouvrier, elle doit
@@ -4521,8 +4319,7 @@ de l'attente et du rêve pour entrer dans celle de la pensée
 claire et de l'action positive. Les travailleurs appellent à
 ; eux ceux qui savent, parce qu'ils pressentent dans la
 science une force dont ils ne peuvent se passer. Les intel.
-lectuels répondent à cet appel. Ils vont au peuple sincè-
-rement, sans arrière-pensée, parce que, eux aussi, Ont
+lectuels répondent à cet appel. Ils vont au peuple sincèrement, sans arrière-pensée, parce que, eux aussi, Ont
 besoin de lui, parce qu'ils veulent lui confier ce qu'ils ont
 de plus précieux, les biens sans lesquels il ne vaudrait
 - de monstrueux à entretenir de parti-pris, au sein d'une
@@ -4582,20 +4379,16 @@ veulent la science qui permet l'action efficace. D'ailleurs
 ils ne renient ni ne trahissent leur foi ancienne, ils ne à
 renoncent à aucune de leurs espérances, ils passent seulement du rêve à la science et à l'action, de l'utopie à
 l'idéal, s'il est vrai que l'idéal soit l'idée conçue dans son
-rapport au possible, c'est-à-dire aux conditions qui per-
-mettent de la réaliser.
+rapport au possible, c'est-à-dire aux conditions qui permettent de la réaliser.
 Le peuple ne demande pas aux intellectuels un idéal
 demande une méthode et des moyens d'action. Grande
 serait l'illusion de ceux qui iraient lui parler du besoin de
 croire et d'espérer: il croit et il espère. Mais il refuse de
 transporter désormais ses croyances et ses espérances
-dans l'au-delà des paradis inaccessibles, dont la vaine pro-
-messe a bercé sa misère, alors qu'il désespérait d'y appor-
-ter d'autres remèdes. Sa foi le laisse sur la terre; c'est sur
+dans l'au-delà des paradis inaccessibles, dont la vaine promesse a bercé sa misère, alors qu'il désespérait d'y apporter d'autres remèdes. Sa foi le laisse sur la terre; c'est sur
 la terre qu'il veut agir, c'est la vie présente qu'il veut
 meilleure et il met sa confiance dans les progrès de la
-; science et de la puissance humaines. Il se refuse à une pré-
-tendue unité des esprits, achetée aux dépens du libre
+; science et de la puissance humaines. Il se refuse à une prétendue unité des esprits, achetée aux dépens du libre
 examen et de la raison critique, fondée sur des dogmes qui
 échappant au contrôle de tous nos moyens de connaître ne
 peuvent être que décrétés par une autorité infaillible. IL
@@ -4603,8 +4396,7 @@ sait qu'on sacrifie toutes les libertés dans la liberté de
 penser, et il n'est pas tourmenté par la soif des béatitudes
 éternelles qu'on lui offre généreusement. Habitué à ne À
 devoir qu'à lui-même son pain quotidien, il prend pour
-sa part la tâche qu'aucun Dieu ne s'est encore soucié d'ac-
-complir, la justice dans les rapports des hommes. Pour
+sa part la tâche qu'aucun Dieu ne s'est encore soucié d'accomplir, la justice dans les rapports des hommes. Pour
 accomplir cette tâche, il n'a que faire de théologie, de
 : métaphysique, de foi aveugle, il a besoin d'une intelligence
 lucide et d'une volonté ferme, des méthodes et des connais-

@@ -18,31 +18,25 @@ de si extraordinaire. Et vous me le demandez. Ne vous;
 le demandez plus. Je vais vous le dire. Cette phrase a
 ceci de particulier que les noms de tragédies qui sont è À
 alignés en italiques forment un total de six, et non
-point de sept. C'est ici la revanche des méthodes histo-
-riques. Mon ami, devinant que j'aurais à utiliser ce:
+point de sept. C'est ici la revanche des méthodes historiques. Mon ami, devinant que j'aurais à utiliser ce:
 renseignement, m'avait de lui-même envoyé à mon labo- à
 ratoire au dernier moment une carte postale ainsi
 énoncée: « Leconte de Lisle dans la traduction de
-On sait ce que c'est qu'une carte postale. Cette addi-
-tion à six, qui paraît évidente dans une colonne typo- à
-graphique, ne me frappa point dans le désarroi manu-
-scrit d'une carte postale. Comme j'avais la tête pleine
+On sait ce que c'est qu'une carte postale. Cette addition à six, qui paraît évidente dans une colonne typo- à
+graphique, ne me frappa point dans le désarroi manuscrit d'une carte postale. Comme j'avais la tête pleine
 des sept tragédies de Sophocle, je mis hardiment: Ne
 voici comme on m'écrit qu'il nomme les sept tragédies
-de Sophocle. Et voilà ce que c'est que d'être un orgueil-
-leux, et un mauvais, déjà nommé, qui un jour a parlé
+de Sophocle. Et voilà ce que c'est que d'être un orgueilleux, et un mauvais, déjà nommé, qui un jour a parlé
 È mal contre les méthodes historiques.
 
 La carte de mon ami était toute sage et prudente; il
 ne parlait pas de sept tragédies, lui; mais sachant que
 je travaillais sur Œdipe roi, il avait commencé de
 noter à Oidipous-Roi et il avait tranquillement continué.
-C'est moi qui, la tête pleine de traductions et de transcriptions, et de ce nombre 7, ai tant considéré l'ortho-
-graphe que j'en ai oublié le nombre. J'ai joué au naturel
+C'est moi qui, la tête pleine de traductions et de transcriptions, et de ce nombre 7, ai tant considéré l'orthographe que j'en ai oublié le nombre. J'ai joué au naturel
 cette innocente facétie par laquelle on ne prend plus
 guère aujourd'hui que les enfants au-dessous de dix
-ans et les inspecteurs généraux de l'enseignement supé-
-rieur de l'État: On dit à l'enfant dessus dit, qui peut être
+ans et les inspecteurs généraux de l'enseignement supérieur de l'État: On dit à l'enfant dessus dit, qui peut être
 un inspecteur en chef de l'enseignement général: Mon
 ami, comment prononcez-vous sept et trois font onze?
 Faut-il aspirer, ou faire la liaison? Enfin faut-il prononcer
@@ -58,9 +52,7 @@ Lisle qui prouvaient le plus pour ce que je m'étais mis
 en devoir d'avancer: que lui-même Leconte de Lisle,
 même traducteur, il ne se conforme point jusqu'au bout
 à sa doctrine. Traduire en effet ai Tozyivat par les
-Trakhiniennes, c'est s'acharner à transcrire le commencement du mot, la partie que dans les anciennes gram-
-
-maires on nommait le radical, et c'est traduire, au
+Trakhiniennes, c'est s'acharner à transcrire le commencement du mot, la partie que dans les anciennes grammaires on nommait le radical, et c'est traduire, au
 contraire, traduire tout bonnement et tout uniment la
 fin du mot, la désinence, la terminaison. Aïnsi sa
 méthode le conduit à ce point: qu'il transcrit le mot
@@ -97,8 +89,7 @@ ils ne peuvent le faire qu'en apportant un public à cet
 plus basses le public le plus bête et le plus bas que l'on
 
 ait jamais connu, — de tels hommes ne manquent
-jamais de faire les mijaurées en parlant des prix litté-
-raires, et d'invoquer à ce propos la bien connue dignité
+jamais de faire les mijaurées en parlant des prix littéraires, et d'invoquer à ce propos la bien connue dignité
 de l'art. C'est tout ce qu'ils ont retenu de leur maître et
 de leur père Zola, qui eut un acte de courage inoublia-
 « ble, — civique, — mais qui n'avait atteint des tirages
@@ -112,8 +103,7 @@ l'objet. Quand une compagnie fait de telles désignations, elle justifie son ins
 justifie, elle se prouve entièrement. Elle se justifie d'être.
 Il ne faut pas discuter abstraitement, il ne s'agit pas de
 Savoir en théorie aprioristique si telle ou telle Académie
-vaut mieux ou si ce ne serait pas telle ou telle institu-
-tion. En fait c'est l'institution qui aura le mieux choisi,
+vaut mieux ou si ce ne serait pas telle ou telle institution. En fait c'est l'institution qui aura le mieux choisi,
 et le plus constamment, qui sera la meilleure, et qui
 aura raison. Supposez que la Vie heureuse fasse
 pendant plusieurs années des choix aussi marqués. IL
@@ -126,17 +116,14 @@ J'ajoute que mes renseignements particuliers me permettent d'affirmer que l'admi
 
 l'administration de la récompense consécutive d'une
 discrétion parfaite et de la meilleure bonne tenue.
-C'est un procédé qui a son prix, quand tant d'entre-
-prises et d'institutions officielles courent elles-mêmes
+C'est un procédé qui a son prix, quand tant d'entreprises et d'institutions officielles courent elles-mêmes
 après la réclame et la manifestation. Il ne faut point
-oublier que le commencement de tout ceci a été simple-
-ment que madame de Broutelles avait le Jean- -
+oublier que le commencement de tout ceci a été simplement que madame de Broutelles avait le Jean- -
 Christophe dans l'exemplaire que lui avait prêté un PE.
 ami; que ni Rolland ni nous ses éditeurs n'avons point
 fait même un semblant de démarche. Cette spontanéité
 de celui qui a la charge et la responsabilité de choisir
-et d'attribuer m'enchante. Cette histoire invraisem-
-blable m'enchante comme une histoire du temps passé.
+et d'attribuer m'enchante. Cette histoire invraisemblable m'enchante comme une histoire du temps passé.
 Elle est vraie, pourtant. Et elle est présente. Je ne sais
 pas si elle est unique. Mais je crois bien que bien peu
 de désignations académiques et littéraires pourraient
@@ -159,8 +146,7 @@ cinq mille francs peut représenter douze ou seize mois
 
 de sécurité pour le travail en repos et pour le loisir:
 calme d'un honnête homme et d'un homme qui a fait
-ses preuves qu'il savait travailler, et que par consé-
-quent nous pouvons devoir à ce prix une œuvre de plus
+ses preuves qu'il savait travailler, et que par conséquent nous pouvons devoir à ce prix une œuvre de plus
 ou deux, on se prend à respecter comme il convient
 l'attribution d'un tel prix.
 
@@ -186,9 +172,7 @@ budget que l'on s'est fait.
 Une vraie coquille. — Enfin dans ce même cahier,
 page 88, ligne troisième, un très grand nombre de personnes ont remarqué, au premier coup d'œil, — car les
 coquilles paraissent de préférence en belle place, naissent et prospèrent aux pages qui s'ouvrent d'elles-mêmes
-quand on ouvre le cahier, — que le initial de mili-
-
-taire a été violemment ou insidieusement reporté sur
+quand on ouvre le cahier, — que le initial de militaire a été violemment ou insidieusement reporté sur
 force. On doit penser qu'une aussi grosse coquille ne
 nous aurait point échappé, ni à Payen ni à moi. Eten À
 effet, me reportant au dossier de la fabrication de ce
@@ -196,8 +180,7 @@ cahier, je constate que cette faute n'existait ni en pla- à
 cards, ni en mise, ni en tierce, qu'elle n'existait ainsi À
 à aucun degré, dans aucune des épreuves successives,
 par où nous sommes obligés de passer, qui défont les!
-yeux des misérables fonctionnaires, enfin qu'elle n'exis-
-tait pas dans ce bon à tirer définitif après lequel, toute LE
+yeux des misérables fonctionnaires, enfin qu'elle n'existait pas dans ce bon à tirer définitif après lequel, toute LE
 la cause étant entendue, les machines roulent. Ainsi;
 elle n'existait point au moment où l'irrévocable com- À
 mencer. Je ne veux point rechercher pour établir les
@@ -209,8 +192,7 @@ ce souvenir. On obtient généralement ce silence en;
 
 disant que c'est un accident de tirage.
 Pourtant, et sans chercher à établir de vaines res-;;
-ponsabilités individuelles, je suis bien forcé de m'aper-
-cevoir que cette fois le bénéfice de la faute revient tout
+ponsabilités individuelles, je suis bien forcé de m'apercevoir que cette fois le bénéfice de la faute revient tout
 entière encore au personnel ouvrier. Payen et moi nous;
 nous étions conjurés ici pour donner bon à tirer un
 texte propre. Cette ligne était marquée seulement à
@@ -222,9 +204,7 @@ espacements marqués, au lieu de lire et de revisertoute
 la ligne, comme c'est un principe, une règle, un moyen;
 de contrôle formellement recommandé, prescrit même (re
 
-dans l'art de la typographie. Car une fois que le corri-
-
-geur à touché à une ligne, on n'a plus aucune sécurité
+dans l'art de la typographie. Car une fois que le corrigeur à touché à une ligne, on n'a plus aucune sécurité
 pour aucune partie, pour aucun élément de cette ligne,
 et la ligne tou! entière est sujette à revision.
 
@@ -247,8 +227,7 @@ le ministère de notre métier, par le métier que chacun
 nous faisons.
 
 Ce métier, cet art de typographie, cet art et métier
-entre tous nous donne un exemple, éminent, une repré-
-sentation, et comme un schème, un symbole de l'imperfection originelle et comme essentielle de tout travail
+entre tous nous donne un exemple, éminent, une représentation, et comme un schème, un symbole de l'imperfection originelle et comme essentielle de tout travail
 
 humain. Et comment nous ne parvenons jamais, comment
 
@@ -339,9 +318,7 @@ ces infirmités humaines, si toute la sociologie et toute
 Jhistoire moderne; dans leur obscure et trouble et plus;
 3 « ou moins inconsciente métaphysique, ne reposaient sur
 ce postulat profondément inavoué, que le travail humain A
-7 donne des sécurités hermétiques, des certitudes méta-
-
-physiquement ‘absolues et totales. Par où je vois bien
+7 donne des sécurités hermétiques, des certitudes métaphysiquement ‘absolues et totales. Par où je vois bien
 
 que j'ai tort d'entrer incidemment dans un aussi
 
@@ -365,13 +342,11 @@ que je suis forcé de rappeler que les cahiers étant un
 périodique broché, généralement assez épais, le cahier
 qui tombe chez nos abonnés le samedi matin pour
 le lendemain dimanche est généralement fini d'écrire le ne.
-dimanche précédent, qu'il est généralement fini d'im-
-primer ou pour le moins donné bon à tirer le mardi,
+dimanche précédent, qu'il est généralement fini d'imprimer ou pour le moins donné bon à tirer le mardi,
 comme le portent nos indications de date, qu'il est
 généralement rendu chez le brocheur le mercredi matin,
 et qu'il en part généralement le jeudi soir pour ceux de
-nos abonnés qui demeurent dans les pays les plus éloi-
-gnés. Ce qui revient à dire, une fois de plus, que nous
+nos abonnés qui demeurent dans les pays les plus éloignés. Ce qui revient à dire, une fois de plus, que nous
 sommes des cahiers de la quinzaine, et non pas des: à
 Au demeurant, il faut avouer que le cas du prêtre
 Gapone est très singulier. Mais qu'est-ce qui n'est pas

@@ -90,8 +90,7 @@ V. — l'abattoir du Luxembourg; errant; dénonciations;
 VIE. — Petites cours martiales; l'Opéra; Au mur les godillots; le charnier de Charonne; le puits des Fédérés;
 le compte des morts;
 un cahier blanc de 108 pages, marqué..... deux francs
-Le présent dousième cahier faisant suite à ce précé-
-dent dixième et à ce précédent onzième, et les cahiers
+Le présent dousième cahier faisant suite à ce précédent dixième et à ce précédent onzième, et les cahiers
 rouges de notre collaborateur M. Maxime Vuillaume
 
 aux Cahiers de la Quinzaine
@@ -149,8 +148,7 @@ de France.
 
 quand nous faisions le Père Duchêne
 
-vient-il? Je me rappelle qu'il a quelque peu fait sa mé-
-decine. Je m'explique son uniforme. Tout le mondemat-il pas un uniforme? Gill (1) lui-même, le bon Gill, qui
+vient-il? Je me rappelle qu'il a quelque peu fait sa médecine. Je m'explique son uniforme. Tout le mondemat-il pas un uniforme? Gill (1) lui-même, le bon Gill, qui
 n'est cependant pas belliqueux, est apparu l'autre jour
 
 à notre brasserie de la rue Saint-Séverin, vêtu de pied
@@ -174,9 +172,7 @@ de bruit autour de lui, et qui caracolait aux avantpostes, en soutane et en bott
 
 — Veinard? lui dis-je. Tu n'as pas faim!
 
-Bras dessus bras dessous, nous descendons le boule-
-
-vard. Un bataillon passe, musique en tête, jouant la
+Bras dessus bras dessous, nous descendons le boulevard. Un bataillon passe, musique en tête, jouant la
 Marseillaise. Derrière le commandant, un sergentmajor porte une large couronne. Nous lisons l'inscription, en lettres d'or:
 
 — La République ou la Mort! 210° Bataillon.
@@ -201,7 +197,6 @@ Rue Saint-Antoine, sur le pas des portes, les spectateurs battent des mains. À
 
 Devant nous la colonne se dresse, le génie d'or fleuri
 de banderoles rouges.
-Colonne en fête
 
 La place est noire de monde. Depuis le 24 février,
 cela ne désemplit pas. Tout le jour, c'est un défilé inin-!
@@ -261,8 +256,7 @@ dût jamais finir.
 La République ou la Mort!
 
 A regret, nous nous sommes arrachés à l'enivrant
-spectacle. J'ai rendez-vous, rue du Croissant, avec Humbert. Un projet de journal. Non pas un journal à la vé-
-rité. Le cautionnement nous fait défaut. Maïs une suite
+spectacle. J'ai rendez-vous, rue du Croissant, avec Humbert. Un projet de journal. Non pas un journal à la vérité. Le cautionnement nous fait défaut. Maïs une suite
 de placards quotidiens, dans le genre des placards de
 la Révolution. Marat ou Hébert. L'Ami du Peuple ou
 le Père Duchéne. Le Père Duchêne surtout. Des grandes
@@ -400,8 +394,7 @@ petites feuilles républicaines de la fin de l'Empire. Après la Commune, à laq
 
 (4) Puissant (Gustave), collabora à la Aue.
 
-6) Pilotell (Georges), dessinateur, commissaire spécial à la pré-
-fecture de police sous la Commune. Condamné à mort (contumax).
+6) Pilotell (Georges), dessinateur, commissaire spécial à la préfecture de police sous la Commune. Condamné à mort (contumax).
 
 (6) Passedouet (Auguste), journaliste. Maire du treizième arrondissement. Condamné à la déportation. Mort en Calédonie.
 
@@ -480,7 +473,7 @@ Vallès, Longuet, Sornet, (1) — qui devait être notre
 Désormais, je suis enrôlé. On nous verra côte à côte,
 tous ceux que je viens de nommer, pendant les quinze
 mois qui nous séparent de la Commune, aux manifestations, aux réunions, aux échauffourées, — à l'enterrement de Victor Noir, au 4 septembre, au 31 octobre, au
-22 janvier, — jusqu'à ce qu'enfin, le.16 ventôse an
+22 janvier, — jusqu'à ce qu'enfin, ventôse an
 (6 mars 1871), douze jours avant le 18 mars, le Père
 Duchéne hurle dans Paris, grondant et affolé, sa première Grande Colère.
 
@@ -635,8 +628,7 @@ chez Vallée.
 
 quand nous faisions le Père Duchêne
 
-Ce n'est pas dix mille qu'il nous fallut tirer à nou-
-veau, mais vingt-cinq mille. Les pauvres machines
+Ce n'est pas dix mille qu'il nous fallut tirer à nouveau, mais vingt-cinq mille. Les pauvres machines
 
 Le soir, vers minuit — le deuxième numéro m'était
 pas loin de rouler — les camelots arrêtaient encore les
@@ -667,23 +659,18 @@ Si on ne les met pas en accusation, c'est à soulever les
 réclamations de Jean Hiroux! Combien faudra-t-il tuer de
 patriotes maintenant pour être mis en jugement
 
-C'est le Père Duchène, qui vous le demande, à nos repré-
-sentants du Peuple!
+C'est le Père Duchène, qui vous le demande, à nos représentants du Peuple!
 
-L'armée de Paris — ce qui restait de l'armée — pré-
-sentait, en ces tristes jours qui suivirent la capitulation,
+L'armée de Paris — ce qui restait de l'armée — présentait, en ces tristes jours qui suivirent la capitulation,
 le plus lamentable des spectacles. Soldats errants, la
-peau de mouton qui les garantissait du froid aux avant-
-
-postes jetée sur l'épaule, l'uniforme souillé, débraillés,
+peau de mouton qui les garantissait du froid aux avantpostes jetée sur l'épaule, l'uniforme souillé, débraillés,
 sans armes, quelques-uns arrêtant les passants pour
-leur demander un secours — cela m'arriva — le dé-
-sordre était à son comble. Et pourtant, cette armée
+leur demander un secours — cela m'arriva — le désordre était à son comble. Et pourtant, cette armée
 pleine de rancœurs et tout près de verser dans la
 révolte, on parle de la réorganiser pour la lancer
 contre l'insurrection dont on note déjà les signes pré-
 Le Père Duchéne, dans son numéro 3, adresse « ses
-bons avis Aux Soldats de l'armée de Chanzy qu'on voudrait transformer en assassins des patriotes »: (1)
+bons avis Aux Soldats de l'armée de Chanzy qu'on voudrait transformer en assassins des patriotes (1)
 Le Père Duchène vous souhaite la bienvenue, soldats!
 Je vous vois entrer avec plaisir dans les murs de Paris, où
 lon a faim aussi, où l'on a froid comme vous avez
@@ -744,9 +731,7 @@ la grimace quand nous leur eûmes expliqué notre projet.
 Humbert et Vermersch partaient pour Lyon. Moi, je
 restais à Paris, montant la garde. Le lendemain, on:
 ramasserait tout l'argent par les vendeurs. Et au
-large! S'il arrive quelque chose ici, eh bien! je m'arran-
-
-quand nous faisions le Père Duchène
+large! S'il arrive quelque chose ici, eh bien! je m'arranquand nous faisions le Père Duchène
 ; gerai. Du reste, nous conservons la composition du numéro. Ce sera toujours cela de fait.
 Vermersch et Humbert, accompagnés de Simon, se
 mirent en route le soir même. Les affiches furent posées
@@ -757,8 +742,7 @@ mieux « La Grande Joie du Père Duchêne de pouvoir
 enfin causer des affaires de la Nation avec les bons
 patriotes qui ont chassé tous les jean-foutres de l'Hôtel
 Humbert et Vermersch, à peine connue et affirmée la
-victoire des Buttes, avaient sauté dans le train. Je dé-
-jeunais dans notre petit caboulot de la rue de l'École-deMédecine — une des vieilles maisons à pignon récemment disparues — quand je les vis entrer, triomphants.
+victoire des Buttes, avaient sauté dans le train. Je déjeunais dans notre petit caboulot de la rue de l'École-deMédecine — une des vieilles maisons à pignon récemment disparues — quand je les vis entrer, triomphants.
 Nous nous embrassâmes. C'est tout juste si nos larmes
 ne coulèrent pas dans les rognons sautés qui fumaient
 devant moi...
@@ -867,11 +851,9 @@ cocardes de rubans rouges!
 
 Les trottoirs sont envahis. En habits de fête comme en
 un jour de Pâques ou de 15 Août — on n'a pas encore
-inventé le 14 Juillet — le bourgeois, qui deviendra fé-
-roce plus tard, est lui-même entamé. Bras dessus, bras
+inventé le 14 Juillet — le bourgeois, qui deviendra féroce plus tard, est lui-même entamé. Bras dessus, bras
 
-: dessous, il marche avec le populo, dans un de ces irré-
-sistibles élans d'enthousiasme que le soleil n'a point
+: dessous, il marche avec le populo, dans un de ces irrésistibles élans d'enthousiasme que le soleil n'a point
 éclairés depuis la grande Fédération.
 
 Regardez-le bien, ce brave homme, au teint fleuri,
@@ -893,8 +875,7 @@ La veille encore, je suis allé à l'Hôtel-de-Ville. Il paraît transfiguré.
 Hier, des barricades, des canons, des sentinelles qui
 vous interrogent avec défiance. Pour traverser la place,
 
-il faut suivre un à un, à travers une étroite trouée mé-
-nagée dans les pavés, le sentier que veillent jalousement les gardes, le fusil chargé. Une rangée de mitrail-;
+il faut suivre un à un, à travers une étroite trouée ménagée dans les pavés, le sentier que veillent jalousement les gardes, le fusil chargé. Une rangée de mitrail-;
 leuses défend la façade. Aux fenêtres, des groupes
 de fédérés. L'Hôtel-de-Ville a l'aspect d'une forteresse.
 Tout est changé aujourd'hui. Plus de grands airs belliqueux. Plus de barricades, plus de sentinelles. Couvrant la grande porte du milieu, cachant le Henri de
@@ -1006,9 +987,7 @@ s''illuminèrent. La Commune était installée.
 
 Je repris le chemin de la rue du Croissant. A la porte
 de l'imprimerie, je croisai un groupe de fédérés au
-milieu duquel parlait un lieutenant du 248°, mon ba-
-
-taillon du siège, le bataillon de Longuet. Il racontait ce
+milieu duquel parlait un lieutenant du 248°, mon bataillon du siège, le bataillon de Longuet. Il racontait ce
 qu'il avait sur la place de l'Hôtel-de-Viile. Il était
 tout au bas de l'estrade. Il avait pu, plus heureux que
 moi, entendre les discours.
@@ -1131,7 +1110,7 @@ clos, les rues désertes. Deux ou trois boutiques éventrées.;
 passants, un obus est tombé dans la boutique du boulanger. Le garçon a été tué raide. La femme a la
 jambe arrachée. Le patron est grièvement atteint. Ils
 sont tous deux, mari et femme, à Beaujon... Boulevard
-Pereire, au bureau de tabac, le gamin du buraliste a;
+Pereire, au bureau de tabac, le gamin du buraliste
 Et après un silence, en nous serrant la main:
 — Oh! la canaïlle! la canaiïlle! qui nous bombarde
 comme les Prussiens. Et pourtant, nous, nous ne nous
@@ -1141,8 +1120,7 @@ où ils sont relativement à l'abri.
 — Vous savez, dans un quart d'heure! leur dit le chef
 d'un air paternel. Et du courage! Buvez un coup, cela
 met du cœur au ventre.
-Dix minutes après on sonne au ralliement. Deux seu-
-lement ont disparu.
+Dix minutes après on sonne au ralliement. Deux seulement ont disparu.
 — Allons, mes enfants, en avant! Et vous, au revoir,
 me dit l'excellent homme en me tendant la main.
 Ils se remirent en marche, le commandant à leur tête.:
@@ -1160,8 +1138,7 @@ Et je marchai, très tranquille, jusqu'au chemin de
 ronde, où je sentis une main s'abaitre sur mon épaule.
 
 ï — Ah! vous êtes bien gentil d'être venu! Vous allez
-l'entendre gueuler, le vieux bougre! Le voyez-vous là-
-bas? Il n'a pas à se plaindre. Nous lui avons fait une
+l'entendre gueuler, le vieux bougre! Le voyez-vous làbas? Il n'a pas à se plaindre. Nous lui avons fait une
 
 L'énorme pièce était couchée sur le bastion, la gueule
 pointée sur Courbevoie.
@@ -1313,8 +1290,7 @@ carrefours, des.façades de monuments, des cloîtres
 - d'églises, qui sont criblés de ces petites taches claires,;
 tranchant sur la grisaille de l'édifice. À
 Là, on a fusillé, comme à Beaujon.
-Je ne fus pas longtemps sans retrouver notre canti-
-nière. J'entrai avec elle dans la salle où l'on achevait de
+Je ne fus pas longtemps sans retrouver notre cantinière. J'entrai avec elle dans la salle où l'on achevait de
 mettre en bière les cadavres.
 Vingt bières étaient déjà entassées, dix par dix. »
 — Dès que les chars de la Commune seront arrivés,
@@ -1382,8 +1358,7 @@ ardoise, qui pouvait les faire prendre pour des chasseurs
 de Vincennes. Derrière eux, deux bataillons fédérés,
 musique en tête, tambours voilés, drapeau rouge entouré de crêpe.
 
-Les tentures de deuil des trois catafalques disparaissaient sous un amoncellement de couronnes. Aux an-
-gles, des faisceaux_de drapeaux rouges. Les chevaux
+Les tentures de deuil des trois catafalques disparaissaient sous un amoncellement de couronnes. Aux angles, des faisceaux_de drapeaux rouges. Les chevaux
 caparaçonnés et recouverts d'un long voile. Par dessus À
 les couronnes, couché sur le catafalque, le dernier linceul de gloire, le drapeau dont on voit briller les franges. Ils sont morts pour lui.
 
@@ -1395,8 +1370,7 @@ Des bataillons suivent, et encore des bataillons, et
 derrière eux, un fleuve humain qui ne fait que s'allonger
 
 (1) Amouroux (Charles), membre de la Commune (quatrième
-arrondissement). Membre de la Commission des relations exté-
-rieures (21 avril). Secrétaire de la Commune. Les procès-verbaux
+arrondissement). Membre de la Commission des relations extérieures (21 avril). Secrétaire de la Commune. Les procès-verbaux
 manuscrits des séances de la Commune qui sont conservés à la:
 bibliothèque Lepellelier-Saint-Fargeau sont presque en entier de
 sa main.
@@ -1473,8 +1447,7 @@ face de Pyat, qui travaille, devant une table basse.
 Sans préambule, après m'avoir serré la main — j'ai
 quelque peu collaboré au Vengeur, supprimé le 11 mars
 
-Lo) Lachâtre (Maurice), éditeur, publia le grand dictionnaire dé-
-signé sous son nom.
+Lo) Lachâtre (Maurice), éditeur, publia le grand dictionnaire désigné sous son nom.
 
 en même temps que le Père Duchéne — Pyat me tend DE
 un papier. C'est notre appel. Était-il donc fait d'avance?
@@ -1507,12 +1480,9 @@ Le soir, il venait corriger ses épreuves, ou, plutôt,:
 refaire son article. Pyat avait une curieuse méthode de
 travail. Il jetait sur le papier un premier article, court,
 et le donnait à la composition. L'épreuve qui lui était
-soumise était très interlignée. Sur ce canevas, il bro-
-dait, entre les lignes. L'esquisse se changeaït en un
+soumise était très interlignée. Sur ce canevas, il brodait, entre les lignes. L'esquisse se changeaït en un
 
-{1) Le texte entier dans le numéro 12 du Père Duchéne (7 ger-
-
-quand nous faisions le Père Duchêne
+{1) Le texte entier dans le numéro 12 du Père Duchéne (7 gerquand nous faisions le Père Duchêne
 dessin aux couleurs éclatantes. Quand il avait trouvé
 quelque flamboyante épithète, nous le voyions relever
 la tête, secouer sa crinière de vieux lion grisonnant,
@@ -1535,8 +1505,7 @@ verbe sonore montait jusqu'à nous.
 
 La voix sonore était celle de Pyat. Un bataillon,
 avant de partir pour les avant-postes, était venu,
-comme c'était l'usage, saluer la Commune et lui pré-
-senter le drapeau rouge frangé d'or. Pyat était là. Il
+comme c'était l'usage, saluer la Commune et lui présenter le drapeau rouge frangé d'or. Pyat était là. Il
 était descendu. Saisissant l'étendard, il s'en était drapé.
 Le bras droit levé, la tête rejetée en arrière, il parlaït
 encore, quand nos regards s'arrêtèrent sur lui.
@@ -1677,8 +1646,7 @@ rencontrai, dans les premiers jours d'avril, à la délégation à la guerre.
 J'avais passé les derniers mois du siège à l'atelier de
 fabrication d'armes et de munitions qui avait été
 installé dans les locaux de la manufacture des tabacs,
-quai d'Orsay. Après la capitulation, le stock considé-
-rable de cartouches Chassepoi, plusieurs millions, avait
+quai d'Orsay. Après la capitulation, le stock considérable de cartouches Chassepoi, plusieurs millions, avait
 été évacué sur le Trocadéro et déposé dans les souterrains.
 
 Connaïissait-on ce fait au ministère de la guerre? Tel
@@ -1736,8 +1704,7 @@ froid, toutes les misères et toutes les hontes de Metz.
 
 Pour lui, malgré la défaite, la capitulation, la paix,
 malgré ses premières désillusions au sujet de la puissance militaire dont pouvait disposer la Commune,
-rien n'était perdu encore. La Commune pouvait triom-
-pher de Versailles, dissoudre l'Assemblée, faire appel
+rien n'était perdu encore. La Commune pouvait triompher de Versailles, dissoudre l'Assemblée, faire appel
 aux électeurs, recommencer la guerre...
 
 Quand nous quittâmes Rossel, qui retournait au ministère, nous nous regardâmes tous trois. Humbert et
@@ -1912,8 +1879,7 @@ procureur de la Commune; Benjamin Sachs, l'un des
 jeunes juges d'instruction; des magistrats — beaucoup
 de magistrats, la Commune nomma même des huissiers
 — des officiers et des simples fédérés. Parfois, quelque
-membre de la Commune, la rosette rouge à la bouton-
-nière. Des journalistes comme Humbert, Vermersch ou
+membre de la Commune, la rosette rouge à la boutonnière. Des journalistes comme Humbert, Vermersch ou
 moi. Déjeuner rapide, frugal, que chacun de nous payait te
 bel et bien quarante sous, quand, l'heure du café venue, À
 
@@ -2356,8 +2322,7 @@ aux avant-postes, ce n'était pas amusant.
 Nous avions ouvert dans les colonnes de la Sociale,
 une souscription patriotique. ne marchaït pas. Le
 6 mai, nous en étions encore à la minime somme de
-724 francs. Et encore avais-je dû, la veille, après un dé-
-jeuner à la délégation de justice, taper Protot et ses
+724 francs. Et encore avais-je dû, la veille, après un déjeuner à la délégation de justice, taper Protot et ses
 convives d'une cinquantaine de francs.
 
 Non, n'allait pas!
@@ -2381,8 +2346,7 @@ le 205°. Il nous avait manifesté le désir de voir Rossel, et
 sur les positions qu'il venait de quitter pour quelques:
 jours... Si nous remplacions Pierre par Maître!
 
-Deux mots à Maître. Il accepte. Le lendemain, il pren-
-dra le commandement des Enfants du Père Duchéne.
+Deux mots à Maître. Il accepte. Le lendemain, il prendra le commandement des Enfants du Père Duchéne.
 
 Allons voir Rossel à la guerre.
 
@@ -2535,8 +2499,7 @@ quand nous faisions le Père Duchène
 
 Après la bataille du Panthéon, il me restait deux hommes.
 
-Aconin (x) et moi, accompagnés de ces deux braves gar-
-çons, nous avons rejoint la mairie du onzième où j'ai été
+Aconin (x) et moi, accompagnés de ces deux braves garçons, nous avons rejoint la mairie du onzième où j'ai été
 très heureux de retrouver trente à quarante hommes. C'était
 
 encore un noyau, et d'autant meilleur qu'il n'était composé
@@ -2633,9 +2596,7 @@ au ministère de la justice, des nouvelles peu rassurantes.
 
 Les troupes n'étaient plus qu'à une centaine de mètres
 
-"du rempart. Vers onze heures, je laissais les deux amou-
-
-reux et rentrais chez moi, rue du Sommerard.
+"du rempart. Vers onze heures, je laissais les deux amoureux et rentrais chez moi, rue du Sommerard.
 
 Dans une boutique du rez-de-chaussée de la maison,
 un poste de fédérés.
@@ -2665,8 +2626,6 @@ Lundi 22 mai. J'ai passé la nuit sur mon balcon,;
 
 C'est bien fini. Dès que j'ai posé Le pied dans la rue, je
 sens que c'est l'irrémédiable défaite. Rue du Croissant,
-
-— Tu as Vermersch?
 
 — Je l'ai laissé hier soir chez Rachel.
 
@@ -2963,9 +2922,7 @@ Aucun autre tirage de luxe ne fut fait.
 
 Ne pas se fier aux souvenirs, insignes et autres bibelots du bataillon des Enfants du Père Duchéne. Le bataillon, je l'ai déjà dit, ne reçut jamais son uniforme.
 
-. Onest venu me montrer un jour un « fourneau » d'ar-
-
-gent qui aurait figuré sur le képi d'un garde du bataillon.
+. Onest venu me montrer un jour un « fourneau » d'argent qui aurait figuré sur le képi d'un garde du bataillon.
 
 C'est encore un faux.
 
@@ -2973,9 +2930,7 @@ Cet insigne du bataillon des Enfants du Père Duchéne
 
 . sortait très probablement de la fabrique de « souvenirs
 
-de la Commune » qui fut découverte en 1874, et qui ven-
-
-dait fort cher aux amateurs des bijoux et surtout des
+de la Commune » qui fut découverte en 1874, et qui vendait fort cher aux amateurs des bijoux et surtout des
 médailles soi-disant frappées sous la Commune. (1)
 
 Naïfs collectionneurs, ouvrez — comme nous écrivions
@@ -3015,7 +2970,7 @@ ont été soudés par l'usage, le prénom étant
 devant, c'est à la lettre du prénom que l'on
 trouvera l'ensemble des deux. Ainsi André
 
-154. 214. 288. 312. 316.
+154.
 227.
 
 149.
@@ -3047,8 +3002,7 @@ sur whatman à cette neuvième série est de cent francs
 pour tous pays.
 À Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fon-
-- derie Mayeur (Allainguillaume et compagnie succes-
-seurs), 21, rue du Montparnasse, à Paris, sixième
+- derie Mayeur (Allainguillaume et compagnie successeurs), 21, rue du Montparnasse, à Paris, sixième
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante?

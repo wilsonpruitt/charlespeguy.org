@@ -35,8 +35,7 @@ Pour savoir ce que sont les cahiers, on peut envoyer “#0
 teur des cahiers, 8, rue de la Sorbonne. On recevra en
 
 trois francs cinquante on recevra six cahiers spécimens.
-Nous acceptons que nos abonnés paient leur abonne-
-ment par mensualités de un ou deux francs.
+Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou deux francs.
 Nous avons donné le bon à tirer après corrections a...
 Ù pour deux mille six cents exemplaires de ce sixième AL:
 cahier le samedi 28 décembre 1901. +4
@@ -326,9 +325,7 @@ comme il est allé à l'Aurore, estimant sans doute qu'il
 trouverait, comme aux Cahiers de la Quinzaine, des
 amis et des défenseurs. Ce que je sais bien encore,
 c'est que mes derniers articles — ceux-là mêmes que
-n'approuva point M. X. — ont été rédigés sur les indi-
-
-cations de Gustave Hervé; c'est enfin que mon dernier
+n'approuva point M. X. — ont été rédigés sur les indications de Gustave Hervé; c'est enfin que mon dernier
 article, Rabier-Boisdeffre, paru le matin même du jour
 où se réunissait le conseil supérieur, fut écrit en collaboration avec Gustave Hervé. Il en fit le plan, sur ma
 table, l'avant-veille de la séance; et je lui lus le lendemain ma chronique, pour bien m''assurer que j'avais
@@ -342,7 +339,7 @@ Dictateur! A ce mot, Lapicque s'est écrié
 
 ; sous la dictée.
 
-À: De cette boutade, il t'est loisible de tirer une rosserie
+De cette boutade, il t'est loisible de tirer une rosserie
 : j'aime encore mieux qu'une calomnie.
 à J'arrive à ton menaçant commentaire. Il paraît que
 je te dois des comptes, et tu t'apprêtes à me les
@@ -606,7 +603,6 @@ ouvrages inspirés par un esprit de parti, quel que soit le
 parti, en revanche, mon cher camarade, cette réserve faite,
 je retrouve toute ma liberté pour répondre à votre pre- -
 mière question et vous conseiller de lire attentivement
-« Histoire socialiste ».
 
 Société nouvelle de librairie et d'édition (17, rue Cujas), de
 la Librairie de propagande socialiste (31, rue Croix-desPetits-Champs), de la Bibliothèque ouvrière socialiste
@@ -838,8 +834,7 @@ donc lintéressé? C'était nous tous les intéressés.
 C'était la liberté la grande intéressée. IL ne s'agissait
 pas seulement de sauver Hervé, mais de sauver, en
 Hervé, nos libertés communes. Si Hervé voulait se
-suicider judiciairement, il n'avait pas le droit de sui-
-cider la liberté.
+suicider judiciairement, il n'avait pas le droit de suicider la liberté.
 
 L'intéressé lui-même en jugeait autrement. Cette
 affirmation est capitale dans la réponse de Téry. Je
@@ -960,8 +955,7 @@ lui-méme qui le voulait. Elle ne pas contre mon
 ; texte. Il est littéralement vrai qu'en un sens Hervé
 ; aussi le voulait.
 $. — Si. Hervé a reçu à la Petite République des
-! louanges lourdes, dont il n'a pas semblé assez incom-
-modé. Au fameux banquet, il a reçu un sonnet dans
+! louanges lourdes, dont il n'a pas semblé assez incommodé. Au fameux banquet, il a reçu un sonnet dans
 1 l'estomac. Comme un sous-préfet en tournée de revision.
 Ce n'est pas l'auteur du sonnet que je blâme. C'est le
 
@@ -1136,17 +1130,13 @@ ce mot exprime, ramasse admirablement, exactement,
 la politique de Téry. Je n'ai commis en le citant aucune
 $. — Nous avons dans ces cahiers publier sans
 indiscrétion la fin aussi de la réponse. Nous n'avons
-pas la grande extension, et le public mêlé d'un quoti-
-dien. Nos abonnés sont discrets eux-mêmes, par situa-
-tion, par culture, par méthode. Ils savent lire. Ils
+pas la grande extension, et le public mêlé d'un quotidien. Nos abonnés sont discrets eux-mêmes, par situation, par culture, par méthode. Ils savent lire. Ils
 entendent bien.
 J'ai maintenu cette fin parce qu'elle aurait fait défaut
 à Téry même. Elle est selon moi très importante. Nous
-socialistes nous savons combien importe l'établisse-
-ment d'un budget, budget public, social, national,
+socialistes nous savons combien importe l'établissement d'un budget, budget public, social, national,
 budget d'une institution, budget privé. Nous ne méprifl sons pas l'économique. Nous savons au contraire,
-à parce que nous voulons soustraire le monde aux ser-
-vitudes économiques, tout ce que vaut la considération
+à parce que nous voulons soustraire le monde aux servitudes économiques, tout ce que vaut la considération
 de l''économique.
 J'ai moi-même soulevé ces questions en leur temps. IL
 faut savoir parler argent quand il faut. Il y a une espèce
@@ -1285,9 +1275,7 @@ dans les plaines de Wagram, 120.000 Autrichiens,
 120.000 Français. Pendant douze heures, la fusillade et
 la canonnade firent rage; ces deux troupeaux qui
 n'avaient plus rien d'humain se sautaient à la gorge,
-lâchaient prise, revenaient au carnage, grisés d'eau-de-
-
-vie, de poudre et de sang.
+lâchaient prise, revenaient au carnage, grisés d'eau-devie, de poudre et de sang.
 
 « Lorsqu'un combat a lieu pendant l'été, raconte le
 général Marbot, un des héros de Wagram, il arrive
@@ -1379,9 +1367,7 @@ chamarrés; ils n'auraient rien balayé du tout, ils
 seraient venus se soûler avec leurs petits-fils et ils
 auraient trouvé que l'armée française depuisleur temps
 n'avait pas dégénéré.
-Je trouve même que des pitreries suivies d'une soû-
-
-lerie ne sont pas suflisantes pour commémorer le
+Je trouve même que des pitreries suivies d'une soûlerie ne sont pas suflisantes pour commémorer le
 souvenir d'ignominies comme celles de Wagram. Je ne
 - vois qu'une façon vraiment digne et symbolique de
 célébrer un pareil anniversaire.
@@ -1510,8 +1496,7 @@ parabole de Jésus le Galiléen, de ce Jésus que je veux
 citer une fois encore dans le Travailleur Socialiste
 — moi qui suis un athée — pour l'édification de notre
 ancien collaborateur, l''éminent et distingué curé-archiprêtre de Sens: « Ne vous inquiétez ni de la nourriture
-; nécessaire à la vie, ni des vêtements dont vous recou-
-vrirez votre corps. Considérez les oiseaux du ciel: ils
+; nécessaire à la vie, ni des vêtements dont vous recouvrirez votre corps. Considérez les oiseaux du ciel: ils
 
 ne sèment ni ne moissonnent; ils n'amassent rien dans
 des greniers: cependant votre père céleste les nourrit.
@@ -1738,7 +1723,7 @@ Ce qu'il y a peut-être de plus effrayant en Indo-Chine,
 c'est que les Français y sont presque unanimes à
 mépriser l'indigène, à justifier ou du moins à accepter
 sans protestation les brutalités commises contre l'Annamite. — Au début dela conquête, on a voulu « assimiler »
-les Annamites, leur « conférer les bienfaits de la civilisation »: notre civilisation, nos coutumes, nos institutions ne sont-elles pas les meilleures absolument,
+les Annamites, leur « conférer les bienfaits de la civilisation notre civilisation, nos coutumes, nos institutions ne sont-elles pas les meilleures absolument,
 rationnellement, pour tous les peuples du monde?
 
 Ensuite, constatant l'échec des tentatives assimilatrices, et maintenant le principe de la supériorité absolue de
@@ -1823,8 +1808,7 @@ chose pour les Annamites opprimés. Il faut créer en
 France une opinion publique bien informée des choses
 
 coloniales. Une condamnation générale et, pour ainsi
-dire, verbale de la colonisation ne suflit pas: la colo-
-nisation est un fait, peut-être (c'est mon sentiment) un
+dire, verbale de la colonisation ne suflit pas: la colonisation est un fait, peut-être (c'est mon sentiment) un
 fait inévitable; il faut tenir compte de tous les faits.
 - Pour agir sur le réel, il faut tenir compte de tout le
 réel. Ceux qui acceptent le système colonial avec toute
@@ -1943,9 +1927,7 @@ de presse contre Laroche, l'a fait rappeler de Madagascar? En Indo-Chine, comme 
 
 Dans un cas spécial, bien caractéristique, les Pères
 recrutent leur main-d'œuvre par la force. C'est une
-histoire extraordinaire, à peine croyable, vraie pour-
-
-tant; j'ai recueilli là-dessus des témoignages décisifs, -
+histoire extraordinaire, à peine croyable, vraie pourtant; j'ai recueilli là-dessus des témoignages décisifs, -
 indubitables. Les Pères de la Mission des Bahnars et à de celle du Bas Laos achètent aux sauvages Moïs les
 
 Annamites que ceux-ci vont voler dans la plaine; ils
@@ -2015,9 +1997,7 @@ catholiques sont des villages à part, ou une ville dans
 la ville: à Pnom Penh, c'est par un pont-levis qu'on y
 
 pénètre. D'ailleurs les Pères possèdent souvent aussi, à
-Haïphong par exemple, une partie de la ville non chrétienne, — Dans le quartier catholique, les Pères, quel-
-
-quefois, accumulent des armes, soi-disant contre les
+Haïphong par exemple, une partie de la ville non chrétienne, — Dans le quartier catholique, les Pères, quelquefois, accumulent des armes, soi-disant contre les
 pirates. On dit qu'ils y lèvent de véritables impôts. Ils
 : ont leur sceau: « Indo-Chine Française: Mission de—
 et de ce sceau, ils usent pour donner une allure officielle
@@ -2064,8 +2044,7 @@ Boxeurs annamites n'éclatât bientôt au Tonkin, provoqué, comme le mouvement 
 les agissements de la Mission. Ce sont les représentants de la religion d'amour qui introduisent ce violent
 courant de haine dans une population païenne exceptionnellement douce et pacifique.
 
-Je ne pardonne pas, mon cher Péguy, aux mission-
-naires le mal qu'ils font à la France en provoquant
+Je ne pardonne pas, mon cher Péguy, aux missionnaires le mal qu'ils font à la France en provoquant
 ainsi un soulèvement des indigènes. Je ne leur pardonne
 . pas le mal qu'ils font aux Annamites. Nulle part on
 n'est aussi dur et méprisant pour l'indigène qu'à la

@@ -19,8 +19,7 @@ désordre de la sociélé actuelle et en présence de la faillite de l'idéal
 chrétien et du libéralisme bourgeois, cherchent à donner un sens
 nouveau, plus profond et plus élevé à la vie
 Conception scientifique, il doit salisfaire tous les esprits anxieux?
-de vérité, puisqu'il donne la clé du devenir moderne et qu'il consti-
-tue, à l'heure actuelle, étant la conclusion naturelle de l'évolution
+de vérité, puisqu'il donne la clé du devenir moderne et qu'il constitue, à l'heure actuelle, étant la conclusion naturelle de l'évolution
 industrielle et démocratique de ce siècle, la vérité historique et la
 Parti de classe, enfin, il doit grouper tous les exploités de la
 société présente, aussi bien les intellectuels que les manuels, puisque
@@ -106,24 +105,20 @@ Nous avons donné le bon à tirer après correction de ce
 quatrième cahier le vendredi 18 janvier 1901.
 
 La question du rôle des intellectuels dans le
-socialisme n'est qu'une partie du problème g'éné-
-ral de la situation de la classe intellectuelle dans la
+socialisme n'est qu'une partie du problème g'énéral de la situation de la classe intellectuelle dans la
 société capitaliste. Si je limite aujourd'hui mes
 recherches à cette partie, c'est d'abord parce qu'il
 faudrait, avant de toucher au problème général de
 la condition des intellectuels, envisager le problème
 encore plus large de l'évolution des classes moyennes, dontlui-même il n'est qu'unepart;—c'est ensuite
-parce que la fonction des intellectuels dans le mousement socialiste n'a peut-être pas été jusqu'ici dé-
-limitée avec méthode et que je crois que nous devons
+parce que la fonction des intellectuels dans le mousement socialiste n'a peut-être pas été jusqu'ici délimitée avec méthode et que je crois que nous devons
 tenter en ce sens un effort sérieux; — c'est enfin
 parce que celte question s'est posée récemment
 en France, et avec quelle force, vous vous le rapDelez.
 Je n'ai pas besoin d'attirer spécialement votre
 attention sur ce dernier point. Vous savez que la
 Nous avons laissé à nos explications la forme de la
-causerie, sous laquelle nous les avons d'abord présen-
-
-crise profonde qui a bouleversé les relations de notre vie nationale a fait affluer vers le socialisme,
+causerie, sous laquelle nous les avons d'abord présencrise profonde qui a bouleversé les relations de notre vie nationale a fait affluer vers le socialisme,
 pour des raisons que nous tâcherons de déterminer
 tout à l'heure, un nombre croissant d'intellectuels.
 vous savez aussi avec quelle âpreté les « anciens »
@@ -177,8 +172,7 @@ nous le pouvons, les termes du problème.
 . Nous envisagerons d'abord, avant la situation
 particulière qui concerne la France, la position
 générale de la question. Je veux dire que nous
-essaierons de déterminer ce qu'il convient d'entendre par socialisme et par intellectuels, de suivre sé-
-parément l'évolution de ces deux facteurs sociaux,
+essaierons de déterminer ce qu'il convient d'entendre par socialisme et par intellectuels, de suivre séparément l'évolution de ces deux facteurs sociaux,
 et de rechercher les causes et les résultats de leur
 Il est nécessaire de rappeler brièvement les caractères spécifiques du mouvement socialiste, pour
 pouvoir déterminer ensuite les points de contact
@@ -200,11 +194,8 @@ l'histoire.
 Le prolétariat est aussi la seule classe qui se trouve
 en opposition trréductible d'intérêts avec la société
 capitaliste. Toutes les autres classes souffrantes peuvent — plus ou moins effectivement — entrer en
-composition avec l'ordre social actuel: il est orga-
-
-niquement impossible que la classe ouvrière y ait
-une situation stable et une place commode. Le prolé-
-tariat, considéré comme classe, est constitutivement
+composition avec l'ordre social actuel: il est organiquement impossible que la classe ouvrière y ait
+une situation stable et une place commode. Le prolétariat, considéré comme classe, est constitutivement
 condamné, dans les cadres du régime capitaliste, à
 conserver son double rôle de classe productrice et
 de classe exploitée, sans possibilité d'émancipation.
@@ -213,18 +204,13 @@ s'affranchir: l'ensemble est rivé à la chaîne. La transformation sociale peut
 lutte de classe. Vous vous rappelez la parole de
 Marx: c'est le mauvais côté de l'histoire qui fait
 l'histoire. Il n'y a que les classes opprimées par un
-régime donné qui puissent le remplacer par un ré-
-
-gime supérieur. C'est pourquoi, dans la société pré-
-sente, le prolétariat seul est à l'état permanent de
+régime donné qui puissent le remplacer par un régime supérieur. C'est pourquoi, dans la société présente, le prolétariat seul est à l'état permanent de
 
 Il est aussi la seule force organique capable d'élaborer l'ordre nouveau. Si la classe ouvrière, la classe
 des producteurs, poursuit en définitive l'appropriation commune des instruments de production, fin
 proposée du mouvement socialiste, en attendant elle
 se prépare à son action future. Elle travaille et lutte
-pour modifier à son avantage les relations économiques, juridiques et politiques existantes, elle s'organise dans des groupements à caractère très parti-
-
-culier, et elle crée des institutions nouvelles qui lui
+pour modifier à son avantage les relations économiques, juridiques et politiques existantes, elle s'organise dans des groupements à caractère très particulier, et elle crée des institutions nouvelles qui lui
 sont propres. Le prolétariat tend de plus en plus
 par même à se différencier du régime actuel, et
 former un État dans l'État capitaliste, un monde
@@ -251,21 +237,16 @@ le développement progressif des institutions étaliques. C'est une double erreu
 
 plus sur ce fait qu'il est travesti: que le socialisme
 ruine les systèmes d'idées et d'institutions existants,
-parce qu'il est essentiellement constitué par un en-
-semble d'idées, de sentiments et d'institutions qui
+parce qu'il est essentiellement constitué par un ensemble d'idées, de sentiments et d'institutions qui
 sont propres à la classe ouvrière et qui s'opposent
 à tout ce qui existe.
 Le mouvement socialiste est, au second degré,un
 mouvement humain. Le socialisme se justifie non
-seulement par des nécessités historiques, mais en-
-core par des nécessités et par des obligations mo-
-rales. Avec et par la classe ouvrière il émancipera
+seulement par des nécessités historiques, mais encore par des nécessités et par des obligations morales. Avec et par la classe ouvrière il émancipera
 l'humanité. La fin des classes sera la fin des luttes
-de classes. Par ses institutions particulières le prolé-
-tariat assurera le plein développement de la morale
+de classes. Par ses institutions particulières le prolétariat assurera le plein développement de la morale
 et de la justice.
-Et en attendant il est, dans le présent, le repré-
-sentant autorisé de la civilisation, de la culture, le
+Et en attendant il est, dans le présent, le représentant autorisé de la civilisation, de la culture, le
 défenseur des faibles et des opprimés. La vieille
 Internationale déjà l'avait proclamé: ses traditions
 de justice ne sont pas mortes. En France, vous
@@ -287,8 +268,7 @@ poursuivaient dans le pays ces deux fléaux, la camorra et la maffia.
 
 C'est par une telle attitude que le socialisme entraîne après lui toutes les consciences que révoltent
 le désordre, la laideur et l'injustice du régime capitaliste: de plus en plus, la classe ouvrière attire
-dans son cercle de transformation sociale les élé-
-ments sains de l'ordre bourgeois.
+dans son cercle de transformation sociale les éléments sains de l'ordre bourgeois.
 
 Elle a aussi avec elle tous les esprits qui, s'élevant au-dessus des intérêts de classe, constatent
 l'orientation socialiste de l'histoire, et la valeur
@@ -304,14 +284,12 @@ définition commune. On comprend d'abord sous
 cette expression tous les gens qui ont une culture
 quelque peu développée, qui ont, si vous voulez,
 reçu un enseignement secondaire ou supérieur, et
-avant tout ceux qui exercent les professions libé-
-écrivains, etc. — On y fait entrer ensuite les
+avant tout ceux qui exercent les professions libéécrivains, etc. — On y fait entrer ensuite les
 ouvriers d'art, les employés de bureau, etc., —en un
 mot tous ceux dont l'activité pratique. est d'ordre
 spécialement cérébral: c'est en ce sens que le terme
 d'intellectuel s'oppose au terme de manuel.
-Vous savez que cette distinction instituéeentre tra-
-vail manuel ettravailintellectuel n'est fondée ni physiologiquementnitoujoursexpérimentalement.Dans
+Vous savez que cette distinction instituéeentre travail manuel ettravailintellectuel n'est fondée ni physiologiquementnitoujoursexpérimentalement.Dans
 le travail manuel, tout effort intellectuel ne disparaît pas, — et que de travaux dits intellectuels ne
 le sont guère! Mais cette différenciation nous est
 
@@ -339,9 +317,7 @@ la remarque. Les intellectuels forment des catégories
 très différentes, des coteries à part, et ne sont unis
 dans ces subdivisions que par une sorte de lien corporatif. Et même dans chacune de ces catégories,
 les intérêts professionnels des individus sont loin
-d'être semblables. La situation d'un pauvre journa-
-
-liste à 150 ou 200 franes par mois n'a rien de commun
+d'être semblables. La situation d'un pauvre journaliste à 150 ou 200 franes par mois n'a rien de commun
 avec la situation d'un rédacteur en chef à 1000 ou
 francs d'appointements mensuels. Vous pouvez
 voir ainsi combien il est inexact de parler, au sens -
@@ -355,8 +331,7 @@ classe des capitalistes, la classe des prolétaires,
 parce que ces catégories sociales s'appuient sur des
 phénomènes économiques déterminés et des intérêts
 constants: la rente et l'accroissement de la rente, le
-profit et l'augmentation du profit, le salaire et l'élé-
-vation du salaire. Rien de semblable du côté des.
+profit et l'augmentation du profit, le salaire et l'élévation du salaire. Rien de semblable du côté des.
 intellectuels: ils ne forment pas un bloc et leurs luttes ne sont pas communes. Ils ne constituent pas
 une classe pour eux-mêmes, mais ils existent en
 fonction des autres classes. Ils s'accrochent, ils
@@ -387,9 +362,7 @@ Je n'ai pas à insister sur le rôle décisif joué
 par l'idéologie dans l'histoire. Je ne veux pas
 recommencer devant vous un débat qui pourrait durer longtemps. Engels, dans ses fameuses
 lettres sur le matérialisme historique, y a suffisamment insisté pour que tous ceux qui se réclament
-aujourd'hui plus ou moins du marxisme le reconnaissent pleinement avec lui. Les systèmes idéolo-
-
-giques, en tant qu'ils traduisent des réalités
+aujourd'hui plus ou moins du marxisme le reconnaissent pleinement avec lui. Les systèmes idéologiques, en tant qu'ils traduisent des réalités
 économiques et sociales, sont un moteur puissant
 du mouvement historique. Nul ne conteste l'influence des systèmes juridiques et moraux qui ont
 été successivement l'œuvre des moines de l'Église
@@ -413,9 +386,7 @@ intérêts généraux de la société. Dans la lutte menée
 contre les forces existantes, ils représentent l'esprit
 critique. Leur rôle essentiel est de ruiner l'autorité
 qui est à la base de l'ancien régime. Ils dépassent
-par la pensée le moment historique où ils se trou-
-
-vent, sans tenir compte des formes d'appropriation
+par la pensée le moment historique où ils se trouvent, sans tenir compte des formes d'appropriation
 traditionnelles ou nouvelles: ils pressentent l'avenir
 historique, et par cela seul se trouvent singulièrement favoriser le triomphe de la bourgeoisie.
 
@@ -437,9 +408,7 @@ sur cette classe, et elle la développe prodigieusement. Des capacités techniqu
 ingénieurs, chimistes, agronomes, etc., sont créées
 à jet continu, selon les exigences croissantes
 de l'évolution industrielle. L'État se développe,
-l'administration publique et privée s'accroît, l'en-
-
-seignement s'organise, le journalisme s'étend
+l'administration publique et privée s'accroît, l'enseignement s'organise, le journalisme s'étend
 autant de causes d'une évocation prodigieuse de
 forces intellectuelles, qui se traduit bientôt par une
 Cette surproduction de capacités amène une
@@ -498,18 +467,14 @@ plupart des intellectuels, qui permet surtout de les
 réunir dans une même catégorie. La classe lettrée,
 la classe pensante, par cela seul qu'elle reçoit une
 éducation privilégiée et une instruction supérieure,
-se figure facilement qu'elle est indépendante des conflits sociaux, qu'elle représente seule l'intérêt géné-
-ral de la société, qu'elle constitue une aristocratie
+se figure facilement qu'elle est indépendante des conflits sociaux, qu'elle représente seule l'intérêt général de la société, qu'elle constitue une aristocratie
 intellectuelle. La plupart des intellectuels méprisent
 plus ou moins les ouvriers manuels, et se croient
 sans peine les plus aptes à tout comprendre, les
 plus capables de tout gouverner, les plus dignes de
 tout diriger. Le travail aux ouvriers, le pouvoir aux
-gens cultivés! C'est ainsi qu'ils entendent la hié-
-rarchie sociale. N'est-ce pas un publiciste français,?
-M. Henry Bérenger, qui, dans un livre symptoma22
-
-tique autant que prétentieux: L'Aristocratie intellectuelle, a posé la candidature des intellectuels
+gens cultivés! C'est ainsi qu'ils entendent la hiérarchie sociale. N'est-ce pas un publiciste français,?
+M. Henry Bérenger, qui, dans un livre symptomatique autant que prétentieux: L'Aristocratie intellectuelle, a posé la candidature des intellectuels
 la dictature du monde?.
 
 Ils ont pour eux, en quelque mesure, la tradition.
@@ -528,8 +493,7 @@ l'évolution de ces deux facteurs sociaux. Comment
 se rencontrent-ils et que résulte-t-il de leur combinaison?
 Il est facile de comprendre comment à un moment
 donné les intellectuels allaient pénétrer dans le
-socialisme. Le double caractère de notre mouve-
-ment, son caractère prolétarien et son caractère
+socialisme. Le double caractère de notre mouvement, son caractère prolétarien et son caractère
 la fois idéaliste et scientifique étaient les deux
 issues naturelles par lesquelles ils devaient forcé-
 
@@ -626,8 +590,7 @@ historique. Par la pensée scientifique se retrouvent
 toutes les affirmations naturellement sorties du
 mouvement ouvrier. Les conceptions que les conditions matérielles de la vie introduisent dans les
 consciences prolétariennes sont les mêmes que
-celles que font naître dans les esprits scienti-
-fiques l'observation et la recherche. Les ouvriers,
+celles que font naître dans les esprits scientifiques l'observation et la recherche. Les ouvriers,
 parce qu'ils en soufirent, les penseurs socialistes,
 parce qu'ils la découvrent, arrivent à une perception également nette de l'évolution sociale moderne.
 La valeur de l'adhésion de tels éléments intellectuels au mouvement ouvrier est indéniable. Sans
@@ -667,9 +630,7 @@ réelles du développement historique. A cette phase
 initiale, que nous pouvons placer avant et vers
 la manière utopique de voir subsiste encore
 fortement. L'organisation de la classe ouvrière
-commence à peine, l'évolution de la société capitaliste est imparfaitement connue, et les constructions purement idéologiques dominent le mouvement. On assiste à cette floraison de systèmes com-
-
-munistes, les plans de société abondent, l'imagination des réformateurs sociaux se donne libre carrière. Tous ces théoriciens viennent de la classe
+commence à peine, l'évolution de la société capitaliste est imparfaitement connue, et les constructions purement idéologiques dominent le mouvement. On assiste à cette floraison de systèmes communistes, les plans de société abondent, l'imagination des réformateurs sociaux se donne libre carrière. Tous ces théoriciens viennent de la classe
 intellectuelle, et bien que la plupart soient des
 hommes de génie, ils n'en apportent pas moins à la
 classe ouvrière des systèmes fabriqués par eux en
@@ -694,14 +655,11 @@ doivent fournir les directeurs et les fonctionnaires
 du nouvel ordre de choses. D'autres sont simplement
 désespérés par les inégalités sociales, vouent une
 haine à mort au régime bourgeois: ils annoncentles
-blanquistes. D'autres encore, plus doux et plus sen-
-
-timentaux, rappellent nos Fabiens actuels. Il y en a
+blanquistes. D'autres encore, plus doux et plus sentimentaux, rappellent nos Fabiens actuels. Il y en a
 aussi qui, fatigués de toute autorité, se révoltent, et
 constituent les précurseurs de l'anarchie. Mais tous
 ces membres de la classe intellectuelle tendent
-subordonner à leur théorie personnelle le mouve-
-ment de transformation sociale. C'est du dehors que
+subordonner à leur théorie personnelle le mouvement de transformation sociale. C'est du dehors que
 les théories communistes ou autres viennent à la
 classe ouvrière. Le témoignage de l'ancien ouvrier
 et sénateur Corbon, quelques réserves qu'on puisse
@@ -711,8 +669,7 @@ signale ce fait décisif que sous la monarchie de
 Juillet, c'est de la bourgeoisie que sont sortis la
 plupart des propagateurs du communisme: « Je
 dois faire remarquer, dit-il, que toutes ces tendances [communistes] n'étaient pas, tant s'en faut,
-le fruit de l'esprit populaire, et qu'il est fort dou-
-teux qu'elles se fussent accusées avec quelque
+le fruit de l'esprit populaire, et qu'il est fort douteux qu'elles se fussent accusées avec quelque
 énergie en l'absence d'excitations venues du dehors.
 J'ai assez bien connu le monde communiste, j'ai
 suivre la filière de l'idée; j'ai observé de près le
@@ -726,13 +683,11 @@ qui n'ont pas été sans influence sur son développement. Ils ont de plus dirig
 que, dans la période précédente, leurs devanciers
 avaient battu en brèche le principe d'autorité, et
 préparé ainsi l'ascension de la classe bourgeoise, de
-même ils ont ruiné le principe de propriété, et dé-
-blayé ainsi la voie où devait s'engager le prolétariat.
+même ils ont ruiné le principe de propriété, et déblayé ainsi la voie où devait s'engager le prolétariat.
 Cette phase a duré assez longtemps, mais le mouvemñent a fini par la dépasser — chez nous, seulement bien après la Commune — et la phase qui lui
 succède est caractérisée par le commencement de
 l'organisation socialiste et de la constitution d'un
-parti politique de classe distinct. Le socialisme de-
-vient une force croissante, vers lui se tournent de
+parti politique de classe distinct. Le socialisme devient une force croissante, vers lui se tournent de
 nombreuses espérances, le prolétariat intellectuel
 est en voie de formation, et c'est alors que l'on constate, pendant toute la durée de cette deuxième
 phase d'une organisation qui se cherche, en même
@@ -748,9 +703,7 @@ tout sans rien savoir. La pénétration des socialistes
 dans le Parlement, la conquête des municipalités,
 la création de journaux du parti: autant de raisons
 pour que les intellectuels en quête d'une situation
-se jettent en masse dans le socialisme. Vous connaissez la phrase fameuse de Marx sur tout ce proléta-
-riat intellectuel, ces « avocats sans causes, ces mé-
-decins sans malades et sans science, ces étudiants
+se jettent en masse dans le socialisme. Vous connaissez la phrase fameuse de Marx sur tout ce prolétariat intellectuel, ces « avocats sans causes, ces médecins sans malades et sans science, ces étudiants
 de billard, ces commis-voyageurs et autres employés
 de commerce, et principalement ces journalistes de
 la petite presse ».
@@ -763,9 +716,7 @@ d'État, créant à ses dépens des situations aux intellectuels, vont en sens i
 Ce qui favorise, au surplus, le succès de ces derniers intellectuels, c'est que le mouvement, dans
 cette phase, est divisé en fractions rivales, à la tête
 desquelles se trouvent des chefs puissants. Ces
-chefs ont besoin d'une clientèle, et ce sont natu34
-
-rellement ces intellectuels déclassés qui la leur
+chefs ont besoin d'une clientèle, et ce sont naturellement ces intellectuels déclassés qui la leur
 
 Il faut dire que d'habitude les chefs valent singulièrement mieux que les parasites qui leur font cortège. Leurs hautes qualités personnelles, le rayonnement de leur action, la puissance de leur parole,
 leur dévouement au socialisme, les élèvent d'ordinaire au-dessus des courtisans qui se servent d'eux
@@ -792,8 +743,7 @@ Vous vous rendez facilement compte du résultat.
 Le mouvement socialiste tend à se couper en deux
 catégories d'éléments contradictoires, et à reproduire la subdivision même des classes de la société
 bourgeoise: en haut, une aristocratie de meneurs,
-avec des intérêts particuliers et une mentalité spé-
-ciale; en bas, la classe ouvrière, se laissant plus ou
+avec des intérêts particuliers et une mentalité spéciale; en bas, la classe ouvrière, se laissant plus ou
 moins conduire — ou se développant isolément
 d'une façon autonome.
 
@@ -806,8 +756,7 @@ s'attarder à une éducation et à une organisation
 complètes de la classe ouvrière. La masse n'a qu'à
 se laisser conduire par ses chefs et la minorité consciente qu'ils ont groupée autour d'eux: elle doit
 avoir confiance, et son bonheur sera fait par elle,
-sans elle ou malgré elle. Quant aux simples politiciens, ils ont des préoccupations moins doctri-
-nales: ils ne tiennent pas à subir de contrôle, ne
+sans elle ou malgré elle. Quant aux simples politiciens, ils ont des préoccupations moins doctrinales: ils ne tiennent pas à subir de contrôle, ne
 veulent dépendre que d'eux-mêmes, et sont en quête
 de places. Bien intentionné ou intéressé, le mépris
 de la masse est donc, la plupart du temps, au fond
@@ -832,9 +781,7 @@ des esprits qui n'ont que des compétences professionnelles et limitées à leur
 
 Mais au moins quelle influence l'action des intellectuels — et je parle de tous, des politiciens d'aventure comme des théoriciens respectables —exercet-elle sur les éléments ouvriers pleinement conscients du mouvement”? Elle provoque une réaction
 contre les intellectuels en général, et contre l'action
-politique en particulier. C'est l'origine du manuel-
-
-lisme et du syndicalisme antiparlementaire.
+politique en particulier. C'est l'origine du manuellisme et du syndicalisme antiparlementaire.
 
 Le manuellisme est l'exagération d'un sentiment
 de légitime défiance à l'égard d'arrivistes sans scrupules ou de chefs autoritaires. Sa forme brutale
@@ -845,15 +792,12 @@ d'organisation insuflisante où l'on ne peut sérieusement contrôler et conduir
 fond de vérité incontestable.
 
 L'antiparlementarisme des syndicalistes a la
-même origine. S'il est dirigé contre l'action poli-
-
-tique en général, c'est parce que la forme spéciale
+même origine. S'il est dirigé contre l'action politique en général, c'est parce que la forme spéciale
 qu'ils en ont sous les yeux est défectueuse: elle
 néglige la masse, ne tient pas compte du prolétariat,
 et donne à une poignée d'hommes venus d'autres
 classes, avec des mentalités nullement ouvrières et
-des intérêts opposés à ceux du prolétariat, la direc-
-tion du mouvement. Ici encore, la réaction contre
+des intérêts opposés à ceux du prolétariat, la direction du mouvement. Ici encore, la réaction contre
 l'action politique — réaction qui d'ailleurs n'est pas
 spéciale à la classe ouvrière, car elle se produit
 aussi dans d'autres classes, et pour les mêmes raisons d'inorganisation — est évidemment exagérée,
@@ -872,8 +816,7 @@ supérieure, que nous allons analyser.
 
 cette troisième phase correspond la forme organique du mouvement socialiste, telle que j'ai essayé
 de la décrire, il y a quelques instants: un mouvement autonome de la classe ouvrière, arrivant
-la pleine capacité politique et administrative, et dé-
-veloppant dans son sein des institutions économiques et des systèmes juridiques et moraux nouveaux.
+la pleine capacité politique et administrative, et développant dans son sein des institutions économiques et des systèmes juridiques et moraux nouveaux.
 
 C'est la phase de l'organisation unitaire du socialisme. Un seul organisme englobe tous les éléments
 les plus divers. C'est un vaste groupement collectif
@@ -883,8 +826,7 @@ en main ses délégués et ses représentants. La classe
 ouvrière se conduit comme une personne libre, ne
 recevant son impulsion que d'elle-même.
 
-Un phénomène nouveau s'est produit: le prolé-
-tariat organisé a tiré de son propre milieu les capacités qui s'y sont lentement créées. Par une sorte de
+Un phénomène nouveau s'est produit: le prolétariat organisé a tiré de son propre milieu les capacités qui s'y sont lentement créées. Par une sorte de
 
 sélection, les ouvriers les plus capables, les plus
 conscients ont acquis une importance et une autorité décisives. Ils contrebalancent l'influence des
@@ -900,8 +842,7 @@ dire simplement que le fait seul de leur apparition
 prouve un degré de maturité et d'organisation de
 la classe ouvrière suflisant pour qu'aucune sorte de
 
-chefs, pris hors du prolétariat ou dans le prolé-
-tariat, ne puissent s'imposer à elle.
+chefs, pris hors du prolétariat ou dans le prolétariat, ne puissent s'imposer à elle.
 
 La division du travail s'établit naturellement
 l'intérieur de l'organisme socialiste. Les intellectuels
@@ -939,9 +880,7 @@ masse qui a ou doit avoir le premier et le dernier
 mot. Dans cet organisme, le contrôle des représentants ou délégués est rigoureux. Les intellectuels
 sont ainsi sous la dépendance stricte du mouvement
 ouvrier, qu'ils ne peuvent corrompre. Journalistes,
-ils sont à sa solde, députés, à son service, propa-
-
-gandistes, à ses ordres.
+ils sont à sa solde, députés, à son service, propagandistes, à ses ordres.
 Dans une organisation solide, par conséquent,
 les intellectuels à qui incombe une fonction quelconque ne sont que les employés du parti. Cest la
 pratique constante de toutes les organisations fortement constituées. Voyez la démocratie socialiste
@@ -983,9 +922,7 @@ Ces intellectuels ainsi employés par le parti.
 comment le parti les traite-til, matériellement?
 
 Cela a son importance! Nous sommes dans une
-organisation démocratique, ouvrière, où les divi-
-
-sions de la hiérarchie bourgeoise, fondées sur
+organisation démocratique, ouvrière, où les divisions de la hiérarchie bourgeoise, fondées sur
 la fausse supériorité des intellectuels, ne doivent
 pas se retrouver. La loi générale qui tend
 s'établir c'est que les appointements ne doivent
@@ -1067,8 +1004,7 @@ Le prolétariat socialiste a donc besoin des intellectuels. Ils peuvent élabore
 de sa pensée et concourir à une partie toujours
 grandissante de sa tâche. Mais il faut pour cela que
 le prolétariat soit uni. Ainsi sont évitées les corruptions et les déviations qui ne manquent pas de
-se produire toutes les fois que les intellectuels pénè-
-trent dans un mouvement inorganique. Ils apportent avec eux leurs ambitions, leurs façons de penser idéologiques, leurs points de vue petit bourgeois
+se produire toutes les fois que les intellectuels pénètrent dans un mouvement inorganique. Ils apportent avec eux leurs ambitions, leurs façons de penser idéologiques, leurs points de vue petit bourgeois
 et antiprolétariens. Dans un mouvement général
 de classe, au contraire, ils sont absorbés par la
 masse, instruits par elle, transformés par elle, assimilés par elle.
@@ -1076,9 +1012,7 @@ masse, instruits par elle, transformés par elle, assimilés par elle.
 C'est ce qui explique comment le socialisme devient de plus en plus réaliste, c'est-à-dire plus préoccupé des conditions réelles de la lutte, et moins
 hypnotisé par le cataclysme final. Tant que les intellectuels sont les directeurs exclusifs du mouvement,
 nous sommes en plein dans l'utopie. Nous allons au
-contraire vers la science, c'est-à-dire vers la con-
-
-science des nécessités de l'action pratique, à mesure que l'influence des intellectuels de la classe
+contraire vers la science, c'est-à-dire vers la conscience des nécessités de l'action pratique, à mesure que l'influence des intellectuels de la classe
 bourgeoise devient moins personnelle et que le
 
 développement des institutions économiques de la
@@ -1110,8 +1044,7 @@ désordre un élément de vie. Il profite, d'abord, de
 - l'absence de tout contrôle de la masse et agit en
 pleine fantaisie. Les fractions, dans le combai
 qu'elies mènent les unes contre les autres, risquent
-ensuite d'être forcées d'accepter toutes sortes d'élé-
-ments douteux, qui, quoique sans valeur ni moralité, peuvent leur rendre des services. Il est possible
+ensuite d'être forcées d'accepter toutes sortes d'éléments douteux, qui, quoique sans valeur ni moralité, peuvent leur rendre des services. Il est possible
 qu'elles soient amenées à couvrir ces intellectuels
 parasites, à dissimuler les agissements de cette
 clientèle, par crainte de se déconsidérer ellesmêmes dans des divulgations compromettantes. La
@@ -1119,8 +1052,7 @@ division socialiste est une prime à l'envahissement
 du parti par les éléments contestables du prolétariat
 
 Mais ce qui, plus encore que le fractionnement
-du parti socialiste, favorise, en France, la péné-
-tration de toutes sortes d'intellectuels dans le socialisme, c'est son caractère essentiellement politique.
+du parti socialiste, favorise, en France, la pénétration de toutes sortes d'intellectuels dans le socialisme, c'est son caractère essentiellement politique.
 La présence de Millerand au ministère n'a fait que
 déchaîner, sans nul doute, bien des convoitises latentes et des espérances contenues. Depuis que le socialisme grandissait, beaucoup de regards se tournaient vers lui, comme vers le parti de l'avenir. La
 participation d'un socialiste au pouvoir a fait lâcher
@@ -1150,13 +1082,9 @@ beaucoup de lieux communs. Produits de cette
 des nécessités de la production moderne, ils restent
 inutilisables par la vie pratique. La politique les
 reçoit tous, et le socialisme — en partage avec les
-mouvements de mécontentement, comme l'antisé-
-mitisme — en recueille une notable partie.
+mouvements de mécontentement, comme l'antisémitisme — en recueille une notable partie.
 
-Le socialisme en prend d'autant plus que la dé-
-composition des vieux partis démocratiques, sur-
-
-tout du parti radical et du parti radical-socialiste,
+Le socialisme en prend d'autant plus que la décomposition des vieux partis démocratiques, surtout du parti radical et du parti radical-socialiste,
 ont encouragé singulièrement la venue au socialisme des professionnels de la politique. Le vent est
 au socialisme: qui n'est pas socialiste?
 
@@ -1218,8 +1146,7 @@ Ce qui constitue aujourd'hui le danger fera la
 puissance du socialisme. Jamais notre mouvement
 n'a tant besoin des forces vives de la pensée; il
 falloir, à mesure que s'étend le domaine de son
-action pratique, qu'il ait à sa disposition des spécia-
-listes compétents, qui le renseigneront sur toutes les
+action pratique, qu'il ait à sa disposition des spécialistes compétents, qui le renseigneront sur toutes les
 questions qui exigent des connaissances techniques.
 La classe intellectuelle peut lui fournir ces spécialistes, comme elle lui donne déjà ses savants. Pour
 le surplus, le prolétariat prendra lui-même dans son
@@ -1263,9 +1190,7 @@ Il est une propagande plus haute et plus sûre.
 C'est celle qui consiste à leur donner la conscience
 du développement historique, à ruiner dans leur
 esprit les vieilles méthodes de penser, à leur montrer la rencontre du prolétariat et de la science.
-Par peuventse conquérir les intelligences désinté-
-
-ressées, les consciences avides de raison et de vérité.
+Par peuventse conquérir les intelligences désintéressées, les consciences avides de raison et de vérité.
 Rappelez-vous les déclarations d'Enrico Ferri, au
 récent Congrès international des Étudiants et
 
@@ -1341,9 +1266,7 @@ aux colonies ou de créer à leur profit des entreprises
 d'État. On s'est préoccupé aussi de modifier les
 programmes d'enseignement afin de créer des
 capacités plus conformes à l'évolution industrielle.
-Le professeur Stein voit le remède dans le dévelop-
-
-pement indéfini du Socialisme d'État, qui permettrait de distribuer sans compter places et fonctions
+Le professeur Stein voit le remède dans le développement indéfini du Socialisme d'État, qui permettrait de distribuer sans compter places et fonctions
 aux inoccupés de la classe intellectuelle!
 
 Je ne nie pas l'importance du problème. Mais
@@ -1371,8 +1294,7 @@ comme conclusion à nos recherches cette formule
 Dans le socialisme, les intellectuels ne peuvent
 servir qu'à titre d'employés ou de légistes.
 
-Par exception nous mettons ce cahier dans le com-
-merce. Nous le vertdons un franc. Pour la propagande
+Par exception nous mettons ce cahier dans le commerce. Nous le vertdons un franc. Pour la propagande
 nous en vendons
 
 douze exemplaires pour huit francs,

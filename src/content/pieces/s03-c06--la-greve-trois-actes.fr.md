@@ -357,10 +357,7 @@ ue: Guérin. — C'est pas de refus.
 14 #1 D. Larour.— Allons, ma bonne femme, nous chercher du vin; te donnera des couleurs. 11 sourit.
 Mapame Larour.— J'y vas, ivrogne. Elle sourit et sort.
 LAToUR, à Guérin. — Alors comme ça... 11 mange.
-‘is Le: GuÉRIN, près de la fenêtre. — Voilà. C'est un com-
-pagnon frappeur qu'allait au magasin. Là, il ren-
-
-contre... Tiens, tu dois le connaître, le voilà dans 4 la rue.
+‘is Le: GuÉRIN, près de la fenêtre. — Voilà. C'est un compagnon frappeur qu'allait au magasin. Là, il rencontre... Tiens, tu dois le connaître, le voilà dans 4 la rue.
 LATOUR, regardant dans la rue. — Ah mais! c'est le
 a 4 grand Lantier, un frère. Il ne refusera pas de trin- à
 quer avec nous. Ouvrant la fenêtre. Lantier! monte
@@ -418,9 +415,7 @@ talime!.… Mais tu la changes tous les deux jours!
 C'est pour flemmarder... et patati.. et patata… » Il
 n'en finissait plus.
 GuÉRIN. — Il marronnait, le frère.
-LanTiER. — Quand il s'a tu, j'y ai dit tout sim-
-
-plem: « Tout ça, c'est des paroles en l'air; j'ai changé
+LanTiER. — Quand il s'a tu, j'y ai dit tout simplem: « Tout ça, c'est des paroles en l'air; j'ai changé
 ma lime y a huit jours. Si c'est que vous ne me
 croyez pas, demandez-le au père Mautard, mon
 
@@ -679,7 +674,7 @@ Ordre du jour: La grève. Tambour.
 
 -
 4 “1% Le père MAUTARD, ouvrier forgeron..:
-0 Groupesd'ouvriersassez importants..
+Groupesd'ouvriersassez importants..
 Les MÊMES, moins les cinq ouvriers et les groupes
 qui étaient dans la salle.
 
@@ -714,8 +709,7 @@ L'ORATEUR. — Sachez ceci, camarades: vos
 “4 contre vous, vous qui n'osez pas vous syndiquer.
 É Réunis, vos maîtres escomptent votre peau, mais
 espérons qu'ils auront vendu la peau de l'ours avant
-4 de l'avoir tué et que vous vous: réveillerez! Applau-
-dissements, Sachez encore ceci: seuls vous n'êtes rien:
+4 de l'avoir tué et que vous vous: réveillerez! Applaudissements, Sachez encore ceci: seuls vous n'êtes rien:
 ! unis, vous êtes la force et le nombre, une force que
 rien ne pourra vaincre. Rien, entendez-vous. Que
 craignez-vous alors? Que pouvez-vous craindre?
@@ -737,8 +731,7 @@ monsieur... au citoyen... au père Mautard, quoi!
 Le PÈRE MAUTARD, sur l'estrade. — Mes bons amis,
 vous avez entendu les orateurs qui ont parlé avant
 mon tour... Les uns voulaient qu'on chôme; les
-autres pas. Moi, j'ai écouté avec toute mon intelli-
-faut point: c'est à vous de Le savoir. Mouvements. Je
+autres pas. Moi, j'ai écouté avec toute mon intellifaut point: c'est à vous de Le savoir. Mouvements. Je
 : ne sais pas parler. Je ne suis point un orateur. Je A
 n'ai jamais été dans les écoles. Je suis un ouvrier,
 quoi! Vous me connaissez bien, peut-être? Mais
@@ -876,9 +869,7 @@ ouvrier. (1) — Que veux-tu, c'est comme ça.
 — Et puis, c'est ce qu'il y avait de mieux.
 UN OUVRIER (2) avec conviction. — Probable.
 ouvrier. (5) — Ben, c'est vrai; mais je suis 0 tout chaviré en pensant que demain je n'irai pas gratter à l'étau.
-UN oUvRIER (2) goguenard, — Tu seras rentier, vei-
-
-ouvrier. (5) — Veinard toi-même!
+UN oUvRIER (2) goguenard, — Tu seras rentier, veiouvrier. (5) — Veinard toi-même!
 LE PÈRE MaAUTARD, qui a entendu les derniers mots. —
 
 Rentier sans rentes. On rit. C'est bon de rire, mais
@@ -1051,8 +1042,7 @@ des paysans ou des ouvriers, des femmes, etc.;.
 Quand la toile se lève, l'aubergiste ROLLET essuie ses tables, en
 se parlant à lui-même. — Jeudi, mariage de Marthe
 . J'irai demain au marché pour les provisions.
-Rangeant un journal. Encore une loi sur les établis-
-sements publics où l'on débite des boissons. ES
+Rangeant un journal. Encore une loi sur les établissements publics où l'on débite des boissons. ES
 Un impôt sur l'alcool. Notre député la danser.
 Il avait bien promis, pourtant... Mais voilà... une
 fois à Paris. ils ne pensent qu'à un tas de saloperies, qui ruinent leur santé, et qui bäfrent notre
@@ -1264,8 +1254,7 @@ LE PÈRE MAUTARD, se levant, trés fort, avec fracas. à
 Ah! bon Dieu de bon Dieu! je... On les arrête.
 GRos-JEAx.— Bonne réponse... Quand on a plus À
 rien à répondre. On rit. — Le silence se rétablit.
-Boxtemps.— Tu as parlé tout à l'heure d'Alle-
-mands, d'Anglais? Crois-tu que ce soient des
+Boxtemps.— Tu as parlé tout à l'heure d'Allemands, d'Anglais? Crois-tu que ce soient des
 - hommes comme te voilà, toi?
 BoxremPrs. — Ils n'ont donc point le droit de
 manger du pain?
@@ -1359,8 +1348,7 @@ AUTRE. (5) — Ou bien encore: « done,
 4 puis... » Rires des hommes.
 Le PÈRE Maurarp. — Les femmes finiront par
 entendre raison; mais ceux qui sont les plus fautifs
-ù à mon avis, ce sont ceux qui sont rentrés les pre-
-ouvrier. (3) — C'est pas moi, moi j'étais à
+ù à mon avis, ce sont ceux qui sont rentrés les preouvrier. (3) — C'est pas moi, moi j'étais à
 È battre le blé avec Pierre Viard, mon beau-frère,
 ?. AUTRE oUvRIER. (4) — C'est Godefroy.
 
@@ -1398,8 +1386,7 @@ Gros-JEAN. regarde comiquement autour de lui. — Lequel? J'en vois point? Rires
 BoNTEMPS, haussant les épaules. — Es-tu gosse! Rires.
 Tu connais aussi bien que moi les quelques bribes
 d'avantages que nous avons retirées. Nous avons
-appris à nous mêler de nos affaires et à les entre-
-prendre nous-mêmes.
+appris à nous mêler de nos affaires et à les entreprendre nous-mêmes.
 : LE PÈRE MAUTARD, paternel. — Bien dit, mon fi.
 à BonrEmps, encouragé, d'une voix plus chaude, — Toi,
 Godefroy, quelqu'un peut-il dire qu'il connaît tes
@@ -1444,9 +1431,7 @@ BonremPs. — À ce moment, le père est mort. Il a
 Jean Hugues. — la Grève à
 bien fallu gagner son pain: mon oncle était tour- neur, il m'a mis à la coule... Être dans un bureau,
 
-ne m'a jamais rien dit... Je suis devenu compa-
-
-gnon, et mes études, que je croyais inutiles, m'ont
+ne m'a jamais rien dit... Je suis devenu compagnon, et mes études, que je croyais inutiles, m'ont
 
 À bien servi depuis... plus que je ne pensais...
 
@@ -1454,9 +1439,7 @@ ouvrier. (5) — À quel âge as-tu quitté le.
 
 Bonremps. — Quinze ans. J'allais sur mes seize à ans.
 
-L'ouvrier. (5) — On peut dire que t'as été favo-
-
-risé.. auprès de nous. À douze ans on quitte la
+L'ouvrier. (5) — On peut dire que t'as été favorisé.. auprès de nous. À douze ans on quitte la
 laïque, et hop! à la boîte; faut commencer à
 
 es … -UX ouvRIER. — donc, donc, tu seras contremaitre..
@@ -1668,8 +1651,7 @@ d'avoir commis les fautes usuelles dans une affaire où à
 elles devaient avoir les plus déplorables conséquences.
 En attendant que nos abonnés aient ainsi les renseignements qui leur sont indispensables pour agir, je me
 ne? permets de recommander à ceux d'entre eux qui sont
-universitaires une sagesse exacte. Je sais qu'en recom-
-mandant la prudence, l'attention, je fais un personnage
+universitaires une sagesse exacte. Je sais qu'en recommandant la prudence, l'attention, je fais un personnage
 1 ingrat. Les braves gens de ce pays ont toujours mieux
 
 aimé les chefs qui les font battre que les honnêtes
@@ -1751,8 +1733,7 @@ patience intellectuelle, de la délibération intellectuelle.
 Les abonnés des cahiers ont dans mon article ton
 article entier, conformément à la méthode qui, aux
 cahiers, nous paraît seule juste. Ils ont donc la
-phrase omise par M. leicomte de Mun. Il y a contra-
-diction logique et morale entre tes deux attitudes. Si
+phrase omise par M. leicomte de Mun. Il y a contradiction logique et morale entre tes deux attitudes. Si
 vraiment tu voulais engager avec l'abbé Denis une
 courtoise discussion, tu devais protester contre les
 clameurs qui d'avance écrasaient cette discussion.

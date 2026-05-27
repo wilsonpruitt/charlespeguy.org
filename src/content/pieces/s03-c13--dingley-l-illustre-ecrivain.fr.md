@@ -1114,8 +1114,7 @@ de la mortalité qui règne ici, parmi les enfants.
 Mais qu'y faire? Si le général en chef les avait
 laissés eux et leurs mères dans les fermes, ils y
 seraient morts de faim. Que la responsabilité du
-sang versé retombe sur ceux qui s'obstinent à con-
-tinuer la guerre avec un entêtement féroce et
+sang versé retombe sur ceux qui s'obstinent à continuer la guerre avec un entêtement féroce et
 stupide... Dites à Archie que je lui rapporterai un
 grand fouet boer long de neuf pieds et des boîtes
 Quand la femme de Dingley reçut cette lettre,
@@ -1220,10 +1219,7 @@ temps-là, sa femme et son fils? Énervé par cette
 course de nuit et par la pensée qu'il n'était pas, qu'il ne serait sans doute pas de longtemps encore
 auprès de son fils, que Archie pouvait mourir sans
 
-. qu'il en fût même averti, il répondit avec une brus-
-
-querie impolie à un jeune Boer qui lui demandait, dans l'anglais le plus élégant, qui il était et com-
-ment il passait si tard dans ces parages.
+. qu'il en fût même averti, il répondit avec une brusquerie impolie à un jeune Boer qui lui demandait, dans l'anglais le plus élégant, qui il était et comment il passait si tard dans ces parages.
 
 . — Vous nous permettrez de visiter vos poches, répondit le Boer: c'est l'usage de la guerre.
 
@@ -1422,9 +1418,7 @@ ilavait visité la ville. C'était alors une ville de
 
 paysans avec ses rues larges comme une piste de
 chars, bordées de petites maisons de briques à un
-étage. IL était arrivé un jour de marché. Il se sou-
-
-vint des longs chariots, avec leurs bâches, alignés À
+étage. IL était arrivé un jour de marché. Il se souvint des longs chariots, avec leurs bâches, alignés À
 
 sur la grande place comme les tentes d'un camp...
 
@@ -1670,8 +1664,7 @@ sa rigidité cadavérique.
 
 Dingley pensa que cethomme aurait volontiers
 donné, s'il les eût possédés, tous les trésors de cette
-terre, cette terre elle-même, pour seulement pou-
-voir remuer le bout de sa langue.
+terre, cette terre elle-même, pour seulement pouvoir remuer le bout de sa langue.
 
 Il ressemblait à Barr; il avait la taille, les yeux, À
 la face blafarde de son héros. Songeant à son roman, À

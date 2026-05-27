@@ -90,8 +90,7 @@ tellement, pendant qu'il jouait, qu'il était sur le point
 de s'arrêter net au milieu du morceau. L'air manquait
 autour de lui; il était comme asphyxié; il tombait
 dans le vide. On le comblait de félicitations, quand
-il avait fini; on l'assommait de compliments; on le pré-
-sentait de l'un à l'autre. Il pensait qu'on le regardait
+il avait fini; on l'assommait de compliments; on le présentait de l'un à l'autre. Il pensait qu'on le regardait
 comme un animal curieux, qui faisait partie de la ménagerie du prince, et que les éloges s'adressaient plus à
 son maître qu'à lui. Il se croyait avili, et il devenait
 d'une susceptibilité maladive, dont il souffrait d'autant
@@ -147,8 +146,7 @@ Ou bien quelque compliment ingénieux, afin de l'ama-
 
 Mais Christophe, maussade et irrité, répondait à peine
 par un: « Bonsoir! » très sec, et allait bouder dans un
-coin. Le vieux insistait, posait des questions plus pré-
-cises, auxquelles l'enfant ne répondait que par oui ou
+coin. Le vieux insistait, posait des questions plus précises, auxquelles l'enfant ne répondait que par oui ou
 par non. Les autres se mettaient de la partie, demandaient des détails: Christophe se renfrognait de plus en
 plus; il fallait lui arracher les mots de la bouche,
 jusqu'à ce que Jean-Michel, furieux, s'emportt, et lui
@@ -167,8 +165,7 @@ intimement. Mais chacun sait qu'il n'est rien de plus
 difficile qu'une intimité absolue entre enfants et parents,
 même quand il y a des uns aux autres la plus tendre
 
-affection; car, d'une part, le respect décourage les confidences; de l'autre, l'idée souvent erronée de la supé-
-riorité de l'âge et de l'expérience empêche d'attacher
+affection; car, d'une part, le respect décourage les confidences; de l'autre, l'idée souvent erronée de la supériorité de l'âge et de l'expérience empêche d'attacher
 assez de sérieux aux sentiments de l'enfant, aussi
 intéressants parfois que ceux des grandes personnes,
 et presque toujours plus sincères.
@@ -192,11 +189,8 @@ semblables à eux-mêmes, s'avancent lourdement, avec
 une niaiserie solennelle, et de plates harmonies. Chris-:
 tophe se réfugiait alors dans la chambre la plus
 éloignée et injuriait les murs.
-Grand-père avait aussi ses amis: l'organiste, le ta-
-pissier, l'horloger, la contrebasse, de vieilles gens
-bavardes, qui ressassaient toujours les mêmes plai16
-
-santeries, et se lançaient dans d'interminables discussions sur l'art, sur la politique, ou sur les généalogies
+Grand-père avait aussi ses amis: l'organiste, le tapissier, l'horloger, la contrebasse, de vieilles gens
+bavardes, qui ressassaient toujours les mêmes plaisanteries, et se lançaient dans d'interminables discussions sur l'art, sur la politique, ou sur les généalogies
 des familles du pays, — bien moins intéressés par les
 sujets dont ils parlaient, qu'heureux de parler et de
 trouver à qui parler.
@@ -220,9 +214,7 @@ habitudes morales, les citations de Goethe à propos des
 moindres actes de la vie domestique; et c'était un singulier mélange de conscience et d'intérêt, un effort
 bizarre pour accorder l'honnêteté de principes de l'ancienne bourgeoisie allemande avec le cynisme de ces
 nouveaux condottieri de magasin: mélange qui ne
-laissait pas d'avoir une odeur d'hypocrisie assez répu-
-
-gnante, — aboutissant à faire de la force, de la cupidité, et de l'intérêt allemands le symbole de tout droit,
+laissait pas d'avoir une odeur d'hypocrisie assez répugnante, — aboutissant à faire de la force, de la cupidité, et de l'intérêt allemands le symbole de tout droit,
 de toute justice, et de toute vérité.
 
 La loyauté de Christophe en était profondément
@@ -238,8 +230,7 @@ lui-même gêné. Quoi qu'il pensât d'ailleurs, Théodore
 lui en imposait; il éprouvait du respect pour uné
 habileté pratique, qu'il enviait d'autant plus qu'il s'en
 savait absolument incapable. Il rêvait pour un de ses
-petits-fils une situation semblable. C'était aussi l'in-
-tention de Melchior, qui destinait Rodolphe à suivre
+petits-fils une situation semblable. C'était aussi l'intention de Melchior, qui destinait Rodolphe à suivre
 les traces de son oncle. Aussi tout le monde dans la
 maison s'ingéniait à flatter le parent riche, dont on
 attendait des services. Celui-ci, se voyant nécessaire,
@@ -324,8 +315,7 @@ sur la route. Il montait sur la table; Gottfried le recevait
 de l'autre côté, sur ses épaules. Ils partaient, heureux
 comme des écoliers.
 
-Quelquefois, ils allaient retrouver Jérémie, le pé-
-cheur, un ami de Gottfried; et on filait dans sa barque,
+Quelquefois, ils allaient retrouver Jérémie, le pécheur, un ami de Gottfried; et on filait dans sa barque,
 au clair de lune. L'eau s'égouttant des rames faisait de
 petits arpèges, des notes chromatiques. Une vapeur de
 lait tremblait à la surface du fleuve. Les étoiles frissonnaient. Les coqs se répondaient de l'une à l'autre rive;
@@ -333,9 +323,7 @@ et parfois on entendait, dans les profondeurs du ciel,
 les trilles des alouettes, qui montaient de la terre,
 trompées par la clarté de la lune. On se taisait.
 Gottfried chantait tout bas un air. Jérémie racontait des
-histoires étranges de la vie des animaux; elles parais-
-
-saient d'autant plus mystérieuses, qu'il s'exprimait
+histoires étranges de la vie des animaux; elles paraissaient d'autant plus mystérieuses, qu'il s'exprimait
 d'une façon brève et énigmatique. La lune se cachait
 derrière les forêts. On longeait la sombre masse des
 collines. Les ténèbres du ciel et de l'eau se fondaient.
@@ -363,14 +351,13 @@ rien, si Ernst, le frère cadet, n'avait un jour dénoncé les
 sorties de Christophe: dès lors, elles lui furent interdites, et on le surveilla. Il ne s'en échappait pas moins;
 et il préférait à toute autre société celle du petit colporteur et de ses amis. Les siens étaient scandalisés. Melchior disait qu'il avait des goûts de manant. Le vieux à
 Jean-Michel était jaloux de l'affection de Christophe
-pour Gottfried; et il le sermonnaït de s'abaisser à;
+pour Gottfried; et il le sermonnaït de s'abaisser
 plaisir en une compagnie aussi vulgaire, quand il avait
 l'honneur d'approcher l'élite, et de servir les princes.
 On trouvait que Christophe manquait de dignité et
 de respect de soi-même.
 
-Malgré les embarras d'argent croissant avec l'intempérance et la fainéantise de Melchior, la vie fut sup-
-portable, tant que Jean-Michel fut là. Il était le seul
+Malgré les embarras d'argent croissant avec l'intempérance et la fainéantise de Melchior, la vie fut supportable, tant que Jean-Michel fut là. Il était le seul
 qui eût quelque influence sur Melchior, et qui le
 retint, dans une certaine mesure, sur la pente de son
 vice. Puis l'estime universelle dont il jouissait n'était
@@ -401,8 +388,7 @@ baisser la tête sous l'averse d'injures et de reproches
 
 humiliants, que son père déchargeait sur lui avecfracas.
 Il n'en guettait pas moins la prochaine occasion de:
-recommencer; et Jean-Michel avait de tristes appré-
-bensions, en pensant à l'avenir.
+recommencer; et Jean-Michel avait de tristes apprébensions, en pensant à l'avenir.
 
 — Mes pauvres enfants, disait-il à Louisa, qu'est-ce
 que vous deviendriez, si je n'étais plus!.. Heureu-
@@ -427,8 +413,7 @@ avait bon pied, bon @&il, et une activité infatigable. A
 six heures, il était levé, et faisait méticuleusement sa
 toilette; car il avait le souci du décorum, et le respect
 de sa personne. Il vivait seul dans sa maison, s'occupant de tout lui-même, et ne souffrant pas que sa bru
-mit le nez dans ses affaires; il faisait sa chambre, pré-
-parait son café, recousait ses boutons, clouait, collait, raccommodait; et, tout en allant et venant, en bras
+mit le nez dans ses affaires; il faisait sa chambre, préparait son café, recousait ses boutons, clouait, collait, raccommodait; et, tout en allant et venant, en bras
 de chemise, du haut en bas de la maison, il chantait
 sans s'arrêter, d'une voix de basse retentissante, qu'il
 se plaisait à faire sonner, accompagnant ses airs de
@@ -453,8 +438,7 @@ d'un peu de goutte aux doigts de pied, qui le faisait
 jurer la nuit, au milieu de ses lectures de la Bible.
 semblait qu'il pût durer ainsi jusqu'au bout de son
 siècle, et il ne voyait lui-même aucune raison pour qu'il
-ne le dépassât point; quand on lui prédisait qu'il mour-
-rait centenaire, il pensait, comme un autre vieillard
+ne le dépassât point; quand on lui prédisait qu'il mourrait centenaire, il pensait, comme un autre vieillard
 illustre, qu'il ne faut point assigner de limites aux bienfaits de la Providence. On ne s'apercevait qu'il vieillissait qu'à ce qu'il avait plus facilement la larme à l'œil,:
 et qu'il devenait plus irritable chaque jour. La moindre
 ; impatience le jetait dans des accès de colère folle. Sa
@@ -501,9 +485,7 @@ yeux. Il hurla de nouveau et prit la fuite à toutes
 jambes. Il courut sans s'arrêter jusqu'à la maison de
 sa mère, comme s'il était poursuivi. Il fit irruption
 dans la cuisine, avec des cris affreux. Louisa épluchait
-des légumes. Il se jeta sur elle et l'étreignit avec déses-
-
-poir, pour qu'elle vint à son secours. La figure convulsée par ses sanglots, il pouvait à peine parler. Mais dès
+des légumes. Il se jeta sur elle et l'étreignit avec désespoir, pour qu'elle vint à son secours. La figure convulsée par ses sanglots, il pouvait à peine parler. Mais dès
 le premier mot, elle comprit. Elle devint toute blanche,
 laissa tomber ce qu'elle tenait, et sans une parole, se
 précipita hors de la maison.
@@ -543,8 +525,7 @@ que tout était fini. Mais quand il entendit son souflle
 oppressé, quand, en regardant mieux, il vit cette figure
 bouflie, où la meurtrissure de la chute faisait une large
 tache violacée, quand il comprit que celui qui était
-allait mourir, il se remit à trembler; et, tout en répé-
-tant la prière de Louisa pour que grand-père guérit, il
+allait mourir, il se remit à trembler; et, tout en répétant la prière de Louisa pour que grand-père guérit, il
 priait au fond de lui, pour que, si grand-père ne devait
 pas guérir, grand-père fût déjà mort. Il avait l'épouvante de ce qui allait se passer.
 
@@ -671,9 +652,7 @@ instant. Mais qu'y faire? C'est ainsi. Il faut se soumettre.
 
 Christophe secoua la tête avec révolte.
 
-— Il faut se soumettre, mon enfant, répéta Gott-
-
-fried. 11 l'a voulu là-haut. Il faut aimer ce qu'Il
+— Il faut se soumettre, mon enfant, répéta Gottfried. 11 l'a voulu là-haut. Il faut aimer ce qu'Il
 
 — Je le déteste! cria Christophe haineusement, en
 montrant le poing au ciel.
@@ -722,8 +701,7 @@ de le hanter. Pourtant, il y a longtemps déjà qu'il sait
 peur. Mais jamais il ne l'avait encore vue; et qui la
 voit pour la première fois, s'aperçoit qu'il ne connaissait rien encore, ni de la mort, ni de la vie. Tout est
 ébranlé d'un coup; toute la raison qu'on a ne sert de
-rien. On croyait vivre, on croyait avoir quelque expé-
-rience de la vie: on voit qu'on ne savait rien, on voit
+rien. On croyait vivre, on croyait avoir quelque expérience de la vie: on voit qu'on ne savait rien, on voit
 qu'on ne voyait rien, qu'on vivait enveloppé d'un voile
 d'illusions, que l'esprit avait tissé, et qui cachait aux
 yeux le visage terrible de la réalité. Il n'y a nul rapport entre l'idée de la souffrance, et l'être qui saigne
@@ -745,8 +723,7 @@ cette épouvantable Force de destruction, et qu'il
 avait rien à faire. Mais loin de.l'accabler, cette pensée
 
 le brûlait d'indignation et de haine. Il n'avait rien:
-d'un résigné. Il se lançait tèle baïissée contre l'impos-
-sible; et il avait beau se briser le front, et reconnaître qu'il n'était pas le plus fort; il ne cessait point
+d'un résigné. Il se lançait tèle baïissée contre l'impossible; et il avait beau se briser le front, et reconnaître qu'il n'était pas le plus fort; il ne cessait point
 
 : d'être un révolté contre la souffrance. Dès lors, sa vie
 fut une lutte de tous les instants contre la férocité d'un
@@ -777,9 +754,7 @@ stupide, où il était pris d'une démangeaison irrésistible
 de dire et de faire des sottises! Ne s'avisa-t-il pas,
 un soir, de vouloir exécuter son grand concerto de violon, au milieu d'un acte de la Walküre! On eut
 toutes les peines du monde à l'en empêcher. Il arrivait
-aussi qu'il éclatât de rire, en jouant, pendant la repré-
-
-sentation, sous l'empire des impressions plaisantes qui
+aussi qu'il éclatât de rire, en jouant, pendant la représentation, sous l'empire des impressions plaisantes qui
 se déroulaient sur la scène, ou dans son cerveau. Il
 faisait la joie de ses voisins, et on lui passait beaucoup
 de choses, à cause de son ridicule. Mais cette indulgence était pire que la sévérité même; et Christophe en
@@ -802,8 +777,7 @@ supplice pour lui. Il ramenaiïit son père à la maison!
 après la fin du spectacle; il lui donnait le bras, subis- à
 sait ses bavardages, s'évertuait à cacher l'incertitude
 de sa marche. Mais à qui faisait-il illusion? Et malgré
-ses efforts, il était rare qu'il réussit à conduire Mel-
-chior jusqu'au bout. Arrivé au tournant de la rue,
+ses efforts, il était rare qu'il réussit à conduire Melchior jusqu'au bout. Arrivé au tournant de la rue,
 Melchior déclarait qu'il avait un rendez-vous urgent
 
 avec quelques amis, et aucun argument ne pouvait lui
@@ -865,9 +839,7 @@ et ne s'en émut pas, résolu, quand il la découvrirait,
 à les rosser vigoureusement, comme il avait cou
 tume. dédaigna donc d'approfondir la chose, et il
 se mit à causer avec son père, qui, assis au coin du
-feu, l'interrogeait sur sa journée avec une affecta-
-
-tion d'intérêt, auquel il n'était point fait. Tandis qu'il
+feu, l'interrogeait sur sa journée avec une affectation d'intérêt, auquel il n'était point fait. Tandis qu'il
 
 lui parlait, il s'aperçut que Melchior ‘échangeait en
 
@@ -1052,8 +1024,7 @@ dire, — parce que, comme je viens toucher mon traitement, chaque mois, il est 
 même temps celui de mon père. Il est inutile que nous
 nous dérangions tous deux... Mon père est très occupé!
 
-Il rougissait de l'absurdité de son explication. L'em-
-ployé le regardait avec un mélange d'ironie et de pitié. à
+Il rougissait de l'absurdité de son explication. L'employé le regardait avec un mélange d'ironie et de pitié. à
 Christophe, froissant le papier dans sa main, fit mine
 de sortir. L'autre se leva, et lui prit le bras.
 
@@ -1119,20 +1090,16 @@ sans oser lever les yeux. Il se retrouva hors du chä-
 teau. Il était glacé de honte. Tout ce qu'on lui avait
 dit lui revenait à l'esprit; et il s'imaginait sentir
 une ironie injurieuse dans#la pitié des gens qui l'esti-:
-maient et le plaignaient. Il rentra à la maison, etrépon-
-dit à peine par quelques mots irrités aux questions de
+maient et le plaignaient. Il rentra à la maison, etrépondit à peine par quelques mots irrités aux questions de
 Louisa, comme s'il lui gardait rancune de ce qu'il venait
 de faire. Il était déchiré de remords, à la pensée deson
 père. Il voulait lui avouer tout, lui demander pardon.
-Melchior n'était pas là. Christophe l'attendit sans dor-
-
-mir, jusqu'au milieu de la nuit. Plus il pensait à lui,
+Melchior n'était pas là. Christophe l'attendit sans dormir, jusqu'au milieu de la nuit. Plus il pensait à lui,
 plus ses remords augmentaient; il l'idéalisait; il se le
 représentait faible, bon, malheureux, trahi par les siens.
 Dès qu'il entendit son pas dans l'escalier, il sauta du
 lit pour courir à sa rencontre, et se jeter dans ses bras.
-Mais Melchior rentrait dans un état d'ivresse si dégoû-
-tant, que Christophe n'eut même pas le courage de
+Mais Melchior rentrait dans un état d'ivresse si dégoûtant, que Christophe n'eut même pas le courage de
 lapprocher; et il alla se recoucher, en raillant amèrement ses illusions.:
 
 Quand Melchior, quelques jours plus tard, apprit ce
@@ -1157,8 +1124,7 @@ tâchait aussi de soutirer de l'argent à Christophe, par
 toutes sortes de câlineries et de ruses ingénieuses, qui
 donnaient souvent envie de rire à Christophe, bien qu'il
 n'en eût guère sujet. Mais comme Christophe tenait bon,
-Melchior n'insistait pas. Il se sentait étrangement inti-
-midé devant les yeux sévères de cet enfant de quatorze
+Melchior n'insistait pas. Il se sentait étrangement intimidé devant les yeux sévères de cet enfant de quatorze
 
 ans, qui le jugeait. Il se vengeait en cachette par
 quelque mauvais tour. Il allait au cabaret, buvait et
@@ -1200,9 +1166,7 @@ leçons. Son talent de virtuose, sa bonne réputation, et
 surtout la protection du prince, lui attirèrent une nombreuse clientèle dans la haute bourgeoisie. Tous les
 matins, depuis neuf heures, il enseignait le piano à des
 fillettes, souvent plus âgées que lui, qui l'intimidaient
-horriblement par leurs coquetteries, et qui l'exaspé-
-
-raient par la niaiserie de leur jeu. Elles étaient en
+horriblement par leurs coquetteries, et qui l'exaspéraient par la niaiserie de leur jeu. Elles étaient en
 musique d'une stupidité parfaite; en revanche, elles possédaient toutes, plus ou moins, un sens aigu du ridicule; et leur regard moqueur ne faisait grâce à Christophe d'aucune de ses maladresses. C'était une torture
 pour lui. Assis à côté d'elles, sur le bord de sa chaise,
 rouge et guindé, crevant de colère et n'osant pas
@@ -1287,9 +1251,7 @@ le joug pleine conscience de la valeur de la liberté; et
 il ne gaspillait pas les minutes précieuses à des actes,
 ou des mots inutiles. Sa tendance naturelle à écrire
 avec une abondance diffuse, livré à tous les caprices
-d'une pensée sincère, mais sans choix, trouva son cor-
-
-rectif dans l'obligation de penser et d'agir le plus possible en le moins de temps possible. Rien n'eut tant
+d'une pensée sincère, mais sans choix, trouva son correctif dans l'obligation de penser et d'agir le plus possible en le moins de temps possible. Rien n'eut tant
 d'influence sur son développement artistique et moral:
 — ni les leçons de ses maîtres, ni l'exemple des chefsd'œuvre. Il prit, dans ces années où le caractère se
 forme, l'habitude de considérer la musique comme une
@@ -1306,39 +1268,33 @@ l'enfant, comme une seconde nature. Il n'avait que des
 intuitions de son être véritable, faute d'avoir encore
 ressenti les passions de l'adolescence, qui dégagent la
 personnalité de ses vêtements d'emprunt, comme un
-coup de tonnerre purge le ciel des vapeurs qui l'enveloppent. D'obscurs et puissants pressentiments se mèê-
-laient en lui aux réminiscences étrangères, dont il ne
+coup de tonnerre purge le ciel des vapeurs qui l'enveloppent. D'obscurs et puissants pressentiments se mèêlaient en lui aux réminiscences étrangères, dont il ne
 pouvait se défaire. Il s'irritait de ces mensonges. Il se
 désolait de voir combien ce qu'il écrivait était inférieur
 à ce qu'il pensait. Il doutait amèrement de lui. Mais il
 ne pouvait se résigner à cette stupide défaite: il s'enrageait à faire mieux, à écrire de grandes choses. Et toujours il échouait. Après un instant d'illusion, pendant
 qu'il écrivait, il s'apercevait que ce qu'il avait écrit ne
-valait rien; il le déchirait, il brûlait tout ce qu'il faisait. Et, pour achever sa honte, il fallait qu'il vitcon-
-servées, sans pouvoir les anéantir, ses œuvres oflicielles, les plus médiocres de toutes, — le concerto:
+valait rien; il le déchirait, il brûlait tout ce qu'il faisait. Et, pour achever sa honte, il fallait qu'il vitconservées, sans pouvoir les anéantir, ses œuvres oflicielles, les plus médiocres de toutes, — le concerto:
 
 l'Aigle royal, pour l'anniversaire du prince, — et la
 tantate: l'Hymen de Pallas, écrite à l'occasion du
 mariage de la princesse Adélaïde, — publiées à grands
-frais, en éditions de luxe, qui perpétuaient son imbé-
-cillité pour les siècles à venir, — car il croyait aux
+frais, en éditions de luxe, qui perpétuaient son imbécillité pour les siècles à venir, — car il croyait aux
 siècles à venir. — Il en pleurait d'humiliation.:
 
 Fiévreuses années! Nul répit, nulle relâche. Rien qui
 fasse diversion à ce labeur affolant. Point de jeux,
 point d'amis. Comment en aurait-il? L'après-midi, à
 l'heure où les autres enfants s'amusent, le petit Christophe, le front plissé par l'attention, était assis à son
-pupitre d'orchestre, dans la salle de théâtre poussié-
-reuse et mal éclairée. Et le soir, quand les autres
+pupitre d'orchestre, dans la salle de théâtre poussiéreuse et mal éclairée. Et le soir, quand les autres
 enfants sont couchés, il était encore là, affaissé sur sa
 chaise, et crispé de fatigue.
 
 Aucune intimité avec ses frères. Le cadet, Ernst,
 avait douze ans: c'était un petit vaurien, vicieux et
-effronté, qui passait ses journées avec quelques chena-
-pans de sa sorte, et qui, dans leur société, avait pris
+effronté, qui passait ses journées avec quelques chenapans de sa sorte, et qui, dans leur société, avait pris
 non seulement des façons déplorables, mais de hon- À
-teuses habitudes, dont l'honnête Christophe, qui n'au-
-rait même en concevoir l'idée, s'était aperçu un jour
+teuses habitudes, dont l'honnête Christophe, qui n'aurait même en concevoir l'idée, s'était aperçu un jour
 avec horreur. L'autre, Rodolphe, le favori de l'oncle
 Théodore, se destinait au commerce. Il était rangé,
 tranquille, mais sournois; il se croyait très supérieur à
@@ -1350,8 +1306,7 @@ des deux frères n'aimait la musique; et Rodoiphe afïectait de la mépriser, co
 Christophe, qui prenait très au sérieux son rôle de
 chef de famille, les deux petits avaient tenté de se
 révolter; mais Christophe, qui avait de bons poings, et
-la conscience de son droit, les faisait marcher ronde-
-nent. Ils n'en faisaient pas moins de lui tout ce qu'ils
+la conscience de son droit, les faisait marcher rondenent. Ils n'en faisaient pas moins de lui tout ce qu'ils
 voulaient; ils abusaient de sa crédulité, ils lui tendaient
 des panneaux, où il ne manquait jamais de tomber; ils
 lui extorquaient de l'argent, mentaient impudemment,
@@ -1420,8 +1375,7 @@ mal: c'étaient, par instants, des pointes d'aiguille qui. « s'enfonçaient dan
 dant quelques minutes. La nourriture insuffisante ou
 malsaine et l'irrégularité des repas ruinaient son robuste estomac. Il était rongé par des douleurs d'en-:
 trailles, ou une diarrhée qui l'épuisait. Mais rien ne le
-faisait plus souffrir, que son cœur: il était d'une irré-
-gularité folle; tantôt il bondissait tumultueusement
+faisait plus souffrir, que son cœur: il était d'une irrégularité folle; tantôt il bondissait tumultueusement
 dans la poitrine, à croire qu'il allait se briser; tantôt
 il battait à peine, et semblait près de s'arrêter. La
 nuit, la température de lenfant avait des sautes
@@ -1431,8 +1385,7 @@ de froid, il avait des angoisses, sa gorge se contra ctait, une boule dans le co
 
 .. — Naturellement, son imagination se frappa: il n'osait
 parler aux siens de tout ce qu'il ressentait; mais il
-l'analysait sans cesse, avec une attention qui grossis-
-sait ses souffrances, ou en créait de nouvelles. Il se
+l'analysait sans cesse, avec une attention qui grossissait ses souffrances, ou en créait de nouvelles. Il se
 prêta, l'une après l'autre, toutes les maladies connues;
 il crut qu'il allait devenir aveugle; et comme il avait
 quelquefois des vertiges, en marchant, il craignait de
@@ -1670,8 +1623,7 @@ les dire, malgré les prières de Christophe. A la fin,
 cependant, il en cita deux ou trois, en bredouillant
 d'émotion. Christophe les trouva admirables. Ils échangèrent leurs projets: plus tard, ils travailleraient ensemble; ils écriraient des drames, des Liederkreise. Ils
 s'admiraient mutuellement. Outre sa réputation musicale, la force de Christophe, sa hardiesse de façons en
-imposait à Otto. Et Christophe était sensible à l'élé-
-gance d'Otto, à la distinction de ses manières, — tout
+imposait à Otto. Et Christophe était sensible à l'élégance d'Otto, à la distinction de ses manières, — tout
 est relatif en ce monde, — et à son grand savoir,
 ce savoir qui lui manquait totalement et dont il avait
 
@@ -1692,9 +1644,7 @@ les cimes flottaient encore dans la lumière rosée; elles
 ondulaient gravement, avec un bruit de houle: le tapis
 d'aiguilles violettes amortissait le son des pas. Ils se
 
-taisaient tous deux. Christophe sentait son cœur péné-
-
-tré d'un trouble étrange et doux, il était ému et heureux:
+taisaient tous deux. Christophe sentait son cœur pénétré d'un trouble étrange et doux, il était ému et heureux:
 
 il voulait parler, une angoisse l'oppressait. Il s'arrêta
 
@@ -1719,8 +1669,7 @@ de l'ombre des arbres. Là, ils se rassurèrent, et se
 reprirent la main. Ils admiraient le soir limpide qui
 tombait, et ils parlaient par mots entrecoupés.
 
-Sur le bateau, assis à l'avant, dans l'ombre lumi-
-neuse, ils essayèrent de causer de choses indifférentes;
+Sur le bateau, assis à l'avant, dans l'ombre lumineuse, ils essayèrent de causer de choses indifférentes;
 mais ils n'écoutaient pas ce qu'ils disaient; ils étaient
 baignés d'une lassitude heureuse. Ils n'éprouvaient le
 besoin, ni de parler, ni de se donner la main, ni même
@@ -1762,9 +1711,7 @@ vous -avez fait, et de vos bonnes paroles, et de la
 ravissante promenade, et du dîner excellent! Je suis
 fâché seulement que vous ayez dépensé tant d'argent
 pour ce diner. Quelle superbe journée! N'est-ce pas
-qu'il y a quelque chose de providentiel dans cette étonnante rencontre? IL me semble que c'est le Destin lui-
-
-même qui'a voulu nous réunir. Comme je me réjouis de
+qu'il y a quelque chose de providentiel dans cette étonnante rencontre? IL me semble que c'est le Destin luimême qui'a voulu nous réunir. Comme je me réjouis de
 vous revoir dimanche! J'espère que vous n'aurez pas
 trop de désagréments, pour avoir manqué le diner
 de monsieur le Hof Musik Director. Je serais si fâché
@@ -1781,8 +1728,7 @@ Puis il courut à sa table et prit la plume pour répondre
 sur le champ. Il n'aurait attendre une minute. Mais
 il n'avait pas l'habitude d'écrire; il ne savait comment
 exprimer ce qui lui gonflait le cœur; il crevait le papier
-avec sa plume, et noircissait d'encre ses doigts; il tré-
-pignait d'impatience. Enfin, après avoir tiré la langue,
+avec sa plume, et noircissait d'encre ses doigts; il trépignait d'impatience. Enfin, après avoir tiré la langue,
 et usé cinq ou six brouillons, il réussit à écrire, en
 lettres difformes qui s'en allaient dans tous les sens, et
 avec d'énormes fautes d'orthographe:
@@ -1878,9 +1824,7 @@ se retrouvant, leur première impression devait être
 nécessairement une déception: il en fallait rabattre.
 Mais ils ne pouvaient se résoudre à en convenir.
 
-Ils errèrent tout le jour dans la campagne, sans réus-
-
-sir à secouer la contrainte maussade qui pesait sur
+Ils errèrent tout le jour dans la campagne, sans réussir à secouer la contrainte maussade qui pesait sur
 eux. C'était jour de fête: les auberges et les bois étaient
 remplis d'une foule de promeneurs, des familles de petits
 bourgeois, qui faisaient grand bruit et mangeaient dans
@@ -1965,9 +1909,7 @@ autorité, il éprouvait une jouissance mêlée de peur à
 s'associer à un camarade aussi irrévérencieux de
 nature pour toute règle établie. Il avait un petit frisson
 de terreur voluptueuse, en l'entendant fronder toutes
-les réputations de la ville, et contrefaire impertinem-
-
-ment le grand-duc en personne. Christophe s'apercevait
+les réputations de la ville, et contrefaire impertinemment le grand-duc en personne. Christophe s'apercevait
 de la fascination qu'il exerçait ainsi sur son ami; et
 il outrait son humeur agressive; il sapait, comme un
 vieux révolutionnaire, les conventions sociales et les
@@ -2072,9 +2014,7 @@ doux et frais comme un rêve. Pourvu qu'il ne passe
 
 point! Si tu ailais ne plus m'aimer!
 
-— Comme tu es stupide, mon aimé, répondait Christophe. Pardonne, mais ta crainte pusillanime m'in-
-
-digne. Comment peux-tu me demander si je puis cesser
+— Comme tu es stupide, mon aimé, répondait Christophe. Pardonne, mais ta crainte pusillanime m'indigne. Comment peux-tu me demander si je puis cesser
 de t'aimer! Vivre, pour moi, c'est t'aimer. La mort ne
 peut rien contre mon amour. Toi-même, tu ne pourrais
 rien, si tu voulais le détruire. Quand tu me trahirais,
@@ -2257,8 +2197,7 @@ fois, faisait l''épreuve de l'amour, s'y donnait tout entier,
 et voulait qu'on se donnât tout entier, sans réserver une parcelle de son cœur. Il n'admettait pas le
 partage en amitié. Étant prêt à tout sacrifier à l'ami,
 il trouvait légitime, et même nécessaire, que l'ami lui
-sacrifiât tout, et se sacrifiât lui-même. Mais il commen-
-çait à sentir que le monde n'était pas bâti sur le modèle
+sacrifiât tout, et se sacrifiât lui-même. Mais il commençait à sentir que le monde n'était pas bâti sur le modèle
 de son caractère inflexible, et qu'il demandait aux
 
 choses ce qu'elles ne pouvaient pas donner. Aüors il
@@ -2277,9 +2216,7 @@ s'empêcher de lui faire grise mine; et brusquement, il
 
 A la rigueur, il eût pardonné à Otto de lui préférer
 d'autres amis; mais ce qu'il ne pouvait lui passer,
-c'était le mensonge. Otto n'était pas faux, ni hypo-
-
-crite: il avait une difficulté naturelle à dire la vérité,
+c'était le mensonge. Otto n'était pas faux, ni hypocrite: il avait une difficulté naturelle à dire la vérité,
 comme un bègue à articuler les mots; ce qu'il disait
 n'était jamais, ni tout à fait vrai, ni tout à fait faux;
 soit timidité, soit incertitude sur ses propres sentiments, il parlait rarement d'une façon tout à fait
@@ -2309,9 +2246,7 @@ ses poignets de chemise, plantait son chapeau sur le
 
 bras en marchant, il sifflait, il chantait à tue-tête; il
 
-était rouge, suant et poudreux; il avait l'air d'un pay-
-
-san, qui retourne de la foire. L'aristocratique Otto
+était rouge, suant et poudreux; il avait l'air d'un paysan, qui retourne de la foire. L'aristocratique Otto
 : était mortifié d'être rencontré en sa compagnie. Quand
 
 il apercevait une voiture sur la route, il s'arrangeait de
@@ -2370,9 +2305,7 @@ et celui-ci prenait un malin plaisir à ne vouloir rien
 remarquer. Ils se rapprochèrent pourtant, sans se
 parler. Ils étaient seuls dans la plaine. Silence. Pas un
 souffle d'air. A peine un frisson de fièvre, qui faisait
-frémir par moments les petites feuilles des arbres. Sou-
-
-dain, un tourbillon de vent souleva la poussière, tordit
+frémir par moments les petites feuilles des arbres. Soudain, un tourbillon de vent souleva la poussière, tordit
 les arbres, et les fouetta furienusement. Et le silence
 retomba, plus sinistre qu'avant. Otto, d'une voix tremblante, se décida à parler:
 
@@ -2423,15 +2356,12 @@ Malgré leurs désaccords, il leur était impossible de
 se passer l'un de l'autre. Ils avaient bien des défauts,
 ils étaient égoïstes tous deux. Mais cet égoïsme était
 naïf, il ne connaissait pas les calculs de l'âge mür, qui
-le rendent si repoussant, il ne se connaissait pas lui-
-même: il était presque aimable, et il ne les empèchait
+le rendent si repoussant, il ne se connaissait pas luimême: il était presque aimable, et il ne les empèchait
 pas de s'aimer sincèrement. Ils avaient un tel besoin
 1 d'amour et de sacrifice! Le petit Otto pleurait sur son
 1 oreiller, en se racontant des histoires de dévouement
 - romanesque, dont il était le héros; il inventait des
-: aventures pathétiques, où il était fort, vaillant, intré-
-
-pide et protégeait Christophe, qu'il s'imaginait adorer.
+: aventures pathétiques, où il était fort, vaillant, intrépide et protégeait Christophe, qu'il s'imaginait adorer.
 Christophe ne voyait rien, n'entendait rien de beau ou
 . de curieux, sans qu'il pensât: « Si Otto était là! » IL
 mêlait l'image de son ami à sa vie tout entière; et cette
@@ -2459,9 +2389,7 @@ sûr qu'on n'irait pas les chercher. Il comptait sans la
 malice de ses frères.
 
 Il les voyait depuis quelque temps rire et chuchoter
-en le regardant: ils se récitaient à l'oreille des fragments de discours, qui les jetaient dans des convul-
-
-sions de gaieté. Christophe ne parvenait pas à entendre
+en le regardant: ils se récitaient à l'oreille des fragments de discours, qui les jetaient dans des convulsions de gaieté. Christophe ne parvenait pas à entendre
 leurs paroles; et d'ailleurs, suivant la tactique dont il
 usait à leur égard, il feignait une parfaite indifférence
 pour tout ce qu'ils pouvaient dire ou faire. Quelques
@@ -2533,9 +2461,7 @@ Ils essayèrent encore de se voir en cachette. Mais il
 fut impossible de retrouver l'abandon des entretiens
 passés. La franchise de leurs relations était altérée. Ces
 
-. deux enfants, qui s'aimaient d'une tendresse si crain-
-
-tive, qu'ils n'avaient jamais osé se donner un baiser
+. deux enfants, qui s'aimaient d'une tendresse si craintive, qu'ils n'avaient jamais osé se donner un baiser
 fraternel, et qu'ils n'imaginaient pas de plus grand
 
 … bonheur que de se voir, de s'entendre, et de partager
@@ -2564,8 +2490,7 @@ Quatre ou cinq mois avant ces événements, madame
 Josepha von Kerich, veuve depuis peu du conseiller
 d'État, Stephan von Kerich, avait quitté Berlin, où les
 fonctions de son mari les retenaient jusqu'alors, pour
-venir s'installer avec sa fillette dans la petite ville rhé-
-nane, son pays d'origine. Elle avait une vieille
+venir s'installer avec sa fillette dans la petite ville rhénane, son pays d'origine. Elle avait une vieille
 maison de famille, avec un grand jardin, presque un
 parc, qui descendait le long de la colline, jusqu'au
 fleuve, non loin de la maison de Christophe. De sa
@@ -2587,9 +2512,7 @@ Ce silence impressionnait profondément Christophe.
 ses yeux, puis son nez, puis sa bouche, arrivaient au
 niveau de la crête du mur, à mesure qu'il grandissait;
 maintenant, il pouvait passer les bras par-dessus, en se
-haussant sur la pointe des pieds; et, malgré l'incom-
-
-modité de cette position, il restait ainsi, le menton
+haussant sur la pointe des pieds; et, malgré l'incommodité de cette position, il restait ainsi, le menton
 appuyé sur le mur, regardant, écoutant, tandis que le
 soir épanchait sur les pelouses ses douces ondes
 dorées, qui s'allumaient de reflets bleuâtres à l'ombre
@@ -2709,8 +2632,7 @@ scène. Au moment de sortir du théâtre, il aperçut dans
 le couloir, séparée par quelques rangées de personnes,
 madame de Kerich qui semblait l'attendre au passage.
 Il était impossible qu'il ne la vît pas: il feignit pourtant
-de ne pas la voir; et, rebroussant chemin, il sortit pré-
-cipitamment par la petite porte de service du théâtre.
+de ne pas la voir; et, rebroussant chemin, il sortit précipitamment par la petite porte de service du théâtre.
 Ensuite, il se le reprocha; car il se rendait bien compte
 que madame de Kerich ne lui voulait aucun mal. Mais il
 savait que si c'était à recommencer, il recommencerait.
@@ -2851,8 +2773,7 @@ piano. Bien plus intimidé que par un public de
 concert, il joua un adagio de Mozart. Mais sa timidité même, le trouble que son cœur commençait
 d'éprouver auprès de ces deux femmes, l'émotion
 ingénue qui gonflait sa poitrine, et le rendait heureux
-et malheureux ensemble, s'accordaient avec la tendresse et la pudeur juvénile de ces pages, et leur prè-
-taient un charme de printemps. Madame de Kerich en
+et malheureux ensemble, s'accordaient avec la tendresse et la pudeur juvénile de ces pages, et leur prètaient un charme de printemps. Madame de Kerich en
 fut touchée; elle le dit avec l'exagération louangeuse,
 habituelle aux gens du monde; elle n'en était pas
 moins sincère, et l'excès même de l'éloge était doux,
@@ -2921,9 +2842,7 @@ avec elles, et il ne songeait pas à partir. Minna
 étouffait des bâillements, et faisait des signes à sa
 mère. Il ne s'en apercevait pas, parce qu'il était grisé
 de son bonheur, et qu'il pensait que les autres étaient
-comme lui, — parce que Minna, en le regardant, conti-
-
-nuait de jouer des prunelles, par habitude, — et enfin,
+comme lui, — parce que Minna, en le regardant, continuait de jouer des prunelles, par habitude, — et enfin,
 
 parce qu'une fois assis, il ne savait plus comment se
 
@@ -2945,8 +2864,7 @@ odeur, qu'il n'avait jamais encore respirée, l'envelop-
 
 -pait, l'étourdissait, le faisait presque défaillir.
 
-Il revint deux jours après, comme ils en étaient con-
-venus, pour donner une leçon de piano à Minna. A
+Il revint deux jours après, comme ils en étaient convenus, pour donner une leçon de piano à Minna. A
 partir de ce moment, il venait régulièrement sous ce
 prétexte, deux fois par semaine, le matin; et bien souvent, il retournait le soir, pour faire de la musique et
 
@@ -2954,8 +2872,7 @@ Madame de Kerich le voyait volontiers. C'était une
 femme intelligente et bonne. Elle avait trente-cinq ans,
 lorsqu'elle avait perdu son mari; et bien que jeune de
 corps et de cœur, elle s'était retirée sans regret du
-monde, où elle était fort lancée depuis son mariage. Peut-
-être s'en séparait-elle d'autant plus facilement, qu'elle
+monde, où elle était fort lancée depuis son mariage. Peutêtre s'en séparait-elle d'autant plus facilement, qu'elle
 s'y était beaucoup amusée, et jugeait sainement qu'on
 ne peut à la fois avoir et avoir. Elle était attachée
 à la mémoire de monsieur de Kerich, non qu'elle eût!
@@ -2963,8 +2880,7 @@ pour lui, à aucun moment de son union, rien qui ressemblât à de l'amour: il l
 elle avait des sens tranquilles et un esprit affectueux.
 
 Elle s'était consacrée à l'éducation de sa fille; mais
-la même modération, qu'elle portait dans l'amour, atté-
-nuait ce que la maternité a souvent d'exalté et de
+la même modération, qu'elle portait dans l'amour, atténuait ce que la maternité a souvent d'exalté et de
 maladif, quand l'enfant est le seul être sur qui la femme
 puisse reporter ses jalouses exigences d'aimer et d'être
 aimée. Elle aimait beaucoup Minna, mais la jugeait
@@ -3081,8 +2997,7 @@ s'était mise en frais de sourires pour le recevoir, c'était
 par une coquetterie instinctive de petite fille, qui
 s'amuse à essayer le pouvoir de ses yeux sur le premier
 venu, fûüt-il un chien coiffé, qui s'offre à son désœuvrement. Mais dès le lendemain, cette conquête trop facile
-n'avait plus aucun intérêt pour elle. Elle avait sévè-
-rement observé Christophe; et elle l'avait jugé un
+n'avait plus aucun intérêt pour elle. Elle avait sévèrement observé Christophe; et elle l'avait jugé un
 garçon laid, pauvre, mal élevé, qui jouait bien du piano,
 mais qui avait de vilaines mains, qui tenait sa fourchette à table d'une façon abominable, et qui coupait le
 poisson avec son couteau. Il lui paraissait donc fort
@@ -3116,16 +3031,14 @@ Au reste, les uns et les autres étaient tout prêts à céder
 le pas à une réalité avantageuse. Car il est remarquable
 de voir avec quelle aisance les jeunes filles roma- il
 nesques oublient leurs rêves, à l'ordinaire, quand une
-apparence moins idéale, mais plus sûre, vient se pré-
-senter à elles.
+apparence moins idéale, mais plus sûre, vient se présenter à elles.
 Au demeurant, la sentimentale Minna était, malgré 44]
 qu'elle en eût, très tranquille et très froide. En dépit
 de son nom aristocratique et de la fierté que lui
 donnait sa particule nobiliaire, elle avait une âme de
 petite ménagère allemande, à l'âge exquis de l'ado-
 
-Christophe ne comprenait naturellement rien au mé-
-canisme compliqué, — plus compliqué en apparence
+Christophe ne comprenait naturellement rien au mécanisme compliqué, — plus compliqué en apparence
 qu'en réalité, — du cœur féminin. Il était souvent
 dérouté par les façons de ses belles amies; mais il
 était si heureux de les aimer, qu'il leur faisait crédit de
@@ -3169,8 +3082,7 @@ légèrement colorée par l'animation du débit, avec sa
 voix fraîche, qui zézayait un peu, et tâchait de prendre
 un ton important, quand elle parlait au nom des guerriers et des rois. Parfois, madame de Kerich prenait
 elle-même le livre; elle prêtait alors aux actions tragiques la grâce spirituelle et tendre de son être; mais,
-le plus souvent, elle écoutait, renversée dans son fau-
-teuil, son éternel ouvrage sur ses genoux; elle souriait
+le plus souvent, elle écoutait, renversée dans son fauteuil, son éternel ouvrage sur ses genoux; elle souriait
 à sa propre pensée, — car c'était toujours elle qu'elle
 retrouvait au fond de toutes les œuvres.
 
@@ -3183,8 +3095,7 @@ mêlait à celles des figures de Shakespeare et de Goëthe.
 
 Il ne les distinguait presque plus les unes des autres.
 Telle suave parole du poète, qui éveiïllait jusqu'au fond
-de son être des frémissements passionnés, ne se sé-
-parait plus pour lui de la chère bouche qui la lui avait
+de son être des frémissements passionnés, ne se séparait plus pour lui de la chère bouche qui la lui avait
 fait entendre pour la première fois. Vingt ans plus
 tard, il ne pourra relire ou voir jouer Egmont ou
 Romeo, sans que surgisse à certains vers le souvenir
@@ -3228,8 +3139,7 @@ rien, si au moins il était bon tout court. Alors ils +1
 riaient tous deux, et il nageaït dans la joie. Ne!
 
 Depuis qu'il avait découvert qu'il aimait madame de
-Kerich, Christophe se détachaïit de Minna. Il commen-
-çait à être irrité de la froideur dédaigneuse qu'elle
+Kerich, Christophe se détachaïit de Minna. Il commençait à être irrité de la froideur dédaigneuse qu'elle
 avait pour lui; et comme, à force de la voir, il s'était
 enhardi peu à peu à reprendre avec elle sa liberté de
 manières, il ne lui cachait pas sa mauvaise humeur.
@@ -3267,8 +3177,7 @@ de ténors, de chefs d'orchestre, d'amies, — toutes avec
 des dédicaces, presque toutes avec des vers, — ou
 du moins, avec ce qu'on est convenu, en Allemagne,
 d'appeler des vers. Au milieu de la pièce, sur un socle.
-de marbre, trônait le buste de Brahms barbu: et, au-
-dessus du piano, se balançaient au bout d'un fil de petits
+de marbre, trônait le buste de Brahms barbu: et, audessus du piano, se balançaient au bout d'un fil de petits
 singes en peluche et des souvenirs de cotillon.:
 
 Minna arrivait en retard, les yeux encore gonflés de
@@ -3279,8 +3188,7 @@ elle se plaisait à faire d'interminables gammes; car A
 cela lui permettait de prolonger agréablement son état
 de demi-sommeil, et les rêves qu'elle se contait. Mais
 Christophe l'obligeait à fixer son attention sur des
-exercices difficiles; aussi, pour se venger, elle s'ingé-
-niait quelquefois à jouer le plus mal qu'elle pouvait.
+exercices difficiles; aussi, pour se venger, elle s'ingéniait quelquefois à jouer le plus mal qu'elle pouvait.
 Elle était assez musicienne, mais n'aimait pas la musique, — comme beaucoup d'Allemandes. Mais, comme
 elles, elle croyait devoir l'aimer; et elle prenait ses
 
@@ -3384,7 +3292,7 @@ de Minna. Il était confondu de son action; il la jugeait
 stupide et grossière. L'heure de la leçon écoulée, il
 
 quitta Minna sans la regarder, et il oublia même de la
-saluer? Elle ne lui en voulut pas. Elle ne pensait plus à!
+saluer? Elle ne lui en voulut pas. Elle ne pensait plus
 trouver Christophe mal élevé; et si elle avait fait tant
 de fautes en jouant, c'est qu'elle ne cessait de l'observer du coin de l'œil avec une curiosité étonnée, et, —
 pour la première fois, — sympathique.
@@ -3419,8 +3327,7 @@ lui apparaissait; et maintenant, il ne lui semblait plus
 si mal. Elle se coucha, et éteignit la lumière. Dix
 minutes après, la scène du matin lui revint brusquement
 à l'esprit, et elle éclata de rire. Sa mère se leva doucement, et ouvrit la porte, croyant que malgré sa défense,
-elle lisait dans son lit. Elle trouva Minna tranquille-
-ment couchée, les yeux grands ouverts dans la demilueur de la veilleuse.
+elle lisait dans son lit. Elle trouva Minna tranquillement couchée, les yeux grands ouverts dans la demilueur de la veilleuse.
 — Qu'y a-t-il donc, demanda-t-elle, qui te met en
 — Rien du tout, répondit gravement Minna. Je
 — Tues bien heureuse de t'amuser ainsi dans ta
@@ -3434,7 +3341,7 @@ mol engourdissement. Tout près de s'endormir, elle
 sursauta de joie:.
 — Il m'aime... Quel bonheur! Qu'il est gentil de
 n'aimer!... Comme je l'aime! à
-Elle embrassa son oreiller, et s'endormit tout à?
+Elle embrassa son oreiller, et s'endormit tout
 
 La première fois que les deux enfants se retrouvèrent
 ensemble, Christophe fut surpris de l'amabilité de
@@ -3446,9 +3353,7 @@ Elle n'eut plus aucune de ses fantaisies de malicieuse
 avait fait une faute, et s'appliquait à se corriger. Christophe n'y comprenait rien. En très peu de temps, elle
 fit des progrès étonnants. Non seulement elle jouait
 mieux, mais elle aimait la musique. Si peu flatteur qu'il
-fût, il dut lui en faire compliment. Elle rougit de con-
-
-tentement, et l'en remercia d'un regard humide de
+fût, il dut lui en faire compliment. Elle rougit de contentement, et l'en remercia d'un regard humide de
 reconnaissance. Elle se mettait en frais de toilette pour
 lui; elle avait des rubans d'une nuance exquise; elle
 faisait à Christophe des sourires et des yeux langou-;
@@ -3462,9 +3367,7 @@ l'aise: cette nouvelle Minna, qu'il ne connaissait pas,
 l'étonnait et l'inquiétait.
 
 Elle l'observait toujours. Elle attendait... Quoi? Le
-savait-elle bien elle-même? Elle attendait qu'il recom-
-
-mençât. — Il s'en fût bien gardé, convaincu qu'il avait
+savait-elle bien elle-même? Elle attendait qu'il recommençât. — Il s'en fût bien gardé, convaincu qu'il avait
 agi comme un rustre; il semblait même n'y plus penser
 du tout. Elle s'énervait; et, un jour qu'il était tranquillement assis, à distance respectable des dangereuses
 petites pattes, une impatience la prit: d'un mouvement
@@ -3550,8 +3453,7 @@ réponse de Christophe, qu'elle n'était pas aussi seule
 qu'elle disait.:
 
 — Non, fit-elle en secouant sa petite tête, tout cela, ce
-sont des mots. Chacun vit pour soi, personne ne s'inté-
-resse à vous, personne ne vous aime.
+sont des mots. Chacun vit pour soi, personne ne s'intéresse à vous, personne ne vous aime.
 
 — Et moi? dit brusquement Christophe, pâle d'émotion.
 
@@ -3644,8 +3546,7 @@ vanité, plus d'arrière-pensées. Toutes les impuretés et
 les ombres de l'âme étaient balayées d'un coup par ce
 souffle d'amour. Aimer, aimer, — non plus même être
 aimé: voilà ce que disaient leurs yeux riants et humides
-de larmes. Cette froide et coquette petite fille, ce gar-
-çon orgueilleux et brutal, étaient dévorés du besoin, de
+de larmes. Cette froide et coquette petite fille, ce garçon orgueilleux et brutal, étaient dévorés du besoin, de
 l'ivresse de se sacrifier, de se donner, de souffrir, de
 souffrir, de mourir l'un pour l'autre. Ils ne se reconnaissaient plus, ils n'étaient plus eux-mêmes; tout
 était transformé: leur cœur, leurs traits, leurs yeux
@@ -3656,8 +3557,7 @@ soi-même, candide et brûlant, qui ne reviendront plus
 dans la vie!
 
 Après un balbutiement éperdu, après des promesses
-passionnées d'être l'un à l'autre toujours, après &es baï-
-sers et des mots incohérents et ravis, ils s'aperçurent
+passionnées d'être l'un à l'autre toujours, après &es baïsers et des mots incohérents et ravis, ils s'aperçurent
 qu'il était tard, et ils revinrent en courant, se tenant
 par la main, au risque de tomber dans les allées
 étroites, se heurtant aux arbres, ne sentant rien,
@@ -3697,8 +3597,7 @@ trouvait cela amusant et beau, comme un roman. Elle
 crut de son devoir de se conduire en véritable amoureuse. Elle lut des poésies, elle fut sentimentale et
 rêveuse. Il était gagné par la contagion. Il eût voulu être
 grand, paraître grand. Il soignaït sa toilette: il était
-ridicule; il surveillait sa façon de parler: il était pré-
-tentieux. Madame de Kerich le regardait en riant, etse
+ridicule; il surveillait sa façon de parler: il était prétentieux. Madame de Kerich le regardait en riant, etse
 demandait ce qui avait le rendre aussi stupide.
 
 Mais ils avaient des minutes de poésie ineffable.
@@ -3781,14 +3680,12 @@ mordre, de faire du mal; il se rejetait brusquement en
 arrière; et elle continuait de rire, d'une façon forcée.
 Ils se détournaient l'un de l'autre, ils feignaient l'indifférence, et se regardaient à la dérobée.
 
-Ces jeux troubles avaient pour eux un attrait inquié-
-tant: ils les cherchaient et les fuyaient. Christophe en
+Ces jeux troubles avaient pour eux un attrait inquiétant: ils les cherchaient et les fuyaient. Christophe en
 avait peur, et leur préférait la gêne même des réunions, où madame de Kerich ou quelque autre
 assistait. Nulle présence importune ne pouvait interrompre l'entretien de leurs cœurs amoureux; la contrainte ne faisait que le rendre plus intense et plus
 doux. Tout alors prenait entre eux un prix infini:
 un mot, un plissement de lèvres, un coup d'œil, suffisaient à faire transparaître sous le voile banal de la
-vié ordinaire le riche et frais trésor de leur vie inté-
-rieure. Eux seuls le pouvaient voir: ils le croyaient du
+vié ordinaire le riche et frais trésor de leur vie intérieure. Eux seuls le pouvaient voir: ils le croyaient du
 moins, et se souriaient, heureux de leurs petits
 mystères. À écouter leurs paroles, on n'eût rien remarqué qu'une conversation de salon sur des sujets inditfférents: pour eux, c'était un chant perpétuel d'amour.
 lisaient les nuances les plus fugitives de leurs traits
@@ -3875,7 +3772,7 @@ firent choix d'une étoile, afin de la regarder, chaque
 soir, au même moment, tous deux.
 
 Le jour fatal arriva. Dix fois, dans la nuit, il s'était
-demandé: « Où sera-t-elle demain? »; et maintenant,
+demandé: « Où sera-t-elle demain? et maintenant,
 il pensait: « C'est aujourd'hui: ce matin, elle est encore
 ici; ce soir, elle n'y sera plus. » Il alla chez elle, avant
 qu'il fût huit heures. Elle n'était pas levée. Il essaya
@@ -3996,8 +3893,7 @@ indifférence qu'il savait de quoi il s'agissait. Mais
 ses frères, vexés, n'en crurent rien, et continuèrent de
 l'épier: en sorte qu'il fut à la torture, jusqu'à la fin du
 repas. Alors seulement il fut libre de s'enfermer dans
-sa chambre. Son cœur battait si fort, qu'il faillit dé-
-chirer la lettre, en l'ouvrant. Il tremblaït de ce qu'il
+sa chambre. Son cœur battait si fort, qu'il faillit déchirer la lettre, en l'ouvrant. Il tremblaït de ce qu'il
 allait lire; mais dès qu'il eut parcouru les premiers
 
 mots, une joie l'envahit.
@@ -4015,9 +3911,7 @@ aussi. Elle finissait en lui demandant s'il se souvenait du
 petit salon, où ils s'étaient dit adieu, le matin du départ;
 et elle le priait d'y retourner un matin; elle assurait
 qu'elle y serait encore, en pensée, et qu'elle lui dirait
-encore adieu, de la même façon. Elle signait: « Éternel-
-
-lement à toi! Éternellement!.. et elle avait rajouté
+encore adieu, de la même façon. Elle signait: « Éternellement à toi! Éternellement!.. et elle avait rajouté
 un post-scriptum, pour lui recommander d'acheter un
 chapeau canotier, au lieu de son vilain feutre, — que
 tous les gens distingués en portaient ici: — un canotier
@@ -4138,9 +4032,7 @@ vivre jusqu'au lendemain; et il restait des heures,
 assis devant sa table, sans parler, sans penser,
 n'ayant même pas la force de se coucher, jusqu'à
 ce qu'un reste de volonté lui fit enfin gagner son lit;
-et il dormait d'un lourd sommeil, plein de rêves stu159
-
-pides, qui lui faisaient croire que la nuit ne finirait
+et il dormait d'un lourd sommeil, plein de rêves stupides, qui lui faisaient croire que la nuit ne finirait
 jamais.
 
 Cette attente continuelle devenait à la longue une
@@ -4182,9 +4074,7 @@ interminables journées qui le séparaient du retour de
 
 La date du retour était passée. Depuis une semaine
 
-déjà, elles auraient être là. A la prostration de Chris-
-
-tophe avait succédé une agitation fébrile. Minna lui
+déjà, elles auraient être là. A la prostration de Christophe avait succédé une agitation fébrile. Minna lui
 avait promis, en partant, de l'avertir du jour et de
 l'heure de l'arrivée. Il attendait de moment en moment,
 pour aller au devant d'elles; et il se perdait en conjectures pour expliquer ce retard.;
@@ -4204,8 +4094,7 @@ chez les de Kerich, pour poser des rideaux. Christophe,
 Fischer, goguenard. Il y a beau temps! Elles sont
 
 Christophe n'entendit rien de plus; il quitta la chambre, et se prépara à sortir. Sa mère qui depuis quelque
-temps le surveillaït à la dérobée, sans qu'il s'en aper-
-çût, le suivit dans le couloir, et lui demanda timidement où il allait. Il ne répondit pas, et sortit. Il souffrait.
+temps le surveillaït à la dérobée, sans qu'il s'en aperçût, le suivit dans le couloir, et lui demanda timidement où il allait. Il ne répondit pas, et sortit. Il souffrait.
 
 Il courutchez mesdames de Kerich. Il étaitneuf heures
 du soir. Elles étaient au salon toutes deux, et ne
@@ -4224,8 +4113,7 @@ de continuer: cela sonnaït faux.
 Quand Minna eut terminé la lettre, elle prit un
 ouvrage, et, s'asseyant à quelques pas de lui, se mit à
 lui raconter le voyage qu'elle avait fait. Elle parlait des
-semaines agréables qu'elle avait passées, des promenades à cheval, de la vie de château, de la société inté-
-ressante; elle s'animait peu à peu, et faisait des allusions à des événements ou à des gens, que Christophe
+semaines agréables qu'elle avait passées, des promenades à cheval, de la vie de château, de la société intéressante; elle s'animait peu à peu, et faisait des allusions à des événements ou à des gens, que Christophe
 ne connaissait pas, et dont le souvenir les faisait rire,
 sa mère et elle. Christophe se sentait un étranger au
 milieu de ce récit; il ne savait quelle contenance faire,
@@ -4386,8 +4274,7 @@ suis pas de votre rang, je suis aussi noble que vous.
 C'est le cœur qui ennoblit l'homme: si je ne suis pas
 comte, j'ai peut-être plus d'honneur en moi que bien des
 comtes. Valet ou comte, du moment qu'il m'insulte, je le
-méprise. Je méprise comme la boue tout ce qui se pré-
-tend noble, s'il n'a pas la noblesse de l'âme.
+méprise. Je méprise comme la boue tout ce qui se prétend noble, s'il n'a pas la noblesse de l'âme.
 
 « Adieu! Vous m'avez méconnu. Vous m'avez trompé.
 Je vous déteste.
@@ -4478,8 +4365,7 @@ ami et un ami, qui sont tout près l'un de l'autre,
 
 restent éternellement étrangers l'un à l'autre.
 Christophe ne trouvait donc pas dans l'affection de
-sa mère un appui suffisant pour la crise qu'il traver-
-sait. D'ailleurs, de quel prix est l'affection des autres
+sa mère un appui suffisant pour la crise qu'il traversait. D'ailleurs, de quel prix est l'affection des autres
 pour l'égoïsme de la passion, préoccupée d'elle seule?
 Une nuit que les siens dormaient, et qu'assis devant
 sa table, sans penser, sans bouger, il s'enlizait dans
@@ -4547,22 +4433,18 @@ société ne regardent pas tout à fait comme des fautes.
 Il était brave, et, en toute occasion dangereuse, s'exposait avec une sorte de jouissance. S'il était dépensier pour lui-même, il l'était aussi pour les autres: il ne
 pouvait supporter qu'on fût triste; et il faisait volontiers largesse de ce qui lui appartenait, — et de ce
 qui ne lui appartenait pas, — aux pauvres diables qu'il
-rencontrait sur son chemin. Toutes ses qualités appa-
-
-raissaient maintenant à Christophe: — il les inventait
+rencontrait sur son chemin. Toutes ses qualités apparaissaient maintenant à Christophe: — il les inventait
 en partie, ou les exagérait. — Il lui semblait qu'il avait
 méconnu son père. Il se reprochaïit de ne l'avoir pas
 assez aimé. Il le voyait vaincu par la vie; et il croyait
 entendre cette malheureuse âme, entraînée à la dérive,
-trop faible pour lutter, et gémissant de sa vie inutile-
-ment perdue. Il entendait cette lamentable prière, dont.
+trop faible pour lutter, et gémissant de sa vie inutilement perdue. Il entendait cette lamentable prière, dont.
 l'accent l'avait déchiré un jour:
 
 — Christophe! ne me méprise pas!
 
 Et il était bouleversé de remords. Il se jetait sur le
-lit, et baisait le visage du mort, en pleurant. Il répé-
-tait, comme autrefois:
+lit, et baisait le visage du mort, en pleurant. Il répétait, comme autrefois:
 
 — Mon cher papa, je ne te méprise pas, je t'aime!
 Pardonne-moi!

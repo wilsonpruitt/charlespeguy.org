@@ -12,8 +12,7 @@ publions habituellement. Nous ne nous vantons pas
 d'annoncer tout ce qui se fait à Paris et dans le monde,
 parce que cela dépasserait nos intentions. Nous ne supposons pas que l'abonné soit plus que nous un homme
 
-universel. Nous pensons qu'il est comme nous un hon-
-nête homme, ordinaire, de bonne volonté. Nous lui
+universel. Nous pensons qu'il est comme nous un honnête homme, ordinaire, de bonne volonté. Nous lui
 annonçons donc les institutions accessibles où il peut
 aller travailler, — les publications accessibles qu'il peut
 lire, — les œuvres accessibles où il peut collaborer.
@@ -99,9 +98,7 @@ France. — TramIN, recteur de l'Académie de Rennes. —
 
 ADRIEN VEBER, conseiller municipal. — Le pasteur
 
-Secrétaire: ANTOINE VACGHER, ancien élève de l'École nor-
-
-male supérieure, agrégé d'histoire et de géographie (1)
+Secrétaire: ANTOINE VACGHER, ancien élève de l'École normale supérieure, agrégé d'histoire et de géographie (1)
 
 Série de leçons suivies de discussions ouvertes
 Introduction par M. ALFRED CROISET
@@ -250,8 +247,7 @@ pourtant séparés et même contraires. — If. Le contrat de salaire.,
 elle doit maintenir la séparation des intérêts de l'ouvrier et de ceux
 du patron. Échec de la participation aux bénéfices. — V. Le vrai
 moyen d'améliorer le taux des salaires: le syndicat. Le marché
-collectif du travail. — VI. A quelles conditions l'action des syndi-
-cats est efficace. — VII. Relations des syndiqués avec les patrons,
+collectif du travail. — VI. A quelles conditions l'action des syndicats est efficace. — VII. Relations des syndiqués avec les patrons,
 avec les non-syndiqués et avec les consommateurs.
 N. B. — Ces études seront strictement conduites d'après la méthode
 La maladie eonsidérée au point de vue social. — Affaiblissement
@@ -263,8 +259,7 @@ Rollin, chef du laboratoire de psychologie de la Faculté
 de médecine de Paris.
 A. Plan général du positivisme. — Partie scientifique et partie
 sociale. — Rapport de ces deux parties. — B. Origines scientifiques
-du positivisme: Descartes, Turgot, Condorcet, Saint-Simon, Burdin. — C. Origines politiques: Saint-Simon, de Maistre. Le catholi-
-cisme. — D. La science et l'esprit catholique associés dans le positivisme.
+du positivisme: Descartes, Turgot, Condorcet, Saint-Simon, Burdin. — C. Origines politiques: Saint-Simon, de Maistre. Le catholicisme. — D. La science et l'esprit catholique associés dans le positivisme.
 Série de leçons par des administrateurs des sociétés ouvrières
 directeur du Travail
 1. Discours d'ouverture par M. ARTHUR FONTAINE.
@@ -274,8 +269,7 @@ secrétaire de la Fédération française des Travailleurs du
 2. Rôle des syndicats: placement, chômage, conflits, contrat collectif, contréle de l'application des lois, enseignement technique, etc.
 — M. Coupar, secrétaire de l'Union corporative des mécaniciens.
 
-3. Rôle des Fédérations professionnelles. — Confédération géné-
-rale du travail. — M. Riom, secrétaire de la Fédération nationale
+3. Rôle des Fédérations professionnelles. — Confédération générale du travail. — M. Riom, secrétaire de la Fédération nationale
 du bâtiment.
 
 4. Rôle des unions locales et des Bourses du travail. — Fédération
@@ -325,8 +319,7 @@ sur les littérateurs contemporains.
 premier cahier. de la deuxième série
 
 Fourier. — Le travail attrayant. La réhabilitation des passions.
-Le garantisme social. La part de Considérant dans l'œuvre fourié-
-riste. Sa contribution aux doctrines sociales de ce temps-ci.
+Le garantisme social. La part de Considérant dans l'œuvre fouriériste. Sa contribution aux doctrines sociales de ce temps-ci.
 
 François VipaL. — Dissident de Fourier, précurseur du collectivisme,
 
@@ -348,12 +341,10 @@ de Paris.
 
 Les diverses formes de l'association coopérative. Les caractères qui
 leur sont communs ou antagonistes. — Les causes propres à chaque
-pays, qui y ont fait prédominer telle ou telle forme. — Si la coopé-
-ration peut s'adapter à l'évolution industrielle, commerciale ou agricole. — En quoi le coopératisme se rapproche ou se différencie du
+pays, qui y ont fait prédominer telle ou telle forme. — Si la coopération peut s'adapter à l'évolution industrielle, commerciale ou agricole. — En quoi le coopératisme se rapproche ou se différencie du
 capitalisme, du collectivisme, de l'anarchisme.
 
-Définition des risques divers courus par les individus; leur réparation par les groupements. — Règles générales qui doivent pré-
-sider aux groupements sociaux. — Etude des questions: maladies,
+Définition des risques divers courus par les individus; leur réparation par les groupements. — Règles générales qui doivent présider aux groupements sociaux. — Etude des questions: maladies,
 de secours mutuels, générales, professionnelles. — Unions de
 
 Conférences par M. Henri HaAuUser, professeur à l'Université
@@ -361,9 +352,7 @@ de Clermont
 M. Pauz LAcomsr, inspecteur général des Archives
 et Bibliothèques
 
-La succession intestat et les testamentaires. — Vues et senti-
-
-ments qui, dans l'ancienne France, décrétèrent les dispositions les
+La succession intestat et les testamentaires. — Vues et sentiments qui, dans l'ancienne France, décrétèrent les dispositions les
 
 plus communes de la coutume et de la loi. Critique de ces dispositions. — Dispositions actuelles de la législation. Critique de ces dispositions. — Quelles doivent être, en matière de succession, les
 idées du législateur? — Réformes à proposer pour mettre la loi sur
@@ -405,10 +394,8 @@ actualité depuis la Révolution jusqu'à nos jours. Les journaux ouverts et les
 distingue de la chronique; le style, la pensée, les anecdotes, le trait.
 — VI. Le reportage. Comment on le fait. Comment on devrait le faire.
 Les manœuvres de la presse. Les tâcherons. Règles générales. Les
-reporters célèbres. — VII. L'Interview. Il n'y a pas de genre infé-
-rieur, il n'y a que des esprits médiocres. Ceux qu'on interviewe.
-Comment on interviewe. Le secret professionnel. La probité du mé-
-tier. Les démentis et les rectifications. — VIII. Rapports des reporters
+reporters célèbres. — VII. L'Interview. Il n'y a pas de genre inférieur, il n'y a que des esprits médiocres. Ceux qu'on interviewe.
+Comment on interviewe. Le secret professionnel. La probité du métier. Les démentis et les rectifications. — VIII. Rapports des reporters
 avec les rédacteurs et secrétaires de rédaction. Les serviteurs de
 l'idéeet les marchands de papier. Les femmes reporteresses. Plus
 de probité et plus de respect. Le reportage à l'étranger. —IX. Leçon
@@ -464,15 +451,11 @@ dirigées par M. Henry FOUQUIER, journaliste.
 honoraire à l'Université de Montpellier,
 I. Qu'est-ce que critiquer? C'est juger en expliquant. Le critique
 
-musical peut toujours juger. Ne peut-il motiver ses jugements? L'opi-
-
-nion courante est qu'il ne le peut.
+musical peut toujours juger. Ne peut-il motiver ses jugements? L'opinion courante est qu'il ne le peut.
 
 II. De la difficulté de motiver ses jugements en matière musicale.
 
-Cette difficulté repose sur l'imprécision de ce que la musique ex-
-
-prime ou est censée exprimer. On vante l'intensité de ce pouvoir
+Cette difficulté repose sur l'imprécision de ce que la musique exprime ou est censée exprimer. On vante l'intensité de ce pouvoir
 
 d'expression. Elle est incontestable. Il est donc possible de voir si
 
@@ -480,15 +463,10 @@ l'on a été ému et si on l'a été légèrement ou profondément.
 
 III. De l'expression musicale. La musique n'exprime pas en ce
 
-sens qu'elle n'est pas un langage d'idées. Est-elle un langage d'émo-
+sens qu'elle n'est pas un langage d'idées. Est-elle un langage d'émotions? En cas d'affirmation, la motivation des jugements critiques
 
-tions? En cas d'affirmation, la motivation des jugements critiques
-
-deviendrait possible. Il y aurait place pour une certaine « vraisem-
-blance ». On pourrait statuer sur les limites dans lesquelles cette
-vraisemblance a été atteinte. Ce n'est pas tout: on pourrait exa-
-
-miner dans quelle mesure une œuvre musicale est ou n'est pas co-
+deviendrait possible. Il y aurait place pour une certaine « vraisemblance ». On pourrait statuer sur les limites dans lesquelles cette
+vraisemblance a été atteinte. Ce n'est pas tout: on pourrait examiner dans quelle mesure une œuvre musicale est ou n'est pas co-
 
 IV. Caractère actuel de la chronique musicale: elle n'arrive pas
 à se distinguer de la chronique, malgré de louables efforts pour s'en
@@ -531,11 +509,8 @@ et de la salle de lecture (journaux, revues, etc.).
 premier cahier de la deuxième série
 d'assister en tout temps aux cours, conférences, visites, et reçoivent toutes les publications de l'École.
 
-Recevront le titre de membres donateurs les per-
-
-sonnes ayant versé une somme de 100 francs au moins;
-_elles pourront assister en tout temps aux cours, confé-
-rences et visites.
+Recevront le titre de membres donateurs les personnes ayant versé une somme de 100 francs au moins;
+_elles pourront assister en tout temps aux cours, conférences et visites.
 
 ArricLe PREMIER. — L'École des Hautes Études sociales délivre deux sortes de diplômes: un diplôme de
 section et un diplôme d'École.
@@ -609,8 +584,7 @@ M. Duclaux a parlé familièrement, de son front entêté,
 de son regard frontal, froidement sourcilleux. Nous
 laissons soigneusement à son allocution le caractère
 qu'elle avait. Cordialité sans gêne et sans apprêt. Nulle
-recherche. Parfois singulièrement grave et entrant, pé-
-nétrant, simplement, quand il parle du bon professeur
+recherche. Parfois singulièrement grave et entrant, pénétrant, simplement, quand il parle du bon professeur
 que nous avons tous eu, des ouvriers et des bourgeois,
 du socialisme. Il y aurait beaucoup à redire sur sa paix
 sociale et son évolutionnisme non révolutionnaire. Mais
@@ -621,8 +595,7 @@ L'école des hautes études sociales est l'expression
 d'une idée très conforme à l'esprit général de notre
 temps: celle du groupement et de l'organisation
 méthodique de toutes les études qui se rapportent
-aux conditions d'existence et de progrès des socié-
-tés humaines. Quelque opinion que l'on professe
+aux conditions d'existence et de progrès des sociétés humaines. Quelque opinion que l'on professe
 sur la forme la plus parfaite de ces sociétés, on ne
 peut contester que, de plus en plus, pour faire, en
 matière sociale, œuvre viable et bonne, il faut posséder un fonds de connaissances positives, de données d'observation, d'inductions expérimentales,
@@ -648,8 +621,7 @@ en cherchant toutes avec la même conscience des
 faits, des réalités données, des vérités évidentes,
 elles sont sûres de ne jamais se combattre, de ne
 pas s'opprimer les unes les autres, un fait ne pouvant jamais détruire un autre fait, et ainsi elles
-développent déjà en elles-mêmes, par une consé-
-quence naturelle de leur travail, ces sentiments, je
+développent déjà en elles-mêmes, par une conséquence naturelle de leur travail, ces sentiments, je
 ne dis pas seulement de tolérance mutuelle, mais
 d'accord et d'amitié, qui sont apparemment l'une
 des fins principales où doivent tendre les sociétés
@@ -721,8 +693,7 @@ du naturaliste, cette sorte de règne spécial que
 constitue l'ensemble des faits sociaux. Elle l'étudie
 suivant la méthode d'observation et d'analyse. En
 même temps qu'elle cherche à déterminer les faits
-avec une rigoureuse exactitude, elle tâche de dé-
-couvrir leurs relations causales, leur dépendance
+avec une rigoureuse exactitude, elle tâche de découvrir leurs relations causales, leur dépendance
 mutuelle, afin de dégager de l'observation, tant du
 passé que du présent, quelque chose qui ressemble
 aux enseignements, utilisables dans la pratique,
@@ -753,9 +724,7 @@ théorie. C'est la théorie, certes, la théorie faite, en
 quelque sorte, de l'âme des faits, qui, visible ou
 latente, donne à la pratique la généralité, la sûreté,
 la fécondité, la valeur durable. Mais de nombreux
-et solides enseignements existent ailleurs, qui envisagent surtout les problèmes sous leur aspect théo-
-
-rique. Ici, l'on a en vue, avant tout, d'aider les
+et solides enseignements existent ailleurs, qui envisagent surtout les problèmes sous leur aspect théorique. Ici, l'on a en vue, avant tout, d'aider les
 hommes voués à l'action à acquérir ce qu'on nomme
 proprement la compétence, c'est-à-dire cette science
 
@@ -773,8 +742,7 @@ qu'il a sous les yeux, et dont il n'aperçoit ni la
 raison ni le sens véritable, un esprit éclairé autant
 que positif, en quête de toutes les idées même les
 plus élevées que suggèrent les faits, mais les considérant immédiatement dans leurs conditions de
-réalisation, dans leur signification pratique et expé-
-rimentale. Etc'est ce genre d'esprit que l'on se propose de provoquer ou de développer.
+réalisation, dans leur signification pratique et expérimentale. Etc'est ce genre d'esprit que l'on se propose de provoquer ou de développer.
 
 Un tel enseignement, d'ailleurs, non seulement
 peut être constamment pénétré de théorie, au sens
@@ -810,8 +778,7 @@ l'Entendement comportent le rapport de contradic-?
 tion proprement dite et d'exclusion mutuelle.
 Deux vrais savants, en tant que savants, se tolèrent
 donc nécessairement l'un l'autre. Ce n'est pas assez
-dire; et l'on ne saurait douter qu'une science com-
-mune, aussi complète et objective que possible, ne
+dire; et l'on ne saurait douter qu'une science commune, aussi complète et objective que possible, ne
 soit pour les esprits un principe de rapprochement
 singulièrement puissant. Largement instruits, et
 capables de considérer les questions sous toutes
@@ -848,8 +815,7 @@ des sociétés modernes, l'égalité de droit et même
 de pouvoir de tous les individus tend de plusen
 plus à se réaliser. qui pourrait affirmer que
 Hobbes s'est trompé du tout au tout, quand il a posé
-en principe que légalité, c'est la guerre? Si l'éga-
-lité laisse subsister dans les âmes légoïsme,
+en principe que légalité, c'est la guerre? Si l'égalité laisse subsister dans les âmes légoïsme,
 jouissance, si elle n'a pas pour complément, et en
 quelque sorte pour fondement intérieur et moral,
 le respect du droit d'autrui, la sympathie
@@ -888,16 +854,13 @@ l'École des Hautes Études sociales. Elle fait appel
 école des hautes études sociales
 à tous ceux qui sont désireux d'appliquer aux problèmes sociaux le pur esprit scientifique. Elle ne
 prétend pas que la science, sans les vertus actives,
-suffise à résoudre ces problèmes dans la réalité concrète et vivante, mais elle part de ce principe, assu-
-rément incontestable, que, dans le domaine social
+suffise à résoudre ces problèmes dans la réalité concrète et vivante, mais elle part de ce principe, assurément incontestable, que, dans le domaine social
 comme dans les autres, il y a des faits à connaître
 et que cette connaissance importe à la pratique; et
 elle a confiance que la recherche commune de la,
 vérité, poursuivie avec zèle et avec conscience, non
 seulement rend possible une œuvre scientifique que
-les individus, livrés à eux-mêmes, seraient incapables d'accomplir, mais encore prépare et com-
-mence, par son influence sur les âmes et les volon-
-tés, la réalisation des harmonies morales. Apprendre
+les individus, livrés à eux-mêmes, seraient incapables d'accomplir, mais encore prépare et commence, par son influence sur les âmes et les volontés, la réalisation des harmonies morales. Apprendre
 ensemble, et les uns des autres, c'est déjà s'aimer.
 Au moment où nous mettons sous presse, nous ne pou- À
 vons qu'annoncer en bref à nos abonnés que M. Duclaux
@@ -944,8 +907,7 @@ tout naturel qu'un homme qui est habitué depuis si longtemps à vibrer au conta
 patriotique — continue ici son œuvre de consolateur.
 Le cours de M. Mariilier sur l'obligation morale et la
 coutume; le cours de M. Charles Guieysse sur la morale et
-lParmée sont aussi des cours qui s'expliquent par eux-
-mêmes, ou du moins dans lesquels le nom du conférencier
+lParmée sont aussi des cours qui s'expliquent par euxmêmes, ou du moins dans lesquels le nom du conférencier
 indique tout de suite quel sera le caractère du cours. Il
 s'agit de cette question toujours présente: la luite de la loi
 morale contre les conditions extérieures, qui quelquefois
@@ -957,23 +919,20 @@ militaire, de l'officier, ce qui l'empêche quelquefois d'exercer
 sur ses hommes l'influence morale qu'il pourrait exercer, À
 ce qui empêche ces hommes de la recevoir, ce qui même
 empêche l'oflicier dans certaines circonstances d'être maître
-de sa conscience morale et de distinguer chez lui où com-
-mence l'obéissance et où finit la soumission: question évi-!
+de sa conscience morale et de distinguer chez lui où commence l'obéissance et où finit la soumission: question évi-!
 demment des plus importantes, des plus graves, question
 d'un intérêt actuel et que M. Guieysse étudiera avec sa
 compétence ordinaire, car je crois pouvoir dire qu'il a
 éprouvé lui-même les incertitudes qu'il vous indiquera.
 Vous trouvez aussi dans ce même programme un cours
-de M. Xavier Léon sur la vie de Fichte; pourquoi ce philosophe plutôt qu'un autre? Parce qu'ici nous ne nous préoc-
-cupons pas seulement d'éclairer les esprits, mais encore de
+de M. Xavier Léon sur la vie de Fichte; pourquoi ce philosophe plutôt qu'un autre? Parce qu'ici nous ne nous préoccupons pas seulement d'éclairer les esprits, mais encore de
 former des volontés. Et il nous a semblé que la vie d'un
 philosophe qui a été à la fois un homme et un citoyen, qui,
 patrie était une vie dont l'exemple méritait d'être porté
 devant vous.
 J'aurai à entrer dans un peu plus de détails à propos du
 sujet que vous voyez inscrit sous le titre l'éducation morale
-dans les lycées. Ce mouvement est commencé depuis long-
-temps; d'abord par l'enseignement secondaire de l''Université, ensuite par le programme des établissements rivaux.
+dans les lycées. Ce mouvement est commencé depuis longtemps; d'abord par l'enseignement secondaire de l''Université, ensuite par le programme des établissements rivaux.
 L'enseignement secondaire ne s'est pas jusqu'ici préoccupé
 de l'éducation morale de ses élèves; je dis dans les programmes, Car vous savez que si elle n'a pas prêché par
 la parole, l'Université a souvent préché par l'exemple, et
@@ -1009,9 +968,7 @@ ce qui est destiné à faire l'homme que sera cet élève, est
 
 Vous comprendrez, dans ces conditions, qu'un certain
 nombre de professeurs de l'enseignement secondaire, émus
-de cette situation, préoccupés de l'avenir des jeunes géné-
-
-école des hautes études sociales
+de cette situation, préoccupés de l'avenir des jeunes généécole des hautes études sociales
 rations dont ils avaient la garde, se soient posé la question suivante: Remplissons-nous notre devoir vis-à-vis de
 ces enfants?
 
@@ -1089,16 +1046,14 @@ exactement celui qu'indiquait M. Boutroux tout à l'heure
 il est conforme au précepte indiqué par Buffon et qui revient
 à ceci: colliger des faits pour avoir des idées.
 Cette méthode est encore plus nécessaire à propos des
-sciences sociales qu'elle ne l'est par exemple pour les scien-
-ces physiques, dans lesquelles l'objet de l'étude est commandé
+sciences sociales qu'elle ne l'est par exemple pour les sciences physiques, dans lesquelles l'objet de l'étude est commandé
 par des lois qui lui sont supérieures, qui sont inéluctables
 et devant lesquelles il faut bien s'incliner, dont les caractères
 sont connus à l'avance et qui permettent d'émettre des prévisions. Il en est autrement, bien entendu, quand la matière
 première qui fait l'objet de l'étude se trouve être l'homme,
 avec sa volonté, avec sa responsabilité, avec son libre arbitre; c'est une matière essentiellement variable, sur laquelle
 on ne peut pas compter. — Il y a bien, je le sais, des écoles
-qui le suppriment, par la pensée, bien entendu, et qui di-
-sent: il y a des lois générales, les hommes se mettent en
+qui le suppriment, par la pensée, bien entendu, et qui disent: il y a des lois générales, les hommes se mettent en
 travers, tant pis, les hommes seront balayés, et qui ne
 s'en préoccupent pas davantage; — il y a des écoles
 qui disent qu'il est dans la loi naturelle que les faibles
@@ -1165,9 +1120,7 @@ intermédiaires et arrivant ainsi peu à peu à faire régner la
 paix sur ce territoire; de telle sorte que peu à peu, ce qu'il
 appelle l'ère de la paix s'étend de plus en plus et a atteint
 
-les nations, mais tout permet d'espérer, — et je suis con-
-
-vaincu qu'il est très fervent dans cette espérance, — que
+les nations, mais tout permet d'espérer, — et je suis convaincu qu'il est très fervent dans cette espérance, — que
 
 nous sommes en ce moment dans une période transitoire et
 qu'à un moment quelconque les nations qui sont en ce
@@ -1188,8 +1141,7 @@ qu'elles ne le sont avec les tendances de notre temps.
 
 Je signale en même temps les études sur les origines du
 capitalisme moderne par M. Hauser, et je mentionne les
-doctrines sociales catholiques du R. P. Maumus, les confé-
-rences sur les syndicats ouvriers en Angleterre et en
+doctrines sociales catholiques du R. P. Maumus, les conférences sur les syndicats ouvriers en Angleterre et en
 Amérique par M. Paul de Rousiers. Tous ceux qui ont
 ses articles estiment et apprécient l'esprit à la fois singulièrement analytique et synthétique dont il s'inspire.
 
@@ -1230,8 +1182,7 @@ Je suis d'autant plus aise de professer ces doctrines ici
 que, dans ma conviction, ce n'est pas l'État qui estle mieux
 organisé pour répandre ces méthodes de préservation sociale
 contre la maladie, et que par exemple, ce sont les associations ouvrières, ce sont les coopératives qui, mues par un
-intérêt plus immédiat et plus direct, peuvent faire précisé-
-ment ce que l'État ne peut pas faire, et déjà ont fait en Belgique ce que dans aucune autre nation du monde, même
+intérêt plus immédiat et plus direct, peuvent faire précisément ce que l'État ne peut pas faire, et déjà ont fait en Belgique ce que dans aucune autre nation du monde, même
 les plus centralisées, l'État n'a réussi à faire.
 
 J'ai hâte d'arriver à deux points essentiels de lécole
@@ -1248,8 +1199,7 @@ ont fait avec leurs propres ressources financières, intellectuelles et morales:
 ignoré du grand public. Pendant que les théoriciens dissertaient sur ce sujet, et sans dédaigner, du reste, les enseignements qui leur venaient de ce côté, les ouvriers, aux prises
 avec les nécessités de la vie, se sont organisés en vue de la
 lutte légitime pour la vie. Que cette organisation ait été
-à l'origine surtout une organisation de résistance, qu'en-
-core en ce moment-ci les questions de grèves, de conflits
+à l'origine surtout une organisation de résistance, qu'encore en ce moment-ci les questions de grèves, de conflits
 passionnent les esprits plus que les autres, c'est ce dont ici
 personne ne songera certainement à s'étonner. Mais, ce
 serait faire injure à ce parti que de croire qu'il a borné ses
@@ -1329,9 +1279,7 @@ mais plutôt habitués à voir les choses plus en gros, ce qui
 n'empêche pas de les voir quelquefois juste. Et en échange
 de ces quelques défauts que ces auditeurs doivent à ce que
 leur éducation intellectuelle a peut-être été un peu négligée,
-ils apportent des qualités précieuses qui en font des audi-
-teurs de premier ordre pour le professeur qui sait les com-
-prendre et les aimer.
+ils apportent des qualités précieuses qui en font des auditeurs de premier ordre pour le professeur qui sait les comprendre et les aimer.
 
 Je dois déclarer que dans une carrière déjà longue de
 professorat, je n'ai jamais trouvé plus de plaisir à me
@@ -1339,8 +1287,7 @@ trouver devant un auditoire que dans une Université populaire: une bonne volont
 intensité de vie qui apparaît dans tous les yeux, un désir
 profond d'entrer en communauté d'idées avec le professeur,
 de boire sa parole, et surtout cet auditoire a cette qualité
-particulière que bien qu'il soit avide d'apprendre, il réflé-
-chit beaucoup, il s'interroge sur la justesse de ce qu'on lui!
+particulière que bien qu'il soit avide d'apprendre, il réfléchit beaucoup, il s'interroge sur la justesse de ce qu'on lui!
 dit, et lorsque ses auditeurs, à fin de la leçon, consentent parfois à prendre la parole, ils font quelquefois des
 objections assez embarrassantes, toujours curieuses, originales, parce qu'ils voient les choses d'un côté différent de
 celui du professeur.
@@ -1402,23 +1349,19 @@ Un journaliste a besoin de deux choses: il a besoin du
 don et il a besoin de la préparation professionnelle. Au
 sujet du don, nous ne pouvons rien: on naît journaliste
 comme on naît rôtisseur. — Mais nous pouvons quelque
-chose pour la préparation professionnelle, et c'est précisé-
-ment en vue de cette préparation qu'ont été coordonnés les
+chose pour la préparation professionnelle, et c'est précisément en vue de cette préparation qu'ont été coordonnés les
 divers cours de l'école de journalisme.
 
 M. Fouquier, qui a à la fois le don et le métier, avait fait,
-l'année dernière, une série de leçons sur la critique drama-
-tique, dans lesquelles il avait donné à ses élèves unetrès
+l'année dernière, une série de leçons sur la critique dramatique, dans lesquelles il avait donné à ses élèves unetrès
 
 ê haute idée de leur mission, où il avait porté à un très haut
 degré le niveau moral de l'école. M. Fouquier nous reste
 encore cette année et son cours aura toujours l'intérêt qu'il
 a lui donner l'an passé. ‘1:48
 
-Les grandes divisions de l'école correspondent précisé-
-ment aux notions que je viens d'indiquer: l'instruction
-professionnelle du journaliste comprend, dans notre pro-
-gramme, une histoire de la presse depuis la Restauration
+Les grandes divisions de l'école correspondent précisément aux notions que je viens d'indiquer: l'instruction
+professionnelle du journaliste comprend, dans notre programme, une histoire de la presse depuis la Restauration
 jusqu'à nos jours, histoire de la presse que se partageront
 MM. Maury et Félix Léveillé. M. Seignobos parlera du
 journalisme actuel, de la presse contemporaine, montrera
@@ -1438,8 +1381,7 @@ ne sont pas portées au programme, jouera à propos de la
 presse étrangère à peu près le même rôle que M. Seignobos
 
 jouera à propos de la presse française. nous dira quel est
-le classement des partis, quelle est la langue politique spé-
-ciale dans les journaux de l'étranger.
+le classement des partis, quelle est la langue politique spéciale dans les journaux de l'étranger.
 
 La législation sur la presse fera l'objet d'un cours de
 M. Bergougnan, qui, avec son esprit avisé, son entrain, sa
@@ -1476,17 +1418,14 @@ dans les divers pays, mettre en relations ces divers pays
 par des échanges de professeurs: envoyer, par exemple,
 des professeurs français en Angleterre, en Allemagne ou en
 À Russie, recevoir à leur place des professeurs de ces divers
-pays, introduire, par conséquent, une connaissance géné-
-
-école des hautes études sociales
+pays, introduire, par conséquent, une connaissance généécole des hautes études sociales
 rale plus approfondie des hommes et des choses. Voilà un
 buttrès noble, très louable, auquel nous nous associons.
 Nous avons aussi l'appui de la Bibliothèque des sciences
 sociales; de sorte que notre action à l'extérieur est déjà un
 En somme, il n'est pas nécessaire de commencer grandement pour aboutir à de grandes conséquences; il suflit
 d'avoir du courage; il suflit aussi — et c'est peut-être le
-secret de ma présence ici — de songer que ce qu'on veut pro-
-duire, c'est une fermentation. {Rires et applaudissements).
+secret de ma présence ici — de songer que ce qu'on veut produire, c'est une fermentation. {Rires et applaudissements).
 Que faut-il pour une fermentation? C'est ici que ma compétence me reprend, et il est un peu tard. Pour une fermentation, il faut deux choses: une bonne semence et un
 bon milieu de culture. De la semence, je viens de vous en
 parler, ce sont les hommes éminents qui ont bien voulu
@@ -1502,8 +1441,7 @@ se répandre, car, comme vous le disait tout à l'heure notre £.
 président, nous ne voulons pas faire de prosélytisme:nous
 ne sommes pas des ravisseurs d'âmes, nous voulons vous,
 demander votre plein consentement dans toutes les opinions
-que vous entendrez émettre devant vous. Nous vous deman-
-derons même d'interpeller sans pudeur le conférencier à la
+que vous entendrez émettre devant vous. Nous vous demanderons même d'interpeller sans pudeur le conférencier à la
 fin de sa conférence, d'entrer en communion d'idée intime
 avec lui; je suis convaincu que cette communion d'idées
 s'élablira sans aucune difliculté et pour l'intérêt de tous.
@@ -1574,22 +1512,18 @@ abonnés. Nous prions ceux de nos anciens abonnés
 qui n'ont pas tous les cahiers de la première série de
 vouloir bien nous demander sans aucun retard les
 cahiers qui leur manquent.
-Nos anciens abonnés n'ont pas oublié que « la lu-
-mière » de Jérôme et Jean Tharaud fut publiée dans les
+Nos anciens abonnés n'ont pas oublié que « la lumière » de Jérôme et Jean Tharaud fut publiée dans les
 seplième, huitième et neuvième cahiers de la première
 série. Nous en avons fait pendant les vacances un très
 beau tirage à part en un volume. Ce tirage à part n'est
-pas mis dans le commerce. Nous le tenons à la dispo-
-sition de nos abonnés pour un franc.:.
+pas mis dans le commerce. Nous le tenons à la disposition de nos abonnés pour un franc.:.
 
-Nous tenons gratuitement à la disposition de nos abon-
-nés la « Jeanne d'Arc » de Marcel et Pierre Baudouin.
+Nous tenons gratuitement à la disposition de nos abonnés la « Jeanne d'Arc » de Marcel et Pierre Baudouin.
 Ajouter un franc pour les frais d'envoi. Nous devons
 Jaire cet envoi à plusieurs de nos anciens abonnés. Nous
 le ferons aussitôt que notre nouvelle administration
 aura installé nos nouveaux envois.
-Nous prions nos souscripteurs et nos abonnés de vou-
-loir bien nous envoyer des mandats de poste plutôt que
+Nous prions nos souscripteurs et nos abonnés de vouloir bien nous envoyer des mandats de poste plutôt que
 des bons: le mandat est une pièce d'administration plus
 Nous avons donné le bon à tirer après correction de ce
 premier cahier le jeudi 29 novembre 1900.

@@ -37,8 +37,7 @@ volume de Jean-Christophe, nous
 avons adopté provisoirement: la
 reprendre plus tard le titre primitif]
 
-J'ai écrit la tragédie d'une génération qui dispa-
-raître. Je n'ai cherché à rien dissimuler de ses vices
+J'ai écrit la tragédie d'une génération qui disparaître. Je n'ai cherché à rien dissimuler de ses vices
 et de ses vertus, de sa pesante tristesse, de son orgueil
 chaotique, de ses efforts héroïques et de ses acca_ blements sous l'écrasant fardeau d'une tâche surhu_ maine: toute une somme du monde, une morale, une
 
@@ -343,8 +342,7 @@ dans un salon d'hôtel, qui protégeait la pudeur de son A À
 Ils se dirent, à mi-voix, avec de fréquents silences,:
 les grandes lignes de leur vie. Le comte Berény avait:
 été tué dans un duel, quelques mois auparavant; et
-Christophe comprit qu'elle n'avait pas été très heu-
-reuse avec lui. Elle avait aussi perdu un enfant, son
+Christophe comprit qu'elle n'avait pas été très heureuse avec lui. Elle avait aussi perdu un enfant, son
 premier-né. Elle évitait toute plainte. Elle détourna QUO
 l'entretien d'elle-même, pour interroger Christophe, et
 elle témoigna, au récit de ses épreuves, une affectueuse
@@ -358,8 +356,7 @@ venir. Ce mot banal le ravit. Elle le reçut, cette fois, y
 dans son salon particulier. Elle était avec ses deux: ROM
 enfants. Il les regarda, avec un peu de trouble encore et
 beaucoup de tendresse. Il trouva que la petite, — l'aînée,
-— ressemblait à sa mère; il ne demanda pas à qui res-
-semblait le garçon. Ils causèrent du pays, du temps, des
+— ressemblait à sa mère; il ne demanda pas à qui ressemblait le garçon. Ils causèrent du pays, du temps, des
 livres ouverts sur la table; — leurs yeux tenaient un
 autre langage. Il comptait parvenir à lui parler plus
 intimement. Mais entra une amie d'hôtel. Il vit l'aimable
@@ -553,9 +550,7 @@ inspire périodiquement aux littérateurs en voyage. Il
 ressentait pour elle l'hostilité méfiante d'un artiste
 d'avant-garde, qui a trop souvent entendu invoquer le
 
-nom de Rome par les pires champions de la routine acadé-
-
-mique. Enfin, ce vieux levain d'antipathie instinctive,
+nom de Rome par les pires champions de la routine académique. Enfin, ce vieux levain d'antipathie instinctive,
 
 qui couve au fond des cœurs de tous les hommes du
 
@@ -594,9 +589,7 @@ sur les vallées et sur les villes de Suisse, grelottantes
 et mouillées. Les yeux avaient perdu le souvenir de la
 
 saveur du soleil. Pour en retrouver en soi l'énergie,
-concentrée, il fallait commencer par faire nuit com-
-
-plète, et, sous les paupières closes, descendre au fond
+concentrée, il fallait commencer par faire nuit complète, et, sous les paupières closes, descendre au fond
 
 de la mine, dans les galeries souterraines du rêve.
 
@@ -710,8 +703,7 @@ qui passaient une orange avec la branche verte. Il
 interpellait les voiturins, vautrés, la tête en bas au
 fond de leurs chariots, et poussant, par accès intermittents, les mille et un couplets d'un chant nasillard,
 paresseux et gueulard. Il se surprenait à fredonner
-Cavalleria Rusticana. Le but de son voyage était tota-
-lement oublié. Oubliée, sa hâte d'arriver au but, de
+Cavalleria Rusticana. Le but de son voyage était totalement oublié. Oubliée, sa hâte d'arriver au but, de
 
 Jusqu'au jour où l'image aimée se réveilla. Fut-ce un
 regard, rencontré sur la route, fut-ce une inflexion de
@@ -778,8 +770,7 @@ n'écouta pas.)
 — C'est vrai, dit-elle, en le regardant avec ses yeux
 riants. Vous avez changé, depuis notre dernière rencontre.
 
-Il la regardait aussi, et ne la trouvait pas moins diffé-
-rente de celle qu'il se rappelait. Non pas qu'elle eût
+Il la regardait aussi, et ne la trouvait pas moins différente de celle qu'il se rappelait. Non pas qu'elle eût
 changé pourtant, depuis deux mois. Mais il la voyait
 avec des yeux tout neufs. Là-bas, en Suisse, l'image des
 jours anciens, l'ombre légère de la jeune Grazia s'interposait entre son regard et l'amie présente. Maintenant,
@@ -812,9 +803,7 @@ certaine froideur, qui l'abritait contre les illusions du
 
 cœur; elle se livraït rarement; et sa tendresse se tenait
 
-en garde, avec un sourire clairvoyant, contre les empor-
-
-tements de passion que Christophe avait peine à
+en garde, avec un sourire clairvoyant, contre les emportements de passion que Christophe avait peine à
 
 réprimer. Avec cela, des faiblesses, des moments
 
@@ -822,9 +811,7 @@ d'abandon au souffle des jours, une coquetterie qu'elle
 
 raillait elle-même, mais qu'elle ne combattait point.
 
-Nulle révolte contre les choses, ni contre soi: un fata-
-
-lisme très doux, dans une nature toute bonne et un peu
+Nulle révolte contre les choses, ni contre soi: un fatalisme très doux, dans une nature toute bonne et un peu
 
 Elle recevait beaucoup, et sans beaucoup choisir, —
 du moins en apparence; — mais comme ses intimes
@@ -837,8 +824,7 @@ avait entendues, en Allemagne et en France. La plupart
 des mariages étrangers; il régnait parmi eux un cosmopolitisme de surface, où se mêlaient avec aisance les
 quatre langues principales et le bagage intellectuel
 des quatre grandes nations d'Occident. Chaque peuple
-y apportait son appoint personnel, les Juifs leur inquié-
-tude et les Anglo-Saxons leur flegme; mais le tout,
+y apportait son appoint personnel, les Juifs leur inquiétude et les Anglo-Saxons leur flegme; mais le tout,
 aussitôt fondu dans le creuset italien. Quand des
 siècles de grands barons pillards ont gravé dans une
 race tel profil hautain et rapace d'oiseau de proie, le
@@ -861,8 +847,7 @@ une grâce courtoise, une douceur de manières qui savait
 être affectueuse, tout en gardant sa malice et son rang,
 une finesse élégante de regard, de sourire, d'intelligence alerte et nonchalante, sceptique, diverse et
 È aisée. Rien de raide et de rogue. Rien de livresque. On
-n'avait pas à craindre de rencontrer ici un de ces psychologues de salons parisiens, embusqué derrière son lor-
-gnon, ou le caporalisme de quelque docteur allemand.
+n'avait pas à craindre de rencontrer ici un de ces psychologues de salons parisiens, embusqué derrière son lorgnon, ou le caporalisme de quelque docteur allemand.
 Des hommes, tout simplement, et des hommes très
 humains, tels que l'étaient déjà les amis de Térence
 et de Scipion l'Émilien.…
@@ -881,9 +866,7 @@ Tous ces hommes manquaient d'opinions décidées.
 Ils se mélaient à la politique et à l'art, avec le même
 dilettantisme. On voyait des natures charmantes, de
 ces belles figures italiennes de patriciens aux traits
-fins, aux yeux intelligents et doux, aux manières tran36
-
-quilles, qui aimaient d'un goût exquis et d'un cœur
+fins, aux yeux intelligents et doux, aux manières tranquilles, qui aimaient d'un goût exquis et d'un cœur
 affectueux la nature, les vieux peintres, les fleurs, les
 femmes, les livres, la bonne chère, la patrie, la
 musique... [ls aïmaient tout. Ils ne préféraient rien.
@@ -1014,8 +997,7 @@ et de servitude morale, accumulé depuis des siècles
 sur l'âme de la patrie. Ils y soufflaient leur réalisme
 impitoyable et leur intransigeante loyauté. Ils avaient À
 la passion de l'intelligence claire, que suit l'action
-énergique. Capables, à l'occasion, de sacrifier les préfé-
-rences de leur raison personnelle au devoir de discipline
+énergique. Capables, à l'occasion, de sacrifier les préférences de leur raison personnelle au devoir de discipline
 que la vie nationale impose à l'individu, ils réservaient
 pourtant leur autel le plus haut et leurs plus pures
 ardeurs à la vérité. Ils l'aimaient, d'un cœur fougueux
@@ -1076,8 +1058,7 @@ ce qu'ils y avaient mis, d'eux-mêmes, à leur insu.
 Critiques médiocres et piètres psychologues, ils étaient
 trop entiers, pleins d'eux-mêmes et de leurs passions,
 même quand ils étaient le plus épris de la vérité.
-L'idéalisme italien ne sait pas s'oublier; il ne s'inté-
-resse point aux rêves impersonnels du Nord; il ramène
+L'idéalisme italien ne sait pas s'oublier; il ne s'intéresse point aux rêves impersonnels du Nord; il ramène
 tout à soi, à ses désirs, à son orgueil de race, qu'il
 transfigure. Consciemment ou non, il travaille toujours
 pour la ferza Roma. Il faut dire que, pendant des
@@ -1094,8 +1075,7 @@ les partis: nationalistes, socialistes, néo-catholiques,
 libres idéalistes, tous Italiens irréductibles, tous, à
 d'espoir et de vouloir, citoyens de la Rome impériale,
 reine de l'univers.
-Tout d'abord, Christophe ne remarqua que leur géné-
-reuse ardeur et les communes antipathies qui l'unissaient à eux. Ils ne pouvaient manquer de s'entendre
+Tout d'abord, Christophe ne remarqua que leur généreuse ardeur et les communes antipathies qui l'unissaient à eux. Ils ne pouvaient manquer de s'entendre
 avec lui, dans le mépris de la société mondaine, à
 laquelle Christophe gardait rancune des préférences de
 Grazia. Ils haïssaient plus que lui cet esprit de prudence, cette apathie, ces compromis et ces arlequinades,
@@ -1480,8 +1460,7 @@ pendant des heures, elle devenait tout autre; elle aimait
 à marcher: grande, les jambes longues, la taille robuste
 et flexible, elle avait la silhouette d'une Diane de Primatice. — Le plus souvent, ils allaient à l'une de ces
 villas, épaves du naufrage où la splendide Rome du
-settecento.a sombré sous les flots de la barbarie pié-
-montaise. Ils avaient une prédilection pour la villa
+settecento.a sombré sous les flots de la barbarie piémontaise. Ils avaient une prédilection pour la villa
 Mattei, ce promontoire de la Rome antique, au pied
 . duquel viennent mourir les dernières vagues de la A
 Campagne déserte. Ils suivaient l'allée de chênes, dont
@@ -1520,8 +1499,7 @@ du Vatican lui étaient franchement hostiles. Il avait du
 dégoût pour ces têtes stupides, ces proportions efféminées ou massives, ce modelé banal et arrondi, ces
 Gitons et ces gladiateurs. A peine quelques statuesportraits trouvaient-elles grâce à ses yeux; et leurs
 modèles étaient sans intérêt pour lui. Il n'était pas
-beaucoup plus tendre pour les Florentins blêmes et grimaçants, pour les madones malades, les Vénus pré-
-raphaélites, pauvres de sang, phtisiques, maniérées et
+beaucoup plus tendre pour les Florentins blêmes et grimaçants, pour les madones malades, les Vénus préraphaélites, pauvres de sang, phtisiques, maniérées et
 rongées. Et la stupidité bestiale des matamores et des
 athlètes rouges et suants, qu'a lâchés sur le monde
 l'exemple de la Sixtine, lui semblait de la chair à canon.
@@ -1571,7 +1549,7 @@ n'aspirent à l'une des deux qu'au détriment de l'autre.
 De tous, les Italiens semblent avoir le plus perdu le
 sens de cette harmonie, que Poussin, que Lorrain, que
 Gœthe ont entendue. Faut-il, une fois de plus, qu'un
-étranger leur en révèle le prix? Et qui l'enseignera à:
+étranger leur en révèle le prix? Et qui l'enseignera
 nos musiciens? La musique n'a pas encore son
 Raphaël. Mozart n'est qu'un enfant, un petit bourgeois
 allemand, qui a les mains fiévreuses et l'âme sentfmentale, et qui dit trop de mots et qui fait trop de gestes, et
@@ -1632,9 +1610,7 @@ goût dangereux pour les forces encore jeunes qui ont
 une vaste carrière à remplir. Grazia se rendait compte
 que le monde qui l'entourait n'était pas un milieu vivifiant pour un artiste. Et quoiqu'elle eût pour Christophe plus d'amitié que pour tout autre... (osait-elle se
 l'avouer?).. elle n'était pas fâchée, au fond, qu'il s'éloignât. Hélas! Il la fatiguait, par tout ce qu'elle aimait
-en lui, par ce trop-plein d'intelligence, par cette abon-
-
-dance de vie accumulée pendant des années et qui
+en lui, par ce trop-plein d'intelligence, par cette abondance de vie accumulée pendant des années et qui
 débordaïit: sa quiétude en était troublée. Et il la fatiguait aussi, peut-être, parce qu'elle sentait toujours la
 menace de cet amour, beau et touchant, mais obsédant,
 contre lequel il fallait toujours rester en éveil; il était
@@ -1683,9 +1659,7 @@ même bruyante et impure; il faut incessamment donner
 et recevoir, et donner, et donner, et recevoir encore.
 — L'Italie, du temps de Christophe, n'était plus ce
 
-É grand marché de l'art qu'elle fut autrefois, qu'elle redeviendra peut-être. Les foires de la pensée, où s'échan62
-
-gent les âmes de toutes les nations, sont au Nord,
+É grand marché de l'art qu'elle fut autrefois, qu'elle redeviendra peut-être. Les foires de la pensée, où s'échangent les âmes de toutes les nations, sont au Nord,
 aujourd'hui. Qui veut vivre doit y vivre.
 Christophe, livré à lui-même, eût répugné à rentrer
 dans la cohue. Mais Grazia sentait plus clairement le
@@ -1806,8 +1780,7 @@ ont tout détruit. Quelle race de rongeurs! » — Une race
 de castors. Dans l'instant qu'on les croit acharnés sur
 des ruines, avec ces ruines mêmes ils posent les fondations d'une ville nouvelle. Je le vois à présent que les
 échafaudages s'élèvent de tous côtés.
-« A la vérité, c'est toujours le même désordre fran-
-çais. IL faut y être habitué pour reconnaître, dans la
+« A la vérité, c'est toujours le même désordre français. IL faut y être habitué pour reconnaître, dans la
 cohue qui se heurte en tous sens, les équipes d'ouvriers
 qui vont, chacune à sa tâche. Ce sont des gens, comme
 vous savez, qui ne peuvent rien faire, sans crier sur
@@ -1873,8 +1846,7 @@ fétides amoralistes, ont accompli leur tâche de termites:
 il fallait démolir la masure branlante, avant de réédifier.
 Les Juifs ont obéi à leur mission sacrée, qui est de rester, à travers les autres races, le peuple étranger, le
 peuple qui tisse, d'un bout à l'autre du monde, le réseau
-de l'unité humaine. Ils abattent les barrières intellec-
-tuelles des nations, pour faire le champ libre à la Raison
+de l'unité humaine. Ils abattent les barrières intellectuelles des nations, pour faire le champ libre à la Raison
 divine. Les pires corrupteurs, les destructeurs ironiques qui ruinent nos croyances du passé, qui tuent
 nos morts bien-aimés, travaillent, sans le savoir, à
 l'œuvre sainte, à la nouvelle vie. C'est de la même
@@ -2043,8 +2015,7 @@ sentiments que j'ai pour vous ne me rendent pas injuste
 pour les autres femmes. Je n'ai jamais plus de vraie
 sympathie pour elles que depuis que je ne les regarde
 plus avec des yeux amoureux. Le grand effort qu'elles
-font, depuis trente ans, pour s'évader de la demi-
-domesticité dégradante et malsaine, où notre stupide
+font, depuis trente ans, pour s'évader de la demidomesticité dégradante et malsaine, où notre stupide
 égoïsme d'hommes les Parquait, pour leur malheur et
 pour le nôtre, me semble un des beaux faits de notre
 
@@ -2142,7 +2113,7 @@ l'esprit lucide, de même qu'elle garde toujours l'œil
 et la main sûrs dans ses randonnées vertigineuses
 en auto. C'est une maîtresse femme; son mari, ses
 invités, ses gens, elle mène tout, tambour battant.
-Elle s'occupe aussi de politique; elle est pour « Monseigneur »: non que je la croie royaliste; mais ce lui
+Elle s'occupe aussi de politique; elle est pour « Monseigneur non que je la croie royaliste; mais ce lui
 est un prétexte de plus à se remuer. Et quoiqu'elle
 soit incapable de lire plus de dix pages d'un livre, elle
 
@@ -2318,9 +2289,7 @@ séduite; elle avait une belle voix et faisait de la musique,
 
 sans amour de la musique. Il fallut vivre de sa voix et
 
-du médiocre talent qu'il avait acquis à jouer du violon-
-
-celle. Naturellement, ils ne tardèrent pas à voir leur
+du médiocre talent qu'il avait acquis à jouer du violoncelle. Naturellement, ils ne tardèrent pas à voir leur
 
 commune médiocrité et à ne plus se supporter. Une
 
@@ -2351,9 +2320,7 @@ de raté, dont la vie n'a été qu'une suite de déboires:
 
 « Voilà ce que j'aurais être. IL y avait des traits
 
-communs entre nos âmes d'enfant; et certaines aven-
-
-tures de notre vie se ressemblent; j'ai même trouvé
+communs entre nos âmes d'enfant; et certaines aventures de notre vie se ressemblent; j'ai même trouvé
 
 quelque parenté dans telles de nos idées musicales;
 
@@ -2363,9 +2330,7 @@ a-t-il tenu que je n'aie pas sombré, comme lui? Sans
 
 doute, à ma volonté. Mais aussi aux hasards de la vie.
 
-Et même, à ne prendre que ma volonté, est-ce unique-
-
-ment à mes mérites que je la dois? N'est-ce pas plutôt
+Et même, à ne prendre que ma volonté, est-ce uniquement à mes mérites que je la dois? N'est-ce pas plutôt
 
 à ma race, à mes amis, à Dieu qui m'a aidé? »
 
@@ -2435,8 +2400,7 @@ Ses dix ans de solitude avaient accentué le contraste.
 
 Durant son absence, s'était accompli en Europe, et
 surtout à Paris, comme il l'avait bien vu, un travail
-de reconstruction. Un nouvel ordre naïssait. Une géné-
-ration se levait, désireuse d'agir plus que de comprendre,
+de reconstruction. Un nouvel ordre naïssait. Une génération se levait, désireuse d'agir plus que de comprendre,
 affamée de bonheur plus que de vérité. Elle voulait
 vivre, elle voulait s'emparer de la vie, füt-ce au prix du
 mensonge. Mensonges de l'orgueil, — de tous les
@@ -2507,9 +2471,7 @@ l'âme française, — la vierge pleine de grâce, qui porte
 l'égide, Athéna aux yeux bleus qui brillent dans les
 ténèbres, la déesse ouvrière, l'artiste incomparable,
 
-la raison souveraine, dont la lance étincelante ter-
-
-rasse les barbares aux cris tumultueux, — Christophe
+la raison souveraine, dont la lance étincelante terrasse les barbares aux cris tumultueux, — Christophe
 
 la fin du voyage
 apercevait un regard, un sourire qu'il connaissait, et
@@ -2591,16 +2553,13 @@ fit asseoir sur le divan, près de lui.
 Ils se dirent leur vie. De quatorze à vingt-cinq ans,
 .Emmanuel avait fait bien des métiers: typographe,
 tapissier, petit marchand ambulant, commis de librairie,
-clerc d'avoué, secrétaire d'un homme politique, journa-
-liste. Dans tous, il avait trouvé moyen d'apprendre
+clerc d'avoué, secrétaire d'un homme politique, journaliste. Dans tous, il avait trouvé moyen d'apprendre
 fièvreusement, et rencontrant l'appui de braves.
 gens frappés par l'énergie du petit homme, plus souvent tombant aux mains de gens qui exploitaient sa
 misère et ses dons, s'enrichissant des pires expériences
 et réussissant à en sortir sans trop d'amertume, n'y
 laissant que le reste de sa chétive santé. Des aptitudes
-singulières pour les langues anciennes, (moins excep-
-
-tionnelles qu'on ne croirait, dans une race imbue de
+singulières pour les langues anciennes, (moins exceptionnelles qu'on ne croirait, dans une race imbue de
 traditions humanistes), lui avaient valu l'intérêt et
 l'appui d'un vieux prêtre hellénisant. Ces études, qu'il -
 n'avait pas le temps de pousser très avant, lui furent
@@ -2625,8 +2584,7 @@ sonne la victoire prochaine; il chantait l'épopée de sa
 Ses poèmes étaient bien le produit de cette étrange
 race qui, à travers les siècles, a conservé si fort son
 vieil arome celtique, tout en mettant un orgueil bizarre
-à vêtir sa pensée des défroques et des lois du conqué-
-rant romain. On y trouvait tout purs cette audace gauloise, cet esprit de raison héroïque, d'ironie, ce mélange
+à vêtir sa pensée des défroques et des lois du conquérant romain. On y trouvait tout purs cette audace gauloise, cet esprit de raison héroïque, d'ironie, ce mélange
 de jactance et de folle bravoure, qui allait tirer la
 barbe aux sénateurs de Rome, pillait le temple de
 Delphes, et lançait en riant ses javelots contre le ciel.
@@ -2712,8 +2670,7 @@ encore en formation, et plus chaotique que Christophe
 n'avait jamais été. L'originalité de sa figure tenait aux
 éléments contradictoires qu'on y trouvait aux prises:
 un stoïcisme puissant, qui tâchait de dompter une
-nature rongée de désirs ataviques, — (le fils d'un alcoolique et d'une prostituée); — une imagination fréné-
-tique, qui se cabrait sous le mors d'une volonté d'acier;
+nature rongée de désirs ataviques, — (le fils d'un alcoolique et d'une prostituée); — une imagination frénétique, qui se cabrait sous le mors d'une volonté d'acier;
 un immense égoïisme et un immense amour des autres,
 dont on ne savait jamais lequel des deux serait vainqueur; un idéalisme héroïque et une avidité maladive
 de gloire qui le rendait inquiet des autres supériorités.
@@ -2755,8 +2712,7 @@ avec dureté, il avait envie de lui dire: « Va-t-en! »
 Il était irrité par sa laideur et par ses brusqueries. Si
 peu qu'il eût entrevu la société mondaine et quelque
 mépris qu'il lui témoignât, — (car il souffrait de s'y voir
-plus laid et plus ridicule), — il était sensible à lélé-
-gance, il subissait l'attrait de femmes qui avaient pour
+plus laid et plus ridicule), — il était sensible à lélégance, il subissait l'attrait de femmes qui avaient pour
 lui (il n'en doutait pas) le sentiment qu'il avait pour
 _son amie. Il tâchait de témoigner à celle-ci une affection qu'il n'avait pas, ou du moins que ne cessaient
 d'obscurcir des bourrasques de haïne involontaire. Il
@@ -2773,8 +2729,7 @@ d'une double antipathie: l'une, issue de sa jalousie
 ancienne (ces passions d'enfance, dont la poussée subsiste, même quand on en a oublié la cause); l'autre,
 inspirée par un brûlant nationalisme. Il incarnaït en
 France tous les rêves de justice, de pitié, de fraternité
-humaine, conçus par les meilleurs de l'époque précé-
-dente. Il ne l'opposait pas au reste de l'Europe, comme
+humaine, conçus par les meilleurs de l'époque précédente. Il ne l'opposait pas au reste de l'Europe, comme
 une ennemie dont la fortune croît sur les ruines des
 
 autres nations; il la mettait à leur tête, comme la souveraine légitime qui règne pour le bien de tous, — épée
@@ -2791,8 +2746,7 @@ Christophe voyait tout cela; mais plus âgé et plus
 instruit par la vie, il ne s'en affectait point. Si cet orgueil
 de race ne laissait pas d'être blessant, Christophe n'en
 était pas atteint; il faisait la part des illusions de
-l'amour filial, et il ne songeait pas à critiquer les exagé-
-rations d'un sentiment sacré. Au reste, l'humañité même
+l'amour filial, et il ne songeait pas à critiquer les exagérations d'un sentiment sacré. Au reste, l'humañité même
 trouve son profit à la croyance vaniteuse des peuples
 dans leur mission. De toutes les raisons qu'il avait de
 
@@ -2893,8 +2847,7 @@ lire dans le même livre du ciel et de la terre, le cœur
 parle la même langue.
 Il raconta gaiement ses mécomptes à Grazia, et dit
 son intention de retourner en Suisse; il demandait,
-en plaisantant, la permission de quitter Paris et annon-
-çait son départ pour la semaine suivante. Mais, à la fin
+en plaisantant, la permission de quitter Paris et annonçait son départ pour la semaine suivante. Mais, à la fin
 de la lettre, un post-scriptum disait:
 « J'ai changé d'avis. Mon départ est remis. »
 Christophe avait en Grazia une confiance entière; il
@@ -3430,8 +3383,7 @@ printemps. Christophe reçut une lettre de Grazia, lui
 disant qu'elle venait à Paris, avec ses deux enfants.
 Depuis longtemps, elle en avait le projet. Sa cousine
 Colette l'avait souvent invitée. La peur de l'effort à faire
-pour rompre ses habitudes, pour s'arracher à sa noncha-
-lante paix et à son home qu'elle aimait, pour rentrer
+pour rompre ses habitudes, pour s'arracher à sa nonchalante paix et à son home qu'elle aimait, pour rentrer
 dans le tourbillon parisien qu'elle connaissait, lui avait
 fait remettre son voyage, d'année en année. Une mélancolie qui la prit, ce printemps, peut-être une déception
 secrète — (que de romans muets dans le cœur d'une
@@ -3452,8 +3404,7 @@ contant gaiement ses mésaventures, en lui faisant part
 
 la fin du voyage
 
-de ses travaux, de ses projets, en l'enveloppant discrè-
-tement de son affection. Elle se sentait pénétrée par
+de ses travaux, de ses projets, en l'enveloppant discrètement de son affection. Elle se sentait pénétrée par
 cette grande tendresse, qui craignait de s'imposer; elle
 avait l'intuition que Christophe avait deviné sa peine;
 et elle en était attendrie. Son cœur un peu dolent se
@@ -3470,14 +3421,12 @@ plus proche. Si bien qu'un jour, en lui parlant, il s'interrompit brusquement et
 Elle sourit, et tout bas elle répondit:
 
 Il n'était pas très facile de causer tranquillement. Ils
-étaient rarement seuls. Colette les gratifiait de sa pré-
-sence, plus qu'ils n'auraient voulu. Elle était excellente,
+étaient rarement seuls. Colette les gratifiait de sa présence, plus qu'ils n'auraient voulu. Elle était excellente,
 malgré tous ses travers, sincèrement attachée à Grazia
 et à Christophe; mais il ne lui venait pas à l'idée
 qu'elle pût les ennuyer. Elle avait bien remarqué —
 (ses yeux remarquaient tout) —.ce qu'elle appelait le
-flirt de Christophe avec Grazia: le flirt était son élé-
-ment, elle en était enchantée; elle ne demandait qu'à
+flirt de Christophe avec Grazia: le flirt était son élément, elle en était enchantée; elle ne demandait qu'à
 l'encourager. Mais précisément, on ne le lui demandait
 pas; on souhaitait qu'elle ne se mêlât point de ce qui
 ne la regardait point. Il suffisait qu'elle parût, ou fit à
@@ -3712,8 +3661,7 @@ C'est si ennuyeux!
 Il apporta dans la chambre la bouillotte et la lampe
 à alcool, pour ne pas perdre un instant de son amie
 
-Elle, tout en cousant, regardait du coin de l'œil mali-
-cieusement ses gaucheries. Ils prirent le thé dans 1}
+Elle, tout en cousant, regardait du coin de l'œil malicieusement ses gaucheries. Ils prirent le thé dans 1}
 jan des tasses ébréchées, qu'elle trouva affreuses, vec
 1 ménagement, et qu'il défendit avec indignation, parce:
 aps qu'elles étaient des souvenirs de la vie commune avec
@@ -4066,8 +4014,7 @@ un je ne sais quoi de plus sérieux, de plus recueilli, un
 la fin du voyage
 plus constant désir d'être bonne, de s'instruire et de:
 ne pas faire de peine. Elle était, de jour en jour, plus
-attendrie de l'affection de Christophe, de son désintéres-
-sement, de sa pureté de cœur; et elle songeait à lui
+attendrie de l'affection de Christophe, de son désintéressement, de sa pureté de cœur; et elle songeait à lui
 faire, quelque jour, le grand bonheur qu'il n'osait plus
 rêver: devenir sa femme.
 
@@ -4358,8 +4305,7 @@ qu'il maintint et qu'elle respecta. A défaut du bien-être
 qu'il lui était interdit de mettre dans la vie de son ami,:ÿl
 elle s'ingéniait à y répandre ce qui avait mille fois plus
 de prix pour lui: sa tendresse. Il en sentait le souflle
-autour de lui, à toute heure du jour; le matin, il n'ou-
-vrait pas les yeux, il ne les fermait pas, le soir, sans 4]
+autour de lui, à toute heure du jour; le matin, il n'ouvrait pas les yeux, il ne les fermait pas, le soir, sans 4]
 une muette prière d'adoration amoureuse. Et elle, Non
 quand elle s'éveillait, ou que, la nuit, elle restait,
 comme il lui arrivait souvent, des heures sans dormir,
@@ -4429,8 +4375,7 @@ hiver dans un climat du Nord. Trop de choses
 l'avaient ébranlée: les secousses morales des dernières
 années, les soucis perpétuels causés par la santé de
 son fils, les longues incertitudes, la lutte qui s'était
-livrée en elle et dont elle n'avait rien montré, le cha-
-grin du chagrin qu'elle faisait à son ami. Christophe,
+livrée en elle et dont elle n'avait rien montré, le chagrin du chagrin qu'elle faisait à son ami. Christophe,
 
 ; pour ne pas ajouter aux tourments qu'il devinait,
 cachait ceux qu'il avait à voir s'approcher le jour de la

@@ -52,11 +52,9 @@ Nous devons nous préparer aux élections. Nous prions
 à viendraient en mains. Nous en constituerons des dosÀ siers. Nos abonnés sauront choisir, nous renseigner
 sans nous encombrer.
 11 faut se promener, ces semaines-ci, par les rues et
-parles routes. Il faut lire les affiches. Il faut lire atten-
-tivement les journaux. Il faut lire les circulaires. Il faut
+parles routes. Il faut lire les affiches. Il faut lire attentivement les journaux. Il faut lire les circulaires. Il faut
 collectionner les programmes. Il faut même, autant
-qu'on le peut, assister aux réunions, écouter les boni-
-ments. Ce commerce est d'un enseignement formi_ dable.
+qu'on le peut, assister aux réunions, écouter les boniments. Ce commerce est d'un enseignement formi_ dable.
 :. Quoi que l'on pense et quoi que l'on puisse penser du
 … devoir électoral, en fait il est impossible de nier que
 l'exercice du suffrage universel en France est devenu,
@@ -115,8 +113,7 @@ premier peuple vraiment, de celui qui a marché le premier et le plus avant dans
 Nous mesurons d'autant la faillite, la banqueroute
 immense que nous avons faite. Et que le monde a faite
 avec nous, Car l'usage de la démocratie n'a pas donné À
-en Amérique, en Angleterre, des résultats moins lamen-
-tables que ceux qu'il a donnés en France. Et quand nous
+en Amérique, en Angleterre, des résultats moins lamentables que ceux qu'il a donnés en France. Et quand nous
 
 voyons dans les journaux que tant de Russes, que tant
 de Belges combattent, meurent, nous nous demandons
@@ -125,8 +122,7 @@ dans leur pays un nouveau genre de vice déborde.
 À Faut-il croire que Par une loi de fatalité, religieuse ou
 . métaphysique, tout effort humain est damné?. Faut-il
 croire que tous les biens de ce monde; bons à prendre,
-Sont mauvais à garder. Faut-il croire que toute acqui-
-sition est bonne et Œue toute conservation est mauvaise?
+Sont mauvais à garder. Faut-il croire que toute acquisition est bonne et Œue toute conservation est mauvaise?
 é Tout cela n'est-il qu'un immense divertissement?
 Quand je m'y suis mis quelquefois, à considérer. les
 diverses agitations des hommes, et les périls et Les
@@ -452,14 +448,12 @@ bienfaitrice et chrétienne.
 Entre autres, il a cité Jaurès, qui, dans son livre l'Action
 Socialiste a dit qu'il n'était pas vrai que l'Europe soit
 ï écrasée sous les charges du militarisme; que par contre
-« l'Europe a eu, sous la cuirasse, des années de prospé-
-rité merveilleuse et que « les Etats modernes pourront, à
+« l'Europe a eu, sous la cuirasse, des années de prospérité merveilleuse et que « les Etats modernes pourront, à
 sans péril, porter d'énormes budgets de défense natio-
 L'Action Socialiste n'est pas un livre de Jaurès.
 Quand j'eus fondé la librairie Georges Bellais, je deémandai à Jaurès la permission de réunir en un volume de:
 de propagande le plus que je pourrais de ses articles
-antérieurs. Avec sa très grande libéralité, non seule-
-ment il nous permit de faire ce que nous voulions;
+antérieurs. Avec sa très grande libéralité, non seulement il nous permit de faire ce que nous voulions;
 mais pour le faire il nous laissa toute latitude. Il nous
 laissa faire le choix, l'agencement, la composition, les
 (1) L'Aciion Socialiste, page
@@ -699,8 +693,7 @@ quel écart. Lagardelle a raison d'échapper à la
 politique ministérielle. Nous y avions échappé un peu
 avant lui. Je me déclarai contre la politique de Jaurès
 en un temps où il n'avait contre elle que ses anciens
-ennemis traditionnels, professionnels. Mais de la poli-
-tique ministérielle, fallait-il tomber dans la politique
+ennemis traditionnels, professionnels. Mais de la politique ministérielle, fallait-il tomber dans la politique
 antiministérielle, et, comme le disait ma grand mère,
 changer son cheval borgne pour un aveugle? Quand
 nous fûmes affranchis de la politique ministérielle,
@@ -740,9 +733,7 @@ Nous reproduisons ci-après l'introduction écrite par!
 l'Agriculture, publié récemment chez Giard et Brière
 dans la Bibliothèque Socialiste Internationale.
 
-y a dans le monde beaucoup de thèses qui se main-
-
-tiennent par la force de la routine et qui ne sont plus
+y a dans le monde beaucoup de thèses qui se maintiennent par la force de la routine et qui ne sont plus
 fondées sur les faits: c'est ainsi qu'il n'est pas exact
 de dire aujourd'hui que les partis socialistes nationaux
 ne sont que des fractions d'une grande armée prolétarienne, répandue dans le monde entier, animée d'un
@@ -909,17 +900,14 @@ le salaire; depuis que le commerce est devenu libre, les À
 capitalistes s'efforcent d'accroître leurs profits, et ce,
 changement est interprété en partant de l'ancienne doc- À
 trine juridique du travail: quand le patron parvient à
-allonger la journée sans augmenter le salaire, il sem-
-blerait naturel de dire qu'il diminue le prix de l'heure;
+allonger la journée sans augmenter le salaire, il semblerait naturel de dire qu'il diminue le prix de l'heure;
 (1) Marx se demande (page 113, colonne 1) si le fabricant d'acier,
 Sanderson, croit posséder, en vertu de son outillage, un droit de à
-vingt-quatre heures sur ses ouvriers {Anweisung auf die Arbeit-
-page 116, colonne 1 et colonne
+vingt-quatre heures sur ses ouvriers {Anweisung auf die Arbeitpage 116, colonne 1 et colonne
 
 à Marx, (1) à limitation des ouvriers anglais, dit que le
 patron profite du travail non payé (unbezahlte Arbeit,
-unpaid labour). Les ruses que les entrepreneurs em-
-ploient pour allonger la journée normale sont assimilées
+unpaid labour). Les ruses que les entrepreneurs emploient pour allonger la journée normale sont assimilées
 A « » constamment (2) à des usurpations et à des vols. La
 1 grande charte du travailleur moderne est la loi qui
 À sépare (3) « le temps propre de l'ouvrier et celui de son
@@ -1164,8 +1152,7 @@ Pour étudier ce qui est particulièrement français dans
 l'organisation ouvrière nous prendrons comme type les
 groupes dont le fonctionnement a motivé depuis long-
 
-à temps la politique de nos gouvernements. Si les syndi-
-çats étaient de simples agences des affaires d'un
+à temps la politique de nos gouvernements. Si les syndiçats étaient de simples agences des affaires d'un
 métier, on ne comprendrait pas qu'ils aient été traités
 avec tant de méfiance sous les régimes les plus divers.
 Placer des ouvriers, procurer aux patrons des équipes
@@ -1375,7 +1362,7 @@ que disent « les avocats parlant des lois, surtout des lois ouvrières ».
 
 (Deuxième Cahier de la quinzaine, troisième série, page 46).
 
-1 Proudhon. — De la capacité politique des classes ouvrières,
+Proudhon. — De la capacité politique des classes ouvrières,
 
 créer des difficultés au ministère; — on a de bonnes
 raisons de supposer que les tullistes de Calais ont refusé
@@ -1394,8 +1381,7 @@ menaces de grève générale que font les mineurs,
 rendent les plus grands services à M. WaldeckRousseau que les modérés n'osent renverser.
 Cette déviation de l'action ouvrière conduit les À
 travailleurs à penser qu'au lieu de discuter avec leurs
-patrons sur leurs intérêts économiques, il serait beau-
-coup plus avantageux pour eux de s'adresser aux
+patrons sur leurs intérêts économiques, il serait beaucoup plus avantageux pour eux de s'adresser aux
 pouvoirs publics, en les invitant — sous menaces de
 troubles — à faire aboutir leurs réclamations. Cet état
 d'esprit est tout naturel dans les sociétés encore mal
@@ -1599,8 +1585,7 @@ Dans quelle mesure les associations rurales italiennes
 se pénètrent-elles de socialisme, c'est ce que je ne saurais déterminer; mais M. Gatti semble plein d'espoir et
 il est mieux placé que nous pour juger ses compatriotes.
 Si vraiment le coopératisme rural se présente en Italie
-comme une bonne préparation des paysans au socia-
-lisme, il faut en conclure que le socialisme est appelé à
+comme une bonne préparation des paysans au socialisme, il faut en conclure que le socialisme est appelé à
 prendre chez no$ voisins des formes nouvelles d'un
 grand intérêt pour l'avenir.
 
@@ -1842,8 +1827,7 @@ pays que ce qu'ils veulent y voir; quand un gros crime
 s'accomplit, ils savent fermer les yeux; quand s'impose un
 . acte d'indulgence inévitable, ils célèbrent la bonté du tsar.
 Demain, on m'embarquera sur un bateau russe partant
-pour le Japon, le Mercure. Le capitaine du port m'em-
-mène visiter ce bâtiment. Comme je n'ai pas sur moi assez
+pour le Japon, le Mercure. Le capitaine du port m'emmène visiter ce bâtiment. Comme je n'ai pas sur moi assez
 d'argent pour payer mon passage, il me conduira demain
 Done à la Banque, et à cette occasion me fera visiter la
 “ville. — D'ailleurs, il me comble d'égards, me cède le pas

@@ -44,8 +44,7 @@ série; nous l'envoyons contre un mandat de cin ancs
 à toute personne qui nous en fait la demande. à
 
 à aux Cahiers de la Quinzaine
-Le présent petit index donne automati-
-quement pour tout volume et pour tout
+Le présent petit index donne automatiquement pour tout volume et pour tout
 7 le numéro d'ordre de ce cahier dans
 3 le classement général de nos collections
 É complètes, le numéro d'ordre de la série
@@ -77,8 +76,8 @@ HER Île feuillue, ceinturée de porphyre A
 ARE feuillue, ceinturée de porphyre et d'algues, -
 Faisant traîner sur le flot qui rit et divague;:
 : 54 - Tes longs cheveux d'Océanide et le touchant
-74 De tes longs doigts harpeurs qui évoquent le chant
-12 Des filles bleues cachées sous les plantes marines;;
+De tes longs doigts harpeurs qui évoquent le chant
+Des filles bleues cachées sous les plantes marines;;
 Ile feuillue où se vivifient les narines
 Aux baumes résine:'x des cèdres et pins,
 
@@ -117,7 +116,7 @@ De leurs narines avec des rumeurs de conque,
 À Et ils implorent des rieuses et des rieurs
 Juchés ou déchaînés là-haut parmi les fleurs,
 Ils implorent des airs de flûte ou des chansons:
-2 Ou des récits, car les voix de cette île sont Tes
+Ou des récits, car les voix de cette île sont Tes
 Un miel qui doucement coule dans leur poitrine; 1]
 lle feuillue, à l'heure où le soleil incline L+e
 _Sa course à l'eau vineuse, entre les plis fleuris es
@@ -126,7 +125,7 @@ Paisiblement sur les flois ses tamis de cendre,
 Tu vis poindre, avec des ailes en lilas tendre,
 Une nef aux formes d'oiseau, travail humain, ire
 La première des nefs qui suivit ce chemin,
-4 Le long du continent lointain dont tu es née, DE
+Le long du continent lointain dont tu es née, DE
 
 Elle glissait, quêteuse et fine, ayant glané
 
@@ -248,7 +247,7 @@ Et de fleurs allongeant leur col, ouvrant leur bouche,
 
 de füts de palmiers et de vierges farouches,
 
-2 Dont les bras relevés et partagés en fourche
+Dont les bras relevés et partagés en fourche
 
 Tendent la toile humide aux angles d'un rocher
 É Plein de ces rêves, passants d'un rêve, nochers
@@ -259,7 +258,7 @@ Ce potier fait tourbillonner la molle argile,
 Et l'eflile, et l'évase en calice, et retrousse:
 
 ; 14 Les bords déchus et effondrés et — la nuit douce
-y Écoutant sa chanson lointaine et régulière —;
+y Écoutant sa chanson lointaine et régulière
 
 Il impose l'idée des fermes familières.;
 Au sol gras et teinté du sang des premiers dieux.;
@@ -406,8 +405,8 @@ Férus d'orthodoxies, de disciplines rances. a.
 “ROSE Ils s'indignent des doigts saccadés et brouillons, SSH
 se Des petits doigts sans méthode et sans assurance,
 Car ce sont livres d'assurance et de méthode, Se ras
-3 Leurs raisonnements sont de bons raisonnementst
-4 É. Leurs jugements sont des lois et des vérités:
+Leurs raisonnements sont de bons raisonnementst
+É. Leurs jugements sont des lois et des vérités:
 Et ils n'ont de penchant que pour l'autorité, ('IALeS #0
 Surtout ceux-là qui recherchent et qui expliquent
 
@@ -471,8 +470,8 @@ Géométriquement unies et accordées CE
 ; chacun d'eux pronostiquant dans sa cellule,;.
 _Émet l'avis que cet enfant tournera mal
 ù Et qu'il ne verra rien sous un angle normal
-A l'opposé de son grand père et de son oncle A:
-3 Ou de son petit cousin qui montre des ongles
+A l'opposé de son grand père et de son oncle
+Ou de son petit cousin qui montre des ongles
 “23 Si bien tenus, ne salit point ses tabliers SUN
 Et dont l'écriture est toute en menus piliers er,
 ? Bien verticaux qui et portent des voûtes
@@ -480,7 +479,7 @@ Et des cônes aigus que les vieux livres goùtent,
 Car ils y voient des entrelacs de théorèmes
 C'est pourquoi leur indignation se démène Le
 "Al Entre tant de feuillets où les méthodes sûres;
-Se couvrent lentement de fines moisissures. à:
+Se couvrent lentement de fines moisissures.
 Mais ce courroux lointain ne trouble pas l'enfant 1 OCR
 … Des êtres dont il a peuplé son écriture.
 Et du dehors voici qu'avec un long murmure eat
@@ -523,15 +522,15 @@ tout le long des haies noires des chemins creux,.
 S'approcher de vieux paysans qui sont noueux, Je
 Ridés, parcheminés, vêtus de-rude écorce,
 é 4 A demi confondus avec les noyers torses
-4 Qui marchent avec eux vers l'étrange écriture.
+Qui marchent avec eux vers l'étrange écriture.
 D. Et tout ce que l'enfant connaît de la nature
 Vient consulter l'histoire et s'examiner là,
 Tout jusqu'au figuier du coin du mur qui parla
 Souvent dans un langage obscur et que les livres,
 Maigré leur savoir singulier ont peine à suivre;
 - Tout, jusqu'aux pampres noirs des tertres ondulés
-4 Qu'on voit à l'horizon et qui se sont mêlés
-1 Pour ce pèlerinage au lierre, à l'orme, au chêne;
+Qu'on voit à l'horizon et qui se sont mêlés
+Pour ce pèlerinage au lierre, à l'orme, au chêne;
 Et leurs bras, en souplesse et en vigueur, enchaînent
 Et couvrent d'un feuillage obscur et frémissant;.
 grimaçant et pleins de rumeurs et d'accents
@@ -576,7 +575,7 @@ Le déroulait et annotait dans sa cellule, CAE De”
 Se la voici, devant ma pensée incrédule:
 Et déshabituée de suivre les fantômes; HEIN sa ee:
 Rene La voici lisant, non l'Écriture ou les Psaumes, FREE
-Mais des fables qui font converser en cadence -,
+Mais des fables qui font converser en cadence
 2) Les animaux ou des comédies de Térence LEE LFRESR RER
 de LAfricain, poète au langage caressant.
 Elle murmure et met le poids de son accent SISENES
@@ -606,7 +605,7 @@ S'emplit d'air libre, et des murmures y circulent
 Qui sont les litanies des bêtes et des plantes.
 docte nonne, crains le parchemin qui tente
 L'effort de ta pensée quêteuse et inquiète.
-: our ton salut, mieux vaut répéter aux fillettes À:
+: our ton salut, mieux vaut répéter aux fillettes
 es vassaux, troupeau roux que gouverne ta voix,
 à vie des hommes saints d'hier et d'autrefois
 Avec les oraisons que chacun d'eux préfère
@@ -639,7 +638,7 @@ Voici que tout s'est revêtu de quiétude LORS
 Et s'est uni dans le murmure des prières.
 Mais la vierge saxonne écarte ses paupières à
 Lourdes sur ses gros yeux d'enfant rieuse et forte;
-7 Et elle accueille les rumeurs que lui apportent
+Et elle accueille les rumeurs que lui apportent
 -Les signes fermement ouvrés sur la peau d'âne.
 Et son âme se sent frôlée par d'autres âmes
 Qui Jui semblent délicates et balsamiques;
@@ -840,7 +839,7 @@ Un cloître que hantait le péché romantique,
 Une officine, une académie, un musée,
 Presque une âme, et fouiller tes flancs, c'était causer;
 Avec des gens, des faits, des choses, des fantômes, sw.
-3 Avec toute la vie, c'était flairer l'arome “.
+Avec toute la vie, c'était flairer l'arome “.
 Des hasards trouvés et cueillis Le long des jours,
 , C'était se ressaisir parfois dans l'instant court
 Et fugace où l'invention joyeuse éclate
@@ -959,7 +958,7 @@ Enfantin au cristal imagier des fontaines es
 Des tout petits qui se plaisent à imiter Me
 La danse des objets dansant à leurs côtés es
 Et pour eux seuls, des danses pour nous invisibles. Poe
-5 Savent que le délire est aux sources de l'Etre es ©.‘
+Savent que le délire est aux sources de l'Etre es ©.‘
 4 14 Et qu'il faut délirer quelquefois pour connaître: de
 Ce que n'atteint jamais la bovine raison
 « les bons livres, sans sortir de la maison, "ir
@@ -972,7 +971,7 @@ Sur les chevaux de bois qui tournent à la foire »
 
 Autour de mon vieux chapeau verdâtre
 UTOUR de mon vieux chapeau verdâtre, la frise
-1 De fleurs cueillies tout en grimpant de roche en roche,
+De fleurs cueillies tout en grimpant de roche en roche,
 Se dessèche et se pulvérise et s'efliloche
 Avec le souvenir des marches dans la brise
 Vers les sommets de calcaire imbibé de sang.
@@ -982,7 +981,7 @@ Ce furent, au désert des sapins et des rocs,
 Les héroïnes guerrières et décidées
 
 ne Qui luttaient et peinaient sous le vent, les ondées, 2)
-1 Les frimas, l'éboulis des pierrailles coupantes,
+Les frimas, l'éboulis des pierrailles coupantes,
 Le ciel clair mais pauvre et avare, les tourmentes
 à me Floconneuses, les eaux qui ravinent les pentes “0
 Et bondissent avec des cris et des rumeurs. “3
@@ -1153,7 +1152,7 @@ Et fais que les petits se tenant à genoux SUN
 Devant toi quand un soir d'hiver cause ettricote,
 Entendent dans tes voix la rumeur des Cyclopes
 
-4 LE thé chante, la soie filtre l'or, la soie craque;
+LE thé chante, la soie filtre l'or, la soie craque;
 Tes doigts précis me jouent des fugues du vieux Bach
 Et ton âme joyeuse et féconde s'épand. ni
 Près de la cheminée, ma lecture en suspens:
@@ -1194,7 +1193,7 @@ D'après les auteurs lus à l'École des Granges,
 Deux cygnes sont venus tout près sillonnant l'eau, A
 Et l'enfant pense au grec de Monsieur Lancelot,
 Et Monsieur Hamon pense aux âmes innocentes...
-: 1 feu craque, la soie filtre l'or, le thé chante, À;
+: 1 feu craque, la soie filtre l'or, le thé chante,
 . La fugue est une vie austère, simple et tendre NUL:
 Qui chemine d'un pas certain loin des méandres
 de: où vague la cohue de nos âmes fanées.:
@@ -1461,19 +1460,19 @@ Disent un chapelet de proses monastiques.,
 Tu couvres de tes mains étendues la boutique: se
 à En toile d'un vaillant chaudronnier qui martèle es
 Ê Des cuivres de Dinant, vaisseaux sacramentels
-4 Où fumera le grand œuvre des ménagères.
+Où fumera le grand œuvre des ménagères.
 ne Devant ta forme et tes manières étrangères,; Te
 Des gens venus de loin trafiquer à la foire À 4 je
 Et présenter leurs vœux à quelque saint notoire A
-718 Les petites maisons pointues et discourtoises Fit
+Les petites maisons pointues et discourtoises Fit
 Rient de tes airs béats de chanoine et se serrent à
 ‘#2 À s'étouffer en un mystérieux concert
 à De pignons gradués, de clochetons et d'angles.:
 Les enfants haillonneux se gourment et s'étranglent ere
 Pourtes marrons peints et vernis comme des vases.
-4 En ce lieu tu poursuis tes premières extases,
+En ce lieu tu poursuis tes premières extases,
 =1.:0 marronnier; les saints de leurs niches te guettent,
-4 Soupçonneux; les corbeaux du haut des échauguettes
+Soupçonneux; les corbeaux du haut des échauguettes
 Te connaissent d'après ce qu'ont dit leurs ancêtres; EEE
 “1 Et quelquefois les chapelains ou l'archiprêtre
 T'exorcise pour voir si tu n'es point hanté
@@ -1532,9 +1531,9 @@ Dans les jardins où vont des ombres de marquise
 
 Tu poursuis près de moi tes premières extases.
 
-La bague des aïeux —:
+La bague des aïeux
 BON A bague des aïeux me confie sa pensée;
-2 La bague des aïeux, lourde et cadenassée
+La bague des aïeux, lourde et cadenassée
 De jaspe où s'éternise une mouche de sang
 ; A _Ne connaît point les faits et les êtres récents.
 Elle sait qui je suis, ma souche, ma lignée,
@@ -1639,7 +1638,7 @@ Et rôdent dans l'or fin des âmes juvéniles.
 Toi tu parles des vœux continus des lignées,
 Des vœux profonds qui semblent éelore et baigner ne
 ? Par la racine dans une aurore de mythes, ca,
-1 De vœux lointains qui ne connaissent de limite
+De vœux lointains qui ne connaissent de limite
 NP: Ni dans le temps vécu, ni dans le temps à vivre.
 Ton rêve se balance un peu flou, un peu ivre
 ; Sur les torches, les cris, les danses, les étreintes
@@ -1929,8 +1928,8 @@ Que viennent faire ici Monsieur Thiers et le pape à ges
 Qui ne sont rien à ces Messieurs et à ces Dames? FAIRE
 L'enfant module ainsi de subtiles remarques.
 Les défunts sont charmés des légères paroles
-ai frémissent comme un insecte sur l'album. à;
-Ils trouvent à l'enfant plus de savoir qu'aux hommes, LUE » 20 a:
+ai frémissent comme un insecte sur l'album.
+Ils trouvent à l'enfant plus de savoir qu'aux hommes, LUE »
 Car les hommes sourient, se moquent et raisonnent Es
 Et ne respectent pas les portraits de l'album.
 Mais pour ces quatre si délicates personnes OÉE
@@ -1989,7 +1988,7 @@ Entre des pointes de cyprès et de vieux rouvres;
 - À son âme des bois sacrés et des prairies, » Des dieux adolescents qui jasent et qui rient
 . En buvant du miel roux dans des coupes de hêtre;
 — Des bergers copiant l'exemple des ancêtres:
-4 Et, avec le limon, la résine ou la cire,
+Et, avec le limon, la résine ou la cire,
 - Assemblant des roseaux qui déjà réussirent
 - Sur l'onde et sous la brise à moduler des plaintes.
 
@@ -2055,8 +2054,8 @@ C'est notre sang mêlé qui roule sur tes lèvres.
 B. Près du bois d'oliviers où se plaisent les rêves
 
 Que mon amie et moi nous suivons pas à pas,
-2 Domptez le feu que le Zéphyr ineline au ras
-4 Du sol herbu que vont pâturant vos génisses;
+Domptez le feu que le Zéphyr ineline au ras
+Du sol herbu que vont pâturant vos génisses;
 
 ne L'étincelle cachée n'attend qu'un dieu propice;
 Elle s'insinuerait, perfide, sous l'écorce
@@ -2148,25 +2147,21 @@ et Ma nets
 Il a été tiré de ce cahier seize exemplaires sur
 éarnan ainsi distribués:
 premier exemplaire de souche, exemplaire dugérant;
-deuxième exemplaire de souche, exemplaire de l'ad-
-troisième exemplaire de souche, exemplaire de lim
+deuxième exemplaire de souche, exemplaire de l'adtroisième exemplaire de souche, exemplaire de lim
 dix exemplaires d'abonnement, numérotés de 1 à
 et trois exemplaires d'auteur numérotés
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur; nos
-tirages d'exemplaires sur whatman sont rigoureuse-
-stant souscrits; nous ne vendons point d'exemplaires
+tirages d'exemplaires sur whatman sont rigoureusestant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement; l'abonnement
 “4 sur whalman à cette dixième série est de deux cents
 , rancs pour tous pays.
 Les Cahiers de la Quinzaine sont composés à la main,
-en caractères fin dix-huitième siècle (Didot) de la fon-
-derie Mayeur (Allainguillaume et compagnie succes-
+en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume et compagnie succes-
 ‘El seurs), 21, rue du Montparnasse, à Paris, sixième
 
 rez-de-chaussée, Paris, cinquième arrondissement.
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi3 naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi3 naires; la souscription ne confère aucune autorité sur
 La rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraissent par séries; une série paraît
 4 dans le temps d'une année scolaire, d'une année
@@ -2182,8 +2177,7 @@ Abonnement or- Algérie, lunisie..... vingt francs » dinaire....... Autres pays
 Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du
 souscripteur; le tirage à part sur whatman a commencé
-4 de fonctionner au premier janvier 1906; les inscrip-
-tions pour cet abonnement particulier sont reçues en
+4 de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en
 tout temps et reçoivent un numéro d'ordre déterminé
 automatiquement par le rang même qu'elles occupent
 6 dans l'ordre de l'arrivée, les numéros les plus bas venant

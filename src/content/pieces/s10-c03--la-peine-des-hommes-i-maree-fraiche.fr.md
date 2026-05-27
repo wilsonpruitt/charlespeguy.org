@@ -25,17 +25,13 @@ que nous ne pouvons pas songer à en donner üci
 l'énoncé même le plus succinct; pour savoir ce a
 paru dans les cinq premières séries des cahiers,;
 suffit d'envoyer un mandat de cinq francs à M. André
-Bourgeois, administrateur des cahiers, 8, rue de la Sor-
-
-bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-ment; on recevra en retour le catalogue analytique
+Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries
 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,:
 
-ne idée, abrégée, mais complète, de nos éditions anté-
-ieures et de nos cinq premières séries; tout y est classé #8
+ne idée, abrégée, mais complète, de nos éditions antéieures et de nos cinq premières séries; tout y est classé #8
 
 dans l'ordre; il suffit de le lire pour trouver, à leur Se:
 
@@ -92,8 +88,7 @@ subsistaient, foncées sur écran blanc.
 Le cathédrale dominante semblait, à une distance. es » factice, en fond de décor, un effet d'optique.
 “e) De l'autre côté de la Liane, en plaine, une autre
 église: Brequerecque, posait encore le dessin grandiose
-desa large façade dépassée en hauteur par des chemi-
-fumées derrière le brouillard clos. SES
+desa large façade dépassée en hauteur par des chemifumées derrière le brouillard clos. SES
 Autour des grandes attitudes des maisons de Dieu,
 2 les maisons des gens profilaient leurs toits à cheminées. Es
 Le brouillard, avalant les reliefs, donnait du paysage
@@ -105,12 +100,10 @@ l'épaisseur de l'atmosphère, s'entendait en mineur.
 
 la peine des hommes.;
 
-La marée basse donnaït au port d'échouage une pro-
-fondeur d'abîime. Contre la paroi gluante, ornée de
+La marée basse donnaït au port d'échouage une profondeur d'abîime. Contre la paroi gluante, ornée de
 grappes de moules, les nombreuses barques de la flotte Ce
 de pêche se calaient l'une l'autre. La pointe des mâts …
-dépassant le bord du quai, fleurissait en croix propitia-
-toires; quelques-unes d'un travail fervent de dévot qui
+dépassant le bord du quai, fleurissait en croix propitiatoires; quelques-unes d'un travail fervent de dévot qui
 en escompte son salut; tous les instruments de la Passion y figuraient: la couronne d'épines, le marteau, les
 clous, la lance et l'éponge au bout du roseau, car IL
 fut abreuvé de fiel ».
@@ -136,8 +129,7 @@ contre l'intrus; tout le monde a droit au quai, et la criée
 attend le poisson.
 
 Les bateaux sont de cap à terre; l'arrière, libre sur
-Veau, s'écarte; l'avant, amarré, ne peut, Il faudrait dé-
-placer l'amarre vers l'écartement de la poupe. Cette
+Veau, s'écarte; l'avant, amarré, ne peut, Il faudrait déplacer l'amarre vers l'écartement de la poupe. Cette
 manœuvre arrête le déchargement en obligeant l'équipe
 de quai à suivre avec son attirail vers nouvel accostage.
 
@@ -235,8 +227,7 @@ ile paie les siens quatre-vingt-dix francs, plus la gai- à
 … née: un du mille; le patron de barque de deux à trois
 
 la peine des hommes SCENE
-cents francs et cinq du mille. Nourris: bière, pain, bis-
-cuit, poisson; du lard quelquefois, et de la viande quand
+cents francs et cinq du mille. Nourris: bière, pain, biscuit, poisson; du lard quelquefois, et de la viande quand
 on touche terre.
 
 Le fin poisson n'est pas pour leurs dents; ils mangent
@@ -272,8 +263,7 @@ Les mousses abrités par un tablier de toile raidi en
 rbotant dans la marchandise.
 Ils triaient, à la volée, les espèces par tas: les
 __soles mi-parties, collées par deux, blanc sur blanc; les
-luxueux turbots d'une largeur d'éventail; les raies vis-
-queuses aux piqûres sournoises; les barbues en fer de
+luxueux turbots d'une largeur d'éventail; les raies visqueuses aux piqûres sournoises; les barbues en fer de
 lance; les grands congres à peau fine; puis racaille
 . des chiens de mer: du poisson de pauvre; et toutes les
 … mystérieuses bêtes de l'eau profonde, raflées par la
@@ -281,8 +271,7 @@ course du chalut.
 Les matelots, faisant la chaîne sur la longueur du à
 pont, se passaient les paniers pleins. Ils accomplissaient
 tous le même balancement du buste ballonné par l'en-
-… flure des étoffes cirées. A bout de bras, l'homme rece-
-vait le panier, le portait trois pas, en tambour, sur la
+… flure des étoffes cirées. A bout de bras, l'homme recevait le panier, le portait trois pas, en tambour, sur la
 cuisse gauche, pour le passer, bras tendus, à un autre:
 qui tendait les bras.
 à Cela s'accomplissait avec la régularité d'un quadrille
@@ -392,8 +381,7 @@ Un grand registre et un encrier posaient sur la
 rampe. Occupant toute la profondeur de la scène,
 l'homme surgissait à mi-corps. Dans sa figure soufilée;
 
-de saut-du-lit, sa moustache, jaunie par le tabac, pleu-
-vait sur sa bouche.
+de saut-du-lit, sa moustache, jaunie par le tabac, pleuvait sur sa bouche.
 - Ses vêtements sans prestance sanglaient en saucisse à
 Le buste rembourré de gilets. Leurs boutonnières, écarje ées, se cramponnaient, de toutes leurs forces, aux de
 boutons décousus par ce surmenage.
@@ -417,10 +405,9 @@ Sur les autres bancs, rangés en école primaire, des
 femmes tricotaient, la langue et l'aiguille lancées à la
 même allure. On ne distinguait aucun mot dans leu:
 musique de murmures.
-4 L'une d'elles, sans perdre une maille, marquait à:
+L'une d'elles, sans perdre une maille, marquait
 … grands coups de bonnet la mesure de ses paroles:
-— Elle débitait passionnément une histoire qu'on enten-
-ait, par toute la salle, siffler entre ses dents.
+— Elle débitait passionnément une histoire qu'on entenait, par toute la salle, siffler entre ses dents.
 
 la peine des hommes TÉTÉFANEES
 Sa voisine tira de sa jupe une fiole, coiffée d'un godet,
@@ -522,9 +509,7 @@ Le panier au dos des mateloies tenait trop de place
 parmi les gens appuyés aux barres d'enceinte pour
 suivre l'enchère.
 Les petits télégraphistes cherchaient, comme des
-rats, un trou pour livrer leurs télégrammes aux ma-
-
-re) eur. s. Les siens lus, Marie Legagneux monta le prix GC.
+rats, un trou pour livrer leurs télégrammes aux mare) eur. s. Les siens lus, Marie Legagneux monta le prix GC.
 du lot de dix francs en dix francs et enleva à six cents,
 sur un magnifique coup de gosier du crieur qui ferma
 un œil pour mieux ouvrir la bouche: « Six cents
@@ -532,8 +517,7 @@ un œil pour mieux ouvrir la bouche: « Six cents
 . déployé en paravent de chaque côté de son nez.
 silencieux, on entendit tout le bruit de l'enchère
 — voisine, des soles de la « Marie-Rose » que M. Lengagne
-francs le kilo. Après deux surenchères de Marie Lega-
-eux, il prit à cinq cents francs.
+francs le kilo. Après deux surenchères de Marie Legaeux, il prit à cinq cents francs.
 Un employé du chemin de fer, venu apprendre lim- -
 tance des expéditions, s'adressait à lui, le crayon haut.
 Puis les Berckois du « Grand Jean » apportèrent la
@@ -542,7 +526,7 @@ s'échouer sur le sable des pays sans port. Dans un pli
 …_de leur bonnet rond, semblable à une calotte de
 curé, ils boutent leur brûle-gueule et s'en vont en mer, à
 la pipe au chapeau.
-3 Ils. versaient sur les carrés vides des panerées de
+Ils. versaient sur les carrés vides des panerées de
 une manne d'où coula un torrent de chiens de mer. De
 vieilles femmes, rudes de tête et dures de mains, les!
 Le triaient en deux lots: pupilles et fortes pièces. Tirant
@@ -572,12 +556,11 @@ choisir du poisson pour ses invités.
 Elle allait, imperceptiblement courbée, avec l'allure
 des femmes de prière. Sitôt dans les allées du marché
 de détail, elle fut fêtée, saluée, injuriée presque par les
-matelotes à l'étalage, acharnées à vendre leur mar-
-chandise. ne
+matelotes à l'étalage, acharnées à vendre leur marchandise. ne
 — « Par ici, ma belle! »
 — « Voyez, ma fine, le beau poisson! » Re.
 : — « J'ai ce qu'il vous faut; une belle pièce! Regar-
-- dez! Mais regardez donc! »: de.
+- dez! Mais regardez donc! de.
 Toutes les femmes en emplettes, panier au bras où
 servantes aux trousses, ameutaient ainsi leurs convoi
 Il vint une jeune Angiaise à peau douce, ses abondants
@@ -647,8 +630,7 @@ pièces: la tête, le buste, la jupe, semblait d'une an- ge,
 cienne poupée de bois. Les cheveux. tirés en arrière,
 découvraient entièrement le visage agrandi. Le chignon
 reculé allongeait le crâne. Elles allaient toutes de la
-même allure, sans hâte, réglée à leur habitude d'avan-
-cer par rangs, au bras, épaules jointes, en brochettes
+même allure, sans hâte, réglée à leur habitude d'avancer par rangs, au bras, épaules jointes, en brochettes
 
 … L'humidité de leur métier marquait les mareyeuses.
 aux mains gercées. « 3 La fumée qui dore les harengs teignait en roux les
@@ -707,9 +689,7 @@ enveloppé ses cheveux dans un déchet de voile noué
 
 Le charbon encrassait sa peau, ses habits. Elle était
 
-borgne. De sorte que sur cet être, trempé par un magi-
-
-cien féroce dans un bain de ténèbres indélébiles, les
+borgne. De sorte que sur cet être, trempé par un magicien féroce dans un bain de ténèbres indélébiles, les
 
 seules choses claires étaient un tout petit œil qui lou-
 
@@ -798,8 +778,7 @@ La corde serpenta vers le pont.
 
 D'âge à ne pas tenir tranquille, elle se remit à danser
 sur l'amarre du 2.927, « La Grâce de Dieu ». Mi-rousse,
-mi-brune, teinte par la fumée jaune des sciures de sau-
-rerie, elle jouait de la tête comme un oiseau et portait,
+mi-brune, teinte par la fumée jaune des sciures de saurerie, elle jouait de la tête comme un oiseau et portait,
 à chaque instant, ses mains aux cheveux pour ramener à
 une mèche folle qui suivait le vent.
 
@@ -835,8 +814,7 @@ le dos rond, les coudes serrés, piquant de la tête contre
 RE: les gros coups de brise. Leurs vêtements soulevés:
 DAT 4 tiraient sur leur corps comme un drapeau sur sa hampe.
 En suivant la sortie des bateaux le long de la jetée,
-on assistait aux gestes du bord et au spectacle vigou-
-ne. reux des hommes pendus par groupes au bout des câbles:
+on assistait aux gestes du bord et au spectacle vigoune. reux des hommes pendus par groupes au bout des câbles:
 nduient les voiles.
 É Leurs coups de gosier, comptant la mesure de l'effort,
 accompagnaient la marche facile des grandes barques
@@ -896,12 +874,11 @@ pur des mouettes circonflexes que la brise portait au
 dessus d'elles.
 Le rythme parfait de leurs ailes pointues cachait leur -
 effort sous une grande beauté. es
-8 Penchée sur l'eau violente, une barque venait de
+Penchée sur l'eau violente, une barque venait de
 
 YOU est. On percevait la vitesse de sa course derrière
 lim mobilité de la digue Carnot qu'elle atteignit, doubla.
-Vite après, trouvant le point au premier essai, elle tra-
-sa le jeu des barqués peureuses et fila ferme en plein
+Vite après, trouvant le point au premier essai, elle trasa le jeu des barqués peureuses et fila ferme en plein
 Sur son pont argenté de harengs, les hommes luisants SA
 d'eau amenaient les voiles. Un tout petit mousse se cram-.
 ponnaïit seul à un câble qui le balançait comme une
@@ -913,8 +890,7 @@ passé l'abri des jetées, elle les dressait cap au ciel. On LES
 voir, à la descente de la lame, que la carène levée sur
 Veau mouvante et le chapeau de pluie de l'homme de
 
-71 rare Tivuinne, éblouie de fixer la voile amie s'ense-
-velir dans la distance, retourna au travail. Elle La
+71 rare Tivuinne, éblouie de fixer la voile amie s'ensevelir dans la distance, retourna au travail. Elle La
 rejoignit ses compagnes dans les rues de Capécure, à
 “parcourues par l'odeur des saurets. Les milliers de ES
 harengs qui dorent, pendus sous l'ouie dans la fumée ST.
@@ -954,21 +930,17 @@ le kilo, les soles de la « Marie-Rose ». Elles subissaïent
 la toilette du dernier voyage: couchées, bien rincées,
 sur un lit de glace.
 Des stalactites de gélatine pendaient aux caisses de )
-raies sur le cabrouet prêt à partir. M. Lengagne l'ac-
-compagna, conduit par Narcisse Belleau, un garçon qui
+raies sur le cabrouet prêt à partir. M. Lengagne l'accompagna, conduit par Narcisse Belleau, un garçon qui
 savait à merveille injurierles employés de chemin de fer.
 Le genièvre alimentait sa curieuse agitation.
 è D'autres voitures, agiles sur leurs deux roues, tour- Le
 naient court aux coins de rue et se dépassaient pour
 les besoins de la concurrence.
-Les mareyeuses, déchignonnées par la course, s'assu-
-raient d'une main, l'autre serrant les feuilles d'expédition.
+Les mareyeuses, déchignonnées par la course, s'assuraient d'une main, l'autre serrant les feuilles d'expédition.
 
 La cavalcade pénétra grand train cour Capécure, où À
 
-la Compagnie du Nord alignait ses wagons à la dispo-
-
-sition de la marée.
+la Compagnie du Nord alignait ses wagons à la disposition de la marée.
 
 Le trafic « donnait ». Belleau ne trouvant pas, à quai,
 
@@ -983,8 +955,7 @@ Son souflle court donnait à ses prunelles des ahurisse_ ments d'asphyxié.
 Il arrivait les bras flottants, le nez haut, comme tiré
 ‘un hameçon, puis frétillait, à bout d'haleine. On eût
 dit qu'on venait de le pêcher.
-Cette excitation ne modifiait rien; elle passait ina-
-perçue dans le tumulte du roulement des brouettes.
+Cette excitation ne modifiait rien; elle passait inaperçue dans le tumulte du roulement des brouettes.
 … Cependant, Narcisse Belleau disait vrai: pas assez de
 A place. Un seul quai où, dans les jours laissés entre les
 - tampons des wagons, les voitures de mareyeurs accos-
@@ -1013,27 +984,21 @@ la peine des hommes
 gnaient face à la deuxième voie qui filait nue jusqu'au
 buttoir rouge, montrant sa vieille ossature de traverses
 pourries par l'égouttement du jus de poisson. Les gens
-des cabrouets ne savaient où poser leurs colis. Des casquettes supérieures se rassemblaient le plus loin pos-
-sible de leur exaspération.
+des cabrouets ne savaient où poser leurs colis. Des casquettes supérieures se rassemblaient le plus loin possible de leur exaspération.
 Devant l'encombrement progressif, une détresse oppri-;
 mait ces hommes.;
 Tous guettaient, sur le faisceau des voies descendant
 du Triage, la venue des wagons libérateurs. Mais l'ar-
-à rivée d'un petit homme à lorgnon qui marchaït en fri-
-leux, dos rond et mains aux poches, les éparpilla. Leur:
+à rivée d'un petit homme à lorgnon qui marchaït en frileux, dos rond et mains aux poches, les éparpilla. Leur:
 empressement à franchir ies barricades de colis, pour
-se réfugier dans la fureur du public, démontra l'appa-
-rition du chef. de:
+se réfugier dans la fureur du public, démontra l'apparition du chef. de:
 Il rageait et, pendant que la nuit consolatrice tombait
 inutilement sur cette colère d'hommes, il adressait à
-son chef de manutention des observations d'une éner-
-gie exemplaire, scandées à coups de front
-Exécutant à l'heure sa consigne d'éclairage, lam-
-piste, d'ur coup de commutateur, allumait d'un bout à:
+son chef de manutention des observations d'une énergie exemplaire, scandées à coups de front
+Exécutant à l'heure sa consigne d'éclairage, lampiste, d'ur coup de commutateur, allumait d'un bout
 l'autre du mince quai, les globes électriques. Leur À
 grande clarté accusa la honte de ce service manqué: la à
-cour Capécure pleine de cabrouets, hérissée de gesticu-
-lations que les lampes perpendiculaires projetaient en:
+cour Capécure pleine de cabrouets, hérissée de gesticulations que les lampes perpendiculaires projetaient en:
 ombres courtes; sur le quai, les tas de colis jetés sans à
 classement. Des gens criaient autour des bascules. Ils
 agitaient leurs feuilles d'expédition devant les guichets
@@ -1096,7 +1061,7 @@ Puis le vieil homme émit une appréciation touflue:
 Arras à partir, puis Saint-Omer; les machines pourle
 
 port et être l'heure des rapides, C'est toujours le
-même mastic. »: 3°
+même mastic. 3°
 Comme le sous-chef fermait la porte vitrée pourne
 
 plus l'entendre, il conclut: Le
@@ -1109,16 +1074,13 @@ les machines des rapides s'acheminèrent au port et,
 alors seulement, la cabine 4 annonça le refoulement
 
 : sur la voie de marée.
-Dans la plaine du Triage, noire de wagons, les cor-
-nes de manœuvres sonnaient sans cesse, Une machine
+Dans la plaine du Triage, noire de wagons, les cornes de manœuvres sonnaient sans cesse, Une machine
 
 tenait à rebours une longue rame arrêtée par le signal
-rouge. Au pied, le chef, en attendant le feu blane, dis-
-ciplinait M. Ramblenne par un discours sec. C'était
+rouge. Au pied, le chef, en attendant le feu blane, disciplinait M. Ramblenne par un discours sec. C'était
 pourtant un vaillant, ce garçon. Il remuait des wagons
 
-Cette pratique le préparait mal à la critique inexpé-
-rimentale d'un homme de bureau pour qui toutes choses
+Cette pratique le préparait mal à la critique inexpérimentale d'un homme de bureau pour qui toutes choses
 tenaient en chiffres sur un morceau de papier. "4
 L'habitude de ne voir des réalités que leur figuration,
 
@@ -1137,13 +1099,12 @@ frémit comme une guitare mal pincée. La tôle du voyant SE
 double du refoulement. A l'autre bout de la voie, proche À
 machine attelée, une autre lanterne répétait Le signal.
 Le mécanicien répondit. Les essieux doucement tour- À
-Grimpant sur un marchepied, le chef salua M. Ram-
-blenne de cet adieu menaçant::
+Grimpant sur un marchepied, le chef salua M. Ramblenne de cet adieu menaçant::
 « Je vous enverrai une note. »
 Car, selon son esprit, la fin des choses n'était pas en je
 matière mais en papier, et toute réalité devait aboutir
 EN à une explication écrite pour classer aux archives. à
-5 Le sous-chef, dégoûté à l'idée de recevoir le minu-:
+Le sous-chef, dégoûté à l'idée de recevoir le minu-:
 … tieux rapport terminé par la formule: « Veuillez me
 fournir des explications s'en alla, serrant la poignée
 de sa lanterne et l'âme pleine de malédictions.
@@ -1157,7 +1118,7 @@ mm. « À l'eau! J'en demande depuis une heure. Mes tubes à
 la peine des hommes
 Pour preuve, il ouvrit grand son injecteur qui râla,
 aspirant les dernières gouttes des poches
-« Plus rien! Rien! Je jette mon feu! »:
+« Plus rien! Rien! Je jette mon feu!
 - L'alcool consumait cet homme embrasé, ancien mé-.
 canicien de grande ligne, reculé sur une machine de
 manœuvre pour avoir passé plus de signaux à larrêt
@@ -1172,8 +1133,7 @@ Sous la lumière renvoyée par les poignées d'acier des
 téléphone, témoignait la force de son caractère et la
 : rudesse de son métier.
 ; L'équipe de nuit: une demi-douzaine d'hommes de la à
-même trempe, se serrait sur un banc court. Ils ran-
-geaient leurs paquets de tartines et leurs bidons de fer.;
+même trempe, se serrait sur un banc court. Ils rangeaient leurs paquets de tartines et leurs bidons de fer.;
 
 Un morceau de pain et un verre de café pour teniren
 
@@ -1188,9 +1148,7 @@ Quinze est libre. Et brousse!
 
 — Paraît. C'est épais! »
 
-En effet, la lumière blanche des lampes à arc mon-
-
-trait les voies pleines.
+En effet, la lumière blanche des lampes à arc montrait les voies pleines.
 
 Le chef lui parlant au téléphone, M. Ramblenne
 
@@ -1218,7 +1176,7 @@ coupable parce qu'il ne faisait pas ce qu'on lui avait dit.
 …. Découragement et misère: travailler à mort pour être
 content de sa journée faite et s'entendre dire, au bout
 de douze heures d'éreintement:
-Pic Vos prédécesseurs faisaient mieux! »;
+Pic Vos prédécesseurs faisaient mieux!
 - « Eh bien, ces wagons? »
 : La rame placée s'emplissait vite. Les équipes gerbaient les colis jusqu'au plafond. -
 Se hâtant trop de libérer les tricycles pour ne plus à
@@ -1251,8 +1209,7 @@ sollicitude envers sa marchandise. Se
 Également avides du respect de la Compagnie, ils la
 L'encombrement des bascules ne permettant pas la
 vérification des poids, M. Lengagne déclarait cent kilos
-en moins. Cette journée de débâcle permettait le trans-
-port gratuit d'au moins vingt tonnes de marée. )
+en moins. Cette journée de débâcle permettait le transport gratuit d'au moins vingt tonnes de marée. )
 
 M. Barbès montra un instant sa casquette blanche,
 
@@ -1265,8 +1222,8 @@ a vec le bateau de Londres. Derrière un pilote balançant
 . un feu rouge au pas accéléré, les grandes locomotives
 Compound tiraient doucement, sur les voies du port,
 wagons à boggies inondés de lumière élec- À PS.
-3 Des gens bien assis prenaient leurs aises.
-4 Le Boulogne-Ville. Deux minutes d'arrêt. Direction
+Des gens bien assis prenaient leurs aises.
+Le Boulogne-Ville. Deux minutes d'arrêt. Direction
 d'Amiens, Laon, Reims et Bâle. En voiture! »
 Combien faut-il d'hommes qui peinent pour vivre,
 
@@ -1289,9 +1246,7 @@ Un voyageur, vêtu de laine blanche, descendait
 Le gentleman blanc dit:
 « Its full up! » et remonta maussade dans son wagon.
 .… Le restaurant, en effet, était plein comme un Temple
-au époques de foi miraculeuse. La lenteur du démar-
-
-la peine des hommes
+au époques de foi miraculeuse. La lenteur du démarla peine des hommes
 3 rage laissa le loisir de contempler les petites tables
 fleuries et claires sous les abat-jour de soie.
 . Des têtes graves et bien peignées, penchées sur ces?
@@ -1347,17 +1302,13 @@ chauffeur Folliette en essayant le frein:
 ne « bonne paire ». Ils buvaient, dans le même quart,
 le café qu'ils aimaient tous deux bien sucré.
 — Pour débattre l'heure du départ, le conducteur tira sa
-montre qui avançait, le sous-chef la sienne qui retar-
-
-la peine des hommes
+montre qui avançait, le sous-chef la sienne qui retarla peine des hommes
 
 dait. L''horloge de la gare les aurait mis d'accord, mais.
 
 on ne pouvait la voir de leur place.
 
-Le mécanicien sifila sa direction et empoigna le régu-
-
-lateur. Le patinage des premiers tours de roue brim- Soc
+Le mécanicien sifila sa direction et empoigna le régulateur. Le patinage des premiers tours de roue brim- Soc
 bala les deux hommes sur la machine en furie, puis
 le train chasse-marée partit à belle allure, dans la
 plaine d'Outreau, éclairée en bleu par des moments de
@@ -1391,8 +1342,7 @@ Repartis, il prit dans un coffre du tender un flacon où:
 noussait de la bière agitée par la marche et but,
 apr Taillandier, dans un quart militaire désaffecté, » ASP.. ES
 À que la trépidation lui envoyait dans
-Une grande fatigue venait du tremblement delama-
-hine et du vacarme sans fin de la chaudière bouillante.
+Une grande fatigue venait du tremblement delamahine et du vacarme sans fin de la chaudière bouillante.
 La poussière de charbon se collait en masque noir
 sur le visage suant des hommes oppressés par les aspirations brûlantes devant le foyer rouge. Un remous
 d'air les tenait parfois dans un instant de bien-être
@@ -1409,8 +1359,7 @@ quatre mille kilos de combustible.
 Le vent de mer emplit l'espace de nuages. Les
 ténèb es se tassèrent entre la terre et le ciel rappro_chés. Le train gardait, dans cette encre, sa vigoureuse
 vitesse. Mais un peu de lune suivit de nouveau le fil du
-rail poli. Des marais luirent dans la plaine d'Abbe-
-aiguille du manomètre Bourdon marqua cent vingt
+rail poli. Des marais luirent dans la plaine d'Abbeaiguille du manomètre Bourdon marqua cent vingt
 omètres à l'heure. Les bielles se mouvaient avec la
 rapidité des ailes d'une mouche. Dans la bouteille à
 moitié vide, le restant de bière moussait jusqu'au bou- à
@@ -1452,9 +1401,7 @@ sur les paupières et piquaient les yeux. La migraine
 
 hérissée rôdait dans le cerveau.
 
-Jusqu'à deux heures on veille; à quatre heures, Pallé-
-
-gresse du jour proche réveille, mais à trois heures,
+Jusqu'à deux heures on veille; à quatre heures, Pallégresse du jour proche réveille, mais à trois heures,
 
 la griffe du sommeil vous tient, le pouce sur la nuque
 
@@ -1509,14 +1456,12 @@ des devantures de marchands de vin cernaient
 Des odeurs de friture et de soupe en plein air faisaient
 - bon accueil aux gens dans ce quartier plein de mar- à
 mites et de litres de vin. Après deux heures du matin, à
-on ne trouve à manger que là. C'est pourquoi les vaga-
-bonds de nuit se mêlaient aux gens de travail.
+on ne trouve à manger que là. C'est pourquoi les vagabonds de nuit se mêlaient aux gens de travail.
 Des hommes en blouse bleue dressaient, sur le trot-;
 toir du pavillon des légumes, des architectures pota-
 2 gères: en carrés, les sages poireaux à barbe blanche;
 en murailles, les choux au cœur profond et candide.
-Ils maniaient la marchandise avec la dextérité d'ou-
-vriers vieux dans le métier. Cette verdure répandait un
+Ils maniaient la marchandise avec la dextérité d'ouvriers vieux dans le métier. Cette verdure répandait un
 parfum de pleine campagne, aiguisé par le piétinement
 des souliers ferrés, écrasant le déchet âcre des grosses:
 
@@ -1527,28 +1472,25 @@ qu'ils voulaient, sous promesse d'une soupe au fro-,
 mag e. Un homme à chaque bras lui maniait les seins.
 Elle toussait du froid de leurs doigts et les mena se Le
 auffer au feu d'une friture. je
-3 La flamme remuante mit un vif jeu d'ombres sur Fr)
+La flamme remuante mit un vif jeu d'ombres sur Fr)
 ; leurs figures abruties. Ils étaient six jeunes gens aux
-lèvres pendantes et dont les yeux clignaient, tous com-
-mis épicerie, réunis pour fêter l'arrivée d'un « pays » se:
+lèvres pendantes et dont les yeux clignaient, tous commis épicerie, réunis pour fêter l'arrivée d'un « pays » se:
 qu'ils bumiliaient en lui frappant dans le dos ou sur le
 « Eh! mon vieux; on ne voit pas à Poitiers? »
 nait la fille moins que les autres mais la regar- Lie
 Elle mangeait ses pommes frites, aussi peu surprise
 de la caresse des hommes que d'une chose inévitable
 comme le vent. Ils lui proposèrent de boire chez un
-“marchand de vins de la rue Pirouette, du côté du ruis-
-les, voyageant incognito.
+“marchand de vins de la rue Pirouette, du côté du ruisles, voyageant incognito.
 La vente commençait. Le trafic des légumes occupait
 la chaussée, par tas, en hottes et en sacs fichés de pla-
-La verdure entourait le pavillon de marée qui n'uti-
-lise pas ses trottoirs pour exposer sa marchandise. Des
+La verdure entourait le pavillon de marée qui n'utilise pas ses trottoirs pour exposer sa marchandise. Des
 
 - la peine des hommes es es.
 femmes, en sabots et le nez rouge, criaient leur
 « Voilà des choux-fleurs. Par ici les choux-fleurs! »
 Une voisine ripostait avec l'accent de Seine-et-Marne: #4
-« Des nèvets! Des nèvets! Des nèvets! »: me
+« Des nèvets! Des nèvets! Des nèvets! me
 Il passait la foule des gens qui ont métier de nourrir.
 les autres: des cuisiniers, des fruitiers, des marchands
 des quatre-saisons.
@@ -1603,8 +1545,7 @@ ayant terminé leur marché de légumes et de boucherie
 ES des affaires, l'heure d'ouverture du pavillon de marée:
 six heures et demie. à
 Au coup de cloche, ils accoururent, la lèvre humidé
-Let l'haleine forte. Le vacarme du premier cri des ven-
-deurs au gosier frais les accueillit:
+Let l'haleine forte. Le vacarme du premier cri des vendeurs au gosier frais les accueillit:
 M. Du beau merlan! Du beau merlan?
 — Par ici, les raies.
 
@@ -1654,7 +1595,7 @@ a Depuis, il se levait plus tôt pour « faire les Halles ».
 Aussi M. Rousseau lui marquait un mépris formidable:
 « gagne l'argent que veut et saute du lit à
 cinq heures du matin, comme un malheureux, pour -
-payer un saumon cent sous moins cher! »: «
+payer un saumon cent sous moins cher! «
 Madame Turine survint, grande et belle femme, le RES
 corps puissant, la joue rose. Malgré la mesure de ses:
 ou ements, la révolte de sa chair copieuse craquait
@@ -1663,10 +1604,8 @@ fourrure noire seyait à la fraîcheur de son visage et à
 la clarté de ses cheveux. Mademoiselle Rousseau et LAN
 madame Turine se souhaitèrent le bonjour avec de:
 petites mines, des mots plutôt ris que parlés, toute la
-gracieuseté qu'ignorent les hommes réduits au serre-
-ment de mains et à l'offre d'une consommation.
-Leur faculté de sourire à tout le monde et de se pré-
-cipiter avec amour au devant des gens les plus ignobles
+gracieuseté qu'ignorent les hommes réduits au serrement de mains et à l'offre d'une consommation.
+Leur faculté de sourire à tout le monde et de se précipiter avec amour au devant des gens les plus ignobles
 avait valu à Madame Turine et à Mademoiselle Rous-:
 seau, chacune dans son quartier, une haute réputation
 de commerçantes parfaites.
@@ -1682,8 +1621,7 @@ et se levant tôt, comme toute la race des femmes de
 
 la peine des hommes Te
 marché, attirait par fraîcheur de son teint et l'éciat
-de ses yeux. Les hommes, retournés vers elle, regar-
-daient longtemps un grain de beauté sur sa nuque
+de ses yeux. Les hommes, retournés vers elle, regardaient longtemps un grain de beauté sur sa nuque
 blanche. Mais il ne passait dans sa tête que des calculs?
 sur le prix des choses qui se mangent:
 « Fruits. Poissons. Volailles. Beurre et Œufs.
@@ -1694,8 +1632,7 @@ marchands de soupe attendaient, rue Réaumur, leurs ‘#4
 tranchaït par son teint pâle, ses souliers gras et ses me
 ventres heureux parmi les têtes rouges que le plein air
 et les demi-setiers font aux gens des Halles.; “4
-Des plongeurs de restaurant, en veste bleue, le tor-
-chon noué au cou en La Vallière, processionnaient du à
+Des plongeurs de restaurant, en veste bleue, le torchon noué au cou en La Vallière, processionnaient du à
 marché à leur fourgon. ne
 Devant l'étal de madame veuve Maintenant, mar- me
 siers de Saint-Philippe-du-Roule
@@ -1722,8 +1659,7 @@ a Paton » ricanaient. M. Truquelin isola le poisson de
 4 à équilibrer la manne sur sa tête et le petit s'en alla
 vers les Ternes, une heure et demie de marche, avec
 charge qu'un sergent blanc n'aurait pas osé mettre
-“La levée des coiffures annonçait la venue d'un per-
-sonnage important: M. Ouvrard, restaurateur célèbre,
+“La levée des coiffures annonçait la venue d'un personnage important: M. Ouvrard, restaurateur célèbre,
 7 4 boulevard des Italiens. Il avançait parmi les saluts
 é. des chefs de grandes maisons, des épiciers comestibles,
 LA des-pâtissiers cuisine pour la ville, et de tous les grands
@@ -1738,8 +1674,7 @@ La raideur de ses jambes nuisait à la rapidité de son
 Penchant son front plissé de soucis, il médita devant
 … létal de M. Turine.
 
-- Le joli bruit de l'eau vive courant aux réservoirs d'an-
-guilles semblait l'enchanter, mais ses réflexions abou-
+- Le joli bruit de l'eau vive courant aux réservoirs d'anguilles semblait l'enchanter, mais ses réflexions abou-
 &. tirent et il dit combien il lui fallait de paires de soles.
 
 la peine des hommes
@@ -1790,11 +1725,9 @@ Un vieux cuisinier malheureux le qualifia de noms
 _infâmes, redit les vilaines histoires sur l'origine de sa NE.
 fortu ne et détailla le mauvais traitement des ouvriers::
 chez ce grand homme.
-Les garçons de salle ne participaient pas aux conf-
-dences des gens de cuisine qu'ils tenaient pour des
+Les garçons de salle ne participaient pas aux confdences des gens de cuisine qu'ils tenaient pour des
 Depuis les siècles des siècles, les deux corporations
-se méprisaient à outrance: l'esprit travaillé par l'an-
-cestrale haine de la main-d'œuvre que sa saleté oblige:
+se méprisaient à outrance: l'esprit travaillé par l'ancestrale haine de la main-d'œuvre que sa saleté oblige:
 . à se cacher et de l'intermédiaire rasé de frais qui seul
 parait et reçoit le pourboire. ITA
 L'homme graisseux de faire à manger et l'homme
@@ -1872,12 +1805,11 @@ avec un jus de citron et fines herbes.;
 “avec garniture de moules et crevettes; nappez; faites Se
 rer au four et servez très chaud. »
 ; En somme, un démarquage de la très ancienne sole
-434 Les cris fréquents des chefs de parti demandant leurs
+Les cris fréquents des chefs de parti demandant leurs
 …. articles accusaient l'importance du coup de feu. Le!
 gros saucier à voix de fifre recommençait son appel: à
-« Des filets de soles! »:
-- Et le petit rôtisseur grondait, du fond de sa méridio-
-mal le poitrine:
+« Des filets de soles!
+- Et le petit rôtisseur grondait, du fond de sa méridiomal le poitrine:
 « Nous enverrons trois perdreaux, trois! »
 - Les aides garde-manger accouraient parmi les bous-:
 culac es et les apostrophes. Ce métier a la violence d'une? À
@@ -1891,9 +1823,7 @@ On disait « deux filets de soles » tout court et cela';
 s'entendait, à la gloire du patron:
 « deux filets de soles Ouvrard ».
 Il n'y en avait pas d'autres.
-Le bruit des voix se soutenait, la cantilène des com-
-mandes n'arrêtant plus. La batterie de cuisine, décro-
-chée à la volée, tapait sur les plaques rouges des fourneaux où fonçaient à coups sourds les pique-feu. se
+Le bruit des voix se soutenait, la cantilène des commandes n'arrêtant plus. La batterie de cuisine, décrochée à la volée, tapait sur les plaques rouges des fourneaux où fonçaient à coups sourds les pique-feu. se
 Les hommes, ruisselants et forcenés, paraissaient
 subir un châtiment de l'enfer de Dante. Le garde- “4
 manger envoyait la cadence d'un fouet en laiton contre 4 à
@@ -1911,8 +1841,7 @@ car il pressentait l'apostrophe. Elle fut impétueuse: À
 « Saligaud! Tâtez! C'est froid! »
 M. Ouvrard employait, envers ses propres ouvriers,
 
-genre oraloire différent de celui sur lequel il célé-
-brait les ouvriers en général, dans les solennités dont
+genre oraloire différent de celui sur lequel il célébrait les ouvriers en général, dans les solennités dont
 il é président:
 CE les nourrissait comme il leur parlait, tels des chiens,:
 “avec du rebut de bœuf bouilli.
@@ -1927,8 +1856,7 @@ obligé de faire attendre à ses ouvriers éreintés, la fin
 mais l'unique pièce disponible ne pouvait absolument
 ‘en contenir plus de dix, bien serrés.
 L'avantage était que, se couchant tard, il leur était
-cepe ndant facile de se lever tôt, réveillés par les gar-
-cons chargés de nettoyer la salle.:
+cepe ndant facile de se lever tôt, réveillés par les garcons chargés de nettoyer la salle.:
 Réussir est un devoir. La haute obligation de faire:
 _fo tune astreint à des nécessités que le succès justifie.
 …. Armé d'un nouveau plat qui lui fumait dans la figure, Dee
@@ -1954,16 +1882,13 @@ aussi récemment furieux, il demanda: 0)
 
 — « Monsieur votre père bien? »
 
-Le jeune homme à barbe blonde, objet de cette cour-
-
-toisie, répondit que sa famille était au mieux
+Le jeune homme à barbe blonde, objet de cette courtoisie, répondit que sa famille était au mieux
 
 : Fils de M. Antoine Hardet, grand fabricant de sar- de
 : dines à l'huile, en relation avec M. Ouvrard par la
 : filière des syndicats de la Nourriture Parisienne, il. à
 suivait à Paris les cours de l'École des Hautes Études
-Commerciales et dinait ce soir en compagnie de made-
-par les anciennes camarades, à cause de sa hauteur, A
+Commerciales et dinait ce soir en compagnie de madepar les anciennes camarades, à cause de sa hauteur, A
 depuis qu'elle s'était découvert la bosse de la noblesse,
 
 pour se titulariser: Rose de Chamoin.
@@ -1980,8 +1905,7 @@ et pendait par derrière.
 L'extravagance faisait mal aux yeux de la clientèle
 dans cet établissement de haute tenue.
 
-M. Hardet fils servit le poisson, pendant qu'elle rail-
-lait M. Ouvrard qui trainait dans la salle sa patte raide
+M. Hardet fils servit le poisson, pendant qu'elle raillait M. Ouvrard qui trainait dans la salle sa patte raide
 
 et suivait d'un œil sévère le personnel du service. Mais
 
@@ -2047,7 +1971,7 @@ dras me gratter après, toi, hein?.. 3 Vera)
 
 la peine des hommes
 
-« Réponds donc, malhonnête. »; SE
+« Réponds donc, malhonnête. SE
 
 Le jeune M. Hardet prenait le parti de chercher, Et
 dans une nourriture abondante, la force de subir
@@ -2093,8 +2017,7 @@ la peine des hommes à
 encore qu'il faut choisir entre la douceur d'aimer ou la
 A dix pas des tables, de l'autre côté de la cloison
 épaisse, les cuisiniers ruisselants écartaient enfin du
-fourneau leur visage aux yeux rôtis et buvaient la con-
-solante qui suit le coup de feu.
+fourneau leur visage aux yeux rôtis et buvaient la consolante qui suit le coup de feu.
 C'était aussi l'heure où la « Marie-Rose son fanal
 brûlant clair et bien, sa coque sombre invisible dans la
 nuit noire, passait en pleine mer, draguant dans l'eau
@@ -2171,8 +2094,7 @@ Pour s'abonner à la neuvième série des cahiers, qui
 
 est la dernière série, envoyer en un mandat à
 
-— M. André Bourgeois, même adresse, le prix de l'abon-
-ges nement; on recevra en retour les onze cahiers non
+— M. André Bourgeois, même adresse, le prix de l'abonges nement; on recevra en retour les onze cahiers non
 épuisés de cette neuvième série. Se
 . … Pour s'abonner à la dixième série des cahiers, qui à
 est la série en cours, envoyer en un mandat à M. André;:

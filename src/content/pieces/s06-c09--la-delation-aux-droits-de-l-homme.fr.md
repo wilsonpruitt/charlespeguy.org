@@ -15,8 +15,7 @@ paraissant vingt fois par an
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si à
 grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires, en particulier, parmi les fonctionnaires, pour les libertés du
-personnel enseignant: et ces documents, textes, renseignements, dossiers et commentaires étaient si considé-
-rables que nous ne pouvons pas songer à en donner ici
+personnel enseignant: et ces documents, textes, renseignements, dossiers et commentaires étaient si considérables que nous ne pouvons pas songer à en donner ici
 l'énoncé même le plus succinct; pour savoir ce qui a
 paru dans les cinq premières séries des cahiers, il suffit
 d'envoyer un mandat de cinq francs à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement: on recevra en retour le catalogue analytique
@@ -24,8 +23,7 @@ sommaire, 1900-1904, de nos cinq premières séries.:
 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé.
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé.
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 
@@ -64,8 +62,7 @@ un corpus des textes et documents qui sont vraiment
 dans l'inondation des textes insignifiants, dans le déluge
 et dans la diluvion des insanités, des vanités, des vérités
 pêle-mêle, rien n'est aussi diflicile, quand on se propose
-de constituer un corpus qui devienne un monument sé-
-rieux, que de distinguer des documents passagersles documents durables, et que de mesurer pour aïnsi dire la
+de constituer un corpus qui devienne un monument sérieux, que de distinguer des documents passagersles documents durables, et que de mesurer pour aïnsi dire la
 valeur de durée, la portée en avant et en profondeur,
 la valeur de profondeur, et la profondeur d'insertion des
 textes apportés par le flot journalier.
@@ -80,8 +77,7 @@ textes, que cet enlisement perpétuel de l'historien, que
 cette inondation, que cette noyade perpétuelle, et que
 cette submersion parfaitement organisée.
 Nouscontinuerons quelque jour les recherches quenous
-avons commencées ici même sur les conditions géné-
-rales etnous les continuerons en particulier par desétudes
+avons commencées ici même sur les conditions générales etnous les continuerons en particulier par desétudes
 sur les conditions nouvelles de l'histoire et des historiens; aujourd'hui, comme gérant, et pour l'administration du corpus que peu à peu nous essayons de constituer,
 je veux seulement noter que dans les temps modernes
 et contemporains rien ne rend aussi diflicile tout travail
@@ -103,8 +99,7 @@ des paroles, si à tout le fatras de la parole écrite on
 ajoute le fatras de la parole parlée, du bavardage mondaïn, politique, électoral, parlementaire, des salons, des
 meetings, des compagnies, des sociétés, des assemblées,
 des discours, des classes, des cours et conférences, tout
-historien moderne, tout citoyen, tout homme est perpé-
-tuellement submergé sous un flot croissant de vanités.
+historien moderne, tout citoyen, tout homme est perpétuellement submergé sous un flot croissant de vanités.
 
 Et c'est une des raisons pour quoi la vie moderne, à
 
@@ -125,8 +120,7 @@ est inévitablement conduit à classer, à déclasser les
 hommes et les événements, à reclasser; lui-même il est
 conduit à faire des ruines, à laisser tomber, à faire
 tomber; il faut des ruines pour l'historien, et quand il
-n'y en a pas, il faut qu'il en fasse; lui-même il est conduit à bousculer cet énorme amoncellement de maté-
-riaux, pour n'en être pas toujours écrasé; question de
+n'y en a pas, il faut qu'il en fasse; lui-même il est conduit à bousculer cet énorme amoncellement de matériaux, pour n'en être pas toujours écrasé; question de
 vie ou de mort pour lui; question d'existence même; il
 faut que les matériaux l'écrasent, ou qu'il fasse ou
 laisse tomber les matériaux; c'est-à-dire qu'à lui tout
@@ -135,8 +129,7 @@ habillé de noir, et avec son chapeau haut de forme, il
 faut qu'il remplace, comme il peut, l'indispensable
 temps.
 
-Dans le fatras des documents, des textes, des rensei-
-gnements, des éléments d'art, d'action, de vie et d'histoire, dans le fatras des documents littéraires, politiques
+Dans le fatras des documents, des textes, des renseignements, des éléments d'art, d'action, de vie et d'histoire, dans le fatras des documents littéraires, politiques
 et sociaux arrêter au passage quelques rares documents
 et laisser passer tous les autres, se hâter, se réjouir
 de laisser passer tous les autres, tout le reste, tout
@@ -261,9 +254,7 @@ trouver le joint.
 Choisir, c'est tout le métier que je fais depuis qu'ayant
 résolu de constituer un corpus d'histoire contemporaine
 à mesure que les événements se produiraient, nous
-avons été contraints d'enfermer dans les limites restreintes forcément et modestes de ces cahiers l'événe-
-
-ment d'une aussi énorme réalité politique et sociale;
+avons été contraints d'enfermer dans les limites restreintes forcément et modestes de ces cahiers l'événement d'une aussi énorme réalité politique et sociale;
 nous n'avons pas le choix de choisir entre choisir et
 ne choisir pas; nous avons été contraints de choisir, et
 même de choisir peu; je veux dire de garder peu des
@@ -296,9 +287,7 @@ parmi cet amoncellement de candidatures, non pas
 contraints par des raisonnements, mais contraints par
 les nécessités mêmes du travail, par les impérieuses
 conditions de format, de périodicité, — de budget, —
-par les conditions mêmes et par le taux de l'abonnement, par notre propre capacité, ou incapacité de tra-
-
-vail, ce n'est pas seulement une grande responsabilité
+par les conditions mêmes et par le taux de l'abonnement, par notre propre capacité, ou incapacité de travail, ce n'est pas seulement une grande responsabilité
 que d'avoir à se prononcer, mais c'est un rude exercice
 que de se prononcer; que nous nous soyons bien ou mal
 prononcé depuis le commencement de la première » série, et avant, que depuis le commencement de ces
@@ -323,15 +312,13 @@ veulent se former, sur les hommes et sur les événements,
 des opinions un peu moins fantaisistes que les opinions
 - courantes, aux pérsonnes qui veulent se former un
 jugement vraiment digne de ce nom de jugement;
-; qu'elles fassent, pour leur enseignement, pour leur for-
-mation personnelle, ce que je n'ai aucun mérite à faire,
+; qu'elles fassent, pour leur enseignement, pour leur formation personnelle, ce que je n'ai aucun mérite à faire,
 puisque j'y suis contraint par les nécessités de mon
 v. état, par les obligations de mon métier; que pour tout
 homme et pour tout événement qui se présente elles se
 demandent quelle figure ferait cet homme dans une
 compagnie d'hommes dans un recueil d'hommes au;
-4 bout de quelques années, quelle attitude, quelle situation aurait cet événement, quelle figure feraît cet évé-
-nement dans un corpus d'événements au bout de:
+4 bout de quelques années, quelle attitude, quelle situation aurait cet événement, quelle figure feraît cet événement dans un corpus d'événements au bout de:
 quelques années; et si un tel exercice est généralement à
 
 salubre pour toute personne qui se propose de former
@@ -354,8 +341,7 @@ des préoccupations politiciennes, enfin des manipulations journalières; je ne 
 jamais constituer un dossier des documents, des renseignements et des textes qui se rapportent en général
 à cette affaire de la délation; la matière est énorme, si
 l'importance est capitale; mais il fallait au moins constituer un dossier des textes et des documents, des renseignements qui se rapportaient à cette partie de
-l'affaire de la délation qui se produisit à la Ligue fran-
-çaise pour la défense des Droits de l'Homme et du
+l'affaire de la délation qui se produisit à la Ligue française pour la défense des Droits de l'Homme et du
 citoyen, je veux dire à cette partie de l'affaire de la
 délation que fut la révolte intérieure des éléments:
 
@@ -364,8 +350,7 @@ contre l'apologie de la délation.
 
 Il fallait au moins constituer un dossier de cette
 révolte, soit que requis par d'autres travaux nous.
-soyons contraints de nous en tenir de cette importante et vraiment capitale affaire, soit que nous puis-
-sions continuer quelque jour et ceite enquête, et la
+soyons contraints de nous en tenir de cette importante et vraiment capitale affaire, soit que nous puissions continuer quelque jour et ceite enquête, et la
 constitution de ce dossier; car cette révolte est vraïiment au cœur de cette affaire; et si nous devons nous
 en tenir là, ne formant qu'un dossier particulier de
 cette affaire, il fallait au moins, il fallait évidemment
@@ -385,17 +370,14 @@ si particulièrement grave que parce qu'elle était et
 devait devenir une affaire essentiellement impolitique,
 une affaire de morale, étrangère à la politique, rompant
 la constitution et les attaches des partis politiques,
-rompant toute la vie politique, tout le train-train journalier de la vie politique, toutes les habitudes, les pra-
-
-tiques, les routines, les oblitérations des tyrannies et
+rompant toute la vie politique, tout le train-train journalier de la vie politique, toutes les habitudes, les pratiques, les routines, les oblitérations des tyrannies et
 des accommodements politiques.
 
 Tout ce que l'on a dit de l'affaire Dreyfus, qu'elle
 était toute morale et qu'elle n'était nullement politique,
 on doit le dire aussi de l'affaire de la délation; ou
 plutôt l'affaire de la délation n'est qu'une phase nouvelle
-de cette immortelle affaire Dreyfus, que ni les persé-
-cutions de la tyrannie d'État antidreyfusiste, ni les
+de cette immortelle affaire Dreyfus, que ni les persécutions de la tyrannie d'État antidreyfusiste, ni les
 sophismes et les tyrannies, les iniquités, les injures et
 les injustices de la raison d'État, ni les agitations et les
 oppressions des foules, ni la démagogie antisémitique,
@@ -418,9 +400,7 @@ classés; toute cette disproportion, apparente, des effets
 à la cause; toute cette non correspondance; en particulier cette non correspondance entre le pays politique
 parlementaire et le pays; jusqu'à ce lâchage intermittent
 et successif, par à-coups, par fractions, par fragments,
-des hommes, des fautes, des crimes, des responsabili-
-
-tés; voilà ce que reconnaissent immédiatement tous
+des hommes, des fautes, des crimes, des responsabilités; voilà ce que reconnaissent immédiatement tous
 ceux qui pendant l'affaire n'étaient point occupés à
 exercer le commandement en chef.
 
@@ -452,17 +432,13 @@ la revendication d'une justice individuelle, qui eût
 cette profondeur d'âme le goût de la vérité, le seul qui
 püût avoir une telle crise nationale de conscience natioXX
 
-nale, mettre toute sa force, une énorme force de tra-
-
-vail, et une énorme.force d'inquiétude, au service d'une
+nale, mettre toute sa force, une énorme force de travail, et une énorme.force d'inquiétude, au service d'une
 cause même individuelle, faire pour un homme, pour
 l'existence, pour la vérification, pour la justification
 
 d'un homme ce que tant de peuples n'eussent point
 
-fait pour leur propre existence; combien de fois pen-
-
-dant l'affaire nos bons maîtres pangermanistes ne nous
+fait pour leur propre existence; combien de fois pendant l'affaire nos bons maîtres pangermanistes ne nous
 
 ont-ils pas dit: Cette affaire est le déshonneur de la
 
@@ -474,9 +450,7 @@ affaire fera l'éternel honneur dela France; mille affaires
 Dreyfus arriveraient tous les jours chez les autres
 peuples; mais elles n'arrivent point; ce peuple est le
 
-seul au monde que quelques consciences aient sou-
-
-lever pour une cause, même individuelle, de justice et
+seul au monde que quelques consciences aient soulever pour une cause, même individuelle, de justice et
 
 de liberté, de vérité; ce peuple est le seul au monde
 
@@ -534,10 +508,8 @@ dire que tout un peuple ait une vie intérieure comme on
 pouvait croire jusqu'alors qu'il n'y avait que les personnes et les individus qui en avaient, et que tout un
 peuple eût comme un homme, comme un seul
 homme, une crise de vie intérieure, une crise de conscience morale, mentale et sentimentale, on pouvait
-encore imaginer cela; mais que la justice et que la vé-
-rité soit, soit devenue le pain quotidien de tout un
-peuple, qu'elle soit passée en forme, et en force d'habi-
-tude invétérée, et presque de mauvaise habitude, qu'elle
+encore imaginer cela; mais que la justice et que la vérité soit, soit devenue le pain quotidien de tout un
+peuple, qu'elle soit passée en forme, et en force d'habitude invétérée, et presque de mauvaise habitude, qu'elle
 ait non seulement la force d'une habitude, mais, ce qui
 est cent fois plus fort, la force d'une mauvaise habitude,
 qu'elle soit devenue obsédante, inopportune, aujourd'hui
@@ -554,9 +526,7 @@ monde est un événement aussi important que l'invention et que l'exercice de l'
 important que l'invention et que l'exercice de la charité
 chrétienne, aussi important au moins que la révolution
 Voilà ce qu'il faudrait dire un peu dans une histoire
-du dreyfusisme; il faudrait montrer surtout cette conti-
-
-nuation sous-jacente, et ce mode, cette pénétration
+du dreyfusisme; il faudrait montrer surtout cette continuation sous-jacente, et ce mode, cette pénétration
 d'habitude; il faudrait montrer ces apparents sommeils,
 et ces sorties soudaines; il faudrait montrer ces réapparitions imprévues, ces éclatements successifs et inattendus; ce cheminement souterrain; ces ressourcements
 incalculables; on comprendrait peut-être alors comment
@@ -581,9 +551,7 @@ disait M. Méline; et cette affaire, qui n'existait pas, a
 renversé un système de gouvernement dont les plus …
 vigoureuses revendications des simples libertés ne pouvaient pas, et ne paraissaient pas devoir venir à bout;
 même inintelligence, même imprévision des politiciens,
-même incapacité de mesurer l'amplitude et la profon-
-
-deur, même incapacité d'évaluer; même retombée
+même incapacité de mesurer l'amplitude et la profondeur, même incapacité d'évaluer; même retombée
 lourde, boïteuse, des événements tout au travers des
 combinaisons; même retombée sur les talons; même:
 dépassement perpétuel, toujours inattendu, toujours
@@ -595,8 +563,7 @@ incompréhensible; même dialogue burlesque, entre un
 phonographe et un homme, entre le politicien qui tient
 toujours son même langage phonographique, et l'événement, qui tout d'un coup se met à parler un langage
 à humain, entre le politicien qui parle du nez, et l'événement, qui ne parle pas du nez; deux langages totalement étrangers lun à l'autre; le politicien parlant
-comme un sourd; toutes les réponses du politicien tom-
-bant à côté; un effort à la fois grotesque et touchant du
+comme un sourd; toutes les réponses du politicien tombant à côté; un effort à la fois grotesque et touchant du
 politicien pour se remettre au pas de la conversation; —
 et, aussi, ce mécanisme à détentes; les morceaux
 d'hommes, les morceaux de vérités, les morceaux de
@@ -681,8 +648,7 @@ politique aux politiciens; tout est morale aux honnêtes
 gens; il n'y a aucune raison pour qu'il y ait des royaumes dans le royaume, des royaumes exclusivement
 réservés à la politique dans le royaume universel de la
 
-— Attendez seulement un peu, nous repartissent là-
-dessus les politiciens, professionnels; vous avez parfai-:
+— Attendez seulement un peu, nous repartissent làdessus les politiciens, professionnels; vous avez parfai-:
 tement raison, d'une manière générale; mais, pour ce
 cas particulier, pour cette fois, pour cette fois seulement, pour cette petite fois, taisez-vous; et läissons un
 peu marcher la politique; c'est une exception; aussitôt
@@ -701,8 +667,7 @@ une minute, pour cette minute seulement, pour cette
 ) minute présente; aussitôt après vous pourrez redevenir.
 moraux et impolitiques; le malheur est qu'on nous en a
 dit autant et qu'on nous en dit autant pour toutes les
-minutes sans exception; chacune des minutes est censé-
-ment la seule où pour plaire aux politiciens il faut que
+minutes sans exception; chacune des minutes est censément la seule où pour plaire aux politiciens il faut que
 nous nous taisions et que nous fassions taire la morale
 devant la politique; séulement ces minutes sont successives, elles ne cessent pas, et pratiquement, socialement,
 historiquement, elles font le temps; les politiciens pasXXVIIE
@@ -738,8 +703,7 @@ nationalistes réactionnaires, si elle est conduite uniquement par les moyens de
 
 imprévus, elle trompera, elle décevra ses auteurs
 mêmes; elle ne décevra pas moins les politiciens qui
-lexploitent que les politiciens qui exploitent son étouf-
-fement; il n'y a jamais rien à redouter de mal de la
+lexploitent que les politiciens qui exploitent son étouffement; il n'y a jamais rien à redouter de mal de la
 
 Telle est, telle restera notre situation en présence des
 politiciens; et la manière dont se présente le nouveau
@@ -802,9 +766,7 @@ pas, comme je le pensais, qu'il y avait lieu de constituer
 un dossier de ces démarches; il vint me voir, c'était
 pendant les vacances du premier janvier, il avait à faire
 une leçon à l'École des Hautes Études Sociales, il vint
-me voir en coup de vent, comme font tous ces provin-
-
-ciaux, quand ils passent par Paris; ils n'ont jamais le
+me voir en coup de vent, comme font tous ces provinciaux, quand ils passent par Paris; ils n'ont jamais le
 temps de rien; il n'avait pas le temps de faire le cahier,
 il repartait pour Toulouse; en deux ou trois quarts
 d'heure, un matin, au bureau des cahiers, nous convinmes du plan.
@@ -892,9 +854,7 @@ d'autant plus, que tout n'y était pas perdu, qu'il y avait
 D'ailleurs il faut distinguer entre la démission de
 membre du Comité central et la démission de la Ligue
 elle-même; un membre du Comité central qui démissionne peut ne vouloir signifier, par sa démission, que
-ceci: qu'il ne veut plus appartenir, participer au gou-
-
-vernement de la Ligue, pour des raisons qu'il donne et
+ceci: qu'il ne veut plus appartenir, participer au gouvernement de la Ligue, pour des raisons qu'il donne et
 pour toutes raisons; mais il peut vouloir demeurer dans
 la Ligue.
 
@@ -933,16 +893,14 @@ années nous avons nommée la méthode dreyfusiste.]
 
 le paquet de lettres, de signatures, d'adhésions reçues
 par Bouglé; Bouglé ne voulait donner de ces lettres que
-les extraits qui seraient jugés avoir un sens particuliè-
-rement caractérisé; il pensait ainsi en philosophe, pour
+les extraits qui seraient jugés avoir un sens particulièrement caractérisé; il pensait ainsi en philosophe, pour
 qui une lettre ne vaut que ou vaut surtout par ce qu'elle
 apporte au débat d'idée nouvelle; travaillant en historien, et par l'intervention de Trarieux redevenu un peu
 
 plus maître, et plus responsable, du cahier, j'ai au contraire publié au long toutes les lettres que j'ai eues en
 mains; j'ai agi comme un historien pour qui ces documents vaudraient par eux-mêmes; j'ai voulu donner
 ainsi une image plus fidèle de cette correspondance
-même: Bouglé me pardonnera ce changement de mé-
-thode; il pouvait, lui Bouglé, être tenté de n'attribuer
+même: Bouglé me pardonnera ce changement de méthode; il pouvait, lui Bouglé, être tenté de n'attribuer
 pas toute leur importance à des lettres qui lui étaient
 personnellement adressées; il pouvait attribuer plus
 d'importance aux idées qu'aux manifestations; pour
@@ -1042,11 +1000,7 @@ déterminée, il a fallu arrêter le dépouillement à une
 Ce cahier était tiré presque tout entier quand je lis
 …. dans le Matin d'aujourd'hui jeudi 26 janvier la repro-
 
-Du Radical:
-
-; A la suite de la dernière réunion de la Gauche radicale-
-
-socialiste, la lettre suivante a été adressée par M. Ferdinand Buisson, député radical-socialiste de la Seine, à
+; A la suite de la dernière réunion de la Gauche radicalesocialiste, la lettre suivante a été adressée par M. Ferdinand Buisson, député radical-socialiste de la Seine, à
 M. Gouzy, président intérimaire de ce groupe:
 
 Paris, mardi soir, 24 janvier
@@ -1105,9 +1059,7 @@ apportera, soit à l'égard des personnes, soit sur une institution qui n'a pas,
 qu'il faudra bien avouer ou désavouer définitivement, celle
 des « délégués administratifs ».
 
-Ne pouvant, sur ce point spécial de conduite parlemen-
-
-taire, me mettre d'accord avec le groupe, j'y suis malgré
+Ne pouvant, sur ce point spécial de conduite parlementaire, me mettre d'accord avec le groupe, j'y suis malgré
 moi une cause de trouble et de perte de temps.
 
 Ne pouvant, d'autre part, expliquer au dehors ni mes
@@ -1126,16 +1078,10 @@ Après un échange de vues et de lettres demi-particu-
 
 ; lières, demi-publiques, entre les Ligueurs de Montpellier
 
-et les Ligueurs de Toulouse, qui avaient depuis long-
-
-temps des relations de camaraderie, d'amitié, de voisi-
-
-nage, de collaboration, un certain nombre de lettres,
+et les Ligueurs de Toulouse, qui avaient depuis longtemps des relations de camaraderie, d'amitié, de voisinage, de collaboration, un certain nombre de lettres,
 venues de ces deux points d'origine, parvinrent au:
 
-Comité Central; une lettre de M. Charles Rist, profes-
-
-seur à la Faculté de droit de Montpellier, président de
+Comité Central; une lettre de M. Charles Rist, professeur à la Faculté de droit de Montpellier, président de
 
 la section montpéliéraine de la Ligue des Droits de
 
@@ -1153,9 +1099,7 @@ la section de Saint-Étienne, datée de Saint-Étienne, le
 
 ._ 8 novembre 1904; en réponse une lettre de M. Francis
 
-de Pressensé, datée du 5 décembre 1904; nous emprun-
-
-tons le compte rendu officiel de cette correspondance
+de Pressensé, datée du 5 décembre 1904; nous empruntons le compte rendu officiel de cette correspondance
 
 au Bulletin officiel de la Ligue des Droits de l'Homme,
 
@@ -1292,8 +1236,7 @@ Voici d'abord les faits réels, tels qu'ils ont été établis et
 que je défie que lon puisse trouver autres. Le ministre de
 la Guerre préoccupé, justement préoccupé de la terrible
 situation que M. Waldeck-Rousseau venait de lui révéler
-et de son impuissance radicale à obtenir par les voies hié-
-rarchiques et d'un commandement complice du nationalisme des renseignements dignes de foi sur le loyalisme et
+et de son impuissance radicale à obtenir par les voies hiérarchiques et d'un commandement complice du nationalisme des renseignements dignes de foi sur le loyalisme et
 la correction des officiers, eut l'idée de demander à tous les
 républicains de l'aider dans cette tâche. Il s'agissait de lui
 signaler les faits graves qui attestaient de la part de tel ou
@@ -1311,9 +1254,7 @@ A tort ou à raison les grands chefs crurent devoir se livrer
 
 correspondants, ils ne leur dirent pas — et ils ne pouvaient pas leur dire, puisqu'il n'en était rien — qu'il s'agissait de dresser un état, une fiche oflicielle de laquelle et de
 laquelle seule dépendit l'avancement de l'oflicier. C'était un
-document privé, destiné à renseigner des particuliers, pro-
-
-la délation aux Droits de l'Homme
+document privé, destiné à renseigner des particuliers, prola délation aux Droits de l'Homme
 bablement sur l'aptitude de postulants éventuels à la
 
 Donc, du côté du ministre, nulle idée soit de dresser un
@@ -1327,8 +1268,7 @@ la conduite des dépositaires de la force publique. Et la
 preuve qu'il en est bien pour le ministre comme je viens
 de le dire, c'est l'établissement par lui — en dehors des
 notes hiérarchiques justement suspectes — en dehors de
-l'extrait des notes maçonniques, de fiches spéciales repré-
-sentant le résultat de l'enquête et concluant, dans plus de
+l'extrait des notes maçonniques, de fiches spéciales représentant le résultat de l'enquête et concluant, dans plus de
 neuf cas sur dix à la promotion d'ofliciers précisément
 visés par les communications malveillantes des loges.
 
@@ -1354,8 +1294,7 @@ déjà quelque temps — s'est ému. Et j'ose dire que cette
 émotion sincère fait autant d'honneur à sa probité qu'elle
 en fait peu à son sens critique. Il pense — et il a raison de
 penser — qu'un gouvernement républicain ne doit pas être
-soupçonné de procédés que ne sauraient répudier les ré-
-gimes de compression. Il a tort toutefois d'oublier que l'ennemi connaît cette disposition, qu'il connaît aussi une
+soupçonné de procédés que ne sauraient répudier les régimes de compression. Il a tort toutefois d'oublier que l'ennemi connaît cette disposition, qu'il connaît aussi une
 certaine tendance à la panique qu'il a fonctionner — et
 il y a un siècle sous la grande Révolution et depuis lors au
 temps de Panama — cette effroyable machine de suspicion,
@@ -1409,23 +1348,18 @@ Monsieur le Président,
 Une grave question de moralité politique, une de celles
 pour la discussion desquelles la Ligue des Droits de l'Homme
 a été en grande partie fondée, vient d'être posée devant le
-pays. Il me paraît impossible que la Ligue s'en désinté-
-resse, impossible qu'elle ne dise pas nettement si oui ou
+pays. Il me paraît impossible que la Ligue s'en désintéresse, impossible qu'elle ne dise pas nettement si oui ou
 
 non l'organisation de la délation dans l'armée par une association quelconque dans un but politique, et l'utilisation
 par le gouvernement des renseignements ainsi obtenus,
 sont conformes à la tradition et au programme du parti
 
 Je ne suis pas de ceux, qui pensent, pour employer le
-charmant euphémisme de M. Ribot, que si des « flottements » se sont, il y a quelques années, produits dans l'ar-
-
-mée, ces « flottements » ont depuis longtemps disparu. Il
+charmant euphémisme de M. Ribot, que si des « flottements » se sont, il y a quelques années, produits dans l'armée, ces « flottements » ont depuis longtemps disparu. Il
 faudrait être aveugle pour refuser de voir autour de nous
 
 les preuves de leur persistance. Le devoir impérieux du
-gouvernement est donc de se renseigner sur la fidélité po-
-
-litique des hommes auxquels il confie la force armée. La
+gouvernement est donc de se renseigner sur la fidélité politique des hommes auxquels il confie la force armée. La
 vigueur avec laquelle jusqu'ici, le général André s'est consacré à cette tâche, mérite qu'on l'approuve et qu'on le remercie. Ni sa politique générale ni celle du ministère, dont
 il fait partie ne sont donc en cause ici.
 
@@ -1433,9 +1367,7 @@ Mais est-il admissible que l'on confie aux camarades,
 c'est-à-dire aux concurrents et aux inférieurs même des
 officiers, sur lesquels on veut se renseigner, le soin de fournir ces renseignements? Est-il admissible que l'on incite
 des hommes à profiter de la communauté imposée de vie
-et d'activité où ils se trouvent avec d'autres, et de l'igno-
-
-rance où sont leurs camarades de l'association dont ils font
+et d'activité où ils se trouvent avec d'autres, et de l'ignorance où sont leurs camarades de l'association dont ils font
 partie, pour envoyer sur ces camarades des avis qui peuvent avoir les conséquences les plus gra- [ici un bourdon,
 des lignes interverties ou sautlées dans le Bulletin] réguliè-
 
@@ -1494,8 +1426,7 @@ ce sont nos adversaires qui les emploient.
 
 J'espérais que l'affaire noug aurait guéris définitivement » de la malaria morale, dont nous souffrons et qu'elle aurait
 nettoyé la conscience républicaine du virus clérical dont
-elle était imprégnée. Il n'en est rien. Nous sommes plus clé-
-ricaux que jamais. Aussi me garderai-je bien, dans ce moment-ci, d'essayer quoi que ce soit en faveur de la Ligue et
+elle était imprégnée. Il n'en est rien. Nous sommes plus cléricaux que jamais. Aussi me garderai-je bien, dans ce moment-ci, d'essayer quoi que ce soit en faveur de la Ligue et
 si je reste encore avec vous, c'est pour ne pas abandonner
 des amis qui, je l'espère, se ressaisiront.
 
@@ -1505,7 +1436,7 @@ M. C. Bouglé, professeur à l'Université de Toulouse, avait
 d'abord envoyé ces quelques mots:,
 
 La Ligue ne va-t-elle pas dire son mot dans ces fàächeuses
-histoires de « dossiers secrets »? Et si elle ne dit rien, autant dire qu'elle abdique sa fonction moralisatrice.
+histoires de « dossiers secrets Et si elle ne dit rien, autant dire qu'elle abdique sa fonction moralisatrice.
 
 Puis, sur l'avis que le Comité central serait saisi prochainement de la question, M. Bouglé s'exprimait en ces
 termes quelques jours plus tard:
@@ -1558,8 +1489,7 @@ de M. Francis de Pressensé; nous ne pouvions le faire
 dans cette partie strictement documentaire du cahier.
 
 Nos abonnés rétabliront d'eux-mêmes, dans ce qui
-précède, l'ordre historique et l'ordre simplement chro-
-nologique, si habilement interverti, rompu par ce
+précède, l'ordre historique et l'ordre simplement chronologique, si habilement interverti, rompu par ce
 
 compte rendu officiel; en effet le Bulletin, comme on
 voir, publiait la réponse avant les demandes, la
@@ -1603,8 +1533,7 @@ la délation aux Droits de l'Homme
 de la déclaration des droits de l'Homme — si elle n'avertissait pas le parti républicain du danger qu'il court à employer les procédés même et les arguments contre lesquels
 nous avons si souvent protesté — elle faillirait à sa mission. Elle faillirait tout au moins à la mission qu'elle s'était
 donnée lors de sa fondation. Ce ne serait plus la même
-- association que celle où nous étions entrés, pleins d'espé-
-rances. Vous pouvez aisément vous rendre compte, par
+- association que celle où nous étions entrés, pleins d'espérances. Vous pouvez aisément vous rendre compte, par
 répétition même des démarches que nous faisons auprès de
 vous, combien il nous en coûterait de nous séparer d'une
 association à laquelle nous étions attachés profondément.
@@ -1613,9 +1542,7 @@ supposer que les principes proclamés par le Grand-Orient
 de France, n'ont pas trouvé à la Ligue des Droits de
 l'Homme une désapprobation catégorique et retentissante.
 
-Veuillez agréer, M. le président, l'expression de nos sen-
-
-timents de respectueux dévouements.
+Veuillez agréer, M. le président, l'expression de nos sentiments de respectueux dévouements.
 
 M. de Pressensé; nous reproduisons cette lettre sur le
 
@@ -1689,7 +1616,7 @@ Je persiste done à regretter — malgré les observations
 que vous avez la bonté de m'envoyer — que la Ligue
 nait pas pris la balle au bond. Même je ne suis pas
 éloigné de juger — puisque dans des circonstances où
-tout semblait l'inviter au mouvement, elle n'a pas bougé —;
+tout semblait l'inviter au mouvement, elle n'a pas bougé
 que cette immobilité ressemble singulièrement à la mort:
 notre vieille Ligue a probablement vécu.
 Il n'en reste pas moins qu'elle aura fait, pendant quelques
@@ -1706,9 +1633,7 @@ mais qu'il se rapporte particulièrement à la relation
 de la délation aux Droits de l'Homme; on sait en effet
 quelle situation M. de Pressensé occupe dans l'Humanité; on sait aussi qu'il emmêle volontiers ses nombreuses fonctions, ses nombreux métiers, ses situations
 
-nombreuses; et qu'il répond volontiers, comme journa-
-
-liste, dans son journal, ou comme homme politique,,
+nombreuses; et qu'il répond volontiers, comme journaliste, dans son journal, ou comme homme politique,,
 à la Chambre, aux requêtes qui pourtant lui ont été
 adressées comme au Président du Comité central de la
 
@@ -1718,8 +1643,7 @@ et du Citoyen.
 
 Les anciens ministres du ministère Waldeck-Rousseau
 ont vraiment de l'audace d'attaquer M. Combes à propos
-de sa circulaire. M. Waldeck-Rousseau, quand il était pré-
-sident du Conseil, parlant au nom de tous les ministres, au
+de sa circulaire. M. Waldeck-Rousseau, quand il était président du Conseil, parlant au nom de tous les ministres, au
 nom de M. Leygues et de M. Millerand, a formulé au sujet
 des enquêtes politiques relatives aux fonctionnaires des
 
@@ -1818,9 +1742,7 @@ très brave homme, mais sa situation de fortune ne l'indiquait pas précisément
 emploi de 1.200 francs. Donc la fortune, comme la religion,
 sont autant de circonstances qu'il est nécessaire de connaître.
 
-« Mais demander des renseignements sur la femme du can-
-
-didat! s'enquérir de son honorabilité, de sa manière d'être,
+« Mais demander des renseignements sur la femme du candidat! s'enquérir de son honorabilité, de sa manière d'être,
 de ses opinions, quel intolérable abus!
 
 « Je ne partage pas le moins du monde l'indignation de
@@ -1844,8 +1766,7 @@ leurs enfants, le Sénat n'attend pas de moi que je refasse
 ici le discours de Toulouse,
 
 « On m'a violemment reproché d'avoir dit alors que le
-devoir du gouvernement était de demander à ses fonction-
-naires s'ils ont pour l'enseignement de l'État du respect ou:
+devoir du gouvernement était de demander à ses fonctionnaires s'ils ont pour l'enseignement de l'État du respect ou:
 du dédain. /Très bien! très bien! à gauche)
 
 « Il est du devoir de l'Etat — et M. le ministre de l'Instruction publique arappelé aux préfets que c'est leur devoir
@@ -1926,8 +1847,7 @@ M. Lavertujon. — A la suite de cette lecture, je m'exprimais ainsi — je repr
 À partout; on a interrogé les voisins, les domestiques des
 civils, les ordonnances des officiers; on a suivi les enfants
 1 se rendant à l'école; on demandait des renseignements sur
-; monsieur, sur madame; on tàchait de connaître le confes-
-seur de madame /Nouvelles exclamations et rires à droite).
+; monsieur, sur madame; on tàchait de connaître le confesseur de madame /Nouvelles exclamations et rires à droite).
 M. Gauthier (Haute-Saône) ironiquement. — Très bien!
 M. Lavertujon. — «.… on interrogeait le facteur pour
 savoir quels journaux il apportait. Et avec tous ces potins,
@@ -2098,9 +2018,7 @@ aux instituteurs et même à de simples policiers, de telle
 sorte, messieurs, que l'on a à Limoges des agents de
 police munis de fiches à remplir, et assez maladroits dans
 le nouveau métier qu'on leur imposait, aller naïvement
-sonner aux portes et demander aux concierges, aux domestiques, à l'ordonnance, à la cuisinière les renseigne-
-
-renseignements ou délation? à
+sonner aux portes et demander aux concierges, aux domestiques, à l'ordonnance, à la cuisinière les renseignerenseignements ou délation? à
 ments qu'on leur réclamait /Exclamations et rires au centre
 et à droite) sur la fortune et la vie privée de leurs maîtres
 et de leurs maîtresses.
@@ -2140,13 +2058,10 @@ président du conseil. J'avais reproché à M. Edgar Monteil
 d'être entré dans une église, le képi sur la tête. A cela,
 M. le président du conseil avait répondu:
 
-« Il y a un autre fait sur lequel j'ai interroger l'hono-
-
-rable M. Monteil. Il s'agissait de son attitude dans les
+« Il y a un autre fait sur lequel j'ai interroger l'honorable M. Monteil. Il s'agissait de son attitude dans les
 églises. On représente M. Monteil, comme allant dans les
 églises et se faisant un plaisir d'enfoncer son képi sur sa,
-tête et, par conséquent, de prendre une attitude absolu-
-ment inconvenante. M. Lavertujon a paru désireux de
+tête et, par conséquent, de prendre une attitude absolument inconvenante. M. Lavertujon a paru désireux de
 savoir quelle serait mon opinion dans le cas où un préfet,
 entrant dans un édifice consacré au culte, s'y conduirait
 d'une façon inconvenante. Mon opinion n'est pas douteuse:
@@ -2168,8 +2083,7 @@ nef et le transept, du onzième siècle et, pour le chœur, le
 sanctuaire et les chapelles latérales, du quatorzième siècle.
 Il s'agit, en effet, de l'église de Moutiers, qui n'a jamais
 cessé d'être consacrée au culte, église remarquable d'ailleurs par les vitraux de toute beauté qu'elle contient et qui
-sont attribués à des artistes limousins. Il n'est pas étonnant que M. Edgar Monteil, en sa qualité de lettré et d'ar-
-tiste, ait tenu à voir ces merveilles. Il a seulement le
+sont attribués à des artistes limousins. Il n'est pas étonnant que M. Edgar Monteil, en sa qualité de lettré et d'artiste, ait tenu à voir ces merveilles. Il a seulement le
 tort d'entrer dans cette église le képi sur la tête; il y avait
 des conseillers de préfecture qui le suivaient, un groupe
 d'officiers qui regardaient les mêmes vitraux; il aurait donc
@@ -2205,13 +2119,11 @@ permettez cette expression familière, ayant la tête un peu.
 près du bonnet.
 
 Or, qu'il vienne à se produire un mouvement populaire,
-M. Waldeck-Rousseau a-t-il la conviction qu'il serait repré-
-senté, dans cette ville importante de Limoges, par le préfet
+M. Waldeck-Rousseau a-t-il la conviction qu'il serait représenté, dans cette ville importante de Limoges, par le préfet
 pondéré, avisé, prudent, insoucieux de sa popularité, par
 l'homme enfin que les circonstances, peut-être périlleuses,
 
-Tel est le point sur lequel je voulais interroger M. le pré-
-sident du conseil; il ne m'appartient pas de résoudre la
+Tel est le point sur lequel je voulais interroger M. le président du conseil; il ne m'appartient pas de résoudre la
 question, mais je crois que mon devoir était de la poser.
 (Très bien! et applaudissements sur un certain nombre de
 bancs au centre et à droite)
@@ -2249,7 +2161,7 @@ renseignements ou délation?
 se savent ainsi catalogués, mensurés par ce Bertillon politique et qu'ils savent qu'ils ont à la préfecture des dossiers
 les concernant, fabriqués avec les éléments que je viens de
 vous indiquer et qui peuvent contenir ou bien d'énormes
-sottises ou bien les pires infamies. »:
+sottises ou bien les pires infamies.
 
 J'ai répondu à l'honorable M. Lavertujon en ces termes
 
@@ -2336,8 +2248,7 @@ M. Le Provost de Launay.— Vous êtes les seuls à payer
 les impôts, peut-être!
 
 M. le président du conseil. — Voilà, messieurs, la
-question bien précisée. Et, d'ailleurs, M. Lavertujon a faci-
-lité ma tâche; il a reconnu en effet que l'administration
+question bien précisée. Et, d'ailleurs, M. Lavertujon a facilité ma tâche; il a reconnu en effet que l'administration
 avait le droit de s'enquérir de ce que sont ceux qui occupent ou sollicitent des fonctions, et j'arrive alors au faitsur
 
 M. le préfet de la Haute-Vienne a-t-il ouvert sur ou
@@ -2383,8 +2294,7 @@ simples particuliers et non pas des postulants ou des fonctionnaires, on dit: «
 Oh! on ne se flatte pas d'apporter les 10.000 fiches, bien
 entendu; mais enfin, on en apporte une. La pièce que l'on
 produit, dont on donne une reproduction littérale, a été,
-dit le journal la Croix, photographiée par l'un de ses ré-
-dacteurs; il a et touché les fiches et il est assez heureux
+dit le journal la Croix, photographiée par l'un de ses rédacteurs; il a et touché les fiches et il est assez heureux
 pour en pouvoir mettre une sous les yeux de ses lecteurs.
 
 Quand j'ai cette pièce, j'ai éprouvé moins d'émotion.
@@ -2397,9 +2307,7 @@ M. Lavertujon, les termes dans lesquels elle est conçue:
 fournir, le plus tôt qu'il vous sera possible, sur M., etc. »
 
 Et puis, comme formule de salutation: « Veuillez agréer,
-monsieur, l'expression de ma considération la plus distin-
-
-guée. » {Rires sur divers bancs]
+monsieur, l'expression de ma considération la plus distinguée. » {Rires sur divers bancs]
 
 M. Hervé de Saisy. — Ah! qu'en termes galants ces
 
@@ -2438,14 +2346,11 @@ une autre, exactement les mentions qui vous ont frappé,
 
 M. Gotteron. — Des notes sur les femmes?
 
-M. le président du conseil. — Vous allez le voir, mon-
-
-sieur Gotteron. Et pour prendre comme exemple, non pas
+M. le président du conseil. — Vous allez le voir, monsieur Gotteron. Et pour prendre comme exemple, non pas
 ce ministère de l'intérieur qui est un ministère de policiers,
 chacun le sait, mais un ministère qui est une très grande
 
-administration, la moins politique peut-être, mais une ad-
-ministration qui sait que l'on n'a point des renseignements
+administration, la moins politique peut-être, mais une administration qui sait que l'on n'a point des renseignements
 complets sur un homme si lon ne connaît un peu ses
 
 Un membre à droite. — La Guerre, peut-être?
@@ -2550,9 +2455,7 @@ cette pièce est venue à la connaissance des deux journaux
 par une voie plus simple. Les deux journaux ont publié
 cette circulaire à la date du 27 octobre; or, elle avait été
 commandée sans le moindre mystère à un imprimeur de
-Limoges, M. Lavauzelle, dans la première quinzaine d'oc-
-
-renseignements ou délation?
+Limoges, M. Lavauzelle, dans la première quinzaine d'ocrenseignements ou délation?
 tobre. A la date du 27 octobre, il n'en était pas parvenu un
 seul exemplaire à la préfecture de la Haute-Vienne, et les
 deux journaux en question ont été servis avant le préfet.
@@ -2638,8 +2541,7 @@ envoyée dans un département plutôt que dans un autre.
 
 Mais M. Lavertujon n'insiste pas; il passe également condamnation sur la fortune.
 
-Tenez, messieurs, sans sortir du département de la HauteVienne, dernièrement, un emploi de 1.200 francs à la pré-
-fecture était sollicité. L'enquête a été faite; on a rempli le
+Tenez, messieurs, sans sortir du département de la HauteVienne, dernièrement, un emploi de 1.200 francs à la préfecture était sollicité. L'enquête a été faite; on a rempli le
 bulletin dont vous parlez et grâce à lui, on a constater
 que le candidat avait 5.000 francs de rentes, C'était un très
 brave homme, mais sa situation de fortune ne l'indiquait
@@ -2674,9 +2576,7 @@ On m'a violemment reproché d'avoir dit alors que le devoir du Gouvernement éta
 du dédain. /Très bien! très bien! à gauche)
 
 Il est du devoir de l'État — et M. le ministre de l'Instruction publique a rappelé aux préfets que c'est leur devoir
-aussi — de savoir quelle est au point de vue de l'instruc-
-
-tion de leurs enfants l'attitude des fonctionnaires de la
+aussi — de savoir quelle est au point de vue de l'instruction de leurs enfants l'attitude des fonctionnaires de la
 
 Voilà les explications que je devais au Sénat.
 
@@ -2706,14 +2606,11 @@ On accuse un préfet, que je couvre, de s'être livré à un
 espionnage que je serais le premier à flétrir s'il existait.
 Mais, de cet espionnage, vous n'avez pas apporté la
 
-M. Lavertujon a exprimé le désir d'être promptement dé-
-barrassé de l'honorable M. Monteil; il emploie, pour cela,
+M. Lavertujon a exprimé le désir d'être promptement débarrassé de l'honorable M. Monteil; il emploie, pour cela,
 qu'il me permette de le lui dire, un très mauvais moyen, et
 M. Monteil sera pleinement rassuré s'il veut bien réfléchir
 que les attaques imméritées sont, pour les fonctionnaires,
-une garantie de très longue stabilité. /Très bien! et applau-
-
-dissements répétés à gauche. — Réclamations à droite et
+une garantie de très longue stabilité. /Très bien! et applaudissements répétés à gauche. — Réclamations à droite et
 sur quelques bancs au centre)
 
 M. le président. — La parole est à M. Lavertujon.
@@ -2732,8 +2629,7 @@ les déclarations que lui apporte son préfet.:
 Eh bien, messieurs, tant que nous continuerons à tourner
 dans ce cercle vicieux, aussi vicieux que M. Edgar Monteil lui-même, /Exclamations à gauche) nous n'en sortirons
 M. Milliès-Lacroix. — Quels sont ses vices?
-M. Lavertujon. — Il y a un moyen, monsieur le président du conseil, d'en sortir, c'est de faire une enquête sé-
-rieuse, c'est de ne pas vous en rapporter seulement aux -
+M. Lavertujon. — Il y a un moyen, monsieur le président du conseil, d'en sortir, c'est de faire une enquête sérieuse, c'est de ne pas vous en rapporter seulement aux -
 afirmations de M. le préfet de la Haute-Vienne.
 M. Bidault. — Et le conseil général, qu'en faites-vous?
 M. Gotteron. — Les faits sont de notoriété publique à
@@ -2752,8 +2648,7 @@ lieux, elle vous est facile, à vous, ministre de l'intérieur;
 mais vous ne voulez pas la faire et cela pour que votre
 préfet ne soit pas pris en flagrant délit d'inexactitude.
 
-Vous parliez du conseil général et de la commission dé-
-partementale. Tous ces conseillers sont des adversaires
+Vous parliez du conseil général et de la commission départementale. Tous ces conseillers sont des adversaires
 politiques et même des adversaires personnels.
 
 M. Victor Leydet. — Ce sont des républicains!
@@ -2832,8 +2727,7 @@ l'exemplaire que j'ai emprunté à une bibliothèque; —
 Sénat, — session ordinaire de 1901, — compte rendu
 extenso, — soixante-et-unième séance, — séance du
 mardi 2 juillet, — discussion de l'interpellation de
-M. Lavertujon sur les actes de M. le préfet de la HauteVienne: MM. Lavertujon, Leygues, ministre de l'instruction publique et des beaux-arts; Waldeck-Rousseau, pré-
-sident du conseil, ministre de l'intérieur et des cultes;
+M. Lavertujon sur les actes de M. le préfet de la HauteVienne: MM. Lavertujon, Leygues, ministre de l'instruction publique et des beaux-arts; Waldeck-Rousseau, président du conseil, ministre de l'intérieur et des cultes;
 — retrait, par M. Lavertujon, de l'ordre du jour sur
 son interpellation.
 
@@ -2892,8 +2786,7 @@ aujourd'hui sa contribution::
 
 Le quatrième dossier, attentats dans l'Yonne, était
 
-le commencement du gros dossier que nous avons con-
-stitué pour la défense de Hervé; ce quatrième dossier
+le commencement du gros dossier que nous avons constitué pour la défense de Hervé; ce quatrième dossier
 était annoncé ainsi:
 
 Sur les attentats commis à Sens et à Auxerre par
@@ -2908,8 +2801,7 @@ Mais le premier dossier était déjà, il était justement
 un dossier de cette première interpellation Lavertujon,
 extrait de ce même numéro du Journal officiel; ce dossier était annoncé ainsi:
 
-Une atteinte particulièrement grave aux libertés élé-
-mentaires, à la liberté privée a été commise par l'autorité gouvernementale de la Haute-Vienne, où un inspecteur primaire, commandé de service par son préfet,
+Une atteinte particulièrement grave aux libertés élémentaires, à la liberté privée a été commise par l'autorité gouvernementale de la Haute-Vienne, où un inspecteur primaire, commandé de service par son préfet,
 a fait une inqualifiable perquisition dans la bibliothèque
 privée d'une institutrice. Les renseignements indispensables sur cet attentat nous sont fournis par le Journal
 officiel du mercredi 3 juillet dernier:
@@ -2984,9 +2876,7 @@ le nommer ainsi, — et du président du conseil, à cette première interpellat
 premier ancien débat dans nos dossiers; il ne fallait
 pas écraser un dossier nouveau sous une majeure partie
 de textes anciens; nous en avons assez publié aujourd'hui pour éclairer la récente introduction dans le
-débat présent du compte rendu de cette ancienne inter53
-
-la délation aux Droits de Homme
+débat présent du compte rendu de cette ancienne interla délation aux Droits de Homme
 pellation et de cette ancienne question ayant amené,
 en deux fois, cette ancienne réponse de M. WaldeckRousseau; nous nous en tiendrons strictement désormais au dossier particulier que nous voulons constituer
 de la délation aux Droits de l'Homme.
@@ -3030,15 +2920,13 @@ phrases suivantes: « Le parti républicain lui-même (je ne
 parle pas de la petite troupe de ceux qui lui ont faussé
 compagnie il y a déjà quelque temps) s'est ému. Et j'ose
 dire que cette émotion sincère fait autant d'honneur à sa
-probité qu'elle en a fait peu à son sens critique... Sous pré-
-texte de demeurer purs parmi les purs, on a des républicains faire — consciemment ou non — le jeu des prétoriens... Sous prétexte de purifier l'armée d'une délation qui
+probité qu'elle en a fait peu à son sens critique... Sous prétexte de demeurer purs parmi les purs, on a des républicains faire — consciemment ou non — le jeu des prétoriens... Sous prétexte de purifier l'armée d'une délation qui
 n'a jamais cessé d'y fonctionner au profit de la contreRévolution... »
 
 Je pense, au contraire, que les républicains qui se sont
 émus devant l'organisation de la délation dans l'armée
 n'ont pas fait preuve seulement de probité, mais qu'ils ont
-mieux servi la République que ceux qui ont essayé de couvrir de tels abus ou de plaider les circonstances atté-
-nuantes, et qui, eux, ont fait inconsciemment le jeu de
+mieux servi la République que ceux qui ont essayé de couvrir de tels abus ou de plaider les circonstances atténuantes, et qui, eux, ont fait inconsciemment le jeu de
 
 Je me suis, pour ma part, élevé de toutes mes forces
 contre les détestables procédés que nos collègues de province vous invitaient, à votre tour, à flétrir; je crois, avec
@@ -3080,8 +2968,7 @@ cet article de M. de Pressensé:
 Une lettre du citoyen de Pressensé
 
 Le citoyen Francis de Pressensé, président de la Ligue
-des Droits de l'Homme, a répondu au nom et avec l'appro-
-bation unanime du Comité central, la lettre suivante
+des Droits de l'Homme, a répondu au nom et avec l'approbation unanime du Comité central, la lettre suivante
 qu'il nous communique, à la démission de M. Joseph Reinach:
 
 Paris, le 20 décembre 1904
@@ -3116,8 +3003,7 @@ sommes laissés piper jadis par les grands mots de patriotisme, de syndicat de t
 la crise de l'Affaire. J'estime, après les explications fournies, en présence des présomptions graves de tripatouillages du dossier Bidegain, devant l'hypocrisie d''adversaires
 qui condamnent bruyamment chez autrui la prétendue
 pratique de moyens qu'ils n'ont jamais renoncé à mettre en
-œuvre, que le parti républicain faisait assez en condamnant, comme il l'a fait, la méthode de renseignements ma-
-çonniques, mais en se refusant à frapper ou à laisser
+œuvre, que le parti républicain faisait assez en condamnant, comme il l'a fait, la méthode de renseignements maçonniques, mais en se refusant à frapper ou à laisser
 frapper soit des hommes qui avaient se tromper, même
 gravement, dans le feu d'une bataille acharnée, soit surtout
 les officiers républicains, livrés aux représailles de la réaction, de plus en plus maîtresse de l'armée.
@@ -3129,19 +3015,16 @@ dans son expression, de cet état de choses éminemment
 pénible et délicat, qui a été dénoncé à la tribune par la;
 lecture des rapports officiels sur le traitement infligé à des
 officiers, dont le seul tort était d'être républicains ou d'être
-nés israélites. Sans contester qu'une faute et une faute dé-
-plorable ait été commise, je crois que la situation qui nous
+nés israélites. Sans contester qu'une faute et une faute déplorable ait été commise, je crois que la situation qui nous
 est faite par trente ans d'infiltration cléricale et contre- À
 révolutionnaire dans l'état-major nous commandait une
 certaine réserve dans les termes d'une appréciation qui eût
 avoir, après tant d'autres incidents, un contre-coup sur
-la position des ofliciers loyalistes et de la République elle-
-même. Et il me suflit de prêter l'oreille à tous les bruits:
+la position des ofliciers loyalistes et de la République ellemême. Et il me suflit de prêter l'oreille à tous les bruits:
 qui nous parviennent des mess et des casernes, pour me
 convaincre que je n'avais que trop raison et que la perfidie
 ayec laquelle les nationalistes ont transformé et exploité ces
-incidents n'a que trop servi déjà à la revanche de la réaction et qu'il ne reste plus à la République beaucoup de dé-
-faillances à commettre pour achever de décourager et même
+incidents n'a que trop servi déjà à la revanche de la réaction et qu'il ne reste plus à la République beaucoup de défaillances à commettre pour achever de décourager et même
 de désespérer ses trop rares amis, pour ceux auxquels elle
 a confié le dépôt redoutable de la force armée.;
 Ceci dit sur le sujet spécial qui vous a mis la plume à la
@@ -3175,8 +3058,7 @@ d'accepter, voire de solliciter la coopération de tous les
 nuances, venus de tous les points de l'horizon, modérés et
 socialistes, nous fimes campagne avec les anarchistes; et
 vousn'eûtes pas de scrupule — et je vous en félicite — à
-vous joindre à nous pour demander la réparation des iniquités commises en vertu des lois scélérates contre les libertaires: vous revendiquâtes même — si j'ai bonne mé-
-moire — l'honneur d'être rapporteur de la commission
+vous joindre à nous pour demander la réparation des iniquités commises en vertu des lois scélérates contre les libertaires: vous revendiquâtes même — si j'ai bonne mémoire — l'honneur d'être rapporteur de la commission
 formée pour cet objet. Ni vous ni personne alors ne se formalisait de nous voir faire de la politique, la politique
 nécessaire d'une grande bataille, soutenir le ministère
 Waldeck-Rousseau dont les membres n'avaient pas encore
@@ -3223,9 +3105,7 @@ sur la délation de M. Georges Berry au professeur Thalamas. Elle aurait égalem
 de recevoir des leçons de moralité politique de la part des
 partisans de lamnistie scélérate de 1901. Résolue d'éviter
 toute polémique irritante sans esquiver une seule obligation,
-elle se contente de vous exprimer ses regrets d'une démis-
-
-sion qu'elle ne peut s'empêcher de trouver comme vous
+elle se contente de vous exprimer ses regrets d'une démission qu'elle ne peut s'empêcher de trouver comme vous
 
 Agréez, mon cher collègue, l'assurance de mes meilleurs
 
@@ -3268,8 +3148,7 @@ de l'amnistie de 1901, soit de se voir sommer de flétrir les
 prétendues fiches par des hommes qui avaient gardé le
 silence le jour où M. Waldeck-Rousseau avait porté à la
 tribune du Sénat en termes dangereusement élastiques la
-théorie et la défense de la pratique d'une surveillance poli-
-tique portant sur les relations domestiques elles-mêmes.;
+théorie et la défense de la pratique d'une surveillance politique portant sur les relations domestiques elles-mêmes.;
 Enfin j'ai montré à M. Reinach, en retraçant l'activité de
 la Ligue depuis sa fondation, que si quelqu'un avait
 changé, c'était lui, et que si nous pouvions regretter sa
@@ -3307,9 +3186,7 @@ amis me mit en garde contre leurs récits, avant même que
 j'eusse reconnu la déformation habile et l'audacieuse fabrication. »
 
 Les faits, hélas! sont trop certains, et il n'y avait qu'une
-réponse à leur faire, de quelque côté que vint la révéla-
-
-tion: c'était de les condamner.
+réponse à leur faire, de quelque côté que vint la révélation: c'était de les condamner.
 
 Tourner autour du blàme, plaider le doute ou les circonstances atténuantes, ce n'est pas enrayer le mal, c'est l'accroître.
 
@@ -3377,8 +3254,7 @@ Il n'y a pas à s'y tromper; c'est l'obstruction qui a fait
 . de l'instrument qu'ils avaient soigneusement préparé. Ils
 4 … avaient savamment choisi le terrain de leur manœuvre.
 à Admirable chose que le patriotisme professionnel! Il se
-sert du drapeau, qu'il feint d'entourer d'un culte respec-
-tueux, pour toutes les besognes, même les plus abjectes.
+sert du drapeau, qu'il feint d'entourer d'un culte respectueux, pour toutes les besognes, même les plus abjectes.
 Chaque fois qu'il se livre à un fremolo chauvin, il faut se
 demander quel but louche il poursuit, quel sordide intérêt
 — il sert, quelle vilenie il a à cacher ou quel coup il porter
@@ -3408,8 +3284,7 @@ les trop rares officiers républicains n'ont cessé de souffrir!
 
 C'était mal connaître la grande association dont j'ai
 l'honneur d'être le président que de croire que, pour éviter
-d'injustes reproches ou pour prévenir telle ou telle démis-
-sion, elle se prêterait à ce pharisaïsme dangereux. Ses
+d'injustes reproches ou pour prévenir telle ou telle démission, elle se prêterait à ce pharisaïsme dangereux. Ses
 56.000 membres n'en sont pas à quêter des compliments ou
 des brevets de vertu de leurs ennemis. Ils ne tremblent pas
 devant je ne sais quels fantômes. Forts de leur conscience,
@@ -3438,9 +3313,7 @@ aucune autre récompense qu'à celle du devoir accompli et
 qui n'auront même pas la juste renommée de leurs actes,
 carent quia vale sacro, parce qu'ils n'ont pas d'historien à
 leur dévotion et surtout parce qu'ils n'écrivent pas eux.
-mêmes leur apologie sous la forme d'une prétendue his-
-
-toire. Ceux-là, les humbles, les dévoués, nous encouragent
+mêmes leur apologie sous la forme d'une prétendue histoire. Ceux-là, les humbles, les dévoués, nous encouragent
 4 et nous remercient: j'avoue que ce verdict me suffit — avec
 Par malheur, tout le monde, surtout dans les régions par-
 …—._ lementaires, n'a pas l'âme trempée comme ces modestes
@@ -3455,20 +3328,15 @@ D'ailleurs, même s'ils n'avaient pas réussi dans cette besogne, même en const
 A vrai dire il était temps qu'elle y pénétrât. Tous les pays
 —._ de régime représentatif en ont successivement subi la né-
 —. faste influence, depuis que Parnell, par un coup de génie,
-; la créa de toutes pièces à Westminster. L'Angleterre, mal-
-gré des efforts désespérés, en dépit d'une refonte révolu-
-tionnaire du règlement de la Chambre des Communes, n'a
+; la créa de toutes pièces à Westminster. L'Angleterre, malgré des efforts désespérés, en dépit d'une refonte révolutionnaire du règlement de la Chambre des Communes, n'a
 pas encore tout à fait conjuré le fléau. Les États-Unis naissaient depuis longtemps le même ennemi sous le nom
 de flibusterie parlementaire. Tour à tour, pour des causes
 À diverses, au profit de partis opposés, la Belgique, l'Autriche
-ont été envahies. A cette heure, contre un nationalisme elé-
-rical plus ou moins masqué, et qui a d'emblée porté l'ob-
-struction aux dernières limites, la Hongrie doit livrer un
+ont été envahies. A cette heure, contre un nationalisme elérical plus ou moins masqué, et qui a d'emblée porté l'obstruction aux dernières limites, la Hongrie doit livrer un
 Il n'y avait point de raison pour que la France indéfini-
 , ment demeurât indemne. C'est le grand parti nationaliste,
 avec la complicité du centre progressiste et des dissidents,
-qui a inauguré la nouvelle méthode. Depuis le commence-
-ment de la session d'automne, la multiplication des inter2 pellations, leur réitération, le ressassement sans terme des
+qui a inauguré la nouvelle méthode. Depuis le commencement de la session d'automne, la multiplication des inter2 pellations, leur réitération, le ressassement sans terme des
 mêmes déclarations ont interdit à la Chambre de s'occuper
 4 utilement de son ordre du jour.
 a L'opposition a compris que l'heure décisive approchaïit.
@@ -3492,8 +3360,7 @@ d'un impôt sur les revenus.:
 
 Quant au budget, entravé par la discussion de la loi de
 réforme fiscale, plus encore par la pluie des interpellations,
-commission du budget, M. Doumer, qui, les années précé-
-dentes, pressait le vote avec une hâte parfois fort peu respectueuse des droits de la libre discussion, cette année,
+commission du budget, M. Doumer, qui, les années précédentes, pressait le vote avec une hâte parfois fort peu respectueuse des droits de la libre discussion, cette année,
 faire le jeu des obstructionnistes.
 
 On calcule que six semaines ou deux mois de l'année
@@ -3516,17 +3383,13 @@ Il appartient à la majorité républicaine de se prémunir
 contre ce péril... Il lui appartient également de chercher et
 - de trouver les moyens de dompter l'obstruction.… C'est le
 problème qui se pose devant tous les pays libres à l'heure
-où la démocratie s'empare des ressorts du régime parle-
-mentaire et où la contre-révolution s'efforce de les fausser
+où la démocratie s'empare des ressorts du régime parlementaire et où la contre-révolution s'efforce de les fausser
 et de les paralyser.
-Tolérer indéfiniment, par je ne sais quel respect supersti-
-tieux que l'Angleterre conservatrice n'a pas connu, l'ex-
-- ploitation sans scrupules des formes de la liberté dans l'in-
-térêt de la réaction, ce serait l'abdication et la banqueroute
+Tolérer indéfiniment, par je ne sais quel respect superstitieux que l'Angleterre conservatrice n'a pas connu, l'ex-
+- ploitation sans scrupules des formes de la liberté dans l'intérêt de la réaction, ce serait l'abdication et la banqueroute
 de la Révolution. Celle-ci doit des réalités à la démocratie,
 des réformes au prolétariat: elle ne nourrira et ne satis-
-… fera ni l'un ni l'autre avec les viandes creuses de l'obstruc-
-tion, de l'inertie et des parades nationalistes.
+… fera ni l'un ni l'autre avec les viandes creuses de l'obstruction, de l'inertie et des parades nationalistes.
 L'Humanité du mardi 27 décembre publiait la lettre
 A la Ligue des Droits de l'Homme. — Démission
 de M. Guieysse
@@ -3548,8 +3411,7 @@ engagé par vous dans des considérations politiques étrangères à l'esprit de
 Aujourd'hui, par votre article de l'Humanité, vous accen-;
 tuez encore cette tendance; vous vous exprimez en tant,
 que président de la Ligue, et, « fort de votre conscience
-vous considérez comme complices ou dupes des nationa-
-listes les républicains qui ont voté selon leur conscience,
+vous considérez comme complices ou dupes des nationalistes les républicains qui ont voté selon leur conscience,
 sans se préoccuper de la raison d'État, en horreur jadis à
 la Ligue des Droits de l'Homme.
 Comme je ne peux accepter d'être classé ni dans l'une ni
@@ -3558,11 +3420,8 @@ grand regret, de me séparer de collègues pour lesquels
 je conserve toujours une vive et profonde sympathie, et
 de vous adresser ma démission de membre du comité central de la Ligue des Droits de l'Homme. -
 L'Humanité du dimanche premier janvier 1905 publiait de M. Francis de Pressensé un article intitulé la.
-Légion d'Honneur et l'honneur, dont je retiens ce para-
-graphe, uniquement parce qu'il ne faut pas le laisser
-A la date déjà lointaine où ma conception socialiste, pro-
-gressivement élaborée, n'avait pas encore, de par une expé-
-rience irrésistible, entraîné pour corollaire dans mon esprit
+Légion d'Honneur et l'honneur, dont je retiens ce paragraphe, uniquement parce qu'il ne faut pas le laisser
+A la date déjà lointaine où ma conception socialiste, progressivement élaborée, n'avait pas encore, de par une expérience irrésistible, entraîné pour corollaire dans mon esprit
 l'idée d'une méthode nettement révolutionnaire, le ministère des Affaires étrangères avait cru devoir rougir ma
 boutonnière. Ce fut mon front qui se mit à rougir quand,
 à peine lancé dans la bataille pour le droit, je vis à quels
@@ -3577,8 +3436,7 @@ Puisqu'il y au sein du comité central de la Ligue des
 — Droits de l'Homme, un dissentiment rendu public; puisque
 — chacun, à droite, à gauche, libère sa conscience avec un
 peau geste, sans paraître se soucier du résultat; surtout puisque, jusqu'à présent, il n'est apparu que deux
-camps hostiles: les partisans du ministère et les adver-
-saires de la délation; je demande la permission de préciser
+camps hostiles: les partisans du ministère et les adversaires de la délation; je demande la permission de préciser
 …._ une attitude qui fut celle d'un petit groupe, celle des gens
 qui, réprouvant les procédés mis en usage au ministère de
 …._ la guerre, ont souhaité que la Ligue marquât ce blâme, ont
@@ -3591,8 +3449,7 @@ même un peu moins simple que les mécontents ne l'ont
 faite et qu'elle ne semble au public. Et d'abord, il ne s'est
 élevé aucun débat sur la question de principe. Sur le cipe, chose admirable, tout le monde ou presque tout le
 monde fut toujours d'accord. IL était bien clair que la
-— Ligue, après avoir avec énergie, en mainte occasion anté-
-rieure, comme l'a rappelé Pressensé, réclamé la destruction
+— Ligue, après avoir avec énergie, en mainte occasion antérieure, comme l'a rappelé Pressensé, réclamé la destruction
 des dossiers secrets, ne pouvait varier sur ce point et tout
 à coup se démentir. Où la discussion s'est ouverte, c'estsur
 l'opportunité plus ou moins grande d'une manifestation
@@ -3606,8 +3463,7 @@ bläme par des commentaires perfides et de susciter à la
 légère de dangereux malentendus. L'autre, soucieuse avant
 tout de garder à la Ligue sa force, son intégrité historique, sa verdeur, sa saveur primitives, voulait, coûte que
 coûte, la dégager des contingences parlementaires, et, même
-alors ou alors surtout qu'il s'agissait d'amis en faute, mar-
-quer nettement cette faute pour en limiter les effets. Ces
+alors ou alors surtout qu'il s'agissait d'amis en faute, marquer nettement cette faute pour en limiter les effets. Ces
 deux opinions, honorables et défendables l'une et l'autre,
 ont été défendues tour à tour. J'ai fait, pour ma part, ce
 que j'ai pour faire prévaloir la seconde. Mon lucide col-;
@@ -3653,8 +3509,7 @@ partager l'avis dominant à la Ligue. Et je crois savoir, en
 Sue effet, que cette divergence de vues n'entre pour rien dans
 — l'Humanité signé par Francis de Pressensé sous sa respon-
 …. sabilité propre et qui n'engage que lui seul. C'est avoir le
-— départ bien facile surtout lorsqu'en d'autres circons-
-tances, qu'il ne peut avoir oubliées, M. Guieysse, attaqué à
+— départ bien facile surtout lorsqu'en d'autres circonstances, qu'il ne peut avoir oubliées, M. Guieysse, attaqué à
 tort, vit se serrer autour de lui ce mème Comité dont,
 “. aujourd'hui, il se sépare brusquement.
 
@@ -3674,20 +3529,16 @@ quiaime et là, distribuer les vérités rudes toniques,
 — clairsemées, se demande, avec une verte ironie, qui peut
 — bien intéresser le Comité central de la Ligue. Je vais le lui
 dire. Ce qui l'intéresse, c'est ce qui fait sa besogne propre,
-à savoir la réparation quotidienne, incessante, des injus4
-
-la délation aux Droits de l'Homme
+à savoir la réparation quotidienne, incessante, des injusla délation aux Droits de l'Homme
 tices subies. Cette tâche, qui n'a rien à voir avec les débats;
 politiques, qui est rebutante et obscure, ne prête guère à
 beaux effets. Mais ceux qui en sont les victimes, de ces
 dénis de justice sans nombre, la trouvent prodigieusement
 utile. Pages Libres n'a qu'à demander à Mesmin, le
 défenseur des ouvriers de Neuvilly, le rôle joué par la
-Ligue dans la préparation de la défense, dans la contre-
-enquête ordonnée, et elle sera renseignée. Je sais bien que
+Ligue dans la préparation de la défense, dans la contreenquête ordonnée, et elle sera renseignée. Je sais bien que
 nul n'est impeccable! Il est évident, il est déplorable, mais À
-il est fatal, il est humain, que dans un Comité de trente-
-six membres, surtout composé d'hommes libres, il se produise des divisions sur les questions les plus vitales, celles
+il est fatal, il est humain, que dans un Comité de trentesix membres, surtout composé d'hommes libres, il se produise des divisions sur les questions les plus vitales, celles
 mêmes qui sans cesse surgissent dans le parti républicain.
 Oui, sur l'Amnistie, sur les fiches, sur le renvoi ou le -
 non-renvoi devant un conseil de guerre, ces divisions se
@@ -3731,10 +3582,8 @@ caractère secret de pareilles enquêtes, mais contre leur
 caractère « inquisitorial ». Elle aurait fait remarquer non
 seulement que nous étions ainsi frappés par derrière et
 : livrés pieds et poings liés au premier ennemi intime, mais
-; encore qu'en cherchant ainsi à pénétrer dans notre inti-
-mité le gouvernement outrepassait ses droits, que sans
-doute il pouvait nous appeler à rendre compte d'actes pré-
-cisés, non nous juger sur des tendances présumées, qu'au-
+; encore qu'en cherchant ainsi à pénétrer dans notre intimité le gouvernement outrepassait ses droits, que sans
+doute il pouvait nous appeler à rendre compte d'actes précisés, non nous juger sur des tendances présumées, qu'au-
 - Lrement il serait amené à reconstituer en effet des « procès
 de tendances » des « délits d'opinion à organiser enfin
 ce que vous-même appeliez si justement, naguère, la « do-
@@ -3745,15 +3594,11 @@ On nous répond qu'elle aime mieux « choisir son heure ».
 
 la délation aux Droits de l'Homme
 
-— Mais quelle heure mieux choisie que celle où les fonction-
-
-naires dont les droits sont en cause ne sont pas, pour la
+— Mais quelle heure mieux choisie que celle où les fonctionnaires dont les droits sont en cause ne sont pas, pour la
 
 plupart, au nombre de ses amis politiques? Quelle meilleure
 
-occasion de réfuter par le fait, par un acte éclatant, une ca-
-
-lomnie trop répandue, et de prouver une fois de plus que la
+occasion de réfuter par le fait, par un acte éclatant, une calomnie trop répandue, et de prouver une fois de plus que la
 Ligue ne demande pas aux gens, avant de s'intéresser à leur
 
 droit, la couleur de leur opinion?
@@ -3769,7 +3614,7 @@ de justice qu'ils sont les uns et les autres entraînés à
 oublier. Quand on lui demande de rappeler ces principes, et
 de dire les quelques paroles nettes que la conscience publique attend d'elle, se laissera-t-elle juguler — elle qui s'est si
 vaillamment débattue contre la « raison d'État » — par la
-« raison de parti »?
+« raison de parti
 
 Est-ce à dire que nous acceptions pour autant, « la bouche
 ouverte et les yeux fermés » les vertueux commentaires du
@@ -3815,7 +3660,7 @@ Je me suis cru obligé de donner ma démission, non de
 . sans protestation une doctrine qui est l'équivalent de celle
 - du faux patriotique. C'était le faux justifié par la raison
 … d'État, c'est la diffamation justifiée par l'intérêt de parti. Je
-. ne sais lequel est le pire. »:
+. ne sais lequel est le pire.
 LT: Par ménagement pour nos amis politiques, et pour mon
 … collègue et ami [Liguier], qui a été, en cette affaire, absolument candide, je n'ai pas publié ma lettre, mais j'ai tenu à
 me dégager personnellement en écrivant dans un journal
@@ -3919,13 +3764,11 @@ est très loin de me convaincre, et surtout de me satisfaire.
 Si elle traduisait les sentimenis véritables de la Ligue, il.
 vaudrait autant dire que la Ligue, abdiquant toute fonction
 
-moralisatrice, se résigne à n'être plus qu'un club, un grou-
-pement de politiciens n'ayant d'autre idéal que la réussite.
+moralisatrice, se résigne à n'être plus qu'un club, un groupement de politiciens n'ayant d'autre idéal que la réussite.
 par tous les moyens.
 
 Le système de renseignements occultes, tel que le décrit
-M. de Pressensé lui-même aux pages 1572 et 1573 du Bulle-
-tin, est tout à fait inexcusable et il est regrettable de voir le
+M. de Pressensé lui-même aux pages 1572 et 1573 du Bulletin, est tout à fait inexcusable et il est regrettable de voir le
 Comité central accepter à l'unanimité les subtilités au
 moyen desquelles on a cherché à l'excuser. Il fallait, comme
 vous le dites fort bien, un bläme des plus énergiques.
@@ -3995,12 +3838,10 @@ faits allégués aussi bien que sur les principes engagés — les
 partis d'opposition ont entassé les équivoques à plaisir,
 c'est pour la Ligue une raison de plus d'intervenir, de dissiper ces équivoques par un examen direct et approfondi, de
 mettre un terme au trouble des consciences en expliquant:
-clairement ce qui est explicable et en blämant énergique-
-ment ce qui est blämable,
+clairement ce qui est explicable et en blämant énergiquement ce qui est blämable,
 
 Souhaitent que, à propos de l'affaire dite des fiches, la À
-question des droits et des devoirs des différents fonction-
-naires soit évoquée à nouveau par le Comité central.
+question des droits et des devoirs des différents fonctionnaires soit évoquée à nouveau par le Comité central.
 
 une lettre de M. Brunschvicg; Paris:;
 
@@ -4057,8 +3898,7 @@ Nous ne serions pas suivis par tous si nous voulions trop
 la délation aux Droits de l'Homme
 demander. Je crois qu'on pourrait trouver une manière
 convenable de présenter les choses.
-Pressensé est exactement dans l'état d'esprit où se trou-
-vaient beaucoup d'officiers au commencement de l'affaire
+Pressensé est exactement dans l'état d'esprit où se trouvaient beaucoup d'officiers au commencement de l'affaire
 Dreyfus. Ils disaient comme nous: « C'est une sale affaire!
 Il ne faut pas nous laisser entraîner; il faut sauver l'honneur
 de l'armée. » Et ils essayaient des diversions, accusaient
@@ -4104,8 +3944,7 @@ toujours, et parvint immédiatement au Temps, aux
 
 une lettre dont je ne puis déchiffrer la signature:
 
-Je vous envoie ma signature et celle d'un de mes collè-
-gues. Deux autres seraient très disposés à signer; mais ils
+Je vous envoie ma signature et celle d'un de mes collègues. Deux autres seraient très disposés à signer; mais ils
 se demandent s'ils en ont le droit, car voilà plusieurs
 années qu'ils n'ont pas payé de cotisation. Le groupe de
 Grenoble me semble disloqué en fait. Voilà bien longtemps
@@ -4130,9 +3969,7 @@ opposition quelconque. — Cette opposition ne pourrait
 d'ailleurs être bien sérieuse, car je crois que maintenant
 ceux qui veulent la liberté pour les autres comme pour
 eux-mêmes ne sont plus qu'une bien petite minorité dans la À
-Veuillez, cher monsieur, agréer l'expression de mes senti-
-
-un paquet de lettres et de billets; de cartes:
+Veuillez, cher monsieur, agréer l'expression de mes sentiun paquet de lettres et de billets; de cartes:
 J'ai ta protestation. Comme je doute qu'on fasse grand
 chose à Lyon, et comme je suis plus qu'entièrement de ton
 avis, je t'envoie ma pleine et entière adhésion. Restons
@@ -4141,8 +3978,7 @@ Jaurès et Pressensé ne l'aient pas compris.
 Agrégé de Philosophie, docteur es-lettres
 Henry Jagot, ancien directeur du Patriote d'Angers,
 directeur-administrateur du Progrès du Nord, à Lille, et
-ancien président de la section angevine de la Ligue, habi-
-tué à n'attaquer qu'en face ses adversaires, se joint bien
+ancien président de la section angevine de la Ligue, habitué à n'attaquer qu'en face ses adversaires, se joint bien
 volontiers à votre protestation, conforme à l'esprit qui a
 fait se lever tant de Français au nom de la justice et du
 droit, pour défendre un homme victime de documents
@@ -4176,9 +4012,7 @@ Crois bien, mon cher Bouglé, à mes meilleurs sentiments.
 63, rue de Villers, Nancy.
 Membre de la Ligue des Droits de l'Homme, je vous envoie
 mon adhésion à la déclaration que vous proposez. Je
-comptais quitter la Ligue au 1° janvier, mais votre interven87
-
-la délation aux Droits de l'Homme
+comptais quitter la Ligue au 1° janvier, mais votre intervenla délation aux Droits de l'Homme
 tion me fait changer d'avis, en montrant qu'il y a possibilité
 d'y introduire des pratiques meilleures.
 Votre tout dévoué.
@@ -4186,8 +4020,7 @@ Professeur d'histoire au lycée Louis-le-Grand.
 
 M. et madame Léonard Marcou et Marie-Louise, tous les
 trois membres de la Ligue des Droits de l'Homme, membres
-de l'Association nationale des Libres-Penseurs, applaudis-
-sons à votre initiative, approuvons entièrement la superbe;
+de l'Association nationale des Libres-Penseurs, applaudissons à votre initiative, approuvons entièrement la superbe;
 lettre de M. Rist parue dans le « Bulletin et vous envoyons
 notre sincère adhésion.
 
@@ -4196,8 +4029,7 @@ cartes de la Ligue numéros 34.652, 34.653; abonnement au
 Paris, le 29 décembre 1904
 Monsieur Bouglé, Professeur à l'Université de Toulouse
 
-Je viens de lire dans Le Temps la circulaire que vous en-
-voyez à toutes les sections de la Ligue des Droits de
+Je viens de lire dans Le Temps la circulaire que vous envoyez à toutes les sections de la Ligue des Droits de
 l'Homme et veux être des premiers à y adhérer.
 
 Depuis plusieurs jours, je m''emploie moi-même ici à
@@ -4231,11 +4063,10 @@ envoie aussi la seconde lettre de Rist que nous avions à
 é signée: il avait seul signé la première que le Bulletin a
 … reproduite. Les adhésions que nous recevons sont infiniment
 peu nombreuses: une des plus importantes est celle d'Apg pleton, président de la section de Lyon, qui m'a communiqué
-“en même temps le texte d'une lettre écrite par lui à Pres-
-sensé, — mais en me recommandant de ne pas la publier. à
+“en même temps le texte d'une lettre écrite par lui à Pressensé, — mais en me recommandant de ne pas la publier. à
 . Peut-être consentirait-il à vous la donner pour les Cahiers.
 — Si vous voulez lui demander écrivez 33, rue Vaubecour, à
-8 A la hâte, et bien affectueusement à vous.
+A la hâte, et bien affectueusement à vous.
 “. Adhésions reçues par M. Charmont:
 — Micé, doyen de la Faculté de droit, Montpellier.
 De Rovvize, doyen honoraire de la Faculté des sciences,
@@ -4308,8 +4139,7 @@ la délation aux Droits de l'Homme
 empêcher la politique de jouer le premier rôle dans tout À
 cela. Et c'est pour cela que le Comité aurait d'un seul
 mot se dégager de la question politique et dire simplement
-qu'il condamnait avec tout le monde des pratiques blà-
-mables et était prêt à travailler à la réparation des injustices que ces pratiques auraient provoquer.
+qu'il condamnait avec tout le monde des pratiques blàmables et était prêt à travailler à la réparation des injustices que ces pratiques auraient provoquer.
 
 Recevez mes vœux bien affectueux pour vous et les
 vôtres et croyez à mes sentiments tout dévoués.
@@ -4352,7 +4182,7 @@ le lettre de M. de Pressensé répondant à cette protestation,
 - scrupules actuels sont d'ailleurs singulièrement suspects),
 - mais qui devraient leur être laissés pour compte;
 
-4 Estiment me la République est obligée par ses principes
+Estiment me la République est obligée par ses principes
 mêmes de ne s'enquérir qu'au grand jour de la valeur de ses -
 
 - Et appuient les démarches que fera sans tarder le Comité
@@ -4529,9 +4359,7 @@ l'instant qu'il vient d'envoyer sa démission, à la suite de
 l'attitude de la Ligue dans laffaire de la délation. Les ten
 dances trop exclusivement politiques de la Ligue ont causé
 ici plusieurs démissions depuis assez peu de temps
-(M. Bellin, professeur de philosophie, un de nos bons con-
-
-férenciers, MM. Ballue, Grall, ses collègues au lycée, et plusieurs autres parmi les membres les plus sérieux et les
+(M. Bellin, professeur de philosophie, un de nos bons conférenciers, MM. Ballue, Grall, ses collègues au lycée, et plusieurs autres parmi les membres les plus sérieux et les
 
 plus assidus). Plusieurs de mes amis m'écrivent qu'il en,
 
@@ -4654,8 +4482,7 @@ Clairac, le 24 décembre 1904
 … j'ai fini par faire adopter hier à l'unanimité de votants.
 
 - n'est pas aussi catégorique que je l'aurais désiré, mais
-— nous n'avons cédé en somme que sur la forme aux franes-
-maçons, nombreux dans notre section.
+— nous n'avons cédé en somme que sur la forme aux franesmaçons, nombreux dans notre section.
 Si je vous envoie cet ordre du jour, c'est pour vous
 
 . donner un argument (un si léger suffit parfois) de plus qui
@@ -4693,9 +4520,7 @@ la lettre de M. de Pressensé répondant à cette protestation
 N'admettant qu'en aucun cas la fin justifie les moyens,
 expriment leur regret qu'un gouvernement républicain ait
 été entraîné par les circonstances à user pour accomplir
-son œuvre nécessaire et si dificile de laïcisation, de pro-
-
-cédés qu'ont toujours employés les partis de réaction (dont
+son œuvre nécessaire et si dificile de laïcisation, de procédés qu'ont toujours employés les partis de réaction (dont
 les scrupules actuels sont d'ailleurs singulièrement suspects)
 mais qui devraient leur être laissés pour compte;
 
@@ -4709,8 +4534,7 @@ Central pour l'abolition absolue des notes secrètes.
 une lettre de M. Victor Charbonnel:
 
 4: Paris, le 31 décembre 1904
-Je vous transmets quelques signatures. Toutes mes féli-
-citations pour votre heureuse et salutaire initiative,
+Je vous transmets quelques signatures. Toutes mes félicitations pour votre heureuse et salutaire initiative,
 
 Bien cordial souvenir,
 
@@ -4731,10 +4555,9 @@ celle de Reinach, Bourgeois et Guieysse, au prochain renou-
 mais tout le monde sait bien qu'il n'a jamais voulu faire,
 5 à l'intérieur de la Ligue, une manifestation électorale
 contre le Comité; il faut toujours tout publier; et on
-était sûr d'avance que Téry trouverait pour la protesta-
-tion la forme la plus vigoureusement polémique.
+était sûr d'avance que Téry trouverait pour la protestation la forme la plus vigoureusement polémique.
 
-;; C'est moi qui vous ai envoyé le jeudi soir un premier pli
+C'est moi qui vous ai envoyé le jeudi soir un premier pli
 …. recommandé contenant quelques signatures et qui vous en ai
 
 la délation aux Droits de l'Homme
@@ -4805,8 +4628,7 @@ A. Mazusxi, professeur au lycée de Montpellier.
 Monsieur et cher collègue,
 
 J'ai sous les yeux le texte de la déclaration relative à l'af-
-…. faire des fiches que vous avez signée avec messieurs Bon-
-net, Charmont, Meslin, Michaud et je viens vous donner
+…. faire des fiches que vous avez signée avec messieurs Bonnet, Charmont, Meslin, Michaud et je viens vous donner
 mon adhésion.
 
 Permettez-moi en même temps de vous féliciter d'avoir
@@ -4888,8 +4710,7 @@ de l'horizon, elle n'a point pris l'habitude de sacrifier l'honnêteté à la po
 L'Université Populaire qui fut fondée avec enthousiasme
 il y a trois ans et demi probablement fermer abandonnée par son public ouvrier, ses membres participants, ses
 membres fondateurs et jusqu'aux membres ouvriers de son |.
-conseil d'administration. D'où provient cet échec? Indiffé-
-rence brestoise et bretonne, disent les uns; incurie, incuriosité, manque total d'imagination, d'initiative, jalousie,
+conseil d'administration. D'où provient cet échec? Indifférence brestoise et bretonne, disent les uns; incurie, incuriosité, manque total d'imagination, d'initiative, jalousie,
 disent les autres; les municipaux ouvriers, qui doivent une
 partie de leur succès à l''U. P., ne peuvent lui pardonner son
 ancienne importance, les services rendus par les intellec--
@@ -4958,7 +4779,7 @@ droit, en butte alors aux attaques dont vous vous souvenez,
 par des moyens obscurs que vous connaissez.
 
 Aujourd'hui,les mêmes motifs qui m'y avaient fait entrer
-me font un devoir d'en sortir. Car la Ligue ne saurait, à:
+me font un devoir d'en sortir. Car la Ligue ne saurait,
 mes yeux, sans choir lamentablement de son haut idéal,
 trahir son programme, faillir à toutes ses raisons d'exister,
 se solidariser, füt-ce tacitement, avec des procédés qui me
@@ -4983,7 +4804,7 @@ du Rhône, a adopté à l'unanimité, sur la proposition de
 à Le Comité central de la Ligue des Droits de l'Homme,
 - réuni le 16 janvier 1905,
 —._ Invariablement fidèle aux opinions qu'il a toujours défen_ dues publiquement sans attendre les sommations d'aucun
-1 Fidèle au vœu solennellement exprimé par la Ligue dans
+Fidèle au vœu solennellement exprimé par la Ligue dans
 … son congrès d'avril 1904, réclamant l'abolition des notes
 E. Félicite la Chambre d'avoir, conformément à ce vœu,
 “0 manifesté la volonté de supprimer toutes les notes secrètes
@@ -5010,16 +4831,14 @@ l'Humanité une note officieuse ou officielle représentant
 que depuis le commencement de l'affaire des délations:
 la Ligue n'aurait perdu qu'un nombre d'abonnés ou
 d'adhérents égal à tant, et qu'elle en aurait au contraire
-gagné un nombre égal à tant, beaucoup plus considé-
-rable; reste à savoir qui étaient et ce que valaient
+gagné un nombre égal à tant, beaucoup plus considérable; reste à savoir qui étaient et ce que valaient
 ceux qui sont partis, qui étaient et ce que valaient ceux
 qui sont venus; reste à savoir aussi désormais si l'on?
 compter par la quantité seule: je le demande à Gabriel
 Trarieux, qui a bien voulu représenter dans ce cahier
 et devant le public la minorité, non démissionnaire, du
 Comité central; devons-nous interpréter la publication
-de ces statistiques en ce sens que le Comité central au-
-rait l'intention de majoriser son opposition; y aura-t-il
+de ces statistiques en ce sens que le Comité central aurait l'intention de majoriser son opposition; y aura-t-il
 un plébiscite, et un coup de majorité; resterait encore à
 savoir combien de ceux qui restent pensent comme le
 Comité central; mais si la Ligue veut incorporer tous
@@ -5068,9 +4887,7 @@ de M. Charles Rist, professeur à la Faculté de
 
 à montpéliéraine de la Ligue des Droits de
 
-ù l'Homme, Montpellier, 7 novembre 1904, mon-
-
-sieur le Président; la lettre de M. Louis Comte,
+ù l'Homme, Montpellier, 7 novembre 1904, monsieur le Président; la lettre de M. Louis Comte,
 
 ,
 
@@ -5108,41 +4925,31 @@ dans l'Humanité du mercredi 21 décembre 1904,
 M. J. Reinach, une lettre du citoyen de Pressensé,
 Paris, le 20 décembre 1904, mon cher collègue,
 le président, Francis de Pressensé, député du
-Rhône, lettre adoptée à l'unanimité par le Comité central; une note de la Ligue, portant élec-
-
-tion de M. Anatole France au Comité central, à
+Rhône, lettre adoptée à l'unanimité par le Comité central; une note de la Ligue, portant élection de M. Anatole France au Comité central, à
 
 lunanimité, sur la proposition de M. Francis
 
 de Pressensé, en remplacement de M. Joseph
 Reinach, démissionnaire; dans le Petit Temps
 
-du mercredi 21 décembre, une lettre de M. Fran-
-
-cis de Pressensé, député du Rhône, président
+du mercredi 21 décembre, une lettre de M. Francis de Pressensé, député du Rhône, président
 
 É de la Ligue des Droits de l'Homme, Paris, le
 
 20 décembre 1904, monsieur le directeur, et une
-=. réponse de M. Joseph Reinach, Paris, le 20 dé-
-cembre 190%, monsieur le directeur; dans le
+=. réponse de M. Joseph Reinach, Paris, le 20 décembre 190%, monsieur le directeur; dans le
 Temps du jeudi 22 décembre une lettre de
 M. Émile Bourgeois, maître de conférences à
 l'École normale supérieure, membre du comité
-central de la Ligue des Droits de l'Homme, por-
-tant sa démission du Comité, Versailles, 20 dé-
-cembre 1904, mon cher président; dans l''Humanité du dimanche 25 décembre, un article de
+central de la Ligue des Droits de l'Homme, portant sa démission du Comité, Versailles, 20 décembre 1904, mon cher président; dans l''Humanité du dimanche 25 décembre, un article de
 : Francis de Pressensé, l''Obstruction et la Révolu3 tion; dans l'Humanité du mardi 27 décembre, à
 la Ligue des Droits de l'Homme, démission de
 à M. Guieysse, une lettre de M. Paul Guieysse,
-député du Morbihan et membre du comité cen-
-tral de la Ligue des Droits de l'Homme, au
+député du Morbihan et membre du comité central de la Ligue des Droits de l'Homme, au
 5 citoyen Francis de Pressensé, président de la
-Ne de membre du comité; dans l'Humanité du di-
-manche premier janvier 1909 un article de
+Ne de membre du comité; dans l'Humanité du dimanche premier janvier 1909 un article de
 M. Francis de Pressensé intitulé La Légion à
-A d'Honneur et l'honneur, dont retenu un para-
-un article de M. Gabriel Trarieux, pour la
+A d'Honneur et l'honneur, dont retenu un paraun article de M. Gabriel Trarieux, pour la
 à Ligue, non inséré dans l'Aurore;
 dossier Bouglé; une lettre de Bouglé à Jaurès,
 cembre, Toulouse, 26 décembre, mon cher ami,
@@ -5160,9 +4967,7 @@ Goblot, serbor de Can, Caen, Le
 cembre 200£, anon cher collègues: une ire de:
 piolosophar. docteur esdetires, 55, rue VasGrecienr du Panic dingers, reciegr-admi-
 Séent de seen ampgervime de Lipue, Zi, à
-ent de la secüum des Grandes Lurrivres, diz-
-rue Villers, Nancy, 59-212—20£, mon cher Bou-
-îoes trois membres de Lèow des Droits;
+ent de la secüum des Grandes Lurrivres, dizrue Villers, Nancy, 59-212—20£, mon cher Bouîoes trois membres de Lèow des Droits;
 Tone, mnbres Tisossüon ne:
 mal des Libres Penmceuws, 20, bonlvaré PortBaby. ooccti à La Cour de Paris, ancien secré-.
 taire de secüom Qaaräier Latin de la Ligue
@@ -5180,8 +4985,7 @@ FMC envoyé par le président Hollard; une lettre de.
 (0 M. Paul Guieysse, Paris, le 27 décembre 1904,
 : mon cher collègue; A. Alcais, pasteur de FÉglise
 : 15 réformée, Nevers, cher monsieur; le texte mème
-: de la circulaire; adhésions parisiennes; adhé-
-sions envoyées directement à Toulouse; une
+: de la circulaire; adhésions parisiennes; adhésions envoyées directement à Toulouse; une
 Pasquier, président de la section du Havre de la
 . Ligue des Droits de FHomme, 20, rue Félix-Faure,
 le Havre, le 2 janvier 1905, monsieur; deuxième
@@ -5196,8 +5000,7 @@ monsieur, une lettre de M. H. Hollard; séance
 31 décembre cher monsieur; une lettre de
 M. Gustave Téry, le 28 décembre 1904, cher ami;
 une lettre de M. Georges Meslin, Montpellier,
-samedi 5 heures, mon cher ami; Beauvais, 5 jan-
-sier 1905, monsieur Bouglé, une lettre de
+samedi 5 heures, mon cher ami; Beauvais, 5 jansier 1905, monsieur Bouglé, une lettre de
 M. Dejean, professeur de mathématiques,
 d. une lettre de Dick May; ont signé la déelara4 tion; janvier 1905, monsieur et cher collègue,
 une lettre de P. Vallayer, 2, place Puvis-deD Chavannes, Lyon; signatures de Nimes; une
@@ -5214,9 +5017,7 @@ mon cher monsieur; commentaires; dans Le
 Temps du mercredi 18 janvier une lettre de
 démission de M. A. Alcais, pasteur de l'Église
 réformée à Nevers, au président de la section de
-Nevers, monsieur le président; une communi-
-cation officielle du Comité central, portant dési-
-gnation de MM. Armand Dayot, vice-président
+Nevers, monsieur le président; une communication officielle du Comité central, portant désignation de MM. Armand Dayot, vice-président
 des « Bleus de Bretagne et Jules Renard,
 homme de letires, en remplacement de MM.
 Paul Guieysse et Emile Bourgeois, démission- A
@@ -5236,8 +5037,7 @@ suelles régulières et par des souscriptions extraordinaires; la souscription n
 la rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
-ouvrière, d'octobre-novembre à juin-juillet; l'abonne-
-ment se prend pour une série. "2
+ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série. "2
 Le prix de l'abonnement est de vingt francs pour la je
 série. Nous acceptons que nos abonnés paient leur
 abonnement par mensualités de deux francs.
@@ -5246,8 +5046,7 @@ centimes, quatre timbres de quinze centimes.
 Nous engageons nos abonnés de certains pays à nous
 demander un abonnement recommandé; le prix de à
 l'abonnement recommandé est de vingt-cinq francs
-pour la série; tous les cahiers de l'abonnement recom-
-mandé sont empaquetés à part et recommandés à la
+pour la série; tous les cahiers de l'abonnement recommandé sont empaquetés à part et recommandés à la
 poste; la recommandation postale, comportant une
 transmission de signature, garantit le destinataire
 L'abonnement ordinaire cesse de fonctionner pour

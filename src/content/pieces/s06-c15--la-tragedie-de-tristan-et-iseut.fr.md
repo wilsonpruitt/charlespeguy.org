@@ -33,8 +33,7 @@ Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, 4 à
 rez-de-chaussée, Paris, cinquième arrondissement. On recevra en
 Pour savoir ce qui a paru dans les cinq premières séries des
 cahiers, 1900-1904, envoyer un mandat de cinq francs à M. André
-Bourgeois, même adresse; on recevra en retour le catalogue analy-
-tique sommaire, 1900-190f, de nos cinq premières séries, premier
+Bourgeois, même adresse; on recevra en retour le catalogue analytique sommaire, 1900-190f, de nos cinq premières séries, premier
 cahier de la sixième série, un très fort cahier de XII+408 pages
 très denses, in-18, grand jésus, marqué cinq francs.
 Pour s'abonner à la sixième série des cahiers, qui est la
@@ -53,8 +52,7 @@ Le cahier de la sixième série; un cahier vert de 188 pages; octavo
 ES paraissant vingt fois par an
 4 8, rue de la Sorbonne, au rez-de-chaussée
 
-Il est impossible de suivre honnêtement le mouvement litté-
-raire, le mouvement d'art, le mouvement politique et social si
+Il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement politique et social si
 l'on n'est pas abonné aux Cahiers de la Quinzaine. à
 Pour savoir ce que sont les Cahiers de la Quinzaine, il suffit à à
 d'envoyer un mandat de trois francs cinquante à M. André +8)
@@ -62,8 +60,7 @@ Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, nue
 rez-de-chaussée, Paris, cinquième arrondissement. On recevra en Bée
 Pour savoir ce qui a paru dans les cinq premières séries des Mo:
 cahiers, 1900-1904, envoyer un mandat de cinq francs à M. André
-Bourgeois, même adresse; on recevra en retour le catalogue analy-
-tique sommaire, 1900-1904, de nos cinq premières séries, premier
+Bourgeois, même adresse; on recevra en retour le catalogue analytique sommaire, 1900-1904, de nos cinq premières séries, premier
 cahier de la sixième série, un très fort cahier de XI+408 pages:
 très denses, in-18, grand jésus, marqué cinq francs.,
 Pour s'abonner à la sixième série des cahiers, qui est la
@@ -1785,7 +1782,7 @@ Ciel! Ciel! Je te l''apprend
 Moi-même, malgré moi! Mais puisque le torrent
 De mes angoisses rompt mes lèvres au sceau frêle,
 Tant mieux! Tu comprendras quel tourbillon de grêle
-;: Pouvait seul ébranler notre alliance et si
+Pouvait seul ébranler notre alliance et si
 J'ai tort pardonne et plains-moi d'un esprit rassi!
 Ah! laissez-moi rentrer dans le manoir, car toute
 La vérité de vos soupçons, quoi qu'il en coûte,:
@@ -2223,7 +2220,7 @@ Pas! Il n'osera plus!
 Il nous séparera! -
 Il le peut trop.
 Nous pourrons choisir entre
-1 Que la mort plutôt entre é -
+Que la mort plutôt entre é -
 Dans la grotte d'amour!
 Le Iseut, je ne peux pas laisser aux flancs des troncs,:
 Près desquels si souvent vibra notre caresse,
@@ -2394,7 +2391,7 @@ Deux ans! Tristan! Tristan! Où, dans cette minute,
 
 Où donc es-tu? Dans quel palais, dans quelle hutte?
 Ou bien à quels genoux traînes-tu mon oubli?
-:; Il a laissé tout ce temps accompli
+Il a laissé tout ce temps accompli
 Sans me parler de lui! Deux ans sans qu'il envoie
 Un messager! Cruel, pour que je te revoie,
 Quoi, n'as-tu rien tenté? Ne savais-tu donc pas

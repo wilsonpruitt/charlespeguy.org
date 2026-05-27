@@ -28,7 +28,7 @@ plus succinct; pour savoir ce qui a paru dans les cinq
 premières séries des cahiers, il suffit d'envoyer un man
 dat de cinq francs à M. André Bourgeois, administraæ=
 Le teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
-3 Paris, cinquième arrondissement; on recevra en retour Fu)
+Paris, cinquième arrondissement; on recevra en retour Fu)
 Ne le catalogue analytique sommaire, 1900-1904, de nos
 : Ce catalogue a été justement établi pour donner, LE
 autant qu'il se pouvait, une image en bref, un raccourci,
@@ -250,16 +250,14 @@ quai, qui t''attendent.
 — Non, dit Cyrille. Le voilà déjà qui se méfie!
 
 C'est pourtant simple: on ne compte sur moi que
-dans huit jours. Je ne croyais pas attraper ce cour-
-rier. — Nous déjeunerons tête-à-tête, puis tu maccompagneras chez moi.
+dans huit jours. Je ne croyais pas attraper ce courrier. — Nous déjeunerons tête-à-tête, puis tu maccompagneras chez moi.
 — Grands dieux, tu n'allais avoir personne avec
 : qui causer! La
 Dans le même moment, une cohue les bouscula.
 Vars Ils y obéirent. Une heure plus tard, ils s'éloignaient
 à pied du port. «
 — J'étais assis juste devant toi, dit Cyrille.
-Quel cancre tu faisais pour le grec et l'arithmé-
-tique! Je me rappelle tout, nos farces, nos puni-.
+Quel cancre tu faisais pour le grec et l'arithmétique! Je me rappelle tout, nos farces, nos puni-.
 — Je te revois, en rhétorique, dit Renaud, à côté À
 d'un certain Germain.
 Le marin sourit. Il semblait que ce fût à ce souve- À
@@ -271,12 +269,10 @@ plus tôt, je te connaissais?
 — J'en douie. Avant cette année-là, j'étais un si
 À Il prenait par des ruelles écartées.
 
-4 — Je te mène dans un bouge, dit-il. Nous y man-
-gerons mal, mais en paix.
+4 — Je te mène dans un bouge, dit-il. Nous y mangerons mal, mais en paix.
 Et vis-à-vis d'un bâtiment vaste et revêche, il
 s'arrêta sur le seuil d'une gargote. Plancher sablé, à
-tables sans nappe y offraient une apparence si mo-
-deste, qu'il crut devoir expliquer:
+tables sans nappe y offraient une apparence si modeste, qu'il crut devoir expliquer:
 La boutique a changé. L'ancienne était mieux,
 de beaucoup.
 — Tant pis! tu verras que les huîtres sont bonnes.,
@@ -288,7 +284,7 @@ blocs de mieetsans cesse tiraitsa montre, — Renaud
 tint que de maussades réponses. Il fit un dernier et;
 craïntif effort, revint une fois de plus aux souvenirs
 — Et qu'est devenue cette dame qu'on voyait
-— Tante Lucrèce? Elle vit avec ma femme. À; » — Et tu avais ton père, des oncles?:
+— Tante Lucrèce? Elle vit avec ma femme. » — Et tu avais ton père, des oncles?:
 Cyrille dit sèchement::
 — Mieux vaut ne pas parler d'eux!
 . Renaud comprit qu'il avait dit quelque sottise et
@@ -328,9 +324,7 @@ D'un bond il fut debout. Une clameur emplit le
 
 bâtiment d'en face; la poterne s'ouvrit et une troupe
 
-de lycéens se bouscula sur le trottoir. Tous descen-
-
-daient du côté de Cyrille. Il les pouvait dévisager
+de lycéens se bouscula sur le trottoir. Tous descendaient du côté de Cyrille. Il les pouvait dévisager
 
 l'un après l'autre, les deux mains nouées au dossier
 
@@ -365,8 +359,7 @@ Comme Renaud attendait autre chose:
 
 — Plus loin, si tu préfères.
 
-— C'est pour m'amener ici que tu m'as fait mar-
-cher de ce pas!: à
+— C'est pour m'amener ici que tu m'as fait marcher de ce pas!: à
 — Puisque nous y voici, pourquoi te plaindre? À
 Ce sont les seuls beaux arbres de la ville.
 Ses approches éludées, Renaud brusqua
@@ -386,8 +379,7 @@ pourquoi donc sortir de doute? Laisse-moi, par: à
 miséricorde, me leurrer du peu qu'il m'en reste. fi:
 Mais tu me prends pour imbécile!.. Je ne lai que
 à trop reconnu! Rien qu'à voir ses mains tachées
-d'encre. Mes propres mains! Un duvet trop pré-
-coce, un dos voûté!.. Et ce regard, ce port de tête!
+d'encre. Mes propres mains! Un duvet trop précoce, un dos voûté!.. Et ce regard, ce port de tête!
 Je te dis: tout l'enfantvicieux et menteur que j'étais
 alors!... Dommage que tu ne m'aies pas connu! SE
 
@@ -423,8 +415,7 @@ d'hieæ soir. Une fois sufiit.
 Ils marchèrent jusqu'au bout du quinconce. Mais
 on entendit l'heure à quelque église. Renaud dut
 songer qu'il faudrait bientôt partir et sa démangeaison s'aviva.
-— Si je me suis fàché, j'ai tort. J'aurai mal com-
-pris. C'est excusable, conviens-en. Où done en
+— Si je me suis fàché, j'ai tort. J'aurai mal compris. C'est excusable, conviens-en. Où done en
 voulais-tu venir?
 — Je ne sais plus moi-même.
 — Tu parlais d'une certaine affection.
@@ -591,8 +582,7 @@ pas, qu'il ait honte devant les autres? Ici, l'on oublie
 à peu près nos malheurs. Nous nous sommes
 : presque refait une réputation honnête...
 — n'a pas être commode!
-— Nous ne pouvions plus vivre, dit Claire. Pen-
-dant combien d'années nous osions à peine sortir?..
+— Nous ne pouvions plus vivre, dit Claire. Pendant combien d'années nous osions à peine sortir?..
 Voilà Rémy. — Donne-moi la boîte.
 Elle tira d'une enveloppe une houppe de cheveux
 — Tu vois bien qu'ils sont raides comme des
@@ -668,7 +658,7 @@ sans ouvrir les yeux, frappa Cyrille à la figure.
 . naït et se défendait gauchement, les mains molles
 _de sommeil et de rire.
 — Voilà des bras que je voudrais plus durs, dit
-Cyrille en les tâtant. «;
+Cyrille en les tâtant.
 L'enfant gémit:
 — On crie dès que je bouge.
 
@@ -761,8 +751,7 @@ caractère. On la trouve relisant dix fois tes lettres. “4
 1 « Pourquoi écrit-il cette phrase... et celle-là? »
 À — Et que craint-elle?
 o — Des bêtises. Elle s'inquiète pour Rémy. Tu sais
-combien les femmes sont sottes? Mais, sois tran-
-quille, je la sermonne.
+combien les femmes sont sottes? Mais, sois tranquille, je la sermonne.
 ï Il prétexta des affaires en ville, maïs ne s'y attarda À
 que peu. Remontant la rivière, il eut bientôt décou-
 
@@ -881,8 +870,7 @@ raître. IL y avait dans la classe une tirelive où l'on
 serrait de quoi se payer une promenade. Poussé à
 bout, je me fis mettre en retenue et pus, à l'aide d'un
 couteau, tirer cinq pièces. — Quoique je ne fusse
-qu'un petit voyou, c'était la première fois. Forcé-
-ment tout s'est découvert. La fille craignaiït d'être;
+qu'un petit voyou, c'était la première fois. Forcément tout s'est découvert. La fille craignaiït d'être;
 inquiétée; elle me fit mentir et m'empêtrer de plus
 en plus. L'affaire est devenue grave. Sans Germain
 
@@ -898,8 +886,7 @@ temps se fit violence pour ajouter
 par toi-même.
 à 11 s'embrouillait, déconcerté qu'aucun élan ne
 5 répondit au sien. Sa poitrine soulevée se vida... À A
-IL regardait la route... Rémy, tout à penser, ar-
-rachait des herbes.
+IL regardait la route... Rémy, tout à penser, arrachait des herbes.
 Alors, soucieux, impatient d'être autre part,
 le marin se mit à marcher devant. Brusquement
 il se retourna.
@@ -1022,7 +1009,7 @@ tie ns, plus que tu ne peux comprendre. — Tu seras ai
 brave et nous trouverons, va, d'autres amusements. Le
 Si je te donnais une montre, — ou un fusil? Tu
 veux?Ta promets, dis?
-1 Petit à petit, contre son bras, les épaules raides! A
+Petit à petit, contre son bras, les épaules raides! A
 il. s'amollirent, les omoplates cédèrent, la tête se ren- 1108
 versa. Et Cyrille sentit à sa joue le chuchotement
 d'une voix fraîche. 1100
@@ -1046,8 +1033,7 @@ encore, le jour n'était que douteux. La targette
 rouillée résistait. Il secoua si rudement la croisée de
 
 qu'un carreau fêlé sauta dans le vide.
-Alors, sous la matinale lumière, le détail du des-
-sin sortit. Cyrille absorbaïit des yeux, jusqu'à
+Alors, sous la matinale lumière, le détail du dessin sortit. Cyrille absorbaïit des yeux, jusqu'à
 plus voir, un fouillis de traits au crayon. Il s'écar-
 Quand il descendit de ce grenier, un seul souvenir ne.
 lui demeurait: l'étrange son qu'avait sa propre
@@ -1096,12 +1082,10 @@ front. Encore et encore, il changeait sa main de À
 place, puis se donnait tout le recul que permettait la
 mansarde. Pour l'interrompre il fallut un bruit de
 sonnette. D'un coup de canif il détacha la feuille,
-glissa le cadre vide derrière l'armoire; puis ramas-
-sant le foin et balayant les brins épars, il cacha tout
+glissa le cadre vide derrière l'armoire; puis ramassant le foin et balayant les brins épars, il cacha tout
 sous les vieux chiffons.
 Alors, avec mille précautions, il regagna sa
-chambre, ferma sur le dessin les pages d'un diction-
-naire. De la fenêtre, il siffla Rémy:.
+chambre, ferma sur le dessin les pages d'un dictionnaire. De la fenêtre, il siffla Rémy:.
 — Ta mère n'est pas sur le perron?
 — Regarde dans l'antichambre?
 — Pas non plus.
@@ -1219,8 +1203,7 @@ Il tâta, dans son gousset, la clef de la mansarde:
 te dis que je suis pressé.
 
 matin, tandis qu'à sa table, feignant
-JL: d'écrire, il réfléchissait, Claire vint s'accou-
-der au dossier de sa chaise. Il demanda: à
+JL: d'écrire, il réfléchissait, Claire vint s'accouder au dossier de sa chaise. Il demanda: à
 — Où done Rémy s'estil fourré? Je le cherche
 — Je ne lai pas non plus.
 Et doucement, lui passant un bras sous le menton,
@@ -1231,12 +1214,9 @@ du grenier. » Il resta maître de ses mouvements et,:
 immobile, attendit qu'elle fût dehors.;
 Son premier geste rencontra la clef, au fond de la
 poche, comme la veille. « Alors c'est qu'elle vient
-de l'y remettre. » Comment, tout le matin, n'y avait-
+de l'y remettre. » Comment, tout le matin, n'y avaitil pris garde? Il se souvint seulement d'avoir, à
 
-il pris garde? Il se souvint seulement d'avoir, à
-
-son réveil, surpris Claire rôdant déjà par la cham-
-bre. — IL songea: « Pas mal joué! » puis se porta,
+son réveil, surpris Claire rôdant déjà par la chambre. — IL songea: « Pas mal joué! » puis se porta,
 
 soucieux, vers la fenêtre. à
 
@@ -1354,8 +1334,7 @@ côté fuir, finit par se jeter dans la maison. Il demanda, repris d'angoisse
 — Qu'avait-elle affaire à La poste?
 Et il ramassa une feuilie de timbres qu'elle avait
 — La receveuse était gravement souffrante, dit
-la vieille dame. Mais je la croyais guérie. — Vas-
-tu cesser de chiffonner ces timbres!
+la vieille dame. Mais je la croyais guérie. — Vastu cesser de chiffonner ces timbres!
 ‘as — Encore une malade que Claire a soignée!
 — Parfaitement. Et qui lui doit la vie, fit tante
 Lucrèce avec humeur. Qu'est-ce que tu trouves à y
@@ -1432,7 +1411,7 @@ connaissait pas?
 Cyrille l'avait rejoint
 — Il fallait bien lui dire que j'avais changé de
 projets. Elle s'est fâchée.…. J'ai dit: Si tu le prends
-si mal, bonsoir! d'ailleurs à l'avenir, je travaille. —,
+si mal, bonsoir! d'ailleurs à l'avenir, je travaille.
 Alors elle s'est mise en fureur... Elle en a dit!
 . elle en a dit! Que grand-père prêtait à la petite
 semaine. et qu'il s'est servi d'un faux testament.
@@ -1472,8 +1451,7 @@ encore. J'attends demain des lettres... très impor-
 moment que tout s'arrange. Tu deviens homme...
 Ton avenir sera comme tu le souhaites... Que veux- +140
 tu de plus?... Qu'est-ce que c'est que les injures
-net d'une fille? — Avoue, mon petit, que tu étais ab-
-surde. Je veux que tu en ries toi-même... Allons mor
+net d'une fille? — Avoue, mon petit, que tu étais absurde. Je veux que tu en ries toi-même... Allons mor
 
 : Il était enjoué, pressant. Enfin Rémy eut un 0100
 ne incertain mouvement de tête, d'épaules. Il sourit, {AS
@@ -1533,7 +1511,7 @@ Et ne le lâchant point, elle regarda tout autour
 
 de la chambre. — Il comprit:
 … — Sois tranquille, je ne vais pas me tuer!
-16 Et comme elle pâlissait davantage:
+Et comme elle pâlissait davantage:
 
 — Quelle fureur a pris Claire de te mêler à cette
 
@@ -1609,8 +1587,7 @@ pile le regarda stupéfaite:
 … soit faite. C'est compris? Dépéche-toi. Rémy pour-
 … rait revenir. Et ce n'est pas la peine, pauvre femme, A
 w'elle se tourmente plus que de raison. a
-… fallut un moment pour que tante Lucrèce com-
-mençât de comprendre. se
+… fallut un moment pour que tante Lucrèce commençât de comprendre. se
 Je me donnerais, moi, des airs de passer sa
 28 — Tu parles comme une vieille fille. J'imagine
 qu'en seize ans sa faute a le temps de sécher!
@@ -1659,14 +1636,12 @@ faible pour la franchise. Ce fut tout son malheur, — ne
 —. Gette fois la vieille femme éclata:
 — Me voilà édifiée! Tu lis ça. tranquillement!
 Je ne sais où me cacher, tant j'ai honte!
-— Tu mens. Tu crânes. Tu fais l'homme supé-
-rieur... qui n'a pas de chagrin.
+— Tu mens. Tu crânes. Tu fais l'homme supérieur... qui n'a pas de chagrin.
 ; À Je n'en ai pas! Finiras-tu par comprendre!
 Je suis content de ce qui est arrivé. — Non, le
 afond ne pas te crouler sur la tête. — Tu veux
 
-tout? Tu veux 2. La fierté de ma vie, c'est Ger-
-main. et ce sera Rémy, peut-être. Et si ce matin
+tout? Tu veux 2. La fierté de ma vie, c'est Germain. et ce sera Rémy, peut-être. Et si ce matin
 je suis rompu par un excès de bonheur, c'est que je Se.
 le sais son fils, non le mien, — tu entends!— sorti
 de son sang, non de ma malpropre race! De.
@@ -1725,23 +1700,20 @@ n. est chez une amie. Tante Lucrèce la rejoindre. Et
 même à ce sujet nous nous sommes chamaillés...
 Est-ce que tu me crois?
 — Elle est en visite?.. le matin?..
-.… Oui... Je te dis que oui... Maintenant ra-
-conte ce que t'ont fait ces brutes.
+.… Oui... Je te dis que oui... Maintenant raconte ce que t'ont fait ces brutes.
 — Ils t'ont rossé?
 
 L'enfant haussa d'impatientes épaules.
 me plaît que tu ne veuilles pas l'avouer. Me,
 Mais je prétends, moi, porter plainte.
-ne Découragée, la voix mal mûre remontait au faus-
-set d'enfant:
+ne Découragée, la voix mal mûre remontait au fausset d'enfant:
 LA — À quoi servirait-il?... Un traître que nous
 avions mis en quarantaine. On a beau punir ee:
 toute la classe... il a bien fallu qu'il parte... Je ne
 pourrai pas rester non plus...
 De: — Il n'y a pas de rapport. On leur fera com-
 Il dit, repris de colère:
-Et si je rentre. chacun pourra me tour-
-menter... sans que j'ose toucher personne. #4
+Et si je rentre. chacun pourra me tourmenter... sans que j'ose toucher personne. #4
 … Ses mots s'enrouaient. Il cachait d'un de ses
 poings sa figure détournée.
 — Mon pauvre petit, comme ils l'ont démonté? tra
@@ -1764,8 +1736,7 @@ C'en fut trop.
 te démoraliser! Te voir si peu fier me fait mal. Si
 tu savais pourtant... si tu pouvais comprendre à …
 quel point ce sont eux qui se trompent... qui men- È #4
-tent...! Ce qu'ils savent de toi... ce que tu sais toi-
-même... c'est l'apparence... inexacte! En un quart
+tent...! Ce qu'ils savent de toi... ce que tu sais toimême... c'est l'apparence... inexacte! En un quart
 d'heure on n'apprend pas les dessous d'une fa-.
 Ces généralités frappaient le vide. EN
 — Aucune insulte ne te touche, aucune! Qu'est
@@ -1842,7 +1813,7 @@ Nettement il repartit: a
 
 devait tant lui peser? Allons lève-toi. LE
 
-Cette fois elle obéit, mais avec un pénible sourire: 5 à;
+Cette fois elle obéit, mais avec un pénible sourire:
 
 à Cyrille reprit, inquiété d'un croissant malaise:
 
@@ -1879,7 +1850,7 @@ France à chacun de mes retours. Et moi qui l'accu-.
 
 . Elle dit, affolée:
 
-à; — Mais que pouvais-je faire d'autre?.….
+— Mais que pouvais-je faire d'autre?.….
 
 Il s'essuya le front:
 
@@ -1908,7 +1879,7 @@ Moi qui tremblais.. d'être chassée. C'était moins
 La voix faiblit encore: “44
 — Je comprends maintenant l'indignation de nt:
 tante Lucrèce.. et au lieu de revenir... j'aurais
-4 Elle reculait, perdue, les prunelles papillotantes. «
+Elle reculait, perdue, les prunelles papillotantes. «
 . Il voulut la conduire, mais elle fit un furieux écart.
 . Il:dut se borner à lui ouvrir la porte. 2%
 A - Il demeura longtemps, accablé, le front sur une me
@@ -1987,8 +1958,7 @@ il se débattit, repoussa Cyrille. a
 Il ne put dénouer la main qui lui tenait le bras.
 Mais Cyrille, hébété, ne bougeait plus. Ses doigts à
 seulement serraient. Puis, peu à peu. ils se défirent, En
-timides, lâchement attardés sur l'étoffe. Ils tombè-
-rent quand Rémy crut pouvoir s'écarter.— L'enfant
+timides, lâchement attardés sur l'étoffe. Ils tombèrent quand Rémy crut pouvoir s'écarter.— L'enfant
 glissait vers la porte, le cou rentré, comme prêt à se
 garer des mains qui l'y pourraient saisir. Mais à
 l'instant où il ouvrait, une voix rompue se forçait
@@ -2063,8 +2033,7 @@ le noir, Cyrille prit sa valise et son manteau, à
 tâtonna jusqu à la porte et se coula dans le jardin.
 
 …. rez-de-chaussée, Paris, cinquième arrondissement. ds.
-Nos Cahiers sont édités par des souscriptions men-
-un suelles régulières et par des souscriptions extraordi- He.
+Nos Cahiers sont édités par des souscriptions menun suelles régulières et par des souscriptions extraordi- He.
 naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 È FÉ: Nos Cahiers paraissent par séries; une série paraît
@@ -2126,10 +2095,8 @@ au 31 décembre 1905 on pouvait encore avoir pour vingt
 
 francs les dix-sept cahiers de cette sixième série com-
 
-3 A partir du premier janvier qui suit l'achèvement;
+A partir du premier janvier qui suit l'achèvement;
 
 d'une série, le prix de cette série est porté au moins
 
-—. au total des prix marqués; ainsi à dater du pre-
-
-mier janvier 1906 la sixième série complète se vend
+—. au total des prix marqués; ainsi à dater du premier janvier 1906 la sixième série complète se vend

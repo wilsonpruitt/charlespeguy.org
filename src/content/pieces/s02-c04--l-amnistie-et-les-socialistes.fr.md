@@ -18,8 +18,7 @@ d'avoir commis des crimes, les autres de les avoir
 
 Pour les socialistes qui ont pris part à l'Affaire
 Dreyfus, l'amnistie est une faillite. Le but par eux
-poursuivi n'a pas été atteint, qui consistait à dé-
-monter pièce à pièce tout le mécanisme intérieur de
+poursuivi n'a pas été atteint, qui consistait à démonter pièce à pièce tout le mécanisme intérieur de
 l'Affaire, à découvrir jusqu'au bout les grands chefs
 militaires compromis, pour retourner ensuite contre
 le militarisme, par des exemples vivants que la
@@ -69,9 +68,7 @@ tue l'Affaire Dreyfus. Ce sont des raisons de « haute
 politique gouvernementale » qui ont fait voter
 l'amnistie.
 
-Le ministère a voulu consolider sa popularité hé-
-
-sitante, et rassurer, par l'apaisement légal, la petite
+Le ministère a voulu consolider sa popularité hésitante, et rassurer, par l'apaisement légal, la petite
 bourgeoisie française apeurée. Il est incontestable
 que cette petite bourgeoisie — le gros du pays —
 veut la paix et le repos. Son état normal est l'inquiétude mais son aspiration constante est le calme.
@@ -88,8 +85,7 @@ chefs militaires coupables, et aussi de la trop discréditer. Dans ce pays d'hys
 est, malgré tout, l'idole sainte, « l'espoir des revanches futures ». Tous les démocrates bourgeois
 élevés à l'école gambettiste: « Pensons-y toujours,
 mais n'en parlons jamais ont été effrayés des
-conséquences qu'allait engendrer l'évolution nor-
-male de l'Affaire Dreyfus. M. Waldeck-Rousseau
+conséquences qu'allait engendrer l'évolution normale de l'Affaire Dreyfus. M. Waldeck-Rousseau
 était tout désigné pour arrêter le courant, — ainsi
 que Millerand, qui reprocha jadis éloquemment
 M. Méline de laisser en toute impunité attaquer
@@ -97,8 +93,7 @@ l'armée!
 Le gouvernement a espéré aussi enlever tout
 aliment de vie au nationalisme, du moins au nationalisme tapageur de la rue et des démonstrations
 populaires, qui ne vit que de démagogie et de confusion. Il a cru en finir avec l'agitation césarienne,
-d'autant plus qu'il laissait rêver sur la terre espa-
-gnole, loin du pavé parisien, Déroulède et ses
+d'autant plus qu'il laissait rêver sur la terre espagnole, loin du pavé parisien, Déroulède et ses
 Toutes ces raisons expliquent l'attitude du ministère si elles ne l'excusent. On comprend bien aussi
 la conduite des radicaux et des modérés de gouvernement qui l'ont suivi, et dont il servait parfaitement les intérêts électoraux. Mais comment nos
 camarades socialistes de la Chambre se sont-ils
@@ -140,8 +135,7 @@ C'est d'ailleurs naïf de croire que l'Affaire Dreyfus
 finir, parce que M. Waldeck-Rousseau, faisant
 violence à une Chambre facile, l'a voulu ainsi: toutes
 les affaires Cuignet et autres qui peuvent surgir n'en
-rouvriront pas moins le débat, qui ne restera défi68
-nitivement clos que pour les Mercier et semblables
+rouvriront pas moins le débat, qui ne restera définitivement clos que pour les Mercier et semblables
 du Paty de Clam. Pas davantage, ne sera « apaisée »
 la fièvre chronique qui agite le monde de la petite
 bourgeoisie: son inquiétude a des causes moins momentanées et plus profondes.Enfin par cela seul que
@@ -178,17 +172,14 @@ est moins démocratique et plus réactionnaire qu'on
 ne pouvait le supposer; elle montre, ensuite, que le
 socialisme, en l'état actuel de désorganisation, n'est
 pas une force sociale décisive, qui puisse influencer
-les événements dans son sens propre. Et si les élé-
-ments d'extrême-droite ne s'étaient pas trouvés isolés
+les événements dans son sens propre. Et si les éléments d'extrême-droite ne s'étaient pas trouvés isolés
 des éléments d'extrême-gauche, peut-être que les
 intrigues parlementaires et les exigences momentanées de la politique n'auraient pas raison du
 grand élan donné au début de l'Affaire.
 
 De quelque côté que l'on se tourne, quelque point
-qu'on envisage, on retrouve toujours plus impé-
-rieuse la nécessité de l'unité prochaine. Pendantque
-les uns exagèrent leur point de vue révolution-
-naire, voilà que les autres se laissent fasciner par
+qu'on envisage, on retrouve toujours plus impérieuse la nécessité de l'unité prochaine. Pendantque
+les uns exagèrent leur point de vue révolutionnaire, voilà que les autres se laissent fasciner par
 la question ministérielle. C'est de ce dernier côté!04
 que pourrait venir le danger: l'intransigeance
 n'a qu'un temps — la vie en vient toujours à bout

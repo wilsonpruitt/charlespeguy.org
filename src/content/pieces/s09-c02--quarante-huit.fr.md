@@ -19,7 +19,7 @@ force principale vient de l'irréligion. Point de milieu, —
 41 si vous repoussez la religion, laquelle vous dit: « Prie!
 vous glissez au communisme, lequel vous dit:
 44 « Prends! » L'irréligion supprime la foi dans les com-
-,, pensations du ciel; elle aiguise la souffrance des humbles;
+pensations du ciel; elle aiguise la souffrance des humbles;
 elle détruit la résignation: et par suite elle produit la à
 40 haine, l'utopie, les révolutions. Done, il faut rétablirla
 4 foi, notamment dans le peuple, pour prévenir les révo-
@@ -29,8 +29,7 @@ l'Église, et l'Église seule, et toute l'Église. Et M. Thiers
 116 leur objecte: — L'Église! j'y consens, distinguons À
 : toutefois: j'aime le clergé de mon pays, ce clergé péné-;
 à tré de l'idée nationale, ce clergé respectueux de l'État;
-No. mais j'ai moins confiance dans telle et telle congréga-
-tions, qui sont reconnues par l'Église, et nelesont point
+No. mais j'ai moins confiance dans telle et telle congrégations, qui sont reconnues par l'Église, et nelesont point
 14 par l'État. Elles importent des doctrines étrangères. Ré-
 1 servons contre elles, je vous prie, les droits de l'État!.…
 Et les catholiques de reprendre: — L'Église possède la
@@ -43,23 +42,20 @@ vrai, eux aussi veulent toute liberté. Si j'ouvre la porte
 ‘aux jésuites, comment la fermerai-je aux clubs? Si les
 4 congrégations sont libres, comment obtiendrai-je que
 les communistes ne le soïent pas? Cette séquelle est
-bien séduisante. Je redoute Raspail et Blanqui. Réser-
-vons contre eux, je vous prie, les droits de l'Etat!
+bien séduisante. Je redoute Raspail et Blanqui. Réservons contre eux, je vous prie, les droits de l'Etat!
 L'abbé Dupanloup et M. de Montalembert parlent en
 hommes d'Église. M. Thiers parle en homme d'État.
 
 Une pareille divergence de vues ne pas sans diffi-;
 cultés. Son résultat, c'est que M. Thiers offre à l'Église
 
-plus qu'elle n'accepte, en ce qui touche à l'école pri-
-maire, et moins qu'elle ne veut, en ce qui touche à sa ne
+plus qu'elle n'accepte, en ce qui touche à l'école primaire, et moins qu'elle ne veut, en ce qui touche à sa ne
 liberté. Ce dissentiment est bien grave. On finit tout de
 ; même par s'entendre, si on renonce à se persuader.
 
 M. Thiers mène la bataille dans la discussion générale à Ni
 
-sur l'enseignement primaire; et il étonne, par sa capa-
-cité de haïne, même l'historien à qui sa tâche donne pour
+sur l'enseignement primaire; et il étonne, par sa capacité de haïne, même l'historien à qui sa tâche donne pour
 4 méthode et pour sagesse de ne jamais s'étonner de rien. É ‘XÙe
 Selon M. Thiers, les quarante mille instituteurs pri- Ne
 1 maires de France, en 1849, sont autant d'hommes À
@@ -72,7 +68,7 @@ par avidité. Contre eux, son langage ést blessant, sour- je
 débile et sauvage de ses propos s'augmentant de la
 quiétude que lui donne, en un tel sujet, l'unanimité de she
 la Commission. -
-4 Crûment, sa pensée se dévoile, La science est mau-: pa. vaïse, il ne faut pas la propager: « Lire, écrire, compter,
+Crûment, sa pensée se dévoile, La science est mau-: pa. vaïse, il ne faut pas la propager: « Lire, écrire, compter,
 
 LA voilà ce qu'il faut apprendre; quant au reste, cela est
 Me superflu. » Très souvent, ce peu même est trop; car a
@@ -90,8 +86,7 @@ L'instruction ne doit pas être gratuite, car ce serait
 une ruine; elle doit moins encore être obligatoire, car
 ce serait une folie et une tyrannie. Pourtant, il est bon
 que l'État encourage « la publication des petits livres
-ê moraux et utiles, de petits traités de morale, d'écono-
-mie publique. Pas d'économie politique, ne confondons
+ê moraux et utiles, de petits traités de morale, d'économie publique. Pas d'économie politique, ne confondons
 pas, car la manie de l'économie politique a fait tous!
 *1 nos malheurs. »
 le M. Cousin interrompt ici son ami Thiers, glisse cette
@@ -116,8 +111,7 @@ dit le frère Philippe,
 
 , qui depuis vingt ans +0
 
-enseigne la petite classe, dont les qualités sont incontes-
-tables, et qui jamais ne pourrait subir aucun examen. Il ne Ne
+enseigne la petite classe, dont les qualités sont incontestables, et qui jamais ne pourrait subir aucun examen. Il ne Ne
 
 faut pas oublier, en effet, que ce qui fait le bon frère, ce
 n'est pas l'école normale, c'est l'esprit de dévouement; ‘He
@@ -133,11 +127,8 @@ sif des instituteurs. Seulement, « cela est-il prati-:
 
 cable? — Je crains bien que non dit M. Thiers. (1)
 
-On pourrait du moins plier les instituteurs à la disci-
-
-pline militaire, qu'ils ignorent: « J'aime mieux pour
-maître d'école un ancien sous-officier qu'un élève sor-
-tant de l'école normale. » (2) Cela dégorgerait la car- Le
+On pourrait du moins plier les instituteurs à la discipline militaire, qu'ils ignorent: « J'aime mieux pour
+maître d'école un ancien sous-officier qu'un élève sortant de l'école normale. » (2) Cela dégorgerait la car- Le
 à rière. Et au lieu des écoles normales, « véritables petits
 
 … clubssilencieux, foyers des plus mauvaises passions (3)
@@ -191,12 +182,10 @@ Mais il reste deux questions d'importance extrême:
 ; la surveillance des écoles primaires, et le régime
 des écoles normales. La lutte se ramasse sur ces deux
 Pour la surveillance, la sous-commission chargée de
-dégrossir la besogne propose une innovation décentra-
-lisatrice: la création de 86 comités régionaux ou
+dégrossir la besogne propose une innovation décentralisatrice: la création de 86 comités régionaux ou
 Conseils académiques, unissant en eux, — dit le rap- ENT
 port de M. Michel, — toutes les « forces sociales » du
-. département. Ces Conseils seront présidés par les rec-
-teurs, dont le nombre sera porté à quatre-vingt-six au
+. département. Ces Conseils seront présidés par les recteurs, dont le nombre sera porté à quatre-vingt-six au
 lieu de vingt. (L'Université « sera enchantée d'avoir des à
 places à donner observe à ce propos M. Thiers.) (1)
 … Pour membres, ils auront le préfet, l'évêque, un ecclé- Re:
@@ -221,7 +210,7 @@ ee. Cousin finit par comprendre; il s'excuse, il cède de
 514 — Cest là, monsieur Thiers, le résultat qu'a produit
 14 sur mon esprit votre improvisation si pleine de ce bon
 ; à sens qui vous est si ordinaire,
-4 On adopte la proposition.
+On adopte la proposition.
 Mais que faire des écoles normales?
 La charrue rend humble, dit M. Thiers, et l'école
 normale enlève des jeunes gens à la charrue. A l'école
@@ -237,19 +226,16 @@ Fesprit et de l'invasion de l'esprit démagogique dans les
 M. Thiers est énergique, radical; il aspire à la sup- à
 4 pression absolue des écoles normales. Te
 M. de Melun, M. de Riancey plaident pour elles
-M. DE Rrancey. — Il en existe assurément de satisfai-
-santes, ainsi je citerai celle d'Angers.! LA
+M. DE Rrancey. — Il en existe assurément de satisfaisantes, ainsi je citerai celle d'Angers.! LA
 : M. Cousin. — Ah!il y en a donc une bonne enfin? c'est ne
 À bien heureux! y nu:
-M. Twins. — Que m'importe? Je suis ici plus réaction-
-naire que M. de Riancey. C'est un grave danger. J'aime
+M. Twins. — Que m'importe? Je suis ici plus réactionnaire que M. de Riancey. C'est un grave danger. J'aime
 mieux l'instituteur sonneur de cloches que l'instituteur "ei
 mathématicien. La suppression des écoles normales pri-
 à maires, c'est le seul remède eflicace: il faut résolument la
 à prononcer. C'est hardi, j'en conviens, bien hardi... C'est une
 1 mesure d'une audace inouïe. Cependant je ne reculerai pas.
-Je ne suis pas de ces honnêtes gens qui laissent se dévelop-
-per le mal en le voyant, et je m'engage à me faire casser,
+Je ne suis pas de ces honnêtes gens qui laissent se développer le mal en le voyant, et je m'engage à me faire casser,
 sil le faut, bras et jambes à la tribune de l'Assemblée Me
 Cette promesse sensationnelle ne séduit pas la comLA NE. a.
 à mission. Elle ne pas jusqu'à octroyer à M. Thiers
@@ -271,16 +257,13 @@ VUniversité contre l'Église; et il se révèle patriote, vol-
 certificat d'études, exécré des congrégations. Il juge
 nécessaire que l'État sache où les étüdes ont été faites,
 00 et notamment si elles ont été faites en France
-M. Tiers. — été et ce sera toujours une grande dou-
-leur pour moi de savoir, par exemple, qu'à Fribourg on À
-à pu: peut enseigner à de jeunes Français la haine contre le gou-
-vernement de leur pays. (1) à
+M. Tiers. — été et ce sera toujours une grande douleur pour moi de savoir, par exemple, qu'à Fribourg on À
+à pu: peut enseigner à de jeunes Français la haine contre le gouvernement de leur pays. (1) à
 Mais Montalembert n'y tient plus! Cette doctrine exor-
 … bitante lui rend l'ardeur des luttes anciennes: À
 De: — Pour le coup, dit-il, je ne veux point de vos con-
 M. Thiers se lamente, et passe... Puis il a cet aveu
-— J'aurais alors soutenir contre vous les institu-
-teurs primaires! J'aurais dû, au lieu de faire l'enquête
+— J'aurais alors soutenir contre vous les instituteurs primaires! J'aurais dû, au lieu de faire l'enquête
 contre M. Cousin, la faire contre vous!
 (1) H. de Lacombe, page 199. — Allusion à l'éducation donnée à
 Fribourg par les Jésuites, qui furent expulsés de Suisse en 1847.,
@@ -312,13 +295,11 @@ ne fait courir nul péril à la société. M. Dupanloup refuse #1}
 à l'État le droit de « frapper la jeunesse à son effigie ».
 fendre contre un État où l'autorité peut être parfois aux
 À mains d'hommes corrompus ou corrupteurs ». L'abbé A
-54 Dupanloup a raison, c'est la vraie doctrine de la liberté.
-Par malheur, tout à l'heure, il l''atténuera: « En deman-
-dant la liberté de l'Eglise, je ne demande pas pour
+Dupanloup a raison, c'est la vraie doctrine de la liberté.
+Par malheur, tout à l'heure, il l''atténuera: « En demandant la liberté de l'Eglise, je ne demande pas pour
 4 cela [celle] des clubs. » (3) Voilà qui est moins satisfai- #3
 nt: (3) H. de Lacombe, page 295. — Au contraire, M. Thiers avait Et;
-dit: « Oui, l'Eglise veille; oui, je crois comme vous à son auto-
-rité, et je l'aime; mais enfin, avec la liberté absolue, de quel droit me
+dit: « Oui, l'Eglise veille; oui, je crois comme vous à son autorité, et je l'aime; mais enfin, avec la liberté absolue, de quel droit me
 pourriez-vous empêcher Raspail ou Proudhon d'enseigner? Non,
 mille fois non, je wabandonnerai pas le principe essentiel de l'au- À
 : torité de Etat sur l'enseignement. » (Page 190) — Et l'abbé Du-
@@ -339,9 +320,7 @@ Es peuple, la philosophie aux bourgeois
 
 peuple, que les classes élevées ont en 1793 périr la
 
-à société française. Et voici qu'un demi-siècle après, la bour-
-
-geoisie a éprouvé, en 1848, le même sort, pour avoir pendant
+à société française. Et voici qu'un demi-siècle après, la bourgeoisie a éprouvé, en 1848, le même sort, pour avoir pendant
 trente ans cru à ce même mensonge.
 La foi! La foi pour tous!
 Sera-ce donc la guerre? — M. Thiers se sent perdu.
@@ -382,8 +361,7 @@ prenant hardiment la cause des Jésuites, a dit sans ni
 , assurément ne pas tenir les Jésuites pour la perfection ab- Ras:
 solue. Mais elle les considère comme parfaitement innocents ris
 
-de toutes les accusations portées contre eux. C'est sa con-
-viction profonde. Elle n'a, ni ne peut en avoir d'autre. Et pue
+de toutes les accusations portées contre eux. C'est sa conviction profonde. Elle n'a, ni ne peut en avoir d'autre. Et pue
 
 comme l'Église est la Justice, elle ne peut, comme Pilate,
 condamner ce qui est juste et se croire quitte ensuite en se
@@ -408,10 +386,8 @@ a V. — Les « catholiques avant tout » "0
 Le secret fut assez bien gardé sur les débats de la
 Commission. C'est à peine si des bruits de Salons, —
 0 dont la trace se trouve par exemple dans le Journal du …
-1 Le maréchal de Castellane, — en purent faire connaître au
-4 dehors les incidents, les résultats. Le menu de la poli-
-tique, son agrément, son incertitude quotidienne occu-
-de 7! paient l'opinion davantage que ce labeur de haute por-
+Le maréchal de Castellane, — en purent faire connaître au
+4 dehors les incidents, les résultats. Le menu de la politique, son agrément, son incertitude quotidienne occude 7! paient l'opinion davantage que ce labeur de haute por-
 À ME projet devant l'Assemblée Législative; il fat possible
 A d'en lire le texte au Moniteur du 22 juin.
 Chez les républicains, ce fut un scandale, une tris-
@@ -431,7 +407,7 @@ A. Au gré du ministre, la loi se présente comme üñe
 l'état de guerre toujours incertain et risqué un traité de
 paix fructueux et sûr, apte à produire de soi-même
 l'absorption ou la conversion de l'Université par l'Église.
-14 — L'Église ne reçoit pas sur-le-champ tout ce qu'elle est!4
+14 — L'Église ne reçoit pas sur-le-champ tout ce qu'elle
 en droit de souhaiter, d'attendre, mais tout ce qu'il lui
 ù est momentanément permis de solliciter, d'obtenir. Et
 cet avantage est établi d'autant mieux pour lavenir
@@ -446,23 +422,21 @@ provisoirement sa part, puis de le reconquérir, non de;.
 le combattre à outrance et, par là, de labandonner:
 : « Quelques milliers de jeunes gens d'élite, élevés, à à
 à. force de soins et de sacrifices, à l'abri d'une corruption si)
-À générale, ne parviendraient pas, sans miracle, à réfor-
-mer leur patrie. » (3) Pour toutes ces raisons d'aütres
+À générale, ne parviendraient pas, sans miracle, à réformer leur patrie. » (3) Pour toutes ces raisons d'aütres
 …. encore, bien mieux vaüt rapprocher lentement l'Uriver- se
 sité de l'Église, attacher à soi la puissancé universi-
 +4. taire, plutôt que se dresser contre elle et la diriger
-Cette politique réaliste, — toute d'intelligence calcu-
-latrice et d'ambition ferme, mais patiente, — n'est pas ni
+Cette politique réaliste, — toute d'intelligence calculatrice et d'ambition ferme, mais patiente, — n'est pas ni
 faite pour plaire aux exaltés, aux insatiables, aux vio- %.
 (1) Le Parti catholique. Ce qu'il a été. Ce quil est devenu. Paris,
 pan (2) 1bid., page 45. — Et ces « jeunes reclus M. de Falloux doute
 ? même si, leur éducation achevée, on aurait chance de les retenir.
 
 ; Le 2 août 1849. Louis Veuillot écrit dans une lettre ne
-4 Le grand mal de la loi Falloux, c'est qu'elle est un manque À
+Le grand mal de la loi Falloux, c'est qu'elle est un manque À
 44 de foi. Elle proclame que nous ne croyons plus nous-mêmes
 à ce que nous avons tant demandé. Or, comme j'y crois ne
-#4 encore pour ma part, comme je crois que le salut est dans
+4 encore pour ma part, comme je crois que le salut est dans
 4. la liberté de l'Église et n'est que là, je m'en tiens à nos
 vieilles doctrines, et je n'entre point dans un accommode-;
 11 ment qui les outrage. (1)
@@ -473,21 +447,18 @@ De un des nôtres, ce que nous appelons un catholique avant;
 de: Ainsi se décèle le conflit des tempéraments, ainsi se;
 19 déclare cette guerre redoutable que les tenants du
 10 « catholicisme libéral » eurent à soutenir, sous le
-L'Univers du 29 juin 1849 précise ses griefs en don-
-nant cette peinture de la loi: à
+L'Univers du 29 juin 1849 précise ses griefs en donnant cette peinture de la loi: à
 “90 Dans la vaste enceinte du monopole, on:trace un petit De
 enclos dominé de toutes parts. On y place des sentinelles
 40 universitaires, une douane à l'entrée pour les livres, une
-RAT. douane à la sortie pour les examens; on y envoie des in-
-specteurs, et on nous dit: — Plantez-là votre drapeau, c'est
+RAT. douane à la sortie pour les examens; on y envoie des inspecteurs, et on nous dit: — Plantez-là votre drapeau, c'est
 “4 le terrain libre! (2)
 
 : dE. Lettre à Mgr Rendu, évêque d'Annecy. — Correspondance de
-7 Louis Veuillot, tome pages 19 et suivantes.
+Louis Veuillot, tome pages 19 et suivantes.
 
 où L'Univers du 1” juillet conclut: De.
-À L'enseignement de l'Université est diamétralement l'op-
-posé du nôtre. Elle nie ce que nous croyons, elle renverse
+À L'enseignement de l'Université est diamétralement l'opposé du nôtre. Elle nie ce que nous croyons, elle renverse
 3 ce que nous adorons; elle attaque notre histoire, notre
 È morale, nos dogmes; elle ne partage nos sentiments sur
 rien de ce que nous considérons comme vrai, comme utile,
@@ -495,16 +466,15 @@ comme juste, comme nécessaire. Nous ne pouvons faire avec
 elle d'autre pacte que de nous séparer d'elle absolument. (1)
 Le cabinet Odilon Barrot s'est modifié le 2 juin, et
 penche désormais vers le centre gauche. Les embarras
-4 les plus sérieux environnent M. de Falloux. «; ne
+4 les plus sérieux environnent M. de Falloux. ne
 Même, au cours des négociations qui ont décidé son à
 41 maintien aux affaires, il a montré une hésitation (qu'il À
-n'y à nulle raison de croire feinte) à rester ministre, à: à
+n'y à nulle raison de croire feinte) à rester ministre, à
 1 devenir le collègue de MM. Dufaure, de Tocqueville,
 Lanjuinais, à son gré trop démocrates... Mais il a subor-:
 donné toute velléité de retraite aux grands intérêts qu'il
 neût pas été prudent de laisser à des mains indiffé-
-Entre temps, on a bien tenté de changer son porte-
-mettre aux Affaires étrangères; mais il a tenu bon,
+Entre temps, on a bien tenté de changer son portemettre aux Affaires étrangères; mais il a tenu bon,
 gardé son emploi. Ensuite est venue l'heure de présenter
 à ses collègues du ministère le texte de loi où lui-même “1
 a codifié, de concert avec son secrétaire, les avis de la 1"
@@ -526,7 +496,7 @@ Discorde implacable, sans merci, sans trêve. Nul
 7 3 n'est épargné, quel que soit son rang, s'il pactise! Le
 père de Ravignan, jésuite, est dénoncé au général de;
 lordre par un réquisitoire amer. (3) Chaque jour,;
-#3 (1) Parlant de l'influence exercée par M. de Falloux sur le
+3 (1) Parlant de l'influence exercée par M. de Falloux sur le
 prince-président, Tocqueville écrit: « Celui des ministres qui
 0 avait le plus sa confiance était Falloux: j'ai toujours cru que
 celui-ci l'avait gagné par quelque chose de plus substantiel que ce
@@ -549,15 +519,13 @@ te: passion d'adresser à tel ou tel personnage de longues lettres, tou-,
 
 en. VUnivers des Veuillot flétrit les lâches, accuse les LTAR
 traîtres, brandit le registre des désertions.…. Fe.
-L'embarras est grand chez MM. de Falloux, Dupan-
-loup, de Montalembert. Comment la déjouer, cette Mes.
+L'embarras est grand chez MM. de Falloux, Dupanloup, de Montalembert. Comment la déjouer, cette Mes.
 campagne aveugle, sans livrer les pensées précieuses Le
 4 dont la réussite avait le secret pour condition?
 ù Il le faut pourtant, à tout prix, même au prix d'une
 Or, l'occasion vient de commettre cette faute. Dans
 À. une réunion catholique, un certain marquis de Régnon y
-8 prend à partie M. de Falloux sur la question des Con-
-seils départementaux. Le ministre perd volontairement
+8 prend à partie M. de Falloux sur la question des Conseils départementaux. Le ministre perd volontairement
 patience, lance cette réplique décisive: 134)
 M. de Régnon s'est absolument trompé sur l'institution
 1 des nouveaux recteurs. Ce n'est pas, comme il le prétend,
@@ -580,18 +548,17 @@ qu'il avait transmis ma lettre au P. de Ravignan sans me nom-
 1 lembert, Dupanloup dont il était l'ami dévoué. Il a dit qu'il vénérait Ra.
 M. Dupanloup. On voit toutefois par sa lettre qu'il cherche à se
 justifier. La masse des Jésuites en France, tous les Jésuites de De"
-6 Belgique partagent notre manière de voir. » (Lettre de l'abbé
+Belgique partagent notre manière de voir. » (Lettre de l'abbé
 Combalot à Louis Veuillot, du 16 octobre 1849, citée par M. Eu- #4
 
 De: Confession bien osée de la part du grand-maître de
 l'Université! Mais M. de Falloux ne risque rien à la
 4 légère; il était temps, probablement, de s'y résigner.
-74 Au début du mois d'octobre 1849, M. de Falloux A
+Au début du mois d'octobre 1849, M. de Falloux A
 ) 1? partit pour se reposer au château de Stors, près l'Isle-
 Adam, chez le duc de Valmy, en compagnie d'un à
 jeune médecin. Il était malade, mais il n'était pas
-Les affaires romaines avaient pris la meilleure tour-
-nure. La loi d'enseignement se trouvait soumise à une À
+Les affaires romaines avaient pris la meilleure tournure. La loi d'enseignement se trouvait soumise à une À
 Un commission de l'Assemblée qui offrait de sérieuses
 :504 garanties. M. Thiers présidait cette commission. Elle
 avait élu pour rapporteur le comte Beugnot. à
@@ -613,10 +580,8 @@ M. de Parieu était par nature un homme de gouverne-
 4 4 mière heure à la République, bien qu'il fût issu d'une 1500
 famille monarchiste d'Aurillac, où il dirigea un club
 À socialiste, et représentant du Cantal à la Constituante,;
-1 M. de Parieu s'était prononcé, le 5 octobre 1848, dans #4
-un discours fort remarqué, contre l'élection du prési-
-
-dent par le peuple; mais il adhéra par la suite à l'acte
+M. de Parieu s'était prononcé, le 5 octobre 1848, dans #4
+un discours fort remarqué, contre l'élection du président par le peuple; mais il adhéra par la suite à l'acte
 
 du Deux-Décembre et servit fidèlement l'Empire, jus-; de
 
@@ -682,16 +647,14 @@ ordonnées pour Académie de Caen. Les motifs indiqués;
 sont ceux qui suivent: réclusion pour faux (un cas),
 
 : 50 giques, socialistes, anarchiques, sévices envers les
-14 Un membre de la gauche cria, parmi bruit et les rires:
+Un membre de la gauche cria, parmi bruit et les rires:
 
-Yen « Je demande le renvoi du projet de loi au club d'Aurillac! »;
+Yen « Je demande le renvoi du projet de loi au club d'Aurillac!
 +2 (Moniteur, 1849, page 4.006, colonne 1) En 48, M. de Parieu avait
 ue: dirigé à Aurillac « un club dont le nom était caractéristique: le à
-: club Copa-courniore, c'est-à-dire çoupe-cou, littéralement coupe-
-siflet ». (Vermorel, les Hommes de 1851; page 9, en note)
+: club Copa-courniore, c'est-à-dire çoupe-cou, littéralement coupesiflet ». (Vermorel, les Hommes de 1851; page 9, en note)
 
-(oi élèves, incapacité, ivrognerie, fréquentation de caba-
-rets, mauvais traitements conjugaux.… (1)
+(oi élèves, incapacité, ivrognerie, fréquentation de cabarets, mauvais traitements conjugaux.… (1)
 é Uné habile campagne de brochures avait travaillé
 l'opinion. Par exemple, un petit placard de 27 pages,
 publié au Havre (Du Socialisme dans les Campagnes ‘Ti
@@ -732,7 +695,7 @@ Mgr Parisis, évêque de Langres, MM. Poujoulat,
 5 discours de haute et hautaine éloquence; et Victor
 D. Hugo, un discours emphatique et brave. M. Thiers
 . Me: tourna en ridicule son ami M. Barthélemy Saint-Hilaire.
-74 L'adhésion de l'évèque de Langres, malgré ses ré-
+L'adhésion de l'évèque de Langres, malgré ses ré-
 « 10 serves, au texte de la loi, parut un échec pour l'Uni-.
 vers. Enfin, le ministre fut tel que désirait M. de
 Le passage à la discussion des articles fut voté, le
@@ -741,15 +704,12 @@ Le passage à la discussion des articles fut voté, le
 - Outre les orateurs cités, MM. Audren de Kerdrel, de
 Riancey, Beugnot, et MM. Athanase Coquerel, pasteur,;
 . Arnaud (de l'Ariège), démocrate chrétien, Jules Favre,
-3 intervinrent encore dans la discussion, les uns favo-
-rables, les autres contraires. Le débat, très fouillé, très
+3 intervinrent encore dans la discussion, les uns favorables, les autres contraires. Le débat, très fouillé, très
 étendu, fut toujours âpre, presque toujours grand.
 Une motion remarquable vint de l'abbé Edmond de
 ; 4 Cazalès; elle exprimait les dissidences de l'Univers.
 L'abbé demanda que les dignitaires du clergé, — A
-à archevêques, évêques, — fussent exclus du Conseil su-
-
-périeur de l'Instruction publique, où leur admission se- 1,5
+à archevêques, évêques, — fussent exclus du Conseil supérieur de l'Instruction publique, où leur admission se- 1,5
 à rait compromettante pour l'Église: « A-t-on consulté, #18
 disaitil, son chef suprême? » Mais l'amendement Ca-
 , zalès fut rejeté par 396 voix contre
@@ -792,7 +752,7 @@ C'est ainsi qu'Amédée Jacques, directeur de la.
 berté de penser, fut exclu de l'Université. M. Jules
 Simon quitta cette Revue. Et M. Emile Deschanel, prone fesseur au lycée Louis-le-Grand, fut suspendu de ses
 … fonctions pour un article intitulé le Catholicisme et le:
-14 Socialisme, « renfermant diverses attaques contre la
+Socialisme, « renfermant diverses attaques contre la
 210 religion et le clergé catholiques, et contenant profesee sion de socialisme, — écrit de nature à porter scandale
 dans le lycée auquel appartient M. Deschanel et dans
 À l'Université tout entière disait l'arrêté ministériel du
@@ -813,13 +773,11 @@ nibilité, sur censure exercée par l'abbé Gratry, aumê
 nier de l'École, contre les doctrines émises dans le troi- (40
 sième volume de son Histoire critique de l'École: EUR
 Telle est la genèse de la loi du 15 mars 1850. LE
-MM. de Montalembert et l'abbé Dupanloup l'ont pré-
-voter. Mais l'histoire n'est ingrate envers personne en ‘AN
+MM. de Montalembert et l'abbé Dupanloup l'ont prévoter. Mais l'histoire n'est ingrate envers personne en ‘AN
 Bien des gens crient: « Abrogeons-la! » Leur désir n'a je
 guère de portée, car le temps a ruiné une à une ses
 dispositions essentielles. Il ne reste d'elle, aujourd'hui,
-Ê que l'image imprécise du principe qu'elle avait déna-
-turé. Quel que soit l'avenir, ce principe-là court de A
+Ê que l'image imprécise du principe qu'elle avait dénaturé. Quel que soit l'avenir, ce principe-là court de A
 grands risques. Pourtant tout le monde y devrait tenir
 c'est le principe de la liberté.
 
@@ -830,8 +788,7 @@ NS: - jamais ses forces contre la liberté HAT.
 hi: I. — L'assassinat du comte Rossi
 Le 15 novembre 1848, à une heure de l'après-midi, la 1100
 voiture du comte Pellegrino Rossi, premier ministre de et
-Sa Sainteté Pie IX, s'arrêta devant le palais de la Chan-
-cellerie, où siégeait la Chambre des Etats Pontificaux.
+Sa Sainteté Pie IX, s'arrêta devant le palais de la Chancellerie, où siégeait la Chambre des Etats Pontificaux.
 Les députés ne s'étaient pas réunis depuis le 26 août. Ex:
 A cette date, le pape les avait brusquement envoyés en «
 à vacances, et, pendant deux mois et demi, en dépit du
@@ -840,8 +797,7 @@ peuple de Rome, Pie avait gouverné sans eux.;
 Le comte Rossi descendit de voiture: il regarda, et
 à vit la cour du palais remplie d'une populace assez mal
 contenue par des gendarmes en très petit nombre. Des À
-insultes saluèrent le ministre. Rossi eut un froid sou-
-tr: TexrEs ConsuLTÉs. — Nouvelles d'Italie et comptes rendus des
+insultes saluèrent le ministre. Rossi eut un froid soutr: TexrEs ConsuLTÉs. — Nouvelles d'Italie et comptes rendus des
 séances de l'Assemblée nationale publiés au Moniteur. — Mémoires à
 duprince de Metternich. — Comte de Falloux, Mémoires d'un Roya-
 … liste. — Louis Venillot, par Eugène Veuillot. — Bolton King, Histoire;
@@ -891,13 +847,11 @@ ne. Le lendemain, les ministres donnèrent leur démission Ne
 Pie n'avait pas tenté de quitter ses appartements ‘où
 du Quirinal; il y conversait avec les ambassadeurs. A
 ; onze heures du matin, la foule romaine, les carabiniers,
-la garde civique et les troupes de ligne révoltées cou-
-vraient la piazza del Popolo. A midi, trente mille
+la garde civique et les troupes de ligne révoltées couvraient la piazza del Popolo. A midi, trente mille
 h. Romains vont à la Chambre et invitent les députés à
 
 : demander au pape un ministère démocrate, la guerre à
-PAutriche et une Constituante, qui proclamera la fédé-
-te - ration italienne. Pie fait répondre par le cardinal
+PAutriche et une Constituante, qui proclamera la fédéte - ration italienne. Pie fait répondre par le cardinal
 Saglio qu'il y songer. Peu satisfait, le peuple renvoie 3%
 
 ses délégués au palais. Cette fois, Pie déclare qu'il 1%
@@ -923,8 +877,7 @@ Mgr Palma, secrétaire du pape, et plusieurs Suisses Het
 tombent. À cinq heures, on envoie un ultimatum au #3
 0) pape: il a une heure pour céder. Passé ce délai, on
 0 donnera l'assaut, et seul il aura la vie sauve. Pie se
-résigne, et, dans la soirée, charge les démocrates Gal-
-letti et Sterbini de former un ministère.
+résigne, et, dans la soirée, charge les démocrates Galletti et Sterbini de former un ministère.
 Rome illumine. Le peuple et les carabiniers acclament À
 le pape, promènent le drapeau tricolore à la lueur des "3
 à 4 torches, et vont déclamant ce vers du poète italien:
@@ -936,9 +889,7 @@ Apparemment, la « tyrannie » de Pellegrino Rossi
 ne carillons tintèrent à Livourne, dès qu'on connut sa
 0 mort; et les gens de Livourne, avec tambours et ban- À
 nières, s'assemblèrent devant la maison du signor La
-4 « Cecilia, consul romain, afin de le féliciter de la résurrec-
-
-tion de Rome, puis devant le palais du gouverneur
+4 « Cecilia, consul romain, afin de le féliciter de la résurrection de Rome, puis devant le palais du gouverneur
 “160 Pigli, qui se fit voir à la terrasse. Partout, le drapeau
 romain flottait parmi les drapeaux tricolores. Partout, “3
 É — Vive la Constitution italienne! Vive Rome!
@@ -991,8 +942,7 @@ en Pie enfiévrait la foule par le prestige de sa beauté
 4 physique, par le magnétisme de son éloquence et de sa
 
 :6 charité. Dans la chaleur des nuits SAN des pro- Ke:
-cessions s'agenouillaient devant les murailles du Qui-
-rinal et le pape, de son balcon, bénissait le peuple...
+cessions s'agenouillaient devant les murailles du Quirinal et le pape, de son balcon, bénissait le peuple...
 Mais, de Vienne, Metternich surveillait Rome. Le prince ‘#2
 Metternich rencontrait un pape libéral: « C'est le plus
 de grand malheur de l'époque, disait-il. Je n'attendais à
@@ -1042,8 +992,7 @@ compter. Ce forgeron protégeait le pape. nn.
 Le 1° janvier 1848, en l'honneur de l'année nouvelle,
 les gens du peuple vinrent au Quirinal pour s'age-
 
-» nouiller et se faire bénir. Des soldats les ayant repous-
-sés, ils s'indignèrent, accusèrent les jésuites, la police,
+» nouiller et se faire bénir. Des soldats les ayant repoussés, ils s'indignèrent, accusèrent les jésuites, la police,
 +4 les cardinaux, criant: « Vive Pie seul! » Le lende-
 De main, pour dissiper le souvenir de cette maladresse, le
 
@@ -1065,8 +1014,7 @@ L. sable, et promulgue le « Statut fondamental pour le
 Ne” gouvernement temporel des États de l'Église ». A la fin
 de ce même mois, Charles-Albert, roi de Piémont, dé-
 4 clare la guerre à l'Autriche et fait cause commune avec
-Milan et la république de Venise. A Rome, Ciceruac-
-chio exige la guerre. Pie est sombre! Il ne lui plaît
+Milan et la république de Venise. A Rome, Ciceruacchio exige la guerre. Pie est sombre! Il ne lui plaît
 point de combattre une puissance catholique. L'espoir A
 d'être habile, s'il paraît céder, le décide: après tout,
 lancer une expédition, ce serait purger Rome de ces:
@@ -1080,8 +1028,7 @@ passer le fleuve, et se battre. Mais Durando n'osait pas A
 il se risqua à leur dire: « Le pape bénit vos épées! »
 Le pape désavoua son général avec colère. Mais dans
 
-. Rome, Ciceruacchio le faisait trembler. Fort généreuse-
-ment, Pie venait d'ordonner que les murs du Ghetto:
+. Rome, Ciceruacchio le faisait trembler. Fort généreusement, Pie venait d'ordonner que les murs du Ghetto:
 é seraient détruits. Aussitôt, ce prodigieux forgeron avait À
 entrepris de les démolir lui-même et s'y employait avec
 1 tant de zèle que la reconnaissance des Juifs, oublieuse À
@@ -1090,8 +1037,7 @@ ses amis... Or, Ciceruacchio voulait une vraie guerre; 1%
 
 il menaçait d'émeutes et d'un impôt forcé sur les riches.
 Et Pie se lamentait, non sans naïveté:
-ï — On m'avait assuré, disait-il, que tous les révolu-
-tionnaires étaient au camp!
+ï — On m'avait assuré, disait-il, que tous les révolutionnaires étaient au camp!
 Détrompé sur ce point par Ciceruacchio, le pape se a
 à résigne à laisser avancer le général Durando. Sur quoi, À
 ; des évêques allemands, indignés, adressent à Rome des
@@ -1142,8 +1088,7 @@ Mamiani ne pouvait accepter plus longtemps de servir “STE
 août, il congédia la Chambre et, quinze jours après,
 Fabbri lui-même. Ne.
 Puis il fut si suppliant envers l'infortuné comte Rossi “4
-que celui-ci accepta, malgré ses scrupules et sa clair-
-voyance, le poste où son sort était de périr.
+que celui-ci accepta, malgré ses scrupules et sa clairvoyance, le poste où son sort était de périr.
 À Entre temps, le pape avait négocié avec le général
 ; Cavaignac, chef du pouvoir exécutif de la République
 Pie demandait des troupes à la France. Cavaignac;
@@ -1198,7 +1143,7 @@ pour Gaëte. Ce choix vengeait aussi sa rancune, piquait
 la France, allait la contraindre à rivaliser d'empresse- Le
 ment avec l'Autriche à le rétablir dans ses États. Mais
 il n'eût pas été prudent d'en informer le duc d''Harcourt. VER
-1 Une comédie fut arrangée. Le comte et la comtesse
+Une comédie fut arrangée. Le comte et la comtesse
 de Spaur persuadèrent à l'ambassadeur de France que 4 (4
 la route de Civita-Vecchia était trop fréquentée et peu
 sûre pour le voyage de Sa Sainteté. Ils offraient de
@@ -1237,8 +1182,7 @@ ne gouvernement recevait encore ce télégramme de Civitad Vecchia: « Le pape s
 +108 On aménageait déjà le palais des Tuileries pour y
 recevoir Pie IX. Cette dépêche ne tarda pas à faire sou
 a rire sur notre ambassadeur..
-Lorsque tous les faits furent connus, l'émoi fut consi-
-dérable. Rossi était peu aimé, (1) mais fort connu à
+Lorsque tous les faits furent connus, l'émoi fut considérable. Rossi était peu aimé, (1) mais fort connu à
 nil (1) La duchesse de Sagan lui fait cette oraison funèbre: « Je
 ne” l'avais connu dans le salon de madame de Broglie; plus tard, je
 l'avais revu ambassadeur de France à Rome. Il m'avait paru astuDR: cieux et prétentieux; moins noble de caractère, mais plus spirituel
@@ -1263,12 +1207,10 @@ Le lundi, à Assemblée, le représentant Bixio demande
 . absents; l'interpellation est remise au lendemain. ES
 Hors séance, les ministres désignent M. de Corcelie,
 député de la droite catholique, comme envoyé extra-
-À ordinaire auprès du pape. Le soir même, M. de Cor-
-celle prend le train pour Marseille. (2) Ses instructions:
+À ordinaire auprès du pape. Le soir même, M. de Corcelle prend le train pour Marseille. (2) Ses instructions:
 Voir plus haut notre Précis historique de la loi Falloux,
 ; pages 59 et suivantes.
-(2) LE GÉNÉRAL CAvAIGNAC: « M. de Corcelle s'est rendu directe-
-ment au chemin de fer, attendu qu'il était trop tard pour aller à la
+(2) LE GÉNÉRAL CAvAIGNAC: « M. de Corcelle s'est rendu directement au chemin de fer, attendu qu'il était trop tard pour aller à la
 malle-poste. » (Séance du 30 novembre 1848; Moniteur de 1848, je
 114 page 3.417, colonne 2) Le général Cavaignac cite Bourges et Saint-
 À Etienne comme deux points auxquels il eût été possible de télé-
@@ -1300,8 +1242,7 @@ Il arrive à Pie ce qui est arrivé à tous les papes qui l'ont
 1848, on voit que le voyageur parisien, désireux de se rendre à
 Marseille en 1848, pouvait aller de Paris à Nevers par chemin de
 De - fer; puis de Nevers à Roanne en voiture, car ce tronçon était
-_4 « concédé et en cours de construction mais non livré à la cireu-
-lation; puis de Roanne à Lyon par chemin de fer; de Lyon à Avi- (
+_4 « concédé et en cours de construction mais non livré à la cireulation; puis de Roanne à Lyon par chemin de fer; de Lyon à Avi- (
 à gnon en bateau à vapeur; et enfin d'Avignon à Marseille par chene. min de fer. Tels furent donc l'itinéraire et les moyens de transport
 
 ièà précédé. Comme homme il est italien. Comme pape il est
@@ -1310,7 +1251,7 @@ cosmopolite. Qui veut-on protéger: le peuple, ou le prince?
 La nationälité, ou l'obstacle éternel à la nationalité? Dans Ne
 
 le cas où un gouvernement républicain finirait par s'établir
-: dans Rome sans le pape, en dehors du pape, la République à;
+: dans Rome sans le pape, en dehors du pape, la République
 
 française se croira-t-elle obligée d'étouffer la république
 
@@ -1323,10 +1264,8 @@ c'est attenter, dans son principe, à la nationalité italienne, et
 
 ..
 reprit les questions d'Edgar Quinet.
-A la veille de l'élection présidentielle, les républi-
-cains, si le gouvernement les eût consultés avant d'agir, NRi
-auraient presque tous voté cette expédition qui préten-
-daitse limiter à la protection de la personne du pape; “3
+A la veille de l'élection présidentielle, les républicains, si le gouvernement les eût consultés avant d'agir, NRi
+auraient presque tous voté cette expédition qui prétendaitse limiter à la protection de la personne du pape; “3
 : ils étaient surtout fächés que le général Cavaignac les
 eût privés devant le pays du mérite et du bénéfice de
 l'initiative.
@@ -1344,7 +1283,7 @@ poussé à cette démonstration qu'à titre de réclame électorale... »
 — « Et vous avez parfaitement raison interrompit M. Odilon
 Barrot, devenu président du conseil. (Moniteur, 1849, page 3.297, +1
 
-4 Cavaignac, comme pour les narguer, avait répondu par “ai
+Cavaignac, comme pour les narguer, avait répondu par “ai
 un oui bref à la question par laquelle on lui demandait
 110 si la brigade de Marseille avait partir sans attendre
 100 la délibération de l'Assemblée.
@@ -1364,8 +1303,7 @@ De 4 ‘avait alors sommé le pape Grégoire XVI de renoncer
 cement la liberté et l'autorité du Souverain Pontife
 “he il n'avait appuyer par son vote « une démonstration
 D. militaire qui lui semblait dangereuse pour les intérêts
-4 sacrés que l'on voulait protéger et de nature à compro-
-mettre la paix de l'Europe ».
+4 sacrés que l'on voulait protéger et de nature à compromettre la paix de l'Europe ».
 M. Eugène Veuillot écrit à ce sujet: « L'explication
 14 était habile et même bonne. Elle plut beaucoup aux
 (1) Eugène Veuillot, Louis Veuillot, tome Il, page
@@ -1404,14 +1342,11 @@ toutes. Celle de Louis Veuillot et la mienne ne lui man-
 Cette chimère, — d'encourager et d'aider l'Italie à
 conquérir sa nationalité, mais en lui refusant Rome Re.
 
-pour capitale, — c'est déjà, envers l'Italie, toute la poli-
-
-tique de l'empereur Napoléon III. À
+pour capitale, — c'est déjà, envers l'Italie, toute la politique de l'empereur Napoléon III. À
 
 san Le général Cavaignac ne fut pas élu président de la À
 République, et, par suite, la brigade Mollière resta à
-! Le mauvais état de la mer avait d'abord retenu plu-
-ne sieurs jours l'escadre au mouillage. Le gouvernement
+! Le mauvais état de la mer avait d'abord retenu plune sieurs jours l'escadre au mouillage. Le gouvernement
 hésita ensuite à la faire partir. Enfin, le 12 décembre,
 a..surlendemain de l'élection à la présidence, les troupes À
 ; reçurent l'ordre de reprendre leurs casernements.
@@ -1440,9 +1375,7 @@ venait de proclamer la République. Un triumvirat gou- Que,
 vernait Rome. Le père Ventura, théatin, et le père +.
 barnabite Ugo Bassi, moines patriotes, s'étaient déclarés D.;
 
-pour les Romains contre le pape. Les riches abandon-
-
-naient la ville, qui fut vite soumise à la dictature de Eee
+pour les Romains contre le pape. Les riches abandonnaient la ville, qui fut vite soumise à la dictature de Eee
 - Mazzini triumvir. Les monopoles du tabac et du sel Le.
 furent supprimés; les palais de la Sainte-Inquisition
 
@@ -1462,8 +1395,7 @@ des navires. Un maréchal autrichien marcha sur Bo-
 Que devait faire la France?
 ; Mgr Fornari, nonce du pape, avait conservé à Paris
 son rôle officiel. Le prince-président refusait de recon- #0
-É naître la République romaine et d'entendre ses ambas-
-sadeurs; il eût aimé s'en tenir là. Mais moyen de
+É naître la République romaine et d'entendre ses ambassadeurs; il eût aimé s'en tenir là. Mais moyen de
 laisser le champ libre à l'Autriche? Le prince était
 pris entre l'insistance des catholiques, leur Mise en ‘+2
 demeure de secourir le pape, et les fureurs encore.
@@ -1493,9 +1425,7 @@ Le débat dura deux jours, (n) et fut clos par un disUn: cours considérable de 
 - L'occasion paraît bonne à M. Thiers pour infliger ses
 
 ‘us sarcasmes rétrospectifs à la politique extérieure du Eur.
-je Gouvernement provisoire. Les traités de 1815 sont tou-
-
-jours debout! Personne (par bonheur) ma pris au”
+je Gouvernement provisoire. Les traités de 1815 sont toujours debout! Personne (par bonheur) ma pris au”
 sérieux le Manifeste adressé par M. de Lamartine aux
 puissances! Thiers défie la gauche de demander la
 guerre pour le Piémont, contre l'Autriche. La France
@@ -1515,13 +1445,11 @@ dans les mains, de ridicules perturbateurs qui n'ont pas
 la défendre. /Vive interruption à gauche. — Applaudisse-
 ; Malgré Ledru-Rollin, Jules Favre et Cavaignac, mal- An
 gré les souvenirs d'une séance récente où Lamartine
-avait éloquemment soutenu la politique de son Mani-
-feste, (1) l'Assemblée adopta la motion Bixio. Elle ne
+avait éloquemment soutenu la politique de son Manifeste, (1) l'Assemblée adopta la motion Bixio. Elle ne
 (1) Pourtant Lamartine, à cette séance du 9 mars, avait défendu Le
 et interprété le Manifeste avec une entière liberté d'esprit, et
 même parlé sévèrement « de ce qu'on appelle la république ro- À
-maine cette « démagogie qui a mal débuté dans la voie de la li-
-berté au point de soulevèr plusieurs fois les rumeurs de la +4
+maine cette « démagogie qui a mal débuté dans la voie de la liberté au point de soulevèr plusieurs fois les rumeurs de la +4
 
 À pouvait s'y méprendre, €'était un blane-seing au pouvoir
 exécutif. Mais M. Odilon Barrot, président du conseil, de à
@@ -1537,9 +1465,7 @@ Tréhouart reçut le commandement de l'escadre. Ces
 nominations ne furent pas insérées au Moniteur: « Le;
 nn: gouvernement, observe à ce propos M. René Bittard des
 
-: #8 Portes, cherchait à dissimuler l'importance et le véri-
-
-ee: table caractère de l'expédition. » (1) Mais M. Odilon
+: #8 Portes, cherchait à dissimuler l'importance et le vériee: table caractère de l'expédition. » (1) Mais M. Odilon
 no. Barrot obtint, le 16 avril, un crédit de douze cent mille
 .
 : francs pour l'entretien, sur pied de guerre, pendant;
@@ -1553,17 +1479,15 @@ Pa: national qu'il convient au plus petit peuple de la terre de se;
 1/3 donner, s'ensuit-il, avait dit Lamartine, que le Gouvernement
 
 ÉTTER français soit impérativement condamné, par son nom de Répu- À
-#4 biique française, à faire immédiatement alliance solidaire avec
+4 biique française, à faire immédiatement alliance solidaire avec
 o tous les gouvernements auxquels il conviendrait de s'appliquer
 
-W': cette dénomination de république? Non, mille fois non! » (Moni-
-ds: teur, 1849, page 780) Et Lamartine avait conclu à Pintervention di-
+W': cette dénomination de république? Non, mille fois non! » (Monids: teur, 1849, page 780) Et Lamartine avait conclu à Pintervention di-
 
 à plomatique. Le 31 mars, il s'abstint dans le vote sur la motion
 (1) L'Expédition française de Rome sous la Deuxième République,
 "4 d'après des documents inédits, page 20. — On suit avec intérêt les;
-1 opérations du corps expéditionnaire dans cet ouvrage très catho-
-lique, et qui est remarquablement documenté au point de vue mi- À
+1 opérations du corps expéditionnaire dans cet ouvrage très catholique, et qui est remarquablement documenté au point de vue mi- À
 
 qu'il convenait d'interdire, au contraire, qu'une « res- “TS
 tauration » se fit dans les États Romains en dehors de
@@ -1571,14 +1495,11 @@ l'influence et des principes de la France, et reconnut Fous:
 ainsi qu'il convenait de restaurer le pape. 1748
 VW. — Les Français devant Rome- À
 Les troupes françaises débarquèrent à Civita-Vecchia,
-le 25 avril 1849. On raconta qu'elles s'étaient embar-
-quées en criant: « Vive la République romaine! » Mais
+le 25 avril 1849. On raconta qu'elles s'étaient embarquées en criant: « Vive la République romaine! » Mais
 . cette rumeur tendancieuse fut démentie par le préfet des
 Bouches-du-Rhône.
 Le général Oudinot avait reçu l'ordrede ne marcher
-sur Rome que s'il avait la certitude d'y être bien ac-
-cueilli; toutefois, il était autorisé à encourager « l'expres-
-sion des vœux de la partie honnête de la population ». +.
+sur Rome que s'il avait la certitude d'y être bien accueilli; toutefois, il était autorisé à encourager « l'expression des vœux de la partie honnête de la population ». +.
 A Civita-Vecchia, le peuple du port fit fête aux soldats
 français. Le général conjectura que l'accueil serait le
 même, s'il allait occuper Rome. Il y envoya trois ofli-
@@ -1603,7 +1524,7 @@ Te Les triumvirs lancèrent un appel aux armes. Gari-
 44: ployait à fortifier les faubourgs. La belle et passionnée!
 2701 princesse Cristina Belgiojoso organisait les ambulances.
 ‘en 1 Le général Oudinot marcha sur Rome, il disait: « Les
-Italiens ne se battent pas. »!
+Italiens ne se battent pas.
 Le ministère de la guerre avait omis d'envoyer des
 2 cartes topographiques, et plus d'une fois dans la journée
 PA: on se trompa de route. L'assaut fut enfin donné aux
@@ -1612,7 +1533,7 @@ battaient, contrairement aux prévisions du général. Et -
 4 dans les intervalles du combat, ils criaient: « Siamo
 ne amici! Siamo fratelli! La pace, la pace! » firent;
 4 trois cent soixante-cinq prisonniers, tuèrent ou bles-
-:: Mélancoliquement, Oudinot fit sonner la retraite, s'en
+Mélancoliquement, Oudinot fit sonner la retraite, s'en
 4 fut bivouaquer à Palo, et écrivit à Paris: « Ce n'était.
 À à point un siège que nous voulions faire, mais une forte!
 . (1) Communication de M. le général Espivent de la Villeboisnet,
@@ -1642,8 +1563,7 @@ au conseil des ministres, un matin, à l'Élysée. Le prince te
 
 lui montra M. Odilon Barrot, affalé dans un fauteuil.
 
-: Les ministres s'occupaient à rendre des forces au prési-
-dént du Conseil: — Soyez ferme devant l'Assemblée,
+: Les ministres s'occupaient à rendre des forces au présidént du Conseil: — Soyez ferme devant l'Assemblée,
 
 À lui dirent-ils, il faut réparer cet échec. Sans quoi, ne
 
@@ -1704,8 +1624,7 @@ ne: de Saint-Priest écrit à M. de Barante: « Manque-t-il;
 
 quelque chose à la république, et n'est-ce pas le comble
 1) de la gloire que d'avoir été repoussée par la république a à
-romaine? En attendant, la lettre du président au géné-
-ral Oudinot est fort bien. » (1) (30
+romaine? En attendant, la lettre du président au général Oudinot est fort bien. » (1) (30
 Le vendredi 11 mai, la Constituante refusa de mettre
 le prince en accusation, et même de blämer le ministère. rire
 Les élections générales étaient fixées au surlendemain,
@@ -1722,8 +1641,7 @@ M. Odilon Barrot n'avait pas dit à l'Assemblée, et
 4 peut-être ignorait-il que M. de Lesseps emportait la Ph:
 lettre du prince-président, afin de la rémettre en mains
 (1) Souvenirs du baron de Barante, tome VII, page
-« (2) De leur côté, les républicains ne s'interdisent point les nou-
-velles inexactes et impressionnantes. On lit, par exemple, aux
+« (2) De leur côté, les républicains ne s'interdisent point les nouvelles inexactes et impressionnantes. On lit, par exemple, aux
 « dernières nouvelles » du 12 mai, dans La Révolution démocratique
 et sociale, organe de Ch. Delescluze: « On nous assure ce soir que
 le gouvernement a reçu une dépêche télégraphique donnant des «
@@ -1740,7 +1658,7 @@ D. tero. — Le 15 mai 1849, il se présenta au quartier-
 Le général Oudinot n'attendait point sa visite et la
 À reçut avec une froideur polie. M. de Lesseps lui remit
 LA la lettre du prince, et partit pour Rome.
-4 Sa mission ne fut pas heureuse; il croyait la tâche
+Sa mission ne fut pas heureuse; il croyait la tâche
 plus aisée qu'elle n'était réellement. M. de Lesseps vit
 De: Mazzini, et lui remit un projet de convention qui recon-
 4 naissait aux États Romains le droit de choisir « libre-
@@ -1768,10 +1686,8 @@ porte la plus grave atteinte à la dignité et aux intérêts
 de la France, non moins qu'à l'honneur militaire. » (1)
 M. de Lesseps, lorsqu'il sortait ‘en voiture, était pi:
 insulté et menacé par la plèbe romaine. A la fin, lassé,
-il revient à la villa Santucci. Le général Oudinot con-
-tresigne son projet de convention, rejeté par Mazzini,
-et tous deux l'expédient aux triumvirs, comme ultima-
-tum à régler dans les vingt-quatre heures.
+il revient à la villa Santucci. Le général Oudinot contresigne son projet de convention, rejeté par Mazzini,
+et tous deux l'expédient aux triumvirs, comme ultimatum à régler dans les vingt-quatre heures.
 Les triumvirs les font traîner. A l'insu de M. de Les- « Ni
 seps, Oudinot occupe les hauteurs du Monte Mario.
 Courageusement, M. de Lesseps rentre dans Rome et 3.54
@@ -1784,8 +1700,7 @@ Santucci. Oudinot furieux l'expulse.… à
 Le diplomate avertit alors le général qu'il s'en à
 Rome, puis à Paris, et lui défend de bouger avant de Me
 connaître la décision du gouvernement français. Tandis ‘sa
-; (1) M. René Bittard des Portes (ouvrage cilé, pages 151 et sui-
-vantes) a publié toute la correspondance entre le général Oudinot
+; (1) M. René Bittard des Portes (ouvrage cilé, pages 151 et suivantes) a publié toute la correspondance entre le général Oudinot
 et M. de Lesseps, d'après le dossier du Conseil d'Etat et les papiers (4
 du général de Tinan. — Le récent volume de MM. Emile Bour- que
 geois et E. Clermont sur Zome et Napoléon IIT apporte à son tour
@@ -1817,20 +1732,17 @@ ner des beautés de Rome, se contenta de canonner Je misé-
 4 rable quartier du Transtévère, où demeuraient les
 pauvres gens, et de renouveler ses assauts..
 
-à 4 La défense, héroïque, fut digne des héritiers de l'an-
-tique République romaine. Mais les Romains, mal
+à 4 La défense, héroïque, fut digne des héritiers de l'antique République romaine. Mais les Romains, mal
 armés, avaient deux ou trois fois moins de monde que
 1 l'armée d'investissement. Le 3 juillet 1849, au matin, la
 
 colonne française fit son entrée solennelle dans Rome;
 vaincue. De nombreux papistes l'acclamaient au pasFe sage: « Viva la Francia! Evviva l'Oudinot! »
-10 Voir la lettre du comte Alexis de Saint-Priest à M. de Ba-
+Voir la lettre du comte Alexis de Saint-Priest à M. de Ba-
 : 0 rante, 6 juin 1849. (Souvenirs du baron de Barante, tome VI, pages
 
 sd) A l'entrée du Corso, un petit groupe osa siffler:?
-bas le pape! A bas les prêtres! Dehors les Fran-
-
-çais! Vive la République romaine! » Un peu plus loin, 4108
+bas le pape! A bas les prêtres! Dehors les Français! Vive la République romaine! » Un peu plus loin, 4108
 sur la piazza Colonna, devant la colonne de Marc-
 Aurèle, Henri Cernuschi et ses amis agitaient le drapeau
 italien. Le général Oudinot et ses officiers, outrés,
@@ -1850,8 +1762,7 @@ Montagne, avant de se brouiller elle-même avec le
 accusation. Cent cinquante voix de majorité lui donnent
 tort. La Constitution, violée, n'est plus défendue par le
 ) pouvoir compétent. En ce cas, la Montagne affirme Fe:
-le droit du peuple à linsurrection. Ledru-Rollin pro-
-voque donc, pour le 13 juin, à ce qu'il nomme une
+le droit du peuple à linsurrection. Ledru-Rollin provoque donc, pour le 13 juin, à ce qu'il nomme une
 « manifestation pacifique » dans la rue. — Ainsi averti, Dee
 l'Élysée prit ses précautions. Le colonel de Goyon
 balaya les boulevards avec ses dragons, et les chas- KE.
@@ -1866,12 +1777,10 @@ Versailles, parla plus tard en ces termes des insurgés du
 des blessures, c'est par derrière et avec nos bottes que
 je ne nous les avons faites. » (1) Comme les avocats protesji! taient, cet officier se tourna vers eux et leur dit: « Vous
 êtes tous des jf...! » (2) L'état de siège fut mis à
-Paris et dans seize départements. Les journaux républi-
-cains furent suspendus, et leurs bureaux occupés miliM tairement. Le prince-président adressa une proclamation
+Paris et dans seize départements. Les journaux républicains furent suspendus, et leurs bureaux occupés miliM tairement. Le prince-président adressa une proclamation
 10 au peuple français: « Il est temps, disait-il, que les
 bons se rassurent et que les méchants tremblent. »
-a Le 9 juillet, l'Assemblée Législative vota des remer-
-ni ciements à l'armée expéditionnaire et à ses chefs, pour
+a Le 9 juillet, l'Assemblée Législative vota des remerni ciements à l'armée expéditionnaire et à ses chefs, pour
 14 avoir « concilier dignement les devoirs de la guerre
 101 avec le respect à la capitale du monde chrétien ».
 Si Le drapeau pontifical, jaune et blanc, fut hissé au
@@ -1898,8 +1807,7 @@ de ce sagace cardinal. (2) Fort ingénument, la France
 avait accepté de restaurer le pape, mais à condition qu'il #4
 modérât lui-même l'exercice du pouvoir temporel. (3) La à
 (1) Garibaldi s'expatria aux États-Unis. Dans sa retraite pénible
-à travers les Romagnes, il perdit sa femme très aimée, Anita Gari-
-baldi, qui mourut de fièvre et de fatigue dans la Pineta de Ravenne, ah
+à travers les Romagnes, il perdit sa femme très aimée, Anita Garibaldi, qui mourut de fièvre et de fatigue dans la Pineta de Ravenne, ah
 où on voit encore la cabane qui abrita son agonie. Le moine Ugo VER
 Bassi fut capturé, torturé, mis à mort par les Autrichiens; VItalie AU
 le révère comme un martyr. Ciceruacchio et ses enfants furent
@@ -1908,8 +1816,7 @@ et gouverneur de l'Erythrée, après avoir cette étude, a bien LOS
 voulu m'informer qu'un des fils de Ciceruacchio échappa pour- (18
 tant: « celui qui, comme on l'a depuis, avait tué Pellegrino
 (2) « Le pape. plus enlacé qu'il ne l'imaginait lui-même dans net
-la politique, indécise en apparence, rétrograde en réalité, du car-
-dinai Antonelli.. » (Falloux, Mémoires d'un Royaliste, tome pre- SAS
+la politique, indécise en apparence, rétrograde en réalité, du cardinai Antonelli.. » (Falloux, Mémoires d'un Royaliste, tome pre- SAS
 M. DE TOCQUEVILLE, ministre des Affaires étrangères: « Je ice
 suis fondé à dire que, selon les vues et les désirs primitifs de la
 France, notre expédition de Rome devait aboutir à une restaura- c'e
@@ -1965,14 +1872,11 @@ Rome. Roïde de ton, cette lettre disait: « La Répu-
 (1) Falloux, Mémoires d'un Royaliste, tome premier, page 525. —
 Le 19 août, MM. de Corcelle et de Rayneval déclarent, dans une Re.
 note au cardinal Antonelli, « ils ont avec la plus profonde
-douleur et le plus vif regret, par la déclaration du cardinal prose-
-crétaire d'Etat à la dernière conférence, que les intentions du +412 » gouvernement pontifical ne répondaient pas exactement à l'attente 3180
+douleur et le plus vif regret, par la déclaration du cardinal prosecrétaire d'Etat à la dernière conférence, que les intentions du +412 » gouvernement pontifical ne répondaient pas exactement à l'attente 3180
 , du cabinet français ». (Moniteur, 1849, page 3.210, colonne 2) NE
 (2) M. de Falloux disait au nonce, Mgr Fornari: « Je n'ignore LE!
 pas que vous devez négocier avec cinq ou six grandes puissances te.
-dont les vues sont fort divergentes; mais il y a une grande puis-
-sance que vous négligez trop, c'est l'opinion publique. Pour gou-
-verner le monde, il faut d'abord le convertir; pour diminuer la
+dont les vues sont fort divergentes; mais il y a une grande puissance que vous négligez trop, c'est l'opinion publique. Pour gouverner le monde, il faut d'abord le convertir; pour diminuer la
 foule et l'obstination des exigences, il faut au moins en renvoyer
 quelques-unes satisfaites. Depuis trois siècles et plus, la vieille
 Europe assiste à un monotone et triste spectacle; en matière de
@@ -1992,9 +1896,9 @@ Comme la lettre était déjà partie, M. de Falloux se
 ne fit du moins promettre qu'elle ne serait pas publiée. à
 Elle le fut quand même, et fit sensation.
 Pie IX, suffoqué, quitta Gaëte, à son gré trop voisine
-À, encore des Français, et fut se mettre en sûreté à Portici,
+encore des Français, et fut se mettre en sûreté à Portici,
 dans le palais du roi de Naples. Antonelli parlait de le
-12 Tenir bon, c'était exposer la France aux conséquences
+Tenir bon, c'était exposer la France aux conséquences
 formidables, à l'intérieur et au dehors, d'une rupture
 « avec le pape, — peut-être à la guerre avec l'Autriche.
 Le cabinet français négocia, recula, sollicita des proN messes. De Portici, le 13 septembre, Pie lance un
@@ -2016,8 +1920,7 @@ semblée l'apologie du motu proprio et de la politique “4
 accomplie à Rome. Le parti catholique éprouvait sa
 fidélité sur les affaires romaines, comme sur la liberté
 de l'enseignement. Une belle réplique de Victor Hugo
-valut au poète d'éloquentes insolences de Montalem-
-bert. Enfin l'Assemblée, par 469 voix contre 180, te
+valut au poète d'éloquentes insolences de Montalembert. Enfin l'Assemblée, par 469 voix contre 180, te
 approuva l'occupation de Rome et la restauration de
 l'absolutisme pontifical. De.
 Pie IX, apaisé, rentra le 12 avril 1850 dans Rome si- NON
@@ -2039,8 +1942,7 @@ Ne écrits des socialistes... Il est facilede
 ! comprendre tout le crédit que peu- A
 ; vent obtenir de semblables écrits sur “14
 l'esprit faible et inculte d'ouvriers PS.
-dont on flatte d'ailleurs tous les inté-
-rêts matériels. est la véritable
+dont on flatte d'ailleurs tous les intérêts matériels. est la véritable
 "1088 plaie de l'époque, et on doit recon
 naître que chaque année elle fait de
 
@@ -2057,8 +1959,7 @@ est un sentiment naturel aux « pouvoirs forts et con- 4 à.
 Les Bourbons méprisaient et redoutaient la presse; ne
 leur entourage, plus encore. L'abbé de Montesquiou,
 ministre de Louis XVIII, dota done la monarchie de
-la censure préalable, applicable à tous les écrits infé-
-rieurs à vingt feuilles d'impression. Un peu plus tard, le É<.
+la censure préalable, applicable à tous les écrits inférieurs à vingt feuilles d'impression. Un peu plus tard, le É<.
 système du cautionnement remplaça, sans guère l'atté-
 - nuer, le système de la censure. Dés inventions très sub- We:
 tiles s'employèrent à ligoter la presse: on imagina contre #4
@@ -2076,8 +1977,7 @@ si a attentats et soulèvements républicains, rend ses avan-
 adoptées par les Chambres. Le public les nomme: lois
 de septembre. Une de ces lois concerne la presse: elle
 soumet à la censure les caricatures et pièces de théâtre,
-double le cautionnement exigé des journaux, punit sé-
-vèrement de très élastiques délits de presse.
+double le cautionnement exigé des journaux, punit sévèrement de très élastiques délits de presse.
 Aussitôt, les journaux sont contraints de devenir.
 leurs propres censeurs. Armand Carrel (1) observe à ce
 À On n'écrit pas tout ce qu'on pense, et l'on ne publie pas
@@ -2093,8 +1993,7 @@ fois vingt-quatre heures! Combien de choses, qu'on croit
 Mais les lois de septembre n'ont retirer au jury;
 3 sa compétence: il la tient de la Charte. Des acquitte-
 : 7 ments frondeurs font scandale, insultent la personne du
-His roi. Puis, jusqu'aux flernières années du règne, la pro-
-pâgande socialiste (athée ou chrétienne) se multiplie et
+His roi. Puis, jusqu'aux flernières années du règne, la propâgande socialiste (athée ou chrétienne) se multiplie et
 ne: s'infiltre par le journal, la brochure, le livre.;
 Un rapport de M. Gabriel Delessert, préfet de police
 (1) Cité par Henri Avenel, Histoire de la Presse française, page
@@ -2119,18 +2018,15 @@ est la véritable plaie de l'époque, et on doit reconnaître à
 É que chaque année elle fait de nouveaux progrès. Un pareil
 état de choses me paraït de nature à éveiller la haute solli- ‘Ne
 È citude du Gouvernement. E:.
-M. Delessert n'avait pas tort: le rêve d'une palingé-
-nésie de justice et de bonheur était vraiment dans les
+M. Delessert n'avait pas tort: le rêve d'une palingénésie de justice et de bonheur était vraiment dans les
 - âmes. Un an plus tard, M. Delessert dut prendre la route
-de Londres et abandonner ses appartements de la pré-
-fecture de police à son successeur imprévu, ce bon vivant 1:18)
+de Londres et abandonner ses appartements de la préfecture de police à son successeur imprévu, ce bon vivant 1:18)
 de Caussidière.
 Le 2 mars 1848, une délégation de journalistes se
 présente à l'Hôtel de Ville. Ces journalistes viennent ‘Le
 demander l'abolition de l'impôt du timbre. he.
 4 (1) Reoue rétrospective, ou Archives secrètes du dernier Gouverne-
-4 (2) Au lieu de faible, on lit facile dans le texte de la Reoue rétro-
-spective (page 95); mais cela semble une coquille.
+4 (2) Au lieu de faible, on lit facile dans le texte de la Reoue rétrospective (page 95); mais cela semble une coquille.
 
 a M. Garnier-Pagès les reçoit et leur parle avec HER
 0 leur dit-il,
@@ -2151,8 +2047,7 @@ limpôt du timbre qui füt lourd, pénible, dur, il n'y aurait
 à pauvre. Et cette Révolution a été faite par le pauvre et
 Ê pour le peuple! La première chose qu'il faut sauver, c'est la,
 He. République! Si nous touchons aux recettes, sans pouvoir
-a combiner cette suppression de recettes avec les autres im-
-pôts, nous porterons une atteinte profonde au crédit. Or,
+a combiner cette suppression de recettes avec les autres impôts, nous porterons une atteinte profonde au crédit. Or,
 il faut que le crédit et la confiance se rétablissent le plus
 tôt possible et il faut que, les moyens les plus rapides,
 “4 nous venions en aide aux misères du peuple. Notre em-
@@ -2196,13 +2091,11 @@ réclamations de la presse, cessera d'être en vigueur, nous le rédui-
 Pimpôt du timbre. » Cest un « impôt de spoliation, qui ravit aux
 travailleurs de la presse la moitié du fruit légitime de leur tra-
 1 vail ». C'est un impôt « usuraire sur le pain quotidien de l'intelli-
-; gence »: la monarchie l'avait institué, non pour le Trésor, qu'il
+; gence la monarchie l'avait institué, non pour le Trésor, qu'il
 enrichit guère, mais pour faire de la presse « un monopole ne
 accessible seulement aux gros capitaux pour enlever aux ‘re
 È masses « un puissant véhicule d'éducation ». — Pendant deux jours,
-le prix du numéro monte à 20 centimes et le prix de l'abonne-
-ment (pour Paris) à 48 francs. Ensuite, le Gouvernement provi-
-soire ayant cédé, le prix de l'exemplaire tombe et se maintient à
+le prix du numéro monte à 20 centimes et le prix de l'abonnement (pour Paris) à 48 francs. Ensuite, le Gouvernement provisoire ayant cédé, le prix de l'exemplaire tombe et se maintient à
 4 15 centimes; le prix de l'abonnement à 30 francs.
 Ce journal, — la République française, — avait pour rédacteurs et
 fondateurs MM. Frédéric Bastiat, de Molinari, Hippolyte Castille À
@@ -2213,7 +2106,7 @@ citoyens à la République; le Gouvernement provisoire.
 214 ne peut tenir pour un simple revenu fiscal un impôt
 134 politique, comme l'impôt du timbre. L'impôt du timbre;
 10 est supprimé.
-0 La rançon de cet allégement consenti aux journalistes
+La rançon de cet allégement consenti aux journalistes
 
 (HER fut offerte au public par le même décret. L'administra-
 
@@ -2242,27 +2135,22 @@ moyen d'atteindre ce double but est de rétablir la prompte cireu-
 T'Ne de tous les points de la République établissent que la perception à
 
 7448) des impôts s'opère régulièrement, et que de toutes parts la mani-
-Le festation d'un véritable patriotisme fait espérer des rentrées conti-
-
-mer nues et fructueuses; — Considérant que le Trésor a dès à présent à
+Le festation d'un véritable patriotisme fait espérer des rentrées contimer nues et fructueuses; — Considérant que le Trésor a dès à présent à
 sa disposition le numéraire nécessaire à l'acquittement du semestre
 
 des rentes 5 0/0, 4 1/2 0/0, et 4 o/o; — Considérant que lanticipa-
 
 TER tion du semestre, favorable à tant d'intérêts, n'occasionne aucune
-(7 perte au Trésor; — Considérant que les dépenses de tous les ser-
-vices sont couvertes par les recettes dont la réalisation est assurée À
+(7 perte au Trésor; — Considérant que les dépenses de tous les services sont couvertes par les recettes dont la réalisation est assurée À
 
 par le retour à l'ordre et par la sécurité de tous; — Arrête ce qui
 suit: — Le payement du semestre des rentes 5 0/0, 4 1/2 o/o, et
 EL). 4 oJo, échéant le 29 mars courant, s'effectuera à Paris et dans les
 départements, aux caisses ordinaires, savoir: — A Paris, à dater 4 » ANT
 
-septembre. Le Gouvernement provisoire eut à enregis-
-trer leur mort. Elles furent supprimées et flétries par
+septembre. Le Gouvernement provisoire eut à enregistrer leur mort. Elles furent supprimées et flétries par
 
-décret du 6 mars. Ce décret livrait à la presse les pré-
-mices de la loi maternelle qu'elle se promettait de la
+décret du 6 mars. Ce décret livrait à la presse les prémices de la loi maternelle qu'elle se promettait de la
 
 Voici la presse libre, on se flatte qu'elle sera sincère
 et généreuse! Une sensibilité optimiste amollit, à ce
@@ -2305,8 +2193,7 @@ Seconde République française, tome premier, page 152) écrit avec
 lataneries quon lui imposait, démissionna le lendemain 5 mars
 et fut remplacé comme ministre par Garnier-Pagès.
 
-4 siècle ambitieux d'agréments immédiats et de commo-
-dités matérielles, Girardin a pourvu ses contemporains
+4 siècle ambitieux d'agréments immédiats et de commodités matérielles, Girardin a pourvu ses contemporains
 
 du journalisme de leurs besoins: journalisme d'intérêts
 
@@ -2319,9 +2206,7 @@ Mois Relisez cette note de l'an où Rœderer, sur un rana 4 contar de Fouché, (
 
 164 soldés par la perfide Angleterre: « Dix mille abonnés,
 RES ajoute Rœderer, ne peuvent s'obtenir que d'un scandale
-NX, permanent qui attire tous les regards, et du trafic jour-
-
-nalier de l'intérêt public, soit avec l'étranger, soit avec
+NX, permanent qui attire tous les regards, et du trafic journalier de l'intérêt public, soit avec l'étranger, soit avec
 les passions aveugles qu'une révolution récente laisse
 
 48 encore allumées dans toutes les âmes. » (2)
@@ -2343,14 +2228,11 @@ mais ne parut point. Rœderer établissait ainsi le décompte des
 Xe! ï 10.000 abonnés: 2.000 abonnements de fondation; 3,000 abonnements!
 payés par l'Angleterre; 1.500 abonnés attirés par l'industrie et les
 « gueulées » d'un rédacteur « baladin 1.500 abonnés-dupes, qui À
-croient le journal dans les secrets du gouvernement; 2.000 mécon-
-tents et contre-révolutionnaires. À
+croient le journal dans les secrets du gouvernement; 2.000 mécontents et contre-révolutionnaires. À
 
 dence probable du journal d'opinion, dans un temps
 donné; la vulgarisation possible, à l'infini, du quoti- PAS
-dien:; le rôle de la publicité, comme ressource mécon-
-
-nue et fondamentale de la presse; et, dans le budget
+dien:; le rôle de la publicité, comme ressource méconnue et fondamentale de la presse; et, dans le budget
 d'un journal, l'importance relativement médiocre du aie
 prix de vente, l'importance au contraire immense et
 seule essentielle du contingent de ses lecteurs. En effet,
@@ -2365,13 +2247,10 @@ perdre sur l'exemplaire, on le gagnera sur la quantité.: “1
 Au temps de Girardin, une masse latente existe en- à
 
 core, masse énorme et très malléable, bien plus pro- A
-ductive qu'elle ne sait elle-même. Petits bourgeois, pe-
-
-tits commerçants, petits rentiers, ouvriers même et
+ductive qu'elle ne sait elle-même. Petits bourgeois, petits commerçants, petits rentiers, ouvriers même et
 paysans, qui ne lisent point chaque jour une gazette et +4
 
-qui la liraient chaque jour, si leur bourse pouvait con-
-sentir à cette dépense. Hier, le journal était un luxe; il « Le
+qui la liraient chaque jour, si leur bourse pouvait consentir à cette dépense. Hier, le journal était un luxe; il « Le
 
 faut qu'il devienne une nécessité. Argent, domination,
 honneurs, faveur du public, des financiers et du pou- À
@@ -2380,9 +2259,7 @@ décupleront au cours du siècle, par le génie de Girardin,
 à créateur de la presse à bon marché.
 
 L'immoralité du système ne lui est sans doute jamais
-apparue. Vraisemblablement il n'en vit que les avan-
-tages, presque les beautés: la connaissance et la cri-
-tique de la vie publique accessibles au pauvre, ne se È à
+apparue. Vraisemblablement il n'en vit que les avantages, presque les beautés: la connaissance et la critique de la vie publique accessibles au pauvre, ne se È à
 dérobant plus aux déshérités; la force accrue de
 
 l'opinion mieux éclairée et plus diffuse imposant à
@@ -2425,8 +2302,7 @@ masque, troque son banal personnage contre un nom si
 retentissant, presque illustre, et s'approprie d'autorité la
 particule authentique de son père devant la nature, le
 général comte Alexandre de Girardin, quine proteste pas.
-Quatre ans plus tard, ‘Emile Delamothe, ainsi trans-
-formé en Émile de Girardin, épouse Delphine Gay, fille "HUE
+Quatre ans plus tard, ‘Emile Delamothe, ainsi transformé en Émile de Girardin, épouse Delphine Gay, fille "HUE
 de Sophie Gay, belle compagne et intelligente conseil- 4 A
 lère. Entre temps, les journaux qu'il fonde affermissent
 sa notoriété, continuent son apprentissage, mais sans "ES
@@ -2443,8 +2319,7 @@ Un jour, Girardin trouver Dutacq, financier de Ati
 renouveler le journalisme, en réalisant toutes les res-
 . sources, encore cachées ou mal explorées, de la presse.
 Son plan est très simple. (1) à
-Le prix normal de l'abonnement aux grands quoti-
-diens est de 80 francs par an. C'est trop cher, beaucoup À;
+Le prix normal de l'abonnement aux grands quotidiens est de 80 francs par an. C'est trop cher, beaucoup
 
 Voir le prospectus initial de la Presse, et la théorie de la
 publicité développée par Emile de Girardin dans son Journal des
@@ -2562,13 +2437,12 @@ Girardin; mais un commerce indécis, puéril, et qui
 1 faire surgir une industrie. Avec lui, la presse s'organise
 44 -en instrument économique, prend conscience des forces
 4 qu'elle recèle, s'équilibre aux forces ambiantes.
-Les journaux de toutes les provenances avaient com-
-battu et refusé la réforme de Girardin. Tous, peu à peu,
+Les journaux de toutes les provenances avaient combattu et refusé la réforme de Girardin. Tous, peu à peu,
 34 cèdent et suivent. Sauf les prudents et paisibles
 Débats, sûrs d'une clientèle fière de payer cher et qui
 afferment déjà à un bon prix leur dernière page; sauf
 A encore l'ancien National d'Armand Carrel, (2) tous les
-1 Voir La Revue rétrospective, 1848, pages 62 ntm
+Voir La Revue rétrospective, 1848, pages 62 ntm
 (2) Le prix de l'abonnement au Vational est de soixante francs
 par an jusqu'au 6 mars 1848. Le 9 mars, il s'abaisse à quarante
 francs, comme conséquence de labolition de l'impôt du timbre.
@@ -2590,8 +2464,7 @@ Désormais, l'article de tête ou Premier-Paris porte un
 fouetter sa curiosité, sa paresse ou sa fantaisie. A la
 Presse en particulier, Girardin sent vivement limpor- er.
 tance d'alléger le journal. Son effort quotidien est de
-découvrir pour ses articles des titres stridents et pro-
-metteurs, d'émietter sa prose dans le clinquant des on
+découvrir pour ses articles des titres stridents et prometteurs, d'émietter sa prose dans le clinquant des on
 Ce journal paiera « noblement » ses rédacteurs, c'est En.
 l'expression du prospectus... Entendez par que la
 Presse rétribue comme il convient les grands noms
@@ -2623,10 +2496,9 @@ Pt, naires de s'en plaindre... Le bon public s'en lave les:
 mains. On lui livre un journal supérieurement ma-
 19 chiné, truqué, et rédigé par des maîtres. On le lui
 livre, ouvertement, fort au-dessous de la dépense
-Ù de revient. C'est parfait, c'est très agréable. Seule-
-ment, c'est trop beau... Dans ce marché séducteur,
+Ù de revient. C'est parfait, c'est très agréable. Seulement, c'est trop beau... Dans ce marché séducteur,
 une équivoque est bien capable de se glisser, et de
-A, vicier tout. À
+vicier tout. À
 à La Pugzicrré, qui définira, qui délimitera un si;
 : prestigieux vocable? La publicité, est-ce l'annonce?
 Est-ce la réclame? Sera-ce encore l'article commandé
@@ -2650,8 +2522,7 @@ lui-même dans des conditions plus ou moins illusoires, et où
 il devient de plus en plus dificile, à ne parler même que de (88
 la littérature, de se tirer d'affaire avec vérité, avec franchise.;
 Les journaux, par cette baisse de prix, par cet élargissement Hi.
-de format, sont devenus de plus en plus tributaires de l'an-
-nonce; elle a perdu son reste de pudeur, si elle en avait.
+de format, sont devenus de plus en plus tributaires de l'annonce; elle a perdu son reste de pudeur, si elle en avait.
 Maintenant, quand on lit dans un grand journal l'éloge d'un si
 livre, et quand le nom du critique n'offre pas une garantie «
 absolue, on n'est jamais très sûr que le libraire ou même
@@ -2660,8 +2531,7 @@ pas un peu. (1)
 S'il en est ainsi de la littérature, que sera-ce des
 affaires? Les financiers ont un intérêt autrement intense à
 que les gens de lettres à manier la voix des journaux.
-Si la presse vend la gloire, elle saura bien vendre lar-
-gent; elle vendra aussi les honneurs; elle vendra les ‘#10
+Si la presse vend la gloire, elle saura bien vendre largent; elle vendra aussi les honneurs; elle vendra les ‘#10
 places et les privilèges. +8
 En fait, les dernières années du règne de Louis-
 Philippe sont peuplées d'histoires de pots-de-vin, ayant mn:
@@ -2710,10 +2580,8 @@ qu'eile est très pauvre. Sa pauvreté même est sa raison:
 ! d'être, un peu de sa vie. "18
 La presse pauvre n'est pas quotidienne. Elle ne peut
 l'être, et voici pourquoi.. (6
-à D'abord, quel que soit le régime politique, la publica-
-tion d'un quotidien implique un gros capital. Entendez
-plutôt ces déclarations de Léon Faucher à la Consti-
-tuante de 1848: « Il n'y a pas un journal respectable
+à D'abord, quel que soit le régime politique, la publication d'un quotidien implique un gros capital. Entendez
+plutôt ces déclarations de Léon Faucher à la Constituante de 1848: « Il n'y a pas un journal respectable
 qui puisse se fonder à moins que les entrepreneurs de
 ce journal n'aient devant eux un capital de deux cent 2510
 quelque expérience de la presse. Je n'ai jamais un
@@ -2729,8 +2597,7 @@ leurs grands marteaux de fer sur l'enclume cyclopéenne. Un tel ar:
 accompagnement est du plus grand effet; de même que l'illumina- Ex.
 tion de ces étranges salles de concert, quand les étincelles en
 furie jaillissent de la fournaise. Rien que passion et flamme,
-flamme et passion! Comme un fruit de cette semence, la répu-
-blique menace de sortir tôt ou tard du sol français. »
+flamme et passion! Comme un fruit de cette semence, la république menace de sortir tôt ou tard du sol français. »
 
 4 parchie, la loi protège la presse riche. Comment cela?
 
@@ -2738,13 +2605,11 @@ Par le mécanisme du cautionnement.
 
 É Sous la légalité de septembre 1835, le taux du cau-
 à tionnement varie du simple au quadruple, et même au
-à delà, selon le lieu de ‘publication du journal et la fré-
-quence de sa périodicité: à Paris, en Seine-et-Oise et
+à delà, selon le lieu de ‘publication du journal et la fréquence de sa périodicité: à Paris, en Seine-et-Oise et
 Seine-et-Marne, il est de 100.000 francs pour les quoti-
 à diens; de 75.000 francs pour un bi-hebdomadaire; de
 50.000 francs pour un hebdomadaire; et de 25.000 seule-
-1 ment pour la revue bi-mensuelle ou mensuelle. En pro-
-vince, ces chiffres s'abaiïissent à 25.000 ou 15.000 francs
+1 ment pour la revue bi-mensuelle ou mensuelle. En province, ces chiffres s'abaiïissent à 25.000 ou 15.000 francs
 
 pour les journaux quotidiens, selon la population des
 villes où ils se publient; à moitié de ces sommes pour
@@ -2766,9 +2631,7 @@ de la censure préventive. Par suite, les journaux vont
 
 : encourir des amendes, des condamnations pécuniaires,
 
-porter le risque naturel de l'indépendance que le légis-
-
-lateur leur mesure. Apparemment, le cautionnement
+porter le risque naturel de l'indépendance que le législateur leur mesure. Apparemment, le cautionnement
 È doit couvrir le fisc contre l'insolvabilité éventuelle des
 
 En nulle manière. Son but véritable est d'empêcher
@@ -2782,8 +2645,7 @@ de la presse soit livrée sans conditions à « quiconque “4
 voudrait s'en servir ». Et M. Royer-Collard est encore
 plus explicite: « Un journal est-il une influence? Oui; NE.
 
-et peut-être la plus puissante des influences. Or, l'in-
-fluence politique appelle une garantie. La garantie poli- #1
+et peut-être la plus puissante des influences. Or, l'influence politique appelle une garantie. La garantie poli- #1
 tique ne se rencontre, selon les principes de la Charte,
 
 que dans une certaine situation sociale. Cette situation
@@ -2797,8 +2659,7 @@ ment des esprits et malgré les terreurs de septembre,
 le gouvernement n'obtient plus des Chambres que le De
 chiffre de cent mille francs. #2
 Sainte-Beuve, toujours lucide, observe en 1839 qu'en
-obligeant les journaux à s'alourdir de ces charges pécu-
-niaires énormes, le pouvoir les a pour sa part induits à
+obligeant les journaux à s'alourdir de ces charges pécuniaires énormes, le pouvoir les a pour sa part induits à
 accroître immodérément leurs profits de publicité. (2)
 
 En vertu de la loi de 1835, le gérant responsable de
@@ -2828,8 +2689,7 @@ devait lui payer cent francs ses mois de liberté, cinq à
 La prison guette les gérants et rédacteurs de la presse
 : TE pauvre. Tous y passent, s'y retrouvent, y complètent:
 2: leur éducation: « La prison, disait le républicain
-En Antony Thouret, est l'école normale du révolution-
-de: Asservie par de telles entraves économiques et juridi- il
+En Antony Thouret, est l'école normale du révolutionde: Asservie par de telles entraves économiques et juridi- il
 4 (1) Cette anecdote et la suivante sont rapportées par Félix Pyat
 ; dans son discours du 7 août 1848; Moniteur, 1848, page 1.920.
 (2) Discours du 7 août 1848; Moniteur, 1848, page 1.918, colonne
@@ -2837,8 +2697,7 @@ de: Asservie par de telles entraves économiques et juridi- il
 
 6 ques, autant dire par tout un système social, où se
 réfugie en effet la pensée des pauvres? Précisément ne:
-dans cette presse si véhémente, ordinairement non quo-
-tidienne, que signale M. Gabriel Delessert dans son
+dans cette presse si véhémente, ordinairement non quotidienne, que signale M. Gabriel Delessert dans son
 rapport du 19 janvier 1847: à l'Atelier de Buchez, à la
 Fraternité de 1845,au Populaire de Cabet, à la Revue;
 du Progrès de Louis Blanc, à la Revue républicaine de
@@ -2854,9 +2713,7 @@ La vente au numéro ne se pratique pas encore; le
 dix, quinze, vingt journaux, selon son appétit, son
 désœuvrement. Or, s'il est exact que les abonnements
 annuels valent un gaïn plus solide et plus rémunérateur
-aux journaux que la vente à l'exemplaire, — qui sup-
-pose tant de pertes sèches et de concessions aux inter-
-médiaires, — il est vrai aussi que numériquement, pour
+aux journaux que la vente à l'exemplaire, — qui suppose tant de pertes sèches et de concessions aux intermédiaires, — il est vrai aussi que numériquement, pour
 le tirage et la diffusion de la presse populaire, l'autre
 système serait apte à des résultats supérieurs. Sous
 Louis-Philippe, un quotidien conservateur, organe des
@@ -2869,8 +2726,7 @@ le public de chaque opinion voulait sérieusement soutenir les
 
 ne s'y trompait point. L'intérêt de cette presse serait
 64 donc assurément de se détailler, de s'offrir pour un ou
-AS deux sous. Et ce furent en effet des journaux commu-
-ir. nistes, — notamment le journal de Cabet, — qui réin-
+AS deux sous. Et ce furent en effet des journaux commuir. nistes, — notamment le journal de Cabet, — qui réin-
 1 troduisirent cette coutume de la vente au numéro,
 oubliée depuis l'époque révolutionnaire.
 PAU La presse riche imita ici la presse pauvre; ce fut l'ef-
@@ -2881,8 +2737,7 @@ F. Ce que fut au juste, avant Février 1848, la vitalité dela
 
 à à presse républicaine, les souvenirs d'Henri de Lacretelle
 à nous en laissent l'image, où l'auteur montre (antomne
-10 1847) le joyeux jacobin Marc Caussidière, futur person-
-nage de la République, débarquant à Cormatin en
+10 1847) le joyeux jacobin Marc Caussidière, futur personnage de la République, débarquant à Cormatin en
 commis-voyageur de la Réforme, et si heureux de tou
 Kia cher ses quarante sous par souscripteur! (2) À
 Organe principal des groupes d'extrême gauche, cette
@@ -2939,8 +2794,7 @@ A la République, il appartient, selon les uns, d'éta-
 (1) Cité par Tchernoff, Le Parti républicain sous la monarchie de
 
 blir le règne de la « justice sociale et selon les autres à
--34 de restaurer le respect de « ordre social compro-
-mis par dix-huit années de monarchie veule.
+-34 de restaurer le respect de « ordre social compromis par dix-huit années de monarchie veule.
 
 A l'occasion du 24 février, la Revue indépendante de.
 “4 George Sand, Louis Viardot, Pierre Leroux, publie un
@@ -2960,8 +2814,7 @@ la Revue indépendante n'est pas en mesure de paraître.
 258 quer d'ailleurs à la majesté de l'histoire nationale en mêlant
 des pensées étrangères au récit des trois journées qui ont
 “4% si glorieusement rétabli l'empire du droit.
-En réalité, la Revue indépendante cesse tout simple-
-ment de paraître. Ce numéro est sans lendemain.
+En réalité, la Revue indépendante cesse tout simplement de paraître. Ce numéro est sans lendemain.
 :. A la grève civique des typographes correspond la dis-
 
 . persion des collaborateurs. Les écrivains républicains
@@ -2970,9 +2823,7 @@ dans les événements que la France et le monde atten- À
 4 dent jour par jour. Pour eux, les joies et soucis de lac-
 É tion positive commencent. La mêlée les réclame, la tac-;
 tique les oblige, et leur arme change. De la Revue dense,
-W. intermittente, où posément ils discutaient et philoso-
-
-phaient sur l'avenir, voici qu'ils essaiment vers la
+W. intermittente, où posément ils discutaient et philosophaient sur l'avenir, voici qu'ils essaiment vers la
 fièvre des quotidiens.
 pe. Plus de cautionnement, plus d'impôt du timbre, plus à
 
@@ -2987,8 +2838,7 @@ Forte tentation! Le public en est vite débordé. Des AL.
 vantent à longs hurlements une marchandise dont nul
 encore ne peut dire ce qu'elle vaut, car elle est toute
 neuve, mais qui abonde et s'offre au rabais. Les jour-
-è naux paraissent, disparaissent, promettent des mer-
-veilles, tiennent ce qu'ils peuvent... Ce n'est souvent rien. à
+è naux paraissent, disparaissent, promettent des merveilles, tiennent ce qu'ils peuvent... Ce n'est souvent rien. à
 Comment choisir? Pourquoi choisir? Sait-on d'avance
 si mon papier, qui coûte un sou, recèle plus de folie ou "1
 
@@ -2997,15 +2847,10 @@ tout, que rien ne nous échappe, et que tout nous donne ne
 4 placard que me recommande, presque au même degré,
 tantôt la célébrité et tantôt l'obscurité de son auteur.
 En Révolution, l'anonyme d'hier est l'égal de l'écrivain
-qui a fait ses preuves. N'est-il pas une parcelle du sou-
-verain? Peut-être il détient la clef des énigmes sociales? La
+qui a fait ses preuves. N'est-il pas une parcelle du souverain? Peut-être il détient la clef des énigmes sociales? La
 Il est en droit de se prétendre dispensateur et héraut de
 Alors, tout ce qu'une nation policée et nombreuse, "0
-cache en temps normal d'idéologues passionnés, de cer-
-veaux fumeux et de réformateurs en chambre, se con-
-centre dans la capitale et dans les chefs-lieux de pro-
-
-vince. Les échauffés parlent haut. Les traîtres méditent
+cache en temps normal d'idéologues passionnés, de cerveaux fumeux et de réformateurs en chambre, se concentre dans la capitale et dans les chefs-lieux de province. Les échauffés parlent haut. Les traîtres méditent
 4 leur attitude et calculent l'instant d'intervenir. Les amis
 7. sincères et hardis des hommes, émergeant trop rares
 ue: dans la masse effervescente des brouillons et des fréné- À
@@ -3018,16 +2863,15 @@ ne; de la patrie. Les Droits de l'homme. Franches paroles.
 è L'Ordre. Le Travail. La Vérité. La Liberté. L'Harmo-;
 nie universelle. L'Ère nouvelle. Le Bonheur public et
 54 général. Le Peuple. L'Esprit du peuple. La Voix du
-0 peuple. L'Écho du peuple. La Cause du peuple. La Sou-
-veraineté du peuple. L'Ami du peuple. Le Réveil du;
+0 peuple. L'Écho du peuple. La Cause du peuple. La Souveraineté du peuple. L'Ami du peuple. Le Réveil du;
 7 peuple. La Sentinelle du peuple. Le Représentant du
 3 peuple. Le Tribun du peuple. Le Triomphe du peuple.
 ne L'Enfer et le Paradis du peuple. Le Salut public. Le
 Nouveau Cordelier. La Guillotine. Le Père Duchéne. Le
 Petit Homme rouge. La Voix des femmes. Le Fläneur.
-72 L'Épilogueur. Le Garde national. L'Omnibus. L'Éventail
+L'Épilogueur. Le Garde national. L'Omnibus. L'Éventail
 ne. républicain.,
-4 Bien entendu, l'ancienne presse subsiste. Au premier
+Bien entendu, l'ancienne presse subsiste. Au premier
 5 jour, elle a fait acte d'adhésion éclatante, unanime à la à
 République. Adhésion toute de surface: chaque parti:
 se réserve, au fond, d'exiger du régime nouveau une
@@ -3037,22 +2881,18 @@ Histoire de la Révolution de 1848, tome II, pages 559-561.
 En face de ce débordement de l'opinion imprimée,
 à la triple faiblesse du Gouvernement provisoire est de
 ne se pouvoir passer de l'approbation d'aucune feuille,
-car toutes se disent républicaines: d'être tenu de res-
-pecter l'entière liberté des journaux; de n'avoir enfin
+car toutes se disent républicaines: d'être tenu de respecter l'entière liberté des journaux; de n'avoir enfin
 
 pour ses plus proches interprètes que des organes
 
 sans lien entre eux, sans discipline, si accoutumés à À
-combattre et à desservir le pouvoir que toute défail-
-
-lance de leur intransigeance passée et toute complai- é Ne:
+combattre et à desservir le pouvoir que toute défaillance de leur intransigeance passée et toute complai- é Ne:
 sance de leur part envers un pouvoir ami risquent de
 ruiner leur crédit, d'être dénoncées par les gens habiles
 
 et les âmes violentes comme un trafic scandaleux des
 Jusqu'au mois d'avril, les choses vont à souhait.
-C'est la lune de miel, très brève, du Gouvernement pro-
-visoire et de la nation. Point de cautionnement, ni de
+C'est la lune de miel, très brève, du Gouvernement provisoire et de la nation. Point de cautionnement, ni de
 procès de presse. Le Gouvernement provisoire écarte
 
 les armes que lui ont'laissées ses propres décrets. Le
@@ -3061,9 +2901,7 @@ public fait lui-même sa police de presse.
 Mais souvent le public est inintelligent ou brutal. Au #14
 quartier latin, des étudiants ou soi-disant tels brûlent À
 à le journal de F.-V. Raspail, suspect d'exciter au mépris; à
-de la République. Voilà pour le Gouvernement provi-
-soire des défenseurs un peu trop zélés. Très scrupu-
-leusement, ce gouvernement s'interdit de favoriser ses
+de la République. Voilà pour le Gouvernement provisoire des défenseurs un peu trop zélés. Très scrupuleusement, ce gouvernement s'interdit de favoriser ses
 partisans aux dépens de ses détracteurs; il témoigne
 d'une mansuétude égale envers la presse de tous les “4
 
@@ -3076,19 +2914,17 @@ pendant huit jours... Cette campagne exaspère la « foule, À la fin du mois, u
 — Mort à Girardin! Brisons les presses.:
 744. Émile de Girardin se montre, tient tête à ces brail-;
 1 lards, les prêche et les dompte, Eux s'en vont deman-
-:(50 der justice au ministère des Affaires étrangères. Lamar-
-tine les reçoit et, d'un ton magnifique, les harangue à
+:(50 der justice au ministère des Affaires étrangères. Lamartine les reçoit et, d'un ton magnifique, les harangue à
 14 son tour:
 Le à — La Répüblique, s'écrie-t-il, admet même la liberté
 d'être injuste envers son Gouvernement!.…
 A minuit, Ledru-Rollin, ministre de l'Intérieur, se
 rend aux bureaux de la Presse, pour protéger le journal contre le retour possible des bandes. Le lendemain,
-4 Girardin omet ce détail dans son récit des' incidents.:
+Girardin omet ce détail dans son récit des' incidents.:
 Le Gouvernement provisoire ne dispose pas utilement;
 d'un seul journal. Le National et la Réforme, tantôt
 0 timorés et tantôt serviles, pratiquent fort gauchement
-le rôle d'officieux; l'expérience, le cynisme aussi du mé-
-tier leur manquent. Pour remédier à cette lacune,
+le rôle d'officieux; l'expérience, le cynisme aussi du métier leur manquent. Pour remédier à cette lacune,
 1108 Ledru-Rollin fonde en mars les Bulletins de la Répuk 4 blique, qui, paraissant tous les deux jours, auront pour
 tâche de propager l'évangile démocratique dans les
 C'est Jules Favre qui les triture. George Sand est
@@ -3102,8 +2938,7 @@ me imprécations et ses menaces apparaissent fanfaronnes
 |. monstration républicaine, voire socialiste, du 16 avril,! ‘ii
 arrangée par les amis de Ledru-Rollin, sombre donc “130
 aux cris imprévus de « À bas les communistes! » 4308
-En vain, une proclamation du Gouvernement provi-
-soire invite tristement les citoyens à s'abstenir de tout Hé:
+En vain, une proclamation du Gouvernement provisoire invite tristement les citoyens à s'abstenir de tout Hé:
 « cri provocateur les adjure tous de s'unir en ce A » « cri sauveur: Vive la République! » C'en est fait,
 Paris et la France ont pris peur et s'écartent des
 rouges. Aussi est-ce d'abord contre les « rouges » que LE
@@ -3111,8 +2946,7 @@ s'opère le ralliement des forces contre-révolutionnaires. ‘al
 . Mouvement tournant qui, l'heure venue, doit s'élargir, Et
 jusqu'à enlever la République. Re:
 ï Contre les gens en place s'élève l'effréné tourbillon
-des chansons qui ridiculisent et des mesquineries salis-
-santes. La bonne presse enregistre avec joie toutes ces Y
+des chansons qui ridiculisent et des mesquineries salissantes. La bonne presse enregistre avec joie toutes ces Y
 perfidies troublantes, leur donne corps. Le Constitu- Le:
 ‘tionnel peint les orgies, les chasses princières de Ledru- à
 Rollin; sa lourde ironie insère les « nouvelles de la
@@ -3123,15 +2957,12 @@ bienfaiteur: or, des deux frères, ni le vivant, ni le
 mort, n'ont jamais tenu maison de commerce. — Même
 réfutées devant les tribunaux, même anéanties, ces
 anecdotes reparaîtront. Ces mensonges seront travestis ne
-en vérités. Pour toute riposte, les hommes de la Répu-
-blique envoient de stériles rectifications aux journaux: à
+en vérités. Pour toute riposte, les hommes de la République envoient de stériles rectifications aux journaux: à
 qui les diffament et les communiquent, faute de mieux,
 au Moniteur, que nul ne lit. #4
 L'Assemblée nationale et la Liberté, fondées contre la
 République, tirent bientôt à 40.000 exemplaires. La;
-Presse, qui les aide, à 75.000. Parmi les feuilles répu-
-
-blicaines, les très violentes seules se vendent, la Vraie
+Presse, qui les aide, à 75.000. Parmi les feuilles républicaines, les très violentes seules se vendent, la Vraie
 4 4 République, le Père Duchéne.…. Évidemment, on les il
 achète par inquiète curiosité plutôt que par sympathie.
 Une phrase de Proudhon, dans sa correspondance
@@ -3147,8 +2978,7 @@ Représentant du peuple, il dit aspirer au moment où il
 clubs sont dissous. Mais de cet avertissement la
 À 14) « presse plébéienne » n'a cure; elle redouble au traire de hardiesse, d'amertume, d'exigences. Ses
 écarts sont autant de fautes que retiennent ses adver- à
-À 4 saires, et grossissent le terrible compte dont le règle-
-nn. Le 9 juin 1848, un journal parisien, l'Organisation du
+À 4 saires, et grossissent le terrible compte dont le règlenn. Le 9 juin 1848, un journal parisien, l'Organisation du
 4 travail, publie la liste des grandes fortunes de la capiEn: tale et annonce une suite: la statistique nominale des;
 grands propriétaires fonciers. Ce journal s'était fondé
 11 le 20 avril, apparemment contre Louis Blanc, avec ce
@@ -3202,13 +3032,9 @@ voilà nos griefs. Mais quant à vos trésors, d'où qu'ils vien-
 
 perdrait l'honneur, et l'honneur est le trésor du peuple!
 
-Du reste, nous connaissons le but de ces attaques empoi-
+Du reste, nous connaissons le but de ces attaques empoisonnées; on veut provoquer le gouvernement à frapper la
 
-sonnées; on veut provoquer le gouvernement à frapper la
-
-presse; on veut se venger des coups terribles qu'elle a por-
-
-tés aux pillards du régime tombé, On a déjà fermé les clubs,
+presse; on veut se venger des coups terribles qu'elle a portés aux pillards du régime tombé, On a déjà fermé les clubs,
 
 réglementé l'affichage, fait un Code contre les attroupe- à
 
@@ -3224,13 +3050,12 @@ la réaction insulter, calomnier librement la République,
 
 Le Qu'on nous poursuive et qu'à trois mois des barricades » À
 se on jette la Réforme aux prétoires! Sous la République, elle
-É:4 se défendra sans peur, comme sous la Monarchie.
+se défendra sans peur, comme sous la Monarchie.
 Quinze jours plus tard, c'est la « saignée » de Juin.
 La répercussion des événements de juin 1848 est directe
-3 sur les destinées des journaux. Le 26 du mois, les abon-
-nés de la Presse ne reçoivent point leur journal, et le
+3 sur les destinées des journaux. Le 26 du mois, les abonnés de la Presse ne reçoivent point leur journal, et le
 2 bruit se répañd dans Paris que M. de Girardin est À
-incarcéré. Ce bruit est exact: le général Cavaignac a;
+incarcéré. Ce bruit est exact: le général Cavaignac
 fermé l'imprimerie de la Presse, jeté en prison son
 7:20 adversaire incommode, coupable de s'être montré trop;
 bon prophète sur ses projets. Émile de Girardin écrit de à
@@ -3240,7 +3065,7 @@ officiels de son arrestation. Cavaignac répond: « Ci- À
 M. République, la nation, la société européenne tout A
 Le 9, on le relâche, sans explications, après lavoir fait;
 414 interroger pour la forme par un capitaine. (r)!
-4 En même temps que la Presse, dix autres journaux sont
+En même temps que la Presse, dix autres journaux sont
 1 frappés, sans acception d'opinion, d'après le Moniteur,
 410 mais « parce que leur rédaction était de nature à pro-
 2 longer la lutte qui a ensanglanté la capitale savoir: la
@@ -3253,7 +3078,7 @@ De avis! « L'effet du mot, paraît-il, avait été souverain. Le général
 Cavaignac avait ri, et Girardin, une heure plus tard, était remis
 en liberté. » (Talmeyr, Matin du 7 janvier 1901) à
 
-4 Révolution, la Vraie République, l'Organisation du de
+Révolution, la Vraie République, l'Organisation du de
 travail, l'Assemblée nationale, le Napoléon républicain,
 Père Duchéne, et le Pilori. (1) Le général Cavaignac ne À
 sera point taxé sans injustice d'être partial. Socialistes,
@@ -3263,8 +3088,7 @@ public en gênant ses convenances personnelles.
 Dans le premier élan d'émotion collective qui suit les É À
 fureurs de la guerre civile, l'Assemblée décrète à l'una-.
 nimité que le général Cavaignac « a bien mérité de la:
-patrie ». (2) Eugène Cavaignac dépose aussitôt les pou-
-voirs qui lui furent confiés pour une crise extraordinaire; le
+patrie ». (2) Eugène Cavaignac dépose aussitôt les pouvoirs qui lui furent confiés pour une crise extraordinaire; le
 l'Assemblée les lui rend par un nouveau pacte. Pas un
 in$tant il ne songe à les confisquer spontanément. Ne
 Capable d'ambition et d'orgueil, c'est quand même un
@@ -3279,8 +3103,7 @@ abdique, s'il accepte de devenir un parlementaire dis-
 À cutable, il est naturel que les partis lui retirent leur y
 . respect, négocient au lieu d'obéir, et poursuivent leurs
 avantages plutôt que de servir le sien.
-; Supprimer une dizaine de journaux, enfermer un jour-
-naliste, le relâcher sans lui dire pourquoi, ce sont
+; Supprimer une dizaine de journaux, enfermer un journaliste, le relâcher sans lui dire pourquoi, ce sont
 (1) Ces journaux « ont également cessé de paraître et leurs
 presses « ont aussi été mises temporairement sous scellés ».
 
@@ -3291,8 +3114,7 @@ Moniteur du -27 juin, page 1.501.
 peccadilles d'état de siège. La faute politique du général,
 c'est son équité trop simpliste; elle déconcerte. En
 Den autoritaire ingénu, Eugène Cavaignac ne sait pas ou ne À
-D. veut pas choisir: il commande le silence, indistincte-
-ment, aux « ennemis de la société » et aux « ennemis de
+D. veut pas choisir: il commande le silence, indistinctement, aux « ennemis de la société » et aux « ennemis de
 
 ; la République ». Les uns et les autres se ligueront d'abord
 contre lui, pour pouvoir ensuite se mesurer entre eux.
@@ -3300,8 +3122,7 @@ contre lui, pour pouvoir ensuite se mesurer entre eux.
 Le 1° août, à l'Assemblée, le citoyen Crespel de la:
 Touche, avoué, interpelle sur l'arrestation arbitraire
 a du directeur de la Presse et la suppression non moins
-ne. arbitraire des onze journaux. Ces mesures étaient-
-elles autorisées par l'état de siège?
+ne. arbitraire des onze journaux. Ces mesures étaientelles autorisées par l'état de siège?
 Le ministre de la Justice, M. Marie, esquive la
 1 question de droit, se réfugie dans l'éloquence, plaide
 4 les mérites de Cavaignac. Le général at-il, oui ou non,
@@ -3315,8 +3136,7 @@ Cavaignac pour l'ensemble de sa conduite ne saurait
 il agressive de Victor Hugo, le général s'énerve, n'y tient
 plus, monte à la tribune, refuse de se défendre, insinue
 ‘.: « seulement, — non sans vérité, à ce qu'il semble, — que;
-À ses censeurs de l'heure présente l'incitaient, cinq se-
-maines plus tôt, à usurper la dictature...;
+À ses censeurs de l'heure présente l'incitaient, cinq semaines plus tôt, à usurper la dictature...;
 L'Assemblée vote à mains levées l'ordre du jour pur
 4 et simple; c'est une manière d'avertissement. Le gou-
 
@@ -3325,7 +3145,7 @@ L'Assemblée vote à mains levées l'ordre du jour pur
 4 par le général Cavaignac, chef du pouvoir exécutif, lève;
 E. la « suspension » prononcée en juin.
 
-4 Voici restituée la liberté de concurrence et de combat.
+Voici restituée la liberté de concurrence et de combat.
 
 à ces journaux qui ambitionnaient de s'égorger récipro-
 
@@ -3339,9 +3159,7 @@ avait « vingt-deux mille forçats » dans l'insurrection.
 
 ricanent les premiers des contes sanguinaires qu'ils En
 
-forgent à l'usage du public et dont ils chargent effronté-
-
-ment les vaincus de Juin; c'est eux qu'on croit. Les
+forgent à l'usage du public et dont ils chargent effrontément les vaincus de Juin; c'est eux qu'on croit. Les
 
 républicains n'osent protester, dire ce qu'ils sentent 1$
 
@@ -3399,8 +3217,7 @@ rapport le 1 août. La discussion commence le 7 août,
 42 cautionnement est rétabli; son taux sera désormais
 de 24.000 francs (chifire modeste) pour les journaux
 51 quotidiens à Paris. Et il est bien entendu que ce À
-décret sur le cautionnement ne vaut qu'à titre provi-
-soire, jusqu'au 1° mai 1849. À cette date, ses dispoD sitions tomberont de plein droit. On escompte ainsi
+décret sur le cautionnement ne vaut qu'à titre provisoire, jusqu'au 1° mai 1849. À cette date, ses dispoD sitions tomberont de plein droit. On escompte ainsi
 l'heureux apaisement qui ne manquera pas de se pro-
 Qui s'y méprendrait? Ce décret transitoire est une:
 14 entrée de jeu. Le décret du 11 août bâillonne l'écrivain,
@@ -3411,8 +3228,7 @@ a nais ne les a point; le Peuple constituant se taira. Mais
 avant de mourir, il jette encore son célèbre anathème!.
 sur les vainqueurs
 Soldats de la presse, dévoués à la défense des libertés de
-À la patrie, on nous traite comme le peuple, on nous dé-
-sarme. Depuis quelque temps, notre feuille, enlevée des
+À la patrie, on nous traite comme le peuple, on nous désarme. Depuis quelque temps, notre feuille, enlevée des
 . mains des porteurs, était déchirée, brülée sur la voie pu-;
 blique. Un de nos vendeurs a même été emprisonné à
 Rouen, et le journal saisi sans autre formalité. L'intention
@@ -3422,19 +3238,15 @@ Vor, beaucoup d'or, pour jouir du droit de parler. Nous ne
 sommes pas assez riches. Silence au pauvre!
 Aux adversaires des décrets, niant qu'un journal
 honnête et pauvre pût découvrir, immobiliser pour son
-cautionnement 24.000 francs de capital, M. Marie, mi-
-nistre de la Justice, répondit devant l'Assemblée: ne
+cautionnement 24.000 francs de capital, M. Marie, ministre de la Justice, répondit devant l'Assemblée: ne
 — Allons! allons! Soyez sincères, et dites qu'en
 effet le capitaliste n'ira pas où sont les idées d'anar-
 4 grand, d'important pour la société! (1)
 Rapprochée de l'apostrophe de Lamennais, cette
-réplique de M. Marie définit le problème; elle dé-
-montre que l'incidence des décrets est strictement cal-
-culée. Forcés de subir l'inquiétude grandissante qui
+réplique de M. Marie définit le problème; elle démontre que l'incidence des décrets est strictement calculée. Forcés de subir l'inquiétude grandissante qui
 émane de la presse pauvre, — individualiste, indiscipli- -
 née, audacieuse parce qu'elle est sans attaches et sans
-(1) Moniteur, 9 août 1848, page 1.931, colonne a. — Dans le « quatrième numéro » de la Foire aux idées, journal-vaudeville repré-
-senté avec un très vif succès en octobre 1849, l'odieux libelliste Frigousmann se lamente: « Depuis dix ans, je veux fonder un journal
+(1) Moniteur, 9 août 1848, page 1.931, colonne a. — Dans le « quatrième numéro » de la Foire aux idées, journal-vaudeville représenté avec un très vif succès en octobre 1849, l'odieux libelliste Frigousmann se lamente: « Depuis dix ans, je veux fonder un journal
 politique intitulé: le Chien enragé… Je veux mordre, déchirer,
 mettre la société en lambeaux... Eh bien! rien, rien! Il faut un
 cautionnement... et je suis obligé de renfermer tous mes élans
@@ -3448,12 +3260,10 @@ ordres. Le cautionnement décapitera la presse de
 4 en patience les quelques organes où se sera réfugié
 
 l'effort des publicistes réfractaires.
-“10 Dans les dernières semaines du règne de Louisfi Philippe, P.-J. Proudhon laisse un entrepreneur recher-
-cher pour lui les fonds nécessaires à la création d'un
+“10 Dans les dernières semaines du règne de Louisfi Philippe, P.-J. Proudhon laisse un entrepreneur rechercher pour lui les fonds nécessaires à la création d'un
 1 journal hebdomadaire. La difBculté principaie vient
 du cautionnement: « L'entrepreneur, écrit Proudhon,
-:)10 éprouve un grand embarras, à cause du cautionne-
-ment, qui est de 50.000 francs; je ne sais comment cela
+:)10 éprouve un grand embarras, à cause du cautionnement, qui est de 50.000 francs; je ne sais comment cela
 La France s'étant mise par hasard en République, le
 Je journal paraît, et non pas hebdomadaire, mais quoti-
 4 dien: c'est le Représentant du peuple. L'affaire est heu- À
@@ -3462,8 +3272,7 @@ par Proudhon. Mais surviennent les journées de Juin et …
 208 leur prompt contre-coup, les décrets Senard. Le Repré-
 Ni sentant du peuple est suspendu, — lisez supprimé, —
 par arrêté du 21 août 1848.
-Notre Proudhon ne s'en émeut guère; il écrit le 2 sep-
-es, (1) Lettre du 22 janvier 1848 à M. Maurice. — Correspondance de.
+Notre Proudhon ne s'en émeut guère; il écrit le 2 sepes, (1) Lettre du 22 janvier 1848 à M. Maurice. — Correspondance de.
 
 tembre: « Nous allons reparaître sous le titre du
 Peuple. Nous constituons une société au capital de
@@ -3476,22 +3285,18 @@ d'argent. Nous ne pouvons venir à bout de former nos
 24.000 francs. » Prenez ses lettres de l'époque: elles
 fourmillent de soucis d'argent, comme si elles étaient;
 Enfin, le Peuple s'organise avec vingt. mille francs du
-bailleur de fonds et des sacrifices d'amis, voire d'in-
-connus. Un jeune noble de Bretagne apporte six mille
+bailleur de fonds et des sacrifices d'amis, voire d'inconnus. Un jeune noble de Bretagne apporte six mille
 4 francs. (3) Proudhon retrouve ses succès de vente.
 3 (1) Lettre à M. Abram. — Correspondance de P.-].. Proudhon,
 3 (2) Et le métier de représentant coûte cher: « Je suis tellement
 assailli d'aventuriers et d'indigents, que je fais plus de dettes que
 1 je ne reçois d'argent de la République. » (Lettre du 7 août 1848 à
 ; M. Pauthier; Correspondance de P.-J. Proudhon, tome II, page 343)
-Proudhon souhaite — déjà! — l'augmentation de l'indemnité parle-
-mentaire: « Je ne réponds plus à personne, je lis à peine mon
-È courrier. Si, au lieu de 25 francs par jour, l'indemnité de repré-
-sentant était de 50, j'aurais deux secrétaires particuliers pour lire
+Proudhon souhaite — déjà! — l'augmentation de l'indemnité parlementaire: « Je ne réponds plus à personne, je lis à peine mon
+È courrier. Si, au lieu de 25 francs par jour, l'indemnité de représentant était de 50, j'aurais deux secrétaires particuliers pour lire
 les lettres, brochures et journaux qui me pleuvent, les classer,
 ? accuser réception et répondre. Surchargé comme je suis, je ne lis
-ni ne fais rien. » (Lettre du 15 février 1849 à M. Maurice; Corres-
-pondance, tome Il, page 359)
+ni ne fais rien. » (Lettre du 15 février 1849 à M. Maurice; Correspondance, tome Il, page 359)
 (3) « Il m'a été fait don d'une somme de 6.000 francs par un jeune
 homme riche; la-destination de cette somme étant le journal, je
 ne la regarde point comme ma propriété. » (Lettre du 25 avril 1849 à
@@ -3505,9 +3310,7 @@ Louis Veuillot, l'autre grand journaliste d'alors, es PRO
 de l'Univers. (1) Or, en février 1849, Proudhon tire à
 vingt-cinq mille. En avril, à quarante-deux mille; il
 
-“Ve parle de ses deux cent mille lecteurs et, grâce aux jour-
-
-naux de province qui le reproduisent et le soutiennent,
+“Ve parle de ses deux cent mille lecteurs et, grâce aux journaux de province qui le reproduisent et le soutiennent,
 affirme qu'il s'attache « par la communauté des idées,
 
 Ta plus d'un million de citoyens ». (2)
@@ -3545,8 +3348,7 @@ pauvre. Mais les libéraux ou se croyant tels, qui gou-
 |. yernent encore, abdiqueront sans trop se faire prier. >.
 Le malheur des temps veut que leurs intérêts moraux =.
 soient en désaccord avec leurs intérêts matériels. Or,
-chacun en France sent que les classes moyennes pré-
-ne fèrent la défaite politique à l'insécurité sociale. à
+chacun en France sent que les classes moyennes préne fèrent la défaite politique à l'insécurité sociale. à
 Un Falloux, catholique et légitimiste, a probablement LE
 approuvé en secret le coup d'État du 2 décembre 1851, a
 4 quand ce fut chose faite, mais ne paraît pas y avoir.
@@ -3569,9 +3371,7 @@ mon premier, pages 46-43.
 …_. Ila été tiré de ce cahier dix-sept exemplaires sur
 whatman ainsi distribués:
 premier exemplaire de souche, exemplaire du gérant;
-deuxième exemplaire de souche, exemplaire de l'ad-
-troisième exemplaire de souche, exemplaire de l'im-
-neuf exemplaires d'abonnement, numérotés ‘de à
+deuxième exemplaire de souche, exemplaire de l'adtroisième exemplaire de souche, exemplaire de l'imneuf exemplaires d'abonnement, numérotés ‘de à
 et cinq exemplaires d'auteur numérotés d,e
 . Tous nos exemplaires sur whaiman sont numérotés
 : à la presse et imprimés au nom du souscripteur; nos
@@ -3596,7 +3396,7 @@ Re. 1900-1904, de nos cinq premières séries, premier cahier;
 À de la sixième série, un très fort cahier de XII+408 à
 : Pour s'abonner à la huitième série des cahiers, qui
 à est la dernière série, envoyer en un mandat à M. André
-1 Bourgeois, méme adresse, le prix de l'abonnement; on
+Bourgeois, méme adresse, le prix de l'abonnement; on
 recevra en retour les seize cahiers parus de cette hui-
 e. Pour s'abonner à la neuvième série des cahiers, qui
 ë. est la série en cours, envoyer en un mandat à M. André

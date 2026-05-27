@@ -173,7 +173,7 @@ Dans l'âtre brüle un feu de charbon,
 Le thé, par le bec de la théière, Me
 Fume et sent bon,.
 Et je rêve d'amours anciennes, de.
-3 Le cigare aux lèvres. le temps fuit. ni
+Le cigare aux lèvres. le temps fuit. ni
 Soudain, aux fentes des persiennes, por.
 Un bec de gaz au bout de la rue à
 File un chant aigu, flûté, plaintif... jIER
@@ -183,7 +183,7 @@ Je tremble comme un enfant craintif.
 12: AIS Quelqu'un est là, derrière la porte.
 Ne lentends-je pas gratter le bois?
 2 ui. Quelqu'un est là. C'est elle, la More: AN
-7 La maîtresse chérie autrefois.
+La maîtresse chérie autrefois.
 A Quelle soif donc survit à sa bouche NON
 Fil Que chaque jour j'oublie un peu plus?
 Quel désir d'amour, autre et farouche,
@@ -321,7 +321,7 @@ Où le lit moite encor de nos caresses garde
 :Ta longue empreinte souple au creux de ses draps blancs,
 Quand nous serons debout, face à face, tremblants
 D'angoisse, alors je prendrai dans mes mains ta tête
-Douloureuse, et quelle heure et quelle nuit de fête! »:
+Douloureuse, et quelle heure et quelle nuit de fête!
 
 Mais loin derrière la forêt, vers lorient,
 D'un rouge vif de joue enfantine et riant
@@ -342,7 +342,7 @@ Saillaient sous le poil jaune et qui bronchaïient aux côtes,:
 Loin, si loin, dans les flaques de boue et les rais RAS
 Des taillis ruisselants, la patache fantôme PARUS
 Où, pâle et le mouchoir aux lèvres, tu pleurais, Re.
-5 Cahin-caha, là-bas, butaïit le long des routes. à
+Cahin-caha, là-bas, butaïit le long des routes. à
 
 Et maintenant encor, quand s'annonce l'hiver,
 Quand crépite la pluie en bulles sur la mer, À
@@ -407,7 +407,7 @@ Dont les échos sourds, quand le vent du large entre,
 à Comme le ciel à perte de vue est clair!
 ‘tr Beauté, flammes de joie en mon œil indigne,
 à Éblouissements dont ma paupière cligne.
-4 De son flanc blessé son sang coule. Elle a
+De son flanc blessé son sang coule. Elle a
 Aborder, pour y mourir, ce coin perdu.
 ; Elle dormait, à l'aube, sur la mer lisse...
 
@@ -463,12 +463,12 @@ Comme à jamais luit ce soir de lune.
 
 ou La voix montait grave, jaillissant UN Nine
 A flots de cette poitrine aux astres, A Rest
-4 Clamant, pleur éternel, tes désastres, FEAR
+Clamant, pleur éternel, tes désastres, FEAR
 Amour, ta triste furie, Ô sang! PRES
 C'était l'ardeur d'une chair mûre, ivre |. TIC
-1 D'un long été d'ennui, du dégoût he,
+D'un long été d'ennui, du dégoût he,
 +8 Qui suit les siestes impures d'août, es a
-0 Et toujours ce cri déchirant: vivre! ENS
+Et toujours ce cri déchirant: vivre! ENS
 
 Tout le jour, à travers plaines, moissons, prés verts,
 Rouges labours, damier qui tournoie, à travers
@@ -1180,7 +1180,7 @@ pour deux mille exemplaires de ce dix-septième cahier 1200
 le mardi 7 juin 1904. LHETAN
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-1 Fin d'imprimer deux mille exemplaires de ce
+Fin d'imprimer deux mille exemplaires de ce
 dix-septième cahier le jeudi 9 juin 1904
 
 bonne, rez-de-chaussée, Paris, cinquième arrondisse-

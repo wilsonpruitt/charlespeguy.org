@@ -24,7 +24,7 @@ de lettres, d'histoire et de philosophie, d'action étaient
 si considérables que nous ne pouvons pas songer à en
 donner ici l'énoncé même le plus succinct; pour
 savoir ce qui a paru dans les cinq premières séries des NAÉE
-cahiers, il suffit d'envoyer un mandat de cinq francs à;
+cahiers, il suffit d'envoyer un mandat de cinq francs
 M. André Bourgeois, administrateur des cahiers, 8, rue
 de la Sorbonne, rez-de-chaussée, Paris, cinquième -
 arrondissement; on recevra en retour le catalogue
@@ -32,8 +32,7 @@ analytique sommaire, 1900-1904, de nos cinq pre-
 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 
 place, les références demandées.
@@ -75,9 +74,7 @@ en un corpus les diverses manifestations que nous avons
 de la pensée de Tolstoi pendant ces trois dernières
 années; ces différentes manifestations et textes recueillis
 
-et rassemblés forment un volume de trois francs cin-
-
-quante aux éditions du Mercure de France; on peut le
+et rassemblés forment un volume de trois francs cinquante aux éditions du Mercure de France; on peut le
 
 . commander dès aujourd'hui à la librairie des cahiers.
 
@@ -226,29 +223,18 @@ a pas de conception qui ait engendré plus de mal, il
 Christ. En réalité, le mot ÆZcclesias signifie réunion
 et pas plus, et c'est ainsi qu'il est employé dans les
 
-. évangiles. Dans les langues de tous les peuples nou-
+. évangiles. Dans les langues de tous les peuples nouveaux, le mot ecclesias signifie lieu de prières.
 
-veaux, le mot ecclesias signifie lieu de prières.
-
-: Malgré l'existence de quinze cents ans de trompe-
-
-rie de l'Église, ce mot n'a pénétré dans aucune lan-
-
-gue en d'autre sens. Selon les significations que
+: Malgré l'existence de quinze cents ans de tromperie de l'Église, ce mot n'a pénétré dans aucune langue en d'autre sens. Selon les significations que
 donnent à ce mot les pontifes auxquels est nécessaire La tromperie de l'Église, il résulte que ce mot
 n'est rien d'autre que la préface qui déclare: Tout
 
 ce que je dirai maintenant, c'est la vérité, et si tu
 sulterai de toutes les manières. Cette conception
 
-est un sophise nécessaire pour certain but dialectique et elle reste le bien de ceux à qui elle est né-
-cessaire. Dans le peuple, et non seulement dans le
+est un sophise nécessaire pour certain but dialectique et elle reste le bien de ceux à qui elle est nécessaire. Dans le peuple, et non seulement dans le
 peuple maïs dans la société, dans les milieux instruits, bien qu'on l'apprenne dans le catéchisme,
-cette conception n'existe nulle part. Quelque hon-
-
-teux qu'il soit de discuter sérieusement cette défini-
-
-ton, il faut le faire puisque tant de gens la donnent
+cette conception n'existe nulle part. Quelque honteux qu'il soit de discuter sérieusement cette définiton, il faut le faire puisque tant de gens la donnent
 sérieusement pour quelque chose d'important. Cette
 définition est tout à fait mensongère. Quand on dit
 que l'Église est la réunion des vrais croyants, à
@@ -275,24 +261,18 @@ l'essentiel de cette tromperie c'est qu'il y a des gens
 qui veulent, coûte que coûte, inculquer leur foi
 
 Pourquoi done veulent-ils tant faire accepter leur
-foi aux autres hommes? S'ils avaient la vraie reli-
-
-gion, ils sauraient que la religion c'est le sens de la
+foi aux autres hommes? S'ils avaient la vraie religion, ils sauraient que la religion c'est le sens de la
 vie, le rapport envers Dieuétabli par chaque homme
 et qu'ainsi on ne peut enseigner la foi, mais la
 tromperie de la foi. Mais ils la veulent enseigner.
 
 Pourquoi? La raison la plus simple serait que
-la galette et les œufs sont nécessaires aux pré-
-tres, et qu'il faut aux archevêques, les palais, les:
+la galette et les œufs sont nécessaires aux prétres, et qu'il faut aux archevêques, les palais, les:
 gâteaux et les soutanes de soie. Maïs cette ré-:
 ponse ne suflit pas. C'est sans doute la raison
-intérieure, psychologique de la tromperie, le pré-
-texte qui soutient la tromperie, maïs, en raisonnant ainsi, comment pourrait-on comprendre qu'un
+intérieure, psychologique de la tromperie, le prétexte qui soutient la tromperie, maïs, en raisonnant ainsi, comment pourrait-on comprendre qu'un
 homme (le bourreau) puisse se décider à en tuer un
--autre contre qui il n'a aucune colère? Ce serait in-
-
-suffisant de dire que le bourreau tue, parce qu'en lui
+-autre contre qui il n'a aucune colère? Ce serait insuffisant de dire que le bourreau tue, parce qu'en lui
 donne de l'eau-de-vie, du pain blanc et une chemise
 rouge; de même il est insuflisant de dire que le Mé-
 tropolite de Kiev, et les moines, remplissent des
@@ -301,15 +281,13 @@ seulement pour avoir 30.000 roubles de revenus.
 
 L'une et l'autre action sont trop horribles et trop
 contraires à la nature humaine pour qu'une explication aussi simple et grossière puisse suflire. De
-même que le bourreau, le Métropolite, pour expli-
-quer son acte, donnera une série de preuves basées
+même que le bourreau, le Métropolite, pour expliquer son acte, donnera une série de preuves basées
 principalement sur la tradition historique: CII faut
 tuer l'homme; on a supplicié depuis que le monde
 existe; si ce n'est moi ce sera un autre; j'espère,
 avec l'aide de Dieu, le faire mieux qu'un autre! »
 
-De même le Métropolite dira: « L'adoration exté-
-rieure de Dieu est nécessaire; depuis que le monde
+De même le Métropolite dira: « L'adoration extérieure de Dieu est nécessaire; depuis que le monde
 existe on a adoré les reliques des saints; on respecte
 les reliques des caveaux; on vient ici. Si je ne les
 dirige pas, ce sera un autre; moi j'espère, avec
@@ -319,8 +297,7 @@ gagné par le sacrilège. »
 Pour comprendre la tromperie religieuse il faut
 remonter à sa source.
 
-Parlons de ce que nous connaissons, du christianisme. S'adressant aux origines de la doctrine chré-
-tienne, aux évangiles, nous trouvons une doctrine
+Parlons de ce que nous connaissons, du christianisme. S'adressant aux origines de la doctrine chrétienne, aux évangiles, nous trouvons une doctrine
 qui exclut nettement l'adoration extérieure de Dieu,
 qui la condamne et nie, nettement, absolument son
 enseignement. Mais depuis le Christ, jusqu'à nos
@@ -335,8 +312,7 @@ l'Église sert seulement à définir tous ceux qui partagent cette croyance, et 
 
 É vraie. Cette conception est absolument juste, si elle
 s'applique non à la croyance par les paroles mais
-par toute la vie, car la croyance ne peut être expri-
-mée par des paroles.
+par toute la vie, car la croyance ne peut être exprimée par des paroles.
 La conception de l'Église vraie fut encore employée comme palliatif entre les discordants. Mais
 jusqu'à Constantin et jusqu'au concile de. Nicée
 l'Église n'est qu'une conception; et depuis Constantin et le concile de Nicée, elle devient une
@@ -409,8 +385,7 @@ avec des chefs appelés ou César ou Auguste, pillaient et torturaient les peupl
 de leurs plaisirs. Un des héritiers de ces chefs de
 brigands, Constantin, après avoir beaucoup de
 
-livres et s'être rassasié de la vie de débauches, pré-
-féra quelques dogmes du christianisme aux anciennes croyances: aux victimes humaines il préféra la
+livres et s'être rassasié de la vie de débauches, préféra quelques dogmes du christianisme aux anciennes croyances: aux victimes humaines il préféra la
 messe, à l'adoration d'Apoilon, de Vénus et de Zeus,
 il préféra celle du Dieu unique et de son fils Christ,
 et il ordonna d'introduire cette religion parmi ceux
@@ -422,8 +397,7 @@ pas l'adultère, n'aie pas de richesses, ne juge pas,
 ne condamne pas, souffre le mal. » Personne ne
 lui dit cela. Mais on lui dit: « Tu veux t'appeler
 chrétien et continuer d'être chef de brigands:
-battre, incendier, faire la guerre, vivre dans la dé-
-bauche et le luxe? C'est bien. » Et on lui installe le
+battre, incendier, faire la guerre, vivre dans la débauche et le luxe? C'est bien. » Et on lui installe le
 christianisme même plus aisément qu'on ne pouvait
 s'y attendre. Ils ont prévu qu'après avoir l'évan-,
 gile il pourrait se ressaisir, que là, on exige la vie
@@ -513,18 +487,15 @@ pas dans la religion d'État. La vraie religion
 
 peut être dans tout ce qu'on nomme hérésie, mais
 assurément elle ne peut être où elle s'est unie à
-l'État. C'est étrange à dire mais les appellations (re-
-qu'elles sont établies dans le langage habituel, ne
+l'État. C'est étrange à dire mais les appellations (requ'elles sont établies dans le langage habituel, ne
 signifient rien d'autre que la « religion unie au
 pouvoir la religion d'État et, par suite, la religion
 
 La conception de l'Église, c'est-à-dire l'unité de
 pensée de plusieurs, de la majorité, et, en même
-temps, l'approche à la source de la doctrine, pen-
-
-dant les deux premiers siècles du christianisme
+temps, l'approche à la source de la doctrine, pendant les deux premiers siècles du christianisme
 n'était qu'un des mauvais prétextes extérieurs. Paul
-disait: « Je sais du Christ lui-même »; un autre
+disait: « Je sais du Christ lui-même un autre
 disait: « Je sais de Luc » et tous disaient: « Nous
 pensons juste et la preuve, c'est que nous sommes
 une grande réunion, l'ecclésias, l'église. Mais c'est
@@ -560,9 +531,7 @@ grandes et petites.
 La différence de ces deux côtés de la doctrine est
 claire pour chacun, et chacun peut voir le résultat
 de l'un et de l'autre dans la vie des peuples, et par
-ces résultats, il peut conclure quel côté est plus im-
-
-portant et si l'on peut s'exprimer ainsi, « plus
+ces résultats, il peut conclure quel côté est plus important et si l'on peut s'exprimer ainsi, « plus
 vrai ». Quand on regarde d'un côté l'histoire du
 christianisme, on estsaisi d'horreur. Sans exception,
 depuis le commencement et jusqu'au bout, jusqu'à
@@ -594,8 +563,7 @@ sur l'importance de ces dogmes, avaient reçu une
 éducation si perverse qu'il leur était impossible de
 voir leur erreur, pouvaient se tromper. Et pouvaient aussi se tromper les humbles pour qui ces
 dogmes ne représentaient rien, sauf des paroles et
-des images fantaisistes. Maïs nous, à qui est dé-
-voilé le sens primitif de l'évangile qui nie tous les
+des images fantaisistes. Maïs nous, à qui est dévoilé le sens primitif de l'évangile qui nie tous les
 dogmes, nous qui avons devant les yeux les résultats de ces dogmes dans l'histoire, nous ne pouvons
 nous tromper. Pour nous, l'histoire est le contrôle
 5: de la véracité de doctrine, contrôle même mé-
@@ -623,8 +591,7 @@ les événements actuels en RUSSIE: RÈR
 
 La lettre que l'on lire a été publiée pour la première fois en français dans le Courrier Européen;
 deuxième année, numéro IS, vendredi 10 mars 1905;
-nous publions plus loin, disait le Courrier dans sa pre-
-mière page, un important article de Tolstoy sur les
+nous publions plus loin, disait le Courrier dans sa première page, un important article de Tolstoy sur les
 événements de Russie. C'est l'article dont il a été
 question récemment dans la presse et que l'on attendait. Il paraît en même temps en français dans le Courrier Européen et en anglais dans le Times. Il sera
 publié en russe dans quelques jours.
@@ -705,8 +672,7 @@ plus le gouvernement sera puissant et plus le mal -
 qu'il commettra sera grand.
 
 De sorte qüûe le mal causé aux hommes par les.:
-agissements du gouvernement est toujours propor-
-tionnel à l'état religieux et moral de la société
+agissements du gouvernement est toujours proportionnel à l'état religieux et moral de la société
 quelle que soit sa forme.
 
 Cependant, certaines gens, devant tout le mal
@@ -757,14 +723,12 @@ Je trouve cette activité irrégulière, parce que les
 hommes, qui actuellement, en Russie, luttent contre
 le gouvernement, — les membres libéraux des
 Zemstvos. les médecins. les avocats, les écrivains,
-les étudiants, les révolutionnaires et quelques mil-
-liers d'ouvriers détachés du peuple et influencés par
+les étudiants, les révolutionnaires et quelques milliers d'ouvriers détachés du peuple et influencés par
 la propagande, — bien qu'ils se croient et s'intitulent
 les représentants du peuple, n'ont aucun droitàce.!
 Ces hommes, au nom du peuple, réclament du
 gouvernement la liberté: liberté de la presse,
-liberté de conscience, liberté de réunion, la sépara-
-tion des Églises et de l'État, la journée de travail de
+liberté de conscience, liberté de réunion, la séparation des Églises et de l'État, la journée de travail de
 huit heures, la représentation nationale, etc. Et
 demandez au peuple, aux cent millions de paysans,
 ce qu'ils pensent de ces réclamations, et le vrai À
@@ -816,8 +780,7 @@ l'affranchissement des violences gouvernementales,
 mais, au contraire, elle rend les hommes de plus en
 plus inaptes à l'unique activité qui les puisse affranchir.
 
-Tant que les hommes seront incapables de résis-
-ter aux séductions de la peur, de l'étourdissement,
+Tant que les hommes seront incapables de résister aux séductions de la peur, de l'étourdissement,
 du lucre, de l'ambition, de la vanité, qui asservissent les uns et dépravent les autres, ils se grouperont toujours en une société composée de violateurs
 et d'imposteurs, et de leurs victimes. Pour que cela
 ne soit pas, chaque individu doit faire un effort
@@ -860,8 +823,7 @@ empêche le vrai progrès de l'humanité,
 
 Les hommes reconnaissent qu'il y en leur vie,
 quelque chose de mauvais, qu'il y a quelque chose
-qu'il faut améliorer. Maïs l'homme ne peut amé-
-liorer qu'une seule chose qui est en son pouvoir, luimême. Mais pour s'améliorer soi-même, il faut,
+qu'il faut améliorer. Maïs l'homme ne peut améliorer qu'une seule chose qui est en son pouvoir, luimême. Mais pour s'améliorer soi-même, il faut,
 avant tout, reconnaître qu'on n'est pas bon, et cela,
 l'homme ne le veut pas. Et voilà, on attire toute
 l'attention non sur ce qui est toujours en notre pouvoir, non sur nous-mêmes, mais sur des conditions
@@ -891,18 +853,12 @@ révolutionnaires de toutes sortes, libéraux, — cèdent
 à cette erreur pernicieuse.
 
 Les hommes qui jugent superficiellement, les
-hommes légers, émus particulièrement par la boucherie fratricide commise récemment à Saint-Péters-
-
-bourg, et par tous les événements qui accompagnè-
-rent ce crime, pensent que la cause principale de
-ces événements est dans le despotisme du gouverne-
-ment russe, et que si la forme autocratique du gou-
-vernement russe était remplacée par la forme con- à
+hommes légers, émus particulièrement par la boucherie fratricide commise récemment à Saint-Pétersbourg, et par tous les événements qui accompagnèrent ce crime, pensent que la cause principale de
+ces événements est dans le despotisme du gouvernement russe, et que si la forme autocratique du gouvernement russe était remplacée par la forme con- à
 stitutionnelle ou républicaine, de pareils événements
 ne pourraient se répéter.
 Mais le mal principal, (si l'on en pénètre attenti- À
-vement toute l'importance), dont souffre mainte-
-nant le peuple russe, n'est pas dans les événements À
+vement toute l'importance), dont souffre maintenant le peuple russe, n'est pas dans les événements À
 de Saint-Pétersbourg: c'est dans la guerre honteuse
 et cruelle, commencée à la légère, par une dizaine
 d'hommes immoraux. Cette guerre a déjà tué et
@@ -926,8 +882,7 @@ chassés là-bas, pour la même iuerie insensée et
 sans but.
 
 Ce mal est horrible! Si donc l'on parle des maux
-du peuple russe, il faut parler de la guerre; les évé-
-nements de Saint-Pétersbourg ne sont qu'une circonstance accessoire qui accompagne le mal profond, et s'il faut chercher le moyen de le délivrer de
+du peuple russe, il faut parler de la guerre; les événements de Saint-Pétersbourg ne sont qu'une circonstance accessoire qui accompagne le mal profond, et s'il faut chercher le moyen de le délivrer de
 ses maux, il faut le trouver tel, qu'il le délivre des
 deux à la fois.
 
@@ -958,8 +913,7 @@ en Russie, — la guerre et la répression des ré-
 De sorte que l'importance des événements qui se
 passent à Saint-Pétersbourg n'est pas du tout ce
 que pensent les hommes légers, à savoir qu'ils nous
-ont montré la malfaisance particulière du gouver-
-nement despotique russe et que, par conséquent, il
+ont montré la malfaisance particulière du gouvernement despotique russe et que, par conséquent, il
 faut tâcher de le remplacer par un gouvernement
 constitutionnel. L'importance de ces événements
 est beaucoup plus grande: c'est que, dans les actes
@@ -1003,8 +957,7 @@ supprimer tout gouvernement.
 En résumé, mon opinion sur les événements
 actuels est la suivante: le gouvernement russe,
 comme chaque gouvernement existant, — américain,
-français, japonais, anglais, — est un horrible, mhu-
-main et impuissant brigand dont l'activité malfai-!
+français, japonais, anglais, — est un horrible, mhumain et impuissant brigand dont l'activité malfai-!
 sante se manifeste sans cesse. C'est pourquoi tous )
 les hommes raisonnables doivent, de toutes leurs
 forces, tâcher de se délivrer de tout gouvernement,
@@ -1033,8 +986,7 @@ nettement la malfaisance des gouvernements, —
 comme actuellement, nous, les Russes, qui sentons
 nettement, maladivement, le mal de notre gouvernement stupide, cruel et mensonger qui a perdu
 déjà des centaines de mille hommes, qui ruine et
-déprave des millions de gens, et maintenant, provoque les Russes au fratricide, — plus opinià-
-trement, ils doivent tâcher d'établir en eux une
+déprave des millions de gens, et maintenant, provoque les Russes au fratricide, — plus opiniàtrement, ils doivent tâcher d'établir en eux une
 conscience nette, ferme, religieuse; plus serupuleusement ils doivent accomplir la loi divine qui
 découle de cette conscience et qui exige de nous non
 la transformation du gouvernement existant, ou
@@ -1058,8 +1010,7 @@ une sorte de mal physique.
 Il y avait des monceaux de cadavres, des femmes et il » LEP
 des enfants ensanglantés, emmenés dans des voitures.
 Mais est-ce ce qui est horrible? Non, ce sont les sol- F:)
-4 dats avec leurs visages bonasses, ordinaires, sans pen-
-sées, sans compréhension, qui sont horribles! Les soldats à
+4 dats avec leurs visages bonasses, ordinaires, sans pensées, sans compréhension, qui sont horribles! Les soldats à
 qui battent la semelle, sur la neige, et attendent l'ordre:
 de fusiller quelqu'un. C'est le public aussi, avec son
 aspect ordinaire, curieux, qui est horrible. Même les
@@ -1095,8 +1046,7 @@ personne, parmi eux, ne sait pourquoi les uns tirent,
 pourquoi les autres tombent, pourquoi les autres regardent. En d'autres temps, il y a la même vie terrible
 et incompréhensible, où il est dans l'ordre des choses
 de tirer, d'après le commandement, sans hostilité ni
-haine! Mais ces jours-ci, tout le reste est momentané-
-ment suspendu. Il ne reste plus que cette seule chose
+haine! Mais ces jours-ci, tout le reste est momentanément suspendu. Il ne reste plus que cette seule chose
 épouvantable!... Il semble qu'un abîme te sépare de
 chaque homme, et que tu ne puisses le franchir, bien
 que tu sois près. Ce sentiment est épouvantable!

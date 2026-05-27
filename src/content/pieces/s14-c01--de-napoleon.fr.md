@@ -56,9 +56,7 @@ légions, préfet des préfets, grand pontife
 des diverses églises. Mais quand il serait
 dieu, il est toujours chef de bande. Tous
 les hommes de guerre admirent en lui le
-maître de la guerre, le prince des géné-
-
-raux. Le génie des armes est le sien:
+maître de la guerre, le prince des généraux. Le génie des armes est le sien:
 non pas le torrent des invasions, mais
 l'art achevé de la manœuvre, et le poète
 sans égal de la stratégie. À l'État et à
@@ -67,8 +65,7 @@ tel est le génie de l'homme seul, sans liens
 profonds qu'à soit même.
 Il est l'homme de la Révolution: il est
 donc l'homme du destin. Il accomplit
-l'œuvre énorme que la Révolution lui pré-
-pare. Il est pareil, avec sa grosse tête
+l'œuvre énorme que la Révolution lui prépare. Il est pareil, avec sa grosse tête
 d'enfant boudeur, au marmot qui
 
 semble les morceaux du jeu. La Révolution lui a jeté en tas les pierres, les poutres
@@ -104,8 +101,7 @@ même que la force; car l'ordre est le
 second âge de la force, et tout le blé de
 On le croit Italien, parce qu'il ne peut
 pas prononcer les « ». On le dit Toscan,
-Miniato. D'ailleurs, on en trouve à Tré-
-vise et à Udine. Mais, certes, Napoléon
+Miniato. D'ailleurs, on en trouve à Trévise et à Udine. Mais, certes, Napoléon
 est le moins vénitien des fils de la Méditerranée. Que lui importe la volupté, et
 la chair? et les femmes?
 
@@ -193,8 +189,7 @@ elle a l'odeur profonde de l'Orient. En
 mer, par la nuit d'été, le parfum de la
 Corse enivreles narines,comme la tunique
 
-de la Sulamite déployée. C'est une sen-
-teur de cédrat et de myrrhe, d'encens, de
+de la Sulamite déployée. C'est une senteur de cédrat et de myrrhe, d'encens, de
 thym et de cyprès: plus douce que la
 fleur d'oranger, plus chaude que l'œillet,
 plus fraîche que les épices, comme si une
@@ -231,9 +226,7 @@ de ressource, volontaires et rusés, fourbes
 parfois et souvent prophètes, animés de
 l'esprit qui devance les temps, et qui les
 précipite sus aux actes, ils sont Romains
-par la culture et l'élection, non pas d'in-
-
-slinct ni d'origine.
+par la culture et l'élection, non pas d'inslinct ni d'origine.
 Ligure, Corse, Napoléon a le génie
 punique dans toute sa puissance. C'est
 
@@ -280,8 +273,7 @@ chêne corse, qui peut croire toute la terre
 faite uniquement pour ses racines, et le
 ciel uniquement pour lui dispenser le
 soleil et la pluie. Jamais homme ne fut Ni
-si peu de l'Occident. Il n'était pas vulné-
-rable à la tête ou au cœur, ni même au
+si peu de l'Occident. Il n'était pas vulnérable à la tête ou au cœur, ni même au
 
 talon, comme tous ceux que le rêve a
 trempés, dès la naissance, dans la vague
@@ -346,11 +338,8 @@ enferme toutes: elle est le mètre temporel
 
 entre les intérêts et les nations.
 
-Ce grand juge de la valeur, en conqué-
-rant qui a besoin de la vie des autres
-hommes, devait faire de la valeur mili-
-
-taire la valeur par excellence. le cou
+Ce grand juge de la valeur, en conquérant qui a besoin de la vie des autres
+hommes, devait faire de la valeur militaire la valeur par excellence. le cou
 rage, en effet, est la plus haute valeur à
 Le ses yeux. Le chef de guerre n'est rien
 sans la valeur des soldats: voilà le pire
@@ -382,9 +371,7 @@ aussi où tls se relirent de la partie et
 A force de manier les valeurs, Napoléon a oublié que la valeur humaine est
 sujette à varier, et qu'elle n'est pas uniquement passive. De là, que si profond et
 si maître de lui dans le succès, quand il
-pèse bien les hommes, il semble si étran-
-
-gement aveugle dans les revers, si brutalement obstiné dans la défaite. calcule
+pèse bien les hommes, il semble si étrangement aveugle dans les revers, si brutalement obstiné dans la défaite. calcule
 toujours aussi bien; mais il ne s'aperçoit
 pas que les unités et les éléments de son
 calcul ne sont plus les mêmes. Il fait les
@@ -432,12 +419,10 @@ réduire à rien toutes les autres. Maitre
 de la France, il:méconnaît la force qui
 la lui a donnée.
 Telle est l'origine de ses erreurs les
-plus grossières, où il était forcé de per-
-sévérer. Avec le pape, un vieillard en
+plus grossières, où il était forcé de persévérer. Avec le pape, un vieillard en
 prison, qu'il pensait réduire à la charge
 de chapelain. Avec le tsar Alexandre,
-qu'il croyail avoir séduit au point d'en-
-dormir son amour-propre, comme si.
+qu'il croyail avoir séduit au point d'endormir son amour-propre, comme si.
 l'amour-propre d'un jeune souverain ne
 sommeillait pas que d'un œil. Avec les
 tristes Habsbourg, qui peuvent bien avoir
@@ -555,8 +540,7 @@ ridicule des idées de Napoléon sur l'art
 et les poètes. C'est en quoi Napoléon n'a
 Jamais compris qu'on lui opposât le génie
 
-des artistes, la liberté des partis, l'indé-
-pendance des peuples, le droit des particuliers. À ses yeux, n'est pas de
+des artistes, la liberté des partis, l'indépendance des peuples, le droit des particuliers. À ses yeux, n'est pas de
 personne privée. Tout individu est d'abord
 dans l'Etat.
 
@@ -565,9 +549,7 @@ valeurs rebelles. Il en avait pris la tutelle
 la garde. Il était prêt à y tout
 sacrifier, et en partie lui-même. Il ne
 pouvait pas admettre qu'on cherchât des
-variables ou des obliques aux perpendi-
-
-culaires politiques et morales, qu'il avait
+variables ou des obliques aux perpendiculaires politiques et morales, qu'il avait
 abaissées du point fixe: l'intérét de
 l'État, tel qu'il l'avait conçu et confondu
 dans son propre intérêt, à lui. En tout le
@@ -580,8 +562,7 @@ continental est l'unité dans l'ordre éco-
 “nomique. Les codes, l'unité dans l'ombre des lois; et l'on peut dire que
 le vice profond de ces codes, qui
 ont conquis l'Europe, est assurément le
-mépris des espèces: ils nient le changement; ils ignorent l'individu. Au crt-
-minel, ils poussent celte ignorance jusqu'à
+mépris des espèces: ils nient le changement; ils ignorent l'individu. Au crtminel, ils poussent celte ignorance jusqu'à
 l'atrocité, jusqu'à la sottise. Napoléon
 eût volontiers promené le même rouleau
 
@@ -652,17 +633,13 @@ Il joue sur les faits, le fort aventurier.
 Il a souvent caché la table de jeu sous
 les oripeaux, sacrés à tous les hommes,
 … la prophétie. Mais au fond il jouait l'empire sur une chance, à Waterloo comme
-devant Saint-Roch. Sa mère ne s'y trom-
-pail pas, l'œil sur lui, cet œil de la nour-
-rice qui s'attend à tout qu'on ne trompe
+devant Saint-Roch. Sa mère ne s'y trompail pas, l'œil sur lui, cet œil de la nourrice qui s'attend à tout qu'on ne trompe
 pas, l'œil qui a connu le corps de l'homme
 au berceau, l'œil de la femme qui a changé
 son petit dans les langes. Joueuse elle
 aussi, Letizia, la vieille Parque, mettait
 des millions à l'abri, dans les temps
-. solaires d'Austerlilz et d'Iéna, en prévi-
-
-sion de la saison noire. Et elle osait dire
+. solaires d'Austerlilz et d'Iéna, en prévision de la saison noire. Et elle osait dire
 de ses fils, tous ensemble en peloton, le
 grand avec les petits, comme ils sont
 méêlés sur la quenouille d'une mère: « Ils
@@ -675,9 +652,7 @@ de nos rois: le hasard, maître du prince,
 et rot des rois! On ne peut pas gagner
 toujours, et il faut admettre que l'on
 
-Si... Le mot de la chance! c'est l'éten-
-
-dard du jeu. Le mot qui flotte, le mot qui
+Si... Le mot de la chance! c'est l'étendard du jeu. Le mot qui flotte, le mot qui
 
 palpite, le mot qui tombe. Si... La con.
 nœud du fait à l'hypothèse, et du présent
@@ -840,9 +815,7 @@ Malgré tout, il n'avait pas le cœur de
 la vieille France, celui qu'il avait reçu
 de la France nouvelle, et qu'elle lui avait
 donné, sans qu'il le sût, en lui donnant
-son cœur. Il n'était pas capable de s'ou-
-
-blier pour elle. Comme l'État, pour Napoléon, la France c'est lui; c'est son fils,
+son cœur. Il n'était pas capable de s'oublier pour elle. Comme l'État, pour Napoléon, la France c'est lui; c'est son fils,
 c'est son sang. Quand la France se sépare
 de Napoléon et de son petit, Napoléon n'a
 plus pitié de la France. La grand'pitié
@@ -887,8 +860,7 @@ du cuivre. L'ironie, enfin, démonétise les
 statères de Syracuse, pour en transférer
 le prix, non pas à ce qui n'en point,
 bien pis, à la valeur fictive, qui parfois
-est réelle, mais qui d'abord est pertur-
-batrice, étant la valeur non connue. Et
+est réelle, mais qui d'abord est perturbatrice, étant la valeur non connue. Et
 plus elle est inconnue, plus elle est
 neuse de toutes les habitudes. L'ironie
 est la fausse monnoie du roi. Elle est la
@@ -954,8 +926,7 @@ souliers. Peu importe le pillage, l'amour
 à la hussarde, les mœurs grossières, la
 violence des camps, et tous les crimes de
 la guerre. Chacun de ces laboureurs
-bruns était une flamme vivante. Elle brü-
-lait pour le Messie, pour ta Justice et
+bruns était une flamme vivante. Elle brülait pour le Messie, pour ta Justice et
 pour la Raison, comme ils l'appelaient.
 À Sont-ce des mots vides, au cœur de
 ces fils de la terre? Des mots? Non, les

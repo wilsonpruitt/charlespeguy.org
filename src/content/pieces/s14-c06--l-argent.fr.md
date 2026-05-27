@@ -48,16 +48,12 @@ propres, et qui en tout cas valaient beaucoup mieux pour #44 à
 les enfants que la boue du ruisseau. Et que le ruiss
 seau de la rue. Il faut avouer que dans ce temps-là, elles, À
 
-(ces folies scolaires), avaient en effet l'air un peu inso-
-lent. Non point parce qu'elles étaient somptueuses. On DE
-mettait dans les journaux, qu'elles étaient somp-
-tueuses. Elles étaient simplement propres; et décentes.
+(ces folies scolaires), avaient en effet l'air un peu insolent. Non point parce qu'elles étaient somptueuses. On DE
+mettait dans les journaux, qu'elles étaient somptueuses. Elles étaient simplement propres; et décentes.
 Mais parce qu'elles étaient un peu trop voyantes. Elles He.
-avaient poussé un peu trop partout à la fois. Et peut-
-être un peu trop vite. On les avait trop mis en même
+avaient poussé un peu trop partout à la fois. Et peutêtre un peu trop vite. On les avait trop mis en même
 temps. Et celles qu'on voyait, on les voyait trop. Elles
-étaient trop blanches, trop rouges, trop neuves. Qua-
-rante ans sont passés sur ces coins de la terre. Un me
+étaient trop blanches, trop rouges, trop neuves. Quarante ans sont passés sur ces coins de la terre. Un me
 simple voyage à Orléans vous convaincrait sans peine: ‘'e
 qu'aujourd'hui tous ces bâtiments scolaires sont comme
 nous: ils ne sont pas trop voyants.: ES
@@ -75,7 +71,7 @@ point tout à fait de ma faüte.
 On me mit à l'École Normale. Ce ne devait pas être
 la dernière fois. Cela signifiait cette fois-là qu'on me fit à.
 entrer dans cette jolie petite école annexe qui demeurait
-dans un coin de la première cour de l'École Normale, à:
+dans un coin de la première cour de l'École Normale,
 
 ; droite en entrant, comme une espèce de nid rectangu10
 
@@ -133,8 +129,7 @@ qu'un enfant élevé dans une ville comme Orléans entre ne
 1873 et 1880 a littéralement touché l'ancienne France, À
 l'ancien peuple, le peuple, tout court, qu'il a littérale-;
 ment participé de l'ancienne France, du peuple. On peut
-même dire qu'il en a participé entièrement, car l'an-
-cienne France était encore toute, et intacte. La débâcle
+même dire qu'il en a participé entièrement, car l'ancienne France était encore toute, et intacte. La débâcle
 s'est faite si je puis dire d'un seul tenant, et en moins ES
 de quelques années.
 
@@ -148,16 +143,14 @@ d'hui le plus insupportable des disciples de M. Maurras
 n'est pas pour un atome un homme de l'ancienne
 
 Nous essaierons, si nous le pouvons, de représenter,
-cela. Une femme fort intelligente, et qui se dirige allè-
-grement vers ses septante et quelques années disait:
+cela. Une femme fort intelligente, et qui se dirige allègrement vers ses septante et quelques années disait:
 Le monde a moins changé pendant mes soixante premières années qu'il n'a changé depuis dix ans. Il faut
 aller plus loin. Il faut dire avec elle, il faut dire au delà
 d'elle; Le monde a moins changé depuis Jésus-Christ
 
 qu'il »'a changé depuis trente ans. Il y a l'âge
 lâge moderne. Une ferme en Beauce, encore après la
-guerre, était infiniment plus près d'une ferme gallo-
-romaine, ou plutôt de la même ferfhe gallo-romaine,
+guerre, était infiniment plus près d'une ferme galloromaine, ou plutôt de la même ferfhe gallo-romaine,
 pour les mœurs, pour le statut, pour le sérieux, pour la
 gravité, pour la structure même et l'institution, pour la
 dignité, (et même, au fond, d'une ferme de Xénophon),
@@ -174,10 +167,8 @@ plus près d'une paroisse du quinzième siècle, ou du
 quatrième siècle, mettons du cinquième ou du huitième,
 que d'une paroisse actuelle.
 
-C'est pour cela que l'on est exposé à être extrême-
-ment injuste envers Michelet et tous ceux de sa race,
-et ce qui est encore peut-être plus grave à être extré-
-mement inentendant de Michelet et de tous ceux de sa
+C'est pour cela que l'on est exposé à être extrêmement injuste envers Michelet et tous ceux de sa race,
+et ce qui est encore peut-être plus grave à être extrémement inentendant de Michelet et de tous ceux de sa
 race. À en être inintelligent. Quand aujourd'hui on dit:
 le peuple, en effet on fait une figure, et même une assez
 pauvre figure, et même une figure tout à fait vaine, je
@@ -197,12 +188,11 @@ faisait prévoir; et il semblaït que cela ne dût jamais
 se finir. Dix ans après il n'y avait plus rien. Le peuple …
 5 s'était acharné à tuer le peuple, presque instantané-
 Se ment, à supprimer l'être même du peuple, un peu 21)
-comme la famille d'Orléans, un peu moins instantané-
-ment peut-être, s'est acharnée à tuer le roi. D'ailleurs 54 à
+comme la famille d'Orléans, un peu moins instantanément peut-être, s'est acharnée à tuer le roi. D'ailleurs 54 à
 tout ce dont nous souffrons est au fond un orléanisme;
 orléanisme de la religion; orléanisme de la république. +8
 Voilà ce qu'il faudrait marquer dans des Confessions.
-2 Et tâcher de le faire voir. Et tächer de le faire entendre.
+Et tâcher de le faire voir. Et tächer de le faire entendre.
 - D'autant plus exactement, d'autant plus précieusement, …
 et si nous le pouvons d'autant plus uniquement que l'on
 ne reverra jamais cela. Il y a des innocences quinese
@@ -269,8 +259,7 @@ Nous avons connu ce soin poussé jusqu'à la perfection,
 
 à Nous avons connu cette piété de l'ouvrage bien faite
 poussée, maintenue jusqu'à ses plus extrêmes exigences.
-J'ai toute mon enfance rempailler des chaises exac-
-tement du même esprit et du même cœur, et de la même
+J'ai toute mon enfance rempailler des chaises exactement du même esprit et du même cœur, et de la même
 main, que ce même peuple avait taillé ses cathédrales.
 
 Que reste-t-il aujourd'hui de tout cela? Comment
@@ -302,8 +291,7 @@ temps-là ne savait pas ce que c'est que quémander.
 C'est la bourgeoïsie qui quémande. C'est la bourgeoisie
 É qui, les faisant bourgeois, leur a appris à quémander.
 Aujourd'hui dans cette insolence même et dans cette
-brutalité, dans cette sorte d'incohérence qu'ils appor-
-tent à leurs revendications il est très facile de sentir « cette honte sourde, d'être forcés de demander, d'avoir
+brutalité, dans cette sorte d'incohérence qu'ils apportent à leurs revendications il est très facile de sentir « cette honte sourde, d'être forcés de demander, d'avoir
 été amenés, par l'événement de l'histoire économique,
 à quémander. Ah oui ils demandent quelque chose à
 quelqu'un, à présent. Ils demandent même tout à tout
@@ -325,8 +313,7 @@ bonneur voulait que ce bâton de chaise fût bien fait. CES
 Toute partie, dans la chaise, qui ne se voyait pas, était nee
 exactement aussi parfaitement faite que ce qu'on voyait.
 C'est le principe même des cathédrales. 1422000
-Et encore c'est moi qui en cherche si long, moi dégé-
-néré. Pour eux, chez eux il n'y avait pas l'ombre d'une
+Et encore c'est moi qui en cherche si long, moi dégénéré. Pour eux, chez eux il n'y avait pas l'ombre d'une
 réflexion. Le travail était là. On travaillait bien. DE
 de Il ne s'agissait pas d'être ou pas vu. C'était l'être À
 même du travail qui devait être bien fait.: AUPIES
@@ -367,9 +354,7 @@ dire.
 
 Tant leur travail était une prière. Et l'atelier était un
 
-Tout était le long événement d'un beau rite. Ils eus-
-
-sent été bien surpris, ces ouvriers, et quel eût été, non:
+Tout était le long événement d'un beau rite. Ils eussent été bien surpris, ces ouvriers, et quel eût été, non:
 pas même leur dégoût, leur incrédulité, comme ils
 auraient cru que l'on blaguait, si on leur avait dit que
 quelques années plus tard, dans les chantiers, les
@@ -389,10 +374,9 @@ Une victoire de toutes les heures du jour dans tous les
 
 honneur militaire. Les sentiments mêmes de la garde de.
 Et par suite ou ensemble tous les beaux sentiments a
-adjoints ou connexes, tous les beaux sentiments dérivés -:
+adjoints ou connexes, tous les beaux sentiments dérivés
 et filiaux. Un respect des vieillards; des parents, de la
-parenté. Un admirable respect des enfants. Naturel-
-lement un respect de la femme. (Etil faut bien le dire,
+parenté. Un admirable respect des enfants. Naturellement un respect de la femme. (Etil faut bien le dire,
 puisque aujourd'hui c'est cela qui manque tant, un
 respect de la femme par la femme elle-même). Un
 respect de la famille, un respect du foyer. Et surtout un
@@ -402,8 +386,7 @@ ma main à travailler, disaient les vieux. Et c'était la:
 fin des fins. L'idée qu'on aurait abimer ses outils À
 exprès ne leur eût pas même semblé le dernier des
 sacrilèges. Elle ne leur eût pas même semblé la pire
-des folies. Elle ne leur eût pas même semblé mons-
-trueuse. Elle leur eût semblé la supposition la plus
+des folies. Elle ne leur eût pas même semblé monstrueuse. Elle leur eût semblé la supposition la plus
 extravagante. C'eût été comme si on leur eût parlé de
 se couper la main. L'outil n'était qu'une main plus
 longue, ou plus dure, (des ongles d'acier), ou plus
@@ -420,8 +403,7 @@ Notez qu'aujourd'hui au fond ne les amuse pas de;
 
 5 ne rien faire sur les chantiers. Ils aimeraient mieux
 travailler. Ils ne sont pas en vain de cette race laborieuse. Ils entendent cet appel de la race. La main qui
-démange, qui a envie de travailler. Le bras qui s'em-
-bête, de ne rien faire. Le sang qui court dans les veines.
+démange, qui a envie de travailler. Le bras qui s'embête, de ne rien faire. Le sang qui court dans les veines.
 La tête qui travaille et qui par une sorte de convoitise,
 anticipée, par une sorte de préemption, par une véritable anticipation s'empare d'avance de l'ouvrage fait.
 Comme leurs pères ils entendent ce sourd appel du à
@@ -466,8 +448,7 @@ de la valeur qui se vend, la classe ouvrière ne demandait Le
 économique de la valeur qui se vend. 24 FREE
 On ne saurait trop le redire, c'est la bourgeoisie qui
 ; a commencé à saboter et tout le sabotage a pris
-naissance dans la bourgeoisie. C'est parce que la bour-
-geoisie s'est mise à traiter comme une valeur de bourse De
+naissance dans la bourgeoisie. C'est parce que la bourgeoisie s'est mise à traiter comme une valeur de bourse De
 le travail de l'homme que le travailleur s'est mis, lui.
 aussi, à traiter comme une valeur de bourse son propre
 travail. Cest parce que la bourgeoisie s'est mise à faire. RES
@@ -497,8 +478,7 @@ de la désertion militaire, qui est un cas particulier de la
 — grande désertion, comme la gloire militaire était un cas
 particulier de la grande gloire. Ce sont eux qui ont fait
 … croire au peuple que c'était cela le socialisme et que
-c'était cela la révolution. Les partis syndicalistes socialistes ont croire plus ou moins sincèrement qu'ils opé-
-raient ou qu'ils constituaient par eux-mêmes une réaction
+c'était cela la révolution. Les partis syndicalistes socialistes ont croire plus ou moins sincèrement qu'ils opéraient ou qu'ils constituaient par eux-mêmes une réaction
 contre les partis politiques, contre le parti unifié;
 par un phénomène historique très fréquent, par une
 application nouvelle et une vérification nouvelle d'une
@@ -524,8 +504,7 @@ Et surtout le très grand nombre d'ouvriers qu'on y voit
 ne sont pas réellement des ouvriers, ne procèdent pas ES
 réellement, directement du peuple, purement de l'ancien
 peuple. Ce sont en réalité des ouvriers de deuxième
-zone, de la deuxième formation, des ouvriers embour-
-geoisés, (les pires des bourgeois), des ouvriers si je puis.
+zone, de la deuxième formation, des ouvriers embourgeoisés, (les pires des bourgeois), des ouvriers si je puis.
 dire endimanchés dans de la bourgeoisie, des intellectuels aux entournures, les pires des intellectuels, des
 ouvriers avantageux, encore plus sots, s'il est possible,
 que les bourgeois leurs modèles et que les intellectuels
@@ -567,12 +546,9 @@ inquiétude, cette alerte perpétuelle, cette constante
 épouvante qu'il n'y ait, qu'il ne vienne quelque part de
 ne se fonde, qu'il ne naisse quelque vie, quelque race,
 Je ne veux point revenir ici sur ce nom de Jaurès.
-L'homme qui représente en France la politique impé-
-
-riale allemande est tombé au-dessous du mépris dé: Te
+L'homme qui représente en France la politique impériale allemande est tombé au-dessous du mépris dé: Te
 puisse s'adresser le plus bas. Ce représentant en France &.
-de la politique impérialiste allemande, capitaliste alle-
-mande, et particulièrement coloniale allemande est..: #8)
+de la politique impérialiste allemande, capitaliste allemande, et particulièrement coloniale allemande est..: #8)
 tombé dans un mépris universel. Ce traître par essence
 a trahir une première fois le socialisme au profit des
 partis bourgeois. Il a trahir une deuxième fois 16°,
@@ -580,20 +556,17 @@ dreyfusisme au profit de la raison d'État. Et à quels Met.
 autres profits. IL a trahir ces deux mystiques Se
 profit de ces deux politiques. Il a essayé de trahir une »
 troisième fois. Il a essayé de trahir la France même au Du
-profit de la politique allemande. Et de la politique allemande la plus bourgeoise. Il a ici rencontré une résis-
-tance qui doit l'avertir de ce qui l'attend dans le honteux ne A
+profit de la politique allemande. Et de la politique allemande la plus bourgeoise. Il a ici rencontré une résistance qui doit l'avertir de ce qui l'attend dans le honteux ne A
 . couronnement de sa carrière et que tant de turpitudes
 ne trouveront peut-être pas toujours une égale réussite. A
 dreyfusisme, il voulait le faire de la France aussi. Une +0
 misérable loque. Mais il s'est trouvé que la France était
 Je demande pardon au lecteur de prononcer ici le EN
-nom de M. Jaurès. C'est un nom qui est devenu si bas-
-sement ordurier que quand on l'écrit pour l'envoyer Ne
+nom de M. Jaurès. C'est un nom qui est devenu si bassement ordurier que quand on l'écrit pour l'envoyer Ne
 aux imprimeurs on a l'impression que l'on a peurde
 tomber sous le coup d'on ne saït quelles lois pénales.
 L'homme qui a infecté de radicalisme et le socialismeet
-le dreyfusisme. Cette espèce de Mac-Mahon de l'élo-
-quence parlementaire. L'homme qui a toujours capitulé
+le dreyfusisme. Cette espèce de Mac-Mahon de l'éloquence parlementaire. L'homme qui a toujours capitulé
 devant toutes les démagogies, Et non seulement qui
 a capitulé mais qui a toujours enguirlandé toutes:
 les capitulations des festonnements de ses airs de
@@ -662,8 +635,7 @@ Elles se retrouveront sans doute. Il faut seulement
 
 - savoir que nous passons, mettons que nous venons de À
 passer par la plus mauvaise crise par laquelle ce peuple
-ait jamais à passer. Et en outre par une crise entiè-
-rement nouvelle. Et en outre par une crise dont on ne
+ait jamais à passer. Et en outre par une crise entièrement nouvelle. Et en outre par une crise dont on ne
 : pouvait avoir aucune idée. Il ne faut pas dire: Cette
 race en a bien d'autres, elle verra bien encore celle-
 , là, comme dans la chanson:
@@ -683,8 +655,7 @@ cette race. Et surtout cette bonne humeur, générale,
 constante, ce climat de bonne humeur. Et ce bonheur,
 ce climat de bonheur. Évidemment on ne vivait point
 encore dans l'égalité. On n'y pensait même pas, à l'égalité, j'entends à une égalité sociale. Une inégalité
-commune, communément acceptée, une inégalité géné-
-rale, un ordre, une hiérarchie qui paraissait naturelle
+commune, communément acceptée, une inégalité générale, un ordre, une hiérarchie qui paraissait naturelle
 ne faisaient qu'étager les différents niveaux d'un
 commun bonheur. On ne parle aujourd'hui que de
 l'égalité. Et nous vivons dans la plus monstrueuse
@@ -706,14 +677,13 @@ ou à peine. C'étaient des maîtres d'école. C'était le
 temps où les contributions étaient encore des impôts.
 J'essaierai de rendre un jour si je le puis ce que c'était 2.08;
 alors que le personnel de l'enseignement primaire.
-C'était le civisme même, le dévouement sans mesure à …:
+C'était le civisme même, le dévouement sans mesure à
 l'intérêt commun. Notre jeune École Normale était le …
 foyer de la vie laïque, de l'invention laïque dans tout le 2 25%
 département, et même j'ai comme une idée qu'elle était
 un modèle et en cela et en tout pour les autres départe-. Lies
 ments, au moins pour les départements limitrophes: A
-Sous la direction de notre directeur particulier, le direc-
-teur de l'école annexe, de jeunes maîtres de l'école nor- Fes
+Sous la direction de notre directeur particulier, le directeur de l'école annexe, de jeunes maîtres de l'école nor- Fes
 mare venaient chaque semaine nous faire l'école. Parlons a Pre
 bien: ils venaient nous faire la classe. Ils étaient comme: De
 les jeunes Bara de la République. Ils étaient toujours
@@ -833,14 +803,13 @@ daïent le former. Îls en avaient le droit, car ils en
 étaient dignes. Ils n'y ont point réussi, et ce fut un à
 grand malheur pour tout le monde. Mais s'ils n'y ont
 point réussi, je ne vois pas qui pourrait s'en féliciter. Et
-qui, à leur place, y a jamais réussi. Et s'ils n'ont pas À:
+qui, à leur place, y a jamais réussi. Et s'ils n'ont pas
 réussi, c'est que certainement c'était impossible,
 
 Sortis du peuple, mais dans l'autre sens de sortir, fils
 d'ouvriers, mais surtout de paysans et de pelits pro
 priétaires, souvent petits propriétaires eux-mêmes, de
-quelque lopin de terre quelque part. dans le départe-
-ment, ils restaient le même peuple, nullement endimanché
+quelque lopin de terre quelque part. dans le département, ils restaient le même peuple, nullement endimanché
 je vous prie de le croire, seulement un peu plus aligné,
 un peu plus rangé, un peu ordonné dans ces beaux
 jardins de maisons d'école.
@@ -915,8 +884,7 @@ et pareïllement nous apprenions le catéchisme. Nous
 savions la grammaire et également et pareïllement nous
 
 savions le catéchisme. Nous n'avons oublié ni lun: ni
-l'autre. Mais il faut en venir ici à un phénomène beau-
-coup moins simple. Je veux parler de ce qui s'est passé
+l'autre. Mais il faut en venir ici à un phénomène beaucoup moins simple. Je veux parler de ce qui s'est passé
 ? en nous pour ces deux métaphysiques, puisqu'il est
 entendu qu'il faut bien qu'il y ait une métaphysique
 dessous tout. Je l'ai assez dit, du temps que j'étais
@@ -1004,9 +972,7 @@ certainement pas la confidence, ce n'est point une
 
 Je ne crois pas que cela tienne au caractère même du
 
-prêtré. Je me rends très bien compte que depuis quel-
-
-ques années je me lie de plus en plus avec de jeunes
+prêtré. Je me rends très bien compte que depuis quelques années je me lie de plus en plus avec de jeunes
 prêtres qui viennent me voir aux cahiers deux où trois
 
 fois par an. Je n'y éprouve aucune gêne, aucun empé-
@@ -1021,15 +987,12 @@ nous aimions le plus, même avec ceux que nous aimions
 
 filialément, qu'une liaison un peu réticente et un certain
 sentiment de défense. C'est un ces secrets
-cœur où l'on trouverait les explications les plüs pro-
-
-cahiers de la quinzaine ACTUS
+cœur où l'on trouverait les explications les plüs procahiers de la quinzaine ACTUS
 fondes. Nous ne croyons plus un mot de ce que disaient dE
 nos vieux maîtres; et nos maîtres ont gardé tout notre
 cœur, un maintien, une ouverture entière de confidence. 10)
 Nous croyons entièrement ce que disaient nos vieux
-curés, (je n'ose pas dire plus qu'ils ne le croyaient eux-
-mêmes, parce qu'il ne faut jamais dire ce que l'on
+curés, (je n'ose pas dire plus qu'ils ne le croyaient euxmêmes, parce qu'il ne faut jamais dire ce que l'on
 pense), et nos vieux curés ont certainement notre.
 cœur; c'étaient de si braves gens, si bons, si dévoués,
 mais ils n'ont jamais de nous cette sorte propre 20%
@@ -1041,8 +1004,7 @@ faudrait un dialogue, et même plusieurs, et je ne dis
 pas que je ne les écrirai pas. C'est le problème même
 de la déchristianisation temporaire de la France. Il faut
 qu'il y ait une raison pour que, dans le pays de saint
-Louis et de Jeanne d'Arc, dans la ville de sainte Gene-
-viève, quand on se met à parler du christianisme, tout "3
+Louis et de Jeanne d'Arc, dans la ville de sainte Geneviève, quand on se met à parler du christianisme, tout "3
 le monde comprenne qu'il s'agit de Mac-Mahon, et
 quand on se prépare à parler de l'ordre chrétien pour
 que tout le monde comprenne qu'il s'agit du Seize-Mai.
@@ -1051,8 +1013,7 @@ des hommes de l'ancienne France. Un homme ne se
 détermine point par ce qu'il fait et encore moins par ce
 qu'il dit. Mais au plus profond un être se détermine
 uniquement par ce qu'il est. Qu'importe pour ce que je
-veux dire que nos maîtres aient en effet une méta-
-physique qui visait à détruire l'ancienne France. Nos
+veux dire que nos maîtres aient en effet une métaphysique qui visait à détruire l'ancienne France. Nos
 
 maîtres étaient nés dans cette maison qu'ils voulaient
 démolir. Ils étaient les droits fils de la maison. Ils
@@ -1074,8 +1035,7 @@ qu'on croie), que c'est son être. Nulle erreur de
 compte n'est peut-être aussi fausse et peut-être aussi
 grave. Par conséquent nulle erreur n'est aussi communément répandue. Un homme est de son extraction, un
 homme est de ce qu'il est. Il n'est pas de ce qu'il fait:
-pour les autres, pour les successeurs. Ce seront peut-
-être les autres, ce seront peut-être les successeurs qui
+pour les autres, pour les successeurs. Ce seront peutêtre les autres, ce seront peut-être les successeurs qui
 seront de cela. Mais lui ne l'est pas.
 
 Le père n'est pas de lui-même, il est de son extractior; et ce sont ses enfants peut-être qui seront de
@@ -1093,8 +1053,7 @@ Mais ils éfaient des hommes de l'ancienne France.
 Par contre et pareillement, par une situation contraire à
 et parfaitement analogue tous ces grands tenanciers de 2360
 l'ancien régime parmi nous sont comme tout le monde.
-sont essentiellement des hommes modernes et géné-
-ralement modernistes. Ils ne sont aucunement, et. 34%:
+sont essentiellement des hommes modernes et généralement modernistes. Ils ne sont aucunement, et. 34%:
 encore moins que d'autres, des hommes de l'ancienne MA
 France. Ils sont réactionnaires, mais ils sont infini- 54)
 ment moins conservateurs que nous. Ils ne démolissent
@@ -1110,8 +1069,7 @@ doute point une institution de la royauté, mais qu'elle. De,
 en était une maladie au contraire, et l'annonce et Le.
 Yamorce des temps futurs, le commencement de l'in
 et du suffrage et d'on ne sait déjà quelle démocratie
-C'est toujours la même histoire, et le même glisse-
-ment, et le même report, et le même décalage, Parce Res
+C'est toujours la même histoire, et le même glissement, et le même report, et le même décalage, Parce Res
 que c'est toujours la même hâte, et le même superficiel, SE -
 et le même manque de travail, et le même mangue
 d'attention. On ne regarde pas, on ne fait pas attention
@@ -1147,8 +1105,7 @@ vais bien les étonner: ils nous enseignaient la même
 
 cahiers de la quinzaine
 chose que les curés. Et les curés nous enseignaientla
-même chose qu'eux. Toutes leurs contrariétés métaphy-
-siques n'étaient rien en comparaison de cette commu-
+même chose qu'eux. Toutes leurs contrariétés métaphysiques n'étaient rien en comparaison de cette commu-
 _nauté profonde qu'ils étaient de la même race, du
 même temps, de la même France, du même régime. De
 la même discipline. Du même monde. Ce que les curés
@@ -1158,11 +1115,9 @@ aussi. Car les uns et les autres ensembleils disaient.:
 Les uns et les autres et avec eux nos parents et dès
 avant eux nos parents ils nous disaient, ils nous ensei- Fes
 gnaient cette stupide morale, qui a fait la France, qui ne
-aujourd'hui encore l'empêche de se défaire. Cette stu-
-pide morale à laquelle nous avons tant cru. A laquelle,
+aujourd'hui encore l'empêche de se défaire. Cette stupide morale à laquelle nous avons tant cru. A laquelle,
 sots que nous sommes, et peu scientifiques, malgré.
-tous les démentis du fait, à laquelle nous nous raccro-
-chons désespérément dans le secret de nos cœurs. Cette
+tous les démentis du fait, à laquelle nous nous raccrochons désespérément dans le secret de nos cœurs. Cette
 pensée fixe de notre solitude, c'est d'eux tous que nous
 la tenons. Tous les trois ils nous enseignaient cette
 morale, ils nous disaient que un homme qui travaille
@@ -1200,8 +1155,7 @@ même non pas seulement le plus grand bonheur, mais
 le seul bonheur même que l'on pût imaginer). (Bien se
 loger dans une petite maison de pauvreté).
 une croyance aussi stupide, (notre profond secret, notre
-dernière et notre secrète règle, notre règle de vie secrè-
-tement caressée); on se demande où a naître,
+dernière et notre secrète règle, notre règle de vie secrètement caressée); on se demande où a naître,
 comment a naître une opinion aussi déraisonnable,
 un jugement sur la vie aussi pleinement indéfendable.
 Que l'on ne cherche pas. Cette morale n'était pas stupide. Elle était juste alors. Et même elle était la seule
@@ -1249,8 +1203,7 @@ monde moderne, lui seul et de son côté, se contrarie ne
 Se anciens mondes ensemble en bloc et de leur côté. Nous
 avons connu, nous avons touché un monde, (enfants
 nous en avons participé), où un homme qui se bornait
-dans la pauvreté était au moins garanti dans la pau-
-yreté. C'était une sorte de contrat sourd entre l'homme
+dans la pauvreté était au moins garanti dans la pauyreté. C'était une sorte de contrat sourd entre l'homme
 et le sort, et à ce contrat le sort n'avait jamais manqué
 avant l'inauguration des temps modernes. Il était
 ; entendu que celui qui faisait de la fantaisie, de l'arbitraire, que celui qui introduisait un jeu, que celui qui
@@ -1264,8 +1217,7 @@ Ils ne pouvaient pas prévoir qu'un tel temps venait,
 . qu'il était là, que déjà il surplombait. Ils ne pouvaient
 pas même supposer qu'il y eût jamais, qu'il dût y avoir
 un tel temps. Dans leur système, qui était le système
-même de la réalité, celui qui bravyait risquait évidem-
-ment tout, mais celui qui ne bravait pas ne risquait
+même de la réalité, celui qui bravyait risquait évidemment tout, mais celui qui ne bravait pas ne risquait
 absolument rien. Celui qui tentait, celui qui voulait
 s'évader de la pauvreté, celui qui jouait de s'évader de
 la pauvreté risquait évidemment de retomber dans les
@@ -1301,8 +1253,7 @@ tricherie, nouvelle, cette invention, cette rupture du
 jeu, que celui qui ne joue pas perdit continuellement.
 (Étant donné que nous faisons de la pauvreté à la à
 misère cette différence par les définitions, cette discri-
-à l'autre, détermination que j'avais commencé de recon-
-naître, à propos de l'admirable roman de Lavergne,
+à l'autre, détermination que j'avais commencé de reconnaître, à propos de l'admirable roman de Lavergne,
 dans un cahier intitulé de Jean Coste). en
 Dans le système de nos bons maîtres, curés et laïques,
 et laïcisateurs, et c'était le même système de la réalité,
@@ -1412,8 +1363,7 @@ quand devenus jeunes lycéens nous entretenions des
 concours constants de sports avec les jeunes normaliens.
 Car on venait d'inventer aussi le sport, et de fonder “4
 cette autre fondation. Mais ceci m'entraînerait dans des
-Ainsi M. Naudy vint vers nous comme un surdirec-
-teur. Officiellement il ne dirigeait que l'École Normale. "4
+Ainsi M. Naudy vint vers nous comme un surdirecteur. Officiellement il ne dirigeait que l'École Normale. "4
 Mais son activité débordante ne pouvait ignorer, ou
 négliger la filiale. Dirai-je qu'il me distingua. Ce serait
 parler grossièrement. Il se fit bientôt mon maître et
@@ -1495,8 +1445,7 @@ devenais, si je ne fusse point allé en sixième, si
 , M. Naudy ne m'avait point repêché juste à ces vacances
 : de Pâques. J'avais douze ans et trois mois. Il était
 se temps. ÊTES
-On trouvera dans ce cahier les résultats d'une expé-
-rience de trente ans, poussée, poursuivie dans l'ensei- “ae!
+On trouvera dans ce cahier les résultats d'une expérience de trente ans, poussée, poursuivie dans l'ensei- “ae!
 
 gnement primaire par un homme qui n'en était sans
 doute pas originairement, mais qui s'en était fait sans que
@@ -1521,14 +1470,12 @@ des premiers méliers), par un homme de ce métier; LOETU
 qui l'a fait trente ans; et plus; non point par un homme:
 qui en parle sur des papiers; mais par un homme qui
 - a exercé; trente ans; par un homme de grand sens,;
-5 d'esprit ouvert, d'une très grande activité, qui y a:
+5 d'esprit ouvert, d'une très grande activité, qui y
 É opéré trente ans, et dans le plus grand détail. Et qui RES
 
 fut toujours particulièrement bien placé pour en parler.
 
-Quand il nous parler d'écoles normales et d'inspec-
-
-tions, il ne s'agira point de papiers et de rapports de ser
+Quand il nous parler d'écoles normales et d'inspections, il ne s'agira point de papiers et de rapports de ser
 
 bureaux sur les écoles normales et sur les inspections,
 
@@ -1555,8 +1502,7 @@ de ce temps et de l'avènement des temps modernes et
 rien de cela ne s'était présenté dans aucun autre temps.
 C'est une grande misère quand les hommes desoixante à
 ans sont jeunes et que les hommes de quarante ansne ta
-le sont plus. Nous aurons été constamment une généra-
-tion qui aura passé par tous les minima et quelque- à
+le sont plus. Nous aurons été constamment une génération qui aura passé par tous les minima et quelque- à
 fois par tous les néants de l'histoire contemporaine.
 C'est ce que j'avais appelé autrefois une génération
 sacrifiée. Mais je ne sais pas pourquoi je m'obstine à le
@@ -1567,8 +1513,7 @@ les hommes de soixante ans, par qui nous avons été
 nous sommes sacrifiés, s'en fichent pas mal; et quand si
 même ils ne s'en ficheraient pas, ils ne le croiront
 jamais; et quand même ils le croiraient, ils ne le sau- a
-ront jamais, quoi qu'on leur en die. C'est ici le prin-
-cipe même de l'enseignement de l'histoire.
+ront jamais, quoi qu'on leur en die. C'est ici le principe même de l'enseignement de l'histoire.
 Il suit qu'on trouvera dans ce cahier cette même
 ardeur de laïcisation qui emplit toute la vie de ces;
 hommes, qui chez quelques-uns dégénéra en une fureur à
@@ -1606,9 +1551,7 @@ les partis politiques il faut au moins que ce soient les
 
 Telles sont pourtant les mœurs de la véritable liberté.
 
-Être libéral, c'est précisément le contraire d'être moder-
-
-niste et c'est par un incroyable abus de langage que
+Être libéral, c'est précisément le contraire d'être moderniste et c'est par un incroyable abus de langage que
 
 l'on apparente ordinairement ces deux mots. Et ce
 
@@ -1793,8 +1736,7 @@ monde moderne, que pour ceux qui ne travaillent pas.
 “4 C'est donc ici une question très grave. Mais ce que
 é je veux dire aujourd'hui, c'est que c'est vraiment une
 question de droit commun. C'est une question d'un
-. certain malheur commun, d'une grande misère com-
-mune. C'est une question de la vie générale de la nation
+. certain malheur commun, d'une grande misère commune. C'est une question de la vie générale de la nation
 et de disponibilités budgétaires. Cette première ques
 7. tion n'a rien de commun avec cette autre question de
 ce gouvernement spirituel que quelques instituteurs
@@ -1832,8 +1774,7 @@ m'étonne que l'on n'ait jamais posée. Pourquoi les
 maîtres d'école ne font-ils pas des études. Je me rappelle
 très bien comment se passait. Je me rappelle très:
 bien le chemin que je suivais quand M. Naudy m'en ne.
-retira un peu vivement. Les jeunes gens qui se propo-
-saient de devenir maîtres d'école, ou plutôt les jeunes:
+retira un peu vivement. Les jeunes gens qui se proposaient de devenir maîtres d'école, ou plutôt les jeunes:
 gens à qui on pensait pour en faire des maîtres d'école,
 pour les faire devenir maîtres d'école faisaient d'abord
 trois ans à l'École primaire supérieure, que l'on nommait alors, je l'ai dit, l'école professionnelle; première
@@ -1856,14 +1797,12 @@ confusément le lycée. Et ils travaillaient au moins
 autant. Et quelques-uns travaillaient très bien. Ils se
 donnaient beaucoup plus de mal, ils fournissaient beaucoup plus de travail pour passer le brevet simple que
 nous pour passer l'examen de fin de quatrième, que
-nous ne passions pas, et pour passer le brevet supé-
-rieur que nous pour passer le bachot. Alors on se
+nous ne passions pas, et pour passer le brevet supérieur que nous pour passer le bachot. Alors on se
 demande. Et il est si simple de se demander: Alors, à
 ce compte-là, pour ce prix-là, pour cette longueur de
 temps, pour tant de travail et pour tant de conduite on
 se demande à ce prix-là pourquoi on ne leur fait pas
-faire leurs études. Et pourquoi, au lieu du brevet supé-
-rieur, qui n'est rien, on ne leur donne pas au moins le
+faire leurs études. Et pourquoi, au lieu du brevet supérieur, qui n'est rien, on ne leur donne pas au moins le
 bachot, qui n'est pas grand chose. Je ne vois pas en
 quoi savoir du latin et du grec les empêcherait d'enseigner du français, et même d'enseigner en français. Moi
 je ferais un bon maître d'école. On se demande si ce
@@ -1897,8 +1836,7 @@ dis: Pourquoi voulez-vous exercer un gouvernement
 des esprits. Et comme tous les autres pourquoi voulez-:
 vous exercer un gouvernement temporel des esprits. à
 Pourquoi voulez-vous avoir une politique, et imposer.
-Pourquoi voulez-vous avoir une métaphysique, et l'im-
-poser. Pourquoi voulez-vous avoir un système quel- à
+Pourquoi voulez-vous avoir une métaphysique, et l'imposer. Pourquoi voulez-vous avoir un système quel- à
 conque, et l'imposer.
 Vous êtes faits pour apprendre à lire, à écrire et
 à compter. Apprenez-leur donc à lire, à écrire et à
@@ -1936,9 +1874,7 @@ infiniment plus beau; et plus grand; et plus sage que
 de haranguer des hommes soûls. Parler du système
 métrique, qui est la raison même, et qui est si parfait.
 Parler aussi du système solaire, qui est une sorte
-de système métrique, avec des multiples et des sous67
-
-cahiers de la quinzaine
+de système métrique, avec des multiples et des souscahiers de la quinzaine
 fi) multiples, et qui est réellement si grand, des planètes,
 des satellites, de la voie lactée; pour les plus savants
 4 de la rotation et de la révolution; enfin tout ce que
@@ -1946,8 +1882,7 @@ nous avons appris à l'école primaire; (tout ce que nous
 savons). Être sûr que tout ce qu'on dit est vrai, que
 1 tout ce qu'on dit porte, que c'est bien entendu, que
 1 reste, quel heureux sort, et il n'y a rien au-dessus.
-Faire de ces belles analyses logiques, et grammati-
-cales, où tout retombait droit, où on savait tout, où on
+Faire de ces belles analyses logiques, et grammaticales, où tout retombait droit, où on savait tout, où on
 désarticulait complètement, où on épuisait une phrase,
 16] où il ne restait rien, où tout retombaïit juste Et dexces
 fil Beaux problèmes d'arithmétique où il fallait si soignens
@@ -1959,8 +1894,7 @@ barré“erticale, et où il y avait toujotrs des robmets
 Qtipliait le tapis ) 2 tien
 
 ne sera peut-être point hors de propos de marquer un
-peu ce que nous devons à nos maîtres de l'enseigne-
-ment supérieur. Dans son numéro du 15 Juillet 1911 Le
+peu ce que nous devons à nos maîtres de l'enseignement supérieur. Dans son numéro du 15 Juillet 1911 Le
 (Vème Année, numéro 7, Deuxième Série) (eux aussi
 ils ont des séries), (Prix: 0,60), la Revue Critique des
 Livres Nouveaux publiait l'article suivant: À
@@ -1991,8 +1925,7 @@ nous avons appris à l'école primaire; (tout ce que nous
 savons). Être sûr que tout ce qu'on dit est vrai, que
 tout ce qu'on dit porte, que c'est bien entendu, que
 reste, quel heureux sort, et il n'y a rien au-dessus.;
-Faire de ces belles analyses logiques, et grammati-
-cales, où tout retombait droit, où on savait tout, où on
+Faire de ces belles analyses logiques, et grammaticales, où tout retombait droit, où on savait tout, où on
 désarticulait complètement, où on épuisait une phrase,
 où il ne restait rien, où tout retombait juste. Et de ces
 beaux problèmes d'arithmétique où il fallait si soigneu-:
@@ -2097,8 +2030,7 @@ plusieurs siècles: de la lutte pour l'Idéal à l'adaptation aux
 M. Péguy. Car il parle souvent de « travailler » à autre;
 Et chose; mais il en revient toujours là. A
 Un chrétien des premiers ägés, qui aurait Constantin PSE
-et sa suite, se serait sans doute réfugié dans une métaphy-
-siqüe hautaine, la défense des classiques grecs et le culte
+et sa suite, se serait sans doute réfugié dans une métaphysiqüe hautaine, la défense des classiques grecs et le culte
 dés anciens héros. Il est donc naturel qu'un dreyfusiste
 … intransigeant, amer et désappointé, se retire de même dans 2%
 24 templa serena d'un bergsonisme inaccessible au commun #4
@@ -2107,9 +2039,7 @@ dés anciens héros. Il est donc naturel qu'un dreyfusiste
 - célèbre Jeanne d'Arc sous l'œil bienveillant de M. Maurice
 Barrès. D'autant plus que, en agissant de la sorte, on est CEDE
 
-sûr de ne pas rester isolé: on a pour sei, d'avance, l''applau-
-
-dissement, l'appui moral et, au besoin, « temporel du A
+sûr de ne pas rester isolé: on a pour sei, d'avance, l''applaudissement, l'appui moral et, au besoin, « temporel du A
 
 parti, toujours considérable, qui est irréductiblement
 
@@ -2122,17 +2052,12 @@ ment il se fait que M. Péguy, qui est, au fond, si primaire
 
 roideur et sa demi-culturé, verbale et sans substance), ait
 
-adopté d'instinct l'attitude qu'on lui voit; et que cette atti-
-
-tude commence à lui valoir, avec la curiosité, les sympa-
-
-thies a priori du beau monde, si grossièrement méprisant,
+adopté d'instinct l'attitude qu'on lui voit; et que cette attitude commence à lui valoir, avec la curiosité, les sympathies a priori du beau monde, si grossièrement méprisant,
 
 cahiers de la quinzaine “+3
 d'ordinaire, pour ceux de sa race. Le beau monde, c'est-à*
 dire les gens qui, s'ils avaient pu, il y a dix ans, soupçonne
-son existence, n'auraient pas été éloignés, avec leur bruta-
-lité sans nuances pour tout ce qui dépasse l'alignement, de 2}
+son existence, n'auraient pas été éloignés, avec leur brutalité sans nuances pour tout ce qui dépasse l'alignement, de 2}
 le tenir pour un fou.
 J'en ai dit assez, je crois, pour inviter à lire ce livre.
 C'était mon dessein. L'auteur n'est guère entré en contact
@@ -2151,8 +2076,7 @@ le jugeant. Qu'il soit donc signalé aux amateurs de person- Fe.
 nalités d'exception. Dans le champ où elles poussent, il à
 des individus de toutes sortes, plus ou moins agréables ou je
 déplaisants. On y a découvert notamment, depuis quinze:
-ans, la grâce exquise de Charles-Louis Philippe et l'étince-
-lante fantaisie de Bernard Shaw. N'y passez pas” s'il vous
+ans, la grâce exquise de Charles-Louis Philippe et l'étincelante fantaisie de Bernard Shaw. N'y passez pas” s'il vous
 plaît, sans jeter un coup d'œil sur les essais incohérents de
 L'article que l'on vient de lire est de M. CharlesVictor Langlois, professeur à la Sorbonne, et je pense
 directeur du Musée Pédagogique et autres. Aujourd'hui
@@ -2248,15 +2172,12 @@ même que les amateurs de dots respectent au moins
 notre pauvreté. C'est entendu, monsieur Langlois? et
 Ni trouvez-vous à présent que je suis assez geignard, et Ée.
 L. — f). — Ici j'ouvre une parenthèse, monsieur
-Langlois, (vous voyez que je n'en ai pas perdu l'habi-
-tude), et je vous fais à mon tour une querelle particu-
-lière. Je veux parler de cette cérémonie grotesque que
+Langlois, (vous voyez que je n'en ai pas perdu l'habitude), et je vous fais à mon tour une querelle particulière. Je veux parler de cette cérémonie grotesque que
 l'on a organisée en Sorbonne pour célébrer le demi- …
 centenaire de l'entrée de M. Lavisse à l'École Normale
 Supérieure. Si le peuple français célébrait par des #4
 réjouissances extraordinaires la sortie définitive de de
-M. Lavisse de l'Ecole Normale Supérieure je compren-
-drais encore ça. Cette École pourrait peut-être encore
+M. Lavisse de l'Ecole Normale Supérieure je comprendrais encore ça. Cette École pourrait peut-être encore
 se relever du traitement que M. Lavisse lui a fait subir.
 Mais fêter l'entrée de M. Lavisse à l'École Normale
 c'est fêter l'entrée du fossoyeur dans la maison. Une idée À
@@ -2333,13 +2254,11 @@ le traite en grand seigneur), et qui est célèbre pour
 avoir introduit dans le monde un système de pensée, A
 mettons une méthode, un système de méthode où
 ; M. Lavisse ne peut pas être historien. Pour nous.
-M. Lavisse peut encore être un historien. Pour M. Lan-
-glois et pour les méthodes de M. Langlois et pour les. De.
+M. Lavisse peut encore être un historien. Pour M. Langlois et pour les méthodes de M. Langlois et pour les. De.
 disciples de M. Langlois et selon les méthodes de De.
 mesure de M. Langlois M. Lavisse ne peut être qu'un à
 fade littéraire, ou littérateur, ou homme de lettres. Et
-alors, quand on voit M. Langlois saluer cérémonieuse-
-ment et solennellement en Sorbonne M. Lavisse et oi.
+alors, quand on voit M. Langlois saluer cérémonieusement et solennellement en Sorbonne M. Lavisse et oi.
 l'introniser et le patroniser, alors on est conduit à se
 à demander si ces grandes, ces fameuses méthodes, ces
 grandes souveraines, ces grandes impérieuses, ces SI
@@ -2379,7 +2298,7 @@ que s'est passé M. Langlois n'a jamais demandé à
 reprendre sa place, il ne s'est jamais resubstitué à.
 
 AAC cahiers de la quinzaine 1010
-4 M. Rudier, il n'a jamais cessé de laisser M. Rudler a
+M. Rudier, il n'a jamais cessé de laisser M. Rudler a
 : substitué à lui. De sorte qu'il est pleutre une première
 fois avec moi; je veux dire envers moi; et une deuxième
 fois avec M. Rudler. M. Rudier est chargé de recevoir +12
@@ -2417,9 +2336,7 @@ C'était inviter à un rapprochement bien simple. C'était
 inviter à comparer l'École Normale où M. Lavisse est
 entré et l'École Normale d'où M. Lavisse n'est pas:
 encore sorti. L'École Normale où M. Lavisse est entré
-était une École Normale Supérieure. De l'École Nor-
-
-male d'où M. Lavisse n'est pas encore sorti on a dit.
+était une École Normale Supérieure. De l'École Normale d'où M. Lavisse n'est pas encore sorti on a dit.
 que c'était une auberge. Ceux qui savent ce qui
 passe savent qu'il ne faudrait point s'arrêter à ce nom
 d'auberge, maïs aller à un mot masculin, légèrement
@@ -2439,8 +2356,7 @@ veuille dire que si Charles revenait il ati due deu
 M. Charles-V. Langlois est un aigle. Et non point que
 je veuille dire que si M. Pons Daumelas revenait et
 s'il voulait me... m'engueuler et s'il voulait paraître un
-FRA aigle il prendrait ce pseudonyme de Charles-V. Lan-
-glois. Pour ne point se laisser reconnaître. Non, ce n'est. an
+FRA aigle il prendrait ce pseudonyme de Charles-V. Langlois. Pour ne point se laisser reconnaître. Non, ce n'est. an
 pas cela que je veux dire. Je veux. dire que tant as
 Charles et Pons Daumelas ne sont pas là, M. Langlois
 est un aigle dans Charles et dans Pons Daumelas. Pne
@@ -2454,8 +2370,7 @@ pour nous dire si c'est vrai, tout ça. C'est une bonne
 Langlois, restez dans les matières où nous croyons que.:
 vous êtes un aigle.
 L. — s). — Heureusement que moi-même je suis un Me
-bon élève de M. Langlois et que je sais traiter un docu-
-ment. L'histoire se fait avec des documents. Car il reste
+bon élève de M. Langlois et que je sais traiter un document. L'histoire se fait avec des documents. Car il reste
 un manque. À expliquer. Car il reste une marge, à
 combler. (Mettons une lacune). Car il resie un angle,
 un bâillement. Un défaut. Car toutes nos explications
@@ -2511,8 +2426,7 @@ appliquer à un homme aussi hautement honorable que …
 M. Langlois le mot qui de lui-même vient au bout de la
 nos plumes. Il faut pourtant se résoudre à le dire. IL #28
 résulte des éminents travaux de M. Langlois sur la
-fondation de la République et sur le dernier tiers du dix-
-neuvième siècle, (après Jésus-Christ), que le Quatorze
+fondation de la République et sur le dernier tiers du dixneuvième siècle, (après Jésus-Christ), que le Quatorze
 juillet est le jour de la Fête Nationale. Par conséquent,
 comment le dire, le lendemain Quinze, enfin il faut à
 bien le dire, le lendemain quinze est le jour de la gueule.
@@ -2532,8 +2446,7 @@ fureur patriotique est bien connue, s'était violemment;
 Ne excité à acclamer nos vaillants petits troupiers à la
 Le revue de Longchamp. Tout le reste de la journée
 M. Langlois, dont la jovialité bien connue n'a d'égale
-; que la violence de ses sentiments populaires, M. Lan-
-glois a passé toute son après-midi à danser avec des
+; que la violence de ses sentiments populaires, M. Langlois a passé toute son après-midi à danser avec des
 ; petites bonnes aux coins des carrefours. Et le soir il
 s'est attardé amicalement chez quelques mastroquets _.
 de défense républicaine. Et aussi vrai que je suis mûr
@@ -2569,8 +2482,7 @@ qui venait de se produire pour M. Lavisse, ou plutôt
 c'est le même retournement sous une autre forme. De "CE
 même que pour nous M. Lavisse peut être un historien Re:
 mais que pour M. Langlois il ne peut pas être un histo- +4
-rien, de même pour moi je puis être une quantité négli-
-geable, mais pour M. Langlois je ne puis pas en être 12%
+rien, de même pour moi je puis être une quantité négligeable, mais pour M. Langlois je ne puis pas en être 12%
 Dans mon système je puis être négligeable, parce
 que je peux me considérer comme infime. Dans le … à.
 système de M. Langlois nul ne peut me considérer
@@ -2697,22 +2609,18 @@ L. — u). — (Dépêchons-nous, mes enfants, nous
 n'avons plus que cinq lettres, sans compter celle-ci). u).
 
 — Cette duplicité de M. Langlois, (je prends ce mot
-dans son sens étymologique), cette duplicité où M. Lan-
-glois est réduit, cette duplicité où M. Langlois est
+dans son sens étymologique), cette duplicité où M. Langlois est réduit, cette duplicité où M. Langlois est
 contraint éclate, comme toujours, dans la typographie. de.
-Car dans ce même numéro de cette même Revue Cri-
-tique où M. Langlois, sous le nom de Pons Daumelas,
+Car dans ce même numéro de cette même Revue Critique où M. Langlois, sous le nom de Pons Daumelas,
 me règle, dans ce même numéro, sur la couverture de
 ce même numéro M. Langlois figure comme patronet
 comme répondant sous son titre de professeur à la à
 Sorbonne dans le petit appartement des principaux
-rédacteurs. Je nomme petit appartement des princi-
-paux rédacteurs ce large carré rectangulaire, (il
+rédacteurs. Je nomme petit appartement des principaux rédacteurs ce large carré rectangulaire, (il
 encore me quereller sur ce carré rectangulaire), fermé
 de quatre barres, où la Revue Critique des Livres
 Nouveaux nous donne le 15 de chaque mois, août et
-septembre exceptés, sur la première page de sa couver-
-ture, préalablement enfermés, la liste de ses principaux;
+septembre exceptés, sur la première page de sa couverture, préalablement enfermés, la liste de ses principaux;
 collaborateurs. Et alors parlons posément. Quand une
 revue s'appelle Revue Critique des Livres Nouveaux,
 quand elle met, quand elle présente constamment sur
@@ -2729,8 +2637,7 @@ sorte que M. Langlois sur la couverture authentique
 Pons Daumelas à l'intérieur; M. Langlois sur la couver_ ture garantit la méthode scientifique de Pons Daumelas
 à l'intérieur; et le pamphlétaire Pons Daumelas à l'inté-
 .. … rieur jouit de la garantie scientifique et de l'autorité de
-CM. Langlois sur la couverture. Pons Daumelas pamphlé-
-taire est revêtu de la dignité historique de M. Langlois,
+CM. Langlois sur la couverture. Pons Daumelas pamphlétaire est revêtu de la dignité historique de M. Langlois,
 il est couvert par la dignité historique, (et par la dignité
 universitaire, et par la dignité d'État), de M. Langlois,
 sans qu'on sache que c'est le même homme. Et pourtant c'est le même homme. C'est ce cumul que je

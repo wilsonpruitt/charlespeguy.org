@@ -26,9 +26,7 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-une idée, abrégée, mais complète, de nos éditions anté-
-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 
 … dans l'ordre; il suffit de le lire pour trouver, à leur
 
@@ -51,8 +49,7 @@ forçat gracié, très sage, de cette sagesse des petites ral
 il as filles de parents sévères qui restent assises très long- A
 Lemps et, vivant dans l'effroi, ne font rien qu'en demanVE,, Ma A
 dant la permission. tu
-c'était l'homme du bourg qui marchait le plus lente-
-ment, enfoui dans son tricot de laine aux poches défor- à à a
+c'était l'homme du bourg qui marchait le plus lentement, enfoui dans son tricot de laine aux poches défor- à à a
 mées par l'habitude d'y mettre profondément les mains. A
 ‘VE Plus grand chose ne l'intéressait et il aimait ses souve- 1 oui
 de nirs; cela se voyait à sa figure aussi tranquille que sa ne
@@ -76,8 +73,7 @@ les douaniers il était loup. A
 Chaque dimanche il venait boire une chope au même
 estaminet peu fréquenté, chez la veuve Triquet qui
 
-tenait un petit débit où ne consommaient pas les. ou-
-vriers parce qu'elle leur défendait de cracher par terre.
+tenait un petit débit où ne consommaient pas les. ouvriers parce qu'elle leur défendait de cracher par terre.
 
 Là, le vieux forçat se régalait, non pas tant de la bière ke.
 qui était aussi mauvaise qu'ailleurs, mais parce qu'il la
@@ -119,9 +115,7 @@ ils tirèrent sur nous, à deux cents mètres, un coup de
 
 . nos ballots et je courus au fossé qui fumait. Me voyant
 
-venir, les deux douaniers qui étaient cachés s'en-
-
-fuirent se vanter d'avoir fait poser leur ballot aux
+venir, les deux douaniers qui étaient cachés s'enfuirent se vanter d'avoir fait poser leur ballot aux
 
 Je revins chez nous avec les deux charges et mon
 
@@ -170,12 +164,10 @@ m'apaisait un peu, mais j'aurais tout de même
 bien voulu me battre. Mon frère me dit: « Bon ça! À
 Attends que je sois guéri! »
 
-L'après-midi, le petit d'un fraudeur arrive en cou-
-rant: les gendarmes venaient m''arrêter. Je prends du
+L'après-midi, le petit d'un fraudeur arrive en courant: les gendarmes venaient m''arrêter. Je prends du
 pain et je m'en vais par les jardins en sautant toutes
 les haïes mieux que leurs chevaux qui me chassèrent
-jusqu'à la nuit. Pendant qu'ils campaient sur la fron-
-tière, je reviens chez nous et j'emporte mon. frère en:
+jusqu'à la nuit. Pendant qu'ils campaient sur la frontière, je reviens chez nous et j'emporte mon. frère en:
 Belgique. En partant, c'était mal commode mais, après?
 une demi-heure, comme il ne remuaït plus, alla tout
 
@@ -254,14 +246,12 @@ Il se remit à boire sa chope qu'il serraït très fort. Et
 on sentait qu'il avait envie de se battre, ce vieux.
 
 184 uAND Mirza, la chienne noire, mit bas cinq petits,
-à madame Courtecuisse, la cabaretière d'Auby, réflé-
-chit à quels clients, les meilleurs buveurs, elle les don- à
+à madame Courtecuisse, la cabaretière d'Auby, réfléchit à quels clients, les meilleurs buveurs, elle les don- à
 ES nerait, afiligeant sa petite fille Lydie qui voulait tous les
 garder. Alignés sur un banc, elle leur faisait la classe, HAS
 414 imitait les tics de la maîtresse d'école. Ses mouvements
 : attisaient leur jeune folie de courir, mais la crainte du À
-4 vide les retenait de sauter. Ils gémissaient en se déme-
-nant et fixaient sur elle leurs yeux graves, pleins de
+4 vide les retenait de sauter. Ils gémissaient en se démenant et fixaient sur elle leurs yeux graves, pleins de
 3 prières, des yeux bruns piqués d'or.
 :4 Elle annonçait des punitions terribles contre tout ce
 tumulte, mais embrassait à chaque minute des museaux à
@@ -381,7 +371,7 @@ Coucou vint, le jour même; il lui demanda:
 — « Il est ici, mon quien. »
 — « C'est pas à ti, dit Courtecuisse, c'est à mi. »
 — « me l'as donné, c'est à mi; et puis, il avait une
-faire avoir un procès. »;
+faire avoir un procès.
 Coucou, se ruant dans les portes, surgit dans la cour.
 11 écarta Mirza d'un coup de botte, prit Follette et s'en
 Courtecuisse trépignait derrière son comptoir. Il but
@@ -417,8 +407,7 @@ motive borgne. Derrière elle, le train coupait en deux le
 le collier du mort. À
 — « l'ont pas eue » disait Courtecuisse en revenant
 ï chez lui. Lydie, toute agitée dans ses bras, lui donnait
-À dans la poitrine des coups de ses petits souliers et répé-
-tait: « Ils l'ont pas eue! »
+À dans la poitrine des coups de ses petits souliers et répétait: « Ils l'ont pas eue! »
 É Cependant, ils l'eurent:
 Une nuit de mars qu'il avait beaucoup plu, les champs
 1 de Flandre n'étaient plus que de la fange où les seV mailles germaient puissamment dans l'ombre humide.
@@ -456,16 +445,13 @@ serrées dans le capuchon de laine brune débordé par
 les cheveux fous, elles regardaient de leurs grands
 yeux clairs courir les vilains garçons. Leur émotion À
 s'apercevait au remuement de leurs gros souliers. Au
-milieu d'elles, un petit frère brun et méchant qui vou-
-lait aller et qu'elles retenaient de toutes leurs forces.
+milieu d'elles, un petit frère brun et méchant qui voulait aller et qu'elles retenaient de toutes leurs forces.
 Quand la chienne parvint au quartier d'asile, un vieux
 brigadier de douane et un tout jeune préposé en sortaient, venant de perquisitionner.
 
 Les enfants la rabattirent en sens contraire, trop
 
-avertis pour la porter; il ne fallait pas être secou-
-
-rant un chien de contrebandier. Les douaniers couraient
+avertis pour la porter; il ne fallait pas être secourant un chien de contrebandier. Les douaniers couraient
 
 M. sur eux. Follette, la langue immense, n'avançant plus
 
@@ -487,9 +473,7 @@ triomphe, la pique à l'épaule. La bête ne faisait plus
 
 langue qui n'y parvenait pas et traïnait dans la boue.
 
-Soudain, le plus jeune des deux douaniers refit, en cou-
-
-rant, les dix pas qu'il venait de faire et lui planta, à;
+Soudain, le plus jeune des deux douaniers refit, en courant, les dix pas qu'il venait de faire et lui planta,
 deux mains, sa pique dans la tête.
 
 à De Douai au Petit Journal:
@@ -498,8 +482,7 @@ Ni, ù « Gette nuit, à la suite d'une
 6 de coqs, un ouvrier mineur, Léon Gambhier, demeurant à
 Rieulay, a tué son beau-frère,
 Horace Mathieu, d'un coup de
-« Le parquet s'est rendu à Rieu-
-lay et a arrêté le meurtrier, qui
+« Le parquet s'est rendu à Rieulay et a arrêté le meurtrier, qui
 44 vient d'être conduit à la prison de
 1) « Le malheureux Mathieu laisse "2
 18 une veuve et trois jeunes enfants. »
@@ -509,19 +492,16 @@ Grande partie de cogs. Deux de trois morts pour 50 francs
 Broutin de Bersée contre Gilles dit Tit Bleu
 ta L'estaminet Tiberghien portait sur son toit un millé-:
 C'était une vieille petite maison basse en face de la à
-gare. On lorna ce jour-là d'un drapeau neuf qui pen-
-dait sur l'entrée sombre où se pressaient des hommes,
+gare. On lorna ce jour-là d'un drapeau neuf qui pendait sur l'entrée sombre où se pressaient des hommes,
 
 De chaque côté de la porte stationnait un groupe qui
 se prenait de bec avec les arrivants:
 — « Te v'la ti, gros quien! »
 — « Ta point dit à t'femme que t'vené pinter! Ah!
 Mais ces propos cessaient à l'arrivée des fermiers
-notables. La boue du dégel enduisait leurs fortes chaus-
-sures. Ils portaient, dans des sacs de toile, des coqs
+notables. La boue du dégel enduisait leurs fortes chaussures. Ils portaient, dans des sacs de toile, des coqs
 qui chantaient de défi. La route par où ils venaient
-continuait la rue; les deux maisons extrêmes enca-
-draient l'horizon de la plaine profonde où le grandvent
+continuait la rue; les deux maisons extrêmes encadraient l'horizon de la plaine profonde où le grandvent
 déchirait des nuages. à
 On entrait dans l'estaminet par un couloir bas de
 plafond et où les gens ne se croisaient qu'en se cou- À
@@ -535,8 +515,7 @@ dix francs quand il quittô sa mère. Trois mois après, il
 Un fermier colossal, le teint rouge comme un fer àla
 forge, saluait le chef de gare dont la casquette argentée
 glorifiait la salle.
-En réponse au: « Què nouvelles? » cet homme consi-
-déré dit::
+En réponse au: « Què nouvelles? » cet homme considéré dit::
 et se sauva vers la gare proche où une locomotive sifflait l'arrivée.
 Tiberghien, le propriétaire de l'estaminet n'avait plus
 
@@ -657,8 +636,7 @@ Broutin; cependant, il lui happa son moignon de crête
 et le secouant de toutes ses dernières forces, l'agenouilla. Mortellement blessés tous deux sans doute, ils
 haletaient et leur souffle faisait trembler les roupies de
 sang qui leur pendaïent au bec. Celui qui tenait encore
-debout happait de temps à autre la crête de l'adver-
-saire qui pour fuir ses coups mit la tête sous l'aile. Et
+debout happait de temps à autre la crête de l'adversaire qui pour fuir ses coups mit la tête sous l'aile. Et
 on cria: « Perdu Broutin! »
 Le coq de Tit-Bleu ne valait guère mieux et chancelaït,
 les yeux clos, mais l'autre ne se relevant pas, il fut
@@ -685,13 +663,12 @@ un Flamand à cheveux jaunes avalait à grands coups AMOR.
 Au pied du mur où s'alignaient des dos, la terre
 rendait un son d'averse.
 « Il faut battre l'autre couple, avisa un homme, il
-faire nuit. »; “LACET ES
+faire nuit. “LACET ES
 … Tiberghien ne répondit pas. On devait boire. Dans le TRE
 ciel paraissaient les nuances de fleurs du crépuscule. 1 A
 La divine paix des jours qui meurent planait sur le MEME
 À tumulte de ces hommes aux âmes obscures. NRA
-Quittantle mur et les pintes, ils se serrèrent à nou-
-veau autour du parc. On apportait d'autres coqs. CE
+Quittantle mur et les pintes, ils se serrèrent à nouveau autour du parc. On apportait d'autres coqs. CE
 
 -5 un bon ouvrier
 3 maisons d'articles de voyage recherchaïent les
@@ -737,8 +714,7 @@ restaurant avec les ouvriers, émus de l'affront fait à cet
 homme de cinquante ans. Mais, à la suite, ils lui montrèrent moins d'égards. Entre eux, parlant de lui, ils « disaient: le père Victor; et le deuxième ouvrier, qui
 enviait sa place, osa un jour l'interpeller: « Eh'!levieux! »
 M. Victor en fut aussi ému que de la suppression de:
-son couvert. Le même soir, il aperçut son sac de tapis-
-serie dans un débarras. Il sentit trop âprement qu'il
+son couvert. Le même soir, il aperçut son sac de tapisserie dans un débarras. Il sentit trop âprement qu'il
 était chez les autres et dit au patron, avec douceur et
 « Monsieur, je m'en vais! »
 — « Tiens! quelle idée! Oh!si vous y tenez! »
@@ -769,12 +745,10 @@ s'attrister de ne rien faire. Si l'oisiveté tuait aussi
 . avait grand faim de travail.
 
 2 “Les jours suivants, vivre à vide comme un moulin qui
-1 tourne sans rien moudre, le rendit malade. Un déses-
-poir vigoureux ravagea son âme. Il pleura. Ses larmes
+1 tourne sans rien moudre, le rendit malade. Un désespoir vigoureux ravagea son âme. Il pleura. Ses larmes
 
 … lui firent honte. A son âge, s'abandonner ainsi! Il se à
-serait frappé. Résolument, il décida de tenter un établis-
-sement à son compte. Il chercha une échoppe de petit
+serait frappé. Résolument, il décida de tenter un établissement à son compte. Il chercha une échoppe de petit
 . loyer et, ménageant ses économies, se contenta d'un
 sous-sol comme en ont les artisans pauvres dans les
 - villes fortifiées du Nord où la population est nombreuse
@@ -786,9 +760,7 @@ A la pensée du travail proche, un peu de joie tiède
 - soufla dans l'âme déserte et froide du vieil ouvrier. IL
 rangea des planchettes, de la toile, des coupes de
 
-… cuiret fabriqua des malles. Le jour du soupirail ne par-
-
-courait pas toute la cave et M. Victor devait travailler
+… cuiret fabriqua des malles. Le jour du soupirail ne parcourait pas toute la cave et M. Victor devait travailler
 exactement sous l'ouverture. RES
 Beaucoup de mendiants quêétaiént dans ce quartier.
 pauvre. Le jeudi, on entendait sauter un gros sou
@@ -831,8 +803,7 @@ Il siégeait à l'estaminet Tricoux, à l'enseigne
 Ici on est mieux qu'en face.
 à C'était un ancien boulanger, vieil homme à peau;
 duvetée par quarante ans d'enfarinage. RAR
-La plaque en cuivre de son képi municipal ressem-
-blaït, sur sa tête blanche, à un diadème de roi d'opé- Le
+La plaque en cuivre de son képi municipal ressemblaït, sur sa tête blanche, à un diadème de roi d'opé- Le
 - rette. Il s'appelait Baptiste Géneaux. La blanchisseuse,
 . rendue méchante par les belles affaires de M. Victor, PARA
 envoya ses ouvrières en camisole blanche verser, de Se:
@@ -848,8 +819,7 @@ Il y eut une grande dispute. M. Victor fut traité par "4
 toutes les femmes à la fois de vieux rat: à
 « vit dans un trou! n'a pas de linge! »
 Finalement, la blanchisseuse donna congé et M. Victor
-prit la boutique. Il embaucha deux de ses anciens ap-
-prentis, revenus du régiment, et mit dans la vitrine un
+prit la boutique. Il embaucha deux de ses anciens apprentis, revenus du régiment, et mit dans la vitrine un
 sac en tapisserie. Les clients de la maison Gossin
 « Vous auriez nous dire... vous faire aider... »
 protestaient les dames à paroissiens, heureuses de.
@@ -941,10 +911,10 @@ F. odeurs de fiente des oiseaux élevés par Bousigue. Ils
 puaient dans des cages faites avec des treillages;
 … coupés aux clôtures du château.
 Madame Bousigue torcha, d'un coup de manche, des
-4 — « Mettez-vous. Monsieur. Madame. Mettez-vous! »!
+4 — « Mettez-vous. Monsieur. Madame. Mettez-vous!
 - Elle défit son tablier bleu, le traîna sur une table ver- à
 4 nissée qui collait aux mains et, l'ayant remis, demanda:
-« Qu'est-ce que vous boirez ben? »:
+« Qu'est-ce que vous boirez ben?
 
 Quelle vieille! Peut-être n'avait-elle plus de cheveu -
 É mais on n'en savait rien; Son bonnet blanc calé par les.:
@@ -952,7 +922,7 @@ Quelle vieille! Peut-être n'avait-elle plus de cheveu -
 cils. Rien à racler sur son maigre visage dur comme
 « Nous voudrions voir le coq à trois pattes. »
 La vieille ouvrit la porte de la cour; Bousigue était
-qui clouait sur une planche un morceau de grillage «: fraîchement volé. 5 “4
+qui clouait sur une planche un morceau de grillage fraîchement volé. 5 “4
 Elle cria, comme s'il eût été loin dans les champs:
 « Viens t'en quère le coq! »
 ; — « Pleurez point! Pleurez point! Je vas le quère!
@@ -997,7 +967,7 @@ IL défiait le riche que la mère Bousigue, guettant À
 à l'aubaine, suppliait de l'œil et des mains. Lançant cinq
 38 francs sur le comptoir, M. du Trieux dit: « Tenu! »
 : — « Es-tu fou? » demanda sa ferme.
-3 Fatiguée d'énervement, elle s'appuya du dos à la;
+Fatiguée d'énervement, elle s'appuya du dos à la;
 À chaise dont elle tenait le bord. JE
 
 La vieille donnait un litre que le grand blond empoigna. Il dit: « Voilà! » et, campé devant le comptoir
@@ -1016,8 +986,7 @@ un renvoi du gosier. ne passait plus. Il s'assit, les;
 mains entre les genoux, ses gros doigts pendant vers la
 Madame du Trieux épouvantée lui parla:;
 — « C'est assez. Vous allez vous rendre malade. » "2
-Il dirigea sur elle ses yeux rouges et l'effort de soule-
-ver les paupières lui ouvrit la bouche. Il avait de
+Il dirigea sur elle ses yeux rouges et l'effort de soulever les paupières lui ouvrit la bouche. Il avait de
 — « Pas de danger, assura le père Bousigue, c'est du
 Un geai dit un de ces mots qui s'orthographient une
 lettre et plusieurs points.
@@ -1065,12 +1034,10 @@ paraître l'envers blanc de leur queue. Ils pullulaient.
 mais chichement. Les bonnes œuvres appauvyrissaient
 : madame de Samer. La politique du curé réprimait les
 
-« Laissez en paix cette sainte femme qui est la Provi-
-dence du pays. »
+« Laissez en paix cette sainte femme qui est la Providence du pays. »
 Elle donnaïit à tous: au pape, aux hautes et grandes
 dames patronnesses, à l'évêque doucereux, au curé
-caressant, au sacristain furtif et aux madrés che-
-mineaux qui se confiaient son adresse pour y venir
+caressant, au sacristain furtif et aux madrés chemineaux qui se confiaient son adresse pour y venir
 Il passait, nu-pieds, des mendiantes de village, entor-
 5 tillées de toile à sac; leur besace, bosselée de croûtons,
 raclait les de leur dos maïgre et elles avaient noué
@@ -1089,8 +1056,7 @@ comme des gouttes d'écume par dessus le bord d'une
 marmite. L'inquiétude tenait le village. Sur le passage
 des loqueteux en route vers le château, les fermières -
 soucieuses bougonnaient dans la porte entr'ouverte.
-Des mendiants leur tendaient la main, en bons commer-
-çants que le souci des affaires ne quitte jamais. Ils
+Des mendiants leur tendaient la main, en bons commerçants que le souci des affaires ne quitte jamais. Ils
 recevaient des injures:
 « Sale espèce! Allez-vous-en chez vous! » Et ils les
 
@@ -1101,7 +1067,7 @@ l'auréole éclatante de la Bienfaitrice. Pendant la
 
 - paysans changeaïient l'amorce de leur fusil. Madame de
 
-4 Samer, les yeux au ciel donnait, donnait aux déshérités
+Samer, les yeux au ciel donnait, donnait aux déshérités
 
 …._ et aux filous, et à tant qui craignent la peine mais
 
@@ -1119,9 +1085,7 @@ Le: « La charité, s'il vous plaît! »
 D. Terrifiants, ils obtenaient des sous sur leur mauvaise
 mine. Ceux à qui l'on ne donnait pas disaient anx
 
-femmes des choses obscènes. Les boutiquiers en pro-
-
-menade repartaient, indignés, par premier train, n'osant
+femmes des choses obscènes. Les boutiquiers en promenade repartaient, indignés, par premier train, n'osant
 
 attendre le crépuscule dans cette contrée de bandits où.
 
@@ -1254,9 +1218,7 @@ lèvres, font sur des pages bien blanches. Du haut des
 blanches époussetaient d'un battement large comme le
 
 - déploiement d'un éventail demi-deuil. ARE
-E. Des champs d'épis mûrs venait sans cesse le susur-
-
-rement des pailles poussées l'une contre l'autre par la
+E. Des champs d'épis mûrs venait sans cesse le susurrement des pailles poussées l'une contre l'autre par la
 
 —. brise ardente. Dans les fossés, l'eau claire luisait comme
 
@@ -1285,13 +1247,11 @@ quelquefois sur deux pieds le distinguait d'eux qui
 
 mangeaient tout autant, mais lui buvait mieux. à
 
-Depuis cette aventure, il voulait toujours, par re-
-connaissance, me désaltérer, Grand, fort, la face rouge,
+Depuis cette aventure, il voulait toujours, par reconnaissance, me désaltérer, Grand, fort, la face rouge,
 il s'éventait de son vieux chapeau, tant de fois tombé
 par terre, où c'était si difficile de le reprendre, même
 
-; en lui parlant avec douceur. Certaine fois, Vancoppen-
-hole appliqué à le ramasser, s'étonna que son bras fût
+; en lui parlant avec douceur. Certaine fois, Vancoppenhole appliqué à le ramasser, s'étonna que son bras fût
 si court, se pencha d'autant qu'ils'étonnait, et tomba les
 deux genoux sur son chapeau, qu'il continua longtemps
 de chercher, tâtant le sol autour de lui; c'est que je
@@ -1359,8 +1319,7 @@ l'autre de son échine saillaient ses vertèbres. Il dé-
 4 gringola le talus en foulant les herbes, éclaboussa le
 - fossé et lappa l'eau claire.
 
-. Vancoppenhole jaloux de cette satisfaction et revi-
-goré par le rappel de son idéal, mit profondément son
+. Vancoppenhole jaloux de cette satisfaction et revigoré par le rappel de son idéal, mit profondément son
 
 chapeau, me dit au revoir et marcha vite vers une;
 
@@ -1372,9 +1331,7 @@ petite maison vue dès le tournant. Moi, je sautai le
 
 …._ l'été dernier qui m'accueillit en me griffant le cou de la
 
-à pointe de ses pailles grises. De là, je vis mon ami Van-
-
-coppenhole s'incliner pour entrer par la petite porte que
+à pointe de ses pailles grises. De là, je vis mon ami Vancoppenhole s'incliner pour entrer par la petite porte que
 
 son grand dos boucha.
 
@@ -1392,9 +1349,7 @@ des moineaux ébouriffés qui piquaient les fruits verts.
 : Atteignant les arbres, les pousses folles d'une wigne
 montaient, ses feuilles larges comme des ailes agitées
 ; au frôlement des oiseaux. Le sinueux cep noir se À
-voyait de loin sur la chaux nouvelle du mur qui repous-
-
-sait le vert des pampres. Tous les amoureux qui passaient devaient souhaiter de vivre là. Un pont, en dos
+voyait de loin sur la chaux nouvelle du mur qui repoussait le vert des pampres. Tous les amoureux qui passaient devaient souhaiter de vivre là. Un pont, en dos
 de baudet, à haut parapet de pierre grise menait, par
 dessus le fossé du chemin poussiéreux à la cour garnie
 — de gravier luisant. Derrière ce nid, la plaine dorée
@@ -1435,13 +1390,11 @@ son fifre, une grenouille ses castagnettes. Puis, ils se
 turent longtemps, ainsi que des musiciens humbles qui
 guettent si on ne les empêchera pas de jouer. De nou_ veau, le crapaud donna le La.
 Le jour mourant invitait aux larmes.
-On était dans un de ces moments où, du ciel mysté-
-rieux, tombent, dans l'âme des hommes, des envies de
+On était dans un de ces moments où, du ciel mystérieux, tombent, dans l'âme des hommes, des envies de
 La petite porte de la jolie maison s'ouvrit; mon ami
 . Vancoppenhole s'y encadra. Il fit quelques pas avec
 précaution, piqua son bâton dans le gravier de la cour
-. et s'y maintint appuyé, la tête basse, paraissant réflé-
-chir à des choses graves et imprévues.
+. et s'y maintint appuyé, la tête basse, paraissant réfléchir à des choses graves et imprévues.
 Derrière lui sortit en dansant un petit homme sans
 . chapeau, coiïffé en nonne par un pan de sa blouse.
 
@@ -1461,8 +1414,7 @@ inattendues. Le petit homme hurla de nouveau: « Cochon! » avec une telle viole
 il étreignit Vancoppenhole pour ne pas tomber. Le bâton.
 qui les soutenait tous deux s'enfonçait dans le sol.
 : Solidement agrippé à l'autre, le petit homme rit,
-comme il eût vomi, à pleine bouche, et trépigna, pous-
-sant des hurlements que les hoquets de sa joie coupaient
+comme il eût vomi, à pleine bouche, et trépigna, poussant des hurlements que les hoquets de sa joie coupaient
 Vancoppenhole parut avoir résolu son problème;
 releva la tête et rit aussi, mais sans bruit; sa vaste
 face rouge chiffonnée comme un linge grossier en lourds
@@ -1495,13 +1447,9 @@ Un moment, ils s'arrêtèrent exactement au milieu du
 
 chemin, trouvant sans doute, dans leur impuissance à
 
-suivre la ligne droite, une grande consolation à y mar-
+suivre la ligne droite, une grande consolation à y marquer un point. Mais ils durent se garer pour une carriole
 
-quer un point. Mais ils durent se garer pour une carriole
-
-! dont le conducteur claqua son fouet vers eux. La pous-
-
-sière qu'elle soulevait les fit cracher. Comme excités au
+! dont le conducteur claqua son fouet vers eux. La poussière qu'elle soulevait les fit cracher. Comme excités au
 
 bruit par celui des roues, ils vociférèrent:
 
@@ -1521,7 +1469,7 @@ de ce mouvement de prospérité industrielle qu'ont » suivi les cités du Nord:
 déborder la population de Lille hors des vieilles railles, dans des quartiers de maisons en bois soumis
 : aux servitudes militaires. De temps ancien et jusque
 avant la guerre, Armentières eut pour devise: « Pauvres Eur
-et fiers. » Elle y depuis vingt ans, changé un mot: “4 » « Riches et fiers. »:
+et fiers. » Elle y depuis vingt ans, changé un mot: “4 » « Riches et fiers.
 La prospérité par l'industrie textile est venue en une À
 4 génération; les petits patrons de tissages aidés à s'éta-
 4 blir grands industriels par des mariages avec la grande
@@ -1538,8 +1486,7 @@ pauvres, cela faisait une ville productrice, florissante.
 
 ; Les petits patrons devenus grands industriels étaient à
 tous atteints de cette maladie des fortunes jeunes: la
-crainte de mourir de faim. Ils organisaient en consé-
-quence la misère autour d'eux, par l'accaparement du
+crainte de mourir de faim. Ils organisaient en conséquence la misère autour d'eux, par l'accaparement du
 Engraissés depuis peu, ils avaient la terreur de maigrir.
 Les rivalités établies entre ces fortunes faisaient une
 nécessité de les affirmer par le luxe. En bas, la détresse
@@ -1549,8 +1496,7 @@ pas cette frénésie de possession chez les possédants,
 cette ténacité à ne donner à l'ouvrier qui contribuaït à
 l'augmentation des richesses que le moins possible de
 cette augmentation: le prix de sa tartine sans viande
-Les familles des industriels devenues très nom-
-breuses, aussi nombreuses que des familles d'ouvriers,
+Les familles des industriels devenues très nombreuses, aussi nombreuses que des familles d'ouvriers,
 force était encore de gagner davantage pour établir Les
 Sous cette domination, la colère de l'ouvrier est d'autant plus violente qu'il a grandir ces fortunes. Elles
 n'ont pas l'âge de deux générations. Son père a connu
@@ -1560,9 +1506,7 @@ contre-maître. Ils se parlaient. Il la se marier richement, prospérer; il a v�
 que l'autre sa vie riche, et ils ne se sont plus parlé. Le
 fils de l'ouvrier pauvre voit la prospérité du patron
 grandir et sa misère, à lui, succéder à la pauvreté de
-son père. De là, entre le petit nombre de patrons deve80
-
-nus très riches et le grand nombre des ouvriers restés
+son père. De là, entre le petit nombre de patrons devenus très riches et le grand nombre des ouvriers restés
 très pauvres, une jalousie chez ces derniers qui fait
 d'Armentières un ardent foyer de haine. Et cela transforme grève en une luite sans merci, où les passions
 À vieilles et profondes bondissent des cœurs dans les faits,
@@ -1604,8 +1548,7 @@ monotones, noircis, petites portes, petites fenêtres et &.
 toujours petits rideaux blancs. De proche en proche,
 les énormes bâtiments d'une fabrique, puis les corons
 de petites maisons humbles reprennent, au long de la de.
-rue dans laquelle s'ouvrent des veselles étroites, cour-
-tes, par où se découvrent les champs: la grande nlaïine;
+rue dans laquelle s'ouvrent des veselles étroites, courtes, par où se découvrent les champs: la grande nlaïine;
 du Nord, où les moulins à vent font des signes de À
 Pour s'aider à vivre, cette population aux salaires
 À misérables a la fraude, les produits belges passés par
@@ -1670,9 +1613,7 @@ tombent et éclatent parmi les bibelots de la cheminée
 
 à briser de tout ce qu'elle haït, et briserait tout, car elle nes
 
-haït tout dans la ville riche, si, là-bas, la cuirasse nicke-
-
-lée d'un officier ne luisait soudain. Derrière, en rangs
+haït tout dans la ville riche, si, là-bas, la cuirasse nickelée d'un officier ne luisait soudain. Derrière, en rangs
 
 profonds, les cuirasses mates des hommes tiennent
 toute la largeur de la rue, la croupe des chevaux frôlant
@@ -1685,8 +1626,7 @@ les corons sombres dont les petits rideaux blancs
 cachent des têtes émues et narquoises.
 Ils fuient devant le soldat, mais ne le haïssent pas.
 S'il est l'arme au pied, barrant une rue, ou en faction
-à la porte d'une usine, ils lui parlent; les filles le plaï-
-santent, rient avec lui ou le plaignent; les hommes lui
+à la porte d'une usine, ils lui parlent; les filles le plaïsantent, rient avec lui ou le plaignent; les hommes lui
 demandent: « Encore combien de temps? » Quand un
 timide ne sait pas faire évacuer le trottoir, n'ose laisser
 retomber la crosse du fusil sur les pieds et que l'officier.
@@ -1708,9 +1648,7 @@ reluisant: quelqu'un de ces petits hussards qui ont l'air
 de dames déguisées. Et, naturellement, un patron.
 Quinze jours après, un dimanche, au sortir de la
 gare d'Armentières, je fus content du silence des rues.
-J'y avais tellement entendu le bruit des sabots des chevaux qui chargeaient et les gros souliers en fuite. Sou-
-
-de guenilles, quittèrent le mur où elles s'appuyaient et
+J'y avais tellement entendu le bruit des sabots des chevaux qui chargeaient et les gros souliers en fuite. Soude guenilles, quittèrent le mur où elles s'appuyaient et
 me demandèrent l'aumône avec ardeur. L'une avait
 les cheveux tirés sur la nuque par un nœud de ruban
 rouge devenu corde, et cela faisait paraître énorme le
@@ -1734,9 +1672,7 @@ Après ses repas, elle avait encore faim. Je lui donnai
 
 deux sous et je marchai plus vite. Ses compagnes la
 
-regardèrent avec envie et colère, et elle les fuit. Écar-
-
-tant les cheveux qui voilaient leurs regards luisants,
+regardèrent avec envie et colère, et elle les fuit. Écartant les cheveux qui voilaient leurs regards luisants,
 
 — Moi aussi, Monsieur! Moi aussi, Monsieur!
 
@@ -1767,7 +1703,7 @@ et derrière elle, un jeune homme: tous deux luxueux,
 de frais, vifs; lui, la lèvre épaisse et le menton gras tenu
 È haut par son grand col glacé; elle, cambrée dans sa
 1 toïlette neuve, parfumée, la poitrine heureuse et les
-4 jambes agiles. Aussitôt dans la rue, elle dit: « Vite! »;
+4 jambes agiles. Aussitôt dans la rue, elle dit: « Vite!
 et courut sur la fine pointe de ses bottines luisantes qui
 Sur la grand place que j'avais vue hérissée des lances.
 des dragons et luisante de cuirasses, deux sergents de
@@ -1783,16 +1719,13 @@ Dimanche, les feux éteints, lon voyait, ainsi qu'en
 temps de grève, toutes les cheminées sans fumée.
 
 Comme les pavés encore disséminés étaient boueux par
-ce temps mou, et que les enfants portaient leurs pau-
-vres belles petites affaires du dimanche, ils n'osaient
+ce temps mou, et que les enfants portaient leurs pauvres belles petites affaires du dimanche, ils n'osaient
 toucher aux grosses pierres et les regardaient avec
 désir et regret. Elles sont hostiles, ces longues rues de
 maisons basses assujetties à la grande ombre des
-usines. On hésite à y pénétrer; il s'en dégage de l'hor-
-reur; la boue du sol est épaisse, et la noirceur des murs
+usines. On hésite à y pénétrer; il s'en dégage de l'horreur; la boue du sol est épaisse, et la noirceur des murs
 
-interminable. Quand on s'est aventuré dans cette tristesse et cette fange, un soulagement vient de la blan-
-cheur du premier rideau. À toutes les fenêtres des
+interminable. Quand on s'est aventuré dans cette tristesse et cette fange, un soulagement vient de la blancheur du premier rideau. À toutes les fenêtres des
 maisonnettes extérieurement noires, c'est ainsi une
 clarté d'autel, une auréole de mousseline éclatante dans
 la brique enfumée. L'entrée, grande comme une porte
@@ -1888,10 +1821,7 @@ Quelle exaspération, ces rideaux! Pas un coin soulevé!
 
 Derrière leurs mailles fines, le silence. On éprouvait
 la même angoisse que devant les yeux obstinément
-fermés des gens qui souffrent. Est-ce qu'ils étaient là-
-dedans, les cents et les cents qui n'avaient pas de tra-
-
-vailetles familles des petites qui demandaient l'aumône
+fermés des gens qui souffrent. Est-ce qu'ils étaient làdedans, les cents et les cents qui n'avaient pas de travailetles familles des petites qui demandaient l'aumône
 à la gare?
 
 Encore une ruelle mourant dans la terre brune d'un
@@ -1902,8 +1832,7 @@ petites maisons. Oh! cette misère enclose dans des
 1 dix contes es: je
 rideaux blancs! Il passait toujours des « coqueleux »
 triomphaux et stupides, qui parlaient orgueilleusement
-des bêtes qu'ils menaïent mourir. J'entrai, par un pas-
-sage étroit, dans une courette bordée de corons. Entre
+des bêtes qu'ils menaïent mourir. J'entrai, par un passage étroit, dans une courette bordée de corons. Entre
 or, ces murs, on se sentait comme dans un trou, mais on
 éprouvait aussi l'impression heureuse d'avoir trouvé un
 refuge. L'atmosphère d'intimité des petites maïsons
@@ -1944,8 +1873,7 @@ sous on le disait voleur: « Où qu'i prènd s'n argènt? »
 et le curé l'appelait: « Malheureux! » en levant les bras
 au ciel, car il le savait républicain.
 En effet Sac d'Os aimait la République et comptait
-comme agent électoral de M. Sébastien Fourny, distillateur, conseiller général et candidat républicain pro-
-gressiste, ministériel, ce que Sac d'Os n'avait jamais
+comme agent électoral de M. Sébastien Fourny, distillateur, conseiller général et candidat républicain progressiste, ministériel, ce que Sac d'Os n'avait jamais
 Il distribuait pour lui des bulletins de vote à la porte
 de la mairie et buvait avec enthousiasme à la santé
 
@@ -1980,9 +1908,7 @@ de leurs malles.
 Placide décidait: « Tu n'allumeras plus le poêle. ».
 Alors, Sac d'Os se cramponnait à la route, craquait ses
 
-pauvres vieux dans leur sac de vieille peau, et attei-
-gnait l'étage, rompu par ce labeur formidable. Il ache-
-tait, à ce prix, le droit d'allumer le feu. Il avait toujours
+pauvres vieux dans leur sac de vieille peau, et atteignait l'étage, rompu par ce labeur formidable. Il achetait, à ce prix, le droit d'allumer le feu. Il avait toujours
 froid. Cela permettait à Placide, un garçon joufflu qui
 portait la tête à gauche et fauchait des deux pieds vers Din
 la droite, de rester couché le matin, une demi-heure à
@@ -2006,8 +1932,7 @@ fois, allumé par Sac d'Os avec du bois trouvé.
 Le poële, surpris par cette innovation, fuma tellement
 qu'il fallut l'éteindre. On courut porter les tisons flambants dans la cheminée du chef de gare, laquelle ne
 fumait pas. Sac d'Os, traité d'incendiaire, fut menacé
-de contravention. IL y eut même des gens pour pré-
-tendre l'arrêter, mais on ne le fit pas.
+de contravention. IL y eut même des gens pour prétendre l'arrêter, mais on ne le fit pas.
 Or, il arriva que Sac d'Os hérita. Il avait, du côté
 
 d'Houplines, un petit rentier de frère qui, malgré sa
@@ -2043,9 +1968,7 @@ pas de préférence.
 payer, du bon argent. » Il frappait le marbre d'une
 pièce de vingt sous. Stimulé par sa patronne, Placide
 accourait, oblique de stupéfaction; les portes étroites
-semblaient l'avaler de travers et, d'un côté, il s'y embar-
-
-rassait les pieds pendant que, de l'autre, il les frappait
+semblaient l'avaler de travers et, d'un côté, il s'y embarrassait les pieds pendant que, de l'autre, il les frappait
 du front.
 
 Aussitôt servi, Sac d'Os abritait son verre de la main
@@ -2064,8 +1987,7 @@ ses cheveux crépus, flatta son maître en renversant
 égaya les consommateurs; ne sachant à qui s'en
 prendre et mordant, de rage, sa bave pleine de vin, il
 lança au hasard son verre vide. Le bruit de la casse
-déchaïîna un tumulte. Ces gens excités criaient en pous-
-sant Sac d'Os vers la porte. Zoulou trempait ses
+déchaïîna un tumulte. Ces gens excités criaient en poussant Sac d'Os vers la porte. Zoulou trempait ses
 mains dans les verres et lui barbouillait rudement:
 
 la figure et le cou. Lequien tançait la patronne au
@@ -2078,10 +2000,7 @@ gendarmerie, qui buvait en face, à l'enseigne:
 « Allons tous chez Piévrel »
 
 Témoin de l'indignation des gens considérés de la
-commune contre ce vieillard de réputation épouvan-
-table, il l''empoigna et demanda de l'aide car il se fai-
-
-sait traîner. Zoulou s'offrit. Le tenant serré, ils traversèrent le bourg où les gens endimanchés s'appelaient
+commune contre ce vieillard de réputation épouvantable, il l''empoigna et demanda de l'aide car il se faisait traîner. Zoulou s'offrit. Le tenant serré, ils traversèrent le bourg où les gens endimanchés s'appelaient
 de porte en porte:
 
 Les enfants peuplaient les rues par ce temps sec.
@@ -2105,8 +2024,7 @@ marque un but; il vient de un désespoir de marcher
 qui vous écrase.
 Les gens en route paraissent petits, tout petits, et
 aller si lentement dans ce pays qui n'en finit plus, où
-le bruit des carrioles imperceptibles s'entend énormé-
-ment loin. Sous les lents vols de corbeaux descendant
+le bruit des carrioles imperceptibles s'entend énormément loin. Sous les lents vols de corbeaux descendant
 piller les moissons en herbe bougent les grands coups
 d'ailes des moulins qu'un vent, furieux comme Don
 Dans Fournes: un estaminet chaque deux maisons,
@@ -2137,7 +2055,7 @@ Le village éprouva pour lui un souvenir d'admiration
 et d'épouvante. Pendant un an après sa libération, on
 ! n'en entendit plus parler. Puis, sans avertir, il revint
 PAALEA dans une misère épouvantable, pourri de vices, avec.
-A; des mœurs gagnées à la fréquentation des filles publi-
+des mœurs gagnées à la fréquentation des filles publi-
 ù et ques. Il était « dressé ». Le garde Blondeau révéla qu'il
 sortait de prison pour avoir vécu de « l'argent des
 garces ». Les gens passaient devant sa maison pour
@@ -2149,8 +2067,7 @@ CAL sa figure cicatrisée assombrie de fureur.
 PAtAt Le front bas et les poings levés, il s'élança, criant:
 « Tonnerre de Dieu! Le premier qui m'em... je lui
 
-Fe. Ceux qui étaient s'enfuirent raconter leur épou_ vante et sa maison inspira la terreur. Le buraliste chu-
-chota qu'il avait écrit deux fois à mademoiselle Char-;
+Fe. Ceux qui étaient s'enfuirent raconter leur épou_ vante et sa maison inspira la terreur. Le buraliste chuchota qu'il avait écrit deux fois à mademoiselle Char-;
 À lotte Rey, à Saint-Lazare et sans recevoir de réponse.
 1% Fatiguée de le nourrir, sa mère lui dit qu'on embaull chaït dans le canton de Pont-à-Marcq, mais travailler
 ï aux champs lui répugnait::
@@ -2209,7 +2126,7 @@ alla vers lui:
 ou je le fais. Je ne veux rien perdre. »
 . 11 eut les cinq francs et s'en alla, braillant: À
 « Tous les curés à la lanterne. A
-Vive le son du canon! »:
+Vive le son du canon!
 Jusqu'au soir il fréquenta les débits qui tenaient de
 l'absinthe et revint à Fournes dans une ivresse fu-;
 
@@ -2217,9 +2134,7 @@ On l'entendait hurler chez lui:
 
 6 « Des frites! Nom de Dieu! Des frites! »
 
-puis un tel vacarme que Blondeau, le garde, arriva cou-
-
-rant, tout le village derrière lui. Ayant séparé Siméon
+puis un tel vacarme que Blondeau, le garde, arriva courant, tout le village derrière lui. Ayant séparé Siméon
 
 de son père qu'il étranglait, il demanda main-forte pour
 
@@ -2313,19 +2228,13 @@ Il a été tiré de ce cahier treize exemplaires sur
 
 ï premier exemplaire de souche, exemplaire du gérant;
 
-4 deuxième exemplaire de souche, exemplaire de l'ad-
-
-troisième exemplaire de souche, exemplaire de lim-
-
-dix exemplaires d'abonnement, numérotés de à
+4 deuxième exemplaire de souche, exemplaire de l'adtroisième exemplaire de souche, exemplaire de limdix exemplaires d'abonnement, numérotés de à
 
 à Tous nos exemplaires sur whatman sont numérotés
 
 à la presse et imprimés au nom du souscripteur; nos
 
-1 tirages d'exemplaires sur whatman sont rigoureuse-
-
-stant souscrits; nous ne vendons point d'exemplaires
+1 tirages d'exemplaires sur whatman sont rigoureusestant souscrits; nous ne vendons point d'exemplaires
 
 à sur whatman en dehors de l'abonnement; l'abonnement
 
@@ -2337,8 +2246,7 @@ Les Cahiers de la Quinzaine sont composés à la main,:
 
 en caractères fin dix-huitième siècle (Didot) de la fon-
 
-k. derie Mayeur (Allainguillaume et compagnie succes-
-seurs), 21, rue du Montparnasse, à Paris, sixième
+k. derie Mayeur (Allainguillaume et compagnie successeurs), 21, rue du Montparnasse, à Paris, sixième
 
 2,3
 
@@ -2420,7 +2328,7 @@ pos L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit » l'achèvement de cette série; ainsi jusqu'au 31 décembre
 4 1908 on peut encore avoir pour vingt francs les onze
 cahiers non épuisés de la neuvième série.
-118 À partir du premier janvier qui suit l'achèvement
+À partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 
 “1400 au total des prix marqués; ainsi à dater du premier

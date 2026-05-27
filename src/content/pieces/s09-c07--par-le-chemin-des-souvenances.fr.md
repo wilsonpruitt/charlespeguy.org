@@ -29,7 +29,7 @@ Avec l'art minutieux et lent des cuisinières, Dao
 Du temps jadis où l'on circulait dans des rues SARA
 D'ombre et d'eau croupissante, aujourd'hui disparues, à
 Mais où l'on n'était ni malotru ni maussade; Past SA:.
-Du temps jadis où l'on dressait des barricades à;
+Du temps jadis où l'on dressait des barricades
 Pour y mourir avec des gestes de Talma 2 ARE
 
 Vieil oncle d'autrefois que mon enfance aima
@@ -91,7 +91,7 @@ Sœur Marthe, qu'on voyait larmoyer si souvent:
 È En son chagrin d'avoir perdu certain vicomte)
 A A haussé vos maintiens, vos gestes, votre organe
 É Au débit chaleureux de Phèdre ou de Roxane;
-; Et quand Monsieur l'évêque avec son nonchaloir «; De marquis est venu vous sourire au parloir,
+; Et quand Monsieur l'évêque avec son nonchaloir De marquis est venu vous sourire au parloir,
 Vous l'avez honoré des soupirs de Racine,
 A Et lui, fixant vos yeux de mauve ou de glycine
 Qui se baissaient modestement sous son grand nez,
@@ -191,7 +191,7 @@ Ou les crochets dont d'autres lieux sont coutumiers; DES
 Leurs beaux flanes sont piqués de bouquets de pommiers
 Dont les ombres bleuies s'arrondissent en dômes
 se Sur les labours cuivrés, les prairies et les chaumes. A
-4 Et la plaine, à leurs pieds s'étend, puis se redresse à
+Et la plaine, à leurs pieds s'étend, puis se redresse à
 
 par le chemin
 Avec des ondoîments de Nymphe ou de Faunesse
@@ -585,8 +585,7 @@ Ila été tiré de ce cahier douse exemplaires sur
 whatman ainsi distribués:
 : premier exemplaire de souche, exemplaire du gérant;
 deuxième exemplaire de souche, exemplaire de l'ad_ ministrateur;
-troisième exemplaire de souche, exemplaire de l'im-
-neuf exemplaires d'abonnement, numérotés de à
+troisième exemplaire de souche, exemplaire de l'imneuf exemplaires d'abonnement, numérotés de à
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur; nos
 tirages d'exemplaires sur whatman sont rigoureusement limités au. nombre d'abonnements à chaque instant souscrits: nous ne vendons point d'exemplaires
@@ -613,8 +612,7 @@ Net 1900-1904, de nos cinq premières séries, premier cahier
 Pour s'abonner à la huitième série des cahiers, qui
 ES est la dernière série, envoyer en un mandat à M. André
 Bourgeois, même adresse, le prix de l'abonnement; on
-recevra en retour les seize cahiers parus de cette hui-
-de Pour s'abonner à la neuvième série des cahiers, qui
+recevra en retour les seize cahiers parus de cette huide Pour s'abonner à la neuvième série des cahiers, qui
 Bourgeois, même adresse, le prix de l'abonnement; on
 recevra les cahiers parus, et de quinsaine en quinsaine,
 à leur date, les cahiers à paraître de cette neuvième

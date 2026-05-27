@@ -7,8 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 39441
 ---
-Il est impossible de suivre honnêtement le mouve-
-ment littéraire, le mouvement d'art, le mouvement
+Il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement
 politique et social si l'on n'est pas abonné aux Cahiers
 de la Quinzaine.
 
@@ -51,17 +50,13 @@ ai Nous avons publié dans nos éditions antérieures et
 
 1 dans nos cinq premières séries, 1900-1904, un Si
 
-ï À grand nombre de documents, de textes formant dos-
-
-si grand nombre de cahiers de lettres, — nouvelles,
+ï À grand nombre de documents, de textes formant dossi grand nombre de cahiers de lettres, — nouvelles,
 
 il: romans, drames, dialogues, poèmes et contes; — un
 
 3 si grand nombre de cahiers d'histoire et de philoso- )
 
-‘Lee phie; et ces documents, renseignements, textes, dos-
-
-es siers et commentaires, ces cahiers de lettres, d'histoire;
+‘Lee phie; et ces documents, renseignements, textes, doses siers et commentaires, ces cahiers de lettres, d'histoire;
 
 et de philosophie étaient si considérables que nous
 
@@ -69,9 +64,7 @@ pouvons pas songer à en donner ici l'énoncé même le
 
 plus succinct; pour savoir ce qui a paru dans les cinq
 
-premières séries des cahiers, il suffit d'envoyer un man-
-
-dat de cinq francs à M. André Bourgeois, administra-
+premières séries des cahiers, il suffit d'envoyer un mandat de cinq francs à M. André Bourgeois, administra-
 
 A teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
 
@@ -82,9 +75,7 @@ le catalogue analytique sommaire, 1900-1904, de nos
 à Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-une idée, abrégée, mais complète, de nos éditions anté-
-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 
 dans l'ordre; il suffit de le lire pour trouver, à leur
 
@@ -98,8 +89,7 @@ francs; ce cahier comptait comme premier cahier de la À
 sixième série et nos abonnés l'ont recu à sa date, le si
 2 octobre 1904, comme premier cahier de la sixième SE
 série; toute personne qui jusqu'au 31 décembre 1905
-s'abonnait rétrospectivement à la sixième série le rece-
-vait, par le fait même de son abonnement, en tête de la #3
+s'abonnait rétrospectivement à la sixième série le recevait, par le fait même de son abonnement, en tête de la #3
 série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande. à
 Pour amorcer tout travail que l'on aurait à commencer ‘is
@@ -113,13 +103,11 @@ comme premier cahier de la septième série et nos
 abonnés l'ont reçu à sa date, le premier octobre 1905,
 comme premier cahier de la septième série; toute
 personne qui s'abonne à la septième série, qui est la:
-série en cours, le reçoit, par le fait même de son abonne-
-ment, en tête de la série; nous l'envoyons contre un
+série en cours, le reçoit, par le fait même de son abonnement, en tête de la série; nous l'envoyons contre un
 mandat de un franc à toute personne qui nous en fait
 la demande.
 Pour la sixième série, année ouvrière 1904-1905, et à
-en attendant que paraisse le catalogue analytique som-
-maire de nos deuxièmes cinq séries, 1904-1909, on
+en attendant que paraisse le catalogue analytique sommaire de nos deuxièmes cinq séries, 1904-1909, on
 peut consulter, — provisoirement, — la petite table
 analytique très sommaire que nous avons publiée en fin
 de ce cahier index.
@@ -145,7 +133,7 @@ journaliste. Le reste de son temps se passait aux ambu- ‘ris
 à lances et dans la rue. Il écrivait, en rentrant chez lui,
 ses impressions dans ces notes. Minutes de fièvre qui
 1 mürissent, qui vieillissent plus que des années! La com- 118 à
-. motion qu'Arnold en garda, j'en trouve la trace en des À:
+. motion qu'Arnold en garda, j'en trouve la trace en des
 
 papiers trop intimes pour être imprimés, dont je détache
 
@@ -218,8 +206,7 @@ Jeune homme il y avait un homme, capable de bien:
 porter un beau nom. Il était fait pour la vie politique
 il en avait l'instinct et les facultés; il préparait par
 de fortes lectures, car il n'entendait pas la prendre
-médiocrement. Il fit son modeste début d'orateur pen-
-dant l'invasion, devant les enfants de l'école primaire
+médiocrement. Il fit son modeste début d'orateur pendant l'invasion, devant les enfants de l'école primaire
 de Sèvres, interrompu de temps en temps par le bruit 4 A
 des batteries voisines; il leur parla et très bien de ‘ji
 
@@ -277,8 +264,7 @@ moyen de servir. La Société internationale était sur (EU
 pied; M. Horace Delaroche, son président, me chargea à
 de la correspondance avec les familles des blessés et
 des prisonniers; j'invitai Arnold à m'aider; il me
-remercia avec effusion et se mit à l'œuvre. Il était tou-
-chant de le voir, avec son frais visage, au lit des pâles
+remercia avec effusion et se mit à l'œuvre. Il était touchant de le voir, avec son frais visage, au lit des pâles
 blessés, se penchant sur leur bouche pour entendre leur #0
 nom, le nom de la ville ou du village où ils étaient nés,
 s'ils avaient encore un père ou une mère à qui ils vou-? miel
@@ -292,9 +278,7 @@ HAL agissait, où on était bon à quelqu'un. Au sortir des À
 
 sa maison, les nouvelles contradictoires du reste de la
 
-France, les craintes, les espérances, les déceptions, jus-
-
-qu'à la déception finale, dont nous touchons l'anniver-
+France, les craintes, les espérances, les déceptions, jusqu'à la déception finale, dont nous touchons l'anniver-
 
 (es saire; on se reposa de la guerre étrangère par la
 
@@ -304,9 +288,7 @@ C'est souvent, hélas! un dur métier d'être Français
 
 et d'aimer son pays. Arnold à pas résisté: la vie
 
-morale, trop intense, troublait le développement phy-
-
-sique; il perdait l'appétit, le sommeil et les forces; il
+morale, trop intense, troublait le développement physique; il perdait l'appétit, le sommeil et les forces; il
 
 À languissait. Nous convinmes avec ses parents de le
 
@@ -328,7 +310,7 @@ un moment, et après l'endormit comme le voilà.
 
 a Je ne dirai pas ce que cette perte est pour quelques-
 
-À: uns: je dirai certainement ce que pensent en ce moment
+uns: je dirai certainement ce que pensent en ce moment
 
 14 ceux qui ont connu Arnold. Quand on réfléchit aux
 
@@ -348,7 +330,7 @@ Osons passer par delà les apparences. Non, la pure et à
 vive flamme qui a été assez forte pour dévorer ce corps #00
 nest pas éteinte; l'indestructible société de la famille et;
 de l'amitié subsiste; la mort a beau nous envelopper de LA
-sa nuit, ceux qui s'aiment et se cherchent sauront bien A:
+sa nuit, ceux qui s'aiment et se cherchent sauront bien
 Adieu, Arnold. Blessés français, qui reposez dans ce À
 cimetière, vous connaissez cet enfant; recevez-le, c'est
 un des vôtres, un blessé comme vous. Pour. vous, mes Li.
@@ -358,8 +340,7 @@ nous sommes touchés du coup qui vous frappe; pourtant
 écoutez notre prière. Lorsque vous serez tentés de vous a
 décourager, songez qu'Arnold est qui vous supplie Dre
 de ne pas vous laisser abattre; songez qu'il y a encore ni
-autour de vous de fidèles amis, des parents qui par-
-tagent votre chagrin, qu'il vous reste des enfants et des
+autour de vous de fidèles amis, des parents qui partagent votre chagrin, qu'il vous reste des enfants et des
 petits-enfants, à qui vous devez donner le bonheur que 4: a
 vous n'avez plus; que vous vous restez l'un à l'autre;; nn.
 que vous, mon ami, vous appartenez aux affaires K.:
@@ -413,9 +394,7 @@ passées. Rentré à 11 h. 1/2. des Contemplations de
 V. Hugo, avant de m'endormir.
 
 toujours la Prusse de Chevalet. M. Nefftzer est venu
-avant déjeùner. Il quitte décidément Versailles pen-
-
-dant le siège. Déjeûné. Après déjeûner, travaillé au
+avant déjeùner. Il quitte décidément Versailles pendant le siège. Déjeûné. Après déjeûner, travaillé au
 jardin — Les Prussiens sont signalés à Joinville: ce
 : je doit être Joinville le Pont — Ce pauvre Henri
 
@@ -509,8 +488,7 @@ bois de Satory. Les dernières nouvelles les signalent à
 Villeneuve Georges, Choisy le Roi, Clamart. Cela À
 ; se rapproche de nous — A 1 h. je vais voir M. Bersot;
 chez lui, je vois M.M. Deroisin Lebourdais. Je vais
-sans doute être attaché, à partir de demain, à la rédac-
-tion de l'Union libérale démocratique de Seine À
+sans doute être attaché, à partir de demain, à la rédaction de l'Union libérale démocratique de Seine À
 Oise. Je vais à la Préfecture avec M. Bersot à 3 belle à
 
 circulaire de Favre à l'Officiel. A 4 h. le commissaire
@@ -519,8 +497,7 @@ central de police vient annoncer l'arrivée de 3 cavaliers.
 immense devant la Mairie: concursatio trepidatio: RU:
 Les grilles sont fermées: des Gardes nationaux empêchent ne
 d'approcher — Au bout d'un instant; M. Délerot sort A.
-de la mairie, nous raconte que ces 3 Prussiens, (1 ad-
-judt. 2 soldats.) sont arrivés par la porte du Cerf;
+de la mairie, nous raconte que ces 3 Prussiens, (1 adjudt. 2 soldats.) sont arrivés par la porte du Cerf;
 Volant, sans opposition, le pistolet au poing, sont
 venus jusqu'à la mairie: (ce sont les avant-coureurs
 d'environ 6 régiments qui sont la vallée de la
@@ -548,8 +525,7 @@ que les choses se sont mieux passées qu'on ne l'avait
 dit. Douze d'entre eux sont restés à la grille: mais on a ne
 
 les cahiers d'Arnold Scherer "4
-tort de laisser entrer même trois d'entre eux, sur-
-tout le pistolet au poing. La foule attend toujours de-
+tort de laisser entrer même trois d'entre eux, surtout le pistolet au poing. La foule attend toujours de-
 : vant la mairie. M. Charton a quitté la préfecture de
 bonne heure se promène devant la mairie; mais sa
 : tâche n'est pas encore finie, quoiqu'il ne corresponde
@@ -574,8 +550,7 @@ proposées sont excellentes. Respect des personnes, à
 propriétés, monuments objets d'art — Logement des
 troupes dans les casernes—Pas de contribution de guerre.
 ) Réquisitions en nature pour 30000 hommes. Maintien À
-de la garde nationale armée, sans cartouches. — Occupa-
-tion par les Prussiens des postes extérieurs. Ambulance
+de la garde nationale armée, sans cartouches. — Occupation par les Prussiens des postes extérieurs. Ambulance
 prussienne à Versailles pour les blessés de la bataille.:
 Je vois arriver encore un officier Prussien un soldat. À
 
@@ -596,13 +571,11 @@ tion: h.je commence à rédiger un bulletin politique. A
 On m'annonce le commencement du défilé Prussien — (
 Je cours à la place d'armes. De 2 h. jusqu'à 5 h. 1/2, ils
 n'ont cessé de défiler sur la place d'Armes, traversant
-la ville pour aller à Germain — A 5 h. l'arrière-
-garde bivouaque sur la place d'Armes les avenues — A
+la ville pour aller à Germain — A 5 h. l'arrièregarde bivouaque sur la place d'Armes les avenues — A
 Ce défilé a été douloureux — Il a passé environ 40, ou +20
 50 000 h. Les bruits sont contradictoires sur le résultat “4
 de la bataille du matin. Des voitures de blessés arri- À
-vent. Dans le défilé, on acclame les prisonniers fran-
-çais. Les Prussiens jouent notre Marseillaise. C'est
+vent. Dans le défilé, on acclame les prisonniers français. Les Prussiens jouent notre Marseillaise. C'est
 triste! Après avoir fait mon article au bureau du Jour- "1
 nal, je vais à la mairie, puis à l'Internationale — Je dine
 avec mon père M. Délerot chez M. Bersot, qui a passé
@@ -614,7 +587,7 @@ réquisitions continuent, Environ 2000 h. bivouaquent
 les cahiers d'Arnold Scherer
 ici: Pas de désordre: mais les subsistances vont bientôt
 1 devenir pénibles — Nous allons à la mairie, puis chez
-;; M. Charton, qui reste encore en fonctions — Je rentre
+M. Charton, qui reste encore en fonctions — Je rentre
 à 10 h. j'écris ces quelques lignes à la hâte avant
 de me coucher. Je finis, dans mon lit, l'article de Leroy- -
 Mardi 20 sept. Je me lève à 1/2. J'entends les à
@@ -632,8 +605,7 @@ Un officier hier soir, à la mairie, a donné une giffle
 énorme à un sous-officier impoli envers un bourgeois —
 Mon père a avant-hier une lettre de Tours, retardée. Depuis hier, plus de journaux de Paris. Nous
 ne savons rien. Plus de trains pour Paris — Isolement
-complet, sauf avec Mantes Rambouillet, ce dé-
-partement. Avant-hier, j'ai aussi reçu une lettre de
+complet, sauf avec Mantes Rambouillet, ce département. Avant-hier, j'ai aussi reçu une lettre de
 Feray, de Granville, par la ligne de Bretagne —
 Avant déjeûner, je fais un article pour le Journal, sur
 les prochaines élections. Après déjeûner, je sors avec
@@ -704,8 +676,7 @@ de lettres; et de 3 h. à 5 h. nous avons parcouru les
 salles de blessés de l'hopital militaire de Versailles: on
 nous a très bien reçus: les blessés ont été très contents
 de nos offres de service, pour écrire à leurs familles —
-Puis nous avons été à l'Internationale, rue des Réser-
-voirs — Après diner, je suis allé chez Albert Joly, pour
+Puis nous avons été à l'Internationale, rue des Réservoirs — Après diner, je suis allé chez Albert Joly, pour
 parler avec lui des élections municipales.
 
 Les Prussiens ont posé un télégraphe le long de la
@@ -716,8 +687,7 @@ reçoivent les lettres ouvertes, ne contenant pas de poli- À
 Léopold de Hohenzollern est ici: je l'ai hier
 C'est un grandbel homme, en rouge et noir, comme tous j. )
 les officiers supérieurs et généraux.
-Pas encore de soldats chez nous. Il y en a une multi-
-tude chez M. de Buisseret — rue d'Anjou
+Pas encore de soldats chez nous. Il y en a une multitude chez M. de Buisseret — rue d'Anjou
 Un certain nombre de caissons sont partis ce matin à
 par la rue des Réservoirs. Par contre, des Prussiens
 sont encore arrivés dans la journée — P:,
@@ -732,8 +702,7 @@ de l'avenue de Paris. Après diner, nous avons été chez *NISN
 M. Charton. Nous y avons M.M Délerot Bersot. de.
 Le canon a grondé dans la direction de... toute la
 journée. Il est impossible de préciser: peut-être Ger- #2
-Deux ballons nacelle) ont passé aujourd'hui au-
-dessus de Versailles, dans la direction de Dreux, à peu
+Deux ballons nacelle) ont passé aujourd'hui audessus de Versailles, dans la direction de Dreux, à peu
 M. Boullin-Saint-Amand, est parti pour Tours, chargé je
 de recueillir de l'argent pour l'Internationale. Je l'ai
 chargé d'une carte pour ma famille. De.
@@ -756,9 +725,7 @@ un certain nombre: quelques-uns s'installent sans façon,
 
 prennent le vin de la cave, &. Chez M. C. Fontaine, ils
 
-ont fait déménager les propriétaires, du 1° qu'ils occu-
-
-paient, au second, qui était vide, qui était absolument
+ont fait déménager les propriétaires, du 1° qu'ils occupaient, au second, qui était vide, qui était absolument
 
 semblable au premier. Nous n'avons pas encore de
 garnisaires. Il y en a abondamment chez M. de Boutray,
@@ -772,16 +739,13 @@ toute la journée —
 Travaillé avec M. Bersot. Visité l'ambulance de Montreuil (M. de Romanet.) Été à l''Internationale — Le soir,
 réunion politique à l'Union, pour arrêter une liste de candidats pour la Constituante. MM. Bersot, Joly, Char-
 
-4 ton, Mainguet, de Montfleury, Laurent Hänin, Lebour-
-
-dais, Délerot, G. Fontaine et Barbu en étaient, ainsi
+4 ton, Mainguet, de Montfleury, Laurent Hänin, Lebourdais, Délerot, G. Fontaine et Barbu en étaient, ainsi
 que mon père. Rentrés à 10 h. Pas encore de
 Prussiens chez nous. Rien de bien nouveau: sauf des
 
 intrigues cléricales ignobles pour les élections municipales de demain.!
 
-Dimanche 25. Élections municipales: on vote beau-
-coup, plus qu'on n'avait osé l'espérer. C'est bien
+Dimanche 25. Élections municipales: on vote beaucoup, plus qu'on n'avait osé l'espérer. C'est bien
 
 M. Rameau me donne des nouvelles de Paris — On résiste A A
 
@@ -795,8 +759,7 @@ jours, ainsi que Phalsbourg.
 Réquisitions absurdes — Une selle n'ayant pas été
 
 remise à temps, (parce qu'on n'avait en trouver,) la
-ville est condamnée à 2000 fr. d'amende pour le len-
-demain matin. Monstruosités Prussiennes: vols; pil-
+ville est condamnée à 2000 fr. d'amende pour le lendemain matin. Monstruosités Prussiennes: vols; pil-
 - lages: viols. (d'une vieille femme de 80 ans à Bièvres)
 Ordre de livrer les fusils de chasse —
 
@@ -821,9 +784,7 @@ Travaillé avec M. Bersot. Été à la poste — à l'Inter-
 
 Le résultat des élections municipales est très bon — 14]
 
-Toute la liste démocratique passe à une immense majo-
-
-rité. Les élections législatives sont permises par les
+Toute la liste démocratique passe à une immense majorité. Les élections législatives sont permises par les
 
 Dîner chez M. Bersot avec M. Délerot. Après dîner, en À
 
@@ -847,8 +808,7 @@ une tasse de thé chez M. Bersot, et nous rentrons à
 Mardi 27 sept. Le conseil municipal élu dimanche,
 et annulé par le décret annoncé hier, a été néanmoins
 installé aujourd'hui, comme municipalité provisoire,
-par M. Loriot de Rouvray, présidt. du conseil de pré-
-fecture, préfet par délégation de M. Charton. Mon
+par M. Loriot de Rouvray, présidt. du conseil de préfecture, préfet par délégation de M. Charton. Mon
 père a été au conseil de 1 heure à 5 —
 À J'ai été au Journal avant déjeûner; après, à la Mairie
 — J'ai travaillé chez M. Bersot jusqu'à 5 heures. Été à
@@ -860,11 +820,8 @@ d'un combat heureux au Mont Valérien au bois-de;
 Strasbourg a fait une sortie très heureuse et a repoussé
 victorieusement un assaut formidable — Paris tient
 
-bien: mais le siège en règle ne paraît. pas encore com-
-mencé jusqu'ici — On prête de divers côtés aux Prus-
-siens le plan de prendre Paris par la faim —;
-Mais il faut se défier de tout ce qui se dit: Les Prus-
-siens font circuler de leur côté les canards les plus absurdes, et les Français imaginent ce qui leur plaît —
+bien: mais le siège en règle ne paraît. pas encore commencé jusqu'ici — On prête de divers côtés aux Prussiens le plan de prendre Paris par la faim
+Mais il faut se défier de tout ce qui se dit: Les Prussiens font circuler de leur côté les canards les plus absurdes, et les Français imaginent ce qui leur plaît —
 On a entendu distinctement le canon ce matin —
 On a enterré ce matin M. Génie, ancien secrétaire de
 On a fusillé hier ou ce matin un franc tireur; qui avait
@@ -890,26 +847,23 @@ la cour du Château.
 les cahiers d'Arnold Scherer
 Mon père a fait aujourd'hui la connaissance du
 Sheridan, qui est avec l'armée Prussienne — 11 demeure
-aux Réservoirs. Hier, il a Gustave d'Alaux, corres-
-pondant militaire des Débats, qui revient de Sedan.
+aux Réservoirs. Hier, il a Gustave d'Alaux, correspondant militaire des Débats, qui revient de Sedan.
 On dit le prince de Würtemberg blessé.
 environ 5 ou 6 000 soldats fixes. Maïs il est difficile de
 calculer tout ce qui a passé par la ville depuis le
 Probablement entre 100 et 200 000 hommes — Le défilé du
 Les appréciations varient beaucoup sur le décret
-d'ajournement des élections: peut-être le blâme dominet-il, mais il y a une donnée qui nous échappe forcé-
-ment: Nous ne savons pas tout. On parle d'une cireulaire de Favre tombée du ballon — Un troisième ballon
+d'ajournement des élections: peut-être le blâme dominet-il, mais il y a une donnée qui nous échappe forcément: Nous ne savons pas tout. On parle d'une cireulaire de Favre tombée du ballon — Un troisième ballon
 a passé le 24. l'un des trois est tombé à Triel, et a failli
 être Pris par les Prussiens, (son contenu.) Mais les
 français ont emporté en bateau dépêches journaux
 les ont sauvés. D'ici à quelques jours, les choses
 seront probablement plus nettes.
-Jourdier partir pour Tours —:
+Jourdier partir pour Tours
 Mercredi 28 sept. J'ai passé presque toute ma À
 journée au Journal, à l'Internationale, chez M. Bersot
 Les nouvelles sont: la prise de Strasbourg, (27)
-annoncée par l'autorité Prussienne: l'approche de l'ar-
-mée française, celle de la Loire, qui est dit-on à
+annoncée par l'autorité Prussienne: l'approche de l'armée française, celle de la Loire, qui est dit-on à
 Trappes: la reddition de Toul, (le 23.) après une admirable sortie des Français.
 L'armée Prussienne est démoralisée; la nouvelle de la
 prise de Strasbourg, n'est peut-être qu'un faux bruit
@@ -922,23 +876,21 @@ Le soir, après dîner, nous avons été chez M. Charton
 où nous avons M.M. Bersot Délerot — Paul Reclus, a
 un jeune homme d'une 30% d'années, frère de Élie
 d'Élisée Reclus, est arrivé pendant notre visite, en cos- de
-tume d'ambulancier; il fait partie de la fameuse ambu-
-lance de la Presse Parisienne, faite prisonnière par les
+tume d'ambulancier; il fait partie de la fameuse ambulance de la Presse Parisienne, faite prisonnière par les
 Prussiens, promenée par eux à travers plusieurs villes
 Allemandes, Mayence, Cologne, Coblenz, etc — Il
 venait d'arriver à Versailles, demandait un gîte à
 . M. Charton. Il est reparti au bout de qques moments
 pour aller chercher Adolphe d'Espine, qui faisait partie:
 de la même ambulance, qui venait également loger:
-chez M. Charton. En nous en allant nous les avons ren-
-contrés qui revenaient. Ils nous ont abordé, sans nous
+chez M. Charton. En nous en allant nous les avons rencontrés qui revenaient. Ils nous ont abordé, sans nous
 reconnaître pour nous demander leur chemin — d'Espine
 
 a poussé un cri de surprise en me reconnaissant! Plus
 
 tard nous avons rencontré d'autres ambulanciers à
 
-cheval, qui cherchaient un hôtel —:;
+cheval, qui cherchaient un hôtel
 
 qui nous raconte plusieurs choses intéressantes sur son de:
 voyage. IL nous donne quelques nouvelles du dehors,
@@ -947,9 +899,7 @@ sur l'organisation des francs-tireurs, sur les combats
 
 autour de Paris, sur l'état moral politique de la
 
-France — Enthousiasme dans le midi, qui envoie d'admi-
-
-rables corps de francs-tireurs. Les Prussiens redoutent
+France — Enthousiasme dans le midi, qui envoie d'admirables corps de francs-tireurs. Les Prussiens redoutent
 
 énormément la guerre de guérilla: ils ne craignent à
 
@@ -974,8 +924,7 @@ Bersot ont diné chez nous.
 
 ! Vendredi 30 septembre. Encore deux ballons.
 - Bataille au sud de Paris à
-Dans la matinée, j'ai été au Journal, chez M. Char-
-ton, voir Ad. d'Espine. Après déjeûner, nous avons
+Dans la matinée, j'ai été au Journal, chez M. Charton, voir Ad. d'Espine. Après déjeûner, nous avons
 enterré dans la cave une caisse d'argenterie.
 Les Prussiens ont frappé tous les départements de
 France d'une contribution de guerre d'un million, pour;
@@ -996,7 +945,7 @@ Le gouvernement Prussien a manifesté aujourd'hui
 l'intention de nommer un préfet Prussien; la question
 est maintenant de savoir si notre municipalité républi- EXT
 caine, consentira à devenir municipalité Prussienne, ou: 1108
-si elle donnera sa démission —;
+si elle donnera sa démission
 déjeûné ce matin avec nous. J'ai passé ma journée ne
 comme à l'ordinaire entre l'Internationale le Journal.
 La situation de la municipalité devient de plus en plus
@@ -1064,11 +1013,9 @@ jours, il n'y a plus lieu de désespérer. Les Prussiens ont je
 l'Ouest du Rhône marchent à grands pas: l'armée à
 de la Loire sera prête dans dix jours. Elle est formi- «
 On dit aussi avoir 200 000 h. au Mans.
-Vendredi 7 octobre. Rien d'extraordinaire — Entre-
-vue entre M.M. Rameau de Bismarck. M. de Bismarck
+Vendredi 7 octobre. Rien d'extraordinaire — Entrevue entre M.M. Rameau de Bismarck. M. de Bismarck
 annonce à M. Rameau que les élections n'auront pas
-lieu: il lui montre un décret du Gouv: de Paris, les ren-
-voyant. M.M. Bersot Délerot ont diné chez nous.
+lieu: il lui montre un décret du Gouv: de Paris, les renvoyant. M.M. Bersot Délerot ont diné chez nous.
 Samedi 8 octobre. Rien encore de bien saillant, La
 ville de Versailles est exemptée de 400 000 fr. par le roi
 
@@ -1094,9 +1041,7 @@ Bi: les raconterai dans un mémoire avec les pièces à l'appui
 
 malade. On parle d'une affaire près de Saint Cloud Ville
 
-il a d'Avray — Je vais avec d'Alaux chez le père Gaga-
-
-rin, jésuite. Il est très aimable me prête des journaux.
+il a d'Avray — Je vais avec d'Alaux chez le père Gagarin, jésuite. Il est très aimable me prête des journaux.
 
 Mardi 11. Arrivée de neuf Prussiens chez nous.
 
@@ -1125,25 +1070,21 @@ aussi à la Bibliothèque, au bureau de l'État civil. EE.
 Passé la soirée chez M. Bersot, avec M. Délerot.
 Jeudi 13. Bonnes nouvelles. Une circulaire de À
 Gambetta, datée de Tours, sur la situation de Paris.
-Gambetta est ministre de la guerre à Tours. Sa circu-
-laire est très belle — Expulsion des habitants de
+Gambetta est ministre de la guerre à Tours. Sa circulaire est très belle — Expulsion des habitants de
 Garches. On dit, d'une façon à peu près certaine, A
 que les Prussiens, maîtres d'Orléans en ont été chassés AUS
 par les français. 5 000 bavaroïs auraient péri.
 Gustave d'Alaux dine avec nous. SNS
 ï Été chez le P. Gagarin. Un brave homme, très-
 Vendredi 14. Pas de nouvelles. L'affaire d'Orléans ‘tes
-4 semble mise en doute. Été chez le Père Gagarin —; à
+4 semble mise en doute. Été chez le Père Gagarin à
 Un général français, (d'Etat-Major) est arrivé aujour- NE
 d'hui au Quartier-Général. On ne sait pourquoi — Le
 Le conseil municipal a voté une réponse à la proclamation ne
 de Gambetta. M.M. Bersot Délerot dinent chez
-Samedi 15. Rien de nouveau. On continue à com-
-menter l'arrivée du g‘! français. C'est, dit-on, le général A Le
+Samedi 15. Rien de nouveau. On continue à commenter l'arrivée du g‘! français. C'est, dit-on, le général A Le
 Boyer, venant de la part de Bazaine — Il demeure dans En
-la maison d'Agnan, rue Satory. Il est gardé étroite-
-
-les cahiers Arnold Scherer à
+la maison d'Agnan, rue Satory. Il est gardé étroiteles cahiers Arnold Scherer à
 au Dimanche. 16. Rien de nouveau — Mac-Lean dîne
 avec nous. —
 la Centralisation. Déjeûné à h. Été voir Mac-Lean: il
@@ -1174,8 +1115,7 @@ craint quelque chose. Déjà, depuis plusieurs jours, les
 Prussiens paraissent inquiets. Ils se lèvent de bon
 matin: les officiers bouclent leurs valises; on est
 même venu les réveiller la nuit, dans plusieurs mai-
-M. Lesourd est parti pour Mayence, où il sera prison-
-nier sur parole.
+M. Lesourd est parti pour Mayence, où il sera prisonnier sur parole.
 Un officier Prussien, arrivé à la mairie, dit à l''Em-;
 ployé, chargé du service des logements, de réserver
 les plus beaux logements, parce qu'il y avoir un
@@ -1241,8 +1181,7 @@ Dans la plaine située en deça des bois, nous voyons Le
 des cuirassiers blancs en déroute. Ce matin on a
 
 des cavaliers des fantassins débandés, assez nom- ai
-breux. Le canon tonne plus rarement plus faible-
-ment, de temps en temps pourtant il se rapproche; à À
+breux. Le canon tonne plus rarement plus faiblement, de temps en temps pourtant il se rapproche; à À
 
 5 b. 1/2, tout est fini; alors les nouvelles commencent à
 arriver; les cancans de pleuvoir. A demain les détails
@@ -1265,9 +1204,7 @@ pas à une affaire aussi importante; ils n'avaient que
 30 cartouches. Il paraît que les Français ont occupé
 Bougival, s'y sont établis: ce qui explique pourquoi
 
-les Prussiens ont fait un certain nombre de prison-
-
-niers en enlevant la position. Les français ont surtout y
+les Prussiens ont fait un certain nombre de prisonniers en enlevant la position. Les français ont surtout y
 perdu du monde dans la retraite.
 
 J'ai arriver les prisonniers français; il yen avait
@@ -1301,9 +1238,7 @@ Lundi 24 oct. Départ du major Prussien, de la
 plus grande partie de nos garnisaires. Il reste l'adjudant
 - 2 hommes: l'adjudant est souffrant d'une fluxion.
 J'ai travaillé assez longtemps aujourd'hui.
-Sorti à 4 h. Assisté à un immense enterrement mili44
-
-taire Prussien; au cimetière N. Dame: 3 colonels, des
+Sorti à 4 h. Assisté à un immense enterrement militaire Prussien; au cimetière N. Dame: 3 colonels, des
 officiers bavarois; en tout onze cercueils: musique mili-: à
 taire splendide: un premier cortège de trois cercueils,
 col. Prussien 2 off. Bavarois) escorté de dragons
@@ -1329,8 +1264,7 @@ L'un des pasteurs a fini son discours par cette belle
 prière: « que le Seigneur vous maintienne en paix
 
 les cahiers d'Arnold Scherer
-en prospérité; » le dernier mot de sa prière se trou-
-vait être Frieden, à ce moment la musique a joué une À
+en prospérité; » le dernier mot de sa prière se trouvait être Frieden, à ce moment la musique a joué une À
 mélodie si douce si voilée, que tout le monde était
 res Retour de notre ambulance de Dreux —
 Diner chez M. Bersot avec M. Délerot. À
@@ -1406,12 +1340,11 @@ dinent chez nous — G. d'Alaux dans la soirée.
 Samedi 5. Encore rien — Mon père voit Thiers, qui
 partira probablement lundi. Il a été ce matin à Sèvres,
 il a eu, de l'autre côté de la Seine, une entrevue avec à
-qqun de Paris — Il a sauté en bateau, trompant la sur-
-veillance des Prussiens, puis il est tranquillement |.
+qqun de Paris — Il a sauté en bateau, trompant la surveillance des Prussiens, puis il est tranquillement |.
 revenu — (Tous nos Prussiens reviennent pour 4 jours)
 Arrestations de M.M. Albert Harel, substitut, Thiroux,
 dir. des Postes.
-Nouvelles de Metz, par Mac-Lean —:
+Nouvelles de Metz, par Mac-Lean
 Nouvelles des troubles de Paris, suivis d'un plébiscite,
 qui a donné 300 000 voix au gouv‘ contre
 Le Préfet a défendu à la magistrature de rendre la
@@ -1419,8 +1352,7 @@ justice autrement qu'au nom de Napoléon III
 Dimanche 6. Sortis après déjeûner, après une visite
 
 — Travaillé — G. d'Alaux à diner. Après dîner, mon
-père chez Thiers, revient à 11 h. avec de mau-
-vaises nouvelles. Les négociations sont à peu près rom- NE:
+père chez Thiers, revient à 11 h. avec de mauvaises nouvelles. Les négociations sont à peu près rom- NE:
 Lundi 7. Les négociations sont rompues. Thiers;
 est parti. On a refusé à Cochery un sauf-conduit pour
 aller faire une dernière tentative à Paris. (un factionpaire Prussien blessé la nuit.) Visites de Rosseuw
@@ -1471,8 +1403,7 @@ fait comparaître devant le préfet, pour procéder à
 l'instruction; le préfet lui a reproché d'avoir adressé À
 une circulaire à ses employés, en qualité de directeur
 des postes, alors qu'il était révoqué. M. Thiroux a
-répondu qu'il avait adressé la circulaire avant. Le pré-
-fet a alors répondu: Monsieur, vs. savez bien que les À
+répondu qu'il avait adressé la circulaire avant. Le préfet a alors répondu: Monsieur, vs. savez bien que les À
 employés Français sont révoqués par le seul fait de
 
 occupation allemande. Thiroux a allégué comme preuve
@@ -1529,8 +1460,7 @@ Mais le conseil a décidé simplement qu'on les enverrait à
 Hoff s'est empoisonné avec de l'arsenic. Le pauvre.
 garçon était, dit-on, d'une bonne famille de Mannheim
 Lewyssohn, son ami, est parti l'Allemagne — Il a
-beaucoup souffrir. Son corps était, paraît-il convul-
-sionné — Ses yeux ouverts, une jambe, pendant hors À
+beaucoup souffrir. Son corps était, paraît-il convulsionné — Ses yeux ouverts, une jambe, pendant hors À
 du lit — un couteau ouvert, à côté du verre
 Gustave d'Alaux à diner. Été chez de Charn'acé
 Lundi 14 nov 70. Il y a une quinzaine de jours, À
@@ -1598,8 +1528,7 @@ rère fois. (IL est évident que Brauchitsch est associé à à
 ; Baron à Betzold) Le mot forcer (la ville) revient
 plusieurs fois le rapport de Baron. à
 Cependant aujourd'hui Jeudi (17 nov. 1870) un concurrent, s'est présenté, offrant de livrer des marchan-
-È dises à meilleur prix que Baron, de les amener lui-
-même à Versailles, de Nogent l'Artaud. Il est probable
+È dises à meilleur prix que Baron, de les amener luimême à Versailles, de Nogent l'Artaud. Il est probable
 "que c'est encore un tour de Brauchitsch.— Rien de nou-
 LE veau, sinon la confirmation des nouvelles d'Orléans.
 Promené les bois avec mon père, M.M. Housay,:
@@ -1618,8 +1547,7 @@ Lundi 21 novembre. Nous apprenons ce matin
 que notre adjudant a été blessé à la tête, à Vaucres-. me.
 son —Le mont-Valérien, fait, paraît-il, un feu d'enfer — Le
 major a renvoyé son cheval à Versailles pour le mettre mn:
-en sûreté — On dit que avons été battus à Chà-
-teauneuf. — A 7 h. du soir, inauguration des cours ps:
+en sûreté — On dit que avons été battus à Chàteauneuf. — A 7 h. du soir, inauguration des cours ps:
 d'adultes, à l'école de la rue Saint Simon — Discours
 : de M.M. Rameau Bersot.
 
@@ -1676,8 +1604,7 @@ Entre onze heures minuit, canonnade assez forte —
 
 Dimanche 27. La cannonade a repris ce matin
 entre 6 7 heures. — (J'apprends qu'elle a duré toute
-la nuit, depuis 10 h. jusqu'à 7 h.) La canonnade conti-
-nue faiblement dans le lointain, probablt. au Sud de 1$
+la nuit, depuis 10 h. jusqu'à 7 h.) La canonnade continue faiblement dans le lointain, probablt. au Sud de 1$
 
 Promené avec M. Délerot, à la butte des Moulins —
 
@@ -1715,9 +1642,7 @@ Sèvres, étaient, disaient-elles, dans les boiïs de
 
 Châville. Elles avaient entendu leurs clairons sonner la
 
-A Nous rebroussons chemin nous allons à l'Interna-
-
-tionale. Les Prussiens sont en mouvement l'ons'at.
+A Nous rebroussons chemin nous allons à l'Internationale. Les Prussiens sont en mouvement l'ons'at.
 
 Fur tend à ce qu'ils sonnent l'alarme d'un moment à l'autre.
 
@@ -1743,7 +1668,7 @@ Le soir, mon père continue ses lectures sur les Alpes
 
 le Mont Blanc, à l'école des adultes — Nous recon- à
 
-1 duisons d'Alaux Délerot chacun chez lui —;
+1 duisons d'Alaux Délerot chacun chez lui
 
 Le Moniteur Prussien constate des engagements vic-;
 
@@ -1761,8 +1686,7 @@ Mercredi 30. Le canon a tonné violemment toute la
 nuit. Ce matin, j'ai été, après déjeûner, à la grille de 1118
 l'avenue de Paris; j'ai entendu le roulement inces- \NÈNSE
 sant des mitrailleuses, entremêlé de canon
-Vers 1 h. le canon s'est à peu près tu, les mitrail-
-leuses seules grondaient — à 2 h. le canon a repris AS
+Vers 1 h. le canon s'est à peu près tu, les mitrailleuses seules grondaient — à 2 h. le canon a repris AS
 avec force jusqu'à 3 h. 1/2, où j'écris ces lignes.
 Entre quatre cinq heures, tout s'est apaisé —
 Nous avons dîné chez M. Bersot avec M. Délerot au
@@ -1780,8 +1704,7 @@ Londres, pour régler le conflit anglo-russe. L'affaire de
 Beaune la Rolande n'a pas été une défaite pour nous.
 L'affaire du 30 n'ont pas non plus été mau- ‘os
 On continue à affirmer que le Fréd Charles est si
-On parle d'une victoire des Français près de Longju-
-meau, d'une autre à Méréville —. 1)
+On parle d'une victoire des Français près de Longjumeau, d'une autre à Méréville —. 1)
 M.M. Délerot Bersot dinent chez nous.
 
 À les cahiers Arnold Scherer:
@@ -1821,7 +1744,7 @@ M.M. Délerot d'Alaux sont venus le soir.
 Lundi 5. Qques coups de canons isolés hier soir
 ce matin — Grandes nouvelles — Orléans est repris
 par les Prussiens, mais Ducrot occuperait la vallée de
-la Marne, ravitaillerait Paris, donnerait la main à;
+la Marne, ravitaillerait Paris, donnerait la main
 l'armée de la Loire —
 Nous dinons chez M. Bersot avec Délerot. Après diner,
 nous allons entendre une leçon de Dietz, sur le Misan-
@@ -1830,8 +1753,7 @@ ayons eue depuis la prise de Metz. Orléans.a été repris,
 mais après une défaite d'Aurelles de Paladines. Ducrot
 est rentré à Paris.
 J'ai arriver une batterie française, prise, dit-on près
-Mon père a Odo Russell W. H. Russell, corres-
-pdt, du Times — J'ai faitlune visite à Lean, chez qui
+Mon père a Odo Russell W. H. Russell, correspdt, du Times — J'ai faitlune visite à Lean, chez qui
 j'ai un g*! américain, Duff, qui m'a prêté des!
 Mon père est très triste découragé — Il a fait une
 troisième leçon à la rue Simon, ce soir — à
@@ -1863,9 +1785,7 @@ Fox Les Prussiens deviennent monstrueux. Hier, ils ont
 4 150 demandé la liste de tous les hommes de 20 à 45 ans,
 susceptibles de faire partie de la levée en masse, mena-
 
-4 (ie çant d'une amende les familles de ceux qui se dérobe-
-
-te; raient clandestinement. Aujourd'hui, 4 omnibus, par
+4 (ie çant d'une amende les familles de ceux qui se dérobete; raient clandestinement. Aujourd'hui, 4 omnibus, par
 MAT. eux demandés, n'ayant pas été fournis à temps, ils ont
 
 12 mis en prison l'employé, chargé du service des voitures,
@@ -1886,7 +1806,7 @@ ne Vendredi 9. On prétend que Ducrot serait dans le
 
 ff. br: Nord. — Sauf cela pas de nouvelles — M.M. Bersot
 
-740 Délerot dinent chez nous — Leçon de Colomb, le soir,
+Délerot dinent chez nous — Leçon de Colomb, le soir,
 
 Samedi 10 déc. Albert Joly est père d'une SET
 petite fille — Pas de nouvelles — Je lis l'Indépendance
@@ -1905,8 +1825,7 @@ d'Olivier Godard. Leçon de mon père aux adultes.
 Mercredi If. Nous avons régulièrement l'/ndé- 1%
 pendance belge, par M. Délerot qui la reçoit. J'aivules
 des 7, 8, 9, 10, 11, — belle circulaire de Chaudordy — À à
-Il paraît que le Chanzy a vigoureusement ré-
-sisté à Beaugency. J'ai fait ce soir, (mercredi) une confé- ê 1 à
+Il paraît que le Chanzy a vigoureusement résisté à Beaugency. J'ai fait ce soir, (mercredi) une confé- ê 1 à
 rence aux cours d'adultes sur le Vésuve Pompéi — es
 MM. Délerot Bersot ont pris le thé chez nous — fil Ne
 Jeudi 15. Indépendance du 12 — Chanzy, paraît-il,; pre
@@ -1915,17 +1834,15 @@ On a recu des nouvelles de MM. de Raynal, Thiroux, AU
 Harel, il y a déjà 8 ou 15 jours — Thiroux était souffrant — LA
 Ils étaient, non pas internés à Minden, mais en prison. a
 Depuis, on a obtenu des améliorations, par l'aide de a
-camp du duc de Saxe Weimar, (M. de Beust.) bis-
-
-les cahiers d'Arnold Scherer
+camp du duc de Saxe Weimar, (M. de Beust.) bisles cahiers d'Arnold Scherer
 1 billes entre Bismarck de Moltke — Hier 4 lettres de
 Vendredi 16. Brouille entre Deroisin le conseil —
 de à — Hier, mort du — Brecoster, d'une apoplexie fouk droyante
-Histoire du nommé —, concierge de M. de Roon,
+Histoire du nommé concierge de M. de Roon,
 4 min de la guerre — Celui-ci écrit au maire pr. lui faire
 é part de la situation intéressante du dit concierge,
 ancien militaire, le somme de lui faire donner des
-secours. M. Rameau fait venir —, qui nie énergiF quement avoir demandé l'intervention du ministre de la
+secours. M. Rameau fait venir qui nie énergiF quement avoir demandé l'intervention du ministre de la
 guerre, refuse tout secours — Nouvelle lettre de de
 ï Roon: nouvelles dénégations, nouveaux refus du con-
 à cierge — 3° lettre plus impérative, 3° refus du concierge,
@@ -1943,8 +1860,7 @@ tenus par — le docteur Fropo, de Nansouty le co-
 : lonel Michel. M. Rameau a parlé sur la tombe ainsi
 À que le Dr. Fropo. Plusieurs officiers Prussiens assistaient
 
-un peloton Prussien une musique Prussienne précé-
-daient le convoi, ainsi qu'un peloton d'infirmiers fran- tes
+un peloton Prussien une musique Prussienne précédaient le convoi, ainsi qu'un peloton d'infirmiers fran- tes
 çais — Le cercueil était couvert d'un drapeau tricolore
 Le canon à repris depuis hier par intervalles — Le É à
 soir, j'ai fait une conférence aux cours d'adultes, rue
@@ -1952,16 +1868,13 @@ Saint Simon, sur Herculanum Pompéi: j'en ai été bi.
 plus content que de la rère,
 Dimanche 18 déc 1870. Aujourd'hui, la députation A
 du Reïichstag, chargée de présenter au Roi de Prusse
-l'adresse l'invitant à prendre le titre d'Empereur d'Alle-
-magne, arrivée avant hier, a porté l'adresse à la Préfec-
-ture. J'ai les députés monter en voitures aux Réser- Fr:
+l'adresse l'invitant à prendre le titre d'Empereur d'Allemagne, arrivée avant hier, a porté l'adresse à la Préfecture. J'ai les députés monter en voitures aux Réser- Fr:
 voirs: et quelles voitures! d'effroyables carrioles! des se
 fourgons de poste, sales, crottés! Et les députés!
 quelque chose entre les soldats de Soulouque les he:
 gardes nationaux de l'Empire — des pantalons à sous- à
 pieds blancs ou gris très clair, avec une grande bande à
-d'or, un frac brodé, noir, bleu, (l'un d'eux rouge écar-
-late) un chapeau de général à plumes blanches, l'épée RCE
+d'or, un frac brodé, noir, bleu, (l'un d'eux rouge écarlate) un chapeau de général à plumes blanches, l'épée RCE
 au côté, de grandes épaulettes d'argent. Une vraie
 charretée de carnaval! le drapeau de la confédération
 a été hissé sur la Préfecture pendant la cérémonie, à
@@ -2010,12 +1923,10 @@ leur a donné le spectacle de l'incendie de 120 villas —On
 a entendu le canon aujourd'hui mercredi surtout dans
 la nuit dernière une assez forte canonnade — ce
 On a fait des perquisitions dans presque toutes les (24
-maisons du quartier Saint-Louis dans beaucoup de mai-
-sons des autres quartiers de la ville. On est venu chez
+maisons du quartier Saint-Louis dans beaucoup de maisons des autres quartiers de la ville. On est venu chez
 nous entre autres: 1 oflicier, 1 gendarme plusieurs
 soldats: on a placé des soldats à la porte sur le palier, à
-j'ai fait le tour des chambres avec l'officier le gen-
-darme — L'officier était poli même assez aimable, il a:
+j'ai fait le tour des chambres avec l'officier le gendarme — L'officier était poli même assez aimable, il
 - fait sa tournée d'une manière pr. ainsi dire dérisoire: A
 il n'est pas entré dans la cave, ni au rez de chaussée, ne
 ni au jardin les soldats ont sommairement regardé
@@ -2034,9 +1945,7 @@ nier en Allemagne, des épées, qu'ils ont emportées;
 
 Cela a motivé l'arrestation du beau père du propriétaire,
 
-un monsieur assez âgé — Le quartier Louis était blo-
-
-les cahiers Arnold Scherer
+un monsieur assez âgé — Le quartier Louis était bloles cahiers Arnold Scherer
 qué par toutes les issues — Il fallait, pour passer, une
 permission des officiers qui dirigeaient les perquisitions—
 de De gros groupes de soldats en petite tenue, mais armés
@@ -2055,8 +1964,7 @@ membres de l'Internationale prisonniers les bureaux
 Putbus, ce qui équivalait à rien du tout — On a
 18 ‘aussi été chez Duff Lean —
 Résultat des perquisitions ds. la ville — Environ
-ou 200 arrestations, dont une dizaine seulement mainte-
-volvers — La ville a été frappée de terreur par tout cet
+ou 200 arrestations, dont une dizaine seulement maintevolvers — La ville a été frappée de terreur par tout cet
 appareil. Les Prussiens craignaient, dit-on, une conspi-
 ï ration contre le roi Bismarck, ils cherchaient autant
 des hommes, des francs-tireurs cachés, que des armes.
@@ -2081,16 +1989,14 @@ Prussiens ont très peur — Journault son adjoint se
 sont promenés toute la nuit au milieu des bombes — "ke
 J. qui est venu aujourd'hui à Versailles, a essayé de PAG
 faire passer à Trochu un avis, portant, qu'à moins de
-plans particuliers, qu'il ne peut pénétrer, le bombarde-
-ment de Sèvres ne fait aucun mal aux Prussiens, peut
+plans particuliers, qu'il ne peut pénétrer, le bombardement de Sèvres ne fait aucun mal aux Prussiens, peut
 causer de graves dommages à la ville, qui a déjà subi
 environ 2.009.000 de pertes: Des objets d'une valeur
 d'environ 2 000 000 sont accumulés à la mairie, "47
 La ville de Versailles a été taxée aujourd'hui d'une
 amende de 50 000 fr. par herr von Brauchitsch, préfet
 de Seine Oise, député au Reichstag, gendre de M. de
-Roon, pour n'avoir pas encore rempli le fameux maga-
-sin, (voy. plus haut.) les marchandises sont en route, [ESS
+Roon, pour n'avoir pas encore rempli le fameux magasin, (voy. plus haut.) les marchandises sont en route, [ESS
 sont arrêtées par la Commission des lignes Prus- ta
 siennes. Si, au 5 Janvier, le magasin n'est pas fourni, la #2
 
@@ -2127,11 +2033,7 @@ supérieures l'ordre de dissolution à M. Delaroche, qui
 a immédiatement cessé ses fonctions, tout en allant
 protester auprès du Putbus — Celui-ci a paru très
 désolé, a dit à Delaroche qu'il devait y avoir un
-malentendu — Il l'a prié de venir causer avec lui le lendemain matin — Ce matin Putbus a tenu le même lan-
-
-gage, a dit qu'il conférerait avec les autorités supé-
-
-rieures, a remis la réponse à l'après midi — Il est en
+malentendu — Il l'a prié de venir causer avec lui le lendemain matin — Ce matin Putbus a tenu le même langage, a dit qu'il conférerait avec les autorités supérieures, a remis la réponse à l'après midi — Il est en
 effet venu à 6 h. Delaroche venait de quitter: VAR
 sais pas la suite — toujours est-il que ce matin, TA
 Voigts-Rhetz a écrit un billet très poli à M. Delaroche,
@@ -2143,11 +2045,9 @@ Putbus, qui étaient portées par les membres du comité Qi.
 — Delaroche à répondu que son intention n'était nul- Put.
 lement de se transporter sur la Loire, ayant été nommé
 à Versailies par le ministre de la guerre — que chacun LA
-des membres du comité ferait ce que bon lui semble-
-rait, que pour lui, il comptait garder sa carte, qui lui 3 Et
+des membres du comité ferait ce que bon lui semblerait, que pour lui, il comptait garder sa carte, qui lui 3 Et
 appartenait, qu'il permettait seulement que la signa- AS
-D'autre part, les ambulances particulières sont accou-
-rues se mettre sous la protection de Putbus, qui a été "VUS
+D'autre part, les ambulances particulières sont accourues se mettre sous la protection de Putbus, qui a été "VUS
 vexé d'avoir tout cela sur les bras, désolé de toute
 l'affaire; l'un des chefs d'ambulance, M. de Romaneét,
 chef d'ambulance de Montreuil, dames de la Retraite, “10
@@ -2163,12 +2063,11 @@ de Jouy — M.M. Bersot Délerot à diner. D'alaux le
 soir — On annonce une conférence à Londres pour le à Le
 
 les cahiers d'Arnold Scherer
-12 Janvier — Pas d'autres nouvelles — Rien d'impor-
+Janvier — Pas d'autres nouvelles — Rien d'impor-
 Samedi 24 déc. Nouvelles d'une sortie au nord de
 è Paris — Canon assez fort la nuit dernière aujourd'hui
 Ce matin, visite de Putbus à Delaroche, le priant de
-À reprendre ses fonctions — Delaroche demande une invita-
-tion écrite. Stieber, chef de la police, la lui apporte,
+À reprendre ses fonctions — Delaroche demande une invitation écrite. Stieber, chef de la police, la lui apporte,
 se confond en excuses — De même Voigts-Rhetz, qui.
 vient voir Delaroche qque temps après — Qui trompe-t-on
 ; ici? L'ordre de dissolution émanet-il de Stieber? ou de
@@ -2202,8 +2101,7 @@ déposé chez le Père Gagarin; du 4 Janvier au 15 février, on.
 chez M. de Cappot.
 Mercredi 15 février 1871. L'interruption de mon., ne
 journal et sa mise en sûreté ont été motivées 1° Par la +.
-situation dans laquelle se trouvaient placés les conseil-
-lers municipaux, sous le coup d'une arrestation ou d'un 2 À
+situation dans laquelle se trouvaient placés les conseillers municipaux, sous le coup d'une arrestation ou d'un 2 À
 envoi de garnisaires — 2° Par l'arrestation le procès (2
 (devant le conseil de guerre du 5° corps,) du G. d'Alaux, « (12
 qui avait entre les mains des extraits de ce journal —
@@ -2226,8 +2124,7 @@ Il faut d'abord que je dise comment l'affaire du
 municipalité, il les menaça de l'envoi de 10 garnisaires
 1 (it chez chacun d'eux si la somme n'était pas payée. AusDA sitôt, ces vertueux commerçants payèrent l'amende,
 le préfet, qui se sentait engagé dans une mauvaise
-ral affaire, tenant d'ailleurs ses 50 000 fr. s'inquié-
-tant peu d'où ils venaient, des syndics ou de la ville,
+ral affaire, tenant d'ailleurs ses 50 000 fr. s'inquiétant peu d'où ils venaient, des syndics ou de la ville,
 relâcha les 4 conseillers municipaux. À
 Il est bon de dire que le lieutnt. de police Heppi,
 venant qques jours après, à la mairie, dit, sans se
@@ -2252,12 +2149,9 @@ Graduellement, nous recevons, un à un, les résultats 4 À
 du vote à Paris dans les départements. es.
 La capitulation de Paris a été comme un immense
 gens qui avaient passé à Paris la durée du siège, des: Fes
-. gardes nationaux de Versailles &. Puis ont com-
-mencé les défilés d'émigrants, réfugiés à Paris, ren-
-trant chez eux, pour y trouver le plus souvent la ruine
+. gardes nationaux de Versailles &. Puis ont commencé les défilés d'émigrants, réfugiés à Paris, rentrant chez eux, pour y trouver le plus souvent la ruine
 la destruction. Au commencement, avant l'occupa- TA
-tion de Versailles, par les Prussiens, avant l'investisse-
-ment de Paris, on voyait aussi le défilé des émigrants, ) né.
+tion de Versailles, par les Prussiens, avant l'investissement de Paris, on voyait aussi le défilé des émigrants, ) né.
 mais d'un caractère bien différent. Alors, c'étaient des
 familles entières, entassées dans une charrette, qlque- à ne
 fois perchées au sommet d'une voiture chargée de: hi?
@@ -2294,8 +2188,7 @@ mais il est probable que M. X... n'avait pas promis
 assez au sieur Stieber, ou que le soldat lui avait promis davantage, car un beau matin Zernicki se rend
 chez M. X.., lui demande comment il a osé faire
 arrêter ce soldat, comment il pouvait certifier que ces …
-objets lui appartenaient &. [ajouté Erreur! Le domes-
-tique, (George Stremer.) resta en prison, Stieber
+objets lui appartenaient &. [ajouté Erreur! Le domestique, (George Stremer.) resta en prison, Stieber
 M. de Hatzfeld partagèrent les bijoux — [du premier
 texte:] Enfin le soldat fut relâché les objets volés
 ne furent jamais rendus.
@@ -2313,8 +2206,7 @@ Je note qques traits oubliés dans les pages qui
 précèdent. Il faut rappeler qques exemples de réquisi- 6 À
 tions extraordinaires: réquisition faite par un officier de:
 d'un collier d'une chaîne pour son chien: id, de la
-part de Bismarck, de 6 verres à Champagne, de plu-
-sieurs nappes serviettes — d'une chaise longue d'une 3,60
+part de Bismarck, de 6 verres à Champagne, de plusieurs nappes serviettes — d'une chaise longue d'une 3,60
 chaise percée pour le même: de plumes, porte-plumes,
 encriers, fournitures de bureau pour le congrès des
 Aujourd'hui, dimanche 19 février, il y a à la mairie
@@ -2328,9 +2220,7 @@ ville de Versailles fut requise par le commissaire civil
 de payer les contributions indirectes, soit 150 000 fr. par LA
 mois. — (Elle paie déjà 150 000 environ de contributions De
 directes.) On est allé réclamer; mais il a répondu que
-les journaux le gouvernement de la défense natio-
-
-les cahiers. d'Arnold Scherer À
+les journaux le gouvernement de la défense natioles cahiers. d'Arnold Scherer À
 nale ayant maintes fois répété que les richesses de la Don
 France étaient inépuisables, on n'avait qu'à s'exécuter.
 à Les nouvelles de Bordeaux nous font voir la paix
@@ -2339,8 +2229,7 @@ Samedi 25 février 1871. La situation redevient
 de nouveau tendue. Les négociations pour la paix n'ont
 pas encore abouti. La municipalité est de nouveau sous
 le coup de mesures de rigueur. Par coupable ineptie
-eus des adjoints, qui ont révélé à Nostiz-Wallwitz, commis-
-saire civil, qu'il y avait 100 000 fr. en caisse, 100 000 fr.
+eus des adjoints, qui ont révélé à Nostiz-Wallwitz, commissaire civil, qu'il y avait 100 000 fr. en caisse, 100 000 fr.
 ont été payés, (mardi) avec promesse de payer samedi
 À 230 000 fr. Le conseil municipal a pris à l'unanimité
 à (moins les 3 adjoints M.M. Denis Angé, qui se sont
@@ -2412,8 +2301,7 @@ ds. cette direction: elle n'était donc pas préparée pour
 une sortie, mais bien pour le bombardement de Paris.
 De la Lanterne, j'ai très bien distingué Issy, avec ses
 casernes percées effondrées, le drapeau allemand
-flottant audessus, Bicêtre, avec son toit rouge de briques, la redoute des Hautes-Bruyères ses terrassements jaunes, enfin la Tour de pierre, où s'étaient avan-
-cées les dernières batteries allemandes, les plus
+flottant audessus, Bicêtre, avec son toit rouge de briques, la redoute des Hautes-Bruyères ses terrassements jaunes, enfin la Tour de pierre, où s'étaient avancées les dernières batteries allemandes, les plus
 rapprochées du fort d'Issy.
 Je suis ensuite redescendu vers le château de
 j'ai été dans la ville même, qui est plus triste à voir que
@@ -2430,8 +2318,7 @@ d'imprécation contre les Prussiens, qui ont brûlé Saint
 Cloud le lendemain de la convention de Versailles — Dre
 Je suis revenu à Versailles par la route de Ville
 On dit la paix à peu près faite, avec l'abandon de
-Vendredi 10 mars. Le départ des Prussiens, an-
-noncé pour demain, est contremandé, par suite de l'en- LA
+Vendredi 10 mars. Le départ des Prussiens, annoncé pour demain, est contremandé, par suite de l'en- LA
 combrement des trains. Le Roi, le P‘, le Bismarck, de
 Moitke, Brauchitsch le général, sont partis — À
 Dimanche 12 mars. hier soir, retour de ma mère
@@ -2444,12 +2331,10 @@ vont camper à Satory— Temps radieux: tout Versailles
 est sur l'avenue de Paris: allégresse universelle, mêlée DE
 de-tristesse. Drapeaux tricolores —
 La garde nationale et les pompiers occupent tous les
-postes. Des pompiers arrêtent désarment, puis re-
-lâchent bientôt, un Prussien retardataire. A
+postes. Des pompiers arrêtent désarment, puis relâchent bientôt, un Prussien retardataire. A
 Lundi 13 mars. Retour du bataillon d'honneur de!
 la garde nationale de Versailles.
-Mardi 14. Arrivée de M. Thiers, à pied, de la « gare des Chantiers à la Préfecture, suivi du seul Bar-
-thélemy Saint Hilaire. Le drapeau tricolore hissé sur
+Mardi 14. Arrivée de M. Thiers, à pied, de la « gare des Chantiers à la Préfecture, suivi du seul Barthélemy Saint Hilaire. Le drapeau tricolore hissé sur
 la Préfecture. te
 
 les cahiers d'Arnold Scherer
@@ -2461,8 +2346,7 @@ Vendredi 26 mai. Et aujourd'hui, les palais, les
 monuments, les Églises, les bibliothèques ont brûlé.
 Paris est découronné, Paris, la cité Sainte, ce peuple
 invincible de Priam; renaîtrons-nous de nos cendres,
-ou sommes-nous condamnés à pourrir à nous dé-
-composer au soleil des temps nouveaux? O France,
+ou sommes-nous condamnés à pourrir à nous décomposer au soleil des temps nouveaux? O France,
 France, où vas-tu? que vas-tu devenir?
 Je me souviendrai toujours du tambour qui a retenti
 mercredi dans les rues à 9 h. du matin, convoquant les
@@ -2497,8 +2381,7 @@ fanatiques que ce qui a perdu la France, c'est l'absence à
 de foil. —. Moi, du moins, se dit-il avec un légitime
 orgueil; moi, du moins, je suis innocent des malheurs
 . de ma patrie. Je suis marguillier de ma paroisse, tous ot,
-les dimanches je suis assis au banc d'œuvre; aux pro-
-confesse communie' régulièrement. La foi fût elle
+les dimanches je suis assis au banc d'œuvre; aux proconfesse communie' régulièrement. La foi fût elle
 morte en France, elle vivrait encore dans mon cœur.
 Pendant dix minutes, il lit son livre d'heures, se NL.
 disant toujours: C'est par la foi qu'il faut sauver la: À
@@ -2515,8 +2398,7 @@ beau, du vraï, ennemi de la nature, ennemi du corps
 les cahiers d''Arnold Scherer
 humain et de la pensée humaine: O prêtre, c'est toi qui
 as fait de nous ce que nous sommes! C'est toi qui as
-distillé dans nos veines ce poison du fanatisme dogma-
-tique. qui a rendu possible un Robespierre! C'est toi
+distillé dans nos veines ce poison du fanatisme dogmatique. qui a rendu possible un Robespierre! C'est toi
 qui as excité dans le peuple la soif du sang, la faim de
 chair humaine! C'est toi qui as préludé aux massacres
 de septembre aux massacres de 1871 par la SaintBarthélemy, à la guillotine par le bûcher, à Louis XVI
@@ -2529,8 +2411,7 @@ par la volonté que tu brises, par l'âme que tu
 détruis, par le corps que tu corromps! Sois maudit,
 par la terre que tu souilles, par le ciel, que tu;
 nous a cité le mot suivant de Taine: « Si le Rhin d'un
-côté, la Vistule de l'autre, débordaient submer-
-geaient l'espace compris entre eux, j'en serais enchanté. »
+côté, la Vistule de l'autre, débordaient submergeaient l'espace compris entre eux, j'en serais enchanté. »
 Il faut reconnaître que la guerre a servi à quelque
 chose, puisqu'elle a réveillé chez un homme comme
 Taine la fibre patriotique française, jusqu'alors profondément endormie.
@@ -2545,7 +2426,7 @@ trois semaines ne se sont pas encore écoulées depuis la a
 mort de Rossel. (28 novembre, mardi.) À
 Nous nous mîmes à causer de la récente publication “4
 faite par Amigues des papiers posthumes de Rossel —
-regrette beaucoup. Elle est fâcheuse pour sa mémoire —;
+regrette beaucoup. Elle est fâcheuse pour sa mémoire
 Savez-vous, ajouta-t-il, ce qui m'est arrivé au sujet des
 papiers de Rossel? — Non — « Eh bien! dit-il, supposez la À
 chose du monde la plus abominable la plus odieuse, À
@@ -2554,13 +2435,11 @@ mille de Rossel, pour me récompenser sans doute de mon
 dévouement pour lui, m'accuse d'avoir volé ses papiers,;
 d'avoir contribué, avec Barthélemy Hilaire, à le
 faire fusiller. » J'avoue que je tombai à la renverse. à
-Joly continua m'expliqua ce qui suit: Dimanche der-
-nier, la famille Rossel vint quatre fois chez Joly sans le
+Joly continua m'expliqua ce qui suit: Dimanche dernier, la famille Rossel vint quatre fois chez Joly sans le
 trouver. Enfin Mr: Joly, pensant qu'on avait peut-être
 besoin de son mari, courut chez eux. Ayant demandé à
 Mr° Rossel ce qu'elle désirait: « Ce n'est pas à vous à
-que j'ai à parler, répondit M®* Rossel, la mère: Cepen-
-dant je puis vous dire ce que j'aurais dit à votre mari —
+que j'ai à parler, répondit M®* Rossel, la mère: Cependant je puis vous dire ce que j'aurais dit à votre mari —
 Votre mari est un voleur! Il a gardé, pour spéculer
 ensuite sur leur valeur, des papiers de notre fils. Notre
 fils avait beaucoup écrit, nous ne retrouvons pas tout.
@@ -2581,7 +2460,7 @@ Rossel une lettre dont voici la substance: « Je vous
 sans nom, qui déshonorerait le nom de votre fils si elle
 
 devenait publique: mais ce que je désire avant tout,
-c'est qu'il n'y ait sur sa tombe aucun scandale — »;
+c'est qu'il n'y ait sur sa tombe aucun scandale —
 « Il en a été de même du reste, me dit Joly, avec le pas-
 À teur Passa— Le gouvernement avait permis à M. Passa de À
 conduire le corps à Nimes, sans passer par Paris. Ce!
@@ -2645,8 +2524,7 @@ de sa mémoire! — APT
 pas la publier. Il y a des choses fâcheuses pour lui,
 
 les cahiers d'Arnold Scherer
-que ceux-là seuls qui ont causé avec lui, qui connais-
-saient l'État de son esprit, peuvent comprendre À
+que ceux-là seuls qui ont causé avec lui, qui connaissaient l'État de son esprit, peuvent comprendre À
 dans leur vrai sens. Quinze jours avant sa mort, sa À
 famille me demanda ce manuscrit, pour le lire. Je le;
 prêtai, il ne m'a point été rendu, il a été, à ce que
@@ -2660,8 +2538,7 @@ Paris. On ira rejoindre la gare d'Orléans. » Nous en;
 des mobiles de son action — « J'attribue deux tiers, me
 dit Joly, à sa haïne contre l'armée, un tiers à son zèle
 patriotique. » Je lui demandai de s'expliquer sur cette
-haine pour l'armée. « Oui, me dit-il, depuis Metz, il exé-
-crait l'armée; il ne voulait plus continuer à servir dans
+haine pour l'armée. « Oui, me dit-il, depuis Metz, il exécrait l'armée; il ne voulait plus continuer à servir dans
 un corps régulier; pendant la guerre même, il ne voulut À
 pas commander un corps régulier. Son désir était de
 lutter, de commander une lutte contre cette armée
@@ -2682,8 +2559,7 @@ ajoutait-il, l'esprit de contradiction contre une armée
 des chefs qu'il haïssait, l'a--il enfoncé plus avant dans TE
 ses opinions peut-être chimériques, sur la possibilité de #10
 la résistance. Son plan, d'ailleurs, n'était pas de se ser- ‘is
-vir de Paris pour combattre les Prussiens, mais seule-
-ment pour rompre le traité. Cela fait, il espérait provo- a.
+vir de Paris pour combattre les Prussiens, mais seulement pour rompre le traité. Cela fait, il espérait provo- a.
 quer un grand mouvement national, prolonger la lutte.
 dans les Cévennes. Il fut, d'ailleurs, désillusionné, dès le
 second jour sur les vraies tendances de la Commune. Il
@@ -2697,8 +2573,7 @@ lui citai ce mot surtout: « Jamais personne, disait le hi:
 camarade de Rossel, ne m'a fait mieux comprendre, À à
 comme volonté, comme intelligence, ce que devait. ‘al
 être Napoléon I. » Joly fut vivement frappé de cette
-comparaison, de sa justesse. « Je suis convaincu, dit-
-il, que si Rossel eut vécu, si les événements n'avaient
+comparaison, de sa justesse. « Je suis convaincu, ditil, que si Rossel eut vécu, si les événements n'avaient
 pas brisé sa carrière, il fut arrivé à dominer: il avait
 d'ailleurs, de Napoléon la froide dureté; il présida si
 sévèrement la Cour Martiale, que la Commune fut forcée un
@@ -2722,11 +2597,9 @@ déportation dans une enceinte fortifiée, son engage- à
 ment ne lui eut pas même imposé l'obligation de ne pas À
 chercher à s'échapper. Je courus le trouver lui
 ; annonçai qu'il était sauvé— Comment cela? — me dit il.
-— Je lui expliquai quel était l'engagement qu'on deman-
-dait de lui — Il fit aussi[tôt] un calcul intérieur. Vingt.;
+— Je lui expliquai quel était l'engagement qu'on demandait de lui — Il fit aussi[tôt] un calcul intérieur. Vingt.;
 sept dix font trente sept, dit-il: nor, je n'accepte
-pas. Trente sept ans, ce serait trop tard pour rien com-
-mencer. J'aime mieux qu'on me fusille. »
+pas. Trente sept ans, ce serait trop tard pour rien commencer. J'aime mieux qu'on me fusille. »
 Je demandai à Joly, s'il le croyait protestant fervent
 il me dit qu'il n'avait jamais chez lui de traces de
 4 ferveur: il avait le sentiment religieux, mais il n'a pas
@@ -2744,8 +2617,7 @@ a moins, s'il avait conscience de son républicanisme, si ce
 républicanisme, au lieu d'être une cause,n'avait pas été à
 chez lui un résultat. Joly confirma pleinement mes sup- "St à
 À positions. Je lui citai cette phrase tirée des Derniers
-Jours, publiés par Amigues, où Rossel prédit aux ré-
-publicains qu'ils se repentiront un jour de ne pas avoir
+Jours, publiés par Amigues, où Rossel prédit aux républicains qu'ils se repentiront un jour de ne pas avoir
 fait comme lui au 18 mars; où il déclare qu'en politique,;
 il faut toujours se mettre avec le parti le plus extrême, À
 que, dans une guerre civile, tout citoyen doit prendre
@@ -2753,11 +2625,9 @@ parti — « Jelui ai souvent entendu développer ces idées, 1100
 dit Joly, mais je crois qu'elles étaient plutôt le résultat
 des réflexions qu'il faisait sur sa conduite, que les mo- «
 ; tifs de sa conduite. Ce sont des principes formulés:
-après coup, mais dont il n'avait pas conscience au mo-
-ment d'agir, qui ne l'ont pas poussé vers sa résolu- ‘Frs
+après coup, mais dont il n'avait pas conscience au moment d'agir, qui ne l'ont pas poussé vers sa résolu- ‘Frs
 tion — Au fond, il n'était pas républicain; il était ennemi ni
-du socialisme, qu'il n'avait guère étudié, qu'il n'ai-
-mait pas. Il était démocrate, ou plutôt égalitaire, en
+du socialisme, qu'il n'avait guère étudié, qu'il n'aimait pas. Il était démocrate, ou plutôt égalitaire, en
 toutes choses aussi bien que pour le service militaire
 ou pour l'instruction publique. L'égalité dans tous les
 ordres de faits. —
@@ -2774,8 +2644,7 @@ les cahiers d'Arnold Scherer
 
 Académie Française. Élection du décembre
 : 1871. Dans la séance où les titres de M. Littré ont
-ï été discutés, M. Guizot, qui l'avait combattu jadis vive-
-ment, l'a défendu, avec assez d'ardeur contre Mgr. Dupanloup. M. Mignet s'est échauffé, a malmené M. de
+ï été discutés, M. Guizot, qui l'avait combattu jadis vivement, l'a défendu, avec assez d'ardeur contre Mgr. Dupanloup. M. Mignet s'est échauffé, a malmené M. de
 à Falloux. Enfin M. Thiers raconte à mon père que l'évêque!
 ï d'Orléans l'ayant pris à partie, a fini par lui dire: « S'il;
 était de la droite, vous ne le soutiendriez pas! »
@@ -2807,7 +2676,7 @@ rédiger un procès-verbal de la réunion, plusieurs projets
 de compte-rendu furent examinés. L'un que M. Grévy
 proposait d'adopter, lui paraissait donner assez bien
 l'idée de la séance. « Jeune homme! lui dit Victor Hugo; de
-l'idée n'est rien: le mot est tout! »;
+l'idée n'est rien: le mot est tout!
 
 Il cause longtemps bien, d'abord debout, le chapeau 1130
 à la main, derrière un fauteuil auquel il s'appuie des
@@ -2823,8 +2692,7 @@ ce qu'il veut, qui se ménage pour l'avenir
 M. Thiers sur Henri IV. (1871.) Après avoir fait de
 lui un pompeux éloge un portrait brillant: « Quel
 homme admirable! s'écrie-t-il: il a rester protestant:
-en devenant catholique! » (Raconté par M. de Pres-
-sensé, qui l'a entendu lui-même.)
+en devenant catholique! » (Raconté par M. de Pressensé, qui l'a entendu lui-même.)
 — Rien ne me répugne plus que d'être obligé de me
 confesser à quelqu'un qui ne partage pas mes manières
 de voir, que je sais devoir être choqué ou peiné des à
@@ -2839,8 +2707,7 @@ TE Février 1872. Course à Auteuil à Cloud avec
 ‘As Mars. 1872. Jeudi 14 mars. la 31° représenta
 SAR froide mais belle intéressante. Geffroy (Salluste) «
 à Sarah-Bernhardt, (la Reine) très-bons — Mélingue,
-_gaire médiocre dans Don César. Lafontaine, détes-
-table dans Ruy Blas
+_gaire médiocre dans Don César. Lafontaine, détestable dans Ruy Blas
 Mardi 19 mars. les Noces de Figaro à l'Opéra
 Comique, avec Miolhan dans le rôle du Page, À
 Der. Cico, (Suzanne) Marie Battu, (la Comtesse) Les
@@ -2862,8 +2729,7 @@ Trouville. Sept. 1872. M'y voici encore, toujours
 
 pourmasanté. J'ai passé le mois de Juillet à me soigner
 d'une irritation d'entrailles qui m'a considérablement:104
-4 affaibli et amaigri — Mais je reprends ici des forces, len-
-tement graduellement. Mon père, ma mère Jeanne
+4 affaibli et amaigri — Mais je reprends ici des forces, lentement graduellement. Mon père, ma mère Jeanne
 à sont ici, ainsi que ce pauvre Henri, qui vient encore
 d'échouer à l'agrégation. Je prépare mon mon 11108
 3° examen de droit. ‘Hi
@@ -2925,8 +2791,7 @@ RAA a reçus à la porte de Buc, conduits à la Mairie, puis voyés en leur disa
 ; général. Le fait est qu'ils ne sont venus que pour voir si la
 ville avait l'intention de se défendre.
 Il paraît que l'on m'a mis sur la liste pour les élections
-municipales qui vont se faire dimanche prochain. J'ai ren-
-contré Louise Laval l'autre jour, devant son couvent. Elle
+municipales qui vont se faire dimanche prochain. J'ai rencontré Louise Laval l'autre jour, devant son couvent. Elle
 avait très peur et voulait absolument me faire décider pour
 ù elle s'il valait mieux qu'elle restàt ou qu'elle se retiràt en
 Bretagne près de sa sœur. Je lui ai dit qu'elle ne courait
@@ -2938,10 +2803,9 @@ quitté la préfecture. Son fils est à Tours. Il assez bien, et
 présenter à la Constituante. De avons été chez
 Et de Charnacé. Adieu, chérie. Ta lettre d'hier me faisait
 "4 un singulier effet: tu parlais du regret d'être partie si tôt, …
-1) de l'envie de revenir, et cela m'arrivait justement au mo-
-ment où toutes les craintes se réalisaient. Je suis joliment
+1) de l'envie de revenir, et cela m'arrivait justement au moment où toutes les craintes se réalisaient. Je suis joliment
 4 content que tu ne sois pas là, je l'en réponds. à
-3 Mardi matin, 8 h. 1/2. Quelle journée que celle d'hier,
+Mardi matin, 8 h. 1/2. Quelle journée que celle d'hier,
 mon enfant! Le matin done, cette canonade, qui a duré
 
 À environ trois heures, et au bruit de laquelle les ambusg
@@ -2952,10 +2816,8 @@ Vélizy jusque vers Meudon et Clamart. n'a pas été
 une bataille proprement dite, une suite d'engage- RES
 . ments. On ne dit pas qui a l'avantage. Il y avait à à
 deux ou trois cents blessés à ramener. ce n'est pas
-- de cela que je voulais parler. De bonne heure un parle-
-mentaire s'était présenté pour traiter du passage d'un corps
-d'armée; on s'entendit assez vite et à de bonnes condi-
-tions: la garde nationale garderait ses armes, mais sans
+- de cela que je voulais parler. De bonne heure un parlementaire s'était présenté pour traiter du passage d'un corps
+d'armée; on s'entendit assez vite et à de bonnes conditions: la garde nationale garderait ses armes, mais sans
 ._ munitions; point de contribution de guerre; les soldats et 1104
 même les officiers devaient être logés dans les casernes, si
 possible; si nécessaire, les officiers et même les soldats
@@ -2966,15 +2828,12 @@ occupation. Quoi qu'il en soit, l''arrangement signé (il est
 honorable pour la ville, d'autant plus qu'on ne pouvait
 résister, elle était obligée de tout accepter) les troupes sont PE:
 entrées vers 1 h. Ce n'étaient pas celles qui devaient occuper
-Versailles, d'autres qui allaient prendre position à Bou-
-gival et Germain, donner la main à celles qui venaient
+Versailles, d'autres qui allaient prendre position à Bougival et Germain, donner la main à celles qui venaient
 de Pontoise, et compléter ainsi dès hier l'investissement de
-Paris. Je conclus de que le projet des Prussiens est d'affa-
-mer la ville. je reviens: le défilé de l'ennemi a duré au
+Paris. Je conclus de que le projet des Prussiens est d'affamer la ville. je reviens: le défilé de l'ennemi a duré au
 moins quatre heures. J'ai assisté à la plus grande partie, sa
 sur la route de Paris, entre la rue des Chantiers, par laquelle
-ils arrivaient, et la rue Pierre dans laquelle ils s'en-
-gageaient. De l'infanterie, de la cavalerie et de l'artillerie: 5 à
+ils arrivaient, et la rue Pierre dans laquelle ils s'engageaient. De l'infanterie, de la cavalerie et de l'artillerie: 5 à
 des musiques affreuses, fifres et petits tambours. Un régi- 4 À
 ment a le mauvais goût de jouer la Marseillaise. Mon
 amie, je ne pourrai jamais te dire ce que j'ai éprouvé pen- 12448
@@ -3004,14 +2863,12 @@ hier ni lettres, ni journaux, sommes coupés du monde,
 en On me dit pourtant qu'on tâchera de faire un départ par
 1 jour, et c'est pourquoi j'ajoute cette page à ma lettre et je ni
 “04 risque le tout. Adieu tous, je vous embrasse. Aujourd'hui
-1) nous aurons le corps qui doit rester ici. Oh! ce 19 septem-
-bre, quelle date cela faire dans mes souvenirs! "170
+1) nous aurons le corps qui doit rester ici. Oh! ce 19 septembre, quelle date cela faire dans mes souvenirs! "170
 À P. S. Au moment où j'écris, le défilé commence, ils ar-
 À rivent par Satory.
 it} Ma bien aimée femme,
 il Voici enfin et pour la 1° fois une occasion sûre, et j'en pro
-1 fite avec joie. Comme plusieurs de mes lettres ont évidem-
-ment été retenues, et comme je ne sais l'arrivée d'aucune, For
+1 fite avec joie. Comme plusieurs de mes lettres ont évidemment été retenues, et comme je ne sais l'arrivée d'aucune, For
 y faudra bien que je répète les choses que je l'ai déjà dites.
 Voici d'abord l'histoire de ma correspondance. Tu as reçu
 une lettre du 20 sept. Je t'ai écrit, depuis lors, le 22 une lettre
@@ -3023,8 +2880,7 @@ me prévenait de ton départ pour Genève; alors le 7, j'écri
 
 NE trop bien que la poste prussienne était une sorte de souri- A
 cière, je m'en tins jusqu'au jour où ils annoncèrent que STE
-. Je service était réorganisé, et qu'on pouvait même rece-
-voir des réponses. Je t'écrivis alors le 14 du courant, le
+. Je service était réorganisé, et qu'on pouvait même recevoir des réponses. Je t'écrivis alors le 14 du courant, le
 1 et enfin hier, le 21. Voilà le compte exact; tu verras parlà
 4 combien il ten manque. Quant à Louise, je lui ai écrit
 le 23 sept. et les 1” et 7 octobre. J'ajoute que j'ai pu, par
@@ -3034,8 +2890,7 @@ bientôt fait. D'abord celle d'Eugène du 3 oct., reçue le 6, é Et
 m'annonçant ton départ, et indiquant assez par ses termes
 que n'aviez rien reçu de moi; je lui ai répondu le
 dès que la confiance m'est un peu revenue sur la poste alle- ‘ne
-ï. mande. Avant hier, le 20, j'en ai reçu une 2“, (du 8 oc-
-tobre) toujours par voie mystérieuse, me disant qu'il avait à
+ï. mande. Avant hier, le 20, j'en ai reçu une 2“, (du 8 octobre) toujours par voie mystérieuse, me disant qu'il avait à
 des nouvelles d'Eugène Mallet, lequel était à Épinal le 4, 1008
 allait comme Le Pont-Neuf, et n'avait d'autres souffrances ‘ts
 que ses inquiétudes pour ses parents. Il avait Charton \4 ni
@@ -3059,9 +2914,7 @@ suite, hier, je fais comme si je ne t'avais rien dit,
 qu'à Tours. En effet, ta lettre reçue le 21 est du 4! et à cette A
 À date, je ne savais même pas que tu fusses en Suisse. Avee
 quelle émotion j'ai revu ton écriture! Je t'assure qu'il y a NES
-45 des moments où le cœur se gonfle joliment dans cette sépa-
-
-plaudir de te savoir au loin, et quand je t'ai sue partie
+45 des moments où le cœur se gonfle joliment dans cette sépaplaudir de te savoir au loin, et quand je t'ai sue partie
 pour Genève, cela a été une immense satisfaction. Le fait
 est que jusqu'ici il n'y a ni souffrance, ni péril, mais il y De
 LA a énormément d'inconnu dans la situation. Versailles peut
@@ -3070,8 +2923,7 @@ LA a énormément d'inconnu dans la situation. Versailles peut
 siège se prolonge, si on le prend par la famine, il y aura des
 1 à mauvais moments à passer; le pays s'épuisera, et au jour de je
 la paix il y aura ces 2 millions d'hommes à nourrir avee SA
-rien. C'est si vrai que je prévois pour ce cas là, la néces-
-sité pour nous-mêmes de quitter la place. Mais tout cela est ae:
+rien. C'est si vrai que je prévois pour ce cas là, la nécessité pour nous-mêmes de quitter la place. Mais tout cela est ae:
 encore éloigné, et Paris, j'espère bien, ne pense pas à se
 Las rendre. Tout le monde est animé et très patriote ici, quoique
 dans les mains de l'ennemi.
@@ -3087,8 +2939,7 @@ idée suivants réunions pour l'Union libérale, pour les élections
 l'habitude de dîner, chaque semaine, le lundi chez Bersot, et
 2 le vendredi chez moi, avec Délerot en 4*; cela dure
 toujours, et est très agréable. Le soir on se voyait chez.
-Charton, avant son départ. Le dimanche, 25, élections muni-
-cipales; on m'avait porté sans me demander mon avis, sans
+Charton, avant son départ. Le dimanche, 25, élections municipales; on m'avait porté sans me demander mon avis, sans
 5 me le dire même; j'ai été élu avec toute la liste libérale, un
 conseil très bien composé. J'ai accepté sans hésiter; il y À
 Les avait des difficultés, des dangers, on n'est pas libre de refu-
@@ -3098,17 +2949,14 @@ Les avait des difficultés, des dangers, on n'est pas libre de refu-
 Le Tu ne peux te faire une idée de la Mairie, envahie
 toute la journée par des militaires qui viennent demander me
 des logements, des vivres, toute espèce de choses. Un jour, De
-er, c'est 180 mille chemises de flanelle, un autre jour 150 ton-
-
-peaux de vin, un 3 une contribution de guerre de a
+er, c'est 180 mille chemises de flanelle, un autre jour 150 tonpeaux de vin, un 3 une contribution de guerre de a
 4 400.000 fr. Le conseil a été très digne et ferme, au total, Et
 faisant le nécessaire pour empêcher qu'on ne pillàt les ma-
 b. gasins ou les habitants, refusant net les demandes
 - ADS extravagantes. Ah! quelle vie et quel apprentissage! Bersot! 4%
 et Délerot sont aussi du Conseil et naturellement ne.
 sommes assis près les uns des autres. Rameau est maire et » à
-le s'en acquitte très bien. IL s'est trouvé plus tard que les élec-
-tions ont été invalidées, la difficulté a été tournée. NI
+le s'en acquitte très bien. IL s'est trouvé plus tard que les élections ont été invalidées, la difficulté a été tournée. NI
 étions aussi préparés pour les élections à la Consti- “4
 tuante; j'étais aussi porté, avons à temps
 qu'elles étaient contremandées. Je n'en serai pas moins
@@ -3118,8 +2966,7 @@ ouvrière, il y mettait même des articles. J'en ai fait un, très
 
 fort, contre les tentatives de restauration impériale. “(0
 n'avons pas tardé à être inquiétés et ennuyés par Le.
-l'autorité allemande (il y a un préfet prussien) qui vou-
-lait imposer des documents, des articles. Une rère a
+l'autorité allemande (il y a un préfet prussien) qui voulait imposer des documents, des articles. Une rère a
 fois, j'ai été avec Bersot, à la préfecture, pour déclarer
 que n'en ferions rien; une 2° fois, avons préféré (1: “4
 - cesser de paraître. Arnold depuis lors s'occupe avec
@@ -3189,8 +3036,7 @@ beau-frère, lequel est dans l'armée prussienne, en le priant Ni
 de me la faire tenir. Comme M. de Rauch (je crois que c'est
 le nom), est au quartier général, cela pourra durer aussi
 longtemps que le restera ici. J'avais pensé à M. de
-Roeder et à l'intervention de M°*° Favre; cela n'est peut-
-être pas à dédaigner, parle-lui en. Fais-lui aussi mes
+Roeder et à l'intervention de M°*° Favre; cela n'est peutêtre pas à dédaigner, parle-lui en. Fais-lui aussi mes
 amitiés, remercie-la affectueusement de sa lettre, et excuse- mous
 moi de ne pas y répondre pour le moment; tu lui raconteras pee.
 moi-même mon histoire. Comme elle doit être heureuse des
@@ -3302,8 +3148,7 @@ avec nous et cherchait à prouver que la guerre actuelle
 ne prit la peine de lui répondre), il était étendu sur son lit,
 dans son auberge, mort de l'arsenic qu'il avait pris! Il
 paraît qu'il s'était plaint dans la Gaz. d'Augsb. du peu
-d'égard que l'autorité allemande avait pour les correspon-
-dants de journaux allemands; dessus ordre à lui donné de -
+d'égard que l'autorité allemande avait pour les correspondants de journaux allemands; dessus ordre à lui donné de -
 quitter Versailles, ordre qui lui fut si sensible qu'il s'empoisonna. C'est Passa qui l'a enterré hier matin. Je lui avais prêté
 des livres, je ne sais si je pourrai les ravoir. — M. d'Iver-;
 nois qui m'avait une fois transmis une lettre de toi et une:
@@ -3320,8 +3165,7 @@ M:* de Mimont, qui est à Dinar, est gravement malade.
 nous en occupons, Bersot, Délerot moi; je ferai à
 quelques lectures. Nous avons de grands projets de toutes
 sortes pour la régénération de Versailles. Je fais enrager
-Arnold en lui disant que je compte devenir un Cincein-
-natus, que la blouse et les sabots sont le véritable costume
+Arnold en lui disant que je compte devenir un Cinceinnatus, que la blouse et les sabots sont le véritable costume
 È démocratique, qu'il faut se rapprocher du peuple, ete.
 me taquine souvent, ce garçon; je lui dis alors que je
 técrirai tout. Je lui ai trouvé un nom: je l'appelle mon
@@ -3349,8 +3193,7 @@ qui est déjà une bien bonne chose, puisque le travail seul:
 peut faire prendre en patience les tristes événements où
 nous nous trouvons. Je ne sais pas encore ce que j'en tire- de
 : rai pécuniairement, mais je compte me bien faire payer; Es
-ù dit de fixer moi-même les conditions. J'en suis à ma cin-
-quième lettre; j'écris maintenant aussi facilement et aussi ®.
+ù dit de fixer moi-même les conditions. J'en suis à ma cinquième lettre; j'écris maintenant aussi facilement et aussi ®.
 - vite en anglais qu'en français; toutefois je recopie. Hier
 soir Bersot nous a apporté un numéro du Journal des Dé-
 bats, du 10 novembre. Je ne sais qui le lui avait prêté. a
@@ -3362,8 +3205,7 @@ tête; le ton général était peu favorable au gouvernement, et
 le tout semblait pencher à la paix. Il est évident que la
 viande commence à manquer, les munitions même, s'il faut
 en croire un avis d'après lequel on recueille le salpêtre sur:
-les murs des caves. J'ai été appelé l'autre jour chez le com-
-missaire de police prussien par suite d'une plainte de à
+les murs des caves. J'ai été appelé l'autre jour chez le commissaire de police prussien par suite d'une plainte de à
 
 À Georges qui, furieux d'avoir été mis à la porte, avait voulu -
 se venger, prétendant que je l'avais appelé chien de Prussien,
@@ -3385,16 +3227,14 @@ ES … J'ai oublié de te dire que le Vendredi, ar, la ville a été
 É poussé jusqu'à Bougival; tout le monde était dans les rues, “4
 4 -on s'enivrait du son du canon. On a enterré ici hier deux
 colonels allemands, Arnold y était, la musique militaire
-jouait la marche funèbre de Chopin; il prétend qu'il n'a ja-
-mais rien entendu de plus beau. Du reste, il est dé:
+jouait la marche funèbre de Chopin; il prétend qu'il n'a jamais rien entendu de plus beau. Du reste, il est dé:
 fendu à l'avenir de sortir de chez soi en cas d'alarme,
 autrement on nous tirera dessus; c'est affiché. Hier, lundi,
 è le major est parti avec la plupart des soldats, etce matin
 À l'adjudant qui était resté un jour de plus à cause d'une à
 
 fluxion. Nous nous sommes séparés poliment; ils ont été
-civils, nous sommes restés froids, faisant notre devoir, par-
-lant de la pluie et du beau temps, nous renfermant dans un
+civils, nous sommes restés froids, faisant notre devoir, parlant de la pluie et du beau temps, nous renfermant dans un
 silence complet dès qu'il s'agissait de la guerre. C'étaient
 des gens bien élevés, mais sans instruction ni conversation.
 Nous avons toujours parlé allemand. Quel débarras que de
@@ -3418,15 +3258,12 @@ rien leur colère ne leur fera pas trouver ce qui n'existe
 pas. Le pain et la viande ne sont pas très cher, parce qu'on
 en chercher au loin; les légumes sont très bon marché,:
 parce que les jardiniers ne peuvent plus vendre à Paris;
-mais il n'y a plus de sel, de café, de sucre, d'huile, de char-
-bon. Heureusement que j'avais fait des provisions. On est
+mais il n'y a plus de sel, de café, de sucre, d'huile, de charbon. Heureusement que j'avais fait des provisions. On est
 ruiné, on vit à crédit, et l'on s'en tire encore assez bien.
 Nous sommes pleins de courage, sinon d'éspoir. Pourquoi,
 .…. écrit-elle « que je dois bien souffrir de voir la France
 s'abandonner ainsi elle-même Je ne vois pas qu'elle
-s'abandonne du tout; elle a été trahie, elle est sans direc-
-tion, sans ressources, ruinée, rayagée, mais l'esprit de ré-
-sistance est encore très vif. Je lis beaucoup, plus que je
+s'abandonne du tout; elle a été trahie, elle est sans direction, sans ressources, ruinée, rayagée, mais l'esprit de résistance est encore très vif. Je lis beaucoup, plus que je
 n'avais fait depuis longtemps, et de grands ouvrages: beau-
 
 l'Histoire de ma Vie de G. Sand, que m'a prêté Délerot.
@@ -3471,7 +3308,7 @@ M°° D..., dans notre ancienne maison, etc. Le soir, nous Le
 È air d'un bazar; des couvertures de toutes sortes entassées;
 des ouvrières et des tapissiers y passaient la nuit. Ce matin À
 onessaie d'un autre système, et l'on invite au son du tam- À
-3 bour les habitants à porter eux-mêmes leurs couvertures à;
+3 bour les habitants à porter eux-mêmes leurs couvertures
 la Mairie. Pour ma part, j'en donne deux, une de coton et;
 une grise de laine, Au reste, nos hôtes, les Prussiens, nous
 en ont volé une de laine, et coupé une de coton en lanières
@@ -3479,20 +3316,15 @@ pour s'en faire des vêtements chauds par-dessous. Tu te si
 récrirais, mais nous sommes endurcis; rien ne nous fait
 plus. Hélas! les tristesses n'étaient pas finies; ce même à
 5 soir, hier, nous avons appris la reddition de Metz, etentendu
-la musique et les hurrahs de ces tristes vainqueurs. J'ima-
-gine que ce nouveau malheur avoir une influence consi-
-dérable et hâter la fin de la guerre... Thiers est ici depuis
-trois jours, en pourparlers avec Bismarck pour un armi-
-stice, lequel serait destiné à faire les élections. Tu peux te
+la musique et les hurrahs de ces tristes vainqueurs. J'imagine que ce nouveau malheur avoir une influence considérable et hâter la fin de la guerre... Thiers est ici depuis
+trois jours, en pourparlers avec Bismarck pour un armistice, lequel serait destiné à faire les élections. Tu peux te
 figurer l'intérêt qui s'attache à ces négociations. Il vient de #3
 faire trois mille lieues, ce qui l'a un peu fatigué, moins
 cependant que ces discussions si difficiles et délicates avec
 un adversaire exigeant. J'ai été le voir avant-hier dans la Ne
 journée, j'ai passé hier la soirée chez lui, avec lui et ses
-Oct... Sais-tu ce que je lis avec rageet délices.? L'his-
-toire de ma vie, de G. Sand. Je n'en avais jamais une
-ligne, et je n'en avais jamais entendu parler; j'ignore com-
-ment et pourquoi, car c'est un pur chef d'œuvre, du plus vif, à
+Oct... Sais-tu ce que je lis avec rageet délices.? L'histoire de ma vie, de G. Sand. Je n'en avais jamais une
+ligne, et je n'en avais jamais entendu parler; j'ignore comment et pourquoi, car c'est un pur chef d'œuvre, du plus vif, à
 intérêt, rempli de choses charmantes — et touchantes —
 c'est écrit avec le plus grand tact, aucune confidence
 fâcheuse, une jeune fille pourrait le lire, et quel talent!
@@ -3533,8 +3365,7 @@ Nos Cahiers sont édités par des souscriptions men- +8
 la rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraissent par séries; une série paraît à
 dans le temps d'une année scolaire, d'une année
-ouvrière, d'octobre-novembre à Jjuin-juillet; l'abonne-
-ment se prend pour une série.
+ouvrière, d'octobre-novembre à Jjuin-juillet; l'abonnement se prend pour une série.
 .: On peut souscrire cet abonnement à tout moment de
 l'année, mais l'abonnement ainsi souscrit est, de droit,
 valable pour la série en cours, et pour toute cette série.
@@ -3545,8 +3376,7 @@ Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
 ; sont numérotés à la presse et imprimés au nom du
 souscripteur; le tirage à part sur whatman a commencé Ne
-de fonctionner au premier janvier 1906; les inscrip-
-tions pour cet abonnement particulier sont reçues en
+de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en
 tout temps et reçoivent un numéro d'ordre déterminé
 automatiquement par le rang même qu'elles occupent
 dans l'ordre de l'arrivée, les numéros les plus bas venant

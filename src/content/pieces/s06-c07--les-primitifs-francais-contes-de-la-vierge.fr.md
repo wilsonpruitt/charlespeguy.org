@@ -84,8 +84,7 @@ de ce cahier.
 Pour faire un cahier de Noël de l'exposition des Primitifs
 français, il fallait des images un texte.
 Pour le texte je demandai à Romain Rolland, qui est une de
-mes consciences; On sail assez que nous sommes organisés en fédé-
-ralion de consciences; Romain Rolland est ma conscience, mon
+mes consciences; On sail assez que nous sommes organisés en fédéralion de consciences; Romain Rolland est ma conscience, mon
 
 jugement et toute mon érudition non seulement pour tout ce qui
 1 tient à l'histoire particulière de la musique, mais généralement
@@ -352,8 +351,7 @@ noms, il est vrai, estropiés ou francisés, trois peintres d'outre4 monts, dont
 Sainte-Marie Majeure. Les amateurs commencent à estimer les
 œuvres italiennes, qu'ils appellent « ouvraige lombard » ou à
 « ouvraige de Rome ». Et quand Philippe le Bel, avant de faire
-souffleter le Pape par le comte de Nogaret, lui dépêche un ambas-
-sadeur, cet ambassadeur, Étienne d'Auxerre, est un peintre.
+souffleter le Pape par le comte de Nogaret, lui dépêche un ambassadeur, cet ambassadeur, Étienne d'Auxerre, est un peintre.
 Lequel à cette date est le plus admirable, du peinire qui devance y
 de trois siècles Rubens chargé d'affaires à Mantoue, ou du roi qui,:
 comme plus tard Louis XIV, pensionne un artiste à Rome? "4
@@ -417,8 +415,7 @@ goûte le séjour de Paris. Boccace fait mieux: il y est né. Son père
 était de ces « Lombards non pas faiseurs de peinture, mais
 hommes d'affaires, de ceux que le mouvement de l'or attirait à
 Paris et dont le nom, aussi envié, n'avait pas meilleure renommée
-que d'autres aujourd'hui. A la faveur des circonstances, grand va-
-et-vient d'artistes entre les deux pays. Ce sont deux Français,
+que d'autres aujourd'hui. A la faveur des circonstances, grand vaet-vient d'artistes entre les deux pays. Ce sont deux Français,
 Jacques Cône et Jean Mignot, qui un beau jour sont appelés à la
 direction des travaux de Milan. En revanche le duc de Berry, le
 plus grand amateur du siècle, a pour son bibliothécaire un Italien,
@@ -432,9 +429,7 @@ représentaient l'histoire de César.
 
 Le peu d'œuvres du temps qui se soient conservées ne laissent
 pas d'être éloquentes. Ce que d'abord on y perçoit, c'est l'extrème
-raffinement. La pièce fameuse sous le nom du Parement de Nar-
-
-bonne, et qui était, en effet, une parure d'autel, en offre tous les
+raffinement. La pièce fameuse sous le nom du Parement de Narbonne, et qui était, en effet, une parure d'autel, en offre tous les
 caractères. C'est une composition peinte sur cette soie blanche et
 précieuse, qu'on appelait samit. Sept scènes de la Passion s'y
 développent dans un encadrement de fenêtres gothiques. Chaque
@@ -490,8 +485,7 @@ communs de la peinture. Ce Jean Bandol ou de Bandolf, souvent
 ; appelé Jean de Bruges, est-il Flamand? est-il Français? La question, ainsi posée, est mal posée. D'abord, dans la géographie du
 temps, pleine de hasards et de surprises, Burgos, Bruges, Bourges,
 tout cela s'exprime d'un seul mot: Bruges. Ensuite, pour qui
-Bandol travaille-t-il? où vit-il? Où sont ses clients, ses habi-
-tudes, ses attaches? est sa vraie patrie. La France, Paris surtout, ont de tout temps été une forge incomparable de talents.
+Bandol travaille-t-il? où vit-il? Où sont ses clients, ses habitudes, ses attaches? est sa vraie patrie. La France, Paris surtout, ont de tout temps été une forge incomparable de talents.
 en venait de partout, il en vient encore: aucun ne sort de la
 fournaise tel qu'il y était entré. Il en reste à chacun comme la
 marque commune d'un alliage dont nous avons seuls le secret,
@@ -561,9 +555,7 @@ mais un modèle. Le mot de nature se prend dans une acception
 nouvelle: il signifiait jadis ce qu'il y a d'universel, ce qui se
 conçoit plus qu'il ne s'observe, s'imite moins qu'il ne se crée:
 on l'entend désormais dans le sens de ces mille traits particuliers
-dont la combinaison forme un être vivant. L'art cesse de géné-
-
-raliser, il analyse. La vérité n'est plus objet d'entendement, mais
+dont la combinaison forme un être vivant. L'art cesse de généraliser, il analyse. La vérité n'est plus objet d'entendement, mais
 d'expérience; ce n'est plus l'idée, c'est le fait. On sort des
 abstractions, on précise, on serre la réalité, on la poursuit dans le
 détail au lieu de la résumer à grands traits; l'art ne crée plus des
@@ -729,8 +721,7 @@ On croit, peut-être avec raison, éclaircir celui-ci, assurément
 
 insoluble en Flandre, en changeant le terrain du débat et en le
 Une des nouveautés les plus extraordinaires de l'œuvre des
-deux frères, c'est l'importance soudaine, la perfection et la splendeur du paysage. On dirait une aurore, plus encore, une illumi-
-nation: des yeux, qui jusqu'alors n'avaient rien vu, aveugles,
+deux frères, c'est l'importance soudaine, la perfection et la splendeur du paysage. On dirait une aurore, plus encore, une illumination: des yeux, qui jusqu'alors n'avaient rien vu, aveugles,
 bandés, s'ouvrent. L'œuvre d'art n'avait qu'un héros: l'homme.
 Le fond sur lequel il se détache est le plus souvent d'or, gaufré
 d'or, frappé d'or, gravé d'or, comme une auréole, à moins qu'il ne
@@ -778,8 +769,7 @@ Jean van Eyck exécuta le chef-d'œuvre du Louvre, conservé
 quatre siècles dans la cathédrale d'Autun; si c'est pour le même
 donateur que son plus grand disciple, Roger de la Pasture, à
 peint le Jugement dernier de l'hôpital de Beaune, on conçoit que
-les Italiens, qu'émerveillaient ces beaux ouvrages, les considé-
-rassent comme Français; et la France peut s'enorgueillir de cette
+les Italiens, qu'émerveillaient ces beaux ouvrages, les considérassent comme Français; et la France peut s'enorgueillir de cette
 renaissance des Flandres, dont l'école a été Paris, et dont la gloire
 ne lui fut ravie que par les désastres des armes et la trahison du;
 
@@ -832,9 +822,7 @@ cave. Les anges et les prières délivrent les âmes en peine. Mais
 
 les démons, exilés de la terre et du ciel, et qui, comme de noirs
 
-insectes, infestent la région des nuées, se jettent sur elles au pas-
-
-sage, et l'air est tout rempli de l'éternel combat entre les esprits
+insectes, infestent la région des nuées, se jettent sur elles au passage, et l'air est tout rempli de l'éternel combat entre les esprits
 
 -de lumière et les esprits de la nuit.
 
@@ -960,9 +948,7 @@ Pendant ce temps, que fait le reste de la France?
 
 Chose étrange, après la tempête qui a dispersé notre école,
 compromis et certainement changé les destinées de notre art, les
-premiers sourires du génie, dans ces pays si éprouvés, accom-
-
-pagnent les premiers rayons de la victoire. Ce sont les bords de la
+premiers sourires du génie, dans ces pays si éprouvés, accompagnent les premiers rayons de la victoire. Ce sont les bords de la
 Loire, c'est la délicieuse Touraine que la fortune et la beauté choisissent ensemble pour berceau. La délivrance d'Orléans est de
 1429. Et peut-être que Jean Fouquet, âgé alors de quatorze ans,
 a pour maître ce Hans Poulvoir qu'on voit peindre la même
@@ -1067,9 +1053,7 @@ disposa le tombeau où il devait s'étendre près d'elle. fit graver
 la dalle de cuivre qui, sous les pas des fidèles, devait les dessiner
 à jamais humblement dans l'attitude d'époux endormis. Son fils
 fut gravé en petit à ses pieds, ses trois filles aux pieds de sa
-femme. Alors il songea à placer au-dessus de sa tombe un monument qui lémoignerait de sa confiance dans le ciel et qui, l'éter-
-
-nisant dans une pose d'oraison, ne cesserait d'intercéder pour lui.
+femme. Alors il songea à placer au-dessus de sa tombe un monument qui lémoignerait de sa confiance dans le ciel et qui, l'éternisant dans une pose d'oraison, ne cesserait d'intercéder pour lui.
 Il se fit peindre, présenté par son saint patron, à genoux devant
 la Madone. Ce côté du tableau, conservé à Berlin, est, dans le
 portrait du donateur, un prodige de vérité grave et de candide
@@ -1506,8 +1490,7 @@ les bonnes actions faisaient un tas si léger, emporta la balance.
 Belzébuth lâächa Renaud et le chevalier de Penhoat rendit grâces,
 à genoux, devant le cierge éteint, d'où montait encore un peu de
 
-EUX novices s'étaient liés d'une affection que le prieur tolé-
-rait parce qu'il y voyait une émulation de vertu.
+EUX novices s'étaient liés d'une affection que le prieur tolérait parce qu'il y voyait une émulation de vertu.
 
 Gilles et Félicien se rencontraient chaque soir sous les tilleuls
 d'une terrasse qui bordait la route, et toute la science du monde

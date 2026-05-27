@@ -16,22 +16,19 @@ grand nombre de documents, de textes formant dos- À
 siers, de renseignements et de commentaires; — un;
 si grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un!
-si grand nombre de cahiers d'histoire et de philo-
-sophie; et ces documents, renseignements, textes, À
+si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes, À
 dossiers et commentaires, ces cahiers de lettres,
 d'histoire et de philosophie étaient si considérables
 que nous ne pouvons pas songer” à en donner ici
 l'énoncé même le plus succinct; pour savoir ce qui a
 paru dans les cinq premières séries des cahiers, il
 suffit d'envoyer un mandat de cinq francs à M. André
-Bourgeois, administrateur des cahiers, 8, rue de la Sor-
-bonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
+Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y'est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y'est classé
 dans l'ordre; il suffit de le lire Pour trouver, à leur °1 «
 place, les références demandées. 6 LE »
 catalogue, grand jésus, Jorme un cahier
@@ -46,8 +43,7 @@ L. me ROUS l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande. EN
 
 aux Cahiers de la Quinzaine
-. Le présent petit index donne automati-
-quement pour tout volume et pour tout
+. Le présent petit index donne automatiquement pour tout volume et pour tout
 le numéro d'ordre de ce cahier dans à
 : le classement général de nos collections
 complètes, le numéro d'ordre de la série
@@ -62,7 +58,7 @@ défaut, la date du cahier même;
 4 4 le prix actuel;
 quand il y a lieu, c'est-à-dire pour nos Er:
 éditions antérieures et pour nos cinq pre-
-À, mières séries, la page du catalogue ana-
+mières séries, la page du catalogue ana-
 Li: lytique sommaire où ce cahier se trouve “4
 Daniel Halévy, — Michelet et Quinet; — et dans le même LE.
 Cahier présentation des quelques textes (IV-21, mardi
@@ -70,18 +66,15 @@ Cahier présentation des quelques textes (IV-21, mardi
 pression de Louis Ménard, Prologue d'une Révolution #75
 
 Le: en vente à la librairie des cahiers ‘#à
-Danrez HaLévy. — Essai sur le mouvement ou-
-vrier en France. — Société Nouvelle de Librairie et
+Danrez HaLévy. — Essai sur le mouvement ouvrier en France. — Société Nouvelle de Librairie et
 Danrec Harévy RoBerr DREYFUS. — une traduc- #4
 tion française (1893) de Frénéric Nrerzscne. — le Cas
 Wagner, un problème musical........... deux francs » Au A
 aprés un travail inédit de madame Duclaux. Librairie à
 de Pages Libres. 1907............. cinquante centimes nt.
 
-Laissez-moi vous dédier ce conte où vous recon-
-naîtrez les traces d'expériences qui nous furent À
-communes et le souvenir d'un travail qu'assuré-
-ment nous ne renonçons pas.
+Laissez-moi vous dédier ce conte où vous reconnaîtrez les traces d'expériences qui nous furent À
+communes et le souvenir d'un travail qu'assurément nous ne renonçons pas.
 
 ‘Se isode il
 
@@ -115,7 +108,7 @@ naître un long loisir. Adeline sentait le chagrin de
 perdre son ami et le sentait d'autant plus vif que
 lui ne sentait rien, « Je vais être seul, pensait
 constamment Julien Guinou. seul, sans famille.
-sans camarades, sans trayail..… »;
+sans camarades, sans trayail..…
 Le père Guinou, connaissant bien son fils, bourra
 paisiblement sa pipe en attendant que le train partit.;
 L'heure était proche: un employé survint qui ferma
@@ -135,9 +128,7 @@ Les wagons s'ébranlèrent, d'une allure insensible,
 glissante et douce. Adeline recula soudain et Julien,
 penché sur la portière, resta tourné vers elle comme de
 s'il eût voulu réparer un peu du mal qu'il avait "0
-fait. Mais ce mouvement de pitié fut rapide, Il re-
-
-garda la gare décroissante et respira profondément,;
+fait. Mais ce mouvement de pitié fut rapide, Il regarda la gare décroissante et respira profondément,;
 dilaté par sa fuite et sa délivrance. À
 
 . Adeline et le père Guinou sortirent ensemble de:
@@ -174,8 +165,7 @@ fut anarchiste: elle écouta ses colères, ses espoirs,
 et se laissa plus d'une fois mener aux réunions pri-;
 vées ou publiques de la secte. Puis Guinou connut
 un autre groupe, et voulut s'occuper uniquement
-de poésie, de littérature audacieuse. Qu'il fût anar-
-chiste ou qu'il fût décadent,' Adeline l''admirait,
+de poésie, de littérature audacieuse. Qu'il fût anarchiste ou qu'il fût décadent,' Adeline l''admirait,
 l'approuvait toujours, et son attention toujours
 prête, sa docilité féminine suflisaient à procurerun
 peu d'apaisement et de joie à l'âme tendue de Julien.
@@ -199,8 +189,7 @@ appris par cœur des centaines de vers, ravi d'abord,
 
 puis saisi d'un désespoir que la jeune fille compre-;
 
-nait mal. Elle voyait naître en lui une humeur sin-
-gulière. Elle l'interrogeait, il ne répondait pas.?
+nait mal. Elle voyait naître en lui une humeur singulière. Elle l'interrogeait, il ne répondait pas.?
 Parfois il l'évitait. Non sans peine il se résignait à
 rentrer chez ses parents. Il ne voulait plus travailler
 
@@ -290,25 +279,19 @@ une bibliothèque, où quelques centaines de livres
 
 d'une cassée, encombraient ce local. Trois estampes,
 
-accrochées aux murs, alternant avec les bustes em-
-
-poussiérés d'Auguste Comte et de Dante, ne diminuaient point la tristesse du lieu mais au contraire,
+accrochées aux murs, alternant avec les bustes empoussiérés d'Auguste Comte et de Dante, ne diminuaient point la tristesse du lieu mais au contraire,
 
 par l'essai d'une vaine parure, en faisaient sentir
 
 davantage la désolation.
 
 Ils étaient réunis au nombre de sept, derniers
-fidèles, derniers soutiens de cette société qui dépé-
-comptable, au vaste corps un peu courbé, au front
+fidèles, derniers soutiens de cette société qui dépécomptable, au vaste corps un peu courbé, au front
 plissé, homme d'espoir invincible qui depuis vingt
-années suscitait et faisait durer des groupes d'ac-
-tion ouvrière. Ses cheveux grisonnaient, il sentait
+années suscitait et faisait durer des groupes d'action ouvrière. Ses cheveux grisonnaient, il sentait
 la fatigue de l'âge et la mélancolie du médiocre
-succès: mais un instinct de lutte le maiïntenait tou-
-et barbue, bourgeois de mise râpée. IL avait été 1]
-« pion » dans un collège, et répétiteur de mathéma-
-tiques; puis, retiré, vivait d'une rente infime mais 3%
+succès: mais un instinct de lutte le maiïntenait touet barbue, bourgeois de mise râpée. IL avait été 1]
+« pion » dans un collège, et répétiteur de mathématiques; puis, retiré, vivait d'une rente infime mais 3%
 suffisante pour ses goûts. Il aimait la science, et
 savait toujours dénicher quelques livres à lire. IL
 aimait la musique, et un de ses parents lui envoyait:
@@ -326,8 +309,7 @@ de lettres, selon l'usage de Paris. Il tenait un emploi
 l'avait attiré parmi ces ouvriers, l'amitié l'y avait
 retenu: il leur donnait, de mois en mois, une cau- de
 serie, et venait aux séances de leur comité. —
-Mademoiselle Gaillon, la féministe, l'étrange créa-
-ture, au corps un peu difforme, aux traits un peu à
+Mademoiselle Gaillon, la féministe, l'étrange créature, au corps un peu difforme, aux traits un peu à
 obliques, comme si un coup de vent, survenu par la;
 droite, eût légèrement repoussé vers la gauche les
 yeux, le nez, la bouche; mais un regard si doux,
@@ -339,8 +321,7 @@ pain, gagnait chaque matin, en quatre ou cinq
 heures de corvée, le peu de sous qu'elle dépensait
 puis donnait le meilleur de ses jours aux amis en
 peine ou malades qu'elle allait visiter. A
-En d'autres temps ils se retrouvaient plus nom-
-breux dans cette petite salle: quinze, vingt, zélés,,
+En d'autres temps ils se retrouvaient plus nombreux dans cette petite salle: quinze, vingt, zélés,,
 
 heureux et riches d'intentions. Aux soirs de confé-
 ; rences on ouvrait la porte de la boutique et les
@@ -352,8 +333,7 @@ avait décru. Les uns s'étaient lassés; d'autres avaient
 de santé: maint camarade disparut ainsi. Comme!
 une troupe réduite marche dans la bataille, décimés,
 non pas abattus, réduits à dix, réduits à huit, à
-réduits à sept, les militants du « Foyer » conti-
-nuaient la besogne. Le hasard les avait rapprochés
+réduits à sept, les militants du « Foyer » continuaient la besogne. Le hasard les avait rapprochés
 dans la vague multitude d'un faubourg parisien, et
 ils restaient ensemble, ils s'efforçaient toujours,
 maintenus par les habitudes, par la peur d'être seul:
@@ -393,8 +373,7 @@ autour de la chaise restée vide.
 de ses compagnons ne contredit cette prédiction de
 fin qu'il avait prononcée. Le départ de Guinou, les
 
-larmes d'Adeline avaient fait entrer en eux le senti-
-ment de la défaite.
+larmes d'Adeline avaient fait entrer en eux le sentiment de la défaite.
 Ils n'eurent point de plaisir à s'attarder dans cette
 petite salle où ils avaient en vain si fidèlement
 peiné. La matinée étant fort avancée, ils sortirent.
@@ -415,8 +394,7 @@ Cependant Guinou descendait de son train et,
 laissant ses paquets à la station, dédaignant
 
 l'omnibus où s'entassaient quelques malades, il
-monta seul, à travers bois, au sanatorium d'Angicourt. Ce jour de janvier était sombre, mais sans ai-
-greur, et d'une apaisante tristesse. Guinou chemina;
+monta seul, à travers bois, au sanatorium d'Angicourt. Ce jour de janvier était sombre, mais sans aigreur, et d'une apaisante tristesse. Guinou chemina;
 doucement, arriva, remit ses papiers, fut reçu dans;
 la grande maison.
 On lui montra son lit, son armoire, puis, dehors,
@@ -431,8 +409,7 @@ après l'autre, communiquant une animation bizarre
 Guinou ne fut pas sensible à la mélancolie de
 l'édifice et de l'accueil: il était habitué à la vie
 mélancolique. Il ne fut pas davantage sensible à la
-beauté sévère de la vue, à ces pentes boisées recour-
-bées devant lui comme un golfe brumeux: il avait
+beauté sévère de la vue, à ces pentes boisées recourbées devant lui comme un golfe brumeux: il avait
 trop peu l'habitude de la nature pour savoir la
 regarder. Il écoutait à peine les indications qui lui
 étaient données: il pensait à soi seul, aux laideurs,
@@ -459,8 +436,7 @@ un acte solennel, il ouvrit son sac, en tira Les!
 Fleurs du mal et mania sans hâte ce livre qu'il ne
 connaissait pas.
 
-craignant de manquer l'instant délicieux, la pre-
-mière entrée dans cet univers inconnu qu'un tel jour
+craignant de manquer l'instant délicieux, la première entrée dans cet univers inconnu qu'un tel jour
 lui ouvrait. Il leva les yeux, s'atiarda, fit durer son
 plaisir et son trouble.
 
@@ -657,9 +633,7 @@ ne riait plus, où avez-vous été?
 
 Groslay désira des histoires sur Londres. Marot
 
-y avait vécu fort mal, bien heureux encore d'y pou-
-
-voir vivre, car les Français avaient la vie amère
+y avait vécu fort mal, bien heureux encore d'y pouvoir vivre, car les Français avaient la vie amère
 
 et difficile dans l'énorme ville pressée, la ville;
 
@@ -668,8 +642,7 @@ bon et gai camarade, de faim sur un grabat; et à
 Marot en avait connu trois qui s'étaient suicidés.
 Après sept années il était revenu à Paris où
 il avait trouvé des groupes nouveaux, conduits
-par des meneurs nouveaux, et qui pensaient, agis-
-saient, s'illusionnaient aussi d'une manière nou-
+par des meneurs nouveaux, et qui pensaient, agissaient, s'illusionnaient aussi d'une manière nou-
 Marot se tut presque étonné de trouver tant:
 . d'amertume au fond de soi.
 6 — Père Marot, fit Groslay, votre causerie n'est
@@ -678,12 +651,9 @@ pas gaie.:
 Marot déjà levé pour sortir: je vous les ai racontés.
 La vie des révolutionnaires n'est pas riante, vous
 devez le savoir.
-Rudoul approuva d'un hochement de tête. Gros-
-lay, chagrin et décontenancé comme un enfant, mar-
-chaït dans la salle. À
+Rudoul approuva d'un hochement de tête. Groslay, chagrin et décontenancé comme un enfant, marchaït dans la salle. À
 — C'est l'ignorance, répétaitil, c'est l'ignorance
-qui cause tout le mal. Mais voyez: nous avons ou-
-vert notre université, personne n'y vient.
+qui cause tout le mal. Mais voyez: nous avons ouvert notre université, personne n'y vient.
 — L'ignorance, fit Marot; croyez-vous? Les
 bourgeois savent le grec, l'orthographe et le latin:
 ils font des bêtises comme nous autres.
@@ -698,8 +668,7 @@ disposé d'une manière un peu grave et lasse. Il était
 fatigué par le travail du jour. Les paroles de Marot, qu'il avait écoutées en silence, le préoccupaient.
 Il était trop jeune pour avoir traversé la Commune,
 les massacres; mais il connaissait la misère des
-grèves, les rudes propagandes. Il pensaït à ses pro-
-pres souvenirs déjà si nombreux et si lourds; à la;
+grèves, les rudes propagandes. Il pensaït à ses propres souvenirs déjà si nombreux et si lourds; à la;
 multitude tragique des camarades disparus, usés
 par la misère, humiliés par la prison, les uns morts,
 les autres brisés, déçus par la longueur de la peine À
@@ -711,13 +680,11 @@ venait de loin. Certain jour de son enfance, sa mère,!
 à quelque interrogation naïve, avait répondu:
 « Quand tu seras grand, tu sauras. » Tout à coup
 silencieux, retiré dans un coin, il avait réfiéchi à À
-l'avenir annoncé par ces mots surprenants. Il sau-
-rait: pourquoi ce verre sur cette table avait cette
+l'avenir annoncé par ces mots surprenants. Il saurait: pourquoi ce verre sur cette table avait cette
 
 forme, il le saurait; pourquoi ce vin qu'on y voyait
 avait un goût si bon, il le saurait; et pourquoi les
-enfants, avant d'être grands, étaient petits, et pour-
-quoi les arbres grandissaient ainsi, par, dessus à
+enfants, avant d'être grands, étaient petits, et pourquoi les arbres grandissaient ainsi, par, dessus à
 les maisons mêmes, et pourquoi les étoiles scintil- "al
 laïient si nombreuses au ciel, les unes si écla- À
 tantes, les autres si pâles, un jour il saurait tout
@@ -731,11 +698,9 @@ venu: que savait-il enfin? Rudoul évita d'y penser.
 
 Il se rappela la tâche qu'il s'était assignée: il prit
 une plume et vérifia longtemps, sans un flottement
-d'esprit, les colonnes chiffrées. Puis il sortit. Il regagna, marchant à pas lassés, la chambre où s'écou-
-laïient ses nuits solitaires, et il fut aussitôt repris
+d'esprit, les colonnes chiffrées. Puis il sortit. Il regagna, marchant à pas lassés, la chambre où s'écoulaïient ses nuits solitaires, et il fut aussitôt repris
 
-_par cette méditation qu'une longue habitude sem-
-blait perpétuer au fond de sa pensée.
+_par cette méditation qu'une longue habitude semblait perpétuer au fond de sa pensée.
 
 — Si on savait, ressassait-il, si on savait; mais
 personne ne sait, personne ne veut prendre la peine
@@ -814,20 +779,18 @@ fille et de renfermé. Julien Guinou ouvrit la fenêtre
 qui donnait sur une cour et respira un air à peine
 moins souillé. Il s'assit, triste comme un vaincu. Il
 avait été jusqu'alors plus atterré que désespéré:
-enfin le désespoir le prit. Ilse jeta sur le lit constam-
-ment ouvert pour des amours sordides, et fut
+enfin le désespoir le prit. Ilse jeta sur le lit constamment ouvert pour des amours sordides, et fut
 assailli par tous les souvenirs de cette vie où son
 destin le rejetait: cris, rudesses, bêtise épaisse, À
 désordre et négligence, clartés douteuses, odeurs
 
-__infâmes. Quelques rythmes de Baudelaire lui arri-
-vèrent tout à coup, traversant, blessant son esprit ee:
+__infâmes. Quelques rythmes de Baudelaire lui arrivèrent tout à coup, traversant, blessant son esprit ee:
 de leurs moqueuses et lyriques cadences:
 Polis par les ans,:.
 Décoreraient notre chambre; 4}
 4: Les plus rares fleurs Ta
 Aux vagues senteurs de l'ambre,
-1 A l'âme en secret
+A l'âme en secret
 Sa douce langue natale.
 "4 « Ma vie, toute ma vie, interrogea Guinou; est- de
 ce bien elle qui est ainsi, à jamais sordide, à jamais He.
@@ -843,8 +806,7 @@ piège, Julien laissa tomber la nuit.
 
 Le lendemain, tardivement éveillé, il reconnut de
 ses yeux las la laide chambre et se rappela une à
-une les tristesses de son état. Un bruit de pas montait de la rue. Ils vont au travail pensa dédaigneusement Julien, moi je n'irai plus... » Il réflé-
-chit un instant, puis murmura: QJe ne le peux
+une les tristesses de son état. Un bruit de pas montait de la rue. Ils vont au travail pensa dédaigneusement Julien, moi je n'irai plus... » Il réfléchit un instant, puis murmura: QJe ne le peux
 pas. » Il lui semblait qu'il se fût déshonoré en
 concédant une si vulgaire démarche. « Je ne le dois
 pas prononça-t-il avec fierté. Puis il songea:
@@ -874,8 +836,7 @@ absence et l'attendre. « Qu'ils s'étonnent! pensa- "0
 til. Ils s'étonneront bien davantage quand j'aurai
 fait mon coup. » Son suicide lui paraissait une
 chose glorieuse. Il décida qu'il écrirait une lettre, ne
-afin que les journaux parlent de lui, du jeune ou-
-vrier qui s'est tué parce que sa vie ne pouvait être
+afin que les journaux parlent de lui, du jeune ouvrier qui s'est tué parce que sa vie ne pouvait être
 Il s'interrogea soudain: « Quand me tuerai-je? il
 Dans une semaine: je veux vivre huit jours encore.
 Mais l'argent pour vivre? » Julien ouvrit sa bourse,
@@ -950,8 +911,7 @@ seul comme j'étais là-bas.
 
 Adeline demeura indécise; l'histoire du poème lui
 parut bizarre: mais Julien était toujours bizarre.
-D'ailleurs il l'avait touchée et rendue moins soup-
-çonneuse. Mais elle ne voulait pas accepter le secret
+D'ailleurs il l'avait touchée et rendue moins soupçonneuse. Mais elle ne voulait pas accepter le secret
 de son adresse. Elle en était inquiète, froissée, et le
 
 — Julien, je te donnerai ce que tu désires, j'en
@@ -969,8 +929,7 @@ Ce même soir elle le revit et le quitta très avant
 dans la nuit. Elle l'avait interrogé sur cette œuvre
 , mystérieuse qu'il disait commencée: il n'avait pas
 répondu. Elle l'avait interrogé sur les raisons de
-son silence et de son isolement: il avait mal ré-
-pondu. Adeline ne parvenait pas à comprendre et
+son silence et de son isolement: il avait mal répondu. Adeline ne parvenait pas à comprendre et
 appréhendait vaguement un malheur. Elle s'effrayait
 , d'être seule à connaître la retraite de Guinou, de
 porter seule avec lui la responsabilité d'un inconnu
@@ -983,8 +942,7 @@ Elle se trouva soulagée, mais pour un temps
 court. (J'ai été bien maladroïte en prévenant son
 père, » se dit-elle avec reproche. « ne comprend À
 pas Julien, Julien ne l'aime pas, de tous tempsils
-se sont querellés... C'est Mégy que j'aurais pré-
-venir, ou, mieux encore, monsieur Dorsel; il conde
+se sont querellés... C'est Mégy que j'aurais prévenir, ou, mieux encore, monsieur Dorsel; il conde
 
 Ris Julien, il sait lui parler; monsieur Dorsel aurait
 compris; j'aurais lui écrire; je peux le faire en- 4%
@@ -1005,7 +963,7 @@ sérieux et peut-être même tragique de tout cela. à
 Guinou l'inquiétait et le touchait singulièrement. “2
 À — J'irai, dit-il. À
 Adeline hésita un instant puis osa demander
-7 Dorsel eut pitié d'elle.
+Dorsel eut pitié d'elle.
 — Je déjeune et je pars, dit-il. 208 » La visite d'Adeline avait bouleversé Julien. Elle
 la seule figure dans son passé qu'il n'eût
 jamais détestée. Il avait l'imprudence de la cherAL 4 'FOl
@@ -1047,11 +1005,8 @@ de vainqueur.
 — M. Dorsel! murmura-t-il tout à coup.
 Un jeune homme avait croisé son père et Guinou reconnut Dorsel. Il n'eut pas un doute:
 Adeline l'avait prévenu et il venait le voir. Il
-quitta la fenêtre, saisi de trouble. Que me veu-
-
-lent-ils tous? pensait-il, quel droit ont-ils sur moi?
-Il haïssait Dorsel autant que son père, plus cruelle-
-ment peut-être, mais différemment. Il méprisait son
+quitta la fenêtre, saisi de trouble. Que me veulent-ils tous? pensait-il, quel droit ont-ils sur moi?
+Il haïssait Dorsel autant que son père, plus cruellement peut-être, mais différemment. Il méprisait son
 père, il enviait Dorsel; son père lui apparaissait
 comme une brute, et Dorsel comme un être fin, le
 plus fin des hommes qu'il eût approchés; Dorsel lui
@@ -1074,8 +1029,7 @@ hésiter une seconde, puis aller vers le chevet
 le trouver couché.
 Guinou considéra Dorsel, ne répondit pas un mot
 et se composa un visage impassible.
-— Écoutez, continua Dorsel avec une voix sé-
-rieuse. J'ai Adeline: elle se tourmente à cause
+— Écoutez, continua Dorsel avec une voix sérieuse. J'ai Adeline: elle se tourmente à cause
 de vous, elle voudrait. À
 Guinou tenait toujours fixés sur Dorsel ses yeux À
 gris et bientôt il reconnut non sans plaisir que son
@@ -1126,8 +1080,7 @@ ce plaisir vif qu'il éprouvait en se remémorant l'air )
 penaud de Dorsel.
 Pourtant il ne voulait pas glisser obscurément ni À
 mourir invengé. Il voulait manifester sa haïne, agir
-en se tuant; et parfois des souvenirs violents mon-
-taient vers lui du temps lointain de son adolescence
+en se tuant; et parfois des souvenirs violents montaient vers lui du temps lointain de son adolescence
 anarchiste. Poutre, le libertaire, lui avait dit: « Si
 jamais tu as faim, rappelle-toi ceci: arme-toi, tue un
 bourgeois, la guillotine te guérira de la misère, » À
@@ -1151,8 +1104,7 @@ Au soir de cette journée il sortit et, couvert par la
 
 nuit, il osa retourner vers ces anciens quartiers où
 
-le rappelait son passé. Il descendit la rue des Aman-
-diers, couloir obscur où il avait véeu les vingt ans
+le rappelait son passé. Il descendit la rue des Amandiers, couloir obscur où il avait véeu les vingt ans
 
 de sa vie. Il passa, marchant vite, devant sa maison
 
@@ -1161,9 +1113,7 @@ même sans éprouver rien qu'un mouvement de
 colère. Il monta dans une rue voisine et, reconnais-;
 sant soudain la devanture mal éclairée d'un mastroquet, il s'arrêta, il regarda, il fut ému: c'était que
 se réunissait le groupe anarchiste, c'était qu'il était
-devenu anarchiste et heureux. Entre seize et dix-
-
-huit ans, il avait traversé ce rêve. Chaque soir,
+devenu anarchiste et heureux. Entre seize et dixhuit ans, il avait traversé ce rêve. Chaque soir,
 laissant gronder sa mère, silencieux comme pour
 
 une œuvre grande et mystérieuse, il filait au
@@ -1179,12 +1129,8 @@ et, avec Mégy qu'il avait connu là, colportait placards, brochures et chansons
 Guinou approcha très prudemment: il reconnut à
 travers les rideaux des silhouettes, des visages autrefois fraternels; Poutre discourait en frappant sur
 la table. Guinou sentit monter des larmes dans ses
-yeux. Il se rappela, presque jour par jour, les pre-
-
-miers mois del'affaire Dreyfus, les mois rudes, les
-bagarres un contre vingt, les ruées contre les tri-
-
-bunes, l'arrachement des drapeaux tricolores, —
+yeux. Il se rappela, presque jour par jour, les premiers mois del'affaire Dreyfus, les mois rudes, les
+bagarres un contre vingt, les ruées contre les tribunes, l'arrachement des drapeaux tricolores, —
 puis, par un beau jour d'été, on avait pillé l'église
 Saint-Joseph avec Sébastien Faure et le soir, on
 ayait regardé les nationalistes lapider la police:
@@ -1208,8 +1154,7 @@ des pensées et des rêves, trouva enfin deux outrois
 heures d'un sommeil lourd. Un rayon de soleil
 matinal, s'insinuant sur son visage, l'éveilla: il se
 dressa sur son lit et tout aussitôt il compta
-— Ce jour qui vient... cette nuit... un jour en-
-core, et puis.
+— Ce jour qui vient... cette nuit... un jour encore, et puis.
 Il regarda la chambre vile.
 — Elle est laide, je la quitterai! Tout ce qui est à
 laid, je le quitterai! Mon geste approche!
@@ -1267,8 +1212,7 @@ sons, par une impression de vie déjà suspendue,
 Dès que l'heure eut sonné il quitta l'église et;
 pénétra dans la galerie des tombeaux et des sphinx.
 
-Il tourna autour de ces monstres puis monta, con-
-sidéra attentivement les bijoux raflinés des dames
+Il tourna autour de ces monstres puis monta, considéra attentivement les bijoux raflinés des dames
 égyptiennes, traversa sans hâte les paisibles salles
 où les figurines helléniques, réunies par centaines
 dans les longues vitrines, souriantes et mutilées,

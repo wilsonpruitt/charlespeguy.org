@@ -49,8 +49,7 @@ JE ou les sections d'écoles privées ne remplissant pas ces con-
 13 ans, sauf si ces établissements sont des séminaires ou
 ON des collèges d'évangélistes, autorisés par décision spéciale
 du Gouverneur Général.
-il ARTICLE 79. — Les établissements visés à l'article précé-
-dent ne relèvent pas du service de l'enseignement, mais
+il ARTICLE 79. — Les établissements visés à l'article précédent ne relèvent pas du service de l'enseignement, mais
 exclusivement des autorités administratives. Celles-ci s'asqu surent que l'enseignement donné dans ces écoles n'est ni
 séditieux, ni contraire aux lois et à la morale.
 ï ARTICLE 80. — Le maître de chaque école, y compris ceux
@@ -88,14 +87,12 @@ français à Madagascar; commencement de cet
 effort; la conquête; les jésuites; rudes commencements; importance de l'œuvre protestante
 
 française; la statistique; grandes écoles; écoles
-rurales; population scolaire; personnel ensei-
-gnant; indigène; français; budget scolaire;
+rurales; population scolaire; personnel enseignant; indigène; français; budget scolaire;
 valeur de cet enseignement; examens; écoles
 mixtes; en 1901, une tournée du général Gallieni;
 une série de rapports; ancienne École du Palais;
 éloges; une école de district; l'école normale
-de Mahazoarivo; la mission protestante fran-
-çaise à l'Exposition de Hanoï; question de
+de Mahazoarivo; la mission protestante française à l'Exposition de Hanoï; question de
 À Discussion à la Chambre le 21 mars 1904, projet
 de loi relatif à la suppression de l'enseignement
 nelle; sauvegardant les noviciats « destinés à
@@ -108,8 +105,7 @@ contrat passé entre le gouvernement de la
 République française et la Société des Sœurs
 de Saint-Joseph de Cluny; teneur du contrat
 analogue passé avec les Frères de la Doctrine
-chrétienne; la Société des missions évangé-
-liques refuse de conclure un accord semblable;
+chrétienne; la Société des missions évangéliques refuse de conclure un accord semblable;
 une subvention globale; application du contrat
 conclu avec les Frères et avec les Sœurs; abus
 qui en résultaient; une arme admirable de
@@ -229,30 +225,24 @@ officielle; que l'enseignement officiel, parti de
 rien, forme aujourd'hui le groupe scolaire le
 plus nombreux; examiner d'un peu près les
 statistiques produites; les efforts du gouvernement; de toutes les qualités; aux instituteurs
-un bel uniforme, magnifiquement galonné; histoire de l'oflicier commandant le cercle de Manjakandriana; résumé des statistiques; une dé-
-finition du mot « école réservé aux établissements ayant un maître breveté; écoles classées;
+un bel uniforme, magnifiquement galonné; histoire de l'oflicier commandant le cercle de Manjakandriana; résumé des statistiques; une définition du mot « école réservé aux établissements ayant un maître breveté; écoles classées;
 certificat d'aptitude à l'enseignement établi par
 l'administration au milieu de l'année 1899;
-arrêtés des 16 avril et 26 juillet de cette annéelà; instituteurs brevetés de la seule mission protestante française; simple artifice de compta-
-
-bilité; en outre les étudiants attribués à l'enseignement officiel; exemple, histoire d'une école
+arrêtés des 16 avril et 26 juillet de cette annéelà; instituteurs brevetés de la seule mission protestante française; simple artifice de comptabilité; en outre les étudiants attribués à l'enseignement officiel; exemple, histoire d'une école
 oflicielle créée il y a quelques mois à Tananarive, dans le quartier de Faravohitra; aurait
 enlevé aux écoles libres de ce quartier plus
 
 . de deux cents élèves; histoire véritable; une
-des écoles enlevées aux Frères le premier jan-
-vier 1904; aménagée avec un luxe magnifique; petit collège pour les blancs; inauguration le 2 avril; confirmation officielle; véritable
+des écoles enlevées aux Frères le premier janvier 1904; aménagée avec un luxe magnifique; petit collège pour les blancs; inauguration le 2 avril; confirmation officielle; véritable
 école pour enfants malgaches non ouverte au
 premier mai dernier; quelques centaines d'enfants à la rue; articles tendancieux inutiles;
 
-Arrêté du 25 janvier 1904 qui réorganise l'enseignement dans la colonie; mesure extraordi-
-naire, limite à quatorze ans l'âge d'admission
+Arrêté du 25 janvier 1904 qui réorganise l'enseignement dans la colonie; mesure extraordinaire, limite à quatorze ans l'âge d'admission
 dans une école primaire; à moins d'avoir obtenu, du chef de sa province et du chef du service de l'enseignement, une autorisation absolument personnelle; trois cas d'enseignement
 post-scolaire; préparer le brevet d'instituteur
 dans une école normale; se former au ministère ecclésiastique, soit dans un séminaire, soit
 dans un collège d'évangélistes; entrer dans un
-établissement d'apprentissage industriel et agri-
-cole; hors ces trois cas, nombre très restreint
+établissement d'apprentissage industriel et agricole; hors ces trois cas, nombre très restreint
 procurer; motifs très divers; un louable; ne
 point peupler l'île de déclassés; préoccupation
 commune tous les hommes et toutes les sociétés
@@ -268,16 +258,13 @@ ne l'a jamais admis; plus d'un millier d'enfants
 tivité jusqu'à seize ans; augmentation presque
 forcée du vagabondage;
 VIIT — Contre l'élite! 25 juin SMART
-Une idée fort juste; « instructions » qui accom-
-pagnaient l'arrêté du 15 juin 1903; une part lar-
+Une idée fort juste; « instructions » qui accompagnaient l'arrêté du 15 juin 1903; une part lar-
 à gement prépondérante à l'enseignement pratique
 2 et professionnel; état social encore primitif de
 l'île, principalement dans les campagnes; besoins
-matériels encore très grands des colons euro18 péens, des indigènes, de la colonie; contre-
-maîtres et ouvriers habiles; développement éco-
+matériels encore très grands des colons euro18 péens, des indigènes, de la colonie; contremaîtres et ouvriers habiles; développement éco-
 d'un missionnaire norvégien; passage essentiel;
-À tort, de considérer le peuple ou la race malgache comme une unité et de vouloir « spé-
-culer » pour ce peuple tout entier; individus;
+À tort, de considérer le peuple ou la race malgache comme une unité et de vouloir « spéculer » pour ce peuple tout entier; individus;
 un passage des « instructions pratique des
 métiers, arts, lettres, sciences; de la métaphysique, et de la mauvaise métaphysique; partiis culièrement à Madagascar; la race malgache
 n'est pas une; chef-d'œuvre de complexité;
@@ -285,13 +272,10 @@ entre les individus différences intellectuelles
 colossales; sans doute pratique des arts la der-
 ) nière; il y a une élite, peu nombreuse, mais très
 réelle; n'admet pas pour cette petite élite un
-enseignement un peu général; seule continuation des études primaires; par pure grâce arbi-
-traire; tolérance révocable, dans les « écoles
+enseignement un peu général; seule continuation des études primaires; par pure grâce arbitraire; tolérance révocable, dans les « écoles
 ! une classe un enseignement un peu général;
 vingt-sept heures d'instruction technique par
-te semaine, six heures d'instruction plus théo160
-
-rique; information à confirmer; il faudrait
+te semaine, six heures d'instruction plus théorique; information à confirmer; il faudrait
 tenter une pédagogie spéciale; dans un établissement où ces enfants réunis ensemble, et en
 nombre très minime; un projet de la mission
 es lettres de l'Université de Paris; un établissement pour une élite peu nombreuse; méthodes
@@ -331,8 +315,7 @@ simple arrêté d'un gouverneur puisse supprimer
 l'administration; les indigènes doivent être
 a considérés comme des mineurs, comme des faide bles; une forme de la protection; le portage;
 1 assimilation singulière; l'établissement d'un
-. « contrat de louage mêmes hommes; le pre-
-mier novembre 1903, un article de l'Écho de Ma-
+. « contrat de louage mêmes hommes; le premier novembre 1903, un article de l'Écho de Ma-
 dagascar, à propos du livre de M. le capitaine
 Roux, Essai sur le régime et la réglementation
 du travail à Madagascar; attitude très honorable du général Gallieni; résiste à sollicitations
@@ -358,12 +341,10 @@ publique; trop haut et trop loin; s'en rapporter
 aux fonctionnaires ses subordonnés; ici le danger; confiance de l'administration dans ses
 agents; critique; je demande si l'on oserait
 confier un tel pouvoir discrétionnaire à nos
-préfets de France; et non pas seulement compé-
-peut-être Français; en tout cas subordonnés
+préfets de France; et non pas seulement compépeut-être Français; en tout cas subordonnés
 - indigènes; l'ancienne administration malgache;
 pots-de-vin; un traitemient de faveur; y mettre
-le prix; marchandages; responsabilités, supé-
-rieures; querelles de clans et de castes; vénalité;
+le prix; marchandages; responsabilités, supérieures; querelles de clans et de castes; vénalité;
 
 la France;
 Dans l'arrêté scolaire du 25 janvier, article
@@ -373,16 +354,13 @@ l'autorisation de tenir une école primaire; toutes
 autres écoles, mais non une primaire; pourquoi;
 on comprend un « statut » indigène, sauf tous
 les tempéraments justes et nécessaires; sujets
-et citoyens; l'enseignement de la langue fran-
-çaise; on décrète qu'il n'y aura pas une seule
+et citoyens; l'enseignement de la langue française; on décrète qu'il n'y aura pas une seule
 des écoles primaires où les élèves ne doivent
 étudier le français; et pour compléter cette
 mesure on ajoute que les maîtres européens
 seront soigneusement exclus de cet enseignement; le français qui commence à se répandre
 dans la colonie; le blanc conserve, en principe,
-le droit de donner l'enseignement; c'est le Mal163
-
-gache qui n'a pas le droit de le recevoir; mais
+le droit de donner l'enseignement; c'est le Malgache qui n'a pas le droit de le recevoir; mais
 
 instruction primaire permise; obligatoire; la
 
@@ -400,9 +378,7 @@ de maîtres européens et brevetés; mécanisme
 
 de cette autorisation, encouragement, contrat,
 
-; résiliation, interdiction; accord était contes-
-
-ne table; droit absola et imprescriptible; principes;
+; résiliation, interdiction; accord était contesne table; droit absola et imprescriptible; principes;
 
 préoccupations tout à fait empiriques; article
 
@@ -427,15 +403,11 @@ du gouvernement général; enseignement du
 
 français dans toutes les écoles supérieures de
 
-remplacement; immédiat; même, extension con-
-
-sidérable; administration; commerce; mais
+remplacement; immédiat; même, extension considérable; administration; commerce; mais
 
 faut-il enseigner universellement le français;
 
-tions » du 15 juin 1903; historique de l'ense-
-
-gnement dans la colonie; enseignement du
+tions » du 15 juin 1903; historique de l'ensegnement dans la colonie; enseignement du
 
 français; circulaire du 5 octobre 1896; circulaire
 
@@ -459,8 +431,7 @@ choses quelconques; pornographies; une repré-
 
 ; times du français; mais diffusion administrative
 d'un patois informe et barbare; les « déclassés dangers du baragouinage français; employé d'administration; interprète; la centralisation à outrance; elle existe pour Tananarive
-comme pour Paris; elle existait de temps immé-
-morial pour les habitants de l'Imérina; afflux
+comme pour Paris; elle existait de temps immémorial pour les habitants de l'Imérina; afflux
 incessant des Hovas à Tananarive;
 
 XII. — Pour la langue malgache. — 24 juillet.
@@ -478,8 +449,7 @@ phrases usuelles; pure instruction verbale; des
 mots; par suite tout le reste mal appris; temps.
 
 pris sur le reste; connaissances réelles et magie
-verbale; paroles d'un Anglais à des chefs indi-
-gènes de Brass, à l'embouchure du Niger; de la
+verbale; paroles d'un Anglais à des chefs indigènes de Brass, à l'embouchure du Niger; de la
 faute à l'enseignement de l'anglais; ces paroles
 s'appliquent fort bien à Madagascar; culture
 pénétrante et non civilisation de placage; un
@@ -523,16 +493,14 @@ qui sont les vrais adversaires de l'école laïque;
 invité par les membres de la secte dissidente
 Tranozozoro, le gouverneur général a inauguré
 la nouvelle école créée par eux dans leur
-du gouverneur général; point de départ d'évé-
-nements qui risqueront d'être graves; à l'heure
+du gouverneur général; point de départ d'événements qui risqueront d'être graves; à l'heure
 actuelle nulle importance numérique; dissidents; inconduite; ce qui importe au gouvernement, fidélité française; mais ici non pas seulementneutralité bienveillante; encouragement;
 un télégramme oflicieux; tout le droit commun;
 nulle faveur; faute politique; l'idée de race;
 une démagogie de race; disloquer les Églises
 mixtes; une sorte de patriotisme malgache; un
 patriotisme à forme ecclésiastique; un centre
-de polarisation; consciences nationales; réfé-
-rence à l'Afrique australe; dissidences; motifs
+de polarisation; consciences nationales; référence à l'Afrique australe; dissidences; motifs
 disciplinaires; il y a une vingtaine d'années;
 aujourd'hui l'Éthiopianisme; première période
 revendiquer pour les noirs la direction exclusive
@@ -562,8 +530,7 @@ leur convient; sur ce que l'auteur et ses commettants se proposaient de faire;
 Ill. — Arrété organisant le service de l'enseignement des indigènes à Madagascar......
 Arrêté du 25 janvier 1904, texte complet, emprunté au Journal Officiel de Madagascar et
 rales; de l'enseignement officiel; des établissements d'enseignement ofliciel; de la neutralité
-religieuse; des écoles formant le degré supé-
-rieur de l'enseignement; écoles régionales;
+religieuse; des écoles formant le degré supérieur de l'enseignement; écoles régionales;
 écoles professionnelles de jeunes filles; écoles
 primaires rurales; du personnel enseignant des
 écoles primaires, titres de capacité; traitement et avantages accordés aux instituteurs

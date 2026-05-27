@@ -65,7 +65,7 @@ Nouvelle lune le 27, à 1 heure 41 minutes du soir.
 
 8 heures 54 minutes de nuit. lever |coucher| lever coucher!
 Premier quartier le 4, à 7 heures 35 minutes du matin.
-4 Pleine lune le 11, à 1 heure 27 minutes du soir.
+Pleine lune le 11, à 1 heure 27 minutes du soir.
 LUNE Dernier quartier le 19, à 3 heures 27 minutes du soir.
 Nouvelle lune le 26, à 10 heures 59 minutes du soir.
 
@@ -179,9 +179,7 @@ prévisions, elle continuera, dans l'avenir comme par le
 passé, à opérer, dans les campagnes, la diffusion des
 journaux et brochures qui défendent ce que l'on est
 convenu d'appeler la politique du bloc à condition toutefois que de prétendus républicains n'essayent pas de
-jeter la suspicion sur elle et ne tentent pas de la discré-
-
-diter aux yeux de tous ceux dont elle a besoïn pour
+jeter la suspicion sur elle et ne tentent pas de la discréditer aux yeux de tous ceux dont elle a besoïn pour
 
 Vous m'attaquez dans un article de treize pages. La
 loi me permet de me défendre et me donne, pour le
@@ -196,8 +194,7 @@ pages, j'espère que vous voudriez bien me faire crédit
 pour le surplus.
 
 Que si vos lecteurs trouvent excessif de payer pour
-lire vingt-six pages d'une prose naturellement peu inté-
-ressante puisqu'elle sort de ma plume et se rapportant
+lire vingt-six pages d'une prose naturellement peu intéressante puisqu'elle sort de ma plume et se rapportant
 à un sujet qui, par surcroît, ne doit pas leur paraître
 palpitant, ils devront s'en prendre à vous-même et non
 à moi; cela étant, il me semble que la meilleure réponse
@@ -244,9 +241,7 @@ Comment et par suite de quel miracle ce loyer de
 cent cinquante francs s'est-il transformé en un loyer de
 
 ; deux cent cinquante francs? Voilà ce que je ne puis
-dire. Toujours est-il que je n'ai appris cet accroisse23
-
-ment subit du prix de la location que quand il n'y avait
+dire. Toujours est-il que je n'ai appris cet accroissement subit du prix de la location que quand il n'y avait
 plus moyen de reculer. Dispensez-moi, je vous prie,
 d'insister sur ce point: il est toujours pénible d'avouer
 qu'on s'est laissé berner par trop de confiance.
@@ -308,19 +303,14 @@ de l'école.
 Si je n'avais pas fait plus tôt cette démarche, c'est
 que je nourrissais encore contre l'École des Hautes
 Études sociales des préventions dont vous trouverez
-l'écho dans une lettre que vous lirez tout à l'heure, pré-
-ventions qui, je suis heureux de le dire, se sont entière-
-
-ment dissipées lorsque j'ai l'occasion de prendre des
+l'écho dans une lettre que vous lirez tout à l'heure, préventions qui, je suis heureux de le dire, se sont entièrement dissipées lorsque j'ai l'occasion de prendre des
 informations plus complètes et de connaître les raisons
 très sérieuses qui avaient rendu obligatoire le départ
 de M. Péguy.
 
 Nos avances ayant reçu bon accueil de la part des
 administrateurs de l'École des Hautes Études sociales,
-sûr de pouvoir désormais gratuitement et en toute indé-
-pendance installer nos bureaux dans les salles disponibles de l'immeuble occupé par la dite école, le démé-
-nagement prochain fut résolu conformément au vœu du
+sûr de pouvoir désormais gratuitement et en toute indépendance installer nos bureaux dans les salles disponibles de l'immeuble occupé par la dite école, le déménagement prochain fut résolu conformément au vœu du
 
 Mais comme on se trouvait alors en pleine période
 électorale, il eût été maladroit de réaliser immédiatement cette décision et, de plus, il était correct de
@@ -487,12 +477,9 @@ Croyez-moi votre tout dévoué.;
 
 Je dis à M. Boivin de déménager le plus vite possible,
 après avoir naturellement payé le terme jusqu'en
-octobre, entre les mains de M. Bourgeois, administra-
+octobre, entre les mains de M. Bourgeois, administrateur des Cahiers.
 
-teur des Cahiers.
-
-Je viens de recevoir votre lettre et me suis mis immé-
-diatement en devoir de transporter fiches et meubles.
+Je viens de recevoir votre lettre et me suis mis immédiatement en devoir de transporter fiches et meubles.
 Mais aussitôt Bourgeois m'a déclaré qu'il s'opposait à
 notre départ avant qu'un congé régulier ne lui ait été
 donné et qu'il ne l'ait accepté.
@@ -559,8 +546,7 @@ ouvriers, c'est-à-dire M. Boivin, et ses patrons, comme
 dit élégamment M. Péguy.
 
 Elle prouve aussi que pour un « escroc vulgaire je
-lâchais assez facilement l'argent « premièrement dé-
-robé ». Après tout, c'est peut-être précisément en cela
+lâchais assez facilement l'argent « premièrement dérobé ». Après tout, c'est peut-être précisément en cela
 que consiste la vulgarité de mon escroquerie.
 
 Mais laissons ces balivernes et revenons à l'histoire
@@ -726,9 +712,7 @@ des gens qu'on estime et (1) qu'on aime. (Je ne dis pas
 cela pour la Société Nouvelle de Librairie et d'Éditions
 avec laquelle nous ne pouvons avoir que de bons rapports). De plus Jean Pierre s'installant aussi avec nous,
 
-vous avez vos deux bureaux sous la patte, si j'ose m'ex-
-
-primer ainsi. Enfin Pages Libres et Guieysse suivant
+vous avez vos deux bureaux sous la patte, si j'ose m'exprimer ainsi. Enfin Pages Libres et Guieysse suivant
 
 le mouvement, il ne peut que résulter beaucoup de bien
 
@@ -801,7 +785,7 @@ Mais alors pourquoi ne point être venu tout bonnement
 personne, sans cris, sans sourcils froncés, ainsi que l'a
 fait M. Péguy. Il vous était bien facile de vous dire: « Ce
 M. Colomb-là est un honnête homme. Expliquons-nous et
-je suis sûr que nous finirons par nous entendre »: c'eût été
+je suis sûr que nous finirons par nous entendre c'eût été
 beaucoup plus honorable pour vous et surtout beaucoup
 plus pratique; car votre façon menaçante de comprendre
 les discussions d'intérêt ne pouvait avoir pour résultat que
@@ -918,7 +902,7 @@ nous accusait de vouloir opérer à son détriment un
 « coup de force M. Boivin m'écrivait le 16 juillet,
 c'est-à-dire plus de deux mois après le moment où
 M. Charles Péguy affirmait qu'il avait commencé contre
-nous une « lutte pied à pied »:
+nous une « lutte pied à pied
 
 Je viens d'apprendre que Bourgeois qui est absent ne
 rentrera pas de l'après-midi, mais qu'il sera de
@@ -963,9 +947,7 @@ remplacer dans l'affaire pour laquelle il est appelé
 devant vous; nous vous prions de vouloir bien prononcer la remise de cette affaire.
 
 Vous m'en auriez voulu, Messieurs, si je ne vous
-avais pas mis sous les yeux cette lettre écrite par mon-
-
-sieur Charles Péguy à un juge de paix: elle se passe de
+avais pas mis sous les yeux cette lettre écrite par monsieur Charles Péguy à un juge de paix: elle se passe de
 commemtaires qui, d'ailleurs, seraient plutôt attristants.
 
 Je n'usai pas du permis de citer qui me fut délivré par
@@ -987,9 +969,7 @@ en effet, payer les termes échus et le terme courant.
 
 Nous offrions même, par esprit de conciliation une
 indemnité de 300 francs dont nous ne devions pas le
-premier sou. De plus, vous pouvez remarquer que mal-
-
-gré les affirmations contraires de monsieur Péguy, nos
+premier sou. De plus, vous pouvez remarquer que malgré les affirmations contraires de monsieur Péguy, nos
 relations avec monsieur Boivin furent jusqu'au bout
 correctes et même cordiales, et que jamais monsieur
 Boivin ne fit la moindre objection au déménagement.
@@ -1096,9 +1076,7 @@ n'ayant pas été dénoncée le 30 juin 1901. En effet, la sentence arbitrale re
 Jaurès stipulait: « Les deux parties s'engagent réciproquement à n'apporter à cette convention aucune modification jusqu'au 30 juin 1901. A cette date et sur un
 préavis de trois mois donné au préfet de la Loire par
 l'une ou l'autre des parties, une procédure arbitrale,
-semblable à celle qui met fin au présent conflit, déter-
-
-minera si les conditions de l'industrie permettent le
+semblable à celle qui met fin au présent conflit, déterminera si les conditions de l'industrie permettent le
 maintien intégral ou partiel de cette augmentation. »
 Sur la demande du comité de la Fédération régionale,
 le préfet entama des négociations avec les Compagnies.
@@ -1124,11 +1102,9 @@ les mineurs de la compagnie de l'Escarpelle, à Dorignies
 (Nord), s'étaient mis en grève, au nombre de 500 environ, sans attendre sa décision. Les délégués de la
 région du Nord au congrès adressèrent en hâte à Dorignies une dépêche sommant les ouvriers de reprendre le
 travail. La réponse parvint à deux heures de l'aprèsmidi: les ouvriers refusaient de se remettre au travail
-et suppliaient le congrès de prendre une décision immé-
-diate sur la grève générale. Un membre du syndicat du
+et suppliaient le congrès de prendre une décision immédiate sur la grève générale. Un membre du syndicat du
 Pas-de-Calais se rendit à Dorignies, le 25 septembre, et
-tenta vainement de faire changer la résolution des gré-
-vistes. Le 27, alors que le Congrès, après avoir voté à
+tenta vainement de faire changer la résolution des grévistes. Le 27, alors que le Congrès, après avoir voté à
 l'unanimité la grève générale, laissait au comité de la
 Fédération nationale le soin de fixer le jour de la cessation du travail, on comptait déjà 3.423 grévistes dans
 le Nord et le Pas-de-Calais.
@@ -1138,8 +1114,7 @@ congrès, adressa le 36 septembre, une lettre au président du Conseil et une à
 
 Bulletin de l'Office du travail
 
-Comité des houillères de France. Dans sa lettre au pré-
-sident du Conseil, il demandait au gouvernement de
+Comité des houillères de France. Dans sa lettre au président du Conseil, il demandait au gouvernement de
 s'employer à faire aboutir les propositions ou projets
 de lois répondant aux revendications de la corporation
 (réduction de la journée de travail à 8 heures; retraite
@@ -1590,8 +1565,7 @@ plus graves que la première fois.
 Des faits analogues à ceux que signale cette correspondance de Nam Dinh se passent fréquemment dans
 beaucoup de villages en Indo-Chine. Ce petit récit
 révèle à la fois à quel degré de brutalité, de haine
-stupide peuvent atteindre les Annamites devenus chré-
-tiens; avec quel injuste parti-pris les missionnaires
+stupide peuvent atteindre les Annamites devenus chrétiens; avec quel injuste parti-pris les missionnaires
 soutiennent les convertis dans leurs pires excès; avec
 quelle lâcheté enfin les fonctionnaires obéissent aux
 injonctions des missionnaires. On comprend comment
@@ -1601,5 +1575,4 @@ annamite, si pacifique pourtant, si tolérante et si douce.
 
 Appelons de nos vœux, et, si possible, provoquons
 par nos efforts l'énergique action morale et politique
-qui délivrera nos sujets annamites des brutalités fran-
-çaises et de la tyrannie catholique.
+qui délivrera nos sujets annamites des brutalités françaises et de la tyrannie catholique.

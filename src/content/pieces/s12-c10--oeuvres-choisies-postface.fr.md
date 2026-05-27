@@ -24,16 +24,11 @@ On voit ce que veut dire et notamment, (si j'ai le droit de le dire), qu'il s'ag
 
 Nous avons été impitoyables, et l'on m'a rendu généralement cette justice que j'ai été plus impitoyable que les autres. Nous avons coupé tout ce qui ne tenait pas. Nulles tendresses particulières, les plus légitimes, les plus authentiques, n'ont été respectées. N'ont été sauvées, je puis me vanter qu'il n'y a pas dans tout le volume un seul plan incliné; ni une seule dégradation. Je me vante qu'il n'y a pas dans tout le volume un *morceau* qui ne commence et qui ne finisse en falaise.
 
-Dans le tissu même du livre, dans le texte je n'ai pas besoin de dire que nous n'avons rien tripoté. Il ne s'agissait point de faire des morceaux comme on fait des morceaux d'une *poterie*: en tapant dessus. Si on vent bien me passer la grossièreté de le dire, l'opération était un peu plus délicate. Nous n'avons jamais procédé que par abrasement et décantation. Il s'agissait de désarticuler. Il ne s'agissait point de *faire des morceaux.* Il s'agissait de retrouver dans le texte, et quelquefois (et souvent) sous le texte les véritables anciens membres, anciennement faits, primitivement faits, les membres réels, les membres naturels, les membres antérieurs, antérieurement faits, les membres premiers, les membres éléments de ces organismes et de ces organisations. Nous avons donc résolu, nous avons délié, nous avons essen-
-
-tiellement désarticulé. Nous avons peut-être dépecé. Nous n'avons jamais scié ni cassé. A quel point, avec quel bonheur Pesloüan a réussi à obtenir ainsi des *membres,* à deviner, à découvrir, à saisir, isoler), trouver), à configurer pour ainsi dire des membres en mouvement, des membres comme cinématiques et dynamiques dans des textes qui couraient, c'est ce qui saute aux yeux par le simple énoncé de ces membres mêmes, de ces quarante-trois chapitres, par la table, c'est ce qui saute aux yeux dans la table-sommaire du livre comme nous la donnons ci-après.
+Dans le tissu même du livre, dans le texte je n'ai pas besoin de dire que nous n'avons rien tripoté. Il ne s'agissait point de faire des morceaux comme on fait des morceaux d'une *poterie*: en tapant dessus. Si on vent bien me passer la grossièreté de le dire, l'opération était un peu plus délicate. Nous n'avons jamais procédé que par abrasement et décantation. Il s'agissait de désarticuler. Il ne s'agissait point de *faire des morceaux.* Il s'agissait de retrouver dans le texte, et quelquefois (et souvent) sous le texte les véritables anciens membres, anciennement faits, primitivement faits, les membres réels, les membres naturels, les membres antérieurs, antérieurement faits, les membres premiers, les membres éléments de ces organismes et de ces organisations. Nous avons donc résolu, nous avons délié, nous avons essentiellement désarticulé. Nous avons peut-être dépecé. Nous n'avons jamais scié ni cassé. A quel point, avec quel bonheur Pesloüan a réussi à obtenir ainsi des *membres,* à deviner, à découvrir, à saisir, isoler), trouver), à configurer pour ainsi dire des membres en mouvement, des membres comme cinématiques et dynamiques dans des textes qui couraient, c'est ce qui saute aux yeux par le simple énoncé de ces membres mêmes, de ces quarante-trois chapitres, par la table, c'est ce qui saute aux yeux dans la table-sommaire du livre comme nous la donnons ci-après.
 
 C'est dans le même esprit que je me suis permis d'écrire, pour ces membres anciens, des titres nouveaux. C'est que mes titres nouveaux sont eux-mêmes en réalité les titres anciens mêmes, les titres anciens propres, retrouvés, les titres que ces membres eussent portés si dans les anciens cahiers nous avions fait des sommaires où ces membres eussent été représentés. Ce sont les titres mêmes que ces chapitres, que ces membres porteront ou eux-mêmes ou dans des sommaires si je suis conduit quelque jour à écrire des sommaires pour des réimpressions plus complètes.
 
-Pesloüan a merveilleusement discerné dans des textes, sous des textes qui couraient, où étaient, où couraient réellement les membres, quels étaient, qui étaient les membres réels, anatomiques, physiolo-
-
-giques. Et ainsi nous avons peut-être découpé. (Peut-
-être désossé). Nous n'avons jamais disloqué.
+Pesloüan a merveilleusement discerné dans des textes, sous des textes qui couraient, où étaient, où couraient réellement les membres, quels étaient, qui étaient les membres réels, anatomiques, physiologiques. Et ainsi nous avons peut-être découpé. (Peutêtre désossé). Nous n'avons jamais disloqué.
 
 Cela étant, voici, sous le titre, par parties et par
 chapitres, par les cinq parties et par les quarante-trois
@@ -55,21 +50,18 @@ une deuxième loyauté de la guerre;
 
 11. — Sur l'art. — De l'initiation à la connaissance
 des arts plastiques, fragment de confessions,
-confidences du docteur, et de cet aperçu bergso-
-nien qu'il y a sans doute entre le génie et le talent
+confidences du docteur, et de cet aperçu bergsonien qu'il y a sans doute entre le génie et le talent
 une différence de nature même;
 
 12. — Sur la science. — Que la science même est
 révolutionnaire, en ce sens que le progrès de
-l'acquisition scientifique n'est point une capitali-
-sation morte; et sur ce point le témoignage
+l'acquisition scientifique n'est point une capitalisation morte; et sur ce point le témoignage
 personnel de Duclaux;
 
 un langage politique parlementaire propre d'où
 viennent, pour ainsi dire, tous nos malentendus;
 
-15. — Que nous aurons un jour, comme les Madé-
-casses, une métaphysique d'État;
+15. — Que nous aurons un jour, comme les Madécasses, une métaphysique d'État;
 
 16. — Et subsidiairement que cette métaphysique
 d'État sera fondée sans aucun doute sur quelque
@@ -128,12 +120,10 @@ y a une mystique d'Israël;
 
 30. — O soldats de l'an deux! ô guerres! épopées!
 
-31. — Qu'il y a dans le monde moderne une hypo-
-crisie du pacifisme; Hugo et Napoléon;
+31. — Qu'il y a dans le monde moderne une hypocrisie du pacifisme; Hugo et Napoléon;
 
 32. — Comment notre bon peuple était sorti pour
-voir passer le roi d'Espagne. Des mœurs singu-
-lières de ce peuple de Paris;
+voir passer le roi d'Espagne. Des mœurs singulières de ce peuple de Paris;
 
 33. — Mais que Hugo aussi était dans tout ce
 
@@ -168,17 +158,14 @@ charité de Jeanne d'Arc;
 « *Augere,* dit Bréal et Bailly, augmenter; créer.
 *Auctor,* qui augmente, qui crée, *d'où*: 1° auteur,
 cause; *particulièrement* (en parlant d'un projet),
-2° conseiller (en parlant d'un projet). » Et dans l'expli-
-cation « le verbe *augeo* « accroître, enrichir » est
+2° conseiller (en parlant d'un projet). » Et dans l'explication « le verbe *augeo* « accroître, enrichir » est
 employé dans les sens les plus divers. Ainsi dans la
-langue religieuse il signifie « honorer par des dons »:
+langue religieuse il signifie « honorer par des dons
 *augere aram donis.* On dit de même: *augere aliquem
-divitiis, auctus filio,* (1) *augere aliquem nominibus impe-
-ratoris. Augeo* signifie aussi « créer ». Lucrèce,
+divitiis, auctus filio,* (1) *augere aliquem nominibus imperatoris. Augeo* signifie aussi « créer ». Lucrèce,
 *Nam quodcunque alias se res auget alitque, Deminui
 debet.* — Ces différents sens se retrouvent dans *auctor.* Il
-signifie « fondateur, père ». Virgile, vii, 49. *Isque paren-
-tem Te, Saturne, refert, tu sanguinis ultimus auctor.* —
+signifie « fondateur, père ». Virgile, vii, 49. *Isque parentem Te, Saturne, refert, tu sanguinis ultimus auctor.* —
 En parlant d'un écrit ou d'une œuvre d'art, « auteur ».
 *Lectitare auctores. Statuae auctoris incerti.* — En
 parlant d'un acte, « conseiller, instigateur, garant ».
@@ -214,10 +201,7 @@ volume entièrement composé, entièrement constitué
 par un ami, une reproduction d'un portrait peint par
 un ami, pour aller à tant d'amis connus et inconnus, à
 qui je dois tant. Quel accord intérieur. Et doublant la
-première quelle entente secrète, quelle joie de repro-
-
-duire ici, de présenter un portrait portant cette signa-
-ture, (non seulement une signature amie), une signature
+première quelle entente secrète, quelle joie de reproduire ici, de présenter un portrait portant cette signature, (non seulement une signature amie), une signature
 filiale de la grande stature de notre Jean-Paul-
 Laurens. Depuis que le père, depuis que le patron,
 depuis que le peintre, depuis que Jean-Paul-Laurens,
@@ -243,19 +227,16 @@ saisi, je m'émerveille de regarder combien je dois,
 combien j'ai reçu, combien j'ai pris dans cette famille
 et dans ces cœurs. Je veux croire que ce M. Grasset
 pour moi depuis douze et treize ans le faisais et
-infatigablement je l'avais fait pour tant de nos contem-
-porains dont presque un tiers m'en ont gardé quelque
+infatigablement je l'avais fait pour tant de nos contemporains dont presque un tiers m'en ont gardé quelque
 reconnaissance. Celui qui à qu'à faire de la copie est
 bien heureux. Je viens de m'en apercevoir. (Et à plus
 
 gnements d'expérience, de carrière; d'amitié; un cœur
-si jeune, le plus jeune cœur que je connaisse actuel-
-lement. Je dirai quelque jour, j'essaierai de donner
+si jeune, le plus jeune cœur que je connaisse actuellement. Je dirai quelque jour, j'essaierai de donner
 quelque idée de tout cela, je n'y réussirai que très
 imparfaitement dans cette *Épître votive* à laquelle je
 pense *pour engager dès ce jour dans le parti de nos
-amis et de nos maîtres notre maître et notre père spiri-
-tuel Jean-Paul-Laurens, peintre.* Tu n'y échapperas
+amis et de nos maîtres notre maître et notre père spirituel Jean-Paul-Laurens, peintre.* Tu n'y échapperas
 point, Pierre. Dedans je ferai ton portrait. Ce sera, une
 fois de plus, *le portrait du peintre.* Malheureusement
 pour nos pauvres portraits à nous, pour nos *portraits
@@ -281,8 +262,7 @@ discernement qui courent tout au travers, ou plutôt tout
 au long de ces arts mêmes, de ces arts parents. Plus
 
 qu'apparentés, plus que conjoints, sortis, poussés des
-mêmes souches. Et quand ce ne serait que la recon-
-naissance, que l'immédiate, que la reconnaissance
+mêmes souches. Et quand ce ne serait que la reconnaissance, que l'immédiate, que la reconnaissance
 préliminaire de cette vérité élémentaire que nous
 autres littéraires quand nous voulons parler en
 littéraires des arts du dessin ou même seulement
@@ -305,8 +285,7 @@ que nous avons le plus aimés, de celui que nous
 nommions *le père Édet.* Je veux dire, les éditeurs,
 distingués en celui qui établit le texte et celui qui
 fabrique et vend le volume. L'établissement du texte,
-et qu'il se fît sans moi, me remplissait d'un émerveille-
-ment continuel, d'un émerveillement et d'une joie
+et qu'il se fît sans moi, me remplissait d'un émerveillement continuel, d'un émerveillement et d'une joie
 d'enfant. Qu'un livre de moi se fît, (et se fît aussi bien),
 
 sans que j'eusse à le faire, (qu'il se fît beaucoup mieux
@@ -353,11 +332,9 @@ pour ce volume je l'avais fait pour deux cents volumes
 ou cahiers, c'était mon métier, je le continuais de
 le faire, comme un métier quotidien, que tout ce qu'il
 faisait pour moi, tout ce que pour ce travail industriel
-et commercial, non seulement de faire le livre, de fabri-
-brer, de le fabriquer, ce qui ne serait rien encore, et de
+et commercial, non seulement de faire le livre, de fabribrer, de le fabriquer, ce qui ne serait rien encore, et de
 payer les imprimeurs, et de payer tous les frais généraux
-d'une maison de commerce à Paris, et de payer tou-
-jours, (on y arriverait peut-être encore, on en viendrait
+d'une maison de commerce à Paris, et de payer toujours, (on y arriverait peut-être encore, on en viendrait
 encore à bout), mais ce qui est le plus difficile de tout,
 presque impossible, non plus seulement de faire le livre,
 mais de faire le public, dans cet ingrat monde moderne,
@@ -365,12 +342,10 @@ dans cet ingrat public, de découvrir, de faire un public,
 pièce à pièce, homme par homme, d'obtenir, de faire
 une certaine audience. Quand je considérais tout ce
 que M. Grasset faisait ainsi pour moi, uniquement
-parce qu'il faisait son métier, je me surprenais à consi-
-dérer aussi que moi aussi c'était mon métier et que ce
+parce qu'il faisait son métier, je me surprenais à considérer aussi que moi aussi c'était mon métier et que ce
 métier je le faisais à peu près tous les jours que M. Grasset faisait
 pour moi depuis douze et treize ans je le faisais et
-infatigablement je l'avais fait pour tant de nos contem-
-porains dont presque un tiers m'en ont gardé quelque
+infatigablement je l'avais fait pour tant de nos contemporains dont presque un tiers m'en ont gardé quelque
 reconnaissance. Celui qui n'a qu'à faire de la copie est
 bien heureux. Je viens de m'en apercevoir. (Et à plus
 
@@ -430,8 +405,7 @@ que j'en ai une sorte d'orgueil enfantin. C'est une
 grande joie, et une grande découverte, que de gagner
 de l'argent comme tout le monde, de l'argent pour
 ainsi dire de droit commun. De l'argent qui ne doit
-rien à personne. Et cette joie fut naturellement dou-
-blée d'une autre, conjointe d'une autre. Je n'ai pas
+rien à personne. Et cette joie fut naturellement doublée d'une autre, conjointe d'une autre. Je n'ai pas
 besoin de dire que j'ai prié notre M. André Bourgeois
 de verser directement ces 1.500 francs dans la caisse
 
@@ -451,26 +425,22 @@ enfin mettre moi-même dans les cahiers de l'argent
 frais qui vînt de moi, de moi seul et pour ainsi dire de
 moi pur, qui eût été gagné par les moyens du bord,
 gagné si je puis dire authentiquement, socialement
-authentiquement, comme tout le monde, au prix cou-
-rant, de droit commun, au prix du marché, sur le
+authentiquement, comme tout le monde, au prix courant, de droit commun, au prix du marché, sur le
 marché des valeurs, et de devenir ainsi, de me faire le
 co-souscripteur de mes souscripteurs.
 
 Pendant que j'y étais et sous ce prétexte que les
 joies et que les découvertes et que les nouveautés et
 que les bonnes nouvelles vont par trois je voulais me
-payer une grande joie, (j'en avais envie depuis long-
-temps), une joie troisième ensemble, si je sais compter,
-une grande et merveilleuse nouveauté, une grande troi-
-sième découverte: (l'homme est insatiable): celle
+payer une grande joie, (j'en avais envie depuis longtemps), une joie troisième ensemble, si je sais compter,
+une grande et merveilleuse nouveauté, une grande troisième découverte: (l'homme est insatiable): celle
 d'envoyer enfin ce volume à toutes les personnes à qui
 
 j'avais si bonne envie de l'envoyer; en envoi d'auteur;
 à tant d'amis avérés à qui je dois tant. Je commençais
 à composer des listes dans ma tête, et j'avoue que ces
 listes croissaient à vue d'œil quand les décemvirs, qui
-savaient que l'on préparait un volume, et qui ne dou-
-taient un peu de soi, qu'il y avait dedans, me firent
+savaient que l'on préparait un volume, et qui ne doutaient un peu de soi, qu'il y avait dedans, me firent
 savoir, dans la forme habituelle, non seulement la
 m'accepteraient pas la moindre de recevoir un seul exemplaire
 de ma main, mais qu'ils avaient tous l'intention bien
@@ -486,15 +456,13 @@ le conseil de qui je ne prends aucune décision important
 conseils*). Non que je n'aie en prenant son nom de bonne
 quinzaine d'amis du premier degré. Mais d'abord je ne
 suis pas l'État. Je ne peux pas, peux pas convoquer, je ne peux
-pas assembler mes amis de province comme le gouverne-
-ment de l'État convoque et assemble à Paris en un
+pas assembler mes amis de province comme le gouvernement de l'État convoque et assemble à Paris en un
 tour de main pour un conseil, pour une session, les
 recteurs de ses dix-sept académies. Tous mes amis ne
 sont point recteurs. Ni tous mes recteurs ne sont point
 mes amis, bien qu'il y en ait au moins trois. Et ensuite
 et surtout le bon conseil serait peut-être encore une
-affaire d'amitié, mais le conseil, qui est chose infini-
-ment plus grave, n'est pas tellement une affaire
+affaire d'amitié, mais le conseil, qui est chose infiniment plus grave, n'est pas tellement une affaire
 d'amitié. Ces décemvirs sont des hommes avérés,
 
 éprouvés, durcis, dressés par la dure vie de Paris, par
@@ -502,8 +470,7 @@ une vie dont nos amis de province, heureusement pour
 eux, n'ont absolument aucune idée. Il ne faut point,
 pour le conseil, des amis qui soient demeurés innocents.
 Ces décemvirs sont durs. Ces décemvirs sont rudes. Ils
-me disent quelquefois, souvent, des choses fort désa-
-gréables. Je m'en aperçois bien aux vacances de
+me disent quelquefois, souvent, des choses fort désagréables. Je m'en aperçois bien aux vacances de
 Pâques, je fais la différence quand mes amis de
 province viennent me voir, qui sont restés innocents,
 ceux de nos amis, les miens il y a dix ans, les miens
@@ -529,20 +496,17 @@ sont purs et avertis. Cette fois-ci encore ils avaient
 
 raison. Si je voulais envoyer des exemplaires en envoi
 d'auteur à toutes les personnes qui ont rendu aux
-cahiers des services capitaux, et à moi personnelle-
-ment des services capitaux, je le dis à la gloire de
+cahiers des services capitaux, et à moi personnellement des services capitaux, je le dis à la gloire de
 l'amitié il ne me fallait pas en envoyer moins de neuf
 cents. Quand nous comptions, ou plutôt quand nous
 essayions de compter, il devenait évident qu'il n'y a
 peut-être pas un seul de nos neuf cents abonnés actuels
-qui ne nous aient rendu personnellement et solidaire-
-ment aux cahiers et à moi, (c'est tout un, c'est tout le
+qui ne nous aient rendu personnellement et solidairement aux cahiers et à moi, (c'est tout un, c'est tout le
 même), des services capitaux.
 
 (Non seulement à la gloire de l'amitié, mais à la
 gloire de cette sorte de bonté générale qu'il y a dans
-le monde et qui contraste si heureusement avec l'ai-
-greur, avec l'âcreté haineuse du Parti Intellectuel).
+le monde et qui contraste si heureusement avec l'aigreur, avec l'âcreté haineuse du Parti Intellectuel).
 
 Il faut penser que sans ces décemvirs ni les cahiers
 ni assurément moi nous ne marcherions pas trois
@@ -550,8 +514,7 @@ semaines. Ils sont l'amitié avertie, éprouvée, toujours
 vigilante, ancienne; inébranlable. Ils sont la sagesse
 même. Ils sont le conseil, et l'action après le conseil.
 Il fallait se rendre. A eux et à ce ferme propos qu'ils
-avaient formé de n'en point recevoir un seul exem-
-plaire de ma main et que nul n'en tiendrait un seul
+avaient formé de n'en point recevoir un seul exemplaire de ma main et que nul n'en tiendrait un seul
 exemplaire qui ne vînt de la main pour ainsi dire si je
 puis dire mercantile de M. Bourgeois, nul pas même
 
@@ -561,18 +524,14 @@ quarante-huit heures, en avait rapporté cinq cents
 exemplaires d'Orléans à Paris par la force de son
 moteur. Et par la vitesse des batteries à cheval.
 
-Ces cinq cents premiers exemplaires et les dix pre-
-miers exemplaires sur Hollande.
+Ces cinq cents premiers exemplaires et les dix premiers exemplaires sur Hollande.
 
-Il fallait d'autant plus se rendre à la sentence décem-
-virale que la vente de ce volume au bureau des cahiers,
+Il fallait d'autant plus se rendre à la sentence décemvirale que la vente de ce volume au bureau des cahiers,
 à la *librairie* des cahiers aura lieu dans des conditions
 toutes particulières. M. Grasset nous a fait comme
 libraires des conditions si intéressantes et si libérales
 qu'elles font de la vente ou plutôt de l'achat de ce
-volume à la librairie des cahiers une sorte de souscrip-
-tion permanente, littéralement une souscription perma-
-nente conjointe de M. Grasset, de l'acheteur et de moi
+volume à la librairie des cahiers une sorte de souscription permanente, littéralement une souscription permanente conjointe de M. Grasset, de l'acheteur et de moi
 aux *Cahiers de la Quinzaine.* de ces souscriptions
 permanentes aux *Cahiers* nous avons besoin aujour-
 d'hui autant et peut-être plus que jamais.
@@ -593,8 +552,7 @@ un monument à l'amitié. *Amicitiae et fidei sacrum.* Je
 m'aperçois enfin qu'il est un de mes livres les plus purs.
 Tout y vient de l'amitié. Tout y représente l'amitié. Tout
 y concourt à l'amitié. Une amie qui a l'intelligence du
-cœur m'écrivait que c'était de l'amitié à trois dimen-
-sions. Mais je crois bien qu'elle en oubliait une ou deux.
+cœur m'écrivait que c'était de l'amitié à trois dimensions. Mais je crois bien qu'elle en oubliait une ou deux.
 En tête un portrait peint par l'ami le plus fidèle et le
 plus grave. Un livre tout entier composé, plus que
 composé, organisé par l'ami le plus ancien, le plus
@@ -617,8 +575,7 @@ j'admirais secrètement sa bravoure, je ne le lui disais
 pas, (il ne faut jamais le dire aux hommes jeunes), je
 me rappelais, non sans quelque mélancolie, une ancienne
 audace, une ancienne bravoure qui était il y a douze
-quinze ans celle d'un nommé Péguy, je riais en moi-
-même et je lui disais: *Taisez-vous, jeune homme.*
+quinze ans celle d'un nommé Péguy, je riais en moimême et je lui disais: *Taisez-vous, jeune homme.*
 Comme dans *les Burgraves,* s'il est vrai toutefois que
 ce soit dans *les Burgraves,* car il y a en ce moment
 sur Paris une épidémie de citations qui tombent de

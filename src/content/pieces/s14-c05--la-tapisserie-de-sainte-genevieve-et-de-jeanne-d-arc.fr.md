@@ -555,7 +555,7 @@ Dans la procession, l'éclatant ostensoir
 TRES Balancé sur les fronts comme un soleil ardent;
 Les armes de Satan c'est la griffe et la dent, ESS
 DES Le nez mal retroussé, le regard impudent; -
-24 Les armes de Jésus c'est le calme du soir, AS
+Les armes de Jésus c'est le calme du soir, AS
 C'est la procession assise au reposoir MUR
 De feuilles et de fleurs, c'est le lourd ostensoir
 
@@ -694,7 +694,7 @@ Les armes de Satan c'est la race perdue,: 1° PRE NCEES
 de ne C'est le lacet tressé, c'est la corde tordue, L'RÉFOEES
 a Toute chair assaillie et toute chair mordue;.
 Les armes de Satan c'est tout le résidu ras
-4 Et la lie et l'écume et c'est l'individu As
+Et la lie et l'écume et c'est l'individu As
 Les armes de Satan c'est toute dette due +5
 Irrémissiblement, la honte suspendue,
 Et par son gouverneur toute ville rendue; RAS: SOS
@@ -923,7 +923,7 @@ Où l'on est candidat et c'est toute texture FEES
 
 : Quim'est pas de bon fil et c'est toute mixture VTC
 ET Qui n'est pas du bon vin et c'est toute mouture IAE:
-4 Qui n'est pas du bon pain et c'est toute pâture
+Qui n'est pas du bon pain et c'est toute pâture
 Quin'est pas du bon grain et c'est toute clôture du: À
 Qui n'est pas de bon bois et c'est toute questure: A..
 se Qui requiert à faux poids, frappe à fausse mesure, a se
@@ -948,7 +948,7 @@ Que te Les armes de Jésus c'est la belle provende NÉE
 Éparse au râtelier, c'est le thym, la lavande, LENS
 Etla rose et l'œillet et la souple guirlande;,
 Les armes de Jésus c'est le bon voisinage RTS NES
-te Entre les pauvres gens, c'est le pauvre village A:
+te Entre les pauvres gens, c'est le pauvre village
 Et l'église au milieu, C'est le compagnonnage TEE
 Entre bons compagnons, c'est le pèlerinage TER
 Entxe bons pèlerins, c'est le pauvre ménage STRESS
@@ -1076,7 +1076,7 @@ Qui sera présenté, c'est le bonheur décrit
 De par le roi du ciel et le pardon prescrit
 Par la nouvelle loi, c'est Dieu même transcrit RO,
 “Re De Moïse en Jésus, c'est Satan circonscrit,. 1:;
-C'est tout ce qu'il fallait pour que Jésus souffrit, À:
+C'est tout ce qu'il fallait pour que Jésus souffrit,
 Les armes de Jésus c'est surtout Jésus-Christ;
 C'est tout ce qu'il fallait pour que Jésus ouvrit.
 La porte du tombeau, pour que Jésus offrît; LE
@@ -1226,7 +1226,7 @@ Et c'est le beau baptème et les belles dragées HEURE
 Mais plus que le cortège et que les apogées LES
 fallut qu'elle vit par ce libertinage FACE
 Dissiper ce trésor d'honneur que nous gagnons, Es
-4 Et déserter le Dieu que nous accompagnons, Rs.
+Et déserter le Dieu que nous accompagnons, Rs.
 Comme on déserte un mort dans un pauvre village;
 Il fallut qu'elle vit par ce vagabondage à Re”
 Retourner ce passé dont nous nous éloignons, PSS SE
@@ -1236,7 +1236,7 @@ Monter le long de nous comme un échafaudage;
 
 ne. CE fallut qu'elle vit par le faux témoignage
 
-2 Démentir le propos pour qui nous témoignons,
+Démentir le propos pour qui nous témoignons,
 
 PE” Il fallut qu'elle vit l'urne où nous nous baïgnons
 
@@ -1250,7 +1250,7 @@ Il fallut qu'elle vit la ville où nous régnons
 
 ; Démantelée aux mains de tout ce chapardage;:
 
-4 Il fallut qu'elle vit par tant d'enfantillage
+Il fallut qu'elle vit par tant d'enfantillage
 
 Avilir cette foi dont nous nous imprégnons,
 
@@ -1286,7 +1286,7 @@ Et la taverne infâme et que nous désignons LES
 D'un nom injurieux déborder sur la plage;
 fallut qu'elle vit cette haine sauvage
 Dénaturer le sort où nous nous résignons, 4 Le
-5 Et la ronce et l'ortie où nous égratignons [RSS
+Et la ronce et l'ortie où nous égratignons [RSS
 Nos mains s'enchevêtrer dans le jeune bocage; en.
 Il fallut qu'elle vit au chemin de halage
 Déraciner la borne à qui nous nous cognons, FLO
@@ -1327,7 +1327,7 @@ Gémir dans ses haubans et ses boïs d'assemblage;
 fallut qu'elle vit par un commun partage
 nc” Arriver justement le sort que nous craignons,
 rue Et la loi qui nous sauve et que nous enfreignons
-208 Exposée à périr dans ce même naufrage; es:
+Exposée à périr dans ce même naufrage; es:
 Il fallut qu'elle vit dans le même mouillage TRES
 Sombrer le désespoir que seul nous étreignons,
 Et qu'elle vît cet ordre où nous nous astreignons 7004

@@ -15,24 +15,20 @@ paraissant vingt fois par an
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si À
-grand nombre de documents, de textes formant dos-
-si grand nombre de cahiers de lettres, — nouvelles,
+grand nombre de documents, de textes formant dossi grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un
-si grand nombre de cahiers d'histoire et de philoso-
-phie; et ces documents, renseignements, textes, dos-:
+si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes, dos-:
 siers et commentaires, ces cahiers de lettres, d'histoire
 et de philosophie étaient si considérables que nous ne
 pouvons pas songer à en donner ici l'énoncé même le
 plus succinct; pour savoir ce qui a paru dans les cinq
 premières séries des cahiers, il suffit d'envoyer un man- à
-dat de cinq francs à M. André Bourgeois, administra-
-teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, -
+dat de cinq francs à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, -
 Paris, cinquième arrondissement; on recevra en retour
 le catalogue analytique sommaire, 1900-1904, de nos
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mas complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé À
+une idée, abrégée, mas complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé À
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 . Ce catalogue, grand jésus, forme un cahier
@@ -54,9 +50,7 @@ par le fait méme de son abonnement, en tête de la série;
 
 Pour amorcer tout travail que l'on aurait à commencer
 
-dans notre premier catalogue analytique sommaire, con-
-
-sulter le petit index alphabétique provisoire que nous
+dans notre premier catalogue analytique sommaire, consulter le petit index alphabétique provisoire que nous
 
 3 avons établi de ce catalogue analytique sommaire.
 
@@ -96,8 +90,7 @@ cahier pour la reprise je
 en vente à la librairie des cahiers
 
 Voltaire et Calas, — un volume in-15, Paris, 1898
-Les Troubles de Chine et les Missions Chré-
-tiennes, — un volume in-12, Paris, 1901 (Librairie
+Les Troubles de Chine et les Missions Chrétiennes, — un volume in-12, Paris, 1901 (Librairie
 
 La Cabale des Dévots (1627-1666), — un volume in-12,
 Le Bordereau annoté, Étude de critique historique,
@@ -109,12 +102,9 @@ Quatrième cahier de la sixième série, un cahier jaune
 
 de LIT 180 pages, grand jésus, bon à tirer du
 RaouL ALLIER. — L'enseignement primaire des
-indigènes à Madagascar; une erreur; vieillerie con-
-damnée; alarme inutile; une originale tentative; chan-
-gement de front; l'art des statistiques; enfants à la rue;
+indigènes à Madagascar; une erreur; vieillerie condamnée; alarme inutile; une originale tentative; changement de front; l'art des statistiques; enfants à la rue;
 contre l'élite; l'initiative interdite; l'arbitraire; paradoxe
-d'illégalité; leçons de français; pour la langue mal-
-gache; fagots et fagots; pour les écoles laïques; éthiopianisme; annexes: ce qu'il faut aux Malgaches; BE:
+d'illégalité; leçons de français; pour la langue malgache; fagots et fagots; pour les écoles laïques; éthiopianisme; annexes: ce qu'il faut aux Malgaches; BE:
 écoliers malgaches; arrêté organisant le service de l'en-:
 seignement des indigènes à Madagascar;
 
@@ -129,25 +119,20 @@ jaune de À XXIV 576 pages, grand jésus,
 bon à tirer du mardi 4 avril 1905........... six francs
 Une campagne du Siècle; — Raoux ALLIER, — la
 séparation des Eglises et de l'Etat; — l'enquête du
-Siècle; — préface de Henri Brisson; — résultats et con-
-clusions de cette enquête, par J.-L. de Lanessan;
+Siècle; — préface de Henri Brisson; — résultats et conclusions de cette enquête, par J.-L. de Lanessan;
 Raoul Allier. — Trois projets de loi; une négation à
 de l'histoire; la question des synodes; un amendement
 malheureux; la précaution inutile; une correction à À
-préciser; associations cultuelles; encore les associa-
-fiscations; l'État entrepreneur de messes; autres questions de propriété; les édifices antérieurs au Conseordat;
+préciser; associations cultuelles; encore les associafiscations; l'État entrepreneur de messes; autres questions de propriété; les édifices antérieurs au Conseordat;
 solutions de guerre civile; solution de bonne volonté;
 indemnités et pensions; le projet de M. Bienvenu-
 
-Martin; questions d'impôts; le nouveau projet et la com-
-
-mission; police des cultes; la liberté de culte; la caisse
+Martin; questions d'impôts; le nouveau projet et la commission; police des cultes; la liberté de culte; la caisse
 de liberté; sur le seuil;
 L'enquête du Siècle; le questionnaire, introduction Vis
 par Louis Juittet; les réponses; les Protestants, les HUE
 Israélites; un Philosophe; chez les évêques, interviews
-A prises par M. Eric Besnard; documents; les Catholi-
-ques; les protestants; les israélites; les libres-penseurs;
+A prises par M. Eric Besnard; documents; les Catholiques; les protestants; les israélites; les libres-penseurs;
 la lettre des cardinaux;
 Annexes; textes portant établissement des différentes
 Églises; tous autres textes; textes des projets.
@@ -229,9 +214,7 @@ rigoureusement en ligne de compte sans aboutir tout à
 fait à la même solution. D'autres données, en effet,
 
 D'abord, l'opinion n'accepterait rien de ce qui aurait
-l'apparence d'un dépouillement de l'État ou des com-
-
-munes au profit de l'Église. Cette susceptibilité, portée
+l'apparence d'un dépouillement de l'État ou des communes au profit de l'Église. Cette susceptibilité, portée
 à un certain point, frise l'absurde. Il y a même des cas
 où elle ne se contente pas de le friser. Mais elle est un
 - … de ces faits que les hommes politiques ne sont pas libres
@@ -270,9 +253,7 @@ n'évolueront jamais et qu'en tout cas cet édifice sera
 réservé pour toujours à ceux qui n'évolueront pas.
 Nous ne voulons pas contribuer peut-être, par une
 
-tion éternelle, à figer l'histoire. » Que ce souci soit illu-
-
-soire ou non, qu'il soit suggéré par de véritables espé-
+tion éternelle, à figer l'histoire. » Que ce souci soit illusoire ou non, qu'il soit suggéré par de véritables espé-
 
 ; rances ou qu'il soit inspiré par un simple scrupule, peu
 importe: il hante nos législateurs. La proposition de
@@ -307,9 +288,7 @@ cultes, prescrite par le paragraphe premier de l'article
 
 le local objet de la donation;
 
-4 3) Si la solidité de l'édifice est compromise par insufli-
-
-sance de son entretien;
+4 3) Si la solidité de l'édifice est compromise par insuflisance de son entretien;
 
 « 4) Si l'édifice concédé est employé à un objet quelconque
 
@@ -319,9 +298,7 @@ Donner et retenir ne vaut. La donation dont parle
 
 M. Augagneur n'est pas une donation vraie et qui
 
-mérite ce nom. Elle est faite par l'État ou par les com-
-
-munes qui s'attribuent toujours un droit éminent de
+mérite ce nom. Elle est faite par l'État ou par les communes qui s'attribuent toujours un droit éminent de
 
 propriété. S'ils ne s'attribuaient pas ce droit, comment
 
@@ -351,8 +328,7 @@ Après quelques années d'usage gratuit, les associations
 cultuelles se figureraient être propriétaires. Le loyer
 symbolique empêche l'établissement de cette erreur.
 Il est inévitable que, dans ce système, les grosses
-réparations soient à la charge des associations cul-
-tuelles. Dans le projet admis par la commission, le
+réparations soient à la charge des associations cultuelles. Dans le projet admis par la commission, le
 loyer pourra s'élever jusqu'à dix pour cent du revenu
 annuel moyen des établissements supprimés. Aucun
 minimum n'est fixé, de telle sorte que ce loyer peut des-
@@ -362,8 +338,7 @@ minimum n'est fixé, de telle sorte que ce loyer peut des-
 grosses réparations. Les locataires ne seront pas en
 droit de les exiger en vertu des articles 1720 et 1721 du
 Code civil; mais si le baïlleur refuse d'exécuter celles
-qui sont indispensables, ils pourront demander la rési-
-liation du bail. Avec un loyer purement symbolique, il
+qui sont indispensables, ils pourront demander la résiliation du bail. Avec un loyer purement symbolique, il
 est impossible d'imposer ces dépenses aux communes
 é qui concèdent, en réalité, l'usage gratuit des édifices.
 Ce régime n'a aucun des inconvénients de celui que
@@ -458,8 +433,7 @@ Cette simple transformation est énorme. Elle le sera
 
 4 dans le présent. Elle le sera par ses conséquences
 futures. Je ne vois pas pourquoi l'on voudrait y ajouter,
-! dès maintenant, et par voie législative, un bouleverse-
-ment intime du catholicisme. Les cléricaux sont opposés
+! dès maintenant, et par voie législative, un bouleversement intime du catholicisme. Les cléricaux sont opposés
 à la séparation en vertu de leurs principes. Leurs cipes ne nous regardent pas. Mais il ne faut pas qu'ils
 puissent la combattre en soutenant que la séparation
 offerte a moins pour but de consacrer le divorce de
@@ -472,8 +446,7 @@ plus, par exemple, si les évêques ont une autorité quelne conque. Mais, pour 
 4 tribunaux, il faut qu'à l'origine les associations culA tuelles, auxquelles les établissements ecclésiastiques
 1 transmettront leur succession, les continuent réellement.
 Elles ne peuvent les continuer que si,elles se forment
-à. d'après les règles propres à ces établissements ecclé-
-siastiques. se représente-t-on le catholicisme sans les
+à. d'après les règles propres à ces établissements ecclésiastiques. se représente-t-on le catholicisme sans les
 1 évêques? Des associations cultuelles qui se constitue-
 ) à raient contre l'évêque seraient protestantes ou tout
 ta ce qu'on voudra. Elles ne seraient pas catholiques.
@@ -484,9 +457,7 @@ gens qui composeront l'association. Et comme l'évêque
 1 ne sera que le représentant du pape, c'est au Vatican
 que vous conférez le privilège de former les associations
 de réactionnaires religieux ou politiques à qui l'on fera
-la dévolution des biens appartenant aux paroisses fran-
-
-çaises. Votre idée favoriser un magnifique coup
+la dévolution des biens appartenant aux paroisses françaises. Votre idée favoriser un magnifique coup
 d'État du papisme contre le peu de droits que les
 
 . laïques catholiques possédaient encore dans leu
@@ -510,8 +481,7 @@ primitif de la commission, le projet de M. Combes, le
 projet de M. Bienvenu-Martin se contentaient de viser
 la loi du premier août 1901. En vertu de l'article premier de cette loï, deux personnes suffisent pour constituer une association. Le curé et son bedeau n'avaient
 qu'à faire la déclaration exigée par l'article 5 de la loi
-de 1901. Cette association fictive était légalement for-
-mée. Elle était en droit de réclamer la dévolution des
+de 1901. Cette association fictive était légalement formée. Elle était en droit de réclamer la dévolution des
 biens et la jouissance de l'édifice. On comprend que la
 commission, — sur les instances réitérées de son président, si je ne me trompe, — ait voulu se mettre en travers de cet abus possible.
 
@@ -543,9 +513,7 @@ est autre chose. Il ne veut pas que l'évêque, délégué
 du pape, puisse, à l'aide d'une association fictive, proprier la paroisse. Il doit donc veiller à ce que les
 1 associations cultuelles soient sérieuses. Le moyen en
 1] existe, et il n'a rien de vexatoire.
-La paroisse n'a pas de registre électoral. Mais, à dé-
-
-faut de ce registre, elle en a d'autres, dans lesquels on
+La paroisse n'a pas de registre électoral. Mais, à défaut de ce registre, elle en a d'autres, dans lesquels on
 inscrit les baptêmes, les premières communions, les
 
 - mariages. Toutes les personnes, inscrites sur l'un ou
@@ -557,8 +525,7 @@ d'élire l'association cultuelle. » Il répondraït que c'est
 une mauvaise plaisanterie et que, dans cette cohue de
 versaires du catholicisme. Mais on déclarera: pour faire
 
-valoir des droits, l'association, même formée avec l'agré-
-ment de l'autorité ecclésiastique, devra compter un
+valoir des droits, l'association, même formée avec l'agrément de l'autorité ecclésiastique, devra compter un
 nombre de membres égal au moins au dixième de la
 population inscrite sur les registres paroïissiaux.
 
@@ -591,8 +558,7 @@ jamais deux associations cultuelles pour se former,
 concurremment, avec l'égale approbation de l'autorité
 ecclésiastique. Mais l'avenir est entièrement réservé.
 Dans la suite des temps, — sera-ce dans deux ans ou
-dans cinquante ans, que m'importe? — telle de ces as-
-sociations cultuelles évolue. Elle représente de façon authentique,— en vertu même de son acte de fondation, —
+dans cinquante ans, que m'importe? — telle de ces associations cultuelles évolue. Elle représente de façon authentique,— en vertu même de son acte de fondation, —
 les catholiques de l'endroit. Elle se divise sur une question de doctrine ou de discipline. Les choses en viennent à tel point qu'une scission est inévitable. Un
 procès s'ouvre à propos des biens possédés par l'assoJ ciation ou à propos de la jouissance de l'édifice. Que
 fera le tribunal?
@@ -602,7 +568,7 @@ les membres se disputent, qu'ils peuvent procéder à un
 
 partage des biens entre les deux fractions et se sépaL. rer, et que, si la minorité veut quitter l'édifice dont
 l'association a la jouissance, elle en est libre. Le tribu-
-À: nal ignore si la majorité a bien ou mal tourné au point
+nal ignore si la majorité a bien ou mal tourné au point
 
 de vue de l'orthodoxie. Et savez-vous pourquoi il s'évite
 : la peine d'un débat théologique? C'est précisément
@@ -618,20 +584,17 @@ posés en 1843; elle a prétendu être la seule héritière des
 fondateurs et elle a revendiqué pour elle les biens qui
 appartenaient à la collectivité. Le procès a été porté
 devant la Chambre des lords. Celle-ci ne s'est pas contentée d'examiner si l'Église libre actuelle était civilement
-la continuatrice de celle qui avait été fondée par Chal-
-mers. Elle s'est comportée en tribunal théologique et
+la continuatrice de celle qui avait été fondée par Chalmers. Elle s'est comportée en tribunal théologique et
 elle a jugé en faveur de la minorité « fidèle ». Cette
 décision a produit dans toute la Grande-Bretagne une
 sensation énorme et qui est loin de se calmer. Désire-t-on
 que nos tribunaux civils imitent la Chambre des lords?
-Non, il n'est pas vrai que l'histoire des idées s'arré-
-tera parce que, dans la loi de séparation, on n'aura
+Non, il n'est pas vrai que l'histoire des idées s'arrétera parce que, dans la loi de séparation, on n'aura
 pas feint d'ignorer que la hiérarchie existe dans le ca-
 . tholicisme. Et, d'autre part, je ne trouve rien à objecter
 à ce qu'un véritable homme d'État disait ces jours-ci
 devant moi: « De deux choses, l'une: ou l'on veut que
-la séparation soit votée, ou l'on veut qu'elle soit re-
-poussée. Dans le second cas, il n'y a qu'une chose à
+la séparation soit votée, ou l'on veut qu'elle soit repoussée. Dans le second cas, il n'y a qu'une chose à
 faire: inscrire dans la loi la possibilité des schismes. »
 Dans le premier cas, ajouterai-je, le devoir est clair:
 l'habileté politique se confond ici, comme très souvent,
@@ -641,25 +604,19 @@ Ce mot barbare de simultaneum suggère à d'excellents républicains, à beaucou
 les plus idylliques. Quoi de plus beau que de voir les
 représentants de religions trop aisément en guerre les
 unes contre les autres s'entendre pour l'usage commun
-des mêmes sanctuaires, s'en servir à des heures diffé-
-rentes, retirer de ces relations habituelles un enseignement de tolérance pratique? Et l'on se demande pourquoi la République ne profiterait pas des circonstances
-actuelles pour organiser, par les faits, cette leçon vi-
-
-vante de respect mutuel.
+des mêmes sanctuaires, s'en servir à des heures différentes, retirer de ces relations habituelles un enseignement de tolérance pratique? Et l'on se demande pourquoi la République ne profiterait pas des circonstances
+actuelles pour organiser, par les faits, cette leçon vivante de respect mutuel.
 
 La République disposer des édifices consacrés au
 culte, et qui appartiennent à l'État, aux départements
 et aux communes. Au lieu de les prêter, — ou louer, —
 aux seules Églises que nous connaissons aujourd'hui,
-ne devrait-elle pas les accorder à toutes les associations cultuelles, même les plus opposées, qui se crée-
-
-raient et qui en auraient, à des moments divers, la
+ne devrait-elle pas les accorder à toutes les associations cultuelles, même les plus opposées, qui se créeraient et qui en auraient, à des moments divers, la
 - jouissance? La question n'est pas posée dans ces
 termes devant le Parlement. Mais des publicistes et des
 hommes politiques ne manquent pas de dire et d'écrire,
 
-dès maintenant, que ce serait la solution la plus élé-
-gante et la plus libérale de bien des difficultés.
+dès maintenant, que ce serait la solution la plus élégante et la plus libérale de bien des difficultés.
 
 Certes, il ne me déplairait point de constater, chez les
 adhérents de doctrines adverses, un support ou plutôt
@@ -684,8 +641,7 @@ représente comme un effet et un signe de tolérance, il a
 Il a si peu réconcilié les gens auxquels on l'imposait
 qu'il a cessé partout où sa suppression a été matériellement possible. Ceci n'est pas de la théorie, mais de
 l'histoire. Pour être bref, je m'en tiendrai aux deux
-pays qui nous intéressent le plus, à l'Alsace et aux dé-
-pendances de l'ancien comté de Montbéliard.
+pays qui nous intéressent le plus, à l'Alsace et aux dépendances de l'ancien comté de Montbéliard.
 
 Le point de départ en est, pour l'Alsace, dans deux
 lettres écrites par Louvois, la première en 1684, et la
@@ -709,8 +665,7 @@ attribue l'établissement du simultaneum aux traités de Westphalie:
 deux siècles et demi d'existence. » Il y a une erreur historique.
 « Cette introduction du simultaneum, écrit M. Rodolphe Reuss, était
 
-en opposition avec le paragraphe 25 de l'article du traité d''Osnabrück, qui fixait le premier janvier 1624, comme date normale, dé-
-cidant de la propriété des édifices religieux, et nulle part, en cette
+en opposition avec le paragraphe 25 de l'article du traité d''Osnabrück, qui fixait le premier janvier 1624, comme date normale, décidant de la propriété des édifices religieux, et nulle part, en cette
 année 1624, il n'y avait de culte catholique dans les localités proteslantes, sauf en deux ou trois endroits, pour la raison péremptoire qu'il ne s'y trouvait point d'habitants catholiques. Quand,
 après la grande guerre, les ordonnances royales appelèrent les
 étrangers à cultiver les terres en friche, en donnant la préférence
@@ -721,17 +676,13 @@ nous sommes parvenus, un certain nombre de communautés
 protestantes, où l'on pouvait espérer former le noyau de fidèles
 
 E. nécessaire pour occuper, de par le règlement nouveau, l'église du
-village. De 1685 à 1687, l'activité du clergé fut donc particulière-
-
-tout les sept chefs de famille bien pensants. Quand on
+village. De 1685 à 1687, l'activité du clergé fut donc particulièretout les sept chefs de famille bien pensants. Quand on
 . n'arrivait pas à les découvrir, on les créait. « Dans les
 localités convoitées, écrit M. Rodolphe Reuss, l'on
 : créait des fidèles catholiques, à peu près comme on
-transporte, dans l'Amérique du Nord, de faux élec-
-teurs d'une circonscription à l'autre, afin de l'emporter
+transporte, dans l'Amérique du Nord, de faux électeurs d'une circonscription à l'autre, afin de l'emporter
 
-L'auteur de cet admirable monument de critique his-
-torique, qui s'appelle l'Alsace au dix-septième siècle, me
+L'auteur de cet admirable monument de critique historique, qui s'appelle l'Alsace au dix-septième siècle, me
 permettra de lui emprunter quelques exemples. « Voici,
 
 dit-il, quels sont les personnages qui amènent, en 1690,
@@ -798,8 +749,7 @@ citer un seul cas, depuis 1685 jusqu'à la Révolution, où
 les protestants disséminés dans les régions catholiques:
 aient trouvé dans les églises de leurs adversaires l''hospitalité que ceux-ci leur arrachaïent par la violence dans
 Voilà ce que fut la fondation du simultaneum en
-Alsace. Sauf exception insignifiante qu'il serait peut-
-être possible de découvrir, elle ne fut pas différente
+Alsace. Sauf exception insignifiante qu'il serait peutêtre possible de découvrir, elle ne fut pas différente
 ailleurs, notamment dans les petits pays qui dépendaient
 jadis de la principauté de Montbéliard. (2) Lorsque le
 Parlement de Besançon décida, en 1698, que la souveraineté du roi de France s'étendait sur les seigneuries
@@ -838,13 +788,11 @@ célébrée dans ce chœur ainsi conquis. Le simultaneum
 était installé.
 Dans la plupart des autres localités, dont toute la
 ! population, à part quelques étrangers, était luthérienne,
-ce fut plus simple encore: on supprima le culte héré-
-tique et on le remplaça, dans les temples, par la
+ce fut plus simple encore: on supprima le culte hérétique et on le remplaça, dans les temples, par la
 1 messe. (1) Ce fut le cas pour Chagey, dont le nom a été
 On n'avait pas poursuivi un autre but en Alsace. Après avoir
 1 raconté l'établissement du simultaneum, M. Rodolphe Reuss ajoute:
-« Ces procédés n'étaient que le prélude de violences plus caracté-
-risées. Une seconde lettre de Louvois à La Grange, datée de
+« Ces procédés n'étaient que le prélude de violences plus caractérisées. Une seconde lettre de Louvois à La Grange, datée de
 Versailles, 17 août 1686, posait un principe plus inique encore, et
 d'autant plus révoltant qu'il allait être appliqué clandestinement,
 pour ainsi dire, et sans qu'on osât le formuler tout haut: « Sa
@@ -870,8 +818,7 @@ Il ne faut pas être grand clerc pour le comprendre.
 
 Avec un tel régime, toute cérémonie ou réunion qui sort
 un peu de l'ordinaire est une occasion de difficultés. Si
-les protestants veulent profiter du passage d'un confé-
-rencier et lui offrir la chaire, les catholiques estiment
+les protestants veulent profiter du passage d'un conférencier et lui offrir la chaire, les catholiques estiment
 que c'est un abus. Si les catholiques veulent organiser,
 — comme c'est leur droit et leur devoir, avec leurs
 croyances, — l'adoration du Saint-Sacrement, les protestanis se déclarent dépossédés par ces cérémonies qui
@@ -881,8 +828,7 @@ sont inévitables.
 Après tout, il s'agit ici, non de psychologie relise fasse plus d'exercice de la religion luthérienne dans les lieux où
 il y aura les deux tiers des familles catholiques. » En organisant
 Pimmigration factice dans une localité, en y amenant... un certain
-nombre de conversions intéressées ou forcées, on pouvait doré-
-navant supprimer entièrement, au bout d'un temps plus ou moins
+nombre de conversions intéressées ou forcées, on pouvait dorénavant supprimer entièrement, au bout d'un temps plus ou moins
 long, le culte hérétique et priver de tout renfort spirituel les
 habitants restés fidèles à leur foi. » Op. cit., II, page
 
@@ -895,8 +841,7 @@ dans la même maison: ce serait le meïlleur moyen de
 les brouiller. Séparées, logeant chacune chez soi, évitant
 les froissements, elles arriveront plus tôt à se rendre
 . justice. Les Églises sont comme des familles susceptibles.
-Le simultaneum, c'est-à-dire la communauté des mé-
-nages, n'est pas pour elles un principe de paix. Il ne
+Le simultaneum, c'est-à-dire la communauté des ménages, n'est pas pour elles un principe de paix. Il ne
 pourrait l'être qu'à la condition de ne pas leur être
 imposé du dehors et d'être le résultat d'une entente
 {. ce n'est pas ce qui se produirait dans l'hypothèse
@@ -908,8 +853,7 @@ imposé du dehors et d'être le résultat d'une entente
 personnes; et elles seraient en droit de revendiquer,
 pour certaines heures, la jouissance de l'église commu-
 À nale. Ne trouverait-on pas aisément sept personnes
-pour jouer ce « bon tour » au curé? En vérité, l'établis-
-sement de ce simultaneum ressemblerait trop à celui
+pour jouer ce « bon tour » au curé? En vérité, l'établissement de ce simultaneum ressemblerait trop à celui
 d'autrefois. Il aurait un air de représailles ou tout au
 4 moins de taquinerie. Je suis rattaché par des liens trop
 chers à ceux qui ont souffert jadis de ces persécutions
@@ -925,8 +869,7 @@ amendements au projet de loi relatif à la séparation des
 Églises et de l'État. Un des plus importants est celui
 qui tend à corriger l'article 4 soumis à la Chambre. Aux
 termes de cette proposition, après la promulgation de la
-loi, les menses, fabriques, conseils presbytéraux, consistoires et autres établissements ecclésiastiques disparaî-
-tront en tant qu'établissements publics; leurs administrateurs leur substitueront, par une désignation expresse
+loi, les menses, fabriques, conseils presbytéraux, consistoires et autres établissements ecclésiastiques disparaîtront en tant qu'établissements publics; leurs administrateurs leur substitueront, par une désignation expresse
 faite à la préfecture ou à la sous-préfecture, une association formée pour l'exercice du culte. Celle-ci, en vertu
 de la désignation dont elle aura été l'objet, revêtira le
 caractère d'utilité publique, et elle recevra les biens
@@ -948,8 +891,7 @@ jusqu'à la veille de la Séparation, exercera dans l'intérêt des collectivit�
 y a ce souci des droits et des devoirs de l'État que
 personne ne saurait oublier.
 J'ajoute que, pour bien des signataires de l'amendement, cette préoccupation s'est doublée d'une pensée de
-loyauté vis-à-vis des Églises dont on opérera le « désé-
-tablissement ». Ils ont voulu, de toute leur énergie, que
+loyauté vis-à-vis des Églises dont on opérera le « désétablissement ». Ils ont voulu, de toute leur énergie, que
 la Séparation consistât uniquement à faire disparaître
 le statut officiel des cultes jusqu'ici reconnus et qu'elle
 ne pût pas être présentée aux populations, avec plus ou
@@ -962,9 +904,7 @@ soit le meilleur moyen de donner satisfaction au double
 et nécessaire souci de sauvegarder les droits de l'État
 et de respecter, au moment même de la Séparation, la
 constitution intime des Églises? J'avoue qu'il me reste
-encore des doutes sur ce point; et je demande la per-
-mission de dire ici, très librement, ce qui me les suggère. Les exprimer est, pour moi, une manière de pren-
-dre très au sérieux une idée ingénieuse, subtile, et qui
+encore des doutes sur ce point; et je demande la permission de dire ici, très librement, ce qui me les suggère. Les exprimer est, pour moi, une manière de prendre très au sérieux une idée ingénieuse, subtile, et qui
 mérite d'être étudiée de près.
 
 Il est bien certain qu'en remettant à des associations
@@ -985,8 +925,7 @@ seulement un caractère confessionnel, mais qui serait
 fondée en vue de propager des doctrines concernant la
 religion. Par application de cette même règle, dans un
 avis du 20 juin 1888, il avait refusé la reconnaissance à
-« Association évangélique du patronage de Montbé-
-liard » qui, tout en donnant aux orphelins pauvres une
+« Association évangélique du patronage de Montbéliard » qui, tout en donnant aux orphelins pauvres une
 instruction à la fois agricole et professionnelle, avait
 pour but principal de leur assurer une éducation religieuse.
 
@@ -1014,9 +953,7 @@ contrôle de l'État sur certaines associations cultuelles;
 ne risque-t-on pas, dans le système proposé, de donner
 à l'Église, dont on a peur, en outre de la liberté nécessaire, un privilège formidable?
 
-Ce n'est pas tout. Pourquoi des dissidences ne se pro-
-
-duiraient-elles pas? La loi n'a pas à les provoquer. Elle
+Ce n'est pas tout. Pourquoi des dissidences ne se produiraient-elles pas? La loi n'a pas à les provoquer. Elle
 n'a pas, non plus, à les empêcher. Sans se demander si
 cette hypothèse est vraisemblable ou non, il faut se faire
 à l'idée d'associations plus ou moins schismatiques qui
@@ -1028,8 +965,7 @@ traitement légal que les cultes antérieurement reconnus?
 Pourquoi ne réclameraient-elles pas la reconnaissance
 d'utilité publique? il est clair qu'elles ne l'obtiendront pas forcément.
 
-Si l'État accorde cette sorte d'investiture, sans di-
-stinction, à toutes les associations cultuelles qui la
+Si l'État accorde cette sorte d'investiture, sans distinction, à toutes les associations cultuelles qui la
 demanderont, quel singulier usage de ce privilège! S'il
 la refuse à telle ou telle, ne sera-t-il pas accusé de
 Ù prendre parti entre les diverses religions? La refuser
@@ -1046,19 +982,13 @@ Au fait, pourquoi nous engager dans les hypothèses?
 
 Il y dans le protestantisme, des Églises dissidentes.,
 
-Depuis plus d'un demi-siècle, avec un courage infati-
-
-gable, elles ont donné l'exemple de la Séparation. Si
+Depuis plus d'un demi-siècle, avec un courage infatigable, elles ont donné l'exemple de la Séparation. Si
 
 elles se mettent, dans le régime nouveau, à revendiquer
 
 la reconnaissance d'utilité publique, la leur accordera-
 
-t-on? Ne leur répondra-t-on pas qu'elles s'en sont pas-
-
-sées jusqu'ici pour vivre et qu'elles peuvent bien conti-
-
-nuer à s'en passer? Il y aurait donc d'un côté, des:
+t-on? Ne leur répondra-t-on pas qu'elles s'en sont passées jusqu'ici pour vivre et qu'elles peuvent bien continuer à s'en passer? Il y aurait donc d'un côté, des:
 
 Églises vraiment libres et, de l'autre, des Églises, sinon
 
@@ -1086,8 +1016,7 @@ sens, on la menace. Comment, dans un avenir qui peut
 composera-t-il son conseil d'administration? Les statuts
 modèles que le Conseil d'État impose exigent que ce
 
-conseil d'administration soit élu par l'assemblée géné-
-rale des membres de la société. Nous retombons dans
+conseil d'administration soit élu par l'assemblée générale des membres de la société. Nous retombons dans
 la difficulté que les évêques soulèvent à propos des
 associations cultuelles. Certainement, on peut modifier
 ces statuts. Mais alors, il faut voir où risque de conduire le souci de ne pas inquiéter la hiérarchie catholique.
@@ -1109,9 +1038,7 @@ Il est possible que mes scrupules soient exagérés. IL
 est possible-que toutes les difficultés signalées soient
 ! faciles à corriger. Je ne le vois pas pour l'instant, mais
 
-Le système de la commission n'est pas aussi défec-
-
-tueux qu'on se l'imagine. En ce qui concerne les droits
+Le système de la commission n'est pas aussi défectueux qu'on se l'imagine. En ce qui concerne les droits
 1 de l'État, il constitue un contrôle qui peut être exercé
 très sérieusement, et il frappe de pénalités très suffi-
 ï santes les fautes commises. Un régime répressif n'est-il
@@ -1143,13 +1070,10 @@ fabriques, conseils presbytéraux, consistoires et autres
 établissements publics des cultes, seront, avec toutes
 les charges et obligations qui les grèvent, attribués par
 les représentants légaux de ces établissements, et après
-avis de l'autorité ecclésiastique à laquelle ils ressortissaient, aux associations qui se seront légalement for-
-mées pour l'exercice du culte dans les anciennes circonscriptions desdits établissements et qui devront
+avis de l'autorité ecclésiastique à laquelle ils ressortissaient, aux associations qui se seront légalement formées pour l'exercice du culte dans les anciennes circonscriptions desdits établissements et qui devront
 compter au moins un dixième du chiffre total des per-
 
-; sonnes majeures domiciliées dans la commune et appar-
-
-tenant audit culte, ainsi que cela résultera des registres
+; sonnes majeures domiciliées dans la commune et appartenant audit culte, ainsi que cela résultera des registres
 
 paroissiaux (baptêmes, communions, inscription électorale religieuse, etc.). » Les mots soulignés sont ceux que
 M. Réville ajoute au texte du projet soumis à la
@@ -1213,8 +1137,7 @@ volonté. — Article 2: Tout établissement ecclésiastique
 reconnu par la loi pourra également, avec l'autorisation
 du gouvernement, acquérir des biens immeubles ou des
 rentes. — Article 3: Les immeubles ou rentes appartenant à un établissement ecclésiastique seront possédés
-à perpétuité par ledit établissement et seront inalié-
-nables à moins que l'aliénation n'en soit autorisée par
+à perpétuité par ledit établissement et seront inaliénables à moins que l'aliénation n'en soit autorisée par
 de le gouvernement. »
 Les mots: donnés, acquérir, appartenant, possédés,
 ne sauraient laisser aucun doute dans un esprit non
@@ -1240,8 +1163,7 @@ que la commission, voulant mettre les formules de
 Combes d'accord avec sa philosophie juridique, lui
 avait fait accepter une correction. Au lieu de « les biens
 appartenant aux... on avait écrit: « les biens ayant
-appartenu. » Si les fabriques et les conseils presbyté-
-raux n'avaient pas été propriétaires, Çç'aurait été le
+appartenu. » Si les fabriques et les conseils presbytéraux n'avaient pas été propriétaires, Çç'aurait été le
 moment de le dire. Or, on s'était contenté de remplacer
 un participe présent par un-participe passé.
 Ce n'est pas tout. M. Bienvenu-Martin, dans son projet, n'a pas hésité à se servir du mot « appartenant et
@@ -1265,8 +1187,7 @@ indéfinie, sans aucune menace de précarité, — du moins
 sans menace inscrite dans le texte. Et, pourtant, l'on
 n'était pas rassuré: est facile de distinguer pourquoi.
 ‘0% La délégation des gauches n'avait pas demandé que
-la propriété des biens fût contestée aux fabriques, con-
-seils presbytéraux, etc., mais tout simplement que
+la propriété des biens fût contestée aux fabriques, conseils presbytéraux, etc., mais tout simplement que
 la question de propriété ne fût pas tranchée. C'est ce
 4 qui a paru tout à fait inadmissible. Les biens dont il
 : s'agit ne sont pas sans maître. Ce maître, quel est-il?
@@ -1370,8 +1291,7 @@ Le 19 février dernier, dans un de ces libres entre-
 ; tiens où les membres et les amis de « Union pour l'action morale » discutent avec une belle hauteur de vues
 le problème de la séparation, quelques faits curieux
 étaient cités par M. Paul Errera. Les faits se sont
-passés en Belgique où la Constitution déclare formelle-
-ment en son article 16: « L'État n'a le droit d'interve4 nir ni dans la nomination, ni dans l'installation des
+passés en Belgique où la Constitution déclare formellement en son article 16: « L'État n'a le droit d'interve4 nir ni dans la nomination, ni dans l'installation des
 . ministres d'un culte quelconque. »
 Deux évêques catholiques de Tournai prétendaient
 4 l'un et l'autre être l'évêque légitime, et tous deux
@@ -1397,13 +1317,11 @@ l'évêque de Londres, puisque Spa relève du diocèse de
 
 aucun de ces cas, une « reconnaissance au sens légal
 du mot, d'un droit ecclésiastique quelconque. Le terme
-de « droit canon » nous effarouche. Nous avons peut-
-être l'affolement facile. Le tribunal applique le droit
+de « droit canon » nous effarouche. Nous avons peutêtre l'affolement facile. Le tribunal applique le droit
 ecclésiastique, non pas comme une loi proprement dite,
 mais comme il appliquerait les statuts d'une société
 entre membres de cette société. Je suppose une association de pêcheurs à la ligne. Elle exige que, pour être
-admis et pour profiter de certains avantages, ses adhé-
-rents ne se servent que d'une espèce déterminée d'asticots. C'est l'article essentiel du règlement. En cas de
+admis et pour profiter de certains avantages, ses adhérents ne se servent que d'une espèce déterminée d'asticots. C'est l'article essentiel du règlement. En cas de
 conflit, le tribunal invoquera cet article: irons-nous
 
 dire qu'il reconnaît et approuve cette façon particulière
@@ -1415,8 +1333,7 @@ l'Angleterre ne sont pas tenus en une si humble vassalité par la puissance roma
 un cruel émoi tant d'entre nous.
 Je suis obligé d'être bref; je me contenterai d'emprunter quelques indications précises à un recueil classique:
 (deuxième édition, 1903). On lit au tome XXIV, page
-336: « La profession de pasteur ou ministre d'une dé-
-nomination est tenue pour sujette aux lois de la dénomination, lesquelles font partie intégrante du contrat
+336: « La profession de pasteur ou ministre d'une dénomination est tenue pour sujette aux lois de la dénomination, lesquelles font partie intégrante du contrat
 impliqué dans sa nomination, tout comme si elles y
 étaient spécifiquement rappelées et inscrites, en sorte
 qu'il est soumis à révocation de la manière et pour les
@@ -1425,13 +1342,10 @@ ministre d'un culte et l'autorité dont il dépend, le tribunal se déclare inco
 doctrine, ou fait appliquer, s'il s'agit d'un point de discipline, les règles de l'Église intéressée.
 . On trouve encore dans ce recueil, au même tome, et
 à la page 358: « Une charte sera refusée à l'Église qui
-voudrait se faire incorporer sous un nom tellement sem-
-blable à celui d'une autre que confusion pourrait s'en-
-suivre. » Notons enfin, dans le même passage, ceci qui
+voudrait se faire incorporer sous un nom tellement semblable à celui d'une autre que confusion pourrait s'ensuivre. » Notons enfin, dans le même passage, ceci qui
 tranche la question controversée parmi nous: « Une
 
-Église organisée ne peut, tant qu'elle existe, être dé-
-pouillée de sa propriété même par la majorité de ses
+Église organisée ne peut, tant qu'elle existe, être dépouillée de sa propriété même par la majorité de ses
 membres entrant dans une organisation nouvelle, fûüt-ce
 avec le même nom; mais, au contraire, les membres
 qui se séparent et entrent dans l'organisation nouvelle
@@ -1459,8 +1373,7 @@ de l'article 4, il a fait distribuer plusieurs amendements
 aux articles 14, 16, 17 et 18, qui ont pour but de corriger ce qu'il y a de dangereux, à son sens, dans la concession faite au centre et à la droite. M. Buisson a mis
 
 dans ces rédactions nouvelles tout son souci de tenir;
-compte des complexités de la vie et sa volonté d'empêé-
-cher des injustices, Il est possible de discuter quelquesunes des solutions qu'il nous offre; mais il serait mal
+compte des complexités de la vie et sa volonté d'empêécher des injustices, Il est possible de discuter quelquesunes des solutions qu'il nous offre; mais il serait mal
 de ne! pas rendre hommage aux intentions qui les inspirent.
 
 Il y d'ailleurs, un point sur lequel, à moins de parti
@@ -1477,10 +1390,8 @@ dépasse la mesure de la modération permise. On a le
 droit d'être plus exigeant sans faire montre d'un jaco-
 
 Partant de cette idée, M. Buisson demande que,
-« pour être admise à la dévolution des biens des fa-
-briques ou des conseils presbytéraux et à la jouissance
-des édifices. une association déclarée pour l'exercice d'un culte « compte au moins le dixième des per-
-sonnes majeures habitant la circonscription et inscrites
+« pour être admise à la dévolution des biens des fabriques ou des conseils presbytéraux et à la jouissance
+des édifices. une association déclarée pour l'exercice d'un culte « compte au moins le dixième des personnes majeures habitant la circonscription et inscrites
 sur les registres paroissiaux ». C'est la règle indiquée
 par M. Marc Réville dans un amendement dont j'ai
 parlé. Elle est fort juste. M. Buisson ajoute que cette
@@ -1519,12 +1430,10 @@ dans un village, rompt avec l'évêque, si elle a un prêtre
 avec elle, si elle est en état d'assurer l'exercice du culte,
 je ne vois pas pourquoi elle garderait des biens qui
 
-seront plus justement attribués, selon la doctrine amé-
-ricaine et anglaise, à la minorité. Je ne vois pas, d'autre
+seront plus justement attribués, selon la doctrine américaine et anglaise, à la minorité. Je ne vois pas, d'autre
 part, pourquoi la commune serait astreinte à donner à
 une minorité peut-être infime l'usage d'un vaste édifice
-et le refuserait à la très grande majorité d'une asso-
-ciation qui a été considérée dès l'origine, et par la
+et le refuserait à la très grande majorité d'une association qui a été considérée dès l'origine, et par la
 hiérarchie elle-même, comme représentant l'ensemble
 des fidèles catholiques.
 Ces premières précautions, demandées par M. Buisson,
@@ -1535,8 +1444,7 @@ mêttre au clair. Ce sera pour un prochain article.
 
 A la suite de l'émoi causé par le vote de l'article 4 de
 la loi de séparation, M. Ferdinand Buisson a déposé,
-pour les articles 14, 16, 17 et 18, (1) plusieurs amendements du plus vif intérêt. Il y a l'effort le plus vigou-
-reux qui ait été fait pour serrer de près et pour résoudre
+pour les articles 14, 16, 17 et 18, (1) plusieurs amendements du plus vif intérêt. Il y a l'effort le plus vigoureux qui ait été fait pour serrer de près et pour résoudre
 une des plus grosses difficultés qui compliquent laréforme
 poursuivie. Si la solution présentée n'est pas tout à fait
 acceptable, c'est que le problème, tel qu'on le formule,
@@ -1563,8 +1471,7 @@ la séparation, appartenaient à ce culte et qui en feront
 la preuve dans les formes déterminées par les statuts.
 Cette clause, insérée par M. Buisson à l'article 17, (1)
 4 joue un rôle énorme dans ses autres amendements. À
-l'article 14, qui traite des litiges entre plusieurs asso-
-ciations concurrentes, le président de la commission
+l'article 14, qui traite des litiges entre plusieurs associations concurrentes, le président de la commission
 É demande que le tribunal ne puisse prononcer, pour des
 motifs d'ordre confessionnel, l'exclusion d'aucune des
 personnes qui établiront qu'avant la séparation elles
@@ -1629,12 +1536,10 @@ la liste n'est jamais close, mais c'est celle qui est arrêtée
 au 31 décembre qui sert pour les élections de l'année suivante. A la porte des temples est affiché, d'une façon
 ï permanente, l'avis indiquant quelles conditions civiles
 ; ou religieuses doivent être remplies par toute personne
-qui désire être inscrite. Il n'y a qu'à convoquer ces élec-
-teurs, et l'on aura la représentation la plus exacte
+qui désire être inscrite. Il n'y a qu'à convoquer ces électeurs, et l'on aura la représentation la plus exacte
 d'une paroisse réformée ou luthérienne.
 
-Les difficultés sont encore nulles pour le culte israé-
-lite. Le décret du 29 août 1862 s'exprime ainsi (articles
+Les difficultés sont encore nulles pour le culte israélite. Le décret du 29 août 1862 s'exprime ainsi (articles
 et 7): « La liste des électeurs est dressée par le consistoire départemental et arrêtée par le préfet. Dans
 chaque communauté, il est procédé, par les soins du
 
@@ -1677,8 +1582,7 @@ protestant, de m'associer à l'introduction légale de la
 cohue dans les sociétés cultuelles catholiques.
 
 Au fond, M. Buisson ne réclame pas cette invasion
-de l'Église par les anti-catholiques ou par les indifié-
-rents. On se trompe, quand on lui prête cette pensée.
+de l'Église par les anti-catholiques ou par les indifiérents. On se trompe, quand on lui prête cette pensée.
 
 À A la séance de « Union pour l'action morale » que
 j'ai rappelée, M. Vandervelde l'a interrompu par ce
@@ -1690,8 +1594,7 @@ a une feuille sur laquelle il est fait mention du culte
 catholique. Le libre-penseur avéré, celui qui se déclare
 opposé à toute espèce de culte, ne s'inscrira pas. » Un
 peu plus loin, il a l'air de dire que ceux qui se conduiraient autrement seraient de « malhonnêtes gens ».;
-, C'est la question. M. Buisson, que l'on accuse de pré-
-parer l'entrée en masse des impies dans les associations
+, C'est la question. M. Buisson, que l'on accuse de préparer l'entrée en masse des impies dans les associations
 cultuelles, ne croit pas à cette entrée; il la juge moralementimpossible. Et c'est ici qu'il a le tort de ne pas comprendre les craintes des catholiques les moins fanatiques.
 Il n'ést pas sûr du tout que, dans plus d'une localité,
 des paroïissiens hérétiques ou incrédules ne prendraient
@@ -1718,11 +1621,9 @@ faute, en cette affaire, revient à l'Église catholique. Elle
 proteste, quand on veut introduire dans les associations
 
 . cultuelles la multitude des baptisés. Mais c'est elle qui
-a proclamé, en toutes circonstances, que tous les indi-
-vidus ayant reçu le baptême lui « appartenaient ». C'est
+a proclamé, en toutes circonstances, que tous les individus ayant reçu le baptême lui « appartenaient ». C'est
 son dogme et c'est sa pratique. De ce principe enseigné
-par elle, elle a toujours déduit son droit direct d'éducation sur les enfants baptisés. En vertu du même principe, elle n'a pas craint de transformer ce droit d'éduca-
-tion en un droit d'enlèvement lorsque les parents de ces
+par elle, elle a toujours déduit son droit direct d'éducation sur les enfants baptisés. En vertu du même principe, elle n'a pas craint de transformer ce droit d'éducation en un droit d'enlèvement lorsque les parents de ces
 enfants n'étaient pas catholiques. Et ne s'est-elle pas
 abondamment permis, à l'occasion, de baptiser des
 enfants, à l'insu et sans le consentement de leurs parents
@@ -1776,11 +1677,9 @@ incroyants. Il y avait à choisir entre les deux procédés.
 11 n'y avait pas à les compliquer l'un par l'autre.
 
 Revenons toujours à la même question: que veut-on
-faire? On entend que les associations appelées à succé-
-der aux établissements publics des cultes soient sé-.
+faire? On entend que les associations appelées à succéder aux établissements publics des cultes soient sé-.
 rieuses et réelles; qu'elles ne soient pas constituées par
-une demi-douzaine de personnes à la dévotion de l'évé-
-que ou du curé; qu'elles ne consistent pas en de petits
+une demi-douzaine de personnes à la dévotion de l'évéque ou du curé; qu'elles ne consistent pas en de petits
 comités qui exproprieront de tous ses droïts la masse
 des catholiques. On ne désire ni plus ni moins. Or,
 tandis que le projet soumis à la Chambre n'impose à
@@ -1809,14 +1708,11 @@ que jamais que le législateur n'a point pour mission de
 les préparer ouvertement ou par des voies détournées.
 Mais, puisqu'on ne cesse d'en discuter, parlons-en. La
 question est de savoir si cet article 4 n'a pas mis les tribunaux civils « au service du dogme » et n'interdit pas
-en fait aux associations cultuelles catholiques toute ten-
-
-tative d'émancipation à l'égard des évêques et du pape.
+en fait aux associations cultuelles catholiques toute tentative d'émancipation à l'égard des évêques et du pape.
 
 Supposons que, dans un village, un prêtre aimé de
 ses paroissiens entre en discussion avec son évêque: Il
-est accusé d'avoir, en politique, des idées trop libé-
-rales ou de flirter avec l'hérésie. Il pourrait se servir,:
+est accusé d'avoir, en politique, des idées trop libérales ou de flirter avec l'hérésie. Il pourrait se servir,:
 pour sa défense, des armes que le droit canon met à sa
 disposition, que le Concordat lui avait enlevées, mais
 dont la séparation lui rendra l'usage. Au lieu de recourire à un procès régulier en cour de Rome, (et les exemples ne manquent pas de simples prêtres qui ont gagné
@@ -1876,8 +1772,7 @@ c'est un local dans lequel elle pût célébrer son culte. La
 voilà chassée de l'église dont elle avait la jouissance.
 Comment vivra-t-elle à la belle étoile? » Il me serait
 facile de répondre que c'est son affaire et qu'on n'entreprend pas un mouvement de ce genre quand on n'a pas
-résolu d'accepter des sacrifices. Mais j'évite cette ré-
-ponse qui aurait sa valeur, et je pose à mon tour cette
+résolu d'accepter des sacrifices. Mais j'évite cette réponse qui aurait sa valeur, et je pose à mon tour cette
 question: « Pourquoi supposer que, dans aucun cas,
 Vassociation schismatique ne devrait pas conserver la
 
@@ -1891,8 +1786,7 @@ les édifices du culte doivent être réservés au culte. Ils
 doivent l'être indéfiniment, sans que les fidèles aient à
 se demander tous les cinq ou dix ans, s'ils ne vont pas
 être chassés de leurs sanctuaires. Il serait fâcheux que
-Von prit l'habitude de voir ce sujet de querelle réappa-
-raître à chaque élection.
+Von prit l'habitude de voir ce sujet de querelle réapparaître à chaque élection.
 Mais pourquoi la commune serait-elle tenue de refuser
 À l'église qui lui appartient à la très grande majorité
 d'une association cultuelle qui se disloque? Cette assoh ciation s'est formée régulièrement. L'évêque a reconnu
@@ -2003,9 +1897,7 @@ toute association déclarée pour l'exercice du culte devra:
 
 1° Être constituée par une assemblée générale de fonda-
 
-; teurs convoquée par les représentants légaux des établisse-
-
-ments intéressés d'après le registre électoral de la paroisse
+; teurs convoquée par les représentants légaux des établissements intéressés d'après le registre électoral de la paroisse
 
 ou, en l'absence d'un tel registre, d'après une liste dressée
 
@@ -2048,9 +1940,7 @@ constatera si la liste des fondateurs à convoquer atteint
 réellement le quorum imposé par la loi. C'est un calcul
 d'arithmétique qui n'implique aucune prétention canonique. Et si cette condition est véritablement observée,
 si l'assemblée générale de fondateurs représente « le
-dixième des personnes majeures habitant la circonscription et inscrites sur les registres paroïissiaux l'asso66
-
-ciation qui sera formée n'aura rien de fictif; elle sera
+dixième des personnes majeures habitant la circonscription et inscrites sur les registres paroïissiaux l'association qui sera formée n'aura rien de fictif; elle sera
 sérieuse dès son origine.
 
 Cette assemblée, régulièrement convoquée, votera les
@@ -2079,8 +1969,7 @@ que l'association se sera constituée fonctionnera
 Si lassociation fondée d'après ces règles sait s'y
 prendre, il dépendra d'elle que l'article 4 de la loi soit
 d'une application aisée, et j'ajoute: d'une application
-qui ne serait en rien contraire aux idées les plus arré-
-téés de notre démocratie.
+qui ne serait en rien contraire aux idées les plus arrétéés de notre démocratie.
 
 Pour bien expliquer ma pensée, je reviens à un de ces
 
@@ -2092,9 +1981,7 @@ là-dessus: « C'est donc au pape qu'il faudra s'adresser
 pour savoir où sont les vrais catholiques? » Et la conversation continua de la sorte
 
 afin de prévenir les conflits et de donner aux tribunaux le:
-moyen de prononcer, aura le droit de définir dans ses sta-
-
-tuts le véritable catholique et de le définir par cette note
+moyen de prononcer, aura le droit de définir dans ses statuts le véritable catholique et de le définir par cette note
 
 caractéristique: le vrai catholique est celui qui vit en union
 
@@ -2121,9 +2008,7 @@ M. Buisson. — Les tribunaux feraient application de cet
 Supposons que l'amendement actuel de M. Buisson
 soit voté. Du coup il sera faux de prétendre que l'on a
 reconstitué, par l'article 4, des « biens d'Église des
-« biens de dogme ». On aura donné aux fidèles catho-
-
-liques les biens qui leur appartiennent. Ces catholiques
+« biens de dogme ». On aura donné aux fidèles catholiques les biens qui leur appartiennent. Ces catholiques
 seront groupés dans des associations organisées par
 eux et ayant des statuts. En cas de compétitions ou de
 conflits, on n'invoquera pas devant le tribunal le droit
@@ -2162,8 +2047,7 @@ Tout le mal provient d'une erreur de méthode. En
 suivant la logique abstraite, on a pensé qu'il fallait
 d'abord liquider l'ancien état de choses et, seulement
 après ce premier acte, traiter de l'institution du régime
-nouveau. Mais la réalité ne se modèle pas sur des sché-
-mas de ce genre. Il faut décider du sort de certains
+nouveau. Mais la réalité ne se modèle pas sur des schémas de ce genre. Il faut décider du sort de certains
 biens: comment décider quoi que ce soit avant de
 savoir ce que seront les associations cultuelles de
 demain? On n'est pas fixé sur la qualité des héritiers;
@@ -2227,8 +2111,7 @@ une moitié par le chef du diocèse et l'autre moitié par
 
 le préfet. il n'a pas fallu moins de neuf ans pour
 réaliser, dans un simple village, cette réforme antidémocratique. à
-En l'an XI, l'ancienne assemblée de paroisse fonc-
-tionne encore à Blancafort. Les archives de la fabrique
+En l'an XI, l'ancienne assemblée de paroisse fonctionne encore à Blancafort. Les archives de la fabrique
 contiennent ce curieux procès-verbal:
 Aujourd'hui dimanche 2 brumaire, l'an XI, en l'église de
 cette commune, à l'issue de la messe célébrée en la manière
@@ -2258,8 +2141,7 @@ l'invite à s'entendre avec le curé pour lui envoyer une
 double liste de trois candidats parmi lesquels il choisira
 les trois marguilliers chargés d'administrer les biens de!
 la fabrique dite extérieure, c'est-à-dire les biens non
-aliénés et qui avaient été rendus au culte. Le 15 octobre 1810, le sous-préfet se plaint que cette désignation n'ait pas encore été faite. Et ce n'est que le 3 fé-
-vrier 1811 qu'un procès-verbal annonce la constitution
+aliénés et qui avaient été rendus au culte. Le 15 octobre 1810, le sous-préfet se plaint que cette désignation n'ait pas encore été faite. Et ce n'est que le 3 février 1811 qu'un procès-verbal annonce la constitution
 définitive de la fabrique d'après les règles nouvelles.
 Les faits de ce genre n'ont certainement pas été rares
 au lendemain du Concordat. Il n'y aurait qu'à fouiller
@@ -2310,9 +2192,7 @@ Suisse ni dans le retour soudain à des coutumes que le
 . Concordat a supprimées chez nous. Elle est dans des
 ù mesures qui empêcheront de petits comités de sept per-
 : sonnes, des caricatures d'associations, de mettre la
-main sur les biens appartenant vraiment à la collecti95
-
-vité des fidèles, mais qui laisseront aux seuls catho- à
+main sur les biens appartenant vraiment à la collectivité des fidèles, mais qui laisseront aux seuls catho- à
 liques ce qui est destiné au culte catholique. Il faut
 trouver un moyen de reconstituer ce qui n'existe plus:
 la paroisse. Et il faut aussi que cette reconstitution n'ait
@@ -2330,8 +2210,7 @@ cultuelles. (r) Le législateur n'a qu'une chose à faire
 veiller à ce que les biens dévolus aïllent vraiment, non
 pas à une coterie de quelques meneurs cléricaux, mais;
 aux groupements réels de fidèles. Il le peut, sans se
-mêler de dire qui est catholique et qui ne l'est pas. Jus-
-qu'à plus ample informé, l'amendement rectifié, que
+mêler de dire qui est catholique et qui ne l'est pas. Jusqu'à plus ample informé, l'amendement rectifié, que
 M. Buisson propose pour l'article 17, me paraît tenir
 compte de ce double scrupule.
 
@@ -2501,10 +2380,8 @@ distingue trois: celui de M. Vigouroux, celui de
 M. Marc Réville, et celui qui a été signé par.
 La place me manque pour les examiner en détail. Tous
 répondent à des préoccupations très sérieuses et chacun.
-d'eux contient des parties excellentes. La critique essen-
-tielle qu'on dirigera contre plusieurs d'entre eux, c'est:
-qu'ils proposent des plans d'ensemble un peu trop diffé-
-rents de celui de la commission. Ceci n'est pas une
+d'eux contient des parties excellentes. La critique essentielle qu'on dirigera contre plusieurs d'entre eux, c'est:
+qu'ils proposent des plans d'ensemble un peu trop différents de celui de la commission. Ceci n'est pas une
 objection de fond; car un plan nouveau pourrait être
 très bon. Maïs le temps presse; on veut aboutir. Pour
 avoir des chances d'être écouté, mieux vaut introduire
@@ -2607,12 +2484,7 @@ de leurs deux facultés de théologie dans l'Université.
 
 Les réformés et les luthériens n'ont pas admis que leurs
 
-pasteurs fussent formés dans la serre chaude de sémi-
-
-naires. Ils ont voulu qu'ils fussent les élèves de l''Univer85
-
-sité, instruits en plein air, au milieu de tous les cou-
-rants scientifiques, mêlés aux étudiants de toutes les
+pasteurs fussent formés dans la serre chaude de séminaires. Ils ont voulu qu'ils fussent les élèves de l''Université, instruits en plein air, au milieu de tous les courants scientifiques, mêlés aux étudiants de toutes les
 facultés, forcés de conquérir des diplômes d'État. Des
 études entreprises dans ces conditions sont longues et
 coûteuses. Quand on parle des allocations à donner aux
@@ -2624,12 +2496,10 @@ politique, me préoccupe aussi. M. Georges Leygues
 avait parfaitement raison quand il soutenait, dans la
 séance du 21 avril dernier, que la séparation serait
 beaucoup plus lourde pour les campagnes que pour les
-villes. Il demandait très justement: « Dans les com-
-munes qui ont 400, 500, 1.000 âmes de population, dont
+villes. Il demandait très justement: « Dans les communes qui ont 400, 500, 1.000 âmes de population, dont
 le budget se solde ou en déficit ou juste au pair, dont
 le centime a une valeur qui varie entre 3 francs et
-25 francs, où une gelée tardive, un orage, une séche-
-resse prolongée mettent les habitants dans l'impossi- )
+25 francs, où une gelée tardive, un orage, une sécheresse prolongée mettent les habitants dans l'impossi- )
 bilité de payer l'impôt, que feront ces habitants? Comment s'y prendront-ils pour assurer l'exercice du
 A cette question M. Gabriel Deville a répondu
 « Par la fédération nationale! » C'est vrai, et c'est justement pour ce motif que je revendique le droit des
@@ -2671,8 +2541,7 @@ communes ». C'est très clair.
 
 La commission a distingué entre ceux de ces immeubles qui sont directement affectés au culte et ceux qui
 servent au logement de ses ministres. Dans cette.\
-seconde catégorie, elle a compris les séminaires catho-
-liques et les facultés de théologie protestante. Elle lui
+seconde catégorie, elle a compris les séminaires catholiques et les facultés de théologie protestante. Elle lui
 
 (1) Devenus les articles 12 et 13 du projet transmis au Sépat.
 
@@ -2712,8 +2581,7 @@ fait sur ce texte; et celui-ci a été adopté par 310 voix
 Après avoir relu cette discussion si calme et dans
 laquelle aucun propos vraiment sectaire n'a été tenu, je
 parcours une lettre que l'évêque de Moulins ‘vient
-d'adresser aux fidèles de son diocèse. Le prélat y pré-
-voit location des églises et cette seule pensée lui in-:
+d'adresser aux fidèles de son diocèse. Le prélat y prévoit location des églises et cette seule pensée lui in-:
 spire des accents belliqueux. Il écrit: À
 Dans la plupart des diocèses, sauf décision contraire du
 souverain pontife, les catholiques sont résolus à opposer
@@ -2746,9 +2614,7 @@ Parlement. Une arme a été brisée dans les mains
 d'hommes résolus à s'en servir contre la République.
 Le meilleur moyen de soulever des colères leur est ôté.:
 Quand les foules constateront que les églises ne sont
-pas enlevées à leur destination, quand elles compren-
-
-dront que l'usage leur en est laissé gratuitement et pour
+pas enlevées à leur destination, quand elles comprendront que l'usage leur en est laissé gratuitement et pour
 toujours, il sera plus que malaisé de les faire croire à
 une volonté persécutrice de l'État. Et il sera précieux
 qu'elles n'y croient pas.
@@ -2770,9 +2636,7 @@ très vivement combattue par quelques représentants de
 la majorité. Puis l'on s'est efforcé de transiger à l'aide
 de quelques distinctions. Finalement, toute décision
 
-Il paraît bien difficile que l'on arrête des prescriptions identiques pour des immeubles qui ont des desti-
-
-nations singulièrement différentes. La commission n'est
+Il paraît bien difficile que l'on arrête des prescriptions identiques pour des immeubles qui ont des destinations singulièrement différentes. La commission n'est
 
 pas disposée à concéder pour plus de deux ans la jouissance gratuite de ces palais que sont les évêéchés et les
 ; archevêchés. Mais, franchement, y at-il lieu de traiter
@@ -2828,8 +2692,7 @@ La commission vient de faire distribuer le texte À
 qu'elle a définitivement adopté pour l'article 18 (1) de »
 la loi de séparation. Elle maintient, pour les associations cultuelles, le droit de constituer des unions ayant Fi.
 une administration ou une direction centrale. Ces
-unions, pour avoir la capacité juridique, ne seront sou-
-mises à aucune limitation territoriale. Elles pourront
+unions, pour avoir la capacité juridique, ne seront soumises à aucune limitation territoriale. Elles pourront
 
 s'étendre sur la France entière. Il y a longtemps que la LA
 commission, avec un libéralisme auquel il faut rendre A
@@ -2848,15 +2711,12 @@ tantes. Il y a quelques semaines, le Synode général
 officieux des Églises réformées de France votait cet
 ordre du jour dont le dernier paragraphe doit être
 Le Synode général officieux des Églises réformées de
-Assuré que le Parlement respectera l'organisation presby-
-térienne et synodale qui a fait, par son principe démocratique et parlementaire, la force et l'honneur de l'Eglise
+Assuré que le Parlement respectera l'organisation presbytérienne et synodale qui a fait, par son principe démocratique et parlementaire, la force et l'honneur de l'Eglise
 réformée de France;
 Convaincu qu'il laissera aux associations cultuelles
-l'usage permanent des édifices consacrés au culte, leur per-
-mettra de constituer un fonds de réserve suffisant et saura
+l'usage permanent des édifices consacrés au culte, leur permettra de constituer un fonds de réserve suffisant et saura
 ; prendre d'équitables mesures à l'égard des ministres du!
 culte en exercice au moment de l'institution du nouveau
-régime;
 Conformément aux délibérations du Synode général ofiiciel de 1872 et du Synode général officieux de 1902;
 
 Qu'il est favorable à la séparation des Eglises et de l'Etat
@@ -2871,15 +2731,11 @@ degré injuste et oppressive.
 De même, à plusieurs reprises, le Synode général de
 l'Eglise de la confession d'Augsbourg, ou sa commis-
 À sion exécutive, a protesté contre la seule pensée de
-supprimer, dans le régime nouveau, l'union des asso-
-ciations. Le Synode général des « Eglises libres
+supprimer, dans le régime nouveau, l'union des associations. Le Synode général des « Eglises libres
 c'est-à-dire des Eglises séparées de l'Etat depuis 18/9,
-À ne se réunira que dans quelque temps. Mais il s'expri95
-
-mera, lui aussi, sur ce même point, avec la même
+À ne se réunira que dans quelque temps. Mais il s'exprimera, lui aussi, sur ce même point, avec la même
 ; énergie. Enfin des pétitions significatives ont été
-déposées à la Chambre. Elles sont unanimes à pré-
-senter cette revendication. Et il faut noter, — c'est vrai
+déposées à la Chambre. Elles sont unanimes à présenter cette revendication. Et il faut noter, — c'est vrai
 surtout pour celle de la Drôme, — que les signataires de
 ces documents sont tous électeurs et qu'ils appar- si
 tiennent en très grande majorité au parti radical et
@@ -2894,9 +2750,7 @@ populations. Je n'insiste pas. La Chambre suivra la
 Je sais bien ce que disent ceux qui ont peur de cette
 mesure libérale et qui essaieront peut-être de la combattre. Ils craignent que l'Église catholique ne constitue
 un « bloc » formidable contre la République, que les à
-associations cultuelles ne soient les bataillons de Far-
-mée cléricale et que l'unité de cette armée ne soit for-
-mée par l'union des associations. S'il devait en être de
+associations cultuelles ne soient les bataillons de Farmée cléricale et que l'unité de cette armée ne soit formée par l'union des associations. S'il devait en être de
 ainsi, le vrai péril viendrait, non pas de cette union à
 même, fût-elle nationale, mais du régime nouveau que
 nous sommes en train d'instituer et qui met à la base
@@ -2928,9 +2782,7 @@ fédérer en une vaste ligue, avec direction et caisse cenl trales, tous leurs g
 les fonds très riches échapperont à toute surveillance
 de l'État et qui interviendront énergiquement dans
 
-toutes les luttes électorales. Et, par dépit contre l'exer-
-
-cice de ce droit, on empêcherait les unions d'associations À
+toutes les luttes électorales. Et, par dépit contre l'exercice de ce droit, on empêcherait les unions d'associations À
 dont toute l'activité devra se borner à l'entretien du
 culte et dont toutes les ressources, au moins dans leur
 emploi, seront soigneusement contrôlées? Vraiment, il
@@ -2940,8 +2792,7 @@ ne serait pas digne d'hommes sérieux de se gendarmer
 contre un péril illusoire pour avoir l'air de « faire À
 quelque chose » contre le péril réel.
 
-Il faut accorder aux catholiques l'union des associa-
-tions pour deux raisons: d'abord parce qu'ils peuvent
+Il faut accorder aux catholiques l'union des associations pour deux raisons: d'abord parce qu'ils peuvent
 en avoir besoin pour procurer aux régions pauvres
 lassistance des régions plus fortunées; ensuite pour À
 qu'ils ne soient pas en droit de reprocher aux pouvoirs
@@ -2959,8 +2810,7 @@ ce qui risquerait de rappeler le gallicanisme l'inquiète. à
 L'histoire des conciles nationaux est instructive. Depuis
 l'assemblée de Bourges (1438), la France n'en a plus
 connu, du moins qui méritent ce nom. Celui de et
-l'essai de 1811 ne comptent pas. En 18/49, quelques pré-
-laits pensèrent qu'il conviendrait de confier à un concile
+l'essai de 1811 ne comptent pas. En 18/49, quelques prélaits pensèrent qu'il conviendrait de confier à un concile
 national la solution des questions qui étaient constamment agitées par de simples journalistes, — lesquels
 étaient, il est vrai, très ultramontains. Ils rédigèrent un
 mémoire où tous les points controversés étaient traités
@@ -2999,8 +2849,7 @@ LA associations cultuelles doit rassurer les républicains
 qui hésitent à permettre l'union de ces mêmes associa
 On peut en être certain: tandis que Rome n'autorisera
 jamais ce qui risquerait d'avoir un petit air de gallicanisme, jamais l'épiscopat ne permettra la formation d'un
-corps administratif et directeur dans la dépendance du-
-quel il serait exposé à tomber un jour ou l'autre. L'union
+corps administratif et directeur dans la dépendance duquel il serait exposé à tomber un jour ou l'autre. L'union
 des associations cultuelles catholiques, à moins d'avoir )
 des attributions très limitées, favoriserait beaucoup
 l'influence des laïques. Certains laïques la demandent
@@ -3009,9 +2858,7 @@ les évêques y tiennent peu. Qui sait si l'on verra jamais #4
 cette fédération générale dont quelques républicains
 s'effraient tant? Si nous la voyons, elle sera réduite par À
 la hiérarchie à des tâches modestes et bien précisées.
-L'union des associations cultuelles catholiques ne sau-
-rait être une menace pour la République. Il serait ab-
-surde, pour parer à un péril imaginaire, de briser et de
+L'union des associations cultuelles catholiques ne saurait être une menace pour la République. Il serait absurde, pour parer à un péril imaginaire, de briser et de
 décapiter l'organisation démocratique et parlementaire
 d'autres Églises. La Chambre ne le fera pas..
 
@@ -3034,18 +2881,15 @@ Le meilleur moyen de réduire au silence nécessaire
 ces surveillants bénévoles de l'Église, c'est de mettre
 dans la loi tout ce qui est indispensable; c'est de rendre
 
-inutile et inexcusable, par l'action judiciaire, l'interven-
-tion de certaines personnes qui, sous prétexte de devoir -
+inutile et inexcusable, par l'action judiciaire, l'intervention de certaines personnes qui, sous prétexte de devoir -
 civique, feraient peut-être du tapage une profession. IL
 faut qu'on puisse répondre à des fanatiques: « Le tribunal est chargé de réprimer ce qui doit être réprimé;
 vous n'avez pas à vous substituer à la justice du pays. » à
-Ainsi, même les articles menaçants, ceux qui pro-
-mettent des pénalités aux associations téméraires et aux à
+Ainsi, même les articles menaçants, ceux qui promettent des pénalités aux associations téméraires et aux à
 prédicateurs tumultueux, protègent indirectement la de
 liberté de la religion. D'autres tendent au même but par
 des mesures plus positives. C'est celui qui punit tous les
-individus coupables d'avoir « empêché, retardé ou inter-
-rompu les exercices d'um culte par des troubles ou À
+individus coupables d'avoir « empêché, retardé ou interrompu les exercices d'um culte par des troubles ou À
 désordres causés dans le local servant à ces exercices ». À
 C'est celui qui vise les actes de pression pour empêcher
 une personne de pratiquer un culte ou de contribuer à Fses frais.
@@ -3067,8 +2911,7 @@ là. On à fait allusion, dans une des dernières séances,
 à la difficulté que les associations cultuelles auront
 ; peut-être à se former. Cette difliculté sera très grande
 : si trop de menaces sont dirigées contre les personnes
-appelées à constituer, diriger ou administrer ces asso-
-ciations. Elle n'arrêtera pas les gens qui ne rêvent que
+appelées à constituer, diriger ou administrer ces associations. Elle n'arrêtera pas les gens qui ne rêvent que
 . plaies et bosses et qui comparaîtraient volontiers devant
 les tribunaux pour le plaisir de « manifester ». Mais elle
 en écartera d'autres qui n'ont que des sentiments très
@@ -3080,9 +2923,7 @@ principe de la loi.
 Le premier paragraphe de l'article 33 (1) est ainsi
 rédigé: « Dans le cas de condamnation par les tribunaux de simple police ou de police correctionnelle en
 application des articles 23 et 24, 31 et 32, (2) l'association déclarée pour l'exercice du culte dans l'immeuble
-où l'infraction a été commise et ses directeurs et admi-
-
-nistrateurs sont civilement et solidairement responsables. » Deux corrections sont à désirer.
+où l'infraction a été commise et ses directeurs et administrateurs sont civilement et solidairement responsables. » Deux corrections sont à désirer.
 
 L'une d'elles consisterait à biffer les mots: « ses
 directeurs et administrateurs ». L'intention de tout
@@ -3095,15 +2936,12 @@ moyen de réfréner des passions facilement excitables.
 À (1) Devenu l'article 36 du projet transmis au Sénat.
 
 Mais il suffit de viser l'association elle-même etnonpas
-ses directeurs et administrateurs. C'est ce qu'avait com-
-pris la commission quand elle a rédigé son projet pri-
-mitif. Elle serait bien inspirée en ramenant le gouvernement et en revenant elle-même à sa première idée. (1).
+ses directeurs et administrateurs. C'est ce qu'avait compris la commission quand elle a rédigé son projet primitif. Elle serait bien inspirée en ramenant le gouvernement et en revenant elle-même à sa première idée. (1).
 
 Une seconde et indispensable correction consisterait
 à admettre que la responsabilité de l'association ne de
 serait pas proclamée de plano dans tous les cas. Tous LA
-les débats ont montré avec quel soin jaloux la hiérar-
-chie catholique interdira aux laïques de prétendre à
+les débats ont montré avec quel soin jaloux la hiérarchie catholique interdira aux laïques de prétendre à
 une direction quelconque des affaires religieuses. à
 Plaçons-nous dans l'hypothèse d'un sermon outrageant
 le président de la République, invitant les fidèles à
@@ -3135,8 +2973,7 @@ Enfin, une autre mesure traduirait bien cette volonté
 de bienveillance et de justice. L'article 34 (2) est ainsi
 conçu: « L'article 463 du Code pénal est applicable à
 tous les cas dans lesquels la présente loi édicte des
-pénalités. » C'est l'admission des circonstances atté-
-nuantes. Pourquoi ne pas ajouter que la loi de sursis,
+pénalités. » C'est l'admission des circonstances atténuantes. Pourquoi ne pas ajouter que la loi de sursis,
 la loi Bérenger, est également applicable à tous ces
 
 Voilà quelques changements ou adjonctions qui n'atteindraient pas le principe de la police des cultes. Ils
@@ -3173,8 +3010,7 @@ l'obtention d'une pension, il leur donne une indemnité
 décroissante pendant quatre ans. Après ce délai, il ne À
 les connaît plus, il se déclare libre de tout engagement
 à leur égard. Cette question est vidée. Ne pourrait-on
-pas, cependant, dans certains cas déterminés et inté-
-ressants, fournir à ces mêmes hommes une aide qui
+pas, cependant, dans certains cas déterminés et intéressants, fournir à ces mêmes hommes une aide qui
 - n'auraït rien de commun avec une subvention officielle?
 Il est probable que la plupart des ministres du culte,
 après quatre ans, se trouveront soutenus par des associations. Mais il n'est pas probable que tous le seront.
@@ -3185,8 +3021,7 @@ même état où il est aujourd'hui. Ici et là, des postes
 disparaîtront, au moins momentanément. Il y aura des
 hommes absoiument sans fortune qui seront obligés de
 chercher un gagne-pain.
-L'État leur promet une indemnité qui leur sera pré-
-cieuse pendant ce temps des recherches difficiles. Il est
+L'État leur promet une indemnité qui leur sera précieuse pendant ce temps des recherches difficiles. Il est
 de son devoir de faire un peu plus, sans bourse délier.
 Parmi les hommes dont j'ai parlé, certains voudront
 bien entreprendre ou compléter des études de droit, de
@@ -3252,8 +3087,7 @@ le fait du législateur lui-même. Faut-il qu'elle soit purement et simplement s
 d'après les lois en vigueur et non d'après celles que
 nul, à l'avance, ne pouvait connaître?
 
-Voilà des jeunes gens qui ont vingt-quatre ou vingtcinq ans. Les uns sont entrés dans le ministère ecclé-
-siastique. Les autres vont y entrer. Parlons d'abord des
+Voilà des jeunes gens qui ont vingt-quatre ou vingtcinq ans. Les uns sont entrés dans le ministère ecclésiastique. Les autres vont y entrer. Parlons d'abord des
 premiers. L'an prochain, à l'heure précise où ils devront
 fournir le certificat obligatoire, l'établissement public
 du culte aura vécu. Faudra:t-il qu'ils rejoignent leurs
@@ -3269,21 +3103,18 @@ Les seconds sont seulement à la veille d'entrer dans
 le ministère. Mais ce n'est pas d'aujourd'hui qu'ils ont
 décidé de donner à leur vie cette orientation. Ils ont
 
-ans, ils ont poursuivi des études dans un but déter-
-miné. Ils n'ont pas de postes officiels et ils ne pourront
+ans, ils ont poursuivi des études dans un but déterminé. Ils n'ont pas de postes officiels et ils ne pourront
 pas en avoir. Est-ce leur faute si, au moment précis de y
 débuter dans leurs fonctions, l'emploi est supprimé?
 
-Rien ne prouve qu'un jeune homme, dans cette situa-
-tion, ne pas être forcé de s'engager dans une voie
+Rien ne prouve qu'un jeune homme, dans cette situation, ne pas être forcé de s'engager dans une voie
 toute nouvelle. Il y a des chances pour que les associa- LA
 tions cultuelles commencent par s'assurer les services
 de ministres actuellement en exercice et fassent un peu
 attendre les jeunes, ceux qui étaient sur le point d'être
 occupés. Si ceux-ci sont contraints, à vingt-six aps, de Le]
 se mettre en quête d'un métier et de se former en vue
-de ce métier, est-il juste que les pouvoirs publics inter-
-viennent alors et leur disent: « Commencez par passer
+de ce métier, est-il juste que les pouvoirs publics interviennent alors et leur disent: « Commencez par passer
 une ou deux autres années à la caserne
 
 Dans sa dernière session (16 mai 1905), le Synode
@@ -3357,8 +3188,7 @@ des fidèles; et les directeurs et administrateurs seront
 aux paroisses ainsi réorganisées ce que les conseillers
 
 municipaux sont aux communes: ce sera le cas de
-toutes les associations protestantes. Pour les associations de la première catégorie, la loi est sans inconvé-
-nients; pour celles de la seconde, elle semble impossible
+toutes les associations protestantes. Pour les associations de la première catégorie, la loi est sans inconvénients; pour celles de la seconde, elle semble impossible
 
 Voici ce que m'écrit, à ce sujet, un juriste très avisé,
 et surtout d'une rare compétence en matières ecclésiastiques:
@@ -3415,8 +3245,7 @@ associations restreintes. Le conseil presbytéral deviendra l'association et se 
 
 « Remarquez que le paragraphe de l'article 17 que je
 (article 18). De sorte que, dans l'Église réformée, tous
-les actes de gestion et d'administration de la Com-
-mission permanente du Synode seront soumis à l'approbation des associations groupées pour former l'union
+les actes de gestion et d'administration de la Commission permanente du Synode seront soumis à l'approbation des associations groupées pour former l'union
 générale. Si ces formalités n'étaient pas remplies, une
 amende de 16 à 200 francs, et en cas de récidive une
 
@@ -3436,26 +3265,21 @@ propos du texte primitif. Je les cite:
 « M. Ribot me paraît avoir interprété cette disposition d'une façon un peu excessive, quand il a dit qu'elle
 avait pour but de mettre sur un pied d'égalité, au point
 de vue de l'administration des biens, tous les membres -
-de l'association. Le texte n'a pas ce sens: il veut sim-
-plement dire que l'assemblée générale ne pourra pas
+de l'association. Le texte n'a pas ce sens: il veut simplement dire que l'assemblée générale ne pourra pas
 être tenue en dehors de l'administration des biens. Dans
 la pratique actuelle de toutes les associations, est-ce
 que l'assemblée générale n'est pas appelée à prendre
 certaines délibérations sur les actes du conseil d'administration, à se prononcer sur le compte de gestion qui
-lui est soumis, à l'approuver ou à le rejeter? Par consé-
-quent, elle participe dans une certaine mesure à l'administration des biens. »
+lui est soumis, à l'approuver ou à le rejeter? Par conséquent, elle participe dans une certaine mesure à l'administration des biens. »
 
 Je suis convaincu que la rédaction votée par la
 Chambre ne signifie pas autre chose. (2) Il serait
 
 (2) Le juriste, dont je cite plus haut l'opinion, a refusé de partager
 ma conviction. Après la publication de mon article, il m'a écrit:
-« Ce passage de la réponse du Ministre des Cultes aux observa-
-
-absurde d'acculer des Églises d'organisation démocratique à l'alternative suivante: ou bien substituer, dans nil
+« Ce passage de la réponse du Ministre des Cultes aux observaabsurde d'acculer des Églises d'organisation démocratique à l'alternative suivante: ou bien substituer, dans nil
 tous les cas de gestion, à leur régime représentatif et
-parlementaire les ennuis et les impossibilités du gou-
-vernement direct, — ou bien renoncer à leur organisa- LA
+parlementaire les ennuis et les impossibilités du gouvernement direct, — ou bien renoncer à leur organisa- LA
 2 -
 tion démocratique. On peut être sûr que ces Eglises
 w'accepteraient ni l'un ni l'autre des termes de cette
@@ -3476,7 +3300,7 @@ pas seulement d'exclure l'assemblée générale de l'administration
 des biens; il exige en outre qu'elle statue sur tous les actes de gestion et il décide que son approbation est requise. Le commentaire (
 de M. Bienvenu-Martin ne peut plus s'appliquer à la rédaction
 votée par la Chambre et il n'est point possible de s'appuyer sur
-cette réponse pour commenter la disposition que nous critiquons. »;
+cette réponse pour commenter la disposition que nous critiquons.
 — Je persiste à croire et à dire que la déclaration du ministre a son
 importance dans le débat. Je sais bien qu'elle ne s'applique pas
 directement à un texte voté quatre jours plus tard; mais j'affirme
@@ -3485,9 +3309,7 @@ accord avec les paroles du ministre. C'est M. Gayraud qui a soulevé
 la question dans la séance du 19 juin. Il a rappelé les affirmations
 de M. Bienvenu-Martin; puis, prenant le texte de la commission, ce
 texte que mon correspondant trouve meilleur, il a ajouté:
-« Veuillez donc, messieurs, lire le texte du paragraphe en question; vous verrez qu'il ne présente pas tout d'abord le sens res-
-
-amendement qui ne soulèverait point de difficultés et
+« Veuillez donc, messieurs, lire le texte du paragraphe en question; vous verrez qu'il ne présente pas tout d'abord le sens resamendement qui ne soulèverait point de difficultés et
 qui serait en entière harmonie avec le reste de l'article.
 D'après cette disposition nouvelle, l'association pourrait déléguer ses pouvoirs de contrôle et son droit d'approbation des actes de gestion à un comité directeur
 dont les membres seraient élus par elle et qui se composerait du nombre minimum fixé par la loi pour lassociation tout entière. Elle conserverait la ressource de ne
@@ -3520,16 +3342,13 @@ Là-dessus, M. Cruppi a proposé sa rédaction qui, selon le président de la Ch
 le monde et qui, par conséquent, était daccord avec la doctrine
 À du ministre. La conviction de tous était telle que lPamendement a
 - été voté à mains levées. Il n'en demeure pas moins qu'un texte,
-proposé et voté dans une excellente intention, peut devenir dan-
-
-gereux sil prête, dans sa lettre, à un contre-sens. Il est de toute
+proposé et voté dans une excellente intention, peut devenir dangereux sil prête, dans sa lettre, à un contre-sens. Il est de toute
 nécessité que ce danger soil écarté par le Sénat.
 
 des associations extrêmement restreintes qui se substi- 7 )
 tueront aux paroisses et agiront à leur place. Avec elle, #8
 ils peuvent essayer d'une organisation plus souple, plus
-large, et créer des associations représentant la collecti-
-vité des fidèles. Je ne dis pas qu'ils le feront. Mais
+large, et créer des associations représentant la collectivité des fidèles. Je ne dis pas qu'ils le feront. Mais
 je trouverais impardonnable que la loi les en empéchât.
 
 Plaçons-nous dans l'hypothèse où, pour assurer la pro- À
@@ -3542,8 +3361,7 @@ serait une déclaration du gouvernement interprétant ce
 raison et à la justice et promettant de l'interpréter ainsi
 dans le règlement d'administration publique. Une jurisprudence serait vite établie et tous les intérêts seraient
 
-Voilà donc une première difficulté qui n'est pas insur-
-montable. Les autres ne le sont pas davantage.
+Voilà donc une première difficulté qui n'est pas insurmontable. Les autres ne le sont pas davantage.
 
 La loi de séparation s'ouvre par une déclaration
 assure la liberté de conscience. Elle garantit le libre
@@ -3569,8 +3387,7 @@ et hypocrite. Ceux qui le font n'ont pas toujours l'air
 bien convaincu. Moi, je demande, tout simplement, un:
 peu plus de lumière. À
 
-Je ne vois pas très bien, en effet, comment la déclara-
-tion de l'article premier et comment l'abrogation des
+Je ne vois pas très bien, en effet, comment la déclaration de l'article premier et comment l'abrogation des
 mesures restrictives de la liberté des cultes peut s'accorder avec une ou deux des règles imposées aux associations cultuelles.
 
 La loi du premier juillet 1901 admet trois catégories
@@ -3586,8 +3403,7 @@ l'héritage des établissements ecclésiastiques actuels.
 Leur système a été écarté. Je crois que c'est avec raison.
 Mais ce qui me paraît très grave, c'est que les associations du premier type soient également exclues..
 
-Trois amendements avaient été présentés, qui pré-
-voyaient et maintenaient ce genre d'associations: l'un
+Trois amendements avaient été présentés, qui prévoyaient et maintenaient ce genre d'associations: l'un
 était du président de la commission, un autre de
 M. Georges Grosjean, un autre de MM. Réveillaud,
 Muteau et Sarrazin. Tous trois ont été retirés en séance. à
@@ -3618,9 +3434,7 @@ a cru devoir parler en faveur des cultes futurs. Il lui a
 
 paru que ceux-ci, et non pas les cultes existants, étaient
 intéressés par sa réclamation. les cultes futurs
-n'étaient pas capables, à ce moment-là, de retenir l'at-
-
-tention du législateur; et ils ont empêché de voir toute
+n'étaient pas capables, à ce moment-là, de retenir l'attention du législateur; et ils ont empêché de voir toute
 l'utilité présente qu'avait la demande de M. Vazeille. (2)
 
 (1) Je rappelle une fois de plus que les articles 16 et 17 sont devenus, dans le nouveau numérotage, les articles 18 et
@@ -3643,8 +3457,7 @@ M. le rapporteur a répondu que l'article en question k::
 ne s'appliquait « qu'à l'exercice public du culte en
 Franee ». Et il a ajouté: « Mais s'il convient à deux ou
 trois personnes de s'associer pour pratiquer entre elles
-un culte quelconque, elles en ont le droit. C'est seule-
-ment au cas où elles désireraient étendre leur culte au
+un culte quelconque, elles en ont le droit. C'est seulement au cas où elles désireraient étendre leur culte au
 public qu'elles devraient se constituer en associations
 conformes aux prescriptions de l'article 17. » Personne
 n'a insisté, et l'article 16 a été voté sans qu'on y introduisît la moindre réserve en faveur des associations de
@@ -3657,8 +3470,7 @@ V'Etat et qui se contenteraient du régime de la loi de 19071 devraient
 être laissées complètement libres de s'organiser comme elles
 l'entendraient.
 
-« M. JaurËs. — Vous envisagez des associations cultuelles renon-
-çant non seulement aux biens des fabriques, mais aux édifices religieux?
+« M. JaurËs. — Vous envisagez des associations cultuelles renonçant non seulement aux biens des fabriques, mais aux édifices religieux?
 
 « M. KLEIN. — Je pense aux paroisses et aux associations cultuelles qui, dans l'avenir, se créeront complètement à neuf. Pourquoi souffriraient-elles de dispositions qui n'ont pas été prises
 pour elles?
@@ -3682,8 +3494,7 @@ dans ce cas. Ces hérétiques tiennent à la célébration de
 leur culte. C'est leur droit. Ils veulent en outre que leurs
 coreligionnaires, passant par leur ville ou venant s'y;
 installer, trouvent aisément le chemin de leur temple et
-surtout qu'ils ne se heurtent pas contre une porte fer- « mée. C'est encore leur droit. Ils veulent enfin que qui-
-conque se sentira d'accord avec leurs principes puisse;
+surtout qu'ils ne se heurtent pas contre une porte fer- « mée. C'est encore leur droit. Ils veulent enfin que quiconque se sentira d'accord avec leurs principes puisse;
 entrer parmi eux; et, pour cela, ils ont besoin que leurs
 assemblées soient ouvertes. C'est leur droit.
 
@@ -3745,9 +3556,7 @@ vements ne se produisent pas nécessairement par À
 grandes masses. Dans telle paroisse, ce seront trois,
 quatre, cinq personnes qui se détacheront de la collectivité, qui voudront organiser leur culte à part, qui se
 
-mettront en tête de créer ce que M. Yves Guyot nom-
-
-mait la « concurrence religieuse ». Que leur faut-il? La
+mettront en tête de créer ce que M. Yves Guyot nommait la « concurrence religieuse ». Que leur faut-il? La
 
 capacité juridique? Ils n'en ont que faire. Pourvu
 qu'ils aient une salle et quelques douzaiïnes de chaises,
@@ -3756,8 +3565,7 @@ ils sont en état de commencer et de poursuivre leur
 
 Ce n'est pas, assurément, ce que le législateur a
 voulu. Mais c'est ce qu'il a fait sans le vouloir. Et son
-acte risquerait, s'il n'était corrigé, d'avoir une consé-
-quence extraordinaire. Avant l'abrogation de l'article
+acte risquerait, s'il n'était corrigé, d'avoir une conséquence extraordinaire. Avant l'abrogation de l'article
 291 du Code pénal, les associations de moins de vingt
 personnes étaient libres, sous la réserve de l'article
 Sous le régime de la séparation, la liberté serait-elle
@@ -3790,8 +3598,7 @@ loi, il suffit de s'inspirer des intentions qu'elle a essayé
 de réaliser.
 Je voudrais résumer aujourd'hui les vœux qu'adressent au Sénat les hommes les plus favorables à la séparation, mais qui, très au courant des réalités quotidiennes dans un domaine très spécial, savent à quelles
 conditions la réforme s'accomplira sans des frottements:
-pénibles et dangereux, à quelles conditions, sans man-
-quer aux principes essentiels d'une société laïque, on
+pénibles et dangereux, à quelles conditions, sans manquer aux principes essentiels d'une société laïque, on
 coupera court aux récriminations injustes des ennemis
 de la République et donnera satisfaction aux désirs
 légitimes d'autres citoyens qui ont servi toujours et avec
@@ -3908,8 +3715,7 @@ cas de bien des pasteurs protestants qui, avant d'être
 titulaires, ont été auxiliaires et qui, dans cette qualité,
 sans recevoir leur traitement de l'État, ont être
 agréés par le ministère des cultes et autorisés par
-celui-ci à siéger au conseil presbytéral ou au consis-
-toire avec voix consultative. Ils sont si peu ignorés de
+celui-ci à siéger au conseil presbytéral ou au consistoire avec voix consultative. Ils sont si peu ignorés de
 l'État que celui-ci contribue, par une allocation de
 500 francs, à la formation de leur fonds de retraite. On
 proposera d'augmenter le taux des pensions. La me-!
@@ -3943,8 +3749,7 @@ peuvent pas se constituer librement, et d'après la loi de
 (r) Devenu l'article
 (2) Devenu l'article
 
-tré des députés fort étonnés d'avoir voté cette interdic-
-tion. Ils ne l'avaient pas distinguée derrière le texte
+tré des députés fort étonnés d'avoir voté cette interdiction. Ils ne l'avaient pas distinguée derrière le texte
 adopté. La correction de la loi s'impose donc sur ce point.
 
 L'article 17 (1) porte sur les associations cultuelles. Je
@@ -4012,11 +3817,7 @@ leur capital, puis ils essaieront de le reconstituer. Je ne
 
 vois pas en quoi la société laïque serait menacée si les
 
-associations cultuelles possédaient des valeurs mobi-
-
-lières dont le revenu à 3 o/o égalerait le tiers, — j'aban-
-
-donne la moitié, — de leur budget de dépenses.
+associations cultuelles possédaient des valeurs mobilières dont le revenu à 3 o/o égalerait le tiers, — j'abandonne la moitié, — de leur budget de dépenses.
 
 l'oreille: « Pourquoi donc réclamer tout cela? N'est-il pas
 évident que, si quelqu'un veut faire une donation à une
@@ -4028,29 +3829,24 @@ réserve permise serait atteint? » Eh! certainement, je n'ai
 aucun doute sur ces points. Mais c'estpourquoi je réclame.
 
 J'estime que la loi républicaine doit toujours avoir;
-une valeur pédagogique et morale. Une loi qui invite à:
+une valeur pédagogique et morale. Une loi qui invite
 chercher des subterfuges, c'est-à-dire à mentir, est une
 loi mauvaise. Elle est elle-même un mensonge. On sait,
 en effet, qu'elle sera tournée. Mais on a fait un geste
 devant les badauds. On leur a donné l'illusion de mesures dont on souligne la sévérité, mais en s'avouant à
-soi-même qu'elles seront éludées.… Je suis de ces répu-
-blicains naïfs qui ont une autre conception de la loi.
+soi-même qu'elles seront éludées.… Je suis de ces républicains naïfs qui ont une autre conception de la loi.
 
 Voilà, résumé, le « cahier des vœux » des hommes qui,
-prenant très au sérieux l'œuvre de la Chambre, de-
-mandent au Sénat de ne point la remanier à fond, mais
+prenant très au sérieux l'œuvre de la Chambre, demandent au Sénat de ne point la remanier à fond, mais
 sollicitent de lui quelques retouches de détail, quelques
-améliorations qui en feraient vraiment une loi de jus-
-tice et de liberté.
+améliorations qui en feraient vraiment une loi de justice et de liberté.
 
 Questions de personnes
 Je me suis efforcé d'étudier ici, dans ses détails es-
 À dois revenir avant de clore cette deuxième série d'articles. Ce n'est point que je ne l'aie déjà traité. Mais un
 voyage en France (et dans les régions les plus diverses)
-m'a convaincu qu'il importe d'attirer l'attention du lé-
-gislateur sur certaines dispositions de la loi qui prête-
-À raient vraiment à trop d'injustices et qui, par contrecoup, pourraient bien avoir de regrettables consé-
-quences politiques. Il s'agit de l'article 11 (ancien arD ticle 9) et des pensions et indemnités accordées aux
+m'a convaincu qu'il importe d'attirer l'attention du législateur sur certaines dispositions de la loi qui prête-
+À raient vraiment à trop d'injustices et qui, par contrecoup, pourraient bien avoir de regrettables conséquences politiques. Il s'agit de l'article 11 (ancien arD ticle 9) et des pensions et indemnités accordées aux
 Si j'avais exploré, pour cette enquête, des milieux
 réactionnaires, je ne serais ému que très peu par les
 4 doléances recueillies. Mais j'ai passé mes vacances au
@@ -4065,9 +3861,7 @@ République, et surtout indigne d'elle, qu'une révolution
 nécessaire se paie par des souffrances de femmes et
 d'enfants, c'est-à-dire de petits et de faibles. Le principe séparatiste est bien accueilli. Le traitement infligé
 aux personnes provoque des sentiments exactement
-._ Le tort du Parlement a été de raisonner dans l'abs-
-trait. De très bonne foi, dans des intentions excel-
-lentes, il a cherché, pour le règlement de cette question,
+._ Le tort du Parlement a été de raisonner dans l'abstrait. De très bonne foi, dans des intentions excellentes, il a cherché, pour le règlement de cette question,
 la solution la plus équitable et même la plus généreuse.
 Il faut être de parti pris pour lui prêter des volontés persécutrices. Mais il n'a pas sous les yeux les documents
 dont il aurait besoin pour se prononcer en pleine
@@ -4085,17 +3879,12 @@ que je sais bien.
 
 Je rappelle quelques-unes des dispositions de cet article 11: « Les ministres des cultes qui, lors de la promulgation de la présente loi, seront âgés de plus de
 soixante ans révolus et qui auront, pendant trente ans
-au moins, rempli des fonctions ecclésiastiques rémuné-
-
-rées par l'État, recevront une pension annuelle et via-
-gère égale aux trois quarts de leur traitement. Ceux
-qui seront âgés de plus de 45 ans et qui auront, pendant vingt ans au moins, rempli des fonctions ecclé-
-siastiques rémunérées par l'État, recevront une pension
+au moins, rempli des fonctions ecclésiastiques rémunérées par l'État, recevront une pension annuelle et viagère égale aux trois quarts de leur traitement. Ceux
+qui seront âgés de plus de 45 ans et qui auront, pendant vingt ans au moins, rempli des fonctions ecclésiastiques rémunérées par l'État, recevront une pension
 annuelle et viagère égale à la moitié de leur traitement. » Les autres recevront pendant quatre ans (pendant huit ans dans les communes de moins de 1.000 habitants) des allocations décroissantes.
 De l'enquête à laquelle je faisais allusion tout à l'heure
 il résulte que les deux tiers au moins des pasteurs protestants seront exclus de tout droit à la pension. Pris en
-lui-même, ce chiffre est inquiétant. Mais lorsqu'on y re-
-garde de plus près, quand on aperçoit derrière lui les
+lui-même, ce chiffre est inquiétant. Mais lorsqu'on y regarde de plus près, quand on aperçoit derrière lui les
 situations individuelles, les découvertes sont souvent
 tragiques. Ce sont fréquemment des hommes d'âge et
 des hommes chargés de famille qui sont frappés. On me
@@ -4139,8 +3928,7 @@ pas de pension.
 N... a 58 ans et plus de 24 ans de services. Il n'a jamais quitté sa paroisse; mais il y est resté 20 ans à
 titre de pasteur auxiliaire. Pas de pension.
 
-Ce dernier cas nous rapproche de la première caté-
-gorie, celle des hommes ayant dépassé 60 ans et dont la
+Ce dernier cas nous rapproche de la première catégorie, celle des hommes ayant dépassé 60 ans et dont la
 pension doit être égale aux deux tiers de leur traitement.
 
 Cette catégorie est beaucoup plus fermée qu'on ne croit.
@@ -4156,8 +3944,7 @@ plus de six mois sans traitement.
 NN... à 67 ans et comptera 30 ans et demi de services au
 premier janvier prochain. Mais, par malheur pour lui,
 É 28 années seulement ont été rétribuées par l'État, le
-Ô début de son ministère ayant été dans un poste de teur auxiliaire. A lui aussi la première catégorie est fer-
-mée. Il sera traité comme un homme de 45 ans.
+Ô début de son ministère ayant été dans un poste de teur auxiliaire. A lui aussi la première catégorie est fermée. Il sera traité comme un homme de 45 ans.
 Les bizarreries ont, d'ailleurs, des formes variées.
 Jusqu'ici j'ai cité des exemples d'hommes remplissant
 les conditions d'âge, mais wayant pas le nombre exigé
@@ -4176,8 +3963,7 @@ s'est donc trompée de bonne foi. Mais elle s'est trompée.
 . S'ensuit-il qu'il faille demander le bouleversement total
 … du régime auquel elle s'est arrêtée? Je ne le pense pas.
 … Ma seule raison est que cette requête n'aurait aucune
-je chance d'être entendue. Ce qu'il est raisonnable d'es-
-pérer, — et ce qu'il est alors juste de réclamer avec
+je chance d'être entendue. Ce qu'il est raisonnable d'espérer, — et ce qu'il est alors juste de réclamer avec
 énergie, — c'est que le Système adopté soit corrigé.
 Don peut l'être de deux façons. La première consisterait,
 comme je l'ai déjà demandé, à faire rentrer dans le
@@ -4214,8 +4000,7 @@ les inégalités artificielles et injustes:
 « Les ministres d'un culte, titulaires d'un poste officiel, qui compteront au moment de la promulgation de la loi au moins cinq
 années de services rémunérés par l'État, recevront une pension
 
-! Il sans dire que, mutatis mutandis, des considérations identiques peuvent être présentées pour les minis-
-tres catholiques. Je m''interdis de préciser parce que
+! Il sans dire que, mutatis mutandis, des considérations identiques peuvent être présentées pour les ministres catholiques. Je m''interdis de préciser parce que
 j'aurais trop peur de commettre de petites erreurs
 de détail. Mais il me sera permis de citer ici ce que
 M. Caillaux écrivait dans le Siècle du 21 juin dernier:
@@ -4231,11 +4016,9 @@ suivants: les prêtres qui, après vingt ans de services
 « rémunérés par l'État, abandonneront le sacerdoce en
 ayant une suffisante aisance, n'en bénéficieront pas
 : moins d'une pension dont seront privés les malheureux
-jetés à la rue, après vingt-cinq ou trente ans de fonc-
-tions paroissiales, si les hasards de leur carrière ont
+jetés à la rue, après vingt-cinq ou trente ans de fonctions paroissiales, si les hasards de leur carrière ont
 fait qu'ils ne soient pas, durant vingt ans, payés par le
-budget; — les curés des villes et des bourgs qui reste-
-ront en fonctions seront, en général, pensionnés, bien
+budget; — les curés des villes et des bourgs qui resteront en fonctions seront, en général, pensionnés, bien
 qu'ils aient un casuel suffisant, parce que la plupart
 annuelle et viagère, calculée à raison de 50 francs pour chaque
 année de services à l'État. Cette pension ne pourra en aucun Cas
@@ -4261,9 +4044,7 @@ dans d'autres carrières libérales, qu'ils deviendront
 médecins,. avocats, professeurs? S'imagine-t-on que
 l'État, qui ne sait que faire de sa multitude de fonctionpaires, mettra des postes à la disposition de ces nouveaux venus? Pense-t-on que ces mêmes hommes ont
 des capitaux pour entrer dans le commerce ou dans
-l'industrie ou qu'ils sont encore à l'âge de l'apprentissage pour exercer un métier manuel? A-t-on la con-
-
-science à l'aise si l'on réfléchit qu'avant de faire banqueroute à leur égard l'État a exigé de beaucoup de ces
+l'industrie ou qu'ils sont encore à l'âge de l'apprentissage pour exercer un métier manuel? A-t-on la conscience à l'aise si l'on réfléchit qu'avant de faire banqueroute à leur égard l'État a exigé de beaucoup de ces
 ministres, — de tous les pasteurs protestants, — outre le
 diplôme de bachelier lettres, quatre ou cinq années
 d'études coûteuses dans une de ses facultés?
@@ -4288,16 +4069,14 @@ que cela ne le regarde pas. Si pendant une période
 impossible à déterminer, des hommes, — c'est-à-dire
 souvent des familles entières, — sont jetés sur le pavé,
 le gouvernement républicain n'est pas en droit de s'en
-Il semble qu'il n'y ait que des questions de per-
-sonnes. C'est une erreur. Toute la politique séparatiste
+Il semble qu'il n'y ait que des questions de personnes. C'est une erreur. Toute la politique séparatiste
 est engagée dans ce débat. Ce qui importe, en effet, » c'est le principe même de la séparation. Il ne faut pas
 qu'on l'attaque par des voies détournées, en prenant
 prétexte de ce qui ne Ini est pas intimement lié et qui
 risque de le compromettre. Débarrassée de toute injus1 tice, la réforme est au-dessus des critiques sérieuses:
 elle est en état de défier l'adversaire. Compliquée de
 quelque disposition fâcheuse, elle prête le flanc à l'asA saut. On se servira contre elle de tous ces cas visibles,
-émouvants, dont je n'ai indiqué que quelques-uns. On » tiendra aux foules ce langage concret qu'elles comprennent bien. On dénoncera des souffrances imméri-
-tées. On en fera, bien à tort, mais très babilement, la
+émouvants, dont je n'ai indiqué que quelques-uns. On » tiendra aux foules ce langage concret qu'elles comprennent bien. On dénoncera des souffrances imméritées. On en fera, bien à tort, mais très babilement, la
 caractéristique de la séparation. On ne verra plus que
 cela dans une révolution qui devrait apparaître grandiose. On en rendra la République responsable. On a
 commencé dans beaucoup de régions.
@@ -4349,8 +4128,7 @@ de ce sujet. En 1892, traduisant de l'allemand l'Histoire
 dont plusieurs vues méritent encore d'être relevées.
 ; L'abbé Hemmer y prévoyait la séparation des Églises
 et de l'État. Il la pressentait d'après plusieurs indices.
-à « Le plus significatif, disait-il, vient du suffrage univer-
-sel, qui, en France, ne donne à aucun régime, à aucun
+à « Le plus significatif, disait-il, vient du suffrage universel, qui, en France, ne donne à aucun régime, à aucun
 parti politique ou religieux, la garantie de stabilité
 ! nécessaire pour un contrat permanent entre l'Église et
 À l'État. Du reste, beaucoup d'indifférents sont disposés à
@@ -4439,8 +4217,7 @@ public. Beaucoup de catholiques craignent qu'on ne lui
 ôte par même son prestige. C'est précisément ce
 qu'espèrent, de leur côté, beaucoup de républicains. Je
 ne discuterai pas jusqu'à quel point ces craintes et ces;
-espérances sont fondées. Les choses ne sont pas, pro-
-bablement, aussi simples qu'on le croit. Il y a des cas
+espérances sont fondées. Les choses ne sont pas, probablement, aussi simples qu'on le croit. Il y a des cas
 fort multiples et l'analyse psychologique devrait tenir
 compte d'éléments nombreux et même contradictoires.
 en apparence. Quoi qu'il en soit, la pensée qu'un
@@ -4467,15 +4244,12 @@ colères de tant d'évêques.
 Outre la situation du fonctionnaire, M. Hemmer voudrait que le ciergé catholique perdit aussi l'esprit du
 fonctionnaire. L'État s'est trop attaché à le lui commu-
 
-1 niquer. n'a jamais rien fait, sous le régime du Con-
-cordat, pour faciliter les études supérieures au clergé
+1 niquer. n'a jamais rien fait, sous le régime du Concordat, pour faciliter les études supérieures au clergé
 À catholique. Au lieu d'exiger de lui une certaine culture,
 À il a laissé tomber tous les établissements officiels qui
 pouvaient aider à cette culture. Et, tandis qu'il réduisait
-ses ecclésiastiques au rôle de bureaucrates, ou s'eftor-
-çait de les confiner dans l'accomplissement routinier
-à des cérémonies, la liberté des mouvements et des inik tiatives n'appartenait qu'aux congrégations.… M. Hem-
-mer entrevoit et désire, pour le clergé séculier, des tinées plus intéressantes.
+ses ecclésiastiques au rôle de bureaucrates, ou s'eftorçait de les confiner dans l'accomplissement routinier
+à des cérémonies, la liberté des mouvements et des inik tiatives n'appartenait qu'aux congrégations.… M. Hemmer entrevoit et désire, pour le clergé séculier, des tinées plus intéressantes.
 
 Et c'est pourquoi il est original de constater que ce
 prêtre, — emporté ou non par des illusions, peu importe,
@@ -4492,8 +4266,7 @@ encouragé la tendance des hommes à se grouper d'une
 manière autonome en vue de fins particulières, mais;
 ait eu, à l'endroit du catholicisme, des intentions mes- )
 quines ou hostiles, ou même des arrière-pensées perfides chez certains auteurs de la séparation, il est bien il
-possible; mais ceux-ci n'ont poussé si loin leurs avan-
-tages qu'en obéissant au mouvement général qui porte
+possible; mais ceux-ci n'ont poussé si loin leurs avantages qu'en obéissant au mouvement général qui porte
 notre société à se libérer d'une tyrannie dont l'habitude
 seule empêche de sentir tout le poids. Si la séparation
 réussit, c'est-à-dire si elle s'acclimate parmi nous sans
@@ -4513,9 +4286,7 @@ Je ne puis toucher à tous les points abordés par
 M. l'abbé Hemmer dans sa brochure. Maïs il est une
 
 question, la question centrale, celle des associations
-cultuelles, dont il faut se demander ce qu'il pense. Plu-
-
-sieurs évêques ont cru distinguer dans les associations
+cultuelles, dont il faut se demander ce qu'il pense. Plusieurs évêques ont cru distinguer dans les associations
 
 un piège pour le catholicisme et comme une annonce de
 schisme. Il est loin de partager leurs craintes.
@@ -4529,9 +4300,7 @@ la nomination, le transfert ou la révocation des prêtres
 mis à la tête ou au service d'une association paroissiale
 ou décanale, les droits du pape et des évêques comprovinciaux dans la nomination, le transfert ou la déposition des évêques mis à la tête ou au service des associations diocésaines ou métropolitaines ». Je me suis
 
-permis de souligner un: et. Je n'insisterai pas davan-
-
-tage pour aujourd'hui.
+permis de souligner un: et. Je n'insisterai pas davantage pour aujourd'hui.
 
 M. Hemmer n'a pas la superstition de l'uniformité. Il À
 entend que les associations s'organisent d'après des
@@ -4550,8 +4319,7 @@ C'est le seul moyen inaugurer une jurisprudence
 générale qui sera pour l'avenir un gage de paix et de
 On sait que beaucoup d'associations paroissiales se
 sont déjà constituées en bien des endroits. M. Hemmer
-ne juge pas qu'elles puissent, au lendemain de la promulgation de la loi, succéder utilement aux organisa-
-tions actuelles. Elles ont des objets très nombreux; et
+ne juge pas qu'elles puissent, au lendemain de la promulgation de la loi, succéder utilement aux organisations actuelles. Elles ont des objets très nombreux; et
 il est de ces objets, par exemple le soin de l'enseignement dans les écoles privées, que les tribunaux refuseraient certainement de faire rentrer sous la rubrique
 générale: exercice du culte. D'autre part, les statuts de
 ces associations, après avoir parlé d'ambitions si:
@@ -4559,9 +4327,7 @@ variées, ne prévoient pas assez les « difficultés pouvant
 s'élever entre associations et prêtres, entre prêtres et
 évêques, entre associations et évêques ».
 M. Hemmer appuie ici fortement sur le devoir de la
-hiérarchie: « Les évêques doivent comprendre la néces152
-
-sité de préparer sans retard, afin de les müûrir dans le
+hiérarchie: « Les évêques doivent comprendre la nécessité de préparer sans retard, afin de les müûrir dans le
 court délai qui leur est encore' donné, les clauses qu'ils
 devront imposer aux associations pour la sauvegarde
 de l'unité de l'Église. C'est à eux qu'il appartient
@@ -4593,30 +4359,25 @@ prospérité des associations, au développement des
 
 œuvres paroissiales, que s'ils participent en quelque
 
-mesure à l'administration des finances des associa-
-
-tions, soit par les bureaux élus des associations, soit
+mesure à l'administration des finances des associations, soit par les bureaux élus des associations, soit
 153 9-
 
 à titre de membres des assemblées générales. » C'est
 l'évidence même.
 
-Contre cette évidence combat, chez beaucoup de pré-
-tres, la peur du « laïcisme ». Cette peur les conduit à
+Contre cette évidence combat, chez beaucoup de prétres, la peur du « laïcisme ». Cette peur les conduit à
 protester contre tout contrôle de leur gestion financière.
 D'abord elle tient à une confusion des choses temporelles avec les spirituelles. Ensuite elle dans la pratique, des conséquences funestes. « Si aujourd'hui, dans
 les diocèses de France, dit M. Hemmer, il y a une
 dizaine de caisses ecclésiastiques en désarroi, c'est que
-l'administration en a été abandonnée à des prêtres né-
-gligents ou incapables. La loi sur les fabriques, si ridicule dans ses détails, quand on veut en appliquer les
+l'administration en a été abandonnée à des prêtres négligents ou incapables. La loi sur les fabriques, si ridicule dans ses détails, quand on veut en appliquer les
 prescriptions au mince budget des pauvres églises de
 campagne, a été provoquée par les désordres régnant
 dans les gros budgets. Ce n'est pas une force pour
 l'Église que de se priver de l'assistance désintéressée
 d'hommes qui nourrissent de la sympathie pour son
 œuvre morale et qui sont souvent plus capables que les
-prêtres d'un avis sage dans la gestion des affaires tem-
-porelles. Ce n'est pas faire injure à des hommes
+prêtres d'un avis sage dans la gestion des affaires temporelles. Ce n'est pas faire injure à des hommes
 d'Église que de soumettre leur administration à un
 contrôle effectif de leurs supérieurs et des fidèles: c'est
 mettre à leurs fantaisies éventuelles un frein souvent
@@ -4631,10 +4392,8 @@ large et moderne dans sa manière de construire un
 
 budget, d'administrer le produit des offrandes et contributions volontaires des fidèles, enfin de rendre ses
 comptes. C'est d'abord le budget des associations cultuelles dont il faudra donner le compte rendu dans les
-assemblées générales. Mais c'est aussi celui des associations diocésaines qui doit être soumis au même ré-
-gime; c'est aussi celui des unions ou fédérations d'as- -
-sociations. Il y a de la franchise hardie dans ces propos. Les trois mots que j'ai soulignés sonneront peut-
-être étrangement à certaines oreilles. Ce sont des
+assemblées générales. Mais c'est aussi celui des associations diocésaines qui doit être soumis au même régime; c'est aussi celui des unions ou fédérations d'as- -
+sociations. Il y a de la franchise hardie dans ces propos. Les trois mots que j'ai soulignés sonneront peutêtre étrangement à certaines oreilles. Ce sont des
 conseils intelligents et pratiques. M. Hemmer les prolonge en un rêve audacieux. (1) Écoutons-le:
 
 « Si la chose dépendait de moi, ce serait même le
@@ -4755,8 +4514,7 @@ de réformes qui souffle actuellement, nous en verrons bien
 
 tout à fait seul de son espèce, — qui ont le projet ferme
 de constituer des associations cultuelles qui soient
-sérieuses, c'est-à-dire qui groupent réellement la collec-
-tivité des fidèles. Est-il sage de légiférer comme s'ils!
+sérieuses, c'est-à-dire qui groupent réellement la collectivité des fidèles. Est-il sage de légiférer comme s'ils!
 n'existaient pas et ne désiraient pas se mettre à
 Je montrais naguère ici-même (dans le Siècle du
 9 juillet) combien une disposition mal rédigée de larticle 17 (1) était gênante pour les Églises protestantes. En
@@ -4784,8 +4542,7 @@ prêtres. Elles leur répètent l'idée première de Lamennais: « L'autorité p
 le mal; car, en bien comme en mal, on n'agit sur les
 peuples que par l'autorité. » Quelques âmes prudentes
 murmurent bien: « C'est d'avoir fait de la politique qui
-a compromis le clergé. » Mais ces voix tentatrices ré-
-pliquent: « Ce qui l'a le plus compromis, c'est de
+a compromis le clergé. » Mais ces voix tentatrices répliquent: « Ce qui l'a le plus compromis, c'est de
 n'avoir fait qu'un peu de politique; c'est de n'en
 avoir pas fait assez ni avec assez d'ardeur et de constance. »
 
@@ -4804,8 +4561,7 @@ catholiques qui osent crier: casse-cou! M. l'abbé Hemmer, sans se départir du 
 dit nettement pour quelles raisons « la formation d'un
 parti catholique serait actuellement un malheur pour
 l'Église de France et une faute qui engagerait gravement l'avenir ». Son avis est intéressant à recueillir.
-Nous verrons si l'Église saura faire taire les voix tenta-
-trices et suivre la sagesse et le bon sens.
+Nous verrons si l'Église saura faire taire les voix tentatrices et suivre la sagesse et le bon sens.
 
 Une première raison doit empêcher les catholiques de
 former un parti politique: c'est qu'ils ne s'entendent
@@ -4819,8 +4575,7 @@ On objecte à cette constatation l'exemple de l'Allemagne: est-ce que les cathol
 
 sur les destinées de l'empire? (1) Mais la comparaison
 ne vaut pas. Longtemps les congrès annuels des catho-:
-liques allemands n'ont pas été des groupements poli-
-tiques. Longtemps ils n'ont servi que de moyen d'étude;
+liques allemands n'ont pas été des groupements politiques. Longtemps ils n'ont servi que de moyen d'étude;
 ou de lieu de rencontre aux hommes désireux de développer le catholicisme en Allemagne. Le parti ne s'est
 formé que pour faire face à une « persécution » qui
 n'existe pas en France. Et « la victoire même du Centre
@@ -4854,9 +4609,7 @@ En France, elle est cent fois plus nécessaire. Pourquoi serait-elle
 
 « Ce qui la rendue momentanément impossible, c'est qu'on avait
 tenté de l'identifier avec une certaine attitude politique et qu'on
-prétendait en exclure tous ceux qui ne professaient pas une con-
-
-pour détourner de cette tâche impossible. M. Hemmer
+prétendait en exclure tous ceux qui ne professaient pas une conpour détourner de cette tâche impossible. M. Hemmer
 en indique un autre, qui n'est pas moins décisif, mais qui,
 pour nous, est peut-être plus intéressant encore. Il se;
 place dans l'hypothèse où ce rêve politique ne serait
@@ -4868,11 +4621,8 @@ les intérêts de leur foi avec les intérêts du monde conservateur et autorita
 n'est plus contraire au sentiment le plus profondément
 gravé dans l'âme de nos concitoyens et à la conception
 moderne de la moralité. Même dans les milieux où sans
-« pratiquer » vraiment, on n'est pas hostile à la reli-
-gion, on ne veut pas sentir planer sur soi l'ombre du
-curé, — pas plus qu'on ne voudrait sentir celle du gen-
-
-fiance absolue dans la vertu des institutions qui nous régissent,
+« pratiquer » vraiment, on n'est pas hostile à la religion, on ne veut pas sentir planer sur soi l'ombre du
+curé, — pas plus qu'on ne voudrait sentir celle du genfiance absolue dans la vertu des institutions qui nous régissent,
 ou qui combattaient trop vivement les républicains au pouvoir.
 Aujourd'hui, cette raison n'existe plus. Le régime actuel a déversé
 sur notre malheureux pays un tel déluge de hontes et d'iniquités
@@ -4922,8 +4672,7 @@ ainsi, vaincus, qu'eussent-ils donc fait, victorieux, pour
 défendre leur pouvoir? » C'est moi qui souligne; on me La
 dispensera de commenter autrement.
 M. Hemmer éprouve donc une répulsion assez vive:
-pour l'identification de l'Église et de l'État. IL n'en con-
-clut pas qu'il faille conseiller à l'Église, comme une
+pour l'identification de l'Église et de l'État. IL n'en conclut pas qu'il faille conseiller à l'Église, comme une
 tactique et une méthode, l'hostilité systématique contre
 l'État: « Garder précieusement son indépendance à
 l'égard d'un gouvernement ne signifie pas forcément lui
@@ -4935,8 +4684,7 @@ les supérieurs temporels et diffamer discrètement le
 chef de l'État ou les ministres de la République. De
 même les évêques ne peuvent ni tourner un compliment,
 ni bouder le gouvernement, sans être soupçonnés à
-droite ou à gauche de servilité ou d'ingratitude. Peut-
-être la séparation rendra-t-elle à des évêques nommés;
+droite ou à gauche de servilité ou d'ingratitude. Peutêtre la séparation rendra-t-elle à des évêques nommés;
 en dehors de l'État la possibilité d'être dignes et polis
 dans leur indépendance sans mécontenter ni l'État ni
 M. Hemmer a du courage. Il ne demande pas seulement aux catholiques de ne pas s'organiser en parti
@@ -4986,8 +4734,7 @@ groupes ne sont ni très nombreux ni très importants.
 
 Toutes ces nuances de sentiment et de pensée, le di:
 peuple ne les analyse pas. Il serait fort embarrassé
-: pour les exprimer. Mais c'est bien là, dans une répul-
-sion instinctive pour les puissances de recul politique
+: pour les exprimer. Mais c'est bien là, dans une répulsion instinctive pour les puissances de recul politique
 et social, qu'il trouve l'origine de son hostilité grandissante contre l'Église. L'Église comprendra-t-elle les EE:
 ; signes des temps? Saura-t-elle tirer les leçons de la à
 séparation? C'est son affaire et non la nôtre. Ce quiest
@@ -5001,8 +4748,7 @@ La séparation aura des conséquences immédiates
 pour l'organisation des Églises. Toutes, quelles que
 soient leurs dénominations, s'en préoccupent. L'Église
 catholique n'échappe point à cette nécessité. C'est une
-erreur de croire que, par le fait de sa constitution hié-
-rarchique, elle sera demain ce qu'elle était hier. Oui,
+erreur de croire que, par le fait de sa constitution hiérarchique, elle sera demain ce qu'elle était hier. Oui,
 sans doute, elle sera toujours fondée sur les mêmes
 principes. Mais, sans renier ce qui fait son idiosyncrasie
 morale, elle devra, pour bien des détails importants,
@@ -5018,14 +4764,12 @@ Le Conccrdat de Bonaparte n'a qu'un but: mettre
 le clergé à la disposition de l'État, le tenir en une sorte
 
 de tutelle et s'en servir comme d'un instrument de
-domination politique et sociale. L'idée n'est pas com-
-pliquée. Pour la réaliser, il n'y avait qu'à conférer à des
+domination politique et sociale. L'idée n'est pas compliquée. Pour la réaliser, il n'y avait qu'à conférer à des
 évêques bien choisis un pouvoir absolu, autocratique,
 sur les prêtres. Qui serait le maître des premiers serait
 le maître des seconds. Pour que cette machine pût bien
 fonctionner, il fallait que toutes les lois canoniques
-tombassent en désuétude et que l'épiscopat leur substi-
-tuât le règne de son bon plaisir. Naturellement les
+tombassent en désuétude et que l'épiscopat leur substituât le règne de son bon plaisir. Naturellement les
 prélats, transformés en satrapes spirituels, n'ont rien
 de plus pressé que de s'affranchir le plus possible vis-
 à-vis du pouvoir civil. Et c'est le Concordat qui a créé
@@ -5047,8 +4791,7 @@ porté atteinte au libre exercice des cultes. Le Conseil d'Etat
 statue non par voie d'appel, mais par voie de recours proprement
 dit. Il ne réforme pas la décision incriminée, il lannule; et, comme.
 il ne peut pas intervenir dans les rapports disciplinaires de la hié-;
-rarchie catholique, il ne contraint pas l'autorité épiscopale à rap-
-porter la mesure déclarée abusive, mais donne aux personnes
+rarchie catholique, il ne contraint pas l'autorité épiscopale à rapporter la mesure déclarée abusive, mais donne aux personnes
 atteintes par cette mesure le moyen de ne pas la laisser exécuter
 quant à ses effets matériels et temporels. La loi et la jurisprudence
 prévoient distinctement des cas d'abus dit civil (atteinte au libre
@@ -5103,23 +4846,20 @@ curés, il n'y en aurait pas seulement dix qui conserve- Le
 raient leur place. On ne tient pas synode, ou, s'il y en
 ce sont des assemblées sans liberté; la crainte de la
 colère. épiscopale empêche absolument les prêtres
-assemblés d'exprimer sur un sujet une opinion en con-
-tradiction avec celle de leur seigneur et maître. »
+assemblés d'exprimer sur un sujet une opinion en contradiction avec celle de leur seigneur et maître. »
 Je trouve dans ce même document un détail significatif. Sous le second Empire, l'archevêque Darboy
 gorienne et vaticane, la règle dont le Syllabus XXXI), après les
 allocutions Acerbissimum (23 septembre 1852) et Nunquam fore
 (5 décembre 1856) formule ainsi l'antithèse: « Le for ecclésiastique
 pour les procès temporels des clercs, tant au civil qu'au criminel,
-. doit absolument être aboli, même sans consulter le siège aposto-
-lique et sans tenir compte de ses réclamations. » Cette règle énigmatique a deux aspects pratiques. Elle signifie d'une part que les
+. doit absolument être aboli, même sans consulter le siège apostolique et sans tenir compte de ses réclamations. » Cette règle énigmatique a deux aspects pratiques. Elle signifie d'une part que les
 clercs ne doivent pas recourir aux juges séculiers contre les décisions des autorités ecclésiastiques. Cette faute fait partie des vingt!
 cas réservés que le pape seul peut absoudre d'après la bulle
 cœna Domini. L'article XXXI du Syllabus signifie d'autre part que;
 les autorités temporelles doivent exécuter sans discussion, et à
 plus forte raison ne peuvent pas réformer ou annuler les peines
 prononcées par les autorités ecclésiastiques. Pie censura, en
-1851, le canoniste Nuytz, de Turin, qui soutenait l'opinion con-
-traire, et le Concordat conclu en 1862 avec l''Equateur oblige le
+1851, le canoniste Nuytz, de Turin, qui soutenait l'opinion contraire, et le Concordat conclu en 1862 avec l''Equateur oblige le
 gouvernement à faire exécuter les peines canoniques.
 « Or, le Concordat de l''Equateur pas cours en France. Les
 évêques français ont toujours refusé de reconnaître la bulle
@@ -5129,13 +4869,12 @@ moins lapplication du Syllabus. En sorte que la Direction des
 Cultes, pour se conformer à des règles qui n'ont aucune valeur en
 France, aidait les évêques à molester le bas clergé au mépris de
 Vancien droit canonique, passé sous silence, mais non pas aboli
-dans le Concordat. »?
+dans le Concordat.
 
 rétablit le chapitre de Saiïinte-Geneviève. Pour en nommer les titulaires, il ouvrit le concours. Il promit de;
 considérer les élus comme inamovibles. Sa pensée était
 de trouver parmi eux des curés pour les principales \.
-églises de Paris et des évêques pour les sièges provinciaux. C'était un effort pour réveiller les études ecclé-
-siastiques. Maïs le premier acte de son successeur,
+églises de Paris et des évêques pour les sièges provinciaux. C'était un effort pour réveiller les études ecclésiastiques. Maïs le premier acte de son successeur,
 M. Guibert, fut de supprimer les examens et de reléguer
 dans des emplois inférieurs les prêtres qui s'étaient
 montrés dignes d'entrer dans le chapitre de SainteGeneviève.
@@ -5163,8 +4902,7 @@ et Rome jugea en sa faveur. Mais l'archevêque, qui
 avait grand crédit sous l'Empire, obtint du Conseil
 d'État une décision opposée à celle de la curie, et il
 établit un administrateur de la paroisse. Il mourut et
-fut remplacé par l'ultramontain Guibert. Celui-ci pre-
-nait, en général, le contre-pied des actes de son;
+fut remplacé par l'ultramontain Guibert. Celui-ci prenait, en général, le contre-pied des actes de son;
 prédécesseur, dont il détestait le gallicanisme. Mais, du
 moment qu'il s'agissait de sauvegarder l'autocratie, il
 prit parti contre Roy. On finit par obtenir du malheureux
@@ -5180,12 +4918,10 @@ seul curé inamovible sans lui faire déposer au palais
 
 Ce n'est pas tout. La loi canonique reconnaît à chaque
 curé le droit de choisir ses vicaires. L'évêque a mission
-de ratifier le choix et de conférer les pouvoirs néces-
-saires. Qu'est devenue cette disposition? Les chefs des
+de ratifier le choix et de conférer les pouvoirs nécessaires. Qu'est devenue cette disposition? Les chefs des
 diocèses prétendent à une autorité absolue. Ils entendent
 disposer des vicariats et des cures comme de postes qui
-leur appartiennent. Les vicaires dépendent donc directe-
-ment des évêques; et ceux-ci, pour ennuyer les curés
+leur appartiennent. Les vicaires dépendent donc directement des évêques; et ceux-ci, pour ennuyer les curés
 inamovibles et récalcitrants, n'ont qu'à les menacer de
 leur enlever tel vicaire ou de leur imposer tel autre.
 
@@ -5207,8 +4943,7 @@ Enfin, — car il faut se borner et l'on ne pense pas à
 prêtre, avant d'être puni par l'évêque, soit jugé par
 l'officialité. Que sont devenus ces tribunaux? Est-ce que
 leur disparition n'a pas amené, pour les accusés, celle
-de la défense possible? N'est-il pas fâcheux que le condamné ne puisse plus faire appel de l'officialité diocé-
-saine à l'officialité métropolitaine? Combien de ces
+de la défense possible? N'est-il pas fâcheux que le condamné ne puisse plus faire appel de l'officialité diocésaine à l'officialité métropolitaine? Combien de ces
 abus de pouvoir dont on parle tant n'auraient pas été
 possibles avec le maintien des vieilles règles? Et qu'estce qui est responsable de cette étrange situation de
 l'Église, si ce n'est le Concordat?
@@ -5233,16 +4968,14 @@ Une autre réflexion s'impose à moi. Durantles débats
 de la Chambre sur la séparation, j'ai entendu ou:
 bien des discours fort éloquents sur la nécessité de
 garantir les prêtres, sous le régime nouveau, contre la
-sujétion et la tutelle que les satrapes diocésains vou-
-draient sans doute faire peser sur les prêtres livrés à
+sujétion et la tutelle que les satrapes diocésains voudraient sans doute faire peser sur les prêtres livrés à
 leur bon plaisir. Il semblait que le Concordat eût été,
 abus de la discipline concordataire. Je soumets sa thèse à la
 réflexion de mes lecteurs:
 
 « Une- autre pratique, à la fois plus démocratique et plus cano- à
 nique, se prépare depuis longtemps à l'encontre de la pratique
-publièrent sur l'état du clergé en France un livre où ils dénon-
-çaient la tyrannie des évêques. En 1843, des desservants organisèrent des pétitions pour obtenir un régime de garanties contre
+publièrent sur l'état du clergé en France un livre où ils dénonçaient la tyrannie des évêques. En 1843, des desservants organisèrent des pétitions pour obtenir un régime de garanties contre
 les abus de pouvoir. Des évêques consultèrent le pape, qui rendit
 en 1845, sous forme de lettre à l'évêque de Liége, une réponse
 énigmatique et plutôt favorable au maintien du statu quo. Mais les
@@ -5277,8 +5010,7 @@ a fait disparaître, je me demandais, en écoutant ces
 dissertations généreuses, si la séparation elle-même
 n'était pas purement et simplement le bienfait libérateur
 et s'il était nécessaire de chercher, pour le clergé qui
-ne les demande pas, d'autres garanties que la suppres-
-sion du régime actuel.
+ne les demande pas, d'autres garanties que la suppression du régime actuel.
 radicaux C. Pelletan à la tribune et G. Clemenceau dans la presse,:
 aura pour effet principal de donner aux tribunaux un contrôle sur
 les mesures disciplinaires, quand ces mesures devront exercer
@@ -5291,35 +5023,28 @@ donc, par un précédent considérable, le régime de la séparation
 au régime du Concordat, et fortifie par avance la jurisprudence
 qui se développera quand fonctionnera la séparation. »
 
-J'ai montré, dans mon dernier article, en quelle désué-
-tude sont tombées, grâce au Concordat, les dispositions
+J'ai montré, dans mon dernier article, en quelle désuétude sont tombées, grâce au Concordat, les dispositions
 canoniques qui assuraient jadis la situation et la dignité
 des prêtres et qui formaient un contrepoids à la toutepuissance des évêques. J'ai insisté sur ce point parce
 que M. Hemmer ne l'a point fait dans sa brochure. Évidemment, il suppose que tout cela est très connu. Il se
 trompe charitablement. Rien n'est plus ignoré du public.
 Je me souviendrai toujours de la sensation d'étonnement que M. Hemmer provoqua lui-même, un jour, à
 « Union pour l'action morale en rappelant quelquesuns de ces faits.
-Il est intéressant, — et utile, — de se demander comment un prêtre intelligent, et qui a conscience des difi-
-cultésréelles, représente l'organisation de l'Église catholique au lendemain de la séparation. D'abord M. Hemmer.
+Il est intéressant, — et utile, — de se demander comment un prêtre intelligent, et qui a conscience des dificultésréelles, représente l'organisation de l'Église catholique au lendemain de la séparation. D'abord M. Hemmer.
 ne désire pas ce qui, de toute évidence, est impossible,
 je veux dire la résurrection pure et simple de l'ancien
 droit canonique. Ce droit a été fait pour des sociétés qui
 ont disparu. Beaucoup des abus auxquels il devait parer
 n'auraient plus aujourd'hui la moindre raison d'être.
 Ce sont d'autres abus qu'il faudrait redouter maintenant.
-En un sens, au lieu de regretter absolument la cen176
-
-tralisation du gouvernement ecclésiastique entre les
+En un sens, au lieu de regretter absolument la centralisation du gouvernement ecclésiastique entre les
 mains des évêques, il faut déplorer que, sur un point
 au moins, elle n'ait pas été plus complète. L'autorité des à
-prélats sur les congrégations d'hommes n'a été que no-
-minale; et, par suite, ces congrégations, échappant à
+prélats sur les congrégations d'hommes n'a été que nominale; et, par suite, ces congrégations, échappant à
 tout contrôle, ont avoir leur politique que les chefs
-des diocèses ne dirigeaient point, mais dont ils subis-
-saient les conséquences.;
+des diocèses ne dirigeaient point, mais dont ils subissaient les conséquences.;
 Ceci reconnu, l'abbé Hemmer ajoute que, surtout dans
-les premiers temps de la séparation, les évêques pour-
-ront bien être tentés de faire sentir un peu trop à leurs
+les premiers temps de la séparation, les évêques pourront bien être tentés de faire sentir un peu trop à leurs
 subordonnés leur puissance absolue. Ils auront à porter
 de lourdes responsabilités. En l'absence de toute stabilité dans les postes, ils seront sans doute induits, — du
 moins quelques-uns d'entre eux, — à conduire leur
@@ -5329,12 +5054,10 @@ M. Hemmer se demande s'il n'y aura pas lieu de créer
 un organisme nouveau: « Tel serait, par exemple, un
 conseil ecclésiastique diocésain dont la consultation ne
 serait pas de pure forme comme celle de nos chapitres
-vieillis, mais réelle et, en certains cas au moins, obli-
-gatoire. » Il estime aussi que « la simplification de la
+vieillis, mais réelle et, en certains cas au moins, obligatoire. » Il estime aussi que « la simplification de la
 procédure permettrait de rendre vie aux juridictions
 métropolitaines et de résoudre rapidement les conflits;
-nés entre des prêtres soutenus par les associations cul-
-tuelles et les évêques responsables du bon gouverne-;
+nés entre des prêtres soutenus par les associations cultuelles et les évêques responsables du bon gouverne-;
 ment de leur diocèse ».
 M. Hemmer prévoit, en outre, une série d'assemblées
 qui, actuellement, n'existent pas. « Peut-être serait-il
@@ -5345,8 +5068,7 @@ causes dogmatiques, l'ancienne procédure des conciles
 provinciaux: mais, pour les affaires d'ordre général,
 pour débattre les intérêts communs, pour adopter une
 attitude d'ensemble dans la politique générale de Hi]
-l'Église en matière d'œuvres sociales et scolaires, de ré-
-formes disciplinaires, etc., on recourrait utilement aux
+l'Église en matière d'œuvres sociales et scolaires, de réformes disciplinaires, etc., on recourrait utilement aux
 assemblées annuelles des archevêques de France, puis
 des évêques par province, qui seraient plus simples de
 forme, plus expéditives dans la façon de traiter les
@@ -5365,10 +5087,8 @@ Mais ceux d'aujourd'hui ne sont que l'ombre de ceux
 
 d'autrefois. Ils servent d'asiles aux prêtres âgés et fatigués. Il est peu probable que Rome confie le choix de;
 l'épiscopat aux invalides du sacerdoce. L'expression peu
-respectueuse n'est pas de l'abbé Hemmer. Répudierait-
-il la pensée qu'elle traduit? D'ailleurs, des corps fermés
-et peu nombreux subissent aisément la pression du de-
-hors. La même objection est généralement adressée à la
+respectueuse n'est pas de l'abbé Hemmer. Répudieraitil la pensée qu'elle traduit? D'ailleurs, des corps fermés
+et peu nombreux subissent aisément la pression du dehors. La même objection est généralement adressée à la
 présentation de candidats par les seuls évêques d'une
 
 La conception à laquelle s'arrête M. Hemmer, — partagée par beaucoup d'autres prêtres à qui j'en ai parlé, -
@@ -5396,12 +5116,10 @@ Ce régime assez naturel est, à peu de chose près,
 celui qui fonctionne aux États-Unis et ailleurs. Pourquoi
 ne s'établirait-il pas chez nous? On a beaucoup parlé de
 l'empressement avec lequel le Saint-Siège remplacerait
-nos évêques concordataires par des hommes de con-
-fiance, voire par des congréganistes. Cette intention, —
+nos évêques concordataires par des hommes de confiance, voire par des congréganistes. Cette intention, —
 si je suis bien informé, et je crois l'être, — a été réelle à
 
-Rome. Elle avait été suggérée par les partis les plus ré-
-trogrades qui avaient espéré ressaisir toute l'influence
+Rome. Elle avait été suggérée par les partis les plus rétrogrades qui avaient espéré ressaisir toute l'influence
 au Vatican et dont l'espoir n'a point toujours paru vain.
 Elle n'est plus aussi ferme qu'il y a un an. D'autres
 
@@ -5417,8 +5135,7 @@ le Saint-Siège a librement et volontairement conféré
 (1) Dans Le Siècle du 15 août 1905, jai publié les renseignements
 qui m'étaient envoyés, à ce moment même, par un personnage bien
 placé pour savoir ce qui se passe au Vatican. Je les reproduis ici:
-« Au printemps de 1904, le pape voyait les choses fort simple-
-ment. Il considérait que la rupture avec la France, préparée par;
+« Au printemps de 1904, le pape voyait les choses fort simplement. Il considérait que la rupture avec la France, préparée par;
 les ennemis de l'Eglise, allait permettre au Siège apostolique de
 « purifier l'épiscopat français » et de faire disparaitre les dernières
 lraces de gallicanisme.;
@@ -5429,8 +5146,7 @@ eussent reçu l'ordre, soit pris d'un bel accès de zèle, ils se lvrèrent
 à une double besogne. D'une part, ils préparèrent des listes de
 candidats à l'épiscopat, sur lesquelles, naturellement, on m'avait
 guère fait figurer que des moines. D'autre part, ils dressèrent la
-liste des prélats dangereux; ils la complétèrent par celle des pré-
-tres contre lesquels il faudrait prendre des mesures énergiques.
+liste des prélats dangereux; ils la complétèrent par celle des prétres contre lesquels il faudrait prendre des mesures énergiques.
 « Durant les mois qui suivirent, l'intention de Pie fut bien de
 5 se conformer à peu près complètement à ces vues qui lui semblaient
 recommandées aussi par le cardinal Richard.
@@ -5443,9 +5159,8 @@ peu prématurée. L'éclat n'en fut pas agréable à toutes les oreilles
 
 l'institution canonique ». Ensuite « les ennemis de;
 l'Eglise ne tarderaient pas à s'aviser de tirer parti de
-nominations faites au sein de congrégations situées à;
-l'étranger, composées d'étrangers, dans le mystère de pro-
-cédures secrètes qui ne jouissent pas d'une grande faveur
+nominations faites au sein de congrégations situées
+l'étranger, composées d'étrangers, dans le mystère de procédures secrètes qui ne jouissent pas d'une grande faveur
 dans lesprit public, ami du grand jour et de la clarté ».
 
 Le nombre « des pays à concordat » est, en somme,
@@ -5516,15 +5231,13 @@ Le Temps du 3 octobre 1905 a publié la note suivante:
 « On écrit de Rome à la Correspondance politique:
 
 « On assure au Vatican qu'après le vote définitif de la loi sur la
-séparation de l'Eglise et de l'Etat par la Chambre et le Sénat fran-
-çais, le pape serait favorable à la convocation d'un concile national
+séparation de l'Eglise et de l'Etat par la Chambre et le Sénat français, le pape serait favorable à la convocation d'un concile national
 auquel participeraient tous les évêques de France. La réunion de
 ce concile aurait pour but d'étudier les différents problèmes que
 soulève la nouvelle organisation de l'Eglise. Les évêques devraient,
 notamment, soumettre au pape un projet touchant le meilleur
 mode de nomination des évêques. Après la rupture du Concordat,
-la nomination des évêques appartiendra exclusivement au SaintSiège; mais Pie comprend parfaitement l'opportunité et la con-
-venance de donner au clergé et à l'épiscopat français une part
+la nomination des évêques appartiendra exclusivement au SaintSiège; mais Pie comprend parfaitement l'opportunité et la convenance de donner au clergé et à l'épiscopat français une part
 dans cette nomination, comme c'est le cas en Angleterre et aux
 Etats-Unis, où le pape choisit l'évêque sur une liste de trois candidats qui lui est présentée par les autres évêques de la province
 
@@ -5536,11 +5249,9 @@ l'ordre public.
 Article 2. — La République ne reconnaît, ne salarie ni ne
 subventionne aucun culte. En conséquence, à partir du
 premier janvier qui suivra la promulgation de la présente
-loi, seront supprimées des budgets de l'Etat, des dépar-
-temenis et des communes, toutes dépenses relatives à
+loi, seront supprimées des budgets de l'Etat, des départemenis et des communes, toutes dépenses relatives à
 l'exercice des cultes. Pourront toutefois être inscrites
-auxdits budgets les dépenses relatives à des services d'au-
-mônerie et destinées à assurer le libre exercice des cultes!
+auxdits budgets les dépenses relatives à des services d'aumônerie et destinées à assurer le libre exercice des cultes!
 dans les établissements publies tels que lycées, collèges,
 écoles, hospices, asiles et prisons.:
 Les établissements publics du culte sont supprimés, sous à
@@ -5549,8 +5260,7 @@ réserve des dispositions énoncées à l'article 3. À
 Article 3 — Les établissements dont la suppression est
 ordonnée par l'article 2 continueront provisoirement de
 fonctionner, conformément aux dispositions qui les régissent
-actuellement, jusqu'à l'attribution de leurs biens aux asso-
-ciations prévues par le titre et au plus tard jusquà
+actuellement, jusqu'à l'attribution de leurs biens aux associations prévues par le titre et au plus tard jusquà
 l'expiration du délai ci-après.
 Dès la promulgation de la présente loi, il sera procédé par
 les agents de l'Administration des domaines à l'inventaire:
@@ -5564,8 +5274,7 @@ ou eux dûment appelés par une notification faite en la:
 forme administrative. de:
 Les agents chargés de l'inventaire auront le droit de se
 faire communiquer tous titres et documents utiles à leurs
-Article 4. — Dans le délai d'un an à partir de la pro-
-mulgation de la présente loi, les biens mobiliers et immobiliers des menses, fabriques, conseils presbytéraux,
+Article 4. — Dans le délai d'un an à partir de la promulgation de la présente loi, les biens mobiliers et immobiliers des menses, fabriques, conseils presbytéraux,
 consistoires et autres établissements publics du culte seront,
 avec toutes les charges et obligations qui les grèvent et:
 avec leur affectation spéciale, transférés par les représentants
@@ -5577,8 +5286,7 @@ l'exercice de ce culte dans les anciennes circonscriptions
 
 Article 5. — Ceux des biens désignés à l'article précédent
 qui proviennent de l'État et qui ne sont pas grevés d'une
-fondation pieuse créée postérieurement à la loi du 18 ger-
-minal an feront retour à l'État.
+fondation pieuse créée postérieurement à la loi du 18 germinal an feront retour à l'État.
 
 Les attributions de biens ne pourront être faites par les
 établissements ecclésiastiques qu'un mois après la promulgation du règlement d'administration publique prévu à
@@ -5611,9 +5319,7 @@ l'article
 
 Le revenu global desdits biens reste affecté au payement
 du reliquat des dettes régulières et légales de l'établissement
-public supprimé, lorsqu'il ne se sera formé aucune asso-
-
-ciation cultuelle apte à recueillir le patrimoine de cet
+public supprimé, lorsqu'il ne se sera formé aucune association cultuelle apte à recueillir le patrimoine de cet
 
 Les annuités des emprunts contractés pour dépenses
 relatives aux édifices religieux seront supportées par les
@@ -5623,8 +5329,7 @@ auront l'usage de ces édifices par application des dispositions
 
 Dans le cas où l'État, les départements ou les communes
 rentreront en possession de ceux des édifices dont ils sont
-propriétaires, ils seront responsables des dettes réguliè-
-rement contractées et afférentes auxdits édifices.
+propriétaires, ils seront responsables des dettes régulièrement contractées et afférentes auxdits édifices.
 
 Article 3. — Les biens mobiliers ou immobiliers grevés
 d'une affectation charitable ou de toute autre affectation
@@ -5633,8 +5338,7 @@ représentants légaux des établissements ecclésiastiques, aux A
 services ou établissements publics ou d'utilité publique,
 dont la destination est conforme à celle desdits biens. Cette
 attribution devra être approuvée par le Préfet du département;
-où siège l'établissement ecclésiastique. En cas de non-
-approbation, il sera statué par décret en Conseil d'Etat.
+où siège l'établissement ecclésiastique. En cas de nonapprobation, il sera statué par décret en Conseil d'Etat.
 
 Toute action en reprise ou en revendication devra être
 exercée dans un délai de six mois à partir du jour où
@@ -5644,17 +5348,14 @@ intentée qu'en raison de donations ou de legs et seulement à
 par les auteurs et leurs héritiers en ligne directe.
 
 Article 8 — Faute par un établissement ecclésiastique;
-d'avoir, dans le délai fixé par l'article 4, procédé aux attri-
-butions ci-dessus prescrites, il y sera pourvu par décret.
+d'avoir, dans le délai fixé par l'article 4, procédé aux attributions ci-dessus prescrites, il y sera pourvu par décret.
 
 A l'expiration dudit délai, les biens à attribuer seront,
 jusqu'à leur attribution, placés sous séquestre.
 
 Dans le cas où les biens attribués en vertu de l'article
 et du paragraphe premier du présent article seront, soit dès
-l'origine, soit dans la suite, réclamés par plusieurs associa-
-
-tions formées pour l'exercice du même culte, l'attribution
+l'origine, soit dans la suite, réclamés par plusieurs associations formées pour l'exercice du même culte, l'attribution
 qui en aura été faite par les représentants de l'établissement
 ou par décret pourra être contestée devant le Conseil d'État;
 compte de toutes les circonstances de fait.;
@@ -5684,8 +5385,7 @@ Toute action en reprise ou en revendication devra être
 exercée dans un délai de six mois à partir du jour où le
 décret aura été inséré au Journal officiel. L'action ne pourra
 être intentée qu'en raison de donations ou de legs et seulement par les auteurs et leurs héritiers en ligne directe.
-Article 10. — Les attributions prévues par les articles pré-
-cédents ne donnent lieu à aucune perception au profit du
+Article 10. — Les attributions prévues par les articles précédents ne donnent lieu à aucune perception au profit du
 Article 11. — Les ministres des cultes qui, lors de la promulgation de la présente loi, seront ägés de plus de soixante
 ans révolus et qui auront, pendant trente ans au moins,
 rempli des fonctions ecclésiastiques rémunérées par l'État,
@@ -5693,9 +5393,7 @@ recevront une pension annuelle et viagère égale aux trois
 - quarts de leur traitement.
 Ceux qui seront âgés de plus de quarante-cinq ans et qui
 auront, pendant vingt ans au moins, rempli des fonctions
-ecclésiastiques rémunérées par l'État, recevront une pen-
-
-sion annuelle et viagère égale à la moitié de leur traite
+ecclésiastiques rémunérées par l'État, recevront une pension annuelle et viagère égale à la moitié de leur traite
 
 Les pensions allouées par les deux paragraphes précé
 dents ne pourront pas dépasser quinze cents francs. à
@@ -5709,12 +5407,10 @@ leur pension s'éteindra de plein droit. nn:
 Les ministres des cultes actuellement salariés par l'État,; à
 qui ne seront pas dans les conditions ci-dessus, recevront,
 pendant quatre ans à partir de la suppression du budget se.
-des cultes, une allocation égale à la totalité de leur traite-
-ment pour la première année, aux deux tiers pour la
+des cultes, une allocation égale à la totalité de leur traitement pour la première année, aux deux tiers pour la
 deuxième, à la moitié pour la troisième, au tiers pour la
 
-Toutefois, dans les communes de moins de 1.000 habi-
-tants et pour les ministres des cultes qui continueront à y
+Toutefois, dans les communes de moins de 1.000 habitants et pour les ministres des cultes qui continueront à y
 remplir leurs fonctions, la durée de chacune des quatre
 périodes ci-dessus indiquées sera doublée.
 
@@ -5731,14 +5427,11 @@ cultes, soit à leur famille.
 
 Les pensions prévues aux deux premiers paragraphes du
 
-présent article ne pourront se cumuler avec toute autre pen-
-
-sion ou tout autre traitement alloué, à titre quelconque,
+présent article ne pourront se cumuler avec toute autre pension ou tout autre traitement alloué, à titre quelconque,
 par l'État, les départements ou les communes.
 
 La loi du 27 juin 1885, relative au personnel des Facultés
-de théologie catholique supprimées, est applicable aux professeurs, chargés de cours, maîtres de conférences et étu-
-diants des Facultés de théologie protestante.
+de théologie catholique supprimées, est applicable aux professeurs, chargés de cours, maîtres de conférences et étudiants des Facultés de théologie protestante.
 
 Les pensions et allocations prévues ci-dessus serontinces- à
 
@@ -5761,9 +5454,7 @@ ont été remis aux cultes, sont et demeurent propriétés de
 l'État, des départements et des communes.
 
 Pour ces édifices comme pour ceux postérieurs à la loi du
-18 germinal an dont l'État, les départements et les com-
-
-munes seraient propriétaires, y compris les Facultés de
+18 germinal an dont l'État, les départements et les communes seraient propriétaires, y compris les Facultés de
 théologie protestante, il sera procédé conformément aux
 dispositions des articles suivants.
 
@@ -5779,25 +5470,18 @@ transfert seront prononcés par décret, sauf recours au
 1° Si l'association bénéficiaire est dissoute
 2° Si, en dehors des cas de force majeure, le culte cesse
 d'être célébré pendant plus de six mois consécutifs; pe"
-3° Si la conservation de l'édifice ou celle des objets mobi-
-liers classés en vertu de la loi de 1887 et de l'article 16 dela
+3° Si la conservation de l'édifice ou celle des objets mobiliers classés en vertu de la loi de 1887 et de l'article 16 dela
 présente loi est compromise par insuffisance d'entretien, et
-après mise en demeure dûment notifiée du Conseil muni-
-cipal ou, à son défaut, du Préfet;
-4° Si l'association cesse de remplir son objet ou si les édi-
-fices sont détournés de leur destination;
+après mise en demeure dûment notifiée du Conseil municipal ou, à son défaut, du Préfet;
+4° Si l'association cesse de remplir son objet ou si les édifices sont détournés de leur destination;
 5° Si elle ne satisfait pas soit aux obligations de l'article
 ï ou du dernier paragraphe du présent article, soit aux pres-
 La désaffectation de ces immeubles pourra, dans les cas
-ci-dessus prévus, être prononcée par décret rendu en Con-
-seil d'État. En dehors de ces cas, elle ne pourra l'être que
+ci-dessus prévus, être prononcée par décret rendu en Conseil d'État. En dehors de ces cas, elle ne pourra l'être que
 par une loi.
-Les immeubles autrefois affectés aux cultes et dans les-
-quels les cérémonies du culte n'auront pas été célébrées à
+Les immeubles autrefois affectés aux cultes et dans lesquels les cérémonies du culte n'auront pas été célébrées à
 pendant le délai d'un an antérieurement à la présente loi, À
-ainsi que ceux qui ne seront pas réclamés par une associa-
-tion cultuelle dans le délai de deux ans après sa promulga-
-tion, pourront être désaffectés par décret.
+ainsi que ceux qui ne seront pas réclamés par une association cultuelle dans le délai de deux ans après sa promulgation, pourront être désaffectés par décret.
 Il en est de même pour les édifices dont la désaffectation
 Les établissements publics du culte, puis les associations
 bénéficiaires seront tenus des réparations de toute nature,
@@ -5805,10 +5489,8 @@ ainsi que des frais d'assurance et autres charges afférentes
 aux édifices et aux meubles les garnissant.
 Article 14. — Les archevêchés, évêchés, les presbytères et
 leurs dépendances, les grands séminaires et facultés de
-théologie protestante seront laissés gratuitement à la disposition des établissements publics du culte, puis des asso-
-ciations prévues à l'article 13, savoir: les archevèthés et Le
-évêchés pendant une période de deux années; les presby-
-tères dans les communes où résidera le ministre du culte,
+théologie protestante seront laissés gratuitement à la disposition des établissements publics du culte, puis des associations prévues à l'article 13, savoir: les archevèthés et Le
+évêchés pendant une période de deux années; les presbytères dans les communes où résidera le ministre du culte,
 
 les grands séminaires et facultés de théologie protestante
 pendant cinq années à partir de la promulgation de la pré- à
@@ -5816,8 +5498,7 @@ Les établissements et associations sont soumis, en ce qui
 concerne ces édifices, aux obligations prévues par le dernier
 paragraphe de l'article 13. Toutefois ils ne seront pas tenus
 des grosses réparations. de
-La cessation de la jouissance des établissements et associa-
-tions sera prononcée dans les conditions et suivant les
+La cessation de la jouissance des établissements et associations sera prononcée dans les conditions et suivant les
 formes déterminées par l'article 13. Les dispositions des
 paragraphes 3 et 5 du même article sont applicables aux
 édifices visés par le paragraphe premier du présent article.
@@ -5842,10 +5523,7 @@ En dehors de ces obligations, les communes pourront dis- à
 poser librement de la propriété de ces édifices.
 Dans ces mêmes départements, les cimetières resteront la
 propriété des communes.
-Article 16. — sera procédé à un classement complémen-
-taire des édifices servant à l'exercice publie du culte (cathé-
-
-évêchés, preshytères, séminaires), dans lequel devront être;
+Article 16. — sera procédé à un classement complémentaire des édifices servant à l'exercice publie du culte (cathéévêchés, preshytères, séminaires), dans lequel devront être;
 compris tous ceux de ces édifices représentant, dans leur
 ensemble ou dans leurs parties, une valeur artistique ou
 Les objets mobiliers ou les immeubles par destination
@@ -5853,8 +5531,7 @@ mentionnés à l'article 13, qui n'auraient pas encore été inscrits sur la lis
 30 mars 1887, sont, par l'effet de la présente loi, ajoutés à à
 ladite liste. Il sera procédé par le Ministre de l'Instruction
 publique et des Beaux-Arts, dans le délai de trois ans, au De
-classement définitif de ceux de ces objets dont la conserva-
-tion présenterait, au point de vue de l'histoire ou de l'art,
+classement définitif de ceux de ces objets dont la conservation présenterait, au point de vue de l'histoire ou de l'art,
 un intérêt suflisant. À l'expiration de ce délai, les autres À
 objets seront déclassés de plein droit.
 En outre, les immeubles et objets mobiliers, attribués en;
@@ -5883,8 +5560,7 @@ dit à l'acheteur d'un objet classé de le transporter hors de (
 Nul travail de réparation, restauration ou entretien à
 faire aux monuments ou objets mobiliers classés ne peut
 être commencé sans l'autorisation du Ministre des Beaux-
-Arts, ni exécuté hors de la surveillance de son administra-
-tion, sous peine, contre les propriétaires, occupants ou
+Arts, ni exécuté hors de la surveillance de son administration, sous peine, contre les propriétaires, occupants ou
 détenteurs qui auraient ordonné ces travaux, d'une amende
 de seize à quinze cents francs (16 à 1.500 francs).
 
@@ -5921,8 +5597,7 @@ Nonobstant toute clause contraire des statuts, les actes de
 gestion financière et d'administration légale des biens « accomplis par les directeurs ou administrateurs seront,
 chaque année au moins, présentés au contrôle de Fassemblée générale des membres de l'association et soumis à son
 
-Les associations pourront recevoir, en outre des cotisa-
-tions prévues par l'article 6 de la loi du premier juillet 1901,
+Les associations pourront recevoir, en outre des cotisations prévues par l'article 6 de la loi du premier juillet 1901,
 le produit des quêtes et collectes pour les frais du culte,
 percevoir des rétributions: pour les cérémonies et services
 religieux même par fondation; pour la location des bancs
@@ -5950,8 +5625,7 @@ leurs ressources disponibles à la constitution d'un fonds 5$
 de réserve suffisant pour assurer les frais et l'entretien du
 : culie et ne pouvant en aucun cas recevoir une autre desti-:
 nation; le montant de cette réserve ne pourra jamais
-dépasser une somme égale, pour les unions et associa-
-tions ayant plus de cinq mille francs (5.000 francs) de revenu,
+dépasser une somme égale, pour les unions et associations ayant plus de cinq mille francs (5.000 francs) de revenu,
 à trois fois et, pour les autres associations, à six fois la
 moyenne annuelle des sommes dépensées par chacune
 d'elles pour les frais du culte pendant les cinq derniers
@@ -5969,8 +5643,7 @@ récidive, d'une amende double les directeurs ou administrateurs d'une associati
 . Les tribunaux pourront, dans le cas d'infraction au paragraphe premier de l'article 22, condamner l'association ou
 Vunion à verser l'excédent constaté aux établissements;
 communaux d'assistance ou de bienfaisance.
-Ils pourront, en outre, dans tous les cas prévus au para-
-graphe premier du présent article, prononcer la dissolution
+Ils pourront, en outre, dans tous les cas prévus au paragraphe premier du présent article, prononcer la dissolution
 de l'association ou de l'union.
 Article 24. — Les édifices affectés à l'exercice du culte
 appartenant à l'État, aux départements ou aux communes
@@ -6001,8 +5674,7 @@ Article 26. — Il est interdit de tenir des réunions politiques …
 dans les locaux servant habituellement à l'exercice d'un « culte.
 Article 27. — Les cérémonies, processions et autres manifestations extérieures d'un culte continueront à être réglées
 en conformité des articles 95 et 97 de la loi municipale du
-Les sonneries de cloches seront réglées par arrêté muni-
-cipal, et, en cas de désaccord entre le maire et le président
+Les sonneries de cloches seront réglées par arrêté municipal, et, en cas de désaccord entre le maire et le président
 ou directeur de l'association cultuelle, par arrêté préfectoral.
 Le règlement d'administration publique prévu par larticle 43 de la présente loi déterminera les conditions et les
 cas dans lesquels les sonneries civiles pourront avoir lieu.
@@ -6054,8 +5726,7 @@ Article 34. — Tout ministre d'un culte qui, dans les lieux. « où s'exerce ce
 , prononcés, des lectures faites, des écrits distribués ou des « affiches apposées, outragé ou diffamé un citoyen chargé
 d'un service publie sera puni d'une amende de cinq cents
 francs à trois mille francs (500 francs à 3.000 francs) et d'un
-La vérité du fait diffamatoire, mais seulement s'il est rela-
-tif aux fonctions, pourra être établie devant le tribunal
+La vérité du fait diffamatoire, mais seulement s'il est relatif aux fonctions, pourra être établie devant le tribunal
 correctionnel dans les formes prévues par l'article 52 de la
 loi du 29 juillet 1887. Les prescriptions édictées par l'article
 de la même loi s'appliquent aux délits du présent article et
@@ -6079,8 +5750,7 @@ Article 38. — Les congrégations religieuses demeurent
 soumises aux lois des premier juillet 1901, 4 décembre
 Article 39. — Les jeunes gens, qui ont obtenu à titre
 d'élèves ecclésiastiques la dispense prévue par l'article 23 de À
-la loi du 15 juillet 1889, continueront à en bénéficier, eonfor-
-mément à l'article 99 de la loi du 21 mars 1905, à la condition qu'à l'âge de vingt-six ans ils soient pourvus d'un emploi,;
+la loi du 15 juillet 1889, continueront à en bénéficier, eonformément à l'article 99 de la loi du 21 mars 1905, à la condition qu'à l'âge de vingt-six ans ils soient pourvus d'un emploi,;
 de ministre du culte rétribué par une association cultuelle
 et sous réserve des justifications qui seront fixées par un
 Article 40. — Pendant huit années à partir de la promulgation de la présente loi, les ministres du culte seront
@@ -6101,11 +5771,9 @@ Des règlements d'administration publique détermineront
 les conditions dans lesquelles la présente loi sera applicable
 . à l'Algérie et aux colonies.
 Article 44. — Sont et demeurent abrogées toutes les dispositions relatives à l'organisation publique des cultes
-antérieurement reconnus par l'État, ainsi que toutes disposi-
-tions contraires à la présente loi et notamment:
+antérieurement reconnus par l'État, ainsi que toutes dispositions contraires à la présente loi et notamment:
 1° La loi du 18 germinal an portant que la convention
-passée le 26 messidor an IX, entre le pape et le Gouverne-
-ment français, ensemble les articles organiques de ladite
+passée le 26 messidor an IX, entre le pape et le Gouvernement français, ensemble les articles organiques de ladite
 
 à convention et des cultes protestants, seront exécutés comme
 . ne des lois de la République; a
@@ -6123,8 +5791,7 @@ De l'association paroissiale. — Son utilité
 Quatre ans se sont écoulés depuis la promulgation de la loi
 du premier juillet 1901 sur le contrat d'association. La plupart
 4 des catholiques n'ont vu, tout d'abord, dans cette loi nouvelle, qu'un instrument d'oppression contre les congrégations religieuses; puis ils se sont rendu compte qu'elle renfermait par ailleurs, en son titre premier, des dispositions
-très libérales, et voici qu'ils prétendent maintenant en bé-
-néficier à leur tour. Ils ont manifestement aujourd'hui l'impression, vague mais irrésistible, que est pour eux
+très libérales, et voici qu'ils prétendent maintenant en bénéficier à leur tour. Ils ont manifestement aujourd'hui l'impression, vague mais irrésistible, que est pour eux
 l'avenir; de tous côtés, on tente de fonder des associations
 .. paroïssiales; les ouvriers de la première heure cherchent à
 Sur cette question des associations paroissiales, on lira avec
@@ -6134,15 +5801,12 @@ faire profiter leurs confrères de leur propre expérience et
 de de là, divers modèles de statuts ont déjà été proposés.
 Il n'est pas douteux que l'on ne soit ici en face d'une poussée de l'opinion.
 
-Qu'y at-il de fondé dans ce vague sentiment de sympathie pour FAssociation paroissiale? De quelle façon pré-
-cise est-il possible d'y donner satisfaction? C'est à cette
+Qu'y at-il de fondé dans ce vague sentiment de sympathie pour FAssociation paroissiale? De quelle façon précise est-il possible d'y donner satisfaction? C'est à cette
 double question que nous allons nous efforcer de répondre
 dans les lignes qui vont suivre.
 
 Il y a deux manières principales de concevoir l'association paroissiale: les uns n'y voient qu'un organe NOUVEAU
-surajouté à la paroisse; les autres entendent par Associa-
-tion paroissiale la paroisse elle-même constituée en associa-
-tion légale. Le premier sens est plus étroit et le second plus
+surajouté à la paroisse; les autres entendent par Association paroissiale la paroisse elle-même constituée en association légale. Le premier sens est plus étroit et le second plus
 large. Dans le second cas, la paroisse catholique devient,
 du moins en grande partie, aux yeux de l'État, une simple
 association de personnes, qui n'a ni plus de droits, ni plus
@@ -6159,28 +5823,23 @@ aujourd'hui en régime de concordat, ni demain en régime
 de séparation, il ne nous serait loisible de faire rentrer la A
 paroisse tout entière dans le droit commun.
 
-La paroisse catholique comprend, en effet, dans nos dio-
-cèses de France, et à Paris surtout, deux-parties bien dis-:
+La paroisse catholique comprend, en effet, dans nos diocèses de France, et à Paris surtout, deux-parties bien dis-:
 tinctes: d'un côté, ce qui est du ressort de la Fabrique et à
 quoi l'État entend coopérer, et, de l'autre, les diverses
 œuvres qui n'ont pas le droit de cité dans le budget fabricien, et qui, depuis la laïcisation de tous les services publics,
 ont pris l'extension que chacun sait.
 
-Ce qui est du ressort de la Fabrique comprend les dé-
-penses du culte et du personnel laïque et ecclésiastique. La
+Ce qui est du ressort de la Fabrique comprend les dépenses du culte et du personnel laïque et ecclésiastique. La
 Fabrique a seule qualité pour assurer ces services, et dans
 des conditions nettement déterminées par une législation
 
 spéciale qui n'est pas toujours inspirée du plus grand intérêt
 de l'Église.
 Si demain nous entrions en régime de séparation et que
-le Pape acceptat les dispositions de la loi française qui au-
-rait mis fin au régime concordataire, les Associations eul-
-tuelles hériteraient seules à leur tour des principales attributions des Fabriques, et elles devraient payer les avantages qu'on leur concéderait du sacrifice de certains droits
+le Pape acceptat les dispositions de la loi française qui aurait mis fin au régime concordataire, les Associations eultuelles hériteraient seules à leur tour des principales attributions des Fabriques, et elles devraient payer les avantages qu'on leur concéderait du sacrifice de certains droits
 reconnus par la loi de 1901 aux associations de droit
 Par conséquent, nos Associations paroiïssiales, qui doivent
-ne se réclamer que de la seule loi de 1901, ne pourront pré-
-tendre, ni maintenant ni plus tard, à exercer les fonctions
+ne se réclamer que de la seule loi de 1901, ne pourront prétendre, ni maintenant ni plus tard, à exercer les fonctions
 actuellement réservées aux fabriques. Elles seront et ne
 devront être que des associations paroïissiales non cultuelles.
 Mais, en dehors du domaine fabricien, il y a une portion
@@ -6241,13 +5900,11 @@ légale et inattaquable de l'association.
 garantie très appréciable qui empêche que l'on ne puisse
 désormais nous confisquer et employer à nous faire la
 guerre les ressources de nos œuvres. Alors même, en effet,
-qu'une association déclarée aurait été dissoute par le tribu-
-nal, c'est à elle-même et à elle seule qu'il appartient de
+qu'une association déclarée aurait été dissoute par le tribunal, c'est à elle-même et à elle seule qu'il appartient de
 décider de l'emploi de ses biens et d'en faire la dévolution se
 à une autre association de son choix. {Loi du premier
 
-Tant de raisons militert assurément en faveur de la fon-
-dation d'Associations paroissiales, même en régime concordataire. Mais que dire de ces associations dans l'hypothèse
+Tant de raisons militert assurément en faveur de la fondation d'Associations paroissiales, même en régime concordataire. Mais que dire de ces associations dans l'hypothèse
 L'Association paroissiale ne sera plus seulement alors
 d'une très grande utilité, mais bien d'une véritable nécessité.,
 Mettons les choses au mieux et supposons qu'il nous soit
@@ -6262,8 +5919,7 @@ manières de voir quand il s'agit d'interpréter la capacité:
 des établissements religieux. Le Conseil d'État n'autorise
 jamais, par exemple, les legs faits à une Fabrique pour les;
 catéchismes de persévérance ou pour une mission: la
-Fabrique n'a pas qualité, à son sens, pour assurer la persé-
-vérance des enfants ou pour essayer directement de ramener
+Fabrique n'a pas qualité, à son sens, pour assurer la persévérance des enfants ou pour essayer directement de ramener
 aux pratiques religieuses les chrétiens qui s'en sont écartés.
 Qui peut dire ce qu'on doit attendre demain d'un pareil
 état d'esprit et ce que deviendront, en particulier, certains
@@ -6285,10 +5941,8 @@ champ ouvert à des initiatives jusque-là comprimées, et si
 ce ne sera pas, pour bien des vocations laïques, en particu
 lier, l'occasion de se révéler? S'il devait en être ainsi, et
 qu'on püût arriver, dans chaque paroisse, à grouper en un
-faisceau unique, sous l'autorité du curé, les œuvres deve-
-nues plus nombreuses; si l'on pouvait ensuite constituer,
-sous l'autorité de l'Évèque, une union de tous ces orga-
-nismes bien vivants qui échapperaient ainsi à l'individua-:
+faisceau unique, sous l'autorité du curé, les œuvres devenues plus nombreuses; si l'on pouvait ensuite constituer,
+sous l'autorité de l'Évèque, une union de tous ces organismes bien vivants qui échapperaient ainsi à l'individua-:
 lisme et centupleraient par leur action, ne serait-on pas
 en droit d'espérer, qu'après les tristesses de demain, des
 jours meilleurs pourraient se lever pour l'Église de France?
@@ -6318,8 +5972,7 @@ accepter ni un concours, ni surtout une direction qui s'offrirait à elles avec 
 Nous savons que cette déclaration risque de nous aliéner;
 des concours parfois dévoués; mais puisque nous voulons À
 faire une association paroissiale, c'est-à-dire religieuse, il
-faut être conséquents avec nous-mêmes. Il existe des asso-
-ciations politiques qui méritent toute notre sympathie pour
+faut être conséquents avec nous-mêmes. Il existe des associations politiques qui méritent toute notre sympathie pour
 leur vaillance et leur action déjà sensible, et il n'est pas
 douteux que les catholiques n'aient le droit, le devoir même,
 
@@ -6350,8 +6003,7 @@ Pour être une association valable, au point de vue juridique, l'association par
 du premier juillet 1901.
 Elle devra tout d'abord être autre chose qu'un simple?
 , groupement de catholiques, comme serait, par exemple, à
-celui des personnes qui ont signé la pétition contre la sépa-
-ration de l'Eglise et de l'État. Il n'y a d'association possible, 1 » en effet, qu'entre personnes ayant pris des engagements
+celui des personnes qui ont signé la pétition contre la séparation de l'Eglise et de l'État. Il n'y a d'association possible, 1 » en effet, qu'entre personnes ayant pris des engagements
 réciproques en vue d'une action commune, c'est-à-dire qu'il
 
 à n'y a pas d'association possible sans un contrat entre les
@@ -6429,9 +6081,7 @@ L'action commune réclamée des associés devra encore
 hommes de bonne volonté, venus, certain jour, de tous les
 points de l'horizon pour protéger telle église de Paris contre
 
-les incursions des « Apaches ne formaient pas une asso213
-
-ciation; leur action commune, en effet, n'avait été concertée
+les incursions des « Apaches ne formaient pas une association; leur action commune, en effet, n'avait été concertée
 que pour un jour, si tant est même qu'elle ait été concertée.
 Il de soi que l'association paroissiale, au sens où nous »
 l'entendons, remplira pleinement la condition dont il s'agit
@@ -6460,8 +6110,7 @@ association, et c'est bien le cas ici, doivent renoncer à tout
 profit personnel dans les bénéfices que l'association pourrait
 réaliser; car, à la différence des associés, l'association peut
 réaliser des bénéfices pour elle-même, — si tant est qu'elle
-ait acquis par la déclaration le droit de posséder, — béné-
-fices qui concourront comme moyens, ainsi que nous l'AVOnS
+ait acquis par la déclaration le droit de posséder, — bénéfices qui concourront comme moyens, ainsi que nous l'AVOnS
 dit plus haut, à la réalisation de la fin qu'elle se propose.
 La seule chose qui soit interdite, c'est de donner à lassociation paroissiale un but qui viserait directement ou indirectement à procurer un avantage pécuniaire à ses propres
 membres et, par conséquent, aucun associé POUTTA, à CE
@@ -6516,11 +6165,9 @@ pour cela surveillée moins étroitement que l'Association
 déclarée? c'est peut-être douteux: du moins, est-il certain
 qu'elle ne donne d'elle-même aucun renseignement pouvoir civil. Par contre, l'Association paroissiale non déclarée à
 sera toujours l'obligée de quelqu'un, ne pouvant ni même.
-posséder l'immeuble et les meubles nécessaires à ses réu-
-nions ni les louer en son nom, puisqu'elle ne peut passer
+posséder l'immeuble et les meubles nécessaires à ses réunions ni les louer en son nom, puisqu'elle ne peut passer
 aucun traité. Elle ne pourra non plus recourir à l'intervention des tribunaux, comme Association, pour se faire rendre
-justice, et cependant elle ne sera pas à l'abri de toute pour-
-suite que des tiers pourraient, au moins indirectement, lui
+justice, et cependant elle ne sera pas à l'abri de toute poursuite que des tiers pourraient, au moins indirectement, lui
 L'Association déclarée, au contraire, a l'avantage de jouir;
 de la personnalité civile, non pas, il est vrai, sans aucune
 limitation, mais assez, du moins, pour pouvoir acquérir,
@@ -6572,8 +6219,7 @@ droit commun. y voyaient plutôt un groupement de
 catholiques combinant son action avec celle de la paroisse
 proprement dite, et qui pouvait ou végéter ou disparaître
 sans atteindre la paroisse elle-même. Mais, dans notre conception, l'Association paroissiale sera demain la vraie
-paroisse vivante et agissante, qui ne saurait, par consé-
-quent, s'accommoder de l'insécurité d'une Association non
+paroisse vivante et agissante, qui ne saurait, par conséquent, s'accommoder de l'insécurité d'une Association non
 
 Enfin, il y a une raison qui pèse d'un très grand poids
 en faveur de l'Association déclarée.
@@ -6581,8 +6227,7 @@ en faveur de l'Association déclarée.
 La nécessité des circonstances peut nous amener à cher- 3 NL!
 cher dans la loi de 1901 le moyen de reconstituer légalement, non seulement la paroisse, mais le diocèse lui-même.
 Le diocèse, ce sera l'union obligatoire de toutes les Associations paroissiales. Or, une union d'Associations ne peut
-légalement comprendre que des Associations de même caté-
-gorie. Il faudra donc que toutes les Associations d'un même
+légalement comprendre que des Associations de même catégorie. Il faudra donc que toutes les Associations d'un même
 diocèse, si elles veulent s'unir ensemble, soient ou des à
 Associations non déclarées, ou des Associations déclarées;
 mais il est impossible d'interdire à toutes nos paroisses, à
@@ -6598,10 +6243,7 @@ du diocèse et à l'autorité duquel il demeure soumis.
 Les associations, pour être paroïssiales, devront donc, en
 premier lieu, s'étendre à toute la circonscription de la paroisse et s'ouvrir à tous les catholiques qu'elle renferme.
 
-Mais n'est-ce pas, dès l'abord, une nécessité qui contre-
-dire un peu à notre conception de l'association? Nous envisa-
-
-gions celle-ci comme le rendez-vous de collaborateurs
+Mais n'est-ce pas, dès l'abord, une nécessité qui contredire un peu à notre conception de l'association? Nous envisagions celle-ci comme le rendez-vous de collaborateurs
 
 payant de leur personne, apportant à l'œuvre commune
 
@@ -6643,9 +6285,7 @@ gagne de proche en proche jusqu'aux extrémités de la paroisse.. Il est à dés
 1] ‘en plus une école d'apostolat et d'initiative, en même temps
 À qu'elle sera pour nous tous l'école de l'union dans la li-
 À berté. Serait-il donc téméraire d'espérer que bon nombre
-de catholiques, aujourd'hui paroissiens indifférents, pren-
-
-dront peut-être à leur tour plus au sérieux leur titre de
+de catholiques, aujourd'hui paroissiens indifférents, prendront peut-être à leur tour plus au sérieux leur titre de
 paroissiens, quand, rapprochés par des assemblées géné
 rales, par des réunions de comités ou de sections, ils seront mis plus en contact avec la vie de l'association et plus
 directement associés à son œuvre?
@@ -6657,8 +6297,7 @@ pasteur lui-même?
 Nous ferons remarquer tout d'abord qu'il ne s'agit ici ni
 de la paroisse entendue au sens concordataire, ni de la
 future association cultuelle. Dans l'une et l'autre de ces
-formes paroissiales, plus effacé et plus passif serait assuré-
-ment le rôle du simple fidèle, puisqu'il s'agirait alors de
+formes paroissiales, plus effacé et plus passif serait assurément le rôle du simple fidèle, puisqu'il s'agirait alors de
 cérémonies du culte, dont il n'est, le plus souvent, que le
 témoin, et de l'administration de sacrements qu'il se borne
 à recevoir. Mais si nous pénétrons dans le domaine particulier de lassociation paroissiale non cultuelle, nous
@@ -6702,8 +6341,7 @@ de toutes les associations paroiïssiales du même diocèse.
 Cette association d'associations paroissiales aura, à son
 tour, un président de droit, et ce président sera l'évêque
 
-Et quelles seront, pour chaque association, les consé-
-quences de cette dépendance? Cette dépendance aura pour
+Et quelles seront, pour chaque association, les conséquences de cette dépendance? Cette dépendance aura pour
 
 effet d'obliger toute association paroissiale à respecter, dans
 sa constitution organique, les prérogatives de l'évêque sur
@@ -6735,12 +6373,10 @@ avoir, de plein droit, comme président de son conseil.
 C'est l'évêque qui intervient à la fondation d'une nouvelle
 paroisse. Ce sera par l'intermédiaire du euré que se fera
 sentir l'intervention canonique de l'évêque, au moment de
-la formation de l'association paroissiale. Le curé, représen-
-tant de l'évêque parmi ses paroissiens, groupera autour de
+la formation de l'association paroissiale. Le curé, représentant de l'évêque parmi ses paroissiens, groupera autour de
 lui des fidèles de son choix; il en formera le premier noyau
 de l'association et en composera le premier conseil d'administration. Quand viendront ensuite les autres associés, ils
-entreront dans une association déjà organisée hiérarchique-
-ment, suivant l'esprit de l'Église. Ainsi, par l'initiative du;
+entreront dans une association déjà organisée hiérarchiquement, suivant l'esprit de l'Église. Ainsi, par l'initiative du;
 curé, qui groupe autour de lui les premiers adhérents,
 l'évêque ne restera pas étranger à la fondation de l'associa-
 Lorsqu'il s'agit de l'organisation directe de la paroisse,
@@ -6755,8 +6391,7 @@ biens temporels de chaque paroisse. Aux termes du droit À
 
 canon, une paroisse ne peut faire aucune aliénation ni
 disposition de biens, sans l'autorisation de l'ordinaire.
-Pourquoi les biens des associations paroissiales non cul-
-tuelles seraient-ils mis en dehors de ces règles si sages de
+Pourquoi les biens des associations paroissiales non cultuelles seraient-ils mis en dehors de ces règles si sages de
 l'Église? L'association paroissiale devra done, selon nous,
 inserire, dans ses dispositions statutaires, toutes les
 mesures qui assureront l'entière conservation des biens.
@@ -6791,8 +6426,7 @@ Quelle part d'influence réciproque leur est faite et quel
 
 doit être le fonctionnement de chacun d'eux? C'est ce que
 nous allons exposer à nos lecteurs. "4
-Les auteurs des statuts d'associations paroissiales du dio-
-cèse de Paris ont envisagé le conseil central comme le
+Les auteurs des statuts d'associations paroissiales du diocèse de Paris ont envisagé le conseil central comme le
 rouage principal de association paroissiale. Ils ont done
 cherché à rendre ce conseil parfaitement adapté à son rôle
 et, par conséquent, ils ont voulu soustraire sa COMpOsition
@@ -6811,8 +6445,7 @@ sein de l'association, l'esprit dans lequel elle a été fondée,
 il suflira d'apporter la plus grande attention au choix des
 nouveaux conseillers et de s'assurer que ceux-ci seront en
 pleine conformité de vues avec les autres membres du con- -
-Ces deux dispositions si importantes, concernant la for-
-mation et le renouvellement du conseil, furent donc nécessairement adoptées et inscrites dans les statuts d'association paroissiale.
+Ces deux dispositions si importantes, concernant la formation et le renouvellement du conseil, furent donc nécessairement adoptées et inscrites dans les statuts d'association paroissiale.
 Si l'on s'en était tenu là, on aurait craindre que le
 conseil central ne devint un cénacle fermé, dans lequel un;
 petit nombre d'associés, toujours les mêmes, finiraient par
@@ -6875,20 +6508,17 @@ voir exécutif, certaines prérogatives de direction. C'est lui,
 par exemple, qui devra prononcer, et souverainement, sur
 les demandes d'admission et sur les radiations, et on lui
 laissera l'initiative de provoquer, dans les cas graves, une
-réunion extraordinaire de l'assemblée générale ou de pro-
-poser au conseil central les modifications à apporter aux
+réunion extraordinaire de l'assemblée générale ou de proposer au conseil central les modifications à apporter aux
 statuts de l'association.
 Dans ces conditions, le conseil central, une fois constitué,
-pourra sans inconvénient se renouveler lui-même; il trou-
-vera dans la présence du curé, comme président de droit,
+pourra sans inconvénient se renouveler lui-même; il trouvera dans la présence du curé, comme président de droit,
 . et dans le comité de direction, un double élément pondéra- De
 teur qui, loin de nuire à son initiative, lui permettra, au
 contraire, de la retremper à des sources nouvelles.
 .… Mais. les attributions du conseil central doivent trou- de
 ver leur contre-poids dans celles de l'assemblée générale et de
 l'union diocésaine.
-Comment tout d'abord les statuts d'association parois-
-siale du diocèse de Paris ont-ils sauvegardé, en face du
+Comment tout d'abord les statuts d'association paroissiale du diocèse de Paris ont-ils sauvegardé, en face du
 Conseil, Les droits des associés?
 L'association, ce n'est pas son conseil, c'est l'ensemble des
 associés, de même que la France, ce n'est pas son gouvernement, ce sont les Français. Il y aura donc des cas où les
@@ -6931,9 +6561,7 @@ que nous encore aux droits des associés.
 On ne saurait prétendre, en effet, que ce soit faire violence aux associés et prolonger, malgré eux, la durée d'un
 contrat dont ils ne veulent plus. Si jamais une association venait à être en désaccord complet avec son conseil,
 ses membres n'auraient pas seulement la faculté de se
-démettre individuellement, il leur resterait toujours la res-
-
-source de provoquer la dissolution, et, sur ce point, nul ne. à
+démettre individuellement, il leur resterait toujours la ressource de provoquer la dissolution, et, sur ce point, nul ne. à
 songe à contester aux associés leur droit d'initiative. C'est
 évidemment par égard pour ce droit qu'il est stipulé, dans
 les modèles de statuts du diocèse de Paris, que la question
@@ -6951,8 +6579,7 @@ l'association paroissiale, sans que tous y aient droit de vote.
 On conçoit aisément que de jeunes enfants, bien qu'associés,
 ne soient pas en mesure de prendre part aux délibérations.
 On a cru cependant qu'il y avait avantage à intéresser,
-aussitôt que possible, les jeunes gens à la marche de l'asso-
-ciation. Par leur générosité naturelle, leur enthousiasme,
+aussitôt que possible, les jeunes gens à la marche de l'association. Par leur générosité naturelle, leur enthousiasme,
 leur initiative, ils peuvent être d'un très utile concours.
 N'est-il pas vrai qu'ils apporteront d'autant plus de dévoue-;
 ment à l'association qu'ils sauront que leur avis n'y est pas
@@ -6968,8 +6595,7 @@ accessible à toutes les bourses, à la bourse de l'enfant comme
 à celle du pauvre...
 
 .… Reste à dire, dans un dernier point, comment on y a
-concilié le respect de la loi canonique, par l'intervention lé-
-gale de l'Union diocésaine dans le gouvernement de l'association paroissiale.
+concilié le respect de la loi canonique, par l'intervention légale de l'Union diocésaine dans le gouvernement de l'association paroissiale.
 
 Les fédérations, que nous voyons chaque jour fonctionner
 sous nos yeux, ont pour but avoué de donner aux divers
@@ -6991,9 +6617,7 @@ Mais nous avons dit, dans notre précédent article, que des
 liens de dépendance nécessaire devaient rattacher canoniquement lune à l'autre l'association paroissiale et l'union
 diocésaine; et nous en avons déterminé les principaux.
 
-On n'a pas manqué de faire ressortir ces liens de dépendance canonique dans la rédaction même des statuts d'Asso-
-
-ciation paroissiale du diocèse de Paris.
+On n'a pas manqué de faire ressortir ces liens de dépendance canonique dans la rédaction même des statuts d'Association paroissiale du diocèse de Paris.
 
 Nous savons déjà qu'on y a marqué le caractère d'Association canoniquement paroissiale, en y inscrivant que « le
 curé de la paroisse ou l'administrateur régulièrement
@@ -7033,20 +6657,17 @@ Rien n'est donc plus légal que cette influence arbitrale de
 l'Union diocésaine, d'autant qu'en ce moment, la notion
 juridique d'arbitrage pénètre de plus en plus l'esprit des
 Nous pouvons ajouter qu'ici rien n'est plus conforme aux -
-règles traditionnelles du droit canon, puisque, entre lAsso-
-ciation paroissiale et l'Union diocésaine, cet arbitrage
+règles traditionnelles du droit canon, puisque, entre lAssociation paroissiale et l'Union diocésaine, cet arbitrage
 rétablit les points d'attache qui existent, nous l'avons dit,
 dans la constitution canonique d'une paroisse, entre
 l'évêque et le curé, entre l'évêque et les fidèles.
 Ces points d'attache, il fallait les fixer dans les statuts
 mêmes de l'association paroissiale. On y a pourvu, d'abord,
 pour assurer à l'association la permanence de son esprit
-d'origine; aussi lui a-t-on ménagé le moyen de faire inter-
-venir l'arbitrage de l'Union diocésaine dans le cas où elle
+d'origine; aussi lui a-t-on ménagé le moyen de faire intervenir l'arbitrage de l'Union diocésaine dans le cas où elle
 aurait à réorganiser son Conseil d'administration.
 .… C'est par une disposition analogue qu'au moyen de
-l'arbitrage de l'union diocésaine, on a garanti le rôle cano-
-nique de l'évêque sur l'administration des biens de l'asso-
+l'arbitrage de l'union diocésaine, on a garanti le rôle canonique de l'évêque sur l'administration des biens de l'asso-
 
 On se rappelle que l'intervention, au moins représentative, de l'autorité épiscopale était particulièrement requise
 pour le cas où l'association aurait à décider de la dévolution
@@ -7072,8 +6693,7 @@ M. l'abbé Gayraud, député du Finistère, poursuit une
 campagne de presse pour engager les associations
 se conformant au texte de la loi de séparation votée
 par la Chambre.
-D'autres catholiques préfèrent des associations paroissiales constituées en vertu de la loi de 1901. La diffé-
-rence est d'importance, suivant que l'on adopte l'uneou
+D'autres catholiques préfèrent des associations paroissiales constituées en vertu de la loi de 1901. La différence est d'importance, suivant que l'on adopte l'uneou
 l'autre forme. Aussi la controverse est-elle vive entre
 les partisans de chacune de ces deux formes d'associations.
 Un professeur de l'Institut catholique de Lille,
@@ -7089,9 +6709,7 @@ réunis par M. Louis Juttet.
 elles seules l'association cultuelle, soit qu'elles aient à la
 diriger et à l'administrer? Je ne le crois pas.
 
-J'ai pu, sur ce point, consulter un grand nombre de per-
-
-sonnages, ayant qualité pour me répondre et me renseigner.
+J'ai pu, sur ce point, consulter un grand nombre de personnages, ayant qualité pour me répondre et me renseigner.
 J'ai obtenu des réponses venues de toutes les parties de la
 France, des régions les plus disparates à divers points de
 vue, et le résultat de cette enquête personnelle a été de
@@ -7101,8 +6719,7 @@ pour cent des communes, dans lesquelles on ne pourra pas
 établir les associations cultuelles prévues par la loi, parce
 qu'on ne pourra pas y trouver un nombre suffisant de personnes voulant accepter les charges et les responsabilités
 formulées par nos législateurs. Je crois même pouvoir
-aftirmer que, dans certaines régions, cette proportion s'élè-
-vera encore et qu'elle pourra aller jusqu'à quatre-vingts
+aftirmer que, dans certaines régions, cette proportion s'élèvera encore et qu'elle pourra aller jusqu'à quatre-vingts
 pour cent, c'est-à-dire à la presque unanimité.
 
 M. l'abbé Pillet ne voit aucun avantage à créer des
@@ -7133,8 +6750,7 @@ Prenez garde surtout, par cette renonciation volontaire,!
 d'assumer aux yeux du peuple, la responsabilité du trouble
 apporté dans le service du culte et de paraître lier partie Le
 avec certaine politique impopulaire!
-Pour compléter cet exposé sommaire de la contro-
-verse qui divise les catholiques sur cette importante
+Pour compléter cet exposé sommaire de la controverse qui divise les catholiques sur cette importante
 question, voici une note que la Croix publie avec une
 M. l'abbé Gayraud déclare, à plusieurs reprises, que, si le
 pape oppose un non-expedit à l'acceptation de la loi de
@@ -7209,8 +6825,7 @@ la Chambre haute se soit prononcée. Entre sa décision et la
 mise en exécution, il peut n'y avoir que quelques jours; et
 cet intervalle serait tout à fait insuffisant pour que le clergé
 de chaque diocèse prépare l'état de choses nouveau et se
-dispose, par une organisation sérieuse, à continuer franche-
-ment et généreusement sa mission.:
+dispose, par une organisation sérieuse, à continuer franchement et généreusement sa mission.:
 
 Le cardinal Lecot expose ensuite qu'il ne peut pas …
 
@@ -7267,15 +6882,13 @@ faire. — Un certain nombre de ces Français quine sontpas
 dévots, comme ils disent, mais qui ont du cœur, et quelque
 souci des grands principes de liberté et de morale, voudront être avec nous dans la lutte et faire triompher nos
 On procédera ainsi, dans chaque famille chrétienne que à
-l'on visitera: premièrement, on donnera l'assurance complète qu'on ne s'engage à rien de nouveau, ni matérielle-
-ment, ni même moralement, en donnant son nom à la liste
+l'on visitera: premièrement, on donnera l'assurance complète qu'on ne s'engage à rien de nouveau, ni matériellement, ni même moralement, en donnant son nom à la liste
 des associés. La seule signification du nom donné, dans
 cette condition, est qu'on veut conserver l'Église catholique
 en France, et assurer la liberté du culte.
 On inscrira sur la liste les noms du père et de la mère De.
 comme associés, et on indiquera à côté le nombre de
-garçons et de filles habitant la maison paternelle. Ce der-
-nier renseignement sera très intéressant et pourra devenir
+garçons et de filles habitant la maison paternelle. Ce dernier renseignement sera très intéressant et pourra devenir
 fort utile dans l'avenir.On indiquera les pauvresparunsigne.
 La signature des associés pourra ne pas être exigée dans à
 ce travail préliminaire; mais il faudra toujours l'autorisa- À
@@ -7283,9 +6896,7 @@ tion claire et précise des intéressés, pour que le curé leur;
 fasse l'honneur de les inscrire sur cette liste. ‘le
 Nous demandons avec instance que ce travail soit fait
 avant notre première retraite pastorale, même dans les
-villes, où on se bornera au possible; et nous serions vrai-
-ment aflligé si, dans toutes les campagnes, on ne nous don-
-nait pas satisfaction dans le délai fixé. Les listes seront!
+villes, où on se bornera au possible; et nous serions vraiment aflligé si, dans toutes les campagnes, on ne nous donnait pas satisfaction dans le délai fixé. Les listes seront!
 envoyées à l'archevêché dans les conditions ordinaires.
 Au diocèse de Quimper
 L'évêque de Quimper publie une lettre-circulaire au
@@ -7303,8 +6914,7 @@ l'Etat, n'est pas des plus minimes: elle s'élève, pour notre
 diocèse seulement, au chiffre de 456.900 francs.,
 
 Cette somme pourra paraître exorbitante à plusieurs; et
-cependant, y compris l'évêque, les vicaires généraux, cha-
-noines, archiprêtres, curés, recteurs et vicaires, elle ne
+cependant, y compris l'évêque, les vicaires généraux, chanoines, archiprêtres, curés, recteurs et vicaires, elle ne
 donne, en moyenne, qu'un traitement de 765 francs par
 
 L'évêque examine ensuite les moyens d'arriver à
@@ -7351,8 +6961,7 @@ dans leurs paroissiens une intelligence de la situation
 générale et de leurs intérêts personnels aussi nette que;
 celle dont vous avez fait preuve en adhérant à l'association
 paroissiale de Vitry.
-Les adhésions sont très nombreuses: l'association parois-
-siale compte dès maintenant plus de 1.200 membres, dont
+Les adhésions sont très nombreuses: l'association paroissiale compte dès maintenant plus de 1.200 membres, dont
 À ce nombre ajoutez tous ceux à qui la prudence dans les
 circonstances actuelles commande l'abstention, mais qui:
 gardent dans le secret de leur cœur l'inviolable liberté de
@@ -7413,8 +7022,7 @@ formalité; elle se forms librement, sans autorisation, ni dé-
 
 2) Elle est plus sûre de son existence et de son autonomie, parce qu'elle ne livre à l'administration civile aucun
 
-) renseignement sur son but, son organisation et ses admi-
-nistrateurs. « Se déclarer, c'est fournir bénévolement à un
+) renseignement sur son but, son organisation et ses administrateurs. « Se déclarer, c'est fournir bénévolement à un
 gouvernement mal disposé les moyens de nous atteindre.
 Les congrégations se sort déclarées, et on s'est servi de
 leurs déclarations pour les supprimer. De plus le projet de
@@ -7430,19 +7038,14 @@ un très gros inconvénient.
 3) D'autant que l'associati non déclarée peut suflire à
 assurer la vie de la paroïsse,car il sera toujours permis à
 un particulier de louer, en nom personnel, tel ou tel
-immeuble et d'y installer chezlui, sinon chez elle, l'associa-
-tion paroissiale. — L'associathn non déclarée, au surplus, « peut recevoir et administrer 16 cotisations de ses membres
+immeuble et d'y installer chezlui, sinon chez elle, l'association paroissiale. — L'associathn non déclarée, au surplus, « peut recevoir et administrer 16 cotisations de ses membres
 et subventionner, avec le pioduit de ses collectes, les
 œuvres qu'elle soutient. Elle « légalement » en marge de « la loi, formant une associationdans le genre de l'Œuvre de
 la propagation de la foi.
 
-En fait, tout au moins, et want le vote du projet de sé-
-paration, l'association non déclæée paraît également préfé-
-rable, car:
+En fait, tout au moins, et want le vote du projet de séparation, l'association non déclæée paraît également préférable, car:
 
-1) Il ne s'agit pas pour le mon »nt d'acquérir des immeu-
-
-bles ou d'ester en justice, mais de préparer l'organisation
+1) Il ne s'agit pas pour le mon »nt d'acquérir des immeubles ou d'ester en justice, mais de préparer l'organisation
 
 des paroisses catholiques: l'association non déclarée
 
@@ -7486,8 +7089,7 @@ grouperait autour du curé, et non autour d'un politicien
 
 Au reste, où donc ces dissidents trouveraient-ils un
 prêtre pour les desservir, si l'évêque ne leur en donnait
-pas? C'est donc un bien mince danger, et qu'aucun sy-
-sième, en tout cas, ne peut faire éviter.
+pas? C'est donc un bien mince danger, et qu'aucun sysième, en tout cas, ne peut faire éviter.
 
 Voici maintenant comment ce comité cultuel entièrement
 dévoué au prêtre me servir à grouper les fidèles en as-
@@ -7496,8 +7098,7 @@ Nous allons composer d'avance un règlement qui recevra,
 bien entendu, l'approbation épiscopale, afin d'inscrire les
 adhérents et de recevoir leurs cotisations. Ce règlement,
 imprimé, sera envoyé à chaque famille de la paroisse qui
-devra se faire inscrire, immédiatement, dans celle des caté-
-gories d'adhérents qu'elle aura choisie. Il y aura, bien en
+devra se faire inscrire, immédiatement, dans celle des catégories d'adhérents qu'elle aura choisie. Il y aura, bien en
 tendu, une catégorie spéciale pour les indigents qui n'auront rien à payer. Je suis à peu près certain qu'il n'y aura
 qu'un nombre tout à fait infime de familles qui hésiteront
 à réclamer leur inscription.;
@@ -7522,8 +7123,7 @@ dépenses du culte et de son personnel.
 La base normale serait la fortune de chaque famille,
 d'après ses contributions au fisc. Ce serait une sorte de
 
-Mais le culte n'est pas seulement paroissial, il est diocé-
-sain; par conséquent, il embrasse, avec la paroisse, les
+Mais le culte n'est pas seulement paroissial, il est diocésain; par conséquent, il embrasse, avec la paroisse, les
 séminaires, l'administration, les villages dépourvus. Autrement, le presbytéranisme local serait vite une petite Église
 avec ses exigences; aussi faut-il que chaque paroisse se rattache à la grande Église, c'est-à-dire au diocèse et à son chef
 
@@ -7562,8 +7162,7 @@ l'Église et l'État soit bientôt un fait accompli, il est désor- à
 mais nécessaire que les catholiques de France s'unissent et
 se concertent pour un effort commun, sous la direction de
 leurs évêques et de leurs curés, en usant de tous les droits
-que la loi leur reconnaît, notamment la loi du premier jan-
-vier 1901 sur le contrat d'association.
+que la loi leur reconnaît, notamment la loi du premier janvier 1901 sur le contrat d'association.
 C'est pourquoi Son Éminence a demandé à MM. les curés,
 en leur représentant qu'il s'agit ici de l'un des devoirs les
 plus graves de l'heure présente, de préparer dans chacune
@@ -7572,10 +7171,8 @@ tions paroissiales, à l'aide desquelles il sera permis, le mo- à
 ment venu, de pourvoir aux intérêts religieux des popula- “.
 tions. Que MM. les curés se mettent donc à l'œuvre dès À
 aujourd'hui, et que, par des démarches multipliées et en
-s'aidant de tous les concours qu'ils peuvent rencontrer au-
-tour d'eux, ils établissent ces groupements qui seront la
-ressource suprême de demain; les œuvres de piété, d'ensei-
-gnement et de charité qui existent déjà dans leurs paroisses
+s'aidant de tous les concours qu'ils peuvent rencontrer autour d'eux, ils établissent ces groupements qui seront la
+ressource suprême de demain; les œuvres de piété, d'enseignement et de charité qui existent déjà dans leurs paroisses
 peuvent leur fournir pour la formation des associations
 projetées des ressources précieuses; qu'ils en tirent le
 parti le meilleur, en ayant soin toutefois d'élargir les cadres à
@@ -7634,8 +7231,7 @@ un article consacré à la charte qui détermine le nouveau ré-:
 gime religieux de la France, nous trouvons les réflexions
 « Dans l'hypothèse de la promulgation prochaine de laloi,
 ; une affaire nous préoccupe: il s'agit de la conduite à tenir,
-de l'attitude à prendre, du parti à tirer de ce nouveau ré-
-gime. Mettons-nous donc résolument devant la réalité et
+de l'attitude à prendre, du parti à tirer de ce nouveau régime. Mettons-nous donc résolument devant la réalité et
 organisons-nous pour vivre, — avec le secours divin, —sous
 cette forme nouvelle. Voilà l'œuvre urgente! » À
 Nous avons tenu à reproduire intégralement cette phrase « et ce conseil, dit M. Keller, dans sa correspondance. Nous
@@ -7659,7 +7255,7 @@ Nulle allusion n'est faite à l'Église et à sa hiérarchie. Et
 qui déterminera l'orthodoxie de l'association cultuelle? Le
 
 Voilà « la réalité devant laquelle on nous enjoint de nous
-mettre résolument »! Voilà « la forme nouvelle » avec laquelle on nous adjure de « vivre
+mettre résolument Voilà « la forme nouvelle » avec laquelle on nous adjure de « vivre
 
 L'auteur de l'article auquel nous faisons allusion paraît
 surtout hanté par le soin de sauvegarder les biens des
@@ -7688,8 +7284,7 @@ fasciner par ces largesses? Nullement. Le clergé de la vieille
 France sacrifia sans hésiter les faveurs dont le comblait la
 Constitution civile. Quelques ecclésiastiques, il est vrai,
 
-préférèrent l'argent au devoir. Mais l'opinion publique flé-
-trit ces traîtres, et l'Église qu'ils prétendirent fonder ne
+préférèrent l'argent au devoir. Mais l'opinion publique flétrit ces traîtres, et l'Église qu'ils prétendirent fonder ne
 dura que quelques mois.
 
 Ainsi, l'ancien clergé refusa de « tirer parti du nouveau
@@ -7711,13 +7306,11 @@ et a son siège social le plus près possible de l'ordinaire du
 diocèse, qui est de droit président du conseil d'administra- À
 tion. L'association se ramifie en sections correspondant aux
 paroisses actuelles. Le curé est président de droit de la Le -
-section paroissiale. A lui de constituer un bureau d'admi-
-nistration de la section et de travailler ensuite à trouver des
+section paroissiale. A lui de constituer un bureau d'administration de la section et de travailler ensuite à trouver des
 adhérents. Dans les paroisses de moins de mille habitants,
 
 la section sera administrée par un conseil de cinq membres,
-y compris le curé; dans les paroisses de plus de mille habi-
-tants, par un conseil de sept membres, y compris le curé.
+y compris le curé; dans les paroisses de plus de mille habitants, par un conseil de sept membres, y compris le curé.
 Deux dames peuvent faire partie du conseil de cinqmembres,
 trois dames du conseil de sept membres.
 
@@ -7766,8 +7359,7 @@ rait les manifestations publiques de la religion et diminue- #4
 rait son influence salutaire, en la privant de ses ressources.
 Après quoi vous leur demanderez s'ils veulent être du
 nombre de ceux qui se feront un devoir de soutenir le culte
-catholique. Vous pourrez ainsi préparer la liste des per-
-sonnes intelligentes, croyantes, dociles, généreuses, qui plus
+catholique. Vous pourrez ainsi préparer la liste des personnes intelligentes, croyantes, dociles, généreuses, qui plus
 tard se grouperont autour de vous, pour tous les besoins de
 la paroisse. A l'heure voulue nous complèterions nous-même
 vos réflexions par une courte instruction pastorale, où
@@ -7951,8 +7543,7 @@ est de droit réservée au curé ou dessereant.
 
 Notamment, il prononce souverainement et sans avoir à
 indiquer de motifs, sur l'admission ou la radiation des « associés, quels qu'ils soient; il règle le budget annuel,
-détermine les dépenses à faire, l'emploi des fonds dispo-
-nibles et des réserves; décide l'acquisition, la location où
+détermine les dépenses à faire, l'emploi des fonds disponibles et des réserves; décide l'acquisition, la location où
 laliénation des immeubles répondant au but de l'association;
 adopte tous les règlements intérieurs nécessaires à lexécution des statuts et prononce l'adhésion de l'association à
 toute fédération ou union d'associations.
@@ -7978,8 +7569,7 @@ emprunts et constitutions d'hypothèques, ainsi que sur les propositions
 de modification des statuts ou de dissolution de l'association, dont
 l'assemblée générale ne peut être saisie que par lui.
 (2) S'il doit y avoir des associations membres de lassociation
-paroissiale, rédiger ainsi le début de l'article 6: L'assemblée géné-
-rale se compose de tous les membres individuels de l'association et de
+paroissiale, rédiger ainsi le début de l'article 6: L'assemblée générale se compose de tous les membres individuels de l'association et de
 délégués des associations adhérentes à raison de deux délégués par
 chacune d'elles. Tous ont une voix, quel que soit le montant de leur
 cotisation individuelle ou de La cotisation versée par l'association qu'ils
@@ -8015,8 +7605,7 @@ Tous pouvoirs sont donnés audit représentant pour remplir les formalités de d
 Article 9. — En cas de dissolution volontaire ou forcée
 de l'association, le Conseil désigne un ou plusieurs commis-
 
-(1) Si Pon adopte la variante indiquée sous l'article 5 et diminuant les droits du Conseil, intercaler ici: et adopte le budget pré-
-paré par le Conseil. Elle approuve les délibérations du Conseil
+(1) Si Pon adopte la variante indiquée sous l'article 5 et diminuant les droits du Conseil, intercaler ici: et adopte le budget préparé par le Conseil. Elle approuve les délibérations du Conseil
 d'administration relatives aux acquisitions, échanges et aliénations
 immobilières, aux aliénations de biens dépendant du droit de réserve,
 aux emprunts et constitulions d'hypothèques. Elle
@@ -8040,11 +7629,9 @@ Son siège social est à... rue... n°... Il pourra être trans- Las
 féré partout aïlleurs par décision du Conseil directeur.:
 Sa durée est illimitée.
 Article 2. — Elle a pour but de contribuer à la fondation,
-au maintien et à la propagation de toutes œuvres quelcon-
-ques, établissements ou institutions, susceptibles de donner
+au maintien et à la propagation de toutes œuvres quelconques, établissements ou institutions, susceptibles de donner
 satisfaction aux intérêts catholiques dans le département (3)
-Elle pourra louer ou acquérir tous les immeubles répon-
-dant à ces buts. #4
+Elle pourra louer ou acquérir tous les immeubles répondant à ces buts. #4
 Article 3. — Elle se compose:
 1° De membres individuels payant une cotisation annuelle;
 de (500) francs. (4) Les femmes sont admises; (5)
@@ -8053,8 +7640,7 @@ vail de liquidation. Et.
 (4) Mettre un gros chiffre de cotisation, v. g. 400 ou 500 francs au
 moins, pour rejeter les individus dans les associations paroissiales.
 Dés lors ne pas parler de rachat des cotisations.
-(5) Si l'on ne veut composer l'union que d'associations exclusi-
-vement, supprimer le paragraphe premier.
+(5) Si l'on ne veut composer l'union que d'associations exclusivement, supprimer le paragraphe premier.
 
 D'associations paroissiales (1) déclarées, payant une
 cotisation annuelle de:
@@ -8089,8 +7675,7 @@ la direction de l'Union.
 
 (1) Ou communales ou cantonales.
 
-(2) Mettre tels chiffres qu'on voudra, mais créer plusieurs caté-
-gories, de façon à admettre les associations les plus pauvres
+(2) Mettre tels chiffres qu'on voudra, mais créer plusieurs catégories, de façon à admettre les associations les plus pauvres
 comme les plus riches.
 
 (3) Si l'on exclut de l'Union les membres individuels, dire: Nulle
@@ -8165,8 +7750,7 @@ variante indiquée sous l'article 5, note 3, placer ici la phrase sui-:
 vante: Elle adopte le budget préparé par le Conseil, approuve les
 délibérations de celui-ci relatives aux acquisitions, échanges et aliénations immobilières, aux aliénations de biens dépendant du fonds de
 réserve, aux emprunts et constitutions d'hypothèques (la suite comme
-(2) Supprimer cette phrase si l'on fait disparaître la phrase cor-
-respondante à la fin du paragraphe premier sous l'article 4. — Si,
+(2) Supprimer cette phrase si l'on fait disparaître la phrase correspondante à la fin du paragraphe premier sous l'article 4. — Si,
 au contraire, on admet la variante indiquée sous l'article 4, page 261,:
 note 4, remplacer ici la phrase du texte par celle-ci: Elle pourooit
 au renouvellement du Conseil, conformément à ce qui a été dit à
@@ -8175,8 +7759,7 @@ l'article 4, paragraphe premier.
 tous les actes de la vie civile par son président ou par un
 membre du Conseil délégué par celui-ci, sans que le ditreprésentant soit jamais tenu de produire aux tiers aucune A
 autorisation du Conseil.
-Le représentant de l'Union peut lui-même, sous sa respon-
-sabilité, se substituer un mandataire dans tout ou partie
+Le représentant de l'Union peut lui-même, sous sa responsabilité, se substituer un mandataire dans tout ou partie
 des actes.
 Tous pouvoirs lui sont donnés pour remplir les formalités:
 de déclarations, publications, réclamations de récépissés,
@@ -8192,8 +7775,7 @@ Formalités à remplir au nom des associations
 ou unions déclarées 4 NI. Formalités initiales assurant l'existence légale de l'asso
 ciation et lui permettant de fonctionner régulièrement dans
 la limite de ses statuts.
-A. Déposer à la préfecture, dans l'arrondissement chef-
-lieu, ou à la sous-préfecture de l'arrondissement Paris, à
+A. Déposer à la préfecture, dans l'arrondissement cheflieu, ou à la sous-préfecture de l'arrondissement Paris, à
 la préfecture de police, cabinet du préfet, deuxième bureau,
 deuxième section; à Lyon, à la préfecture, section de police, "4
 bureau des associations)
@@ -8211,8 +7793,7 @@ La signature d'un seul membre du Conseil d'administration, du Président par exe
 papier timbré à o franc 60, et certifiés conformes soit par le
 président soit par un membre du Conseil d'administration.
 
-Un registre à pages numérotées, destiné à relater ulté-
-rieurement les modifications apportées aux statuts et les
+Un registre à pages numérotées, destiné à relater ultérieurement les modifications apportées aux statuts et les
 changements survenus dans l'administration ou la direction
 de l'association. Ce registre sera retourné au siège social où
 il doit demeurer, après avoir été visé sur la première page
@@ -8233,19 +7814,17 @@ Cerf, 8, place de la Bourse, à Paris. — Prix, trois francs la
 
 ligne. La réponse est donnée par retour du courrier.
 
-«: (Modèle d'insertion: Association paroissiale de... Objet:
+(Modèle d'insertion: Association paroissiale de... Objet:
 création et propagation d'œuvres répondant aux intérêts catholiques. Siège social:.… Déclaration du...)
 
 La reproduction de l'extrait publié dans l'Oficiel au Recueil des actes administratifs de la préfecture est faite par
-les soins du préfet, sans intervention obligatoire des repré-
-sentants de l'association. Ceux-ci sont libres toutefois de remettre à la préfecture ou à la sous-préfecture qui a reçu la
+les soins du préfet, sans intervention obligatoire des représentants de l'association. Ceux-ci sont libres toutefois de remettre à la préfecture ou à la sous-préfecture qui a reçu la
 déclaration un numéro de l'Oficiel contenant l'insertion.
 
 Il. Formalités de publicité postérieures à constitution ne
 de l'association #4
 Pour tous changements dans l'administration ou la direction de l'association (changement dans le personnel du Conseil d'administration, changement de siège social, fondation
-de nouveaux établissements, adhésion de nouvelles associa-
-tions pour une union, acquisitions ou aliénations d'immeubles) et pour toutes modifications dans les statuts, l'association ou l'union doit: #2
+de nouveaux établissements, adhésion de nouvelles associations pour une union, acquisitions ou aliénations d'immeubles) et pour toutes modifications dans les statuts, l'association ou l'union doit: #2
 A. Déposer à la préfecture ou à la sous-préfecture qui a
 reçu la déclaration initiale:
 1° Une déclaration sur papier timbré à o franc 60, signalant a
@@ -8260,8 +7839,7 @@ Ledit dépôt doit être effectué dans les trois mois à comp
 ter du jour où le changement est devenu définitif, par
 exemple, pour une modification des statuts, à partir du
 jour où elle a été adoptée par l'assemblée générale. à
-B. Mentionner lesdits changements et les dates des récé-
-pissés à eux relatifs sur le registre à pages numérotées con
+B. Mentionner lesdits changements et les dates des récépissés à eux relatifs sur le registre à pages numérotées con
 servé au siège social, de suite et sans blanc.
 Il n'y a pas lieu à insertion au Journal officiel pour ces
 changements ou modifications.
@@ -8289,9 +7867,7 @@ Ordre du jour sur la Séparation des Églises et de l'État.
 
 Le Synode général oflicieux des Églises réformées de
 
-Assuré que le Parlement respectera l'organisation presbytérienne et synodale qui a fait, par son principe démo-
-
-cratique et parlementaire, la force et l'honneur de l'Église
+Assuré que le Parlement respectera l'organisation presbytérienne et synodale qui a fait, par son principe démocratique et parlementaire, la force et l'honneur de l'Église
 réformée de France;
 Convaineu qu'il laissera aux Associations cultuelles à
 l'usage permanent des édifices consacrés au culte, leur
@@ -8323,13 +7899,10 @@ Considérant que l'exercice de ce droit de contrôle et
 d'approbation, parfaitement justifié et facilement praticable
 lorsqu'on se trouve en présence d'associations cultuelles peu
 nombreuses, rendrait, au contraire, très difficile ladministration régulière des Églises si tous les actes de gestion
-devaient être soumis à l'approbation d'une assemblée géné-
-rale composée de toutes les personnes majeures domiciliées
+devaient être soumis à l'approbation d'une assemblée générale composée de toutes les personnes majeures domiciliées
 dans la paroisse;
 
-Considérant que l'administration des biens des associations paroissiales protestantes sera confié à un comité-
-
-directeur élu par les fidèles membres de l'association, et qui
+Considérant que l'administration des biens des associations paroissiales protestantes sera confié à un comitédirecteur élu par les fidèles membres de l'association, et qui
 prendra le nom de Conseil presbytéral;
 Considérant que des unions d'associations se formeront
 également et seront administrées par des Consistoires et des
@@ -8338,13 +7911,11 @@ présenteront pour la gestion des biens appartenant à ces
 unions qui, en vertu de l'article 18, sont soumises aux
 dispositions des cinq derniers paragraphes de l'article
 Considérant que, dans ces conditions, il serait équitable
-de permettre à l'assemblée générale de déléguer des pou-
-voirs à un comité-directeur composé d'un nombre de mem-:
+de permettre à l'assemblée générale de déléguer des pouvoirs à un comité-directeur composé d'un nombre de mem-:
 bres au moins égal à celui qui est exigé par l'article 17 pour
 les associations cultuelles elles-mêmes; Li:
 Le Consistoire s'adresse respectueusement à Monsieur le
-Ministre des Cultes et lui demande de proposer à la Commis-
-sion du Sénat des modifications ayant pour but de permettre.
+Ministre des Cultes et lui demande de proposer à la Commission du Sénat des modifications ayant pour but de permettre.
 à l'assemblée générale de l'association de déléguer ses droits
 de contrôle et d'approbation à un comité-directeur élu dans Es:
 les conditions déterminées par les statuts et composé du
@@ -8356,8 +7927,7 @@ sion exécutive de l'Église de la Confession d'Augsbourg.
 dans sa séance du 19 juillet 1905, et présenté à M. le
 Ministre des Cultes.
 La Commission exécutive de l'Église de la Confession -
-1° Considérant que les Conseils presbytéraux et les Con-
-sistoires sont propriétaires de valeurs dont les revenus
+1° Considérant que les Conseils presbytéraux et les Consistoires sont propriétaires de valeurs dont les revenus
 sont affectés au soulagement des pauvres;
 
 Considérant qu'il n'existe dans l'Église luthérienne aucun
@@ -8405,24 +7975,21 @@ peuvent se constituer comme associations de personnes;
 
 Considérant que par l'adoption, dans la séance du
 19 juin, de l'amendement présenté par M. Cruppi, l'article
-soumet au contrôle et à l'approbation de l'Assemblée géné-
-rale des membres de l'Association tous les actes de gestion au
+soumet au contrôle et à l'approbation de l'Assemblée générale des membres de l'Association tous les actes de gestion au
 
 ; et d'administration accomplis par les directeurs ou admi- à
 
 Considérant qu'une telle obligation rendrait impossible le
 libre fonctionnement des associations nombreuses
 
-Considérant qu'une telle disposition atteindrait spéciale-
-ment les Églises protestantes qui, en se conformant à leurs
+Considérant qu'une telle disposition atteindrait spécialement les Églises protestantes qui, en se conformant à leurs
 anciennes disciplines, constitueront des Associations cul- btuelles comprenant tous les fidèles domiciliés ou résidant
 dans la paroisse;;
 
 Considérant que l'article 19, en n'autorisant pas les
 Associations cultuelles à recevoir des fondations pour À
 l'entretien des ministres du culte, ne permettra pas à A
-celles-ci de se substituer à l'État ‘pour pourvoir régulière-
-ment au traitement des pasteurs;
+celles-ci de se substituer à l'État ‘pour pourvoir régulièrement au traitement des pasteurs;
 
 Considérant que l'article 22 limite trop strictement le.
 fonds de réserve, puisqu'il ne peut dépasser en capital, soit
@@ -8487,8 +8054,7 @@ doivent réunir: sept pour les communes de 1.000 habitants, quinze pour les comm
 habitants. Je rappelle que, comprise d'une certaine
 
 manière, cette mesure pourrait, en une quantité de
-grandes villes, supprimer, pour les protestants, l'exer-
-cice public du culte. Ce n'est pas moins vrai pour les,
+grandes villes, supprimer, pour les protestants, l'exercice public du culte. Ce n'est pas moins vrai pour les,
 Le projet de loi a voulu établir une proportionnalité?
 entre la population d'une localité et les associations;
 cultuelles qui s'y formeront. Mais la présomption admise
@@ -8503,9 +8069,7 @@ inscrits sur les listes consistoriales
 Il est pourtant extraordinaire que la loi de séparation,
 réalisant enfin les vœux exprimés par les libéraux À
 
-depuis un siècle, proclame la liberté des cultes, sup-
-
-prime de nos codes tous les articles qui faisaient
+depuis un siècle, proclame la liberté des cultes, supprime de nos codes tous les articles qui faisaient
 
 obstacle à cette liberté, et soudain, par une disposition:
 
@@ -8532,8 +8096,7 @@ droit essentiel, un droit qu'elle tenait à consacrer. C'est
 également sans le vouloir, dans la hâte d'une séance
 
 trop chargée, par suite d'une information inexacte,
-qu'elle a commis une autre injustice à l'égard des israé-
-lites. La loi de 1885, relative aux Facultés de théologie
+qu'elle a commis une autre injustice à l'égard des israélites. La loi de 1885, relative aux Facultés de théologie
 personnel enseignant des Facultés de théologie protestante. L'amendement, déposé par M. Marc Réville,
 ensuite par le regretté Albert Le Roy, étendait le
 bénéfice de cette disposition à « École centrale
@@ -8558,8 +8121,7 @@ gouvernement; ses programmes d'enseignement sont
 approuvés par le Ministre; ses professeurs sont nommés par l'État et rétribués par l'État. Il porte, il est
 vrai, un nom peut-être malencontreux. S'il avait gardé …
 : son ancien nom, il aurait sans doute évité l'accident
-dont je parle. Mais ce qui est certain, c'est que le légis-
-lateur n'a point réglé son sort, il faudra revenir sur ce
+dont je parle. Mais ce qui est certain, c'est que le législateur n'a point réglé son sort, il faudra revenir sur ce
 Les israélites sont, en outre, fort émus par un autre
 détail de la loi. Les ministres des cultes rétribués par
 l'État, qui ne se trouveront pas dans les conditions
@@ -8582,12 +8144,10 @@ puisse bénéficier de la mesure adoptée.
 D'après les déclarations mêmes de M. BienvenuMartin, plus de 28.000 communes, sur 36.000 environ,
 ont une population inférieure à 1.000 habitants. Donc
 Vimmense majorité des prêtres catholiques recevront
-pendant huit ans au lieu de quatre les allocations pré-
-vues par la loi. Il ne faut pas le regretter; car cela
+pendant huit ans au lieu de quatre les allocations prévues par la loi. Il ne faut pas le regretter; car cela
 favorisera la transition d'un régime à l'autre et atténuera
 : la crise. Un certain nombre de pasteurs protestants —
-mais dans une proportion beaucoup moindre — profite-
-ront de cette disposition. Mais pas un seul rabbin n'en
+mais dans une proportion beaucoup moindre — profiteront de cette disposition. Mais pas un seul rabbin n'en
 ürera quelque avantage; car il n'y a pas une seule
 Communauté juive qui ne soit établie dans une commune
 de plus de 1.000 habitants. Avec une autre base de
@@ -8598,9 +8158,7 @@ corrigé? Il y a des cas où une déclaration autorisée à la
 tribune et le règlement d'administration publique suffisent. En voici un. Un article voté par la Chambre
 interdit de cumuler les pensions ecclésiastiques avec
 tout traitement payé par l'État, les départements ou les
-communes. D'autre part, l'article 2, modifié par l'amendement Sibille, permet les services rétribués d'aum6nérie. On a oublié de mettre les deux articles en con270
-
-à cordance. Cela n'est pas grave. La commission du.
+communes. D'autre part, l'article 2, modifié par l'amendement Sibille, permet les services rétribués d'aum6nérie. On a oublié de mettre les deux articles en conà cordance. Cela n'est pas grave. La commission du.
 Sénat a été saisie de la question: un ministre du culte
 ; pourra-t-il toucher une indemnité comme aumônier et …
 jouir d'une pension? Elle s'est montrée favorable à ce
@@ -8643,17 +8201,13 @@ des communes. Ensuite difficulté d'évaluer ce
 « cadeau » fait à l'Église. Enfin, devant l'incer-
 : titude de l'avenir, répugnance pour l'aliénation À
 définitive. D'ailleurs la donation de M. Augagneur
-n'est pas une vraie donation. Proposition meil-
-leure de M. Réveillaud. Loyer fictif ou symbo-
-lique. On peut inscrire dans le bail des clauses "4
+n'est pas une vraie donation. Proposition meilleure de M. Réveillaud. Loyer fictif ou symbolique. On peut inscrire dans le bail des clauses "4
 résolutoires et fixer les conditions de la désaffec-
 Il. — Les associations cultuelles. — 2 avril 1905..
 Question des associations cultuelles. Pensées #4
-en conflit. Catholiques redoutent un piège: pré-
-pare-t-on des schismes? Républicains refusent
+en conflit. Catholiques redoutent un piège: prépare-t-on des schismes? Républicains refusent
 de figer eux-mêmes le catholicisme dans sa forme
-actuelle. Vrai but de la séparation: la sécula-
-risation de l'État, non la dissolution de l'Église. RE.
+actuelle. Vrai but de la séparation: la sécularisation de l'État, non la dissolution de l'Église. RE.
 Il faut qu'à l'origine les associations cultuelles
 continuent les établissements publics supprimés.
 Pourquoi l'évêque doit intervenir. Pourquoi il
@@ -8676,7 +8230,7 @@ cution contre les luthériens. Exemples: Jelsheiïm, «
 Dorlisheim, Münzenheim. Mêmes faits dans le;
 pays de Montbéliard: Héricourt, Chagey. Le
 simultaneum supprimé partout, dès qu'on l'a pu.
-Les mauvais tours que ce régime permettrait -:
+Les mauvais tours que ce régime permettrait
 actuellement. Ne point parodier Louis XIV.
 Proposition de « Union démocratique ». Souci à
 de sauvegarder droits de l'État et constitution
@@ -8686,8 +8240,7 @@ irait contre notre droit public. Ne serait-elle pas
 un privilège énorme pour de petits comités dirigés par les évêques? L'accorderait-on à des
 schismatiques? L'État prendra-t-il parti entre
 les religions? Et les dissidents actuels? D'autre
-part, les Églises auraient des objections à pré-
-senter. Qui rédigera les statuts? Craintes de la
+part, les Églises auraient des objections à présenter. Qui rédigera les statuts? Craintes de la
 hiérarchie catholique. Menace perpétuelle de
 retirer la reconnaissance d'utilité publique. L'État
 peut organiser autrement un contrôle sérieux. Il
@@ -8695,7 +8248,7 @@ peut respecter, dans la formation des associations,
 les droits de la hiérarchie et imposer certaines
 conditions de nombre. Amendement de M. Marc
 Article 4 est voté. Histoire d'une petite correction; « biens appartenant aux menses, etc.
-puis « biens administrés par les menses, etc. »;
+puis « biens administrés par les menses, etc.
 enfin: « biens des menses, etc. » Une plus grosse
 correction: « en se conformant aux règles d'organisation générale du culte ». En réalité, la loi
 consacre ce qui était inévitable. Les évolutions
@@ -8714,23 +8267,20 @@ d'une société de pêcheurs à la ligne. Législation
 américaine; textes. Amendementis de M. Buisson.
 Il reprend l'idée d'une exigence numérique. En É:.
 cas de schisme, à qui faut-il attribuer les biens? 1%
-La théorie anglo-saxonne est la meilleure. Dis-
-tinction entre les biens possédés et les biens
+La théorie anglo-saxonne est la meilleure. Distinction entre les biens possédés et les biens
 dont on a la jouissance.
 Amendements intéressants de M. Buisson. Ni
 L'association cultuelle, héritière des biens d'un « établissement public du culte, doit rester ouverte
-à tous ceux qui, avant la séparation, apparte-
-naient à ce culte. Préoccupation légitime du
+à tous ceux qui, avant la séparation, appartenaient à ce culte. Préoccupation légitime du
 législateur. M. Buisson et la formation des
 sociétés cultuelles. Pour les protestants et les Le:
 israélites, pas de difiicultés; textes. Difficultés Et
 pour les catholiques. Impossible moralement A.
 d'introduire la cohue dans leurs associations.
 catholicisme qui se retourne contre lui. On ne
-s'en servira pas. «:
+s'en servira pas.
 Nécessité d'insister sur une condition de ‘#4
-nombre dans la formation des associations héri-
-tières de biens. Quorum exigible sans que l'État
+nombre dans la formation des associations héritières de biens. Quorum exigible sans que l'État
 se mêle de ce qui ne le regarde pas. Hypothèse à
 d'un schisme dans une paroisse catholique.
 
@@ -8755,9 +8305,7 @@ vue. La concession apparente, faite à M. Buisson, gène la liberté des cultes.
 Sur le sort des ministres des cultes. Le chiffre
 des pensions à reviser. Les conditions pour les
 obtenir sont trop étroites. Où conduit le calcul
-des années salariées par l'État. Clergé catho287
-
-quatrième cahier de la septième série
+des années salariées par l'État. Clergé cathoquatrième cahier de la septième série
 . Jique. Comment débutent les jeunes prêtres. Au “4
 diocèse d'Angers. Chez les protestants; pasteurs
 titulaires et pasteurs auxiliaires; ces derniers Le
@@ -8783,8 +8331,7 @@ les presbytères, les séminaires et les facultés
 de théologie protestante. Décision de la Cham- a
 XII. — L'Union des associations. — 18 juin 1905
 Les Églises protestantes irréductibles sur cette
-question. Ordre du jour du Synode réformé off-
-cieux de Reims. Synode luthérien. Pétitions. Ce
+question. Ordre du jour du Synode réformé offcieux de Reims. Synode luthérien. Pétitions. Ce
 que craignent les républicains. Si le danger est
 réel, il tient à la création même des associations à
 cultuelles. Ce que permet la loi de 1901. Les de
@@ -8795,10 +8342,8 @@ gallicanisme. Méfiances du Vatican. Le projet de
 Ce mot de « police » inquiète. On a tort. Compléter ces trois mots par ceux-ci: et garantie
 de leur libre exercice ». Corrections nécessaires.
 Il faut, en cas de nécessité, mettre en cause l'as- à
-sociation et non ses directeurs et administra-
-teurs. En cas de délit commis par un prédicateur,
-la responsabilité de l'association n'est pas tou-
-jours réelle. La prononcer pour la récidive. Appliquer la loi de sursis.
+sociation et non ses directeurs et administrateurs. En cas de délit commis par un prédicateur,
+la responsabilité de l'association n'est pas toujours réelle. La prononcer pour la récidive. Appliquer la loi de sursis.
 Ecclésiastiques qui devront peut-être abandonner le ministère et faire des études de droit,
 de lettres, etc. Facilités à leur procurer. Situation de jeunes ecclésiastiques vis-à-vis de la loi
 Le Sénat votera-t-il la loi sans lamender? Pourtant quelques corrections nécessaires. Une clause
@@ -8816,10 +8361,8 @@ contradiction avec le sens général de la loi. Les
 quatrième cahier de la septième série
 s'agit pas de religions futures. A « Union pour
 l'action morale » (note). Les minorités religieuses
-dans les grandes villes. N'auront-elles pas la li-
-berté des cultes? Et s'il se produit un schisme Fr.
-quelque part? Une simple déclaration du gou-
-vernement suffit-elle?
+dans les grandes villes. N'auront-elles pas la liberté des cultes? Et s'il se produit un schisme Fr.
+quelque part? Une simple déclaration du gouvernement suffit-elle?
 Pour corriger la loi, il suffit de s'inspirer des
 intentions qu'elle manifeste. Article 7: question ue.
 des « biens des pauvres ». Pourquoi ne pas les
@@ -8837,8 +8380,7 @@ cle 22: le fonds de réserve. Immoralité de la loi
 quand elle invite à faire des « caisses noires ».
 
 XIX. — Questions de personnes. — 24 septembre
-Émotion causée par l'article 12. Trop de souf-
-frances de femmes et d'enfants. Une enquête
+Émotion causée par l'article 12. Trop de souffrances de femmes et d'enfants. Une enquête
 dans les Églises protestantes. Les deux tiers des
 pasteurs, fréquemment âgés et chargés de ne
 famille, exelus des pensions. Les titulaires et
@@ -8852,8 +8394,7 @@ croyantes l'habitude de ne rien payer pour le
 culte. Une transition nécessaire. Un danger pour
 la République.
 XX. — Vues catholiques sur la séparation. —
-L'abbé Hemmer. Une brochure de lui. Il annon-
-çait la séparation dès 1892. Il pense que les
+L'abbé Hemmer. Une brochure de lui. Il annonçait la séparation dès 1892. Il pense que les
 catholiques auraient la demander. Un écho de
 Lacordaire. Ne pas désirer une nouvelle convention entre l'État et le Saint-Siège. Accepter la
 liberté. Le fonctionnarisme dans l'Église actuelle.
@@ -8889,14 +8430,8 @@ pratique de la Direction des cultes (note). Le À
 
 droit canon et la nomination aux cures. Que
 
-sont devenus les concours et les synodes. L'ar-
-
-chevêque Darboy et le chapitre de Sainte-Gene-
-
-viève. L'inamovibilité des curés. Affaire de
-l'abbé Roy. Les vicaires. Les chapitres des cathé-
-
-drales. Des satrapes diocésains. Retour sur l'ar-
+sont devenus les concours et les synodes. L'archevêque Darboy et le chapitre de Sainte-Geneviève. L'inamovibilité des curés. Affaire de
+l'abbé Roy. Les vicaires. Les chapitres des cathédrales. Des satrapes diocésains. Retour sur l'ar-
 
 La future organisation de l'Église catholique
 
@@ -8945,8 +8480,7 @@ Règlement d'administration publique peut-il cor- À
 : riger une loi? ne
 Robert Dreyfus. — La vie et les prophéties du (4
 comte de Gobineau, — édition Calmann Léoy..
-Gaston Raphaël. — Le Rhin allemand, — dix-
-neuvième cahier de la quatrième série.........
+Gaston Raphaël. — Le Rhin allemand, — dixneuvième cahier de la quatrième série.........
 
 .
 12, rue de la Grange-Batelière, PARIS
@@ -8979,8 +8513,7 @@ Trois mois Six mois Un an
 PARIS, SEINE, SEINE-ET-OISE 8 francs 16 francs 32 francs
 
 rez-de-chaussée, Paris, cinquième arrondissement.
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi-.
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi-.
 naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions;
 Nos Cahiers paraissent par séries; une série paraît

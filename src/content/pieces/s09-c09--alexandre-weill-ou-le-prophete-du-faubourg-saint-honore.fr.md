@@ -97,7 +97,7 @@ II. — précis historique de la loi Falloux.
 — Où M. de Falloux devient ministre;
 II. — Le parti catholique français et la liberté
 de l'enseignement;
-V. — Les « catholiques avant tout »;
+V. — Les « catholiques avant tout
 III. — l'expédition de Rome (1848-18/9).
 IL. — L'assassinat du comte Rossi;
 V. — Les Français devant Rome;
@@ -137,9 +137,7 @@ Conférence faite à la Société des Études juives, le 23 mars 1907,
 étonné d'avoir des rêves de ce genre. Celui-ci pourtant
 m'avait vivement frappé.
 
-D'abord je n'éveillai tout de suite après le songe, en réei-
-
-tant le verset, ce qui, d'après le Talmud, est signe de pro-
+D'abord je n'éveillai tout de suite après le songe, en réeitant le verset, ce qui, d'après le Talmud, est signe de pro-
 
 Puis, la vision était si nette, si claire, si palpable, que
 je ne pus m'empêcher de la communiquer à mon rabbi et
@@ -184,12 +182,9 @@ Ersue toutes choses. Ou plutôt, il avait sur toutes choses
 qui fut très longue, (1) Alexandre Weill fut constamment assiégé par une idée, — je dis bien, une seule, —
 mais qui lui était très personnelle, et qui était hardie,
 et qui est peut-être assez importante. Cette idée (que je:
-vous exposerai de mon mieux vers la fin de cette cau-
-serie), Alexandre Weill l'a contrôlée inlassablement à
+vous exposerai de mon mieux vers la fin de cette causerie), Alexandre Weill l'a contrôlée inlassablement à
 tous les plus hauts problèmes de la religion et de la
-philosophie, et aux accidents les plus menus de lhis-
-toire, de la politique, ou même de la vie privée. Et pen-
-dant un demi-siècle, il l'a caressée et servie à sa
+philosophie, et aux accidents les plus menus de lhistoire, de la politique, ou même de la vie privée. Et pendant un demi-siècle, il l'a caressée et servie à sa
 manière, c'est-à-dire de mille manières: en français et
 en allemand; en prose et en vers, — en très mauvais
 vers; par des envolées, des fureurs et des boutades, —
@@ -197,8 +192,7 @@ vers; par des envolées, des fureurs et des boutades, —
 ; S'il est parmi vous des personnes qui aient connu
 . Alexandre Weill, elles ont garder sur lui une opinion:
 faite de leurs sentiments et de leurs souvenirs. Pour
-moi, je ne l'ai jamais vu. Mais j'ai tant vécu dans l'inti-
-mité de sa parole écrite que j'ai, moi aussi, une sorte
+moi, je ne l'ai jamais vu. Mais j'ai tant vécu dans l'intimité de sa parole écrite que j'ai, moi aussi, une sorte
 de vision de sa personne. Et c'est cette vision que je
 voudrais vous communiquer telle quelle.
 (1) en Alsace au printemps de 1811, Alexandre Weill mourut
@@ -211,8 +205,7 @@ aux morts; mais on leur doit aussi et surtout la vérité,
 la permission de parler ici en toute franchise et de
 peindre Alexandre Weill tel que je le vois, c'est-à-dire
 dans cet amalgame d'originalités presque sublimes et
-de manies un peu baroques, qui me paraît la caracté-
-ristique de sa nature si étrange, si représentative du.
+de manies un peu baroques, qui me paraît la caractéristique de sa nature si étrange, si représentative du.
 génie et de certaines bizarreries d'Israël.
 Mais je ne puis songer à vous présenter une étude
 complète de la vie et de l'œuvre d'Alexandre Weill: je
@@ -254,8 +247,7 @@ que ne saurait faire aucun ouvrage de science et d'histoire, la vie, les traditi
 —._ Je ne saurais trop recommander la lecture de Ma Jeu- -
 nesse à ceux d'entre vous qui ne connaîtraient pas ce
 livre (sauf cependant aux très jeunes filles); et je vous
-en promets un plaisir extrême. Pour moi, je dois renon-
-cer à vous en faire saisir tout le savoureux et le pittoLS
+en promets un plaisir extrême. Pour moi, je dois renoncer à vous en faire saisir tout le savoureux et le pittoLS
 (M. Fernand Vandérem, dans son beau roman des Deux Rives, a
 magnifiquement créé un type Juif prophétique, qui est d'ailleurs
 un juif étranger. Mais les Deux Rives sont quand même un roman
@@ -269,8 +261,7 @@ indication sur l'esprit dans lequel il convient de les
 
 dans une époque
 où les principes de 89 ont commencé à pénétrer la moelle
-du judaïsme et à expulser les parties corrompues du Tal-
-mudisme. À cheval sur un passé qui se meurt et un avenir
+du judaïsme et à expulser les parties corrompues du Talmudisme. À cheval sur un passé qui se meurt et un avenir
 qui naît, je ferai connaître au public tout un monde à lui
 inconnu, qui disparaissant depuis cinquante ans, et qui,
 malgré les tentatives réactionnaires des prêtres et des
@@ -288,8 +279,7 @@ rabbin, et je l'ai pour ainsi dire malgré moi, je me suis
 dit: « Tu ne mangeras pas de ce pain de mensonge et
 
 Un instant, on me berça de l'idée de devenir un grand
-réformateur dans le judaïsme, mais ces genres de réforma-
-teurs m'ont fait l'effet de médecins, coupant un orteil malade
+réformateur dans le judaïsme, mais ces genres de réformateurs m'ont fait l'effet de médecins, coupant un orteil malade
 d'une jambe gangrenée. Sauf l'idée de Dieu de Moïse, tous
 les attributs de la Bible et du Talmud m'ont paru contraires
 
@@ -300,8 +290,7 @@ mal que bien, sans avoir recours à ce pain de mystère,
 
 Ce ton ne doit pas nous surprendre. Élevé pour être
 rabbin, Alexandre Weill a rompu de bonne heure avec
-la synagogue pour se transformer en prophète indépendant, très libre et souvent fort agressif envers les repré-
-sentants du culte officiel, comme étaient les anciens
+la synagogue pour se transformer en prophète indépendant, très libre et souvent fort agressif envers les représentants du culte officiel, comme étaient les anciens
 prophètes, ou, si vous préférez, en libre-penseur juif,
 disposé à identifier les principes du mosaïsme avec ceux
 de la Révolution française. (1)
@@ -325,8 +314,7 @@ indiqués par lui, La Loi de la justice absolue; idée universelle
 que la Révolution a tronquée en Fraternité restreinte. » (Code
 
 Schneider promener à travers l'Alsace les atrocités de
-sa guillotine, Son propre père avait exercé à Stras-
-bourg les fonctions de greffier révolutionnaire: Il fut,
+sa guillotine, Son propre père avait exercé à Strasbourg les fonctions de greffier révolutionnaire: Il fut,
 nous dit Alexandre Weill, l'ami de Robespierre et de
 Saint-Just, ce dont son petit-fils le félicite sincèrement. » (1)
 
@@ -472,8 +460,7 @@ qu'à tour de rôle chaque famille israélite admiît quelques
 du ciel te jettera une amande en guise de récompense. — Il y a
 donc des amandiers au ciel? lui répondis-je. » (Ma Jeunesse, page 30)
 — « À cinq ans et demi, après avoir traduit le premier verset hé-
-: « Avec le commencement Dieu créa les cieux et la terre je deman-
-dai à M. Lévy, mon maître d'école: « Et qu'est-ce que Dieu à fait
+: « Avec le commencement Dieu créa les cieux et la terre je demandai à M. Lévy, mon maître d'école: « Et qu'est-ce que Dieu à fait
 avant de créer le monde? » Au lieu de me répondre, il mappliqua
 sur l'épaule une douzaine de coups de règle en s'écriant: (Malheureux, tu renieras la foi d'Israël! » De fait, il a dit vrai. J'arracherai
 avec la racine l'ivraie pullulante de toutes les religions fondées sur
@@ -595,8 +582,7 @@ pas, malheureux, que tu es poussière, et que tu y retourneras. » Le rabbi qui 
 Cela durait tous les jours, de 9 heures à midi, sauf le
 vendredi et le samedi. (1)
 Pourtant, cette théologie n'absorbaït pas entièrement!
-le jeune Alexandre. Sa curiosité d'esprit, sa soif inté-
-rieure de justice le tournaient vers le monde moderne.
+le jeune Alexandre. Sa curiosité d'esprit, sa soif intérieure de justice le tournaient vers le monde moderne.
 Des journaux français parvenaient à Francfort: c'étaient
 F. le Constitutionnel, la Gazette de France. (2) Et comme
 les événements de France ont toujours le don
@@ -654,22 +640,18 @@ Le soir, nous dansions comme des forcenés dans nos
 chambres, en gueulant la Marseillaise... (1}
 
 à C'est vers le même temps que notre héros entreprend
-… de se donner une culture universelle. Avec une préfé-
-rence marquée pour les écrivains du dix-septième et
+… de se donner une culture universelle. Avec une préférence marquée pour les écrivains du dix-septième et
 ) du dix-huitième siècle français, il se met à interroger,
 … brusquement et éperdument, les génies de tous les pays
 et de tous les temps: Homère, Sophocle, Thucydide,
 Shakespeare, Rollin, La Fontaine, Le Sage, Florian,
 
-Racine, Jean-Jacques, — plus tard Descartes et Spi-
-noza.. Par le désordre de cette liste, je cherche à imiter
+Racine, Jean-Jacques, — plus tard Descartes et Spinoza.. Par le désordre de cette liste, je cherche à imiter
 ici le désordre de ses lectures. Elles paraissent avoir été
 gigantesques et incohérentes. Et le résultat fut ce qu'il
 devait être... Imaginez ce que pouvait produire cette
 invasion violente de tout le savoir, de toute la pensée,
-de toute l'imagination éternelle des peuples dans le cer-
-veau d'un petit étudiant rabbinique, dont la sphère spi-
-rituelle s'était jusqu'alors limitée à des exercices
+de toute l'imagination éternelle des peuples dans le cerveau d'un petit étudiant rabbinique, dont la sphère spirituelle s'était jusqu'alors limitée à des exercices
 d'école sur les textes de la Bible et du Talmud. Comment n'eût-elle pas entraîné le doute, l'inquiétude, le à
 déséquilibre, que suscitent toujours, même chez des
 jeunes gens mieux avertis ou plus frivoles, les premières
@@ -686,8 +668,7 @@ révélation personnelle de Moïse, encore moins au
 Talmud. Je passais mes nuits à chercher les preuves de
 l'existence de Dieu. » (1) Et vous entendez bien que ces
 preuves, s'il les cherchait, c'est qu'il ne les trouvait plus
-Ailleurs, il nous conte les étranges soirées qu'il pas-
-sait en compagnie de deux jeunes filles, couturières de
+Ailleurs, il nous conte les étranges soirées qu'il passait en compagnie de deux jeunes filles, couturières de
 Jeur état, dont l'une, — Réginèle, — fut, dit-il, « son
 
 premier amour ». (1) (Même, cet amour l'attira dans
@@ -733,9 +714,7 @@ temps de sa jeunesse. Pourtant, ce récit doit être assez
 
 exact au fond; il est conforme à ce que nous savons
 
-par ailleurs des motifs de sa retraite. — Vous le trou-
-
-verez dans l'énorme et paradoxal ouvrage qu'Alexandre
+par ailleurs des motifs de sa retraite. — Vous le trouverez dans l'énorme et paradoxal ouvrage qu'Alexandre
 
 Pentateuque, lorsqu'il en vient à commenter ce passage
 
@@ -751,8 +730,7 @@ Voici le récit d'Alexandre Weill:
 Depuis l'âge de dix-huit ans jusqu'à vingt-deux ans
 (j'avais déjà le diplôme rabbinique), j'étais premier officiant
 et lecteur de la Thorah dans la synagogue de l'hospice
-israélite, à Francfort. Cette petite synagogue avait la réputation d'une chapelle sacro-sainte. Il n'y avait qu'une cin-
-quantaine de fidèles, composés de quelques ultra-orthodoxes
+israélite, à Francfort. Cette petite synagogue avait la réputation d'une chapelle sacro-sainte. Il n'y avait qu'une cinquantaine de fidèles, composés de quelques ultra-orthodoxes
 
 ; richards, et de plusieurs rabbins et élèves rabbiniques. De
 même pour les femmes, toutes connues pour leur piété et
@@ -772,8 +750,7 @@ défendu de parler pendant la lecture. Mais comme le Lévitique finit à ce pass
 voulue, je leur répondis: — Oui, Messieurs! J'ai sauté cet
 infâme passage. Lisez-le vous-mêmes. En savez-vous la signification? J'en doute! Quant à moi, jamais ces lignes ne
 franchiront plus mes lèvres. Il y eut des cris et des meurs! — Et pourquoi? me demanda à la fin le plus vieux
-des assistants? — Parce que, lui répondis-je, c'est le pané-
-gyrique du sacrifice humain, que Moïse, au nom de Dieu,
+des assistants? — Parce que, lui répondis-je, c'est le panégyrique du sacrifice humain, que Moïse, au nom de Dieu,
 a voué à toute exécration! Il y eut un silence; — Ce jeune
 homme a peut-être raison, dit le vieux, mais ce n'est pas à
 nous d'abolir un usage de deux mille ans. — Si cela vous!
@@ -791,8 +768,7 @@ ma démission, en leur disant que depuis longtemps je n'étais
 depuis ce jour je n'ai plus revu cette sainte synagogue que quarante ans plus tard, et qui aujourd'huin'existe plus du tout. (x)
 (n) Les Cinq livres (mosaistes) de Moïse. Tome III; Le Léoitique,
 
-Et voilà notre Alexandre Weill sur le pavé de Franc-
-fort. Il n'a plus de métier, il n'a pas de ressources, et,
+Et voilà notre Alexandre Weill sur le pavé de Francfort. Il n'a plus de métier, il n'a pas de ressources, et,
 par cet éclat, vient sans doute de s'aliéner ses protecteurs? — Si pourtant! il lui en reste, tant parmi les
 juifs fidèles que parmi les convertis et les protestants.
 Je détache d'une de ses brochures (1) cette autre page
@@ -833,8 +809,7 @@ répétitions, matin et soir aux leçons. Être exposé à ce qu'un
 
 directeur examine vos mollets et vos dents; chanter à
 l'heure indiquée, non pas quand il vous plaira, quand le
-cœur vous en dit, mais quand il plaira à un directeur spé-
-culateur et à un public sot, et ignorant et oisif; être exposé
+cœur vous en dit, mais quand il plaira à un directeur spéculateur et à un public sot, et ignorant et oisif; être exposé
 aux sifflets d'un imbécile et par-dessus tout s'engager par
 écrit et signer tous les jours un papier de présence. Il est
 vrai qu'on a devant soi un bel avenir d'or et de femmes!
@@ -866,8 +841,7 @@ Le même sénateur — il s'appelait Coester — qui avait
 souscrit pour faire de moi un chanteur, après avoir mon
 
 refus et après avoir de moi une brochure intitulée:
-Kolladi et son ami, réponse aux questions vitales de la philo-
-sophie et de la religion, vint m'offrir en mariage sa nièce,
+Kolladi et son ami, réponse aux questions vitales de la philosophie et de la religion, vint m'offrir en mariage sa nièce,
 son héritière, à condition de me convertir et de me faire
 
 Là-dessus, soyons un peu sceptiques... Si Alexandre
@@ -900,8 +874,7 @@ ma fiancée juive, Perle de Hatten. Avant mon mariage, je mai.
 jamais été aimé que par des femmes qui n'étaient pas belles. Seule,
 Réginèle fut une grande beauté... » (Briefe hervorragender verstorbener Männér Deutschlands, page 295; Zurich, 1889)
 
-dame de Metz, qui veut l'entraîner dans le catholi-
-cisme: il a treize ans, et répond à madame de Caulat
+dame de Metz, qui veut l'entraîner dans le catholicisme: il a treize ans, et répond à madame de Caulat
 sur le ton de Joas enfant à la reine Athalie.. Plus
 
 tard, à Francfort, la ravissante renégate Esther le
@@ -941,7 +914,7 @@ avee ma plume française, affligé que j'étais de mon accent
 alsacien, que je n'ai jamais totalement perdu? — L'envie de
 rentrer dans mon pays, qui, grâce à l'émancipation des
 Israélites, devint pour moi une patrie, sempara tellement
-de mon esprit, qu'elle faillit briser le corps. (1) à!
+de mon esprit, qu'elle faillit briser le corps. (1)
 IL se décida à jouer la partie, quitta Francfort, et
 « devint » Français, comme il le dit, par un libre
 Cette grande patrie retrouvée, la France, il l'aima
@@ -950,8 +923,7 @@ jusqu'à sa mort et, quand vinrent les malheurs de
 dirent sa douleur et sa colère d'avoir Schirhof changé
 Mais en 1837, époque où il vint s'installer à Paris,
 convenons qu'il était encore un peu étranger à la
-France, sinon dans son cœur, du moins dans son lan-
-gage et sa tournure. Surtout, il était étranger au boule-:
+France, sinon dans son cœur, du moins dans son langage et sa tournure. Surtout, il était étranger au boule-:
 vard. Dans cette bohème littéraire où il fréquente dès
 son arrivée, il apparaît comme eût été l'Ingénu de Voltaire, si, au lieu d'être Huron et de s'être laissé baptiser, j'A
 il était né, demeuré juif et Alsacien. Tout de suite, à
@@ -970,14 +942,12 @@ Au reste, il savait se défendre, car il possédait un certain instinct bataille
 — Qui est ce Weill, murmure Paul de Saint-Victor
 au café de la Porte-Montmartre, où les célébrités du à
 temps, — Théophile Gautier, Eugène Sue, Méry, Philibert Audebrand, — se réunissaient souvent avec Henri
-Heine et Mathilde autour d'une côtelette à la proven-
-çale.. D'où vient-il? Il a gardé les pourceaux!
+Heine et Mathilde autour d'une côtelette à la provençale.. D'où vient-il? Il a gardé les pourceaux!
 — Possible, réplique le petit Weill, mais je ne les
 garde plus. Tandis que vous, monsieur de Saint-Victor,
 si vous aviez gardé les pourceaux, vous les garderiez
 (1) « Grâce à ma qualité de correspondant des principaux journaux allemands et à mon amitié avec Gérard de Nerval, j'obtins
-vite mes entrées dans les sanctuaires de la science et de la littéra-
-ture de Paris. En effet, tous les journaux allemands étaient à ma
+vite mes entrées dans les sanctuaires de la science et de la littérature de Paris. En effet, tous les journaux allemands étaient à ma
 disposition. Je correspondais avec la Gazette d'Augsbourg, le Correspondant de Nuremberg, la Gazette de Leipzig et le Courrier de
 … Stuttgart. — J'étais collaborateur du Monde Elégant de Kuhne, du
 Morgenblatt de Cotta et du Télégraphe de Gutzkow. J'étais plus
@@ -987,8 +957,7 @@ et philosophiques. Mais j'étais décidé, dussé-je mourir de faim, à
 briser ma plume allemande et à ne plus écrire que dans la langue
 sacrée de ma patrie, à laquelle je ne préfère que lhébreu. » (La
 
-Et Henri Heine d'intervenir en riant: « Bien ré-
-pondu... » disait-il. Et il ajoutait: « Weïll, tu as
+Et Henri Heine d'intervenir en riant: « Bien répondu... » disait-il. Et il ajoutait: « Weïll, tu as
 
 voler ce motlà quelque part! » (x)
 
@@ -1099,8 +1068,7 @@ et endormi...
 Alexandre Weill sait cela. Mais il ne se décourage
 point, parce qu'il a confiance dans la force de sa pensée
 et dans son réveil futur: « Ce livre ne sera pas lu, du
-moins de mon vivant, écrit-il en tête d'une de ses pré-
-faces. Aucun de mes livres sérieux n'a été lu, et cela
+moins de mon vivant, écrit-il en tête d'une de ses préfaces. Aucun de mes livres sérieux n'a été lu, et cela
 tient à des causes entièrement dépendantes de moi et
 que je n'ai jamais cherché à faire disparaître... » (1)
 (Là-dessus, il se dupe peut-être: même s'il avait ambitionné de se faire lire, serons-nous si certains qu'il y
@@ -1120,8 +1088,7 @@ Réconforté par cette espérance indestructible, qui
 n'anime pas au même degré tous les auteurs incompris,
 Alexandre Weïll patiente et continue à faire imprimer
 des livres qui ne rencontrent pas d'acheteurs et pour
-lesquels il n'essaie même plus de découvrir des édi-
-teurs. (2) Assurément, ce n'est point dans un espoir de
+lesquels il n'essaie même plus de découvrir des éditeurs. (2) Assurément, ce n'est point dans un espoir de
 lucre, mais dans un esprit mêlé d'orgueil, de désintéressement, de « devoirs » à remplir envers Dieu et le genre
 humain, que jamais il ne se lasse de publier ces livres
 à ses frais, ou plutôt aux frais de sa femme, dont le
@@ -1137,7 +1104,7 @@ mon nom avec celui de mon riche homonyme, 45, rue de Courcelles. »
 Pendant les sept dernières années de sa vie, Alexandre Weill
 vécui enfermé chez lui, sans sortir. Non qu'il fût malade. Mais il
 avait un grand dégoût de ses contemporains. Sa femme était morte,
-il vivait en compagnie de ses deux servantes, qui laidaient à;
+il vivait en compagnie de ses deux servantes, qui laidaient
 relire et à corriger tous ses livres. Alexandre Weill leur dédia yne
 « idylle dramatique en vers intitulée Christian et Christine (Paris,
 1896), qui porte en exergue:
@@ -1193,8 +1160,7 @@ l'héritier direct et le légitime continuateur:
 Depuis Moïse, Josué, Samuel, Isaïe, Amos et Jésus (qui
 était un prophète mosaïste) il n'y a pas eu, il ne pouvait
 pas y avoir un juif comme moi. Spinoza, tout en puisant
-ses principes dans Moïse, n'a pas compris ses vérités éter-
-nelles, à cause des falsifications pharisiennes qu'il n'a:
+ses principes dans Moïse, n'a pas compris ses vérités éternelles, à cause des falsifications pharisiennes qu'il n'a:
 séparer pour les rejeter, Si un juif comme moi avait surgi,
 il y a seulement un siècle, il aurait été brülé par les prêtres
 (1) « La vérité est que je ne médite pas. Je ne cours jamais
@@ -1232,7 +1198,7 @@ de malheurs, de crimes, d'infamies et de méfaits que la
 seule idée, la seule erreur de la possibilité du pardon,
 de l'annulation des effets d'une cause, par la volonté de
 Dieu, soit par un miracle, soit par un caprice, soit par!
-le simple repentir »; (2) que l'idée du pardon est immorale, absurde, et proprement inintelligible; qu'en effet
+le simple repentir (2) que l'idée du pardon est immorale, absurde, et proprement inintelligible; qu'en effet
 elle est contraire aux lois de la justice et de la nature,
 Pexemple de Moïse, Alexandre Weill se propose, dans ce livre,
 comme législateur. À
@@ -1261,8 +1227,7 @@ l'hébreu avec commentaires et élymologies, avec élimination des falsifieation
 dans la bouche de Moïse. — Cinq volumes, Paris, 1890-1891.
 (2) Alexandre Weill émet une pareille hypothèse au sujet de
 lAthique de Spinoza. (Voir La Parole Nouvelle, page 59; édition de
-1892) Il voit des contradictions dans l'Zthique et décide, en consé-
-quence, qu'elle n'est pas tout entière de Spinoza. Cela peut mettre
+1892) Il voit des contradictions dans l'Zthique et décide, en conséquence, qu'elle n'est pas tout entière de Spinoza. Cela peut mettre
 
 tout acte humain se mesurent à la valeur de cet acte,
 et contiennent l'expiation ou la récompense. Et il croit,
@@ -1293,8 +1258,7 @@ Lettres de vengeance d'un Alsacien, page
 Alexandre Weill; du
 
 le pardon, uhe action de vertu ou de justice produisant
-forcément un bien, et une action de vice et de crime forcé-
-ment le mal. Sur ce principe, prophète, connaissant la:
+forcément un bien, et une action de vice et de crime forcément le mal. Sur ce principe, prophète, connaissant la:
 loi de Dieu qui ne change jamais, peut prédire avenir
 heureux, selon les vertus et les crimes des nations et de
 leurs chefs. Cette prophétie disparut forcément dès que les
@@ -1308,9 +1272,7 @@ des humains. De tous les malheurs et toutes les misères
 des peuples croyant aux miracles et au pardon, vivant dans
 des erreurs religieuses et étant vicieux et criminels. Les
 Juifs n'y font point exception. Leurs malheurs, qui sont
-sortis naturellement de leur fausse religion esraïque et tal-
-
-mudique, ne les ont pas guéris de ces hérésies. Et ces
+sortis naturellement de leur fausse religion esraïque et talmudique, ne les ont pas guéris de ces hérésies. Et ces
 
 malheurs dureront aussi longtemps qu'ils ne retourneront
 
@@ -1353,8 +1315,7 @@ Les curieux trouveront, dans les livres d'Alexandre
 Weill, bien des prédictions concernant les nations et
 les hommes. A croire leur auteur, toutes se sont accom-
 (1) Lettres de vengeance d'un Alsacien, page
-(2) Isaïe, 11, 3-4. — Ce « pacifisme » messianique d'Isaïe ne le dé-
-tournait point d'être, dans le présent, un grand patriote. Voir ses
+(2) Isaïe, 11, 3-4. — Ce « pacifisme » messianique d'Isaïe ne le détournait point d'être, dans le présent, un grand patriote. Voir ses
 effroyables oracles contre tous les ennemis d'Israël (Babylone,
 Moab...) et ses objurgations à son peuple: « Réveille-toi, réveilletoi, Jérusalem... »
 
@@ -1467,8 +1428,7 @@ Le principe de la prophétie à laquelle se consacra le vieux
 Weill chimérique, c'est une croyance furieuse au principe
 de causalité.
 Cela encore est merveilleux!.…
-L'idée du pardon lui était insupportable. Il la disait immorale, absurde et inintelligible; il lui reprochait d'être inju-
-rieuse pour Dieu même... Et encore, Dieu, — on devine
+L'idée du pardon lui était insupportable. Il la disait immorale, absurde et inintelligible; il lui reprochait d'être injurieuse pour Dieu même... Et encore, Dieu, — on devine
 qu'Abraham-Alexandre se ferait ici une raison; mais
 surtout l'idée de pardon est injurieuse pour le principe de
 Pauvre vieux Weill, qui avait beaucoup: dangereuse:
@@ -1504,8 +1464,7 @@ Et là-dessus M. Édouard Drumont prophétise à son
 tour, avec une sombre ironie:
 Les théories antimilitaristes détruiront la France; mais
 les Français, devenus des errants et des sans-patrie,
-comme l'ont été les Juifs, seront d'admirables propa-
-gandistes pour cette société future dont Israël doit être le
+comme l'ont été les Juifs, seront d'admirables propagandistes pour cette société future dont Israël doit être le
 Messie temporel et sur laquelle il doit régner par la puissance de l'argent.
 Méfions-nous des souvenirs de M. Édouard Drumont;
 ils sont tendancieux. Ce vieux visionnaire d'Alexandre
@@ -1625,8 +1584,7 @@ recevra les cahiers parus, et de quinsaine en quinzaine,
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 
-Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
@@ -1661,7 +1619,7 @@ Méro d'inscription qui devient automatiquement le
 numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est strictement limitée au
 
-1 Pour tout changement d'adresse envoyer soixante
+Pour tout changement d'adresse envoyer soixante
 centimes, six timbres de dix centimes.
 
 Nous engageons nos abonnés de certains pays à nous

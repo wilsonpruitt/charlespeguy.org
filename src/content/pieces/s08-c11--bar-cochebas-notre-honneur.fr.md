@@ -27,8 +27,7 @@ Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, 
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur.
 place, les références demandées.
 . Ce catalogue, grand jésus, forme un cahier
@@ -65,7 +64,7 @@ LA 1 capitales de romain et le numéro d'ordre a
 du cahier lui-même, dans la série ainsi À
 de déterminée, en chiffres arabes, de sorte
 1 que par exemple doit évidemment se
-144 Yi: lire dix-septième cahier de la cinquième
+Yi: lire dix-septième cahier de la cinquième
 ; “es faut, la date du fini d'imprimer, ou, à son
 10: défaut, la date du cahier même;
 à quand il y a lieu, c'est-à-dire pour nos
@@ -125,8 +124,7 @@ sur whatman à cette huitième série est de cent francs
 pour tous pays. le!
 Les Cahiers de la Quinzaine sont composés à la main,
 - en caractères fin dix-huitième siècle (Didot) de la fon
-derie Mayeur (Allainguillaume et compagnie succes-
-seurs) 21, rue du Montparnasse, à Paris, sixième
+derie Mayeur (Allainguillaume et compagnie successeurs) 21, rue du Montparnasse, à Paris, sixième
 
 « à la mémoire du grand Bernard-Lazare ne
 
@@ -176,8 +174,7 @@ changer de lieu et de maison, un instinct de gyrovague, et, pour tout dire, l'â
 É achevé de cette brocante spirituelle.
 Sa curiosité s'étendait des tragédies de Racine
 aux chansons de ces peuplades ouralo-altaïques qui
-1 vivent dans les foundras de la Sibérie septentrio-
-nale de poisson, de lait de renne et de graisse de
+1 vivent dans les foundras de la Sibérie septentrionale de poisson, de lait de renne et de graisse de
 phoque. Mais je crois qu'il eût donné volontiers son
 M. érudition linguistique qui était prodigieuse pour
 savoir tenir proprement une fourchette.
@@ -185,10 +182,8 @@ savoir tenir proprement une fourchette.
 où il habitait une chambre misérable meublée d'un
 ï divan et d'une malle, et sur les murs de laquelle il à
 ; ù avait écrit au charbon cette devise qui résumait À
-pour lui toute l'histoire d'Israël depuis la disper-
-sion: « Nous ne subirons pas. » Nulle part je n'ai
-ressenti pareille impression d'exotisme, de dépayse-
-qu'il avait choisi ce quartier sordide, bien qu'il eût
+pour lui toute l'histoire d'Israël depuis la dispersion: « Nous ne subirons pas. » Nulle part je n'ai
+ressenti pareille impression d'exotisme, de dépaysequ'il avait choisi ce quartier sordide, bien qu'il eût
 un palais à Venise et un hôtel à Vienne, dans le: À
 À quartier de la Burg, pour y vivre comme avaient
 “vécu à travers les siècles d'innombrables gens de sa …
@@ -206,8 +201,7 @@ Consul général, avec les meubles, la cuisine et les
 vins de France, cet esprit superficiel et délié, cette
 ignorance avertie qui fait parfois d'un simplehomme
 du monde de chez nous un des plus élégants spéci
-mens de l'humanité. Je le priai d'inviter mon étu-
-diant à dîner. Il commença par regimber (un juif!
+mens de l'humanité. Je le priai d'inviter mon étudiant à dîner. Il commença par regimber (un juif!
 Chez lui!); mais je lui représentai vivement quele A. à
 spectacle d'un homme qui voulait troquer contrela
 nôtre l'âme que lui avaient fabriquée les siècles,
@@ -227,14 +221,14 @@ Nous rencontrâmes chezle Consul quelques Fran-
 4 duisit sur eux et en particulier sur les femmes, je
 l'avais trop prévue pour m'en distraire. Mais quand
 nous fûmes de nouveau dans la rue: À
-;;: — Eh bien? lui demandai-je. à
+— Eh bien? lui demandai-je. à
 : — Ah! monsieur le Professeur, me réponditilen
 1 allemand, ce fut un infernal plaisir! À
 Je reconnus à ces paroles qu'il était arrivé à
 1 l'extrême limite de l'enthousiasme, au point où, les …
 mots français lui manquant, les vocables allemands
 À montaient invinciblement à ses lèvres. A
-1 Avec un subtil instinct de l'élégance, surprenant
+Avec un subtil instinct de l'élégance, surprenant
 pu: chez un adolescent à ce point dénué de grâce et
 cette volupté profonde, par laqueile dans tout Juif:
 ; se révèle l'Orient, il m'analysa les plus menus
@@ -285,15 +279,14 @@ nos admirables chansons, et le violon, et le cymba-
 1 à lum du tzigane. Ah! ce doit être délicieux de n'être
 ici qu'un voyageur et un passant! Mais vous avez ù “4
 ne. vécu assez longtemps chez nous pour savoir ce He:
-qu'est un Juif dans nos villages, combien indispen-
-sable et haï le cabaret qu'il y ouvre invariablement.
+qu'est un Juif dans nos villages, combien indispensable et haï le cabaret qu'il y ouvre invariablement.
 Làest l'alcool et aussi l'usure, et s'en l'argent
 du paysan. Mon père est un de ces Juifs-là. Il est
 1 avare, impitoyable, lâche et cupide. Il me répugne
 à moi-même... Si bas qu'il soit tombé, puis-je souf- « frir qu'on le batte et qu'on l'injurie? Un revolver
 est sur ma table. C'est l'instrument que vousavez
 inventé pour solutionner les affaires d'honneur.
-4 Vous ne pouvez vous imaginer combien il pèse
+Vous ne pouvez vous imaginer combien il pèse
 dans la main d'un Juif! Dans la chambre où je vous
 à écris, j'entends tomber sur mon père coups et
 injures, et je me dis: « Frappe, frappe! »et je reste
@@ -309,8 +302,7 @@ n'ai-je le courage de m'abandonner à mon instinct!
 Mais que serais-je, monsieur, si je cessais d'être
 he. intelligent?.… J'ai relu votre tragédie du Cid parce
 
-que, sur l'analyse que vous en avez faite à l'Univer-
-sité, je me suis souvenu qu'elle posait un cas de
+que, sur l'analyse que vous en avez faite à l'Université, je me suis souvenu qu'elle posait un cas de
 : conscience qui n'était pas sans analogie avec le
 mien. Rodrigue et Bar-Cochebas! L'accouplement de
 ces deux noms est risible. Tout ce que Rodrigue fait
@@ -328,13 +320,9 @@ un abîme que tous les siècles ont creusé. Nous autres
 Juifs nous n'avons pas voulu nous confondre avec te
 les nations, nous avons refusé d'être pareils! Dans:
 . cette volonté de ne pas subir, n'y at-il pas de quoi À
-nous défendre du mépris? Cela, des paysans peu-
-vent-ils le comprendre? Mon père lui-même sent-il je
+nous défendre du mépris? Cela, des paysans peuvent-ils le comprendre? Mon père lui-même sent-il je
 . encore la noblesse qu'il tient de sa race et que
-l'abjection où il est tombé n'atteint pas? Est-il sen-
-sible à d'autre plaisir qu'à celui d'empiler des kreut-
-zers?.… Il est tout de même profondément regret-
-table que nous ayons poussé vers le ciel les plus
+l'abjection où il est tombé n'atteint pas? Est-il sensible à d'autre plaisir qu'à celui d'empiler des kreutzers?.… Il est tout de même profondément regrettable que nous ayons poussé vers le ciel les plus
 sublimes cris de justice que l'humanité ait entendus (
 
 Jérôme et Jean Tharaud
@@ -374,21 +362,18 @@ cette auberge où, somme toute, ce n'est ni votre à
 hommes intelligents comme nous forment dans le
 monde une espèce à part. Rien n'est plus sot que:
 .. d'exagérer certains sentiments de famille. Le Cid À
-que vous semblez vous représenter comme le sym-
-
-bole de l'honneur français c'est une jeune brute
+que vous semblez vous représenter comme le symbole de l'honneur français c'est une jeune brute
 espagnole — non sans beauté — mais sur lequel
 vous ne sauriez vous régler. Vous en avez trouvé
 - vous-même les raisons. Gardez-vous bien de re- di.
-é mettre entre les mains des gendarmes votre pré-
-cieuse cervelle pour avoir étendu devant son verre
+é mettre entre les mains des gendarmes votre précieuse cervelle pour avoir étendu devant son verre
 de vin un grossier paysan — cela pour défendre
 l'honneur de monsieur votre père qui sera loin de
 
 vous en savoir aucun gré et dont vous ferez fermer
 la boutique. Les intelligences de votre espèce sont
 : trop rares dans votre pays pour que vous vous
-À: exposiez aux prisons de François-Joseph. Si j'ai un 1308
+exposiez aux prisons de François-Joseph. Si j'ai un 1308
 conseil à vous donner, le voici: J'imagine que
 depuis quelque. vingt-cinq ans que votre père se
 . livre au négoce, il doit avoir amassé de sérieuses
@@ -423,7 +408,7 @@ transi n'inscrit plus ses maximes. Il y avait sans
 doute dans votre ami Bar-Cochebas une étincelle du
 feu qui animaiït les Prophètes, mais le pauvre diable
 est mort pour avoir voulu jeter sur sa souquenille
-de Juif la livrée de notre honneur. »:
+de Juif la livrée de notre honneur.
 
 Rue Mardi 11 décembre 1906. — De la situation faite à (14
 parti intellectuel dans le monde moderne. — Les re- À
@@ -440,8 +425,7 @@ de Lei Von veut bien considérer que même en n'intercalant ni
 pas, en continuant tout droit, en n'interrompant pas, au
 44 sens et dans la mesure où cette réalité elle-même serait Fil
 droite et ininterrompue, nous ne savons pas, nous ne
-pouvons pas savoir si nous aboutirons, si nous arrive-
-rons jamais quel t. 1 HENNS
+pouvons pas savoir si nous aboutirons, si nous arriverons jamais quel t. 1 HENNS
 
 Et jours suivants. — Pourtant je ne veux pas abso- à
 Jument m'interdire de relever en cours de route, — «
@@ -463,8 +447,7 @@ gendarmes, cette lettre que je viens de recevoir de
 Et n'est-il pas singulier, mais n'est-il pas usuel, qu'ayant
 (il fait sa grande connaissance très expressément pour ce
 cahier qui fut annoncé très formellement dans un de
-ces tout petits vieux anciens cahiers chers de la troiL sième ou de la deuxième, et peut-être même de la prese mière série, aujourd'hui épuisés ou en voie d'épuise-
-ment, ce cahier formellement promis et annoncé soit
+ces tout petits vieux anciens cahiers chers de la troiL sième ou de la deuxième, et peut-être même de la prese mière série, aujourd'hui épuisés ou en voie d'épuisement, ce cahier formellement promis et annoncé soit
 ne précisément le seul aussi qui n'ait point encore paru et
 1 qui soit encore en préparation, et qu'ensemble nous
 ayons fait de tout, mon cher collaborateur, et même et
@@ -481,8 +464,7 @@ me retenir, — et que je ne le dois, — de la publier sans
 plus attendre. Car si j'attendais outre son tour passerait, des événements viendraient, il en vient toujours,
 elle passerait, comme tout passe, et ce serait une grande
 Cette lettre est un peu familière. Mais c'est un des
-plus grands avantages de ces cahiers que les conversa-
-tions les plus familières, c'est-à-dire, de ce chef, les
+plus grands avantages de ces cahiers que les conversations les plus familières, c'est-à-dire, de ce chef, les
 À plus exactes, les plus réelles, et aussi les plus poussées,
 les plus profondément poussées, s'y peuvent poursuivre
 et conduire, entre gens avertis, et ainsi définitivement
@@ -501,7 +483,7 @@ familières, hardies, posées. Nous n'aurions peut-être
 jamais obtenu d'adversaires politiques une expression
 aussi claire de l'antithèse. Par la vertu de cette anti-
 
-1 thèse, venue d'un collaborateur tout impolitique, au seul: à;
+1 thèse, venue d'un collaborateur tout impolitique, au seul:
 contact, à la seule contrariété de cette antithèse, les …
 144 formules de notre thèse se dessineront d'elles-mêmes.;
 210 54 Oui, j'accuse le bloc et nommément dans le bloc le
@@ -518,8 +500,7 @@ Notre thèse au contraire sera qu'il ne s'agit nulle-
 10 d'incapacité, et de plus ou moins de capacité ou d'inca-
 : 10 pacité, enfin de quantité de capacité ou d'incapacité.
 1 à Il n'y a besoin de nulle capacité pour faire de la méta- À
-00 physique, pour avoir une métaphysique, si cette méta-
-physique est nulle. Il n'est besoin de capacité pour faire
+00 physique, pour avoir une métaphysique, si cette métaphysique est nulle. Il n'est besoin de capacité pour faire
 de la métaphysique, pour avoir une métaphysique,
 1 pour avoir sa métaphysique, — et même sa religion,
 110 — que dans la mesure où cette métaphysique elle.
@@ -528,8 +509,7 @@ Du même, — où cette religion, — a pour ainsi dire de à
 TAN avoir sa métaphysique, — sa religion, — n'est pas en
 162 soi-même et par le fait une opération supérieure, de je
 10 ne sais quelle supériorité mystérieuse. Tout le monde de
-44 au contraire a sa métaphysique, profonde ou super-
-ficielle, forte ou faible, bonne ou mauvaise, grossière #3
+44 au contraire a sa métaphysique, profonde ou superficielle, forte ou faible, bonne ou mauvaise, grossière #3
 14 ou fine, ou déliée. Rien n'est aussi commun que la
 
 physique. Tout le monde en fait. Tout le monde en a.
@@ -537,8 +517,7 @@ Rien n'est aussi répandu. Seulement, non seulement
 tout le monde n'a pas la même, ce qui n'est que trop
 la même qualité.
 : Rien n'est aussi portatif, si l'on veut, que la métaphy- À
-sique. Tout le monde a la sienne, inconsciente ou con-
-sciente, intellectuelle ou réelle, officielle ou libre. Et ce:
+sique. Tout le monde a la sienne, inconsciente ou consciente, intellectuelle ou réelle, officielle ou libre. Et ce:
 ‘#4 qui serait difficile, et ce qui est même rigoureusement
 impossible, ce serait de n'avoir pas, ce serait que quel-
 "4 qu'un n'eût pas sa métaphysique ou du moins de la. (4
@@ -560,13 +539,11 @@ di. Les autorités et les autoritaires l'ont autoritaire. Les
 1 cienne. Les parlementaires l'ont parlementaire. Les
 imbéciles l'ont imbécile. sut
 
-Tout le monde a sa métaphysique. Mais les métaphy-
-siciens l'ont seuls métaphysique, ou si l'on préfère, et
+Tout le monde a sa métaphysique. Mais les métaphysiciens l'ont seuls métaphysique, ou si l'on préfère, et
 7 suivant les cas, métaphysicienne.
 
 ES Ce qu'est la métaphysique des intellectuels, je ne pré-
-À tends point le dire en deux mots, ni dans cette conver-
-sation écrite amicale avec notre collaborateur. Je ne
+À tends point le dire en deux mots, ni dans cette conversation écrite amicale avec notre collaborateur. Je ne
 ‘#3 puis procéder que par demandes et réponses. (Encore
 procéder que par indications très brèves. Et ce qu'est
 en effet la métaphysique officielle gouvernementale du
@@ -586,11 +563,8 @@ de enfin que nous pouvons connaître, atteindre et saisir,
 ‘is épuisante, réelle, métaphysique, tout l'événement de la
 réalité, toute la réalité de l'homme et de la création par
 de des systèmes de jeux de fiches convenablement disposés.
-D. Mais laissons cette antithèse. Notre thèse naturelle1 ment sera au contraire que la connaissance intellec-
-tuelle moderne, ainsi définie, ainsi entreprise, au preD: mier degré dans l'histoire, au deuxième degré dans la
-sociologie, qu'une telle tentative de connaissance intel-
-
-lectuelle n'aboutit pas, qu'elle ne rend pas, dans cet
+D. Mais laissons cette antithèse. Notre thèse naturelle1 ment sera au contraire que la connaissance intellectuelle moderne, ainsi définie, ainsi entreprise, au preD: mier degré dans l'histoire, au deuxième degré dans la
+sociologie, qu'une telle tentative de connaissance intellectuelle n'aboutit pas, qu'elle ne rend pas, dans cet
 
 Le ordre, en ce sens, qu'elle ne donne et qu'elle n'apporte
 
@@ -632,8 +606,7 @@ porel en l'ayant assurée dans le spirituel.
 7100 et d'avoir commencé d'assurer par les moyens de la
 204 force gouvernementale temporelle une domination
 ET ‘semble et étroitement mêlée et confondue temporelle et
-1 a aux principes, et au principe, de la République, redou-
-tablement contraire aux principes et au principe de la À
+1 a aux principes, et au principe, de la République, redoutablement contraire aux principes et au principe de la À
 : 252 Révolution, infiniment contraire au principe de liberté,
 . 484 sans lequel bien nulle vie ne vaut. À
 Mais je reprends ma citation de la grande écriture de
@@ -658,20 +631,16 @@ o exercer par et pour cette métaphysique des causes se-
 4 condes, ce qu'il a commencé d'établir et d'exercer «
 parmi nous et sur nous, c'est véritablement ce que l'on fr:
 ne. nommait un gouvernement des esprits; et ensemble
-1 dans et sous ce gouvernement des esprits un gouverne-
-be: ment des biens temporels. C'est pour cela qu'il ne faut
+1 dans et sous ce gouvernement des esprits un gouvernebe: ment des biens temporels. C'est pour cela qu'il ne faut
 À pas s'imaginer que je sois allé inconsidérément faire
-1 leur apologie ou que je me sois permis de leur attri-
-buer quelque supériorité. ne
+1 leur apologie ou que je me sois permis de leur attribuer quelque supériorité. ne
 quant à ceux de ses
 À membres qui pensent à remonter aux causes premières
-(combien peu!) ily en a je pense plusieurs qui admet-
-tent les propositions suivantes: à
+(combien peu!) ily en a je pense plusieurs qui admettent les propositions suivantes: à
 Moi je ris (en moi-même), non point de me voir si:!
 À belle, mais de voir venir d'un bon pas régimentaire plu-
 Le sieurs belles propositions bien alignées, qui nous servi- 1}
-4 ront toute la vie de vis-à-vis et qui sauront bien entre-
-tenir la conversation.
+4 ront toute la vie de vis-à-vis et qui sauront bien entretenir la conversation.
 1 plusieurs qui admettent les propositions suivantes
 De. 1° les métaphysiques des diverses religions sont des
 contes de fées pour bébés sauvages
@@ -714,12 +683,9 @@ anciennes mythologies physiques et métaphysiques. Je
 généralement rien, sinon que généralement ce ne sont
 pas les meilleurs. Ni les sérieux. Je laisse les grands
 faiseurs. Et les petits. Et il faut laisser M. Moissan et Rai
-M. d'Arsonval aux grandes et aux très grandes publi-
-cités, notoirement à celle du Matin. Je dis les articles
+M. d'Arsonval aux grandes et aux très grandes publicités, notoirement à celle du Matin. Je dis les articles
 
-et les fractions d'articles qui nous sont apportés direc-
-
-tement par des savants sérieux, véritablement savants,
+et les fractions d'articles qui nous sont apportés directement par des savants sérieux, véritablement savants,
 véritablement modernes. Ces articles et ces fractions +.
 ! d'articles sont pleins et bourrés de théologies et de
 mythologies antiques et anciennement modernes. Pour
@@ -733,8 +699,7 @@ n'est au plus qu'une question de langage. Pour mapart,: à
 Ù d'articles théoriques et de science pure sur l'élec- Ai
 tricité, ou peut-être faut-il dire sur les électricités,
 1 notamment sur les électricités nouvelles, articles con- (
-tribués par quelques-uns de nos camarades, scienti-
-fiques, par les hommes les plus profondément et les ‘il
+tribués par quelques-uns de nos camarades, scientifiques, par les hommes les plus profondément et les ‘il
 plus sérieusement savants, scientifiques, et modernes,:
 où particulièrement les nommés ions recevaient tant de
 qualités, tant d'aptitudes, et de species, et de subtilités h. à
@@ -746,8 +711,7 @@ des petits bons dieux. Toutes ces grandes théories 1158
 4 modernes et prétendues modernes, pour qui sait un
 4 peu lire et pour qui sait un peu d'histoire de la philo-
 
-0 sophie, ne sont très généralement que des transposi-
-tions en langage moderne de théories antiques ou
+0 sophie, ne sont très généralement que des transpositions en langage moderne de théories antiques ou
 Es anciennement modernes et quelquefois chrétiennes. Et
 celui qui croit qu'elles sont entièrement modernes, ou,
 comme ils disent, intégralement, c'est qu'ils ne se
@@ -756,8 +720,7 @@ méfient pas des transpositions et qu'ils ne connaissent
 ï ce qui vient, dans une différence, totale, de la différence
 tu Pour moi personnellement je me fais fort et je me
 chargerais, pourvu que j'eusse trente ou quarante ans
-devant moi, et que l'on voulût bien me rendre mon pre-
-mier clerc, de répérer dans toutes ces théories moox dernes ou prétendues telles et d'en sortir notamment
+devant moi, et que l'on voulût bien me rendre mon premier clerc, de répérer dans toutes ces théories moox dernes ou prétendues telles et d'en sortir notamment
 ; tant de théories antiques, — transposées? — à peine;
 de dire: ceci est proprement atomistique; et: ceci au
 4508 contraire est proprement éléatique; ceci vient des
@@ -785,15 +748,13 @@ comme ils faisaient des métaphysiques et des philoso-
 réelle, qui ait quelque réalité.:
 Ces antiques théogonies ou théologies, ou mythologies?
 ou philosophies ou théories peuvent sembler grossières
-ou arriérées. Elles ne le paraissent, elles ne le semble-
-ront qu'aux personnes qui ne voient point que c'est le:
+ou arriérées. Elles ne le paraissent, elles ne le sembleront qu'aux personnes qui ne voient point que c'est le:
 D. langage, le langage seul, ce langage admirable, qui à
 nous barbares nous paraît arriéré. Les théories fil
 À modernes au contraire se prétendent subtiles et se
 1 disent avancées. C'est même le grand mot de toutes les
 démagogies, politiques et scientifiques: avancées. Et
-. même sociales. Mais pour qui sait voir, dans la méta-
-physique du monde moderne, et dans beaucoup de ses
+. même sociales. Mais pour qui sait voir, dans la métaphysique du monde moderne, et dans beaucoup de ses
 physiques, c'est le langage qui se croit avancé parce
 h. qu'il est prétentieux et laborieux, et la théorie elle-même,
 Pet la physique et la métaphysique est généralement
@@ -808,9 +769,7 @@ difficile que de faire comprendre à celui qui ne le veut
 pas qu'on a beau nier, qu'on fait tout de même de la
 … métaphysique, et tout de même de la philosophie, et
 1 tout de même de la religion, — que généralement ne
-À pas prendre certaines positions, ne pas occuper cer-
-
-taines situations, c'est infailliblement en prendre et en
+À pas prendre certaines positions, ne pas occuper certaines situations, c'est infailliblement en prendre et en
 
 ;. Je prends une comparaison, ce que l'on ne devrait
 4 jamais faire, parce qu'une comparaison altère toujours
@@ -852,8 +811,7 @@ A aurait dans l'histoire du monde, au seuil du monde"
 
 È moderne, et constituant comme l'introduction de ce,
 monde, une sorte d'explosion qui aurait été l'invention, (Ye
-l'imagination, réalisée, de la science moderne. Soudai-
-nement. Tout à coup. Et tout d'un coup. Disons le mot: à
+l'imagination, réalisée, de la science moderne. Soudainement. Tout à coup. Et tout d'un coup. Disons le mot: à
 débat, qui est si vaste, mais dans cette partie du débat,
 ce qu'il y a de plus singulier et soi-même de plus pro-: Ni
 digieux, c'est que l'idée moderne, exposée, affichée,
@@ -862,13 +820,11 @@ science moderne et de l'avènement et de l'introduction à
 du monde moderne dans le monde, c'est que, loin:
 d'être, elle-même, scientifique, au sens où ils entendent A
 ce mot, c'est cette idée qui est merveilleuse, miracu-:
-( leuse, prodigieuse, une idée de miracle et de la super-
-stition du miracle. Si en effet l'humanité a été complète- ne
+( leuse, prodigieuse, une idée de miracle et de la superstition du miracle. Si en effet l'humanité a été complète- ne
 . ment, rigoureusement dépourvue de tout esprit scienti- à
 fique, au sens qu'ils donnent à ces mots, pendant toute
 la miséreuse énormité de sa préhistoire et pendant
-toute la longueur, pendant toute la durée de son his-
-toire, si l'apparition de l'esprit scientifique, de leur A
+toute la longueur, pendant toute la durée de son histoire, si l'apparition de l'esprit scientifique, de leur A
 esprit scientifique, s'est faite comme par explosion, par
 4 un jaillissement imprévu et imprévisible, c'est alors que
 cette apparition est miraculeuse, qu'elle fait une mer-
@@ -904,16 +860,14 @@ grandes théories antiques, ni même les filiales, mais où
 nous puissions seulement reconnaître des théories antiques transposées, à la moderne.
 Et par ces articles de M. Duhem, — et par ces idées
 que nous retrouverons, — nous joignons cette idée de
-notre maître M. Sorel, — combien, et de combien, n'est-
-il pas notre maître, ingénieur, dans toutes ces questions
+notre maître M. Sorel, — combien, et de combien, n'estil pas notre maître, ingénieur, dans toutes ces questions
 qui touchent à la technique, à l'industrie, au sens de la
 3 technique et de l'industrie, à la relation de l'industrie,:
 moderne, à la science, moderne, — cette idée que nous
 
 avons reçue si souvent de lui, qui est essentielle dans. À
 son système d'idées, qui nous paraît en eflet essentielle, 4)
-; dans tout système d'idées: que la technique a une im-
-mencement et depuis le commencement monde
+; dans tout système d'idées: que la technique a une immencement et depuis le commencement monde
 . moderne, cette explosion d'industrie, scientifique, autant
 et plus que de science, industrielle, ce n'est point qu'au À
 seuil du monde moderne les hommes aient brusque- pa:
@@ -943,8 +897,7 @@ auteurs, o Péguy, et il fait bien de renoncer, malgré
 
 sont diminués en rien car ils avaient de bonnes raisons
 d'expliquer toutes choses comme ils le faisaient et nous
-en avons de meilleures pour /de] les expliquer différem-
-ment. Un homme n'a pas à rougir d'avoir été enfant
+en avons de meilleures pour /de] les expliquer différemment. Un homme n'a pas à rougir d'avoir été enfant
 une science non plus.
 Dans quel sens le monde a bien renoncer aux
 physiques, en quel sens et dans quelle mesure nous-
@@ -955,9 +908,7 @@ venus suivant le courant de nos recherches. Peut-être
 ; alors obtiendrons-nous, découvrirons-nous un certain
 nombre de confirmations de cette propositicn que nous
 avons avancée que l'humanité change de technique, où
-de techniques, perfectionne sa ou ses techniques beau-
-coup plus qu'elle ne change de physique ou de phy-
-siques, et qu'elle ne perfectionne sa ou ses physiques,
+de techniques, perfectionne sa ou ses techniques beaucoup plus qu'elle ne change de physique ou de physiques, et qu'elle ne perfectionne sa ou ses physiques,
 en admettant même qu'elle puisse aucunement en
 
 ï changer et les perfectionner. Mais sous réserve de ce
@@ -980,9 +931,7 @@ inintelligent de cette sorte particulière qui se contrarie
 assez justement, — au sens de ajusté, — à la sorte dont
 les anciens Grecs étaient intelligents, — c'est ne pas
 entendre ce que parler veut taire que de s'imaginer
-qu'il y aurait une espèce de succession des métaphy-
-siques, une tradition, une transmission linéaire, un pro-
-grès, un perfectionnement linéaire des métaphysiques
+qu'il y aurait une espèce de succession des métaphysiques, une tradition, une transmission linéaire, un progrès, un perfectionnement linéaire des métaphysiques
 défini ainsi que chaque métaphysique suivante ou bien ni
 anéantirait chaque métaphysique précédente ou bien
 utiliserait chaque métaphysique précédente, l'utiliserait
@@ -1007,8 +956,7 @@ tourelle céderait la place, la même place, et totalement, (6
 cédente, s'en nourrirait par épuisement, et jusqu'à
 
 Charles Péguy de:
-épuiséement, pour la remplacer mieux et d'un remplace-
-ment ainsi moins provisoirement définitif, jusqu'à;
+épuiséement, pour la remplacer mieux et d'un remplacement ainsi moins provisoirement définitif, jusqu'à;
 l'heure ainsi moins passagère où elle serait à son tour
 absorbée, résorbée, assumée par sa suivante et par
 cette nouvelle.
@@ -1031,22 +979,19 @@ discontinu, et l'hypothèse du progrès linéaire continu,
 à peuvent sembler fort différentes à qui les examinerait
 ; au point de vue de leur mécanisme intérieur, de leurs
 mécanismes respectifs; mais à ce point de vue même il
-ne serait pas diflicile de démontrer que leurs méca-
-nismes ne sont point aussi étrangers l'un à l'autre qu'ils
+ne serait pas diflicile de démontrer que leurs mécanismes ne sont point aussi étrangers l'un à l'autre qu'ils
 veulent bien le paraître, et nous aurons sans doute à le à
 4 démontrer quelque jour, et à un autre point de vue ces
 
-À; deux hypothèses, ces deux imaginations, font sensible- il "1
+deux hypothèses, ces deux imaginations, font sensible- il "1
 À ment même figure dans le monde. Ce sont deux sœurs
 ( qui se chamaillent, mais ce sont deux sœurs, également
-Ces deux hypothèses, ces deux imaginations abou-
-tissent ensemble et également au mot dont eux-mêmes a
+Ces deux hypothèses, ces deux imaginations aboutissent ensemble et également au mot dont eux-mêmes a
 ils sont gonflés, au mot qui à chaque fois leur emplit la
 cavité buccale: que chaque métaphysique précédente
 est dépassée par la métaphysique suivante.
 Il n'y malheureusement pour eux, rien dans la:
-réalité qui corresponde à un dépassement de métaphy-
-siques. Les grandes métaphysiques humaines, antiques, #4
+réalité qui corresponde à un dépassement de métaphysiques. Les grandes métaphysiques humaines, antiques, #4
 modernes, chrétiennes, mythologiques même et plus ou ù à
 moins mythiques, ne sont aucunement les termes ni
 d'une série discontinue ni d'une série continue. Car
@@ -1057,10 +1002,8 @@ uns les autres. Elles ne sont ni des écus qui s'empilent,
 inertes, ni les grains d'un chapelet, ni les grains, perles,
 d'un collier, ni les chaînons d'une chaîne, ni même les
 mailles d'un filet. Elles ne sont pas non plus les bornes
-kilométriques (hectométriques pour les petites méta-
-physiques, les métaphysiques minores) d'une sorte de
-route, de ruban de route linéaire qui serait la route dé-
-partementale de la métaphysique de l'humanité.
+kilométriques (hectométriques pour les petites métaphysiques, les métaphysiques minores) d'une sorte de
+route, de ruban de route linéaire qui serait la route départementale de la métaphysique de l'humanité.
 à Je mets route nationale pour donner à cette thèse sa
 plus haute expression. Et il y aurait même plusieurs ou
 une route internationale. Mais les grandes métaphy- Vas
@@ -1071,8 +1014,7 @@ d'aucune sorte. Et non plus au dépassement industriel, À
 auquel on pense toujours, qui dans les temps modernes À
 fascine tout le monde, qui fait comme une sorte d'immense et impérieux et inévitable précédent. Descartes
 n'a point battu Platon comme le caoutchouc creux a
-battu le caoutchouc plein, et Kant n'a point battu Des-
-cartes' comme le caoutchouc pneumatique a battu le
+battu le caoutchouc plein, et Kant n'a point battu Descartes' comme le caoutchouc pneumatique a battu le
 caoutchouc creux. Il n'y a que dans les écoles que lon
 se représente et que l'on représente, grossièrement, ces
 grands métaphysiciens comme des capucins de cartes
@@ -1086,8 +1028,7 @@ métaphysiciens. Parce que la chair est faible. 1]
 Comme les grandes et profondes races, comme les
 grandes et vivantes nations, comme les peuples, comme
 les langages mêmes des peuples, parlés, écrits, comme!
-les arts inventés les grandes métaphysiques, les philo-
-sophies ne sont rien moins que des langages de la
+les arts inventés les grandes métaphysiques, les philosophies ne sont rien moins que des langages de la
 création. C'est une thèse métaphysique, et des plus
 grandes, que l'univers, j'entends l'univers sensible, est
 un langage que Dieu parle à l'esprit de l'homme, un
@@ -1096,8 +1037,7 @@ termes, en termes spécifiquement chrétiens, que la
 création est un langage que le Dieu créateur parle à
 à l'homme sa créature. Elle-même comprise dans cette
 création. Mais faite à l'image et à la ressemblance de à
-son Créateur. Une immense bonté tombait du fir-
-mament. Réciproquement les grandes philosophies, les
+son Créateur. Une immense bonté tombait du firmament. Réciproquement les grandes philosophies, les
 
 à grandes métaphysiques ne sont que des réponses.
 L'athéisme lui-même, qui est une métaphysique, est une
@@ -1105,8 +1045,7 @@ L'athéisme lui-même, qui est une métaphysique, est une
 la malédiction remontante est une réponse. Vigny aussi à
 fait une réponse. Muet, aveugle et sourd au cri des
 créatures. Les grandes métaphysiques sont des lan- à
-gages de la création. Et à ce titre elles sont irrempla-
-çables. Elles ne peuvent ni jouer entre elles, ni se rem-!
+gages de la création. Et à ce titre elles sont irremplaçables. Elles ne peuvent ni jouer entre elles, ni se rem-!
 placer, ni se suppléer mutuellement, ni se faire mon
 service les unes les autres. Et ce qu'elles sont le moins,
 c'est interchangeables. Car elles sont les unes et les
@@ -1115,8 +1054,7 @@ toutes, quand ils sont dits, et que nulle autre ne peut
 dire à leur place. La voix qui manque, manque, et nulle
 autre, qui ne serait pas elle, ne peut ni la remplacer, ni à
 se donner pour elle, ni faire croire qu'elle est elle, ni la
-) construire censément du dehors par subterfuges, écha-
-faudages, artifices et fictions. Ce serait une folie que de
+) construire censément du dehors par subterfuges, échafaudages, artifices et fictions. Ce serait une folie que de
 croire et de s'imaginer par exemple qu'à défaut de la
 ; philosophie platonicienne et plotinienne une autre phi-
 4 losophie, quelque philosophie moderne, — et ce serait
@@ -1146,8 +1084,7 @@ manque éternellement. Une race, un art, une œuvre,
 une philosophie qui manque, manque éternellement.
 Une métaphysique de race et d'homme, de nature et
 d'œuvre qui n'aboutit pas, qui ne rend pas, qui manque,
-fait éternellement faute. Si la philosophie antique plato-
-nicienne et plotinienne, comme la race hellénique une
+fait éternellement faute. Si la philosophie antique platonicienne et plotinienne, comme la race hellénique une
 fois pour toutes n'était point venue au monde, elle manquait, et manquait éternellement. Et nulle de ses illusF tres successeurs ne la pouvait aucunement suppléer,
 je ne dis pas même totalement, je dis non pas même
 partiellement. Car ce serait encore une grossièreté que
@@ -1157,16 +1094,14 @@ ne s'agit nullement, dans cet ordre, de parties de!
 touts qui se recouvriraient plus ou moins. Mais il ne "4
 s'agit que de tons. Une philosophie qui est, qui vient
 . d'une tout autre race, est toujours une tout autre philo-;
-sophie, étant d'un tout autre ton. Si la philosophie pla-
-tonicienne et plotinienne antique n'était pas née d'une
+sophie, étant d'un tout autre ton. Si la philosophie platonicienne et plotinienne antique n'était pas née d'une
 certaine race, d'un certain peuple, sous un certain ciel
 et dans un certain climat, elle manquait, et nulle autre
 1 philosophie, née d'une autre race, d'un autre peuple,
 
 sous un autre ciel et dans un autre climat ne la pouvait
 aucunement remplacer. Tout ainsi de la philosophie
-cartésienne, et de la philosophie kantienne, et de la phi-
-losophie bergsonienne. Un grand philosophe, nouveau,
+cartésienne, et de la philosophie kantienne, et de la philosophie bergsonienne. Un grand philosophe, nouveau,
 un grand métaphysicien, nouveau, n'est nullement un
 homme qui arrive à démontrer que chacun de ses An.
 illustres prédécesseurs séparément et tous ensemble, et
@@ -1186,9 +1121,7 @@ sophe du monde, la plus grande philosophie du monde,: VOS
 grande en ellemême et par la considération de sa 1550
 valeur intrinsèque et de son mécanisme intérieur
 propre, est aussi démunie qu'un enfant quand il s'agit
-de recréer d'une autre philosophie. Je ne dis pas seule-
-
-ment l'homme le plus savant, ce qui n'est que trop
+de recréer d'une autre philosophie. Je ne dis pas seulement l'homme le plus savant, ce qui n'est que trop
 naturel, mais l'homme le plus grand homme. Car il est
 grand, mais il est autre. C'est ce qui fait qu'il n'y a
 jamais qu'un langage, un seul, pour chaque objet, 112108
@@ -1201,9 +1134,7 @@ sation mythique, et de l'insertion des esprits ou des DU.
 
 l'ancienne Grèce hellénique, un de ces langages nommés
 
-la philosophie platonicienne et la philosophie ploti-
-
-nienne, Quiconque voudra parler de Dieu juste et
+la philosophie platonicienne et la philosophie plotinienne, Quiconque voudra parler de Dieu juste et
 
 jaloux, et d'un Dieu, unique, et de justice temporelle,
 
@@ -1231,9 +1162,7 @@ unique à personnes plurielles, d'un Dieu infiniment
 
 Créateur, infiniment tout-puissant, infiniment juste et
 
-- infiniment bon, de communion éternelle, de cité éter-
-
-nelle et de charité, éternelle, éternellement il faudra
+- infiniment bon, de communion éternelle, de cité éternelle et de charité, éternelle, éternellement il faudra
 qu'il parle le langage du peuple chrétien.
 
 Quiconque voudra parler de substance, de substance
@@ -1245,8 +1174,7 @@ le langage nommé philosophie cartésienne. Quiconque
 voudra parler je ne dis pas de critique tant peut-être A
 que d'obligation morale, éternellement il faudra qu'il
 
-parle le langage nommé philosophie kantienne. Qui-
-conque voudra parler de vie et de mouvement et de
+parle le langage nommé philosophie kantienne. Quiconque voudra parler de vie et de mouvement et de
 repos, et de la relation du mouvement au repos, et #4
 de la réalité du mouvement, de durée et de liberté
 réelle, de temps et d'espace, de leur non homogénéité
@@ -1270,8 +1198,7 @@ signifie plus rien. De même que les grandes métaphy-
 4 siques, et de même que les grandes philosophies ne se
 , peuvent aucunement remplacer, l'une l'autre, de même!.
 les grands métaphysiciens et philosophes ne se peuvent
-1 pas doubler, l'un l'autre. De même que les grandes mé-
-taphysiques et de même que les grandes philosophies
+1 pas doubler, l'un l'autre. De même que les grandes métaphysiques et de même que les grandes philosophies
 À ne se peuvent aucunement remplacer, l'une l'autre,
 Ê l'autre étant supposée défaillante, de même elles ne se
 recouvrent pas, jamais, et même elles ne jointent pas, ai
@@ -1280,17 +1207,15 @@ l'autre étant supposée existante et présente. Il est évi- Wa:
 dent d'ailleurs que ces deux impossibilités sont soli- (4
 daires, se tiennent, se comportent et se requièrent,
 
-À; qu'elles s'exigent l'une l'autre. De même que l'humanité
+qu'elles s'exigent l'une l'autre. De même que l'humanité
 
 NE) Charles Péguy nue
 n'a reçu aucun don, aucune faculté de substitution, de
 même qu'il ne fonctionne aucun remplacement, qu'il ne
 joue aucun service de remplacement dans, entre les
-métaphysiques et entre les philosophies, d'une méta-
-physique et d'une philosophie à l'autre, jeu qui par
+métaphysiques et entre les philosophies, d'une métaphysique et d'une philosophie à l'autre, jeu qui par
 définition consisterait à faire ou à permettre, à faire et
-à laisser faire qu'une philosophie et qu'une métaphy-
-sique se fit ou se laissât prendre pour une autre, de
+à laisser faire qu'une philosophie et qu'une métaphysique se fit ou se laissât prendre pour une autre, de
 même il ne fonctionne aucun doublement, d'une méta- ni
 physique et d'une philosophie sur l'autre, il ne joue
 aucun service de doublement par lequel une métaphy- a
@@ -1308,25 +1233,20 @@ qu'aucun remplacement n'est admis, de même il n'a
 jamais été délivré de duplicatum. Il n'y a point de À.
 chargés de cours et de suppléants. Il y a des airs qui À
 n'ont pas été joués; mais on n'a jamais joué deux
-fois le même air à l'humanité. Une voix qui donne-
-
-rait une résonance, et que vous supposez n'exister pas, (
+fois le même air à l'humanité. Une voix qui donnerait une résonance, et que vous supposez n'exister pas, (
 
 c'est-à-dire ne pas se faire entendre, ne sera éternelle-
 
-- ment pas suppléée par une autre Voix, qui par défini-
-tion de réalité donnerait une autre résonance. Une voix
+- ment pas suppléée par une autre Voix, qui par définition de réalité donnerait une autre résonance. Une voix
 
 : qui donne une résonance, et que vous supposez qui a
-existe, c'est-à-dire qui se fait entendre, ne sera éternel-
-lement pas doublée par une seconde voix, par une autre
+existe, c'est-à-dire qui se fait entendre, ne sera éternellement pas doublée par une seconde voix, par une autre
 
 voix qui par définition factice voudrait en même temps
 être la même, c'est-à-dire donner la même résonance. il
 Un élève ne signifie plus rien. Le plus grand des élèves, (it
 s'il est seulement élève, s'il répète seulement, s'il ne
-fait que répéter, je n'ose pas même dire la même réso-
-nance, car alors ce n'est plus méme une résonance, pas
+fait que répéter, je n'ose pas même dire la même résonance, car alors ce n'est plus méme une résonance, pas
 même un écho, c'est un misérable décalque, le plus À
 ! grand des élèves, s'il n'est qu'élève, ne compte pas, ne
 signifie absolument plus rien, éternellement est nul. Un
@@ -1339,15 +1259,13 @@ n'est pas un élève. Non qu'il n'ait pas le droit de à
 descendre d'une autre philosophie et d'un autre philo-
 À sophe. Mais il en doit descendre par les voies natu-
 A relles de la filiation, et non par les voies scolaires de
-l'élevage. Une métaphysique, une philosophie a tou-
-jours le droit, et peut-être, souvent, le devoir, — et
+l'élevage. Une métaphysique, une philosophie a toujours le droit, et peut-être, souvent, le devoir, — et
 
 sans doute ne peut-elle pas faire autrement, — d'être dE:
 naturellement la fille, la filleule, la filiale d'une méta- ‘we
 physique et d'une philosophie maternelle, marraine,
 
-aïeule: en aucun cas elle n'a le droit d'en être scolaire-
-ment l'élève. Il y a ici, au point de vue où nous nous
+aïeule: en aucun cas elle n'a le droit d'en être scolairement l'élève. Il y a ici, au point de vue où nous nous
 sommes trouvés situés, une différence capitale entre la
 relation naturelle du père au fils et la rélation, quand
 elle est scolaire, du maître à l'élève.
@@ -1358,31 +1276,21 @@ comme une chaîne ininterrompue, continue ou discon-
 
 ; tinue, toujours linéaire, dont chaque maille annu- Ne
 
-lerait ou dépasserait la maille immédiatement pré-
+lerait ou dépasserait la maille immédiatement préil [On entend bien qu'une série, qu'une suite historique
 
-il [On entend bien qu'une série, qu'une suite historique
-
-‘peut être à la fois ininterrompue et discontinue. Inin-
-
-terrompue en ce sens qu'il y aurait communication d'un
+‘peut être à la fois ininterrompue et discontinue. Ininterrompue en ce sens qu'il y aurait communication d'un
 
 bout à l'autre; discontinue en ce sens que les différents
 
-éléments en seraient des unités discrètes. Grossière-
-
-ment parlant, et pour emprunter de grossières images
+éléments en seraient des unités discrètes. Grossièrement parlant, et pour emprunter de grossières images
 
 figurées, la différence et la relation qu'il y aurait entre
 
 4 une série, une suite historique ininterrompue continue
 
-à et une suite ininterrompue discontinue serait compa-
+à et une suite ininterrompue discontinue serait comparable à la différence et à la relation qu'il y aurait entre
 
-rable à la différence et à la relation qu'il y aurait entre
-
-une corde de chanvre par exemple, ou une corde mé-
-
-tallique, et une chaîne à maillons. Toutes les deux sont
+une corde de chanvre par exemple, ou une corde métallique, et une chaîne à maillons. Toutes les deux sont
 
 ininterrompues, également. Pourtant l'une est en un
 
@@ -1404,7 +1312,7 @@ es grandes races, en un mot comme l'ensemble des grandes
 
 Le, concert de voix qui souvent concertent et quelquefois
 
-à, dissonent, qui résonnent toujours. Et qui n'existent et
+dissonent, qui résonnent toujours. Et qui n'existent et
 
 ne méritent que comme donnant une résonance. À
 
@@ -1425,11 +1333,8 @@ erreurs les plus graves de la métaphysique honteuse,
 1 elle-même, — de la métaphysique du parti intellectuel
 1 moderne que de se représenter ou de vouloir nous reL présenter la succession des métaphysiques et des phi-
 ( losophies, — des religions, — comme un progrès
-linéaire ininterrompu continu ou discontinu. Plus géné-
-ralement c'est une des plus graves erreurs de la méta-
-physique du parti moderne intellectuel que de se repré-
-senter ou de vouloir nous représenter le progrès, — ce
-qu'ils nomment ou croient ou imaginent un progrès, —,
+linéaire ininterrompu continu ou discontinu. Plus généralement c'est une des plus graves erreurs de la métaphysique du parti moderne intellectuel que de se représenter ou de vouloir nous représenter le progrès, — ce
+qu'ils nomment ou croient ou imaginent un progrès,
 la succession des théories comme un progrès linéaire à
 ininterrompu continu ou discontinu. Et cette plus grave
 erreur générale n'est elle-même qu'un cas particulier de
@@ -1457,8 +1362,7 @@ D. ticiens du parti intellectuel moderne, — il ne suit
 Une métaphysique, une philosophie, un art, un peuple,
 40 une race, une culture est au contraire de l'ordre de
 si 11 l'événement. C'est un événement, qui arrive, ou qui
-A n'arrivait pas, que l'on fait, qui se fait, ou qui ne se fai-
-sait pas. Quand c'est fait, c'est fait une fois pour toutes.
+A n'arrivait pas, que l'on fait, qui se fait, ou qui ne se faisait pas. Quand c'est fait, c'est fait une fois pour toutes.
 (0 En ce sens qu'on ne le redouble pas, mais non pas en;
 ce sens qu'on ne peut pas le perdre. Quand ce n'est pas
 nt, fait, quand c'est raté, il se peut que ce ne soit fait
@@ -1492,30 +1396,23 @@ que nous retrouverons peut-être à loisir à ce point de
 
 nos mêmes recherches, — et alors nous tâcherons de
 
-nous y arrêter, — c'est l'amusante substitution, demi-
-frauduleuse, — croyez bien que je le sais autant que
+nous y arrêter, — c'est l'amusante substitution, demifrauduleuse, — croyez bien que je le sais autant que
 vous, — mais si naïve et dans sa rouerie politicienne si à
 désarmante, par laquelle tout ce monde moderne essaie
 
 de masquer l'absence plus ou moins consciente, plus ou
 
 moins voulue de cette capitale distinction réelle dans sa À
-métaphysique en essayant de lui substituer une distinc-
-
-tion imaginaire similaire, une distinction imaginaire à
+métaphysique en essayant de lui substituer une distinction imaginaire similaire, une distinction imaginaire à
 É en simili, chargée de tenir la place, du mieux qu'elle
 pourra, et de tâcher de faire oublier l'autre, la vraie: je à
-veux dire cette si célèbre distinction nouvelle, nouvelle-
-
-ment introduite entre le physique et le métaphysique,
+veux dire cette si célèbre distinction nouvelle, nouvellement introduite entre le physique et le métaphysique,
 
 selon laquelle on nommerait physique tout ce qui est ni
 saisissable et ne réserverait à l'homme que de faciles
-triomphes, et selon laquelle aussi on nommerait méta-
-physique tout ce qui est insaisissable et ne réserverait
+triomphes, et selon laquelle aussi on nommerait métaphysique tout ce qui est insaisissable et ne réserverait
 à l'homme que d'ingrates déconvenues, une sorte de À
-ù Nous montrerons au contraire et nous aurons à mon-
-trer que la métaphysique est peut-être la seule recherche
+ù Nous montrerons au contraire et nous aurons à montrer que la métaphysique est peut-être la seule recherche
 de connaissance qui soit directe, littéralement, et que la
 physique, au contraire, ne peut jamais être qu'une
 
@@ -1534,14 +1431,12 @@ De facto des techniques et des pratiques, mais qu'il y a des
 4 et qui ont réfléchi combien les opérations du jeu entrent
 ‘Ke profondément dans les opérations de la vie, les perLi. sonnes qui ont pensé un peu à cette entrée, à cette
 510 pénétration, si inquiétante et si profondément, si
-1.4 naturellement et si tranquillement immorale, si mysté-
-rieuse, ne seront point étonnées que ce mot soit un mot
+1.4 naturellement et si tranquillement immorale, si mystérieuse, ne seront point étonnées que ce mot soit un mot
 ‘El qui à pris particulièrement un sens tout particulier dans:
 un jeu, et dans le jeu qui est devenu comme le représen-
 +0 tant éminent et comme le symbole essentiel du jeu,
 14 tion du jeu, ce même jeu y étant appliqué, n'y servant
-à souvent que d'instrament à des superstitions de devine-
-resse et à des essais de calculs de la destination, iln'y
+à souvent que d'instrament à des superstitions de devineresse et à des essais de calculs de la destination, iln'y
 A a qu'un mot à dire: une métaphysique, une philosophie,
 412408 un art, une race, un peuple, une œuvre est une réussite.
 
@@ -1556,8 +1451,7 @@ ne peut faire le service d'une autre.
 Les quelques recouvrements que l'on pourrait signaler
 ou bien ne sont que des recouvrements apparents, ou
 bien n'intéressent pas la métaphysique et la philosophie.:
-Dans l'un et l'autre cas, ils n'établissent ni ne permet-
-tent aucunement d'établir qu'il y ait ni qu'il y ait
+Dans l'un et l'autre cas, ils n'établissent ni ne permettent aucunement d'établir qu'il y ait ni qu'il y ait
 un plwgrès linéaire des métaphysiques et des philosophies. Deux exemples pour aujourd'hui nous sufliront.: (ir
 Il est expressément vrai, comme on me l'opposera, que
 les arguments des Eléates helléniques ont attendu jusk qu'à ce jour pour trouver une réfutation, mettons pour
@@ -1567,19 +1461,14 @@ réfutation par dépassement ni recouvrement linéaire. Il À
 est vrai que les arguments de Zénon d'Elée ont attendu
 |4 jusqu'à ce jour pour obtenir une réfutation qui valût.
 Mais ce n'est point une réfutation qui ait procédé en
-. série linéaire. Nous n'avons point dépassé les argu-
-ments de Zénon d'Elée, en ce sens que dans la même. AUS
-IL série, linéaire, nous eussions inventé, imaginé, décou-
-vert, trouvé un argument nouveau, inconnu jusqu'ici,
-ou un ensemble d'arguments, un raisonnement qui dé-
-passant le raisonnement, l'argument éléatique l'ait pour À
+. série linéaire. Nous n'avons point dépassé les arguments de Zénon d'Elée, en ce sens que dans la même. AUS
+IL série, linéaire, nous eussions inventé, imaginé, découvert, trouvé un argument nouveau, inconnu jusqu'ici,
+ou un ensemble d'arguments, un raisonnement qui dépassant le raisonnement, l'argument éléatique l'ait pour À
 ainsi dire effacé comme un chaïînon aboli de la même À
 
 série linéaire. Nous n'avons pas dépassé l'argument
 
-À Es éléatique. Nous y avons échappé, ce qui est tout diffé-
-
-rent. Par le ministère d'un grand philosophe, nous
+À Es éléatique. Nous y avons échappé, ce qui est tout différent. Par le ministère d'un grand philosophe, nous
 
 4 avons pris une certaine vue de la réalité, une vue
 
@@ -1591,11 +1480,7 @@ directe, une immédiate saisie, d'où ensuite nous nous
 
 , une vue de la réalité.
 
-Deuxième exemple, on m'opposera qu'une bonne par-
-
-tie de l'Esthétique transcendantale a été non pas seule-
-
-ment précisément démolie, mais décontenancée par un
+Deuxième exemple, on m'opposera qu'une bonne partie de l'Esthétique transcendantale a été non pas seulement précisément démolie, mais décontenancée par un
 4 chapitre au moins de l'Essai sur les données immédiates;
 
 à démolie ou décontenancée, ce serait donc en tout cas
@@ -1617,13 +1502,11 @@ faiblesse, comme le défaut de l'armure, presque initial,
 (TA trouvé, sinon de tout le kantisme, au moins de toutle
 kantisme critique, ou de tout le criticisme kantiste, que
 cette assimilation et que ce parallélisme a été nié, cri-;
-à tiqué lui-même, qu'ainsi le critique a été critiqué, lui-
-même, et qu'enfin nous sommes donc en présence
+à tiqué lui-même, qu'ainsi le critique a été critiqué, luimême, et qu'enfin nous sommes donc en présence
 d'un fait nouveau, d'un fait acquis, une fois pour toutes,
 d'un progrès, comme il y en a dans la science.
 
-4 Mais c'est qu'en effet il ne s'agit plus ici de philo-
-sophie et de métaphysique: il s'agit, en effet, d'une
+Mais c'est qu'en effet il ne s'agit plus ici de philosophie et de métaphysique: il s'agit, en effet, d'une
 science. Il s'agit de la science nommée psychologie. Il
 est vrai qu'une partie notable de l'Esthétique a été
 1 ruinée, surprise, déboutée, dépassée par une partie no-
@@ -1633,14 +1516,11 @@ dépassement scientifique. C'est presque un dépassement
 discontinu scientifique, ininterrompu si l'on veut. Ce
 1 n'est pas une théorie qui chasse une théorie. Car il ne \“UR
 1 s'agit point de théorie, mais de savoir en fait, en
-résultats, déterminés, de la connaissance psychoW logique. Et pour la part où il y aurait peut-être inter-
-calation de théories, nous démontrerons en son temps
+résultats, déterminés, de la connaissance psychoW logique. Et pour la part où il y aurait peut-être intercalation de théories, nous démontrerons en son temps
 AU qu'il ne s'agit plus d'un dépassement linéaire, mais,
 comme dans le cas précédent, comme dans le premier
 il exemple, comme dans la difficulté éléatique, d'un
-échappement, d'une libération, qu'il y s'agit pareille-
-ment d'échapper à une vue de l'esprit par l'administra-
-tion d'une vue de la réalité.
+échappement, d'une libération, qu'il y s'agit pareillement d'échapper à une vue de l'esprit par l'administration d'une vue de la réalité.
 C'est en ce sens, mais, je crois, en ce sens seulement,
 que l'on peut considérer comme une théorie la théorie
 (il de la fabrication psychologique, secondaire, d'un
@@ -1684,15 +1564,12 @@ Du: contraire tout ce qui est perdu est irrémédiablement
 renaissances, toutes merveilleuses, toutes miraculeuses (
 qu'elles soient, sont toujours fort incomplètes, et, quand
 elles ne demeurent pas complètement impossibles,
-quand elles naïssent, naissent et demeurent éminem-
-ment précaires. En ce double sens, premièrement qu'il
+quand elles naïssent, naissent et demeurent éminemment précaires. En ce double sens, premièrement qu'il
 est précaire qu'il y en ait, qu'elles sont aléatoires, et
 deuxièmement, que quand par événement de fortune il
 y en elles sont et demeurent incomplètes et pré- À
 caires. La grande Renaissance, la Renaissance des
-quinzième et seizième siècles, celle enfin que nous nom-
-mons la Renaissance, sans plus, fut une véritable mer-
-veille dans l'histoire de l'humanité. Elle n'en était pas
+quinzième et seizième siècles, celle enfin que nous nommons la Renaissance, sans plus, fut une véritable merveille dans l'histoire de l'humanité. Elle n'en était pas
 moins fort incomplète. Et nous pouvons voir aujour- LA
 d'hui, nous pouvons mesurer combien elle aura été À
 
@@ -1720,15 +1597,13 @@ point résonné, généralement si le peuple et la race, les.
 hommes et les dieux, si la Grèce antique elle-même
 n'était point née, une fois, si elle n'était pas vente, au
 monde, cette fois, si ce langage n'avait pas sonné dans;
-à l'histoire du monde, si le talon de cette race et la réso-
-nance ce pas n'avait pas sonné sur le pavé du monde,
+à l'histoire du monde, si le talon de cette race et la résonance ce pas n'avait pas sonné sur le pavé du monde,
 si la Grèce antique n'avait point prononcé une fois
 pour toutes la parole antiqué, par quelles misérables
 mixtures prétendues scientifiques, par quelles pauvres A
 combinaisons, scientifiques même véritablement, qui
 eût rien faire de comparable à cette invention merveilleuse.
-Ainsi des autres. Ainsi de tous les autres, du carté-
-sien, du kantien, du bergsonien. Et ainsi, infiniment
+Ainsi des autres. Ainsi de tous les autres, du cartésien, du kantien, du bergsonien. Et ainsi, infiniment
 plus, du chrétien. Et infiniment autrement.
 De telles pertes sont irréparables. Une diminution
 à générale de la culture, un réenvahissement la barbarie nous enseignent assez, nous font assez voir et
@@ -1741,11 +1616,9 @@ ment utilitaire, l'a fait chasser de nos enseignements. A
 la grandeur du défaut, à la grandeur de qui nous
 manque, aujourd'hui déjà, noùs pouvons iiésurer la
 grandeur de la perte. Demain, infinitnent plus,
-infiniment autrement, quand la même pousséé, s'atta-
-quant successivement à toutes les culturés qui ont fait À
+infiniment autrement, quand la même pousséé, s'attaquant successivement à toutes les culturés qui ont fait À
 la grandeür et la force et la moelle de l'humanité, aura
-, commencé de ruinér dans les consciences un christia-
-nisme quinze et vingt fois séculaire (on peut compter
+, commencé de ruinér dans les consciences un christianisme quinze et vingt fois séculaire (on peut compter
 : sommairement vingt siècles, parce que s'il y à la
 
 1 préparation de l'établissement, il y avait aussi une
@@ -1764,8 +1637,7 @@ ordinaire, inconcevable, mais fréquent et commun, —
 
 pour ne pas voir, pour ne pas considérer que symétrif quement et solidairement c'est nous aussi qui nous perdons. Quand nous voyons et quand nous constatons
 
-qu'une métaphysique, — une religion, — et qu'une phi-
-losophie est perdue, ne disons pas seulement qu'elle
+qu'une métaphysique, — une religion, — et qu'une philosophie est perdue, ne disons pas seulement qu'elle
 seule est perdue. Sachons voir et constater, osons dire
 qu'en face et par contre, ensemble et en même temps,
 c'est nous aussi, qui d'autant, sommes perdus. Quand
@@ -1779,8 +1651,7 @@ corps, quand ils obtiennent quelque désorganisation et
 4 désintégration de quelque corps, ils allument aux fronb tons en faux ionien des sous-préfectures démocratiques
 IL les lampions vraiment laïques des électorales réjouis-
 ! sances nationalés. Qu'ils rassurent, pourtant. Quand
-1 une métaphysique et une religion, quand une philoso-
-phie disparaît de l'humanité, c'est tout autant, c'ést
+1 une métaphysique et une religion, quand une philosophie disparaît de l'humanité, c'est tout autant, c'ést
 
 1 peut-être bien plus l'humanité qui disparaît de cette
 métaphysique et de cette religion, de cette philosophie.
@@ -1798,18 +1669,15 @@ des philosophies masquées décroît derrière des coteaux
 ne nous réjouissons pas: car symétriquement et soli140 dairement c'est nous aussi qui décroissons.
 Ne nous félicitons pas: le mot définitif et le mot le
 plus profond qu'ait prononcé l'homme le plus mêlé de
-l'instauration du monde moderne, après la plus scan-
-daleuse, après la plus frauduleuse, après la plus désas-
-ù; treuse banqueroute où le monde moderne eût jamais
+l'instauration du monde moderne, après la plus scandaleuse, après la plus frauduleuse, après la plus désas-
+treuse banqueroute où le monde moderne eût jamais
 ; conduit, comme on conduit au cimetière, eût jamais
 ni fait aboutir sa plus glorieuse affaire, et la plus belle À
-affaire que jamais monde ait eue entre les mains, pa-
-role qui l'honore infiniment plus qu'un Panthéon, gran-
+affaire que jamais monde ait eue entre les mains, parole qui l'honore infiniment plus qu'un Panthéon, gran-
 : dement plus que son œuvre, dont la plus grande partie
 le déshonore, grandement plus que son acte même.
 di: 4 Remontons de deux siècles. Ce grand classique dix-
-; septième siècle français nous donnera par une compa-
-raison la formule brève et quasi définitive. Nous dirons
+; septième siècle français nous donnera par une comparaison la formule brève et quasi définitive. Nous dirons
 nur) qu'il se produit dans l'administration des métaphy-
 À siques un phénomène très comparable à celui qui se
 
@@ -1821,9 +1689,7 @@ que c'est nous qui les quittons.
 Remontons d'un siècle encore. Et pénétrant au cœur
 de la Renaissance française, et détendant un peu en
 tendresse de vers la sévérité de notre prose, nous obtiendrons d'un poète, comme il sied, et d'un autre gentilhomme, et d'un Vendômois, la formule admirable et
-plus belle que le grec, la formule française et Renaissance française, et qui porte son âge avec une admi-
-rable justesse, une formule de la Pléiade enfin, la for-
-mule je ne dirai pas autant définitive qu'initiale:
+plus belle que le grec, la formule française et Renaissance française, et qui porte son âge avec une admirable justesse, une formule de la Pléiade enfin, la formule je ne dirai pas autant définitive qu'initiale:
 ï Las! le temps, non, mais nous, nous en allons.
 ï Quand les métaphysiques et les religions, quand les
 philosophies nous quittent, nous nous flattons de la
@@ -1845,22 +1711,19 @@ nous vanter et faire les malins. Tout ce qui se pro- À
 duit alors signifie simplement que nous sommes désac-
 Un esprit qui commence à dépasser une philosophie
 est tout simplement une âme qui commence à se désaccorder du ton et du rythme, du langage et de la
-; résonance de cette philosophie. Quand nous ne conso-
-nons plus, alors nous disons que nous commençons à
+; résonance de cette philosophie. Quand nous ne consonons plus, alors nous disons que nous commençons à
 noüs sentir libérés.!
 C'est vraiment en ce sens que le moderne est libre.
 En ce seul sens. Il y a seulement une différence. Quand
 cette liberté fonctionne à son avantage, quand elle fait
--le jeu de ses intérêts, le moderne se vante, et haute-
-ment, de cette liberté. Il n'en a pas toujours été ainsi. À
+-le jeu de ses intérêts, le moderne se vante, et hautement, de cette liberté. Il n'en a pas toujours été ainsi. À
 Il n'en est pas ainsi dans notre commune estimation de 1214
 la mise au linceul des mondes précédents. Si la mémoire
 d'Hypatie demeure une des plus hautement honorées à
 entre toutes les mémoires humaines, si elle a une situa-
 ‘tion presque unique dans un Panthéon des mémoires
 qui n'est pas au bout de la rue Soufllot, ce n'est point
-- seulement parce que la fidélité dans le malheur, pous-
-sée, poursuivie jusqu'à demeurer fidèle dans une sorte
+- seulement parce que la fidélité dans le malheur, poussée, poursuivie jusqu'à demeurer fidèle dans une sorte
 de malheur suprême, et non plus seulement d'infortune 5%
 À et d'adversité, dans un malheur véritablement métaphy-
 4 sique, dans une sorte de malheur suprême, de finale
@@ -1876,8 +1739,7 @@ D. entendue autrement, en un sens peut-être infiniment
 14 plus profond, en un sens et musical et plastique, en
 Ï ligne, ce miracle et cette fidélité, qu'une âme fût si
 parfaitement accordée à l'âme platonicienne, et à sa
-filiale l'âme plotinienne, et généralement à l'âme hel-
-lénique, à l'âme de sa race, à l'âme de son maître, à
+filiale l'âme plotinienne, et généralement à l'âme hellénique, à l'âme de sa race, à l'âme de son maître, à
 ! l'âme de son père, d'un accord si profond, si intérieur,
 atteignant si profondément aux sources mêmes et aux
 racines, que dans un anéantissement total, quand tout

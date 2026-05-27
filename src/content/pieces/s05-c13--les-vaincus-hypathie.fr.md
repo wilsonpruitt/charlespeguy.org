@@ -30,8 +30,7 @@ serait vite fatigué des génuflexions et des louanges de
 
 22. Demande. — D'où vient une idée de ce genre?
 
-Réponse. — Elle vient d'Orient, où l'on ne peut approcher les sultans qu'avec des prosternations, des pré-
-sents et des salamalecs.
+Réponse. — Elle vient d'Orient, où l'on ne peut approcher les sultans qu'avec des prosternations, des présents et des salamalecs.
 
 23. Demande. — Quel est l'argument moral contre la
 
@@ -304,9 +303,7 @@ est immortelle.
 5. Demande. — Qu'est-ce que l'âme?
 
 Réponse. — Dans la croyance populaire c'est une
-étincelle, une flamme, ou une essence logée temporaire-
-
-le monde sans Dieu RENE
+étincelle, une flamme, ou une essence logée temporairele monde sans Dieu RENE
 4 ment dans le corps, mais qui, à la mort, retourne vers
 son auteur — Dieu.
 6. Demande. — Tous les hommes ont-ils une âme?
@@ -377,9 +374,7 @@ JE le monde sans Dieu
 grands, qui n'eurent pas la « vraie foi » seront-ils
 exclus du ciel?
 
-Réponse. — Les credo disent qu'ils le seront. Et con-
-
-séquemment l'espoir de l'immortalité n'est pas un
+Réponse. — Les credo disent qu'ils le seront. Et conséquemment l'espoir de l'immortalité n'est pas un
 ni espoir du tout pour la plupart des gens.
 
 ; 23. Demande. — Le ciel et l'enfer sont-ils tous deux
@@ -401,8 +396,7 @@ Réponse. — Oui, si nous le rendons tel.
 
 Réponse. — Non. Mais elle laisse la question ouverte.
 
-Henry Ward Beecher fut le premier parmi les modernes pré-
-dicateurs orthodoxes à protester contre cette doctrine. — Cf. The
+Henry Ward Beecher fut le premier parmi les modernes prédicateurs orthodoxes à protester contre cette doctrine. — Cf. The
 Passing orthodox Religion, par l'auteur.
 
 27. Demande. — Quels sont les arguments en faveur
@@ -484,9 +478,7 @@ nous suivra. L'âme d'un homme est la somme de toutes
 
 ses facultés et de ses forces, de ses pensées, de ses actions
 
-et de ses affections. Celles-ci, pas plus que les molé-
-
-cules qui composent son corps, ne périssent à sa mort,
+et de ses affections. Celles-ci, pas plus que les molécules qui composent son corps, ne périssent à sa mort,
 
 mais elles s'incorporent à de nouvelles formes de la
 vie, et ainsi de suite toujours. (1)
@@ -527,8 +519,7 @@ apprenons tout ce que nous savons du bien et du mal?
 
 Réponse. — Absolument tout.
 
-7. Demande. — N'avons-nous pas besoin d'une révé-
-lation pour nous parler infailliblement du bien et du
+7. Demande. — N'avons-nous pas besoin d'une révélation pour nous parler infailliblement du bien et du
 
 Réponse. — Non. Si nous ne savons pas discerner
 nous-mêmes le bien du mal, une révélation ne nous sera
@@ -571,8 +562,7 @@ Réponse. — Parce que c'est le premier et le plus
 1 ancien auteur de l'homme et son plus vieux maître.
 
 14. Demande. — Pourquoi faut-il obéir à la Nature?
-Réponse. — Parce que nous avons appris par l'expé-
-rience des siècles qu'il le faut.
+Réponse. — Parce que nous avons appris par l'expérience des siècles qu'il le faut.
 
 15. Demande. — Qu'arriverait-il si nous n'obéissions
 

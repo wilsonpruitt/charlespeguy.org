@@ -8,8 +8,7 @@ isAvertissement: false
 wordCount: 12198
 ---
 Dans la Petite République du mardi 22 janvier Jaurès
-nous a signalé « un très substantiel et très pénétrant ré-
-sumé de toute l'œuvre du puissant penseur et écrivain »
+nous a signalé « un très substantiel et très pénétrant résumé de toute l'œuvre du puissant penseur et écrivain »
 que fut Proudhon; il félicite l'auteur, M. Bourgin, de ne
 pas avoir imité les gens quise contentent de traiter Prou-
 _dhon de petit bourgeois et se dispensent « de le lire et
@@ -42,14 +41,12 @@ Proudhon. Ces deux oublis m'ont fait soupçonner que
 l'auteur pourrait avoir travaillé d'après les méthodes
 du fameux universitaire et que le résumé de toute
 l'œuvre pourrait bien être incomplet.
-Pourquoi dans l'analyse des Contradictions écono-
-miques avoir supprimé le célèbre chapitre VIII sur la
+Pourquoi dans l'analyse des Contradictions économiques avoir supprimé le célèbre chapitre VIII sur la
 Providence? Ce chapitre est cependant essentiel, car
 Proudhon ne cessera pas de développer ses idées sur
 la liberté, du droit de la force et du droit économique;
 sans cette dualité il n'y a pas moyen de faire entrer
-l'étude de l'histoire dans des cadres permettant d'uti-
-liser les théories du droit naturel. La manière dont
+l'étude de l'histoire dans des cadres permettant d'utiliser les théories du droit naturel. La manière dont
 M. Bourgin a parlé du livre sur la Guerre et la Paix me
 fait soupçonner qu'il a peur de soumettre en entier
 à ses lecteurs les idées de Proudhon, qui lui semblent
@@ -74,8 +71,7 @@ chute en mysticisme et même en superstition, le moyen
 le plus efficace est de conserver, autant que les principes de la Révolution le permettent, le ministère ecclé-
 
 Je ne relève pas d'autres omissions de détail; il y
-en aurait trop; mais je me demande pourquoi M. Bourgin n'a pas analysé la fameuse brochure: La révolu-
-tion sociale démontrée par le coup d'État. Les partis
+en aurait trop; mais je me demande pourquoi M. Bourgin n'a pas analysé la fameuse brochure: La révolution sociale démontrée par le coup d'État. Les partis
 socialistes vaincus, Proudhon pensait que Napoléon
 serait, comme son oncle, obligé de faire passer dans les
 
@@ -94,8 +90,7 @@ la nécessité d'une scission et disait: « Dans cette
 
 binaison étrange d'autorité monarchique et d'anarchie
 capitaliste et mercantile qui constitue l'ordre bourgeois,
-l'opposition au pouvoir apparaît comme partie inté-
-grante du système, nullement comme protestation éventuelle ». (Capacité politique, page 189.) Ce n'était pas
+l'opposition au pouvoir apparaît comme partie intégrante du système, nullement comme protestation éventuelle ». (Capacité politique, page 189.) Ce n'était pas
 seulement pour combattre l'Empire, mais surtout pour
 ne pas mêler le peuple socialiste à la bourgeoisie plus
 ou moins avancée qu'il préconisait l'abstention. On ne
@@ -105,8 +100,7 @@ s'en douterait guère en lisant le résumé substantiel.
 Quel a été le rôle historique de Proudhon? M. Bourgin
 s'est donné beaucoup de mal (pages 52-73) pour trouver des analogies verbales entre les formules de Proudhon et des formules antérieures; je pense bien que
 on avait parlé de banques avant lui et même avant
-Saint-Simon; je crois pouvoir aflirmer qu'il est complè-
-tement inexact que Proudhon soit « très redevable
+Saint-Simon; je crois pouvoir aflirmer qu'il est complètement inexact que Proudhon soit « très redevable
 Fourier ». Je suis très étonné que l'auteur n'ait pas
 signalé ce que tant d'autres avaient signalé avant lui,
 le caractère juridique de l'œuvre de Proudhon, caractère
@@ -124,11 +118,9 @@ l'importance qu'il attachait aux formes légales etl'opposition qu'il fit à la 
 jusqu'ici sur le socialisme français: les idées fédéralistes
 
 qui se manifestèrent dans l'Internationale, auraient
-se produire en dehors de lui, car elles avaient des ori-
-gines historiques; — mais l'influence de Marx n'a pas
+se produire en dehors de lui, car elles avaient des origines historiques; — mais l'influence de Marx n'a pas
 été bien notable non plus.
-Je crois que le moment est venu où les idées proudho-
-niennes, après avoir exercé une grande action sur la
+Je crois que le moment est venu où les idées proudhoniennes, après avoir exercé une grande action sur la
 sidérables pour l'avenir du socialisme. La question
 fondamentale qui est posée actuellement, celle qui se
 cache sous les apparences des querelles des écoles, est
@@ -176,8 +168,7 @@ l'Église. Le protestanti ort: il n'y a que des fago- il
 teurs germaniques qui htétiens en niant 1:14
 l'autorité de l'Église et du Christ. Quant à fair,
 de Napoléon le chef el, à l'imitation des pre- ans
-miers Césars: c'est nds. Ce jour-là, la Révolu-
-tion lui dirait, comme à Clovis: « Courbe la
+miers Césars: c'est nds. Ce jour-là, la Révolution lui dirait, comme à Clovis: « Courbe la
 tête, fier Sicambre; adt tu as brülé et brûle ce
 que tu as adoré ». Mais pas l'empire des Gaules At:
 qu'il recevrait pour récc de son baptême... il
@@ -214,11 +205,9 @@ et nommément de trancher, au détriment du Saint-Siège,
 comme on ne cesse d'y exciter le gouvernement impérial,
 la question du temporel. Sans compter que la séparation du (
 spirituel et du temporel, poussée à fond, se réduit en
-théorie à une absurdité et dans la pratique à une hypo-
-crisie, ce n'est pas par de tels moyens que les croyances A à
+théorie à une absurdité et dans la pratique à une hypocrisie, ce n'est pas par de tels moyens que les croyances A à
 se démolissent et que les Eglises et les sectes se détruisent.
-À La philosophie seule, et la plus radicale, agissant lente-
-ment sur les intelligences libres, est ici compétente. Tout;
+À La philosophie seule, et la plus radicale, agissant lentement sur les intelligences libres, est ici compétente. Tout;
 +. ce que peut un gouvernement ordinaire, obligé à la tolé- PAR CRE » rance des opinions et des cultes, est de laisser faire au temps?
 - et de s'abstenir de toute initiative. Des brouillons mena-
 - cent la Papauté de schisme, voire même de protestantisme;
@@ -228,17 +217,14 @@ léon de se déclarer le chef du spirituel aussi bien que
 avait réellement pour cause le sentiment religieux, l'idée
 chrétienne, serait le triomphe de la Papauté, en montrant A
 combien est solide encore la pierre sur laquelle est édifiée a
-l'Église. Le protestantisme est mort: il n'y a que des fago-
-teurs germaniques qui puissent se dire chtétiens en niant
+l'Église. Le protestantisme est mort: il n'y a que des fagoteurs germaniques qui puissent se dire chtétiens en niant
 l'autorité de l'Église et la divinité du Christ. Quant à faire 1}
-de Napoléon le chef du spirituel, à l'imitation des pre-
-miers Césars: c'est que je l'attends. Ce jour-là, la Révolu-;!
+de Napoléon le chef du spirituel, à l'imitation des premiers Césars: c'est que je l'attends. Ce jour-là, la Révolu-;!
 tion lui dirait, comme saint Remi à Clovis: « Courbe la
 tête, fier Sicambre; adore ce que tu as brülé et brüle ce
 que tu as adoré ». Mais ce n'est pas l'empire des Gaules
 qu'il recevrait pour récompense de son baptême...
-. Proupnox. Du principe fédératif et de la nécessité de recon-
-stituer le parti de la Révolution. — Œuvres complètes,
+. Proupnox. Du principe fédératif et de la nécessité de reconstituer le parti de la Révolution. — Œuvres complètes,
 à La vraie, l'unique question entre le parti de la foi et Le
 parti du progrès est la question morale, dans laquelle nous
 sommes certains de succomber et nous nous condamnons
@@ -256,13 +242,10 @@ haut ni d'en bas ne soutient plus; c'est le matérialisme de
 notre enseignement; c'est l'abandon de la pensée révolutionnaire remplacée par le plus détestable pharisaïsme
 c'est notre impur romantisme et notre libertinage voltai-
 
-À Je crois et j'attends la fin de la papauté temporelle puis-
-
-que je crois et j'attends la justice absolue et la pure morale
+À Je crois et j'attends la fin de la papauté temporelle puisque je crois et j'attends la justice absolue et la pure morale
 de l'humanité, dont la Révolution française a été, selon
 moi, le précurseur. Je crois donc qu'il viendra un jour où
-l'autorité spirituelle ne se distinguera plus de la tempo-
-relle, puisque toutes deux seront fondées sur la même
+l'autorité spirituelle ne se distinguera plus de la temporelle, puisque toutes deux seront fondées sur la même
 
 conscience, la même raison et la même liberté. Ce qui me
 
@@ -325,8 +308,7 @@ qui prie est sublime (1): homme à genoux est presque « aussi ridicule que celu
 
 Rien de tout cela cependant ne constitue la mission de
 la femme: son véritable lot est d'être préposée à la garde
-de nos mœurs et de nos caractères, chargée de nous repré-
-senter incessamment dans sa personne notre conscience
+de nos mœurs et de nos caractères, chargée de nous représenter incessamment dans sa personne notre conscience
 idéale. Quel rapport, dites-moi, entre une semblable destinée et le plaisir? Plus d'un homme a à la présence de
 sa femme de ne pas faillir; plus d'une femme, après avoir
 rêvé en son époux l'assemblage des vertus viriles, s'est
@@ -370,8 +352,7 @@ sont peinés de voir se déchirer des hommes qui font,
 sinon la même besogne, au moins des besognes parallèles. J'estime qu'il n'est pas bon de laisser, sans
 à motifs sérieux, diminuer la valeur morale des militants,
 parce que tout militant est une force, et que les idées
-ne se propagent pas, ne triomphent pas d'une façon au-
-tomatique. Je voudrais exposer les pièces du débat, y
+ne se propagent pas, ne triomphent pas d'une façon automatique. Je voudrais exposer les pièces du débat, y
 ajouter ce que j'en sais etce que j'en pense. Je crois
 pouvoir le faire sans passion. En effet je connais assez
 peu Gobhier: quand les étudiants fêtèrent son acquittement, je parlai en leur nom à la Ligue Démocratique
@@ -387,16 +368,13 @@ lui sans partialité. J'aurai à citer de longs textes,
 tout en me bornant aux principaux. Je sais que c'est la
 méthode des Cahiers. À mon avis elle est bonne.
 La querelle commença à propos de réunions faites en
-é province par Gohier. Il y fut contredit par des anarchis-
-
-tes qu'il traita d'agents des cléricaux. Le reprocha pou-!
+é province par Gohier. Il y fut contredit par des anarchistes qu'il traita d'agents des cléricaux. Le reprocha pou-!
 vait être fondé, car il est trop facile à des agents de
 toutes sortes de prendre un masque anarchiste. Dans la
 circonstance, il semble que Gohier s'était trompé.
 avait affaire à des anarchistes qui n'étaient pas de
 
-son avis, et qui envoyèrent à Grave une lettre de pro-
-testation. Grave l'inséra, ajouta des commentaires où
+son avis, et qui envoyèrent à Grave une lettre de protestation. Grave l'inséra, ajouta des commentaires où
 il constata que Gohier gagnait trois cents francs par
 semaine. Comme il le fit ensuite remarquer lui-même,
 ce n'était pas diffamatoire: c'était au moins inutile et il
@@ -407,8 +385,7 @@ querelle et demanda aux deux adversaires de s'expliquer devant lui. Voici commen
 N'ayant aucune animosité contre Gohier, peu satisfait de
 paraître faire le jeu des nationalistes en leur aidant à attaquer un champion qui, je ne le nie pas, leur taille debonnes croupières, je répondis à Vaughan que, devant la façon
 de procéder de Gohier, il m'était permis de douter de sa
-sincérité, mais que je ne demandais pas mieux que d'arré-
-ter cette discussion. J'allais le soir même à l'Aurore.. Nous
+sincérité, mais que je ne demandais pas mieux que d'arréter cette discussion. J'allais le soir même à l'Aurore.. Nous
 exposämes nos mutuels griefs et Vaughan conclut: Mais
 certainement nous sommes d'accord, il faut arrêter cela;
 nous profiterons d'une occasion pour nous rendre mutuel-
@@ -416,9 +393,7 @@ nous profiterons d'une occasion pour nous rendre mutuel-
 ne sera pas la première fois du reste.
 
 Il faut avouer que l'attitude de Vaughan paraît ici
-très louable. Grave eut sans doute tort de ne pas en-
-
-voyer l'article promis; il expliqua qu'il ne trouva dans
+très louable. Grave eut sans doute tort de ne pas envoyer l'article promis; il expliqua qu'il ne trouva dans
 l'Aurore du lendemain aucune satisfaction de la part
 de Gohier. Il semble qu'il se montra pressé et j'imagine
 d'après les paroles de Vaughan, rapportées par Grave
@@ -466,8 +441,7 @@ On peut trouver cette attaque bonne ou mauvaise;
 mais ce qui paraîtra déplorable à tous, c'est le mot
 bâtard. La semaine suivante Girard essaya de s'excuser, disant qu'il n'avait jamais voulu reprocher à quelqu'un d'être un bâtard. Sa justification est faible: pour
 tous ceux qui connaissent un peu le monde littéraire,
-lallusion était transparente. Au lieu de bâtard, pour-
-quoi Girard n'a-t-il pas écrit tout simplement fils? Ce
+lallusion était transparente. Au lieu de bâtard, pourquoi Girard n'a-t-il pas écrit tout simplement fils? Ce
 filet malheureux engageait d'ailleurs la responsabilité
 de Grave et l'Aurore ne manqua pas de le lui reprocher.
 Somme toute je ne pense pas que c'était suffisant
@@ -518,9 +492,7 @@ février, l'Aurore publia, en première place, un grand
 
 article de Gohier qu'il est nécessaire de reproduire
 
-Pendant deux années de bataille, depuis la première réu-
-
-nion dreyfusarde jusqu'à la grande journée de Longchamp,
+Pendant deux années de bataille, depuis la première réunion dreyfusarde jusqu'à la grande journée de Longchamp,
 
 nous avons des compagnons anarchistes dans le camp
 
@@ -593,8 +565,7 @@ de « leurs prisons » que M. Jean Grave, incarcéré comme,
 gérant responsable pour l'article d'un anarchiste sérieux.
 Notre camarade Perrenx, condamné avec Zola pour J'accuse, ne se prend tout de même pas pour Élisée Reclus.
 M. Jean Grave a cru ou fait croire que c'était arrivé. Il
-entra en prison ouvrier cordonnier, ce qui est très -hono-
-rable; il en sortit Pape, ce qui est très ridicule.
+entra en prison ouvrier cordonnier, ce qui est très -honorable; il en sortit Pape, ce qui est très ridicule.
 Il écrivait l'autre jour dans sa feuille
 Le sacrifice, le dévouement, les services rendus, laissons cela aux
 candidats et aux politiciens qui savent si bien en jouer, et nous ont
@@ -626,9 +597,7 @@ de Saint-Auban. Je le répète: conclusion limpide.
 
 Le jour du Grand Prix de 1898, tous les républicains de
 
-Paris étaient sur le terrain de Longchamp. Radicaux, so-
-
-cialistes, libertaires, avaient voulu faire face aux coupejarrets de la réaction. Le ministre Dupuy, les généraux, les
+Paris étaient sur le terrain de Longchamp. Radicaux, socialistes, libertaires, avaient voulu faire face aux coupejarrets de la réaction. Le ministre Dupuy, les généraux, les
 troupes municipales, la police, les hordes celéricales, l'aristocratie des grands bars, devaient achever l'attentat d'Auteuil.
 
 Ù On attendait une bataille. Nous vimes des compagnons
@@ -710,8 +679,7 @@ sérieux. Ajalbert m'a devancé pour une réponse; car je
 
 - savais, et beaucoup de camarades savaient que Grave
 n'avait choisi de Saint-Auban comme avocat dans le!
-Procès des Trente que sur la recommandation d'Ajal-
-bert, avocat ordinaire de la Révolte. Gohier a en
+Procès des Trente que sur la recommandation d'Ajalbert, avocat ordinaire de la Révolte. Gohier a en
 convenir dans l'Aurore du 4 mars. Je veux lui faire
 noter encore qu'Émile Henry fut défendu, très mal ilest
 vrai, par Hornbostel. Ce qui tend à démontrer que
@@ -728,14 +696,12 @@ prendre part, fatigués qu'ils étaient d'avoir acclamé la
 veille cet autre grand proscrit, le marquis de Rochefort.
 . Ce n'était d'ailleurs pas comme gérant de La Révolte?
 que Grave avait été emprisonné, mais bien pour la
-composition et la publication du livre la Société mou-
-rante et l''Anarchie..
+composition et la publication du livre la Société mourante et l''Anarchie..
 He: Grave serait depuis payé de ces prisons en se
 construisant une existence du dernier bourgeois; il passerait l'été en Écosse, l'hiver à Nice, il serait à Paris un
 - habitué des premières. Que Grave aime le théâtre, c'est
 son affaire, et ce goût lui est commun avec beaucoup de
-Parisiens. Gohier n'a-t-il pas fait du théâtre? On ad-
-mettra que Grave ait des cartes de presse pour les
+Parisiens. Gohier n'a-t-il pas fait du théâtre? On admettra que Grave ait des cartes de presse pour les
 - représentations qui l'intéressent. Mais il est inexact
 qu'il aille chasser la grouse en Écosse. Où va-t-il en été?
 - Et, où il va, que fait-il? — cela ne me regarde pas, cela
@@ -797,8 +763,7 @@ prêche la constitution d'une armée révolutionnaire avec
 des fusils, avec des champs de tir pour l'exercice.
 
 - Pense-t-il sérieusement qu'une telle armée ne ferait
-qu'une œuvre de défense? À moins qu'on n'aille pré-
-tendre qu'il y a des armes nobles, qui sont les fusils, et
+qu'une œuvre de défense? À moins qu'on n'aille prétendre qu'il y a des armes nobles, qui sont les fusils, et
 des armes viles, qui sont les bombes. N'ayons pas de.
 ces hypocrisies: le fusil et la bombe sont deux instruments faits pour tuer. N''en abusons pas.
 
@@ -826,8 +791,7 @@ la soirée, avant le gouvernement, que le coup d'État
 nouveler les journées de juin 48. Immédiatement un certain nombre d'hommes résolus se trouvèrent presque
 instinctivement réunis dans le quartier des journaux,
 prêts à organiser la lutte. De l'Aurore on envoya vers
-prit des mesures et le complot n'eut même pas un com-
-mencement d'exécution. Mais il subsiste ceci, que, sans
+prit des mesures et le complot n'eut même pas un commencement d'exécution. Mais il subsiste ceci, que, sans
 tergiverser, un certain nombre de camarades se trouvèrent prêts à assumer toutes les responsabilités: Grave
 Grave pouvait répondre lui-même à Gohier; ilnela
 pas voulu. Deux jours avant le grand article de Gohier,
@@ -849,8 +813,7 @@ Tout finit par se découvrir. On sait que les grands
 événements de l'Histoire ont toujours été provoqués par
 de petites causes.;
 Nous nous étions demandé avec angoisse pour quels
-motifs le Pape anarchiste de la rue Mouffetard nous acca-
-blait de ses foudres, après tous les bons offices que nous
+motifs le Pape anarchiste de la rue Mouffetard nous accablait de ses foudres, après tous les bons offices que nous
 avons rendus aux compagnons.
 Pourquoi ce prudent bonhomme, qui s'abstient de toutes
 « personnalités » quand il s'agit de financiers, de généraux
@@ -917,8 +880,7 @@ fautes envers la cause que nous défendons tous, qu'ils
 parlent clairement; si ce sont des querelles particulières, qu'ils nous laissent en paix. — Puis, à la lecture d'ensemble des documents, j'ai compris qu'il
 n'y avait dans tout cela chez Gohier qu'une exaspération de polémiste, une autoexcitation à frapper de
 plus en plus fort.
-Jamais je ne pourrai admettre que ce soit du jour-
-nalisme, que ce soit du moins du journalisme à l'usage
+Jamais je ne pourrai admettre que ce soit du journalisme, que ce soit du moins du journalisme à l'usage
 des lecteurs de l'Aurore. Je crois que Gohier se trompe
 sur le caractère de la clientèle du journal où il écrit.
 Dans l'Intransigeant, dans la Libre Parole, dans le
@@ -962,8 +924,7 @@ Deherme poursuit son œuvre: les résistances et les
 obstacles, loin de l'arrêter, lui font plus vivement sentir
 la nécessité de faire ce qui doit être fait. Le mal n'est.
 une raison de désespérer que pour les faibles et les
-impuissants, il exalte la volonté des forts. Je me gar-
-derai d'opposer à l'homme d'action les conseils d'une
+impuissants, il exalte la volonté des forts. Je me garderai d'opposer à l'homme d'action les conseils d'une
 sagesse timide, hésitante: il faut sans doute qu'il )
 tienne compte des circonstances, qu'il prévoie les diffi-
 ! cultés, mais il est seul à savoir ce qu'il peut mettre d'intelligence, d'énergie, de courage au service de son
@@ -988,8 +949,7 @@ que l'homme peut quelque chose par lui-même, qu'il
 lui appartient de faire sa besogne. Nous comptons sur
 l'évolàtion nécessaire des sociétés, sur la fatalité des
 lois économiques, nous faisons sortir des faits les
-résultats qui répondent à nos désirs et à nos espé-
-rances, mais il y a un élément dont nous ne tenons pas
+résultats qui répondent à nos désirs et à nos espérances, mais il y a un élément dont nous ne tenons pas
 compte et qui brouille tout: notre veulerie, notre servilité, notre impuissance. Qui dit esclave dit maître. Si
 nous nous donnions les vertus de l'homme libre, nul ne
 pourrait nous asservir.
@@ -998,8 +958,7 @@ elle-même; si elle prend ce qui n'est qu'un de ses
 moyens, les cours, les conférences, pour sa fin unique
 si de proche en proche elle en vient à n'être qu'une
 rencontre de gens qui viennent écouter ou parler, ilest
-craindre qu'elle ne tienne pas ses promesses. La pre-
-mière curiosité satisfaite, l'ouvrier se lassera, car la
+craindre qu'elle ne tienne pas ses promesses. La première curiosité satisfaite, l'ouvrier se lassera, car la
 journée de travail est rude et longue. L'Université populaire n'appellera, ne retiendra l'ouvrier que si elle se
 rattache à ses intérêts réels, à sa vie économique. Elle
 se développera, elle prospérera d'autant plus sûrement
@@ -1015,8 +974,7 @@ pas dire que l'homme ne peut avoir d'autre mobile que
 son intérêt; je suis convaincu qu'aux bas instincts de
 la bête on n'oppose victorieusement que les passions
 supérieures, la générosité, le sentiment de la dignité
-personnelle, la joie de collaborer à une œuvre collec-
-tive, impersonnelle, en travaillant pour tous. Et c'est
+personnelle, la joie de collaborer à une œuvre collective, impersonnelle, en travaillant pour tous. Et c'est
 précisément pour cela que l'Université populaire n'a
 chance de vivre, que si le peuple saisit son rapport
 l'idéal, qui d'abord, et à juste titre, le passionne
@@ -1030,8 +988,7 @@ l'avons appelée l'évolution, et nous nous sommes sentis
 rassurés pour nous être donné un Dieu tout neuf et qui
 n'avait point encore servi. Nous avions bien pris nos
 précautions: ce Dieu-là ne pouvait nous trahir, car il
-n'avait ni intelligence, ni volonté; il était la loi des phé-
-nomènes, il agissait à la façon de la pesanteur, il était
+n'avait ni intelligence, ni volonté; il était la loi des phénomènes, il agissait à la façon de la pesanteur, il était
 garanti par la science qui netrompe pas. Nous avons
 attendu, puisque nous n'avions rien de plus, rien de
 mieux à faire. Mais les choses se sont obstinées à ne pas
@@ -1042,9 +999,7 @@ mesurer le chemin parcouru, nous nous demandons si
 nos agitations n'ont pas été vaines, si elles ne nous ont
 pas ramenés en arrière. Les vérités que nous croyions
 acquises sont' contestées; les vieilles superstitions
-renaissent, les haines nationales se réveillent, les pas-
-
-sions religieuses s'exaspèrent, le fanatisme, combiné
+renaissent, les haines nationales se réveillent, les passions religieuses s'exaspèrent, le fanatisme, combiné
 avec l'incrédulité, avec ‘les soucis d'un égoïsme
 envieux, ajoute à sa laideur sans rien perdre de sa wiolence. Beaucoup, qui avaient compté sur le nouveau
 Dieu, comme les fétichistes, se retournent contre lui, le
@@ -1083,14 +1038,12 @@ posées en une même résultante par l'association, elles
 
 deviendraient irrésistibles. Mais l'association ne se.
 
-maintient que par la vertu de ses membres: la tempé-
-rance et le courage des individus sont les conditions de
+maintient que par la vertu de ses membres: la tempérance et le courage des individus sont les conditions de
 
 Le la justice sociale. Que les travailleurs s'unissent, qu'ils
 fondent des œuvres positives, qu'ils fassent prentissage de la coopération, qu'ils créent la pro-.
 priété collective. Par l'action ils ne prendront pas,
-seulement conscience de leurs forces, ils feront l''éduca-
-tion de leur volonté, ils se donneront les vertus sans,
+seulement conscience de leurs forces, ils feront l''éducation de leur volonté, ils se donneront les vertus sans,
 lesquelles il n'y a que désordre ou tyrannie, le respect
 du droit, la discipline, la soumission à la loi consentie,!
 à la raison impersonnelle, qui, en nous comme dans la
@@ -1102,8 +1055,7 @@ tous ceux qui veulent par des œuvres réelles sortir des
 programmes tout théoriques et commencer la société
 nouvelle. L'histoire nous montre que les révolutions
 de: durables se sont faites le plus souvent à l'intérieur des
-sociétés par des organes dont nul d'abord n'eût soup-
-çconné la puissance.
+sociétés par des organes dont nul d'abord n'eût soupçconné la puissance.
 Le Palais du Peuple répond à cette volonté d'agir,
 à cette résolution de commencer. Centre des œuvres
 populaires, il faut que tout à la fois il facilite l'unité
@@ -1117,9 +1069,7 @@ désintéressés, curieux de cette tentative nouvelle, s'y
 prêtant avec le secret espoir d'un échec qui justifiera
 
 leurs privilèges, je doute qu'il réponde à nos espérances.
-Le Palais du Peuple doit être l'œuvre du peuple, sa pro-
-
-priété collective; il doit être la preuve que l'union est
+Le Palais du Peuple doit être l'œuvre du peuple, sa propriété collective; il doit être la preuve que l'union est
 
 une force, qu'elle permet de grandes choses; il faut qu'il
 
@@ -1127,9 +1077,7 @@ s'édifie par le concours des ouvriers, des syndicats, des
 
 coopératives, de tous ceux aux besoins desquels il est
 
-nécessaire qu'il réponde. Il ne se dressera fort et dura-
-
-ble que s'il entre dans ses assises beaucoup de foi,
+nécessaire qu'il réponde. Il ne se dressera fort et durable que s'il entre dans ses assises beaucoup de foi,
 
 beaucoup de volonté, beaucoup d'amour.
 
@@ -1153,9 +1101,7 @@ gothiques de leurs nefs hautes, de leurs tours et de leurs
 clochers dominaient les ruelles tortueuses et sales où
 
 s'entassait la multitude des hommes: des bruits confus
-de la ville elles montaient, comme le chant d'espé-
-
-rance où s'accordaient les âmes. Les Palais du Peuple
+de la ville elles montaient, comme le chant d'espérance où s'accordaient les âmes. Les Palais du Peuple
 
 pourront inspirer aux artistes des formes nouvelles
 
@@ -1167,8 +1113,7 @@ Mais n'allons pas imaginer que cela sera parce que
 pas la société libre. De la laideur des âmes jamais ne
 sortira la beauté. On peut détruire beaucoup de choses
 en un jour; rien ne se fonde qu'avec le temps, par la
-sagesse et la continuité de l'effort. Le peuple est le nom-
-bre, c'est vrai, mais il est un nombre vivant qui doit
+sagesse et la continuité de l'effort. Le peuple est le nombre, c'est vrai, mais il est un nombre vivant qui doit
 s'additionner lui-même. L'ivrogne est fait pour le bât
 comme il s'est mis les œillères, il a besoin du mors et
 du fouet. Les seuls Palais du Peuple dont le cabaret est
@@ -1191,8 +1136,7 @@ dans nos mémoires, venue de l'histoire et de la légende, de l'idée
 d'une autorité monarchique et d'une résidence luxueuse. Maison
 du Peuple est si beau nom.
 
-Dans le même numéro du samedi 7 juillet Coopé-
-ration des idées publiait cette déclaration
+Dans le même numéro du samedi 7 juillet Coopération des idées publiait cette déclaration
 
 Constituée légalement à Paris le 14 juin 1900
 
@@ -1213,8 +1157,7 @@ la misère.
 
 Aucun lien ne subsiste entre les hommes.
 
-Lorsqu'il n'y a plus d'idée directrice, lorsque, dans la conduite des individus comme dans celle des États, les expé-
-dients se substituent aux principes, lorsque rien ne relie les
+Lorsqu'il n'y a plus d'idée directrice, lorsque, dans la conduite des individus comme dans celle des États, les expédients se substituent aux principes, lorsque rien ne relie les
 hommes et que tout les oppose, lorsque l'ordre n'est qu'apparent et ne se maintient que par une compression mécanique, non par le jeu libre des énergies harmonisées convergentes, on peut dire qu'il n'y a plus de société; car nous
 ne constituons plus alors qu'un amas confus, amorphe,
 d'individus en lutte, ouverte ou sourde, les uns contre les
@@ -1271,8 +1214,7 @@ passants, à un café de tempérance et à un grand restaurant
 
 Au centre sera le théâtre contenant 1.500 spectateurs.
 
-Nous ferons le Théâtre populaire qu'on attend: il n'est réa-
-lisable que là. Un art puissant s'y enfantera.
+Nous ferons le Théâtre populaire qu'on attend: il n'est réalisable que là. Un art puissant s'y enfantera.
 treizième cahier de la deuxième série
 
 Une galerie spacieuse séparera le théâtre du jardin: ce
@@ -1288,13 +1230,10 @@ pour la récréation des enfants et des jeunes gens et une
 Au premier étage, ce seront d'abord des petits et grands
 bureaux et salons qu'on louerait à différentes sociétés ouvrières: cercles d'amis, mutuelles, syndicats, coopératives,
 sociétés musicales, etc. Ensuite viendront la bibliothèque,
-la salle de lecture et plusieurs salles de cours et confé-
-rences. Outre les conférences et cours du soir pour les
+la salle de lecture et plusieurs salles de cours et conférences. Outre les conférences et cours du soir pour les
 adultes, nous utiliserons ces locaux, dans la journée, pour
 un véritable collège populaire, où nous donnerons aux
-enfants de nos sociétaires qui montreront le plus de dispo-
-
-sitions un enseignement secondaire complet, qui leur permettra, plus tard, l'accès des Facultés. Nous commencerons
+enfants de nos sociétaires qui montreront le plus de dispositions un enseignement secondaire complet, qui leur permettra, plus tard, l'accès des Facultés. Nous commencerons
 l'instruction intégrale du peuple: le jour, pour les enfants
 et jeunes gens; le soir, pour les adultes. Il faut que le
 peuple ait ses ingénieurs, ses savants, ses philosophes, ses
@@ -1326,11 +1265,8 @@ Voilà ce que doit être le premier Palais du Peuple.
 société de justice, de liberté, de fraternité.
 Les activités désintéressées savent se discipliner. Elles se
 concentreront pour édifier d'abord le premier Palais du
-Peuple et pour se répandre ensuite plus sûres, plus vigou-
-reuses, plus efficaces, par tout le pays, groupant les tra-
-vailleurs dans leur association, fédérant les associations
-dans les Palais du Peuple, qui donneront une âme à la dé-
-mocratie et une raison de vivre.
+Peuple et pour se répandre ensuite plus sûres, plus vigoureuses, plus efficaces, par tout le pays, groupant les travailleurs dans leur association, fédérant les associations
+dans les Palais du Peuple, qui donneront une âme à la démocratie et une raison de vivre.
 Nous convions tous les hommes de bon vouloir à se
 joindre à nous:il n'y a pas d'œuvre plus urgente, plus
 essentielle, plus belle, plus féconde que celle que nous
@@ -1343,10 +1279,7 @@ Maurice Boucuor, homme de lettres.
 À (1) Enfin nous regrettons que cette liste ne soit pas tout
 - à fait sincère. Pour peu que l'on soit au courant des noms
 et des hommes on y reconnaît aisément, mêlés aux hommes
-qui travaillent, les hommes-décorations, les noms qui re-
-présentent. La même remarque s'impose pour les témoi-
-gnages dont nous voyons que les signataires ont accom-
-pagné l'envoi de leur signature.
+qui travaillent, les hommes-décorations, les noms qui représentent. La même remarque s'impose pour les témoignages dont nous voyons que les signataires ont accompagné l'envoi de leur signature.
 
 treizième cahier de la deuxième série
 MM. Ferdinand Buissox, professeur à la Sorbonne.

@@ -29,8 +29,7 @@ Paris, cinquième arrondissement; on recevra en retour
 À le catalogue analytique sommaire, 1900-1904, de nos
 Ce catalogue a été justement établi pour donner,
 es autant qu'il se pouvait, une image en bref, un raccourci,
-A une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+A une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 4 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 RAT Ce catalogue, grand jésus, forme un cahier
@@ -73,9 +72,7 @@ comme premier cähier de la septième série; toute
 
 personne qui s'abonne à la septième série, qui est la
 
-série en cours, le reçoit, par le fait même de son abonne-
-
-ment, en tête de la série; nous l'envoyons contre un
+série en cours, le reçoit, par le fait même de son abonnement, en tête de la série; nous l'envoyons contre un
 
 mandat de un franc à toute personne qui nous en fait:
 
@@ -83,9 +80,7 @@ la demande.;
 
 Pour la sixième série, année ouvrière 1904-1905, et
 
-en attendant que paraisse le catalogue analytique som-
-
-maire de nos deuxièmes cinq séries, 1904-1909, on
+en attendant que paraisse le catalogue analytique sommaire de nos deuxièmes cinq séries, 1904-1909, on
 
 peut consulter, — provisoirement, — la petite table é À
 
@@ -104,12 +99,11 @@ sieur Anatole Leroy-Beaulieu...............un france
 Edmond Bernus, — la Russie vue de la Vistule, — his- Nr:
 André Bourgeois, — quatre jours à Montceau, — un o à
 Félicien Challaye, — Courrier d'Indo-Chine, — épuisé, PUTEE
-n'est plus mis en vente que dans les collections com-
-eu: — — la Russie vue de Vladivostock, journal
+n'est plus mis en vente que dans les collections comeu: — — la Russie vue de Vladivostock, journal
 — — Second courrier d'Indo-Chine, un franc
 
 cinquième cahier de la septième série
-4 Félicien Challaye, — impressions sur Java, — fragments;
+Félicien Challaye, — impressions sur Java, — fragments;
 HE; — — la France vue de Laval..... deux franes de
 Henri Dagan, — l'Oppression des juifs dans l'Europe
 orientale, — les massacres de Kichinef et la situation
@@ -125,7 +119,7 @@ En Lionel Landry, — courrier de Chine, du temps de
 54 — — courrier de Chine, même temps.........
 21: Henri Lebeau, Jérôme et Jean Tharaud, — Moines de
 Edmond Lebret, — courrier de Bretagne.....un franc
-a: Jean le Clerc, — introduction à courrier de France,;
+Jean le Clerc, — introduction à courrier de France,;
 A grève générale des mineurs, du Bulletin de l'Office
 — — du même Bulletin, présentation de:
 “14 Henri Michel, — cahier de courriers, — Notes sur la
@@ -158,8 +152,7 @@ par Élie Éberlin; Elie Éberlin, Vladimir Korolenko;
 Treizième cahier de la sixième série, un cahier jaune de
 72 pages, grand jésus, bon à tirer du mardi 21 mars 1905
 ToLsror. — l'Église et V'État; les événements actuels
-en Russie; — traduction J.-W. Bienstock; le premier, in-
-troduit par P. Birukov;
+en Russie; — traduction J.-W. Bienstock; le premier, introduit par P. Birukov;
 dans le même cahier:
 Cahiers de la Quinzaine, — les œuvres de Tolstoi.
 
@@ -168,9 +161,7 @@ courriers des cahiers, dont on a lire ci-dessus un
 énoncé beaucoup trop succinct, un témoignage direct.
 Comme son titre l'indique, il est et il forme un témoignage direct sur cette précédente reprise de la Révolution en Russie que furent les événements du 22 janvier
 
-Mon vieux camarade, condisciple et ami et notre col-
-
-laborateur Étienne Avenard était parti à SaintPétersbourg comme correspondant de l'Humanité. Je
+Mon vieux camarade, condisciple et ami et notre collaborateur Étienne Avenard était parti à SaintPétersbourg comme correspondant de l'Humanité. Je
 dois rappeler ici, avant toute considération, cette circonstance, et je ne puis la rappeler sans une certaine
 mélancolie. La dernière fois que je vis Jaurès, en effet,
 c'était pendant les mois où justement il préparait la publication de cette même Humanité. Que les temps sont.
@@ -195,9 +186,7 @@ une des beautés monumentales de Paris. Et les routes
 
 un peu fermes sont belles sous le pied. De Passy à Su-
 
-resnes il y a trente-cinq minutes, sans se presser. Jau-
-
-rès venait de loin en loin me trouver à l'imprimerie. J'y
+resnes il y a trente-cinq minutes, sans se presser. Jaurès venait de loin en loin me trouver à l'imprimerie. J'y
 
 ù étais presque toujours. Ensemble nous partions par les
 routes bien courbes et par les droites avenues, soit que
@@ -220,9 +209,7 @@ Sans aucune compromission d'aucune sorte. Sans
 
 : faiblesse de l'un ni de l'autre. Il avait été, dans les
 
-meilleures conditions du monde, l'un de nos collabora-
-
-teurs. Et puis enfin, en ce temps-là, il était Jaurès. Et
+meilleures conditions du monde, l'un de nos collaborateurs. Et puis enfin, en ce temps-là, il était Jaurès. Et
 
 je n'étais point en reste avec lui. A titre de collabora-
 
@@ -234,8 +221,7 @@ avait jamais eu, comme il n'en a jamais depuis,
 comme il n'en aura jamais d'autres. Au demeurant, par!
 
 je ne sais quel obscur pressentiment des développements
-ultérieurs, ou par quelle obscure pénétration des pré-
-sentes réalités profondes, — par une sage administration de ce commerce oratoire je m'étais toujours scrupuleusement conduit de telle sorte que je ne redusse rien
+ultérieurs, ou par quelle obscure pénétration des présentes réalités profondes, — par une sage administration de ce commerce oratoire je m'étais toujours scrupuleusement conduit de telle sorte que je ne redusse rien
 à mon illustre partenaire. Non seulement je ne lui ai
 jamais demandé un de ces services d'amitié, un de ces
 bons offices qui lient, un honnête homme. Éternellement.
@@ -274,8 +260,7 @@ fût jamais arrivé malheur, et dont le pied sonnaït sur le
 4 dorées' des commencements de l'automne.
 À Un Jaurès qui, bien que venu chez nous des versants
 à des Cévennes et remonté des rives de la Garonne, goû-
-5 tait parfaitement la parfaite beauté des paysages fran-
-çais. Un Jaurès qui admiraïit et qui savait regarder et
+5 tait parfaitement la parfaite beauté des paysages français. Un Jaurès qui admiraïit et qui savait regarder et
 
 cite voir ces merveilleux arbres de l'Ile-de-France, tout dorés
 : par les automnes de ce temps-là. Un Jaurès qui debout
@@ -283,8 +268,7 @@ aux grêles parapets de fonte ou de quelque métal du
 pont de Suresnes, regardant vers Puteaux, admirait,
 5 savait admirer en spectateur moderne toute la beauté
 1 industrielle de cette partie de la Seine; ou regardant
-de l'autre côté, planté debout face au fleuve, il regar-
-dait, il admirait, il enregistrait, il voyait, comme un
+de l'autre côté, planté debout face au fleuve, il regardait, il admirait, il enregistrait, il voyait, comme un
 Français, le fleuve courbe et noble descendant aux pieds
 : des admirables lignes des coteaux. Il m'expliquait tout
 
@@ -344,8 +328,7 @@ Bergson, dont il ne savait pas, et dont il n'eût pas
 compris, le premier mot. Rien n'y manquait. Mais il
 ; avait été le camarade de promotion de M. Bergson
 à dans l'ancienne École Normale, celle qui était supé-
-à rieure. Cela lui suffisait. Ce fut une des fois qu'il com-
-mença de m'inquiéter.
+à rieure. Cela lui suffisait. Ce fut une des fois qu'il commença de m'inquiéter.
 
 à Il était si éloquent que souvent il s'arrêtait, malgré
 lui, machinalement, pour être éloquent encore davanVe tage; et qu'il marchât ou qu'il fût arrêté, les gens, dans
@@ -367,10 +350,8 @@ devenu ainsi le collaborateur occasionnel, et dont
 j'ajouterai qu'il serait à souhaiter qu'il devint régulière- à
 ment le collaborateur. Que notre collaborateur se rassure. Je le dirai. Je ne le ferai point seulement comme
 un devoir de ma charge. Maïs je le ferai comme accom- \2
-plissant un voyage de retour vers un passé qui fut heu-
-reux. S'il faut dire du bien de Herr et de Jaurès, nul ne LS,
-le fera mieux que moi. Nul autant que moi n'en a l'ha-
-bitude et n'en sait la manière. Ce fut mon premier, et:
+plissant un voyage de retour vers un passé qui fut heureux. S'il faut dire du bien de Herr et de Jaurès, nul ne LS,
+le fera mieux que moi. Nul autant que moi n'en a l'habitude et n'en sait la manière. Ce fut mon premier, et:
 longtemps mon seul métier. Ce fut mon métier pendant À
 plusieurs années, pendant toutes les années de mon
 
@@ -389,8 +370,7 @@ Jaurès, dans ces conditions, etie ne l'ai jamais revu non
 , plus dans aucunes autres conditions, ce fut précisément
 pendant les mois qu'il préparait ce journal qui est
 devenu l'Humanité. Les vieilles gens se rappellent
-encore tout ce que l'on attendait de ce journal en forma-
-tion. Le journal de Jaurès! on en avait plein les années
+encore tout ce que l'on attendait de ce journal en formation. Le journal de Jaurès! on en avait plein les années
 à venir. Depuis des années on savait bien, on avait
 bien dit que Jaurès finirait par faire son journal. Enfin
 
@@ -402,13 +382,12 @@ ce que ce serait que le journal de Jaurès. Les titres
 Ce fut sur ces entrefaites qu'arrivant un jour à
 "RS l'imprimerie un peu de temps après le déjeuner les
 imprimeurs me dirent: Vous savez, que Jaurès est venu
-vous demander. Ils n'étaient pas peu fiers, les imprire meurs, de me faire cette commission, parce que la véné-
-ns) ration que les anciens sujets avaient pour le roi de
+vous demander. Ils n'étaient pas peu fiers, les imprire meurs, de me faire cette commission, parce que la vénéns) ration que les anciens sujets avaient pour le roi de
 +4 France n'était rien auprès des sentiments que nos
 4 modernes citoyens nourrissent pour les grands chefs de
 put leur démocratie.
 Il y avait dès lors fort longtemps que je n'avais pas
-é a? revu Jaurès, depuis qu'il était redevenu député. Sa
+é revu Jaurès, depuis qu'il était redevenu député. Sa
 ke. capitulation devant la démagogie combiste et bientôt
 sa complicité dans la démagogie combiste avait achevé
 : 1 de consommer une séparation dont le point d'origine se
@@ -425,13 +404,11 @@ ne je devais faire la deuxième démarche. Je me pré-
 À "4 sentai chez lui peut-être le lendemain matin. Il n'est pas
 une des maisons où je suis allé une fois où je ne puisse
 
-honorablement retourner. Peu d'hommes publics pour-
-raient en dire autant.
+honorablement retourner. Peu d'hommes publics pourraient en dire autant.
 
 Je me présentai chez lui. Je croyais qu'il avait quelque;
 chose à me dire. Il n'avait rien. Il était un tout autre
-homme. Vieilli, changé, on ne sait combien. Cette der-
-nière entrevue fut sinistre. C'est une grande pitié quand
+homme. Vieilli, changé, on ne sait combien. Cette dernière entrevue fut sinistre. C'est une grande pitié quand
 deux hommes, qui ont vécu ensemble d'une certaine
 vie, après une longue et définitive interruption d'euxmêmes se remettent ou par les événements sont remis
 dans les conditions extérieures de cette ancienne vie.
@@ -526,9 +503,7 @@ par l'amnistie devant la démagogie réactionnaire natio-
 tout au contraire, brusquement, rupture de la défense
 républicaine jusque dans les utilités où elle était légi-
 
-L.; time; c'est-à-dire ici capitulation devant la vieille déma-
-
-gogie guesdiste et devant la démagogie hervéiste,
+L.; time; c'est-à-dire ici capitulation devant la vieille démagogie guesdiste et devant la démagogie hervéiste,
 
 :3180 récente; toujours cette maladie et cette manie de quelque
 ©4163 unité, unité socialiste, unité républicaine, et derechef
@@ -540,9 +515,7 @@ unité socialiste, qui dans sa tête fatiguée successivement
 accusée, campagne poussée à fond, on n'a jamais
 
 pourquoi, la seule campagne que Jaurès ait jamais
-poussée à fond, odieuse et insensée, ou odieuse et cri-
-
-minelle, ou bien d'avoir été faite, ou de n'avoir pas été
+poussée à fond, odieuse et insensée, ou odieuse et criminelle, ou bien d'avoir été faite, ou de n'avoir pas été
 
 ‘ju De cette même distance et dans ce même esprit,
 hr: d'aussi loin j'ai regardé son journal. Je ne dis pas que
@@ -571,8 +544,7 @@ et dont lui-même il n'était pas si fier, à l'œuvre nous
 avons ce que c'était, son personnel. Pour la partie
 d'articles et de renseignements, cette horde affamée
 de petits agrégés normaliens qui ayant découvert le
-socialisme cinquante-cinq ans après Proudhon et qua-
-rante-cinq ans après Marx lui-même se précipitèrent à
+socialisme cinquante-cinq ans après Proudhon et quarante-cinq ans après Marx lui-même se précipitèrent à
 la défense de la République un peu de temps après
 qu'ils eurent acquis l'assurance qu'elle ne courait réellement plus aucun danger. Et à leur tête le réjoui
 Albert Thomas, prince des incompétences. Et avec,
@@ -589,16 +561,14 @@ avec les réactionnaires à seule fin d'embêter les radicaux de la Dépéche.
 
 [On me pardonnera de ne pas savoir s'il faut écrire
 Gabriel-Ellen Prévost ou Gabriel Ellen-Prévost. Je ne
-faut pas deux. Je ne sais pas même s'il faut écrire Pré-
-vost ou Prévôt. Les journaux et revues orthographient
+faut pas deux. Je ne sais pas même s'il faut écrire Prévost ou Prévôt. Les journaux et revues orthographient
 différemment le nom de ce grand homme. Et je n'ai plus,
 malheureusement, le temps de remonter aux sources.]:
 
 Il y a deux espèces de normaliens et d'agrégés: ceux
 24 à métier équivalent; c'est-à-dire ceux qui de quelque
 de - manière font leur classe; nous en sommes; et nous
-devons les respecter comme on doit respecter tout hon-
-nête homme qui cherche à gagner honnêtement sa vie.
+devons les respecter comme on doit respecter tout honnête homme qui cherche à gagner honnêtement sa vie.
 Mais nous devons mépriser toute cette tourbe, toute
 ta À cette horde, tous ces jeunes arrivistes, à peine dignes,
 DE indignes même du nom même d'ambitieux, qui ne
@@ -607,8 +577,7 @@ DE indignes même du nom même d'ambitieux, qui ne
 à Jaurès me reprochaït de disposer des autres et de la
 A vie des autres. Je n'ai jamais l'impression d'une vie
 Ne manquée, d'une destinée manquée, comme en voyant
-MAD ce pauvre minable fiacre s'éloigner en boitillant, désor-
-mais engagé dans la mauvaise voie, qui était, je pense,
+MAD ce pauvre minable fiacre s'éloigner en boitillant, désormais engagé dans la mauvaise voie, qui était, je pense,
 4) É la rue Boissière:;
 
 Ê Daigne, daigne, mon Dieu, sur Mathan et sur elle,
@@ -648,8 +617,7 @@ sont d'ailleurs d'immenses quantités, dans le parti
 ._ socialiste que l'on nous a fait, qui n'ont jamais dans Le
 leurs situations socialistes que des marchepieds pour {VS
 4 atteindre à des situations bourgeoises, beaucoup plus
-sérieuses, qui, pour passer dans l'autre camp, n'at-
-tendent qu'un moment favorable, qui vendraient toutes
+sérieuses, qui, pour passer dans l'autre camp, n'attendent qu'un moment favorable, qui vendraient toutes
 « les saintes huiles pour être appointés cinq cents francs:
 par mois, qui enfin donneraient cent cinquante-et-un
 . ans de la vie de la cité socialiste pour seulement passer à
@@ -673,8 +641,7 @@ collaborateur Avenard. Et je ne puis pas m'empêcher de
 noter que l'Humanité a deux fois des correspondances qui ont attiré l'attention. Et aux deux foisles auj teurs de ces correspondances étaient des hommes qui
 n'étaient point d'ailleurs, qui étaient de ce pays-ci, qui
 tenaient à nous de quelque façon. La première de
-à ces deux fois ‘fut, presque aussitôt après la fonda-
-tion du journal, quelques semaines après, je crois,
+à ces deux fois ‘fut, presque aussitôt après la fondation du journal, quelques semaines après, je crois,
 « peut-être moins, le reportage d'un voyage à Rome et en
 Italie qui était, si mes souvenirs sont exacts, le voyage
 À du président de la République en visite auprès des verains et du peuple italien. L'auteur de ce reportage
@@ -689,8 +656,7 @@ qu'il n'était point étranger à ces anciens groupements de
 relations dont sont sortis Pages libres et les cahiers,
 puisqu'il s'agit de notre collaborateur Daniel Halévy.
 De tels hommes font ce que ne savent point faire nos
-omniscients agrégés, d'incompétence universelle, om-
-niscients sans avoir jamais rien appris, juges de science
+omniscients agrégés, d'incompétence universelle, omniscients sans avoir jamais rien appris, juges de science
 compétence étendue. La deuxième correspondance est AS
 aujourd'hui celle de notre collaborateur Avenard.
 Non seulement je suis heureux de rapporter ici, comme
@@ -717,11 +683,10 @@ run possible. » J'ai eu, continue notre collaborateur, j'ai
 TUE avec le journal d'excellents rapports. J'étais parti
 412 pour un mois. La grève éclatant, on m'a envoyé des
 fonds pour pouvoir y rester le double...
-à; Moi aussi je présenterai donc ce cahier comme un
+Moi aussi je présenterai donc ce cahier comme un
 exemple éminent de ce que nous eussions faire
 ai 1 ihe ensemble, ceux de Jaurès et de Herr, et ceux qui sont
-devenus ceux des cahiers, si nos voies étaient demeu-
-rées unies. Le courrier que l'on lire ne se compose
+devenus ceux des cahiers, si nos voies étaient demeurées unies. Le courrier que l'on lire ne se compose
 pas seulement des correspondances qu'Avenard put
 . envoyer à l'Humanité. Maïs les correspondances
 2 qu'Avenard put envoyer à l'Humanité en forment la
@@ -745,13 +710,11 @@ son petit bonhomme de chemin de mouvement libéral
 constitutionnel, ignorant tout du volcan souterrain, Lee
 aussi tranquille, en un sens, et ignorant, que la bureau
 cratie, peut-être plus, et, en un sens, peut-être aussi ne
-bureaucratique. Et tout à coup ce mouvement révolu-
-tionnaire, ce soulèvement populaire qui éclate, imprévu,
+bureaucratique. Et tout à coup ce mouvement révolutionnaire, ce soulèvement populaire qui éclate, imprévu,
 inouï, tout au travers de tout, non attendu, non prévu,: A
 non préparé, non organisé, pas même et surtout pas ï EE,
 par les partis révolutionnaires professionnels, quel A.
-Voilà, entre autres, ce que Avenard a marqué admira-
-blement. Et l'enquête personnelle qu'il a faite sur place
+Voilà, entre autres, ce que Avenard a marqué admirablement. Et l'enquête personnelle qu'il a faite sur place
 sur les événements du 22 janvier demeurera comme un à
 . modèle du genre, du genre historique, entendu saine-
 Mais qu'on aille au texte. Je ne veux point dire ici
@@ -767,8 +730,7 @@ et probe se mettrait à jacasser. Quand toute une partie
 de l'humanité, une partie considérable, s'avance dou- À
 loureusement dans les voies de la mort et de la liberté,
 quand toute une énorme révolution tend aux plus dou- a
-loureux enfantements des libertés les plus indispen-
-sables par on ne sait combien de sanglants et d'atroces
+loureux enfantements des libertés les plus indispensables par on ne sait combien de sanglants et d'atroces
 avortements, guerres de peuples, guerres de races,
 guerres de classes, guerres civiles et plus que civiles,
 

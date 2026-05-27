@@ -29,8 +29,7 @@ Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, 
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 Ce catalogue, grand jésus, forme un cahier
@@ -101,7 +100,7 @@ ne rare, d'ancienne intelligence conservée, aromateuse, Dee
 4 essentielle, un peu capiteuse, une connivence, d'encens,
 4 de sacristie, de tabernacle, d'armoire et ensemble Un -
 à d'autel, de linge blanc frais pur et de pauvre vieille A
-4 Ai. dentelle jaunie, de vieille armoire de grande famille, un
+Ai. dentelle jaunie, de vieille armoire de grande famille, un
 commun souvenir qui de la commodité mobilière et
 usagère du sacristain jusqu'à la divine autorité du prêtre, «
 ; une collusion, une entente particulière par-dessus la
@@ -143,9 +142,7 @@ confidences de lui-même Renan toutes les fois qu'elles
 
 sont un peu sincères, — et pour qui sait le lire il n'y a
 
-1 aucun doute sur ce point, les preuves en sont abon-
-
-dantes au point qu'il y en aurait presque trop, — nous
+1 aucun doute sur ce point, les preuves en sont abondantes au point qu'il y en aurait presque trop, — nous
 
 ; le savons par tous les textes et par la bonne tradition,
 
@@ -192,9 +189,7 @@ de manquer de dignité, que de bonté, de bonté
 Ï humaine, comme on bêle aujourd'hui, lui reprocher de
 manquer d'un certain sens et de la revendication de Ne
 sa propre grandeur.
-C'est en somme aujourd'hui, et d'un mot, c'est pro-
-
-prement la politique de Néarque. Tel est en effet le
+C'est en somme aujourd'hui, et d'un mot, c'est proprement la politique de Néarque. Tel est en effet le
 retentissement de ces grandes œuvres du génie fran- Ke]
 ï çais, à toutes distances, à des distances infinies, que
 
@@ -230,8 +225,7 @@ Sous l'horreur des tourments je crains de succomber. se;
 . ce mélange de la politique et du religieux. Mais il faut
 7 bien vivre. Et les acteurs de ces drames divins sont des A. A
 4 #1 hommes. La modestie; argument de psychologie, ordi- de
-244 3 paire, et de morale, et de moralité, usagère, journa-
-lière, très profond, très frappant, atteignant loin; le ne à
+244 3 paire, et de morale, et de moralité, usagère, journalière, très profond, très frappant, atteignant loin; le ne à
 célèbre argument de la modestie et de l'humilité contre
 4 l'orgueil; des devoirs ordinaires, des devoirs de famille,
 ordinaires, et comme séculiers, des devoirs d'état contre
@@ -287,7 +281,7 @@ et le repentir, le péché puis la contrition, le désolement HAS
 
 et le désarroi du pécheur, la détresse, les consolations
 durite, enfin tout à fait une histoire pour pensionnats.
-6 Et le repentir jusqu'au sein de la fente CREME un peu
+Et le repentir jusqu'au sein de la fente CREME un peu
 14 niais, peut-être un peu conventionnel, mais très tradi- qu.
 tionnel, très comme il faut, il n'y a que ce mot: très À
 é édifiant. Sans pourtant donner l'éveil.
@@ -317,14 +311,12 @@ que toute cette conduite suppose admise une hypothèse, A
 : accordé un postulat, qui par un singulier retournement
 ; se trouve être précisément celui-ci: que l'histoire,
 laïque, moderne, a une importance, une vérité, absolue,
-1 une réalité, métaphysique, une primauté, une supré-
-matie, une primatie, un primat, un principat et Renan
+1 une réalité, métaphysique, une primauté, une suprématie, une primatie, un primat, un principat et Renan
 comme prince des historiens toute une principauté de
 gouvernement absolu que dans nos recherches pré-
 é sentes et ultérieures nous verrons justement qu'ils n'ont
 
-Et ce n'est peut-être pas la première, mais assuré-
-ment ce ne sera pas la seule fois que nous rencontrerons, tout au courant de ces longues recherches, que
+Et ce n'est peut-être pas la première, mais assurément ce ne sera pas la seule fois que nous rencontrerons, tout au courant de ces longues recherches, que
 l'Église moderne a dans ces débats une situation beaucoup plus moderne que chrétienne, quelquefois toute
 moderne, et nullement chrétienne, et que est tout le
 secret de sa faiblesse présente.
@@ -339,8 +331,7 @@ outre tous les effets de cette politique de Néarque,.;
 beaucoup trop de ce respect que dans les temps modernes!
 au moins, et peut-être dans tous les temps, elle n'a #1
 jamais cessé d'avoir pour les puissances temporelles.
-Ou plutôt et ensemble et sans même les séparer beau-
-coup, Renan était pour elle et une puissance intellec-!
+Ou plutôt et ensemble et sans même les séparer beaucoup, Renan était pour elle et une puissance intellec-!
 tuelle, et une puissance temporelle; et une principauté À
 
 intellectuelle, et une principauté temporelle; tout cela
@@ -357,8 +348,7 @@ de gouvernement mentale, morale, et sociale, dont nous
 ne pouvons plus avoir aucune idée. Comme en ce temps
 un grand auteur, un sept cinquante, — on en avait
 beaucoup moins abusé, — un grand public, — il y en
-avait un, — un grand éditeur, — il y en avait, — exer-
-çaient une sorte de magistrature spirituelle et temporelle
+avait un, — un grand éditeur, — il y en avait, — exerçaient une sorte de magistrature spirituelle et temporelle
 que nous ne pouvons même plus imaginer.
 
 La preuve en est aujourd'hui que, somme faite, les
@@ -447,8 +437,7 @@ et ensemble et aussi bien la pensée antérieure. Il est;
 évident au contraire, si moderne l'on veut lire en
 moderne et feindre de n'entendre que dans le sens
 moderne, que l'on n'entend pas tout, que l'on a des
-manques incessamment, et, comme par hasard, juste-
-ment aux endroits où il ne faudrait pas avoir de
+manques incessamment, et, comme par hasard, justement aux endroits où il ne faudrait pas avoir de
 manques, parce que ce sont les points les plus intéres-
 À sants, les points capitaux, les passages essentiels. Ce
 À - qui revient à dire que l'on se rend assez rapidement
@@ -474,16 +463,14 @@ de nous dévoiler, de nous révéler un peu de ce qu'il #4
 4 ment, montant de degré en degré, dans ses certitudes,
 51308 probabilités, réves; car on ne s'y est point laissé trom- 4 ki:
 per, ici non plus, et sous les déguisements décroissants
-08 des personnages, ce sont quelques-unes de ses arrière-
-pensées qui se démasquent de plus en plus, à des plans
-a! de niveaux de plus en plus élevés, le supérieur devenant
+08 des personnages, ce sont quelques-unes de ses arrièrepensées qui se démasquent de plus en plus, à des plans
+de niveaux de plus en plus élevés, le supérieur devenant
 708 inférieur à son tour à mesure qu'il avance etqu'ilmonte
 nn. À et cédant aussitôt à un supérieur encore, et loin que ce
 soient les certitudes qui décroissent, au contraire ce à
 AU sont les certitudes qui croissent de certitudes en proba-
 ‘. bilités et de probabilités en réves. Je défie qui que ce mn.
-; soit, non catholique, non ancien catholique, et générale-
-ment non chrétien, et antérieurement ou subsidiairement
+; soit, non catholique, non ancien catholique, et généralement non chrétien, et antérieurement ou subsidiairement
 4 non juif, d'entendre rien, d'intercepter quoi que ce soit, …
 Le comme moderne, lisant comme moderne, enfin ne
 recueillant qu'au titre de moderne, à ces œuvres confes-
@@ -511,8 +498,7 @@ E. ralement, impensables. Etant du style de la vie inté- A
 4 rieure, et même, techniquement, et particulièrement, du a
 4 style de la vie spirituelle.:
 A ce style, à des emplois qu'il fait de ce style, à l'idée HAT
-à emploi, à la lente ascension, et au brusque surgis-
-sement de certains mots, on sent que ces modernes
+à emploi, à la lente ascension, et au brusque surgissement de certains mots, on sent que ces modernes
 sont pour lui des partisans, grossiers, lui qui n'était ne
 4 ‘pas grossier, au moins dans le même sens.
 Nos modernes, qui n'ont jamais rien ignoré, de tout
@@ -553,8 +539,7 @@ ce mot même d'habitude ils ne l'avaient entendu en un
 4 grossier sens moderne, au sens d'une habitude scolaire,!
 0 d'un pli intellectuel, d'une sorte de manie, profession- 2:40
 
-À nelle, plus que professionnelle, professorale, univer-
-sitaire, à l'extrême limite, et en lui faisant, à lui
+À nelle, plus que professionnelle, professorale, universitaire, à l'extrême limite, et en lui faisant, à lui
 À Renan, beaucoup d'honneur, d'une manie d'homme de
 À cabinet, d'homme de bibliothèque et d'écrivain, au sens À
 ; d'une troisième et peut-être d'une cinquante-et-unième;
@@ -565,8 +550,7 @@ scientifique, d'une habitude organique et mentale, d'une
 3 deuxième et peut-être d'une première nature. Et peut- A
 être comme une fantaisie habituelle d'homme de
 lettres. Car il ne suffit point de dire que si lhabi- DUR
-3 tude est une deuxième nature, la nature n'est peut-
-être qu'une première habitude: il faut peut-être aller À
+3 tude est une deuxième nature, la nature n'est peutêtre qu'une première habitude: il faut peut-être aller À
 3 jusqu'à dire que lhabitude elle-même est une pre- à
 ! mière nature. On nous pardonnera d'employer ici
 - une expression grossière, mais pour noter une explica- Ta
@@ -603,8 +587,7 @@ comme de juste, par la plus grande récompense temporelle, par le plus de gloire
 par le plus de postérité intellectuelle.
 Ne croyons pas, n'allons pas nous imaginer qu'en
 intronisant Renan comme le prince, comme le Défroqué
-en chef, ils aient aucunement l'intention de le dimi-
-puer. Au contraire. Fils intellectuels de Renan, postérité:
+en chef, ils aient aucunement l'intention de le dimipuer. Au contraire. Fils intellectuels de Renan, postérité:
 innombrable, ils ont parmi eux croître et embellir
 une telle puissance, un si nombreux contingent, une
 telle race de défroqués authentiques, officiels, et pour
@@ -618,20 +601,17 @@ conträire avoir grandement augmenté Renan quand ils
 ont fait à ce grand historien l'honneur de le considérer “4
 ; comme l'auteur et comme l'initiateur, comme le père et a
 À l'éditeur de cette engeance. L'éditeur étant, bien entendu,
-responsable. Et tout ceci étant une opération de révé-
-rence et de vénération.
+responsable. Et tout ceci étant une opération de révérence et de vénération.
 En faisant ainsi de Renan le chef des défroqués, — “3
 4 on n'avait point encore inventé les schismatiques, et
-j'avoue qu'à présent qu'on a fonctionner les schis-
-matiques, on se sent pris d'un vieux respect pour ces p:: A
-vieux défroqués encore naïfs, pour ces anciens défro-
-qués de l'ancienne génération, qui eux au moins s'en: nu:
+j'avoue qu'à présent qu'on a fonctionner les schismatiques, on se sent pris d'un vieux respect pour ces p:: A
+vieux défroqués encore naïfs, pour ces anciens défroqués de l'ancienne génération, qui eux au moins s'en: nu:
 allant de la maison ne prétendaient point emporter les
 É meubles, — ils croient bien lui attribuer, lui restituer une
 partie, la meilleure, de son salaire temporel, celle qui vaut À
 1 mieux que la gloire même, et qui d'ailleurs se confond
 : pour sa plus grande part avec la gloire, pare qu'elle en Ur:
-fait partie intégrante: une part dans le gouvernement des (;
+fait partie intégrante: une part dans le gouvernement des
 À hommes et des sociétés, une part dans le gouvernement: ne
 8 politique parlementaire. C'est comme si, rétrospective-!
 ; ment, on le nommait ministre. Ambassadeur de la ne je
@@ -658,7 +638,7 @@ m'était ici un mot dont nous avons éprouvé qu'il ne
 0 faut jamais user qu'avec la plus grande circon- De
 Ne spection. Par cette investiture ils n'entendent nullement,
 le diminuer. Mais ils veulent le restituer, au contraire,
-4 Jui conférer le plus grand honneur qu'il y ait chez eux,
+Jui conférer le plus grand honneur qu'il y ait chez eux,
 10 dans leur pays, dans le pays de la Science. Ils ont
 les défroqués subsidiaires atteindre chez eux et parmi
 La à eux à de telles fortunes qu'ils ne croient rien pouvoir
@@ -731,8 +711,7 @@ RU: plis professionnels, certaines expressions, un certain
 3 tout ensemble, et l'un portant l'autre, l'un masquant
 1 l'autre, une certaine mansuétude, une certaine souplesse
 ecclésiastique, un certain velouté, une certaine tendresse 55410
-“1 molle, une certaine pâte, une certaine confiserie épisco-
-pale, 13 Font singulier ou DE bus
+“1 molle, une certaine pâte, une certaine confiserie épiscopale, 13 Font singulier ou DE bus
 
 dé. singulière continuation, ce sont ces anciens légers dé- RUE
 fauts de métier que tout tranquillement ils s'imaginent
@@ -768,9 +747,7 @@ Telle est leur explication que l'on peut nommer l'expli-
 4 cation par l'habitude. C'est une excuse autant qu'une
 
 ; Ils ont dit tantôt, ils ont dit aussi, —et ce sera l'excuse:
-et l'explication par l'intérêt, — que si Renan avait con-
-servé dans beaucoup de ses passages et dans quelques-
-unes deses œuvres ces certaines formes ecclésiastiques, En
+et l'explication par l'intérêt, — que si Renan avait conservé dans beaucoup de ses passages et dans quelquesunes deses œuvres ces certaines formes ecclésiastiques, En
 
 4 c'était par prudence, par l'effet d'une prudence élémen- A de.
 
@@ -778,22 +755,18 @@ taire, d'une sagesse filleule de celle du vieil Ulysse, cet
 ne. autre navigateur, ce Grec Breton mâtiné de Normand,
 
 que c'était en somme pour sauvegarder ses plus simples « 15 intérêts. Ils savent leurs dates. Ils savent leurs filia- “4
-PL: tions. Ils n'oublient point que si Renan est leur initia-
-ni A teur, cela veut dire par définition qu'il avait commencé
+PL: tions. Ils n'oublient point que si Renan est leur initiani A teur, cela veut dire par définition qu'il avait commencé
 avant eux, avant tous les autres, en un tempsoüçane
-rapportait pas encore, où commençait à peine à rap-
-porter insensiblement, avant tous les autres eux, qu'il
+rapportait pas encore, où commençait à peine à rapporter insensiblement, avant tous les autres eux, qu'il
 Dial fut le premier, en un temps difficile. Étant donnés ces ni
 1 grands exemples de prudence que nous avons donnés
-“EM; nous-mêmes, pensent-ils, en un temps où notre domina-
-tion paraît de toutes parts assurée, considérant ces À
+“EM; nous-mêmes, pensent-ils, en un temps où notre domination paraît de toutes parts assurée, considérant ces À
 110 nobles exemples de sagesse, que nous avons fournis,
 « 1 ces précieux exemples de retenue, de nos précieuses per- 4 à
 1; sonnes, dont quelques-uns se haussèrent jusqu'à la là:
 1 cheté, notamment ce grand exemple de circonspection À
 que nous donnâmes dans cette illustre affaire où nous
-À n'abandonnâmes la justice et la vérité que rigoureuse-
-ne ment pendant le temps où elles coururent un véritable
+À n'abandonnâmes la justice et la vérité que rigoureusene ment pendant le temps où elles coururent un véritable
 13 danger, quittes à nous précipiter à leur secours, à leur
 1 défense avec frénésie, avec une véritable sauvagerie,
 aussitôt que nous eûmes acquis l'assurance que quelques tu
@@ -824,12 +797,10 @@ a dit qu'elle était vraie, parce que ce sont eux qui Es
 ï germe dans les œuvres des ascendants, füt-ce dans les «
 plus grandes. œuvres des plus grands ascendants, pro- REX
 viennent d'elles, tout de même, et par conséquent au Nes
-) sens et dans la mesure où les pères en réalité sont res-
-ponsables des fils, où tous les ancêtres sont respon-
+) sens et dans la mesure où les pères en réalité sont responsables des fils, où tous les ancêtres sont respon-
 Le sables de tous les descendants, les fondateurs des
 héritiers, les maîtres des élèves. Les fondateurs, des A
-È empires; et les maîtres, des chétives écoles. Il est évi-
-dent en effet que quand un fils parle mal, pense mal
+È empires; et les maîtres, des chétives écoles. Il est évident en effet que quand un fils parle mal, pense mal
 4 de son père, un élève de son maître, une école de son
 scholarque, un empire de son fondateur, ils ont raison, me A
 É ils disent vrai. Quoi qu'il en soit, ou qu'il en paraisse être
@@ -861,8 +832,7 @@ leur auteur n'était point comme ils se le représentent ou À
 à qu'ils donnent de leur auteur n'est point exacte, conforme
 SHAAES à la réalité, quand un fils parle, pense mal de son père
 1! charnel ou de son père intellectuel, en dernière analyse
-4 il a raison, il dit vrai, en ce sens beaucoup plus intéres-
-sant, beaucoup plus profond, infiniment plus réel, étant
+4 il a raison, il dit vrai, en ce sens beaucoup plus intéressant, beaucoup plus profond, infiniment plus réel, étant
 104 infiniment plus vivant, que ce père et que cet auteur
 ) mérite profondément que nous ayons de lui, réellement,
 ne il que notamment ses fils et que ses produits eussent de
@@ -874,9 +844,7 @@ il a véritablement commis ce crime, d'avoir une descen-;
 Le _Ini. En ce sens toute accusation portée contre un père Du.
 À par ses fils porte, car il est coupable au moins de ce
 crime le plus grave, le plus essentiel de tous: préci-
-à sément au point de vue de la paternité, de la descen-
-dance, de la génération, de la filiation: d'avoir pro-
-duit des fils qui porteraient cette accusation contre
+à sément au point de vue de la paternité, de la descendance, de la génération, de la filiation: d'avoir produit des fils qui porteraient cette accusation contre
 1 lui, qui porteraient la parole contre lui, ou obscurément
 
 qui porteraient la pensée. Lever la main sur son père, “AN
@@ -889,18 +857,14 @@ disaient les vieilles gens. Lever la parole sur son père,
 fait un fils qui levât la main sur lui. Réservant donc, “18
 
 laissant donc de côté cette question générale de savoir
-À à quel point et dans quel sens l'auteur sera généra-
-
-lement responsable de ses produits, nous nous en tien-
-drons pour cette étude que nous avons commencée à
+À à quel point et dans quel sens l'auteur sera généralement responsable de ses produits, nous nous en tiendrons pour cette étude que nous avons commencée à
 
 cette constatation que nous avons faite que, au sens que
 
 4 nous avons dit, toute inscription prise par un descendant
 
 4 contre un ascendant est valable, par elle-même et
-- par cela même, et qu'elle est en ce sens une in-
-scription éternelle. Très exactement et limitativement
+- par cela même, et qu'elle est en ce sens une inscription éternelle. Très exactement et limitativement
 en ce sens que l'auteur est coupable, comptable et
 responsable de ce qu'il soït sorti de lui un produit qui
 ne le respecterait point. En ce sens, toute allégation +54 à
@@ -911,8 +875,7 @@ LV. dans l'ascendance, au cœur de l'ascendance, et vaut.
 une valeur symbolique infiniment plus importante, plus
 4 intéressante, plus dangereuse qu'une valeur directe, et,
 
-pour qui sait, plus redoutable. Elle a une valeur délé-
-guée, qui remonte à l'auteur de sa délégation. Rien “00
+pour qui sait, plus redoutable. Elle a une valeur déléguée, qui remonte à l'auteur de sa délégation. Rien “00
 
 n'est mortel pour une ascendance comme ces témoi-
 ï gnages de tare intérieure qui sortant pour ainsi dire de À
@@ -926,10 +889,8 @@ ayant remonté par un cheminement intérieur à rebours,
 jusque sous l'écorce du tronc. Singulière, mystérieuse
 à broussement de l'arborescence qui par la canalisation
 il ï de la sève remonte obscure du plus petit bourgeon le”
-1 plus éloigné, le plus inaperçu, jusqu'aux artères maïi-
-tresses du tronc, premier, des grosses racines, pre- à
-mières, éclatant et crevant de l'écorce, comme éclate-
-rait et crèverait une maladie de peau de l'arbre, à
+1 plus éloigné, le plus inaperçu, jusqu'aux artères maïitresses du tronc, premier, des grosses racines, pre- à
+mières, éclatant et crevant de l'écorce, comme éclaterait et crèverait une maladie de peau de l'arbre, à
 manifestation et témoin de la tare intérieure inex-
 D. piable. Cette sorte de reniement à distance, et par
 à soi-même, cette sorte de reniement par soi-même à
@@ -948,16 +909,12 @@ il jai à masquer aux regards de ses contemporains, qu'il
 
 De. » n'avait peut-être pas vue, qu'il ne connaissait peut-être Ai
 
-pas lui-même, que ses proches les plus proches ne con-
-naïssaient point, qu'il réussissait peut-être à se masquer (24
+pas lui-même, que ses proches les plus proches ne connaïssaient point, qu'il réussissait peut-être à se masquer (24
 
-à lui-même, inconsciemment ou consciemment, inno-
-cemment ou non, mais qui, par le seul événement du
+à lui-même, inconsciemment ou consciemment, innocemment ou non, mais qui, par le seul événement du
 temps, par le seul écoulement de la durée, par le seul
 
-développement, par la seule floraison, par le seul bour-
-
-geonnement, par la seule arborescence et par le
+développement, par la seule floraison, par le seul bourgeonnement, par la seule arborescence et par le
 
 seul éclatement de la race comme un poison non pas
 
@@ -973,9 +930,7 @@ a un phénomène singulièrement poignant, une
 
 sorte de réponse, moderne, à cette opération, qui
 
-était capitale chez les anciens, de la malédiction pater-
-
-nelle. C'est une sorte de malédiction filiale, qui
+était capitale chez les anciens, de la malédiction paternelle. C'est une sorte de malédiction filiale, qui
 ( remonte. C'est vraiment une opération réciproque,
 
 homothétique, antagoniste, de l'ancienne malédiction
@@ -986,12 +941,8 @@ une opération qui sommairement consistait en ce que que
 avec une autorité d'autant plus puissante que c'était lui
 
 . le père et que c'était sa propre descendance, par une
-; application, par un retournement de son autorité pater-
-
-nelle, par une application retournée, dans l'insuffi- es
-sance de ses moyens paternels propres, à des puis-
-sances extérieures. Symétriquement cette nouvelle malé-
-diction filiale, cetle réprobation moderne est une
+; application, par un retournement de son autorité paternelle, par une application retournée, dans l'insuffi- es
+sance de ses moyens paternels propres, à des puissances extérieures. Symétriquement cette nouvelle malédiction filiale, cetle réprobation moderne est une
 opération qui consiste à ce que le fils prouve, et
 . réprouve, contre le père, et avec une autorité d'autant
 plus poignante et d'autant plus monstrueuse que c'est
@@ -999,8 +950,7 @@ plus poignante et d'autant plus monstrueuse que c'est
 40 celui-là est son propre père et ten
 RAS cela: à des puissances 11,70
 Pate: traire, à des AU EN
-intérieures, aux TU lui sont com-
-cisément aux pul: nas 1 profonde
+intérieures, aux TU lui sont comcisément aux pul: nas 1 profonde
 ù communauté, puisqu'il ni génération, et cesont elles …
 par une trahison monstrueuse,
 11 qu'il retourne contre lui, par un lonté,sansinten
@@ -1043,8 +993,7 @@ auteur aboli des descendances de tares et des survivances de responsabilités, q
 jamais plus ne seront discutées.
 Il y a un phénomène moral troublant du même
 ordre que le phénomène moral si connu et pour ainsi
-dire parallèle à ce phénomène moral si connu, sur le-
-quel nous ne pouvons pas nous arrêter aujourd'hui, par
+dire parallèle à ce phénomène moral si connu, sur lequel nous ne pouvons pas nous arrêter aujourd'hui, par
 lequel un bienfaiteur est toujours, en un sens profond,
 responsable d'une ingratitude consécutive. Comme il
 à a fait le bienfait, il a fait l'ingratitude aussi, dedans le
@@ -1077,7 +1026,7 @@ que les modernes ont prêtées à Renan, qu'ils ont vues
 
 4 ou qu'ils ont mises dans Renan, quand même elles n'y
 1 seraient pas, — quand même elles n'y seraient pas
-textuellement, ofliciellement et présentement, — elles y!
+textuellement, ofliciellement et présentement, — elles
 « 4 sont tout de même, elles y sont profondément, d'autant
 plus réellement, cela équivaut, cela fait une équiva1 lence, revient au même que si elles y étaient, ou, comme …
 À ù disent les scientifiques, mais en un sens beaucoup plus
@@ -1146,9 +1095,7 @@ leur faiblesse même ces deux explications, l'explication
 par l'habitude et l'explication par l'intérêt diffèrent
 profondément, apportent, présentent d'elles-mêmes une
 différence profonde en ce sens que la deuxième, l'explication par l'intérêt demeure, comme il fallait s'y attendre,
-puisque c'est une explication par l'intérêt, une explication étroite et infertile, tandis que la première, l'explica-
-
-tion par l'habitude, étant une explication d'origine
+puisque c'est une explication par l'intérêt, une explication étroite et infertile, tandis que la première, l'explication par l'habitude, étant une explication d'origine
 organique et particulièrement psychologique, ouvre, à
 
 qui veut remonter à sa source, tout un courant, tout un
@@ -1171,8 +1118,7 @@ par une habitude de métier; c'était par une habitude
 beaucoup plus profonde, par une habitude intellectuelle,
 3 intérieure elle-même, morale, mentale, psychologique
 - de toute sa psychologie, par une habitude organique,
-elle-même ancestrale. Par une habitude sentimentale en-
-fin, de toutes les plus profondes, et les plus essentielles.
+elle-même ancestrale. Par une habitude sentimentale enfin, de toutes les plus profondes, et les plus essentielles.
 Ces mansuétudes mutuelles de l'Église et de Renan, ces
 échanges et ces communications de mansuétudes, et non
 pas seulement de politesses, par dessus nos têtes, ne peuventrecevoir une autre explication. Renan, depuis le com-
@@ -1250,16 +1196,13 @@ Bretagne, il conservait, il aimait toute habitude; et NE.
 
 ne alimentaire cette religion, qu'il allait quitter ou qu'il
 
-venait de quitter, continuerait à fournir à la consom-
-
-mation de son talent et ainsi à la préparation de sa
+venait de quitter, continuerait à fournir à la consommation de son talent et ainsi à la préparation de sa
 
 Les soldats, disait sensiblement l'ancienne théorie,
 
 de procurent leur succès et préparent leur gloire, (de leurs
 
-4) chefs militaires). L'Église, dans ce système, le catholi-
-cisme, le christianisme recevait l'honneur de continuer;
+4) chefs militaires). L'Église, dans ce système, le catholicisme, le christianisme recevait l'honneur de continuer;
 
 2 à être chargé de procurer le succès et de préparer la à
 
@@ -1281,17 +1224,13 @@ opération étant radicalement impossible, par définition,
 
 dé. intelligent, il avait assez le sens de soi-même, de
 
-son talent, de sa valeur, de ses moyens, de sa con-
-
-servation, de ses origines, de son alimentation, de sa
+son talent, de sa valeur, de ses moyens, de sa conservation, de ses origines, de son alimentation, de sa
 
 1 continuation, de sa gloire à préparer, de ses limites
 
 aussi pour savoir qu'à lui plus qu'à personne il était
 
-à extrêmement dangereux de couper ses racines alimen-
-
-taires. Car nul homme autant que lui n'était nourri de
+à extrêmement dangereux de couper ses racines alimentaires. Car nul homme autant que lui n'était nourri de
 
 à ses plus anciennes racines. Et il ne l'ignorait pas. Car
 
@@ -1299,24 +1238,18 @@ il était intelligent. D'autre part il connaissait parfaite-
 
 1 ment tout l'avantage, toute l'immense supériorité que le
 
-maintien d'une certaine vie spirituelle dans son arrière-
-
-opération mentale, dans son arrière-pensée, traduit,
+maintien d'une certaine vie spirituelle dans son arrièreopération mentale, dans son arrière-pensée, traduit,
 
 exprimé par le maintien d'un certain langage de la vie
 
-à spirituelle dans son arrière-style, dans son arrière-
-
-écriture, dans son arrière-langage, lui donnerait sur ses
+à spirituelle dans son arrière-style, dans son arrièreécriture, dans son arrière-langage, lui donnerait sur ses
 
 nouveaux amis, Sur ses nouveaux partisans, sur ses
 à Et il n'est point certain, le malicieux vieillard qu'il
 ! avait toujours été, que de toutes les supériorités qu'il
-À prétendait obtenir ce ne fût point celle-là, cette*supé-
-riorité sur ses disciples et sur ses amis, et aussi sur ses
+À prétendait obtenir ce ne fût point celle-là, cette*supériorité sur ses disciples et sur ses amis, et aussi sur ses
 survivants successeurs, qui secrètement ne lui fût pas
-à le plus agréable. Qu'on repense à un certain ton, pré-
-tendûment détaché, dont il parle de sa propre mort, et
+à le plus agréable. Qu'on repense à un certain ton, prétendûment détaché, dont il parle de sa propre mort, et
 de la continuation des autres. Je me disais que le vieux
 manuscrit serait publié après ma mort. et que de
 ; peut-être viendrait pour moi un de ces rappels à l'attenx tion du monde dont les pauvres morts ont besoin dans
@@ -1331,8 +1264,7 @@ point, en aucun sens ni d'aucune façon, le nom d'amis;
 car ils sont ennemis au contraire, infiniment plus
 3 ennemis que les véritables et les simples ennemis;
 les autres ne pensent pas même à se comparer à leurs
-amis, parce qu'ils savent que l'émulation même est mau-
-vaise et que ce que l'on nomme de ce nom d'émulation
+amis, parce qu'ils savent que l'émulation même est mauvaise et que ce que l'on nomme de ce nom d'émulation
 
 0 n'est jamais que le déguisement de l'envie originelle et #4
 4 de de la vieille jalousie; ceux-ci ne pensent pas à se faire
@@ -1346,8 +1278,7 @@ no. dans le bonheur de leurs amis; tout innocemment; à
 ceux-ci sont les amis intérieurs, les amis selon la règle
 À de l'amitié, les véritables amis, les simples et les seuls
 qui soient dignes de recevoir ce nom d'amis.
-18 il est malheureusement certain que Renan appar-
-tenait à la première sorte; comme il était devenu un À
+18 il est malheureusement certain que Renan appartenait à la première sorte; comme il était devenu un À
 clerc selon le laïque, il avait toujours été un ami selon
 si le siècle; et voilà ce qu'il ne faut jamais oublier quand
 1 1 on aborde, comme un livre plein d'enseignements et de
@@ -1366,8 +1297,7 @@ l'homme beaucoup plus profondément; les autres ne Ne:
 A redoutent rien tant que de devenir hommes de parti, si
 ce n'est ce qu'ils redoutent beaucoup plus encore, ce à
 4 qu'ils redoutent le plus: de devenir chefs de parti.
-il est malheureusement certain que Renan appar-
-tenait à la première sorte; la cérémonie de l'inaugura- ne
+il est malheureusement certain que Renan appartenait à la première sorte; la cérémonie de l'inaugura- ne
 tion du monument de Renan à Tréguier, accomplie
 4 essentiellement comme une fête de parti, comme une
 cérémonie gouvernementale, n'a fait, en ce sens, que
@@ -1394,9 +1324,7 @@ demandait qu'à être: un chef de parti: voilà ce qu'il ne
 Science: que ce livre est un livre de parti, un livre Le.
 4 d'homme de parti, et, sourdement, un livre d'homme de
 
-il parti qui ne demandaït lui-même qu'à se faire des par-
-
-tisans, qu'à devenir chef de parti. Qui ne demandait
+il parti qui ne demandaït lui-même qu'à se faire des partisans, qu'à devenir chef de parti. Qui ne demandait
 pas seulement à devenir lui-même partisan, mais qui ne À
 
 demandait qu'à se recruter des partisans, fonder un
@@ -1411,13 +1339,9 @@ intellectuelle et l'ambition politique, entre les partis
 
 intellectuels et les partis politiques, entre la passion du à
 
-à commandement intellectuel et la passion du comman-
-
-dement politique; ou plutôt il n'y a pas seulement des
+à commandement intellectuel et la passion du commandement politique; ou plutôt il n'y a pas seulement des
 affinités, une affinité générale entre l'autorité du:
-commandement intellectuel et l'autorité de commande-
-
-ment politique, il n'y a pas seulement entre elles deux
+commandement intellectuel et l'autorité de commandement politique, il n'y a pas seulement entre elles deux
 ce goût singulier, cette convoitise commune, cet appétit
 
 commun de toute autorité de commandement, si répandu
@@ -1425,9 +1349,7 @@ dans nos démocraties, mais nous voyons par tout ce
 
 ; qui aujourd'hui se passe autour de nous que la convoitise de la domination intellectuelle est la même que la
 
-convoitise de la domination politique, et du gouverne-
-
-ment. Non pas seulement qu'elle en est un cas particulier, mais qu'elle est la même, plus approfondie encore,
+convoitise de la domination politique, et du gouvernement. Non pas seulement qu'elle en est un cas particulier, mais qu'elle est la même, plus approfondie encore,
 
 ï infiniment plus inquiétante et plus dangereuse, étant
 
@@ -1490,8 +1412,7 @@ seulement par vocation, mais politiciens nés, — égarés,
 0 politique, d'instinct ils la savaient toute, la politique.
 Car ce n'est point par une conversion, ni par un saut,
 mais c'était par un passage immédiatement continu, ou
-48 plutôt c'était par un retour sur soi-même, par une ren-
-he, trée en soi-même et dans leur véritable nature, par une
+48 plutôt c'était par un retour sur soi-même, par une renhe, trée en soi-même et dans leur véritable nature, par une
 retrouvaille de soi qu'ils se rendaient de leurs prétendus
 à é pays de travail intellectuel à leurs véritables patries
 De cette connexité de la domination intellectuelle et
@@ -1501,8 +1422,7 @@ De cette connexité de la domination intellectuelle et
 14 leur identité même, de leur communauté de source pro- À
 
 fonde comme étant une communauté de vice, nous à
-venons justement d'avoir une illustration la plus écla-
-tante. Il avait été mille fois entendu, promis, juré, mis
+venons justement d'avoir une illustration la plus éclatante. Il avait été mille fois entendu, promis, juré, mis
 sur les programmes, ce qui n'est rien, mis sur les à
 affiches, dans les journaux, dans les brochures, dans
 lesrevues, dans les livres, dans les déclarations et dans
@@ -1534,8 +1454,7 @@ président du conseil. ‘is
 wi, faire, s'est empressé de faire pour son commencement
 de ministère, pour son installation, et aussi pour sa
 rentrée à la tribune: démasquer ses batteries, parlant
-au nom du parti intellectuel, révéler, dénoncer, victo-
-rieusement annoncer l'arrière-pensée du parti intel- à
+au nom du parti intellectuel, révéler, dénoncer, victorieusement annoncer l'arrière-pensée du parti intel- à
 Un très grand nombre d'intellectuels avaient déjà
 mangé le morceau. Maïs aucun d'eux n'avait jamais
 NE encore parlé au nom du gouvernement, officiellement et
@@ -1552,13 +1471,11 @@ destinée, dans l'intention du parti intellectuel, à subir
 4 la persécution.
 Pour la première fois depuis que Renan a jeté, a posé
 les tout premiers tracés des statuts de la domination du
-parti intellectuel un ministre de la République, un secré-
-taire d'État, parlant officiellement et formellement en
+parti intellectuel un ministre de la République, un secrétaire d'État, parlant officiellement et formellement en
 son nom et au nom du Gouvernement à la tribune de la
 Chambre, aux applaudissements d'une immense majo-
 (1 rité, dans le silence mal averti. de toute la minorité,
-applaudissements ratifiés et silence souligné par un affi-
-chage voté lui-même à une énorme majorité, pour la
+applaudissements ratifiés et silence souligné par un affichage voté lui-même à une énorme majorité, pour la
 première fois un membre du Gouvernement est monté
 
 : proclamé, solennellement, non seulement que le parti
@@ -1574,12 +1491,8 @@ ficative. M. Viviani a vraiment porté la parole pour le
 parti intellectuel, s'est vraiment fait le porte-parole du
 Cela n'a pas suffi, a dit le nouveau ministre, et alors
 
-nous nous sommes attachés à une œuvre d'anticléri-
-
-calisme, nous avons arraché de l'âme du peuple la
-croyance à une autre vie, à des visions célestes déce-
-
-vantes et irréelles.
+nous nous sommes attachés à une œuvre d'anticléricalisme, nous avons arraché de l'âme du peuple la
+croyance à une autre vie, à des visions célestes décevantes et irréelles.
 
 « C'est ici, dit à son tour le Matin, que le talent de
 
@@ -1598,21 +1511,17 @@ loi de séparation. Car cette annonce fait tout le contraire
 d'une séparation. Nous ne saurionstropnous applaudir
 ; ici que le grand journal du matin ait été plus perspicace à ne
 +30 que nos députés parlementaires. Qui ne semblent point
-s'être alors aperçus, alors ni depuis, que ce fût formi-
-dable. Pas même ceux de la droite, qui n'ont protesté que
+s'être alors aperçus, alors ni depuis, que ce fût formidable. Pas même ceux de la droite, qui n'ont protesté que
 ; par habitude fatiguée, sans conviction. Ils sont telle- À
-ment gauches et mal habitués de n'avoir plus le gou-
-vernement qu'ils ne savent plus rien reprocher au gou
-1 Une déclaration ministérielle aussi officiellement, aussi
+ment gauches et mal habitués de n'avoir plus le gouvernement qu'ils ne savent plus rien reprocher au gou
+Une déclaration ministérielle aussi officiellement, aussi
 108 souverainement faite à la tribune, dans une séance À
 aussi pleine, aussi attentivement attendue et suivie, une
-150 proclamation faite par un ministre dans ces circon-
-stances et dans ces conditions, dans tout le plein exer- À
+150 proclamation faite par un ministre dans ces circonstances et dans ces conditions, dans tout le plein exer- À
 cice de son ministère, a par tout cela même une pre
 100 mière solennité, une première valeur de solennité.
 Une déclaration ministérielle faite pour la création
-d'un ministère, dans toute la pleine et solennelle inau-
-guration d'un ministère, d'un département ministériel
+d'un ministère, dans toute la pleine et solennelle inauguration d'un ministère, d'un département ministériel
 nouveau, a comme une deuxième solennité, une deuxième
 :30 valeur de solennité. Parce qu'elle marque un com- À
 Une déclaration ministérielle aussi solennellement
@@ -1658,9 +1567,7 @@ A ceux qui disent qu'un pays sans idéal religieux est
 À Je prends ce texte dans le Matin du vendredi9, À à.
 
 4. novembre, et je crois que je puis l'y prendre sans dan-
-; ger, s'il est vrai que Le Matin est devenu l'organe off-
-
-cieux de ce nouveau gouvernement à un point que l'on
+; ger, s'il est vrai que Le Matin est devenu l'organe offcieux de ce nouveau gouvernement à un point que l'on
 
 04 n'avait jamais atteint peut-être. Il n'est donc point sus-
 
@@ -1686,13 +1593,11 @@ Ne détail m'intéresse, qu'après la phrase des becs de gaz
 qu'on ne rallumera plus, après les applaudissements
 prolongés à gauche, le texte du Petit Temps porte
 à Vives réclamations à droite. J'ose conjecturer que ce
-4 n'est point le Petit Temps qui a inventé ces Vives récla-
-mations à droite, qu'elles étaient en effet dans le texte,
+4 n'est point le Petit Temps qui a inventé ces Vives réclamations à droite, qu'elles étaient en effet dans le texte,
 A que la droite s'est tout de même aperçue qu'on venait:
 À de lui dire quelques mots, et que c'est le Matin qui les
 À a supprimées, sans doute parce qu'elles tenaient de la à
-place, peut-être parce qu'elles offusquaient la magnifi-
-cence du geste de l'éteigneur. Car enfin:
+place, peut-être parce qu'elles offusquaient la magnificence du geste de l'éteigneur. Car enfin:
 Comme enfin une innovation dans le mouvement ne
 peut jamais aller sans une innovation dans la forme
 . correspondante, et réciproquement, il faut noter que
@@ -1704,15 +1609,12 @@ dans le ciel, des lumières qu'on ne rallumera plus.
 Ceci est nouveau, dans le verbe, et cette nouveauté
 dans le verbe ne fait que souligner, représenter,
 
-comme il arrive toujours, une correspondante nou-
-veauté, dans le geste, une innovation du geste lui-: à
+comme il arrive toujours, une correspondante nouveauté, dans le geste, une innovation du geste lui-: à
 même. Le vieux père Hugo et à sa suite un nombre
 incalculable de romantiques avaient bien fait profession
-de tirer pour la joie de nos regards et pour l'éblouisse-
-ment de nos yeux un nombre incalculable de métaphores
+de tirer pour la joie de nos regards et pour l'éblouissement de nos yeux un nombre incalculable de métaphores
 du pacifique métier d'allumeur de réverbères, devenu
-avéc le temps et par le progrès de la civilisation le mé-
-de becs de gaz. Hugo menant la grande bande et “4
+avéc le temps et par le progrès de la civilisation le méde becs de gaz. Hugo menant la grande bande et “4
 sarabande des romantiques nous avait bien habitués
 à cette spécialité de métaphores. Et dans la grande
 il en avait tout un rayon. Mais ils nous avaient.
@@ -1720,8 +1622,7 @@ habitués aussi à distinguer nettement entre les deux
 parties également honorables de cet honorable métier.
 Les allumeurs de becs de gaz allument quand il faut.
 Mais ils éteignent aussi. Quand l'heure est venue. ne.
-Les grands romantiques avaient soigneusement distin-
-gué, trié entre ces deux opérations, ces deux parties à
+Les grands romantiques avaient soigneusement distingué, trié entre ces deux opérations, ces deux parties à
 du métier de cette honorable corporation. Retenant
 pour eux les fonctions d'allumeurs de ces becs de gaz
 que dans leurs métaphores ils nommaient générale- à
@@ -1741,17 +1642,13 @@ dus ne point me faire assassiner, et il respectait la règle
 :10 sait donner les rimes des ténèbres. Les esquadrons
 0 volans des hussards de la mort. Hugo, lui person-
 10 nellement, en avait-il assez allumé, de lumières, et
-10 ses damnés ennemis en avaient-ils assez éteint. Il sui-
-
-vait ainsi le bon sens d'ailleurs, comme il faisait vent, le sens vulgaire, le sens commun; qui faisait sa
+10 ses damnés ennemis en avaient-ils assez éteint. Il suivait ainsi le bon sens d'ailleurs, comme il faisait vent, le sens vulgaire, le sens commun; qui faisait sa
 Ne force; car ces hommes, ces fonctionnaires, ces ouvriers
 ne municipaux, ces honorables syndiqués nos maîtres,
 14 qui également allument et également éteignent, nous-
 110 mêmes, nous les nommons allumeurs seulement, allu-
 : meurs de becs de gaz; par une espèce de pudeur et de
-révérence; et nous n'avons point la pensée de les nom-
-
-mer au contraire éteigneurs; bien que ce fût juste et
+révérence; et nous n'avons point la pensée de les nommer au contraire éteigneurs; bien que ce fût juste et
 ni que ce soit également leur métier, l'autre partie, la à
 partie contraire de leur métier; ni tout au long de leur à
 108 titre messieurs les allumeurs puis éteigneurs de becs À
@@ -1774,12 +1671,10 @@ A un révolutionnaire pour faire cela. Et c'est le contraire,
 célestes, et d'un geste magnifique, nous avons éteint,
 dans le ciel, des lumières qu'on ne rallumera plus. nn:
 Mais nous-mêmes aujourd'hui soyons historiens. À
-nous la confrontation des textes. Faisons jouer l'appa-
-reil critique. Reportons-nous au Journal officiel, nu-
+nous la confrontation des textes. Faisons jouer l'appareil critique. Reportons-nous au Journal officiel, nu-
 à méro du même vendredi 9 novembre. Non point que le À te
 texte du Journal officiel soit de soi un texte plus
-à authentique. Souvent au contraire il est moins authen-
-tique, étant le texte que l'orateur a revu plus à loisir,;
+à authentique. Souvent au contraire il est moins authentique, étant le texte que l'orateur a revu plus à loisir,;
 ; qu'il a corrigé sur épreuves, qu'il a établi à tête plus LOIR
 : reposée. Ainsi le texte du Journal officiel, qui est celui #04
 4 que l'on affiche en cas d'affichage, loin de donner
@@ -1860,17 +1755,13 @@ très bien!
 
 Dans le grand grand discours du lendemain, même
 
-vendredi, et qui reçut également les honneurs de l'affi-
-
-chage, bien qu'il dît très exactement le contraire, et
+vendredi, et qui reçut également les honneurs de l'affichage, bien qu'il dît très exactement le contraire, et
 
 même qu'il fût fait très expressément pour cela, qui
 
 reçut tout de même les honneurs du même affichage,
 
-car affichage parlementaire sur affichage parlemen-
-
-taire vaut, un homme d'État infiniment plus homme
+car affichage parlementaire sur affichage parlementaire vaut, un homme d'État infiniment plus homme
 
 d'État, un homme de gouvernement infiniment plus sou- À
 
@@ -1905,8 +1796,7 @@ te 14 dans sa propre partie et dans le domaine de sa propre »
 10 responsabilité où il est devenu compétent, qui avait
 114 plus à parler en l'air et dans la zone des métaphores et À
 :<\e des lumières, mais qui avait la responsabilité d'agir
-; dans la grise région des réalisations et des faits, le len-
-demain vendredi le ministre des cultes essayait de
+; dans la grise région des réalisations et des faits, le lendemain vendredi le ministre des cultes essayait de
 rattraper, autant qu'il pouvait, la déclaration procla-
 110 matoire de M. Viviani. Sur l'administration des
 14.. différent$ cultes, et notamment du culte catholique, sur;
@@ -1919,8 +1809,7 @@ Le prière, j'entends à la prière qui ne sera pas dite sur
 l'Acropole, a prononcé des paroles excellentes. Parlant
 114 au nom de tout le gouvernement, et non plus seulement,
 1 comme le précédent ministre, sur ce point, en son nom À
-11%; personnel, et aussi parlant sur des résolutions de poli-
-je tique prochaine, pour des décisions de gouvernement
+11%; personnel, et aussi parlant sur des résolutions de polije tique prochaine, pour des décisions de gouvernement
 immédiat, il a sensiblement réussi à dégager le gouver-
 Il a recloué au mur la vieille déclaration des Droits pi)
 à 1 de l'Homme et du Citoyen, que le précédent orateur, à
@@ -1961,8 +1850,7 @@ prendre date, encore une fois, que la croyance en Dieu
 ? est une opération, une opinion métaphysique, religieuse
 ni que même pour compter juste il y a la croyance en;
 
-Dieu, en un seul Dieu, qui est une croyance métaphy-
-sique, religieuse. Croire en un seul Dieu, qu'il y a un
+Dieu, en un seul Dieu, qui est une croyance métaphysique, religieuse. Croire en un seul Dieu, qu'il y a un
 
 Dieu, mais qu'il n'y en a pas plusieurs, c'est faire une
 a. opération métaphysique, religieuse, variable elle-même
@@ -2010,7 +1898,7 @@ Pareillement de la croyance à la vie éternelle. Croire
 à une vie future, de justice réparatoire ou de béatitude, À
 
 ou de toute autre indication, c'est faire une opération
-rieures, comme tant d'humanités y ont cru, et aussi à;
+rieures, comme tant d'humanités y ont cru, et aussi
 
 : plusieurs vies antérieures, ce qui en est le complément;
 naturel, et ce qui en fait comme l'équilibre attendu,
@@ -2028,9 +1916,7 @@ une autre, encore une multitude d'autres opérations EN
 4 thèses infirmes, comme toutes les autres, parce qu'elles
 : sont, comme toutes les autres, de pauvres opérations à
 ! humaines. Hypothèses encore infiniment plus infirmes.
-Faut-il donc rappeler que la métaphysique et la phi-
-losophie et que la religion intellectuelle et que la super-
-stition du parti intellectuel moderne est une métaphy- À
+Faut-il donc rappeler que la métaphysique et la philosophie et que la religion intellectuelle et que la superstition du parti intellectuel moderne est une métaphy- À
 à sique, une religion, une superstition de plus, comme À
 
 n. tant d'autres, après tant d'autres, — avant tant d'autres,
@@ -2101,11 +1987,8 @@ qui est le débat, c'est de savoir si l'État, moderne, a le
 Phil office d'adopter cette métaphysique, de se l'assimiler,
 - de l'imposer au monde en mettant à son service tous
 ) les énormes moyens de la gouvernementale force.
-! Il y a tant d'autres humanités, tant d'autres méta-
-physiques, tant d'autres philosophies, tant d'autres reli-
-gions, tant d'autres superstitions. Faut-il rappeler seu-
-à lement que la métaphysique intellectuelle, que la philo-
-sophie intellectuelle moderne, que la religion, que la
+! Il y a tant d'autres humanités, tant d'autres métaphysiques, tant d'autres philosophies, tant d'autres religions, tant d'autres superstitions. Faut-il rappeler seu-
+à lement que la métaphysique intellectuelle, que la philosophie intellectuelle moderne, que la religion, que la
 superstition du parti intellectuel moderne directe-
 à ment à peu près contre tout le monde, contre tout le
 à monde acquis et qui a fait ses preuves, différentes,
@@ -2121,8 +2004,7 @@ nommément contre les Juifs; allant directement contre
 toutes les cités et les écoles helléniques; allant directe-
 4 ment contre tous les peuples chrétiens; allant également
 contre les Juifs et contre les Chrétiens; parmi les chré- à
-tiens allant également contre les négligeables schisma-
-tiques, mais allant également contre toutes les sortes de
+tiens allant également contre les négligeables schismatiques, mais allant également contre toutes les sortes de
 protestants et contre les catholiques; allant également
 contre ceux qui sont de plusieurs sortes et contre ceux
 qui ne sont que d'une sorte; et parmi les philosophes, à
@@ -2168,8 +2050,7 @@ l'État, ni de s'en faire le ministre exécutif et le bras
 Quand,donc aurons-nous enfin la séparation de la
 Métaphysique et de l'État; mais pour de bon, cette fois
 198 la vraie, la bonne séparation; non pas toujours la
-séparation de la Métaphysique électoralement, politi-
-quement la plus faible, en politique parlementaire,
+séparation de la Métaphysique électoralement, politiquement la plus faible, en politique parlementaire,
 au profit et pour l'établissement gouvernemental de
 1 la Métaphysique électoralement, politiquement la plus
 708 forte, en politique parlementaire, mais définitivement la

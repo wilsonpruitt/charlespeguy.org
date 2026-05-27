@@ -64,7 +64,7 @@ avec elles trop souvent un mélange de bien et de mal, mais leurs effets s'expli
 
 Louis Blanc a raison: c'est grâce à la Commune que certaines réformes fécondes sont parvenues à maturité. Cette révolution fut à la fois politique et sociale.
 
-Jules Favre avait solennellement promis que la France ne céderait « pas un pouce de son territoire, pas une pierre de ses forteresses »; — et notre chère Alsace était livrée à l'ennemi, avec Metz et une partie de la Lorraine.
+Jules Favre avait solennellement promis que la France ne céderait « pas un pouce de son territoire, pas une pierre de ses forteresses — et notre chère Alsace était livrée à l'ennemi, avec Metz et une partie de la Lorraine.
 
 Ducrot avait juré de ne rentrer dans Paris que « mort ou victorieux ». — Beau serment, oublié dès le lendemain.
 
@@ -76,7 +76,7 @@ Comment le peuple, tant de fois trompé, aurait-il faire confiance au canteleux 
 
 (1) Discours du 17 septembre 1871.
 
-de si mauvaise grâce à maintenir ce louche régime qu'il appelait « une République sans républicains »? Pouvions-nous oublier ces massacres de la rue Transnonain dont Thiers le Cruel avait taché son casier judiciaire? Joyeux, il flairait déjà la Semaine sanglante.
+de si mauvaise grâce à maintenir ce louche régime qu'il appelait « une République sans républicains Pouvions-nous oublier ces massacres de la rue Transnonain dont Thiers le Cruel avait taché son casier judiciaire? Joyeux, il flairait déjà la Semaine sanglante.
 
 Paris avait supporté le froid, la faim, les privations de toutes sortes, les obus... Une seule consolation lui restait: la République, gage de justice sociale. Comment ne se serait-il pas défié de cet homme auquel il faisait peur et dont il se sentait détesté?
 
@@ -100,7 +100,7 @@ En attendant, un conseil de guerre jugeait les accusés du 31 Octobre. Flourens,
 
 Ancien représentant de Paris, Victor Considérant publia le 10 avril une adresse aux Parisiens. Il espérait nous faire sortir de cette situation terrible et proposait
 
-une paix fondée « sur le caractère libre et juridique de toute société, de toute coopération »; il réclamait, lui aussi, « l'autonomie absolue des communes urbaines et des cantons-communes ». Il faisait même le rêve d'étendre un jour cette paix « absolue, européenne, définitive... par la Confédération juridique de tous les Peuples unis ».
+une paix fondée « sur le caractère libre et juridique de toute société, de toute coopération il réclamait, lui aussi, « l'autonomie absolue des communes urbaines et des cantons-communes ». Il faisait même le rêve d'étendre un jour cette paix « absolue, européenne, définitive... par la Confédération juridique de tous les Peuples unis ».
 
 Le 28 février, les Parisiens s'aperçurent avec indignation que, par une impardonnable négligence, le gouvernement avait abandonné les canons de la garde nationale, près de la place Wagram, dans la zone accordée à l'occupation des Allemands. (1) Sans attendre les ordres officiels, chaque bataillon se rendit au parc et enleva les pièces qui lui appartenaient. Les femmes s'attelèrent aux canons, escortées par les gardes nationaux en armes. Un officier à cheval sur la pièce, tenait le drapeau déployé. (2)
 
@@ -403,9 +403,7 @@ Un congrès réuni à Lyon déclara responsable devant la nation souveraine celu
 
 Lorsque Schœlcher, Lockroy et Floquet portèrent à Versailles ce projet de transaction, Thiers ne voulut pas reconnaître aux Fédérés la qualité de belligérants et refusa tout armistice. Victor Considérant ne fut pas plus heureux.
 
-Delbrouck entreprit d'agir seul. A deux ou trois reprises il essaya de s'interposer comme médiateur entre l'Hôtel de Ville et Versailles. « Et le voilà qui court de l'un à l'autre, fort maltraité d'ailleurs des deux parts. Il traversa plusieurs fois les lignes, marchant la nuit aussi bien que le jour. Une fois il fut arrêté aux postes versaillais, retenu avec des malfai-
-
-teurs et conduit sous la pluie jusqu'au quartier de Longjumeau. » (1)
+Delbrouck entreprit d'agir seul. A deux ou trois reprises il essaya de s'interposer comme médiateur entre l'Hôtel de Ville et Versailles. « Et le voilà qui court de l'un à l'autre, fort maltraité d'ailleurs des deux parts. Il traversa plusieurs fois les lignes, marchant la nuit aussi bien que le jour. Une fois il fut arrêté aux postes versaillais, retenu avec des malfaiteurs et conduit sous la pluie jusqu'au quartier de Longjumeau. » (1)
 
 C'est, je crois, pendant la première absence de mon capitaine que je fus chargé de conduire de nuit, à la porte Maillot, un petit détachement de sapeurs. Je commençai par placer mes hommes un peu à l'abri derrière un épaulement, puis je me mis à la recherche du colonel qui devait nous expliquer le travail à faire. Épuisé de fatigue, il s'était jeté un instant tout habillé sur un lit, dans une maison voisine que l'on m'indiqua. Le colonel se leva aussitôt et me conduisit à la redoute construite en avant de la porte Maillot. Là, une importante batterie commandait la grande avenue de Neuilly. Mais le tir des Versaillais était si précis que la plupart des embrasures avaient été démolies. A la place de l'une d'elles surtout il n'y avait plus qu'un monceau de décombres: « Vous le voyez, me dit le colonel, ils ont de bons pointeurs. Nos artilleurs ont se retirer avec leurs pièces, mais je vais les faire revenir, aussitôt que vous aurez réparé le dégât. »
 
@@ -417,9 +415,7 @@ Deux par deux, nos hommes prirent sur leurs épaules de lourds madriers. Nous tr
 
 Cependant quelques-uns de nos sapeurs avaient été pris d'une sorte de panique et s'étaient dispersés derrière les maisons. Pour les rallier, j'employai un moyen qui m'avait déjà réussi une autre fois: Je me plaçai à l'endroit même où l'obus venait de tomber et, alignant ma petite troupe, je commençai à faire l'appel. Je n'avais pas fini, que les fuyards, revenus en hâte, répondaient: « Présent! » J'aurais dit leurs noms et ils craignaient de passer pour des lâches.
 
-Je les conduisis à la redoute, mais là, quand ils virent l'état lamentable de la batterie, ils commencèrent à murmurer: « On veut nous faire tuer. Ce sont des traîtres qui commandent de pareils travaux! et quelques mécontents semblaient prêts à refuser d'obéir. Alors, me souvenant de l'exemple que venait de me donner le colonel, je montai debout au milieu de l'embrasure en ruines et, pendant que les obus pas-
-
-saient par dessus nos têtes, j'expliquai le travail à faire et son importance: « Si les obus tombent trop près, abritez-vous dans la tranchée; en attendant: à la besogne, et vivement! » Aucun ne refusa et le travail fut exécuté avec un zèle et une rapidité dont le colonel nous fit compliment.
+Je les conduisis à la redoute, mais là, quand ils virent l'état lamentable de la batterie, ils commencèrent à murmurer: « On veut nous faire tuer. Ce sont des traîtres qui commandent de pareils travaux! et quelques mécontents semblaient prêts à refuser d'obéir. Alors, me souvenant de l'exemple que venait de me donner le colonel, je montai debout au milieu de l'embrasure en ruines et, pendant que les obus passaient par dessus nos têtes, j'expliquai le travail à faire et son importance: « Si les obus tombent trop près, abritez-vous dans la tranchée; en attendant: à la besogne, et vivement! » Aucun ne refusa et le travail fut exécuté avec un zèle et une rapidité dont le colonel nous fit compliment.
 
 C'est là, je crois, le seul bien petit exploit que j'aie accompli, et je l'avoue, je ressentais aussitôt après une sorte de fatigue physique provenant sans doute de l'effort de volonté que j'avais faire.
 
@@ -682,9 +678,7 @@ Nous voilà donc partis à la nuit noire, par une pluie battante, dans la boue j
 
 Le matin, des clairons d'un autre bataillon nous ont offert l'hospitalité dans une chambre à cheminée, on a bon feu et nous a tout ravigotés. Puis nous repartons pour Issy. La Lisbonne a cheval prend la tête du bataillon, pour le conduire aux tranchées de Montrouge. Mais cette fois tout le monde proteste, et nous voilà aux Oiseaux. Depuis le temps que cette maison sert de caserne, on aurait pu, il me semble, organiser les chambres; mais non; il faut toujours coucher sur le parquet. Henri a trouvé, pour la cantinière et pour moi, une petite chambre qu'il est parvenu à meubler, sauf les matelas. Impossible de s'en procurer, de sorte que j'ai dormi sur un lit de fer, directement sur les lames de fer disposées en carreaux; le matin il me semblait avoir tous ces carreaux imprimés dans le dos; mais je dormais, je crevais, sur des épines. Aujourd'hui j'ai de la paille à gogo: Lisbonne m'en a donné, à regret, deux bottes, prises sur la nourriture de son cheval.
 
-Cette maison et le jardin font mon admiration. On ne peut rêver quelque chose de mieux pour y fonder une Colonie. J'ai trouvé dans une cave des monceaux de livres de piété déchirés, brûlés. Peut-être y avait-il de livres de valeur, mais il y a des imbéciles qui ne s'amusent qu'à détruire. Je dois dire pourtant que tous les volumes que j'ai regardés étaient des récits de miracles idiots ou des exem-
-
-ples de piété pour séminiaristes. Je suis bien aise de constater que les hommes de chez nous n'ont commis aucune dégradation, ils n'ont ni cassé ni brûlé comme avaient fait leurs prédécesseurs.
+Cette maison et le jardin font mon admiration. On ne peut rêver quelque chose de mieux pour y fonder une Colonie. J'ai trouvé dans une cave des monceaux de livres de piété déchirés, brûlés. Peut-être y avait-il de livres de valeur, mais il y a des imbéciles qui ne s'amusent qu'à détruire. Je dois dire pourtant que tous les volumes que j'ai regardés étaient des récits de miracles idiots ou des exemples de piété pour séminiaristes. Je suis bien aise de constater que les hommes de chez nous n'ont commis aucune dégradation, ils n'ont ni cassé ni brûlé comme avaient fait leurs prédécesseurs.
 
 Jusqu'ici je n'ai pas de blessures graves à soigner mais seulement des bobos. On s'adresse à moi pour avoir une épingle, une aiguille de fil... Je me suis aussi proposée comme terrain public.
 
@@ -898,9 +892,7 @@ Chère mère,
 
 Je ne sais si tu es à Paris ou auprès de mon père. Reviens vite, Henri se meurt. Je doute que tu le revoies. C'est horrible! Je t'en prie, viens. Hier les médecins m'avaient prévenue.
 
-Dans une lettre, écrite peu de temps après ces événe-
-
-ments, je racontais à J. Nicole la suite qu'ils eurent pour notre famille:
+Dans une lettre, écrite peu de temps après ces événements, je racontais à J. Nicole la suite qu'ils eurent pour notre famille:
 
 Il faut que je te dise comment j'ai échappé. Épuisé de fatigue, je rentrais chez moi de grand matin, par d'instants avant l'explosion de la poudrière du Luxembourg. Tu sais que nous demeurons tout auprès; nous crûmes que la maison s'écroulait. Ma mère et ma jeune sœur se jetèrent dans mes bras. Louise s'était légèrement blessée au visage par des éclats de verre. Nous attendions l'explosion probable du Panthéon; tout le quartier se serait peut-être éfondré dans les catacombes.
 
@@ -1061,7 +1053,7 @@ Dollé c'était un jeune serrurier, maigre petit blondin à l'œil éveillé, tr
 
 donc l'étonnement du lieutenant de Vesly lorsqu'il vit le prétendu mort entrer chez lui, un des premiers jours de juin 1871.
 
-« Dès que les troupes de Versailles eurent pénétré dans Paris, raconta Dollé, il nous fallut abandonner la caserne Lowendal et battre en retraite. Nous nous retirions de barricade en barricade, accablés par le nombre. Rue Gay-Lussac, des fuyards nous avertirent que nous allions être cernés. Toute résistance était impossible; je jetai mon fusil dans le soupirail d'une cave et tâchai de trouver un refuge chez des amis, mais toutes les portes restèrent impitoyablement closes. — Je rôdais du côté de mon logis, dans une ruelle de la Montagne Sainte-Geneviève, à la nuit tombante, quand je fus appréhendé par une patrouille et conduit à l'École Polytechnique. Là, sans autre forme de procès, on nous aligna contre un mur, et l'on tira dans le tas. L'émotion me fit tomber en syncope et je m'affaissai, juste au moment où le chef du peloton commandait: Feu! — Je ne sais combien de temps s'était écoulé lorsque je repris connaissance. Il était nuit close, j'étais à moitié enseveli sous des cadavres et tout couvert d'un sang encore chaud. Je me palpai. Pas une égratignure! Je n'osais donner signe de vie. Un lieutenant, désireux de nettoyer promptement la cour, ordonna de charger sur un fourgon « cette vermine démocratique et internationale »; je vis alors un sergent s'avancer, un falot à la main, un revolver de l'autre, prêt à donner le coup de grâce à ceux qui respiraient encore. Quand il s'approcha de moi, je me redressai subitement d'un bond. Étonné, le sergent resta un instant perplexe, puis il se décida à me conduire
+« Dès que les troupes de Versailles eurent pénétré dans Paris, raconta Dollé, il nous fallut abandonner la caserne Lowendal et battre en retraite. Nous nous retirions de barricade en barricade, accablés par le nombre. Rue Gay-Lussac, des fuyards nous avertirent que nous allions être cernés. Toute résistance était impossible; je jetai mon fusil dans le soupirail d'une cave et tâchai de trouver un refuge chez des amis, mais toutes les portes restèrent impitoyablement closes. — Je rôdais du côté de mon logis, dans une ruelle de la Montagne Sainte-Geneviève, à la nuit tombante, quand je fus appréhendé par une patrouille et conduit à l'École Polytechnique. Là, sans autre forme de procès, on nous aligna contre un mur, et l'on tira dans le tas. L'émotion me fit tomber en syncope et je m'affaissai, juste au moment où le chef du peloton commandait: Feu! — Je ne sais combien de temps s'était écoulé lorsque je repris connaissance. Il était nuit close, j'étais à moitié enseveli sous des cadavres et tout couvert d'un sang encore chaud. Je me palpai. Pas une égratignure! Je n'osais donner signe de vie. Un lieutenant, désireux de nettoyer promptement la cour, ordonna de charger sur un fourgon « cette vermine démocratique et internationale je vis alors un sergent s'avancer, un falot à la main, un revolver de l'autre, prêt à donner le coup de grâce à ceux qui respiraient encore. Quand il s'approcha de moi, je me redressai subitement d'un bond. Étonné, le sergent resta un instant perplexe, puis il se décida à me conduire
 
 devant l'officier supérieur. — J'expliquai que je n'avais fait qu'obéir à mes chefs, que j'avais une femme et un enfant... Le colonel, pris de pitié, me fit donner une cotte d'ouvrier en échange de mon uniforme. — « Tu as ton compte, dit-il, va, et ne recommence plus. »
 
@@ -1179,10 +1171,8 @@ et le second siège
 
 Les ruraux. — Premières manifestations. — Les
 canons de la Garde nationale. — Le Comité
-Central. — Le 18 mars, proclamation de la Com-
-mune. — Les droits de Paris. — Sortie du 3 avril.
-— Mort de Flourens. — Premiers succès de Dom-
-browski. — Réformes: L'Assistance publique,
+Central. — Le 18 mars, proclamation de la Commune. — Les droits de Paris. — Sortie du 3 avril.
+— Mort de Flourens. — Premiers succès de Dombrowski. — Réformes: L'Assistance publique,
 les Finances, le Travail, la Fédération des
 artistes, l'Enseignement. — Les délégués à la
 

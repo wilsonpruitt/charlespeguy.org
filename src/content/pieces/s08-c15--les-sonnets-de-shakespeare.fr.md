@@ -37,12 +37,10 @@ les sonnets de Shakespeare
 
 Nous avons publié dans nos éditions antérieures et
 É dans nos cinq premières séries, 1900-1904, un si.
-grand nombre de documents, de textes formant dos-
-siers, de renseignements et de commentaires; — un
+grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un
 si grand nombre de cahiers de lettres, — nouvelles, +1
 romans, drames, dialogues, poèmes et contes; — un il
-à si grand nombre de cahiers d'histoire et de philo-
-sophie; et ces documents, renseignements, textes,
+à si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes,
 ; dossiers commentaires, ces cahiers de lettres, RS.
 d'histoire et de philosophie étaient si considérables
 que nous ne pouvons pas songer à en donner ici::10
@@ -74,10 +72,8 @@ peut consulter, — provisoirement, — la petite table
 analytique très sommaire que nous en avons établie et À
 à que nous avons publiée en fin du premier cahier de la
 Pour amorcer tout travail que l'on aurait à commencer
-dans notre premier catalogue analytique sommaire, con-
-sulter le petit index alphabétique provisoire que nous
-avons établi automatiquement de ce catalogue analyif tique sommaire dans l'index total de nos éditions anté-
-rieures et de nos sept premières séries, même premier
+dans notre premier catalogue analytique sommaire, consulter le petit index alphabétique provisoire que nous
+avons établi automatiquement de ce catalogue analyif tique sommaire dans l'index total de nos éditions antérieures et de nos sept premières séries, même premier
 cahier de la huitième série.
 
 Le de Shakespeare
@@ -122,10 +118,8 @@ Charles-Marie Garnier, — les sonnets de Shakespeare,
 Note du gérant. — De ce petit index résulte que (AT
 la présente interprétation paraît en deux cahiers. Han
 Comme on peut le voir ci-après, non seulement les
-qua sonnets, mais les pages de ces deux cahiers sont numé-
-rotées en une seule suite. Un des principaux avantages a
-de cette méthode est de simplifier les citations et réfé-
-rences. Une personne dès lors qui veut citer cetteinterRe. à He:
+qua sonnets, mais les pages de ces deux cahiers sont numérotées en une seule suite. Un des principaux avantages a
+de cette méthode est de simplifier les citations et références. Une personne dès lors qui veut citer cetteinterRe. à He:
 prétation n'a plus qu'à indiquer le nom, le titre et la
 14 page. Elle n'a point à indiquer le cahier, qui résulte
 
@@ -138,9 +132,7 @@ dix exemplaires d'abonnement, numérotés de 1 à
 et deux exemplaires d'auteur numérotés exem-#
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur; nos
-tirages d'exemplaires sur whatman sont rigoureuse-
-ment limités au nombre d'abonnements à chaque in-
-stant souscrits; nous ne vendons point d'exemplaires:
+tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque instant souscrits; nous ne vendons point d'exemplaires:
 sur whatman en dehors de l'abonnement; l'abonnement À
 sur whatman à cette huitième série est de cent francs
 pour tous pays. «
@@ -189,7 +181,7 @@ Ni l'étrange ramas des modernes atours.. à
 è J'écris toujours de même, et mon vers cristallin be) « 4 ï Trahit avec mon nom le maître de ma plume
 En révélant sa source et son val souterrain.
 Cest que l'amour et vous, vous êtes mes deux muses;
-À; ‘C'est que, mon doux ami, je m'inspire de vous;
+‘C'est que, mon doux ami, je m'inspire de vous;
 HA: Je rhabille des mots que jamais le Temps n'use,
 
 À Jeune et vieux, à chaque aube, émerge le soleil: —
@@ -213,10 +205,10 @@ Elle en distillera le meilleur des dictames. A
 
 : Et reçus en retour un secours si puissant
 Wu, Que ma plume entraîna mainte plume étrangère;
-1 À répandre à tes pieds ses vers et son encens.
+À répandre à tes pieds ses vers et son encens.
 Tes yeux, où le Muet puise un verbe de fête, “#4
-4 Où la lourde Ignorance apprend l'essor des cieux,
-4 Arment de pennes d'or les ailes des poètes LA
+Où la lourde Ignorance apprend l'essor des cieux,
+Arment de pennes d'or les ailes des poètes LA
 Et donnent à la Grâce un vol majestueux.
 , Pourtant, sois surtout fier du miel que je distille,
 Fa. De sa douceur puisée aux fleurs de ton esprit;
@@ -265,7 +257,7 @@ Que, clairs, reliront des yeux incréés encor, Du
 Et mille voix célébreront l'être que j'aime
 Quand tout ce qui respire aujourd'hui sera mort.
 je Tu renaîtras où souffle un souffle qui renomme, de
-(1 — Mon vers a ce pouvoir —: sur la lèvre des hommes!
+(1 — Mon vers a ce pouvoir sur la lèvre des hommes!
 
 1! - les sonnets de Shakespeare
 . Il est vrai que jamais tu n'épousas ma Muse
@@ -294,7 +286,7 @@ Ce silence, vous me l'imputez à péché;
 Mais, c'est ma gloire à moi si mes accents succombent;
 Muet devant le Beau, je le laisse intaché; — Fiis
 Qui façonne un berceau souvent creuse une tombe. De
-Vos deux amis et tous leurs vers élogieux À!
+Vos deux amis et tous leurs vers élogieux
 N'auront jamais le feu d'un seul de vos clairs yeux! ne
 
 Quels vers sont les plus forts? Quel éloge surpasse
@@ -348,7 +340,7 @@ pœu! tu es d'un prix trop haut pour ma misère; ‘CES
 Et brise les liens qui m'attachaient à toi. LA à
 De toi seul il me vient, le droit que je possède, À. +4
 Car je n'ai rien en moi qui vaille un tel trésor;
-4 Le poids d'un privilège immérité m'excède:
+Le poids d'un privilège immérité m'excède:
 Libre, il Mure à toi comme un balancier d'or.
 à En te donnant à moi tu t'ignorais toi-même, sut
 Ou mal tu l'as choisi l'objet de ta faveur;
@@ -368,7 +360,7 @@ De ces vices cachés dont je subis l'assaut: à;;
 à. Tu gagneras, en me perdant, beaucoup gloire.:
 ; Et moi, dans ce combat, je suis aussi vainqueur, À
 ï Car je penche vers toi mon amitié fervente,
-4 Je me porte des coups dont triomphe ton cœur
+Je me porte des coups dont triomphe ton cœur
 Et qui font mon amour doublement triomphante.
 : L'amour t'a fait mon maître: un signe de ton doigt,
 À Et je prends tous les torts pour exalter ton droit.
@@ -432,7 +424,7 @@ Qui ne reposent point sur ton humeur altière,;
 Quand ta révolte abîme à tout jamais mon sort.
 . O quel titre est le mien et quel bonheur m'attend:
 . Heureux de ton amour et jusque dans la mort!
-à; Mais il n'est front si pur qui ne craigne une tache
+Mais il n'est front si pur qui ne craigne une tache
 Tu peux m'être infidèle, et sans que je le sache.
 
 Il me faut vivre en te croyant toujours fidèle, a
@@ -446,7 +438,7 @@ En des regards moins purs, l'amour qui s'aliène
 Mais le Ciel décréta, en créant ton image, ne
 Que le suave amour seul en fùt possesseur, 6 DU
 Et que, malgré l'esprit, le cœur et leurs orages,
-A: Tes yeux seraient jamais qu'un hymne de douceur. Mn!
+Tes yeux seraient jamais qu'un hymne de douceur. Mn!
 À Traîtresse est ta beauté comme la pomme d'Eve, AN
 14. Sites vertus, au ciel de tes yeux ne s'élèvent!
 
@@ -483,7 +475,7 @@ Mal manié, l'acier s'émousse et perd son fil. A
 8 4 les sonnets de Shakespeare
 
 À « Son crime est la jeunesse et le sang qui se joue. »
-« Sa grâce est la jeunesse et les jeux éperdus. »;
+« Sa grâce est la jeunesse et les jeux éperdus.
 Et sa grâce et son crime, on les aime, on les loue,
 Car tu fais de ton crime une grâce de plus. "1
 Comme au doigt d'une reine assise sur son trône
@@ -514,7 +506,7 @@ Ni Sentant passer l'hiver, les feuilles en pâlissent.
 
 ; MCE les sonnets de Shakespeare TA
 VER Loin de vous, quand les fleurs du printemps se déclosent,
-0 Quand Avril, émaillé de somptueux atours,
+Quand Avril, émaillé de somptueux atours,
 Met âme de jeunesse au cœur ému des choses, Don
 ni Et danse aux bras rieurs d'un Saturne moins lourd, Ne
 : +5 Ni les pétales peints que la brise cajole,
@@ -585,7 +577,7 @@ Quand je la saluais en des vers qui fleuronnent; ARE.
 A S'élancent, pour se taire aux jours mûrs qui rayonnent.
 “10 L'Eté garde toujours même suavité; A
 Qu'aux nuits où languissait sa musique plaintive;
-4 Mais les bois sont grisés de lourdes voluptés:!
+Mais les bois sont grisés de lourdes voluptés:!
 Moins rare, un chant très doux perd sa douceur native. Te
 
 Un: Comme le rossignol qui craint par ses concerts
@@ -613,10 +605,10 @@ Ont mué; Juin brûlant trois fois a fondu l'âme EN
 Et les parfums d'Avril, sans que ton front béni, De
 LA Vert encore, ait perdu sa fraîcheur de dictame. nt.
 Comme l'angle mouvant et sombre d'un cadran,
-4 La beauté se déplace, insensible et furtive,;
+La beauté se déplace, insensible et furtive,;
 14 4 Et ce teint, qui pour moi garde sa fleur d'antan,.
 Passe, et mon œil voilé glisse à l'erreur déclive.
-1 Je tremble et je l''évoque, à siècle à naître encor:
+Je tremble et je l''évoque, à siècle à naître encor:
 : SENS L'Été de la Beauté, quand tu vins, était mort! RU.
 
 N'allez pas regarder comme une idolâtrie (tt
@@ -643,7 +635,7 @@ Le: Pleins de chevaliers morts, de dames et d'armures.!
 Dans les beautés de ces blasons médiévals
 Par la lèvre et la main, les yeux et leur couronne,
 Je vois qu'ils voulaient peindre un portrait idéal!
-4 Des parfaites beautés qui sur ton front rayonnent.
+Des parfaites beautés qui sur ton front rayonnent.
 En esquissant tes traits, en fixant tes couleurs,
 7108 Leurs efforts vers le beau n'étaient que prophéties: à
 Ils n'avaient pour te voir que leurs yeux devineurs
@@ -667,7 +659,7 @@ Le bronze écussonné des tombes écroulées
 Passe, et toi, dans ces vers, gardes ton mausolée!
 
 be. Tout émoi du cerveau que l'encre peut trahir
-3 T'a montré mon esprit, son vrai fil et sa trame.
+T'a montré mon esprit, son vrai fil et sa trame.
 À Quel mot neuf reste encore et quel nouveau soupir
 Pour révéler ton cœur ou le fond de mon âme?
 Il n'en est plus; et chaque soir, mon doux amour, À
@@ -730,11 +722,11 @@ Est assez pour sauver celui qui toujours l'aime. (00
 
 ÎTa pitié, ton amour comblent la marque infâme À
 5} Que creusa le scandale au front de ton ami;
-;; 1 Qu'importe donc qui me maudit ou qui m'acelame
+1 Qu'importe donc qui me maudit ou qui m'acelame
 De Si tu remplis d'un sang pourpré mon cœur blêmi?
 AN Sur tes lèvres cueillir et l'éloge et le blâme,;:
 ne È Voilà tout mon effort: c'est toi mon univers;
-1 Hors toi je n'ai personne, il n'est rien dans mon âme À
+Hors toi je n'ai personne, il n'est rien dans mon âme À
 Qui cause peine ou joie à ce cœur tout de fer.
 : Tout souci d'autres voix en un si vaste abîme ni
 ; é Disparaît; qu'effleurés mes sens endoloris
@@ -753,7 +745,7 @@ Sa vision ne retient plus ce qu'elle attrape;
 L'esprit reste étranger à ses objets confus. 4120
 Trouve-t-il une vue ou très douce ou très rude, (AE
 Des visages exquis, les êtres les plus laids,
-4 L'ombre ou le jour, la mer, les monts, la solitude,
+L'ombre ou le jour, la mer, les monts, la solitude,
 La corneille ou le cygne: il leur donne tes traits! à LA
 Mon vrai cœur, débordant de ta vive lumière, pie
 Trop sincère, a rendu mes regards peu sincères.
@@ -795,7 +787,7 @@ Non! il n'est point d'obstacle à l'union des âmes
 Si, la voyant pälir, il pâlit à son tour.
 er: Non! l'amour véritable est la ferme balise
 Dont l'œil fixe l'orage inébranlablement;; À
-4 C'est l'astre des marins, dont la hauteur est prise,
+C'est l'astre des marins, dont la hauteur est prise,
 Mais dont nul ne connaît le divin ascendant.
 L'Amour n'est point le fou du Temps. Les lèvres roses À +1
 Sont bien gerbe promise au croissant de sa faulx; y
@@ -833,7 +825,7 @@ De maux inexistants fit réelles souffrances
 Aux médecins livra l'âme saine et le corps, et
 Cherchant en la faiblesse une aise à leur puissance.
 : 34 Et de j'ai tiré la leçon qui m'absout:
-0 Remèdes sont poisons quand on souffre de vous. h).
+Remèdes sont poisons quand on souffre de vous. h).
 
 Je me suis abreuvé des larmes de sirène
 Que distillaient les flancs d'alambies infernaux!
@@ -895,7 +887,7 @@ Sa part de toi, qu'au grand Oubli spoliateur.
 
 A Ces trop faibles feuillets ne pouvaient y suffire.
 
-4 Qu'ai-je besoin de taille où marquer mon amour?
+Qu'ai-je besoin de taille où marquer mon amour?
 
 Je m'en suis séparé: j'ai préféré l'inscrire 4%
 Aux tablettes de l'âme où vous vivrez toujours!
@@ -928,10 +920,10 @@ Non! je lui construisis un plus haut piédestal!
 Ne. Il est hors de l'atteinte et des pompes rieuses
 Et des serviles coups de ce dédain brutal
 ne ( Point il ne craint la politique au front pâli,
-10 Hérétique qui broche un canevas d'une heure;
-4 Il se dresse, tout seul, politique accompli,
+Hérétique qui broche un canevas d'une heure;
+Il se dresse, tout seul, politique accompli,
 ï Inchangé sous un ciel qui sourit ou qui pleure.
-4 J'en appelle aux amours bouffons de notre temps
+J'en appelle aux amours bouffons de notre temps
 È Dont la mort est un bien, fauchant des jours méchants.
 
 A quoi me servirait de tenir le dais rouge ait
@@ -1011,7 +1003,7 @@ Follement exécré, comme l'appät qu'on happe, ni
 Tendu pour capturer le gobeur affolé;
 Fou dans son âpre chasse et fou quand il possède;. à
 Extrême en la curée et dans l'affût amer;
-1 Félicité qui passe et, passée, un enfer!
+Félicité qui passe et, passée, un enfer!
 Personne ne sait fuir — quand tous savent ce drame—
 ) Le ciel qui nous conduit au tourment de ces flammes!
 
@@ -1047,7 +1039,7 @@ Noire en rien ne te vois sauf peut-être en ta vie,
 ; Et c'est de là, je crains, que sort la calomnie, ne.
 
 148 les sonnets de Shakespeare
-0 J'aime tes yeux et tes chers yeux, comme en pitié:
+J'aime tes yeux et tes chers yeux, comme en pitié:
 Des tourments que m''inflige une àme dédaigneuse, "4
 Jetant sur ma douleur leur sanglante amitié,
 Se sont vêtus de noir ainsi que des pleureuses.
@@ -1173,7 +1165,7 @@ D'un coup, viens achever ma vie et ma misère!
 ANT les sonnets de Shakespeare
 Sois sage aussi, cruelle; et, ma langue liée,
 LA Ne pas l'aceabler sous un trop lourd dédain!
-4 Prends garde; il peut jaillir de la douleur criée
+Prends garde; il peut jaillir de la douleur criée
 Le Des mots où la pitié se distille en venin!
 Es. Si tu pouvais comprendre, il serait salutaire,
 me: Sans même en ressentir, de feindre un peu d'ardeur:
@@ -1182,7 +1174,7 @@ ne Au moribond qui tremble, à son heure dernière,
 +4 Si je désespérais, ce serait la folie!
 Et, fou, je noircirais ton misérable cœur; "4
 ‘#0 Dans ce monde perfide où le mal se publie,
-1 Qui sait? des fous croiraient à ma folle rancœur.
+Qui sait? des fous croiraient à ma folle rancœur.
 Pour sauver ma raison et ta gloire adultère,
 Garde le regard droit, — si torse est l'âme altière!
 
@@ -1342,7 +1334,7 @@ Toujours plus, mieux je vois que je dois te haïr?
 ne! Oh! j'aime en toi ce que tous les autres abhorrent:
 1108 Avec eux m'abhorrer, n'est-ce point te trahir?
 Si ton indignité plante l'amour en moi, “4
-1 Plus digne je grandis d'être adoré de toi.
+Plus digne je grandis d'être adoré de toi.
 
 L'Amour, trop jeune enfant, n'a point de conscience,
 Pourtant la conscience est fille de l'Amour
@@ -1382,9 +1374,7 @@ Erer de:
 ù.; Contre la vérité, -contre celle que j'aime!
 
 rez-de-chaussée, Paris, cinquième arrondissement.
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
@@ -1399,8 +1389,7 @@ Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du for
 souscripteur; le tirage à part sur whatman a commencé;
-de fonctionner au premier janvier 1906; les inscrip-
-tions pour cet abonnement particulier sont reçues en
+de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en
 tout temps et reçoivent un numéro d'ordre déterminé;
 automatiquement par le rang même qu'elles occupent
 dans l'ordre de l'arrivée, les numéros les plus bas venant (il
@@ -1415,8 +1404,7 @@ demander un abonnement recommandé; tous les cahiers!
 de l'abonnement recommandé sont empaquetés à part et
 recommandés à la poste; la recommandation postale,
 comportant une transmission de signature, garantit le
-destinataire contre certains abus; pour cette recom-
-mandation, pour tous pays, en sus, cinq francs.
+destinataire contre certains abus; pour cette recommandation, pour tous pays, en sus, cinq francs.
 Automatiquement et sans augmentation de prix les
 exemplaires sur whatman sont tous recommandés et
 envoyés aux souscripteurs dans des enveloppes-sacs.

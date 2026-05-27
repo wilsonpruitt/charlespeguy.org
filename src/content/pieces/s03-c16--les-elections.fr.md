@@ -16,9 +16,7 @@ Comme lecteur, comme spectateur, comme éditeur,
 comme gérant, je devais dire, au moins en bref, ce que
 je pensais de la suspension. Je dois déclarer qu'un assez
 grand nombre d'abonnés étaient venus nous dire où nous bE.
-avaient écrit qu'ils avaient l'intention d'aller ouderetour-
-ner au théâtre et nous avaient demandé pourquoi les re-
-présentations étaient suspendues. Au demeurant je me -
+avaient écrit qu'ils avaient l'intention d'aller ouderetourner au théâtre et nous avaient demandé pourquoi les représentations étaient suspendues. Au demeurant je me -
 tais. Si je disais tout ce que je pense, je dirais de
 Rolland et de ses drames plus de bien, et de certains
 de ses critiques plus de mal qu'il ne jui serait agréable.
@@ -37,8 +35,7 @@ pensèrent que ce cahier n'était pas du courrier pour les
 Dans la Petite République datée du dimanche
 fmai, Téry, par manière d'apologue, nomme libelle
 diffamatoire mon cahier des personnalités, Sur ce que
-lui-même je l'aurais nommé arriviste cruel. Cette vio-
-lence de langage ne me fera pas sortir de la mesure où
+lui-même je l'aurais nommé arriviste cruel. Cette violence de langage ne me fera pas sortir de la mesure où
 je veux rester. J'ai seulement écrit: Quand nous barrons
 la route à un jeune ambitieux sans scrupules, nous À
 courons une chance de sauver à vingt millions de
@@ -163,8 +160,7 @@ a de mauvais dans ces mêmes scrutins a le pouvoir
 d'une indication. Ce qu'il y a de mauvais dans le
 scrutin, les voix antiministérielles, antirépublicaines,
 représentent vraiment ce qu'elles indiquent, des mécontentements, des insanités, des colères, des intérêts, des
-espérances prêtes; les voix antiministérielles représen-
-tent vraiment des gens qui en ont assez de ce ministère
+espérances prêtes; les voix antiministérielles représentent vraiment des gens qui en ont assez de ce ministère
 les voix antirépublicaines représentent vraiment des
 4 gens qui en ont assez de cette république; elles représentent vraiment des gens qui sont contre nous; elles
 ont donc leur plein pouvoir de représentation; elles
@@ -234,9 +230,7 @@ et sa conscience mentale en eussent été libérées, mais
 les dreyfusards eux-mêmes se fussent trouvés en meilleure situation. C'est ce que j'essaierai de montrer quand
 nous traiterons de l'amnistie. Je persiste à croire que
 si quatre cents candidats dreyfusards, honnêtement,
-avaient sans relâche continué la campagne de démons-
-
-tration que nous avons commencée, mais qu'ils ont
+avaient sans relâche continué la campagne de démonstration que nous avons commencée, mais qu'ils ont
 abandonnée, sinon reniée, il y aurait quatre cénts
 dreyfusards élus. Et la République ne se porterait
 pas aussi mal. C'est un fait que les purs dreyfusards,
@@ -259,8 +253,7 @@ quatre ans vous rendre compte de mon mandat comme
 je le devais, parce qu'il y avait les gendarmes et les
 bandes réactionnaires; aujourd'hui qu'il n'y a plus de à
 gendarmes et que les bandes réactionnaires ne sont
-plus les plus fortes, je vais commencer par vous expli-
-quer ce que c'est que l'affaire Dreyfus. Vous verrez par ge.
+plus les plus fortes, je vais commencer par vous expliquer ce que c'est que l'affaire Dreyfus. Vous verrez par ge.
 hautement glorifié auprès d'eux d'avoir été l'un des promoteurs dreyfusards. Il a littéralement traité son élection, conduit sa campagne sur le mode suivant: Gloire
 à moi. Gloire à moi parce que je fus et que je suis
 resté un dreyfusard. Ainsi le grand orateur pratiquait
@@ -289,9 +282,7 @@ supposer que Jaurès n'eût pas été partisan de l'amnistie en politique géné
 les circonscriptions de France étaient aussi solides que
 la circonscription de Carmaux, j'ajouterai: si tous les
 candidats républicains avaient été aussi solides que
-lui. Mais comme il savait que beaucoup de circon-
-
-scriptions étaient beaucoup plus faibles que la circonscription de Carmaux, il n'aura pas voulu faire affronter
+lui. Mais comme il savait que beaucoup de circonscriptions étaient beaucoup plus faibles que la circonscription de Carmaux, il n'aura pas voulu faire affronter
 au pays un risque dont il n'a pas peur pour sa propre circonscription. Ainsi contrairement à la plupart des candidats, qui ont peur pour leur circonscription beaucoup plus que pour le pays, Jaurès aurait
 peur pour le pays et n'a pas peur pour sa circonscription.
 
@@ -302,13 +293,11 @@ hommes politiques, il inclinait à l''amnistie par le mouvement régulièrement 
 la lassitude. Maïs quand il eut retouché terre, il sentit
 brusquement, d'instinct, que c'était au cœur de ce
 vieux débat qu'il fallait emporter la victoire. L'instinct
-de Jaurès est de beaucoup supérieur à ses raisonne-
-ments. Et ses véritables amis ont noté depuis longtemps
+de Jaurès est de beaucoup supérieur à ses raisonnements. Et ses véritables amis ont noté depuis longtemps
 que ce qu'il écrit dans la retraite et dans la solitude
 est de beaucoup supérieur à ce qu'il écrit dans la
 dispersion fatigante. C'est naturel ainsi.
-La troisième crise réactionnaire de la troisième répu-
-blique est plus grave que les deux précédentes. Le
+La troisième crise réactionnaire de la troisième république est plus grave que les deux précédentes. Le
 Seize-Mai fut très grave en importance, en événement;
 il ne fut pas très grave en effet; et surtout il n'étaitpas
 très grave en indication, parce qu'il était beaucoup
@@ -318,9 +307,7 @@ prochaines. La bourgeoisie républicaine était là; les
 forces républicaines et populaires étaient neuves; sincères, franches, renaissantes et bientôt pleines.
 
 Le boulangisme au contraire fut le commencement
-des prochaines réactions; il inaugura des formes nou-
-
-velles; à bien compter, il fut la première et non pas la
+des prochaines réactions; il inaugura des formes nouvelles; à bien compter, il fut la première et non pas la
 deuxième crise réactionnaire de la troisième république.
 
 La comparaison étant ainsi limitée au boulangisme
@@ -356,12 +343,10 @@ nationaliste comme étant les forces réactionnaires
 pouvaient se tromper; ceux qui ont voté récemment pour les nationalistes savaient parfaitement ce qu'ils
 Aussi le nationalisme est-il beaucoup plus durable
 que ne le fut le boulangisme; commencé en 1886, le
-boulangisme était mort, avait fui en avril 1889; com-
-mencé en 1898, et même avant, le nationalisme est loin
+boulangisme était mort, avait fui en avril 1889; commencé en 1898, et même avant, le nationalisme est loin
 d'avoir fini en 1902. Ce qui a contribué beaucoup sans
 doute à nous sauver du boulangisme, c'est qu'il y avait
-: Boulanger. Ce qui rend dangereux le nouveau nationa-
-lisme, c'est qu'il n'y a pas de Boulanger.
+: Boulanger. Ce qui rend dangereux le nouveau nationalisme, c'est qu'il n'y a pas de Boulanger.
 On nous dit: Les réactionnaires ont fait un si gros
 effort de travail et d'argent qu'ils sont épuisés et ne
 recommenceront pas. C'est connaître mal toute lopiniâtreté de la réaction; c'est apprécier mal toutes les
@@ -369,8 +354,7 @@ espérances qu'elle a reçues des derniers événements
 et pour parler avec des hommes d'affaires le langage
 des affaires, c'est justement parce que la réaction a
 placé des capitaux considérables sur l'opération réactionnaire qu'elle continuera et qu'elle tâchera d'achever
-cette opération. Quand une affaire a mangé des capi-
-taux, tant qu'elle dure, et laisse quelque chance, elle
+cette opération. Quand une affaire a mangé des capitaux, tant qu'elle dure, et laisse quelque chance, elle
 attire les capitaux.
 Enfin c'est mal connaître la souple opiniâtreté de
 l'Église; au moment que nous nous croirons débarrassés
@@ -427,8 +411,7 @@ Si au contraire quand on dit tant mieux on sait que
 mélinistes, mais si on veut dire qu'il vaut mieux avoir
 des ennemis dangereux que des ennemis moins dangereux, on est un guesdiste, on est tombé dans le
 sophisme guesdiste, que de l'excès du mal vient le
-remède, le bien, la révolution même. Selon ce raison-
-nement, s'il est permis de le nommer ainsi, nous-mêmes
+remède, le bien, la révolution même. Selon ce raisonnement, s'il est permis de le nommer ainsi, nous-mêmes
 il fallait que nous fissions passer partout des natio- Le
 nalistes. Nous avons réfuté si souvent le sophisme je
 guesdiste que l'on nous permettra de n'en pas recommencer aujourd'hui la réfutation.
@@ -461,24 +444,17 @@ deux jalousies envieuses contraires, le socialisme français, candidats, journau
 
 L'Unité Socialiste Révolutionnaire, Parti Socialiste
 
-de France, guesdo-blanquistes, avait résolu de présenter des candidats de classe dans toutes les circonscrip15
-
-tions; ou cette résolution n'avait aucun sens, ou elle
+de France, guesdo-blanquistes, avait résolu de présenter des candidats de classe dans toutes les circonscriptions; ou cette résolution n'avait aucun sens, ou elle
 signifiait que la coalition nouée parmi les antiministé- À
 riels, ou plutôt contre les ministériels, présenterait des
-candidats dans les circonscriptions mêmes, très nom-
-breuses, où elle n'avait aucune force, réelle, aucun Le
+candidats dans les circonscriptions mêmes, très nombreuses, où elle n'avait aucune force, réelle, aucun Le
 travail fait, aucun résultat. Elle n'y a pas manqué.
-Jetées dans le jeu douteux et mouvementé des candida-
-tures bourgeoises, des candidatures locales, ces
+Jetées dans le jeu douteux et mouvementé des candidatures bourgeoises, des candidatures locales, ces
 prétendues candidatures de classe pouvaient, devaient a
 ‘jouer les aventures les plus dangereuses. Elles n'y ont
 pas manqué.
 Les guesdistes présentaient honnêtement un certain
-nombre de candidatures sérieuses; les blanquistes pré-
-sentaient honnêtement un certain nombre de candida-
-tures sérieuses; plusieurs de ces candidatures échouè-
-rent; quelques-unes réussirent. On a voulu nous faire
+nombre de candidatures sérieuses; les blanquistes présentaient honnêtement un certain nombre de candidatures sérieuses; plusieurs de ces candidatures échouèrent; quelques-unes réussirent. On a voulu nous faire
 croire qu'elles avaient mieux réussi que les candidatures
 interfédératives honnêtes, qu'elles avaient réussi d'une
 réussite éminente, parce que les candidats avaient
@@ -488,8 +464,7 @@ leur attachement à l'idéal socialiste révolutionnaire, à
 la méthode, à la politique socialiste révolutionnaire.
 Je ne crois pas que l'élection de Vaillant, de Sembat,.
 soient des élections éminentes. Il est déjà notable
-qu'elles sont de bonnes élections. Les candidats socialistes révolutionnaires ont comme les candidats inter-
-fédératifs bénéficié des suffrages radicaux; les adversaires parlementaires les plus farouches de la défense
+qu'elles sont de bonnes élections. Les candidats socialistes révolutionnaires ont comme les candidats interfédératifs bénéficié des suffrages radicaux; les adversaires parlementaires les plus farouches de la défense
 républicaine ont dans la réalité des scrutins bénéficié
 de la défense républicaine. Ils ont cumulé seulement; et
 cela n'est pas une supériorité. Aux suffrages de défense
@@ -502,9 +477,7 @@ ont ajouté beaucoup de voix antiministérielles; inconsciemment ou plus ou moin
 de mécontents, beaucoup d'opposants, quelques réactionnaires, des antiministériels enfin votèrent pour eux.
 Ils doublèrent ainsi leur contingent socialiste incontestable et incontesté d'un renforcement ministériel de
 défense républicaine et d'un renforcement antiministériel non moins incontestable.
-On nous a dit qu'au premier tour et surtout au second les voix radicales ou de défense républicaine, les ora-
-
-teurs, les programmes radicaux et radicaux-socialistes
+On nous a dit qu'au premier tour et surtout au second les voix radicales ou de défense républicaine, les orateurs, les programmes radicaux et radicaux-socialistes
 étaient ignominieux quand ils allaient au secours des
 Portefoin, mais qu'ils étaient grandement louables
 quand ils allaient au secours des guesdistes. Je suis
@@ -525,15 +498,13 @@ trouverait plusieurs élections interfédérales qui ont été
 plus hautes que plusieurs élections socialistes révolu- À
 tionnaires, l'honneur n'en vient pas seulement à
 Vaillant, à Guesde, au Petit Sou, à la vertu socialiste
-révolutionnaire; l'honneur en vient surtout aux cir-
-conscriptions, qui étaient meilleures, moralement, et À
+révolutionnaire; l'honneur en vient surtout aux circonscriptions, qui étaient meilleures, moralement, et À
 surtout économiquement meilleures, n'ayant pas depuis à
 les derniers scrutins, ceux des élections municipales,
 et depuis les avant-derniers, ceux des élections législatives, subi certains mouvements de population ou en
 ayant profité; ces mouvements économiques ont la de
 plus grande importance électorale, et je suis honteux
-à d'avoir à le dire à des marxistes; à Paris en particu-
-lier les arrondissements du centre se sont peu à peu à
+à d'avoir à le dire à des marxistes; à Paris en particulier les arrondissements du centre se sont peu à peu à
 vidés de leur contenu populaire; le vieux peuple de
 Paris s'élimine; la population qui élisait Louis Blanc,
 qui élut Goblet, s'est peu à peu excentrée; aujourd'hui
@@ -545,9 +516,7 @@ scrutins depuis vingt ans pour suivre ce dégorgement
 de Paris. L'agent le plus considérable du changement
 électoral est constitué par les voies et moyens de communication. Une étude attentive des omnibus, des À
 tramways, des rues, des boulevards, des expropriations, des percées, des bâtisses, des loyers, du
-métropolitain, des chemins de fer, des bateaux fourni-
-
-rait sur le mouvement de la population électorale,
+métropolitain, des chemins de fer, des bateaux fournirait sur le mouvement de la population électorale,
 comme il fournirait sur le mouvement de la population
 générale, des renseignements tout à fait importants.
 Charles Guieysse et Moreau tâcheront de nous faire ce
@@ -667,8 +636,7 @@ Français, ont beaucoup perdu moralement. Challaye
 me disait aux vacances de Pâques, avec son air de
 n'y toucher pas: « Quand je suis revenu à Paris, —
 on sait qu'il vient de faire le tour du monde, — je
-me suis demandé s'il n'y avait pas une révolution capi-
-tale dans les théories du socialisme français: on
+me suis demandé s'il n'y avait pas une révolution capitale dans les théories du socialisme français: on
 n'entend plus parler que de sauver le petit commerce. »
 Rouanet a déshonoré sa victoire et Viviani a déshonoré
 sa défaite en envoyant à l'Aurore la lettre que nous
@@ -850,9 +818,7 @@ grande manifestation politique? une manifestation parlementaire? une manifestati
 que ces discours où il n'est question que d'honneur, de
 très grand honneur, de politique et de cérémonie. Ayant
 lutté pendant quatre ans contre un État-Major militaire
-et contre un faux honneur de l'armée, allons-nous insti-
-
-tuer parmi nous un État-Major parlementaire et un honneur spécial dreyfuso-socialiste?
+et contre un faux honneur de l'armée, allons-nous instituer parmi nous un État-Major parlementaire et un honneur spécial dreyfuso-socialiste?
 Je lis dans le discours de Pierre Quillard ces paroles
 Dans un discours prononcé à Remiremont, je crois,
 M. Méline souhaitait qu'il y eût à la Chambre des personnes
@@ -905,9 +871,7 @@ Parlement français de notre compagnon, Francis de
 Pressensé, citoyen du monde!
 
 Ou citoyen du monde est un compliment de littérature,
-ou veut dire internationaliste. Si veut dire inter-
-
-nationaliste, nous sommes tous internationalistes, etily
+ou veut dire internationaliste. Si veut dire internationaliste, nous sommes tous internationalistes, etily
 avait déjà au Parlement, parmiles socialistes, plusieurs
 
 Le discours de Lagardelle cause beaucoup de tristesse
@@ -1278,8 +1242,7 @@ deux opinions dont les grâces frelatées ne sauraient éternellement suppléer 
 On voit à cela qu'il est de la maison.
 
 Qui sait si la sagesse ne consisterait pas en maintenant
-au pouvoir un ministère rajeuni, retrempé, fortifié, débar-
-rassé de la cause de faiblesse que lui était la présence d'un à
+au pouvoir un ministère rajeuni, retrempé, fortifié, débarrassé de la cause de faiblesse que lui était la présence d'un à
 socialiste sans mandat de son parti, sûr, dans la limite de À
 son action contre le nationalisme et de sa sincérité réformatrice, de l'appui conditionnel et désintéressé du groupe
 socialiste en même temps que de la fidélité plus disciplinée
@@ -1403,8 +1366,7 @@ messieurs, citoyens et compagnons; Lagardelle faisait
 de la lutte de classe devant M. Ludovic Trarieux. Si les.
 convives s'étaient pris au sérieux, comme on le doit, ils à
 n'auraient pas diné ensemble. Car la lutte de classe eût À
-mis en fuite M. Ludovic Trarieux; et la situation poli-
-tique et sociale de M. Trarieux eût indisposé Lagar-,
+mis en fuite M. Ludovic Trarieux; et la situation politique et sociale de M. Trarieux eût indisposé Lagar-,
 Quand on fait de la lutte de classe, on vote pour le
 candidat de classe.!
 L'Aurore sera un journal officiel du nouveau parti, et
@@ -1569,16 +1531,13 @@ articles de Jaurès. Il a tort, dit Pressensé; il ne faut
 pas soutenir Jaurès, parce qu'en ce moment sa politique fait le plus grand tort au socialisme.
 Ainsi Pressensé journaliste et ancien dreyfusiste,
 autant qu'il était en lui, dans la mesure de son action,
-traitait l'affaire Jaurès par le silence, qui est l'appro-
-priation, l'adaptation individuelle du huis clos; etquand
+traitait l'affaire Jaurès par le silence, qui est l'appropriation, l'adaptation individuelle du huis clos; etquand
 il en parlait il abandonnait Jaurès. Mais je le demande,
 qu'est-ce qui était en cause? Etait-ce de savoirsila
 politique de Jaurès était mauvaise, ou était-ce de savoir si Jaurès, au sens littéral des mots, avait trahi.
 Confondre les deux questions, répondre sur la pre- À
-mière quand c'était la deuxième qui était posée, répon-
-dre sur la première comme si c'était la deuxième, voilà Kat
-ce que je nomme de la politique; et c'est en ce pre-
-mier sens que je dis que Pressensé fait de la politique.
+mière quand c'était la deuxième qui était posée, répondre sur la première comme si c'était la deuxième, voilà Kat
+ce que je nomme de la politique; et c'est en ce premier sens que je dis que Pressensé fait de la politique.
 Survinrent les élections. Brusquement on se débarrassa de Gohier. Nous publierons bientôt le dossier de
 
 cette affaire. Des pièces que nous publierons, des renseignements que j'ai, des renseignements qué nous aurons quelque jour, il semble malheureusement résulter que
@@ -1593,9 +1552,7 @@ nouveau journal — voir le discours de Lagardelle.
 Ainsi Pressensé n'a pas affronté Gohier, qu'il fallait
 affronter; il a éliminé Gohier, qu'il ne fallait pas éliminer. Il a éliminé quand il fallait affronter. Il n'a pas
 affronté quand il fallait affronter. Affronter, c'est-à-dire
-opposer des raisons, en toute liberté économique. Éli-
-
-miner, c'est-à-dire opposer des servitudes économiques.
+opposer des raisons, en toute liberté économique. Éliminer, c'est-à-dire opposer des servitudes économiques.
 
 Quand je vois ce qu'a duré Allemane au feu de fièvre
 de la politique parlementaire, je me demande ce que
@@ -1676,8 +1633,7 @@ Waldeck-Rousseau — avec les quelques modifications né- mr:
 cessaires — comme l'issue la plus naturelle et la plus heureuse de la crise électorale.
 Des volontés, qu'il n'eût peut-être pas été impossible à
 : un certain moment de plier à un meilleur parti, en ont
-cidé autrement. On me permettra de regretter que le minis-
-ière même, s'il croyait devoir passer la main, p'ait pas. KES
+cidé autrement. On me permettra de regretter que le minisière même, s'il croyait devoir passer la main, p'ait pas. KES
 compris la haute utilité, je dirai presque la nécessité morale
 et politique d'une rencontre avec la Chambre. “ra à
 L'esprit de la Constitution, tous les précédents du régime
@@ -1762,8 +1718,7 @@ où il reçut fraternellement, sur ses vieux jours, son
 frère le soldat, qui avait une jambe de moins; et son
 frère le viveur, qui enfin revenait aux joies de la
 Tel fut mon sort, pour les débuts s'entend. Je
-dus à chaque fois spéculer sur le bénéfice de l'opé-
-ration antérieure pour en constituer la mise de
+dus à chaque fois spéculer sur le bénéfice de l'opération antérieure pour en constituer la mise de
 fonds de l'opération suivante. ce procédé pouvait.
 réussir au temps que nous étions petits. Et même alors
 il avait commencé à se démoder. Il était bon du temps
@@ -1998,8 +1953,7 @@ la part de souscription modeste où ils ont droit. Nos
 cahiers ne peuvent pas s'effacer indéfiniment devant nos
 camarades plus favorisés.
 
-Il de soi qu'au-dessous de cette opération extraor-
-dinaire la nutrition de nos cahiers doit continuer par,
+Il de soi qu'au-dessous de cette opération extraordinaire la nutrition de nos cahiers doit continuer par,
 tous les moyens ordinaires, souscriptions et abonnements, librairie et papeterie.
 
 Vient de paraître à la Société Nouvelle de librairie et
@@ -2012,8 +1966,7 @@ Ce volume contient le texte sténographique des six
 séances du congrès de Tours, — le procès-verbal des
 
 séances de la commission du programme, — le texte des
-projets de résolutions présentés au congrès et des résolu-
-tions adoptées: Déclaration de principes, Programme politique et économique, modifications apportées aux Statuts
+projets de résolutions présentés au congrès et des résolutions adoptées: Déclaration de principes, Programme politique et économique, modifications apportées aux Statuts
 du Parti socialiste, résolutions relatives à la Presse du
 Parti, à la participation au gouvernement bourgeois, aux
 élections, etc., — les différents rapports présentés au

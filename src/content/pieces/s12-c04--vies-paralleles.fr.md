@@ -73,8 +73,7 @@ qu'on lui dise ce que tu fais. Elle croit toujours que c'est
 vous qui sonnez, et elle veut aller à la gare pour vous voir
 
 Toute la journée, je me demande où vous êtes et ce que
-vous faites; quand je ferme les yeux, je vous vois en che-
-min de fer ou bien à l'hôtel, et il me semble que si j'étais
+vous faites; quand je ferme les yeux, je vous vois en chemin de fer ou bien à l'hôtel, et il me semble que si j'étais
 seul et si je cherchais bien, je serais comme Madame
 Gil-Blas (dans un roman) et que je verrais réellement ce
 
@@ -101,8 +100,7 @@ Maman est allée à Valence et elle n'est restée que trois;
 jours en voyage, grâce au chemin de fer que nous avons
 
 vies parallèles d'un soldat et d'un écolier CAE
-maintenant. Fernand est toujours à la banque, Alix con-
-tinue ses leçons de dessin; pour moi, j'ai un prix de HER
+maintenant. Fernand est toujours à la banque, Alix continue ses leçons de dessin; pour moi, j'ai un prix de HER
 “littérature et un accessit d'arithmétique. La distribution A
 des prix est ici une fête nationale; la ville entière prend
 part au plaisir des écoliers. La grande salle du Bâtiment
@@ -240,8 +238,7 @@ dans la récitation et dans la composition française.
 
 vies parallèles d'un soldat et d'un écolier SOS
 à mettre en prose quelques vers français d'auteurs
-célèbres, et je constatai que les difficultés de la versifi-
-cation classique étaient véritablement excessives, puisqu'elles ont forcé les meilleurs poètes à user d'une
+célèbres, et je constatai que les difficultés de la versification classique étaient véritablement excessives, puisqu'elles ont forcé les meilleurs poètes à user d'une
 quantité regrettable de chevilles et de mots impropres.
 M. Oltramare combattait avec raison mon lyrisme
 intempestif et, grâce à l'étude des auteurs grecs, je
@@ -262,8 +259,7 @@ Thonon un bocal contenant le cœur et les intestins d'un
 enfant empoisonné par sa mère. Il fallait qu'il reconnût si
 le corps contenait ou non de l'arsenic. M. Dumont a d'abord
 ! fait une expérience sur le cœur et une partie des intestins.;
-È Il les a fait brûler, les a fait passer dans une foule de cor-
-nues et d'alambics; enfin nous avons apparaître sur la
+È Il les a fait brûler, les a fait passer dans une foule de cornues et d'alambics; enfin nous avons apparaître sur la
 ; porcelaine les terribles taches qui constatent la présence
 du poison; ces taches sont brunes et métalliques, ou plutôt
 métalloïdiques. Cela m'a fait une singulière impression. Je
@@ -293,8 +289,7 @@ n'avons plus d'invasions de barbares à redouter, et
 nous ne voulons plus faire de conquêtes. Le plus sou
 vent, les guerres n'ont d'autres motifs que de puériles
 querelles de monarque à monarque. Bientôt toutes
-les limites s'effaceront; les peuples sauront mieux em-
-ployer leurs forces, leur intelligence et leurs richesses
+les limites s'effaceront; les peuples sauront mieux employer leurs forces, leur intelligence et leurs richesses
 LE. qu'à la destruction. Les armées permanentes sont CSS
 : Avocat? « Les chicanes du barreau me semblent bien
 mesquines et les accoutrements ridicules ne sont pas
@@ -339,7 +334,7 @@ Gant sera instruit, plus il aura de chances de réussir;
 2 c'est par lui que les nations échangent leurs produits,
 et que les climats moins favorisés jouissent des bien
 faits accordés aux autres pays. Il n'importe pas seule
-ment les produits mais encore les idées, les mœurs, les A:
+ment les produits mais encore les idées, les mœurs, les
 coutumes, et contribue plus que qui que ce soit à effacer
 les haines de nationalités. Il sert de lien aux nations et FRS
 cest le lien le plus fort, parce qu'il les tient par leur.
@@ -364,7 +359,7 @@ Eee. goût pour la vérité, s'écrièrent d'un ton de réprobation: Cet
 - enfant ne vaudra jamais rien pour le commerce. » de. -
 
 vies parallèles d'un soldat et d'un écolier
-m'auras tracé la voie, je ferai tout ce qui dépendra de …;
+m'auras tracé la voie, je ferai tout ce qui dépendra de
 moi pour parvenir au but que tu m'auras indiqué. » ni
 Lorsqu'il se montrait si raisonnable, Fernand subissait l'influence heureuse de sa mère. Mais, on le verra
 et il est triste de le constater, la meilleure éducation
@@ -460,7 +455,7 @@ absolument manger un peu de vache enragée. Ce métier de
 "7 gratte-papier ne me valait rien, je ne suis bon qu'à faire un
 -. soldat. C'est moi seul qui ai pris cette résolution, personne
 4 ils m'auraient retenu.
-8 Maintenant, cher père et chère mère, il me reste à vous
+Maintenant, cher père et chère mère, il me reste à vous
 - demander pardon du tourment et du chagrin que je vous
 
 cause. Si vous saviez ce que j'ai souffert pour me séparer
@@ -482,7 +477,7 @@ vies parallèles d'un soldat et d'un écolier
 soins, que d'attentions vous avez toujours eus pour moi!
 LAS Comme vous m'aimiez! Moi aussi je vous aime:
 les forces de mon âme; avec quel bonheur je vous reverrai;
-!:: É quand donc pourrai-je vous serrer sur mon cœur! Ma BARS
+É quand donc pourrai-je vous serrer sur mon cœur! Ma BARS
 ME je t'en prie, tranquillise-toi; j'avancerai, je ferai mon
 chemin; ne crains rien; souviens-toi de notre conversation 3 #3
 de samedi à diner. La guerre n'est pas si terrible qu'on se
@@ -572,8 +567,7 @@ tout en le blämant pour le chagrin qu'il vous cause, je ne;
 puis m'empêcher d'être ému en voyant l'enthousiasme de
 ce jeune homme, qui court au danger pour soutenir une,
 cause doni le triomphe donnera satisfaction à ses instincts
-généreux, sans lui apporter aucun dédommagement maté-
-riel des sacrifices qu'il s'impose. Mes camarades, auxquels;
+généreux, sans lui apporter aucun dédommagement matériel des sacrifices qu'il s'impose. Mes camarades, auxquels;
 j'ai raconté ce qu'il vient de faire, l''admirent et s'intéressent
 vivement à lui; aussi donne-moi de ses nouvelles, je te
 prie, car chacun ici le prend en amitié, l'accompagne de ses A
@@ -643,8 +637,7 @@ Trochu: l'audace et la confiance. (1)
 à (1) Plus tard, pendant un long séjour à Rome, j'ai souvent
 ". é l'occasion de voir de près Garibaldi, et chaque fois sa présence
 soulevait les mêmes acclamations passionnées. Il ne portait plus
-la chemise rouge; son costume était arrangé avec art: toque élé-
-gante, cache-nez jeté en écharpe, manteau de drap gris, drapé à
+la chemise rouge; son costume était arrangé avec art: toque élégante, cache-nez jeté en écharpe, manteau de drap gris, drapé à
 antique. A première vue, cela nous semblait manquer de simpliee cité et répondre un peu trop au goût théâtral des Italiens; mais
 188 lorsqu'on observait cette belle tête, aux traits réguliers, ce grand A
 front intelligent, on y voyait resplendir le calme de la vraie bra:
@@ -691,8 +684,7 @@ Se -petit morceau de bœuf; j'ai assez de pain, mais ce n'est pas __..
 vies parallèles. d'un soldat et d'un écolier
 Dis bien à papa que si j'ai un instant l'intention
 d'entrer dans l'armée française, c'est en la voyant si belle,
-mais je savais combien cela aurait déplu à papa, et moi-
-même en y réfléchissant je n'ai pas voulu...
+mais je savais combien cela aurait déplu à papa, et moimême en y réfléchissant je n'ai pas voulu...
 Notre capitaine parle très bien français; il veut que sa
 compagnie soit la première, c'est ce que nous nous effor- à
 çons tous de faire. C'est incroyable le mélange de gens qu'il
@@ -702,15 +694,13 @@ soldats du pape. Parmi les Français qui sont ici, plusieurs
 ont déjà servi en Crimée. Je ne suis bien lié avec aucun
 d'eux, il y en a trop de mal élevés. Je suis toujours sur le
 qui-vive, il faut toujours avoir sa baïonnette au côté, mais
-comme je suis bien décidé à clouer le premier qui m'embèe-
-tera, on ne me dit rien. Hier on a désarmé deux Italiens
+comme je suis bien décidé à clouer le premier qui m'embèetera, on ne me dit rien. Hier on a désarmé deux Italiens
 qui se battaient avec leurs baïonnettes, et on les a mis aux.
 fers. Tout le monde est volé, A moi on m'a déjà pris une
 paire de souliers. Si nous avions des sacs, nous pourrions
 resserrer nos affaires, mais maintenant c'est impossible. IL
 y a parmi nous beaucoup d'enthousiasme. Tous désirent
-partir et se trouver en face des Autrichiens. C'est dom-
-mage que les grades aient été si mal donnés. Beaucoup de
+partir et se trouver en face des Autrichiens. C'est dommage que les grades aient été si mal donnés. Beaucoup de
 nos officiers nous font faire l'exercice, la théorie à la main. à
 Quant à moi, j'aime autant être simple soldat, si l'on a
 plus de peine, au moins on n'a pas de responsabilité. Plus "4
@@ -762,9 +752,7 @@ plus de six millions de matériel de guerre, des convois.
 … d'habillement et tous leurs malades... Ils ont noyé dans le
 … une foule de choses. Nous avons rétabli le pont de bateaux, qu'ils avaient brülé. Je puis dire que j'ai ….. dans
 le Pô. C'est un grand beau fleuve, l'eau est trouble comme
-. celle de lArve et assez froide. Il fait ici une chaleur épou-
-
-vies parallèles d'un soldat et d'un écolier
+. celle de lArve et assez froide. Il fait ici une chaleur épouvies parallèles d'un soldat et d'un écolier
 vantable, aussi tout le monde ne sort-il que le soir. a voit
 des toilettes superbes, portées par des femmes qui méritent
 25 belles femmes! C'est maintenant que je regrette de ne
@@ -810,8 +798,7 @@ Plaisance et nous sommes venus ici dans le Tyrol. Sur
 toute la route nous avons été admirablement reçus, à Milan
 surtout; mais nous avons fait des marches forcées épou_ vantables. A Milan, en arrivant, deux soldats sont tombés
 morts de fatigue et de chaleur. À Côme, on nous a fait
-laisser nos sacs; nous n'avons que le sac à pain, qui con-
-tient une chemise et une brosse, pour tout bagage. Tout le
+laisser nos sacs; nous n'avons que le sac à pain, qui contient une chemise et une brosse, pour tout bagage. Tout le
 long de la route, nous coucherons à la belle étoile, sans
 tentes, sans rien. Maintenant nous sommes face à face avec,
 les Autrichiens; nos sentinelles peuvent parler avec les leurs.
@@ -827,7 +814,7 @@ timaginer la peine que j'ai eue pour me procurer papier
 n'ayant pas de plume, je écris avec un bout de bois. La Se
 mauvaise nourriture a mis la dysenterie parmi nous, heu
 ce: reusement qu'elle m'a passé et maintenant je vais bien. a
-2 Je viens de recevoir seulement hier à la fois tes deux
+Je viens de recevoir seulement hier à la fois tes deux
 RTS lettres, celle du 11 juin contenant 30 francs, et celle du
 TE 12 juillet. Mon lieutenant m'a payé les 30 francs et je lui
 ai endossé la traite. Il était bien temps que cela arrive, car
@@ -926,7 +913,7 @@ chaud. Nous nous sommes battus à coups de boules de
 neige, et nous avons été à la chasse à l'ours..La première
 4 fois, nous ne l'avons pas vu, mais nous avons trouvé
 un mouton qu'il venait d'étrangler et que les bergers
-à: l'avaient forcé d'abandonner. Alors, le soir, nous y sommes
+l'avaient forcé d'abandonner. Alors, le soir, nous y sommes
 4 - retournés, sept hommes avec le lieutenant, et nous nous
 Et sommes mis à l'affût. Nous avons passé une partie de la
 
@@ -942,8 +929,7 @@ ce qui n'est pas agréable du tout dans ce pays de sauvages.
 .… Il paraît que l'on nous donner des médailles, mais;
 je ne suis pas sûr de cela.
 Chère mère, )
-Figure-toi que l'on nous a encore retenus dix jours à Ber-
-game pour nos congés. Maintenant je l'ai, ce n'est pas trop
+Figure-toi que l'on nous a encore retenus dix jours à Bergame pour nos congés. Maintenant je l'ai, ce n'est pas trop
 tôt! L'on nous renvoie sans aucun secours ni indemnité de
 - route, c'est à peine si l'on voulait nous payer le chemin de
 - fer; aussi j'ai été bien aise de trouver ta bonne lettre ici et.
@@ -986,7 +972,7 @@ bienfaiteur, il lui fit don du petit îlot de Caprera, près des côtes”
 
 de Sardaigne. Garibaldi s'y retira, « le libérateur de dix millions
 À d'Italiens, accompagné de ses fils et de trois amis, n'emporta de!
-à; ses conquêles que quelques plants d'arbres. »
+ses conquêles que quelques plants d'arbres. »
 En 1865, il fut nommé grand maître de la franc-maçonnerie.
 Nommé député français, il alla siéger à l'Assemblée de Bordeaux; a
 È « élue dans un jour de malheur mais il y fut insulté par les.”
@@ -1002,9 +988,7 @@ tableau peint par Lugardon. — Débuts de J. Nicole dans
 
 le professorat. — Seize ans. — Vers contre la moquerie. —
 
-Une mystification littéraire. — Vacquerie et le Roman-
-
-de Les privations, les fatigues, les dangers, rien n'avait
+Une mystification littéraire. — Vacquerie et le Romande Les privations, les fatigues, les dangers, rien n'avait
 dégoûter Fernand de la vie militaire. Aussitôt que
 sa santé fut un peu rétablie, il s'engagea à Lyon dans
 l'armée française et obtint d'être envoyé en Algérie, où.
@@ -1102,7 +1086,7 @@ débarquant à Philippeville. J'en ai été fàché, car son congé
 5 fait plaisir à M. Franq. Il a reçu Fernand de la manière la <.
 : plus aimable et l'a emmené déjeuner avec lui... Au quartier,
 Be:: il y avait une revue du général. Fernand a un peu fait
-;: connaissance avec ses nouveaux camarades et est venu me
+connaissance avec ses nouveaux camarades et est venu me
 rejoindre. Je lui ai fait voir la ville arabe qu'il n'apprécie
 , pas beaucoup. Le lundi il s'est présenté à la visite du
 ; docteur et a suivi les différents exercices de la journée. Ce
@@ -1186,8 +1170,7 @@ TRE d'aller voir la Syrie! Frs
 È DE: J'aurais voulu peindre ce petit tableau si imprévu et Eur
 54 si original: mon frère nageant et se faisant suivre de.
 LES ses deux chevaux dont il tenait les bridons dans sa
-‘ER bouche, mais j'étais aussi étonné qu'un poussin regar-
-dant un canard barbotter dans l'eau. Je n'arrivais pas "Re
+‘ER bouche, mais j'étais aussi étonné qu'un poussin regardant un canard barbotter dans l'eau. Je n'arrivais pas "Re
 É à comprendre qu'une vie aussi peu intellectuelle etun
 4 milieu aussi grossier pussent plaire à Fernand. Ainsi se.
 6 deux frères, occupés jusqu'alors des mêmes études, se:
@@ -1271,8 +1254,7 @@ aussi les contraires entrent en lutte. L'émulation et la …
 groupe en partis adverses, tous également animés de la …
 « Volonté de Puissance ».
 Parmi nous, la campagne électorale était ardente,
-lorsqu'il s'agissait de choisir un Président, un Secré-
-taire, un Trésorier (son trésor ne fut jamais bien
+lorsqu'il s'agissait de choisir un Président, un Secrétaire, un Trésorier (son trésor ne fut jamais bien
 allemands: le spirituel E. Richard qui devint un avocat très en
 6 vogue et qui joua un rôle politique important comme Conseiller
 4 d'Etat. Un peu plus avancés dans leurs études étaient nos amis de
@@ -1288,9 +1270,7 @@ répondait mal à ses graves fonctions. Il les remplissait
 
 Chaque semaine une séance littéraire nous réunissait.
 
-Le Comité avait fixé d'avance le programme des tra-
-
-vaux: Traductions, dissertations, critiques littéraires ou
+Le Comité avait fixé d'avance le programme des travaux: Traductions, dissertations, critiques littéraires ou
 
 Nous avions une section musicale, et j'ai toujours
 
@@ -1337,8 +1317,7 @@ Desdémone? Un travesti eût été ridicule; le rôle fut sans façon A
 vies parallèles d'un soldat ‘et d'un écoier.
 : Ses donne ma démission! » On le suppliait de garde
 charge, ce dont il avait grande envie, et il finissait par
-ne céder à nos instances. Cette petite comédie se renouve-
-lait si souvent qu'elle nous amusait beaucoup.
+ne céder à nos instances. Cette petite comédie se renouvelait si souvent qu'elle nous amusait beaucoup.
 Quelques désordres venaient de nous attirer la mal- …
 veillance de nos professeurs: vitres cassées, portail;
 brisé, tout cela n'avait rien de bien grave, mais une “4
@@ -1351,19 +1330,18 @@ FRE Désireux de rétablir notre bonne renommée, les étu=
 lintempérance de quelques camarades. Ils deman- …
 4 dèrent que chacun payât ses consommations person-.
 4 »elles. De des protestations indignées, au nom de la
-:; bonne camaraderie et de la solidarité.?
+bonne camaraderie et de la solidarité.?
 Pour mes débuts à la Société de Belles-Lettres,
 j'écrivis dans un petit recueil humoristiqüe, intitulé le
 Caméléon, une sorte de procès-verbal burlesque de nos
 3 orageuses discussions sur les thunes- officielles:
-2 La scène se passait en Chine; l'huile de ricin rem
+La scène se passait en Chine; l'huile de ricin rem
 plaçait la bière, et les noms des orateurs étaient faciy lement reconnaissables: Empaytaz, Roehrich, Balavoïne,
 É. Zurlinden, Léchet, étaient devenus les mandarins - À
-4 Empé-Ko, Ri-Ko, Bala-Tchiou, Zur-Lao, Ourma-Létché,
+Empé-Ko, Ri-Ko, Bala-Tchiou, Zur-Lao, Ourma-Létché,
 etc. De longs et éloquents discours étaient prononcés: à
 . 18 Zur-Lao célébrait avec enthousiasme la vérité et la
-20 franchise dont un savoureux breuvage peut seul favo-
-riser l'éclosion. Puis se tournant vers ses adversaires
+20 franchise dont un savoureux breuvage peut seul favoriser l'éclosion. Puis se tournant vers ses adversaires
 48 personnels, nos honnêtes étudiants en théologie, le si
 
 virulent et anticlérical avocat les attaquait avec une
@@ -1393,7 +1371,7 @@ grande pensée, un sentiment généreux, une émotion
 intime et profonde, quand vous sentez votre cœur es
 battre et vibrer à l'unisson, alors, en serrant la main de pus
 vous a touché, vous lui montrez que vous
-l'avez compris. »?
+l'avez compris.
 
 vies parallèles d'un soldat et d'un écolier
 Hélas, ces belles paroles furent impuissantes à déraciner d'anciennes et déplorables traditions.
@@ -1408,7 +1386,7 @@ pour n'être ni sages, ni raisonnables, ni avantageuses,
 À n'en déterminent pas moins la plupart de nos actions.
 Un député naïf qui, à la Chambre française, auraït
 l'idée saugrenue de proposer une alliance avec l'Alle-
-;; magne, ne serait pas plus mal reçu que je ne le fus,
+magne, ne serait pas plus mal reçu que je ne le fus,
 : lorsque, à l'occasion d'une grande fête cantonale,
 : (Escalade) je proposai à la Société de Belles-Lettres
 de se réconcilier avec Zoffingue, Société rivale. J'eus
@@ -1420,7 +1398,7 @@ celle de Zoffingue. Il paraît que ces mots étaient vides -
 À de sens. La haine des Grosboutiens se perpétuera éterk nellement chez les Petitsboutiens; les deux Sociétés
 ; sœurs restèrent hostiles, sans que personne püût dire
 
-4 Fourier a donné le nom de cabaliste à cet esprit de parti, qui
+Fourier a donné le nom de cabaliste à cet esprit de parti, qui
 
 , souvent ne recule pas devant l'intrigue. Il prétend que cette fougue
 : réfléchie est une passion distributive, qu'elle pourra être réglée et
@@ -1446,8 +1424,7 @@ l'évolution de ma pensée. Je devins, comme mon maître,
 
 un classique enragé et exclusif. Les coloristes m'appa_ rurent comme de dangereux tentateurs, dont l'honnêteté
 
-… n'était pas bien démontrée. J'appris que Delacroix pei-
-gnait « avec un balai ivre M. Ingres disait qu'ilnenes
+… n'était pas bien démontrée. J'appris que Delacroix peignait « avec un balai ivre M. Ingres disait qu'ilnenes
 L. ù serait pas rassuré s'il le rencontrait au coin d'un bois.
 
 L'étude de l'antique était l'unique planche de salut à
@@ -1508,7 +1485,7 @@ Un artiste passait alors sur le chemin,
 Et lui tendit la main.
 Comprenant ses regrels, ses amères pensées,
 : Il en garda le souvenir;
-4 De ses pinceaux émus il les a retracées,:
+De ses pinceaux émus il les a retracées,:
 Moins pour nous que pour l'avenir.
 
 Le M. Morizot m'avait inspiré le goût des mathéma- » tiques. La géométrie et l'algèbre me plaisaient à peu
@@ -1516,10 +1493,8 @@ près autant que le jeu des échecs et j'ai regretté plus
 « d'une fois d'avoir abandonné trop tôt ces belles études.
 - J'aimais aussi beaucoup musique, « cet exercic@æ » inconscient d'arithmétique » comme dit Leibniz. Mon
 ami Gouy, qui devint architecte, était bon musiciens,
-son père lui permettait d'aller au théâtre et je l'accom-
-pagnais, mais trop consciencieux pour négliger nos
-leçons, nous apportions le livre de Legendre, et pen-
-dant les entr'actes, alors que la plupart des spectateurs, Pan
+son père lui permettait d'aller au théâtre et je l'accompagnais, mais trop consciencieux pour négliger nos
+leçons, nous apportions le livre de Legendre, et pendant les entr'actes, alors que la plupart des spectateurs, Pan
 en bons Suisses altérés, quittaient la salle pour aller se
 rafraîchir, nous piochions bravement quelque théorème.
 La géométrie et l'opéra nous semblaient marcher très
@@ -1613,8 +1588,7 @@ jour que j'élais en retard, je trouvai mon élève en train dallumer
 lui-même, pour me faire une surprise. La bonne ayant oublié les
 brindilles, il en taillait dans une bûche avec mon rasoir. C'était la
 première fois que cet instrument servait à quelque chose et il ma
-jamais servi depuis. Trente ans plus tard, j'ai raconté cette aven-
-ke: ture à M. Alfred Vincent, Conseiller d'Etat, Président du Départe-
+jamais servi depuis. Trente ans plus tard, j'ai raconté cette avenke: ture à M. Alfred Vincent, Conseiller d'Etat, Président du Départe-
 a Ê ment de l'Instruction Pubiique. Il ne s'en souvenait plus, le mal-
 
 _!. vies parallèles d'un sol et d'un écolier
@@ -1632,7 +1606,7 @@ ET On combattit longtemps, la vallée était noire, pute
 Quand sous le ciel pensif l'on n'entendit plus rien -
 “ge Que le fracas des eaux et le chant de victoire.
 . De l'Helvétien. SRE
-08 C'est avec une sauvagerie d'un réalisme barbare que
+C'est avec une sauvagerie d'un réalisme barbare que
 4 le jeune poète décrivait le carnage et toutes ses féroces
 È 5: Et le ciel souriait. Qui venge sa patrie
 HET Aux yeux du Tout-Puissant jamais n'est trop cruel.
@@ -1691,7 +1665,7 @@ S'étonne de comprendre enfin toutes ces voix.
 À Et secouer gaîment la poudre du collège;
 ne: Dans le grand drame humain, las d'être spectateur,
 4 11 veut jouer son rôle et devenir acteur.
-2 La vie est un combat, le monde est un théâtre
+La vie est un combat, le monde est un théâtre
 Il faudra tour à tour et jouer et combattre.
 Allons! Prépare-toi, jeune homme au cœur bouillant,
 La victoire n'est pas toujours au plus vaillant,
@@ -1725,7 +1699,7 @@ Vous arrêtez à chaque pas
 - Par un rire moqueur môn âme qui s'envole.
 É J'ai besoin de la paix des bois silencieux,
 J'ai besoin d'être seul. Votre gaîté me pèse.
-É: Laissez-moi pleurer à mon aise
+Laissez-moi pleurer à mon aise
 - Et contempler longtemps les étoiles des cieux.:
 Oh, pourquoi riez-vous ainsi de chaque chose,
 Cherchant le ridicule et parodiant tout?
@@ -1806,8 +1780,7 @@ conseils, dont nous l'aurions volontiers dispensé. Malgré a
 ; vies parallèles d'un soldat et d'un écolier.
 détestable, qui consiste à « faire valoir » le moindre
 mot, ce qui est la négation même de tout naturel. Il
-avait un travers très fréquent aux hommes de sa géné-
-ration, celui d'émailler sa conversation de citations
+avait un travers très fréquent aux hommes de sa génération, celui d'émailler sa conversation de citations
 savantes; nos petites moqueuses en avaient fait de
 véritables scies: « Rien de trop! » comme dit le comte
 de Ségur. » Et le comte de Ségur endossait toutes nos
@@ -1889,7 +1862,7 @@ de d'artisie et comme une condition presque nécessaire à
 la création d'un chef-d'œuvre. Le sage Ponsard, avec
 son talent honnête et modéré, était sa bête noire, et
 c'est lui, je crois, qui est visé dans cette virulente testation contre les néo-classiques: Le
-9 É À bas les piédestaux de nos petits grands hommes,
+É À bas les piédestaux de nos petits grands hommes,
 Faquins, de vanité gorgés; nRÈEES
 Au diable les repus, crétins dormant leurs sommes
 MSN Sur l'oreiller des préjugés! À
@@ -2013,9 +1986,7 @@ l''abstinence totale n'est pas sans danger. L'hygiène,
 
 comme la morale, conseille la modération des désirs et
 
-des plaisirs, mais non le renoncement absolu. Les pas-
-
-teurs protestants, dont j'admire les belles et nombreuses
+des plaisirs, mais non le renoncement absolu. Les pasteurs protestants, dont j'admire les belles et nombreuses
 
 familles, ont trouvé dans les mariages jeuues une excel- "hi
 
@@ -2056,8 +2027,7 @@ jeunes philosophes, déjà étonnamment érudits, agitent ce”
 abs ses de la métaphysique. Je l'avouerai, au sortir à
 - de ces discussions savantes sur un passage obscur
 d'Aristote ou de Kant, je suis tenté de revenir un peu Sos
-- au sentiment de mon père; je plains presque ces ado-
-lescents penchés sur leur grimoire, et j'ai envie de leur
+- au sentiment de mon père; je plains presque ces adolescents penchés sur leur grimoire, et j'ai envie de leur
 dire: Ne voyez-vous pas qu'avril est venu? Allez donc, mA
 . mes enfants, allez cueillir les fleurs nouvelles, courez,; cat » ébattez-vous dans la prairie, dansez et jouez, faites la
 - cour aux belles filles, composez pour elles des bouquets
@@ -2082,8 +2052,7 @@ Quels sont vos projets? Où vous trouverai-je, si je puis
 m'absenter d'ici une quinzaine. Je voudrais profiter dela …
 belle saison et voir un peu la Suisse, ce qu'il m'a été impos-;
 sible de faire l'année dernière. À
-L'amnistie permit en effet à mon père de m'accom-
-pagner à Lyon lorsque, désireux d'obtenir un diplôme
+L'amnistie permit en effet à mon père de m'accompagner à Lyon lorsque, désireux d'obtenir un diplôme
 français, je me présentai à l'examen du baccalauréat.
 J'échouai dès la première épreuve. Nous avions à.
 écrire en latin un discours adressé par Louis XIV mourant à son petit-fils. (1) Or, depuis une huitaine de
@@ -2116,7 +2085,7 @@ christianisme. Célèbres autrefois pour l'austérité de leurs mœurs, PE?
 leur hospitalité, leur fidélité à la parole donnée et leur jalousie
 pour les femmes, les Druses sont divisés en initiés (ackâls) et SRE De
 ignorants (djabels). Les premiers, qui sont en très petit nombre,
-… font grand mystère de leurs croyances. à: Etes Se
+… font grand mystère de leurs croyances. Etes Se
 : arm rtine a cru trouver une ressemblance physique entre les ES
 Dru es et la race juive. L'adoralion du veau le porte à supposer
 qu'ils sont d'origine samaritaine, LETTRE
@@ -2169,9 +2138,7 @@ assassins. Les consulats européens et tous les établissements religieux furent
 
 L'indulgence de la Porte pour les auteurs de ces
 crimes excita l'indignation des puissances européennes,
-qui signèrent une convention pour arrêter les mas-
-
-sacres; 8.000 Français, commandés par le général
+qui signèrent une convention pour arrêter les massacres; 8.000 Français, commandés par le général
 Beaufort d'Hautpoul, débarquèrent à Beyrouth le
 16 août. Alors enfin, les tribunaux turcs se décidèrent
 à condamner quelques-uns des coupables, les uns à
@@ -2228,8 +2195,7 @@ plus honorables du Bas-Vendômois. — Sorti en 1839 de l'Ecole
 Militaire de Saint-Cyr, il fut, en qualité de sous-lieutenant, incor-
 : poré au 7° lanciers, où il acquit les grades de lieutenant et de
 capitaine. En 1859, il passa, avec le grade de chef d'escadron, au
-3: régiment de chasseurs d'Afrique, et, à peine arrivé à Constan-
-tine, il fut appelé à la campagne de Syrie. Le titre de chevalier de
+3: régiment de chasseurs d'Afrique, et, à peine arrivé à Constantine, il fut appelé à la campagne de Syrie. Le titre de chevalier de
 y la Légion d'honneur fut la récompense de la distinction avec
 laquelle il avait concouru à cette mission. è CES
 
@@ -2252,8 +2218,7 @@ taire; c'est au point que j'ai toutes les peines du monde FRE
 pour trouver ici un plat en terre pour le service de ma REA
 : Nous sommes établis pour passer l'hiver à Kab-Elias ES
 (tombeau d'Elie), c'est un village de la force de Saint-
-. Rimay (1) et de tout autant de ressources; aussi sommes-
-nous obligés de tout faire venir de Beyrouth, situé à de
+. Rimay (1) et de tout autant de ressources; aussi sommesnous obligés de tout faire venir de Beyrouth, situé à de
 - deux jours de marche. Il y a des magasins d'administra-
 - tion, des fours, ambulances, etc. Pour nous, nous à
 sommes campés sous la tente, au pied de la montagne, Se
@@ -2330,8 +2295,7 @@ pour moi une connaissance bien agréable, car nous vivons
 iei comme des ours. Il fait un temps magnifique, nous
 sommes obligés d'être vêtus toujours en toile, tellement il
 fait encore chaud. Maintenant nous ne sommes plus dans
-notre gourbi, on nous a donné de grandes tentes, sous les-
-quelles la pluie tombe comme dehors.
+notre gourbi, on nous a donné de grandes tentes, sous lesquelles la pluie tombe comme dehors.
 É J'ai fait connaissance de plusieurs familles maronites, aux
 à alentours, et chaque fois que j'y vais, je suis admirablement
 bien reçu: les mamans s'intéressent toutes à moi, parce
@@ -2366,8 +2330,7 @@ détruits est un des plus beaux spectacles qu'on puisse voir;
 7 on est abasourdi de l''énormité de leurs proportions et du <4
 - chaos de colonnes et de sculptures amoncelées les unes sur:
 
-À les autres. Il faut un long examen pour arriver à s'y recon-
-naître et à fixer la limite de chaque temple. Tous les orne: …
+À les autres. Il faut un long examen pour arriver à s'y reconnaître et à fixer la limite de chaque temple. Tous les orne: …
 ments de ces masses énormes sont d'un fini et d'une
 perfection de travail surprenants.:.
 
@@ -2402,23 +2365,17 @@ ruines magnifiques. « Pour en jouir, il faut monter une RUE
 pente et l'on se trouve à l'entrée d'une cour carrée,
 beaucoup plus spacieuse que la première. Là, six 2%
 
-énormes colonnes, saïllant majestueusement sur lhori-
-
-zon, forment un tableau vraiment pittoresque... L'onne
+énormes colonnes, saïllant majestueusement sur lhorizon, forment un tableau vraiment pittoresque... L'onne
 
 peut s'empêcher de remarquer l'effet singulier qui résulte
 
-mélange des guirlandes, des feuillures des chapi-
-
-teaux, et des tonffes d'herbes sauvages qui pendent de:
+mélange des guirlandes, des feuillures des chapiteaux, et des tonffes d'herbes sauvages qui pendent de:
 
 toutes parts. Enfin l'on arrive au pied des six colonnes:
 
 c'est alors que l'on conçoit toute la hardiesse de leur
 
-É élévation. » Leur fût a plus de sept mètres de circonfé-
-
-rence. La hauteur totale compris l'entablement) est
+É élévation. » Leur fût a plus de sept mètres de circonférence. La hauteur totale compris l'entablement) est
 
 - de vingt-quatre mètres. « Un second temple, situé un …
 
@@ -2445,23 +2402,19 @@ d'un couteau r'entre pas dans leurs interstices. » =.
 Ces colonnes sont en granit blanc, à grandes facettes
 luisantes. Dans la carrière qui règne sous toute la ville,
 on voit encore une pierre taillée sur trois faces qui a
-vingt-trois mètres de long. « Comment les Anciens ont-
-ils manié de telles masses? C'est un problème de méca- Ne:
+vingt-trois mètres de long. « Comment les Anciens ontils manié de telles masses? C'est un problème de méca- Ne:
 nique curieux à résoudre. Les habitants de Baalbeck
 l'expliquent commodément en supposant que cet édifice
 a été construit par les Djénoûns, ou Génies, sous les
 ordres du roi Salomon; ils ajoutent que le motif de tant
-de travaux fut de cacher dans les souterrains d'im-
-menses trésors qui y sont encore. » ne
+de travaux fut de cacher dans les souterrains d'immenses trésors qui y sont encore. » ne
 Aujourd'hui, à part deux façades du temple du Soleil
 . et quelques fragments restés debout, ce n'est plus qu'un
-amas confus de palais, d'arcs de triomphe et de por-
-tiques écroulés: « La terre est jonchée d'entablements À
+amas confus de palais, d'arcs de triomphe et de portiques écroulés: « La terre est jonchée d'entablements À
 brisés, de chapiteaux écornés, de frises mutilées, de
 bas-reliefs, de sculptures à demi effacées, d'autels
 souillés de poussière. » (1)
-Pour moi qui ne connais ces monuments que par des pho-
-tographies, leur grandeur qui étonne ne m'empêche pas d'apporter,
+Pour moi qui ne connais ces monuments que par des photographies, leur grandeur qui étonne ne m'empêche pas d'apporter,
 au point de vue du style, quelques restrictions à l'admiration
 qu'ils méritent d'ailleurs si bien. Assurément les énormes chapiteaux corinthiens de Baalbeck ne sont pas sans beauté, leurs
 feuilles d'acanthe sont encore d'une exécution large et ferme,
@@ -2474,8 +2427,7 @@ commande en chef est M. du Preuil, lieutenant-colonel du
 du 1* hussards et un de spahis, et moi ici avec deux escadrons de Chasseurs d'Afrique. Je suis sous les ordres du
 colonel Caubert, du 5° de ligne, qui commande le camp. C'est
 un charmant homme avec lequel je suis très bien. Je vis
-avec lui et les officiers de son état-major, ainsi qu'un aumô-
-nier dont on nous a gratifiés. C'est un père lazariste qui
+avec lui et les officiers de son état-major, ainsi qu'un aumônier dont on nous a gratifiés. C'est un père lazariste qui
 habite le pays depuis une quinzaine d'années et auquel'Abdel-Kader a sauvé la vie à Damas dans ces derniers troubles,
 ainsi qu'à une dizaine de sœurs de Saint-Vincent-de-Paul. Il
 nous dit la messe militaire tous les dimanches sur un autel
@@ -2487,8 +2439,7 @@ autrichiennes, arabes, etc. fort peu de françaises. Les
 ; Quelques élèves des Jésuites et des Lazaristes parlent très
 bien français. Ces deux congrégations avaient des établissements dans presque toutes les villes.
 Le costume des habitants est très pittoresque. Ils ont sur
-la tête le fez rouge ou un foulard arrangé d'une façon parti-
-de l'arc de Septime Sévère, construit à Rome à la même époque.
+la tête le fez rouge ou un foulard arrangé d'une façon partide l'arc de Septime Sévère, construit à Rome à la même époque.
 Les traditions grecques s'étaient sans doute mieux conservées en
 Orient. Cependant la décadence se manifeste par le goût pour les
 constructions colossales. « Les architectes, dit avec raison Duruy,
@@ -2630,8 +2581,7 @@ deux jours par terre à Jérusalem, au moyen de chevaux,
 mulets, bourricots du pays. Nous avons été admirablement
 
 . reçus à Jérusalem au couvent des Franciscains et chez
-M. de Barrère, consul de France, qui s'est mis à notre dispo-
-sition avec une bonne grâce et une complaisance dont nous
+M. de Barrère, consul de France, qui s'est mis à notre disposition avec une bonne grâce et une complaisance dont nous
 
 N'attendez pas que je vous fasse la description de tout ce
 que j'ai vu. Je vous dirai seulement que j'ai tout ce qu'on
@@ -2660,7 +2610,7 @@ d'œuvre du style byzantin.
 ; divisée en sept nefs. Dans l'une de ces nefs on voit s'élever une. …
 pierre énorme, celle-là même, au dire de la tradition, sur laquelle #0
 Jacob avait posé sa tête, quand il eut des songes allégoriques et Le:
-es prophétiques. »: et
+es prophétiques. et
 É (2) Voici la belle description que Chateaubriand a donnée de la
 « La vallée, comprise entre deux chaînes de montagnes, offre
 un sol semblable au fond d'une mer depuis longtemps retirée:
@@ -2759,7 +2709,7 @@ Je souhaite à Paul tous les succès que lui mérite son
 ardeur au travail. Il n'aime pas encore le bal, cela viendra.
 Que je serai done content de revoir mon Louison! Dis-lui.
 donc de m'écrire, pour que je voie si elle a fait bien des!
-progrès. Quant à Alix, j'espère bien la trouver mariée à;
+progrès. Quant à Alix, j'espère bien la trouver mariée
 mon retour de Syrie.
 
 .… Je suis revenu à Kabélias sitôt que les neiges ont
@@ -2816,8 +2766,7 @@ Notre camp était établi sur une légère éminence dans une …
 belle plaine verte qui s'étend jusqu'au lac Houlé. Asnotre
 gauche le cours du Jourdain et la Palestine. On voyait les
 ruines de la première ville frontière, Dan, dans la Bible, A
-actuellement Barias; au-dessus, celles de Césarée. Malheu-
-reusement le temps est devenu mauvais et nous n'avons Se
+actuellement Barias; au-dessus, celles de Césarée. Malheureusement le temps est devenu mauvais et nous n'avons Se
 aller les visiter. Nous comptions trouver dans cette valléeles …
 tribus arabes qui se tiennent l'hiver entre Damaset Bagdad,
 à. mais elles n'étaient pas arrivées et leurs chevaux paissaient
@@ -2847,8 +2796,7 @@ méritants que lui. Fernand met dans sa lettre une fleur
 pour Alix, c'est une giroflée du Jardin des Oliviers; ellk a Le
 : servi à faire les bouquets qui ornent le tombeau de J.-C. es
 … Votre lettre nya été remise à mon retour d'un voyage
-: que j'ai fait à Damas, où j'ai passé deux jours entiers. Fer-
-nand n'a pas trop à se plaindre, je l'avais emmené avec LA
+: que j'ai fait à Damas, où j'ai passé deux jours entiers. Fernand n'a pas trop à se plaindre, je l'avais emmené avec LA
 moi, et il peut dire qu'il a fait une excursion des plus
 agréables et des plus curieuses. )
 Nous étions quinze officiers de Beyrouth et de Kabélias, es
@@ -2903,9 +2851,7 @@ n'est pas gai. Fernand m'accompagne dans toutes ces courses.
 
 Le lendemain nous avons visité les bazars, où il serait #4
 impossible de se retrouver sans un guide. Ils sont fort riches.
-On y trouve toutes les marchandises de l'Orient et de l'Occi-
-dent, du Nord et du Sud: cotonnades, étoffes de soie, cache-
-mires, perles, ouvrages en nacre, huile de rose, fruits -
+On y trouve toutes les marchandises de l'Orient et de l'Occident, du Nord et du Sud: cotonnades, étoffes de soie, cachemires, perles, ouvrages en nacre, huile de rose, fruits -
 confits, ete. On est exposé à des tentations detoutessortes, …
 et il faut avoir du moral pour ne pas dépenser plus qu'on
 ne veut. Tout y est excessivement cher. — Fernand a acheté
@@ -2957,9 +2903,7 @@ bien empenne pour savoir ce qui dirai à un si grand chef. Il a dit
 Pour quante à monsieur Fernand il ma pas été empenne, disant
 qui parlai au nom de tous les Français massacrés, qui n'oubliron
 jamais l'homme courageux qui leurs a sauvé la vie. Et il a parlé
-comme lontant, que j'en avai la larme à l'œil tant sétai genti-
-
-ment tourné. Addèle Cadère a fait plaisire et il a dit qu'il
+comme lontant, que j'en avai la larme à l'œil tant sétai gentiment tourné. Addèle Cadère a fait plaisire et il a dit qu'il
 
 . aimait baucou la france, et il a dit que c'était un bien joly péys et
 
@@ -2981,8 +2925,7 @@ leurs demeures et venaient demander asile à nos vais: …
 ; seaux. Les troupes françaises prolongèrent leur séjour
 en Syrie jusqu'au 5 juin 1861. Bientôt les Druses con- »
 damnés à mort virent leur peine commuée en une
-déportation à Tripoli. Cinq ans après, ils furent amnis-
-tiés et rentrèrent dans leur pays.
+déportation à Tripoli. Cinq ans après, ils furent amnistiés et rentrèrent dans leur pays.
 .… Nous voici de retour en Afrique. Embarqués sur la
 frégate le Canada, nous sommes arrivés le 4 à Stora; notre.
 traversée a été très bonne. Une partie de l'escadron était
@@ -3015,8 +2958,7 @@ Cependant mon arrivée a été une vraie fête. Le soir, mes
 y joie. Après quoi ma vie monotone a recommencé. Je monte;
 à cheval le matin; puis de six heures à neuf heures, aux
 à - classes; à dix heures, la soupe; de onze heures à deux
-heures, les classes à pied, où je m'égosille; et enfin le pan-
-sage, la théorie, etc.
+heures, les classes à pied, où je m'égosille; et enfin le pansage, la théorie, etc.
 Et toi, cher frère, tâche de ne pas t'abrutir à force de
 ; travailler et d'entreprendre tant de choses à la fois. Mon
 oncle espère aller vous voir bientôt, à moins qu'il ne soit
@@ -3036,7 +2978,7 @@ D. de Baalbeck. Caravane emmenant Basseïa, chanson arabe.
 Basseïa. La nuit tombe, le Génie des ruines paraît. Il blesse …
 - Fernand et reprend Basseïa. Ce Génie des ruines est une
 basse, affreux rival de Fernand. — Troisième acte: les
-58 Cèdres du Liban. Fernand a été emprisonné dans des souter_ rains, mais Pauvre-corps saura bien le tirer de là. Faut-il
+Cèdres du Liban. Fernand a été emprisonné dans des souter_ rains, mais Pauvre-corps saura bien le tirer de là. Faut-il
 4 - que finisse bien ou mal? Les avis sont partagés. Moi je
 Dei voudrais faire mourir Basseïa, ton père ne veut pas. Cela
 me semble plus dramatique; lui trouve cela trop triste.
@@ -3046,8 +2988,7 @@ IV. — vies parallèles d'un soldat et d'un
 Le Collège. — Meû culpà. — Le choix d'un avenir.
 — Solférino. — Armistice. — Le Mont Tonale.
 — Chasse à l'ours. — Le retour.
-La Société de Belles-Lettres. — Etudes de pein-
-ture. — Un Moine, tableau peint par Lugardon.
+La Société de Belles-Lettres. — Etudes de peinture. — Un Moine, tableau peint par Lugardon.
 ; — Débuts de J. Nicole dans le professorat. —
 Seize ans. — Vers contre la moquerie. — Une
 

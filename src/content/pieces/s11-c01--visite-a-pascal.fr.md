@@ -7,14 +7,13 @@ author: andre-suares
 isAvertissement: false
 wordCount: 21379
 ---
-È; paraissant tous les deux dimanches
+paraissant tous les deux dimanches
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
-grand nombre de documents, de textes formant dos-
-siers, de renseignements et de commentaires; — un
+grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un
 si grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes: — un
 si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes,
@@ -131,8 +130,7 @@ déjà hautes, aux reflets ardoïsés, frémissaient dans la
 À plaine, où parfois l'on voyait au loin, — comme un es
 insecte en suit un autre, — une charrue guidée par un
 A mesure qu'on approche de Port-Royal, le pays se
-fait plus désert. On ne voit plus que des hameaux cou-
-chés au ras de la terre. Le plateau âpre règne; et rizon recule, grave et triste, comme tout ce qui est
+fait plus désert. On ne voit plus que des hameaux couchés au ras de la terre. Le plateau âpre règne; et rizon recule, grave et triste, comme tout ce qui est
 grand. Là, si le ciel penche un regard plus sombre,
 sourcilleux de nuages et chargé même de menaces, il
 semble seulement rendre, en miroir fidèle, lâme des
@@ -176,10 +174,9 @@ sous les yeux, et l'avaient pour lieu de promenade. IL
 ï devait leur importer peu que leurs cendres fussent ou
 à ne fussent pas en repos. On imagine même l'amer con-
 4 tentement de Pascal, s'il avait prévoir qu'on jetât
-ses au vent. Sans parler de sa joie à souffrir per-
-sécution pour la vérité et la justice, il se fût réjoui
+ses au vent. Sans parler de sa joie à souffrir persécution pour la vérité et la justice, il se fût réjoui
 : ardemment de cet outrage à la chair ennemie: et
-il y eût quelque faveur singulière qu'on eût faite à;
+il y eût quelque faveur singulière qu'on eût faite
 son âme.
 Les Messieurs de Port-Royal n'étaient point des
 K. cleres. Les uns ne s'en jugeaient pas dignes; les autres;
@@ -191,8 +188,7 @@ ne voulaient point être des moines. Ils vivaient pour
 , ou s'y résignaient. Port-Royal était leur maison de
 4 retraite. Ils y venaient approcher Dieu de plus près. Ils!
 (2, y prêtaient une oreille plus attentive qu'ils n'auraient
-: ailleurs, ni autrement. Ils y avaient leurs mille entre-
-tiens avec une puissance redoutée, et souhaitée de tous
+: ailleurs, ni autrement. Ils y avaient leurs mille entretiens avec une puissance redoutée, et souhaitée de tous
 leurs vœux, comme seule à craindre sans doute, mais
 ; seule aussi secourable. En un temps où tout homme à
 4 voulait, tôt ou tard, prendre quelque connaissance de RES
@@ -203,8 +199,7 @@ d'hommes qui se retirent en soi: car il n'en est pas, A
 À quelle qu'en soit la révolte, qui lui échappent plus; et,
 en outre, ceux qui se connaissent sans complaisance
 - sont, malgré tout, sans complaisance à connaître les
-autres. Les souverains absolus n'aiment pas cette sou-
-veraineté-là; plus elle se tait, plus elle les brave. Son
+autres. Les souverains absolus n'aiment pas cette souveraineté-là; plus elle se tait, plus elle les brave. Son
 : respect même est une forme du mépris, car il juge. Les Eh
 1° souverains, qui le sont dans l'ordre de la chair, haïssent
 la souveraineté qui est d'un autre ordre, et qui échappe A
@@ -239,8 +234,7 @@ en elle.
 Dès la porte poussée, l'on est dans les champs de
 Port-Royal. On marche au milieu d'une campagne close.
 C'est d'abord un sentier entre deux prés, où les bleuets
-fleurissent dans l'herbe verte, et où quelques coqueli-
-cots éclatent comme des cris de joie. Puis, des deux
+fleurissent dans l'herbe verte, et où quelques coquelicots éclatent comme des cris de joie. Puis, des deux
 côtés l'espace s'élargit. Le sol en pente par bonds,
 de gauche à droite, où, comme un lit, se creuse le fond
 du vallon. On fait quelques pas, et l'on découvre tout
@@ -293,8 +287,7 @@ souciait pas qu'on lui rendit un tel honneur. Si ces
 "1 bustes, du moins, n'étaient que ridicules: maisilssont
 
 d'une extrême impertinence, et celui de Pascal n'est
-nes SAC même pas décent, tant il y manque la vraie ressem-
-blance, qui est de l'âme; et tant il tient de la fatuité,
+nes SAC même pas décent, tant il y manque la vraie ressemblance, qui est de l'âme; et tant il tient de la fatuité,
 sûre de soi, où le modèle commun, qu'ils en ont sous “4
 
 LE les yeux, a fini par forcer les sculpteurs de ranger tous
@@ -316,11 +309,7 @@ M. de Saint-Cyran montre une figure déjà d'un autre
 
 d'un homme qui manie l'épée et la plume du même bras; NE à
 
-homme du temps de la Ligue, capable de faire cam-
-
-pagne, et de tenir tête à une armée; non pas un doc-
-
-teur, un théologien en armes; la barbe grise et dure, le
+homme du temps de la Ligue, capable de faire campagne, et de tenir tête à une armée; non pas un docteur, un théologien en armes; la barbe grise et dure, le
 
 teint chaud, l'air sanguin, l'accent de l'action, le pli de.
 
@@ -380,8 +369,7 @@ qui réfléchissent ardemment le spectacle de la vie: ils à
 doivent tout voir, et il n'en est pas où l'on saisisse 4 “130
 mieux le don d'imaginer. Mais si Pascal a de Descartes VEN
 et de Condé, pour les traits, — il n'a ni le jet violent de for et
-celui-ci, dont toute la figure semble lancée en bec d'oi-
-seau de proie, ni le recul défiant de celui-là, qui paraît
+celui-ci, dont toute la figure semble lancée en bec d'oiseau de proie, ni le recul défiant de celui-là, qui paraît
 . se retirer dans l'ombre, comme une chouette, et tout NE À
 . fixer de ce coin obscur, en oiseau de nuit. Il n'y a rien (498
 . qui se contredise plus que la bouche de Pascal et )
@@ -410,7 +398,7 @@ visage d'homme. Mais quand il l'a enfin trouvée, et
 192 qu'il ne la craint plus, pour l'avoir vue face à face,
 quelle paix ineffable respire son ennui. Ce n'était donc
 1? que cela? — Et quel mépris! FRET
-4 Pour me faire savoir si Pascal est mort en Jésus- nr:
+Pour me faire savoir si Pascal est mort en Jésus- nr:
 7. Christ, il ne faut que ce visage: jamais Pascal, depuis
 ONE. le jour qu'il est né, n'exprima une telle profondeur de À
 à repos. Il a reçu la main de la mort, de la main même à
@@ -418,8 +406,7 @@ de Jésus-Christ; et, donnant sa main à la mort, selon
 l'ordre de Dieu, il a mis l'autre, avec son âme et tout:
 à son être, dans la main même de Jésus-Christ. — Pascal
 vivant dit l'attente perpétuelle de ce moment. Et Pascal
-Der mort en révèle l'accueil; que le moment unique l'a ras-
-ne ) séréné pour jamais; et qu'enfin, dans un sublime ennui 1]
+Der mort en révèle l'accueil; que le moment unique l'a rasne ) séréné pour jamais; et qu'enfin, dans un sublime ennui 1]
 du monde, une route est ouverte qui mène à un repos
 sublime, où l'espoir comme la terreur, où le dédaiïn même
 a pour toujours la paix.
@@ -428,11 +415,8 @@ autres hommes. Mais il a surtout connu et pratiqué les
 siens. Cette grosse lèvre, qui s'avance épaisse et rouge,
 de n'a tout dédaigné que sur l'ordre d'une pensée toute-
 "108 puissante. Et cet ordre impérieux lui a été cruel, sans
-ed: doute. Elle a voulu peut-être s'y soustraire. Qui résis-
-
-tera à Pascal, si ce n'est Pascal même? — Mais qui
-Il a connu ses précipices; et il les a redoutés profon-
-dément, parce que la profondeur lui en était connue.
+ed: doute. Elle a voulu peut-être s'y soustraire. Qui résistera à Pascal, si ce n'est Pascal même? — Mais qui
+Il a connu ses précipices; et il les a redoutés profondément, parce que la profondeur lui en était connue.
 Pascal sait bien que tous les hommes en seraient
 s'ils pouvaient seulement soupçonner leurs abîmes. Mais,
 comme ils ne les voient même point, ils ne lesmesurent
@@ -449,8 +433,7 @@ vous vous voyez en des rivières où c'est à peine si l'on
 … le gué. Vous êtes noyés et rejetés en pourriture sur la
 rive, que vous n'avez pas encore peur de cette eau.
 Pascal est fait d'une autre sorte: il ouvre les yeux sur
-l'immense océan où il s'éveille, et il s'y voit flotter: l'in-
-fini sous les pieds; l'infini sur la tête; un infini de tous
+l'immense océan où il s'éveille, et il s'y voit flotter: l'infini sous les pieds; l'infini sur la tête; un infini de tous
 les côtés; un infini de mal, d'ignorance, de terreur et
 de peine. Pascal n'est pas comme vous, pour tâter un
 infini du pied, et chercher le gué de l'infini. Mais Pascal
@@ -475,8 +458,7 @@ le pouvait pas encore.
 — en sortant enfin de la chapelle, où il semblait ne:
 pouvoir plus s'arracher à la méditation de ce masque.
 Il en a pressenti les extrémités et l'horreur. C'est la
-raison qui l'a rendu, pour toute sa vie, si fidèle à la vé-
-nération de, gon père. M. Pascal le père avait nourri
+raison qui l'a rendu, pour toute sa vie, si fidèle à la vénération de, gon père. M. Pascal le père avait nourri
 son fils d'un aliment si fort et si chrétien, que Pascal y
 a toujours trouvé une réserve et de quoi souffrir la
 famine dans les temps où il put craindre disette de foi.
@@ -486,8 +468,7 @@ commune à la charité parfaite. De même que les
 hommes ne savent point le danger où ils sont, ils ignorent le sacrifice qu'il exige. Pascal, connaissant le
 péril, ne pouvait jamais consentir longtemps à ne point
 faire tout ce qu'il faut pour en sortir; je vous dirai,
-du reste, qu'il n'y a point de demi-vérité ni de demi-
-foi que dans les âmes médiocres. C'est la médiocrité
+du reste, qu'il n'y a point de demi-vérité ni de demifoi que dans les âmes médiocres. C'est la médiocrité
 des hommes qui assure le train du monde. Et il
 n'irait pas au delà de l'heure où nous sommes, sans
 
@@ -497,16 +478,13 @@ sent pas. de
 pauvre heure des hommes. Elle se passe; ils passent
 avec elle; et n'en demandent pas plus. Il leur suffit de
 ; ne se point voir passer. Peu de gens vivent dans la vue YA?
-à de ce terme où ils doivent aller. Et ceux qui l'entre-
-voient, comme on fait d'une croix en haut d'un tertre, A
+à de ce terme où ils doivent aller. Et ceux qui l'entrevoient, comme on fait d'une croix en haut d'un tertre, A
 ; entre deux routes, en Bretagne, détournent les yeux de!
 1 « La médiocrité, qui conserve le monde, est la même
 vanité qui sauve les hommes. Car tous les hommes Cat
 vivent de vanité. S'ils n'avaient pas mille petits soins,
 
-1 ils n'en auraient qu'un seul, qui les tuérait. C'est pour-
-
-quoi ils l'évitent: sinon eux, le misérable et magnifique
+1 ils n'en auraient qu'un seul, qui les tuérait. C'est pourquoi ils l'évitent: sinon eux, le misérable et magnifique
 
 instinct qui les attache à ce qu'ils sont. Ils veulent
 vivre; et n'en ont pas de raison plus forte, à la vérité,.;
@@ -515,9 +493,7 @@ sinon qu'ils le veulent. Admirons encore ici un des
 4 « Ceux qui ne sont médiocres en rien, ni par le cœur
 4 ni par l'esprit, se portent bientôt à contempler deux A
 
-? abîmes: le néant du monde et le néant de soi. La plu-
-
-part des grandes âmes s'arrêtent à l'un des deux pré-!
+? abîmes: le néant du monde et le néant de soi. La plupart des grandes âmes s'arrêtent à l'un des deux pré-!
 cipices, qu'elles comblent en y jetant l'autre. Et, à ne
 "1 rien dissimuler, peut-être ne peut-on vivre à moins
 d'un parti héroïque. Il faut prendre parti pour le monde À
@@ -566,15 +542,13 @@ Vous n'avez pas remarqué la puissance de ce cœur.
 : — Elle est unique, en effet. Personne ne l'a pressentie,
 si ce n'est quelque peu ses proches, et M. de Sacy. On
 devine quelque effroi mêlé à l'étonnement de ce sage
-théologien, quand Pascal lui révèle Epictète et Mon-
-taigne. « M. de Sacy ne put s'empêcher de témoigner à
+théologien, quand Pascal lui révèle Epictète et Montaigne. « M. de Sacy ne put s'empêcher de témoigner à
 « M. Pascal qu'il était surpris comment il savait tourner
 « les choses. » En ce monde, où la plupart sont si
 pauvres de cœur, qui comprendra le danger de s'en
 connaître trop riche? Tous les hommes qui veulent se
 sanctifier n'ont guère besoin d'abattre que leur esprit,
-et de ne mettre que leur chair dans les liens. L'ascé-
-tisme y suflit; la raison humiliée dans la prière, et le
+et de ne mettre que leur chair dans les liens. L'ascétisme y suflit; la raison humiliée dans la prière, et le
 ! corps réduit à la portion congrue de l'esclave, on croit
 avoir assez fait. Le triomphe de cette sainteté-là n'est
 encore pour Pascal qu'une victoire précaire. Selon moi,
@@ -591,8 +565,7 @@ donner l'aliment de vanité qu'elle réclame. Mais plus
 le cœur sera grand, plus il aura de peine à se quitter.
 
 Car n'oubliez point qu'il lui faut tout quitter en se
-« Je m'assure qu'il y a des hommes pour qui le con-
-tact d'un cilice pointu sur la peau peut être délicieux;
+« Je m'assure qu'il y a des hommes pour qui le contact d'un cilice pointu sur la peau peut être délicieux;
 y et d'autres que l'orgueil même d'une pensée profonde:
 porte à la fouler dédaigneusement aux pieds: ils ose- à
 ront rehausser à ses dépens l'instinct désordonné de la
@@ -713,12 +686,10 @@ Por: rien qui ne soit achevé. Celui qui est épris de perfec- NAT
 Le; tion n'a qu'une volonté, — qui est de la joindre, et que PEU
 
 tout contrarie. Sans cesse il y pour lui de la vie, et
-tout en ce qu'il cherche. Au cœur passionné, le déplai-
-sir de vivre s'accroît infiniment plus par la foi que par
+tout en ce qu'il cherche. Au cœur passionné, le déplaisir de vivre s'accroît infiniment plus par la foi que par
 le doute. C'est pourquoi les passionnés doutent peu:
 ils préfèrent naturellement leur ardeur triste à une joie
-tempérée. A leurs yeux, il n'est de vrai bien que le sou-
-verain bien. La morale facile est la mort de la morale, à
+tempérée. A leurs yeux, il n'est de vrai bien que le souverain bien. La morale facile est la mort de la morale, à
 et ils la haïssent. Il n'y a point de devoir si aisé, que la
 plupart du temps le contraire ne soit bien plus aisé
 encore. Tout ce qui est facile est selon la nature; et la
@@ -730,8 +701,7 @@ bien unique, enfin Dieu. Il n'aime et ne souhaite que
 Dieu; mais il voit toute la nature en révolte contre lui.
 L'homme n'y manque pas. L'homme est le prince des
 rebelles qui doit déposer les armes, et se repentir de sa
-Y rébellion. Quoi qu'on pense du reste, l'idée de sa rébellion est dans l'homme le commencement de la con-
-science, sinon de la sagesse: c'est par qu'il commence
+Y rébellion. Quoi qu'on pense du reste, l'idée de sa rébellion est dans l'homme le commencement de la conscience, sinon de la sagesse: c'est par qu'il commence
 « S'il n'avait tant de passions secrètes, Pascal ne
 les eût pas accablées toutes. Mais il les avait découvertes, et ne leur laissait pas de repos. Il connaissait
 seul le terrible rebelle qu'il avait à vaincre. Jamais il
@@ -746,8 +716,7 @@ l'exercer contre nous que de ne l'exercer pas. C'est une À
 joie aussi de la mettre dans les fers, et de l'y retenir. À
 On la sent alors, et ses bonds cruels ou ses soupirs
 dans les chaînes.
-« Souvent la nature entravée plaît à celui qui la dé-
-teste libre; elle paraît plus belle, comme l'homme dans
+« Souvent la nature entravée plaît à celui qui la déteste libre; elle paraît plus belle, comme l'homme dans
 les liens de la mort. Esclave, elle n'est plus haïssable.
 Tous les morts ont la beauté de ce qui est accompli. SA
 Le visage glacé d'un ennemi à terre, au milieu même
@@ -760,8 +729,7 @@ la claie.
 « Sa charité est pareille à l'égard des hommes. Il les
 connaît trop pour croire à leur bonté naturelle.
 n'est qu'une amorce de la méchanceté des uns à la;
-méchanceté des autres. IL voit leur perversité de na-
-ture, qui les porte au mal, et leur mollesse pour s'en
+méchanceté des autres. IL voit leur perversité de nature, qui les porte au mal, et leur mollesse pour s'en
 écarter. Il les poursuit donc tous en lui-même et il les
 enferme dans leur repaire de péchés.
 « La première démarche d'une âme pleine et libre
@@ -784,8 +752,7 @@ _glement involontaire qu'on ne croit: la vue est bornée;
 
 4 elle ne veut pas aller au delà de ces bornes; et l'erreur A
 de jugement s'ensuit. »
-Le De Le gardien ferma derrière nous les portes de la cha-
-pelle. Les lilas se balançaïent avec la même grâce le SEA
+Le De Le gardien ferma derrière nous les portes de la chapelle. Les lilas se balançaïent avec la même grâce le SEA
 : 1108 long de la muraille. La lumière inclinée prêtait une
 âme nouvelle à la campagne. La mélancolie parlait plus
 es Le) haut dans le silence, de cette voix si chère aux cœurs
@@ -801,8 +768,7 @@ Y'A mort même vêtue de neuf, et la destruction singer la
 A élever une église. On ratisse aujourd'hui les allées de
 a la mort, pour faire honneur aux promeneurs; et l'on
 commet des jardiniers aux décombres. Vous savez le
-4 luxe affreux des cimetières. J'aime les ruines, où l'inso-
-lence de la nature s'ajoute: l'une et les autres se nient.
+4 luxe affreux des cimetières. J'aime les ruines, où l'insolence de la nature s'ajoute: l'une et les autres se nient.
 de, De Pascal n'eût pas voulu de cette gloire posthume. Il suf-
 Ni 1isait qu'on vit Port-Royal en poussière et ce que c'est
 
@@ -822,9 +788,7 @@ herbe a séché sur le tertre, qui n'est séparée de la première que par cent 
 
 M. de Séipse s'informa si les étrangers visitent Port-
 
-Royal; et il apprit volontiers, du gardien, que les étran-
-
-gers ne viennent point ici. « Le bonheur est rare, fis-je.
+Royal; et il apprit volontiers, du gardien, que les étrangers ne viennent point ici. « Le bonheur est rare, fis-je.
 Ils ne peuvent comprendre Pascal. Comment sauraientils jamais que cet homme, s'il a pensé plus gravement
 que tous les autres en son temps, a toujours ajouté la
 beauté de la forme à celle de la pensée? Ils n'y peuvent
@@ -833,9 +797,7 @@ lui feront tort de l'art, barbarement.
 
 — Les étrangers, dites-vous? repartit M. de Séipse.
 Cependant, les gens de lettres y viennent depuis peu;
-et ils infligent à Pascal l'encens public de leur admira-
-
-tion. Grâce au ciel, ce n'est encore que tous les cent
+et ils infligent à Pascal l'encens public de leur admiration. Grâce au ciel, ce n'est encore que tous les cent
 ans; et voyez ce qu'ils y laissent: des caricatures coulées
 en bronze; une parodie qui se flatte d'être éternelle.
 Image de ce temps, en vérité.
@@ -861,17 +823,14 @@ Nous sommes tous les mêmes: il nous faut des esclaves;
 c'est ce que nous appelons l'amour. Quand tout paraît
 soumis au changement, les lieux, pour montrer que ce
 n'est aussi qu'une apparence, ne changent pas. Et si
-les hommes avaient un goût plus vif des choses éter-
-nelles, ils se garderaient de toucher à celles où s'attache
+les hommes avaient un goût plus vif des choses éternelles, ils se garderaient de toucher à celles où s'attache
 une mémoire unique, qui sera toujours seule, où elle
 est, et qu'on ne remplacera pas. »
 ù Nous vimes un bel arbre, isolé, qui porte le nom de
 Pascal: le noyer où Pascal vint s'asseoir. Et si ce n'est
 celui de Pascal, il faut que ce le soit; car s'il ne l'est,
 que m'importe cet arbre? Mais je crois y voir cet
-homme, terrible en pensée, accabler de mépris sa pen-
-
-sée même, et chercher pour son repos l'aide qui n'est
+homme, terrible en pensée, accabler de mépris sa pensée même, et chercher pour son repos l'aide qui n'est
 : pas refusée aux feuilles naïves. Car elles naissent sans
 : douleur au temps marqué, et tombent sans angoisse à
 l'automne. M. de Séipse, alors, me parla de la tristesse
@@ -939,9 +898,7 @@ Pascal le lui refuse. Et le peu que Descartes réserve à
 Dieu, c'est le rien même où Pascal plonge l'homme et
 
 le monde. Pascal ne doute point; il ruine l'objet du!
-doute. Pascal aflirme sans cesse, et d'une force insur-
-
-passée: c'est pour ou contre; mais toujours affirmé.
+doute. Pascal aflirme sans cesse, et d'une force insurpassée: c'est pour ou contre; mais toujours affirmé.
 
 « Entre les deux, il ne se tient point: à ses yeux, il
 n'y a que la vie: — c'est-à-dire qu'il n'y a rien. IL
@@ -956,8 +913,7 @@ devoir rien, je ne doute pas, que je sache, — de vous
 devoir quelque chose. Maïs, au contraire, je vous confonds ensemble, vous et cette dette prétendue. Non seulement je ne l'ai pas, — je vous défends de croire que
 
 je l'aie. Tant je suis sûr de ne l'avoir pas, et tant il est
-vrai! Il y a crime à la rappeler encore, si vous persé-
-vérez. Il y a crime à la philosophie de prétendre conduire l'homme, et à se flatter de rien connaître. Car,
+vrai! Il y a crime à la rappeler encore, si vous persévérez. Il y a crime à la philosophie de prétendre conduire l'homme, et à se flatter de rien connaître. Car,
 outre qu'elle ne connaît rien, elle sait qu'elle ne peut
 pas connaître. Et Pascal passe le temps à le lui prouver,
 
@@ -1003,8 +959,7 @@ cette vérité pleine. Et d'abord, sans la certitude, il ne
 peut vivre. L'homme qui vit dans l'incertitude lui semble;
 - absurde, et un prodige décevant, s'il s'y plaît. L'état où
 il trouve Montaigne le remplit d'étonnement, et lui fait
-peur. Il voit bien la force de cet esprit; mais il soup-
-çonne la faiblesse de ce cœur; et la vue de ce contraste!
+peur. Il voit bien la force de cet esprit; mais il soupçonne la faiblesse de ce cœur; et la vue de ce contraste!
 le porte au mépris. Puis, une trop grande âme est lourde;
 à subir, parfois: à de certaines rencontres, il me semble
 que Pascal accable Montaigne parce que, peut-être, il
@@ -1045,8 +1000,7 @@ le fond est unique, et qui offre, de loin en loin, des À
 me à bords opposés à des étages divers: ou l'on au fond,
 ET ou l'on se tient sur une de ces pointes. Les âmes nulles
 7140. peuvent seules flotter dans le vide intermédiaire; et pour
-: légères que soient ces plumes, elles finissent par s'ac-
-crocher aux bords, ou bien par tomber. Montaigne, qui
+: légères que soient ces plumes, elles finissent par s'accrocher aux bords, ou bien par tomber. Montaigne, qui
 PUR est si vif, erre de tous les côtés, et a aussi son lieu
 À car Montaigne est bien plus stoïque qu'on ne pense..
 mue. « Pascal, qui sait le néant de toute philosophie, en
@@ -1115,9 +1069,7 @@ Nous nous étions assis sur un tertre, au pied d'une
 
 4 croix noire, dressée au fond d'une retraite ombreuse, où
 
-l'on accède par quelques degrés de terre, sorte d'ora-
-
-toire rustique. Pascal a peut-être prié là. Il devait aimer
+l'on accède par quelques degrés de terre, sorte d'oratoire rustique. Pascal a peut-être prié là. Il devait aimer
 : passionnément la prière: toutes les puissances d'amour
 s'y portent, à qui l'on ferme les autres voies. M.de Séipse!
 reprit: « Pensez-vous qu'on puisse jamais être heureux,
@@ -1281,8 +1233,7 @@ La plus belle route à la perfection et la plus difficile,
 où presque personne ne va, est celle que le cœur ouvre,
 dans l'ascétisme, à la passion. Et rien n'est si peu
 connu, car rien n'est si rare. La passion, rare en tout, à
-l'est bien davantage quand elle se persécute pour décu-
-pler ses forces, et, quand elle les exerce uniquement
+l'est bien davantage quand elle se persécute pour décupler ses forces, et, quand elle les exerce uniquement
 afin d'en mettre la puissance doublée au service d'une
 amour parfaite. Ce feu de passion, elle l'alimente donc
 pour entretenir la flamme d'une lampe hors de toute
@@ -1301,8 +1252,7 @@ l'homme de cette fin presque divine. ne veut pas
 qu'on le range parmi les saints. Sa grandeur, pleine
 
 d'une humilité superbe, s'en confesse très indigne. Oh, ris
-que je le vois viser plus haut! Et par ce qu'il voit, lui-
-même, au fond de son cœur, comme nul autre homme
+que je le vois viser plus haut! Et par ce qu'il voit, luimême, au fond de son cœur, comme nul autre homme
 n'y a vu, ce grand chrétien s'emplit d'amertume; et,
 il tremble.
 L'ascétisme du cœur est l'exercice de l'homme qui
@@ -1321,8 +1271,7 @@ zèle décidé pour le devoir, ouvrent une vie inespérée à
 des hommes, honnêtes par nature, mais d'une vertu
 sans horizon jusque-là, et pour ainsi dire sans espoir.
 Parfois ils sont tels qu'ils font tort de leur vertu à la
-vertu même. Plus d'un sectaire froid ignore que la rai-
-son qu'il a est moins féconde que les torts qu'elle
+vertu même. Plus d'un sectaire froid ignore que la raison qu'il a est moins féconde que les torts qu'elle
 point et qu'elle combat. Il y dans la vertu qui court
 le monde, beaucoup de paille, et l'apparence seulement je
 de l'épi; faute de cœur, l'épi est vide; la moisson paraît;
@@ -1339,13 +1288,10 @@ L'ascétisme du cœur est donc une lutte et une victoire
 : continuelle. La force la plus grande s'y exerce à vaincre À
 sans cesse, pour triompher sans cesse d'elle-même.
 
-3: 2 Voilà comme est Pascal. Son image seule conte ce com-
-bat perpétuel en traits inoubliables. L'extrême tristesse
+3: 2 Voilà comme est Pascal. Son image seule conte ce combat perpétuel en traits inoubliables. L'extrême tristesse
 La de ce visage sans maigreur, la profonde attention de
 
-ce regard penché ne parlent pas d'une âme naturelle-
-
-er: ment sainte. Toute la puissance de cette âme est À
+ce regard penché ne parlent pas d'une âme naturelleer: ment sainte. Toute la puissance de cette âme est À
 
 5 cachée. Le front de l'homme fuit ce que ce regard
 
@@ -1369,10 +1315,8 @@ te en fidèle; non pas seulement en fils prosterné qui
 
 espère, ou qui craint, ou qui court au-devant de son
 
-père; mais, en propre participant des plaies. Il les res-
-
-sent aussitôt que pensées. Les extases des plus grands »
-0 Saints ne sont pas plus humbles que les siennes, et ilen
+père; mais, en propre participant des plaies. Il les ressent aussitôt que pensées. Les extases des plus grands »
+Saints ne sont pas plus humbles que les siennes, et ilen
 
 3 est de plus amoureuses. Mais leur humilité tient plus
 
@@ -1396,8 +1340,7 @@ Il ne faut pas moins pour tirer de soi un homme si (7
 fort au-dessus des autres hommes. Voilà les délices où
 toutes les autres ensemble ne se comparent point, car yat
 peut-être elles s'y anéantissent.
-C'est à les goûter seules que Pascal se destine. Il di-
-rige tout le feu de son cœur sur ce foyer. Il est brûlant,
+C'est à les goûter seules que Pascal se destine. Il dirige tout le feu de son cœur sur ce foyer. Il est brûlant,
 mème quand il paraît de glace. On ne l'a point connu AUS
 ni approché, sans l'aimer ou le haïr. Tiède en rien, il SA
 n'a pas trouvé de tièdes. Son père a pleuré de joie, dès
@@ -1421,9 +1364,7 @@ et plus il use de termes froids, plus je le sens qui se
 
 défend du trop d'amour lui-même. Ou même est-il trop pra
 
-grand pour s'en défendre: il prend le flot de cette pas-
-
-sion, il le précipite et l'accroît; mais il le détourne sur à
+grand pour s'en défendre: il prend le flot de cette passion, il le précipite et l'accroît; mais il le détourne sur à
 ce qui n'est plus rien de propre au moi. Il parle contre
 les attachements du monde, non pas en homme qui se
 dépouille, mais en avare secret, qui thésaurise un
@@ -1489,7 +1430,7 @@ l'esprit géométrique au comble de sa force. Il doit à un
 effort incroyable de la géométrie pure les fondements
 TE mêmes du calcul de l'infini. Il ne méprise donc point la
 géométrie: il l''abaïsse. Que sert d'abaisser ce qui n'est:
-A: pas très haut? — Il honore toujours Fermat; et s'il en
+pas très haut? — Il honore toujours Fermat; et s'il en
 veut à Descartes, c'est en partie que la mathématique … …
 de Descartes n'exerce pas assez l'esprit. La grandeur de
 NE l'esprit lui est chère: mais il la mesure.;
@@ -1524,16 +1465,12 @@ de Dieu implique un amour des hommes, qui puisse
 aller même à l'entier sacrifice, — mais dédaigneux de
 soi et plus encore d'eux.
 
-Pascal entretient un commerce familier avec le sé-
-pulcre. Voilà encore à quoi la solitude d'une chambre est
+Pascal entretient un commerce familier avec le sépulcre. Voilà encore à quoi la solitude d'une chambre est
 bonne. Cette intimité avec la fièvre de la mort n'a point
 du tout la froideur d'une pratique dévote; à plus forte
 raison ne l'a-t-elle pas des vues inanimées où les esprits
-sans vie se plaisent, et beaucoup de philosophes. L'entretien de Pascal avec la mort n'est pas une conversa-
-
-tion vaine; car le sépulcre, où Pascal prête sans cesse
-l'oreille, n'est pas vide. Pascal, au contraire, y voit cou-
-ché tout l'univers, qui y tient, et quaud il parle, il attend
+sans vie se plaisent, et beaucoup de philosophes. L'entretien de Pascal avec la mort n'est pas une conversation vaine; car le sépulcre, où Pascal prête sans cesse
+l'oreille, n'est pas vide. Pascal, au contraire, y voit couché tout l'univers, qui y tient, et quaud il parle, il attend
 . la réponse d'une voix éternelle.
 
 Aussi Pascal peut tout dédaigner; et, s'il le faut, se
@@ -1553,9 +1490,7 @@ SA déjà le pied, et au salut où il veut la conduire. La séducEME tion de l'i
 
 en connaissent l'espèce fragile. Il la prend avec lui; il
 
-la met entre les mains d'un prêtre, il veille à sa nourri-
-
-ture et à son vêtement; enfin il est sûr de l'avoir ôtée à
+la met entre les mains d'un prêtre, il veille à sa nourriture et à son vêtement; enfin il est sûr de l'avoir ôtée à
 
 l'abime de la chair, où elle devait tomber. Tant qu'il vit,
 
@@ -1631,8 +1566,7 @@ grandeur se fixe: elle n'est plus. DATA
 Il a été tiré de ce cahier vingt exemplaires Sur: AN
 À è whatman ainsi distribués: A TANT
 14 premier exemplaire de souche, exemplaire du gérant;
-deuxième exemplaire de souche, exemplaire de l'ad-
-troisième exemplaire de souche, exemplaire de lim- ma
+deuxième exemplaire de souche, exemplaire de l'adtroisième exemplaire de souche, exemplaire de lim- ma
 et huit exemplaires d'auteur, numérotés
 Tous nos exemplaires sur whatman sont numérotés aura
 1 à la presse et imprimés au nom du souscripteur; nos
@@ -1642,7 +1576,7 @@ Le - sur whatman en dehors de l'abonnement; l'abonnement
 A. sur whatman à cette onzième série est de deux cents
 : francs pour tous pays.
 Les Cahiers de la Quinzaine sont composés à la main,
-#4 en caractères fin dix-huitième siècle (Didot) de la fon
+4 en caractères fin dix-huitième siècle (Didot) de la fon
 LA … derie Mayeur (Allainguillaume, J. Saling et compagnie
 71 successeurs), 21,rue du Montparnasse, à Paris, sixième
 

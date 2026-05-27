@@ -114,8 +114,7 @@ achevé d'imprimer le 20 octobre 1899, un volume de
 
 les 17 derniers exemplaires, à trois francs,
 
-RomaiIN RozLanp. — Les Loups, trois actes, repré-
-senté pour la première fois au théâtre de l'Œuvre, le
+RomaiIN RozLanp. — Les Loups, trois actes, représenté pour la première fois au théâtre de l'Œuvre, le
 18 mai 1898, sous le titre de Morituri, épigraphe
 
 homo homini lupus, la scène à Mayence en
@@ -183,7 +182,7 @@ Premier cahier, du 5 janvier 1900, un cahier de
 
 Lettre du Provincial;
 
-Le « Triomphe de la République »;
+Le « Triomphe de la République
 
 L'affaire Liebknecht: un incident au premier congrès
 Liebknecht: compte rendu officiel de cet incident;
@@ -194,9 +193,7 @@ directeur de la revue die Fackel, supplément à
 l'affaire Dreyfus; un article de la Libre Parole, mardi
 5 décembre 1899, W. Liebknecht et l'affaire Dreyfus;
 un article de la Petite République, lundi 11 décembre,
-l'article de Liebknecht; un incident au punch de SaintMandé, d'après la Petite République du mardi 12 dé-
-cembre; explications, deux lettres de Liebknecht, pré-
-sentées par Gérault-Richard dans la Petite République
+l'article de Liebknecht; un incident au punch de SaintMandé, d'après la Petite République du mardi 12 décembre; explications, deux lettres de Liebknecht, présentées par Gérault-Richard dans la Petite République
 du mercredi 20 décembre; chez Liebknecht, interview
 
 Inventaire des cahiers à
@@ -211,8 +208,7 @@ cas de M. Millerand, — Liebknecht et Jules Guesde; —
 une lettre de M. Henri Vaugeois, directeur de L'Action
 française, à l'Écho de Paris: une réponse de GéraultRichard à M. Henri Vaugeois, dans La Petite République
 du dimanche 24 décembre; chez Liebknecht, troisième
-interview, dans l'Écho de Paris du dimanche 24 dé-
-cembre, le général Mercier sénateur, — en France et
+interview, dans l'Écho de Paris du dimanche 24 décembre, le général Mercier sénateur, — en France et
 en Allemagne, la situation en Allemagne, — Liebknecht
 Avant la première quinzaine: chronique financière
 de l'Aurore; départ de M. Clemenceau; l'affaire Zola,
@@ -264,8 +260,7 @@ Journal officiel; plusieurs discours de M. Vaillant et de
 M. Millerand, détail des scrutins pour les députés socialistes;
 
 Quinzaine, pour mémoire, un discours de M. Léon
-Bourgeois, prononcé au Comité d'action pour les ré-
-formes républicaines, le mercredi 10 janvier 1900, sous
+Bourgeois, prononcé au Comité d'action pour les réformes républicaines, le mercredi 10 janvier 1900, sous
 la présidence de M. Mesureur, texte emprunté au Temps
 du lendemain: Le péril, — la défense de la République,
 — les élections sénatoriales, — le « parti sans nom
@@ -334,8 +329,7 @@ une lettre du citoyen Carnaud, en réponse à l'article du
 citoyen Rouanet, courtoise réponse, adressée mon cher
 Rouanet; une lettre du citoyen Légitimus, membre du
 
-Conseil national du Parti ouvrier français, député, pré-
-sident du conseil général de la Guadeloupe, datée de
+Conseil national du Parti ouvrier français, député, président du conseil général de la Guadeloupe, datée de
 Paris, ce 18 juillet 1899, adressée mon cher Gérault;
 une lettre du citoyen E. Brunellière, datée de Nantes,
 le 16 juillet 1896, adressée mon cher Jaurès; une
@@ -377,8 +371,7 @@ République du jeudi 20, Fédération des Travailleurs
 Socialistes de France, Parti ouvrier socialiste révolutionnaire, Paris, le 18 juillet 1899, Union fédérative
 du centre, une délibération, décision, déclaration; dans
 lamême Petite République, une lettre du citoyen Bernard
-Cadenat, adressée mon cher Gérault-Richard; Secré-
-tariat général du Parti ouvrier socialiste révolutionnaire,
+Cadenat, adressée mon cher Gérault-Richard; Secrétariat général du Parti ouvrier socialiste révolutionnaire,
 une déclaration aux travailleurs; Millerand et les syndicats, adresse de félicitations pour une satisfaction
 accordée, datée de Paris, 17 juillet 1899, adressée à
 monsieur le Ministre du commerce; dans la Petite
@@ -402,8 +395,7 @@ du dimanche 6 août un article de Jaurès, pour la discussion! dans la même Pet
 des propositions faites par les diverses organisations
 au sujet du Congrès général extraordinaire du Parti
 socialiste, Parti Socialiste Révolutionnaire et Parti
-Ouvrier Français, Confédération des Socialistes indé-
-pendants, convocation des groupes, ordre du jour du
+Ouvrier Français, Confédération des Socialistes indépendants, convocation des groupes, ordre du jour du
 congrès, Fédération des Travailleurs Socialistes de
 France, Parti Ouvrier Socialiste Révolutionnaire; dans
 la Petite République du jeudi 10 août, une communication du Comité d'entente socialiste; dans Petite
@@ -431,8 +423,7 @@ Cinquième cahier, du 5 mars 1900, un cahier de
 La Consultation internationale ouverte à la Petite
 République sur l'affaire Dreyfus et le cas Millerand:
 une lettre du citoyen Anseele, député à la Chambre
-belge, datée de Gand, 14 juillet 99, chambre des repré-
-sentants, adressée mon cher Millerand, dans la Petite
+belge, datée de Gand, 14 juillet 99, chambre des représentants, adressée mon cher Millerand, dans la Petite
 République du jeudi 20 juillet; dans la même Petite
 République une citation du Vorwaerts et une citation
 de l'Avanti: dans la Petite République du mercredi
@@ -619,8 +610,7 @@ articie de M. Georges Deherme dans Coopération des
 Idées, samedi 7 avril 1900, le Correspondant et le Socialiste contre l'Université Populaire: un article du Temps,
 jeudi 12 avril 1900, rubrique au jour le jour, le projet
 
-de loi Waldeck-Rousseau sur les syndicats et les socia-
-listes, interview de Jules Guesde où se trouve la phrase
+de loi Waldeck-Rousseau sur les syndicats et les socialistes, interview de Jules Guesde où se trouve la phrase
 devenue fameuse: « Les universités populaires, elles
 ont autant d'importance que l'œuvre des petits teigneux un article de Henri Turot dans la Petite République, vendredi 13 avril 1900, Républicains; une rectification de Jules Guesde à Henri Turot, annoncée, commentée, insérée par Henri Turot dans la Petite
 République du samedi 14 avril 1900, contenant et
@@ -802,8 +792,7 @@ du même, sans couverture,
 Dixième cahier de la deuxième série, un cahier de
 72 pages, bon à tirer du jeudi 4 avril 1901:
 
-Pour les étudiants russes; appel aux étudiants fran-
-çais; meeting salle d'Arras, 3, rue d'Arras, le mercredi
+Pour les étudiants russes; appel aux étudiants français; meeting salle d'Arras, 3, rue d'Arras, le mercredi
 27 mars 1901 à huit heures et demie du soir, vote d'une
 adresse aux camarades russes; comité de solidarité
 
@@ -863,8 +852,7 @@ Georges Sorel, quelques mots sur Proudhon; réfé-
 
 Ludovic Marchand, Jean Grave et Urbain Gohier,
 dossier, daté de Paris, avril 19017; nous avons reçu
-de Jean Grave une réponse amicale à cet article, ré-
-ponse que jusqu'ici nous n'avons pas lieu d'insérer;
+de Jean Grave une réponse amicale à cet article, réponse que jusqu'ici nous n'avons pas lieu d'insérer;
 
 Le Palais du Peuple, dossier: un article de M. Gabriel Séailles dans la Coopération des idées du samedi
 7 juillet 1900, le Palais du Peuple; une afliche de
@@ -980,8 +968,7 @@ Compte rendu sténographique non ofliciel de la version française du cinquième
 MM. Corcos frères, sténographes habituels du Parti
 socialiste français, en avaient établi par nos soins la
 
-Nous avons publié cette sténographie comme les sté-
-nographes nous l'ont fournie. M. Hubert Lagardelle a
+Nous avons publié cette sténographie comme les sténographes nous l'ont fournie. M. Hubert Lagardelle a
 revu le texte. M. Sorel a bien voulu revoir les épreuves
 et annoter. Mais ils ne se sont proposé que de rester
 fidèles à la sténographie, que nous avons voulu éditer
@@ -995,8 +982,7 @@ introduction dut faire un cahier de la troisième série.
 Finalement elle ne nous est pas parvenue.
 
 M. Sorel avait aussi réservé pour la troisième série
-les quelques réflexions que son travail lui avait suggé-
-rées; nous espérons que ces commentaires trouveront
+les quelques réflexions que son travail lui avait suggérées; nous espérons que ces commentaires trouveront
 place dans ses travaux ultérieurs;
 
 cahier marqué trois francs cinquante; en dehors des
@@ -1089,8 +1075,7 @@ grève générale et révolution;
 Le socialisme et la vie;
 
 De la propriété individuelle: les radicaux et la propriété individuelle; propriété individuelle et code bourgeois; la propriété individuelle et l'impôt; la propriété
-individuelle et le droit successoral; la Révolution fran-
-çaise et le droit successoral; la propriété individuelle
+individuelle et le droit successoral; la Révolution française et le droit successoral; la propriété individuelle
 et les lois bourgeoises d'expropriation; la propriété
 individuelle et les sociétés de commerce; propriété individuelle et sociétés anonymes;
 
@@ -1134,8 +1119,7 @@ la vendons deux francs. Il nous en reste
 Sixième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du samedi 28 décembre
 
-JEAN HuGuEs. — La Grève, trois actes, pièce repré-
-sentée pour la première fois le samedi 3 novembre 1900,
+JEAN HuGuEs. — La Grève, trois actes, pièce représentée pour la première fois le samedi 3 novembre 1900,
 sur la scène de l'Émancipation, Université populaire du
 quinzième arrondissement, datée de Paris, août 1900;
 les rôles ont tous été tenus par des ouvriers; dédiée
@@ -1403,8 +1387,7 @@ lettre du même, parvenue le 31 mai, même en-tête que
 la première, intitulée fiche rectificative à joindre au
 dossier du Mouvement Socialiste (lettre de l'inculpé
 
-René Salomé, courrier de Belgique: grève dite géné-
-lundi 14, mardi 15, du mercredi 16 au vendredi
+René Salomé, courrier de Belgique: grève dite génélundi 14, mardi 15, du mercredi 16 au vendredi
 envoi du 3 juin;
 
 cahier marqué un franc; en dehors des collections
@@ -1421,8 +1404,7 @@ PIERRE QuizLARD. — Pour l'Arménie, mémoire et
 Interdiction de circuler; perception des impôts; police
 
 Inventaire des cahiers
-et prisons; installation d'émigrés sur les terres armé-
-niennes; évictions brutales, assassinats et brigandages;
+et prisons; installation d'émigrés sur les terres arméniennes; évictions brutales, assassinats et brigandages;
 complicité des beys kurdes et des autorités ottomanes;
 massacres proprement dits: Zeïtoun et Sassoun;
 
@@ -1441,8 +1423,7 @@ du nombre des vilayets; nomination des valis, garanties;
 amnistie; rentrée des émigrés; règlement des procès;
 état des prisons; haut commissaire de surveillance pour
 l'application des peines; commission permanente de
-contrôle; réparations à accorder aux Arméniens, victimes des événements du Sassoun, de Talori, etc.; conversions religieuses; maintien des privilèges des Armé-
-niens; situation des Arméniens dans les autres vilayets
+contrôle; réparations à accorder aux Arméniens, victimes des événements du Sassoun, de Talori, etc.; conversions religieuses; maintien des privilèges des Arméniens; situation des Arméniens dans les autres vilayets
 de la Turquie d'Asie;
 
 Projet de réformes administratives à introduire dans
@@ -1533,9 +1514,7 @@ Brest, assemblée constitutive le premier décembre 1900,
 prit plus tard le nom de Solidarité, René Litalien,
 secrétaire de l'U.
 
-au mois de février dernier, le président Ledoux, le secré-
-
-dernier, a inauguré ses conférences le 19 novembre sui-
+au mois de février dernier, le président Ledoux, le secrédernier, a inauguré ses conférences le 19 novembre sui-
 
 Épernay, l'Émancipation intellectuelle, C. Lœvwenguth,
 secrétaire général de l'U. P. d'Épernay (Marne);
@@ -1558,14 +1537,12 @@ Marseille, Le Foyer du Peuple, fondée dans le courant
 du mois de février 1901, Emile Roubaud, secrétaire
 général du Foyer du Peuple:
 
-Montauban, 24 avril 1901, fin juin 1900 extension, statuts adoptés par l'autorité administrative le 22 dé-
-cembre 1900, alors intitulé Solidarité, association
+Montauban, 24 avril 1901, fin juin 1900 extension, statuts adoptés par l'autorité administrative le 22 décembre 1900, alors intitulé Solidarité, association
 laïque d'éducation populaire, pour la Solidarité de
 Montauban le secrétaire général;
 
 Montpellier, la Société d'enseignement populaire,
-fondée en 1898, Bouniol; du 4 août 1901 détails complé-
-mentaires sur le Mazet du peuple, Louis Planchon:;
+fondée en 1898, Bouniol; du 4 août 1901 détails complémentaires sur le Mazet du peuple, Louis Planchon:;
 
 Reims, 3 mai 1901, séance d'inauguration le 3 juillet
 1900, le secrétaire général E. Lesourd;

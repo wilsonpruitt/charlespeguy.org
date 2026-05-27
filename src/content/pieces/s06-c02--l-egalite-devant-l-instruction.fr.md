@@ -51,17 +51,14 @@ Les Commissaires de Ledru-Rollin.
 Peuples de l'Europe après la Révolution de Février. —
 Départ des bandes républicaines vers la frontière. —
 ; Massacre des colonnes belges.
-Indécision du Gouvernement. — Fausses mesures finan-
-cières. — Dons patriotiques offerts par le Peuple.
+Indécision du Gouvernement. — Fausses mesures financières. — Dons patriotiques offerts par le Peuple.
 à Impôt des 45 centimes.
 
 La circulaire de Ledru-Rollin. — Conspiration des bonnets
 
 Journée du 17 mars. — Marche du Peuple vers l''Hôtel-de-
 
-; Ville. — Conférence des délégués du Peuple avec le Gouvernement provisoire. — Lamartine promet l'ajourne-
-
-ment des élections et l'éloignement de l'armée. — Le
+; Ville. — Conférence des délégués du Peuple avec le Gouvernement provisoire. — Lamartine promet l'ajournement des élections et l'éloignement de l'armée. — Le
 
 Le Gouvernement provisoire écarte l'influence de Blanqui,
 
@@ -81,9 +78,7 @@ la garde nationale. — Rappel de l'armée. — Toute-puissance de la réaction.
 Troubles en province à l'occasion des élections. — Victoire;
 pacifique du peuple de Limoges. — Massacres de Rouen.
 
-Réunion de l'Assemblée nationale. — Acclamation una-
-
-nime de la République. — Le Gouvernement provisoire
+Réunion de l'Assemblée nationale. — Acclamation unanime de la République. — Le Gouvernement provisoire
 rend ses comptes. — On lui vote des remerciments. —
 Protestation de Barbès.
 
@@ -112,8 +107,7 @@ Blanc pour faire sortir le Peuple. — Huber prononce la
 
 dissolution de l'Assemblée nationale.
 
-. Les Représentants quittent la salle des séances. — On pro-
-pose un gouvernement provisoire. — Barbès et Albert
+. Les Représentants quittent la salle des séances. — On propose un gouvernement provisoire. — Barbès et Albert
 3 sont entraînés à l'Hôtel-de-Ville par le Peuple. — La.
 garde nationale ne leur oppose aucun obstacle.
 
@@ -131,20 +125,16 @@ gardes nationaux tirent les uns sur les autres au passage
 La Commission exécutive se met aux ordres de la réaction.
 — Ses insinuations contre Caussidière. — Rapport contre
 : Loi contre les attroupements. — Nouvelles élections. —
-Importance donnée à M. Louis Bonaparte par les mala-
-dresses de la Commission exécutive.
+Importance donnée à M. Louis Bonaparte par les maladresses de la Commission exécutive.
 Efforts des Républicains pour empêcher une insurrection.
-— Mgnœuvres des royalistes pour rendre la lutte inévi-
-table. — Rôle équivoque de la Commission exécutive.
+— Mgnœuvres des royalistes pour rendre la lutte inévitable. — Rôle équivoque de la Commission exécutive.
 Mauvaise organisation des ateliers nationaux. — Attaques
 continuelles de lAssemblée contre les ouvriers. — La
 Commission exécutive, par une mesure violente, donne
 à le signal de l'insurrection.
-Conférence entre Marie et les délégués des ateliers natio-
-naux. — Préparatifs de la Commission exécutive. —
+Conférence entre Marie et les délégués des ateliers nationaux. — Préparatifs de la Commission exécutive. —
 Résistance de Cavaignac. — Ressources du pouvoir.
-Journée du 93 juin. — Étendue de l'insurrection. — Modéra-
-tion du Peuple. — Premiers combats à la porte SaintDenis, au faubourg Poissonnière, et aux abords de la
+Journée du 93 juin. — Étendue de l'insurrection. — Modération du Peuple. — Premiers combats à la porte SaintDenis, au faubourg Poissonnière, et aux abords de la
 
 Journée du 24 juin. — Proclamation de l'état de siége et de
 la dictature militaire, — Suppression des journaux.
@@ -185,7 +175,7 @@ Massacre du Carrousel. — Translation des prisonniers
 É. dans les forts. — Leurs souffrances. — Derniers masPA.. sacres.
 é É Punition des vaincus. — Anéantissement de la Montagne.
 à — Pierre Leroux et Caussidière parlent de clémence. —
-6 Article de Lamennais contre la terreur. — Article de
+Article de Lamennais contre la terreur. — Article de
 à Proudhon en faveur des insurgés. 5)
 ! Toute-puissance des royalistes. — Commission d'enquête.
 1 — Commissions militaires. — Conseils de guerre. —
@@ -194,8 +184,7 @@ Dictature militaire. — Vote de la Constitution sous l'état
 de siège. — Contre-coup des journées de juin en Europe.
 — Élection du Président. — Promesses d'amnistie. — État
 de la France.
-; I. — Adrastée; poème de Louis Ménard, écrit après l'in-
-surrection de Juin 1848; II. — Le procès; en feuilleton dans
+; I. — Adrastée; poème de Louis Ménard, écrit après l'insurrection de Juin 1848; II. — Le procès; en feuilleton dans
 : le Peuple, de Proudhon; samedi 3 mars 1849, Ménard et le
 gérant Duchêne cités à comparaître; trois délits; dans le
 Peuple du 4 mars 1849, une lettre de Louis Ménard au cih toyen secrétaire de la rédaction du Peuple; dans Le Peuple
@@ -205,9 +194,7 @@ lundi 2 avril 1849 un long article de Louis Ménard, Prologue d'une Révolution,
 à plaire du Prologue d'une Révolution qui appartient à la
 ; Bibliothèque de l'Institut, une lettre, manuscrite, du père
 de Louis Ménard; procès appelé devant la Cour d'assises
-de la Seine à l'audience du 7 avril 1849; prévenus deman-
-
-nard de Franc fait opposition; conclusions de la défense;
+de la Seine à l'audience du 7 avril 1849; prévenus demannard de Franc fait opposition; conclusions de la défense;
 répondu par la Cour; plaidoirie Madier de Montjau; protestation de Louis Ménard; réponse du jury; arrêt;
 
 dans le même cahier;
@@ -327,8 +314,7 @@ populaires; organisation générale; enseignement et éducation; institutions an
 régionales; signée pour les Membres de la Commission
 provisoire d'organisation, H. Ablonet, Charles Guieysse; le
 Secrétaire de la Fédération des U. P., Paul Kastor; réunion du 13 mars; adhésions provisoires; deuxième cir-
-; eulaire; comité; but du congrès; plan des travaux; orga-
-nisation générale; institutions annexes; enseignement et
+; eulaire; comité; but du congrès; plan des travaux; organisation générale; institutions annexes; enseignement et
 éducation; fêtes et distractions; fédérations départementales et régionales; programme du congrès; adhésions;
 signée pour le Comité, Le Secrétaire, H. Ablonet; liste des à
 Universités populaires qui ont envoyé leur adhésion;
@@ -346,8 +332,7 @@ annexes; lecture par le camarade Clair, rapporteur;
 nages; mutualités; conclusions; avant discussion du;
 1 rapport, discussion sur mode de votation; non vote;
 k. surtout congrès d'études; utile de se compter; ne
-pourront voter que les délégués d'Universités popu-
-laires et de Fédérations; discussion; rapports des
+pourront voter que les délégués d'Universités populaires et de Fédérations; discussion; rapports des
 ; Universités populaires avec les syndicats; avec les
 Coopératives: avec les Groupes politiques; avec les
 , Rapport de la première commission, organisation
@@ -361,8 +346,7 @@ des cotisations; projet de constitution d'une caisse trale de subventions; dans 
 4 financière et administrative; tableaux synoptiques;
 4 désignation des Universités populaires; moyens finanKa ciers; cotisations; membres actifs; membres adhérents
 K. ou participants; membres honoraires; dons, subven-
-4 des Universités populaires, nombre d'Universités popu-
-laires adhérentes et recouvrements; compte des disponi-
+4 des Universités populaires, nombre d'Universités populaires adhérentes et recouvrements; compte des disponi-
 : bilités de la fédération parisienne des Universités popu-
 
 . vingtième cahier de la cinquième série
@@ -399,9 +383,7 @@ sociétés des auteurs dramatiques et des auteurs, compo-
 
 de musique, de chant et de déclamation; promenades,
 
-excursions, visites; caisse de voyages; cercles de lec-
-
-acquisition de livres; échange régulier de livres;
+excursions, visites; caisse de voyages; cercles de lecacquisition de livres; échange régulier de livres;
 
 discussion; le Mans, Lyon; la Fraternelle; banquet,
 
@@ -419,9 +401,7 @@ Kastor; toutes les Universités populaires recherchent
 les moyens d'entretenir entre elles des rapports aussi
 
 ; fréquents que possible; elles reconnaissent la puissance
-d'action des groupements et loin de repousser la for-
-
-mation de Fédérations, quelques-unes concluent logiquement à créer, après la Fédération Nationale, une
+d'action des groupements et loin de repousser la formation de Fédérations, quelques-unes concluent logiquement à créer, après la Fédération Nationale, une
 Fédération Internationale des Universités populaires
 ou organisations similaires; Auvers-sur-Oise; Fontenay-en-Vendée; Fédération post-scolaire des DeuxSèvres; le Mans; Montreuil; la Fraternelle rejette
 la création d'une fédération nationale; discussion,
@@ -445,8 +425,7 @@ annexées à la suite des travaux du Congrès; dix vœux
 acceptés; cinq vœux renvoyés pour examen jusqu'après
 la fondation de la Fédération nationale des Universités:
 
-une communication Jeunesses laïques; une commu-
-nication Exposition de Saint-Louis;
+une communication Jeunesses laïques; une communication Exposition de Saint-Louis;
 
 remerciements de Maurice Bouchor président aux
 congressistes; un souvenir ému à la mémoire d'Emile
@@ -471,8 +450,7 @@ De la cinquième série, nous avons, à la date d'au-
 É. Jjourd'hui, un nombre de collections complètes restreint;
 3 l'abonnement ordinaire ne cessant de fonctionner pour
 4 chaque série que le 31 décembre qui suit l'achèvement
-de cette série, on peut encore, du 2 octobre au 31 dé-
-cembre 1904, avoir les vingt cahiers de la cinquième
+de cette série, on peut encore, du 2 octobre au 31 décembre 1904, avoir les vingt cahiers de la cinquième
 série complète pour le prix d'un abonnement ordinaire
 à la cinquième série, soit vingt francs
 à partir du premier janvier qui suit l'achèvement d'une
@@ -491,8 +469,7 @@ pour dix mille exemplaires de ce premier cahier le
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 
 ï CAHIERS DE LA QUINZAINE, 8, rue de la Sorl bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordiR à naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordiR à naires; la souscription ne confère aucune autorité sur
 ; la rédaction ni sur l'administration; ces fonctions
 A Nos Cahiers paraissent par séries; une série parait
 4 dans le temps d'une année scolaire, d'une année
@@ -565,15 +542,13 @@ devant l'instruction
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Nous avons publié dans nos cing premières séries,
-; 1900-1904, un si grand nombre de textes et comF mentaires, de documents et renseignements, de contri-
-butions, de dossiers et de travaux portant sur l'ensei-;
+; 1900-1904, un si grand nombre de textes et comF mentaires, de documents et renseignements, de contributions, de dossiers et de travaux portant sur l'ensei-;
 gnement, sur les méthodes, en particulier sur l''ensei-
 ? gnement populaire, sur le Théâtre du Peuple, sur les
 : Universités populaires, sur la crise de l'enseignement,
 sur les instituteurs et le péril primaire, sur le monopole
 de l'enseignement, sur les trois ordres d'enseignement,
-sur toutes les questions annexes, et ces textes, com-
-dossiers, travaux étaient si considérables que nous
+sur toutes les questions annexes, et ces textes, comdossiers, travaux étaient si considérables que nous
 : ne pouvons pas songer à en donner ici l'énoncé même
 - le plus succinct; pour savoir ce qui a paru dans les
 cinq premières séries des cahiers, il suffit d'envoyer
@@ -583,10 +558,7 @@ administrateur des cahiers, 8, rue de la Sorbonne, rez-
 recevra en retour le catalogue analytique sommaire,;
 1900-1904, de nos cinq premières séries. ù à
 Ce catalogue a été justement établi pour donner,
-autant qu'il se pouvait, une image en bref, un rac-
-courci, une idée, abrégée, mais complète, de nos édi-
-
-tions antérieures et de nos cinq premières séries; louty
+autant qu'il se pouvait, une image en bref, un raccourci, une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; louty
 est classé dans l'ordre; il suffit de le lire pour trouver, De
 à leur place, les références demandées.
 Ce catalogue forme un cahier très épais de
@@ -604,8 +576,7 @@ fait la demande.
 L'Aperception du corps humain par la conscience,;
 La Psychologie de l'Effort et les doctrines contempo-
 Les Études dans la Démocratie, in-8&.
-Le Pessimisme: Histoire et Critique, traduit de l'an-
-glais de James Sully,
+Le Pessimisme: Histoire et Critique, traduit de l'anglais de James Sully,
 : L'Immortalité chez les Panthéistes: Plotin, Spinoza,
 Science et Psychologie; Nouvelles Œuvres inédites
 ; de Maine de Biran, in-8&.
@@ -613,11 +584,10 @@ Lexique de Philosophie, in-8°.
 Principes de Philosophie scientifique et de Philosophie
 
 François Rude, in-#4°, avec gravures.
-5 L'Éducation intellectuelle, morale, physique, traduit
+L'Éducation intellectuelle, morale, physique, traduit
 
 de l'anglais de Herbert Spencer, in-12. à
-Se La Monadologie; les Nouveaux Essais sur l'Entende-
-ment humain, de Leibniz (édition classique).
+Se La Monadologie; les Nouveaux Essais sur l'Entendement humain, de Leibniz (édition classique).
 ee. Le De Vità beatà de Sénèque (édition classique).
 La Déclaration des Droits de l'homme et du citoyen:
 Extraits des « Séances et Travaux de l'Académie des Sciences
@@ -634,8 +604,7 @@ Les trois études que l'on lire sont unies entre elles
 et forment un ensemble beaucoup plus par la répétition
 obstinée des mêmes soucis, par l'insistance des mêmes
 préoccupations, que par une composition extérieure et
-artificielle; mises en formes dans des circonstances dif-
-férentes, et pour des auditoires différents, elles ne sont
+artificielle; mises en formes dans des circonstances différentes, et pour des auditoires différents, elles ne sont
 ni exactement complémentaires en ce sens qu'elles se
 compléteraient l'une l'autre, ni exactement complémentaires en ce sens qu'elles ne se recouvriraient pas l'une
 l'autre; d'une part elles sont fort loin d'épuiser tout le
@@ -664,8 +633,7 @@ comme utilité,
 La première de ces études, la gratuité dans l'ensei- À
 gnement secondaire, formait un discours prononcé
 14 devant la Commission d'enseignement du Congrès des
-républicains radicaux et radicaux-socialistes, le 11 oc-
-tobre 1902; on pourra dès les premiers mots mesurer
+républicains radicaux et radicaux-socialistes, le 11 octobre 1902; on pourra dès les premiers mots mesurer
 LE de combien ce discours dépassait l'auditoire auquel il
 (4 était adressé; on regrettera que le parti radical et
 1 radical-socialiste, au lieu de courir les aventures
@@ -712,20 +680,17 @@ entre la politesse vieux parlementaire et froidement,
 ennuyée d'un président sans convictions, et le sourd
 entêtement d'un professeur qui sait ce qu'il veut dire, et
 qui dit ce qu'il veut dire.
-è On sait que la Commission parlementaire des 33 dé-
-putés avait pour Président M. Ribot, député du Pas-de-;
+è On sait que la Commission parlementaire des 33 députés avait pour Président M. Ribot, député du Pas-de-;
 Calais, ancien Président du Conseil; vice-présidents
 MM. Gustave Isambert et Édouard Ayÿnard; le jour de;
-la déposition de M. Bertrand, c'était M. Ribot qui pré-
-sidait la séance, président extrêmement courtois, mais
+la déposition de M. Bertrand, c'était M. Ribot qui présidait la séance, président extrêmement courtois, mais
 dont le siège, semble-t-il, était fait.
 La troisième étude, l'organisation rationnelle des
 à Universités populaires, formait une communication au
 congrès de la Ligue française de l'Enseignement, en un
 temps où cette organisation était un peu plus française,
 ; et un peu plus de l'Enseignement, qu'aujourd'hui, etoù
-elle était un peu moins une Ligue; vingt-deuxième con-
-grès national, tenu à Lyon du 25 au 28 septembre 1902;
+elle était un peu moins une Ligue; vingt-deuxième congrès national, tenu à Lyon du 25 au 28 septembre 1902;
 elle forme une intéressante monographie d'une institu-
 
 _tion lyonnaise; on sait combien Lyon a une vie locale,
@@ -768,15 +733,10 @@ mis en sous-titre crise de l'enseignement.
 
 Tels sont en effet les graves soucis de l'auteur; pour-"
 quoi l'inégalité devant l'instruction, devant la culture;
-pourquoi cette inégalité sociale; pourquoi cette iné-
-quité; pourquoi cette injustice; pourquoi le haut ensei-
+pourquoi cette inégalité sociale; pourquoi cette inéquité; pourquoi cette injustice; pourquoi le haut ensei-
 
 ; gnement à peu près fermé, pourquoi la haute culture à
-enfants du peuple; s'il n'y avait d'interdit que l'ensei- « gnement secondaire, il n'y aurait peut-être que demi-
-
-mal, et demi-faute; mais en France et dans la société « moderne l'enseignement secondaire est le presque iné-
-vitable chemin par où l'on passe pour monter à l'enseignement supérieur, à la haute culture, au haut ensei-
-gnement; pourquoi cette inégalité originelle; et quels « remèdes. À
+enfants du peuple; s'il n'y avait d'interdit que l'ensei- « gnement secondaire, il n'y aurait peut-être que demimal, et demi-faute; mais en France et dans la société « moderne l'enseignement secondaire est le presque inévitable chemin par où l'on passe pour monter à l'enseignement supérieur, à la haute culture, au haut enseignement; pourquoi cette inégalité originelle; et quels « remèdes. À
 
 Surtout que l'on ne croie point qu'il s'agisse, ici, des.
 vieux faux soucis romantiques bourgeois sur l'inégalité
@@ -813,8 +773,7 @@ en mains une étude de lui, un essai de cosmologie
 
 : sociale, les Thèses Monadolog'iques de G. Tarde; et son
 P.-J. Proudhon et les Lyonnais, (lettres inédites), par
-? A. Bertrand, professeur à l'Université de Lyon, corres-
-pondant de l'Académie des Sciences Morales et Polik tiques, extrait du compte rendu de l'Académie des
+? A. Bertrand, professeur à l'Université de Lyon, correspondant de l'Académie des Sciences Morales et Polik tiques, extrait du compte rendu de l'Académie des
 Sciences Morales et Politiques (institut de France),
 par MM. Henry Vergé et P. de Boutarel, sous la )
 ; direction de M. le Secrétaire perpétuel de l'Académie,
@@ -824,14 +783,12 @@ Paris, Alphonse Picard et fils, éditeurs, 82, rue Bonaparte, 82, 1904; docteur 
 ces l'Enseignement supérieur municipal, correspondant de
 l'Institut: tels seraient les titres de vanité que son édi- à
 ; teur aligneraïit au titre de ses volumes pour des ouvrages
-È destinés au célèbre grand public, à la vanité, à l'inexis-
-tence du fameux grand public; c'est de titres beaucoup
+È destinés au célèbre grand public, à la vanité, à l'inexistence du fameux grand public; c'est de titres beaucoup
 plus précieux que l'auteur de ce cahier se réclame
 auprès du public particulièrement averti de nos cahiers.
 « Ma caractéristique, au point de vue de-notre publi- À
 cation, » m'écrivait-il récemment en me renvoyant ses
-épreuves, « c'est d'avoir acquérir quelque compé-
-tence en ces matières par l'expérience: 1°, de trois ou
+épreuves, « c'est d'avoir acquérir quelque compétence en ces matières par l'expérience: 1°, de trois ou
 quatre collèges où j'ai été professeur à mes débuts:
 Roanne, alors Collège, maintenant Lycée, Brives (la
 Gaillarde sans parler d'Annecy où je n'ai fait que
@@ -847,15 +804,13 @@ théorie en philosophe. Personne plus que moi n'a misla
 main à la pâte et les choses de près, par l'expé-
 
 « Voilà, je crois, ce qui peut donner quelque autorité
-à ce que j'écris sur la Crise. Je vous avoue... »:
+à ce que j'écris sur la Crise. Je vous avoue...
 
 Je prie qu'on fasse attention aux quelques lignes qui
 suivent: on a trop oublié, Clemenceau le rappelait
 excellemment dans ce discours pour la liberté dont
 nous avons fait le corps du cinquième cahier de la cinquième série, Georges Clemenceau, discours pour la
-_liberté, certains professeurs et les partisans du mo-
-
-nopole du gouvernement de l'État dans l'empire de
+_liberté, certains professeurs et les partisans du monopole du gouvernement de l'État dans l'empire de
 l'enseignement ont trop oublié que ce sont les parents
 qui font les enfants; il est bon que nos professeurs
 n'oublient point qu'il y a des pères; ne sont-ils pas
@@ -908,9 +863,7 @@ vient de fonder au Lycée Henri un prix Georges
 de rhétorique supérieure qui sera le plus fort en latin,
 ayant obtenu le plus grand nombre de points pour
 l'ensemble de ses compositions latines, discours ou
-dissertation, ne saura jamais ce qu'était celui qu'à « Lakanal nous nommions familièrement, et familia-
-
-lement, et filialement le père Édet; je le dis à ce jeune
+dissertation, ne saura jamais ce qu'était celui qu'à « Lakanal nous nommions familièrement, et familialement, et filialement le père Édet; je le dis à ce jeune
 rhétoricien, si jamais ces lignes lui tombent sous les
 yeux; ce jeune rhétoricien croira que ce vieux père
 Édet était un vieux prof, cérémonieux, latiniste et
@@ -963,15 +916,11 @@ ils faisaient leur métier.
 
 jeunes pleins de zèle ne mettent dans la circulation
 
-Ô Ils ne défendaient point la République dans les mee-
-
-tings républicains; ils n'étaient point révolutionnaires
+Ô Ils ne défendaient point la République dans les meetings républicains; ils n'étaient point révolutionnaires
 
 ; à deux mille francs par mois; ni libres-penseurs pour
 
-: devenir papes; ils n'étaient point braves dans les ban-
-
-quets, et intrépides au moment des toasts; mais de tout
+: devenir papes; ils n'étaient point braves dans les banquets, et intrépides au moment des toasts; mais de tout
 
 leur enseignement, de tout leur exemple, de toute leur
 
@@ -981,8 +930,7 @@ leur enseignement, de tout leur exemple, de toute leur
 
 : lendam esse virtutem, qui seule fait la force des Répu-
 
-Heureux temps: ni la pourriture politique parlemen-
-taire, ni l'effroyable tartufferie bourgeoise, politicienne,
+Heureux temps: ni la pourriture politique parlementaire, ni l'effroyable tartufferie bourgeoise, politicienne,
 
 3 arriviste, n'avaient envahi les corps de métier, les
 corps de travail, les compagnies de compagnons, les
@@ -992,8 +940,7 @@ Dans les tristesses du temps présent, et particulièrement dans les tristesses 
 
 plus grandes consolations que j'aie conservées que la
 consolation et l'encouragement que je reçois de la:
-paternelle bienveillance de mes vieux maîtres; la plu-
-part des maîtres qui ont formé ma jeunesse ont bien À
+paternelle bienveillance de mes vieux maîtres; la plupart des maîtres qui ont formé ma jeunesse ont bien À
 voulu m''accompagner dans le rude labeur de ces
 cahiers; quelques-uns nous ont fait des cahiers mêmes;
 la plupart sont abonnés; et comme ils me corrigeaient
@@ -1005,8 +952,7 @@ de la littérature valait 17; je les rencontre aujourd'hui
 dans la rue, devant la boutique, dans cette vieille rue
 de la Sorbonne, devant la neuve Sorbonne, et paternellement ils me donnent des conseils; et hochant la tête
 me tiennent des propos qui reviennent à ceci: Votre
-dernier cahier ne valait pas plus de 12; mais au pré-
-cédent, — ici la voix baisse un peu, — au précédent
+dernier cahier ne valait pas plus de 12; mais au précédent, — ici la voix baisse un peu, — au précédent
 Nos jeunes gens ne connaîtront jamais ces puits de
 véritable science, et de tels abîimes de probité; l'autre
 jour un de ces maîtres qui me sont le plus chers était
@@ -1032,10 +978,7 @@ que le sens, que le texte même, ce qui est peut-être le
 ; plus caractéristique et le plus personnel, étant de
 l'homme même, le ton; je reconnais dans ces cahiers
 
-les voix mêmes que nous avons connues; des plaisan-
-teries qui me rajeunissent de quinze ans; et des répé-
-
-titions de plaisanteries qui étaient inlassables comme
+les voix mêmes que nous avons connues; des plaisanteries qui me rajeunissent de quinze ans; et des répétitions de plaisanteries qui étaient inlassables comme
 des révolutions cosmiques.
 
 Nos jeunes gens connaîtront-ils jamais de telles
@@ -1077,11 +1020,9 @@ société qui ne s'aime pas; qui ne s'estime pas; et tel
 est précisément le cas de la société moderne.
 
 Les parasites politiques parlementaires de tout le
-travail humain, les politiciens de la politique et de l'en-
-seignement ont beau célébrer la science et le monde
+travail humain, les politiciens de la politique et de l'enseignement ont beau célébrer la science et le monde
 ? moderne et la société contemporaine en des ripailles
-4 cérémonielles; ni la chaleur communicative des ban-
-quets, ni les décorations et les discours programmes et
+4 cérémonielles; ni la chaleur communicative des banquets, ni les décorations et les discours programmes et
 : Les toastset les manifestations et les distributions d'eau
 « bénite laïque ne font une humanité, un enseignement,
 
@@ -1124,9 +1065,7 @@ humanité; et quand un démagogue scientiste met une
 
 pee grande à Science, ne nous y laissons pas tromper;
 
-; c'est que cette grande dans les remords de son arrière-
-
-conscience, fait un remplacement; elle remplace tout ce
+; c'est que cette grande dans les remords de son arrièreconscience, fait un remplacement; elle remplace tout ce
 
 qui, dans l'esprit du démagogue, ou du pédagogue, c'est
 
@@ -1138,9 +1077,7 @@ tout un, manque à la science pour exercer la fonction
 
 4 prétendue insuffisance qui garantit la science auregard
 
-du véritable savant, comme si cette impuissance impo-
-
-litique de la science n'était pas, aux yeux du véritable
+du véritable savant, comme si cette impuissance impolitique de la science n'était pas, aux yeux du véritable
 
 ; savant, sa marque même, la cause de sa grandeur émi-.:
 nente, la condition de sa dignité.
@@ -1218,8 +1155,7 @@ examen de conscience; que la science, que l'art, que
 : la philosophie se débarrasse des politiciens, que le
 socialisme, que le monde ouvrier se débarrasse des
 politiciens, que l'enseignement se débarrasse des politiciens, que le premier dreyfusisme revienne à sa
-pureté première, se débarrasse des politiciens; peut-
-être alors des hommes qui ne mentiront pas auront-ils
+pureté première, se débarrasse des politiciens; peutêtre alors des hommes qui ne mentiront pas auront-ils
 quelque droit de parler à la jeunesse; et n'y ayant plus
 cette crise de vie, peut-être alors n'y aura-t-il plus de
 crise de l'enseignement.
@@ -1304,8 +1240,7 @@ où s'opère la fabrication industrielle; on ne saurait
 È croire à quel point généralement les intellectuels et
 5 particulièrement les universitaires ignorent ou mécon-
 È 1 naissent les dures, les exigeantes, les écrasantes condiFi tions de toute production industrielle, de tout travail
-économique; on ne saurait croire à quel point ils igno-
-rent ou méconnaissent l'irrévocable lourdeur des servi_ tudes matérielles.:
+économique; on ne saurait croire à quel point ils ignorent ou méconnaissent l'irrévocable lourdeur des servi_ tudes matérielles.:
 ; Ce n'est point un reproche que je leur fais; c'est une
 À excuse que je leur présente.
 Beaucoup de mes anciens camarades, normaliens,
@@ -1332,19 +1267,15 @@ aujourd'hui, seulement, de ce que depuis plus de six
 « mois et presque toujours et depuis presque toujours j'ai
 négligé ma correspondance particulière; si nos correspondants particuliers se représentaient exactement,
 étant donnés les moyens dont nous disposons, étant
-à donné le personnel que nous sommes, ce que repré-
-sente pour nous de travail industriel, de responsabilité
+à donné le personnel que nous sommes, ce que représente pour nous de travail industriel, de responsabilité
 commerciale, de travail administratif la fabrication, la
 4 publication de toute une série, en particulier ce que
-Ë. représentait la fabrication, la publication d'un tel cata-
-logue analytique sommaire, loin de s'étonner que ma
-correspondance particulière ne soit pas tenue perpé-
-tuellement à jour, ils s''étonneraient au contraire que je
+Ë. représentait la fabrication, la publication d'un tel catalogue analytique sommaire, loin de s'étonner que ma
+correspondance particulière ne soit pas tenue perpétuellement à jour, ils s''étonneraient au contraire que je
 puisse, de loin en loin, songer sérieusement à m'y atteler
 pour la remettre au courant. À
 Cette ignorance de la servitude industrielle avait pris
-au commencement des cahiers une forme particuliè-
-rement joyeuse; pendant les trois premières séries et
+au commencement des cahiers une forme particulièrement joyeuse; pendant les trois premières séries et
 même au cours de la quatrième, — et hier encore on
 me l'a dit une fois, mais c'était avec bonté, — il n'était
 point rare qu'un bon camarade, me rencontrant remonXXXIT:
@@ -1407,9 +1338,7 @@ prendrez-vous les ressources nécessaires? — Ce sera
 
 précisément, me dit-il en confidence, l'objet de mon
 
-premier discours à la Chambre. Vous allez voir com-
-
-bien c'est simple: j'affecte à ma réforme la totalité du
+premier discours à la Chambre. Vous allez voir combien c'est simple: j'affecte à ma réforme la totalité du
 
 (1) Discours prononcé devant la Commission d'enseignement du
 Congrès des républicains radicaux et radicaux-socialistes, le
@@ -1423,8 +1352,7 @@ effet: pour peu que cette mentalité particulière se
 généralise, combien ma solution laborieuse paraître
 étriquée, insignifiante, ridicule. Je ne jongle pas avec
 les millions du budget; je ne réclame la gratuité ni de
-l'enseignement secondaire, ni de l'enseignement supé-
-rieur. Je me contente de mettre à profit la récente
+l'enseignement secondaire, ni de l'enseignement supérieur. Je me contente de mettre à profit la récente
 réforme de nos lycées et collèges pour rendre accessible, même aux enfants des familles les plus pauvres,
 une des sections, la quatrième, de nos études secondaires réformées. Par quei moyen? Par la gratuité,
 sans doute; il n'y en a pas d'autre; mais par une gratuité que je ne décrète pas, que je trouve déjà toute
@@ -1434,8 +1362,7 @@ créer dans les Écoles primaires supérieures, qui sont
 gratuites, la quatrième section, la section (scienceslangues vivantes) du second cycle des études secondaires de nos lycées et de nos collèges. J'avoue que je
 porte la hache sur les cloisons étanches qui séparent le
 primaire du secondaire; j'ouvre par même aux fils
-de paysans et d'ouvriers la porte des études supé-
-rieures qui leur permettront, sans l'aumône toujours
+de paysans et d'ouvriers la porte des études supérieures qui leur permettront, sans l'aumône toujours
 un peu humiliante et aléatoire des bourses, d'aspirer à
 légalité par en haut, égalité dans la haute culture
 intellectuelle, égalité pour les hauts emplois qui
@@ -1463,9 +1390,7 @@ les ramène à trois pour abréger. D'abord, le réformateur, tiraillé entre le
 réclamations des littéraires, obsédé par l'irritant procès du latin et du grec, n'a pas déterminer le centre
 de gravité des études modernes. Sont-elles, dans leur
 fond, scientifiques ou littéraires? Il a répondu: l'un et
-l'autre; je les veux souples jusqu'à la fluidité, éclectiques jusqu'à l'indifférence. Où est l'armature inté-
-
-rieure ou, si j'ose le dire, le squelette? Il affecte même
+l'autre; je les veux souples jusqu'à la fluidité, éclectiques jusqu'à l'indifférence. Où est l'armature intérieure ou, si j'ose le dire, le squelette? Il affecte même
 de l'ignorer; les os, les muscles, les nerfs, la chair, il
 
 É ne voit tout cela qu'en gros et ne distingue vaguement
@@ -1493,8 +1418,7 @@ hérésie que les foudres, non de Reme et des conciles,
 mais de Paris et des pédagogues, s'efforcent vainement
 : de détruire et de pulvériser.
 En second lieu, le réformateur ne s'est pas aperçu
-: qu'avec sa quadrifurcation, il restaurait tout simple-
-ment la bifurcation inventée par Fortoul. Que dis-je, il
+: qu'avec sa quadrifurcation, il restaurait tout simplement la bifurcation inventée par Fortoul. Que dis-je, il
 4 ne se contente pas de la restaurer, il l'aggrave prodigieusement. Les pères de famille mettront trois ans à
 s'en apercevoir, mais quand ils s'en seront aperçus, ce
 seront de beaux cris de protestation. Remarquez, en
@@ -1512,8 +1436,7 @@ bifurcation Fortoul, rien n'était moins rare que de voir
 un élève passer des lettres aux-sciences ou des
 sciences aux lettres. Il y avait un fossé à sauter, mais
 non pas un abîme à franchir. Désormais il n'en est plus
-ainsi: pour réparer l'insuflisance des études soit litté-
-raires, soit scientifiques, il faudrait presque recommencer ses études. Et vous sentirez toute la portée de
+ainsi: pour réparer l'insuflisance des études soit littéraires, soit scientifiques, il faudrait presque recommencer ses études. Et vous sentirez toute la portée de
 cette critique, pratiquement la plus grave qu'on puisse
 faire au nouveau régime, si vous vous rappelez que
 c'est à douze ou treize ans que le jeune élève, par une
@@ -1522,25 +1445,21 @@ scientifique. En entrant en troisième, il faut faire le
 saut: devine si tu peux, et choisis si tu l'oses! Quelle
 aberration et quelle méconnaissance de la psychologie
 de l'enfant naturellement peu réfléchi et qui se déci-
-: dera, ses aptitudes n'étant encore qu'en germe, qu'em-
-bryonnaires, par l'entraînement de l'exemple, pour des
+: dera, ses aptitudes n'étant encore qu'en germe, qu'embryonnaires, par l'entraînement de l'exemple, pour des
 motifs encore plus légers, parce que.le nez de tel pro-
 è fesseur lui aura déplu. C'est plus qu'un crime, c'est une
 
 faute d'avoir condamné un innocent à chercher à tâtons,
 fatalement exposé à être écrasé par Le lourd quadricycle.
-Et qui le guidera, qui pourra le conseiller avec compétence et certitude? Personne; et c'est mon sième grief: il n'a plus à proprement parler de profesf seur attitré, il a des répétiteurs, des maîtres de confé-
-rences. Tel est le morcellement des matières enseignées
+Et qui le guidera, qui pourra le conseiller avec compétence et certitude? Personne; et c'est mon sième grief: il n'a plus à proprement parler de profesf seur attitré, il a des répétiteurs, des maîtres de conférences. Tel est le morcellement des matières enseignées
 qu'à chaque heure du jour on voit le maître en quête
-de son troupeau, l'élève à la recherche de son profes-
-seur. C'est la caractéristique, au point de vue propre-
+de son troupeau, l'élève à la recherche de son professeur. C'est la caractéristique, au point de vue propre-
 : ment pédagogique, du nouveau régime: Damiens, le
 régicide, ne fut écartelé qu'à quatre chevaux; notre
 élève est tiraillé entre une dizaine de professeurs qui
 se relayent d'heure en heure. C'est l'ahurissement élevé
 à la hauteur d'une méthode. Si vous demandez à un
-LE petit lycéen quel est son professeur, il hésite, il bal-
-butie, il vous en nomme trois ou quatre; si vous
+LE petit lycéen quel est son professeur, il hésite, il balbutie, il vous en nomme trois ou quatre; si vous
 demandez au proviseur quel est le professeur principal
 de la classe de votre fils, il consulte un tableau, compte
 les heures de service et finalement finit par vous avouer
@@ -1583,9 +1502,7 @@ l'humanité, ici condensée en brèves formules, développée en amples et savan
 lointaines époques, l'enseignement était intégral; et
 même, qui dit université, dit au fond la même chose
 qu'enseignement intégral. Rien donc de paradoxal et
-de trop ambitieux dans cette dénomination: l'ensei-
-
-gnement primaire doit lui-même être un enseignement
+de trop ambitieux dans cette dénomination: l'enseignement primaire doit lui-même être un enseignement
 É intégral, le résumé mis à la portée des enfants de tout
 l'essentiel de la science de notre siècle.
 Mais il s'agit ici d'un enseignement secondaire. Que
@@ -1593,9 +1510,8 @@ signifie ce mot? Pas autre chose que ceci: l'ensei-
 ! gnement qui fait suite à l'enseignement primaire; il
 ; nous est parfaitement loisible de l'appeler primaire
 supérieur. En quoi supérieur? L'enseignement primaire
-est, de toute nécessité, empirique et pratique: empi-
-rique, parce que le tout jeune enfant ne raisonne pas à
-;: perte de vue; pratique, parce que les connaissances
+est, de toute nécessité, empirique et pratique: empirique, parce que le tout jeune enfant ne raisonne pas à
+perte de vue; pratique, parce que les connaissances
 ! nécessaires sont les premières qu'il faut dispenser à
 ES tous. L'enseignement secondaire, qui le continue, sera,
 par progrès et opposition, scientifique et théorique:
@@ -1616,9 +1532,7 @@ développer méthodiquement toutes les facultés ou puisre sances des esprits pa
 ï Voir l'Enseignement intégral, Paris, Alcan.
 
 Loin de moi la pensée de vous exposer par le menu
-le régime d'éducation intégrale qui remplacera certai-
-
-nement à plus ou moins longue échéance le régime des
+le régime d'éducation intégrale qui remplacera certainement à plus ou moins longue échéance le régime des
 cycles: je l'ai trop longuement développé en deux
 in-octavo pour éprouver la moindre tentation d'y revenir une fois de plus. Mais je tiens à prouver que s'il
 paraît utopique à des yeux prévenus et aveuglés par la
@@ -1651,8 +1565,7 @@ déception! Le paradoxe était depuis près de cinquante ans singulièrement dé
 . gouverné la classe des travailleurs: loi d'égoïsme, dans
 l'antiquité, qui ne voyait dans l'ouvrier que l'esclave,
 dans l'esclave que l'outil, machine animée dont il fallait
-tirer, en évitant toutefois les excès de violence qui bri-
-seraient les rouages, le parti le plus profitable possible;
+tirer, en évitant toutefois les excès de violence qui briseraient les rouages, le parti le plus profitable possible;
 ‘dt loi d'amour, avec le christianisme, qui annonce à vrier cette bonne nouvelle qu'il est plus qu'un outil ou
 à une machine, qu'il est notre frère inférieur, comme
 l'animal, qu'il faut le ménager dans ses œuvres seril viles, condescendre à sa dure destinée, par esprit de
@@ -1673,9 +1586,7 @@ l'exploitation égoïste et brutale. Qu'est-ce que la dignité
 1 personne. Ayant conquis par la liberté sa personnalité,
 par la personnalité sa dignité, le travailleur désormais
 est « par lui-même ». Non seulement il s'appartient et
-cesse d'être l'homme d'un autre homme, mais il s'aper-
-
-çoit qu'il est devenu, en fin de compte, le grand dispensateur des biens que la civilisation donne ou promet.
+cesse d'être l'homme d'un autre homme, mais il s'aperçoit qu'il est devenu, en fin de compte, le grand dispensateur des biens que la civilisation donne ou promet.
 Et dès lors surgit dans sa conscience réfléchie cette
 tion, flétrissure, le travail n'est rien de tout cela. Il est
 temps de fouler aux pieds les vieux préjugés et de se
@@ -1712,8 +1623,7 @@ intellectuel ni dans son sens pour ainsi dire manuel
 : cette profonde sentence de Proudhon: démocratie c'est
 démopédie, c'est-à-dire éducation du peuple.
 
-Voici le rêve: les enfantements de l'industrie devien-
-nent les fêtes de l'humanité; la plus longue vie, en
+Voici le rêve: les enfantements de l'industrie deviennent les fêtes de l'humanité; la plus longue vie, en
 consacrant une heure par jour à la répétition de chaque
 
 découverte, n'en épuiserait pas la nomenclature; si la
@@ -1770,9 +1680,7 @@ se perfectionnent, remarque Proudhon, moins l'ouvrier
 vaut, moins pour une tâche égale il est payé. Il y a
 baisse forcée de salaires relativement au prix de la vie,
 et cela en dépit des grèves, des règlements, des tarifs,
-de l'intervention du pouvoir, en dépit même des asso-
-
-ciations ouvrières. Il faut donc changer de tactique. Il
+de l'intervention du pouvoir, en dépit même des associations ouvrières. Il faut donc changer de tactique. Il
 faut, pour relever la condition de l'ouvrier, commencer
 
 par relever sa valeur. « Hors de point de salut, que
@@ -1784,8 +1692,7 @@ moyen eflicace: le libérer dès ses premières années par
 un apprentissage qui embrasse la totalité du système
 industriel au lieu de n'en saisir qu'un cas particulier. Il
 faut en outre organiser l'atelier de telle sorte que les
-ouvriers en soient vraiment les pièces vivantes, intelli-
-gentes et, pour ainsi dire, interchangeables. En deux
+ouvriers en soient vraiment les pièces vivantes, intelligentes et, pour ainsi dire, interchangeables. En deux
 È mots: « Apprentissage polytechnique et accession à
 tous les grades, voilà en quoi consiste l'émancipation
 du travailleur ».
@@ -1846,8 +1753,7 @@ la meilleure définition qu'on ait donnée de l'homme,
 une intelligence servie par des organes, une activité
 incorporée dans des organes qui en relèvent et en cen-
 à tuplent la puissance. C'est la pensée de J.-J. Rousseau
-É à singulièrement amplifiée et transposée en langage socio-
-logique: il faut qu'Émile ait un métier, sous peine de
+É à singulièrement amplifiée et transposée en langage sociologique: il faut qu'Émile ait un métier, sous peine de
 n'être un homme qu'à demi. C'est une « philosophie du
 travail » d'une haute portée individuelle et sociale, mais
 2 on mettra vraisemblablement un quart de siècle à la
@@ -1856,8 +1762,7 @@ puisque depuis un demi-siècle qu'elle est émise per-
 É sonne que je sache ne semble s'être aperçu qu'il y a
 à une trouvaille de génie.
 Proudhon ne doutait pas de sa fécondité: « Les
-conséquences d'une semblable pédagogie seraient incal-
-culables. Abstraction faite du résultat économique, elle
+conséquences d'une semblable pédagogie seraient incalculables. Abstraction faite du résultat économique, elle
 modifierait profondément les âmes et changerait la face
 de l'humanité. Tout vestige de l'antique déchéance s'effacerait; le vampirisme transcendantal serait tué,
 l'espèce prendrait une physionomie nouvelle, la civili-
@@ -1886,8 +1791,7 @@ simplement greffée sur une réforme peut-être un peu
 hâtive et fragile, dont le succès définitif est encore aléatoire, d'exiger que tout en s'harmonisant avec cette
 réforme qui est le fait actuel, elle la dépasse pourtant,
 s'en affranchisse, se réclame d'un système d'études que
-tout notre développement historique, que les considé-
-rations rationnelles les plus sûres et les autorités philosophiques les moins contestées, nous donnent comme
+tout notre développement historique, que les considérations rationnelles les plus sûres et les autorités philosophiques les moins contestées, nous donnent comme
 l'aboutissement inévitable de ce mémorable débat
 pédagogique qui vient, pendant quatre années, de
 
@@ -1931,8 +1835,7 @@ supérieure une difficulté redoutable surgit. Vous connaissez ce jeu de bascule
 l'apologie des lettres, tantôt un orateur qui fait l'éloge
 non moins lyrique des sciences: je n'ai pas besoin de
 vous dire que le premier est un professeur de rhétorique, le second un professeur de mathématiques, que
-le jeu est aussi régulier que la succession des millé-
-simes pairs ou impairs et qu'il ne finira vraisemblablement qu'avec le grand concours. Il y a de même en ce
+le jeu est aussi régulier que la succession des millésimes pairs ou impairs et qu'il ne finira vraisemblablement qu'avec le grand concours. Il y a de même en ce
 qui concerne l'École primaire supérieure des soubresauts et des sautes de vent. Selon les préférences du
 rapporteur annuel du budget, à la Chambre des députés, on nous déclare tantôt qu'elles sont des écoles de
 culture générale, tantôt qu'elles sont des écoles professionnelles ou d'apprentissage. Finira-t-on par s'entendre? Aurons-nous un nouveau champ de discussions byzantines, comme celles du classique et du
@@ -1954,9 +1857,7 @@ profession et dont il pourrait tirer un profit immédiat.
 RUE Il de soi que, pour créer ces cours professionnels, il
 et faudrait laisser toute initiative au conseil des profes-
 É seurs et à l'administration locale. » Aux yeux de ces
-3 professeurs expérimentés, et qui voient de près la réanil lité des choses et les besoïns des familles, l'école priL maire supérieure est donc une école de culture géné-
-rale complétée, selon les besoins régionaux, par l'ad-
-jonction de cours professionnels qui peuvent varier
+3 professeurs expérimentés, et qui voient de près la réanil lité des choses et les besoïns des familles, l'école priL maire supérieure est donc une école de culture générale complétée, selon les besoins régionaux, par l'adjonction de cours professionnels qui peuvent varier
 Tout le monde, il est vrai, ne les envisage pas sous
 É cet aspect. En voici la preuve dans un fait tout récent
 qui se rattache à la réforme de l'enseignement seconde: daire. On vient de créer un certificat d'études seconde daires élémentaires ou du premier degré pour les
@@ -1967,8 +1868,7 @@ réservé aux élèves qui ont achevé le cours de lécole
 primaire supérieure. Dans ces dénominations, quelque
 peu surchargées d'épithètes, il saute aux yeux qu'élementaires abaisse pour ainsi dire d'un degré le mot
 secondaires, tandis que supérieures élève à son tour
-a. d'un degré le mot primaires. Pourquoi ces deux certi-
-ficats, qui ont bien la prétention de désigner deux cultures différentes, de donner deux droits inégaux? Je
+a. d'un degré le mot primaires. Pourquoi ces deux certificats, qui ont bien la prétention de désigner deux cultures différentes, de donner deux droits inégaux? Je
 sais bien qu'entre la note supérieure bémolisée et la
 note inférieure diézée, les musiciens reconnaissent une
 : différence qu'ils désignent par le nom de comma. Mais
@@ -1977,8 +1877,7 @@ cette minime différence sufit-elle vraiment pour altérer,
 léquivalence du certificat de l'école gratuite et du
 certificat de l'école payante? J'ajoute que si vous ne à
 tenez pas compte du grec et du latin, que l'on n'étudie
-que dans certaines sections de l'enseignement secon-
-daire, les programmes qui sont seuls comparables,
+que dans certaines sections de l'enseignement secondaire, les programmes qui sont seuls comparables,
 ceux de l'enseignement primaire supérieur et ceux de
 la section du premier cycle de l'enseignement secondaire, donnent une très notable supériorité, du moins
 pour l'ampleur, aux premiers. Il y a plus qu'une anomalie, un véritable déni de justice; vous avez fait des
@@ -2066,25 +1965,17 @@ le nom d'écoles industrielles ou d'écoles commerciales,
 
 c'est-à-dire d'écoles professionnelles, qui fut écarté
 
-comme trop étroit et limitatif, excluant presque la cul-
+comme trop étroit et limitatif, excluant presque la culture générale et vraiment éducative. Je note sous l''Em-
 
-ture générale et vraiment éducative. Je note sous l''Em-
+pire l'exclamation d'un député impuissant à se reconnaître au milieu de la confusion des langues: on avait
 
-pire l'exclamation d'un député impuissant à se recon-
-
-naître au milieu de la confusion des langues: on avait
-
-discuté en séance sur l'enseignement spécial et profes-
-
-sionnel et le compte rendu portait les enseignements
+discuté en séance sur l'enseignement spécial et professionnel et le compte rendu portait les enseignements
 
 spéciaux et professionnels. Voilà, s'écria notre homme,
 
 avec une indignation plutôt comique, un pluriel qui est
 
-bien singulier! On a mis la langue française à la tor-
-
-ture sans pouvoir la forcer à fournir une appellation
+bien singulier! On a mis la langue française à la torture sans pouvoir la forcer à fournir une appellation
 
 adéquate et de tout point satisfaisante. Guizot eût aimé
 
@@ -2116,15 +2007,13 @@ En scrutant l'espèce et la lettre des programmes de nos
 ; à leur avantage: ils sont trop touffus, comme tous nos
 ‘.; programmes, mais ils sont remarquablement élaborés,
 et ne constituent nullement, comme on l'a quelquefois
-4 avancé sans en donner la moindre preuve, une « con-
-trefaçon » de l'enseignement secondaire. Qu'on ne
+4 avancé sans en donner la moindre preuve, une « contrefaçon » de l'enseignement secondaire. Qu'on ne
 À m'objecte pas que le grec et le latin ont encore droit
 d'asile dans nos collèges. Il serait superflu et presque
 ï cruel d'approfondir l'objection: dans le collège, Le latin
 ; se meurt, le grec est mort.
 Je me serais bien gardé d''insister si longuement sur
-une simple question de nom si d'une part elle n'enve-
-loppait une question de définition, puisque les mots ne
+une simple question de nom si d'une part elle n'enveloppait une question de définition, puisque les mots ne
 
 sont que les étiquettes des choses; si, d'autre part, la
 désignation vicieuse qui a été choisie, et qui s'est maintenue contre toute raison, n'exposait périodiquement
@@ -2157,8 +2046,7 @@ sera bon pour la thériaque! » disait l'apothicaire à son
 apprenti. La thériaque, vous le savez, c'était le grand;
 bocal à panacée: un mélange de tous les remèdes
 n'est-il pas un spécifique propre à guérir toutes les
-maladies? Par malheur nous croyons encore aux thé-
-riaques pédagogiques, aux panacées de toutes les
+maladies? Par malheur nous croyons encore aux thériaques pédagogiques, aux panacées de toutes les
 ignorances! Pour ne pas sortir des comparaisons pharmaceutiques, laissez donc à vos maîtres le temps nécesfi saire pour extraire de l'écorce de quinquina son principe
 actif, la quinine, afin qu'ils ne soient pas réduits à forcer
 1 leurs élèves, comme les malades d'autrefois, à mâcher
@@ -2196,8 +2084,7 @@ outillées; elles n'auront jamais ni trop de maîtres nitrop
 d'élèves. Mais rien ne serait plus aveugle que de les
 multiplier au détriment de la culture générale, au
 moment surtout où nous voyons, par l'essor même du
-machinisme, l'ouvrier devenir ingénieur, ingénieur-
-nieur c'est le mot à la mode, dans le langage usuel
+machinisme, l'ouvrier devenir ingénieur, ingénieurnieur c'est le mot à la mode, dans le langage usuel
 comme dans les comédies et dans les romans; mais ce
 mot implique une culture générale, suppose des connaissances théoriques. Et je n'entends pas dire simplement que notre premier métier c'est notre métier
 d'homme. Je veux dire que toute technique se fonde sur
@@ -2224,19 +2111,16 @@ de se dévêtir et de se jeter à l'eau: ilse noya. Son dernier
 : mot fut un sarcasme contre la sage déesse qui s'atse tardait à tracer des figures sur le sable du rivage.
 Quand elle eut achevé ses croquis et ses calculs, elle
 à abattit quelques arbres, les assembla en radeau, sefit,
-+4 è dit-on, une voile de la chemise de Gribouille et, tra-
-versant le bras de mer, arriva promptement au terme
++4 è dit-on, une voile de la chemise de Gribouille et, traversant le bras de mer, arriva promptement au terme
 à de son voyage. A vouloir persuader son compagnon,
 Mte Minerve avait perdu son grec.
 
 Voici donc à quelle conclusion aboutit toute cette
 4 suite d'arguments à la fois pédagogiques et politiques.
 e. Nous voyons distinctement, quoique encore dans le
-lointain, le régime d'enseignement intégral qui succé-
-dera, dans l'enseignement secondaire, au régime avantui coureur et trop « dispersif » des cycles; tous les jeunes
+lointain, le régime d'enseignement intégral qui succédera, dans l'enseignement secondaire, au régime avantui coureur et trop « dispersif » des cycles; tous les jeunes
 Français appelés à ces études recevront la même in-
-à struction à base commune de sciences, diversifiée seu-
-lement par la complète liberté d'option au sujet de
+à struction à base commune de sciences, diversifiée seulement par la complète liberté d'option au sujet de
 l'étude des langues soit anciennes, soit modernes, étude
 considérée non comme un accessoire, mais comme un
 2 indispensable complément, au double point de vue de
@@ -2245,10 +2129,8 @@ la culture de l'esprit et de l'utilité pratique, de l'étude
 des sciences. Nous reconnaissons, convaincus par un
 examen attentif de leur origine et de leur évolution, a
 par l'analyse exacte de leurs conditions d'existence
-dans notre système d'enseignement général et profes-
-sionnel, que nos Écoles primaires supérieures sont de SA
-part, nous nous heurtons à ce dilemme: l'opinion ré-
-clame impérieusement, au nom de l'égalité et de la à
+dans notre système d'enseignement général et professionnel, que nos Écoles primaires supérieures sont de SA
+part, nous nous heurtons à ce dilemme: l'opinion réclame impérieusement, au nom de l'égalité et de la à
 justice, la gratuité des études secondaires; tandis que
 notre budget ne peut en supporter la dépense, dans
 l'état actuel de nos finances. A un député qui proposait
@@ -2277,8 +2159,7 @@ course aux emplois, la curée des places, dont nous souf-
 : 10 aurons tout à l'heure à examiner. Dépense: presque
 nulle; et si je ne dis pas nulle absolument, c'est que je
 À ne veux pas être rangé parmiles naïfs qui croient qu'on
-, peut faire quelque chose sans argent. Il faudrait proba-
-blement créer dans nos Écoles primaires supérieures
+, peut faire quelque chose sans argent. Il faudrait probablement créer dans nos Écoles primaires supérieures
 ee. une année d'études complémentaires, mais le cours
 ordinaire des études ne serait nullement modifié:
 1 l'école garderait son caractère actuel et son diplôme -
@@ -2303,16 +2184,14 @@ résulteraient de cette réforme si minime en apparence,
 : 3 si grosse de conséquences en réalité, j'ai à peine besoin
 :. de vous l'indiquer. Vous avez, comme moi, entendu
 
-hier vos plus vibrants orateurs s'élever avec une véhé-
-mence presque inquiétante et contre l'inamovibilité de
+hier vos plus vibrants orateurs s'élever avec une véhémence presque inquiétante et contre l'inamovibilité de
 nos magistrats et contre la constitution de nos conseils Fée
 de guerre. Pourtant, d'où sortent, dans un pays d'éga-;
 lité, les juges civils et les chefs militaires, sinon du
 peuple? Et comment, dès lors, s'expliquer que leurs
 sentences et leurs actes provoquent la colère destribuns
 du peuple? Dire qu'il y a deux France, comme il y a
-deux jeunesses, celle de l'Université et celle des Con-
-grégations, c'est effleurer, ce n'est pas approfondir le À
+deux jeunesses, celle de l'Université et celle des Congrégations, c'est effleurer, ce n'est pas approfondir le À
 problème. En réalité, nos chefs civils et militaires ont
 tous ce trait commun qu'ils sortent de l'enseignement:
 secondaire, parce que l'enseignement secondaire ouvre
@@ -2323,8 +2202,7 @@ coûte très cher et requiert de longues années d'études.
 élus, représentants: le prolétariat sent confusément
 qu'en obéissant aux chefs civils et militaires ce n'est pas
 précisément à lui-même qu'il obéit. De ses révoltes:
-l'enseignement secondaire gratuit, c'est la condam-
-nation, c'est la fin, du moins théoriquement, d'une
+l'enseignement secondaire gratuit, c'est la condamnation, c'est la fin, du moins théoriquement, d'une
 situation anti-sociale et pleine de périls. Il ne faut pas
 simplement l'octroyer au peuple, il faut le déclarer un
 droit du peuple, le rachat et la rédemption de la pau- À
@@ -2366,13 +2244,11 @@ d'oublier ceux qui luttent encore. Qu'il se sente non
 Le plus isolé, supporté et dédaigné, mais entouré de
 
 tête et, avec la fierté, vous le verrez reprendre la volonté
-etl'audace. Qu'un seul puisse s'élever, avantage indivi-
-duel socialement insignifiant; que tous le puissent, à la?
+etl'audace. Qu'un seul puisse s'élever, avantage individuel socialement insignifiant; que tous le puissent, à la?
 seule condition d'en avoir les capacités et le talent, sans à
 autres privilèges, sans aumône et sans charité, voilà
 l'avenir, renouvellement de forces, entretien de sève,:
-Décléricaliser l'enseignement secondaire par l'abro-
-gation de la loi Falloux, c'est bien; démocratiser l'enseignement secondaire par la gratuité, c'est mieux. La
+Décléricaliser l'enseignement secondaire par l'abrogation de la loi Falloux, c'est bien; démocratiser l'enseignement secondaire par la gratuité, c'est mieux. La
 seule originalité que je revendique pour le plan que je
 vous propose, c'est de ne vous offrir qu'une gratuité
 modeste, sans éloquence et sans lyrisme, terre à terre,
@@ -2399,11 +2275,10 @@ France. » On a quelque honte vraiment, en face de cette
 gratuité féerique et gigantesque, de proposer comme
 à un progrès considérable la simple introduction.de la
 : 11 section du second cycle dans nos Écoles primaires
-!; supérieures! Mais peut-être Victor Hugo eût-il été.
+supérieures! Mais peut-être Victor Hugo eût-il été.
 bien étonné et, en dépit de cette tirade immense,
 légèrement sceptique, si on lui avait affirmé avec
-certitude que moins de cinquante ans plus tard l'en-
-seignement primaire gratuit et laïque seraït instauré
+certitude que moins de cinquante ans plus tard l'enseignement primaire gratuit et laïque seraït instauré
 
 À Notre époque positive n'est plus d'humeur à se
 : leurrer d'un idéal inaccessible, à s'hypnotiser d'un
@@ -2413,8 +2288,7 @@ l'imagination, le rêve du poète qui vit entre ciel et terre,
 « les pieds ici, les yeux ailleurs que vous avez plutôt
 à la constater qu'à la créer: elle existe virtuellement
 4: aujourd'hui, il ne tient qu'à vous qu'elle existe réelleLA ment demain. Pendant trente années, chaque jour, de
-; se midi à une heure, Charles Fourier attendit consciencieu-
-sement le capitaliste généreux qu'il avait invité à lui
+; se midi à une heure, Charles Fourier attendit consciencieusement le capitaliste généreux qu'il avait invité à lui
 É fournir le million nécessaire pour organiser son preLS mier phalanstère; pareille attente ne nous sera pas
 infligée, puisque nos pères ont créé les phalanstères des
 
@@ -2432,8 +2306,7 @@ cela de commun avec ceux de la section latinsciences: il y aurait quelque chose 
 ces programmes étaient comme les Dieux des théologiens, immuables, et devaient demeurer définitifs. Mais
 reportez-vous à la séance du Conseil supérieur où ils
 furent ratifiés; consultez le compte rendu officiel. Les
-professeurs de sciences, sérieusement effrayés, réclamèrent. Le ministre de l'Instruction publique leur dé-
-clara en substance que ces réclamations venaient trop
+professeurs de sciences, sérieusement effrayés, réclamèrent. Le ministre de l'Instruction publique leur déclara en substance que ces réclamations venaient trop
 tard, qu'il était urgent d'en finir; qu'il fallait à tout prix
 éviter une nouvelle délibération; qu'on était à la veille
 de la clôture de la session du Conseil supérieur et,
@@ -2447,9 +2320,7 @@ faix de nos richesses, nous paraissons éloignés de dix
 siècles de l'âge d'or dont parle Joseph Bertrand dans
 son éloge de Poinsot. Pour être admis dans la première
 École polytechnique, « les jeunes citoyens devaient
-donner des preuves d'intelligence, en subissant un exa-
-
-men sur les éléments des mathématiques ». La méthode
+donner des preuves d'intelligence, en subissant un examen sur les éléments des mathématiques ». La méthode
 - de 1794 donna, on le sait, d'assez bons résultats: des
 — élèves studieux à l'entrée, savants à la sortie, curieux
 et non saturés et dégoûtés de l'étude. Les maîtres alors
@@ -2464,8 +2335,7 @@ que j'ai fait personnellement des programmes et que je
 suis bien forcé de vous épargner. (1) Je copie: « Morale,
 
 : écriture, travaux manuels, gymnastique, chant, agriculture. » S'il n'y a pas dans cette masse encyclopédique
-l'étoffe suffisante pour faire un bachelier, il faut en con-
-clure que nos bacheliers ne sont pas seulement des
+l'étoffe suffisante pour faire un bachelier, il faut en conclure que nos bacheliers ne sont pas seulement des
 polytechniciens, mais des Pic de la Mirandole. Je n'ai
 
 pas d'ailleurs, pythagoricien attardé, la superstition
@@ -2519,13 +2389,11 @@ on. Même abondance d'objections ou plutôt de sophismes pédagogiques en ce qui
 NE: d'équivalence; on déclare gravement que l'équivalence,
 3:: des grades ne donne pas du tout légalité de culture.
 A quoi je répondrai simplement que les professeurs de
-nos écoles primaires supérieures sont souvent des licen-
-ciés, qui ont achevé leurs études et pris leurs grades
+nos écoles primaires supérieures sont souvent des licenciés, qui ont achevé leurs études et pris leurs grades
 4 dans nos Universités, exactement comme leurs collègues
 ; de l'enseignement secondaire; ici sans doute en majo-
-); rité, peut-être en minorité, mais pour un présent qui
-1.0 sera demain le passé et qu'un prochain avenir amé-
-liorera encore. On ne s'aperçoit pas d'ailleurs de ce
+rité, peut-être en minorité, mais pour un présent qui
+1.0 sera demain le passé et qu'un prochain avenir améliorera encore. On ne s'aperçoit pas d'ailleurs de ce
 qu'il y a de cruel et d'injurieux dans cette catégorie
 d'objections: c'est insinuer que nos écoles gratuites
 4 n'ont qu'un personnel inférieur et de second choix.
@@ -2617,8 +2485,7 @@ notre civilisation. Tant que les études secondaires
 furent grecques ou latines, que vouliez-vous que votre
 élève fit de son bagage, sinon de le loger dans un bureau
 et de s'asseoir auprès, le plus commodément possible,
-sur un rond de cuir? Tant qu'elles ne seront pas inté-
-grales, comment voulez-vous qu'embrigadé et ensectionné, il ne se rue pas vers l'unique issue qui lui est
+sur un rond de cuir? Tant qu'elles ne seront pas intégrales, comment voulez-vous qu'embrigadé et ensectionné, il ne se rue pas vers l'unique issue qui lui est
 offerte pour enfoncer à coups de pieds et à coups de
 poings les portes des bureaux et des antichambres? Sa
 spécialisation prématurée a fait de l'intelligence d'un
@@ -2651,8 +2518,7 @@ et l'école sont des moyens et non des fins: de des
 1 pratiques toutes nouvelles et, au lieu des exercices de
 il pure parade, le souci constant d'encourager les initiais tives personnelles, jadis paralysées dans la docilité
 passive et simplement réceptive de la théorie figée et
-stéréotypée dans Le cerveau des chefs; l'école etla ma-
-nœuvre ne perdent rien à cette transformation de ples instructeurs en véritables éducateurs militaires.
+stéréotypée dans Le cerveau des chefs; l'école etla manœuvre ne perdent rien à cette transformation de ples instructeurs en véritables éducateurs militaires.
 Tant que notre enseignement secondaire a oublié l'hy2: pothèse, il n'a produire que le factice et Le stérile.
 É L'hypothèse, dans l'armée, c'est la guerre; l'hypothèse,
 
@@ -2697,8 +2563,7 @@ la réforme pourrait avoir sur d'autres sources des venus de l'État. Ne voyez-v
 conséquence logique de la gratuité des études seconde daires sera de faire déserter les écoles payantes, de
 dépeupler nos Lycées et nos Collèges? Je ne me retranFA cherai pas derrière ce fait que c'est seulement la trième section du second cycle des études secondaires
 à qui deviendra gratuite, et que vraisemblablement on se
-4 soucierait toujours fort peu de faire au peuple l'oné-
-reux présent du grec et du latin. J'aime mieux defe mander qu'on me prouve d'abord que nos Lycées et
+4 soucierait toujours fort peu de faire au peuple l'onéreux présent du grec et du latin. J'aime mieux defe mander qu'on me prouve d'abord que nos Lycées et
 : nos Collèges sont une source de revenus pour l'État.
 Nos adversaires, j'entends ceux qui s'appellent eux-
 É mêmes les rivaux de l'État, congrégations hier, sociétés
@@ -2706,9 +2571,7 @@ de pères de famille demain, ne cessent de déclamer
 À contre ce qu'ils appellent le « monopole de l'État ». Le
 4 mot, au point de vue de la polémique, est parfaitement
 choisi; mais qu'est-ce qu'un monopole qui coûte des
-millions? En quoi mérite-t-il le même nom que le mo-
-
-nopole des tabacs, qui remplit les caisses de l'État?
+millions? En quoi mérite-t-il le même nom que le monopole des tabacs, qui remplit les caisses de l'État?
 Dites au moins: service public, comme l'administration de la justice ou l'entretien d'une force publique;
 permanente, et reconnaissez que ce prétendu monopole,
 en réalité ce service public, coûte fort cher. L'objection
@@ -2755,16 +2618,13 @@ primaire et primaire supérieur, sans que les ressources
 à financières du pays permettent encore de l'étendre à
 tout l'enseignement secondaire;
 Considérant que les écoles primaires supérieures ont
-des programmes d'études qui se rapprochent si sensi-
-blement des programmes de l'enseignement secondaire
+des programmes d'études qui se rapprochent si sensiblement des programmes de l'enseignement secondaire
 (x® cycle, section; et 2 cycle, section D), qu'il est
-désormais injuste de frustrer les adolescents qui fré-
-quentent ces écoles gratuites, fils de paysans, d'oun. vriers, de petits commerçants, des avantages et des
+désormais injuste de frustrer les adolescents qui fréquentent ces écoles gratuites, fils de paysans, d'oun. vriers, de petits commerçants, des avantages et des
 5 droits que confèrent, à leurs camarades des lycées et
 1 des collèges payants, les certificats et diplômes de
 
-l'enseignement secondaire, alors qu'il y a identité d''ef-
-forts, de culture et de talents;
+l'enseignement secondaire, alors qu'il y a identité d''efforts, de culture et de talents;
 Émet le vœu
 1° Que le Parlement et l'Université fassent cesser “2
 cette première injustice qui ne reconnait même pas
@@ -2794,7 +2654,7 @@ rendu sténographique officiel, séance du 22 mars 1899;
 L'Enseignement intégral et les Humanités
 
 « Testament politique de l'impuissance universitaire
-au dix-neuvième siècle »: c'est en ces termes plutôt
+au dix-neuvième siècle c'est en ces termes plutôt
 sévères qu'un de nos historiens apprécie la grande
 Enquête sur l'Enseignement secondaire de 1899 à la
 Chambre des députés. Est-il prudent d'extraire un
@@ -2821,8 +2681,7 @@ une nation, sénateurs et députés, conseils généraux et
 4 occupés, absorbés par la grande tâche de la régénérat tion de l'éducation! Mais « l'idée directrice comme dit
 ; Claude Bernard, manqua; on fittrop d'expériences « pour
 voir ». On interrogea tout le monde; il en résulta deux
-volumes dont les colonnes mises bout à bout dépasse-
-raient le Mont-Blanc; sans exagération, une tour Eiffel
+volumes dont les colonnes mises bout à bout dépasseraient le Mont-Blanc; sans exagération, une tour Eiffel
 pour les dimensions, une tour de Babel pour la confusion
 : des langues. Le mot même d'enquête est impropre;
 ; une enquête se fonde généralement sur des faits et des
@@ -2832,8 +2691,7 @@ Hippocrate et la médecine scientifique, traitaient les
 À É cas désespérés: on installait le malade sur un lit à la
 : porte de sa maison et oninvitaitles passants à proposer
 14 leurs remèdes. Si l'on trouve la comparaison blessante,
-1 parce qu'en réalité on appela en consultation les com-
-pétences, des sommités de la médecine pédagogique,
+1 parce qu'en réalité on appela en consultation les compétences, des sommités de la médecine pédagogique,
 Hérodote nous en fournir une autre: ilraconte qu'en
 ï Égypte il y avait autant de médecins que l'on peut
 2 dénombrer de parties dans le corps humain, l'un pour
@@ -2897,9 +2755,7 @@ Falloux dominait, pédagogiquement parlant, tout le
 4 débat, à cause de la question du baccalauréat qui terje mine les études et qu'il était extraordinairement cile de supprimer ou de réformer, parce que l'enseigne-
 4.
 
-ment congréganiste était alors une pierre d'achoppe-
-ment. Un décret ministériel avait antérieurement réor-
-ganisé l'enseignement des langues vivantes. Je me
+ment congréganiste était alors une pierre d'achoppement. Un décret ministériel avait antérieurement réorganisé l'enseignement des langues vivantes. Je me
 garderai bien de critiquer cette réforme, mais enfin la
 solution, venant trop tôt ou trop tard, ne laissait plus entière la réorganisation générale des études: celle-ci pouvait exiger qu'on n'enseignât pas les langues vivantes
 en vue seulement de former des interprètes pour les:
@@ -2917,8 +2773,7 @@ Chambre et du ministre; adoptées par une Chambre
 en fin de mandat; discutées par le Sénat en fin de
 session; hâtées par un ministre en fin de ministère, et
 qui semblait désirer passionnément attacher son nom
-à la réforme; installées enfin dans le tumulte et la confusion par l'Université fatiguée d'expériences et d'espé-
-rances, il est assez naturel que toutes ces mesures, à la
+à la réforme; installées enfin dans le tumulte et la confusion par l'Université fatiguée d'expériences et d'espérances, il est assez naturel que toutes ces mesures, à la
 fois timides et radicales, aient d'abord troublé les
 maîtres et déconcerté les familles. Toute inquiétude se
 serait peut-être apaisée s'il eût été possible de bien
@@ -2963,8 +2818,7 @@ les plus menues, de l'arbre de la science on risque fort, À
 se casser le nez. Cyclopisme et encyclopédisme, deux
 formes de l'éducation homicide.
 
-J'ai déjà signalé d'autres défauts, d'ordre plus immé-
-diatement pratique, du système adopté: une option
+J'ai déjà signalé d'autres défauts, d'ordre plus immédiatement pratique, du système adopté: une option
 définitive à un âge où l'option ne peut être qu'irréfléchie,
 c'est-à-dire un saut dans les ténèbres; une disproportion choquante entre les programmes de science des
 deux premières et des deux dernières sections, ce qui
@@ -2976,9 +2830,7 @@ condamnés à recommencer leurs études, bref, une
 élèves et des professeurs changeant à chaque heure du
 jour leurs occupations, les uns n'ayant plus d'élèves
 mais seulement des auditeurs, les autres cherchant à
-tâtons quel est de tous leurs professeurs leur vrai pro-
-
-fesseur, le professeur dirigeant et responsable de sa
+tâtons quel est de tous leurs professeurs leur vrai professeur, le professeur dirigeant et responsable de sa
 classe. Un détail assez curieux prouvera surabondamment que tout s'est fait avec quelque hâte; non
 seulement on a passé outre aux réclamations des professeurs de sciences qui trouvaient les programmes de
 sciences, en et en beaucoup trop chargés, mais on
@@ -3001,23 +2853,17 @@ vraiment d'une timidité ridicule de s'incliner comme un
 4 muet du sérail devant la tyrannie d'un plan d'études
 ; qui sera peut-être renversé demain.
 Qui vous dit qu'on n'a pas conscience en haut lieu de
-3 tous ces inconvénients, qu'on n'en souffre pas secrète-
-ment, qu'on ne songe pas anxieusement à y remédier?
+3 tous ces inconvénients, qu'on n'en souffre pas secrètement, qu'on ne songe pas anxieusement à y remédier?
 È Bien des indices semblent révéler cet état d'âme. J'ati tends beaucoup des conférences du Musée pédag'og'ique
 4 sur l'enseignement des sciences: un meilleur aménage-
 ï ment des programmes, un complet redressement des
 ï méthodes. Il n'y à donc ni audace sacrilège ni outre-
-à cuidance condamnable à tenter de faire revivre un pro-
-jet qui n'est pas le mien, que j'emprunte, comme je lai
-prouvé dans mon Enseignement intégral, à René Des-
-cartes et à Auguste Comte, c'est-à-dire à la plus pure
-tradition française et aux plus hautes autorités scienti-
-fiques et humaines.
+à cuidance condamnable à tenter de faire revivre un projet qui n'est pas le mien, que j'emprunte, comme je lai
+prouvé dans mon Enseignement intégral, à René Descartes et à Auguste Comte, c'est-à-dire à la plus pure
+tradition française et aux plus hautes autorités scientifiques et humaines.
 
 Je n'éprouverais de déception et de regret que si le
-lecteur condamnait mon projet comme ayant l'appa-
-
-rence (c'en est l'écueil) de sacrifier la culture littéraire
+lecteur condamnait mon projet comme ayant l'apparence (c'en est l'écueil) de sacrifier la culture littéraire
 à la culture purement scientifique, comme si la science - À
 en elle-même, la science des Buffon et des Cuvier, la
 science des d'Alembert et des Joseph Bertrand était,
@@ -3044,8 +2890,7 @@ quelle est la meilleure éducation: c'est la Science transformée en Sagesse.
 
 M. le Président. — Monsieur Bertrand, vous êtes
 professeur de philosophie à la faculté des lettres de
-Lyon. Vous avez désiré être entendu par la Commission. Vous avez des idées personnelles sur notre sys-
-tème d'éducation. Vous avez la parole.
+Lyon. Vous avez désiré être entendu par la Commission. Vous avez des idées personnelles sur notre système d'éducation. Vous avez la parole.
 
 M. Bertrand. — C'est bien moins comme professeur
 à la faculté des lettres que j'ai demandé à déposer qu'à
@@ -3079,8 +2924,7 @@ dans son économie. Rollin nous renseigne avec certi-
 me, de quatrième (on y commençait les vers latins) ou la
 4 rhétorique (c'était la classe du discours latin). AujourP 4 d'hui ces classes ont perdu leur caractéristique, puissn: qu'on n'écrit plus en latin, ni en vers, ni en prose, ou si
 a peu qu'il est inutile d'en parler.
-RES Un vieux régent, à qui l'on demanderait quelle diffé-
-trop que dire à l'heure actuelle: c'est presque un rébus.
+RES Un vieux régent, à qui l'on demanderait quelle diffétrop que dire à l'heure actuelle: c'est presque un rébus.
 é È Quand un élève sort de troisième, voici le mot d'ordre
 APE qui s'impose: « Continuez! » Il n'y en a pas d'autre.
 LL: Voilà donc la confusion et la continuité remplaçant la
@@ -3089,12 +2933,10 @@ des examens de passage le baccalauréat. Il est dans
 À notre système actuel un fléau et une nécessité. Comme
 il n'y entre les classes, qu'une distinction nominale
 qui ne répond plus à rien de réel, cette continuité vague
-condamnerait les jurys d'examens de passage à un iné-
-vitable arbitraire, singulièrement aggravé par la crainte
+condamnerait les jurys d'examens de passage à un inévitable arbitraire, singulièrement aggravé par la crainte
 : toujours plus grande, partout ressentie, de perdre des
 
-La cause de cette déformation est facile à reconnaître: c'est l'invasion des sciences; elles se sont pré-
-cipitées toutes ensemble dans un système préparé uniquement pour l'enseignement des lettres et l'ont brisé.
+La cause de cette déformation est facile à reconnaître: c'est l'invasion des sciences; elles se sont précipitées toutes ensemble dans un système préparé uniquement pour l'enseignement des lettres et l'ont brisé.
 Cette invasion des sciences est-elle un bien? est-elle un
 mal? Question oiseuse, puisque c'est une loi, une nécessité. Ce qui est certain, c'est que nous n'y pouvons
 rien. Nous ne pouvons ni rétablir les lettres grecques et
@@ -3106,8 +2948,7 @@ se laisseraient pas éliminer ou seulement diminuer.
 Je suis donc convaincu qu'il est urgent de refondre
 tout notre plan d'études: de mettre résolument au
 centre les sciences au lieu des lettres. « A la place
-d'honneur? » diront les « littéraires ». A leur place naturelle; il n'y a pas de place d'honneur, d'ordre de pré-
-séance. Les branches du compas sont également nécessaires pour tracer un cercle parfait; la pointe qui fixe
+d'honneur? » diront les « littéraires ». A leur place naturelle; il n'y a pas de place d'honneur, d'ordre de préséance. Les branches du compas sont également nécessaires pour tracer un cercle parfait; la pointe qui fixe
 l'une au centre n'est pas plus noble que le crayon qui
 trace la circonférence.
 
@@ -3121,9 +2962,7 @@ toute une révolution dans notre système d'enseignement.
 Il y a une révolution célèbre en philosophie: c'est
 celle de Kant, qui déclare avoir imité Copernic.
 Voyant qu'il fallait imaginer orbe sur orbe, épicycle
-sur épicycle, pour expliquer tant bien que mal le mou-
-
-vement du soleil autour de la terre, Copernic se dit:
+sur épicycle, pour expliquer tant bien que mal le mouvement du soleil autour de la terre, Copernic se dit:
 Supposons que les choses se passent autrement et que
 ce soit la terre qui tourne autour du soleil. Je demande
 
@@ -3152,9 +2991,7 @@ LA intentions; je ne demande pas plus de sciences, j'y
 
 insiste, je ne demande pas moins de lettres; mais si
 
-: l'on considère les sciences, non les lettres, comme l'os-
-
-sature intérieure des études, le noyau, le centre, je
+: l'on considère les sciences, non les lettres, comme l'ossature intérieure des études, le noyau, le centre, je
 constate que tout devient intelligible et qu'il n'est plus
 
 besoin de tous ces orbes et épicycles pédagogiques. Ce
@@ -3208,17 +3045,14 @@ la cinquième, la sixième, la septième (le latin ne fait
 1 dans l'enseignement secondaire que des élèves qui ont
 achevé les cours primaires; aussi mon enseignement
 vraiment secondaire est-il réduit à quatre années
-11 caractérisées par les sciences qu'on y enseigne spéciale-
-ment: mathématiques en première année; physique et
+11 caractérisées par les sciences qu'on y enseigne spécialement: mathématiques en première année; physique et
 a chimie en deuxième année; biologie en troisième année;
 ï sociologie et morale en quatrième année. Le cours
 d'études secondaires se fera en moyenne de quatorze à
 dix-huit ou de treize à dix-sept ans.
-1 Je me hâte de répondre à plusieurs objections; et
+Je me hâte de répondre à plusieurs objections; et
 d'abord le mot « sociologie » paraître insolite: il est
-. pourtant déjà consacré par un usage européen, uni-
-
-versel. La sociologie de l'enseignement secondaire ne
+. pourtant déjà consacré par un usage européen, universel. La sociologie de l'enseignement secondaire ne
 sera guère autre chose que ce que nous avons étudié en
 philosophie sous le nom de morale sociale en y ajoutant
 (ils ont déjà figuré dans les programmes) des éléments
@@ -3235,8 +3069,7 @@ année serait consacrée à l'étude des mathématiques;
 mais, par mathématiques, vous entendez les mathématiques élémentaires; dans une année vous ne feriez pas
 entrer les élémentaires et les spéciales?
 M. Bertrand. — Je suis d'autant plus obligé de
-donner des explications sur ce point que c'est précisé-
-ment celui sur lequel j'ai le plus de scrupules et
+donner des explications sur ce point que c'est précisément celui sur lequel j'ai le plus de scrupules et
 d'hésitations. Comment enseigner les mathématiques
 dès le début des études secondaires? Les abstractions
 ne conviennent point aux enfants: l'aptitude aux
@@ -3258,8 +3091,7 @@ M. le Président. — Enfin vous faites deux séries
 d'études: une forte assise d'études primaires, et ensuite
 
 un enseignement plus complet qui se rapproche d'un
-M. Bertrand. — Je le voudrais élémentaire, simplement élémentaire. Mais, à la différence des mathéma-
-tiques de l'enseignement primaire, celles de l'enseignement secondaire sont essentiellement théoriques, ce
+M. Bertrand. — Je le voudrais élémentaire, simplement élémentaire. Mais, à la différence des mathématiques de l'enseignement primaire, celles de l'enseignement secondaire sont essentiellement théoriques, ce
 qui ne veut pas dire supérieures ou transcendantes.
 L'ancien programme du baccalauréat sciences ne
 comprenait pas les mathématiques spéciales. Le mot
@@ -3272,8 +3104,7 @@ M. Bertrand. — Je demande grâce pour son nom et
 sa jeunesse; au fond, elle est presque familière à l'instituteur, sous le nom d'enseignement civique; au
 
 professeur de philosophie, sous le nom de morale
-sociale; il n'y a sur ce point qu'à compléter et à systé-
-matiser un enseignement qui n'est pas à créer de toutes
+sociale; il n'y a sur ce point qu'à compléter et à systématiser un enseignement qui n'est pas à créer de toutes
 
 pièces. Un bon enseignement sociologique est de
 première nécessité pour notre pays à tous les degrés
@@ -3288,9 +3119,7 @@ qu'on fasse enfin de l'ordre avec ce désordre. Je ne fais
 nullement table rase de ce qui existe. IL est aussi urgent
 À d'établir dans les sciences elles-mêmes une bonne
 méthode pédagogique que de fixer les vrais rapports
-des sciences et des lettres. Les sciences sont actuelle-
-ment enseignées par morceaux, distribuées par lam-
-beaux, dispersées et mutilées, incapables en conséquence
+des sciences et des lettres. Les sciences sont actuellement enseignées par morceaux, distribuées par lambeaux, dispersées et mutilées, incapables en conséquence
 de remplir leur vrai rôle social et moral. La géologie,
 par exemple, estenseignée depuis hier entrois tronçons:
 une partie en cinquième d'abord, puis on la délaisse
@@ -3308,8 +3137,7 @@ sous la formeprudente d'une expérimentation restreinte.
 . Voici mes raisons: Je tiens beaucoup à ce que l'ensei4 è gnement secondaire soit ramené à l'unité; je dis comme
 le fabuliste: N'en ayons qu'un, mais qu'il soit bon.
 Vous aurez beau perfectionner le « moderne faire
-revivre le « spécial remanier le classique ou l'amé-
-liorer: vous aurez toujours une différence d'origine, des
+revivre le « spécial remanier le classique ou l'améliorer: vous aurez toujours une différence d'origine, des
 -. conflits, des rivalités. L'un des enseignements passera
 pour noble, l'autre pour roturier: ils se jetteront l'ironie
 ; ou l'anathème:; ils se discréditeront mutuellement. Voilà
@@ -3325,7 +3153,7 @@ invariable; il y a quelque chose de fondamental, c'est
 —. de faire tenir la pyramide tantôt sur la base, tantôt sur
 la pointe, tantôt sur l'arête, dans l'espérance de varier
 les effets.
-4 Il me reste d'ailleurs à exposer ce que je pense de
+Il me reste d'ailleurs à exposer ce que je pense de
 - l'enseignement des lettres, complément nécessaire de
 celui des sciences. C'est de l'étude des lettres surtout
 0" que viendra la variété. Les études littéraires consiste-
@@ -3368,23 +3196,15 @@ l'art d'écrire qu'il consiste à choisir et vit de perpétuels
 sacrifices. M. Fouillée, le grand interprète de Socrate et
 de Platon, qui connaît le « divin Platon » mieux qu'il
 
-ne se connaissait lui-même, semble se résigner à aban-
-
-donner le grec; je suis sûr qu'il ne le fait pas de gaîté
+ne se connaissait lui-même, semble se résigner à abandonner le grec; je suis sûr qu'il ne le fait pas de gaîté
 
 de cœur et sans déchirements.
 
-Avouons-le franchement: il règne une sorte de phari-
-
-saïsme qui consiste à feindre que nos élèves savent
+Avouons-le franchement: il règne une sorte de pharisaïsme qui consiste à feindre que nos élèves savent
 
 encore le grec; à prétendre que nous en apprenons
 
-assez pour que, même à si petite dose, à dose homéo-
-
-pathique et infinitésimale, il produise les effets éduca-
-
-tifs et esthétiques qu'on en attend.
+assez pour que, même à si petite dose, à dose homéopathique et infinitésimale, il produise les effets éducatifs et esthétiques qu'on en attend.
 
 Interrogez les candidats au baccalauréat de deuxième
 partie sur les auteurs grecs de leur programme: vous
@@ -3421,8 +3241,7 @@ comme on ne détruit que ce qu'on remplace, il faut le
 remplacer, et par quoi le remplacer, si ce n'est par les
 … examens de passage? Et ce n'est guère possible, parce
 que les classes n'ont plus chacune sa caractéristique.
-Voilà par exemple la quatrième; qu'est-ce qui caracté-
-risait la quatrième au temps classique? Rollin dit:
+Voilà par exemple la quatrième; qu'est-ce qui caractérisait la quatrième au temps classique? Rollin dit:
 « Dans cette classe le professeur commence à dicter
 aux élèves des matières de vers latins. » on ne fait
 plus de vers latins, la caractéristique de cette classe a
@@ -3440,8 +3259,7 @@ Je compare le baccalauréat à une course de bicy_ clettes ou d'automobiles de L
 exemple, où iln'y aurait qu'un seul contrôle, à l'arrivée.
 S'il n'y a pas de contrôle sur la route, de distance en
 
-distance, beaucoup de coureurs, j'allais dire de frau-
-deurs,' mettront tout simplement leur machine au
+distance, beaucoup de coureurs, j'allais dire de fraudeurs,' mettront tout simplement leur machine au
 fourgon et monteront eux-mêmes en train express. Le
 baccalauréat est mauvais « en soi quels que soient
 
@@ -3459,8 +3277,7 @@ M. Bertrand. — Encore faut-il qu'il y ait au passage
 des postes, des stades, des points de repère nettement
 discernables. Si vous caractérisez la première année
 
-; d'enseignement secondaire par ce mot précis: mathé-
-matiques, vous avez un moyen de contrôle; de même
+; d'enseignement secondaire par ce mot précis: mathématiques, vous avez un moyen de contrôle; de même
 pour la deuxième année avec la physique.
 
 M. le Président. — Vous gardez le baccalauréat
@@ -3484,7 +3301,7 @@ sera toujours vain de prétendre, par un examen unique
 
 et même doublé, contrôler loyalement huit longues
 
-Le baccalauréat sera toujours un détestable « psychomètre »: il prend la mesure non des esprits, mais
+Le baccalauréat sera toujours un détestable « psychomètre il prend la mesure non des esprits, mais
 des mémoires; non de la force intellectuelle acquise,
 mais des connaissances emmagasinées. Il mesure des
 quantités plus qu'il n'est apte à apprécier des qualités.
@@ -3492,8 +3309,7 @@ quantités plus qu'il n'est apte à apprécier des qualités.
 Je ne crois pas d'ailleurs que, si mauvais qu'il soit,
 le baccalauréat, bouc émissaire, mérite tout le mal
 qu'on en dit, toutes les malédictions dont on l'accable.
-Mauvais, il l'est surtout parce que les études secon-
-daires dont il est la sanction sont elles-mêmes mauvaises
+Mauvais, il l'est surtout parce que les études secondaires dont il est la sanction sont elles-mêmes mauvaises
 et j'ajoute qu'il est difficile de s'en passer actuellement
 parce que le désarroi du système des classes ne laisse
 guère d'espoir d'organiser efficacement les examens de
@@ -3513,13 +3329,10 @@ faire ressortir, c'est que, notre enseignement secondaire
 ê étant réorganisé sur la base scientifique, ce serait
 É l'unité de vie et d'esprit, une réelle homogénéité intro-
 : duite enfin dans nos trois degrés d'enseignement. Plus
-de solution de continuité entre le primaire et le secon-
-daire. L'enseignement secondaire est la pièce essen-
-tielle du système, le pivot des deux autres degrés
+de solution de continuité entre le primaire et le secondaire. L'enseignement secondaire est la pièce essentielle du système, le pivot des deux autres degrés
 d'enseignement. Je ne saurais trop répéter que je le
 caractérise par ce seul mot: il est un enseignement
-théorique et ce caractère l'oppose nettement à l'ensei-
-gnement primaire, qui est empirique, et à l'enseignement professionnel, qui est immédiatement utilitaire et
+théorique et ce caractère l'oppose nettement à l'enseignement primaire, qui est empirique, et à l'enseignement professionnel, qui est immédiatement utilitaire et
 è pratique. Actuellement, un élève de primaire qui veut
 entrer en secondaire est obligé, théoriquement du
 moins, de se remettre pour ainsi parler à la queue, de
@@ -3587,8 +3400,7 @@ devenir théorème, et immédiatement les faiseurs de
 manuels de l'insérer dans leurs livres, quelquefois
 revus et corrigés, toujours « considérablement augmentés ».
 
-Les livres dont nous nous sommes servis en mathé-
-matiques sont des nains en comparaison des géants
+Les livres dont nous nous sommes servis en mathématiques sont des nains en comparaison des géants
 d'aujourd'hui. Il est urgent, si nous en croyons
 M. Laisant, de déblayer, de simplifier l'enseignement
 des mathématiques tout en le rendant plus fécond.
@@ -3618,7 +3430,7 @@ j'ai pris goût aux belles-lettres. » Et néophyte en cheveux blancs, « doyen 
 se nommait Chevreul, il esquisse un abrégé d'astronomie, une physique élémentaire; ilraconte élégamment
 le système de Copernic comme si la langue scientifique
 (on l'a dit du français, qu'il écrivait moins volontiers
-que le latin) était « sa langue maternelle »! Si Rollin
+que le latin) était « sa langue maternelle Si Rollin
 vivait encore, je ne sais si j'arriverais à le convertir à
 ma pédagogie, mais je suis sûr qu'elle ne l'étonnerait
 ni ne le scandaliserait,.
@@ -3652,8 +3464,7 @@ guère qu'en France des détracteurs et des sceptiques
 
 Donc Bossuet, le dernier des Pères de l'Église, déclare
 implicitement, par sa pratique d'éducateur plus encore
-que par ses paroles, que l'éducation complète, l'achè-
-vement d'une éducation solide, c'est d'une part la
+que par ses paroles, que l'éducation complète, l'achèvement d'une éducation solide, c'est d'une part la
 « biologie d'autre part la « sociologie ». J'ai le droit
 de conclure qu'une commission parlementaire de l'enseignement qui ferait triompher ces idées renouerait le
 fil de nos plus grandes traditions, exécuterait l'œuvre
@@ -3678,8 +3489,7 @@ M. Bertrand. — Le chapitre des objections et des
 difficultés; mais cela demande tout un livre, que j'écrirai,
 si je puis. (1) Ainsi la place que j'assigne aux sciences
 n'est nullement une place d'honneur, c'est la place
-naturelle; loin de nous les ridicules questions de pré-
-séance ou scientifique ou littéraire.
+naturelle; loin de nous les ridicules questions de préséance ou scientifique ou littéraire.
 
 M. le Président. — Nous sommes à un moment de
 l'enquête où nous sommes absolument obligés de
@@ -3762,12 +3572,10 @@ ici de vanité personnelle ni de priorité de découverte;
 c'est que la rencontre de la théorie et de la pratique, de
 la spéculation et de l'action est plus qu'une rencontre de
 
-4 hasard, c'est une preuve ou du moins une contre-
-épreuve éminemment propre à rassurer les indécis et à
+4 hasard, c'est une preuve ou du moins une contreépreuve éminemment propre à rassurer les indécis et à
 raffermir les convaincus.
 
-« Les études sont trop longues, écrit M. Gabriel Hano-
-taux. On reste beaucoup trop tard sur les bancs du Collège. Nous voyons passer, dans les rues, des hommes à
+« Les études sont trop longues, écrit M. Gabriel Hanotaux. On reste beaucoup trop tard sur les bancs du Collège. Nous voyons passer, dans les rues, des hommes à
 lunettes, avec la barbe à travers le visage, qui vont au -
 Lycée habillés de pantalons trop courts et coiffés de
 képis trop étroits sur des cheveux trop longs. Ne riez
@@ -3781,7 +3589,7 @@ qui, maintenant, la reporte jusqu'à vingt, c'est-à-dire
 jusqu'à l'époque du service militaire. « Et l'on parle de
 réformer la Chine! » Il résume en deux mots la portée
 négative de son programme: « Allégez les programmes,
-abrégez les études »; en deux mots également la partie
+abrégez les études en deux mots également la partie
 
 positive: « Tous les petits Français devraient passer à
 des degrés divers par cet enseignement primaire élargi
@@ -3888,13 +3696,11 @@ je n'y ai pas songé un instant. Je ne me targue d'aucune
 budget de l'Instruction publique. Cela me gênerait
 beaucoup! Mais pour l'essentiel, pour la classification
 À des sciences, qui est l'épine dorsale du système, je
-à me trouverais fort ridicule de proposer des amende-
-ments. Cela n'a pas réussi à ceux qui l'ont tenté, même
+à me trouverais fort ridicule de proposer des amendements. Cela n'a pas réussi à ceux qui l'ont tenté, même
 à Herbert Spencer. Si les grands pédagogues de la
 Révolution l'avaient eue à leur disposition, au lieu de
 la défectueuse classification de Bacon, plus ou moins
-ÿ. améliorée par d'Alembert, nous n'aurions pas à dé-
-plorer qu'un siècle après Condorcet tout soit à refaire
+ÿ. améliorée par d'Alembert, nous n'aurions pas à déplorer qu'un siècle après Condorcet tout soit à refaire
 dans notre enseignement secondaire. Je commence donc
 4 par déclarer que j'accepte la classification positiviste
 comme un « dogme et j'entends par là, bien entendu,
@@ -3911,9 +3717,7 @@ plus; il constitue actuellement ce que Lamartine appe-
 ; mation du régime des classes, et je la trouve le plus
 aisément du monde: c'est l'invasion des sciences dans
 un système uniquement conçu pour l'enseignement des
-langues anciennes et c'est aussi l'invasion de la démo-
-
-cratie dans une institution qui avait pour but principal
+langues anciennes et c'est aussi l'invasion de la démocratie dans une institution qui avait pour but principal
 de former ce qu'on a très bien nommé « des hommes de
 luxe ». Rien ne sert de déplorer cette double invasion
 qui a tout emporté, tout ravagé: c'est un fait accompli. a
@@ -3949,8 +3753,7 @@ centre les lettres, surtout gréco-latines; les sciences
 Tout est confus et déséquilibré: cette confusion et cette
 ù déséquilibration n'étaient pas trop sensibles quand les
 sciences, encore peu développées, n'apparaissaient que
-comme des quantités négligeables, des influences per-
-turbatrices auxquelles on remédiait par des mesures ou
+comme des quantités négligeables, des influences perturbatrices auxquelles on remédiait par des mesures ou
 plutôt par des expédients empiriques. De là, l'extrême
 multiplicité de ces expédients (des orbes et des épi-
 à cycles qui font ressembler notre enseignement se-
@@ -3961,8 +3764,7 @@ un perpétuel déménagement ou, si la comparaison n'est
 À nir à la vraie méthode que de se demander: qu'advienFt drait-il si nous placions les sciences au centre des
 4 études comme à la place qui leur fut de tout temps
 assignée par la nature des choses et qu'elles revendiquent plus impérieusement que jamais pour faire cesser
-Augmenterons-nous la part des sciences? Restrein-
-drons-nous la part des lettres? Il ne s'agit pas de cela;
+Augmenterons-nous la part des sciences? Restreindrons-nous la part des lettres? Il ne s'agit pas de cela;
 il s'agit de remettre toutes choses à leur vraie place et
 d'opérer une réforme méthodique qui mette fin au
 scandale de tant de réformes empiriques qui se détruisent l'une l'autre. Ce serait proprement faire de l'ordre
@@ -3995,9 +3797,7 @@ en réalité qu'un enseignement primaire supérieur. Un
 mot essentiel le caractérise et le différencie profondément: il est théorique, tandis que l'enseignement primaire est empirique. Il se peut qu'on y enseigne les
 mêmes choses, mais on les y enseigne généralisées et
 systématisées: on ne se contente pas d'y introduire des
-vérités toutes faites en vue des applications immé-
-
-diates; avec la chose, on y enseigne la raison de la
+vérités toutes faites en vue des applications immédiates; avec la chose, on y enseigne la raison de la
 qd. chose, en vue, sans aucun doute, des applications, mais
 : l'esprit. Tout cela est compris dans ce mot: enseigne-
 Hi! « Point de régénération nationale sans une régéné-
@@ -4016,8 +3816,7 @@ ne jamais trop nombreux; mais ils ne seront jamais non
 É. plus la majorité, car cette discipline est sévère et
 ne l'homme gagne le pain de l'intelligence, comme le pain
 du corps, à la sueur de son front. Tout l'homme! C'est
-5 vraiment l'essentiel. Nous avons trop souffert de l'in-
-suffisance des études « dispersives de ces boursou-
+5 vraiment l'essentiel. Nous avons trop souffert de l'insuffisance des études « dispersives de ces boursou-
 ! flures et de ces gibbosités des esprits qui sont le plus
 Ne clair résultat de nos études organisées en dépit de
 fl. Minerve ou de la raison. C'est pourquoi je tiens tant à
@@ -4041,8 +3840,7 @@ forcé, c'est souvent celui dont on ne s'est pas avisé soimême. Je le maintien
 On s'effraye parfois de ces grands mots de Biologie
 et de Sociologie. C'est encore la faute du grec et du
 latin. Dans les auditoires populaires et même devant la
-Commission parlementaire de l'Enseignement, j'ai remarqué qu'ils ne sont accueillis qu'avec quelque pré-
-vention et défaveur. J'estime pourtant qu'il faut les
+Commission parlementaire de l'Enseignement, j'ai remarqué qu'ils ne sont accueillis qu'avec quelque prévention et défaveur. J'estime pourtant qu'il faut les
 conserver, sauf à les expliquer souvent et à les remplacer quelquefois par des équivalents qui ont toujours
 l'inconvénient de n'être que paraphrases et périphrases.
 Et prenant, pour ainsi dire, le taureau par les cornes,
@@ -4106,16 +3904,13 @@ grand nombre en lycées onéreux, que ne les a-t-on multipliés en transformant 
 qui donnent un enseignement presque secondaire, quoiI0I VI. À
 
 4 que actuellement mutilé et déguisé? Mettez donc un
-À collège à la portée de toute famille où naît cette espé-
-rance, un enfant; n'essayez pas, craignez au contraire
-ù d'y attirer beaucoup d''internes et encouragez le sy-
-stème tutorial: pension chez les professeurs, pension
+À collège à la portée de toute famille où naît cette espérance, un enfant; n'essayez pas, craignez au contraire
+ù d'y attirer beaucoup d''internes et encouragez le système tutorial: pension chez les professeurs, pension
 1} dans les familles des petites villes. Voilà le salut; mais
 le système est trop simple pour séduire et se faire
 Je remercie M. le docteur Jabely de m'avoir suggéré
 È cette excellente désignation: le Lycée ou le Collège de,
-È quatre ans. Abréger les études secondaires est une né-
-cessité du temps présent. La division triennale (sciences
+È quatre ans. Abréger les études secondaires est une nécessité du temps présent. La division triennale (sciences
 logico-sociologiques) s'adapterait mieux, je le sais,
 à la classification positiviste, mais j'ai consulté avant
 : tout ma vieille expérience de professeur de lycées
@@ -4133,12 +3928,9 @@ premier: on ne comprend pas le principe positiviste de
 la spécificité des sciences; on s'obstine à déclarer
 qu'aux yeux de Comte, tout le savoir humain se ramène
 en dernière analyse aux mathématiques, et que la philosophie, selon le mot très injuste, mais excusable à
-cette date, de Guizot, est un « matérialisme mathéma102
-
-ticien interprétation absolument fausse que la plu-;
+cette date, de Guizot, est un « matérialisme mathématicien interprétation absolument fausse que la plu-;
 part de nos historiens de la philosophie répètent encore À
-à la file. Et voici le second: on soutient, sur le témoi-
-gnage de Stuart Mill, que le Positivisme est la négation
+à la file. Et voici le second: on soutient, sur le témoignage de Stuart Mill, que le Positivisme est la négation
 de la psychologie; grave reproche, car sans psycho-:
 logie comment fonder la morale? Pour ma part, disciple
 très convaincu de Maine de Biran, le psychologue par
@@ -4188,8 +3980,7 @@ c'est ce qui explique le maintien obstiné de l'examen
 factice et fictif du baccalauréat, en dépit de l'avis contraire des meilleurs esprits.
 
 IV. Les études secondaires nouvelles sont réparties en
-quatre années d'enseignement: première année, Mathé-
-matiques; deuxième année, Physique; troisième année,
+quatre années d'enseignement: première année, Mathématiques; deuxième année, Physique; troisième année,
 Biologie; quatrième année, Sociologie. Il faut entendre
 chacune de ces désignations dans sa véritable extension; aux mathématiques, par exemple, il faut joindre
 l'astronomie; à la physique, la chimie; à la sociologie,
@@ -4216,12 +4007,10 @@ opérations de l'arithmétique et des problèmes élémentaires, connaissance pr
 
 rudiments (mais cette dernière condition n'est pas absoD lument obligatoire) d'une langue étrangère.
 
-À physique, de biologie, de sociologie, devenant resil pectivement pour chaque année d'enseignement les pro-
-fesseurs principaux des classes successives, il est
+À physique, de biologie, de sociologie, devenant resil pectivement pour chaque année d'enseignement les professeurs principaux des classes successives, il est
 10 d'autant plus important que leur enseignement soit
 14 coordonné rigoureusement en vue du but à atteindre,
-en d'autres termes, qu'il fasse un tout vivant où les par-
-ties ne se conçoivent nettement qu'en vue du tout dont À
+en d'autres termes, qu'il fasse un tout vivant où les parties ne se conçoivent nettement qu'en vue du tout dont À
 elles sont non des fragments isolés, mais des éléments
 intégrants. Ce résultat sera obtenu par l'idée constam4 ment présente et le respect scrupuleux de la double loi
 fr: qui gouverne tout le savoir humain et doit régir toutes
@@ -4240,8 +4029,7 @@ la solidarité humaine et la piété du passé. La pensée
 a habituelle des fondateurs de la science, invisible, mais
 4! présente à son enseignement, lui confère un surcroît de
 
-vie et de vertu éducative. — 2 La science allant tou-
-velles, il faut que chaque professeur comprenne que
+vie et de vertu éducative. — 2 La science allant touvelles, il faut que chaque professeur comprenne que
 l'art d'enseigner, comme l'art d'écrire, vit de perpétuels Ke:
 sacrifices, que l'élève et surtout le maître se garde de
 confondre un enseignement intégral avec un ensei- ke.
@@ -4258,8 +4046,7 @@ soutiennent comme les pierres d'une voûte ou les tissus
 d'un organisme vivant. La notion qui rend compte de
 ces anastomoses, de cette circulation du savoir, analogue à la circulation du sang, est la notion de sciences
 appliquées. Il ne s'agit nullement des applications pratiques et professionnelles des sciences, mais de cette
-loi à la fois scientifique et pédagogique que les mathé-
-matiques, par exemple, ont leurs applications dans les
+loi à la fois scientifique et pédagogique que les mathématiques, par exemple, ont leurs applications dans les
 théories de la physique et qu'il en est ainsi de toutes les
 sciences en remontant l'échelle jusqu'à la morale. Réciproquement, la sociologie et la morale nous découvrent
 seules le but ultime et la cause finale de toutes les à
@@ -4284,8 +4071,7 @@ veut, comme l'accompagnement harmonique de toutes
 ; les études. Semblablement, la sociologie etla morale ne
 seront pas exclusivement enseignées pendant l'année
 4 qui leur est particulièrement consacrée et qui est la
-dernière des études. Outre la nécessité d'une étude con-
-stante de la morale pratique, le professeur de sociologie
+dernière des études. Outre la nécessité d'une étude constante de la morale pratique, le professeur de sociologie
 se souviendra que les données de la psychologie et de
 l'esthétique sont comme la matière première de la
 morale théorique: il faut que de longue main il prépare
@@ -4322,8 +4108,7 @@ au contraire mieux étudié, étant choisi librement, nous
 en avons les multiples garanties suivantes: nos traditions françaises, qui seront d'autant plus vivaces
 qu'elles sont fondées en raison; la conviction, certitude
 pour les professeurs qui deviendra persuasion pour les
-familles, que le latin est la clef non seulement du fran-
-çais, mais de presque toutes les langues modernes,
+familles, que le latin est la clef non seulement du français, mais de presque toutes les langues modernes,
 
 dont il abrège et féconde l'étude; le désir soigneu-
 
@@ -4354,13 +4139,10 @@ renoncer pour elle-même à ses propres traditions, nul
 ne sera nommé professeur titulaire, même dans l'ordre
 ; des sciences, s'il ne possède une connaissance au moins
 élémentaire du latin. Il est puéril d'objecter qu'on n'a
-: pas besoin de savoir ce qu'on n'est pas obligé d'en-
-
-seigner soi-même: le professeur qui ne sait que ce qu'il -
+: pas besoin de savoir ce qu'on n'est pas obligé d'enseigner soi-même: le professeur qui ne sait que ce qu'il -
 enseigne n'est qu'un médiocre professeur. Admettre
 qu'on puisse enseigner le français ou les langues vi- À
-vantes, la sociologie ou l'histoire sans aucune connaïs-
-sance du latin, serait presque aussi peu logique que
+vantes, la sociologie ou l'histoire sans aucune connaïssance du latin, serait presque aussi peu logique que
 d'admettre qu'on puisse enseigner la physique sans
 connaître les mathématiques. Le même professeur sera
 toujours chargé simultanément du français et du latin;
@@ -4381,9 +4163,7 @@ des peuples anciens, Orient, Athènes et Rome; en
 troisième année, géographie et histoire détaillées de la
 France; en quatrième année, où le professeur de géographie et d'histoire collabore directement à l'enseignement de la sociologie, géographie économique et
 histoire du commerce et de l'industrie. Ces indications
-sommaires n'ont d'autre portée que de signifier clai-
-
-rement que l'enseignement de l'histoire et de la géographie doit être synthétique et scientifique.
+sommaires n'ont d'autre portée que de signifier clairement que l'enseignement de l'histoire et de la géographie doit être synthétique et scientifique.
 
 XV. Pendant toute la durée des études secondaires,
 
@@ -4496,8 +4276,7 @@ d'organisation et d'idée directrice. A vrai dire, c'était ion
 bien moins à un auditoire populaire qu'ils s'adressaient -
 qu'à un public un peu bourgeois d'amateurs du bien
 dire et de l'éloquence académique. On n'y dédaignait 2%
-ni les grands effets, ni les fleurs de rhétorique. On pou-
-vait trouver qu'un professeur avait le tort d'être trop
+ni les grands effets, ni les fleurs de rhétorique. On pouvait trouver qu'un professeur avait le tort d'être trop
 éloquent, qu'un autre faisait de l'esprit à jet continu, -
 mais c'étaient de beaux défauts qui suscitaient plus
 d'admiration que de sévérité. Si les cours disparurent,
@@ -4533,12 +4312,10 @@ Chanson de Roland. Le hasard régnait et gouvernait.
 manque un peu de méthode. Ce fut l'avis du public, en
 ; dépit du talent des conférenciers.
 Tant d'éclectisme, une variété si ondoyante et si
-À diverse finit par le lasser. Ajoutez que Lyon ne man-
-quait pas d'autres conférenciers; que la variété s'en
+À diverse finit par le lasser. Ajoutez que Lyon ne manquait pas d'autres conférenciers; que la variété s'en
 trouvait accrue d'autant et qu'un conseil municipal,
 soucieux de ménager les deniers publics, devait fatale-
-: ment se demander s'il était bien nécessaire de subventionner spécialement soixante ou quatre-vingts confé-
-rences privilégiées. On en décréta l'économie et il n'y
+: ment se demander s'il était bien nécessaire de subventionner spécialement soixante ou quatre-vingts conférences privilégiées. On en décréta l'économie et il n'y
 ; eut pas d'émeute dans la ville. Seul témoin d'un passé
 Ù qui n'avait pas été sans gloire, le cours de géographie
 fut maintenu.
@@ -4550,18 +4327,14 @@ cendres, plus ou moins transformés et transfigurés:
 visitant Lyon en 1892 comme ministre de l'Instruction
 publique, M. Léon Bourgeois parla d'un cours de sociologie à M. l'adjoint Lavigne, délégué à l'instruction
 publique, et ce cours fut fondé l'année même; ce fut le
-centre de gravité de l'organisation nouvelle. La substi120
-
-tution de la traction mécanique à la traction animale et;
+centre de gravité de l'organisation nouvelle. La substitution de la traction mécanique à la traction animale et;
 l'établissement de nombreuses usines électriques décida
 l'adjoint Clavel, un ferme défenseur des cours, quoique
-conférencier, comme professeur à la Faculté des let-
-tres, à créer un cours d'électricité appliquée. Le succès
+conférencier, comme professeur à la Faculté des lettres, à créer un cours d'électricité appliquée. Le succès
 de ce cours fut significatif, car il démontra que la
 science, aussi bien que la littérature ou l'histoire, pouvait intéresser et retenir le grand public. Il y eut
 bientôt autant de cours que de jours dans la semaine,
-en exceptant toutefois le samedi, réservé aux confé-
-rences isolées, qui se survécurent ainsi partiellement.
+en exceptant toutefois le samedi, réservé aux conférences isolées, qui se survécurent ainsi partiellement.
 Voilà donc les cours rétablis: d'idée maîtresse et directrice, pas la moindre trace: il restait à faire de l'ordre
 avec ce désordre, à prononcer sur ce chaos un énergique et efficace: « Que la lumière soit! »
 
@@ -4587,20 +4360,16 @@ sa beauté. Si c'est une illusion d'optique sociale, si
 l'ampleur et la majesté de la science moderne effraye
 à le peuple ou le rebute, il saura bien nous le dire; ilne
 nous suivra pas et nos chaires nouvelles connaîtront
-l'horreur du vide. Osons d'abord et tentons l'expé-
-rience. Quand on veut alimenter d'eau potable une
+l'horreur du vide. Osons d'abord et tentons l'expérience. Quand on veut alimenter d'eau potable une
 grande ville, comment s'y prend-on? On élève d'abord
-la source; on bâtit le plus haut possible un vaste ré-
-servoir d'où l'eau puisse jaillir à tous les étages de
+la source; on bâtit le plus haut possible un vaste réservoir d'où l'eau puisse jaillir à tous les étages de
 toutes les maisons. La nature elle-même ne procède
 pas autrement: c'est à son altitude que le Mont-Blanc
 doit d'être le château d'eau de l'Europe.
 
 Mais une métaphore n'est pas un moyen. La Science!
 quelle expression décevante. Il n'y a pas une science,
-comme il y a un Mont-Blanc, il y a des sciences frag-
-
-mentées, morcelées à l'infini; des sciences où la vérité
+comme il y a un Mont-Blanc, il y a des sciences fragmentées, morcelées à l'infini; des sciences où la vérité
 n'apparaît jamais dans sa haute et pleine intégralité,
 mais transparaît seulement, tantôt en minces filets,
 tantôt en plus larges ondes de lumière. Si c'est un bloc,
@@ -4613,13 +4382,9 @@ municipale: à peine un homme de génie par siècle
 est-il capable de ce grand œuvre. Il en est une qui a
 la prétention justifiée, semble-t-il, de se conformer
 1° à l'ordre historique de l'évolution des sciences; 2° à
-l'ordre logique de leur enchaînement ou de leur subor-
-dination hiérarchique; 3° à l'ordre didactique de leur À
-enseignement méthodique. En adoptant la classifica-
-tion de Comte, ferons-nous adhésion au système positi-;
-viste? Nullement: c'est une question absolument ré-
-servée; nous tâcherons même de nous servir de sa clas-
-sification sans nous y asservir. Soyons d'abord bien
+l'ordre logique de leur enchaînement ou de leur subordination hiérarchique; 3° à l'ordre didactique de leur À
+enseignement méthodique. En adoptant la classification de Comte, ferons-nous adhésion au système positi-;
+viste? Nullement: c'est une question absolument réservée; nous tâcherons même de nous servir de sa classification sans nous y asservir. Soyons d'abord bien
 convaincus qu'il n'y a pas plus de route populaire dans
 les sciences qu'il n'y comme Euler le disait à son
 royal élève, de « route royale elles ont des chemins et
@@ -4627,8 +4392,7 @@ des étapes par où tous les esprits, s'ils en sont capables, doivent également
 de vous conduire aux sciences supérieures en vous
 dispensant entièrement des sciences inférieures qui les
 préparent et les soutiennent, défiez-vous de lui, c'est un
-Tout le monde connaît aujourd'hui cette classification: les sciences de l'étendue nous donnent la mathé-
-matique et l'astronomie; les sciences de la matière, la
+Tout le monde connaît aujourd'hui cette classification: les sciences de l'étendue nous donnent la mathématique et l'astronomie; les sciences de la matière, la
 physique et la chimie; la vie organique est l'objet de
 la biologie; la vie sociale, celui de la sociologie. Qui
 embrasse trop peu, étreint mal: libre à celui qui ne
@@ -4670,8 +4434,7 @@ continuité et de l'efficacité de l'effort humain dans la
 conquête du vrai. Elle a en outre l'incontestable mérite
 d'avoir la première chassé de l'univers les interventions
 arbitraires, le caprice divin, le miracle. Le cours populaire d'astronomie n'a été ni le moins intéressant, ni
-le moins utile. L'astronomie, disait Socrate, a l'avan-
-tage de nous faire tout de suite « regarder en haut ».
+le moins utile. L'astronomie, disait Socrate, a l'avantage de nous faire tout de suite « regarder en haut ».
 Le pendule de Foucault, suspendu à la haute voûte du
 Panthéon, c'est une grandiose leçon d'astronomie populaire.
 
@@ -4681,8 +4444,7 @@ corps céleste. La formation de ce globe, les animaux
 fossiles que recèlent les entrailles de la terre et quisont
 les premières ébauches des espèces existantes, l'origine préhistorique de notre espèce, voilà des sujets qui
 captivent notre imagination et éclairent l'intelligence
-populaire. Ne craignez pas que l'intérêt languisse, sur-
-tout si des projections bien choisies accompagnent la
+populaire. Ne craignez pas que l'intérêt languisse, surtout si des projections bien choisies accompagnent la
 parole, j'allais écrire, par habitude, éloquente, disons:
 plutôt savante et précise du maître.
 
@@ -4696,14 +4458,11 @@ vaste auditoire, moins préparé, cela sans dire, que
 l'auditoire restreint qui fréquente les laboratoires. Les
 sujets traités sont eux-mêmes très généraux, mais très
 précis dans leur généralité même: une année, les transformations de la matière, l'année suivante, l'air et l'eau.
-Les menus faits soutiennent l'intérêt, les grandes géné-
-
-ralisations élargissent la pensée: la physique et la
+Les menus faits soutiennent l'intérêt, les grandes généralisations élargissent la pensée: la physique et la
 chimie ainsi enseignées deviennent le plus fécond et
 le plus philosophique des enseignements.
 
-Ne nous lassons pas de rappeler que l'utilité immé-
-diate, l'utilité directe ou professionnelle est toujours
+Ne nous lassons pas de rappeler que l'utilité immédiate, l'utilité directe ou professionnelle est toujours
 rejetée au second plan, non par dédain, mais par système: nous avons à Lyon un autre enseignement,
 « l'enseignement professionnel du Rhône parfaitement
 organisé. Ainsi, le professeur de physiologie n'a nul
@@ -4726,11 +4485,9 @@ où l'on sent déjà l'approche et le voisinage de l'homme
 
 N'est-ce pas aussi la meilleure préparation, linitiation nécessaire à l'enseignement de la sociologie?
 De ce cours, je ne dirai rien, et pour cause (j'en suis
-chargé), sinon qu'il faudrait, pour qu'il fat dénué d'in-
-térêt et de large utilité, une ignorance du sujet, une
+chargé), sinon qu'il faudrait, pour qu'il fat dénué d'intérêt et de large utilité, une ignorance du sujet, une
 
-absence de méthode ou une indigence de talent vrai-
-semblablement introuvables. Qu'il me soit permis seulement de noter un trait significatif: mon cours de
+absence de méthode ou une indigence de talent vraisemblablement introuvables. Qu'il me soit permis seulement de noter un trait significatif: mon cours de
 sociologie avait l'an dernier pour sujet la Psychologie
 d'une Révolution (1848) et j'avais presque autant de
 collaborateurs que d'auditeurs. Chacun m'apportait les
@@ -4767,7 +4524,7 @@ combinaison: à mesure qu'on s'élève dans la hiérarchie des sciences, il fall
 laire, social de l'ensemble fût affirmé et soigneusement À
 maintenu, que les cours et demi-cours fussent plus
 nombreux, plus détaillés. C'est, comme disait Comte,
-« l'ordre sacré »: il est clair que les sciences de la vie
+« l'ordre sacré il est clair que les sciences de la vie
 organique et surtout de la vie sociale doivent, dans un
 enseignement qui se qualifie de populaire, être prépon-:
 dérantes ou prédominantes. La classification de Comte
@@ -4798,18 +4555,15 @@ nouveau à Lyon et bien délicat: il y faut l'érudition
 d'un helléniste et d'un sanscritiste qui sait cacher son
 érudition. Les origines et l'évolution du phénomène
 religieux sont exposées avec la sérénité qui résulte du
-caractère même de la science, l'impartialité et l'indé-
-pendance. Et cette science des religions considérées non
+caractère même de la science, l'impartialité et l'indépendance. Et cette science des religions considérées non
 comme un fait divin,'mais comme un phénomène tout
-psychologique, même purement verbal, en tout cas simplement humain, est pour les auditeurs une vraie révé-
-lation, destruction infaillible des révélations. (1)
+psychologique, même purement verbal, en tout cas simplement humain, est pour les auditeurs une vraie révélation, destruction infaillible des révélations. (1)
 
 Si le vieux Bacon a dit vrai, si pour faire une bonne
 expérience il faut la varier, l'étendre, la renverser, nul
 ne contestera la valeur démonstrative de l'expérience
 pédagogique dont je viens de montrer les résultats.
-Varier l'expérience: on est allé des cours aux confé-
-rences et des conférences aux cours; on l'a préparée,
+Varier l'expérience: on est allé des cours aux conférences et des conférences aux cours; on l'a préparée,
 
 (1) Notons qu'une affiche annuelle, dont le cadre est invariable,
 indique aussi nettement que possible le plan systématique des
@@ -4850,8 +4604,7 @@ jour on ne le réduit plus, si j'ose dire, à la portion
 congrue et qu'en fait descience, on socialise résolument
 le patrimoine entier de l'esprit humain. Le même au- à
 diteur ne suivra pas tous les cours: n'importe; il sait
-qu'ils existent, qu'il pourrait les suivre, qu'ils se sou-
-tiennent les uns les autres comme les pierres d'une
+qu'ils existent, qu'il pourrait les suivre, qu'ils se soutiennent les uns les autres comme les pierres d'une
 arche puissante. Le plus étranger à la philosophie a
 quelque obscur sentiment de cette vérité que Descartes
 formulait avec tant d'originalité et d'ampleur: « Les Et
@@ -4938,8 +4691,7 @@ homme est ardent à s'épancher. « Dans une société
 supérieure à la nôtre et telle qu'elle sera un jour, l'en133!
 
 À seignement intermittent sera, je n'en fais pas doute, un
-a puissant moyen d'action. On saura profiter de ces sances diverses, de l'élan du jeune homme, du recueil-
-de l'autre. » Notre enseignement intégral est donc dès
+a puissant moyen d'action. On saura profiter de ces sances diverses, de l'élan du jeune homme, du recueilde l'autre. » Notre enseignement intégral est donc dès
 à présent possible et réalisable partout où les jeunes
 me gens n'ont pas désappris l'art d'être jeunes ni les vieil-
 ; lards l'art d'être vieux. Je n'ai point prétendu pourtant
@@ -4989,8 +4741,7 @@ la rédaction ni sur l'administration; ces fonctions à
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
-ouvrière, d'octobre-novembre à juin-juillet; l'abonne-
-ment se prend pour une série.
+ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série.
 
 Le prix de l'abonnement est de vingt francs pour la
 série. Nous acceptons que nos abonnés paient leur
@@ -5042,8 +4793,7 @@ un retard considérable; nous ne répondons pas des
 manuscrits qui nous sont envoyés; nous n'accordons
 aucun tour de faveur pour la lecture des manuscrits;
 nous ne lisons les manuscrits qu'à mesure que nous en
-avons besoin; les œuvres que nous publions appar-
-tiennent aux cahiers, du seul fait de cette publication,
+avons besoin; les œuvres que nous publions appartiennent aux cahiers, du seul fait de cette publication,
 en toute propriété littéraire, sans aucune réserve, et à
 sans autre signification ni contrat.
 
@@ -5063,7 +4813,7 @@ Deuxième partie. — L'Enseignement intégral et
 : GRR Déposition devant la Commission d'enquête -
 parlementaire sur l'Enseignement secondaire,
 TEA du 22 mars 1899; où inclus un tableau des?
-a; où inclus, à la fin, les dix-huit propositions;
+où inclus, à la fin, les dix-huit propositions;
 ‘. “10 L'organisation rationnelle des Universités
 : Troisième partie. — L'organisation rationnelle
 UOTE des Universités populaires.) 27.100 WENORIErr
@@ -5074,7 +4824,7 @@ Es grès national, tenu à Lyon du 25 au 28 pue tembre 1902;
 Dur: partielle entre l'enseignement des Lycées et
 20 celui des Ecoles primaires supérieures.
 
-;; tration, portant sur les frais ME 1 A “HS
+tration, portant sur les frais ME 1 A “HS
 d'envoi de notre catalogue Ne
 
 Nous avons donné le bon à tirer après corrections
@@ -5113,11 +4863,9 @@ En attendant, et jusqu'à ce qu'une juridiction administrative ou judiciaire nou
 sommes, provisoirement, contraints de payer le tarif
 
 A deuxième cahier de la sixième série
-id: plein pour les exemplaires isolés du catalogue analy-
-tique sommaire que nous envoyons directement de nos Re.
+id: plein pour les exemplaires isolés du catalogue analytique sommaire que nous envoyons directement de nos Re.
 Pour que notre budget ordinaire ne soitpoint détraqué
-par cet accroissement imprévu de dépenses, nous de-
-mandons à tous ceux de nos abonnés qui nous deman-
+par cet accroissement imprévu de dépenses, nous demandons à tous ceux de nos abonnés qui nous deman-
 De dent, même pour la propagande, un certain nombre
 à d'exemplaires de ce catalogue, de vouloir bien, sauf
 A impossibilité, joindre à leur lettre de commande, en
@@ -5165,12 +4913,9 @@ dans nos cinq premières séries, 1900-1904,unsigrand
 nombre de cahiers de lettres, — nouvelles, romans,
 drames, dialogues, poèmes et contes; — un si grand À
 nombre de cahiers d'histoire et de philosophie; nous y À
-avons publié un si grand nombre de textes et commen-
-taires, de documents et renseignements, de contribu-
-tions, de dossiers et de travaux portant sur l'histoire
+avons publié un si grand nombre de textes et commentaires, de documents et renseignements, de contributions, de dossiers et de travaux portant sur l'histoire
 du peuple d'Israël; en particulier sur l'histoire contemporaine de ce peuple; en particulier sur l'affaire
-Dreyfus; en particulier de Bernard-Lazare sur l'oppres-
-sion des Juifs dans l'Europe orientale; et ces cahiers
+Dreyfus; en particulier de Bernard-Lazare sur l'oppression des Juifs dans l'Europe orientale; et ces cahiers
 de lettres, d'histoire et de philosophie, ces textes, commentaires, documents, renseignements, contributions,
 dossiers, travaux étaient si considérables que nous
 ne pouvons pas songer à en donner ici l'énoncé même
@@ -5183,10 +4928,9 @@ recevra en retour le catalogue analytique sommaire,
 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un rac-:
-courci, une idée, abrégée, mais complète, de nos édi-
-tions antérieures et de nos cinq premières séries; tout y
+courci, une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y
 est classé dans l'ordre; il suffit de Le lire pour trouver, À
-à leur place, les références demandées. -;
+à leur place, les références demandées.
 Ce catalogue, grand-jésus, forme un cahier
 très épais de XII+/o8 pages très denses, marqué À
 cing francs; ce cahier comptait comme premier cahier à
@@ -5229,17 +4973,9 @@ Beaucoup plus que nous ne le voulons, beaucoup plus
 dressés par des disciplines scolaires, tous limités par des
 
 limitations et des commodités scolaires, nous croyons À
-tous plus ou moins obscurément que l'humanité com-
+tous plus ou moins obscurément que l'humanité commence au monde moderne, que l'intelligence de l'humaquand nous ne croyons pas, avec tous les laïques, avec
 
-mence au monde moderne, que l'intelligence de l'huma-
-
-quand nous ne croyons pas, avec tous les laïques, avec
-
-tous les primaires, que la France commence exacte-
-
-ment le premier janvier dix-sept cent quatre-vingt-
-
-neuf, à six heures du matin.
+tous les primaires, que la France commence exactement le premier janvier dix-sept cent quatre-vingtneuf, à six heures du matin.
 
 l'idée moderne, la méthode moderne revient
 
@@ -5247,9 +4983,7 @@ essentiellement à ceci: étant donnée une œuvre, étant
 
 donné un texte, comment le connaissons-nous; com-
 
-ï mençons par ne point saisir le texte; surtout gardons-
-
-nous bien de porter la main sur le texte; et d'y jeter
+ï mençons par ne point saisir le texte; surtout gardonsnous bien de porter la main sur le texte; et d'y jeter
 
 les yeux; cela, c'est la fin; si jamais on y arrive; com-
 
@@ -5259,9 +4993,7 @@ les yeux; cela, c'est la fin; si jamais on y arrive; com-
 
 É commencement; le commencement du commencement,
 
-c'est, dans l'immense, dans la mouvante, dans l'univer-
-
-selle, dans la totale réalité très exactement le point de
+c'est, dans l'immense, dans la mouvante, dans l'universelle, dans la totale réalité très exactement le point de
 
 connaissance ayant quelque rapport au texte qui est le:
 
@@ -5271,16 +5003,12 @@ plus éloigné du texte; que si même on peut commencer
 
 texte, absolument incommunicable, pour de passer
 
-par le chemin le plus long possible au point de connais-
-
-sance ayant quelque rapport au texte qui est le plus
+par le chemin le plus long possible au point de connaissance ayant quelque rapport au texte qui est le plus
 
 éloigné du texte, alors nous obtenons le couronnement ai
 même de la méthode scientifique, nous fabriquons un
 chef-d'œuvre de l'esprit moderne; et tant plus le point À.
-de départ du commencement du commencement du tra-
-vail sera éloigné, si possible étranger, tant plus l'ache-
-minement sera venu de loin, et bizarre; — de tant plus
+de départ du commencement du commencement du travail sera éloigné, si possible étranger, tant plus l'acheminement sera venu de loin, et bizarre; — de tant plus
 nous serons des scientifiques, des historiens, et des sa-
 
 Avons-nous à étudier, nous proposons-nous d'étudier
@@ -5310,9 +5038,7 @@ ensemble, ni avec chacune des deux premières sépa-
 
 : rément; l'action; les détails; comparaison de La
 
-Fontaine et de ses originaux, Ésope et Phèdre; le sy-
-
-stème; comparaison de La Fontaine et deses originaux,
+Fontaine et de ses originaux, Ésope et Phèdre; le système; comparaison de La Fontaine et deses originaux,
 
 EÉsope, Rabelais, Pilpay, Cassandre; l'expression; du
 
@@ -5324,9 +5050,7 @@ mètre varié; le mèêtre imitatif; du style lié; l'unité
 
 logique; l'unité grammaticale; l'unité musicale; enfin
 
-théorie de la fable poétique; nature de la poésie; oppo-
-
-sition de la fable philosophique à la fable poétique;
+théorie de la fable poétique; nature de la poésie; opposition de la fable philosophique à la fable poétique;
 
 opposition de la fable primitive à la fable poétique;
 c'est tout; je me demande avec effroi où résidera dans
@@ -5349,8 +5073,7 @@ nous demandent pour nous conduire à l'acquisition de
 quelque connaissance, nous reconnaissons immédiatement queles qualités, capacités, amplitudes attribuées
 absolument insuffisantes aujourd'hui pour constituer le
 
-véritable historien, l'homme scientifique, — vir scien-
-tificus, — le savant moderne; il ne suffit pas que le
+véritable historien, l'homme scientifique, — vir scientificus, — le savant moderne; il ne suffit pas que le
 savant moderne soit un dieu; il faut qu'il soit Dieu;
 puisque l'on veut commencer par la série indéfinie,
 infinie du détail; puisque l'on veut partir d'un point
@@ -5377,13 +5100,11 @@ de la biographie et du texte, nous sommes en particulier à
 conduits à la singulière contrariété suivante.
 
 Les humanités polythéistes et mythologues, ayant,
-même dans l'ordre de la divinité, excellemment, émi-
-nemment le sens du parfait, du fini, de la limite,
+même dans l'ordre de la divinité, excellemment, éminemment le sens du parfait, du fini, de la limite,
 l'avaient en particulier dans l'ordre de l'humanité
 ajouterai-je que ces humanités étaient généralement
 
-intelligentes, et qu'elles ne vivaient point sur des contra-
-riétés intérieures sans les avoir enregistrées; dans ces
+intelligentes, et qu'elles ne vivaient point sur des contrariétés intérieures sans les avoir enregistrées; dans ces
 humanités l'homme était reconnu limité aux limites
 humaines; et l'historien demeurait un homme.
 Les humanités panthéistes et généralement théistes
@@ -5400,8 +5121,7 @@ elles connaissaient les limitations de l'humanité; elles
 par les profondes voies de l'instinct; dans ces humaf nités l'homme était reconnu partie et limité aux limites
 humaines; l'historien demeurait un homme.
 Les humanités déistes et particulièrement chrétiennes,
-À ces singulières humanités, qui ne nous paraissent ordi-
-naires et communes que parce que nous y sommes
+À ces singulières humanités, qui ne nous paraissent ordinaires et communes que parce que nous y sommes
 habitués, ces singulières humanités, où l'homme occupe
 2 envers Dieu une si singulière situation de grandeur et
 de misère, si audacieuse au fond, et si surhumaine, —
@@ -5412,9 +5132,7 @@ et de l'absolu; elles connaissaient donc les limitations
 de l'humanité; ajouterai-je que généralement ces
 humanités étaient à la fois intelligentes et profondes, et
 que la constatation même des contrariétés intérieures,
-de la grandeur et de la misère, faisait peut-être le prin-
-
-cipal objet de leurs méditations; dans ces humanités
+de la grandeur et de la misère, faisait peut-être le principal objet de leurs méditations; dans ces humanités
 l'homme était reconnu créature et limité aux limites
 humaines; l'historien demeurait un homme. ‘ee
 Par une contrariété intérieure imprévue, et nouvelle ne:
@@ -5423,8 +5141,7 @@ au monde moderne, à l'esprit moderne, aux méthodes si
 modernes, pour que l'historien cessât réellement de se
 considérer comme un homme. nul
 Le monde moderne, l'esprit moderne, laïque, positi-;
-viste et athée, démocratique, politique et parlemen-
-taire, les méthodes modernes, la science moderne, Mi!
+viste et athée, démocratique, politique et parlementaire, les méthodes modernes, la science moderne, Mi!
 l'homme moderne, croient s'être débarrassés de Dieu;
 et en réalité, pour qui regarde un peu au delà des
 apparences, pour qui veut dépasser les formules, ai
@@ -5455,10 +5172,8 @@ de zéro Dieu, le vieil orgueil a fait son office; l'esprit
 humain a perdu son assiette; la boussole s'est affolée;
 l'historien moderne est devenu un Dieu; il s'est fait,
 ! demi-inconsciemment, demi-complaisamment, lui-même
-un Dieu; je ne dis pas un dieu comme nos dieux fri-
-voles, insensibles et sourds, impuissants, mutilés; il
-s'est fait Dieu, tout simplement, Dieu éternel, Dieu ab-
-solu, Dieu tout puissant, tout juste et omniscient.
+un Dieu; je ne dis pas un dieu comme nos dieux frivoles, insensibles et sourds, impuissants, mutilés; il
+s'est fait Dieu, tout simplement, Dieu éternel, Dieu absolu, Dieu tout puissant, tout juste et omniscient.
 Cette affirmation que je fais emplira de stupeur, sin-
 RES cère, un as:ez grand nombre de braves gens qui
 modes‘ement, du m°tin au soir, jouent avec l'absolu,
@@ -5472,8 +5187,7 @@ n'avons aucun pouvoir dans l'État; nous ne déterminons aucuns événements; no
 rétribués des fonctionnaires; nul ne nous entend; nous
 poursuivons modestement notre enquête surles hommes
 
-et sur les événements passés; par situation, par mé-
-tier, par méthode, nous n'avons ni vanité ni orgueil, ni;
+et sur les événements passés; par situation, par métier, par méthode, nous n'avons ni vanité ni orgueil, ni;
 
 présomption, ni cupidité de la domination; l'invention
 des méthodes historiques modernes a été proprement
@@ -5488,8 +5202,7 @@ curés de campagne n'étaient pas plus que ne sont
 aujourd'hui nos instituteurs, et nos grands prélats
 de l'enseignement, démagogues, députés, ministres,
 sénateurs, ne sont pas moins que n'étaient les grands
-évêques et les grands cardinaux; pas plus tard qu'avant-
-hier, dans son numéro daté du samedi 15 octobre 1904,
+évêques et les grands cardinaux; pas plus tard qu'avanthier, dans son numéro daté du samedi 15 octobre 1904,
 la Petite République, ayant à interroger M. Gabriel!
 Séailles sur la séparation des Églises et de l'État,
 employait aux fins de cette enquête, par le ministère de
@@ -5501,8 +5214,7 @@ Séailles me disait, en une causerie aimable et sympa- À
 thique, les mêmes choses à peu près dans les mêmes À
 
 — Aimable, dans ces graves questions; enfin.
-« Deux jeunes hommes, deux de ses disciples, l'écou-
-taient avec moi. » À
+« Deux jeunes hommes, deux de ses disciples, l'écoutaient avec moi. » À
 — Je vous assure, monsieur le journaliste, que vous
 vous trompez; il n'y a point, sur la place, une philoso- « phie qui soit proprement la philosophie de M. Séailles,
 et donc il n'y a point des disciples de M. Séailles; c'est
@@ -5531,8 +5243,7 @@ bristol, le regard riant à travers le double verre du lor-
 cascadante grisonnante au menton, et les pieds chau-;
 dement fourrés dans les pantoufles, M. Gabriel Séailles
 Je suis assuré qu'un tel ton, de telles expressions
-désobligent beaucoup M. Gabriel Séailles; je n'insis-
-terai point sur ce que la description détaillée de toutes
+désobligent beaucoup M. Gabriel Séailles; je n'insisterai point sur ce que la description détaillée de toutes
 ces commodités de la conversation présente de déso-:
 bligeant quand on s'installe pour traiter d'un débat qui
 divise douloureusement les consciences; je suis assuré
@@ -5542,8 +5253,7 @@ combien ces expressions sont inconvénientes; pour moi
 elles me paraissent tout simplement insupportables; (4
 libertaire impénitent, j'y trouve, j'y entends toute une en
 résonance de respect religieux; encore avons-nous
-pris un exemple minimum; et dans cet exemple mini-
-mum:il y a des expressions désastreuses, comme une;
+pris un exemple minimum; et dans cet exemple minimum:il y a des expressions désastreuses, comme une;
 chaire trop haute, et d'où l'on descend: évidemment le TA
 journaliste veut donner au Peuple l'idée que la chaire de se
 M. Séailles en Sorbonne est surpopulaire, surhumaine,
@@ -5560,27 +5270,23 @@ mort, ne nous a-t-on pas fait une semaine sainte, une
 neuvaine; sentiment religieux et naissance de la déma-
 Les prêtres aussi, les petits prêtres, en ce sens, n'oc- À
 cupaient aucune situation dans l'État, n'avaient aucun
-pouvoir dans l'État; les prêtres aussi étaient assez mal-
-traités par leurs supérieurs et ne déterminaient aucuns RME
+pouvoir dans l'État; les prêtres aussi étaient assez maltraités par leurs supérieurs et ne déterminaient aucuns RME
 événements; les prêtres aussi étaient les plus mal
 rétribués des fonctionnaires, et nul ne les entendait; et
 quand ils ne seront plus des fonctionnaires mal rétri- - 3 À
 bués d'Etat, ils seront des fonctionnaires mal rétribués
-d'Église; et nul ne les entendra; ils poursuivent modes-
-tement leur prédication de la vie future; par situation,
+d'Église; et nul ne les entendra; ils poursuivent modestement leur prédication de la vie future; par situation,
 
 4 par métier, par humilité chrétienne ils n'ont ni vanité
 ni orgueil, ni présomption ni cupidité de la domina- A
-tion; un curé de campagne est un petit seigneur; l'exer-
-cice du ministère ecclésiastique est essentiellement un À
+tion; un curé de campagne est un petit seigneur; l'exercice du ministère ecclésiastique est essentiellement un À
 ! Je ne dis pas que cela soit vrai des prêtres; je dis
 que, autant et dans le sens que cela est vrai des
 ; universitaires, si l'on veut, autant et dans le même
 sens, mutations faites, cela est vrai des prêtres; si l'excuse de modestie est valable pour les fonctionnaires de
 l'enseignement, l'excuse de l'humilité chrétienne est -
 valable pour les fonctionnaires ecclésiastiques.
-._ Pourtant ces prêtres administrent Dieu même; exa-
-minons si ces universitaires, si ces historiens modernes,
+._ Pourtant ces prêtres administrent Dieu même; examinons si ces universitaires, si ces historiens modernes,
 à leur tour, plus ou moins inconsciemment, ne rempla- À
 ceraient pas les prêtres et ne suppléeraient pas Dieu;
 ma proposition est exactement la suivante, que les
@@ -5592,9 +5298,7 @@ Notre ami l'historien Pierre Deloire me disait, — car
 je n'ai pas besoin d'ajouter que je n'en ai pas aux historiens personnellement, et que les historiens sérieux
 sont les premiers à s'émouvoir de ces graves contrariétés, — l'historien Pierre Deloire me disait un jour au
 bureau des cahiers: Le bon temps des historiens est
-passé. — Il entendait railler ainsi, doucement, les historiens antérieurs. — Le bon temps deshistoriens, disait-
-
-il, c'était quand le professeur d'histoire, assis devant
+passé. — Il entendait railler ainsi, doucement, les historiens antérieurs. — Le bon temps deshistoriens, disaitil, c'était quand le professeur d'histoire, assis devant
 son bureau, refaisait à loisir toutes les opérations du
 
 monde; il parlait de tout; il écrivait de tout; il était
@@ -5604,8 +5308,7 @@ et refaisait la bataïlle d'Actium; ce Marc-Antoine, hein,
 quelle brute; il refaisait les plans de campagne; il était
 roi, il refaisait Versailles, Paris et Saint-Denis; il était
 le roi, dans son bureau; il était l'empereur, l'empereur
-premier; il refaisait Waterloo; ce Napoléon, quel imbé-
-cile, comme le disait récemment le général Mirbeau;
+premier; il refaisait Waterloo; ce Napoléon, quel imbécile, comme le disait récemment le général Mirbeau;
 demandez les mémoires du général baron Mirbeau;
 quand M. Mirbeau découvrait que Napoléon était le
 dernier des imbéciles, ce grand romantique rentier
@@ -5640,8 +5343,7 @@ amusée de l'érudition cuistre; il enrégimente un peu -
 juge par l'issue, bien des gens trouvent qu'il n'avait pas
 tort. Laissez-nous prendre comme lui le chemin des
 écoliers et des philosophes, raisonner à son endroit
-ï comme il faisait à l'endroit de ses bêtes, alléguer l'his-
-toire et le reste. C'est le plus long si vous voulez: au
+ï comme il faisait à l'endroit de ses bêtes, alléguer l'histoire et le reste. C'est le plus long si vous voulez: au
 demeurant, c'est peut-être le plus court.
 « Me voici donc à l'aise, libre de rechercher toutes
 les causes qui ont former mon personnage et sa
@@ -5687,8 +5389,7 @@ les falaises blanchâtres ou noie les terres plates: les
 grève, l'entassement de ces eaux stériles qui assiégent
 É ê l'embouchure des fleuves, la joie des vagues indompSAR tées qui s'entre-choquent fellement sur la plaine sans
 TA limites, font descendre au fond du cœur des émotions
-DES tragiques; la mer est un hôte disproportionné et sau-
-vage dont le voisinage laisse toujours dans l'homme
+DES tragiques; la mer est un hôte disproportionné et sauvage dont le voisinage laisse toujours dans l'homme
 un fond d'inquiétude et d'accablement. — En avanee çant vers l'est, vous rencontrez la grasse Flandre,
 : ê antique nourrice de la vie corporelle, ses plaines im:
 menses toutes regorgeantes d'une abondance grossière,
@@ -5712,8 +5413,7 @@ FRS Des deux côtés les versants qui le nourrissent se dressent avec un aspect 
 couvrent les sommets de leurs draperies silencieuses,
 et descendent par bandes jusqu'au fond des gorges; le “4;
 puissant élan qui les dresse, leur roide attitude donne
-l'idée d'une phalange de jeunes héros barbares, immo-
-biles et debout dans leur solitude que la culture n'a
+l'idée d'une phalange de jeunes héros barbares, immobiles et debout dans leur solitude que la culture n'a
 jamais violée. Ils disparaissent avec les roches rouges “4;
 des Vosges. Vous quittez le pays à demi allemand qui
 n'est à nous que depuis un siècle. Un air nouveau moins
@@ -5732,8 +5432,7 @@ de plaines ni de montagnes; point trop de soleil ni y
 d'humidité. Nul excès et nulle énergie. Tout y semblait
 maniable et civilisé; tout y était sur un petit modèle,
 en proportions commodes, avec un air de finesse
-et d'agrément. Les montagnes étaient devenues col-
-lines, les bois n'étaient plus guère que des bosquets, à
+et d'agrément. Les montagnes étaient devenues collines, les bois n'étaient plus guère que des bosquets, à
 les ondulations du terrain recevaient, sans discontinuer,
 les cultures. De minces rivières serpentaient entre des
 bouquets d'aunes avec de gracieux sourires. Une raie de Sas
@@ -5749,8 +5448,7 @@ de notre paysage; il paraît plat aux yeux qui se sont
 nue lignes, les fortes couleurs y manquent; mais les “is tours sinueux, les nuances légères, toutes les grâces
 ne fuyantes y viennent amuser l'agile esprit qui les cond temple, le toucher parfois, sans l'exalter ni l'accabler.
 — Si vous entrez plus avant dans la vraie Champagne,
-à ces sources de poésie s'appauvrissent et s'affinent en-
-core. La vigne, triste plante bossue, tord ses pieds entre
+à ces sources de poésie s'appauvrissent et s'affinent encore. La vigne, triste plante bossue, tord ses pieds entre
 KL. les cailloux. Les plaines crayeuses sous leurs moissons
 maigres s'étalent bariolées et ternes comme un manteau
 ; de roulier. et une ligne d'arbres marque sur la
@@ -5795,8 +5493,7 @@ En Allemagne, je découvrais dans les regards une
 expression de vague mélancolie ou de résignation inerte; -
 d'autres fois, l'œil bleu gardait jusque dans la vieillesse
 sa limpidité virginale; et la joue rose des jeunes À
-hommes, la vaillante pousse des corps superbes annon-
-çait l'intégrité et la vigueur de la séve primitive. Ici, et
+hommes, la vaillante pousse des corps superbes annonçait l'intégrité et la vigueur de la séve primitive. Ici, et
 à cinquante lieues alentour de Paris, la beauté manque,
 mais l'intelligence brille, non pas la verve pétulante et
 la gaieté bavarde des méridionaux, mais l'esprit leste,
@@ -5821,9 +5518,7 @@ en fait en errant à l'aventure dans des rues inconnues
 
 n'en avons pas d'autres à présent en cette matière, et il
 
-: faut se contenter de celles-ci, telles quelles, en atten-
-
-dant les chiffres de la statistique, et la précision des
+: faut se contenter de celles-ci, telles quelles, en attendant les chiffres de la statistique, et la précision des
 
 7 expériences. Il n'y a pas encore de science des races(1),
 
@@ -5854,8 +5549,7 @@ MM. Brown-Sequard, Béclard, Broca, Follin, Verneuil. — Note de
 causes; un cheval de Hollande est aussi peu semblable
 à un cheval de Provence qu'un homme d'Amsterdam à de
 un homme de Marseille. Je crois même que l'homme,:
-ayant plus de facultés, reçoit des impressions plus pro-
-fondes; le dehors entre en lui davantage, parce que les
+ayant plus de facultés, reçoit des impressions plus profondes; le dehors entre en lui davantage, parce que les
 portes chez lui sont plus nombreuses. Imaginez le
 
 paysan qui vit toute la journée en plein air, qui n'est
@@ -5863,8 +5557,7 @@ point, comme nous, séparé de la nature par l'artifice
 des inventions protectrices et par la préoccupation des
 idées ou des visites. Le ciel et le paysage lui tiennent
 lieu de conversation; il n'a point d'autres poëmes;
-ce ne sont point les lectures et les entretiens qui rem-
-plissent son esprit, mais les formes et les couleurs qui:
+ce ne sont point les lectures et les entretiens qui remplissent son esprit, mais les formes et les couleurs qui:
 l'entourent; il y rêve, la main appuyée sur le manche
 quand le soir il rentre assis sur son cheval, les jambes
 pendantes, et que ses yeux suivent sans réflexion les
@@ -5910,7 +5603,7 @@ redira plus tard. ».…..
 
 Sans s'en douter vaut un certain prix. « Quelle oppo-
 Ê sition entre notre littérature du douzième siècle et celle
-À des nations voisines. »:
+À des nations voisines.
 
 J'arrète ici pour aujourd'hui la citation; la méthode
 est bien ce que nous avons dit; elle est doublement ce
@@ -5938,8 +5631,7 @@ qu'il soit, nous obtenons déjà d'assez beaux résultats;
 nous étudierons séparément l'homme, l'artiste, le
 penseur, le rêveur, le géomètre, l'écrivain, le styliste,
 et j'en passe, dans la même personne, dans le même
-auteur; cela fera autant de chapitres; nous nous garderons surtout de nous occuper dans le même cha-
-pitre de l'art et de l'artiste; cela ferait un chapitre
+auteur; cela fera autant de chapitres; nous nous garderons surtout de nous occuper dans le même chapitre de l'art et de l'artiste; cela ferait un chapitre
 de perdu; et si d'aventure, de male aventure nous parvenons à parcourir toutes les indéfinités, toutes les
 infinités de détail de tous ces chapitres, de toutes ces
 
@@ -6013,8 +5705,7 @@ il infinité d'infinité du détail; la manière dont on traite
 4 le sujet, quand on est parvenu au sujet, revient en
 effet à le traiter lui-même comme un chemin, comme
 un parcours, comme un lieu de passage indéfiniment
-détaillé, comme un circuit lui-même, à faire en défi-
-nitive comme s'il n'était pas le sujet, à faire qu'il ne
+détaillé, comme un circuit lui-même, à faire en définitive comme s'il n'était pas le sujet, à faire qu'il ne
 (4 soit pas le sujet.
 
 Avant de commencer, une infinité du détail par cirs culation; au moment de commencer, une infinité d'infif nité du détail par multipartition.
@@ -6027,8 +5718,7 @@ l'infinie faiblesse d'une méthode que je suis bien forcé
 à le jury d'État constitué pour maintenir à l'agrégation
 À de philosophie la pureté première des doctrines révolues, je puis traiter des méthodes intuitives et discur-
 ‘ie sives, et les confronter, sans encourir, comme il advint
-récemment d'un jeune homme, les foudres universi-
-taires; de la certitude discursive et de la certitude
+récemment d'un jeune homme, les foudres universitaires; de la certitude discursive et de la certitude
 intuitive; la méthode intuitive passe en général pour
 surhumaine, orgueilleuse, mystérieuse, agnosticiste; et
 l'on croit que la méthode discursive est humaine,
@@ -6053,8 +5743,7 @@ série indéfinie, infinie de détail s'interpose immense,
 comment épuiser ce détail; un Dieu seul y suflirait; et
 dans le même temps que les professeurs d'histoire et
 que les historiens renonçaient à devenir des rois et des
-empereurs, et qu'ils s'en félicitaient, ils ne s'aperce-
-vaient point que dans le même temps cette même nouvelle méthode, cette méthode scientifique, cette méthode
+empereurs, et qu'ils s'en félicitaient, ils ne s'apercevaient point que dans le même temps cette même nouvelle méthode, cette méthode scientifique, cette méthode
 historique moderne exigeait qu'ils devinssent des Dieux.
 Telle est bien l'ambition inouïe du monde moderne;
 ambition non encore éprouvée: le savant chassant Dieu
@@ -6064,8 +5753,7 @@ la métaphysique, où peut-être on lui pourrait trouver
 quelque occupation; Dieu chassé de l'histoire; et par
 une singulière ironie, par un nouveau retour, Dieu se
 retrouvant dans le savant historien, Dieu non chassé
-du savant historien, c'est-à-dire, littéralement, l'histo-
-rien ayant conçu sa science selon une méthode qui;
+du savant historien, c'est-à-dire, littéralement, l'historien ayant conçu sa science selon une méthode qui;
 requiert de lui exactement les qualités d'un Dieu.
 Telle est bien la pensée de derrière la tête de tous:
 ceux qui ont fondé la science historique moderne,
@@ -6081,8 +5769,7 @@ infini, de détail; une humanité Dieu, ayant acquis,
 5 englobé toute connaissance dans l'univers de sa totale,
 Une humanité devenue Dieu par la totale infinité de
 sa connaissance, par l'amplitude infinie de sa mémoire
-totale, cette idée est partout dans Renan; elle fut vrai-
-ment le viatique, la consolation, l'espérance, la secrète
+totale, cette idée est partout dans Renan; elle fut vraiment le viatique, la consolation, l'espérance, la secrète
 ardeur, le feu intérieur, l'eucharistie laïque de toute
 une génération, de toute une levée d'historiens, de la
 génération qui dans le domaine de l'histoire inaugurait
@@ -6091,8 +5778,7 @@ meis et caro de carne mea; elle est partout dans
 l'Avenir de la science, — pensées de 1848: — et
 : quel arrêt imaginé pour l'humanité enfin renseignée,
 ; savante, saturée de sa mémoire totale; quel arrêt de
-Le béatitude; quel arrêt de béatitude et vraiment de divi-
-nité; quel paragraphe singulier d'assurance et de
+Le béatitude; quel arrêt de béatitude et vraiment de divinité; quel paragraphe singulier d'assurance et de
 limitation je trouve dans la préface même, écrite au
 1 dernier moment pour présenter au public, dans l'âge
 de la vieillesse, une œuvre de jeunesse:
@@ -6107,8 +5793,7 @@ propre de ces études est, aussitôt qu'elles ont atteint: Fi:
 leur perfection relative, de commencer à se démolir.
 L'histoire des religions est éclaircie dans ses branches
 les plus importantes. Il est devenu clair, non par des
-raisons priori, mais par la discussion même des pré-
-tendus témoignages, qu'il n'y a jamais eu, dans les
+raisons priori, mais par la discussion même des prétendus témoignages, qu'il n'y a jamais eu, dans les
 siècles attingibles à l'homme, de révélation ni de fait,
 surnaturel. Le processus de la civilisation est reconnu
 dans ses lois générales. L'inégalité des races est constatée. Les titres de chaque famille humaine à des
@@ -6148,11 +5833,9 @@ reconnaissent pas toujours les grands ancêtres; ce ne
 sont point les pères qui ne reconnaissent pas leurs fils,
 mais les fils qui ne reconnaissent pas leurs pères; et
 comme nos politiciens bourgeois ne reconnaissent pas
-volontiers leurs grands ancêtres de la révolution fran-
-çaise, ainsi nos modestes historiens ne reconnaissent
+volontiers leurs grands ancêtres de la révolution française, ainsi nos modestes historiens ne reconnaissent
 pas toujours leurs grands ancêtres de la révolution
-mentale moderne, les innovateurs des méthodes histo-
-riques, les créateurs du monde intellectuel moderne;
+mentale moderne, les innovateurs des méthodes historiques, les créateurs du monde intellectuel moderne;
 et puis, depuis le temps des grands vieux, nous avons
 reçu de rudes avertissements; pour deux raisons, l'une
 recouvrant l'autre, nul aujourd'hui n'avancerait que
@@ -6225,8 +5908,7 @@ la meilleure humanité, qu'elle avait atteint sa forme,
 qu'il allait falloir fermer, et songer au repos de béatitude; ce qui est intéressant, ce qui est nouveau, ce n'est
 point qu'une humanité après tant d'autres, ce n'est point
 que l'humanité moderne ait cru, à son tour, qu'elle était
-la meilleure et la dernière humanité; ce qui est inté-
-ressant, ce qui est nouveau, c'est que l'humanité moderne se croyait bien gardée contre de telles faiblesses
+la meilleure et la dernière humanité; ce qui est intéressant, ce qui est nouveau, c'est que l'humanité moderne se croyait bien gardée contre de telles faiblesses
 par sa science, par l'immense amassement de ses connaissances, par la sûreté de ses méthodes; jamais on
 ne vit aussi bien que la science ne fait pas la philosophie, et la vie, et la conscience; tout armé, averti,
 gardé que fût le monde moderne, c'est justement dans
@@ -6236,8 +5918,7 @@ les plus savamment formulées reviennent au même que
 les anciens premiers balbutiements; et de même que
 les plus grands savants du monde, s'ils ne sont pas des
 cabotins, devant l'amour et devant la mort demeurent
-stupides et désarmés comme les derniers des misé-
-rables, ainsi la mère humanité, devenue la plus
+stupides et désarmés comme les derniers des misérables, ainsi la mère humanité, devenue la plus
 savante du monde, s'est retrouvée stupide et désarmée devant la plus vieille erreur du monde; comme
 au temps des plus anciens dieux elle a mesuré les
 formes de civilisation atteintes, et elle a estimé
@@ -6260,9 +5941,7 @@ désagréments avec la maison Calmann Lévy; ce
 en date, et provisoirement la définitive; tout ce livre
 
 admirable et véritablement prodigieux, tout ce livre
-de jeunesse et de force est dans sa luxuriante plé-
-
-nitude comme gonflé de cette foi religieuse; on me
+de jeunesse et de force est dans sa luxuriante plénitude comme gonflé de cette foi religieuse; on me
 
 1 permettra de n'en point citer un mot, pour ne pas citer
 
@@ -6280,8 +5959,7 @@ au lendemain de l'agrégation de philosophie, comme
 
 ï elle était alors, passée en septembre, écrit dans les
 deux derniers mois de 1848 et dans les quatre ou cinq
-4 premiers mois de 1849, le gros volume, âpre, dogma-
-tique, sectaire et dur, l'énorme paquet littéraire, le gros
+4 premiers mois de 1849, le gros volume, âpre, dogmatique, sectaire et dur, l'énorme paquet littéraire, le gros
 : livre, avec sa pesanteur et ses allures médiocrement
 É littéraires, le bagage, le gros volume, le vieux manuscrit, la première construction, les vieilles pages, l'essai
 38 de jeunesse, de forme naïve, touffue souvent abrupte,
@@ -6296,8 +5974,7 @@ soit malheureusement presque toujours qu'une maturité
 persévérante réalisée, brusquement révélée dans un
 
 éclair de jeunesse; Renan lui-même en a beaucoup plus
-vécu, encore beaucoup plus qu'il ne l'a dit dans sa pré-
-face; et le vieux Pourana de l'auteur est vraiment
+vécu, encore beaucoup plus qu'il ne l'a dit dans sa préface; et le vieux Pourana de l'auteur est vraiment
 aussi le vieux Pourana du monde moderne; combien
 de modernes, le disant, ne le disant pas, en ont vécu;
 aujourd'hui encore, inconsciemment ou non, tous nous
@@ -6337,8 +6014,7 @@ savoir et le pouvoir sont illimités, et par contre-coup la
 sans sortir du cercle connu de la biologie. Une large
 1 application des découvertes de la physiologie et du
 ï. principe de sélection pourrait amener la création d'une
-16 race supérieure, ayant son droit de gouverner, non seu-
-lement dans sa science, mais dans la supériorité même
+16 race supérieure, ayant son droit de gouverner, non seulement dans sa science, mais dans la supériorité même
 de son sang, de son cerveau et de ses nerfs. Ce seraient
 des espèces de dieux ou dévas, êtres décuples en
 valeur de ce que nous sommes, qui pourraient être
@@ -6399,9 +6075,7 @@ rêves; par lui, en lui nous pouvons saisir enfin toute
 [4 l'orientation de la pensée moderne, son désir secret,
 [4 son rêve occulte.
 « On imagine donc (sans doute hors de notre plaFl nête) la possibilité d'êtres auprès desquels l'homme
-. serait presque aussi peu de chose qu'est l'animal rela-
-tivement à l'homme; une époque où la science rempla-
-cerait les animaux existants par des mécanismes plus
+. serait presque aussi peu de chose qu'est l'animal relativement à l'homme; une époque où la science remplacerait les animaux existants par des mécanismes plus
 élevés, comme nous voyons que la chimie a remplacé
 . des séries entières de corps de la nature par des séries
 
@@ -6428,8 +6102,7 @@ inquiétant, nouveau, passionnant; pourtant il faut que
 je recommence:
 
 « L'univers serait ainsi consommé en un seul être
-organisé, dans l'infini duquel se résumeraient des dé-
-cillions de décillions de vies, passées et présentes à la
+organisé, dans l'infini duquel se résumeraient des décillions de décillions de vies, passées et présentes à la
 
 il est évident qu'un tel résumé ne pourrait s'obtenir que par une totalisation de la mémoire universelle, donc par une globalisation, par un achèvement,
 et par un arrêt de l'histoire.
@@ -6446,8 +6119,6 @@ vie propre et de la vie de l'ensemble. »
 C'est bien le ramassement de toute la mémoire humaine
 et surhumaine en une conscience Dieu; ce ramassement
 peut s'obtenir par deux moyens; si l'on croit en Dieu,
-
-Charles Péguy
 
 si l'on admet la résurrection des morts, et le miracle,
 Le ceramassement de toute la mémoire des créatures peut
@@ -6475,8 +6146,7 @@ qui s'est haussé en Dieu, qui a culminé en Dieu, qui
 Voire il faut que je me résolve à découper ici mon
 
 bien imparfaite encore) par la morale, la science et
-1 à l'art. Les religions sont les formes abrégées et popu-
-laires de cette participation; est leur sainteté. Mais
+1 à l'art. Les religions sont les formes abrégées et populaires de cette participation; est leur sainteté. Mais
 8 la nature aspire à une communion bien plus intense,
 À communion qui n'atteindra son dernier terme que
 1 à quand il y aura un être actuellement parfait. Un tel
@@ -6490,10 +6160,9 @@ d'un état où, dans l'infinité de l'espace, tout vive. Peu
 de matière est maintenant organisée, et ce qui est
 organisé est faiblement organisé; mais on peut admettre
 un âge où toute la matière soit organisée, où des
-milliers de soleils agglutinés ensemble serviraient à:
+milliers de soleils agglutinés ensemble serviraient
 former un seul être, sentant, jouissant, absorbant par
-son gosier brûlant un fleuve de volupté qui s'épan-
-cherait hors de lui en un torrent de vie. Cet univers
+son gosier brûlant un fleuve de volupté qui s'épancherait hors de lui en un torrent de vie. Cet univers
 vivant présenterait les deux pôles que présente toute
 masse nerveuse, le pôle qui pense, le pôle qui jouit.
 Maintenant, l'univers pense et jouit par des millions
@@ -6505,8 +6174,7 @@ divine, la Terre aura peut-être été prise et gâchée
 comme une motte que l'on pétrit sans souci de la fourmi
 ou du ver qui s'y cache. Que voulez-vous? Nous en
 faisons autant. La nature, à tous les degrés, a pour
-soin unique d'obtenir un résultat supérieur par le sacri-
-fice d'individualités inférieures. Est-ce qu'un général,
+soin unique d'obtenir un résultat supérieur par le sacrifice d'individualités inférieures. Est-ce qu'un général,
 un chef d'État tient compte des pauvres gens qu'il fait
 
 « Un seul être résumant toute la jouissance de
@@ -6568,8 +6236,7 @@ de ladite abbaye. L'impôt mis sur ces terres les purifie
 seul un peu, en les faisant servir à un but supérieur.
 
 « Quelques-uns vivent pour tous. Si on veut changer
-cet ordre, personne ne vivra. L'Égyptien, sujet de Ché-
-phrem, qui est mort en construisant les pyramides, a
+cet ordre, personne ne vivra. L'Égyptien, sujet de Chéphrem, qui est mort en construisant les pyramides, a
 plus vécu que celui qui a coulé des jours inutiles sous
 ses palmiers. Voilà la noblesse du peuple; il n'en désire
 pas d'autre; on ne le contentera jamais avec de
@@ -6678,7 +6345,7 @@ d'égoisme de l'être grandissant, se réalisera peut-être
 le rêve de la religion déiste, une conscience suprême,
 rendant justice au pauvre, vengeant l'homme vertueux.
 « Cela doit être; donc cela est dit le déiste. Nous autres,
-nous disons: « Donc cela sera »; et ce raisonnement a
+nous disons: « Donc cela sera et ce raisonnement a
 sa légitimité, puisque nous avons que les rêves de la
 conscience morale peuvent fort bien devenir un jour des
 réalités. On conçoit ainsi une conscience qui résume
@@ -6693,7 +6360,7 @@ qui aura collaboré à l'œuvre d'éternité. Nous vivons en
 (1 4 proportion de la part que nous avons prise à l'édification
 È de l'idéal. L'œuvre de l'humanité est le bien; ceux qui
 LA auront contribué au triomphe du bien fulgebunt sicut
-(: stellæ. Même si la Terre ne sert un jour que de
+stellæ. Même si la Terre ne sert un jour que de
 
 moellon pour la construction d'un édifice futur, nous
 serons ce qu'est la coquille géologique dans le bloc des-
@@ -6707,15 +6374,12 @@ plus que quand il était un Galiléen obscur; mais il ne
 vit plus.
 
 « Il vit encore. Sa personne subsiste et est même aughi mentée. L'homme vit où il agit. Cette vie nous est plus
-chère que la vie du corps, puisque nous sacrifions vo-
-lontiers celle-ci à celle-là. Remarquez bien que je ne
-Le parle pas seulement de la vie dans l'opinion, de la ré-
-putation, du souvenir. Celle-ci en effet ne suffit pas;
+chère que la vie du corps, puisque nous sacrifions volontiers celle-ci à celle-là. Remarquez bien que je ne
+Le parle pas seulement de la vie dans l'opinion, de la réputation, du souvenir. Celle-ci en effet ne suffit pas;
 elle a trop d'injustices. Les meilleurs sont ceux qui la
 fuient. Tamerlan est plus célèbre que tel juste ignoré.
 Marc-Aurèle n'a la réputation qu'il mérite que parce
-! qu'il a été empereur et qu'il a écrit ses pensées. L'in-
-fluence vraie est l'influence cachée; non que l'opinion
+! qu'il a été empereur et qu'il a écrit ses pensées. L'influence vraie est l'influence cachée; non que l'opinion
 À définitive de l'histoire soit en somme très fausse; mais
 4 elle pèche tout à fait par la proportion. Tel innomé a
 
@@ -6744,9 +6408,7 @@ de l'existence. Un tel mot n'a plus de sens quand on
 veut l'appliquer au tout, à l'univers, à Dieu. Conscience
 suppose une limitation, une opposition du moi et du
 non-moi, qui est la négation même de l'infini. Ce qui
-est éternel, c'est l'idée. La matière est chose toute relative; elle n'est pas réellement ce qui est; elle est la cou-
-
-leur qui sert à peindre, le marbre qui sert à sculpter,:
+est éternel, c'est l'idée. La matière est chose toute relative; elle n'est pas réellement ce qui est; elle est la couleur qui sert à peindre, le marbre qui sert à sculpter,:
 2 la laine qui sert à broder. La possibilité de faire exister
 É de nouveau ce qui a déjà existé, de reproduire tout ce
 E. qui a de la réalité ne saurait être niée. Hâtons-nous de
@@ -6765,7 +6427,7 @@ cela. Pour moi, je ne réclame pas précisément l'immor1 talité, mais je voudr
 il pas offert au néant et au vide les sacrifices que j'ai
 faire au bien et au vrai; je ne demande pas à en être
 payé; mais je désire que cela serve à quelque chose:
-;: en second lieu, le peu que j'ai fait, je serais bien aise
+en second lieu, le peu que j'ai fait, je serais bien aise
 que quelqu'un le sût; je veux l'estime de Dieu, rien de
 : plus; ce n'est pas exorbitant, n'est-ce pas? Reproche1 t-on au soldat mourant de s'intéresser au gain de la
 bataille et de désirer savoir si son chef est content de
@@ -6809,7 +6471,7 @@ nous donnons le nom de conscience, c'est ce que les faits
 ._ généraux de la nature semblent indiquer. Tout dans la
 5 nature se réduit au mouvement. Oui certes; mais le
 mouvement a une cause et un but. La cause c'est l'idéal;
-le but, c'est la conscience. à:
+le but, c'est la conscience.
 
 « Je me dis souvent que si le but du monde était une
 course aussi haletante que vous le supposez vers la
@@ -6854,9 +6516,7 @@ avec un thermomètre ordinaire. Le développement particulier dont nous sommes l
 l'absolu, et nous y appliquons les lignes d'un arrièreplan situé à l'infini. Nous confondons les plans du
 paysage; nous commettons la même erreur que celle à
 laquelle on est exposé en déchiffrant les papyrus
-d'Herculanum. Les différents feuillets se pénètrent réci-
-
-proquement, et l'on rapporte à une page des lettres qui
+d'Herculanum. Les différents feuillets se pénètrent réciproquement, et l'on rapporte à une page des lettres qui
 viennent de dix pages plus loin.
 12 « Remercions Théoctiste de nous avoir dit tous ses
 rêves. « C'est bien à peu près ainsi que parlent les
@@ -6894,8 +6554,7 @@ solide appui, par les sciences physiques, chimiques,
 particulièrement par les sciences naturelles; — mais ici
 que dirions-nous de Taïine qui faisait aux sciences mathé-
 .. matiques, physiques, chimiques, naturelles, une incessante référence; — c'est justement par le progrès des
-sciences naturelles que nous sommes aujourd'hui recon-
-duits à des conceptions plus humaines, et, le mot le dit,
+sciences naturelles que nous sommes aujourd'hui reconduits à des conceptions plus humaines, et, le mot le dit,
 plus naturelles; je n'ignore pas toutes les précautions
 qu'il y aurait à prendre si l'on voulait saisir, commenter
 et critiquer tout ce texte; mais telle n'est pas aujourd'hui la tâche que nous nous sommes assignée; je
@@ -6908,13 +6567,11 @@ bâtiments entiers qu'un mot, un seul mot de Pascal, par
 la simple confrontation, anéantirait; je connais les proLXII
 
 à portions à garder; je sais mesurer un Pascal et un
-14 Renan; et je n'offenserai personne en disant que je ne
+Renan; et je n'offenserai personne en disant que je ne
 12 confonds point avec un grand historien celui qui est le
 penseur même; si j'avais à saisir et à commenter et à
 4 critiquer le texte que nous avons reproduit, je sais qu'il
-Ê k. faudrait commencer par distinguer dans le texte preLe mièrement la pensée de Renan; deuxièmement l'arrière-
-pensée de Renan; troisièmement, et ceci est particuliè-
-rement regrettable à trouver, à constater, des fausses
+Ê k. faudrait commencer par distinguer dans le texte preLe mièrement la pensée de Renan; deuxièmement l'arrièrepensée de Renan; troisièmement, et ceci est particulièrement regrettable à trouver, à constater, des fausses
 fenêtres, des fragments, à peine habillés, d'un cours de
 à philosophie de l'enseignement secondaire, comme était”
 1 l'enseignement secondaire de la philosophie au temps
@@ -6971,9 +6628,7 @@ question nous ne l'avons pas interrompu, parce qu'il est
 
 É décisif, pourvu qu'on l'entende, et sans même qu'on
 
-l'interprète; il est formellement un texte de métaphy-
-
-sique, et j'irai jusqu'à dire qu'il est un texte de théo-
+l'interprète; il est formellement un texte de métaphysique, et j'irai jusqu'à dire qu'il est un texte de théo-
 
 Les textes de Taïne, et sur ces textes reportons-nous
 
@@ -7026,8 +6681,7 @@ Fontaine comme un grand exemple, comme un éminent
 cas particulier, comme un grand symbole honnête, si
 magnifiquement et si honnêtement composé que si
 quelqu'un d'autre que Taine avait voulu le faire exprès,
-pour la commodité de la critique et pour l'émerveil-
-lement des historiens, il n'y eût certes pas à beaucoup
+pour la commodité de la critique et pour l'émerveillement des historiens, il n'y eût certes pas à beaucoup
 près aussi bien réussi; je tiens ce tour de France pour
 un symbole unique; oui c'est bien le voyage antérieur
 que nous faisons tous, avant toute étude, avant tout
@@ -7040,15 +6694,13 @@ le tour des bibliothèques; et pareillement nous devons
 à Taine, en ce même La Fontaine, un exemple éminent
 de multipartition effectuée à l'intérieur du sujet même;
 nl: et nous allons lui devoir un exemple éminent d'accom1 plissement final; car ces théories qui empoignent si
-brutalement les ailes froissées du pauvre génie re-
-viennent, elles aussi, elles enfin, à supposer un épui-
+brutalement les ailes froissées du pauvre génie reviennent, elles aussi, elles enfin, à supposer un épui-
 1 sement du détail indéfini, infini; elles reviennent exac-
 : tement à saisir, ou à la prétention de saisir, dans toute
 3 l'indéfinité, dans toute l'infinité de leur détail, toutes
 les opérations du génie même; chacune de ces théories,
 à d'apparence doctes, modestes et scolaires, en réalité
-4 recouvre une anticipation métaphysique, une usurpah. tion théologique; la plus humble de ces théories sup-
-pose, humble d'apparence, que l'auteur a pénétré le
+4 recouvre une anticipation métaphysique, une usurpah. tion théologique; la plus humble de ces théories suppose, humble d'apparence, que l'auteur a pénétré le
 secret du génie, qu'il sait comment se fabrique, même qu'il en fabriquerait, qu'il a pénétré le secret de
 13 la nature et de l'homme, c'est-à-dire, en définitive,
 Et qu'ayant épuisé toute l'indéfinité, toute l'infinité du
@@ -7060,8 +6712,7 @@ prétention, la saisie, par l'historien, par l'auteur, en
 pleine vie, en pleine élaboration, du génie vivant; et
 1) pour saisir le génie, la saisie de tout un peuple, de
 ! toute une race, de tout un pays, de tout un monde. à
-Si telle est vraiment l'atteinte obtenue par les théo-
-ries particulières, quelle ne sera pas la totale atteinte
+Si telle est vraiment l'atteinte obtenue par les théories particulières, quelle ne sera pas la totale atteinte
 1] obtenue par la conclusion, où se ramassent et LXVIIL
 
 minent toutes les ambitions des théories particulières;
@@ -7075,8 +6726,7 @@ historien des réalités économiques, parce que les Renan
 coûtent sept cinquante en librairie et parce queles Taine,
 chez Hachette, ne coûtent que trois francs cinquante;
 et pourquoi, découpant du Renan, recevons-nous une
-impression de mutilation que nous ne recevons pas dé-
-coupant du Taine; c'est que, malgré tout, un livre de
+impression de mutilation que nous ne recevons pas découpant du Taine; c'est que, malgré tout, un livre de
 Taïine est pour nous un volume, et qu'un livre de Renan
 est pour nous plus qu'un livre; et pourquoi ne peut-on
 pas copier du Taine, et peut-on copier du Renan, en se
@@ -7108,7 +6758,7 @@ et chez tous, où l'éducation la nourrit, où l'exemple la
 (1 fortifie, où le caractère la soutient, où le public la
 provoque. Aussi plus elle est grande, plus ses causes
 11 sont grandes; la hauteur de l'arbre indique la profondeur des racines. Plus un poëte est parfait, plus il est
-É: national. Plus il pénètre dans son art, plus il a pénétré
+national. Plus il pénètre dans son art, plus il a pénétré
 dans le génie de son siècle et de sa race. Il a fallu la
 2 finesse, la sobriété, la gaieté, la malice gauloise, l'élé-
 |3 gance, l'art et l'éducation du dix-septième siècle pour
@@ -7122,9 +6772,7 @@ Dot pour produire un Gœthe. Par cette correspondance entre
 l'œuvre, le pays et le siècle, un grand artiste est un:
 homme public. C'est par elle qu'on peut le mesurer et
 te lui donner son rang. C'est par elle qu'il plaît à plus ou
-moins d'hommes et que son œuvre reste vivante pen-
-
-dant un temps plus ou moins long. En sorte qu'on doit
+moins d'hommes et que son œuvre reste vivante pendant un temps plus ou moins long. En sorte qu'on doit
 le considérer comme le représentant et l'abrégé d'un
 esprit duquel il reçoit sa dignité et sa nature. Si cet
 esprit n'est qu'une mode et règne seulement quelques
@@ -7183,8 +6831,7 @@ des genres poétiques, ressemble aux petites plantes
 te arbres immenses qui croissent autour d'elle; on l'oublie,
 4 ou, si l'on baisse les yeux, elle ne semble qu'un point.
 Mais, si on l'ouvre pour examiner l'arrangement inté-
-4: rieur de ses organes, on y trouve un ordre aussi com-
-pliqué que dans les vastes chênes qui la couvrent de
+4: rieur de ses organes, on y trouve un ordre aussi compliqué que dans les vastes chênes qui la couvrent de
 leur ombre; on la décompose plus aisément; on la met
 4 4 mieux en expérience; et l'on peut découvrir en elle les
 lois générales, selon lesquelles toute plante végète et se
@@ -7195,7 +6842,7 @@ ce texte; il faudrait écrire un volume; il faudrait mettre,
 tant le texte est plein et fort; et encore on serait à cent
 lieues d'en avoir épuisé la force et la plénitude; et je ne
 peux pas tomber moi-même dans une infinité du détail;
-d'ailleurs nous retrouverons tous ces textes, et souvent; -:
+d'ailleurs nous retrouverons tous ces textes, et souvent;
 c'était l'honneur et la grandeur de ces textes pleins et
 graves qu'ils débordaient, qu'ils inondaïient le commentaire; c'est l'honneur et la force de ces textes braves et
 pleins qu'ils bravent le commentaire; et si nul commentaire n'épuise'un texte de Renan, nul commentaire
@@ -7229,10 +6876,8 @@ singulièrement avantageuse, que l'historien, j'entends
 
 « historien moderne, possède le secret du génie.
 
-Car vraiment si l'historien est si parfaitement, si com-
-plètement, si totalement renseigné sur les conditions
-mêmes qui forment et qui fabriquent le génie, et premiè-
-rement si nous accordons que ce soient des conditions
+Car vraiment si l'historien est si parfaitement, si complètement, si totalement renseigné sur les conditions
+mêmes qui forment et qui fabriquent le génie, et premièrement si nous accordons que ce soient des conditions
 
 1 extérieures saisissables, connaïssables, connues, qui
 1 forment tout le génie, et non seulement le génie, mais à
@@ -7250,16 +6895,12 @@ même, et tout le reste; car dans l'ordre des sciences
 concrètes qui ne sont pasles sciences de l'histoire, dans
 Î. les sciences physiques, chimiques, naturelles, connaître
 1 exactement, entièrement les conditions antérieures et
-extérieures, ambiantes, qui déterminent les phéno-
-mèênes, c'est littéralement avoir en mains la production
+extérieures, ambiantes, qui déterminent les phénomèênes, c'est littéralement avoir en mains la production
 même des phénomènes; pareillement en histoire, si nous
 connaissons exactement, entièrement les conditions
-physiques, chimiques, naturelles, sociales qui détermi-
-
-nent les peuples, les cultures, les talents, les génies,
+physiques, chimiques, naturelles, sociales qui déterminent les peuples, les cultures, les talents, les génies,
 toutes les créations humaines, et les humanités mêmes,
-et si vraiment d'abord ces conditions extérieures, anté-
-rieures et ambiantes, déterminent rigoureusement les
+et si vraiment d'abord ces conditions extérieures, antérieures et ambiantes, déterminent rigoureusement les
 conditions humaines, et les créations humaines, si de
 telles causes déterminent rigoureusement de tels effets
 par une liaison causale rigoureusement déterminante,
@@ -7297,17 +6938,14 @@ se méfiait des puissances: et comme historien, des évé-
 3 nements; comme historien des dieux, et de Dieu,mieux
 ; que personne il savait comment en jouer, et quelles
 4 sont les limites du jeu; il était un Hellène, un huitième
-sage; il connaissait d'instinct que l'homme a des li-
-mites; et qu'il ne faut point se brouiller avec de trop
-grands bons Dieux; il s'était donc familièrement con-
-tenté de donner à l'humanité, à l'historien, les pouvoirs
+sage; il connaissait d'instinct que l'homme a des limites; et qu'il ne faut point se brouiller avec de trop
+grands bons Dieux; il s'était donc familièrement contenté de donner à l'humanité, à l'historien, les pouvoirs
 du Dieu tout connaissant; il n'eût point mis à son
 temple d'homme un surfaîte orgueilleux et-qui bravât
 Altier, entier, droit, Taine a cette audace; il a
 a. commis cet excès; il a ce courage; il a fait cet ouF trepassement; et c'est pour cela, c'est pour cet auda14 cieux dépassement que c'est par lui, et non par son
 illustre contemporain, qu'enfin nous connaissons, dans
-11 le domaine de l'histoire, tout l'orgueil et toute la pré-
-tention de la pensée moderne; avec Renan, il ne s'agis-
+11 le domaine de l'histoire, tout l'orgueil et toute la prétention de la pensée moderne; avec Renan, il ne s'agis-
 1 sait encore, en un langage merveilleux de complai-
 À sance audacieuse, que de constituer une lointaine
 : surhumanité en un Dieu tout connaissant par une totali lisation de la mémoire historique; avec Taine au conl traire, ou plutôt au delà, nous avons épuisé nettement
@@ -7351,15 +6989,13 @@ nous croyons être un sentiment de l'orgueil était pour
 4 cela que nous lui devons, à lui et non à son illustre
 compatriote, la révélation que nous avons enfin du der-
 1 nier mot de la pensée moderne dans le domaine de l'hisLA toire et de l'humanité.
-Il y a bien de la fabrication dans Renan, mais com-
-bien précautionneuse, attentive, religieuse, éloignée,
+Il y a bien de la fabrication dans Renan, mais combien précautionneuse, attentive, religieuse, éloignée,
 ; ménagée, aménagée; c'est une fabrication en réserve,
 Se une fabrication de rêve et d'aménagement, entourée de
 à quels soins, de quelles attentions, délicates, maternelles;:
 on fabriquera ce Dieu dans un bocal, pour qu'il ne
 4 redoute pas les courants d'air; on lui fera des condi-
-4 tions spéciales; cette fabrication de Renan est vrai-
-ment une opération surhumaine, une génération humaine, suivie d'un enfantement surhumain; et l'hu-
+4 tions spéciales; cette fabrication de Renan est vraiment une opération surhumaine, une génération humaine, suivie d'un enfantement surhumain; et l'hu-
 É manité de Renan, ou la surhumanité de Renan, si elle
 À usurpe les fonctions divines, premièrement, nous
 5 l'avons dit, usurpe les fonctions de connaissance
@@ -7383,8 +7019,7 @@ incalculable de risques; Renan, grand artiste, a évidemment compté sur la sour
 et l'escompte de tous ces risques produiraient dans
 l'esprit du lecteur; lui-même il envisage complaisam-!
 ment ces risques; ils atténuent, par un secret espoir de
-libération, de risque, d'aventure, et, qui sait, de cassure, disons le mot, de ratage, cette impression de servitude mortelle et d'achèvement clos; ils effacent peut-
-être cette impression de servitude; et quand même ils
+libération, de risque, d'aventure, et, qui sait, de cassure, disons le mot, de ratage, cette impression de servitude mortelle et d'achèvement clos; ils effacent peutêtre cette impression de servitude; et quand même ils
 effaceraient cette impression glaciale; l'auteur sans
 doute s'en consolerait aisément; il ne tient pas tant
 que cela aux impressions qu'il fait naître; ces risques
@@ -7418,8 +7053,7 @@ réalisation du risque au passé, de l'indicatif, passé
 indéfini; c'est acquis; c'est entendu; et la réalisation
 d'échapper au risque, la réalisation de Dieu, il met la
 réalisation de Dieu au futur, qui est le temps des pro-.
-phéties; si elle est mise au temps des prophéties, reli-
-gieuses, si elle est une prophétie, peut-être bien qu'elle
+phéties; si elle est mise au temps des prophéties, religieuses, si elle est une prophétie, peut-être bien qu'elle
 ne se réalisera pas, espérons qu'elle ne se réalisera pas;
 il était payé pour savoir ce que valent les prophéties,
 particulièrement les prophéties religieuses, et comment
@@ -7452,8 +7086,7 @@ sérieux; Taine n'était pas un homme qui s'amusait, et
 qui jouait avec ses amusements; ce qui rend le cas de
 Taine particulièrement grave, et particulièrement caractéristique, et particulièrement important pour nous, et,
 comme on dit, éminemment représentatif, c'est que
-dans sa grande honnêteté universitaire il usurpe nette-
-ment les fonctions de création, et qu'il usurpe ces
+dans sa grande honnêteté universitaire il usurpe nettement les fonctions de création, et qu'il usurpe ces
 fonctions pour l'humanité présente avec une brutalité
 
 La seule garantie qu'on nous donne à présent est
@@ -7482,11 +7115,9 @@ parce qu'il était malhabile, maladroit dans les converfi sations religieuses, g
 ; mais elles sont d'autant moins nuancées, d'autant moins
 Î. modestes au contraire; et en réalité elles impliquent
 une immédiate saisie de l'homme historien, moderne,
-(ri sur la totalité de la création; c'est parce que les propo-
-sitions de Renan revêtent un langage surhumain qu'elles
+(ri sur la totalité de la création; c'est parce que les propositions de Renan revêtent un langage surhumain qu'elles
 sont modestes, sincères, qu'elles ne nous trompent pas
-? sur ce qu'elles contiennent ou veulent révéler de sur-
-humanité; et c'est parce que les propositions de Taine
+? sur ce qu'elles contiennent ou veulent révéler de surhumanité; et c'est parce que les propositions de Taine
 revêtent un simple langage professoral, modeste, qu'à
 son insu elles nous trompent et que, nous donnant le
 1! dernier mot de la pensée moderne en tout ce qui tient
@@ -7500,8 +7131,7 @@ sommes aujourd'hui situés à distance du commencement; nous avons reçu des ave
 anciens ne recevaient pas; ou sur qui leur attention
 n'avait pas été attirée autant que la nôtre; nous avons
 reçu du travail même et de la réalité de rudes avertissements; du travail même nous avons reçu cet avertissement que le détail, au contraire, est au fond le grand
-ennemi, que ni l'indéfinité, l'infinité du détail anté-
-rieur, ni l'indéfinité, l'infinité du détail intérieur, ni
+ennemi, que ni l'indéfinité, l'infinité du détail antérieur, ni l'indéfinité, l'infinité du détail intérieur, ni
 l''indéfinité, l'infinité du détail de création ne se
 peut épuiser; et de la réalité nous avons reçu ce
 rude avertissement que l'historien ne tient pas encore
@@ -7514,9 +7144,7 @@ la plus mauvaise; les pessimismes aujourd'hui nous
 paraissent aussi vains que les optimismes, parce que
 les pessimismes sont des arrêts comme les optimismes,
 et que c'est l'arrêt même qui nous paraît vain; qui aujourd'hui se flatterait d'arrêter l'humanité, ou dans le
-bon, ou dans le mauvais sens, pour une halte de béati-
-
-tude, ou pour une halte de damnation; l'idée que nous
+bon, ou dans le mauvais sens, pour une halte de béatitude, ou pour une halte de damnation; l'idée que nous
 recevons au contraire de toutes parts, du progrès et de
 4 l'éclaircissement des sciences concrètes, physiques,
 chimiques, et surtout naturelles, de la vérification et de
@@ -7537,14 +7165,10 @@ peut-être on n'en verra la fin; que le vieil adage antique,
 suivant lequel nous ne nous connaissons pas nousmêmes, non seulement est demeuré vrai dans les temps
 modernes, et sera sans doute vrai pendant un grand
 ; nombre de temps encore, si, même, il ne demeure pas
-vrai toujours, mais qu'il reçoit tous les jours de nou-
-velles et de plus profondes vérifications, imprévues des
+vrai toujours, mais qu'il reçoit tous les jours de nouvelles et de plus profondes vérifications, imprévues des
 anciens, inattendues, nouvelles perpétueitement; que
-sans doute il en recevra éternellement; que l'avance-
-ment que nous croyons voir se dessiner revient peutEn être à n'avancer que dans l'approfondissement de cette « formule antique, à lui trouver tous les jours des sens
-nouveaux, des sens plus profonds; qu'il reste immen-
-
-sément à faire, et encore plus immensément à connaître; que tout est immense, le savoir excepté;
+sans doute il en recevra éternellement; que l'avancement que nous croyons voir se dessiner revient peutEn être à n'avancer que dans l'approfondissement de cette « formule antique, à lui trouver tous les jours des sens
+nouveaux, des sens plus profonds; qu'il reste immensément à faire, et encore plus immensément à connaître; que tout est immense, le savoir excepté;
 surtout qu'il faut s'attendre à tout; que {out arrive;
 qu'il suffit d'avoir un bon estomac; que nous sommes
 devant un spectacle immense et dont nous ne connaissons que d'éphémères incidents; que ce spectacle
@@ -7625,14 +7249,13 @@ De quoi demain sera-t-il fait?
 Ainsi avertis parmi nous, comment nos camarades
 historiens ne renieraient-ils pas aujourd'hui les primitives ambitions, les anticipations de l'un, les assurances
 de l'autre, et les infinies présomptions qui ont pourtant
-institué toute la pensée moderne; comment ne les renie-
-raient-ils pas, avertis qu'ils sont dans leur propre travail; et comment travailleraient-ils même s'ils ne les
+institué toute la pensée moderne; comment ne les renieraient-ils pas, avertis qu'ils sont dans leur propre travail; et comment travailleraient-ils même s'ils ne les
 reniaient pas incessamment; sachons-le; toutes les fois
 qu'il paraît en librairie un livre, un volume d'un historien moderne, c'est que l'historien a oublié Renan, qu'il
 a oublié Taine, qu'il a oublié toutes ces grandeurs et
 toutes ces ambitions; qu'il a oublié les enseignements
 
-- des maîtres de la pensée moderne; et les prétentions à:
+- des maîtres de la pensée moderne; et les prétentions
 
 l'infinité du détail; et que, tout bêtement, il s'est remis
 à travailler comme Thucydide.
@@ -7644,17 +7267,15 @@ ils travaillaient, oubliaient, étaient contraints d'oublier
 toutes les fois qu'un volume de Taine paraissait, c'était
 
 18 que Taine avait, pour la pratique de son travail, pour
-[1 la réalisation du résultat, oublié de poursuivre l'indéfi-
-nité du détail; toutes les fois qu'il paraissait un livre
+[1 la réalisation du résultat, oublié de poursuivre l'indéfinité du détail; toutes les fois qu'il paraissait un livre
 de Renan, c'était que Renan avait, pour cette fois,
 renoncé à la totalisation du savoir; ils avaient choisi;
-À; comme tout le monde, comme les anciens, comme Hérodl dote, comme Plutarque, et comme Platon, ils avaient
+comme tout le monde, comme les anciens, comme Hérodl dote, comme Plutarque, et comme Platon, ils avaient
 É Choisi, le grand mot est là; choisir est un moyen
 d'art; comment choisir, si l'on ne veut absolument pas
 a. employer les moyens d'art; choisir, c'est faire un rac- -
 courci; et le raccourci est un des moyens d'art les plus
-1 difficiles; comment choisir, donc, si l'on refuse absolu-
-ment d'employer les moyens d'art; comment choisir,
+1 difficiles; comment choisir, donc, si l'on refuse absolument d'employer les moyens d'art; comment choisir,
 4 enfin, dans l'indéfinité, dans l'infinité du détail, dans
 1 l'immensité du réel, sans quelque intuition, sans quel-
 , que aperception directe, sans quelque saisie intérieure;
@@ -7713,9 +7334,7 @@ texte; mais ce n'était jamais des commentaires qui
 
 É entravaient le texte; qui l'encombraient; c'étaient au
 a contraire, quand le texte était préalablement encombré
-de malentendus, des commentaires pour le désencom-
-
-brer; je me ferais un scrupule d'appeler Chad Gadya!
+de malentendus, des commentaires pour le désencombrer; je me ferais un scrupule d'appeler Chad Gadya!
 
 en exemple, en illustration d'un travail de recherche:
 
@@ -7726,15 +7345,9 @@ poèmes ne sont point faits pour les besoins des histo-
 
 ; bord sans aucune arrière-pensée d'utilisation ce poème
 
-unique, cet étrange et cet admirable poème; il sera tou-
+unique, cet étrange et cet admirable poème; il sera toujours temps d'en parler plus tard; si jamais l'impression reçue de la lecture s'efface un peu, et ainsi atté-.
 
-jours temps d'en parler plus tard; si jamais l'impres-
-
-sion reçue de la lecture s'efface un peu, et ainsi atté-.
-
-nuée permet aux considérations d'apparaître sans pa-
-
-raître trop misérables en comparaison du texte.
+nuée permet aux considérations d'apparaître sans paraître trop misérables en comparaison du texte.
 
 Nous n'avons pas coutume ici de remercier nos col
 
@@ -7746,9 +7359,7 @@ laborateurs, puisque nous travaillons tous d'un même
 
 À exceptionnel, et de dire combien nous sommes obligés
 
-au traducteur qui, ayant en mains, ayant traduit d'en-
-
-thousiasme ce beau poème, totalement inconnu de nous;
+au traducteur qui, ayant en mains, ayant traduit d'enthousiasme ce beau poème, totalement inconnu de nous;
 
 d'enthousiasme nous l'apporta. À
 
@@ -7776,7 +7387,7 @@ mot: Dieu! Et un drame poignant se déroule dans sa
 
 ne conscience entre les données de sa raison et les mysté-;
 
-à; rieux désirs de son âme. Le silence est la seule réponse
+rieux désirs de son âme. Le silence est la seule réponse
 
 : aux énigmes qui le torturent. Maïs le mol oreiller du
 
@@ -7806,8 +7417,7 @@ père avait commencé le curieux récitatif chaldéen
 Un seul chevreau, un seul chevreau que mon
 ; père acheta pour deux zuzim. Chad Gadya! Chad
 Le jeune homme eut un léger sourire devant
-l'étrangeté du vieux monsieur en habit, un directeur de la Compagnie des bateaux à vapeur dela mo-
-scient de cette singularité, faisant rouler avec
+l'étrangeté du vieux monsieur en habit, un directeur de la Compagnie des bateaux à vapeur dela moscient de cette singularité, faisant rouler avec
 onction les syllabes sonores, accoudé sur les cous-
 ;. sins prescrits par le rite.
 Et le chat vint qui dévora le chevreau, que mon
@@ -7816,8 +7426,7 @@ Il se demandait vaguement ce que lui diraitson
 père, le service fini. Il n'était entré que pendant la
 seconde partie, arrivant de Vienne, inattendu
 
-comme d'habitude, et tout surpris que ce fût justement la nuit de Pâques, avec La cérémonie immé-
-moriale célébrée exactement comme au temps de
+comme d'habitude, et tout surpris que ce fût justement la nuit de Pâques, avec La cérémonie immémoriale célébrée exactement comme au temps de
 son enfance. La rareté de ses visites à ses.vieux:
 parents rendait étrange cette coïncidence d'être
 tombé chez eux à ce moment-là; et en prenant
@@ -7841,16 +7450,14 @@ escalier, — et puis, la transition brusque vers
 célébrer avec du pain sans levain, à travers les:
 Es générations, son voyage précipité au désert!
 : Son père souffrait sans doute de voir le fils aussi
-indifférent aux traditions qui lui étaient si chères à:
+indifférent aux traditions qui lui étaient si chères
 lui-même, bien que depuis longtemps il fût con- à
 ù vaincu de cette vérité amère que ses voies n'étaient
-pas celles de son fils, que leurs pensées étaient dif-
-férentes. Il savait son fils un pécheur en Israël, un
+pas celles de son fils, que leurs pensées étaient différentes. Il savait son fils un pécheur en Israël, un
 « Epikouros un sceptique, un matérialiste égoïste,
 È un amateur de la vie fiévreuse des capitales péennes, dédaigneux des rites de l'alimentation,
 3 adepte des choses défendues; — le fils se regardait à
-lui-même avec les yeux de son père, et le léger sou-
-rire qui se jouait sur ses lèvres mobiles devenait
+lui-même avec les yeux de son père, et le léger sourire qui se jouait sur ses lèvres mobiles devenait
 à plus amer. Ses longs doigts blancs s'agitaient fié-
 Et pourtant il aimait son père; il admirait la
 persévérance qui l'avait conduit à la fortune, la
@@ -7928,8 +7535,7 @@ Dieux défendus, enivré par cette solitaire Vierge
 écrit, — avec cette faculté d'adaptation multiple de
 : sa race, — des poèmes français d'inspiration hellé-
 : nique, des poésies lyriques d'amour, à moitié senties,
-à moitié imaginées, délicatement ciselées. Mainte-
-nant il le comprenait subitement, jamais il n'avait
+à moitié imaginées, délicatement ciselées. Maintenant il le comprenait subitement, jamais il n'avait
 ï exprimé sa vraie personnalité dans l'art, sauf peut-
 ( être dans ce brutal roman italien, écrit sous l'ink fluence de Zola, et si vivement décrié par un monde
 qui ne voyait ni l'amour ni les larmes sous cette
@@ -7943,8 +7549,7 @@ Ghetto, la longue hérédité l'avaient enchaîné dans
 des émotions, dans des impulsions comme avec des
 phylactères. Chad Gadya! Chad Gadya! Cette
 mélodie même éveillait d'innombrables associations
-d'idées. Il revit en un rapide panorama la vie inté-
-rieure intense d'un enfant aux cheveux bouclés,
+d'idées. Il revit en un rapide panorama la vie intérieure intense d'un enfant aux cheveux bouclés,
 flänant dans l'étroite enceinte du Ghetto parmi les
 hautes maisons pittoresques. Un reflet de ses
 anciennes joies enfantines pendant les jours de fête
@@ -8032,8 +7637,7 @@ avaient leur temps de prospérité et s'étaient
 
 Mais Israël poursuit son chemin avec une
 vigueur et un courage invaincus. C'est extraordinaire, ou plutôt, n'est-ce pas miraculeux? Peut-:
-être en effet y a-t-il une « mission d'Israël »? peut-
-être est-il vraiment « le peuple choisi de Dieu
+être en effet y a-t-il une « mission d'Israël peutêtre est-il vraiment « le peuple choisi de Dieu
 Les Vénitiens ont construit et peint des merveilles;
 ils sont morts, les laissant à la contemplation des
 touristes. Les Juifs n'ont rien créé pendant des
@@ -8100,8 +7704,7 @@ l'arc, la lance, l'arquebuse; d'anciennes batailles
 navales, sur les galères aux grappins entremélés.
 à Il revoyait les galériens enchaînés à leurs bancs, —
 la sueur, le sang qui avait souillé l'histoire. « Ainsi
-je m'en retournai et considérai toutes les oppres-
-sions qui ont lieu sous le soleil; et je vis les larmes
+je m'en retournai et considérai toutes les oppressions qui ont lieu sous le soleil; et je vis les larmes
 de ceux qui sont opprimés, et ils n'ont pas de con-
 
 Il se rappela un tableau moderne représentant
@@ -8109,13 +7712,9 @@ Il se rappela un tableau moderne représentant
 une belle femme nue: ce tableau avait coûté le
 bonheur d'une famille; aujourd'hui l'artiste était
 
-mort et immortel; la femme, jadis riche et élé-
+mort et immortel; la femme, jadis riche et élégante, maintenant par les rues. La futilité de tout!.
 
-gante, maintenant par les rues. La futilité de tout!.
-
-Amour, gloire, immortalité! Tous les chemins con-
-
-duisent — nulle part. Quel bien peut tirer un
+Amour, gloire, immortalité! Tous les chemins conduisent — nulle part. Quel bien peut tirer un
 
 homme de tout le travail qu'il a accompli sous le À
 
@@ -8168,8 +7767,7 @@ jours qui se traînent et les nuits de douleur. Que
 de fois il avait tourné sa face contre la muraille
 appelant la mort!
 Peut-être étaient-ce les pierres de la cité morte, et
-la mer qui agissaient ainsi sur son esprit. Tourgue-
-nief a raison: ce sont les jeunes seuls qui doivent
+la mer qui agissaient ainsi sur son esprit. Tourguenief a raison: ce sont les jeunes seuls qui doivent
 venir ici, non ceux qui ont vu, comme Virgile, les
 
 larmes” des choses. Et il se rappela les vers de
@@ -8179,8 +7777,7 @@ Soles occidere et redire possunt
 Nox est perpetuo una dormienda.
 
 Puis il pensa encore à Virgile évoquant un
-paysage toscan où se peint le poète, — et des rangées de cyprès majestueuses, comme des hexamè-
-tres. Il vit la terrasse d'un antique palais, les animaux fantastiques sculptés sur la balustrade, le
+paysage toscan où se peint le poète, — et des rangées de cyprès majestueuses, comme des hexamètres. Il vit la terrasse d'un antique palais, les animaux fantastiques sculptés sur la balustrade, le
 verdoiement des lézards sur le mur du jardin
 endormi et le frais reflet vert du bosquet de cyprès
 avec son délicieux mouvement d'ombre. Un rossignol invisible chantait au-dessus de sa tête. Il suivait la longue promenade sous les yeux de pierre
@@ -8191,9 +7788,7 @@ nichées dans la verdure, des oliviers gris. Qui avait
 
 - foulé ces terrasses aux légères colonnettes? Des
 
-Israël Zangwill
-( princesses du Moyen-Age, dédaigneuses et pas-
-sionnées, s'avançant délicatement avec leurs traînes
+( princesses du Moyen-Age, dédaigneuses et passionnées, s'avançant délicatement avec leurs traînes
 de soie et leurs parfums légers. Il en ferait un
 : poème. Oh! le charme exquis de la vie! Que chan-
 à tait donc un poète dans le cher et doux dialecte
@@ -8211,9 +7806,7 @@ le chat, qui apait dévoré le chevreau, que mon père
 avait acheté pour deux zuzim. Chad Gadya! Chad
 
 Mais la chaleur s'éteignit. Il redevint triste et
-désespéré. Car maintenant il savait ce qui lui man-
-
-quait. Le paganisme ne suffisait pas. IL voulait
+désespéré. Car maintenant il savait ce qui lui manquait. Le paganisme ne suffisait pas. IL voulait
 Dieu, il était affamé de Dieu, le Dieu de ses pères.
 Il ne pouvait rejeter au loin les trois mille ans de
 foi. C'était l'atavisme qui lui donnait ces soudaines
@@ -8242,9 +7835,7 @@ Etil eut la vision d'une morue capturée qu'il avait
 les sables du Lido. Ce spectacle lui avait gâté la
 sublimité de cette étendue désolée de terre et d'eau,
 
-et le charme étrange des voiles blanches, qui sem-
-
-blent glisser le long des pierres du grand récif. Son -
+et le charme étrange des voiles blanches, qui semblent glisser le long des pierres du grand récif. Son -
 âme demandait justice pour l'informe morue. Il ne
 comprenait pas qu'on pût vivre dans un monde
 spirituel, concentré sur soi-même, d'où était exclue
@@ -8264,9 +7855,7 @@ Et c'est sa propre race qui a créé et propagé cette
 
 illusion. Abraham dit à Dieu: « Le Juge de la
 
-terre entière ne doit-il pas être Juste? » — Aupara-
-
-vant Dieu signifiait puissance; mais l'âme de
+terre entière ne doit-il pas être Juste? » — Auparavant Dieu signifiait puissance; mais l'âme de
 l'homme en était venue à soupirer vers la Justice.
 Du chaos de l'existence humaine, l'homme a extrait
 l'idée du Bien, en a fait un Dieu; puis, se retournant contre ce Dieu, il lui a demandé pourquoi il
@@ -8290,8 +7879,7 @@ autre chose que la survivance d'attributs inférieurs,
 restes d'une phase plus reculée d'évolution, ou assez
 souvent la protestation du moi naturel, contre la
 4 morale artificielle des sociétés. Ce sont les croyances
-; qui ont arraché aux choses leur simplicité primor-
-diale. — Mais pour lui, le vieux désir persistait.
+; qui ont arraché aux choses leur simplicité primordiale. — Mais pour lui, le vieux désir persistait.
 Ceci seul serait satisfaisant, Dieu! Dieu! — il était
 ivre de Dieu, sans le calme de Spinoza, sans la
 certitude de Spinoza. Justice, Pitié, Amour, un Être à
@@ -8304,21 +7892,15 @@ toutes les solutions et les équations personnelles de
 ses amis, la toute-suflisance de la science, de l'art,
 du plaisir, du spectacle de l'humanité; elle perçait
 d'une vue inexorable l'optimisme fantasmagorique,
-refusait de s'aveugler avec le Platonisme, l'Hégélia-
-nisme, refusait les conclusions des esthètes, des
-artistes, des savants allemands, contents d'eux-
-mêmes, comme celles des prédicateurs de conven-
-tion; elle demandait justice pour l'individu, jus-
-
-qu'aux moineaux qui se vendent deux sous la paire
+refusait de s'aveugler avec le Platonisme, l'Hégélianisme, refusait les conclusions des esthètes, des
+artistes, des savants allemands, contents d'euxmêmes, comme celles des prédicateurs de convention; elle demandait justice pour l'individu, jusqu'aux moineaux qui se vendent deux sous la paire
 au marché; elle voulait un sens, un but à la marche
 séculaire de la destinée, et savait cependant qu'un
 but est une conception aussi anthropomorphique de
 l'essence des choses que la Justice ou la Bonté. —
 Mais le monde sans Dieu est comme une: dmirable
 femme sans cœur, froide, qui n'a pas de sympathie.
-Il demandait l'illumination de l'âme. Il avait expé-
-rimenté la nature, la couleur, la forme, le mystère,
+Il demandait l'illumination de l'âme. Il avait expérimenté la nature, la couleur, la forme, le mystère,
 — que n'avait-il pas expérimenté? Il avait aimé la
 nature, avait presque trouvé la paix dans la passion
 de la terre, le parfum enivrant des herbes et des
@@ -8397,8 +7979,7 @@ g. enverrait sa note. Les gens dineraient en ville, se
 taperaient sur le ventre en se racontant de vieilles
 anecdotes de fumoir.
 
-À Il y aurait des couturières à la mode. La syna-
-gogue persécuterait tout ce qui la dépasse; les
+À Il y aurait des couturières à la mode. La synagogue persécuterait tout ce qui la dépasse; les
 
 prêtres exalteraient le monde spirituel devant un
 monde animal approbateur; la presse servirait les
@@ -8430,8 +8011,7 @@ Chad Gadya! Chad Gadya! Jamais il ne s'était
 à la fin de la cérémonie. Tout est fini, tout est fini,
 É semblaient-ils gémir, et l'étrange vieille musique
 à donnait un sentiment d'infinie désillusion, de repos
-infini: une fin, une conclusion, des choses termi-
-nées et laissées là, une fièvre tombée, un travail
+infini: une fin, une conclusion, des choses terminées et laissées là, une fièvre tombée, un travail
 achevé, une clameur apaisée, un son de cloche
 d'adieu, des mains croisées pour dormir.
 Chad Gadya! Chad Gadya! C'était une lamen1 tation sur la lutte pour l'existence, la succession
@@ -8441,9 +8021,7 @@ Chad Gadya! Chad Gadya! C'était une lamen1 tation sur la lutte pour l'existence
 3 ce que la terre elle-même, des savants l'assurent,
 finisse à son tour, dans le froid et les ténèbres. Flux
 et reflux! le feu et l'eau, l'eau et le feu! Il pensa aux
-immobiles squelettes qui attendent encore l'exhu-
-
-mation à Pompéi; aux momies emmaillotées des
+immobiles squelettes qui attendent encore l'exhumation à Pompéi; aux momies emmaillotées des
 Pharaons, aux cendres d'amants oubliées dans les
 vieilles tombes étrusques. Il eut le sens soudain de;
 la grande procession du Moyen-Age, — papes, rois, F::
@@ -8457,8 +8035,7 @@ fous; les énormes hordes russes, la vie pullulant
 dans les bateaux grouillants des rivières de Chine,
 la joyeuse existence de papillon au Japon; les sauvages inconnus du centre de l'Afrique, avec leurs
 fétiches et leurs danses de guerre; les tribus orientales dormant sous la tente, ou se traînant lassées
-sur les brûlantes terrasses de leurs maisons; le dé-
-veloppement des races nègres, devenu un si terrible
+sur les brûlantes terrasses de leurs maisons; le développement des races nègres, devenu un si terrible
 problème pour les Etats-Unis, — et chacun de ces
 peuples, bien mieux, chaque individu se regardant
 comme le centre et le souci de l'univers; la destinée
@@ -8484,8 +8061,7 @@ un tas de boue des montagnes et des mers assez
 imposants qu'un seul. Géologie, chimie, astronomie,
 À tout cela se trouve dans les éclaboussures d'une
 É voiture qui passe. Partout une seule loi, une seule
-insignifiance. La race humaine? D''étranges mons-
-tres marins se traînant sur le lit d'un océan d'air,
+insignifiance. La race humaine? D''étranges monstres marins se traînant sur le lit d'un océan d'air,
 incapables de s'élever dans cet air, bizarrement
 
 déguisés sous Les peaux volées à d'autres créatures,
@@ -8494,9 +8070,7 @@ les êtres baroques adaptés au curieux milieu d'un
 aquarium. La loi morale au dedans de Kant? A dissoudre par un germe de choléra, un petit filet bleu
 au microscope, assez semblable à une carte de Venise. Oui, cosmique et comique sont synonymes.
 
-Pourquoi se laisser effrayer par la splendeur ter-
-
-rible de Spinoza? Peut-être Heïine, — cet autre juif,
+Pourquoi se laisser effrayer par la splendeur terrible de Spinoza? Peut-être Heïine, — cet autre juif,
 — a-t-il plus juste, et le dernier mot de l'homme
 sur cet univers où il a été jeté sans l'avoir demandé
 pourrait-il être une moquerie de qui s'est moqué de
@@ -8512,8 +8086,7 @@ des forces aveugles au travail, à l'effort, à la lutte;
 h. elles aussi passeront. Les grossières races nouvelles
 +4: les balayeront comme la poussière, la nature faisant
 Ne jaillir des énergies sans cesse renaissantes de sa
-4 source inépuisable. Car la force est dans l'in-
-conscient, et quand une nation s'arrête pour
+4 source inépuisable. Car la force est dans l'inconscient, et quand une nation s'arrête pour
 demander quel est son droit à l'empire, cet empire
 ni n'est déjà plus. La vieille Palestine hébraïque, sacriis fiant des brebis à Iaveh, quelle figure de granit,
 comparée à lui, si subtil, si mobile! Pendant un ou
@@ -8601,8 +8174,7 @@ LIEU tanière. Tout était silencieux. L'étroit canal reflétait
 le clair de lune;le palais opposé était noir avec une
 16 tache de lumière à une fenêtre; au dessus de sa tête,
 D. dans la petite échancrure de ciel bleu foncé,,
-4 un groupe d'étoiles rayonnaient, comme de bril-
-lants oiseaux, dans les ténèbres veloutées. L'eau
+4 un groupe d'étoiles rayonnaient, comme de brillants oiseaux, dans les ténèbres veloutées. L'eau
 - battait tristement les marches de marbre; une
 ne. gondole attachée aux poteaux semblait se balancer
 doucement vers son ombre noire dans le canal.
@@ -8613,9 +8185,7 @@ Te retrouva luttant, mais vainquit l'instinctive volonté
 Comme il plongeait pour la dernière fois, le
 4 mystère de la nuit, des étoiles, de la mort se con-
 ; fondit avec un tourbillon étrange de souvenirs d'en-
-3 fance, et les paroles immémoriales du Juif agoni-
-
-sant jaillirent violemment de sa gorge étranglée:
+3 fance, et les paroles immémoriales du Juif agonisant jaillirent violemment de sa gorge étranglée:
 « Écoute, 6 Israël, l'Éternel, notre Dieu, l'Éternel ni
 Par la porte ouverte flottaient les derniers mots ViUrE
 le Saint des Saints vint, que son nom soit béni,. CE

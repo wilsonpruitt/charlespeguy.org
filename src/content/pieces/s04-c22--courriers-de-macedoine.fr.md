@@ -29,7 +29,7 @@ rues Sixième cahier de la quatrième série, cahier de courMU. rier, inventaire
 
 : EURE Nous publierons dans un cahier de la cinquième série
 
-2 FAN le relevé sommaire des courriers publiés dans les cahiers
+FAN le relevé sommaire des courriers publiés dans les cahiers
 
 courriers de Macédoine A l'TROS
 
@@ -92,7 +92,7 @@ ta l'autre. Ignorant et méfiant, j'étais, je crois, en excel-
 recherchais passionnément, et sans autre intérêt que
 F. celui de la découvrir.
 
-4 Désireux avant tout d'exposer des faits précis, j'ai
+Désireux avant tout d'exposer des faits précis, j'ai
 
 1114 nécessairement limiter le champ de mes investiga118 tions. Je me suis occupé fort peu de la politique des
 1! Puissances. (4) Je ne me suis pas occupé du tout de la
@@ -105,9 +105,8 @@ F. celui de la découvrir.
 cahier, qui paraîtrait au cours de la cinquième série, et serait
 intitulé: Impressions de Constantinople. à
 
-question ethnographique, et j'ai renoncé sans regrets à; ne
-dresser une statistique nouvelle des différentes popu-
-lations chrétiennes de la Macédoine: je n'aurais pas
+question ethnographique, et j'ai renoncé sans regrets ne
+dresser une statistique nouvelle des différentes populations chrétiennes de la Macédoine: je n'aurais pas
 abouti sur ce point à plus d'exactitude que mes devan- à
 ciers. Enfin j'ai négligé de parti-pris le détail des ren-.
 contres journalières, toujours les mêmes, et toujours
@@ -130,13 +129,12 @@ conserver aux choses leur couleur, aux paroles leur Y
 Je ne me flatte point d'avoir atteint à la vérité. Mais.
 le mécontentement général que j'ai provoqué m'a été
 
-; Maurice Kahn
 la plus douce des satisfactions: les Turcs m'ont trouvé
 ERA bulgarophile; les Bulgares, encore indulgent aux
 Turcs; les Russes, peu aimable pour les Slaves; les
 Grecs, trop favorable au panslavisme. Cette unanimité
 m'assure du moins que je suis resté impartial.
-1 La sincérité que j'ai apportée à mon travail, la
+La sincérité que j'ai apportée à mon travail, la
 4 4 conscience avec laquelle j'ai mené mes différentes
 4); enquêtes, me donnent à penser que ces documents pris
 sur le vif sont à leur place dans la collection des cahiers
@@ -162,11 +160,8 @@ particulier: c'est une rare fortune pour le voyageur que
 de rencontrer le concours eflicace et l'accueil réconfor-
 Uskub, de M. Gautier à Monastir. Pa,
 Je tiens enfin à dire ici un mot personnel de reconnais- 1 4]
-sance à M. Georges Gaulis, qui fut longtemps corres-
-pondant du Temps à Constantinople, et qui a accompli
-avant moi plusieurs voyages dans,les pays balka-
-
-niques. J'ai trouvé partout les traces de son passage; LE
+sance à M. Georges Gaulis, qui fut longtemps correspondant du Temps à Constantinople, et qui a accompli
+avant moi plusieurs voyages dans,les pays balkaniques. J'ai trouvé partout les traces de son passage; LE
 et les souvenirs qu'il avait laissés n'ont pas peu con LE
 tribué à faciliter mon séjour et mon travail sur cette
 terre lointaine et si atrocement malheureuse.
@@ -213,9 +208,7 @@ Quant aux comités, il est clair que les réformes ne
 font point du tout leur affaire. Les bandes, qui s'étaient
 tenues tranquilles dans le vilayet de Monastir depuis
 une vingtaine de jours environ, ont recommencé leurs
-de Presba, — une bande ayant été signalée, la gendar-
-merie vint l'attaquer, sous le commandement du capi-
-taine Osman-Aga. La bande se réfugia dans deux
+de Presba, — une bande ayant été signalée, la gendarmerie vint l'attaquer, sous le commandement du capitaine Osman-Aga. La bande se réfugia dans deux
 maisons se faisant vis-à-vis, tandis que les habitants,
 bulgares, du village voisin, — Prototchina, — occupaient
 les hauteurs et faisaient feu sur la gendarmerie, laquelle, prise ainsi entre deux feux, dut céder la place:
@@ -244,8 +237,7 @@ plus en plus fréquentes. Tenteront-elles de soulever le
 pays? Y réussiront-elles? On ne saurait répondre. Mais
 on croit voir, dès à présent, que l'exécution ou la non
 exécution des réformes aura la plus grande influence,
-non pas peut-être sur l'attitude des comités, mais cer-
-tainement sur le succès de leur propagande, et tout
+non pas peut-être sur l'attitude des comités, mais certainement sur le succès de leur propagande, et tout
 d'abord sur le recrutement des bandes.
 Les bandes, fait-on observer, sont actuellement formées de deux éléments: révolutionnaires venus de
 Bulgarie, la plupart originaires de Macédoine, et:
@@ -272,8 +264,7 @@ Deux objections s'imposent à cette vue optimiste.
 Parmi les relaxés qui bénéficieront de l'amnistie,
 d'aucuns ne retourneront-ils pas aux bandes? (1) Et
 surtout n'y a-t-il pas à craindre l'impatience bien naturelle des populations, qui attendent depuis si longtemps
-une amélioration de leur condition? L'annonce des ré-
-formes leur a fait espérer un changement radical et
+une amélioration de leur condition? L'annonce des réformes leur a fait espérer un changement radical et
 soudain des choses. Mais des réformes aussi complexes
 ne sauraient être exécutées du jour au lendemain. Les
 paysans macédoniens sont simplistes: attendant beau-;
@@ -333,8 +324,7 @@ tinuera les jours suivants. Les prisonniers mis en
 liberté ce matin seraient montés en voiture aux cris —
 de: « Vive le Sultan! »
 Enfin, il y a quelques jours déjà, Riza pacha, — et ce à
-n'est pas de lui que je tiens le renseignement, — réunis-
-sait les moukhtars — maires — des différents villages,
+n'est pas de lui que je tiens le renseignement, — réunissait les moukhtars — maires — des différents villages,
 etleur annonçait que désormais les habitants de chaque
 village choisiraient eux-mêmes leur garde-champêtre.
 Il semble donc que le gouvernement impérial soit
@@ -342,8 +332,7 @@ disposé à tenir ses promesses. en a l'air. Mais il est:
 incontestable qu'il s'exécute de très mauvaise grâce.
 Les ambassadeurs des Puissances discutent actuelle-
 . ment à Constantinople sur la manière dont sera établi
-le contrôle des consuls en Macédoine; il ne serait peut-
-être pas inutile que leur conférence aboutit à un résultat
+le contrôle des consuls en Macédoine; il ne serait peutêtre pas inutile que leur conférence aboutit à un résultat
 prochain et efficace. (1)
 (1) Ce bruit a couru avec persistance à Monastir. En réalité, les:
 ambassadeurs n'ont jamais conféré. Ils savent trop que le contrôle
@@ -356,8 +345,7 @@ les ordres du Palais? (Cf. page 49, note.) à À
 . Le Temps du samedi 21 mars, sans titre:
 L'œuvre de Hilmi pacha à Uskub
 J'avais grand hâte d'arriver à Uskub. Le vali de
-Monastir, Riza pacha, m'avait dit, parlant des ré-
-formes: « Nous avons commencé. Pour le surplus,
+Monastir, Riza pacha, m'avait dit, parlant des réformes: « Nous avons commencé. Pour le surplus,
 nous attendons Hilmi pacha. » Or, Hilmi pacha est à
 Uskub. Il y est depuis plus de trois mois. On comprendra mon impatience de voir à l'œuvre l'inspecteur
 général des provinces de la Roumélie, le haut fonctionnaire chargé par S. M. le Sultan de surveiller
@@ -385,25 +373,19 @@ du vocabulaire administratif.
 On m'affirme qu'il travaille quatorze heures par
 jour. Un de ses secrétaires me disait: « Il en fait plus
 à lui tout seul que nous tous ensemble. » Cela ne me
-surprend pas: d'abord, parce que les secrétaires tra-
-vaillent peu, — en Turquie; — mais surtout parce que j'ai
-une table chargée de dossiers, de cigarettes, de bois-
-sons chaudes et froides, sans cesse offertes et sans à
+surprend pas: d'abord, parce que les secrétaires travaillent peu, — en Turquie; — mais surtout parce que j'ai
+une table chargée de dossiers, de cigarettes, de boissons chaudes et froides, sans cesse offertes et sans à
 — recevoir, pendant que nous causions, dix visites en À
-deux heures de temps, donner des ordres à dix secré-
-taires ou officiers, leur distribuer ou leur expliquer le
-travail, au fur et à mesure que les papiers lui parve-
-dépêches ou rapports, d'un ton très net et sans se
+deux heures de temps, donner des ordres à dix secrétaires ou officiers, leur distribuer ou leur expliquer le
+travail, au fur et à mesure que les papiers lui parvedépêches ou rapports, d'un ton très net et sans se
 départir d'une absolue courtoisie.
 
 Il est aimé de ses sous-ordres et auprès d'eux presque
 populaire. Sa nomination a été accueillie avec espoir et
 confiance par les rares Turcs qui sont sincèrement
 désireux de voir s'améliorer la situation du pays. Les A
-autres le détestent. Tous le craignent. Quant aux popu-
-lations chrétiennes, elles ne savent pas. Les partisans
-de l'inspecteur invoquent comme preuve de ses capa-
-cités administratives les cinq années qu'il a passées au
+autres le détestent. Tous le craignent. Quant aux populations chrétiennes, elles ne savent pas. Les partisans
+de l'inspecteur invoquent comme preuve de ses capacités administratives les cinq années qu'il a passées au
 Yémen, en qualité de vali. Ils vantent son honnêteté,
 qui paraît indiscutée, son libéralisme, qui paraît avéré. À
 Les consuls mêmes sont unanimes à déclarer que « si
@@ -436,9 +418,7 @@ la poursuite de malfaiteurs qui n'avaient jamais été
 inquiétés; on en captura cinq cents. Il en reste davantage. L'histoire suivante est racontée dans les milieux
 turcs: Quand ils apprirent que Hilmi pacha était décidé
 à sévir, un grand nombre d'Albanais vinrent se jeter à "0
-ses pieds, implorant sa grâce; l'inspecteur leur ré-
-
-courrier de Macédoine, lundi 16 mars 1903
+ses pieds, implorant sa grâce; l'inspecteur leur récourrier de Macédoine, lundi 16 mars 1903
 pondit: « Je n'abuserai pas de la confiance que vous
 avez eue en venant à moi. On ne vous touchera pas ici.
 Vous pouvez retourner dans vos montagnes. Mais là-bas
@@ -450,14 +430,10 @@ Hilmi pacha ils n'avaient aucune chance d'échapper à
 Ce récit n'étant connu que de source turque, il m'a
 été impossible d'en vérifier l'exactitude. Quoi qu'il en -
 soit, il ne semble pas que la répression ait été aussi
-terrible qu'on veut bien le dire. Un fait certain et signi-
-ficatif est le remplacement du caïmacam de Kalkan- À
+terrible qu'on veut bien le dire. Un fait certain et significatif est le remplacement du caïmacam de Kalkan- À
 delen, peut-être sur l'ordre du Palais, pour avoir trop à
 La mission de Hilmi pacha comprenait « le droit de
-révoquer, après s'être concerté avec les valis, les fonc-
-tionnaires dont la destitution serait considérée néces-
-saire et de faire traduire devant les tribunaux compé-
-tents ceux qui auraient commis des actes exigeant leur
+révoquer, après s'être concerté avec les valis, les fonctionnaires dont la destitution serait considérée nécessaire et de faire traduire devant les tribunaux compétents ceux qui auraient commis des actes exigeant leur
 mise sous jugement ». Hilmi pacha n'a pas usé de ce
 droit: quelques fonctionnaires, dont deux valis, ont été.
 ment. (1) La permutation est un trompe-l'œil dont il ne
@@ -482,13 +458,11 @@ gravement malade et n'est pas sorti de convalescence;
 on ne lui permet pas de recevoir. (1)] Le vali de Monastir, Edhib pacha, a été remplacé par Riza pacha,
 ancien commandant militaire d'Uskub, assez intelligent, très influencé par un long séjour en Allemagne,
 bon militaire, paraît-il, et fanatique. (2) Et voilà toute
-« épuration » administrative!
 De toutes les « réformes » promulguées par le Sultan,
 celle dont l'exécution est le plus avancée semble bien
 être l'amnistie: ne nous étonnons pas; c'est la plus
 conforme aux traditions de l'empire! D'après les
-chiffres qui me sont fournis par Hilmi pacha, 787 con-
-damnés politiques ont été relâchés dans les trois vi-
+chiffres qui me sont fournis par Hilmi pacha, 787 condamnés politiques ont été relâchés dans les trois vi-
 Il est mort dans les premiers jours d'avril. Son successeur
 désigné fut Chakir pacha, vali de Scutari d'Albanie. Il n'a pris que
 tout récemment possession de son poste.
@@ -508,14 +482,11 @@ avaient été intentées. Ce sont des individus condamnés
 pour meurtres, sur la plainte de parents des victimes,
 ou sur l'initiative de la police; le plus souvent ils n'ont;
 pas agi seuls, et ont été tenus responsables de crimes
-collectifs, qu'ils n'avaient peut-être pas commis person-
-nellement. Hilmi pacha m'assure que ces cas délicats;
+collectifs, qu'ils n'avaient peut-être pas commis personnellement. Hilmi pacha m'assure que ces cas délicats;
 seront soigneusement examinés.
 Voilà donc tout ce qui a été fait depuis trois mois.
-Évidemment, c'est peu. La réforme des gardes-
-champêtres et celle de l'impôt n'ont été qu'effleurées:
-l'inspecteur a adressé des propositions à Constanti-
-nople; il y a de cela un grand mois; la réponse
+Évidemment, c'est peu. La réforme des gardeschampêtres et celle de l'impôt n'ont été qu'effleurées:
+l'inspecteur a adressé des propositions à Constantinople; il y a de cela un grand mois; la réponse
 définitive: n'est point arrivée. La Sublime-Porte n'est À
 jamais pressée. Voici ces deux propositions, dont
 Hilmi pacha m'a communiqué le détail.
@@ -533,8 +504,7 @@ ces présidents de droit, feront partie de la commission:
 
 cadi, — juge religieux, — et deux membres, l'un musulman, l'autre chrétien, appartenant au conseil administratif du sandjak ou du caza. Chaque village aura le;
 droit de choisir son garde-champèêtre. Une fois d'accord, les villageois feront connaître aux autorités
-locales le nom de leur choix et les conditions de paiement dont ils seront convenus avec leur élu. La com-
-mission fera une enquête: elle aura le droit d'écarter
+locales le nom de leur choix et les conditions de paiement dont ils seront convenus avec leur élu. La commission fera une enquête: elle aura le droit d'écarter
 un candidat sur lequel les renseignements seraient
 défectueux; en ce cas, elle demandera aux villageois
 de faire un autre choix. Le garde-champêtre accepté
@@ -546,15 +516,11 @@ Il devra présenter, comme caution, un individu connu
 et qui accepte de répondre pour lui. Dans les villages
 dont la population sera en majorité chrétienne, le
 garde-champèêtre sera chrétien. Dans les villages dont:
-la population sera en majorité musulmane, le gardechampêtre sera musulman. Dans les villages en ma-
-jorité chrétiens, mais où diverses populations chré-
-tiennes se trouvent réunies, si les habitants n'arrivent
+la population sera en majorité musulmane, le gardechampêtre sera musulman. Dans les villages en majorité chrétiens, mais où diverses populations chrétiennes se trouvent réunies, si les habitants n'arrivent
 point à s'entendre, la commission choisira un garde- À
 champêtre chrétien. Dans les villages assez importants
-pour nécessiter la nomination de plusieurs gardes-
-champêtres, si la population est partagée entre
-chrétiens et musulmans, il pourra y avoir gardes-
-champêtres chrétiens et gardes-champêtres musulmans,
+pour nécessiter la nomination de plusieurs gardeschampêtres, si la population est partagée entre
+chrétiens et musulmans, il pourra y avoir gardeschampêtres chrétiens et gardes-champêtres musulmans,
 ment aux nouvelles mesures, l'autorité procédera au
 
 courrier de Macédoine, lundi 16 mars 1903
@@ -635,14 +601,12 @@ courrier de Macédoine, lundi 16 mars 1903
 Enfin, supposons la moyenne justement établie, la
 répartition équitablement accomplie, une troisième
 objection subsiste, qui n'est pas la moins importante:
-en cas de mauvaise récolte, — fléau, inondation, épidé-
-mie, etc. — l'impôt sera-t-il abaissé? Nullement. Hilmi
+en cas de mauvaise récolte, — fléau, inondation, épidémie, etc. — l'impôt sera-t-il abaissé? Nullement. Hilmi
 pacha, à qui je pose cette question, me répond: « Il y
 aurait un moyen: ce serait d'augmenter l'impôt, tous
 les ans, de 5 o/o, dont le montant serait versé à la
 Banque ottomane, pour constituer une réserve où l'on
-puiserait en cas de mauvaise récolte. Ainsi l'on pour-
-rait, quand ce serait nécessaire, accorder une détaxe, -
+puiserait en cas de mauvaise récolte. Ainsi l'on pourrait, quand ce serait nécessaire, accorder une détaxe, -
 sans que le Trésor ait à en souffrir. Mais le paysan ne
 comprendra jamais cette combinaison. Il ne verra
 qu'une chose, c'est qu'il lui faut payer 5 0/0 de plus. »
@@ -657,8 +621,7 @@ paysan n'en serait donc que plus malheureux.
 
 L'inspecteur me dit encore: « Le paysan n'est pas si:
 
-malheureux qu'on le prétend. Que paye-t-il? Une qua-
-rantaine de piastres pour un revenu de deux mille
+malheureux qu'on le prétend. Que paye-t-il? Une quarantaine de piastres pour un revenu de deux mille
 
 Je me demande comment Hilmi pacha fait son:
 compte: la dîme seule représente 12,60 0/0 de la récolte;
@@ -705,14 +668,13 @@ pendant que j'étais à Sofia. J'allai le voir à mon retour. Il
 me formula ses objections:
 1° Sur le déplacement des fonctionnaires (page 20). —
 Je n'avais pas assez insisté; « beaucoup de fonctionnaires
-avaient été déplacés »; — combien? — « Beaucoup. »
+avaient été déplacés — combien? — « Beaucoup. »
 2° Sur la réforme financière (page 24). — La diminution
 des ressources du vilayet n'entrait pas en ligne de compte.
 Je n'avais pas compris. Aucun sacrifice ne coûterait à Sa —
 Majesté Impériale du moment qu'il s'agissait du bonheur
 de ses sujets. Mais ses sujets n'étaient pas si malheureux
-2 3° Sur la situation du paysan (page 26). — J'avais tra-
-vesti la pensée de l'inspecteur. J'avais rapporté comme
+2 3° Sur la situation du paysan (page 26). — J'avais travesti la pensée de l'inspecteur. J'avais rapporté comme
 siennes des paroles qui n'étaient pas exactement les siennes
 ou tout au moins je leur avais donné une signification
 qu'elles n'avaient point. En me disant qu'un paysan payait:
@@ -743,15 +705,13 @@ côté, visiter Belgrade et Sofia. Nous nous retrouverons à
 La tranquillité relative du vilayet de Kossovo facili-;
 tait mon départ: depuis un mois, en effet, on ne relève
 pour tout le vilayet que six ou sept« affaires rencontres de bandes et de troupes, — plus les méfaits ordi-;
-naires des rédifs —réservistes, — principalement à Keuprulu, où les autorités militaires se sont montrées indo-
-lentes et les autorités civiles impuissantes. Quant à l'AI-
+naires des rédifs —réservistes, — principalement à Keuprulu, où les autorités militaires se sont montrées indolentes et les autorités civiles impuissantes. Quant à l'AI-
 banie, aucun changement; les différentes commissions à
 chargées de négocier l'acceptation des réformes sont
 revenues sans avoir rien obtenu: peut-être d'ici huit à
 jours la question se présentera-t-elle sous un aspect À
 La route d''Uskub à Belgrade est longue: treize heures
-et demie. C'est d'abord les plaines riches et délais-
-sées, semées de villages albanais, aux maisons carrées,
+et demie. C'est d'abord les plaines riches et délaissées, semées de villages albanais, aux maisons carrées,
 et jusqu'à la frontière, la lenteur exaspérante des trains
 
 courrier de Macédoine, dimanche 22 mars 1903
@@ -763,18 +723,14 @@ passeports et de douane, le buffet et un long arrêt
 coupent la monotonie des heures de wagon. Puis, de
 Ristovatz à Nisch, la lenteur, dans la nuit, d'un train
 de marchandises auquel on a accroché. quelques voi- À
-tures de voyageurs. À Nisch, enfin, l'express Constan-
-tinople-Budapest nous cueiïlle et nous dépose assez
-Coquettement nichée sur une éminence au bas dela-
-quelle souritune large boucle du majestueux Danube,(1)
-la capitale du royaume de Serbie est une ville mo-
-derne d'aspect propre, soigné, hygiénique. Une division « très nette: le long du fleuve, la ville basse, ouvrière
+tures de voyageurs. À Nisch, enfin, l'express Constantinople-Budapest nous cueiïlle et nous dépose assez
+Coquettement nichée sur une éminence au bas delaquelle souritune large boucle du majestueux Danube,(1)
+la capitale du royaume de Serbie est une ville moderne d'aspect propre, soigné, hygiénique. Une division « très nette: le long du fleuve, la ville basse, ouvrière
 et populaire; des chantiers de bois, nombreux, et de
 briques; en haut, la ville riche, avec les ministères, les
 légations et consulats, les grands hôtels, les grands cafés,
 le Kalemeghdan, — parc, — le théâtre et la citadelle.
-Les rues sont spacieuses et bien tenues; les construc-
-tions généralement sobres, sauf le palais royal qui « rappelle désagréablement notre Élysée-Palace-Hôtel.
+Les rues sont spacieuses et bien tenues; les constructions généralement sobres, sauf le palais royal qui « rappelle désagréablement notre Élysée-Palace-Hôtel.
 On n'a pas l'impression d'une grande ville; mais on se
 sent en Europe: plus de fez, des chapeaux mous, des
 melons et quelques hauts de forme; on est en Europe
@@ -792,8 +748,7 @@ voyageur qui arrive de Turquie n'est pas insensible à
 cette aubaine. Et, après une heure de promenade, le
 journaliste préoccupé de la Macédoine et qui juge toutes
 choses et toutes gens du point de vue spécial de la
-question macédonienne, se dit que, sans être particu-
-lièrement intelligent, ni riche, ni puissant, le peuple
+question macédonienne, se dit que, sans être particulièrement intelligent, ni riche, ni puissant, le peuple
 serbe saurait tout de même, si les plaines de Kossovo
 lui appartenaient, tirer de cette terre fertile un autre
 parti que les Turcs!
@@ -838,8 +793,7 @@ capables d'en assurer le développement. Les Serbes
 souffrent de leur faiblesse, et ils n'ont point pour se
 consoler l'invraisemblable faculté d'illusion des Hel-:
 lènes. On me rapportait, à Athènes, ce mot significatif
-d'un Grec: quelqu'un lui vantait la richesse et la puis-
-sance de l'Allemagne; notre homme, haussant les À
+d'un Grec: quelqu'un lui vantait la richesse et la puissance de l'Allemagne; notre homme, haussant les À
 épaules: « Les Allemands sont des briques, dit-il, et À
 nous sommes des pierres précieuses. » Les Serbes sont
 plus modestes: « Nous sommes un tout petit pays à la
@@ -849,18 +803,14 @@ gagnent la sympathie.
 Leur politique est prudente et, semble-t-il, encore
 hésitante. Ils se réjouiraient des réformes si elles à
 
-étaient complétées par deux mesures qui touchent par-
-ticulièrement leurs frères de Macédoine: 1° le désar-
-mement des Albanais; 2° la reconnaissance de la natio-
+étaient complétées par deux mesures qui touchent particulièrement leurs frères de Macédoine: 1° le désarmement des Albanais; 2° la reconnaissance de la natio-
 Ce sont des Serbes en effet qui peuplent presque
 entièrement toute la Vieille-Serbie. Or, la Vieille-Serbie “4
 est mise en coupe réglée par les Albanais, dont les à
 exactions et les crimes s'ajoutent pour les Serbes aux
-défectuosités de l'administration turque. Si l'on se con-
-tente de réformer l'administration sans désarmer les
+défectuosités de l'administration turque. Si l'on se contente de réformer l'administration sans désarmer les
 Albanais, les Serbes seront seuls en Macédoine à ne
-pas profiter des réformes. Il n'est pas facile de désar-
-mer les Albanais, Hilmi pacha en sait quelque chose.
+pas profiter des réformes. Il n'est pas facile de désarmer les Albanais, Hilmi pacha en sait quelque chose.
 Muis les revendications des Serbes sont sur ce point
 Elles ne le sont pas moins sur le second point. Les
 noufous, — actes d'état-civil de l'Empire Ottoman,
@@ -889,8 +839,7 @@ Bulgar mileti, la Serbie veui réaliser le Serb mileti.
 Deux moyens lui sont ouverts dont l'un est impossible
 et le second très difficile.
 La Serbie pourrait réclamer la création d'une Église « il serbe nationale. Mais elle n'aurait aucune chance de
-l'obtenir. Il en a été question; (1) des obstacles insur-
-montables se sont dressés: le Patriarcat œcuménique
+l'obtenir. Il en a été question; (1) des obstacles insurmontables se sont dressés: le Patriarcat œcuménique
 proteste contre un nouveau schisme qui diminuerait
 encore sa puissance spirituelle, déjà affaiblie par le
 schisme bulgare; la Russie, pour des motifs politiques, « s'associe aux protestations du Patriarcat; la Bulgarie
@@ -899,13 +848,11 @@ ayant mesurer combien l'Exarchat a favorisé le
 développement de la Bulgarie, ne se prêtera pas facile- «.. -.. À
 ment à la constitution d'une nouvelle Église nationale
 1 (1) Sinon officiellement tout au moins officieusement. Aussi toute
-; la phrase qui suit a-t-elle le tort d'être trop positivement affirma-
-tive; des conditionnels y remplaceraient avantageusement les indi-
+; la phrase qui suit a-t-elle le tort d'être trop positivement affirmative; des conditionnels y remplaceraient avantageusement les indi-
 4 catifs: « le Patriarcat œcuménique protesterait..; la Russie.;
 . S'associerait... » Ici surtout une formule dubitative s'impose. Les
 formules dubitatives s'imposent toujours lorsqu'on parle de la
-politique russe. La Russie en tant que puissance politique s'asso-
-cierait aux protestations du Patriarcat; la Russie en effet ne se
+politique russe. La Russie en tant que puissance politique s'associerait aux protestations du Patriarcat; la Russie en effet ne se
 soucie pas de favoriser le développement de la Serbie par la création
 d'une Eglise serbe nationale, comme elle par la création de
 l'Exarchat, favorisé plus qu'elle ne le désirait le développement de
@@ -914,8 +861,7 @@ elle rêve d'installer à Constantinople un patriarche œcuménique
 slave: une Eglise serbe pourrait lui servir à réaliser son rêve, par
 absorption de l'Eglise grecque.:
 
-qui fortifierait nécessairement un nouvel État Balka-
-nique. La Serbie n'espère plus obtenir une Église serbe.,
+qui fortifierait nécessairement un nouvel État Balkanique. La Serbie n'espère plus obtenir une Église serbe.,
 Elle se contente de demander, — et elle a obtenu, à
 Uskub et à Prizrend, — des évêques serbes dans les
 pays de race et de langue serbe. L'affaire Firmilian, à
@@ -931,8 +877,7 @@ appartiennent à un État laïque. C'est très difficile.
 Quelque décidées et légitimes que soient ses prétentions, la Serbie est pacifique. Cela est certain. Elle l'a (
 dit. Elle le répète. Elle met un grand soin à le faire
 savoir. Récemment encore, le roi Alexandre déclarait,
-dans un discours prononcé devant le corps diploma-
-tique, que la Serbie continuait dans les Balkans son
+dans un discours prononcé devant le corps diplomatique, que la Serbie continuait dans les Balkans son
 œuvre « de paix, d'ordre, de civilisation ».
 Dans un autre toast, porté par le roi à l'armée, on a 13]
 voulu voir des intentions belliqueuses; il s'agissait de;
@@ -960,23 +905,20 @@ commun. Puis, on a parlé d'une entente serbo-bulgare..
 à Je puis vous dire, à cet égard, que rien n'est fait et « É même que rien de sérieux n'a été tenté: l'intermédiaire
 tout indiqué de cette entente, connu à Sofia et à Belgrade pour en être un très ardent partisan, m'affirme
 a qu'il n'a pas à s'occuper d'une pareille affaire, et
-4 qu'aucun bruit la concernant n'est venu à sa connais-
-sance. Que me dira-t-on à Sofia? (1)
+4 qu'aucun bruit la concernant n'est venu à sa connaissance. Que me dira-t-on à Sofia? (1)
 Si vraiment les deux gouvernements semblent peu
 4 occupés d'une entente, il est certain toutefois qu'une
 bonne partie de l'opinion publique, dans l'un et l'autre
 pays, n'y serait pas défavorable. Mais sur quelles
 bases se réaliserait l'accord?
 
-(1) On m'a dit à Sofia qu'il n'y avait rien de fait, qu'on en par-
-lait, mais que l'entente n'était pas mûre. J'ai d'autre part que
+(1) On m'a dit à Sofia qu'il n'y avait rien de fait, qu'on en parlait, mais que l'entente n'était pas mûre. J'ai d'autre part que
 la question commençait à être agitée. Toutes tendances au rapprochement ont été suspendues par lès événements de Belgrade.
 
 Le Temps des vendredi 3 et samedi 4 avril
 Chez les révolutionnaires bulgares
 L'Organisation intérieure et les comités macédoniens.
-— Sarafof et Tzontcheff. — Trois dangereux person-
-nages: Mikhaïlowski, Tatartcheff, Radeff. — Y aura-t-il
+— Sarafof et Tzontcheff. — Trois dangereux personnages: Mikhaïlowski, Tatartcheff, Radeff. — Y aura-t-il
 
 Il y a une dizaine d'années, un mouvement curieux
 se dessinait dans plusieurs villages bulgares de la
@@ -984,20 +926,15 @@ Macédoine. Sur l'initiative de l'instituteur une école du
 dimanche naissait: les causeries, assidûment suivies,
 dégénérèrent vite en conversations politiques; et de ce
 
-mouvement d'instruction populaire sortit bientôt la pro-
-
-pagande macédonienne. L'école du dimanche avait été
+mouvement d'instruction populaire sortit bientôt la propagande macédonienne. L'école du dimanche avait été
 fondée. sans arrière-pensée; (1) « intelligence » À
 bulgare-macédonienne suivait simplement l'exemple à
 
 qui lui avait été donné jadis par intelligence »
 russe: elle « allait au peuple ». Il n'est pas indifférent Te
-de constater que ces premières démarches furent l'ori-
-gine des premiers rêves de liberté. #4
+de constater que ces premières démarches furent l'origine des premiers rêves de liberté. #4
 (1) Peut-être de la part des fondateurs; mais il ne faut pas
-oublier, et j'aurais le rappeler, que le mouvement scolaire lui-
-même était de la part de la Bulgarie un acte de propagande natio-
-nale très net. La propagande scolaire des Bulgares en Macédoine 15500
+oublier, et j'aurais le rappeler, que le mouvement scolaire luimême était de la part de la Bulgarie un acte de propagande nationale très net. La propagande scolaire des Bulgares en Macédoine 15500
 s'est surtout développée depuis la reconnaissance de l'Exarchat (1870)
 et d'une manière particulièrement active depuis 1885. #4
 
@@ -1008,8 +945,7 @@ Un Haut comité macédonien siégeait à Sofia. Son rôle
 devait être et au début était de pure propagande;
 humanitaire en Europe. Ayant dépassé ces limites, ila
 été dissous; ses réunions restent interdites. Un second 4%
-comité, dissident du premier, a été également dis-
-sous.
+comité, dissident du premier, a été également dissous.
 L'Organisation intérieure est établie en Macédoine
 : son rôle est d'action insurrectionnelle, et elle s'en
 acquitte consciencieusement. Elle est divisée en
@@ -1022,10 +958,8 @@ Macédoniens d'origine, un bon nombre intelligents et
 instruits, officiers, professeurs, étudiants: ce sont les À
 cadres et l'état-major de l'armée insurrectionnelle.
 Haut comité macédonien, comité dissident et comités
-régionaux de l'Organisation intérieure sont le plus sou-
-vent confondus sous le nom général de « comités
-— komitadjis.— Les Turcs sont les auteurs de cette confu-
-sion; elle leur est nécessaire pour rendre la Bulgarie
+régionaux de l'Organisation intérieure sont le plus souvent confondus sous le nom général de « comités
+— komitadjis.— Les Turcs sont les auteurs de cette confusion; elle leur est nécessaire pour rendre la Bulgarie
 responsable de lagitation macédonienne: si l'Orga- A
 nisation intérieure est bulgare, il y a commencement
 de guerre; si elle est macédonienne, il y a insurrection. La Turquie semble désireuse de conserver son
@@ -1050,8 +984,7 @@ Boris Sarafof est un jeune homme de vingt-sept ans. Il
 se forma dans les écoles bulgares, puis passa quelque
 Memps à l'Académie militaire de Saint-Pétersbourg.
 Officier brillant, il se distingua en 1895 au siège de
-Melnik et par un coup de main enleva la place. Il dé-
-missionna en 1899. Les photographies de Sarafof
+Melnik et par un coup de main enleva la place. Il démissionna en 1899. Les photographies de Sarafof
 révèlent une physionomie ardente, intrépide, téméraire.
 « Il me dit un de ses amis, une âme de condottiere. »
 Il d'ailleurs, de qui tenir: son père fut longtemps
@@ -1101,8 +1034,7 @@ distincte: mais une même inspiration les animaïit,
 représentée par le programme Sarafof. A plusieurs
 reprises il fut question de transférer hors de Bulgarie
 le siège du nouveau comité. Les promoteurs de cette
-mesure pensaient affirmer ainsi leur programme anti-
-annexionniste. La dissolution des deux groupes
+mesure pensaient affirmer ainsi leur programme antiannexionniste. La dissolution des deux groupes
 empêcha le projet de se réaliser.
 Tzontcheff, resté au premier comité, provoqua la
 révolte avortée de l'automne 1902. C'est à la suite de
@@ -1114,8 +1046,7 @@ sait comment la Russie exigea la dissolution des
 Sarafof est en Macédoine. Le général Tzontcheff, en
 domicile forcé et surveillé à Drenova. M. Stanicheff a à
 quitté momentanément Sofia pour affaires person- ue.
-nelles. Je n'ai voir ici que M. Mikhaïlowski, prési-
-dent du comité Tzontcheff, le docteur Tatartcheff,
+nelles. Je n'ai voir ici que M. Mikhaïlowski, président du comité Tzontcheff, le docteur Tatartcheff,
 ancien membre de l'Organisation intérieure, le pu- à
 bliciste Radeff, et quelques personnages moins en
 
@@ -1130,8 +1061,7 @@ une grande fougue, une multitude d'images et de cori-
 : paraisons, lançant des vues, racontant des souvenirs,
 se levant, puis s'arrêtant, puis s'asseyant, puis marchant encore, agité, vibrant, éloquent et triste.
 Mikhaïlowski est un orateur et un poète. Lui-même
-dit de ses collègues: « Ceux-là sont des hommes d'ac-
-tion. » Sa présence à la tête du comité Tzontcheff
+dit de ses collègues: « Ceux-là sont des hommes d'action. » Sa présence à la tête du comité Tzontcheff
 étonne; elle s'explique: un idéaliste, connu comme
 poète et comme philosophe, est moins inquiétant qu'un
 , général, même démissionnaire. En offrant la présidence
@@ -1159,16 +1089,12 @@ produits; il lui faut une Turquie aussi forte que pos- Re:
 sible, pour que la consommation des produits allemands à
 y soit aussi considérable que possible; le Drang nach:
 Osten réclamerait volontiers la domination turque dans
-tous les États balkaniques pour que les produits alle-
-mands établissent leur triomphe sur le marché euro-
-péen, de la mer Baltique à la mer Égée, des bouches
+tous les États balkaniques pour que les produits allemands établissent leur triomphe sur le marché européen, de la mer Baltique à la mer Égée, des bouches
 de l'Elbe à celles du Danube! « Nous sommes à la
 merci de l'Allemagne. » a.
 Pour échapper à « la honteuse tutelle germanique »
-Mikbaïlowski ne voit qu'un moyen: la fédération bal-
-kanique. De petits États en lutte les uns contre les
-autres sont impuissants: en s'unissant, les États bal-
-kaniques peuvent former, en y comprenant la Macédoine
+Mikbaïlowski ne voit qu'un moyen: la fédération balkanique. De petits États en lutte les uns contre les
+autres sont impuissants: en s'unissant, les États balkaniques peuvent former, en y comprenant la Macédoine
 et la Bosnie-Herzégovine, une fédération de douze ou
 quinze millions d'habitants, avec laquelle il faudrait
 ‘compter. Ceprojet est lointain: la Roumanie, la Serbie, “4
@@ -1181,12 +1107,9 @@ sont moins différents que Bretons, Bourguignons et <4
 
 courrier de Macédoine, samedi 28 mars 1903
 1 dela Gaule; le péril allemand imposera l'union aux
-peuples slaves. La question d'une fédération balka-
-nique se posera au lendemain même de l'autonomie de
+peuples slaves. La question d'une fédération balkanique se posera au lendemain même de l'autonomie de
 la Macédoine.
-Et c'est pourquoi il faut résoudre la question macé-
-donienne. Il faut la résoudre comme une phase impor-
-tante, essentielle, décisive, de la question balkanique.
+Et c'est pourquoi il faut résoudre la question macédonienne. Il faut la résoudre comme une phase importante, essentielle, décisive, de la question balkanique.
 Et c'est bien ainsi que l'Europe voit les choses: sans
 quoi les difficultés ne seraient pas aussi grandes.
 A ce moment de son discours, je demande à Mikhaï-
@@ -1201,8 +1124,7 @@ jusqu'au bout. Le voudrais-je, je n'aurais pas le droit
 d'abandonner à l'heure décisive les amis qui ont
 1 confiance en moi. Je marcherai, chef ou simple soldat,
 jusqu'au bout. J'ai fait cependant une déclaration
-: publique, parce que je la croyais nécessaire et favo-
-rable à notre cause. J'ai conseillé à mes amis de « patienter. Les grandes puissances, leur ai-je dit, ont
+: publique, parce que je la croyais nécessaire et favorable à notre cause. J'ai conseillé à mes amis de « patienter. Les grandes puissances, leur ai-je dit, ont
 pris l'affaire en mains et indiqué une solution. Atten- « dons. N'abdiquons rien de nos espérances, mais patientons: laissons l'Europe se rendre compte de l'inefficacité
 de sa solution. Après quoi nous serons beaucoup plus …
 forts pour agir. ».
@@ -1264,14 +1186,13 @@ dans le Pirée, une foule attendait sur le quai: le docteur Tatartcheff, dès qu
 septembre-octobre 1902. — Libéré enfin, car on ne put
 trouver aucun prétexte pour le garder, le docteur
 Tatartcheff est revenu à Sofia, à l'abri des Turesetdes
-Doux, timide, d'une énergie calme, le docteur Tatar-
-tcheff n'a rien de sanguinaire. Il sait qu'uneinsurrection,
+Doux, timide, d'une énergie calme, le docteur Tatartcheff n'a rien de sanguinaire. Il sait qu'uneinsurrection,
 dans les circonstances actuelles, n'a pas grande chance
 de réussir. Il sait que la Turquie, suivant le conseil
 d'une Puissance amie, est décidée à réprimer l'insurrection en douceur: pas de massacres systématiques
 À qui risqueraient de soulever la conscience européenne;
 des arrestations, seulement, quand on pourra se dis-
-à: penser de tuer; des exécutions rares, et seulement
+penser de tuer; des exécutions rares, et seulement
 quand on ne pourra pas les éviter. Si quelque Puissance
 hasarde une observation, la Porte sera très à son aise
 pour répondre: « Nous ne sévissons que contre des
@@ -1287,8 +1208,7 @@ qu'elle a obtenu des réformes, et que les révolutionnaires ont le tort d'agir 
 Et malgré ces réflexions, l'insurrection lui paraît
 probable. IL ne la conseille pas. IL constate: « Les
 populations sont désespérées. Les réformes sont le il
-dernier mot de l'Europe: les réformes sont insigni-
-fiantes, et fussent-elles suffisantes elles ne seront pas a
+dernier mot de l'Europe: les réformes sont insignifiantes, et fussent-elles suffisantes elles ne seront pas a
 exécutées. Quelle confiance peut-on avoir dans un
 gouvernement qui, depuis vingt-cinq ans, nous berne de
 promesses? L'insurrection échouera? Et son seul résultat à
@@ -1301,14 +1221,11 @@ des années, autant en finir d'un coup. Tel est leur
 raisonnement: et quand on sait que ces gens-là n'ont À
 plus à proprement parler que leur vie, — et quelle
 vie! — on ne s'étonne pas qu'ils en fassent si bon marché! »
-Mêmes appréhensions chez le publiciste Radeff. Celui-
-est un type intéressant et profondément sympathique.
+Mêmes appréhensions chez le publiciste Radeff. Celuiest un type intéressant et profondément sympathique.
 Il est en Macédoine, à Resné, près Monastir, et pour;
-ses vingt-sept ans occupe à Sofia une situation bril-
-lante. Il a fait ses études à Genève, où il a séjourné
+ses vingt-sept ans occupe à Sofia une situation brillante. Il a fait ses études à Genève, où il a séjourné
 cinq ans. Il a vécu à Paris, par périodes intermittentes,
-un total de trois ans et demi. En 1899, le comité macé-
-donien fondait à Genève une revue bi-mensuelle intitu- À
+un total de trois ans et demi. En 1899, le comité macédonien fondait à Genève une revue bi-mensuelle intitu- À
 lée l'Effort; Radeff en fut le directeur. En avril 1902, la à
 
 ; courrier de Macédoine, samedi 28 mars 1903
@@ -1326,8 +1243,7 @@ est un garçon de taille moyenne, de silhouette fine,
 : myope, la barbe blond cendrétaillée en pointe, délicat,
 - nerveux, charmant: une physionomie tourmentée et
 douloureuse, qui faisait dire à quelqu'un: « Voilà le
-Christ macédonien. » Très sensible aux beautés artis-
-tiques, très tendre et un peu mystique, très amoureux
+Christ macédonien. » Très sensible aux beautés artistiques, très tendre et un peu mystique, très amoureux
 de la France révolutionnaire et de la France littéraire À
 dent il connaît les fleurs les plus récentes et les plus « aristocratiques, Radeff a une grande influence par sa
 sincérité, son désintéressement, sa haute conscience.
@@ -1391,17 +1307,14 @@ Il y a dans le seul vilayet de Kossovo trois consulats russes: à
 M. Steeg ne semble pas partisan du contrôle par les consuls. Il.
 proposait la nomination d'inspecteurs européens pour un terme fixe
 et avec le consentement des ambassades.
-Les propositions de M. Steeg sont discutées d'une façon fort inté-
-ressante dans un article intitulé les Revendications macédoniennes
+Les propositions de M. Steeg sont discutées d'une façon fort intéressante dans un article intitulé les Revendications macédoniennes
 et la diplomatie. (Questions diplomatiques et coloniales, 15 août 1903) à
 L'auteur M. Karayowoff, ancien vice-président du Haut Comité (4
 macédo-andrinopolitain, y expose la thèse de l'autonomie.
 
 Le Temps du mardi 7 avril: #4
 
-Le village d'Ichtip est situé dans le vilayet de Kos-
-
-sud-est d'Uskub, près de la limite du vilayet de Salo-
+Le village d'Ichtip est situé dans le vilayet de Kossud-est d'Uskub, près de la limite du vilayet de Salo-
 
 Le village bulgare de Karabintzi se trouve à deux
 
@@ -1416,9 +1329,7 @@ Deux versions contradictoires me sont fournies: la:
 
 première, de source turque, m'est donnée par Hilmi
 
-pacha; la seconde, de source bulgare, provient des ren-
-
-seignements recueillis sur place par un Bulgare.;
+pacha; la seconde, de source bulgare, provient des renseignements recueillis sur place par un Bulgare.;
 
 Voici la version turque
 
@@ -1445,8 +1356,7 @@ neries des clairons sont suivies d'une salve de coups de à
 à vers l'endroit d'où venait la détonation et elle arrive
 dévant une maison occupée par une bande d'une taine d'individus. La troupe répond au feu de la bande.
 La fusillade fait dès le début trois morts parmi les soldats, puis un quatrième. La fusillade dura plus de douze
-heures. Dans la bande on compta au cours de la fusil-
-lade dix-sept morts. Après que le feu eut cessé, neuf À
+heures. Dans la bande on compta au cours de la fusillade dix-sept morts. Après que le feu eut cessé, neuf À
 cadavres furent trouvés au milieu de maisons brüûlées,
 qui avaient pris feu, des monceaux de paille allumés
 par la fusillade et par des bombes lancées parla bande.
@@ -1457,8 +1367,7 @@ On trouva dans le sac du premier dix-huit cartes des
 trois vilayets et de différents cazas. En outre un blessé
 fut fait prisonnier. »
 La version de source bulgare allègue que le prétendu; -
-sous-lieutenant du nom de Pando ne serait pas un offi-
-cier bulgare mais un homme de la bande, réellement
+sous-lieutenant du nom de Pando ne serait pas un officier bulgare mais un homme de la bande, réellement
 nommé Pando, et qui aurait endossé l'uniforme de souslieutenant pour se donner du prestige. Des différences
 beaucoup plus importantes sont à relever, et des détails;
 très précis nous sont fournis dans ce rapport dutémoin
@@ -1492,8 +1401,7 @@ maison en flammes. Selon son récit, aucune femme qui
 tombait aux mains des soldats n'était respectée.
 « Ont été brûülées la maison de Dane Dambeff et celle de
 son frère Petro, ainsi que deux monceaux de paille et
-quatre greniers de blé appartenant à ce dernier. Ega-
-lement brûlées, les maisons de Tasse Kirmidji, de.;
+quatre greniers de blé appartenant à ce dernier. Egalement brûlées, les maisons de Tasse Kirmidji, de.;
 Stoian Domazetof, d''Ephrem Serebren, de Spaso Taran-;
 Il n'est pas indifférent de remarquer que chaque mai- il
 son abritait les membres de toute une famille de vingt
@@ -1531,9 +1439,7 @@ provoquée par la bande: la troupe ignorait la présence
 de la bande. Selon la version bulgare, c'est la troupe.
 qui aurait attaqué la bande: la troupe serait venue,;
 
-chasser. Les Turcs se plaignent des bandes qui, disent-
-
-ils, continuent leurs menées. Les Bulgares se plaignent.
+chasser. Les Turcs se plaignent des bandes qui, disentils, continuent leurs menées. Les Bulgares se plaignent.
 
 En des Turcs qui, disent-ils, provoquent les bandes et font
 
@@ -1557,8 +1463,7 @@ un Français établi à Constantinople et un commerçant à
 bulgare de Sofia. Comme par hasard, il fut question
 de la Macédoine. Et la conversation vaut d'être rap-
 — Vous venez de Sofia, me dit le Bulgare. Je ne sais:
-quelle impression vous a faite notre ville. Il est bien cer-
-tain qu'à côté de Paris c'est une toute petite ville. Mais
+quelle impression vous a faite notre ville. Il est bien certain qu'à côté de Paris c'est une toute petite ville. Mais
 réfléchissez qu'il y a vingt-cinq ans à la place de cette
 petite ville s'élevait un ignoble village aux maisons
 basses et borgnes, aux rues défoncées, bref un village
@@ -1575,15 +1480,13 @@ avez constater que nous n'avons rien négligé pour
 
 ; courrier de Macédoine, dimanche 5 aoril 1903
 à. doter notre capitale de tous les moyens de communicaLt tion désirables: télégraphe partout, téléphone par-
-à tout. Et que d'autres travaux! chemins de fer, tram-
-ways, routes, ponts... Et nos écoles!
-s. — Je suis très renseigné sur ce point: voici les chifBi fres qui m'ont été communiqués au ministère de l'in-
-struction publique, d'après le rapport officiel de 1902
+à tout. Et que d'autres travaux! chemins de fer, tramways, routes, ponts... Et nos écoles!
+s. — Je suis très renseigné sur ce point: voici les chifBi fres qui m'ont été communiqués au ministère de l'instruction publique, d'après le rapport officiel de 1902
 à Budget total de l'instruction publique: 8 millions et demi,
 per — ce chiffre représente la part de l'État; les communes par-
 à ticipent, en outre, pour un tiers dans les dépenses de l'en-
 2.883 écoles, dont 2.776 mixtes, 103 de garçons, 4 de filles.
-Instituteurs — des deux sexes —: 5.639.
+Instituteurs — des deux sexes 5.639.
 : Écoles du soir: avec 15.000 auditeurs.
 4 gymnases de garçons, réunissant les deux sections:
 classique et moderne: 3.381 élèves, 160 professeurs.
@@ -1595,17 +1498,14 @@ puisse être obtenu sans efforts et sans sacrifices?
 — Incontestablement. En vingt-cinq ans de liberté, le
 
 peuple bulgare a fait des prodiges; il a donné la preuve 4 à
-d'une vitalité, d'une énergie, d'une intelligence éton-
-nantes. Et c'est pourquoi nous attendons de lui beau-
+d'une vitalité, d'une énergie, d'une intelligence étonnantes. Et c'est pourquoi nous attendons de lui beau-
 — Oui, monsieur; mais ici une question se pose, à à
 laquelle précisément je voulais vous amener. Après
-vingt-cinq ans d'efforts, après vingt-cinq ans de sacri-
-fices, après les dépenses colossales et ruineuses qu'il
+vingt-cinq ans d'efforts, après vingt-cinq ans de sacrifices, après les dépenses colossales et ruineuses qu'il
 s'est imposées, le peuple bulgare se trouve aujourd'hui
 arrêté dans son développement. Pourquoi? Parce que
 son commerce végète, parce que son industrie n'existe
-pas. Nous avons des ingénieurs, nous avons des com-
-merçants, nous avons des jeunes gens qui ont reçu dans
+pas. Nous avons des ingénieurs, nous avons des commerçants, nous avons des jeunes gens qui ont reçu dans
 nos gymnases une excellente instruction pratique, #4
 propre à faire des industriels et des commerçants; ne
 mais nous n'avons pas de capitaux. Et nous n'en aurons
@@ -1615,8 +1515,7 @@ s'exposer dans un pays aussi peu sûr, aussi peu tran- “4
 quille, aux portes duquel bouillonne une révolution. Et
 voilà pourquoi, monsieur, la question macédonienne est
 pour la Bulgarie d'un intérêt vital. Voilà pourquoi nous
-réclamons le règlement de cette question, selon la jus-
-tice, et d'une manière définitive, qui nous mette à l'abri
+réclamons le règlement de cette question, selon la justice, et d'une manière définitive, qui nous mette à l'abri
 des révolutions. Je ne suis, moi, ni un révolutionnaire,,
 je suis un esprit pratique; je veux le bien de mon pays,
 non par des conquêtes, mais par le seul moyen eflicace,
@@ -1627,8 +1526,7 @@ répéter, la question macédonienne est une question
 à courrier de Macédoine, dimanche 5 april 1903
 formule: disons que la question macédonienne est aussi
 une question économique.
-Ne — Non, monsieur, pas « aussi avant tout. Je ne mé-
-connais pas l'importance du sentiment patriotique, ni
+Ne — Non, monsieur, pas « aussi avant tout. Je ne méconnais pas l'importance du sentiment patriotique, ni
 l'influence des idées humanitaires. Mais je dis que jamais
 4 ni le patriotisme, ni l'idéalisme humanitaire n'auraient
 rallié à leur cause les esprits positifs, les commerçants,
@@ -1641,18 +1539,14 @@ une grande part de vérité. Je vois cependant, quant à
 moi, dans la question macédonienne, un élément dont
 vous ne tenez pas compte: c'est l'élément concurrence.
 à Je m'explique. Vous savez quelle énorme quantité de
-Macédoniens encombrent, en Bulgarie, toutes les fonc-
-tions publiques, toutes les carrières libérales; selon une
+Macédoniens encombrent, en Bulgarie, toutes les fonctions publiques, toutes les carrières libérales; selon une
 ; statistique, peut-être exagérée, que je lisais dernière-
 4 ment dans le Livre bleu, il yauraït 10.000 Macédoniens
 à Sofia et 8.000 à Philippopoli; sur 6.000 instituteurs, À
 2.300 seraient Macédoniens; sur 38.000 fonctionnaires,
-15.000 Macédoniens: sur 8 métropolitains, 4 Macédo-
-niens; sur 3.412 popes, 1.262 Macédoniens; dans l'ar-
-mée, un tiers des officiers, Macédoniens; enfin, toujours
+15.000 Macédoniens: sur 8 métropolitains, 4 Macédoniens; sur 3.412 popes, 1.262 Macédoniens; dans l'armée, un tiers des officiers, Macédoniens; enfin, toujours
 selon la même statistique, chaque année, 200 étudiants
-macédoniens sortiraient des écoles bulgares et atten-
-draient des places en Bulgarie. Si cette statistique est
+macédoniens sortiraient des écoles bulgares et attendraient des places en Bulgarie. Si cette statistique est
 vraie, — et les chiffres peuvent être exagérés, l'affluence!
 des émigrés macédoniens en Bulgarie n'est pas
 
@@ -1669,11 +1563,9 @@ intérêts économiques qui les font agir. Il n'y a qu'une
 différence entre eux et moi: c'est qu'ils se trompent
 — ou qu'ils essayent de nous tromper — sur eux-mêmes,
 tandis que moi j'ai la vue plus claire.
-Mes deux compagnons paraissaient ravis de se trou-
-ver d'accord. Ils rirent longuement d'un bon rire large.
+Mes deux compagnons paraissaient ravis de se trouver d'accord. Ils rirent longuement d'un bon rire large.
 Ils échangèrent des cigarettes: le Bulgare fuma du #1
-tabac turc, le Français du tabac bulgare. Puis ils restè-
-rent quelque temps silencieux.
+tabac turc, le Français du tabac bulgare. Puis ils restèrent quelque temps silencieux.
 Le Français, se tournant vers moi, me demanda tout
 — Êtes-vous allé à Constantinople?
 — Pas encore. En
@@ -1681,8 +1573,7 @@ Le Français, se tournant vers moi, me demanda tout
 économiques et surtout financiers qui dominent la ni
 question. L'Europe ne veut pas de réformes, c'est bien
 clair, et elle sait pourquoi. Allez faire un tour dans les
-ambassades; interrogez les commerçants de Constan-
-tinople; et vous verrez. Je ne vous en dis pas plus.
+ambassades; interrogez les commerçants de Constantinople; et vous verrez. Je ne vous en dis pas plus.
 
 courrier de Macédoine, dimanche 5 avril 1903
 É:: Vous êtes un idéaliste, se voit, rien qu'à vous garder. Les Français de France sont tous comme vous.
@@ -1694,8 +1585,7 @@ semblait parfaitement raisonnable. Et je regrettai de
 
 Le Temps du mardi 14 avril: a
 Une après-midi à Mitrovitza à
-Doux pays. — M. Chtcherbina. — Mitrovitza. — La troi-
-sième commission. — Un tour dans le quartier serbe. — Ce.
+Doux pays. — M. Chtcherbina. — Mitrovitza. — La troisième commission. — Un tour dans le quartier serbe. — Ce.
 Le train qui d'Uskub conduit à Mitrovitza part à
 d'Uskub tous les deux jours seulement, — lundis, mer- 7%
 credis, vendredis, — et de Mitrovitza tous les deux jours
@@ -1719,9 +1609,7 @@ le vilayet. On conçoit qu'une pareille formalité ne À
 
 pas sans entraver toute la vie du pays. Exemple: un
 
-commerçant de Salonique reçoit le jeudi soir une dé-
-
-pêche l'appelant pour affaire importante à Monastir; il
+commerçant de Salonique reçoit le jeudi soir une dépêche l'appelant pour affaire importante à Monastir; il
 
 ne pourra partir que le dimanche matin; en effet, le
 
@@ -1741,9 +1629,7 @@ Hilmi pacha. L'inspecteur général m'accorde fort
 
 Ê aimablement son autorisation. Trois journalistes par-
 
-è taient le même jour que moi pour la même destina-
-
-tion: deux Autrichiens et un Russe. Nous fimes route
+è taient le même jour que moi pour la même destination: deux Autrichiens et un Russe. Nous fimes route
 
 À Par le même train voyagent une demi-douzaine de
 personnages considérables et bizarres, les uns chamarrés, coiffés du fez, les autres d'un âge vénérable,
@@ -1760,9 +1646,7 @@ présenter leurs devoirs à Leurs Excellences: salama-
 
 A Orhanié, — une heure et demie d''Uskub, — le quai
 
-présente un aspect curieux: des soldats, comme par-
-
-tout, allant et venant, démarche lourde, allure dé- à
+présente un aspect curieux: des soldats, comme partout, allant et venant, démarche lourde, allure dé- à
 braïllée, l'arme à la bretelle, la ceinture bardée de
 cartouches; et parmi ces masses menaçantes une
 cinquantaine de gosses, garçons et filles de quatre à
@@ -1774,8 +1658,7 @@ les petites Turques sont délicieusement costumées dans +Ès
 leurs étoffes claires si sales et si misérables; leurs Hi:
 mains noires aux ongles peints en rouge nous tendent
 les fleurs adorables d'un geste plein de grâce; et ce É::
-serait exquis sans la misère des corps, sans la mai-
-greur des visages, sans la profonde tristesse des yeux
+serait exquis sans la misère des corps, sans la maigreur des visages, sans la profonde tristesse des yeux
 qui semblent étonnés de ne pouvoir sourire. Là-bas,
 dans les villages des environs de Sofia, j'ai des
 enfants qui riaient, qui sautaient, qui jouaient.
@@ -1792,8 +1675,7 @@ et militaire. La gare est occupée militairement et
 pleine de monde. Les abords sont gardés par deux sections d'infanterie et une trentaine de cavaliers. Un
 officier de police vient nous saluer et se mettre à notre
 disposition. Il ne doit pas nous quitter.
-Mitrovitza, qui compte environ de 12 à 15.000 habi-
-tants, possède en tout et pour tout trois véhicules
+Mitrovitza, qui compte environ de 12 à 15.000 habitants, possède en tout et pour tout trois véhicules
 auxquels on a coutume d'atteler des fantômes de che- #4
 vaux et que l'on décore du nom de voitures. Les trois
 voitures de Mitrovitza attendaient à la gare. Comme
@@ -1827,16 +1709,14 @@ Notre première visite est pour le consulat de Russie.
 Nous n'y voyons pas le blessé, mais les médecins
 nous reçoivent et nous donnent des renseignements
 précis. Il résulte de leurs déclarations que l'état de
-M. Chicherbina reste stationnaire, et que les complica-
-tions sont toujours redoutables: « Pronostics absolu-
+M. Chicherbina reste stationnaire, et que les complications sont toujours redoutables: « Pronostics absolu-
 (1) Le consul russe est mort quatre jours plus tard. À
 
 Quittant le consulat, nous nous rendons au point #3
 où fut commis l'attentat: c'est sur une route en contre- à
 fort, déserte et gardée par un poste. La sentinelle,
 après avoir salué M. Chtcherbina, lui déchargea son ne
-arme presque à bout portant dans le dos. Nous pas-
-sons. La sentinelle nous salue. Elle ne tire pas. Les à
+arme presque à bout portant dans le dos. Nous passons. La sentinelle nous salue. Elle ne tire pas. Les à
 gendarmes, qui marchent à quinze pas derrière nous, à
 ont pris leur fusil à la main.
 Il s'agit maintenant de visiter le champ de bataille
@@ -1885,18 +1765,15 @@ modeste, Baïram-Tsour, Albanais, ancien brigand dont « À on a fait un colonel
 Russie. Baïram-Tsour a déjà fait partie de la deuxième
 paraît-il, été reçu en audience par le Sultan. Voici,
 enfin, assis à la turque, les jambes croisées et sa taba- À
-tière à la main, Youssouf effendi, uléma, un des aumô-
-niers du Palais et chef de la commission. À
+tière à la main, Youssouf effendi, uléma, un des aumôniers du Palais et chef de la commission. À
 Après l'échec de la deuxième commission, les
-Albanais avaient demandé que le grand-vizir en per-
-sonne vint s'entretenir avec eux des réformes. Le
+Albanais avaient demandé que le grand-vizir en personne vint s'entretenir avec eux des réformes. Le
 à l'invitation. Mais les personnages envoyés cette fois
 
 sont parmi les plus considérables dignitaires de l'em- #4
 pire. Les uns sont revêtus d'une autorité religieuse et:
 peuvent parler au nom d'Allah; les autres, Albanais
-qui ont fait leur chemin, sont très écoutés des Alba-
-nais; tous apportent aux insurgés les assurances per- 1%
+qui ont fait leur chemin, sont très écoutés des Albanais; tous apportent aux insurgés les assurances per- 1%
 sonnelles de Sa Majesté. Si la troisième commission #8
 échouaït, comme ses devancières, les moyens diploma-;
 tiques seraient épuisés. Il faudrait en venir au canon.
@@ -1961,14 +1838,12 @@ C'est une jolie fille, fraiche, gentille. Je réussis. Ils
 sont parfaitement heureux et ont déjà le temps
 d'avoir une petite fille. »
 Sur l'invitation d'un paysan, nous regardons une
-église serbe en construction; et nous entrons cinq mi-
-nutes dans la chapelle actuelle: c'est une sorte de
+église serbe en construction; et nous entrons cinq minutes dans la chapelle actuelle: c'est une sorte de
 hangar, froid, humide et sombre, qui rappelle les cata-:
 combes. Les murs sont garnis d'images saintes qu'il
 est impossible de distinguer. Quelques cierges sont
 Nous rentrons enfin à l'hôtel, fatigués et mourant de “ee
-faim, et nous trouvons, — c'était prévu, — pour nous res-
-taurer un maigre repas; pour dormir, une misérable
+faim, et nous trouvons, — c'était prévu, — pour nous restaurer un maigre repas; pour dormir, une misérable
 couchette. L'hôtel Risto, ainsi nommé par nous du
 nom de son propriétaire, est une bicoque de bois, à
 glaciale et peu assurée, où, couchés tout habillés et fe.
@@ -1990,12 +1865,9 @@ trouve à Prizrend et à Prichtina, Mitrovitza est un à
 Le Temps du samedi 18 avril:
 Depuis quelques jours on entend beaucoup parler
 des bandes. Les rencontres deviennent plus fréquentes.
-Des bruits inquiétants circulent: la date de l'insurrec-
-temps, les trains militaires succèdent aux bateaux
+Des bruits inquiétants circulent: la date de l'insurrectemps, les trains militaires succèdent aux bateaux
 militaires: ce sont, officiellement, des renforts envoyés
-pour réduire les Albanais; mais peut-être assistons-
-nous sous ce prétexte à une mobilisation plus consé-
-quente et dirigée vers la frontière.
+pour réduire les Albanais; mais peut-être assistonsnous sous ce prétexte à une mobilisation plus conséquente et dirigée vers la frontière.
 J'ai constaté à Sofia que le gouvernement bulgare À
 faisait tout ce qui dépendait de lui pour surveiller
 . étroitement le passage des bandes; j'ai constaté aussi ‘#3
@@ -2011,10 +1883,8 @@ de passer ensemble par un chemin qu'elle connaît; et Le
 bande ayant vent du manège imagine d'enyoyer,
 
 À courrier de Macédoine, dimanche 12 avril 1903
-avant son passage, une fausse bande, une contre-contre-
-bande chargée d'occuper la contre-bande à droite tan-
-à dis que la bande file à gauche. Que peut faire le gou-
-vernement contre une pareille ingéniosité sans cesse
+avant son passage, une fausse bande, une contre-contrebande chargée d'occuper la contre-bande à droite tan-
+à dis que la bande file à gauche. Que peut faire le gouvernement contre une pareille ingéniosité sans cesse
 On sait d'autre part que parmi les officiers, même
 bulgares, un bon nombre, sinon la totalité, sont favorables à la cause macédonienne. Parmiles sous-officiers:
 - il en est de même. Si les chefs des postes installés à
@@ -2041,8 +1911,7 @@ le pays pour se rendre vers un autre point, Où à Se
 cacher en attendant le moment d'entrer en ligne; les
 
 rencontres avec la troupe étaient accidentelles et, à
-autant qu'on en peut juger à travers les versions con-
-tradictoires, n'étaient pas provoquées par les bandes. à
+autant qu'on en peut juger à travers les versions contradictoires, n'étaient pas provoquées par les bandes. à
 Un télégramme du consul de Russie à Uskub, daté
 du 27 mars, dit qu'il y a dans la région un grand nombre
 de bandes dont plusieurs sont fortes de plus de cent
@@ -2057,12 +1926,8 @@ victimes de la part des partisans des comités tendent à
 aggraver la situation. Hilmi pacha, interrogé par moi,
 n'a me citer aucun cas précis concernant le vilayet
 de Kossovo. De même, pour ce qui est de l'importance
-des bandes, le chiffre de cent hommes lui paraît au-
-dessus de la vérité. L'inspecteur n'est pas suspect de ten-
-dresse pour les Æomitadjis. Ses dénégations me con-
-firment dans l'opinion que le consulrusse d'Uskub — ou
-le Messager officiel — a confondu le vilayet de Kos-
-sovo avec celui de Salonique et surtout avec celui de
+des bandes, le chiffre de cent hommes lui paraît audessus de la vérité. L'inspecteur n'est pas suspect de tendresse pour les Æomitadjis. Ses dénégations me confirment dans l'opinion que le consulrusse d'Uskub — ou
+le Messager officiel — a confondu le vilayet de Kossovo avec celui de Salonique et surtout avec celui de
 Dans la région de Salonique, les « affaires » sont
 plus fréquentes. Elles ont toujours le même caractère:
 une bande est signalée; la troupe à sa rencontre;
@@ -2082,8 +1947,7 @@ pes dernier, dans une ferme, près du village de Kourfali, à
 
 É trente kilomètres de Salonique, — la troupe envoyée est
 plus faible que la bande; on signale une bande de
-huit ou dix hommes; on envoie une vingtaine de soi-
-dats qui tombent sur une bande de vingt-cinq ou trente
+huit ou dix hommes; on envoie une vingtaine de soidats qui tombent sur une bande de vingt-cinq ou trente
 44 individus bien armés et abrités: fureur de la troupe,
 
 qui passe sa colère sur les villageois, lorsque la bande
@@ -2111,27 +1975,21 @@ C'est Monastir, en effet, qui, par la volonté formelle:
 
 des chefs, sera cette année, on peut dire est déjà, le
 
-centre du mouvement insurrectionnel: Monastir, Per-
-
-lépé, Okhrida, Resné, Kastoria, etc. Dans toute cette )
+centre du mouvement insurrectionnel: Monastir, Perlépé, Okhrida, Resné, Kastoria, etc. Dans toute cette )
 
 région les bandes sont très nombreuses, assez fortes,
 
 et soutenues par les habitants à la suite d'une pro-;
 pagande très vigoureuse. La plupart des villages sont à
 gagnés à la cause, et, dans les rencontres avec la
-troupe, prennent immédiatement les armes. Le mouve-
-ment semble irrésistible et, d'après les renseignements à
-que je reçois de Monastir, on se demande s'il sera pos-
-sible de l'arrêter.
+troupe, prennent immédiatement les armes. Le mouvement semble irrésistible et, d'après les renseignements à
+que je reçois de Monastir, on se demande s'il sera possible de l'arrêter.
 
 Le Messager officiel de Saint-Pétersbourg nous révèle:\È
 : que le consul de Russie à Monastir (1) s'y emploie
 énergiquement: « Conformément aux instructions de À
 l'ambassadeur Zinoviev, le consulat de Russie a avisé
-les chrétiens, d'une manière officielle, (2) que le gouver-
-nement impérial russe désapprouve sévèrement la ma-
-nière d'agir des comités et n'accordera aucune protection "14
+les chrétiens, d'une manière officielle, (2) que le gouvernement impérial russe désapprouve sévèrement la manière d'agir des comités et n'accordera aucune protection "14
 . aux fauteurs de troubles. Une déclaration analogue (2) À
 . a été adressée aux membres des comités qui ont été
 . invités à cesser leur activité criminelle et à ne pas
@@ -2148,9 +2006,7 @@ pas qu'elles eussent naître à l'occasion d'une eom- ‘ei
 … qu'il a été tué le 8 août dernier, a
 (2) C'est moi qui souligne, +4
 
-courrier de Macédoine, dimanche 12 arilrgo3
-
-anciennes, et dans ce cas on est endroit de se demander
+courrier de Macédoine, dimanche 12 arilrgoanciennes, et dans ce cas on est endroit de se demander
 
 sielles n'ont pas dans le passé un caractère très
 NAS différent de celui qu'elles affectent aujourd'hui.
@@ -2176,9 +2032,8 @@ Concurrence et émigration.— Transformation de la pro-:
 tées. — Les charges d'un village. — Le budget d'une ER.
 Le Parisien qui arrive en Macédoine éprouve, dès
 … labord, une déception: il est venu pour voir des mas- CU.
-sacres, des « atrocités et il ne voit pas de mas-
-sacres. Déjà satisfait de sa déception, il est tenté de
-- s'écrier, — j'ai entendu tenir ce propos —: « Mais la RUE:
+sacres, des « atrocités et il ne voit pas de massacres. Déjà satisfait de sa déception, il est tenté de
+- s'écrier, — j'ai entendu tenir ce propos « Mais la RUE:
 - Macédoine est le pays le plus tranquille du monde! »
 . Il regarde d'un peu plus près; il constate d'abord que sus
 É dans ce pays d'apparence tranquille règne une insécu-
@@ -2216,8 +2071,7 @@ Je reconnais que les accidents sont rares. Encore
 est-il qu'il y en a. Et c'est trop qu'ils soient possibles.
 On m'a dit à Mitrovitza que M. Chicherbina « n'écou- 1 à
 tait pas les conseils de l'autorité qu'il « s'exposait... »
-Un pareil argument impliquerait qu'en ce pays l'insécu-
-rité serait la loi, et que, par conséquent, nous ne serions
+Un pareil argument impliquerait qu'en ce pays l'insécurité serait la loi, et que, par conséquent, nous ne serions
 pas en pays civilisé. De même, à mon retour de Mitro- 4 à
 vitza, un très gros personnage d'Uskub m'adressa ces.
 
@@ -2229,9 +2083,7 @@ Mitrovitza sans recevoir une balle dans le dos? C'est À
 admirable, en effet! Et j'en viens à me demander si
 
 l'officier de police et les douze gendarmes qui nous Y
-accompagnaient étaient bien nécessaires. Mon amour-
-
-propre me persuade aisément que c'était une escorte
+accompagnaient étaient bien nécessaires. Mon amourpropre me persuade aisément que c'était une escorte
 d'honneur tout simplement, dont on a voulu flatter nos
 Parlons sérieusement. Il n'est pas impossible de
 1 rétablir la sécurité dans ce pays, tout au moins d'y
@@ -2316,8 +2168,7 @@ petits vieux ratatinés. Et la Macédoine est un des pays
 les plus fertiles qui soient au monde!:
 Que de fois, en mes tristes excursions, je me suis
 rappelé les villages bulgares aperçus du train, entre la à
-frontière et Sofia! C'était un dimanche, et les pay-
-sannes en leurs robes fraîches étaient délicieuses. Les “3
+frontière et Sofia! C'était un dimanche, et les paysannes en leurs robes fraîches étaient délicieuses. Les “3
 jeunes souriaient, le bras sous le bras d'une amie, les
 cheveux au vent, parées, coquettes, jeunes. On ne
 reconnaît pas à la mise des paysannes macédoniennes
@@ -2325,8 +2176,7 @@ si c'est ou si ce n'est pas dimanche: pour elles, c'est
 uniformément jour de misère.
 Souvent aussi le souvenir m'est revenu du pittoresque:
 - marché de Sofia, qui, chaque vendredi, amène sur les
-places, dans les rues, paysans et paysannes des envi-
-rons. Ils descendent de leurs montagnes pour vendre à
+places, dans les rues, paysans et paysannes des environs. Ils descendent de leurs montagnes pour vendre à
 
 courrier de Macédoine, mercredi 15 avril 1903
 à la ville fromages, œufs, volailles, cochons et fleurs. J'ai
@@ -2337,17 +2187,13 @@ d'énormes bras rouges bronzés au soleil. Leur mise
 
 était propre et non exempte d'une certaine recherche:
 
-la jupe courte soutachée de riches broderies; la che-
-
-mise longue garnie de volants, les cheveux, coïffés plat
+la jupe courte soutachée de riches broderies; la chemise longue garnie de volants, les cheveux, coïffés plat
 sur la tête, tombant dans le dos en nattes fines et aussi
 
 nombreuses que possible, — j'ai compté jusqu'à vingtcinq nattes chez certaines beautés opulentes; — et des
 ; rubans, et des fleurs, et des plumes, et des colliers, et
 
-des bracelets, bijoux rustiques déjà luxueux. Un par-
-
-fum de nature brutale, mais saine et heureuse, se -
+des bracelets, bijoux rustiques déjà luxueux. Un parfum de nature brutale, mais saine et heureuse, se -
 
 répandait, que je n'ai jamais respiré dans les villages
 
@@ -2356,8 +2202,7 @@ de Macédoine.
 J'ai essayé de m'expliquer les raisons de cette
 misère. Je me suis efforcé d'en mesurer l'étendue.
 
-J'ai cherché à en voir clairement la cause et les consé-
-quences. Et sans avoir pousser mon enquête aussi:
+J'ai cherché à en voir clairement la cause et les conséquences. Et sans avoir pousser mon enquête aussi:
 loin que je l'aurais désiré, j'ai cependant recueilli
 des renseignements intéressants et des documents
 
@@ -2376,8 +2221,7 @@ facile que d'éclaircir ces trois points.:
 sont établies qu'approximativement par des semblants!,
 . de cadastres qui servent à fixer pour chaque propriété à
 la taxe de l'impôt foncier. Les brigades chargées de
-cette estimation n'opèrent pas toujours avec la rigou-
-reuse exactitude qui serait désirable. Et le paysan est
+cette estimation n'opèrent pas toujours avec la rigoureuse exactitude qui serait désirable. Et le paysan est
 . incapable de rectifier les erreurs.
 Pour le revenu brut du travail agricole et la répar-:
 tition de l'impôt, aucune statistique n'existe. Étant
@@ -2393,10 +2237,8 @@ Les renseignements précis ne peuvent être recueillis es
 que par une enquête directe, faite sur place, portant sur
 un très grand nombre de villages et une très grande
 variété de régions. Le seul moyen de procéder étant
-l'interrogation personnelle des villageois, la connaïis-
-sance du ture, du bulgare, du serbe, favoriserait la
-. besogne et éviterait la perte de temps causée par l'in-
-tervention d'un drogman. De toutes façons il faudrait
+l'interrogation personnelle des villageois, la connaïissance du ture, du bulgare, du serbe, favoriserait la
+. besogne et éviterait la perte de temps causée par l'intervention d'un drogman. De toutes façons il faudrait
 
 courrier de Macédoine, mercredi 15 avril 1903
 disposer de plusieurs mois, être assuré du beau temps
@@ -2415,10 +2257,8 @@ la petite propriété. On comprend généralement sous la
 première appellation toute étendue de terre supérieure
 à six cents denums, — le denum équivaut à un dixième
 d'hectare. — La grande propriété ne se rencontre guère
-que dans les plaines. Le terrain montagneux est beau-
-coup plus morcelé. Dans quelle proportion se trouvent
-les grands propriétaires? il est impossible de le déter-
-miner exactement. Les chiffres qui me sont fournis
+que dans les plaines. Le terrain montagneux est beaucoup plus morcelé. Dans quelle proportion se trouvent
+les grands propriétaires? il est impossible de le déterminer exactement. Les chiffres qui me sont fournis
 1 varient entre 20 et 60 o/o. Ce qui semble probable, par
 contre, c'est que les grands propriétaires sont tous
 musulmans, et qu'à peine 10 0/0 des terres cultivées
@@ -2439,25 +2279,17 @@ Le nombre de ces petits propriétaires sans cesse
 en diminuant. La mauvaise irrigation, le médiocre
 outillage et la quasi-impossibilité de le remplacer, la
 lourdeur de l'impôt aggravée par les exactions et les à
-irrégularités du dimier, l'insécurité, le pillage, ont sen-
-siblement diminué, depuis plusieurs années, la valeur
+irrégularités du dimier, l'insécurité, le pillage, ont sensiblement diminué, depuis plusieurs années, la valeur
 de la propriété foncière. Pour payer ses impôts, pour à
-continuer à cultiver son champ, pour vivre, le petit pro-
-priétaire a emprunter sur son champ ou chez les
-usuriers à des taux fantastiques, constituant une nou-
-velle charge. D'hypothèque en hypothèque, il se trouve
+continuer à cultiver son champ, pour vivre, le petit propriétaire a emprunter sur son champ ou chez les
+usuriers à des taux fantastiques, constituant une nouvelle charge. D'hypothèque en hypothèque, il se trouve
 acculé à la vente. Ou prévoyant le résultat final d'une
-série d'emprunts désastreux, il se décide immédiate-
-ment à vendre, et devient métayer ou ouvrier, quelque-
-fois métayer, puis ouvrier après de nouvelles pertes et
+série d'emprunts désastreux, il se décide immédiatement à vendre, et devient métayer ou ouvrier, quelquefois métayer, puis ouvrier après de nouvelles pertes et
 de nouveaux emprunts. a
-Métayer, le paysan conserve la propriété des bes-
-tiaux et des instruments de labour. Le propriétaire
+Métayer, le paysan conserve la propriété des bestiaux et des instruments de labour. Le propriétaire
 fournit le terrain et la semence. Le métayer laboure,
 sème, récolte et bat. La récolte faite, on prélève la dime.
-Puis, on retire, — ou on ne retire pas: c'est selon conven-
-
-courrier de Macédoine, mercredi 15 avril 1903
+Puis, on retire, — ou on ne retire pas: c'est selon convencourrier de Macédoine, mercredi 15 avril 1903
 tions, — la semence pour l'année suivante. Et le reste est
 partagé, par moitié, entre le propriétaire et le métayer.
 Le métayer s'endette le plus souvent pour achat et
@@ -2473,8 +2305,7 @@ il touche, pour prix de son labeur, un salaire en espèces
 ou en nature.
 J'ai me procurer le texte d'un bail conclu récem-!
 ment aux environs de Monastir entre un propriétaire et
-les quatre chefs de famille qu'il engageait. Pour le tra-
-vail de quatre hommes, et à leur volonté celui de leurs À
+les quatre chefs de famille qu'il engageait. Pour le travail de quatre hommes, et à leur volonté celui de leurs À
 femmes et enfants, pendant un an, le propriétaire
 1 kilé de blé, le kilé représente environ 30 kilos, éva-;
 kilés de maïs, à 12 piastres le kilé... 480 —.
@@ -2488,9 +2319,7 @@ Soit pour chaque chef de famille, 400 piastres, c'est-à-
 : dire moins de quatre livres turques, environ 88 francs.
 Les quatre chefs de famille reçoivent, en outre, du
 pétrole à discrétion; ils ont la jouissance d'un petit
-jardin d'où ils tirent pour leur nourriture quelques lé-
-gumes, tels que pommes de terre, courges, piment, hari-
-cots; ils ont enfin le droit de faire paître leurs moutons;
+jardin d'où ils tirent pour leur nourriture quelques légumes, tels que pommes de terre, courges, piment, haricots; ils ont enfin le droit de faire paître leurs moutons;
 4 et cette dernière clause pourrait être la source d'un
 certain profit: chaque brebis rapporte, en effet, 20 piastres par an; et le prix d'une brebis avec son agneau
 est de 70 à piastres. L'élevage des moutons peut:
@@ -2523,14 +2352,11 @@ main-d'œuvre, si légère soit-elle, et le capital nécessité
 par le matériel d'exploitation font tomber le rendement -
 Ainsi l'intérêt des propriétaires réclame l'extension
 du métayage. Mais le métayage tend à disparaître,
-tandis que, d'autre part, le nombre des petits proprié-
-taires en diminuant. La transformation actuelle de
+tandis que, d'autre part, le nombre des petits propriétaires en diminuant. La transformation actuelle de
 la propriété aboutira nécessairement à la concentration
-de toutes les terres entre les mains de grands proprié-
-taires et des banques, quand tout ce qui est aujourd'hui
+de toutes les terres entre les mains de grands propriétaires et des banques, quand tout ce qui est aujourd'hui
 petit propriétaire ou métayer sera devenu ouvrier.
-Ce résultat sera-t-il favorable ou préjudiciable à l'agri-
-culture? Cela dépend. Si les nouveaux propriétaires
+Ce résultat sera-t-il favorable ou préjudiciable à l'agriculture? Cela dépend. Si les nouveaux propriétaires
 à en restent aux procédés actuels d'exploitation, le ren- à
 obtenu par le métayage. Si, au contraire, les procédés
 d'exploitation sont renouvelés et perfectionnés, si les
@@ -2550,8 +2376,7 @@ nement ottoman prenait l'initiative de ces réformes. IL
 est peu probable que l'idée lui en vienne. Il ne serait? Es.
 même pas raisonnable d'attendre des propriétaires turcs
 une initiative analogue. Le programme esquissé plus:.
-haut exige de l'argent, beaucoup d'argent; ni les pro-
-priétaires, ni le gouvernement ne seraient en mesure de
+haut exige de l'argent, beaucoup d'argent; ni les propriétaires, ni le gouvernement ne seraient en mesure de
 régler l'addition. Quelques banques de Salonique, A
 devenues propriétaires de domaines hypothéqués, ont
 tenté une exploitation meilleure: elles n'ont pas échoué; si
@@ -2567,10 +2392,8 @@ créer une banque de crédit agricole, — avec plusieurs En
 succursales, — qui prêterait sur gage de cheptel mort ou
 vivant, et sous garantie de la mairie; il est question #1
 également d'organiser des expositions agricoles et
-d'instituer des fermes modèles, dirigées par des spécia-
-listes sortant de l'école supérieure de Constantinople.
-Ce sont de beaux projets qu'il faudrait songer à réa-
-liser: il est à croire que les moyens matériels et... le
+d'instituer des fermes modèles, dirigées par des spécialistes sortant de l'école supérieure de Constantinople.
+Ce sont de beaux projets qu'il faudrait songer à réaliser: il est à croire que les moyens matériels et... le
 temps feront défaut.
 
 . courrier de Macédoine, mercredi 15 avril 1903
@@ -2579,25 +2402,22 @@ si elle est poursuivie sérieusement, peut avoir les plus
 heureux résultats: on a distribué, à Uskub et dans les
 environs, 6.000 plants pour l'élevage des vers à soie. On
 a observé que dans les régions où la sériciculture
-;, existe, les populations sont relativement prospères. On
-à a résolu de propager la sériciculture; on voudrait lin-
-troduire en Albanie, où les montagnes escarpées,
+existe, les populations sont relativement prospères. On
+à a résolu de propager la sériciculture; on voudrait lintroduire en Albanie, où les montagnes escarpées,
 rocailleuses et abandonnées depuis longtemps sont
 à rebelles à toute autre culture. Encore faudrait-il que les
 distributions gratuites fussent accompagnées de cours
 pratiques, qu'une véritable éducation séricicole fût
 donnée. Estil téméraire de penser qu'une œuvre aussi.
 : longue et aussi délicate risque de se heurter à bien des
-empêchements? Est-il excessif d'ajouter que la sérici-
-culture ne suffira pas à relever l'agriculture, et qu'un
+empêchements? Est-il excessif d'ajouter que la sériciculture ne suffira pas à relever l'agriculture, et qu'un
 ! des moyens d'y arriver serait, par exemple, de diminuer
 la concurrence en développant, — que dis-je? — en
 créant un commerce et une industrie? Mais de pareilles
 entreprises peuvent-elles s'improviser et nous a-t-on
 À préparés à les attendre avec confiance?
 Est-ce qu'un autre moyen de favoriser le travail des
-ï champs ne serait pas de diminuer la misère; et ne pour-
-rait-on pas commencer par alléger l'impôt? Je ne puis
+ï champs ne serait pas de diminuer la misère; et ne pourrait-on pas commencer par alléger l'impôt? Je ne puis
 donner la moyenne exacte de l'impôt payé par tête
 d'habitant. Mais voici deux exemples se rapportant le À
 premier à un village particulièrement malheureux, le
@@ -2605,14 +2425,12 @@ second à une famille d'un village particulièrement favo- à
 Le village bulgare de Mavrovo, -caza de Tetovo,
 vilayet de Kossovo, compte cent cinquante maisons, ce
 
-qui représente une population d'environ sept cents habi-
-tants. Le total des impôts payés par ce village monte à a
+qui représente une population d'environ sept cents habitants. Le total des impôts payés par ce village monte à a
 — 2.837 francs 50, — pour l'impôt foncier, et 185 livres,
 Ajoutez à ce total la charge de sept Albanais, qui se
 font payer leur indulgence entre 8 et 20 livres par an,
 Et notons une manière originale de percevoir la dîme
-sur le foin. Le dîmier déclare vouloir être payé en es-
-pèces: il prélèvera une oque sur 7 oques 3/4, — ce qui,
+sur le foin. Le dîmier déclare vouloir être payé en espèces: il prélèvera une oque sur 7 oques 3/4, — ce qui,
 déjà, est abusif; — et, pour le règlement en espèces,
 l'oque sera évaluée 20 paras, — une demi-piastre, —
 alors que le prix réel de l'oque de foin est de 6 paras. -
@@ -2626,8 +2444,7 @@ Mavrovo est parmi les plus tristement grevés; mais gardons-nous de penser qu'il
 significatif. C'est le budget d'une famille habitant un
 par conséquent des avantages que confère la proximité; à
 d'un grand centre: sécurité, chemin de fer, débouché.
-La famille est composée de onze personnes: trois mé-
-nages et cinq enfants dont un de trois ans, deux de six
+La famille est composée de onze personnes: trois ménages et cinq enfants dont un de trois ans, deux de six
 ans, deux de douze à treize ans. Les trois hommes sont
 frères. Ils sont propriétaires en commun, travaillent en rie
 
@@ -2639,7 +2456,7 @@ Voici le budget de cette famille:
 Exploitation des champs, vignes, arbres fruitiers,
 Salaire du travail des deux frères........ 690 »
 Nourriture, — dont 581 francs pour la farine,.. 896 »
-Nourriture des animaux >. 0.7 LE. SE »;
+Nourriture des animaux >. 0.7 LE. SE
 : Voilà donc un revenu de 1.816 francs qui paye
 1 272 francs 40 d'impôts. (1) Le détail de ces impôts est
 Perte causée par le retard du dîmier, évaluée à. 24 75008
@@ -2649,39 +2466,31 @@ macédonien, plus haut, page
 Imipotspeciak sun id) vigne). sit SANS
 Impôt spécial sur animaux, — un cochon,... 1 40 A
 Capitation, —exemption du service militaire payé à
-par tous les chrétiens de quinze à soixante-
-dix ans, — et prestation, — impôt pour l'entre- PAS
+par tous les chrétiens de quinze à soixantedix ans, — et prestation, — impôt pour l'entre- PAS
 Redevance au maire, sur laquelle est prélevée
 l'allocation du garde-champêtre........ TA à
 Nourriture et entretien de gendarmes traversant
 Cotisation exigée par les comités révolutionRARES DUIPArES tea a PRES
 Impôt foncier sur une vigne qui n'appartient
 plus à la famille et qui est entre les mains d'un
-Et encore une fois cette famille est parmi les favori-
-sées: elle habite à quatre kilomètres d'Uskub; elle est
+Et encore une fois cette famille est parmi les favorisées: elle habite à quatre kilomètres d'Uskub; elle est
 à l'abri des incursions albanaïses; elle est soutenue par
 trois hommes dans la force de l'âge et qui travaillent;
 elle n'est particulièrement éprouvée ni par le dîmier, ni
 É par les bandes; si l'intérêt qu'elle paye annuellement
-pour sa dette est vraiment fantastique, la dette en elle-
-même n'est point considérable. Pourtant, défalquez du
+pour sa dette est vraiment fantastique, la dette en ellemême n'est point considérable. Pourtant, défalquez du
 4 total de ses dépenses tout ce qui n'est pas employé à sa
 consommation personnelle, vous trouverez une somme
 à de 1.442 francs, qui, partagée entre 11 personnes, donne à
-131 francs par an et par individu; soit, par jour... envi-
-
-courrier de Macédoine, mercredi 15 avril 1903
+131 francs par an et par individu; soit, par jour... envicourrier de Macédoine, mercredi 15 avril 1903
 Après six semaines de séjour en Macédoine et au
 moment de quitter Uskub pour Constantinople, je me
-demande avec anxiété quelles « réformes » pourront suf-
-fire à améliorer une pareïlle situation! Le paysan macé-
-donien meurt de faim. La question macédonienre pour
+demande avec anxiété quelles « réformes » pourront suffire à améliorer une pareïlle situation! Le paysan macédonien meurt de faim. La question macédonienre pour
 le paysan macédonien est, au fond, une question de
 pain. Et c'est son côté le plus intéressant. Et c'est celui
 qui intéresse le moins.;
 Un intervalle d'un mois sépare cet article de l'article
-suivant. J'ai passé trois semaines de ce mois à Constan-
-tinople. C'est alors que je recueillis les éléments du cahier
+suivant. J'ai passé trois semaines de ce mois à Constantinople. C'est alors que je recueillis les éléments du cahier
 dont il a été question plus haut (page 6, note 4).
 Un seul article daté de Constantinople a paru jusqu'à ce a
 jour: Le sélamlik (Petit Temps du dimanche 17 mai). Nous Et
@@ -2700,16 +2509,12 @@ son propre compte. Saura-t-on jamais la vérité exacte? à
 C'est douteux. Nous sommes réduits à des hypothèses
 contradictoires, entre lesquelles chacun choisit selon
 ses passions.
-Les Turcs, par exemple, ne se contentent pas d''attri-
-buer à l'Organisation intérieure et aux comités la 1400
+Les Turcs, par exemple, ne se contentent pas d''attribuer à l'Organisation intérieure et aux comités la 1400
 paternité directe de ces attentats; c'est pour eux le
 gouvernement bulgare qui les a inspirés; c'est lui qui
-a envoyé des ingénieurs chargés d'exécuter les tra-
-vaux. Et l'agence commerciale de Bulgarie aurait été
+a envoyé des ingénieurs chargés d'exécuter les travaux. Et l'agence commerciale de Bulgarie aurait été
 ici le centre du complot.
-Cette hypothèse turque accumule les ifyraisem-
-
-courrier de Macédoine, vendredi 15 mai 1903
+Cette hypothèse turque accumule les ifyraisemcourrier de Macédoine, vendredi 15 mai 1903
 ; blances. Il faudrait pour qu'elle fût plausible que l'on
 eût perdu la raison à Sofia. Il faudrait aussi que le
 gouvernement princier eût répudié toute loyauté; et
@@ -2717,7 +2522,7 @@ j'ai constaté pendant mon séjour à Sofia qu'il n'en était
 rien. Maïs surtout cette hypothèse semble folle à qui
 connaît M. Schopoff, agent commercial de Bulgarie à
 Salonique. J'ai été frappé en le revoyant ici, après trois
-;! semaines d'absence, de l'ébranlement que les derniers
+semaines d'absence, de l'ébranlement que les derniers
 événements avaient fait subir à sa personne. Il m'a -
 semblé atterré par la catastrophe et désespéré des
 soupçons dont il est l'objet. Je puis me tromper; mais
@@ -2747,24 +2552,17 @@ C'est une conclusion bien précipitée, bien absolue, et
 aussi entachée de partialité que l'affirmation turque.
 La vérité me semble être, comme elle est presque +6
 toujours, entre les deux extrêmes. Le groupe installé à
-Salonique, partisan d'une action violente, aurait tra-
-vaillé sous une inspiration étrangère à celle de l'Orga-
-nisation intérieure, mais avec, sinon l'appui, tout au
+Salonique, partisan d'une action violente, aurait travaillé sous une inspiration étrangère à celle de l'Organisation intérieure, mais avec, sinon l'appui, tout au
 moins l'approbation de cette dernière. Et l'affaire du
-Guadalquivir, — 28 avril, — et la tentative de déraille-
-ment faite le soir du même jour sur le train de Constan-
-tinople à son arrivée à Salonique, tendent à prouver
-cette entente. Depuis longtemps, d'ailleurs, l'Organi-
-sation intérieure annonçait son dessein de faire sauter
+Guadalquivir, — 28 avril, — et la tentative de déraillement faite le soir du même jour sur le train de Constantinople à son arrivée à Salonique, tendent à prouver
+cette entente. Depuis longtemps, d'ailleurs, l'Organisation intérieure annonçait son dessein de faire sauter
 quelques monuments. Il n'avait pas été question de
 miner une ville, mais cela ne veut pas dire qu'on n'y
 songeât pas.
 
 On doit retenir toutefois que les individus qui se sont
 employés dans l'affaire de la Banque ottomane sont,
-selon toute apparence, des Bulgares arrivés de Bul-
-garie à Salonique depuis l'automne dernier. Et, anté-
-rieurement déjà, des groupements anarchistes, bulgares À
+selon toute apparence, des Bulgares arrivés de Bulgarie à Salonique depuis l'automne dernier. Et, antérieurement déjà, des groupements anarchistes, bulgares À
 
 et non bulgares, avaient été signalés dans la ville, à
 plusieurs reprises. Il y a deux ans, par exemple, deux
@@ -2783,8 +2581,7 @@ propres, est possible: que ce groupe ait ou n'ait pas
 été en relation avec l'Organisation intérieure, je ne sais.
 La première alternative, assurément, est plus vraisemblable, encore qu'il soit impossible de déterminer d'une
 manière précise la nature des rapports soupçonnés.
-Ne nous attardons pas à des suppositions qui risqueraient de rester invérifiées. Quels que soient les véri-
-tables auteurs des menées criminelles du quartier franc,
+Ne nous attardons pas à des suppositions qui risqueraient de rester invérifiées. Quels que soient les véritables auteurs des menées criminelles du quartier franc,
 leur responsabilité n'est pas seule engagée en cette
 affaire. La police et l'administration turques ont de
 grosses fautes sur la conscience.
@@ -2810,8 +2607,7 @@ coreligionnaires. — Eït les prêtres bulgares prétendent
 anomalie. Est-ce parce que les Bulgares habitent un
 quartier neuf qu'on ne tient pas compte de leurs récla- À
 mations? Est-ce parce qu'ils sont bulgares, et pour que,
-le chiffre de leur population étant ignoré, la prépondé-
-rance des éléments juif et grec, qui sont la grande
+le chiffre de leur population étant ignoré, la prépondérance des éléments juif et grec, qui sont la grande
 majorité, apparaisse plus écrasante? Ou bien n'est-ce
 qu'une de ces incuries administratives dont la Turquie:
 fournit de si nombreux exemples?
@@ -2822,12 +2618,9 @@ les Bulgares sérieux. La statistique officielle du vilayet À
 donne, pour l'année dernière, le chiffre dérisoire de
 deux naissances bulgares dans tout caza;
 2 la population bulgare vit comme en marge de la
-société. Des quantités de Bulgares ne payent pas d'im-
-pôts; n'étant pas en mesure de prouver qu'ils ont payé;
+société. Des quantités de Bulgares ne payent pas d'impôts; n'étant pas en mesure de prouver qu'ils ont payé;
 
-leurs impôts, ils ne peuvent obtenir de teskérés, — passe-
-
-ports intérieurs obligatoires; — ne pouvant obtenir de
+leurs impôts, ils ne peuvent obtenir de teskérés, — passeports intérieurs obligatoires; — ne pouvant obtenir de
 teskérés par les moyens légaux, force leur est d'avoir Le
 recours aux moyens illégaux: les handjis, — propriétaires
 È d'auberges, — et la police sont là; le bakchich fait son
@@ -2879,22 +2672,18 @@ beaucoup la plupart des langages européens; le français
 surtout, et l'espagnol, mais aussi l'italien et l'allemand.:
 
 La langue turque est peu usitée. (1) Le commerce euro- Re.
-péenest assez développé. La Banque ottomane a une suc-
-cursale importante. La Compagnie française du chemin
+péenest assez développé. La Banque ottomane a une succursale importante. La Compagnie française du chemin
 de fer Salonique-jonction-Constantinople a établi aux
-portes de la ville son siège social. La Compagnie fran-
-çaise du port et des quais, la Compagnie des eaux, la
+portes de la ville son siège social. La Compagnie française du port et des quais, la Compagnie des eaux, la
 Compagnie du gaz, emploient un personnel nombreux
 È composé en majeure partie d'Européens. Plusieurs De
-pays, — la France, l'Autriche, — ont organisé un ser-
-vice postal. Les grandes compagnies de navigation,
+pays, — la France, l'Autriche, — ont organisé un service postal. Les grandes compagnies de navigation,
 generale italiana, — ont ouvert un bureau. Les intérêts;
 1 européens à Salonique sont considérables.
 : Le choix des dynamiteurs indique, pour moi, que les
 ; attentats des 28 et 29 avril étaient dirigés non contre la KE.
 Turquie, mais contre l'Europe. Ils signifient, non une
-révolte contre l'autorité ottomane, mais une protesta-
-tion contre la politique européenne. J'ai signalé depuis #4
+révolte contre l'autorité ottomane, mais une protestation contre la politique européenne. J'ai signalé depuis #4
 
 Ai courrier de Macédoine, vendredi 15 mai 1903.
 à longtemps que la note austro-russe, et les anodines
@@ -2919,8 +2708,7 @@ chiffre pour Monastir; mais à Uskub les différentes
 évaluations que j'ai recueillies donnent, avec des estimations différentes, une proportion constante de deux
 tiers musulmans contre un tiers chrétien. On trouve en
 outre, à Uskub, un élément particulier, et particulière
-(1) Tous ces chiffres sont approximatifs. La populatien de Salo-
-nique monte peut-être à 150.000; la population juive n'est peut-être
+(1) Tous ces chiffres sont approximatifs. La populatien de Salonique monte peut-être à 150.000; la population juive n'est peut-être
 que de 70 ou 75.000; de sorte que la population musulmane est peut:
 être plus nombreuse que mes chiffres ne le supposent. Elle reste
 cependant une minorité certaine, et infime par rapport au total. À
@@ -2930,8 +2718,7 @@ Monastir: les mohadjirs, qui remplissent tout un
 quartier d'Uskub. On désigne sous ce nom les musulmans qui habitaient autrefois les provinces turques
 et Roumélie orientale, Serbie, — et qui, plutôt que de
 vivre sous la domination d'un peuple infidèle, ont préféré
-émigrer: ils se sont arrêtés naturellement dans la pro-
-vince turque la plus voisine de leur ancienné résidence, me
+émigrer: ils se sont arrêtés naturellement dans la province turque la plus voisine de leur ancienné résidence, me
 et c'est ainsi qu'ils se sont fixés autour d'Uskub. (1) Ce
 : sont donc des fanatiques par définition. Ils haïssent la
 population chrétienne, et la massacreraient volontiers
@@ -2976,8 +2763,7 @@ Mais, encore une fois, il est impossible de contrôler.
 population n'est pas intervenue. Cet heureux résultat
 est en partie aux ordres de Constantinople, mais
 surtout au sang-froid et à la fermeté du vali Hassan-
-Fehmi pacha, dont la conduite fut vraiment remar-
-quable. Au lendemain de la catastrophe il traver-
+Fehmi pacha, dont la conduite fut vraiment remarquable. Au lendemain de la catastrophe il traver-
 : sait en voiture les principales rues, s'arrêtait pour
 haranguer la foule et déclarait que, la police et la troupe
 6 suffisant à maintenir l'ordre, toute immixtion de la
@@ -2987,8 +2773,7 @@ comportés: furent seuls tués les dynamiteurs pris la:
 bombe à la main, ou ceux qui, arrêtés, résistaient à
 d'une manière menaçante.
 
-Mais la police se montra en cette circonstance infé-
-rieure à elle-même, si tant est que ce soit vraisem- £.
+Mais la police se montra en cette circonstance inférieure à elle-même, si tant est que ce soit vraisem- £.
 blable. Elle avait prouvé, avant l'événement, une
 incroyable légèreté et une impuissance totale à préve- À
 nir les malheurs; elle affirma, dans la répression, une A
@@ -3006,8 +2791,7 @@ apporté au mouvement macédonien la recrue inespérée
 de ces éléments conservateurs?
 Les attentats de Salonique ont inspiré à Hilmi pacha
 l'idée de déporter en Asie Mineure tous les Bulgares
-suspects. Cette mesure aurait l'avantage d'éviter le mas-
-sacre de la population bulgare en Macédoine. (1) Mais
+suspects. Cette mesure aurait l'avantage d'éviter le massacre de la population bulgare en Macédoine. (1) Mais
 est-il assuré que les Bulgares, du seul fait de se trouver À
 
 menées? Et pourquoi un conflit ne se produirait-il pas
@@ -3022,9 +2806,7 @@ courrier de Macédoine, vendredi 15 mai 1903
 entrevu le danger?
 
 A-t-il d'autre part négligé de songer qu'une loi de
-suspects, c'est, en tout pays, la porte ouverte à l'arbi-
-
-traire. En Turquie aussi. Que se passerait-il? Tous les
+suspects, c'est, en tout pays, la porte ouverte à l'arbitraire. En Turquie aussi. Que se passerait-il? Tous les
 Macédoniens aisés recevraient de la police des propositions bienveillantes: en payant on obtiendraït de ne
 
 pas figurer sur les listes de proscription. On éviterait
@@ -3077,8 +2859,7 @@ Je suis donc obligé de reconnaître que la police à
 turque est en général charmante avec les Européens.
 Elle les traite en invités. Elle réserve ses rigueurs À
 
-pour les raïas ottomans qui, à cet égard, sont vrai-
-ment bien partagés.
+pour les raïas ottomans qui, à cet égard, sont vraiment bien partagés.
 
 . La bibliographie de la question d'Orient est considé- MALE
 Fab e. Je cite seulement les ouvrages les plus récents se
@@ -3097,8 +2878,7 @@ la protection de l'Europe pour assurer son exis-
 son existence?: EURS
 
 courriers de Macédoine
-me Évouarp DrrAuLr. — La question d'Orient depuis ses ori-
-gines jusqu'à nos jours. — octavo, Alcan. Paris, deuxième
+me Évouarp DrrAuLr. — La question d'Orient depuis ses origines jusqu'à nos jours. — octavo, Alcan. Paris, deuxième
 Cet ouvrage est une compilation un peu rapide:
 La question d'Orient et la question d'Extrême-Orient
 y sont traitées depuis leurs origines en 400 pages.
@@ -3125,7 +2905,7 @@ eo: #3 Point de vue serbe. LLC
 
 Ce cahier de courriers n'est pas un livre.......
 
-7 L'opinion et les réformes. — Les bandes et
+L'opinion et les réformes. — Les bandes et
 l'action des comités. — Lenteurs adminis- (SET
 tratives. — Conversation avec Riza pacha, "NA
 

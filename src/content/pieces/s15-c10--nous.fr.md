@@ -65,7 +65,7 @@ Mais non, la coquette est fertile
 Pour mieux séduire, par folie!
 
 Folle, en effet, la France est folle,
-Sa folie est l'esprit qu'elle a:
+Sa folie est l'esprit qu'elle
 Toute chose est folie, qui vole,
 Mais savoir voler, tout est!
 

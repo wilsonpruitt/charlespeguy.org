@@ -46,11 +46,8 @@ Je fais, défais, refais la loi.
 ù Imitant un aveugle:
 Ayez pitié d'un pauvre aveugle!
 5% Imitant un camelot, puis un ouvrier:
-« 8 Demandez le repasseur, le rapetasseur, le rafis-
-
-la chanson du roi Dagobert
-toleur, le rapetisseur, le rapapilloteur, le raccom-
-modeur, le rétameur de lois; avez-vous des ciseaux,
+« 8 Demandez le repasseur, le rapetasseur, le rafisla chanson du roi Dagobert
+toleur, le rapetisseur, le rapapilloteur, le raccommodeur, le rétameur de lois; avez-vous des ciseaux,
 des couteaux à repasser? voilà le repasseur, voilà
 le rémouleur. SAS
 Le bon roi Dagobert « TE
@@ -137,14 +134,11 @@ d'art de M. Édouard Pelletan: elle a été publiée pour
 la deuxième et pour la dernière fois en entier, — sous
 sa forme de conte, — dans les Cahiers de la Quinzaine,
 à où elle fait le premier cahier de la quatrième série.
-Ce cahier, marqué un franc, a été retiré du com-
-merce et réservé par les cahiers pour le service de leur,
+Ce cahier, marqué un franc, a été retiré du commerce et réservé par les cahiers pour le service de leur,
 abonnement. Il faut donc, pour avoir un texte entier
 de affaire Crainquebille, s'abonner à la quatrième
 série des cahiers. — S'adresser à M. André Bourgeois,
-: administrateur des cahiers, 8, rue de la Sorbonne, rez-
-
-de-chaussée, Paris, cinquième arrondissement.
+: administrateur des cahiers, 8, rue de la Sorbonne, rezde-chaussée, Paris, cinquième arrondissement.
 : Nous avons donné le bon à tirer après corrections
 
 pour deux mille exemplaires de ce quinzième cahier
@@ -259,8 +253,7 @@ Béthesda ou Bethphagé, faute de place dans les
 murs... Quand ils monteront vers le temple, il sera
 Amen! — Pour une nuit, la besogne est belle.
 LE SADDUCÉEN, regardant du côté de Hanan
-Certes! Il a trouver cet apôtre infidèle, ce mé-
-content aux mains avides, qui trouvait les proA
+Certes! Il a trouver cet apôtre infidèle, ce mécontent aux mains avides, qui trouvait les proA
 messes trop lentes ets'est vengé de sesmécomptes.….
 Etait-il desséché par la haine! Commentse nommet-il?
 Nous n'aurions agir de sitôt, sans lui.
@@ -375,8 +368,7 @@ Il ne s'agit pas seulement d'une affaire religieuse.
 au moins pour le Procurateur. — Des raisons politiques, en effet, le toucheront davantage... Nous
 font-elles défaut? S'il ne veut frapper pour blasphème, il frappera pour séduction... séduction du
 
-peuple, entendez-vous? Ce fils de charpentier, soi-
-disant prophète, ne s'est-il pas dit roi des Juifs?
+peuple, entendez-vous? Ce fils de charpentier, soidisant prophète, ne s'est-il pas dit roi des Juifs?
 
 C'est la vraie tactique! 1.0
 Jésus n'a jamais dit qu'il fût roi des Juifs! »
@@ -450,9 +442,7 @@ Les démons le possèdent! — Qu'il ait sa part
 avec son maître! — Arrêtons-le!;
 ; Gestes de menace vers Nicodème.
 
-Laissez dire, laissez-le tout dire... C'est un Pha-
-
-risien qui parle ainsi!
+Laissez dire, laissez-le tout dire... C'est un Pharisien qui parle ainsi!
 
 .
 
@@ -476,11 +466,7 @@ me sers pas d'étrangers pour tuer plus sûrement les
 
 prophètes!... Je ne m'étonne point de nos querelles,
 
-elles dureront après nous encore! Toi, qui es satis-
-
-fait de ce monde, tu veux, coûte que coûte, con-
-
-server avec lui ta paix fructueuse... Quant à moi,
+elles dureront après nous encore! Toi, qui es satisfait de ce monde, tu veux, coûte que coûte, conserver avec lui ta paix fructueuse... Quant à moi,
 je n'y prétends pas... Je m'étonne seulement qu'un
 si grand personnage se dérange avant l'aube pour
 un Galiléen... — Mais je vois ici d'autres hommes,
@@ -557,7 +543,7 @@ osé crier: malheur à vous!... En vérité, il ne faudrait plus sur la terre d'
 
 jeunes gens, ou plutôt chacun est docteur et juge!
 Plus de règles, plus d'autorité, plus d'alliance! Ne
-dit-il pas: « Il suffit d'aimer... »? Voilà le crime et
+dit-il pas: « Il suffit d'aimer... Voilà le crime et
 le scandale! Je ne veux pas savoir d'autres preuves!
 C'est lui, le Blasphème vivant! — Je dis donc:
 Périsse l'imposteur, avant l'étranger! Fauchons-les
@@ -636,8 +622,7 @@ choisir votre jour pour crier: Justice!
 La cause, Ponce Pilate, est grave. Il s'agit d'un
 blasphème sans exemple encore.
 
-Les blasphèmes vous regardent, jugez-en vous-
-mêmes. Je n'ai pas qualité pour savoir ce qui peut
+Les blasphèmes vous regardent, jugez-en vousmêmes. Je n'ai pas qualité pour savoir ce qui peut
 offenser votre Dieu.;
 Nous avons une sentence de mort, mais un rescrit
 de Rome nous défend de l'appliquer, tu le sais. il
@@ -667,8 +652,7 @@ Veux-tu voir juger le Messie? à
 Soyez seuls à porter votre crime! Javeh, qui nous
 voit, te juge aussi!
 Je l'accepte! ce
-sort, suivi des autres, moins Nicodème et Joseph d'Ari-
-mathée. Céphas, qui le dernier a gravi les marches,
+sort, suivi des autres, moins Nicodème et Joseph d'Arimathée. Céphas, qui le dernier a gravi les marches,
 s'arrête avant d'entrer dans le Prétoire et redescend brusquement.,
 Et toi, tu ne suis pas toute la meute? Va, jeune
 homme, la fortune est de ce côté!
@@ -676,8 +660,7 @@ homme, la fortune est de ce côté!
 Souffrez que je demeure ici. Il est vrai, je ne suis
 pas des vôtres, mais je ne souhaite pas de mal à
 Je le suis.
-C'est cela, oui... Combien sont-ils, qui n'ont jamais souhaité sa mort, et ne feront rien pour la pré-
-venir! S'ils savaient, cependant! peut-être
+C'est cela, oui... Combien sont-ils, qui n'ont jamais souhaité sa mort, et ne feront rien pour la prévenir! S'ils savaient, cependant! peut-être
 qu'ils sortiraient en hâte de leurs demeures et
 qu'ils auraient honte de leurs vies... mais quoi?
 Nous sommes parqués ici comme des moutons dans
@@ -726,9 +709,7 @@ encore à Judas: Fais ton œuvre. C'est alors que:
 Judas est sorti.
 
 A quoi bon, si c'était pour mourir, ces batailles
-des dernières journées, depuis son retour à Jérusa-
-
-lem? ces traits de feu sur les hypocrites, et ces
+des dernières journées, depuis son retour à Jérusalem? ces traits de feu sur les hypocrites, et ces
 coups de fouet aux vendeurs? ces éclairs dans ses
 yeux, comme ceux de Moïse descendant du Sina?
 Il semblait avoir pris un vol d'aigle, et ses mainsse
@@ -967,9 +948,7 @@ Tout le monde est sur les terrasses, par une telle
 nuit.
 NICODÈME, après un silence, regardant devant lui, vers le mur
 Jésus... Jésus de Bethléem! Voyez, c'est lui »
-encore. Son visage a repris sa grâce, depuis l'ago-
-
-nie. Il est beau de sa première beauté... On dirait
+encore. Son visage a repris sa grâce, depuis l'agonie. Il est beau de sa première beauté... On dirait
 qu'il répand de la lumière dans l'ombre...
 Sa face en est toute baignée!
 C'est ainsi qu'il m'est apparu, messager d'une naïssance nouvelle, par une nuit de mon destin!... Son
@@ -1099,8 +1078,7 @@ tout ce que j'aime et tout ce que je hais! Là-bas,
 la terre âpre et stérile, la mer morte, les dattiers
 d'En-Guédi où vivent les hommes purs, dédaigneux
 des foules, voilà mon vœu! Là, plus de sacrifices À
-qui fument, et plus de monnaies étrangères! L'Essé-
-nien, lavé d'eau lustrale, ne salue que la lumière du
+qui fument, et plus de monnaies étrangères! L'Essénien, lavé d'eau lustrale, ne salue que la lumière du
 monde, et vit pour Dieu seul... Les travaux journaliers, le silence, les saisons parmi les cultures me
 prépareront mieux au grand calme. Je m'initierai
 aux mystères que gardent les Vieillards sacrés. A
@@ -1110,8 +1088,7 @@ amer, quelque soir... les hommes sont peu de chose,
 ils s'en vont, et l'Esprit demeure.
 J'aurai dans ma vie un homme... Mes frères
 l'ont crucifié, mais il repose là, sous ta garde... Je
-me souviendrai. — Mais on vient, des ombres s'ap-
-prochent... quelques femmes, je crois. Les étoiles
+me souviendrai. — Mais on vient, des ombres s'approchent... quelques femmes, je crois. Les étoiles
 vont pâlir bientôt, je me hâte.
 sort. Joseph d'Arimathée le regarde s'éloigner en silence.
 Les Saintes Femmes, au nombre de quatre, toutes voilées
@@ -1213,8 +1190,7 @@ m'emporta. J'allai soudain à lui, comme en Songe,
 et lui dis: « Que dois-je faire pour avoir la paix? »
 Il répondit: « Tu connais la Loi. L'observes-tu? »
 Je dis: « Non, j'ai péché contre elle. Maïs je voudrais me racheter. » Alors il me regarda bien en
-face, et ses yeux, faits d'une autre lumière, me dé-
-fiaient, me brûlaient la poitrine... Il parla: « Si tu
+face, et ses yeux, faits d'une autre lumière, me défiaient, me brûlaient la poitrine... Il parla: « Si tu
 veux devenir un autre homme, vends tes biens, et
 suis-moi. » Et, comme je demeurais là, triste, secouant la tête il s'éloigna.…
 Pourquoi ne l'as-tu pas suivi?
@@ -1265,8 +1241,7 @@ faute ou bien par la sienne?.. Lui, dont la volonté
 muette faïsait se lever les malades, et les yeux des
 aveugles s'ouvrir, ne pouvait-il pas m'emporter?..
 Mais non! Il m'a laissé la tâche, sans dire ce qu'il
-voulait de moi... J'ai été troublé, non séduit, dé-
-pouillé de la joie ancienne tarie comme l'eau dans
+voulait de moi... J'ai été troublé, non séduit, dépouillé de la joie ancienne tarie comme l'eau dans
 la main, sans connaître la béatitude dont il enchantait ses Élus. N'est-ce pas un sort dérisoire?
 
 Tu as trop discuté en toi-même. Il fallait se
@@ -1312,9 +1287,7 @@ Que demandez-vous?
 Tu as enseveli notre maître... Qu'il te plaise nous
 dire en quel lieu, afin que nous allions y prier,
 celui-ci, Simon Pierre, et moi, Jean.
-Je l'ai enseveli au jardin d'Ephron, près du Golgotha. Est-ce maintenant qu'il faut vous l'ap-
-
-prendre? Les femmes sont plus promptesquevous.…
+Je l'ai enseveli au jardin d'Ephron, près du Golgotha. Est-ce maintenant qu'il faut vous l'apprendre? Les femmes sont plus promptesquevous.…
 Depuis deux jours, quel est votre abri?
 
 ; Nous étions chez Marie et Marthe, sœurs de Lazare, à Béthanie.;
@@ -1430,8 +1403,7 @@ Que dis-tu, Marie? Parle-nous.. C'est moi,
 C'est toi, Pierre. (Elle regarde autour d'elle.) Vous êtes
 tous là... Pourquoi gardez-vous ces visages?
 elle est passée, la longue nuit... Ne savez-vous pas
-qu'il faut rire? qu'il faut marcher dans la cam-
-pagne, et cueillir des rameaux... des rameaux?... Ne
+qu'il faut rire? qu'il faut marcher dans la campagne, et cueillir des rameaux... des rameaux?... Ne
 vous ai-je pas dit qu'ils'avance, lui, l'époux céleste.
 Un silence. Tous, anxieux, se regardent.
 LES SAINTES FEMMES, entre elles, à voix basse
@@ -1498,8 +1470,7 @@ leur voix se perdra dans les bourgades... leur zèle
 s'éteindra de lui-même... à moins que?... (Unsilence.)
 Que pouvais-je de plus pour guérir ces cœurs passionnés de leur songe?... Rien... ( regarde vers le
 sépulcre.) Rien... — Et peut-être, pour eux, vaut-il
-mieux n'être pas guéris.. De quel droit les aurais-
-je troublés d'un savoir stérile, qui les abattraitsans
+mieux n'être pas guéris.. De quel droit les auraisje troublés d'un savoir stérile, qui les abattraitsans
 les vaincre?.. Envie de boiteux, mécontent que les
 autres courent! Oui, j'ai connu cela aussi... (Un
 silence) Maintenant des folies à entendre?.. Mes
@@ -1603,8 +1574,7 @@ bien le voir!.. Mais il est mort! mort!... mort en
 
 croix!. des clous aux pieds! des clous aux
 
-mains! et son Dieu l'a laissé se tordre. et sai-
-gner, et crier. Ha! Ha!
+mains! et son Dieu l'a laissé se tordre. et saigner, et crier. Ha! Ha!
 
 Il vit! Marie-Madeleine l'a! Et Pierre et
 Jean aussi l'ont vu!:
@@ -1642,8 +1612,7 @@ elle a la colombe descendre, et les deux hommes
 Qui était-ce?.. Moïse et Élie?.…
 Sans doute... ou Jean Baptiste... C'étaient des
 khéroubs vêtus de feu.
-C'est étrange qu'une Syrienne voie des khé-
-roubs... et celle-ci! Ce n'était pas une sainte,
+C'est étrange qu'une Syrienne voie des khéroubs... et celle-ci! Ce n'était pas une sainte,
 autrefois, la Madeleine... Elle dansait dans les
 tavernes pour les matelots!
 Il avait chassé de son corps sept démons... et,
@@ -1656,8 +1625,7 @@ Il était debout dans une grande lumière... comme
 de glaives, disent-ils…
 Ils auraient voir les stigmates.… 728)
 Patience, nous allons les entendre... Voici les
-Entrent Marie de Magdala et les Saintes Femmes, qui pas-
-sent à gauche. Elles relèvent leur voile.
+Entrent Marie de Magdala et les Saintes Femmes, qui passent à gauche. Elles relèvent leur voile.
 TROISIÈME DISCIPLE, indiquant Marie de Magdala
 Regardez-la qui marche sans voir... Ne dirait-on
 pas une vierge?
@@ -1674,8 +1642,7 @@ Je passais par le champ d'Hénoch, le potier.
 Voici que sous un arbre je vois un homme... La
 tête touchait presque les branches, et les pieds ER:
 avaient l'air de pendre. il ne fait plus clair... Je es
-l'appelle... il est comme une souche... je m'appro-
-che... eh! oui, bien pendu! la corde au cou... c'était 5%
+l'appelle... il est comme une souche... je m'approche... eh! oui, bien pendu! la corde au cou... c'était 5%
 C'est lui-même qui s'est tué?
 Sans doute... On l'a passer comme un démo-
 Ils périront tous par la corde! 4 3 ES
@@ -1695,8 +1662,7 @@ signe de Joseph d'Arimathée, l'esclave ferme la porte sans
 
 Si je me trompe, que Cléopas me reprenne...
 Nous allions à Emmaüs ensemble, avant la tombée
-de la nuit, mais quand les ombres sont déjà lon-
-gues... Nous parlions de ces dernières journées, du
+de la nuit, mais quand les ombres sont déjà longues... Nous parlions de ces dernières journées, du
 dans la viile.. En chemin, un étranger nous aborde,
 — d'où venait-il, je n'en sais rien... Il nous dit:
 « Pourquoi êtes-vous tristes”? et de quoi parlez-vous
@@ -1739,7 +1705,7 @@ Et nos yeux étaient retenus. nous ne l'avons pas
 disparaître! Il s'en est allé comme le jour... et
 nous restions seuls... — Alors nous avons dit:
 « Qui est-ce? Notre cœur ne brûlait-il point,
-quand il expliquait l'Écriture?.. Et, quand il a;
+quand il expliquait l'Écriture?.. Et, quand il
 rompu le pain, n'avons-nous pas reconnu son
 geste? Pourquoi voulions-nous qu'il demeurût, et à
 que ce soir durât toujours?.… Il avait de la lumière
@@ -1884,9 +1850,7 @@ Des langues de feu l'environnent… ‘#4
 
 O mon cœur, ô mon cœur, d'où le savaistu?.…
 
-Tout à l'heure, au jour qui naître, nous quitte-
-
-rons par la porte orientale cette Jérusalem stérile
+Tout à l'heure, au jour qui naître, nous quitterons par la porte orientale cette Jérusalem stérile
 
 qui a venir son Sauveur et qui ne l'a pas
 
@@ -1970,12 +1934,10 @@ Notre âme sera résignée, puisque nous gardons ton
 esprit... — Et maintenant, l'heure est venue... Nous à
 irons debout par le monde, joyeusement, comme tes
 messagers, comme le semeur sur la terre à l'aube, À
-comme le pêcheur sur les grandes eaux... Nous an-
-noncerons la Bonne Nouvelle... nous jetterons le
+comme le pêcheur sur les grandes eaux... Nous annoncerons la Bonne Nouvelle... nous jetterons le
 grain dans le vent, pour que naissent les forêts
 futures. Nous irons debout par le monde, jusqu'à
-ce que la mort nous accueille, et nous rirons à l'in-
-connue qui nous ramènera verstoi!... Soutiens-nous
+ce que la mort nous accueille, et nous rirons à l'inconnue qui nous ramènera verstoi!... Soutiens-nous
 pour la mort et la vie, à Seigneur-Christ! Amen!
 PIERRE, après un silence
 A l'œuvre! — Merci d'abord à l'hôte qui ce soir

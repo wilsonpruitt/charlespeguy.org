@@ -7,8 +7,7 @@ author: paul-dupuy
 isAvertissement: false
 wordCount: 28868
 ---
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration: ces fonctions
 des abonnements de souscription à cent francs;
 des abonnements ordinaires à vingt francs;
@@ -64,8 +63,7 @@ cahier le mardi 13 octobre 1903.
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
 Adresser à M. André Bourgeois, administrateur des
-cahiers, 8, rue de la Sorbonne, Paris, toute la correspon-
-dance d'administration et de librairie: abonnements et
+cahiers, 8, rue de la Sorbonne, Paris, toute la correspondance d'administration et de librairie: abonnements et
 : réabonnements, rectifications et changements d'adresse,
 à cahiers manquants, mandats, indication de nouveaux
 abonnés. N''oublier pas d'indiquer dans la correspon_ dance le numéro de l'abonnement, comme il est inscrit -
@@ -159,8 +157,7 @@ cet enfant de vingt ans at-il données à la science, qui
 lui doit tant?
 
 FREE La vie que l'on lire a été publiée pour
-mière fois dans les Annales de l'École normale supé-
-rieure, troisième série, tome XIII, 1896; ce tome est
+mière fois dans les Annales de l'École normale supérieure, troisième série, tome XIII, 1896; ce tome est
 
 Les premiers éléments de cette étude ont été réunis
 au cours de recherches relatives à l'histoire de l'École
@@ -169,8 +166,7 @@ une courte biographie, comme annexe à l'étude purement scientifique que M. Sop
 dans-le Livre du centenaire de l'École normale. Le
 temps m'a fait défaut, moins pour écrire que pour
 compléter les recherches qui me semblaient indispensables. Je les ai reprises lorsque la Société mathématique a annoncé une édition des œuvres de Galois, jusqu'ici dispersées dans les divers recueils scientifiques
-où elles ont paru, ou réunies dans le Journal de Liouville, que les mathématiciens n'ont pas toujours facile-
-ment à leur disposition. L'occasion m'a paru bonne
+où elles ont paru, ou réunies dans le Journal de Liouville, que les mathématiciens n'ont pas toujours facilement à leur disposition. L'occasion m'a paru bonne
 pour achever mon enquête, que j'ai poussée dans toutes
 les directions, en cherchant à pénétrer la personne de
 Galois le plus intimement possible, et à l'éclairer
@@ -196,10 +192,8 @@ Magasin pittoresque publia à son tour une courte biographie non signée, mais q
 m'a dit être de Flaugergues, (2) et un portrait fait de
 mémoire par Alfred Galois, frère d'Évariste Galois.
 En 1849, les Nouvelles Annales de mathématiques donnèrent à la suite d'une notice sur M. Richard, le professeur de spéciales de Galois, une courte note sur Galois
-lui-même. Enfin, dans ces dernières années, l'Intermé-
-diaire des chercheurs et des curieux a signalé dans les
-Mémoires d'Alexandre Dumas père un passage intéres-
-sant sur le duel où Galois fut mortellement blessé.
+lui-même. Enfin, dans ces dernières années, l'Intermédiaire des chercheurs et des curieux a signalé dans les
+Mémoires d'Alexandre Dumas père un passage intéressant sur le duel où Galois fut mortellement blessé.
 Tel était l'ensemble des documents, accessibles à
 tout le monde, que je pouvais utiliser tout d'abord.
 Pour les contrôler, les critiquer et les compléter, il m'a
@@ -280,9 +274,7 @@ j'avoue que ce serait aussi pour moi une vive satisfaction, si l'on jugeait qu'e
 Révolution de 1830, et des années troublées et si
 vivantes entre lesquelles elle s'insère.
 
-Évariste Galois est le 25 octobre 1811, au Bourg-
-
-la-Reine, dans une maison qui porte aujourd'hui le
+Évariste Galois est le 25 octobre 1811, au Bourgla-Reine, dans une maison qui porte aujourd'hui le
 numéro 20 de la Grand Rue. Avant d'être peinte en
 vert et en Saumon et de s'appeler pour le Parisien Villa
 de Bourg-la-Reine, cette maison était naguère encore
@@ -347,8 +339,7 @@ sans cesse renouvelées du stoïcisme romain avaient
 pénétré jusqu'au fond l'âme de la jeune fille et lui
 avaient donné une trempe virile; non qu'elle eût cessé
 d'être chrétienne; elle fit au contraire toute sa vie profession de l'être, mais sans aucune nuance de dévotion
-; féminine, rapprochant des textes sacrés ceux de Cicé-
-ron et de Sénèque et réduisant presque la religion au
+; féminine, rapprochant des textes sacrés ceux de Cicéron et de Sénèque et réduisant presque la religion au
 rôle d'enveloppe des principes de la morale. Avec cela
 une imagination ardente, qui exaltait encore chez elle la
 À force du caractère et donnait à ses vertus, que ce fût le
@@ -491,8 +482,7 @@ voyait pas bien ce qui aurait déterminer un élève à
 travailler plutôt qu'à ne rien faire. Il ne s'apercevait
 pas qu'une sourde transformation s'opérait dans l'intelligence de Galoïs, que l'enfant était las des exercices
 scolaires où l'on prétendait enfermer l'activité de son
-esprit, et, au moment même où cette lassitude se manifestait à des signes certains, il prétendait lui faire pié-
-tiner une seconde fois la route où s'était endormi son
+esprit, et, au moment même où cette lassitude se manifestait à des signes certains, il prétendait lui faire piétiner une seconde fois la route où s'était endormi son
 
 Le père résista tout d'abord, et, à la rentrée de 1826,
 Évariste entra en Rhétorique. Son travail y fut jugé
@@ -554,8 +544,7 @@ il recourut à Lagrange; il fit son éducation algébrique
 dans les ouvrages classiques de ce grand homme: la
 Résolution des équations numériques, la Théorie des
 Fonctions analytiques, les Leçons sur le calcul des
-Fonctions. Déjà, sans doute, il supportait malaisé-
-ment la direction de son professeur, M. Vernier, bien
+Fonctions. Déjà, sans doute, il supportait malaisément la direction de son professeur, M. Vernier, bien
 que celui-ci dût constater son zèle: il n'eut que le
 deuxième accessit de sa classe, mais enleva le prix au
 Concours général. Il avait enfin mis le pied sur cette
@@ -578,8 +567,7 @@ fin du second trimestre, il le juge original et bizarre,
 pas méchant, mais frondeur, singulier, aimant à contrarier et à taquiner ses camarades; les dernières
 notes l'accusent enfin d'avoir quelque chose de caché
 dans le caractère, lui reprochent une ambition et une
-originalité affectées, une bizarrerie qui le sépare entiè-
-rement de ses camarades. Il semble, en lisant ces
+originalité affectées, une bizarrerie qui le sépare entièrement de ses camarades. Il semble, en lisant ces
 notes, que l'on assiste à la transformation opérée dans
 l'enfant par la découverte des mathématiques; il s'enfonce de jour en jour davantage dans ses méditations
 solitaires, et n'en sort que par de brusques détentes, où
@@ -589,8 +577,7 @@ formée de lui-même.
 
 Ce fut bien autre chose l'année suivante. Il entra dans
 la division de Rhétorique de MM. Pierrot et Desforges,
-en même temps que dans la seconde année de Mathé-
-matiques préparatoires de M. Vernier. Les notes des
+en même temps que dans la seconde année de Mathématiques préparatoires de M. Vernier. Les notes des
 
 : deux premiers ne sont qu'une suite de lamentations:
 « Sa facilité ne parait plus qu'une légende à laquelle on
@@ -635,9 +622,7 @@ préparé aux examens de l'École polytechnique, qu'il
 n'aurait aborder qu'après une année d'élémentaires
 et une de spéciales, et il osa s'y présenter: il échoua.
 Get échec lui fut amer et lui parut le premier des dénis
-de justice qui, réels ou imaginaires, finirent par empoi-
-
-sonner sa vie. (1) Une des formes de sa fureur pour les
+de justice qui, réels ou imaginaires, finirent par empoisonner sa vie. (1) Une des formes de sa fureur pour les
 mathématiques était, en effet, l'ardente volonté d'entrer
 à l'École polytechnique, où il sentait d'avance que
 trouveraient leur emploi toutes les énergies de son
@@ -652,8 +637,7 @@ d'alors organisaient l'émeute, ne prenaient-ils pas pour
 modèles les frères aînés du collège de Navarre, ces
 grands et généreux enfants qui, rien qu'en chantant,
 faisaient trembler la Cour et l'Église? Tout attirait
-Galois à l'École polytechnique: il s'y sentait pré-
-destiné; elle était faite pour lui comme il était fait
+Galois à l'École polytechnique: il s'y sentait prédestiné; elle était faite pour lui comme il était fait
 pour elle.
 
 voulut donc se représenter et, sautant la classe de
@@ -683,9 +667,7 @@ assuré, ne se distinguait de celle de Bravais, classée la
 première, que par une tendance à généraliser qui
 n'était déjà plus d'un élève. Aussi bien, les notes trimestrielles de M. Richard sur Galois sont conservées
 dans les archives de Louis-le-Grand: elles sont parfaitement simples: « Cet élève a une supériorité marquée
-.. sur tous ses condisciples; — il ne travaille qu'aux par-
-
-ties supérieures des mathématiques. »
+.. sur tous ses condisciples; — il ne travaille qu'aux parties supérieures des mathématiques. »
 Pendant cette année, en effet, Galois publia son premier Mémoire, Démonstration d'un théorème sur les
 fractions continues périodiques, dans le cahier du
 premier mars 1829 des Annales de Gergonne. Il fit aussi
@@ -752,9 +734,7 @@ famille y était tourné en ridicule. Tant de méchanceté
 , atteignit trop bien son but: la nature bienveillante de
 M. Galois ne put résister à cette attaque: il fut pris du
 délire de la persécution, et, le 2 juillet 1829, profitant
-d'une absence de sa femme, il s'asphyxia dans l'appar-
-
-tement qu'il avait à Paris, rue Jean-de-Beauvais, à
+d'une absence de sa femme, il s'asphyxia dans l'appartement qu'il avait à Paris, rue Jean-de-Beauvais, à
 deux pas du collège de Louis-le-Grand. Évariste conduisit le deuil de son père. De Saint-Étienne-du-Mont
 où les prêtres avaient consenti à recevoir le corps du
 suicidé, il suivit le cercueil jusqu'au cimetière du
@@ -786,8 +766,7 @@ D'après les renseignements fournis par différents membres
 de la famille.
 
 rappeler que celle-ci n'existait que depuis trois ans:
-humble et pâle copie de l'ancienne École normale sup-
-primée en 1822, elle n'avait pas même d'existence:
+humble et pâle copie de l'ancienne École normale supprimée en 1822, elle n'avait pas même d'existence:
 propre en dehors du collège de Louis-le-Grand, dans.
 lequel elle était logée, et dont elle avait le proviseur
 pour directeur. Depuis le ministère de M. de Vatimesnil
@@ -798,8 +777,7 @@ elle avait été transférée dans ceux des bâtiments
 annexes du Plessis que n'occupaient pas des logements
 de professeurs; mais même elle n'était encore qu'un
 prolongement du collège, où, sous une surveillance
-sévère, les aspirants au professorat devaient s'y pré-
-parer loin des bruits du dehors et à l'abri des passions
+sévère, les aspirants au professorat devaient s'y préparer loin des bruits du dehors et à l'abri des passions
 qui agitaient le monde. Fort heureusement la réalité
 n'était pas tout à fait conforme à la lettre du règlement.
 Il est bien difficile qu'une réunion de jeunes gens volontairement appliqués à l'étude, si réduite et si bridée
@@ -834,9 +812,7 @@ avait été cinq ans sous l'œil de M. Laborie, sans qu'on
 soupçonnât les passions politiques qui grondaient déjà
 dans son cœur, sans qu'on eût deviné que sa foi était
 morte, sans que jamais les notes sur son attitude à la
-chapelle eussent relevé autre chose que des dissipa-
-
-tions sans conséquence. D'un autre côté, cet aveuglement des maîtres ne saurait s'expliquer sans une
+chapelle eussent relevé autre chose que des dissipations sans conséquence. D'un autre côté, cet aveuglement des maîtres ne saurait s'expliquer sans une
 certaine contrainte extérieure des élèves; le régime du
 collège était un régime d'hypocrisie, racheté de temps
 à autre par des révoltes. Ce régime se prolongeait à
@@ -887,8 +863,7 @@ avait l'habitude de travailler presque uniquement de
 tête, et, même en mathématiques, il se trouvait embarrassé dès qu'il fallait répondre au tableau. Mais, en
 même temps que cette gêne, il y avait chez lui un
 dédain trop peu déguisé pour quiconque ne s'inclinait
-pas spontanément et immédiatement devant sa supé-
-riorité, une rébellion contre un jugement que, dans son
+pas spontanément et immédiatement devant sa supériorité, une rébellion contre un jugement que, dans son
 for intérieur, il récusait par avance, et comme un plaisir maladif à égarer davantage encore ce jugement et à
 le retourner tout à fait contre soi. C'est, en effet, un
 trait fréquent chez les personnes qui croient avoir le
@@ -903,8 +878,7 @@ ne serais pas autrement surpris qu'il eût tendu à
 M. Péclet un piège, où d'ailleurs il risquait de trébucher lui-même. Cette fois il s'en tira, fut définitivement
 4) Archives de l'École normale.:
 
-admis et signa, le 20 février 1830, l'engagement décen-
-nal qui le liait à l'Université. (1) à
+admis et signa, le 20 février 1830, l'engagement décennal qui le liait à l'Université. (1) à
 
 A l'École préparatoire Galois ne changea rien aux
 procédés de travail qui avaient tant indisposé contre
@@ -946,8 +920,7 @@ Galois. Dans ces mésaventures répétées il vit l'effet
 non du hasard, mais d'une organisation sociale mauvaise, qui condamnait le génie à un éternel déni de
 justice au profit de la médiocrité; il en rendit responsable le régime d'oppression politique contre lequel
 s'accumulait l'orage. Il ne le haïssait pas seulement de
-la haine qui brûlait au cœur de toute la jeunesse libé-
-rale, il le haïssait aussi de ses rancunes personnelles
+la haine qui brûlait au cœur de toute la jeunesse libérale, il le haïssait aussi de ses rancunes personnelles
 et de tout ce qu'il avait souffert depuis son premier
 échec à l'École polytechnique jusqu'à la perte de son
 second mémoire à l'Académie des Sciences. Quelle joie
@@ -1175,8 +1148,7 @@ emplois que les ultras ont laissés vacants, reconstruisant à petit bruit la bo
 est beaucoup plus furieux que lorsqu'il chassait les
 Suisses... Je voudrais bien vous dire que je suis heureux, ou satisfait au moins; je suis profondément
 affecté des affaires publiques; je n'aurais jamais cru
-que je pusse y prendre un intérêt si vif, mais le com-
-mencement était si beau que je m'y suis attaché malgré
+que je pusse y prendre un intérêt si vif, mais le commencement était si beau que je m'y suis attaché malgré
 moi, et maintenant je souffre; desinit piscem.… Je ne
 fais rien du tout, je ne vois absolument personne.
 Toutes mes connaissances sont devenues sous-préfets,
@@ -1193,10 +1165,7 @@ le voir, sabrant les agitateurs, écrasant les folliculaires,
 faisant guerre à mort aux utopies dangereuses. Il est,
 en vérité, tout à fait amusant! » Qui est-ce, Sphynx?
 L'éditeur des lettres de Burnouf s'est bien gardé de
-nous le dire. Mais, d'après l'allusion aux études reli-
-
-gieuses, il semble bien que ce soit M. Guigniault lui-
-même. Il avait en effet fort à faire avec les folliculaires, représentés par un petit journal universitaire.
+nous le dire. Mais, d'après l'allusion aux études religieuses, il semble bien que ce soit M. Guigniault luimême. Il avait en effet fort à faire avec les folliculaires, représentés par un petit journal universitaire.
 très hardi et très méchant, la Gazette des Écoles, dont
 le rédacteur en chef était M. Guillard, agrégé pour les
 mathématiques au collège de Louis-le-Grand. M. Guillard avait, avant Juillet, fait courageusement campagne
@@ -1236,8 +1205,7 @@ tant que l'École normale n'avait été que l'École préparatoire, et que les m
 le système des examens de passage en particulier était
 gros de menaces pour Galois. On sentait trop qu'une
 main vigoureuse venait de se poser sur l'École et ne la
-lächerait plus: Galois en fit personnellement l'expé-
-rience, et, vers la fin de novembre, se vit infliger par
+lächerait plus: Galois en fit personnellement l'expérience, et, vers la fin de novembre, se vit infliger par
 M. Guigniault une consigne indéfinie. (2) À ce moment
 même, les élèves de l'École polytechnique s'assem_ blaient pour délibérer et voter sur leur règlement, en
 
@@ -1256,8 +1224,7 @@ jeune homme, conscient de son génie, et pénétré jus-
 
 qu'aux moelles de ce même esprit qui faisait la popu
 larité et la liberté des polytechniciens. Sa haine contre
-l'École normale et contre M. Guigniault éclata. Inter-
-venant dans une polémique que son directeur soutenait
+l'École normale et contre M. Guigniault éclata. Intervenant dans une polémique que son directeur soutenait
 alors contre la Gazette des Écoles, et où celle-ci n'avait
 pas le beau rôle, il adressa à ce journal la lettre que
 
@@ -1296,8 +1263,7 @@ demande fut adressée par les collèges au ministre, deux
 
 membres seulement du Conseil royal votèrent pour, et ce
 
-furent précisément ceux du Conseil qui ne sont pas libé-
-raux. Et le ministre a accordé: c'est qu'il a craint l'esprit
+furent précisément ceux du Conseil qui ne sont pas libéraux. Et le ministre a accordé: c'est qu'il a craint l'esprit
 turbulent des élèves, esprit pitoyable qui parait menacer
 d'une ruine complète l'Université, et même l'École polytechnique. »
 
@@ -1341,8 +1307,7 @@ en invoquant leur témoignage. Qu'il en fût l'auteur,:
 personne n'en doutait: lui-même, avant d'écrire, avait
 annoncé son intention à plusieurs de ses camarades.
 Ceux-ci n'en furent pas moins stupéfaits de voir qu'il
-eût mis son projet à exécution. Que faire? Se solida-
-riser avec lui par le silence paraissait impossible; mais
+eût mis son projet à exécution. Que faire? Se solidariser avec lui par le silence paraissait impossible; mais
 d'autre part protester contre sa lettre ne semblerait-il
 pas une dénonciation indirecte? Pas plus qu'aux journées de Juillet l'accord complet ne put s'établir.
 
@@ -1366,9 +1331,7 @@ par le maître: ils le suivent déjà dans ses dédains pour
 tout ce qui n'est pas à la hauteur de la science. C'est à
 l'École qu'ils font provision de mépris; ils en ont pour
 les élèves des Sciences eux-mêmes; ils en ont pour
-. ceux de leurs camarades qui ne pourront jamais s'éle-
-
-ver à une classe de Rhétorique ou de Philosophie..; ils
+. ceux de leurs camarades qui ne pourront jamais s'élever à une classe de Rhétorique ou de Philosophie..; ils
 
 en ont pour leur directeur lui-même, dont tout le mérite,
 ‘disent-ils, se réduit à savoir le grec et à avoir fait des
@@ -1383,8 +1346,7 @@ envoyer cette protestation au directeur du journal, qui
 refusa de l'insérer. « Il faut, disait-il, de deux choses
 l'une, ou que la lettre porte toutes les signatures, ou
 que les quatre signataires actuels se contentent de ne
-parler qu'en leur propre et privé nom. » Ceci le 9 dé-
-cembre; le même jour M. Guigniault mettait Galois à
+parler qu'en leur propre et privé nom. » Ceci le 9 décembre; le même jour M. Guigniault mettait Galois à
 la porte. Ce fut seulement le lendemain qu'une nouvelle
 lettre fut écrite et envoyée à la Gazette des Écoles; et
 il résulte de son texte que l'accord n'avait s'établir
@@ -1408,8 +1370,7 @@ lettre écrite dans le numéro de la Gazette des Écoles du
 5 décembre. Loin de partager les sentiments qu'elle
 exprime, nous saisissons avec empressement cette occasion
 de témoigner à M. Guigniault notre reconnaissance pour la
-manière aussi noble que ferme dont il a défendu nos inté-
-rêts pendant tout le cours de son administration, et dans
+manière aussi noble que ferme dont il a défendu nos intérêts pendant tout le cours de son administration, et dans
 les moments les plus critiques pour l'École. Nous déclarons
 que nous lui sommes redevables d'avoir joui d'une liberté
 de penser que l'on cherchait alors à étouffer partout, et
@@ -1428,9 +1389,7 @@ beaucoup plus sec signé par les scientifiques:
 Les élèves de seconde année, non témoins des faits,
 déclarent toutefois qu'ils refusent à l'auteur de la lettre
 
-. insérée dans le numéro de la Gasette des Écoles du 5 dé-
-
-cembre le témoignage qu'il réclame d'eux.
+. insérée dans le numéro de la Gasette des Écoles du 5 décembre le témoignage qu'il réclame d'eux.
 
 Ainsi, tandis que les littéraires couvraient de fleurs
 leur directeur et traitaient Galois de menteur, les scien-:
@@ -1499,13 +1458,9 @@ Les quatre premiers avaient répondu négativement; le
 Cette lettre m'a été communiquée par le fils de cet élève,;
 normalien lui-même.
 
-cinquième, interrogé de la même manière, dit: « Mon-
+cinquième, interrogé de la même manière, dit: « Monsieur le directeur, je ne crois pas pouvoir répondre à
 
-sieur le directeur, je ne crois pas pouvoir répondre à
-
-cette question, parce que ce serait contribuer à dénon-
-
-cer un de mes camarades. » À cette réponse pleine de
+cette question, parce que ce serait contribuer à dénoncer un de mes camarades. » À cette réponse pleine de
 noblesse et de fermeté, M. Guigniault laissa voir du
 
 dépit. S'adressant alors à un élève plus éloigné dans
@@ -1547,15 +1502,13 @@ refus matériel de subsistance, on vous avait suppliés de
 consommer cet acte de justice, et quoique rien n'eüt troublé
 notre union, on vous conseillait par l'organe de M. Haiber,:
 maîitre-surveillant, de vous opposer à mon plus long séjour
-à l'École; mais vous avez repoussé ces honteuses insinua-
-tions. Faites plus; mes camarades; je ne vous demande rien
+à l'École; mais vous avez repoussé ces honteuses insinuations. Faites plus; mes camarades; je ne vous demande rien
 pour moi! mais parlez pour votre honneur et suivant votre
 conscience. Vous avez décliné la responsabilité que semblait vous imposer l'auteur de la lettre. Démentez maintenant une assertion d'autant plus fâcheuse que votre silence
 soutiendrait la raison du plus fort. Je suis jusqu'à la décision du ministre votre condisciple et, pour la vie, votre dé-
 
 Bien entendu cette letire resta sans réponse; mais
-elle est extrêmement précise et écrite sur un ton de vé-
-rité dont on ne peut pas ne pas être frappé. Elle est
+elle est extrêmement précise et écrite sur un ton de vérité dont on ne peut pas ne pas être frappé. Elle est
 d'ailleurs confirmée, pour ce qui concerne les adieux,
 par la lettre du camarade dont j'ai parlé. C'était un littéraire et un philosophe; il ignorait totalement la valeur
 de Galois et n'y faisait pas la plus petite allusion: il le
@@ -1591,8 +1544,7 @@ paresse l'indiscipline intellectuelle de Galoïs, et comme
 il se trompait davantage encore, en assurant, pour terminer, qu'il n'y avait plus de sentiment moral chez le
 jeune homme, et peut-être depuis longtemps. Ce n'est
 pas assez dire que, pour un génie comme celui de Galois
-et pour une époque comme celle où il vécut, les appré-
-ciations à la mesure des temps paisibles et des hommes
+et pour une époque comme celle où il vécut, les appréciations à la mesure des temps paisibles et des hommes
 ordinaires risquent aisément de tomber dans l'injustice.
 La vérité, c'est que l'erreur de conduite qui priva
 l'École normale de Galois doit être attribuée avant tout
@@ -1620,8 +1572,7 @@ mis au courant de tout, fit venir Galois l'assura qu'il
 ne serait pas inquiété pour la rupture de son engagement décennal.
 
 Du reste Galois n'avait encore que dix-neuf ans etne
-devait tirer au sort qu'en 1832; d'autre part il ne re-
-nonçait pas du tout à l'enseignement, puisque, dès le
+devait tirer au sort qu'en 1832; d'autre part il ne renonçait pas du tout à l'enseignement, puisque, dès le
 jeudi 13 janvier, il ouvrit chez Caillot, libraire, rue de
 Sorbonne numéro 5, un cours public d'algèbre supé- à
 
@@ -1647,8 +1598,7 @@ ministres de Charles et les étudiants y tenaient les
 premiers rangs. C'étaient des tentations irrésistibles
 pour Galois. Des débats de son dernier procès politique
 il résulte que, à peine sorti de l'École normale, il entra
-malgré sa jeunesse dans l'artillerie de la garde nationale. Celle-ci en effet ayant été dissoute le 31 dé-
-cembre 18350 par ordonnance royale, comment Galois,
+malgré sa jeunesse dans l'artillerie de la garde nationale. Celle-ci en effet ayant été dissoute le 31 décembre 18350 par ordonnance royale, comment Galois,
 qui ne fut pas compris dans la réorganisation, aurait-il
 un uniforme le 14 juillet 1831 et se serait-il cru le
 droit de le porter, s'il n'avait pas été enrôlé régulièrement entre le 9 et le 31 décembre? Le ministère public
@@ -1666,9 +1616,7 @@ tout cas, c'est à côté d'eux qu'il se rangea aussitôt qu'il
 fut libre, et il appartint désormais à la fraction la plus
 agissante du parti républicain. Il était sans doute avec
 son bataillon dans la cour du Louvre, le jour où fut
-rendu le jugement des ministres, et où Cavaignac, Tré-
-
-lat, Guinard furent accusés d'avoir voulu livrer leurs
+rendu le jugement des ministres, et où Cavaignac, Trélat, Guinard furent accusés d'avoir voulu livrer leurs
 canons au peuple; il fut ensuite, lui-même s'en vanta en
 
 juin 1831, (2) de toutes les émeutes qui secouèrent quotidiennement Paris pendant les six mois qui suivirent
@@ -1736,8 +1684,7 @@ chez un jeune homme de cet âge: il écrivit à son ami
 Auguste Chevalier: « Je suis sous les verrous! tu as
 entendu parler des Vendanges de Bourgogne. C'est
 moi qui ai fait le geste... Mais ne m'adresse pas de
-morale, car les fumées du vin m'avaient ôté la raiï-
-son... » (3) Il cherchait encore à s'excuser; vers la fin
+morale, car les fumées du vin m'avaient ôté la raiïson... » (3) Il cherchait encore à s'excuser; vers la fin
 de l'instruction, il se laissa persuader par son avocat
 et par ses amis de dire qu'il avait ajouté à son toast:
 « s'il trahit que cette restriction s'était perdue dans
@@ -1856,8 +1803,7 @@ où il habitait seul depuis son acquittement; Galois
 avait déjà décampé. Vers midi et demie, une troupe de
 jeunes gens, descendant la rue de Thionville (rue
 Dauphine), déboucha sur le Pont-Neuf pour aller à la
-Grève par le Châtelet; deux tout jeunes gens la précé-
-daient, habillés en artilleurs de la garde nationale et
+Grève par le Châtelet; deux tout jeunes gens la précédaient, habillés en artilleurs de la garde nationale et
 armés de carabines: l'un d'eux était Galois, l'autre un
 de ses amis, Duchâtelet, étudiant en droit. Le PontNeuf était un des passages les plus surveillés: la
 police laissa les deux chefs s'engager sur le pont, et,
@@ -1898,22 +1844,18 @@ telet, sous l'inculpation de port illégal d'un costume militaire.
 Les deux prévenus répondirent pour leur défense
 qu'ayant appartenu avant le premier janvier à l'ancienne artillerie de la garde nationale, ils s'étaient cru
 le droit d'en porter encore l'uniforme, comme l'avaient
-fait d'ailleurs beaucoup de leurs amis sans être in-
-
-quiétés. On leur fit voir qu'ils s'étaient trompés, mais
+fait d'ailleurs beaucoup de leurs amis sans être inquiétés. On leur fit voir qu'ils s'étaient trompés, mais
 inégalement, paraît-il, puisque Duchâtelet en fut quitte
 pour trois mois de prison, tandis que Galois en eut le
 
 madame Chantelot, (2) cette condamnation surprit profondément Galois. Il ne pouvait se figurer que sa longue
 détention préventive ne serait pas jugée suffisante pour
 punir un aussi mince délit: il eut la naïveté d'en appeler
-et de faire ainsi le jeu de ses ennemis. En vain son dé-
-fenseur prouva-t-il qu'il avait bien appartenu à Partillerie en décembre 1830; la cour ne voulut pas admettre
+et de faire ainsi le jeu de ses ennemis. En vain son défenseur prouva-t-il qu'il avait bien appartenu à Partillerie en décembre 1830; la cour ne voulut pas admettre
 la bonne foi et décida que, du moment qu'il n'avait pas
 été compris dans la réorganisation, il avait bien commis
 le délit prévu par l'article 259 du code pénal, délit aggravé par le port de carabine et de pistolets chargés.
-Le poignard caché sous les vêtements de Galois, en ré-
-veillant le souvenir des Vendanges, justifiait pour lui
+Le poignard caché sous les vêtements de Galois, en réveillant le souvenir des Vendanges, justifiait pour lui
 uze peine double de celle qu'on infligeait à son ami.
 
 Ce jugement définitif fut rendu le 3 décembre. Galois
@@ -1980,8 +1922,7 @@ l'avale d'un trait, non sans cligner de l'œil et se tordre
 les lèvres; un second petit verre n'est pas plus difficile
 à vider que le premier. Au troisième, le débutant perd
 l'équilibre; triomphe! victoire! honneur au Bacchus
-de la geôle! on a saoulé une âme candide qui a hor-
-reur du vin! Grâce pour cet enfant si chétif et si
+de la geôle! on a saoulé une âme candide qui a horreur du vin! Grâce pour cet enfant si chétif et si
 brave, sur le front duquel l'étude a déjà gravé, en rides
 profondes, et dans l'espace de trois années, soixante
 ans des plus savantes méditations; au nom de la
@@ -2089,8 +2030,7 @@ retiré de son cachot. La seule punition fut le départ des
 
 Au moment où se passa cette scène, Galois n'était pas
 encore connu du personnel de la prison: c'était avant
-tout l'homme qui voulait tuer Louis-Philippe. On s'aper-
-çut sans doute à la longue de ce qu'il était réellement
+tout l'homme qui voulait tuer Louis-Philippe. On s'aperçut sans doute à la longue de ce qu'il était réellement
 de 1832 sévit avec le plus d'intensité, il fut l'objet d'une
 mesure de bienveillance motivée par le mauvais état
 on l'envoya dans une maison de santé de la rue de
@@ -2212,8 +2152,7 @@ soudoyés pour le tuer; il aurait d'abord tiré en l'air,
 puis il aurait été blessé mortellement par la première
 balle de son premier adversaire. On sent aisément dans
 tout cela l'invention romanesque: les choses se sont
-passées bien plus simplement. Rien n'était plus fré-
-quent alors que les duels chez les républicains, les
+passées bien plus simplement. Rien n'était plus fréquent alors que les duels chez les républicains, les
 patriotes: ils se piquaient de gentilhommerie en tout,
 aussi bien dans leur conduite privée que dans leur con_ duite politique, et l'une des conséquences de cet oubli
 complet de soi-même, qui fait leur noblesse devant
@@ -2247,12 +2186,9 @@ charrette auprès de l'étang de la Glacière, sur leterritoire de Gentilly, et 
 
 C'est d'ailleurs au témoignage de Galois lui-même
 
-qu'il convient de s'en rapporter pour juger la physiono-
-mie de l'affaire, Comment révoquer en doute ce témoi-
-gnage donné dans la triste journée du 29 mai, la veille
+qu'il convient de s'en rapporter pour juger la physionomie de l'affaire, Comment révoquer en doute ce témoignage donné dans la triste journée du 29 mai, la veille
 du duel, alors que, sûr de la mort inévitable dont la
-pensée le hantaït depuis longtemps, Galois mit fiévreu-
-sement par écrit les résultats de ses recherches auxquels
+pensée le hantaït depuis longtemps, Galois mit fiévreusement par écrit les résultats de ses recherches auxquels
 il tenait le plus, griffonnant sans cesse en marge: « Je à
 n'ai pas le temps, je n'ai pas le temps et, aprèsavoir
 ainsi rédigé son testament scientifique, écrivit aux
@@ -2366,7 +2302,7 @@ ne l'avait pris à vingt ans! Mais non, Galois, semblet-il, a rempli toute sa de
 il aurait été tué avec Vaneau sur une des barricades
 de Juillet. Et comme il avait raison, deux ans plus
 tard, en regrettant de mourir « pour quelque chose
-d'aussi méprisable »; car s'il n'avait pas péri dans son
+d'aussi méprisable car s'il n'avait pas péri dans son
 duel, c'eût été certainement aux journées de juin 1832,;
 et il aurait croire alors qu'il mourait pour son pays. À
 Mais la mort avait marqué sa jeunesse, et il le savait
@@ -2386,13 +2322,9 @@ les quelques pages qu'il a laissées ont suffi pour que la
 
 patrie sache son nom: sa vraie patrie, la plus belle et
 
-la plus large de toutes, celle où fraternisent nécessaire-
+la plus large de toutes, celle où fraternisent nécessairement, dans les conceptions rigoureuses et profondes
 
-ment, dans les conceptions rigoureuses et profondes
-
-des mathématiques, tant de nobles intelligences disper-
-
-sées sur tous les points du monde. Si, comme il le disait,
+des mathématiques, tant de nobles intelligences dispersées sur tous les points du monde. Si, comme il le disait,
 
 l'immortalité n'est que la trace laissée dans la mémoire
 des hommes, (1) il est assuré de l'immortalité tant qu'il
@@ -2400,8 +2332,7 @@ y aura des hommes: ignoré de la foule, son nom est
 défendu contre l'oubli par l'admiration d'une élite; c'est
 pour elle que j'ai écrit cette étude, en souhaitant
 d'ajouter à l'admiration du génie quelque sympathie
-pour l'âme ardente, pour le cœur tourmenté et misé-
-rable, et de dresser enfin, à côté de ce nom qui ne
+pour l'âme ardente, pour le cœur tourmenté et misérable, et de dresser enfin, à côté de ce nom qui ne
 représentait que des idées, la figure vivante d'un
 homme.
 
@@ -2477,25 +2408,20 @@ Note de M. Vernier. — Zèle et succès.
 
 la vie d''Épariste Galois
 Notes d'étude. — Devoirs religieux... Bien.
-Cet élève, sauf depuis quinze jours à peu près qu'il tra-
-vaille un peu, n'a cultivé les facultés de sa classe que par
+Cet élève, sauf depuis quinze jours à peu près qu'il travaille un peu, n'a cultivé les facultés de sa classe que par
 la crainte de pensum, et par suite'à coups de punitions; à
-tantôt, et c'était le plus souvent, il ne faisait pas la der-
-nière partie de ses devoirs, et tantôt il les brochaït, et pour
+tantôt, et c'était le plus souvent, il ne faisait pas la dernière partie de ses devoirs, et tantôt il les brochaït, et pour
 quelques narrations latines, il ne faisait que transcrire
 la matière. Son ambition, son originalité souvent affectée,
 et la bizarrerie de son caractère le séparent de ses cama-
-Pour le troisième trimestre, les autres notes man-
-deries. Caractère dont je ne me flatte pas de saisir tous les
+Pour le troisième trimestre, les autres notes manderies. Caractère dont je ne me flatte pas de saisir tous les
 traits; mais j'y vois dominer un grand amour-propre. Je É à
-ne lui crois pas d'inclination vicieuse. Ses moyens me pa-
-raissent tout à fait hors de ligne, et je ne lui en crois pas “4
+ne lui crois pas d'inclination vicieuse. Ses moyens me paraissent tout à fait hors de ligne, et je ne lui en crois pas “4
 moins pour les lettres que pour les mathématiques; mais “18;
 jusqu'ici il a négligé beaucoup ses devoirs de elasse. Voilà à
 pourquoi il n'a pas été bien placé dans ses compositions. On
 Il paraît décidé à donner désormais plus de temps et plus
-de soins à la Rhétorique; nous avons fait ensemble là-
-dessus une distribution de temps. Nous verrons s'il se tient
+de soins à la Rhétorique; nous avons fait ensemble làdessus une distribution de temps. Nous verrons s'il se tient
 à lui-même sa propre parole. Il ne paraît pas manquer de
 sentiments religieux. La santé est bonne, mais délicate.
 
@@ -2511,8 +2437,7 @@ Note de M. Vernier. — Zèle et progrès très marqués.
 
 ouvert. Il vise à l'originalité. Ses moyens sont distingués,
 mais il ne veut pas les employer à la Rhétorique. Il ne fait
-absolument rien pour la classe. C'est la fureur des mathé-
-matiques qui le domine; aussi je pense qu'il vaudrait
+absolument rien pour la classe. C'est la fureur des mathématiques qui le domine; aussi je pense qu'il vaudrait
 mieux pour lui que ses parents consentent à ce qu'il ne
 s'occupe que de cette étude; il perd son temps ici et n'y
 fait que tourmenter ses maîtres et se faire accabler de
@@ -2529,13 +2454,10 @@ Note de M. Vernier. — Intelligence, progrès marqués. Pas
 assez de méthode.
 
 la vie d'Épariste Galois
-définir. Il vise à l'originalité. Ses moyens sont très distin-
-gués; il aurait très bien faire en Rhétorique s'il avait
-voulu travailler, mais, dominé par sa passion des mathé-
-matiques, il a totalement négligé tout lereste. Aussi n'a-t-il
+définir. Il vise à l'originalité. Ses moyens sont très distingués; il aurait très bien faire en Rhétorique s'il avait
+voulu travailler, mais, dominé par sa passion des mathématiques, il a totalement négligé tout lereste. Aussi n'a-t-il
 fait aucun progrès. Je ne crois pas qu'il soit dépourvu de
-sentiments religieux. Sa tenue à la chapelle n'est pas tou-
-jours exempte de reproches. Sa santé est bonne.
+sentiments religieux. Sa tenue à la chapelle n'est pas toujours exempte de reproches. Sa santé est bonne.
 Note de M. Pierrot. — S'est assez bien conduit, mais a
 Note de M. Desforges. — Paraît affecter de faire autre
 chose que ce qu'il faudrait faire. C'est dans cette intention
@@ -2543,21 +2465,17 @@ sans doute qu'il bavarde si souvent. Il proteste contre le
 Note de M. Vernier. — Des dispositions. Succès qui serait À
 plus grand si cet élève travaillait avec plus de méthode. à
 : Note d'étude. — Conduite inégale et méritant souvent des
-reproches; il a travaillé avec ardeur, ses moyens sont sur-
-prenants, ses progrès rapides. Son caractère est très iné-
-gal: tantôt doux raisonnable, il est quelquefois fort
+reproches; il a travaillé avec ardeur, ses moyens sont surprenants, ses progrès rapides. Son caractère est très inégal: tantôt doux raisonnable, il est quelquefois fort
 désagréable. Il se tient passablement pendant les exercices
 religieux. Depuis quelque temps il a mal aux oreilles.
-Note de M. Richard. — Cet élève a une supériorité mar-
-quée sur tous ses condisciples. È #7
+Note de M. Richard. — Cet élève a une supériorité marquée sur tous ses condisciples. È #7
 
 Note de M. Thillaye. — Distrait, travail faible.
 Note de M. Thillaye. — Distraction; travail: néant.
 Note d'étude. — Se conduit généralement bien; cependant parfois sa conduite est répréhensible; il travaille
 beaucoup et est doué de grands moyens et d'une facilité
 étonnante. Ses progrès répondent à son travail et à sa
-facilité. a de la bizarrerie dans le caractère, il est quel-
-quefois très léger et souvent aussi paraît raisonnable. Il se
+facilité. a de la bizarrerie dans le caractère, il est quelquefois très léger et souvent aussi paraît raisonnable. Il se
 tient assez bien pendant les exercices religieux. Sa santé
 est bonne.
 Note de M. Richard. — Cet élève ne travaille qu'aux
@@ -2583,11 +2501,9 @@ Maintenant expliquons-nous nettement sur la mauvaise
 humeur de M. Guigniault à notre égard.
 Décidément, M. Guigniault est piqué que nous l'ayons
 appelé: Directeur musqué de l'École normale. Monsieur
-veut avoir le langage, le ton, toutes les manières des doc-
-trinaires, voire même le canapé, et que nous n'en disions
+veut avoir le langage, le ton, toutes les manières des doctrinaires, voire même le canapé, et que nous n'en disions
 mot; nous nous tenons pour avertis. Ainsi, nous ne nous “Vi
-permettrons plus à son égard cet accompagnement de per-
-sonnalités grossières dont la pudeur publique a déjà fait +4
+permettrons plus à son égard cet accompagnement de personnalités grossières dont la pudeur publique a déjà fait +4
 maintes fois justice; nous comprenons parfaitement que
 les personnalités paraîtront toujours très grossières aux à
 
@@ -2634,11 +2550,9 @@ C'est avec une profonde douleur que je me vois forcé de
 vous rendre compte à l'instant d'un acte qu'il m'a fallu
 prendre sur ma responsabilité et dont j'invoque la ratifica-
 
-Je viens de renvoyer de l'École normale et de faire con-
-duire chez madame sa mère l'élève Galois, pour le fait
+Je viens de renvoyer de l'École normale et de faire conduire chez madame sa mère l'élève Galois, pour le fait
 indiqué dans la lettre que j'eus l'honneur de vous écrire À
-avant-hier. Cet élève m'a été démontré, tant par les décla-
-rations de plusieurs de ses camarades que par un aveu
+avant-hier. Cet élève m'a été démontré, tant par les déclarations de plusieurs de ses camarades que par un aveu
 plein d'impudence, fait après de vains essais de dénégation, à
 devant M. Jumel l'un des maîtres-surveillants et devant
 moi, être l'auteur d'une démarche qui, dès dimanche dernier, avait soulevé d'indignation toute l'École. Il s'agit d'une
@@ -2646,8 +2560,7 @@ lettre insérée dans le numéro du même jour de la Gazette à
 des Écoles, puisqu'il faut l'appeler par son nom, et signée
 trop réellement Un Élève de l'École normale. Cette lettre a
 paru à toutes les personnes qui en ont connaissance et
-qui m'en ont parlé, compromettre trop gravement l'hon-
-neur même de l'École pour qu'il me füt possible de n'y pas Ne
+qui m'en ont parlé, compromettre trop gravement l'honneur même de l'École pour qu'il me füt possible de n'y pas Ne
 donner suite. D'ailleurs les élèves avaient, du premier
 
 moment, pris l'initiative, par un désaveu unanime, qui
@@ -2725,8 +2638,7 @@ fonctions de Directeur, c'est uniquement dans l'intérêt de
 l'École; ils savent que nous aurions tous regardé le départ
 de M. Guigniault comme le signal de notre dispersion, car
 avec lui la liberté aurait disparu de l'École... À
-Aussitôt que M. Guigniault connut les ordonnances sub-
-versives de la Constitution, il me fit venir à différentes
+Aussitôt que M. Guigniault connut les ordonnances subversives de la Constitution, il me fit venir à différentes
 reprises avec quelques-uns de mes camarades choisis tantôt
 parmi les anciens, tantôt parmi les nouveaux; il nous dit:
 qu'une lutte longue et terrible allait s'engager entre le pays
@@ -2774,7 +2686,7 @@ nous au convoi; nous avions tous pris les couleurs nationales; seul, il n'avait 
 
 la vie d''Épariste Galois RATER
 dit-il, vous m'avez devancé, mais il y a longtemps que nous
-la portions dans notre cœur; on peut la porter aussi. »;
+la portions dans notre cœur; on peut la porter aussi.
 Nous savions tous qu'il disait vrai...
 (Communiquée par le fils de cet élève, M. L., normalien
 lui-même)
@@ -2783,11 +2695,10 @@ quoiqu'ils ne m'aient pas atteint; tu pourrais croire en
 lisant certains journaux que je suis impliqué dans l'affaire.
 Un de mes condisciples, mauvais sujet s'il en fut, du
 caractère le plus profondément pervers et sournoïis, avait
-à se plaindre de notre directeur, qui l'avait consigné indé-
-finiment. Notre mauvais garnement nourrissait une haine
+à se plaindre de notre directeur, qui l'avait consigné indéfiniment. Notre mauvais garnement nourrissait une haine
 secrète, et méditait un projet dontil avaitmême parlé à plu-.
 sieurs d'entre nous; mais nous n'avions jamais voulu y
-ajouter foi tant il nous paraissait absurde. Enfin, il y a,
+ajouter foi tant il nous paraissait absurde. Enfin, il y
 quinze jours environ, notre directeur écrivit dans le Lycée,
 journal de l'Université, une lettre contre le rédacteur de la.
 Gazette des Écoles, nommé Guyard. L'élève mécontent
@@ -2798,8 +2709,7 @@ bassement mensongères. Tu penses quel effet a produit
 cette lettre et sur l'esprit du directeur, et sur les esprits des
 élèves. Il y eut grande rumeur, on lança des soupçons, on
 se réunit et l'on convint de le démentir publiquement par
-la voie du même journal qui avait l'impudeur d'ac-
-cueillir ses pitoyables calomnies. Nous envoyämes donc à à
+la voie du même journal qui avait l'impudeur d'accueillir ses pitoyables calomnies. Nous envoyämes donc à à
 
 M. Guyard une lettre justificative signée de tous les élèves
 alors présents à l'École. Le sieur Guyard ne voulut pas
@@ -2862,9 +2772,7 @@ ce requérant.
 (Archives de la Préfecture de la Seine. — Reconstitution
 des actes de l'Etat-civil)
 
-Expédition délivrée sur papier libre, en exécution de la loi du 12 fé-
-
-vrier 1872, par maitre Bournet de Verron, notaire à Paris, soussigné,
+Expédition délivrée sur papier libre, en exécution de la loi du 12 février 1872, par maitre Bournet de Verron, notaire à Paris, soussigné,
 
 le 30 décembre mil huit cent soixante-douze, d'une copie authentique
 
@@ -2907,8 +2815,7 @@ le développement de cette portion est remarquable, comparé
 l'occipital est de plus de trois lignes.
 
 Enlevée circulairement, la voûte du crâne présente en
-avant les parois opposées des sinus frontaux très rappro-
-chées; l'espace laissé libre n'a pas deux lignes d'épaisseur
+avant les parois opposées des sinus frontaux très rapprochées; l'espace laissé libre n'a pas deux lignes d'épaisseur
 
 au milieu de la voûte, deux enfoncements correspondent
 aux bases décrites plus haut. A la base du crâne, les fosses

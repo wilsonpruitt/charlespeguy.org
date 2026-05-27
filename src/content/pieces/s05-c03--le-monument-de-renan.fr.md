@@ -31,8 +31,7 @@ Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce deuxième cahier le
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi- à
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi- à
 naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration: ces fonctions À
 des abonnements de souscription à cent francs; À
@@ -126,8 +125,7 @@ ses œuvres; ce cahier est un cahier de la récente inauguration du monument de 
 
 Le monument de Renan à Tréguier a été inauguré
 le dimanche 13 septembre dernier; nous empruntons au
-Temps, numéro daté du lundi 14 septembre, supplé-
-ment, le compte rendu officiel de cette inauguration;
+Temps, numéro daté du lundi 14 septembre, supplément, le compte rendu officiel de cette inauguration;
 au commencement de la cérémonie, mademoiselle
 Moreno, de la Comédie Française, a récité la Prière
 sur l'Acropole:
@@ -194,8 +192,7 @@ quelques-unes des règles que tu aimes, à Théonoé, la
 vie du jeune dieu que je servis dans mon enfance; ils
 me traitent comme un Évhémère; ils m'écrivent pour
 me demander quel but je me suis proposé; ils n'estiment
-que ce qui sert à faire fructifier leurs tables de trapé-
-zites. Et pourquoi écrit-on la vie des dieux, à ciel! si ce
+que ce qui sert à faire fructifier leurs tables de trapézites. Et pourquoi écrit-on la vie des dieux, à ciel! si ce
 n'est pour faire aimer le divin qui fut en eux, et pour
 montrer que ce divin vit encore et vivra éternellement
 au cœur de l'humanité?
@@ -228,8 +225,7 @@ apprends-nous à extraire le diamant des foules impures.
 Providence de Jupiter, ouvrière divine, mère de toute
 industrie, protectrice du travail, Ô Ergané, toi qui fais
 la noblesse du travailleur civilisé et le mets si fort audessus du Scythe paresseux; Sagesse, toi que Zeus
-enfanta après s'être replié sur lui-même, après avoir respiré profondément; toi qui habites dans ton père, entiè-
-rement unie à son essence; toi qui es sa compagne et
+enfanta après s'être replié sur lui-même, après avoir respiré profondément; toi qui habites dans ton père, entièrement unie à son essence; toi qui es sa compagne et
 sa conscience; Énergie de Zeus, étincelle qui allumes
 
 et entretiens le feu chez les héros et les hommes de
@@ -247,9 +243,7 @@ Le monde ne sera sauvé qu'en revenant à toi, en répudiant ses attaches barbar
 Quel beau jour que celui où toutes les villes qui ont pris
 des débris de ton temple, Venise, Paris, Londres,
 Copenhague, répareront leurs larcins, formeront des
-théories sacrées pour rapporter les débris qu'elles pos-
-
-sèdent, en disant: « Pardonne-nous, déesse! c'était pour
+théories sacrées pour rapporter les débris qu'elles possèdent, en disant: « Pardonne-nous, déesse! c'était pour
 
 les sauver des mauvais génies de la nuit et rebâtiront
 tes murs au son de la flûte, pour expier le crime de l'infâme Lysandre! Puis ils iront à Sparte maudire le sol
@@ -310,8 +304,7 @@ blasphèmes que me suggère mon esprit profondément
 gâté. Une littérature qui, comme la tienne, serait
 saine de tout point n'exciterait plus maintenant que
 É Tu souris de ma naïveté. Oui, l'ennui... Nous sommes
-corrompus: qu'y faire? J'irai plus loin, déesse ortho-
-doxe, je te dirai la dépravation intime de mon cœur.
+corrompus: qu'y faire? J'irai plus loin, déesse orthodoxe, je te dirai la dépravation intime de mon cœur.
 Raison et bon sens ne suffisent pas. Il y a de la poésie
 dans le Strymon glacé et dans l'ivresse du Thrace. Il
 viendra des siècles où tes disciples passeront pour les
@@ -423,8 +416,7 @@ Monsieur le ministre,
 Je veux d'abord remercier M. Paul Guieysse du grand
 acte de générosité qu'il vient de faire en offrant, au nom
 de l'Association des « Bleus de Bretagne le monument
-d'Ernest Renan à la ville de Tréguier, dont j'ai l'inappré-
-ciable honneur d'être le maire en ces circonstances mémorables.
+d'Ernest Renan à la ville de Tréguier, dont j'ai l'inappréciable honneur d'être le maire en ces circonstances mémorables.
 
 Je tiens aussi à dire à M. Paul Guieysse, — et j'ai la
 conviction d'être le fidèle interprète de tous les républicains bretons, — que nul n'était plus propre à rallier ici, à
@@ -467,8 +459,7 @@ d''Ernest Renan, au centre même de cette petite ville où il à
 
 naquit et que son nom illumine de gloire.;
 
-Mais c'est à la France, c'est au gouvernement de la Répu-
-blique qu'il appartient d'être le gardien jaloux de ce
+Mais c'est à la France, c'est au gouvernement de la République qu'il appartient d'être le gardien jaloux de ce
 monument, dans lequel quelques esprits fanatiques ou
 volontairement aveugles veulent voir une provocation,
 alors qu'il n'est que le symbole de l'esprit de tolérance et
@@ -555,9 +546,7 @@ l'État. Le gouvernement accepte avec joie cette mission
 qui l'associe de façon plus intime à l'œuvre de justice
 
 D'autres diront, avec une autorité à laquelle je ne saurais
-prétendre, quel incomparable écrivain fut Renan, étudie-
-
-ront cette langue simple, sans apprêt comme sans <ffort,
+prétendre, quel incomparable écrivain fut Renan, étudieront cette langue simple, sans apprêt comme sans <ffort,
 tour à tour familière et élevée, aussi propre à traduire la
 poésie pénétrante des souvenirs émus qu'il évoque ou des
 paysages charmeurs qu'il décrit, qu'à envelopper d'une
@@ -577,9 +566,7 @@ l'amour passionné de la vérité. « Quoi qu'on dise, a-t-il
 - écrit, elle est supérieure à toutes les fictions. On ne doit
 jamais regretter d'y voir plus clair et plus tard, jetant
 un regard en arrière et se rendant témoignage à luimême il s'écriait: « Je veux qu'on mette sur ma tombe:
-Veritatem dilexi. Oui, j'ai aimé la vérité, je l'ai cher-
-
-chée, je l'ai suivie où elle m'a appelé, sans regarder
+Veritatem dilexi. Oui, j'ai aimé la vérité, je l'ai cherchée, je l'ai suivie où elle m'a appelé, sans regarder
 aux durs sacrifices qu'elle m'imposait. J'ai déchiré les
 liens les plus chers pour lui obéir, je suis sûr d'avoir
 bien fait. »
@@ -602,9 +589,7 @@ l'avenir assuré qu'il perdait, des risques et des diflicultés
 
 de la vie qu'il allait aborder, malgré les déchirements et
 les tristesses, il a accompli sa libération, n'emportant de
-cette crise ni rancune, ni colère contre ceux qui lui repro-
-
-inauguration du monument
+cette crise ni rancune, ni colère contre ceux qui lui reproinauguration du monument
 
 chaient ce qu'ils appelaient sa désertion ou même son
 
@@ -637,8 +622,7 @@ Devant sa mémoire vont se dérouler, depuis son plus jeune
 souvenirs d'enfance et de jeunesse, dont le récit doit être
 un des plus purs joyaux de notre littérature. Il écouté sa
 mère lui conter les légendes du pays breton, ou les histoires
-des gens d'autrefois; il revoit les rues tranquilles de Tré-
-guier, l'ombre des grands murs du vieux cloître, ses
+des gens d'autrefois; il revoit les rues tranquilles de Tréguier, l'ombre des grands murs du vieux cloître, ses
 anciens maîtres toujours vénérés, Saint-Nicolas-du-Chardonnet et le premier jour entr'ouvert sur le monde, Issy et
 ses longues charmilles, où il s'attardait lisant, assis sur un
 
@@ -733,8 +717,7 @@ celle d'aucun de mes camarades; c'était un jeune homme
 sérieux et réservé, de tournure ecclésiastique: le regard
 de ses yeux pers était franc et modeste, la tête grosse
 et ronde; le visage rasé ne manquait ni de finesse, ni
-d'expression. Il suivait à la Sorbonne les cours de litté-
-rature et de philosophie de MM. Le Clerc et Garnier;
+d'expression. Il suivait à la Sorbonne les cours de littérature et de philosophie de MM. Le Clerc et Garnier;
 au Collège de France, les cours de sanscrit et d'hébreu
 de MM. Eugène Burnouf et de Quatremère. Nous nous
 pas à nous lier d'une affection de plus en plus étroite.”
@@ -771,9 +754,7 @@ pour assurer celles de sa mère et de son frère, Renan
 poursuivit sa carrière avec quelque sécurité.
 
 L'Histoire comparée des langues sémitiques, couronnée par l'Académie des inscriptions en 1848, commença sa précoce réputation. Cette première œuvre est
-celle d'un érudit, d'un type un peu austère, tel qu'Hen-
-
-riette le rêvait alors pour son frère. Le style brillant et
+celle d'un érudit, d'un type un peu austère, tel qu'Henriette le rêvait alors pour son frère. Le style brillant et
 imagé que nous avons connu plus tard n'y apparaît pas
 encore, quoique la finesse critique de ses vues et de ses
 
@@ -783,9 +764,7 @@ Une mission philologique le conduisit en Italie en
 
 1849. En même temps qu'il consultait les manuscrits
 
-._ grecs du Vatican, il eut la révélation d'un monde nou-
-
-veau, celui de l'art, qui transforma à la fois son style
+._ grecs du Vatican, il eut la révélation d'un monde nouveau, celui de l'art, qui transforma à la fois son style
 
 et sa pensée. Une forme littéraire plus délicate et plus
 riche caractérise les articles et les ouvrages de Renan,
@@ -868,9 +847,7 @@ C'est à ce point de vue que se plaça Renan quand il
 entreprit d'étudier d'une façon purement rationnelle la
 création du christianisme, avec son mélange de grandes
 vérités morales et de grandes erreurs scientifiques. « Le
-livre le plus imposant du dix-neuvième siècle, écrivait-
-
-il alors, avec l'enthousiasme d'un novateur, devrait à
+livre le plus imposant du dix-neuvième siècle, écrivaitil alors, avec l'enthousiasme d'un novateur, devrait à
 avoir pour titre: Histoire critique des Origines du
 
 Certes un prophète aurait fort surpris Platon et Aristote, il y a vingt siècles, s'il avait annoncé que c'était
@@ -883,8 +860,7 @@ je veux dire après vingt ou trente siècles nouveaux
 écoulés, le christianisme ne sera pas à son tour oublié;
 je veux dire entré dans les limbes de l'histoire, comme
 les religions antiques qui l'ont précédé. Le culte égyptien a été aussi soutenu pendant cinquante siècles par
-la majesté de ses cérémonies, la science réelle ou pré-
-tendue de ses prêtres et le fanatisme de ses adorateurs,
+la majesté de ses cérémonies, la science réelle ou prétendue de ses prêtres et le fanatisme de ses adorateurs,
 les plus superstitieux des hommes, suivant Hérodote.
 Et cependant un jour vint où la foi tomba. Elle florissait encore temps de Dioclétien; mais un siècle
 suflit pour que l'empereur chrétien Théodose, avec l'intolérance brutale d'un souverain orthodoxe, pûüt fermer
@@ -923,13 +899,11 @@ racontée comme un mélange de mythes et de légendes,
 associés à des réalités incertaines. C'est ce mélange
 que Renan s'est efforcé d'analyser, en dégageant les
 données historiques conservées dans le portrait idéal
-du Christ. Pour plus de vraisemblance, il est allé con-
-fronter sur place ses interprétations avec la vue des
+du Christ. Pour plus de vraisemblance, il est allé confronter sur place ses interprétations avec la vue des
 pays réels de la Galilée et de la Palestine, où l'exis- À
 tence du Christ s'est déroulée.
 De cette étude est sorti un livre incomparable: la
-Vie de Jésus. Ce n'est plus le Dieu crucifié et intolé-
-rant que le moyen âge a adoré, mais le Jésus tendre
+Vie de Jésus. Ce n'est plus le Dieu crucifié et intolérant que le moyen âge a adoré, mais le Jésus tendre
 et miséricordieux, dont le culte subsiste dans tant de
 cœurs endoloris. Renan a retracé les traits de ce Jésus
 évhémérisé, avec une poésie, un charme de sentiments,
@@ -1021,8 +995,7 @@ aux jours de notre jeunesse, nos pensées, nos désirs,
 nos espérances et notre amour invariable de la France,
 du peuple et de l'humanité!
 .
-M. Anatole France, membre de l'Académie fran-
-çaise, a parlé ensuite:
+M. Anatole France, membre de l'Académie française, a parlé ensuite:
 
 É Mesdames et messieurs,
 Je sens vivement l'honneur qui m'est échu de porter
@@ -1143,8 +1116,7 @@ levait sans cesse des milliers.
 — Aujourd'hui comme autrefois, me disait-il, par tout
 l'Islam, on trouve des prophètes, au bazar, dans la boutique du barbier, coin de la rue où hurlent les chiens
 errants. Et les Européens n'en découvrent pas un seul,
-alors qu'ils en auraient le plus besoin. Voyez les Fran-
-çais, par exemple. Quel avantage il y aurait pour eux
+alors qu'ils en auraient le plus besoin. Voyez les Français, par exemple. Quel avantage il y aurait pour eux
 
 à ce que M. Combes fût prophète!
 Nous parlâämes des dieux morts et des dieux vivants.
@@ -1158,9 +1130,7 @@ second lieu, une liturgie ancienne, depuis longtemps
 en usage, dans laquelle on introduit cette idée. Car il
 est à noter qu'un culte naissant emprunte toujours son
 mobilier sacré au culte régnant et que les nouvelles
-religions ne sont guère que des hérésies. Troisiè-
-
-ins paix que dans guerr à
+religions ne sont guère que des hérésies. Troisièins paix que dans guerr à
 ,
 
 inauguration du monument
@@ -1215,8 +1185,7 @@ siècles le bien opposé au mal; puis la destruction de
 . Jérusalem qui périt en donnant à l'univers un Dieu
 qu'elle reniait et qui, par sa mort, délivra l'Église d'une
 mère ennemie. Il montra ensuite la seconde génération
-chrétienne fixant la légende et substituant à la commu-
-ñauté primitive la hiérarchie sacerdotale. IL conduisit
+chrétienne fixant la légende et substituant à la commuñauté primitive la hiérarchie sacerdotale. IL conduisit
 son histoire jusqu'aux temps où l'Église eut ses livres
 - sacrés, le germe de ses dogmes, les premières formes
 - Aurèle, qui fut la mort du monde antique.
@@ -1262,8 +1231,7 @@ laisse dédaigneusement croupir dans la misère et
 l'infamie. Elle n'essaie pas d'adoucir leurs maux; elle
 ne fait rien pour les gagner à elle. Elle ne leur apprend
 rien de romain; elle n'apprend d'eux rien d'humain.
-Elle ignore leur humble pensée, leur foi, leurs espé-
-rances. Ils sont la lie de l'humanité, le rebut des
+Elle ignore leur humble pensée, leur foi, leurs espérances. Ils sont la lie de l'humanité, le rebut des
 peuples, ces Juifs du Janicule. Dans leur abjection et
 leur dénuement, ils n'ont que leurs rêves. Ce sont leurs
 . rêves qui changeront le monde. De l'infâme Suburre,
@@ -1292,9 +1260,7 @@ fut en annonçant la fin du monde, la conflagration
 immédiate de l'univers, en enseignant le renoncement à
 la famille, à l'État, à la société, à la terre, qu'il fonda
 pour vingt siècles des dogmes, des mœurs, une société,
-plus contraires peut-être à son esprit ardent de vision-
-
-inauguration du monument
+plus contraires peut-être à son esprit ardent de visioninauguration du monument
 naire et de pauvre que les mystères et les cultes
 orientaux dont il détournait avec horreur sa petite
 troupe de saintes femmes et de Juifs ignorants.
@@ -1324,8 +1290,7 @@ dieu d'Israël, mena longtemps la vie de la grande
 tente. Il était nomade et patriarcal. Il aimait les
 troupeaux. Il avait l'esprit pacifique. Plus tard, quand
 son peuple chercha une terre pour s'y établir, il
-changea de caractère. Le patriotisme le rendit sangui-
-naire et féroce. Il se prit de querelle avec les dieux des
+changea de caractère. Le patriotisme le rendit sanguinaire et féroce. Il se prit de querelle avec les dieux des
 
 nations étrangères, Moloch, Khamos, qui lui ressemblaient à s'y méprendre et qui étaient aussi méchants
 que lui. Il ne se plaisait que dans les massacres et les
@@ -1347,8 +1312,7 @@ Messie qui fera régner la paix sur la terre, promettent
 aux doux un royaume en ce monde, annoncent aux
 pauvres qu'ils verront Dieu. Iahvé est devenu le défenseur des faibles, le vengeur de l'innocence persécutée,
 et Jésus naître.
-Ces pages où Renan montre les prophètes construi-
-sant pièce à pièce le dieu qui conquérir le monde
+Ces pages où Renan montre les prophètes construisant pièce à pièce le dieu qui conquérir le monde
 sont parmi les plus belles qu'il ait écrites. Il termina le
 ; cinquième et dernier volume de l'Histoire d'Israël
 le 24 octobre 1891. Son œuvre s'achevait avec sa vie.
@@ -1367,8 +1331,7 @@ chantent les oiseaux du ciel. Dans le volume que jai
 fini l'été dernier, je pense avoir réussi à faire connaître -
 le sous-sol où poussèrent les racines de Jésus. Ainsi À
 mon principal devoir est accompli. A l'Académie des
-inscriptions et belles-lettres, le travail sur Les rab-
-bins touche aussi à son terme, et le Corpus inscrip- À
+inscriptions et belles-lettres, le travail sur Les rabbins touche aussi à son terme, et le Corpus inscrip- À
 tionum semiticarum est en excellentes mains. Tout
 cela me cause une grande satisfaction intérieure, et "4
 voilà ce qui me fait croire qu'après avoir ainsi payé
@@ -1391,9 +1354,7 @@ Christianisme et de tant de beaux livres, disait parfois:
 
 « Je pourrais bien m'amuser un peu écrivait-il dans
 la joie de sa tâche accomplie. Les amusements du beau
-soir de sa vie, ce furent ces livres profonds et char-
-
-mants, ces dialogues, ces discours familiers, ces:
+soir de sa vie, ce furent ces livres profonds et charmants, ces dialogues, ces discours familiers, ces:
 drames philosophiques, dans lesquels il exprimait avec
 grâce de fortes pensées; il confiait à ses amis inconnus
 les craintes, les espérances, les doutes qui l'agitaient,
@@ -1408,8 +1369,7 @@ Dieu, il aspirait à s'abimer dans la science. L'humanité lui était précieuse
 
 Il tenait absolument à la moralité parce que des races
 . honnêtes peuvent seules être des races scientifiques.
-à Sa politique procédait de sa morale. Pour lui, le gou-
-vernement le plus favorable aux intérêts de la science
+à Sa politique procédait de sa morale. Pour lui, le gouvernement le plus favorable aux intérêts de la science
 était le meilleur. Mais commençait la difficulté, et
 comme il était très honnête, la politique l''embarrassait
 beaucoup. C'est une science incertaine, qui n'a pas
@@ -1432,8 +1392,7 @@ pour s'emparer du gouvernement, que ses oreilles s'accourcissent et que son cerv
 et il ne souhaïta pas que Prospéro fût restauré.
 — « J'aime Prospéro, dit-il, mais je n'aime guère les
 gens qui le rétabliraient sur son trône. Caliban, au
-fond, nous rend plus de services que ne le ferait Prospéro restauré par les jésuites et les zouaves pontifi-
-caux. Loin d'être une renaissance, le gouvernement de
+fond, nous rend plus de services que ne le ferait Prospéro restauré par les jésuites et les zouaves pontificaux. Loin d'être une renaissance, le gouvernement de
 Prospéro, dans les circonstances actuelles, serait un
 Et il conclut:
 Plutôt que de sacrifier la science à la démocratie,
@@ -1451,8 +1410,7 @@ aversion. Son discours fluide est moins dans la manière
 des Latins que dans celle des Grecs, qui est inimitable.
 Comme les Grecs il évita toujours l'emphase et la
 déclamation. IL a mis de l'art dans tout, puisque
-; dans tout il a mis de l'ordre, et qu'il a toujours appro-
-prié la manière d'écrire au sujet, et toujours subordonné le détail à l'ensemble.
+; dans tout il a mis de l'ordre, et qu'il a toujours approprié la manière d'écrire au sujet, et toujours subordonné le détail à l'ensemble.
 
 Mais où son art se montre avec le plus de charme,
 facile à tous et précieux aux connaisseurs, c'est dans
@@ -1482,7 +1440,7 @@ charme et pénètre de respect tous ceux qu'elle reçoit à
 
 inauguration du monument RTS
 de Renan flotte encore, comme celle du maître à la LA
-table des pèlerins d'Emmaüs. »:
+table des pèlerins d'Emmaüs.
 
 J'appellerai les professeurs et les élèves de ce Collège
 de France, qui fut la demeure de son intelligence et la
@@ -1497,9 +1455,7 @@ dirai pas qu'il se priva de tout plaisir. Si nous en
 
 - le plus gros des péchés. Mais il mit tout son plaisir #4
 dans l'accomplissement de ses devoirs, et prit aux
-moindres un intérêt fidèle. Il se garda même des amu-
-sements de l'esprit et des joies de l'art qui ne s'accor-
-daient pas avec la régularité professionnelle.
+moindres un intérêt fidèle. Il se garda même des amusements de l'esprit et des joies de l'art qui ne s'accordaient pas avec la régularité professionnelle.
 
 Que cette entente des obligations, cette ponctualité
 se soit trouvée dans un si vaste esprit, il ne faut
@@ -1532,8 +1488,7 @@ besoin, dans l'intérêt de leurs croyances, que je sois un
 ignorant, un esprit faux, ou un homme de mauvaise
 foi, je n'ai pas la prétention de modifier leur avis. Si
 
-: cette opinion est nécessaire au repos de quelques per-
-sonnes pieuses, je me ferai un véritable scrupule de les
+: cette opinion est nécessaire au repos de quelques personnes pieuses, je me ferai un véritable scrupule de les
 
 Il s'attendait à ce que sa mort fût contée dans
 des légendes pieuses avec une grande abondance de
@@ -1546,9 +1501,7 @@ Il ne se trompait pas. Vous avez ce matin encore
 1 les éternels ennemis de la science et de la raison,
 4 obstinés à le noircir. Ce serait trahir sa mémoire que
 d'opposer pour la défendre l'injure à l'injure. Nous
-1 n'attaquerons pas l'Église. Bien mieux; nous ne voulons pas la juger aussi sévèrement qu'elle se juge elle-
-
-inauguration du monument
+1 n'attaquerons pas l'Église. Bien mieux; nous ne voulons pas la juger aussi sévèrement qu'elle se juge elleinauguration du monument
 même quand elle se proclame immuable. Nous voulons
 croire qu'elle s'adoucit avec l'âge. Ne l'écoutons pas,
 elle est plus accommodante qu'elle ne dit, elle est plus
@@ -1561,8 +1514,7 @@ Que les foudres éclatent, mais qu'elles soient spirituelles! Et que l'État n'e
 Le sculpteur dont l'œuvre vient d'être dévoilée
 devant vous n'a pas sans raison représenté Pallas
 Athênê au côté de Renan. Homère nous l'apprend:
-Athêné a coutume de descendre du vaste ciel pour s'en-
-tretenir avec les hommes qui lui sont chers. Elle visita
+Athêné a coutume de descendre du vaste ciel pour s'entretenir avec les hommes qui lui sont chers. Elle visita
 plusieurs fois cet Ulysse, qui avait beaucoup enduré et
 qu'elle aimait parce qu'il était subtil. Mais le héros ne
 savait pas tout de suite que ce fût elle et manquait de
@@ -1609,9 +1561,7 @@ seraient offensées, si je n'avais pas que parfois la
 
 folie est sagesse. Peu à peu, mes fidèles grandirent en
 
-force et en nombre. Les Français, les premiers, m'éle-
-
-inauguration du monument
+force et en nombre. Les Français, les premiers, m'éleinauguration du monument
 vèrent des autels. Et tout un siècle de leur histoire
 m'est dédié.
 « Depuis lors, depuis que la pensée, dans ses hautes
@@ -1672,18 +1622,14 @@ roche sacrée, je gouvernais quelques milliers d'hommes
 libres, habiles à la parole. Sur les tables des lois, on
 sculptait mon image dans une attitude simple et pensive, d'une telle beauté, que les hommes d'aujourd'hui
 ne peuvent la voir sans en être émus. O Renan, j'ai
-mérité‘les noms que tu m'as donnés de Salutaire, Paci-
-fique, Protectrice du travail, Archégète, Démocratie et
+mérité‘les noms que tu m'as donnés de Salutaire, Pacifique, Protectrice du travail, Archégète, Démocratie et
 Victoire. Mais qu'est-ce que la cité antique auprès des
-grands peuples modernes? O sages, vous m'avez décou55
-
-inauguration du monument
+grands peuples modernes? O sages, vous m'avez découinauguration du monument
 vert un horizon plus vaste que l'empire romain. Sur un
 sol trépidant du souffle de la vapeur et des chocs de
 l'électricité, les nations immenses, naguère ennemies,
 rivales, encore prises toutes à la fois, irritées et en
-armes, dans le réseau d'acier dont la science et l'indus-
-trie ont enveloppé le globe, cités, peuples, races, un
+armes, dans le réseau d'acier dont la science et l'industrie ont enveloppé le globe, cités, peuples, races, un
 milliard six cents millions d'hommes travaillent les uns
 pour les autres et les uns contre les autres, s'ignorant
 ou se haïssant dans les liens qui déjà les unissent.:
@@ -1701,8 +1647,7 @@ m'ont rappelée sur la terre.
 entassent les rochers et que les géants impies forgent
 leurs armes, je fonde la Ville sainte. A voir mes ouvriers
 creuser la terre et transporter les matériaux, parfois les
-sages eux-mêmes ont peine à discerner mes plans ingé-
-nieux. Dans les chantiers où l'on taillait, au lendemain
+sages eux-mêmes ont peine à discerner mes plans ingénieux. Dans les chantiers où l'on taillait, au lendemain
 de Salamine, les marbres de mes Propylées, il était difficile de découvrir parmi les blocs épars la pensée harmonieuse de Mnésiclès. C'était pourtant qu'elle
 prenait sa forme et naissait à la lumière. L'avenir ne
 s'y trompera pas: on reconnaîtra mes œuvres à leur
@@ -1741,9 +1686,7 @@ Sans doute, il est difficile de faire parler les morts.
 Quelques-uns ne s'en sont point privés toutefois; ils y avaient
 peut-être intérêt. Ces personnes avisées ont peu connu
 Ernest Renan, l'homme sérieux, pour avoir supposer,
-escompter même de sa part, dans cette circonstance tou-
-
-chante et significative, le sourire indifférent, ironique,
+escompter même de sa part, dans cette circonstance touchante et significative, le sourire indifférent, ironique,
 presque hostile du scepticisme. Ceux qui ont vécu près de
 sa pensée peuvent dire que Renan ne souriait pas de cette
 façon. Son sourire philosophique est le témoin de l'honnêteté délicate de son génie: soucieux de justice envers
@@ -1785,8 +1728,7 @@ secret de son style, ce style dont il s''étonnait qu'on vantât
 le charme, alors que lui, il écrivait parce qu'il tàchait
 avant tout d'avoir quelque chose à dire.
 
-Magnum opus facio, et non possum descendere, se plaï-
-sait-il à nous répéter. Cher père! Il ne descendra pas de
+Magnum opus facio, et non possum descendere, se plaïsait-il à nous répéter. Cher père! Il ne descendra pas de
 son piédestal. Rendons honneur au statuaire. Renan eût
 aimé à se voir sous la protection de la déesse dont il
 comprit si bien le culte, de cette déesse étrange qui devait
@@ -1823,14 +1765,12 @@ Avant 1842, il est encore, chez les prêtres de SaintNicolas-du-Chardonnet, et m
 que les prêtres de Tréguier ont préparé à devenir
 prêtre. En 1845, il a cessé non seulement d'être clerc,
 mais d'être catholique; il sera un savant laïque, libre
-de tout lien avec toute Église. Cette crise dont le dé-
-nouement fut, pour un si loyal esprit, l'abandon à jamais
+de tout lien avec toute Église. Cette crise dont le dénouement fut, pour un si loyal esprit, l'abandon à jamais
 des croyances et des rêves de son adolescence, la rupture avec les traditions et les souvenirs les plus vénérés,
 la naissance à une vie nouvelle et redoutable, ne fut
 connue jusqu'à la mort de Renan que par quelques
 chapitres des Souvenirs d'enfance et de jeunesse. Renan
-s'attache surtout à y faire connaître d'une façon pré-
-cise l'enseignement théologique de Saint-Sulpice, à
+s'attache surtout à y faire connaître d'une façon précise l'enseignement théologique de Saint-Sulpice, à
 montrer comment l'examen critique de la Bible fait
 échec aux théories du surnaturel et de la révélation,
 comment l'examen critique des Évangiles fait échec à
@@ -1858,8 +1798,7 @@ père, lui avaient donné « une précoce maturité ». Elle
 personne sérieuse, fatiguée de soucis, obsédée de
 : pensées graves et de sombres pressentiments ». (1)
 ; C'est à lui qu'elle attacha toute son affection, et Renan
-conserva toujours le souvenir de ces années où à Tré-
-guier, à Lannion, cette active et ardente amitié le
+conserva toujours le souvenir de ces années où à Tréguier, à Lannion, cette active et ardente amitié le
 choya, l'enveloppa, le protégea. Chez Henriette, les
 affections étaient inséparables de rudes devoirs. Pour
 assurer à sa mère une vieillesse tranquille et respectée,
@@ -1876,8 +1815,7 @@ parce qu'elle l'avait précédé. A dix-sept ans, Henriette
 voulait entrer au couvent de Sainte-Anne à Lannion;
 mais une instruction plus étendue, l'étude surtout,
 semble-t-il, de l'histoire, (2) l'avait détachée de la foi À
-catholique. Elle avait reconnu, dit Renan, « l'insuffi-
-sance de tout dogme particulier ». Elle avait aussi Kreconnu dès lors une opposition très nette entre l'esprit
+catholique. Elle avait reconnu, dit Renan, « l'insuffisance de tout dogme particulier ». Elle avait aussi Kreconnu dès lors une opposition très nette entre l'esprit
 de l'Évangile et celui de ses ministres; elle était probablement très près de ce que Renan appellera, après à
 Kant, le « christianisme pur ». Telles étaient ses dispo- à
 sitions quand, en 1838, elle fit venir à Paris son frère,
@@ -1914,8 +1852,7 @@ tard avec sa mère ou avec ses vieux maîtres de Bretagne; sans doute elle ne tr
 : tique, ni à l'abandon de la vie à laquelle il se sentait
 appelé; mais elle lui parla du sérieux avec lequel il
 fallait choisir une profession, des mauvais effets d'une,
-décision précipitée, de la nécessité de consentir libre-
-ment, avant de s'y engager, à la destinée que rêva
+décision précipitée, de la nécessité de consentir librement, avant de s'y engager, à la destinée que rêva
 . quelquefois une fantaisie d'enfant. Le jeune séminariste écoutait, sans se les appliquer à lui-même, ces
 réflexions qui ne se présentaient pas comme des conseils; il n'avait pas encore médité sur les problèmes
 dont il po#sédait les solutions certaines, ni sur la possi1 (1) Lettres intimes, page
@@ -1980,12 +1917,10 @@ le retenaient; l'incertitude des systèmes tournait à la
 
 (1) Lettres intimes, 23 mars 1842, page 86. Cf. Lettres du séminaire,
 
-glorification de la vérité révélée; (1) si ce qu'il saisis-
-sait de la philosophie allemande le « fascinait étrangement » (2) et risquait de l'éloigner de l'Eglise, il en
+glorification de la vérité révélée; (1) si ce qu'il saisissait de la philosophie allemande le « fascinait étrangement » (2) et risquait de l'éloigner de l'Eglise, il en
 saisissait encore peu de chose, et, suivant les conseils
 de M. Manier, il lisait surtout les travaux de l'école
-écossaise, qui « rassérène, et conduit au christia-
-nisme ». (3) Il n'entrevoyait la ruine des doctrines
+écossaise, qui « rassérène, et conduit au christianisme ». (3) Il n'entrevoyait la ruine des doctrines
 chrétiennes que comme une hypothèse à laquelle on à
 - ne s'arrête pas. « Quand même le christianisme, écri- Le
 vait-il, ne serait qu'une rêverie... » (4) Mais aurait-il
@@ -1995,8 +1930,7 @@ s'éveillait, se dressait en lui, sans qu'il prévît encore
 que ce pût être une ennemie. Il sentait cependant que la
 philosophie était « merveilleusement propre » à « cor- À
 riger les excès » d'une « dévotion spirituelle qu'elle à
-l'en avait déjà éloigné, et qu' « une réaction trop vio-
-lente sur ce point » était « seule à craindre ». (5) Ses
+l'en avait déjà éloigné, et qu' « une réaction trop violente sur ce point » était « seule à craindre ». (5) Ses
 maîtres n'étaient pas sans inquiétude sur la marche à
 future de cet esprit singulier; on sait le mot, qui le:
 troubla un moment, du mystique M. Gottofrey: « Vous
@@ -2023,8 +1957,7 @@ austères chrétiens du dix-septième siècle. Quand il
 considère les différentes professions qui s'offrent à son
 choix, il jette sur le monde le regard hautain du sermonnaire; il se débarrasse par une allusion rapide
 des « occupations ordinaires des hommes (3) il
-dénonce, sans doute sur la foi de Bossuet, qu'il lit beau-
-coup à cette époque, le vide de la vie « des cercles et
+dénonce, sans doute sur la foi de Bossuet, qu'il lit beaucoup à cette époque, le vide de la vie « des cercles et
 des salons (4) il ne saurait s'arrêter à une vie tout
 : (2) Cf. Théorie et pratique des sacrements, Paris, 1736, tome III,
 
@@ -2034,10 +1967,8 @@ Cet éloignement du monde a pour conséquence le
 l'amour de la retraite. Mais faut aimer la retraite
 pour « mieux servir Dieu et se donner tout à lui et
 non pour « vivre en repos et s'entretenir soi-même ».(2)
-Renan trouve en effet en lui « un goût constant et exclu-
-sif pour une vie retirée et tranquille mais cette vie:
-lui apparaît comme une vie « d'étude et de ré-
-fiexion ». (3) Rien de mystique, rien même de parti-;
+Renan trouve en effet en lui « un goût constant et exclusif pour une vie retirée et tranquille mais cette vie:
+lui apparaît comme une vie « d'étude et de réfiexion ». (3) Rien de mystique, rien même de parti-;
 culièrement religieux. L'âme religieuse n'est jamais
 seule; elle est continuellement en présence d'une personne divine à qui elle adresse ou soumet toutes
 choses; elle prie, et on lui répond. Renan, certes, aime
@@ -2060,8 +1991,7 @@ puisés à vos côtés qui m'ont conduit vers le sacerdoce. » à
 de répandre parmi les hommes les grâces de Dieu; il
 est le serviteur de Dieu, le serviteur du « prochain ».
 Renan sent déjà qu'il n'est pas fait pour l'action, mais ant
-pour pensée; il est tout entier au plaisir, à la « pas-
-culation; il est déjà « le pur chercheur de vérité ». (2)
+pour pensée; il est tout entier au plaisir, à la « pasculation; il est déjà « le pur chercheur de vérité ». (2)
 C'est une anomalie singulière que le séminaire prépare
 à l'action par l'isolement; la réflexion solitaire n'a pas
 développé chez Renan le zèle de l'action sociale; la
@@ -2069,11 +1999,9 @@ _société semble à peine exister pour lui; il ne rêve que À
 - de trouver dans l'étude « le peu de calme qui fait le à
 charme de nos quelques instants ici-bas, et qui cherche
 sans cesse à nous échapper ». (3) Ce n'est ni le service
-de Dieu, ni celui de ses semblables, mais son « pro-
-grès intellectuel » qui « sera toujours la plus chère de “pe
+de Dieu, ni celui de ses semblables, mais son « progrès intellectuel » qui « sera toujours la plus chère de “pe
 ses intimes pensées (4) c'est « l'appétit de vérité » te
-qui est déjà « le mobile de son existence ». (5) « Il étu-
-diera, étudiera sans cesse, lui dit M. Pinault dans le à
+qui est déjà « le mobile de son existence ». (5) « Il étudiera, étudiera sans cesse, lui dit M. Pinault dans le à
 . parc d'Issy; mais, quand le soin des pauvres âmes le (ire
 réclamera, il étudiera encore. Bien fourré dans sa houppelande, il dira à ceux qui viendront le trouver: Oh! ans
 laissez-moi, laissez-moi. » (6) Il sent que ses goûts ne:
@@ -2081,9 +2009,7 @@ vont pas aux fonctions attachées à l'état ecclésiastique;
 À il admet une distinction entre ses goûts et cet état, et
 . Jun ne lui paraît qu'un moyen pour donner aux autres
 le plus de satisfaction possible. Encore, malgré le
-préjugé créé par toute son éducation, l'état ecclésias-
-
-tique ne lui paraît-il pas seul à pouvoir satisfaire ses “#9
+préjugé créé par toute son éducation, l'état ecclésiastique ne lui paraît-il pas seul à pouvoir satisfaire ses “#9
 goûts « studieux et sédentaires »:il discute entre l'Église
 et l'enseignement. Un de ses professeurs, M. Manier,
 lui « fait souvent envisager » ce que cette dernière
@@ -2129,13 +2055,11 @@ soumission éternelle. Il vient d'éprouver, en com-:
 mençant ses études philosophiques, l'instabilité des
 idées; il sait, puisqu'il a été tenté, qu' « on n'est pas;
 - sûr de ne pas changer de croyance à l'avenir, quelque
-certitude qu'on ait du présent et du passé »; comment
+certitude qu'on ait du présent et du passé comment
 . pourrait-il, « sans hésiter, jurer de l'avenir de sa
 Il est vrai que l'autorité à laquelle il lui faudra se
 soumettre est exercée par les représentants de Dieu
-sur la terre; sans doute il doit se remettre aveuglé-
-ment entre leurs mains; mais ils méritent que sa con-
-fiance en eux soit entière; le chrétien qui se sent
+sur la terre; sans doute il doit se remettre aveuglément entre leurs mains; mais ils méritent que sa confiance en eux soit entière; le chrétien qui se sent
 « mené » par Dieu pense au moins qu'il est « bien
 mené le prêtre, dans son abdication de soi-même,
 
@@ -2159,19 +2083,16 @@ veut trouver quelque chose de bon et de beau
 solvuntur objecta, sans doute; mais ces objections
 cependant reviennent toujours dans son esprit, parce
 : que toujours la réalité est qui le choque. Et quand
-on le voit écrire à sa sœur: « Hélas! ma bonne Hen-
-riette, je ne me flatie point le tableau... Mais que
-+3 veux-tu donc que je fasse? (7) on ne peut s'empé-
-cher de s'attendre à le voir trouver bientôt une autre
+on le voit écrire à sa sœur: « Hélas! ma bonne Henriette, je ne me flatie point le tableau... Mais que
++3 veux-tu donc que je fasse? (7) on ne peut s'empécher de s'attendre à le voir trouver bientôt une autre
 réponse à cette question désolée. 7404
 Il n'en a pas hâte cependant; toutes ces incertitudes
 
 Jui sont pénibles, mais plus pénible lui serait
-encore une décision, qu'elle l'enchaïinât pour toujours à!
+encore une décision, qu'elle l'enchaïinât pour toujours
 la discipline, ou qu'elle lui fit rompre des liens qui si
 
-longtemps ont été pour lui des soutiens. Avant de s'en-
-gager ou de se dégager, il goûte longuement le plaisir
+longtemps ont été pour lui des soutiens. Avant de s'engager ou de se dégager, il goûte longuement le plaisir
 de pouvoir se déterminer dans un sens ou dans l'autre.
 Il s'y attarde d'autant plus que, dès ces premiers
 
@@ -2198,8 +2119,7 @@ saluer ses parents. Les lettres de Renan montrent pour:
 sa mère une sensibilité ingénieuse et tendre, d'une:
 fraîcheur d'accent toute féminine, « D'où vient
 auraient lui dire ses maîtres, que vous pensez si
-souvent à vos parents, que vous leur écrivez si fré-
-quemment, que vous avez tant de joie quand vous
+souvent à vos parents, que vous leur écrivez si fréquemment, que vous avez tant de joie quand vous
 . recevez de leurs lettres? que vous êtes si sensible à
 . leurs prospérités et à leurs disgrâces? que vous pensez
 « si souvent à cette maison maternelle, au voyage que
@@ -2217,8 +2137,7 @@ encore prévoir l'issue, (3) qu'elle s'emploie à hâter.
 Elle ne combat pas les idées de son frère sur la sublimité de l'institution sacerdotale; (4) qu'importe en de
 effet ce qu'il pensera de cet idéal, pourvu qu'il voie
 avec netteté le réel? Elle insiste donc sur les traits "4
-qu'avait déjà tracés son frère, sur le « serment indélé-
-bile » (5) qu'il devra prêter, sur l'entière soumission:
+qu'avait déjà tracés son frère, sur le « serment indélébile » (5) qu'il devra prêter, sur l'entière soumission:
 « Un ecclésiastique peut-il disposer de lui-même?
 _w'est-il pas obligé de suivre la direction que lui
 donnent ses supérieurs? » « Le nombre et la coutume
@@ -2226,8 +2145,7 @@ n'entraînent-ils pas la minorité et le devoir? » Ainsi
 vont les questions, renvoyant à Renan un écho plus
 précis et plus fort de ses doutes, de ses hésitations. Et #1
 elle ne dit pas toute sa pensée; si elle ne prévoyait
-pas beaucoup d'objections, « son langage seraït proba-
-blement plus explicite encore ». (6) Elle excelle à
+pas beaucoup d'objections, « son langage seraït probablement plus explicite encore ». (6) Elle excelle à
 (1) Retraite pour les ordinans, Paris, 1709, tome II, page
 
 ‘entrer dans les idées de son frère pour les pousser où
@@ -2242,15 +2160,14 @@ après son frère, sur les mauvais côtés de l'enseignement; mais elle ajoute u
 une idée importante qu'elle présente, en même temps
 que M. Manier, à l'esprit de Renan. Elle n'oublie pas
 de montrer, dans la Pologne où elle vit, « l'esprit de
-fanatisme et de haine religieuse »; elle note l'hostilité
+fanatisme et de haine religieuse elle note l'hostilité
 réciproque et sans scrupule du juif et du chrétien; (2
 « nulle part on ne couvrit plus souvent les passions des
 , hommes du nom de la divinité ». « Partout on voit se Care
 former des haines au nom de celui qui n'a enseigné
 que paix et charité. » (2) Peut-être, hors de la Pologne,
 le jeune séminariste pourra-t-il en trouver d'autres
-exemples. Elle a enfin des mots qui laissent voir clai-
-rement au passage sa conviction ou son désir: « Lors
+exemples. Elle a enfin des mots qui laissent voir clairement au passage sa conviction ou son désir: « Lors
 même, écrit-elle à son frère, que tu persisterais dans
 tes opinions présentes. » (3) On ne saurait mieux faire
 entendre combien il est improbable que ce philosophe
@@ -2293,8 +2210,7 @@ DUREE (4) Théorie et pratique des sacrements, tome III, pages 32-33.
 dut consentir à un délai. C'est probablement à la suite
 de cette crise que M. Gosselin devina chez l'excellent
 séminariste « certaines tendances d'esprit qu'il n'avait
-suffisamment définir, mais qu'il jugeait dange-
-reuses ». (2) Ce n'est pas seulement avec son directeur
+suffisamment définir, mais qu'il jugeait dangereuses ». (2) Ce n'est pas seulement avec son directeur
 que Renan délibère, c'est avec sa mère. Déjà la pensée
 de sa mère, de son bonheur ou de sa peine, tourmente
 le cœur de Renan. Sans lui « exposer à » « cet état
@@ -2319,7 +2235,7 @@ Lettres intimes, page 138 et suivantes, 16 juin 1843.
 
 vertu, et les jouissances inséparables de l'exer cice ESA
 facultés nobles ». Et tout cela repose sur une démon-
-; stration « rationnelle » du christianisme. Il a réponse à,
+; stration « rationnelle » du christianisme. Il a réponse
 tout. La perte de son indépendance, qui l'effrayaitna-;
 guère, ne l'effraie plus: le prêtre comme tout homme,
 la seule liberté qui compte, la liberté
@@ -2370,8 +2286,7 @@ Comme pour donner raison aux craintes de sa sœur,
 le jour de Noël 1843, Renan reçut la tonsure, et, le jour
 de la Trinité 1844, les ordres mineurs. Malgré les y
 avertissements de ses maîtres d'Issy, on ne trouvait FAE
-en lui rien d'hérétique; il était l'un des cinq sémina-
-ristes chargés du catéchisme de persévérance à Saint-
+en lui rien d'hérétique; il était l'un des cinq séminaristes chargés du catéchisme de persévérance à Saint-
 
 Sulpice. Et cependant la première impression de ce ne
 : futur prêtre devant la théologie est étrange. « Cest
@@ -2382,7 +2297,7 @@ philosophie, elle n'en a pas non plus les difficultés. Il a
 pourtant quelques traités qui égalent la philosophie en À tu oh
 hauteur et en importance. » (1) En écrivant à Henriette,
 A il distingue entre la théologie dogmatique, « toute em-
-3 preinte de la scolastique du moyen âge, moulée encore, a:
+3 preinte de la scolastique du moyen âge, moulée encore,
 pour ainsi dire, sur les formules abstraites et creuses À À
 de l'école et l'apologétique. Celle-ci « est grande et ta
 belle et le meilleur éloge qu'il en puisse faire, c'est Ne
@@ -2414,8 +2329,7 @@ tels délais pour un acte qui n'était pas encore irrévocable, (2) redoubla de 
 longtemps, mais la résistance n'était pas encore un
 devoir évident; il pouvait encore céder à une autorité
 qui semblait sûre d'elle-même et qui l'avait habitué à
-4 l'obéissance; il se décida la veille du jour de la céré-
-monie, et, une fois de plus, peut-être avec l'illusion,
+4 l'obéissance; il se décida la veille du jour de la cérémonie, et, une fois de plus, peut-être avec l'illusion,
 qui dura peu, qu'il n'obéissait à aucune détermination
 étrangère, « suivit passivement la ligne qu'une force
 : supérieure traçait devant » lui. (3) Mais, dès le jour
@@ -2445,8 +2359,7 @@ Cependant, que l'on comprenne ou non,autour de lui, …
 : dans l'ordre scientifique. (1) On pressent Renan sur 1278
 une place de professeur à Saint-Nicolas; et, malgré le. La
 caractère « impérieux » de M. Dupanloup, malgré l'es- … ta
-prit de « petitesse » de ses collaborateurs, il y consen-
-tirait peut-être « afin de pouvoir. fréquenter certains
+prit de « petitesse » de ses collaborateurs, il y consentirait peut-être « afin de pouvoir. fréquenter certains
 cours, et se livrer à certaines recherches qui ne peu
 vent se faire commodément qu'à Paris. Ses maîtres lui 47 À
 font des « propositions assez explicites » pour qu'il à
@@ -2461,9 +2374,7 @@ cette offre, mais pour quelques années seulement et « à
 "4 du diocèse de Paris ». Quand il s'agit de ses intérêts
 4 essentiels, c'est-à-dire de ceux de son progrès intellec-
 
-16 tuel, on voit donc qu'il n'est rien moins qu'un instru-
-
-ment docile entre les mains de ses supérieurs; il se
+16 tuel, on voit donc qu'il n'est rien moins qu'un instrument docile entre les mains de ses supérieurs; il se
 
 sert au contraire de leurs desseins pour réaliser les
 
@@ -2496,19 +2407,13 @@ ne les prévenir? Renan ne repousse pas absolument l'idée
 
 4 d'un préceptorat en Allemagne; il diffère seulement sa
 
-4 décision jusqu'aux vacances de 1845; (1) mais les pro-
+4 décision jusqu'aux vacances de 1845; (1) mais les projets qu'il examine ne supposent-ils pas tous que cette
 
-jets qu'il examine ne supposent-ils pas tous que cette
-
-4 décision pourra être un refus? Aussi Henriette s'in-
-
-quiète; elle voudrait arracher son frère à toute possi-
+4 décision pourra être un refus? Aussi Henriette s'inquiète; elle voudrait arracher son frère à toute possi-
 
 ( bilité de vie ecclésiastique; et voilà qu'il hésite entre
 
-Saint-Nicolas, Saint-Sulpice, et la maison de l'arche-
-
-vêque. Il a déjà accepté, malgré elle, l'idée de la « discie
+Saint-Nicolas, Saint-Sulpice, et la maison de l'archevêque. Il a déjà accepté, malgré elle, l'idée de la « discie
 pline; mais n'est-ce pas accepter une servitude tou PARRE À
 
 spéciale que d'entrer dans un de ces « corps m'est 2480 À
@@ -2632,9 +2537,7 @@ devoir l'obligerait à reculer ». (4) Et alors il revient au
 projet d'Henriette; s'il a appris sérieusement lallemand, c'est au moins autant pour être mieux en état
 
 de profiter de cette offre que pour le progrès de ses
-études; (5) il donc demander un délai, et, au com-
-
-mencement de l'année classique suivante, ce précep-
+études; (5) il donc demander un délai, et, au commencement de l'année classique suivante, ce précep-
 
 1 torat serait « le moyen le plus simple de faire agréer un
 
@@ -2650,8 +2553,7 @@ chez Henriette; à ce retour d'indécision, à cette hypo-:
 
 thèse d'un recul possible, elle comprend que son frère
 A se dégage enfin, elle l'y aider de toute son autorité. He:
-: Sans retard, elle lui répond, et elle lie en un solide rai-
-sonnement, par lequel elles prennent une force toute
+: Sans retard, elle lui répond, et elle lie en un solide raisonnement, par lequel elles prennent une force toute
 tele: les idées un peu éparses de Renan. « Oui... il
 , faut que ta détermination vienne d'une volonté éclairée an;
 et Libre. Or, pour qu'elle soit libre, il faut que tusortes, en à
@@ -2664,8 +2566,7 @@ tous les livres de l'univers ne sauraient enseigner. » (1)
 tous les éléments étrangers qui pourraient obscurcir la
 conscience de Renan: elle le rassure au sujet des
 - rigueurs de l'opinion pour ceux qui reculent devant les; KNES
-liens de l'état ecclésiastique; elle lève toutes les diffi-
-cultés pécuniaires. (2) Enfin elle lui rappelle que,
+liens de l'état ecclésiastique; elle lève toutes les difficultés pécuniaires. (2) Enfin elle lui rappelle que,
 « quand une chose devient un devoir, toute autre ques …
 tion, quelque délicate qu'elle soit, s'affaiblitet disparait
 devant cette loi impérieuse ». (3) ‘#88
@@ -2674,7 +2575,7 @@ Renan écrit le mot décisif: « Je ne crois pas assez. »(4)
 Il a mis les affirmations du catholicisme à l'épreuve de +4
 la critique « psychologique et historique ». (5) Histori- » quement, l'Église a constitué le christianisme en tirant
 . desÉcritures ses mystères, ses dogmes, ses sacrements.:
-et (1) Lettres intimes, page 217. « « À:
+et (1) Lettres intimes, page 217. « «
 11: (5) Souvenirs, page 407, lettre à l'abbé Cognat, 11 septembre 1846.
 
 Ni … Pourelle, l'histoire deses dogmes, depuis le concile de
@@ -2690,9 +2591,7 @@ aucun changement, aucun retranchement, aucune addition ». (2) Mais elle peut pr
 passer progressivement » un dogme de la proposition
 confuse à l'enseignement explicite et à la définition
 solennelle (3) et, en fait, elle a « classé, analysé, expliqué, étiqueté, affirmé elle n'a « rien ajouté, rien
-changé au fond des choses ». (4) C'est en cette com-
-préhension progressive d'une vérité immuable et com-
-plète que consiste ce qu'on peut appeler la vie du
+changé au fond des choses ». (4) C'est en cette compréhension progressive d'une vérité immuable et complète que consiste ce qu'on peut appeler la vie du
 1 dogme. Cette antique et subtile théorie ne suffit plus à
 É Renan. Ce commentaire que prétend être le dogme lui
 ; semble infidèle et démesuré; il ne soutient pas le texte,
@@ -2703,9 +2602,7 @@ renouvelé, vit sur les raisonnements naïfs des premiers
 ! (1) Vincent de Lérins, Commonitorium peregrini, 1,23; cf. Cognat,
 (2) Vincent de Lérins, Commonitorium peregrini,
 (3) Jangey, Dictionnaire apologétique de la foi catholique, article
-(1 (4) R. P. de la Barre, S. J., La vie du dogme catholique (Étude reli-
-
-chrétiens ou des anciens juifs. Pour Renan ni
+(1 (4) R. P. de la Barre, S. J., La vie du dogme catholique (Étude relichrétiens ou des anciens juifs. Pour Renan ni
 traire, les mystères et les dogmes ne sont qu'une
 a « mythologie » (x) qui tombe devant la critique, une
 construction élevée par des âmes obscures ou mys- 4 ‘#4
@@ -2725,11 +2622,9 @@ sophes allemands, en particulier chez celui qui lui était
 le plus familier, Herder. (7) Dans cet « homme _.
 peuple » qui prêcha « le royaume de Dieu Herdee …
 admire « l'humanité la plus touchante il oppose
-comme Renan la religion de Jésus, c'est-à-dire « sa cha-
-rité vivante « son amour des hommes » au « culte
+comme Renan la religion de Jésus, c'est-à-dire « sa charité vivante « son amour des hommes » au « culte
 irréfléchi de sa personne et de sa croix il montre
-dans la formation et l'organisation de l'Église la cor-
-sa (2) Souvenirs, page 284. Do:
+dans la formation et l'organisation de l'Église la corsa (2) Souvenirs, page 284. Do:
 PEN (3) Herder, Philosophie de l'histoire, XVII, 1. 2 AFAUESS
 yes (4) Lettres intimes, page 228. NE
 (7) Herder, Philosophie de l'histoire, livre XVII. À “FAR
@@ -2783,8 +2678,7 @@ de sa carrière entre l'état ecclésiastique et l'enseigne:
 ment, il avait choisi l'état ecclésiastique; puis, dans
 l'Église, il avait rêvé une vie de recherches ou de haut
 enseignement; maintenant que le devoir lui commande …
-de renoncer à l'Église, il ne lui reste plus que l'ensei-
-gnement laïque. Qu'il poursuive ses études dans les »
+de renoncer à l'Église, il ne lui reste plus que l'enseignement laïque. Qu'il poursuive ses études dans les »
 langues orientales, qu'il entre à l'École Normale, …
 : comme le lui conseille un de ses maîtres, (5) ou qu'il
 
@@ -2802,8 +2696,7 @@ mère; (2) la crainte de la blesser le tourmente toujours,
 il veut la préparer insensiblement à ce coup trop rude,
 et il convient avec sa sœur de tout un vocabulaire
 spécial pour les lettres qu'ils échangeront pendant les
-Malgré toutes ces précautions, la douceur coutu-
-mière de ses vacances fut, cette fois, troublée d'amer_ tume. Il avait le sentiment douloureux que ses maîtres,
+Malgré toutes ces précautions, la douceur coutumière de ses vacances fut, cette fois, troublée d'amer_ tume. Il avait le sentiment douloureux que ses maîtres,
 l'auraient blämé s'ils l'avaient compris; les lectures
 hébraïques et allemandes auxquelles il consacrait
 surtout ses vacances le confirmaient dans ces
@@ -2821,8 +2714,7 @@ n'avoir pas été élevé dans une de ces communions
 À protestantes dont le lien est assez souple pour laisserà
 l'esprit toute sa hardiesse. Il s'en ouvrait à son dire.
 : teur, déclarait qu'il avait perdu l'espoir de revenir à se A
-l'orthodoxie par la voie de « examen rationnel et cri-
-tique qu'il ne le pourrait plus qu' « en stigmatisant
+l'orthodoxie par la voie de « examen rationnel et critique qu'il ne le pourrait plus qu' « en stigmatisant
 a sa raison ». (1) Se demandait-il vraiment parfois s'il À
 n'en arriverait pas? Ce qui est certain, c'est qu'ilse
 prenait à regretter la foi qu'il avait perdue, qu'il se
@@ -2866,9 +2758,7 @@ son intention « de ne pas passer l'année au sémi-
 . reviendra; (6) mais à vrai dire, s'il croit que la suite
 de ses études peut modifier certaines de ses idées, il
 ne 1 ne voit pas comment il pourrait devenir prêtre, ou rede-:
-venir catholique. Il a accompli l'acte que lui comman-
-dait « l'honnêteté ila rompu à tout jamais avec la mai-
-son de servitude, avec l'Église de ses maîtres et de sa
+venir catholique. Il a accompli l'acte que lui commandait « l'honnêteté ila rompu à tout jamais avec la maison de servitude, avec l'Église de ses maîtres et de sa
 116 mère; il a cessé de regarder en arrière, vers les joies
 Et de la terre d'Égypte, pour suivre vers le désert la,
 11 « haute raison » de sa sœur, « la colonne lumineuse qui

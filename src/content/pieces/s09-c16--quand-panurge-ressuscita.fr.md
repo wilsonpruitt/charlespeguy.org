@@ -23,15 +23,12 @@ que nous ne pouvons pas songer à en donner ici
 l'énoncé méme le plus succinct; pour savoir ce qui a
 paru dans les cinq premières séries des cahiers,
 suffit d'envoyer un mandat de cinq francs à M. André
-: Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondisse-
-ment; on recevra en retour le catalogue analytique
+: Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries.;
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un racéereie
 
-: une idée, abrégée, mais complète, de nos éditions anté-
-
-rieures et de nos cinq premières séries; tout y est classé
+: une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 
 dans l'ordre; il suffit de le lire pour trouver, à leur
 Dlace, les références demandées.
@@ -94,8 +91,7 @@ les deux Congos; les points faibles du Congo léopoldien........................
 
 en vente à la librairie des cahiers
 Prerre Mizce. — Sur La Vaste Terre; — CalmannLévy éditeurs, 4906; — Ramary et Kétaka; Barnavaux,
-général; Ruy Blas; Barnavaux, homme d'État; la pré-
-caution inutile; Kidi; le dieu; la vengeance de madame
+général; Ruy Blas; Barnavaux, homme d'État; la précaution inutile; Kidi; le dieu; la vengeance de madame
 PIERRE Mie. — Barnavaux et quelques femmes;
 l'Ile aux Lépreux; Barnavaux vainqueur; le Romancero; la Nef morte; l'Homme qui a les sirènes;
 l''Attaque; le Japonais; la Justice; l'Aventure de Sara;
@@ -167,8 +163,7 @@ contre cet enfant blond, au visage ovale et pâle, qui
 mit dans leur âme les mêmes fureurs religieuses qui
 brülaient celles de leurs parents. Les uns se déclarèrent
 tsadoukites et les autres hassidites. Ils se traitèrent
-réciproquement d'œuf de tortue et de crapaud, d'excré-
-ment de poisson, d'impie, de voleur, ou de Romain;
+réciproquement d'œuf de tortue et de crapaud, d'excrément de poisson, d'impie, de voleur, ou de Romain;
 enfin ils jouèrent à se haïr: c'est un jeu horrible. Des
 injures ils en vinrent aux coups, les pierres ne tardèrent
 pas à voler, et bientôt on entendit un cri affreux:.
@@ -176,8 +171,7 @@ c'était Joël, fils du grand-prêtre Alkimos, qui venait de
 rouler sur le sol, la tête fendue par un galet tranchant.
 Les combattants n'avaient pas encore le cœur endurci.
 Tous eurent grande pitié. Ils se rapprochèrent du fils
-d'Alkimos, bien que cet adolescent orgueïlleux et mé-
-chant par nature n'inspirât que peu d'affection à la
+d'Alkimos, bien que cet adolescent orgueïlleux et méchant par nature n'inspirât que peu d'affection à la
 plupart. Un sang clair sortait à gros bouillons de la
 blessure qui coupait un des sourcils, et laissait voir les
 du crâne. Tous crièrent:
@@ -216,8 +210,7 @@ leur bouche et à leur front; ils se prosternaient jusqu'à
 terre, et ils l''appelaient rabbi. Mais il n'en éprouvait;
 aucune vanité, puisque nul éloge peut égaler la
 puissance divine. C'était comme si quelqu'un eût appelé
-le grand Salomon « capitaine de cent hommes JérachSatan fut déçu de ce côté. Mais Joël lui donna des con-
-solations. Ayant été miraculé, il en éprouva beaucoup
+le grand Salomon « capitaine de cent hommes JérachSatan fut déçu de ce côté. Mais Joël lui donna des consolations. Ayant été miraculé, il en éprouva beaucoup
 
 d'orgueil. « Car, songea-t-il, si la faveur divine s'est
 manifestée sur moi d'une façon si singulière, c'est que
@@ -226,8 +219,7 @@ pas voulu que le fils du grand-prêtre Alkimos fût défiguré. Je ne m'en éton
 de ma naissance, m'a toujours dit que j'étais appelé à
 de superbes avenirs, à la domination; et ce miracle a
 été prédestiné pour me faire distinguer parmi les
-hommes! » En effet, les vendeurs de graines de pastè-
-ques grillées, ceux qui quisent les gâteaux de miel et
+hommes! » En effet, les vendeurs de graines de pastèques grillées, ceux qui quisent les gâteaux de miel et
 de sésame, et tous les oisifs du marché disaient sur son
 passage: « Est-ce toi, Joël, sur qui le Très-Haut s'est
 manifesté? » Ce n'est pas tout: les femmes chananéennes, dont la joue est marquée de trois étoiles..
@@ -240,8 +232,7 @@ la nature, était en train de perdre son âme dans le culte
 de lui-même, et de mauvaises voluptés.
 Jérach voulut pousser son avantage plus loin. Il suggéra donc à ses camarades:
 Jésus peut faire des miracles, n'est-ce pas?
-— Le Très-Haut le lui a permis, Jérach, dit Joël fiè-
-rement. Le Très-Haut le lui a permis, à cause de moi!
+— Le Très-Haut le lui a permis, Jérach, dit Joël fièrement. Le Très-Haut le lui a permis, à cause de moi!
 Ces paroles irritèrent les autres. Ils trouvèrent injuste
 que Joël, bien connu pour être un méchant qui avait
 mérité son sort, y eût échappé par une intervention
@@ -272,8 +263,7 @@ n'avez besoin de rien!
 
 Et tous crièrent, illuminés:
 
-— C'est vrai! Nous avons besoin de ne pas travailler! Le travail, c'est la vraie douleur! C'est la malé-
-diction depuis le commencement du monde! Nous le
+— C'est vrai! Nous avons besoin de ne pas travailler! Le travail, c'est la vraie douleur! C'est la malédiction depuis le commencement du monde! Nous le
 savons: on nous l'enseigne! Nous le savons bien
 mieux: nous le sentons! à
 
@@ -290,11 +280,9 @@ Jérach se dirigea vers Jésus qui priait, et lui dit:!
 
 — Tu les entends?
 
-— Oui, répondit-il tristement. Mais si pourtant jac-
-cède à leur désir, ils n'apprendront rien. Ils deviendront
+— Oui, répondit-il tristement. Mais si pourtant jaccède à leur désir, ils n'apprendront rien. Ils deviendront
 
-pareils aux brutes. Pareils aux sauvages qui sont là-
-bas, plus loin que l'Égypte, au Midi.
+pareils aux brutes. Pareils aux sauvages qui sont làbas, plus loin que l'Égypte, au Midi.
 
 — Parfaitement! acquiesça Jérach-Satan. Ce miracle
 sera immoral. Mais si tu ne fais pas ce miracle, ils ne
@@ -350,8 +338,7 @@ et le plus serviable des enfants:
 
 Jérach, Joël, Ahira et tous les autres ricanèrent.
 
-— Alors, ce ne serait plus un miracle! Par consé-
-quent, Jésus, tu es un menteur, un menteur: tu ne
+— Alors, ce ne serait plus un miracle! Par conséquent, Jésus, tu es un menteur, un menteur: tu ne
 peux pas faire le vrai miracle! Tu ne peux pas nous
 dispenser de travailler!
 
@@ -482,8 +469,7 @@ Ce qu'on appelle le petit temple, dans la fabrque?
 Ce n'était pas un temple, maïs une salle à manger d'été:
 au milieu d'un parc. La table était dressée dans le
 sous-sol et se levait comme par enchantement, au »
-moyen de poulies, avec les verres, les assiettes de por-
-celaine, les plats, les carafes de cristal pleïies de vin,
+moyen de poulies, avec les verres, les assiettes de porcelaine, les plats, les carafes de cristal pleïies de vin,
 
 , sur un signe du roi. Il y avait aussi des glaces, des
 sofas, des choses que je ne veux pas te dire mon petit.;
@@ -648,9 +634,7 @@ forçait à planter des betteraves au lieu de blé. Les betteraves, ne se mange 
 quand Panurge ressuscita SRE
 :. — Mais, dit Aphanase, c'est de la très mauvaise économie politique. Il vous payait ces betteraves, le propriétaire, il vous payait pour travailler dans sa fabrique?
 
-Les paysans le regardèrent comme s'il parlait un lan-
-
-gage incompréhensible. Ils crièrent en riant toujours:.
+Les paysans le regardèrent comme s'il parlait un langage incompréhensible. Ils crièrent en riant toujours:.
 
 — Il y avait bien trop de sucre! Qu'est-ce qu'on peut
 faire de tant de sucre? Nos femmes en ont pris chacune
@@ -746,8 +730,7 @@ faire nommer curé un autre de ses cousins; le second
 mari de sa sœur maire d'un chef-lieu de canton; ses
 autres beaux-frères receveurs buralistes, beaucoup de
 ses amis employés de ministères; et la plupart des
-habitants de Roccanera gendarmes, ou même maré-
-chaux des logis de gendarmes; enfin toutes les veuves
+habitants de Roccanera gendarmes, ou même maréchaux des logis de gendarmes; enfin toutes les veuves
 de ceux qu'il avait tués reçurent des bureaux de tabac.
 De la sorte il s'attira la sympathie universelle. Entouré
 de respect, il n'éprouva plus le besoin de faire du mal
@@ -780,8 +763,7 @@ d'expropriation nous rendra justice.
 — Eh! quoi, lui répondit ce magistrat municipal,
 vous parlez de justice? Avez-vous oublié que vous
 mîtes à mort votre cousin le vicaire, votre beau-frère
-l'adjoint, votre ami le douanier, votre oncle le gen-
-darme, vingt-sept autres gendarmes, et Pietro Marghieri, …
+l'adjoint, votre ami le douanier, votre oncle le gendarme, vingt-sept autres gendarmes, et Pietro Marghieri, …
 de Piedicroce?
 
 — n'a aucun rapport! répondit Bellamano avec
@@ -803,11 +785,9 @@ monde, après ses enfants, ses petits-enfants et ceux de
 son clan qui reconnaissaient son autorité, étaient-ils les
 gens de justice. Bellamano avait confiance dans la loi,
 dont il éprouvait à toute heure les merveilleux bienfaits. Il était fier de vivre sous l'égide d'un État civilisé
-qui sait si bien, en Corse, laisser les personnes dé-
-brouiller comme elles l'entendent leurs affaires de
+qui sait si bien, en Corse, laisser les personnes débrouiller comme elles l'entendent leurs affaires de
 famille, et faire observer d'autre part les règlements
-- sans lesquels la vie de famille deviendrait une misé-
-rable plaisanterie. Il vivait dans la prospérité, il vivait
+- sans lesquels la vie de famille deviendrait une misérable plaisanterie. Il vivait dans la prospérité, il vivait
 dans la sécurité, il vivait dans l'honneur. Quand le
 préfet passait près de Roccanera, Bellamano le bandit
 lui envoyait du gibier, et le préfet, discrètement, lui faisait tenir sa carte. Un haut fonctionnaire du second
@@ -913,8 +893,7 @@ l'eau jusqu'aux épaules, et comme la main, je me
 trouvais fort affairé à pousser des pieds et du ventre, à
 travers une mare qui subsistait dans le lit du Gardon
 desséché, la poche d'un long filet dont Touloumès, sur Et
-une rive, tirait nonchalamment l'extrémité droite. L'ex-
-trémité gauche était tenue, sur l'autre rive, par un personnage dont le nom et l'aspect avaient fait sur moi
+une rive, tirait nonchalamment l'extrémité droite. L'extrémité gauche était tenue, sur l'autre rive, par un personnage dont le nom et l'aspect avaient fait sur moi
 l'impressiôn la plus profonde. Touloumès me l'avait
 présenté comme « le Monarque ». Le Monarque portait
 
@@ -1034,8 +1013,7 @@ le roi Dagobert est mort. Je fis signe que je commen- Te,
 — Nous nous sommes mis à deux pour manger mes
 terres, continua-t-il, le phylloxéra et moi; mais je fis
 tout ce que je pouvais pour aller plus vite que le
-phylloxéra, et j'y réussis. Quand ce fut fini, je commen-
-çai à être heureux. Aujourd'hui, je n'en vais chez l'un
+phylloxéra, et j'y réussis. Quand ce fut fini, je commençai à être heureux. Aujourd'hui, je n'en vais chez l'un
 pour chasser, chez l'autre pour les vendanges, chez tout -
 le monde pour les noces et les baptêmes. J'ai toujours
 le temps de causer, n'ayant rien à faire. Sans moi les
@@ -1190,8 +1168,7 @@ leur métier ajouta-t-il, la bouche un peu de travers,
 et entre ses dents.;
 
 On entendit le bruit gai que font les fers des chevaux
-sur les cailloux, et le crissement des souliers aux trente-
-sept clous réglementaires parmi les feuilles sèches et
+sur les cailloux, et le crissement des souliers aux trentesept clous réglementaires parmi les feuilles sèches et
 les herbes. Puis tout redevint tranquille.
 
 — À vous maintenant, messieurs! dit le commandant. -
@@ -1217,9 +1194,7 @@ secoua de toutes ses forces. Les vis de la serrure sautèrent, et la porte s'ouv
 
 Mais on ne vit rien, à la lumière qui venait de vitres
 très sales, qu'un vestibule plein de poussière, et l'entrée
-d'un escalier de bois, percé dans une muraille. Le sub-
-
-stitut mit le pied sur la prémière marche: elle s'effondra.
+d'un escalier de bois, percé dans une muraille. Le substitut mit le pied sur la prémière marche: elle s'effondra.
 Le sergent murmura, d'une voix peu rassurée:
 
 — On n'a pas depuis la Belle au Bois dormant!
@@ -1485,8 +1460,7 @@ Judegauts. C'était nous qui leur disions: « Allez à cette
 place et ils y allaient, et: « Voici quelle est votre
 affaire, ne vous mêlez pas des nôtres et ils étaient
 fort soumis d'ordinaire. Mais comme leur chef, qui est:
-dans une autre île, avait noise et conflit avec certains de nos chefs, avons décidé de ne plus nous occu-
-per de ces affaires de l'ile Sonnante, pas plus que de
+dans une autre île, avait noise et conflit avec certains de nos chefs, avons décidé de ne plus nous occuper de ces affaires de l'ile Sonnante, pas plus que de
 celles des Papefigues et Judegauts, Les Papeñfigues et
 Judegauts n'ont pas soufflé. Mais sommes tout près, au
 contraire, avec ceux de l'île Sonnante, de nous piller!
@@ -1507,8 +1481,7 @@ conditions, dans celles qu'apportent ces Lanternois,
 vous paraissent diaboliques et damnables?
 
 — C'est, répondit Albian Camar, que nos lois et dé- un:
-crétales sont telles que devraient les gens de l'île Son-
-nante être patrons et ministrateurs de ceux du Lanter-;
+crétales sont telles que devraient les gens de l'île Sonnante être patrons et ministrateurs de ceux du Lanter-;
 nois, et qu'ainsi ne pouvons accepter que dérisoirement
 ils nous donnent la liberté, puisqu'ils nous devraient
 
@@ -1606,13 +1579,11 @@ guerdonner trois milliards d'écus à la rose pour leurs
 derniers trois moutons qui moururent de la clavelée?!
 Empêché méchamment leurs consuls de faire mourir
 — Non pas, fit le pauvre Anarque, non pas! Je n'au- « rais garde: mais veulent que buvions ieur vin.
-Ce qu'entendant, jeta Panurge un grand cri horri-
-fique, par effet de stupeur non feinte, et tomba sur les
+Ce qu'entendant, jeta Panurge un grand cri horrifique, par effet de stupeur non feinte, et tomba sur les
 cailloux et fétus du sol à jambes rebindaïnes. Puis « demeura pantois, assis sur son bonnet, lequel en fut
 tout foupi. -
 — Sommes-nous ici, dit-il, avec gémissements, chez
-ces pauvres extravagants dont est parlé au livre De fri-
-gidis et maleficiatis, lesquels ne peuvent boîre de vin?
+ces pauvres extravagants dont est parlé au livre De frigidis et maleficiatis, lesquels ne peuvent boîre de vin?
 Viens-t'en, frère Jean! Quittons ce pays! Je me sens
 
 mourir de pépie, la gorge me sèche, j'ai la fressure
@@ -1689,8 +1660,7 @@ gobelets. Où sont vos vendanges d'Albingois? Ne me
 faut qu'une petite heure, je n'en laisse rien.
 
 — Seigneur, dit Anarque, ainsi nous sauveriez. Buvez,
-buvez, n'ayez crainte. Je vous cède le piot au prix coû-
-tant, avec escompte, dix du cent, les épingles et mon
+buvez, n'ayez crainte. Je vous cède le piot au prix coûtant, avec escompte, dix du cent, les épingles et mon
 portrait. Buvez, seigneur, à vos souhaits, buvez!
 
 Lors Pantagruel, prenant entre le pouce et l'index,
@@ -1698,8 +1668,7 @@ Lors Pantagruel, prenant entre le pouce et l'index,
 : en levant le petit doigt en l'air, le plus grand des foudres, qui pesait bien vingt-sept mille quintaux et un
 quart, — si je me trompe d'une livre de plumes, qu'on
 me pende, — l'éleva vers ses mandibules, écarquillant
-. les ailes du nez à cette fin de humer congrument le par-
-faum du jus. Mais Panurge bien espanté se jeta tout à
+. les ailes du nez à cette fin de humer congrument le parfaum du jus. Mais Panurge bien espanté se jeta tout à
 plat devant lui; et criait comme navré de blessure
 
 — Ne buvez pas, mon bon maître! Ne buvez pas!
@@ -1751,9 +1720,7 @@ cracher, pour rire, pour pleurer; et n'ai pas besoïn de
 faire entendre pour quelles choses encore ont médecins.
 
 Les uns, par ordonnance de médecin, ne mangent que
-viandes blanches; d'autres, viandes rouges et pain tara-
-
-biscoté; d'autres, légumes divers, comme pommes:
+viandes blanches; d'autres, viandes rouges et pain tarabiscoté; d'autres, légumes divers, comme pommes:
 . d'amour, qui sont tomates, ou pois verts, haricots,
 
 quand Panurge ressuscita
@@ -1847,7 +1814,7 @@ bien, et que par conséquent sont damnés ces Quinte-
 Essents. Et le soutiendrai jusques au feu, exclusive-
 —Tues, dit Pantagruel après avoir médité, un bon
 oo. ça, verse à boire, puisque c'est ton
-4 Cette page de l'histoire de Panurge ne se trouvantque
+Cette page de l'histoire de Panurge ne se trouvantque
 dans la Pantagruéline Prognostication doit avoir prédit
 une conversation de notre temps.: RMS
 
@@ -1867,9 +1834,7 @@ moi, je suis un touriste. Je vais à des allures moyennes,
 
 à des allures prudentes. J'ai de l'amour pour les beau-:
 
-tés des paysages, je m'arrête dans les moindres bour-
-
-gades pour en admirer les curiosités. La preuve, c'est
+tés des paysages, je m'arrête dans les moindres bourgades pour en admirer les curiosités. La preuve, c'est
 que je pars dans trois minutes pour visiter le Puy. C'est
 une préfecture, mon cher, la préfecture du département
 de la Haute-Loire, et il paraît que c'est magnifique. Il y
@@ -1879,11 +1844,7 @@ a un château-fort au-dessus de la ville qui s'appelle
 … Polignac, et n'a pas été raccommodé par Viollet-Le-Duc;
 une cathédrale romane, plantée sur de sourcilleux
 
-Se basaltes, le rocher Corneille, où il y a une vierge colos-
-
-sale, un musée, 20.000 habitants, et des auberges sup-
-
-portables. J'ai tout dans les papiers du Touring-
+Se basaltes, le rocher Corneille, où il y a une vierge colossale, un musée, 20.000 habitants, et des auberges supportables. J'ai tout dans les papiers du Touring-
 
 Club. Tu n'as pas le Puy, viens avec moi.
 
@@ -1893,9 +1854,7 @@ quand Panurge ressuscita A
 
 de la ville d'eaux où nous nous trouvions. Un rien pour
 
-une automobile qui marche « très lentement ». Je con-
-
-sentis, sur la foi des traités.
+une automobile qui marche « très lentement ». Je consentis, sur la foi des traités.
 
 Et ce fut délicieux. C'était le matin par un beau soleil.
 Mon ami le chauffeur ralentissait pour me faire regarder
@@ -1977,8 +1936,7 @@ De ma vie je n'ai été plus étonné. Je m'attendais à
 tout, excepté qu'elle pût s'arréter, sauf par un choc.
 Est-ce que la Terre s'arrête, et le Soleil, et Sirius, et les
 comètes, à moins qu'ils ne se cognent? Moi qui croyais
-- que nous étions une comète! Voilà qui démontre l'infé-
-riorité des créations humaïnes sur celles de la nature.
+- que nous étions une comète! Voilà qui démontre l'infériorité des créations humaïnes sur celles de la nature.
 Mon ami le chauffeur cria
 — Nom de Dieu! il n'y a plus d'essence dans les
 J'aurais pensé qu'il y en avait trop, puisque
@@ -2044,8 +2002,7 @@ si grand, ni M. Girollet, un homme si gai?
 
 Il y a des cas où il est impossible de mentir. Je
 
-— Eh bien, conclut-il philosophiquement, consolez-
-vous. Vous les verrez, parce que... parce que votre
+— Eh bien, conclut-il philosophiquement, consolezvous. Vous les verrez, parce que... parce que votre
 chaudron est détraqué et que vous allez le faire remor-
 
 C'est, en effet, ce que nous fîmes. Je m'aperçus alors
@@ -2053,8 +2010,7 @@ que la charrette à bœufs est aussi un instrument de
 
 Le voyage en charrette à bœufs acheva de me lier
 avec M. Oustachon. Il connaissait le pays comme un
-roulier et comme un archéologue. Cet homme merveil-
-leux possédait à la fois des lettres et des connaissances à
+roulier et comme un archéologue. Cet homme merveilleux possédait à la fois des lettres et des connaissances à
 
 — Nous allons descendre, expliqua-t-il, chez la mère
 Gaytte, à Saint-Paulien. Elle a toujours des perdreaux,
@@ -2119,8 +2075,7 @@ exemple; et une sœur ou deux qui se font admettre dans:
 un couvent. Il ne faut qu'une petite dot de douze ou
 quinze cents francs. Ils renoncent au reste de leur part,;
 qui grossit la masse à diviser entre ceux qui restent;
-laïcs. Ceux-ci se disent aujourd'hui: Si les congréga-
-tions sont dissoutes, mon frère l'ignorantin, et ma sœur
+laïcs. Ceux-ci se disent aujourd'hui: Si les congrégations sont dissoutes, mon frère l'ignorantin, et ma sœur
 du couvent de Marie Servairice vont venir réclamer
 leur dû. nous embèête, le gouvernement! »
 Mais après nous avoir fait part de ces observations À
@@ -2129,8 +2084,7 @@ coup plus longuement de son admiration pour Boileau,
 Voltaire, Béranger et Anatole France. Il chercha à nous
 expliquer, par des raisons qui lui paraïssaient très fortes, à
 « que ces quatre-là, c'étaient des types dans le même à
-. genre ». Si le lecteur le pérmet, je reméttrai sa dé-
-monstration à un autre jour. Sachez seulement que, sur
+. genre ». Si le lecteur le pérmet, je reméttrai sa démonstration à un autre jour. Sachez seulement que, sur
 
 ses instances et parce qu'il n'y a pas, en eflet, en
 
@@ -2159,8 +2113,7 @@ c'est un cafetier.:
 disais-je, voilà un homme qui a deux métiers, celui de
 - cafetier et celui de marchand d'huiles, et qui paraît
 - n'avoir jamais rien à faire. Il doit être d'une activité:
-- prodigieuse. » On daïgna rire de mon erreur et m'expli-
-quer qu'un cafetier n'est pas un homme qui tient un
+- prodigieuse. » On daïgna rire de mon erreur et m'expliquer qu'un cafetier n'est pas un homme qui tient un
 
 quand Panurge ressuscit@
 café, mais au contraire celui qui au café. C'est un à
@@ -2182,17 +2135,14 @@ Il me répondit très sérieusement: me
 n'y suis pas — et il n'y était jamais, le malheureux
 — Mais pourquoi n'y mettez-vous pas un employé? À
 M. Oustachon me regarda d'un air ébahi.
-— Vous croyez donc que je n'ai pas essayé! Seule-
-ment l'employé buvait les vins. C'était une perte sèche,;
+— Vous croyez donc que je n'ai pas essayé! Seulement l'employé buvait les vins. C'était une perte sèche,;
 ou humide, comme vous voudrez. Vous voyez qu'il vaut
 bien mieux que le magasin soit fermé. À
 Je me déclarai convaincu. Ceci lui donna une haute
 C'est sans doute pourquoi il me dit un soir::
 — Nous pourrions peut-être y aller boire une bouteille
 de champagne, dans cette boutique?
-C'était pour lui une partie fine, quelque chose d'extra-
-
-ordinaire, ayant l'attrait de la nouveauté. Devant sa
+C'était pour lui une partie fine, quelque chose d'extraordinaire, ayant l'attrait de la nouveauté. Devant sa
 
 propre porte il hésita un petit moment, et murmura par
 
@@ -2233,8 +2183,7 @@ TT) quand Panurge Fesstscie ORPI
 affreuse. C'était vrai: il n'y avait entre lui et moi qu'une QE:
 M. Oustachon passa ensuite une bonne à me ».
 réciter ses œuvres. Il avait fait des vers « à la façonde
-Boileau ». Il continuait à en faire. A mesure qu'il vieil-
-lissait, l'empreinte marquée sur lui dans son enfance
+Boileau ». Il continuait à en faire. A mesure qu'il vieillissait, l'empreinte marquée sur lui dans son enfance
 apparaissait de plus en plus forte et de plus en plus
 à gauchie. Cependant cette lecture l'avaït rasséréné.Ilme
 2 — Au moins, vous, vous pouvez me comprendre!
@@ -2278,10 +2227,8 @@ Parfois, un paysan ouvre une porte et Vous montre un
 antre obscur, une galerie qui s'enfonce au sein de la
 terre. Ainsi les troglodytes contemporains ont agrandi
 simplement d'une façade l'abri des troglodytes des
-anciens jours; et peut-être n'est-il pas tout à fait témé-
-raire de croire que quelques-uns en descendent.;
-C'est sur les parois de telles grottes, aux Combarelies et aux Fonts-de-Gaume, que M. Peyrony, institu-
-teur aux Eyzies-de-Tayac, découvrit il y à deux où …
+anciens jours; et peut-être n'est-il pas tout à fait téméraire de croire que quelques-uns en descendent.;
+C'est sur les parois de telles grottes, aux Combarelies et aux Fonts-de-Gaume, que M. Peyrony, instituteur aux Eyzies-de-Tayac, découvrit il y à deux où …
 trois ans les traces immortelles du génie de l'homme
 préhistorique. Je n'oublierai jamais les deux jours que
 j'ai passés dans la compagnie de ce savant modeste et
@@ -2296,9 +2243,7 @@ frêles, élles ont la beauté, la joie, l'imprudence des
 
 Des stalactites tombaient des voûtes. Restées toutes
 
-fraîches, presque vierges encore des souillures qu'ap-
-
-portent les flambeaux des hommes dans ces réduits
+fraîches, presque vierges encore des souillures qu'apportent les flambeaux des hommes dans ces réduits
 souterrains à peine explorés, elles brillaient de petites
 facettes vertes et rouges, rudes et magnifiques ornements des palais secrets de la terre, et que révélait
 subitement la lueur de nos deux bougies. Ailleurs,
@@ -2312,9 +2257,7 @@ Arrivé à l'un de ces endroits, j'entendis Peyrony qui
 Obliquement, la lueur de sa bougie éclaira la muraille
 bossue. Et les deux bisons parurent, les beaux animaux
 sauvages des prairies préhistoriques. Le burin de silex
-de l'artiste ingénu et hardi qui les avait gravés patiem-
-
-ment, voici des dizaines et des dizaines de milliers
+de l'artiste ingénu et hardi qui les avait gravés patiemment, voici des dizaines et des dizaines de milliers
 … d'années, — 240.000 ans d'après Mortillet, de 12 à
 20.000 ans au moins d'après Cartailhac — les avait
 retracés au quart de leur grandeur. On voyait les
@@ -2325,8 +2268,7 @@ baïssée; tête énorme, bestiale, et pourtant miraculeusement vivante, où l'o
 illusion — la force, l'impétuosité préconçue d'un bond,:
 la décision d'une concupiscence. Le regard a été fouillé,
 approfondi, travaillé longuement. C'est la caracté-
-- ristique de ces gravures: partout l'œil a été pris, visi-
-blement, comme point de départ du dessin tout entier,
+- ristique de ces gravures: partout l'œil a été pris, visiblement, comme point de départ du dessin tout entier,
 
 : quand Panurge
 et l'artiste a que c'était là, avant toutes choses, que
@@ -2377,10 +2319,8 @@ nature, la vie qu'elles respirent, l'évident effort fait pour
 
 . mais avec une étonnante virilité dans la manière, que
 
-celles-ci n'ont pas. On a cru d'abord à une fraude; on a:
-voulu que des enfants ou des réfugiés les eussent tra-
-
-cées dans ce royaume de l'ombre éternelle. Ce seraient
+celles-ci n'ont pas. On a cru d'abord à une fraude; on
+voulu que des enfants ou des réfugiés les eussent tracées dans ce royaume de l'ombre éternelle. Ce seraient
 
 de bien bons artistes! Et quels enfants, quels réfugiés
 
@@ -2388,9 +2328,7 @@ des guerres de religion ou de la Terreur, dans ce pays
 
 de Dordogne, avaient jamais un mammouth où un
 
-… renne? Ils datent de l'époque où le renne et le mam-
-
-mouth vivaient, nul expert n'en doute plus. Ce temps
+… renne? Ils datent de l'époque où le renne et le mammouth vivaient, nul expert n'en doute plus. Ce temps
 
 est si lointain qu'il fait peur d'y penser. Les couches
 
@@ -2408,9 +2346,7 @@ chasseurs, qui jouissaient si visiblement de la joie de » reproduire les formes
 
 cerveaux, ont disparu, — ils n'ont pas disparu; — mais
 
-pourquoi ils cessèrent de peindre et de graver. Quelques-
-
-uns suivirent les rennes, quand ceux-ci, troublés par -
+pourquoi ils cessèrent de peindre et de graver. Quelquesuns suivirent les rennes, quand ceux-ci, troublés par -
 
 l'attiédissement du climat, gagnèrent lenord de l'Europe.
 
@@ -2442,7 +2378,7 @@ comme jadis Luther à la Diète de Worms: « Me voici, « moi! Etje ne puis êtr
 
 Je ne sais pas si l'on me pardonnera cet étonnement
 devant le mystère des Eyzies, niles pensées qu'il m'a
-suggérées, et qu'on n'attendait pas sans doute. Je dois « à;
+suggérées, et qu'on n'attendait pas sans doute. Je dois «
 pourtant ajouter encore quelques mots. On possède,
 gravé sur un de renne, le portrait de cet homme
 … primitif, qui eut l'honneur infini de donner à l'humanité
@@ -2469,8 +2405,7 @@ les trois ou quatre mille habitants qui ne l'ont pas
 ; encore abandonnée n'y subsistaient guère que des
 dépenses faites par les soldats; la plupart vont émigrer,
 ù puis les navires oublieront la route, et Sainte-Hélène ne
-sera plus guère qu'un nom sur une carte. On saura seu-
-lement que c'était un grand sépulcre, d'où le cadavre
+sera plus guère qu'un nom sur une carte. On saura seulement que c'était un grand sépulcre, d'où le cadavre
 se même sortit avant les gardiens. LÉ, à
 En 1898, le hasard d'une croisière un peu vagabonde …
 me conduisit jusqu'à l'ile où mourut Napoléon. Je
@@ -2561,8 +2496,7 @@ qu'un envoyé de Hudson Lowe était venu l'espionner
 jusque dans sa baignoire. Ce sont les petites choses,
 dans cette agonie, qui la rendent terrible. Aujourd'hui,
 le mauvais papier peint dont Louis-Philippe fit couvrir
-les murailles, et qui voulait imiter le dessin de la pri-
-mitive tenture en perse, se décolle par morceaux. Cette
+les murailles, et qui voulait imiter le dessin de la primitive tenture en perse, se décolle par morceaux. Cette
 demeure mortuaire est d'une laideur plate et froide. Le
 paysage est resté poignant. Un propriétaire, dans
 l'espoir de quelque mince revenu, a tenté de planter
@@ -2601,8 +2535,7 @@ dans cette île où vint s'abattre l'homme qui a le plus
 fait pour donner à l'Europe — ce ne fut peut-être pas à
 l'avantage de la France — sa figure politique actuelle.
 Le fond de la population est formé par un mélange
-irrégulier de blancs, de nègres et de Chinois; et, pour-
-tant, qui sait s'il ne reste pas, dans les veines de quel-.
+irrégulier de blancs, de nègres et de Chinois; et, pourtant, qui sait s'il ne reste pas, dans les veines de quel-.
 
 peus, parmi cette race, quelques gouttes de sang
 napoléonien? Qu'est-ce qu'ils vont devenir? Retourne_ ront-ils à la barbarie? Vont-ils, presque abandonnés
@@ -2685,8 +2618,7 @@ virent, peut-être faut-il aller visiter les trésors des vieux
 palais des sultans, à la pointe de Stamboul, trésors
 d'une richesse écrasante et puérile. Aux aïgrettes des
 turbans énormes, coiffures des anciens souverains, des
-émeraudes et des rubis gros comme des œufs de pi-
-geon, taillés en cabochons, brillent avec tant de naïveté
+émeraudes et des rubis gros comme des œufs de pigeon, taillés en cabochons, brillent avec tant de naïveté
 qu'ils ont l'air d'être faux; des trônes vastes comme
 des divans sont tout entiers en pierres précieuses, et:
 que ces trônes ressemblent seulement à ces malles de
@@ -2723,8 +2655,7 @@ Ce palais de la pointe du vieux Stamboul fut abandonné par les sultans vers le 
 nous accompagne. Et comment surtout avoir délaissé
 ce site sublime pour le triste Yildiz-Kiosk?
 
-Ï ne me répondit pas. C'était une chose sur laquelleil ne se permettait pas d'avoir une opinion, car tout juge-
-ment sur une désision du maître est un péché. Nous -
+Ï ne me répondit pas. C'était une chose sur laquelleil ne se permettait pas d'avoir une opinion, car tout jugement sur une désision du maître est un péché. Nous -
 avons peine à nous figurer une telle discipline de pensée
 en Occident. Elle a sa grandeur. Pour détourner la
 conversation, il me dit:
@@ -2791,8 +2722,7 @@ une sorte d'attente affreuse plane par souvenir.
 et défendue où doit passer un seul homme, cinq cents
 cavaliers arabes, la lance ornée de banderoles, se
 rangent pour fermer les avenues. Ils ont des chevaux
-blancs, ils sont vêtus de blanc, les sauts de leurs mon-
-tures font vibrer toute cette blancheur, leurs musiques
+blancs, ils sont vêtus de blanc, les sauts de leurs montures font vibrer toute cette blancheur, leurs musiques
 jouent une marche, toujours la même. Puis le long de
 la voie où sans cesse des jardiniers jettent du sable, des
 bataillons arrivent, pour former la haie: Albanaïs fiers
@@ -2837,8 +2767,7 @@ geste aisé, une minute de galop les met au sommet de
 la pente, et le ministre de la guerre, les vieux généraux,
 les vizirs, les fonctionnaires blanchis sous le harnoïs
 courent à pied äerrière lui, trébuchent, repartent,
-halettent, s'obstinent: fourreaux d'épées, qui s'emmé-
-lent, cliquetis de décorations, spectacle inoubliable qui
+halettent, s'obstinent: fourreaux d'épées, qui s'emmélent, cliquetis de décorations, spectacle inoubliable qui
 dure le temps d'un éclair.
 
 Le hodja. — Tout en haut de Stamboul, par de
@@ -2861,9 +2790,7 @@ qui toujours a l'air d'être en vie?
 
 — Pourquoi faire? répond-il de l'air patient que
 prend un maître avec un enfant qui ne comprend pas.
-Regarde cette cendre, dans le foyer. Allah y est, puis-
-
-qu'il est partout. Je regarde cette cendre...
+Regarde cette cendre, dans le foyer. Allah y est, puisqu'il est partout. Je regarde cette cendre...
 
 Seuls les hommes qui confessent l'islam ont gardé
 cette croyance — que nous avions jadis également,
@@ -2909,8 +2836,7 @@ quand Panurge ressuscila
 Loti, on a partagé avec lui le pilaf et les aubergines
 farcies, mets nationaux, il conte, il conte, avec un air:
 Charmant de fausse ingénuité, de vieux contes orientaux tout pénétrés de malice, tout parfumés de poésie;
-ou bien il laisse couler les trésors de sa vieille expé-
-rience; ou enfin il vous mène chez ses amis les théolo-
+ou bien il laisse couler les trésors de sa vieille expérience; ou enfin il vous mène chez ses amis les théolo-
 : giens de la medressé, les marchands du bazar, les bons
 paresseux philosophes, qui portent leur grand samovar
 près d'une fontaine, sur une pelouse verte, et boivent
@@ -2938,9 +2864,7 @@ qu'il était parfaitement pénétré de la valeur mystique
 
 des rites singuliers auxquels il préside. Je veux bien le
 
-croire; mais alors Allah, dont les desseins sont inson-
-
-dables, a donné à son serviteur une physionomie
+croire; mais alors Allah, dont les desseins sont insondables, a donné à son serviteur une physionomie
 
 — Vous serez un peu étonné, dit-il en m'offrant une
 cigarette, par la plupart des détails de l'office religieux
@@ -2968,9 +2892,7 @@ comprendre. Quand j'eus terminé ma cigarette, il se
 leva d'un aïr fort digne, en ordonnant à un de ses
 moines de nous conduire au lieu où se célébrait l'office.
 
-C'était, au milieu d'une cour ombragée de beaux platanes, rafraîchie d'eaux jaillissantes, un édifice absolu-
-
-ment rond, et à l'intérieur fait absolument comme un
+C'était, au milieu d'une cour ombragée de beaux platanes, rafraîchie d'eaux jaillissantes, un édifice absolument rond, et à l'intérieur fait absolument comme un
 cirque. Au premier étage, des portiques, dessinant des
 sortes de loges où l'on n'admét que les musiciens, les
 
@@ -3002,15 +2924,11 @@ peine pouvoir se traîner; le dernier n'avait pas douze
 ans; son costume, identique aux autres, était toutefois
 d'une propreté, d'une élégance particulières, et ses
 traits me parurent charmants. C'était le fils du cheiïk;
-car les fonctions de cheik des derviches sont hérédi-
-taires. Dans leur mouvement orbiculaire, chaque fois
-que deux derviches arrivaient devant le prieur, ils s'arrêtaient, se faisant face, puis se saluaient profondé-
-ment; et ce tout jeune derviche, qui suivait immédiatement le plus vieux, accomplissait ce cérémonial avec
+car les fonctions de cheik des derviches sont héréditaires. Dans leur mouvement orbiculaire, chaque fois
+que deux derviches arrivaient devant le prieur, ils s'arrêtaient, se faisant face, puis se saluaient profondément; et ce tout jeune derviche, qui suivait immédiatement le plus vieux, accomplissait ce cérémonial avec
 une grâce délicieuse, une aisance de petit prince. En « 112 De
 
-- même temps, au premier étage, un chanteur avait com-
-
-mencé à psalmodier l'histoire sacrée du Prophète, sur
+- même temps, au premier étage, un chanteur avait commencé à psalmodier l'histoire sacrée du Prophète, sur
 un ton d'abord sourd et très bas, puis d'une voix qui
 
 s'élevait par degrés. Une flûte fit entendre des soupirs
@@ -3041,7 +2959,7 @@ la clef de voûte de la coupole. Les autres tournaient
 aussi, mais en décrivant des orbites très lentes autour
 de ce centre à la fois immobile et tourbillonnant; et
 
-;: quand Panurge Me
+quand Panurge Me
 l'on ne pouvait plus penser au monde qu'à ces grandes
 cloches, ces jupes blanches, violettes et vertes, qui
 giraient, giraient, giraient, élargies par le bas. Se
@@ -3056,8 +2974,7 @@ culons, sans regarder derrière lui!:
 
 Quatre fois les derviches se remirent à tourner, toujours plus fort, plus vite, plus longtemps; et quandils -
 s'arrétèrent enfin, aucun n'était essoufilé, leur front
-était sec; le petit danseur seulement, le beau petit ar-
-tiste souriait d'un air fier, naïf et victorieux.
+était sec; le petit danseur seulement, le beau petit artiste souriait d'un air fier, naïf et victorieux.
 
 : La représentation — le mot m'échappe malgré moi
 — était terminée. J'allai remercier le cheik, et quand
@@ -3080,8 +2997,7 @@ journée, je m'inclinai avec déférence.
 
 Les derviches hurleurs. — Les derviches hurleurs, du
 moins à Brousse, ne hurlent pas: ils dansent et ils chantent. Ceux des musulmans qui se piquent de théologie
-— et il y en a beaucoup — parlent d'eux sans sympa-
-thie. Il ne faut pas s'en étonner: des gens qui s'enorgueïllissent de raffiner sur les subtilités de l'exégèse
+— et il y en a beaucoup — parlent d'eux sans sympathie. Il ne faut pas s'en étonner: des gens qui s'enorgueïllissent de raffiner sur les subtilités de l'exégèse
 coranique ne sauraient éprouver qu'un froid mépris
 pour une secte qui ressemble beaucoup à la protestante
 Armée du Salut. Les hurleurs remplacent l'étude des
@@ -3130,19 +3046,13 @@ sorte de double cercle, qui parfois s'élargit, parfois se
 resserre, À des intervalles très courts, la voix des chan-:
 
 teurs se presse et monte; et les fidèles, frappant le sol
-d'un pied sonore, répondent par une espèce de gémis-
-
-sement sombre et terrible, sorti du fond de leur poi-
-
-cercle se resserre. « Hou! hou! hou! » Et ce hurlement
+d'un pied sonore, répondent par une espèce de gémissement sombre et terrible, sorti du fond de leur poicercle se resserre. « Hou! hou! hou! » Et ce hurlement
 
 suit pourtant la ligne de la mélopée, il lui fait une
 
 basse concordante et sauvage. Au milieu de ce cercle,
 
-d'apparence infernale, et qui célèbre la gloire, la toute-
-
-puissance, la victoire éternelle de Dieu l'Unique, le fils
+d'apparence infernale, et qui célèbre la gloire, la toutepuissance, la victoire éternelle de Dieu l'Unique, le fils
 
 du cheïk s'est mis à tourner. Il est plus jeune encore,
 plus joli, plus frèle, plus infatigable que son charmant
@@ -3190,8 +3100,7 @@ Elle n'a pas non plus la noblesse sublime et candide des
 mosquées de marbre du nord de l'Inde, les plus beaux
 édifices, après le Parthénon, qu'ait jamais élevés la
 main des hommes. Son mérite n'est pas de même.
-nature, sa beauté est trop différente pour qu'on la com-
-pare à aucune autre. C'est comme une fleur cachée qu'on
+nature, sa beauté est trop différente pour qu'on la compare à aucune autre. C'est comme une fleur cachée qu'on
 découvre en plongeant la tête dans l'herbe d'une pelouse, et qui enivre.
 Au dehors, celle qu'on nomme la mosquée verte est
 blanche, toute blanche, faite d'un marbre couleur de
@@ -3275,8 +3184,7 @@ toits bruns par milliers mais cachés sous les arbres,:
 platanes vieux de cinq siècles, acacias, müriers. Brousse
 est comme un nid dans les branchages, a dit un poète
 turc. Derrière elle, c'est le grand mont, lOlympe de
-Bithynie, altier, trapu, attirant les nuages comme Pai-
-mant le fer. Des eaux de toutes parts en sourdent eten
+Bithynie, altier, trapu, attirant les nuages comme Paimant le fer. Des eaux de toutes parts en sourdent eten
 descendent; des fontaines, des vasques, des bassins de
 pierre moussue en tous lieux les recueillent; et plus bas,
 aussi loin que les yeux peuvent voir, c'est une plaine
@@ -3415,8 +3323,7 @@ vie y est heureuse, unie, facile. Quelques familles fran- à
 
 - çaises, arrivées il y a près d'un siècle, y ont transformé
 l'antique industrie de la soie. Dans leurs ateliers, les
-jeunes filles du pays, même les Turques voilées, dévi-
-dent les beaux cocons d'argent et d'or, et cette tâche
+jeunes filles du pays, même les Turques voilées, dévident les beaux cocons d'argent et d'or, et cette tâche
 s'accomplit au milieu des rires. Il n'y a pas de pauvyres,
 
 et la corporation des savetiers recueille jusqu'aux cigogues, jusqu'aux vautours mêmes, quand ils sont éclopés. On dirait.qu'il ne faut pas qu'ici personne ait de la
@@ -3428,8 +3335,7 @@ passent d'un toit à l'autre, tamisant le soleil. Les
 
 É aiguières, les chaudrons, les grands plats brillent d'une
 lueur de braise, les chaudronniers tapent, tapent, tapent,
-et ce bruit des marteaux, cette lumière dansante à tra-
-vers les feuilles, cet éclat chaud du métal me remplis
+et ce bruit des marteaux, cette lumière dansante à travers les feuilles, cet éclat chaud du métal me remplis
 
 sent d'une allégresse indéfinissable.
 
@@ -3516,9 +3422,7 @@ ils s'écrièrent: À
 
 — C'est un livre d'histoire!
 
-— C'est un livre d'histoire archéologique, ou d'ar-
-
-chéologie historique, si vous voulez. parle des
+— C'est un livre d'histoire archéologique, ou d'archéologie historique, si vous voulez. parle des
 - Byzantins. Il n'y a plus de Byzantins. En 1453, vous à
 leur avez pris Constantinople, figurez-vous.
 
@@ -3536,8 +3440,7 @@ Un étranger en profita pour calomnier cet Orient que
 
 — Il y a erreur, répondis-je. Je suis sûr quilya
 Quelques jours plus tard, comme je vagabondaisavec
-cet étranger dans les rues de Galata, j'aperçus à l'étalage d'un bouquiniste une édition classique du TZélé-
-maque de Fénelon, annotée par M. l'abbé Auger, « cha-:
+cet étranger dans les rues de Galata, j'aperçus à l'étalage d'un bouquiniste une édition classique du TZélémaque de Fénelon, annotée par M. l'abbé Auger, « cha-:
 noïne titulaire de Poitiers, historiographe du diocèse, à
 correspondant de M. le ministre de l'instruction publi-:
 que ». Je l'achetai pour vingt centimes. Ce modeste
@@ -3576,8 +3479,7 @@ moindre bruit, et se sent tout ému; il est pâle, défait, et les
 noirs soucis sont peints sur son visage toujours ridé. Il se
 tait, il soupire, il tire de son cœur de profonds gémissements, il ne peut cacher les remords qui déchirent ses
 entrailles. Les mets les plus exquis le dégoûtent. Ses
-enfants, loin d'être son espérance, sont le sujet de sa ter-
-reur: il en a fait ses plus dangereux ennemis. Il n'a toute
+enfants, loin d'être son espérance, sont le sujet de sa terreur: il en a fait ses plus dangereux ennemis. Il n'a toute
 sa vie aucun moment d'assuré; il ne se conserve qu'à force
 de répandre le sang de tous ceux qu'il craint, Insensé, qui
 ne voit pas que sa cruauté à laquelle il se confie, le fera
@@ -3599,8 +3501,7 @@ où s'arrête la courte vue des hommes politiques. A-t-on
 jamais pensé aux changements qu'il faudra introduire
 dans notre malheureuse instruction publique, déjà si
 éprouvée par des réformes successives et contraires,
-du moment qu'il n'existe plus de religion d'État? Toute-
-fois je m'en applaudis, étant assuré de gagner beaucoup
+du moment qu'il n'existe plus de religion d'État? Toutefois je m'en applaudis, étant assuré de gagner beaucoup
 d'argent à compiler de nouvelles éditions des classiques.
 . Je viens de dire qu'on allait encore bouleverser nos
 nouvelles méthodes d'instruction publique. Et comment
@@ -3629,9 +3530,7 @@ jeunes imaginations, la lecture pernicieuse des bons auteurs. Les bureaux du min
 devant cette tâche. Résolu à les aider de tout mon
 pouvoir, j'ai porté d'abord mon attention sur le Cid de
 
-L'immoralité flagrante du Cid ne peut malheureuse-
-
-ment faire de doute pour personne. Il est d'abord trop « évident que c'est une pièce militariste, empreinte du
+L'immoralité flagrante du Cid ne peut malheureusement faire de doute pour personne. Il est d'abord trop « évident que c'est une pièce militariste, empreinte du
 plus répugnant esprit de combativité. On y consacre:
 des tirades entières à faire l'éloge du métier des armes,
 on y parle de se rendre sans égal dans la carrière de:
@@ -3668,16 +3567,14 @@ doute: elle a regretté don Sanche, chevalier courtois et
 
 - galant, et n'a souffrir sans révolte les grossiers éclats
 
-du Cid, ce soudard dont les premières paroles, dès l'ou-
-verture de la tragédie de Corneille, sont pour menacer
+du Cid, ce soudard dont les premières paroles, dès l'ouverture de la tragédie de Corneille, sont pour menacer
 è l'auteur de ses jours. Aux grossièretés inévitables d'un
 mari sans éducation, cette femme violente ne peut donc
 faillir à répliquer: « Je ne pourrai jamais oublier que
 . vous avez tué mon père: vous avez toujours manqué
 ._ de tact! » Ajoutez à cela que la présence de ce pèreau.
 ; contrat aurait été bien nécessaire: Rodrigue a profiter de la terreur causée par son crime pour se faïre
-avantager. Enfin, comment Chimène pourrait-elle souf-
-frir la présence de don Diègue? Car ce don Diègue, qui
+avantager. Enfin, comment Chimène pourrait-elle souffrir la présence de don Diègue? Car ce don Diègue, qui
 est cause de tout, est par dessus le marché un vieillard
 sempiternel, cacochyme, et bavard effroyablement, Et
 Chimène n'a pas de patience. Elle a montré, pendant
@@ -3718,8 +3615,7 @@ Je persiste à soutenir qu'un tel examen: logique,
 
 concis, lucide, persuasif, enfin semblable en tout à
 celui.qu'on vient de lire, de toutes les tragédies au
-point de vue des conséquences antisociales qu'en-
-traîne leur dénouement, est indispensable si l'on veut
+point de vue des conséquences antisociales qu'entraîne leur dénouement, est indispensable si l'on veut
 conserver de bonnes mœurs à notre jeunesse républi-;
 
 un moraliste surfait
@@ -3738,6 +3634,5 @@ bien connu, On célèbre la sagesse de sa morale. Cette
 morale est invraisemblable et absurde. Le chêne porte
 la tête au ciel et les pieds jusque dans l'empire des
 morts. Mais vienne un coup de vent, il sera déraciné.
-Tandis que le roseau, dont il avait raillé la fragile sou-
-plesse, s'est empressé de plier et n'a pas rompu. Ce À
+Tandis que le roseau, dont il avait raillé la fragile souplesse, s'est empressé de plier et n'a pas rompu. Ce À
 chêne représente les grands de la terre, qui sont

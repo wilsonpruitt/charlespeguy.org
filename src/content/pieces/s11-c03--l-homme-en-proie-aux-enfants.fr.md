@@ -52,8 +52,7 @@ Ces nuages parcouraient ces pensées sur la face
 
 Au jeu de la Tombe
 
-— M'sieu, hurle Maurice qui se débat parmi ses cama-
-rades de deuxième année, plus forts que lui, ils veulent
+— M'sieu, hurle Maurice qui se débat parmi ses camarades de deuxième année, plus forts que lui, ils veulent
 me mettre dans la tombe!
 — Qu'est-ce que c'est encore? me dis-je.
 J'y vais voir. A pleines mains, à pleins tabliers, ils
@@ -66,8 +65,7 @@ disparaisse, d'innombrables autres feuilles. Et tandis
 que l'enseveli résiste, se convulse, se relève, échappe,
 ils plantent dans l'air:
 — Dans la tombe! dans la tombe!
-Je les regarde un moment, sans pénétrer leur con-
-fuse notion rêvée de la vie; j'écoute la voix de la
+Je les regarde un moment, sans pénétrer leur confuse notion rêvée de la vie; j'écoute la voix de la
 — Laissez-moi ces feuilles tranquilles. Elles sont
 humides, vous allez vous enrhumer.
 
@@ -77,8 +75,7 @@ enfance, à charpenter de petits cercueils de bois;
 comment il y enfermait des soldats de plomb et les
 abandonnait à la fosse; comment, au fond d'un vaste
 jardin triste où depuis quelque temps on l'exilait, il
-jouait encore à ce funèbre jeu lorsqu'on vint lui annon-
-cer la mort de son père...
+jouait encore à ce funèbre jeu lorsqu'on vint lui annoncer la mort de son père...
 Mes enfants dans leur coin, ne m'apercevant plus,
 à petit » qu'ils recouvrent ensuite, jusqu'à ce qu'il
 Au prix d'une grippe, je veux favoriser en eux le
@@ -91,17 +88,14 @@ Par la poterne
 La cloche sonne, ils s'échappent; et tout de suite tons
 de vociférer:
 a seulement, sur la gauche des classes et devant elles,
-deux portes de fer qui ouvrent, l'une sur quelque che-
-min, l'autre sur le préau réel. Et c'est à droite que
+deux portes de fer qui ouvrent, l'une sur quelque chemin, l'autre sur le préau réel. Et c'est à droite que
 se précipitent ces guerriers hurlants, et sons les beaux
 tilleuls qu'ils se bousculent.
 Je les observe. A tête glapit René, le littérateur, le
-miné par une lecture trop assidue de livres trop sco-
-laires. Il brandit un éclat de bois, duquel il feint de
+miné par une lecture trop assidue de livres trop scolaires. Il brandit un éclat de bois, duquel il feint de
 poignarder une multitude d'ennemis qui l'assaillent:
 Jean et son frère Maurice; les deux Robert, l'un si franc,
-d'une si charmante paresse, l'autre hypocrite et malfai-
-sant; les deux Pierre, le bleu et le rouge; un hargneux
+d'une si charmante paresse, l'autre hypocrite et malfaisant; les deux Pierre, le bleu et le rouge; un hargneux
 Alfred... Il succomber sous le nombre: Maurice alors
 se range brusquement de son parti. Par cette manœuvre,
 renouvelée de ceux des Saxons à Leipzig, il apporte
@@ -120,26 +114,20 @@ on prépare la poix bouillante... Mais un traite leur a
 livré le passage secret. Alors...
 Il rebrandit sa dague et s'égosille:
 Et il se sauve, fier de mélanger ainsi des bribes
-d'histoire enseignée à des bribes de roman-feuilleton, l'imagi-
-nation pareille à un jambon sous cette pauvre chape-
-lure. Il rit: l'école est pour lui un castel authentique,
+d'histoire enseignée à des bribes de roman-feuilleton, l'imagination pareille à un jambon sous cette pauvre chapelure. Il rit: l'école est pour lui un castel authentique,
 les ennemis grouillent là-bas à l'investir, et tout serait
 perdu si ne s'ouvrait quelque part... une poterne sous des
-pavés, entre les racines de cet arbre, — un trou sou-
-terrain, une poterne mystérieuse.
+pavés, entre les racines de cet arbre, — un trou souterrain, une poterne mystérieuse.
 Je suis certain qu'il déforme d'une manière analogue
-les leçons de morale que je lui fais à mon esprit défen-
-dant; et je ne m'étonnerai guère à l'entendre un jour
-parler, comme on sait bien que mystiques, des Châ-
-teaux du Peuple et des Altitudes sublimes de la
+les leçons de morale que je lui fais à mon esprit défendant; et je ne m'étonnerai guère à l'entendre un jour
+parler, comme on sait bien que mystiques, des Châteaux du Peuple et des Altitudes sublimes de la
 S'éventé, il rentre au cou de la cloche, son grand
 poignard de bois à demi sorti de sa poche. — Quelle
 précision mathématique M. Fernand, mon collègue, pro-
 
 l'homme en proie aux enfants
 
-fesseur de sciences, pourra-t-il verser dans cette mé-
-moire pleine de manoirs et d'embuscades? A peu près
+fesseur de sciences, pourra-t-il verser dans cette mémoire pleine de manoirs et d'embuscades? A peu près
 celle que mirent dans la mienne, encombrée des visions
 puériles de la gloire, ces maîtres dévoués que je désesperai.
 Et tandis que je commence à mon tour une nouvelle
@@ -155,15 +143,13 @@ Je disais à l'Inspecteur:
 — Il ne faut pas juger la discipline de ma classe sur
 le bruit qu'on peut entendre en passant devant sa porte.
 J'interroge continuellement: les enfants trouvent la
-leçon, je ne la dicte pas. Il arrive qu'ils répondent plu-
-sieurs à la fois, et en désordre. Mais je préfère cela:
+leçon, je ne la dicte pas. Il arrive qu'ils répondent plusieurs à la fois, et en désordre. Mais je préfère cela:
 s'ils se taisent, j'ai peur qu'ils ne dorment. Je ne veux
 pas que la classe soit un tombeau.
 — Je suis bien de votre avis. C'est à cette abondance
 des questions et des réponses qu'on reconnaît la vie
 d'une classe: voilà la vraie méthode de l'enseignement
-primaire. Chaque élève travaille, demande des éclair-
-cissements, dit sa pensée. Une école est une ruche: il
+primaire. Chaque élève travaille, demande des éclaircissements, dit sa pensée. Une école est une ruche: il
 faut bien que son activité bourdonne.
 Pourtant, — plus tombeau que ruche.
 Lorsqu'échappant pour une minute à l'automatisme
@@ -178,8 +164,7 @@ Assis pour écouter, debout pour réciter, raides, ces
 figures hideuses des jeux de massacre. Une attention
 équivoque affermissait leurs traits: un nez rouge, de
 lourdes paupières où jamais n'éclosaient les prunelles,
-des chevelures inégales, l'éclat blanc de la lèvre gli-
-nâtre des joues. Un tablier noir faisait un juge; une
+des chevelures inégales, l'éclat blanc de la lèvre glinâtre des joues. Un tablier noir faisait un juge; une
 veste de velours, un pataud; une cravate feu, un palet
 vert, des manches de lustrine, un polichinelle; un col
 neigeux sous un cheveur souriré, la mariée.
@@ -188,22 +173,18 @@ Ils se précipitaient tous en avant pour l'écrire. Parfois,
 je punissais quelqu'un. Un sou la boule! grognant, il
 L'heure passée, je voyais entouré de morts. Ces
 tables me rappelaient jusqu'à l'obsession les planches
-affreuses d'un ossuaire avidement contemplé à Salz-
-bourg: blancs dans l'ombre du bois poli et des cheve-
-lures se rangeaient les tristes crânes: le front nu, les
+affreuses d'un ossuaire avidement contemplé à Salzbourg: blancs dans l'ombre du bois poli et des chevelures se rangeaient les tristes crânes: le front nu, les
 yeux retournés dans les spectacles lugubres de l'agonie,
 le nez pareil à une sombre feuille de trèfle, un sourire
 déchaussé et ruineux dans les dents... Le vertige me
 saisissait à pérorer devant ces faces cadavéreuses.
 La cloche sonnait. Comme ils se moquaient de mes
 regards divergents et de mon visible rêve! Je sentais
-sur toute l'étendue de ma personne l'impitoyable, la salu-
-taire oppression de leur vie.
+sur toute l'étendue de ma personne l'impitoyable, la salutaire oppression de leur vie.
 
 Henri s'excite. Petit macaque à la face osseuse, aux
 joues de papier rosâtre et de son, aux yeux tournants
-d'écureuil, et dont la physionomie promet une intelli-
-gence que ne tient pas la parole, il lit le Journal des
+d'écureuil, et dont la physionomie promet une intelligence que ne tient pas la parole, il lit le Journal des
 Voyages, le Globe-Trotter, et ces feuilles dont les titres
 déclarent l'obséquieuse ineptie: Mon Bonheur, Nos
 Loisirs, Lisez-moi, Mon beau Livre, Mon Dimanche,
@@ -224,14 +205,12 @@ réunis chez le notaire. De ces trois hommes, nous en
 
 l'homme en proie aux enfants
 
-connaissons deux: l'un est le milliardaire, l'autre l'in-
-génieur, le troisième nous est inconnu.
+connaissons deux: l'un est le milliardaire, l'autre l'ingénieur, le troisième nous est inconnu.
 « — Ainsi, monsieur, disait le notaire à John Curtiss,
 vous voulez acheter un terrain appartenant à l'État,
 situé à quelques kilomètres de Pittsburg? — Oui,
 répondit ce dernier. — Et combien en donnez-vous?
-réplique l'individu inconnu. — 700.000, hurla l'Améri-
-cain. — Un million, moâ! et têné, voilà; le terrain
+réplique l'individu inconnu. — 700.000, hurla l'Américain. — Un million, moâ! et têné, voilà; le terrain
 maintenant il était à moâ.
 « Lui, sortit une liasse de billets de banque
 sur la table, il s'éloigna le plus vivement possible;
@@ -260,12 +239,10 @@ Je les mène à l'oasis. Je leur lis un chapitre des
 Misérables, celui que Victor Hugo a intitulé Formes
 que prend la souffrance pendant le sommeil, et où il
 raconte le rêve fait par Jean Valjean avant de se
-résoudre à se dénoncer pour Champmathieu. Je le cite-
-rai avec plaisir. Je serai sûr ainsi qu'on ne me feuilletera
+résoudre à se dénoncer pour Champmathieu. Je le citerai avec plaisir. Je serai sûr ainsi qu'on ne me feuilletera
 pas mon livre sans y rencontrer une fois la beauté. Et
 ce poème poignant pour peut-être pas très connu,
-puisque nos critiques littéraires ont laissé à un philoso-
-phe, à Renouvier, le soin d'en faire l'éloge.
+puisque nos critiques littéraires ont laissé à un philosophe, à Renouvier, le soin d'en faire l'éloge.
 Je lus donc ceci du mieux que je pus:
 
 « J'étais dans une campagne; une grande campagne
@@ -278,16 +255,13 @@ l'homme en proie aux enfants
 années d'enfance, ce frère auquel je dois dire que je ne
 pense jamais et dont je ne me souviens presque plus.
 « Nous causions, et nous rencontrions des passants.
-Nous parlions d'une voisine que nous avions eue autre-
-fois, et qui, depuis qu'elle demeurait sur la rue, travail-
-lait toujours la fenêtre ouverte. Tout en causant, nous
+Nous parlions d'une voisine que nous avions eue autrefois, et qui, depuis qu'elle demeurait sur la rue, travaillait toujours la fenêtre ouverte. Tout en causant, nous
 avions froid à cause de cette fenêtre ouverte.
 « Il n'y avait pas d'arbres dans la campagne.
 « Nous vîmes un homme qui passa près de nous.
 C'était un homme tout couleur de cendre monté sur
 un cheval couleur de terre... »
-Ici, Thomas, le brutal, aux traits inachevés d'hydro-
-céphale, éclata grossièrement de rire. Je le punis avec
+Ici, Thomas, le brutal, aux traits inachevés d'hydrocéphale, éclata grossièrement de rire. Je le punis avec
 colère et tristesse, je continuais:
 «... L'homme n'avait pas de cheveux; on voyait son
 crâne, et des veines sur son crâne. Il tenait à la main
@@ -326,14 +300,11 @@ suis-je? — L'homme ne répondit pas. »
 
 C'était trop. Il y eut une nouvelle insurrection. Les
 — Ce que c'est bête! disait Marc.
-— Qu'est-ce qu'i faisaient, ces bonshommes? deman-
-dait Léon. Pourquoi qu'ne répondaient pas?
-— On n'y comprend rien, murmurait le second Mar-
-cel en s'arquillant ses yeux clairs.
+— Qu'est-ce qu'i faisaient, ces bonshommes? demandait Léon. Pourquoi qu'ne répondaient pas?
+— On n'y comprend rien, murmurait le second Marcel en s'arquillant ses yeux clairs.
 Mais les autres, remuant leurs grosses mâchoires,
 étouffant dans leurs gros poings, Thomas la brute et
-Marcel le discuteur, Georges, Paul le paria et Théodo-
-dore, tous! — m'ont la cruauté impudemment de
+Marcel le discuteur, Georges, Paul le paria et Théododore, tous! — m'ont la cruauté impudemment de
 — Vous êtes bien intelligents! m'écriai-je. Pourquoi
 ne pas chercher le sens de ces visions? Vous ne devinez
 
@@ -366,8 +337,7 @@ cette foule me rejoignit et m'entoura. Les visages de
 ces hommes étaient couleur de terre.
 « Alors le premier que j'avais et questionné en
 entrant dans la ville me dit: — Où allez-vous? Est-ce
-que vous ne savez pas que vous êtes mort depuis long-
-temps?
+que vous ne savez pas que vous êtes mort depuis longtemps?
 « J'ouvris la bouche pour répondre et je m'aperçus
 qu'il n'y avait personne autour de moi. »
 
@@ -377,8 +347,7 @@ commentaire. Mais moi, je n'échappai pas au leur.
 A peine étaient-ils dehors que le Marcel aux yeux
 d'eau verte, cet ingénieux pitre, sautant sur le vaste dos
 de Thomas, se mettait à crier: — C'était un homme
-tout couleur de cendre... — Et aussitôt Marc se rai-
-dissait contre le tronc d'un tilleul, pour opposer le plus
+tout couleur de cendre... — Et aussitôt Marc se raidissait contre le tronc d'un tilleul, pour opposer le plus
 farouche silence à Léon et au deuxième Marcel qui
 l'interrogeaient: — A qui est ce jardin? Où suis-je? —
 Et tous pleuraient de rire.
@@ -395,8 +364,7 @@ mieux les morceaux sont choisis, plus le recueil est
 savez pas lire.
 — Oh, m'sieu, répond-il, ce sont de si belles maximes!
 Voulez-vous que je vous en récite?
-Un sourire violet halafre ses traits jaunes. Il se tor-
-tille des cheveux aux orteils, il se penche, il agite à
+Un sourire violet halafre ses traits jaunes. Il se tortille des cheveux aux orteils, il se penche, il agite à
 droite et à gauche ses pattoches griffues qui semblent
 palmées, il fait à la révérence; — et déjà il déclame:
 — « L'homme n'est qu'un roseau, le plus faible de la
@@ -409,9 +377,7 @@ Il ne peut s'arrêter:
 vous donnerai vingt fables de La Fontaine à copier à la
 prochaine occasion. Vous deviendrez idiot avant l'âge
 si vous continuez à vous bourrer de choses où vous
-Il se tait, salue, recule; puis, au moment de s'éloi-
-gner, avec un sourire irritant et humble qu'il croit sub-
-til, il me décoche sa flèche:
+Il se tait, salue, recule; puis, au moment de s'éloigner, avec un sourire irritant et humble qu'il croit subtil, il me décoche sa flèche:
 « Le temps et la mort sont nos remèdes. »
 Je frémis. Je hais une seconde ce galopin. Cette
 phrase amère de Rousseau, je l'ai lue pour la première
@@ -426,9 +392,7 @@ doublement sainte, quand je la pense, — qui donc
 
 La grâce était rare parmi ces enfants. Ils touchaient
 déjà l'âge où le teint se fripe, où la voix raucit, où les
-yeux se cernent vilainement, — cette adolescence lar-
-vaire qui afflige le regard. Pourtant quelques-uns mon-
-traient de franches prunelles claires, des sourires vifs et
+yeux se cernent vilainement, — cette adolescence larvaire qui afflige le regard. Pourtant quelques-uns montraient de franches prunelles claires, des sourires vifs et
 rouges; et Robert ressemblait à ma sœur Jeanne.
 Robert ressemblait à Jeanne. En somme, plutôt par
 la tolérance de mon souvenir que selon la réalité des
@@ -444,8 +408,7 @@ d'un conseil sans doute plus instant, d'un coup
 d'œil ignoré de moi-même, pour la comprendre, pour
 Il y avait alors deux « années il n'y en eut trois que
 plus tard. Quatre professeurs nous secondant pour y
-donner ce que la politesse officielle appelle les enseigne-
-tique, modelage, il arrivait que M. Fernand ou moi
+donner ce que la politesse officielle appelle les enseignetique, modelage, il arrivait que M. Fernand ou moi
 passions un après-midi sans rapatre à l'une ou à l'autre.
 Un matin où je quittais la première, Robert leva vers
 moi son front couvert de cheveux parallèles, et il
@@ -454,15 +417,13 @@ moi son front couvert de cheveux parallèles, et il
 Car la préférence est une injustice; et doublement dès
 qu'elle a été aperçue. Mais j'étais ravi d'une joie à
 laquelle je m'abandonnais tont en la sachant puérile.
-J'espérais encore pouvoir être heureux sans l'acquies-
-cement d'une conscience clairvoyante et rogue. Et je
+J'espérais encore pouvoir être heureux sans l'acquiescement d'une conscience clairvoyante et rogue. Et je
 me disais avec amitié entière:
 — Enfin, ils commencent à m'aimer: nous allons donc
 
 ... Aimer, Vivre: est-ce René qui parle? En style plus
 nu, c'est été remplacer par un mélange de sentiments
-entre eux et moi la distribution de notions qu'on m'or-
-donnait de faire à ces enfants.
+entre eux et moi la distribution de notions qu'on m'ordonnait de faire à ces enfants.
 Si l'Inspecteur avait que telle était l'intention de
 mon instinct, il aurait plus souvent visité ma ruche.
 Mais il l'ignorait; je ne réjouissais en liberté de voir
@@ -472,8 +433,7 @@ l'homme en proie aux enfants
 
 René me paraissait intelligent parce que sa bêtise
 était savante. Moral et mélancolique, il inscrivait en
-gribouillages particulièrement malpropres la phonogra-
-phie d'une petite âme qu'avaient trop tôt assemblée
+gribouillages particulièrement malpropres la phonographie d'une petite âme qu'avaient trop tôt assemblée
 les voix, mutilées dans les anthologies, craillées dans
 les feuilletons, de Rousseau, de Hugo et de Lamartine.
 Sa prétention de plagiaire naïf m'amusa longtemps. Je
@@ -482,41 +442,30 @@ me souvenais de ma jeunesse. Peut-on passer, sans faire
 enseigné par le milieu au style élégant et abstrait que
 les manuels recommandent? Toute l'éducation étant
 (je le supposais), destruction du premier naturel, et
-inévitable qu'elle éveille le second d'abord dans l'affec-
-terie. Aussi mettais-je de l'indulgence à critiquer René,
+inévitable qu'elle éveille le second d'abord dans l'affecterie. Aussi mettais-je de l'indulgence à critiquer René,
 une tendresse rudoyante qu'il flattait et qu'il s'arrangeait
 toujours pour reprovoquer.
 — Vous écrivez comme un journaliste, répétais-je,
 c'est insupportable!
-— M'sieu, je ne puis pas m'exprimer autrement, gémis-
-sait-il entre ses mains jaunes.
+— M'sieu, je ne puis pas m'exprimer autrement, gémissait-il entre ses mains jaunes.
 Sincérité menteuse d'une conscience illusoire! A treize
 ans, je ne voulais bien reconnaître d'autorité littéraire
 qu'à Paul Féval et à Victor Hugo! — Avec moins de
-scrupules, je reprochais à René les zéros qu'il ne ces-
-sait de mériter en mathématiques.
+scrupules, je reprochais à René les zéros qu'il ne cessait de mériter en mathématiques.
 — Vous devez bien savoir ce que sont les lettres ou les
 sciences à votre âge! D'ailleurs, que vous nous disiez,
-ce qui est, des lettres ou des sciences, ce sont des rensei-
-gnements indispensables pour n'importe quel métier ou
+ce qui est, des lettres ou des sciences, ce sont des renseignements indispensables pour n'importe quel métier ou
 
 des exercices qui vous habitueront à réfléchir. Vous
-n'avez donc pas le droit de choisir. (Moi, qui ai si inso-
-lemment choisi, j'osais le lui défendre! — peut-être ai-
-qu'il se révoltait mieux?...) Il faut travailler autant
+n'avez donc pas le droit de choisir. (Moi, qui ai si insolemment choisi, j'osais le lui défendre! — peut-être aiqu'il se révoltait mieux?...) Il faut travailler autant
 pour M. Fernand que pour moi.
-— Mais, m'sieu, s'excusait-il avec sa volubilité obsé-
-quieuse et gesticulante, je travaille davantage pour
+— Mais, m'sieu, s'excusait-il avec sa volubilité obséquieuse et gesticulante, je travaille davantage pour
 M. Fernand que pour vous. Je lis trois fois mes leçons
-de géométrie et je ne peux pas les savoir. Je n'y com-
-prends rien: ce n'est pas beau, c'est aride. L'arithmé-
-tique, c'est mon cauchemar: afin m'horripile, elle me
+de géométrie et je ne peux pas les savoir. Je n'y comprends rien: ce n'est pas beau, c'est aride. L'arithmétique, c'est mon cauchemar: afin m'horripile, elle me
 fera mourir! Mais l'histoire, la géographie, la récitation,
 les rédactions, ah! j'aime tout ça, j'aime tout ce que
 vous faites!
-Il souriait doucement, humblement. Voulait-il con-
-fondre ce qu'on lui enseignait avec celui qui l'ensei-
-gnait? Je le crus. Les notions se subordonnaient enfin
+Il souriait doucement, humblement. Voulait-il confondre ce qu'on lui enseignait avec celui qui l'enseignait? Je le crus. Les notions se subordonnaient enfin
 Avec un bonheur qu'on ne peut exprimer, parce qu'il
 n'est analogue à rien, je devinais sa chétive pensée
 approcher affectueusement de ma pensée. Egoïsme?
@@ -583,11 +532,9 @@ pourtant je ne croyais pas en avoir découvert dans ces
 
 — A Saint-Cloud, dis-je...
 Les voilà souriant. J'exagère exprès alors:
-—... mes maîtres me l'ont assez reproché, ma décla-
-mation. Je dois bien savoir ce que c'est.
+—... mes maîtres me l'ont assez reproché, ma déclamation. Je dois bien savoir ce que c'est.
 Cette phrase m'attriste. Je les haïssais alors, ces
-deux vieillards; je méprisais leur étroitesse et leur dog-
-matisme. Et maintenant, parce que c'est bien sincèrement que
+deux vieillards; je méprisais leur étroitesse et leur dogmatisme. Et maintenant, parce que c'est bien sincèrement que
 j'avoue qu'ils me tourmentaient pour mon progrès?
 Et ces gosses rient!
 A la sortie, Marcel, le discuteur, me regardant de ses
@@ -604,11 +551,9 @@ vrai, on s'est trompé. D'ailleurs (une pudeur me vient),
 n'a pas d'importance.
 Et je le renvoie jouer avec ses camarades.
 Huit jours passent, et j'aperçois la fleur de cette
-graine niaisement jetée. Henri geint parce que j'ai cri-
-tiqué un peu durement la poésie journalistique d'un
+graine niaisement jetée. Henri geint parce que j'ai critiqué un peu durement la poésie journalistique d'un
 de ses devoirs. Je ne reprends aussitôt de ses larmes:
-— Voyons, pas tant de chagrin! Vous ferez des pro-
-grès. J'écrivais plus mal que vous à votre âge.
+— Voyons, pas tant de chagrin! Vous ferez des progrès. J'écrivais plus mal que vous à votre âge.
 Ils sourient presque tous.
 — Ah oui, à Saint-Cloud, nasille Marcel, le discuteur.
 — Oui, mais vous, vous êtes intelligent!
@@ -645,8 +590,7 @@ suffisance aussi? Faudra-t-il à notre propos toujours
 nous taire, feindre de n'exister pas pour nous?
 Et pourquoi est-ce aux enfants à nous donner cette
 leçon défensive? Ils paraissent détester la franchise.
-Dès qu'il la surprennent, ils rient. Ils n'ont si expé-
-rience, ni science; ils ignorent leurs dispositions secrètes,
+Dès qu'il la surprennent, ils rient. Ils n'ont si expérience, ni science; ils ignorent leurs dispositions secrètes,
 — dans tous ceux qui leur en laissent voir, ils s'en
 gaussent aussi cruellement aux des difformités ou de
 l'impudeur.
@@ -672,8 +616,7 @@ phrase, réciter un vers, prononcer un mot allemand,
 souffrait le martyre: ses yeux s'agrandissaient sous
 vingt clignements, ses pommettes tremblaient, et autour
 de ses lèvres battues par sa langue immaîtrisable, une
-sorte de toile d'araignée se tissait avec des rides cren-
-sées et des tendons tordus. Enfin, le misérable mot
+sorte de toile d'araignée se tissait avec des rides crensées et des tendons tordus. Enfin, le misérable mot
 jaillissait, inexact; et je le faisais répéter.
 Les camarades pouffaient. Je sévis au premier jour,
 — encore que peinant, moi-même, il me fallait monter
@@ -693,16 +636,12 @@ De l'un, Albert, solide, violent, indiscipliné en classe
 et d'ailleurs intelligent, presque amoureux de logique
 et de morale, les camarades n'osaient trop se railler
 quoique ils le vissent mal habitué, ni ciré ni peigné, se
-balancer sur le bord de l'estrade au fond d'un pan-
-talon trop long et trop large: il était fait goûter ses
+balancer sur le bord de l'estrade au fond d'un pantalon trop long et trop large: il était fait goûter ses
 poings, dans la cour, au premier qui rit de lui.
-Mais l'autre, le plus âgé des Louis, maigre, souffre-
-teux, si gauche qu'il semblait avoir un squelette en
+Mais l'autre, le plus âgé des Louis, maigre, souffreteux, si gauche qu'il semblait avoir un squelette en
 spirale, rageur et injurieux pour comble, ne pouvait
-avancer sans soulever un murmure. Ses vieux vête-
-ments et sa vieille culotte sans couture étaient toujours
-sans cravate; ses chaussures dont les boutons se déta-
-chaient, bâillaient sur ses bas troués. Récitant, il
+avancer sans soulever un murmure. Ses vieux vêtements et sa vieille culotte sans couture étaient toujours
+sans cravate; ses chaussures dont les boutons se détachaient, bâillaient sur ses bas troués. Récitant, il
 entendait à deux mètres de lui ses voisins dire:
 — Oh, ce qu'il est sale! — m'arrange même pas ses
 souyers! — Et déchiré partout!
@@ -718,26 +657,21 @@ qu'ils croient soit aux frappante: c'est-à-dire, pensons
 les hommes, quand nous devrions nous exercer à mettre
 à ne la pas remarquer. C'est jusqu'au fond vraiment
 que les enfants nous sont incompréhensibles: ils sont
-Paul s'éveilla un matin la face couverte d'une érup-
-
-tion jaunâtre et rougeâtre, presque horrible à voir.
+Paul s'éveilla un matin la face couverte d'une éruption jaunâtre et rougeâtre, presque horrible à voir.
 Autour des lèvres spécialement, elle s'épaississait en un
 magma de boutons saniaux, de pus et de fécule blanche
 que nul œil ne pouvait supporter. Il était difficile de
-bien disposer le bandage: très vite il retombait, dénu-
-dant cette bouche d'humeur et de sang. Le jeune garçon
+bien disposer le bandage: très vite il retombait, dénudant cette bouche d'humeur et de sang. Le jeune garçon
 en souffrait vivement et se détestait lui-même: mais
 ses camarades le traitèrent avec férocité.
 Il subissait la réputation d'un taquin et d'un cafard.
 Je crois que personne ne l'aimait. A M. Fernand comme
-à moi, il était antipathique par sa prétention, sa nervo-
-sité, ses singeries et sa longue figure creuse de pantin.
+à moi, il était antipathique par sa prétention, sa nervosité, ses singeries et sa longue figure creuse de pantin.
 Ses confiscléplies le savaient et ne le ménageaient pas:
 malgré nos efforts, ils réussirent, tant qu'il eut mal, à
 l'exiler dans un coin de la classe, à le bannir des jeux
 et même du travail, en feignant de vomir des qu'il
-ouvrait sa malheureuse bouche. Et, tandis qu'ils don-
-naient à ses pustules un nom plus malsonnant encore,
+ouvrait sa malheureuse bouche. Et, tandis qu'ils donnaient à ses pustules un nom plus malsonnant encore,
 ils ne lui épargnaient aucune injure, — ni galeux, ni
 lépreux, ni pestiféré...
 Enfant, j'ai qu'en des instants pareils sa une
@@ -746,8 +680,7 @@ monde; qu'elle se décide à haïr, — qu'elle pourrit.
 Homme, maître, je vois qu'on ne peut ni prévenir ni
 effacer l'action de ces minutes farouches. Si haut qu'à
 l'école nous élevions notre mer d'huile, et qu'à la
-plus forte marée l'attelage toujours, inévitable, et le franchis-
-sant, elle submerge d'écume les pauvres petites âmes.
+plus forte marée l'attelage toujours, inévitable, et le franchissant, elle submerge d'écume les pauvres petites âmes.
 Nous souhaitions un peu de pitié pour elles. Mais
 nous, cette tendresse, on nous interdit de la témoigner;
 et les enfants, ils la méprisent.
@@ -774,26 +707,22 @@ l'Intelligence des Signes. Aussi vite que l'étincelle le
 coup de briquet, un déclanchement verbal suivait dans
 l'esprit de Charles, irrésistible comme un écho, l'arrivée
 d'une certaine formule selon une certaine vibration.
-Nulle compréhension; un mouvement approprié. Répli-
-quer juste était pour lui le même geste instinctif et vain
+Nulle compréhension; un mouvement approprié. Répliquer juste était pour lui le même geste instinctif et vain
 qu'attraper une mouche. Mais je ne m'en doutais pas,
 et je le tenais pour un bon élève parce qu'il satisfaisait
-mes questions au moyen des mots qu'on me les prépa-
-raient un ma langue.
+mes questions au moyen des mots qu'on me les préparaient un ma langue.
 La préférence est une injustice; je favorisai Charles
 d'une justice plus stricte. Conseils plus nombreux,
 reproches plus fermes, encouragements tout composés
 d'exigences, il se fut sans doute volontiers libéré de les
 assurances d'estime dont René et Robert avaient souri;
 mais comment aimer autrement?
-Un matin, ses camarades entrant en classe s'occu-
-paient d'accrocher dans un coin leurs capuchons et
+Un matin, ses camarades entrant en classe s'occupaient d'accrocher dans un coin leurs capuchons et
 leurs casquettes. Il accompagnait les derniers et les
 guignait de l'œil. Se jetant sur la porte qu'un
 rictus malin, il la poussa si fort contre le mur qu'elle
 faillait assommer Paul et Gabriel. Et lui se mit à
-Il était vêtu de désagréable bleu clair, la mine astu-
-cieuse et les traits hypocrites. — Je l'eusse giflé avec
+Il était vêtu de désagréable bleu clair, la mine astucieuse et les traits hypocrites. — Je l'eusse giflé avec
 délices. Le le consignai, il geignit, ma colère ne fit que
 croître; je lui criai de sortir.
 Hors de la classe, hors de mon cœur. Je compris tout
@@ -805,8 +734,7 @@ l'homme en proie aux enfants
 
 qu'ils eussent l'air de chiffrer des idées. Et moi, pauvre
 Toujours depuis je lui fus dur et souvent injurieux.
-J'évaluai enfin juste l'inanité de ses discours redon-
-dants, le mensonge des abstractions dont il me ravissait
+J'évaluai enfin juste l'inanité de ses discours redondants, le mensonge des abstractions dont il me ravissait
 jadis, et qu'il m'enseignait à haïr en moi. A la moindre
 phrase de lui, je me sentais l'esprit raidir, et ma voix
 la plus libre me disait:
@@ -823,17 +751,14 @@ grimaces, le polichinelle. Ils se moquent de lui, ils le
 bousculent; ils le frappent sans doute: aurait-il appris
 sans cela ce geste pénible qu'il — la tête enfoncée
 entre les épaules sur un cou compressible, les mains
-élevées pour parer la gifle? Personne, parmi ses cama-
-rades, ne semble s'apercevoir la vérité, moi, j'age, je
+élevées pour parer la gifle? Personne, parmi ses camarades, ne semble s'apercevoir la vérité, moi, j'age, je
 ne l'ai jamais dit; mais eux, témoins, comment ne le
-soupçonnent-ils pas que ce Marcel est le plus intelli-
-gent d'entre eux, celui qui le premier saisit les idées,
+soupçonnent-ils pas que ce Marcel est le plus intelligent d'entre eux, celui qui le premier saisit les idées,
 celui qui le premier discerne sa moindre point de moindre
 résistance et les y attaque. Tout le bouffon:
 son courageux et loyal esprit ne lui attire point la ten-
 J'en suis irrité. Je ne puis être son ami: ce serait
-illégal et il se moquerait de moi; mais ne lui obtien-
-drai-je pas l'estime?
+illégal et il se moquerait de moi; mais ne lui obtiendrai-je pas l'estime?
 
 l'homme en proie aux enfants
 
@@ -843,8 +768,7 @@ Robert. Car il n'est pas spécialement intelligent. Avec
 son teint de poupée, avec le léger sourire étroit de ses
 lèvres, qui paraissent peintes plus que vivantes, avec
 ses cheveux fins sur son front, n'importe quelle mère,
-j'imagine, n'importe quel frère ainé désireraient l'em-
-brasser. Ses camarades n'en remarquent rien. Sa figure
+j'imagine, n'importe quel frère ainé désireraient l'embrasser. Ses camarades n'en remarquent rien. Sa figure
 dit qu'il est trop fragile: personne ne le tourmente,
 mais personne ne le protège. La cour, qui devrait être
 le pays de l'amitié, où lui n'est que le pays du ha-
@@ -854,14 +778,12 @@ beauté. Peut-on donc aimer autre chose? Si j'écoute ma
 pensée, je l'entends depuis l'éveil de ma conscience, je
 l'entends ardemment réclamer la sottise et la laideur.
 Je philosophais ainsi. Sans l'avoir vue, je jouais un
-jeu de patience avec la vie. Lectures, observations ra-
-pides, restreinte expérience personnelle, et jusqu'aux
+jeu de patience avec la vie. Lectures, observations rapides, restreinte expérience personnelle, et jusqu'aux
 songes du sommeil, je voulais tout réunir, et en former
 ma mosaïque fidèle.
 Triste de ma vérité, je souffris jusqu'à ce que j'eusse
 découvert que la Reine des enfants n'est pas la Reine
-des hommes, et qu'au lieu de se prosterner devant l'in-
-telligence et la beauté, c'est la Force qu'ils adorent.
+des hommes, et qu'au lieu de se prosterner devant l'intelligence et la beauté, c'est la Force qu'ils adorent.
 Les enfants ne sont pas sans amour. Camarades,
 certains deviennent amis. Les plus grands et les plus
 vigoureux se lient d'abord entre eux; comme aussi les
@@ -869,8 +791,7 @@ petits. Et ce sont les premières, et peut-être les seules
 affections solides, celles que bénit la Force. L'un fort
 qui est doux à un faible qui est humble, d'un faible qui
 
-est rusé à un fort qui est brutal, ne règne pas ten-
-dresse, mais alliance, mais complicité.
+est rusé à un fort qui est brutal, ne règne pas tendresse, mais alliance, mais complicité.
 A cette lumière nouvelle, le chaos des jeux et des
 foules de la cour s'organisa pour moi. Il y en enfin les
 groupements rationnels, libres, qui avaient échappé à
@@ -881,18 +802,14 @@ les violents et les robustes vivaient ensemble. Et de
 même les petits, Jean et Maurice, Robert, René, le
 Paul qui ne paraît pas, les deux Louis, les deux Pierre,
 le bleu et le rouge, et l'autre Robert, le Tartufe, jamais
-je ne les remarquais, pour les barres, la course, la pon-
-terne ou même les billes, librement dans le camp des
-Et plus attentif encore, cherchant presque doulou-
-reusement si ne s'en trouverait aucun, aucun, qui aimât
+je ne les remarquais, pour les barres, la course, la ponterne ou même les billes, librement dans le camp des
+Et plus attentif encore, cherchant presque douloureusement si ne s'en trouverait aucun, aucun, qui aimât
 ceux que j'aimais de mon cœur d'homme, je commençai
 à distinguer une réalité plus cruelle.
 Théodore et Mareean, peu à peu, se rapprochaient.
 Tous deux plus forts que faibles, c'était naturel. Mais
-leurs conversations calomniaient la nature: ils bavar-
-mettre au courant, traductions ennemis et morale. Or, je
-savais l'Issue: j'y suis passé. Leur adolescence devien-
-dra discutemse et livresque comme la mienne le fut,
+leurs conversations calomniaient la nature: ils bavarmettre au courant, traductions ennemis et morale. Or, je
+savais l'Issue: j'y suis passé. Leur adolescence deviendra discutemse et livresque comme la mienne le fut,
 leur sympathie animée par l'intelligence déviera dans la
 Et si Gérald se montre trop sensible à la fine grâce
 de Robert, s'il se promène avec lui toujours au long
@@ -902,8 +819,7 @@ des colonnes du préau, s'il lui donne, beaucoup plus
 l'homme en proie aux enfants
 
 il caresse en rêvant ses cheveux et ses joues minces; et
-si Robert lui répond par l'attachement taquin et le sou-
-rire assuré des esclaves trop chéris; — n'est-ce pas un
+si Robert lui répond par l'attachement taquin et le sourire assuré des esclaves trop chéris; — n'est-ce pas un
 éveil plus dangereux encore et plus trouble que celui
 de l'esprit?... Seul, l'homme a le droit d'honorer de la
 Beauté humaine. Enfant, s'il la contemple au lieu de la
@@ -919,18 +835,15 @@ Je ne dirai pas de mal de l'Administration: elle
 m'accueillit avec la charité la plus tendre.
 Le principal du collège, directeur de l'école primaire
 supérieure y annexée, comme il s'appelle, me prit à
-part au premier jour, et d'un ton initiatique, il me trans-
-mit les secrets de la sagesse.
-— Ce que je vous recommande surtout, c'est la disci-
-pline. Cela y supplée à tout. S'il n'y a dans un établissement que de
+part au premier jour, et d'un ton initiatique, il me transmit les secrets de la sagesse.
+— Ce que je vous recommande surtout, c'est la discipline. Cela y supplée à tout. S'il n'y a dans un établissement que de
 la discipline, il y a toujours cela. L'enseignement ne vient
 qu'après. Vous avez une classe de quarante gamins, il
 ne faut rien leur passer du tout. Sans quoi, vous seriez
 débordé. Avertissez, punissez; et à la récidive,
 envoyez-moi le délinquant. Je le salerai, moi!
 — Oui, monsieur le principal, dis-je.
-Dans la cour soufflait le vent de l'automne. Je m'attris-
-tais à voir tomber les feuilles dorées de l'érable.
+Dans la cour soufflait le vent de l'automne. Je m'attristais à voir tomber les feuilles dorées de l'érable.
 Mon collègue M. Fernand me serra d'abord la main
 
 l'homme en proie aux enfants
@@ -989,21 +902,19 @@ Je détestais les programmes, je détestais l'émulation;
 je détestais surtout ce qu'on appelle la discipline. Aussi
 était-ce sans la moindre conviction que je répétais de
 temps à autre, selon la formule, au « premier gaillard
-qui avait bronché »:
+qui avait bronché
 — Maxime, si vous continuez à m'ennuyer, je vais
 vous punir.
 Le quatrième matin, Maxime, blasé sur la menace, se
 mit à rire. Il y eut un petit silence. J'ai appris depuis ce
-que les enfants attendaient à cette seconde: ils atten-
-daient ma justice.
+que les enfants attendaient à cette seconde: ils attendaient ma justice.
 Cependant, je méditais. La seconde passa. Quand je
 songeais à ces chers enfants futurs qu'on me confierait,
 
 toujours je me les figurais roses, souriants, et avec une
 espèce de képi sur l'oreille; pareils en somme, il faut
 bien que je l'avoue, au jeune garçon dont le portrait
-orne la couverture d'un brochure de Domela Nieu-
-wenhuis, jadis éditée par Jean Grave; et dès qu'un
+orne la couverture d'un brochure de Domela Nieuwenhuis, jadis éditée par Jean Grave; et dès qu'un
 doute me venait sur l'efficace de mes idées pédagogiques,
 une phrase de cette brochure même (elle traitait de
 l'éducation libertaire), me rassurait en m'enivrant de
@@ -1028,9 +939,7 @@ suis trop près de ces sayons en été par leurs
 esprit embryonnaire à des enfants de plisser leur
 front aux devoirs et aux liaisons abstraites des formules que
 d'expériment leurs corps de douze ans par les rues
-et les champs; — supposé que les programmes pri-
-maires supérieurs satisfassent exactement à cette néces-
-sité; — supposé que moi-même enfin, qui ai mission
+et les champs; — supposé que les programmes primaires supérieurs satisfassent exactement à cette nécessité; — supposé que moi-même enfin, qui ai mission
 
 l'homme en proie aux enfants
 
@@ -1062,16 +971,13 @@ qu'il soit plus nécessaire à ces enfants de plisser leur
 esprit embryonnaire à des enfants de plisser leur
 esprit embryonnaire à des abstraites des formules que
 d'expérimenter leurs corps de douze ans par les rues
-et les champs; — supposé que les programmes pri-
-maires supérieurs satisfassent exactement à cette néces-
-sité; — supposé que moi-même enfin, qui ai mission
+et les champs; — supposé que les programmes primaires supérieurs satisfassent exactement à cette nécessité; — supposé que moi-même enfin, qui ai mission
 
 de les appliquer, je sache intéresser, j'aie une voix
 éveillée et éveillante, je ne repousse pas par une
 abstraite monotonie toute sympathie; — alors mon
 autorité sera légitime; et je manierai sans remords ma
-Comme je ne puis donner ma démission, je n'examine-
-rai pas ces hypothèses. Maxime discute les Axiomes?
+Comme je ne puis donner ma démission, je n'examinerai pas ces hypothèses. Maxime discute les Axiomes?
 Réprimandes, consignes, expulsion! Du coin de l'œil,
 tout en menant ces réflexions dont le sérieux m'humilie,
 dont le puéril m'amuse, tout en résumant les guerres
@@ -1089,8 +995,7 @@ une demi-seconde, puis rebondit instantanément son
 masque pâle et confus de Jésuite.
 Ah, que mon plaisir est profond malgré ma honte!
 Maxime, dis-je avec résolution...
-Les yeux se lèvent et clignent. — Non, vous ne sou-
-rirez plus. Haïssez; voici ma force!
+Les yeux se lèvent et clignent. — Non, vous ne sourirez plus. Haïssez; voici ma force!
 Des voix se pressent en moi qui se neutralisent:
 l'ennuies, en gosse, il sont bien qu'il se venge. — Tu en
 as fait tout autant à son âge. — On m'en a fait autant.
@@ -1115,15 +1020,12 @@ merveilleux rire, — je pousse à bout ma phrase:
 
 La Balance à la queue du Chat
 
-Après la composition d'orthographe, je relevais paisi-
-blement les notes des devoirs précédents pour établir
+Après la composition d'orthographe, je relevais paisiblement les notes des devoirs précédents pour établir
 les moyennes, belle occupation du reste, et intelligente,
 Les enfants se corrigeaient les uns les autres. Je
 calculais les notes sur le chiffre de fautes qu'ils
 m'avouaient: il était trop facile de le falsifier. Jamais
-je n'eusse songé à pratiquer le contrôle que la composi-
-tion, corrigée par moi seul, m'offrait tout clair. Mau-
-rice et Pierre, mon voisin aux yeux rouges et clignotants;
+je n'eusse songé à pratiquer le contrôle que la composition, corrigée par moi seul, m'offrait tout clair. Maurice et Pierre, mon voisin aux yeux rouges et clignotants;
 le moraliste Albert et Julien, l'hypocrite aux yeux trop
 longues; cette sainte-nitouche de Raphaël et ce coquin
 de Charles; André, l'anarchiste, et Jules, le bougri;
@@ -1139,8 +1041,7 @@ l'homme en proie aux enfants
 
 néfastes à la modestie et à la sincérité; les punitions,
 mortelles au courage des élèves et au soin du maître;
-la fraude, qui me répugne jusqu'à la nausée, intel-
-lectuellement me réjouissait par son aptitude à exhaler,
+la fraude, qui me répugne jusqu'à la nausée, intellectuellement me réjouissait par son aptitude à exhaler,
 infecte, de ce double marais où loin avaient les non
 écoles... Mais je m'étais résigné: outré d'une indignation
 qui chassait mon anti-pédagogie comme un cyclone une
@@ -1159,8 +1060,7 @@ Je recopie ses notes du mois: il a 13, il a 18. C'est
 bizarre. Monsieur Pierre, son voisin, est dernier. Il a
 Ses notes sont 15, 13, 14. Je suppose que tout le monde
 comprend ce que cela signifie. Ces messieurs ont triché.
-Ils ont pensé que j'aurais confiance en eux, ils ont com-
-ploté de se passer des fautes. Est-ce vrai, Maurice?
+Ils ont pensé que j'aurais confiance en eux, ils ont comploté de se passer des fautes. Est-ce vrai, Maurice?
 Il messes ma colère dans mes yeux, calcule mal,
 hésite un quart de seconde, et puis il me répond de sa
 — Nom de Dieu! crié-je, perdant mon sang-froid,
@@ -1188,8 +1088,7 @@ Il a piqué ma conscience au point le mieux vulnérable,
 je me venge sur lui comme sur ma morale. A peine si
 je puis prononcer entre mes dents serrées la sentence
 que je lui invente.
-— Et puis, pour amende d'une façon aussi mal-
-propre, trois heures de consigne!
+— Et puis, pour amende d'une façon aussi malpropre, trois heures de consigne!
 Je passe s'étonne. Le pauvre gosse s'abat sur ses
 avant-bras et sanglote autant qu'il avait assassiné
 son père. J'interroge les autres alors, et, dans le silence
@@ -1203,37 +1102,30 @@ punis, et posant son action devant moi comme une
 l'homme en proie aux enfants
 
 grosse pierre, je la tourne et la retourne par mille
-commentaires énergiquement appuyés sur elle; — minu-
-tieux, répétitifs, infatigables; qui me convainquent moi-
-même; qui épaississent sur toute la classe un silence
+commentaires énergiquement appuyés sur elle; — minutieux, répétitifs, infatigables; qui me convainquent moimême; qui épaississent sur toute la classe un silence
 accablé où, seul, on ridicule devoir que tout de même
 nous appelons le Devoir, frappe du marteau.
 Heure singulière, tout à fait primaire, dont Albert et
 Charles se souviendront. Mon illusion était presque
 complète. La naïveté de cette escapade m'attirait à
 son niveau. Sous la suggestion morose de ma parole,
-les victimes se croyaient très coupables, et les inno-
-cents héroïques. Eux se haussaient, moi je dégrin-
-golais à cette extase vertueuse dont les hommes rient
+les victimes se croyaient très coupables, et les innocents héroïques. Eux se haussaient, moi je dégringolais à cette extase vertueuse dont les hommes rient
 dans les enfants, — et dont Nietzsche a dans les
 
 On m'eût demandé, au bout de deux mois, ce
-qu'étaient Raphaël ou Paul que, véritablement, je n'au-
-rais pas le dire: je ne les avais jamais remar-
+qu'étaient Raphaël ou Paul que, véritablement, je n'aurais pas le dire: je ne les avais jamais remar-
 Je connaissais leur figure, je me rappelais leur nom.
 Le premier long, l'autre rond; le premier rose, et un
 teint de faïence; l'autre pâle, et un teint de porcelaine;
 rien de plus. Ils n'existaient pas mieux pour moi que
 Ils n'étaient pas intelligents. L'intelligence est un feu
 charmant qui s'élance aux yeux et aux mains tendues.
-Mais ni Paul ni Raphaël ne demandaient jamais la pa-
-role, jamais ils ne risquaient un doute; jamais ils ne se
+Mais ni Paul ni Raphaël ne demandaient jamais la parole, jamais ils ne risquaient un doute; jamais ils ne se
 réjouissaient d'une seule idée; et toujours leurs devoirs
 étaient d'une médiocrité si quelconque que rien ne
 m'en restait à la mémoire et que je les notais au
 Ils n'étaient pas stupides. Les stupides font saillie
-aussi. Pourvus de tous les certificats et de tous les bre-
-vets, ils ne savent d'abord ni lire ni écrire: ils ne com-
+aussi. Pourvus de tous les certificats et de tous les brevets, ils ne savent d'abord ni lire ni écrire: ils ne com-
 
 l'homme en proie aux enfants
 
@@ -1248,8 +1140,7 @@ reconnaissables. J'ai expérience dont j'ai la sorte du
 charme à les soixante élèves, le premier dont j'ai la
 sorte de Charles, qui avait plus tôt que tous les autres
 accepté la méthode socratique; et le second, ce Maxime
-que je dus punir au quatrième jour. Or, je ne m'aperce-
-vais pas non plus de la presence de Raphaël ni de Paul
+que je dus punir au quatrième jour. Or, je ne m'apercevais pas non plus de la presence de Raphaël ni de Paul
 par le bruit qu'ils eussent faire: car ils ne s'y enhar-
 Ils n'étaient pas vaniteux. C'est la dernière flammèche
 du foyer. Le vaniteux est celui qui geindra, entendant
@@ -1264,20 +1155,17 @@ De sorte que j'étais arrivé à ne plus les considérer
 que comme deux mannequins, dont l'absence m'aurait
 gêné, dont la présence me paraissait aussi naturelle et
 aussi insignifiante que celle du poële ou des lampes
-électriques. Je ne les interrogeais pas, je ne leur adres-
-sais pas d'observations, je ne me réclamais pas de
+électriques. Je ne les interrogeais pas, je ne leur adressais pas d'observations, je ne me réclamais pas de
 renseignements. Entre nous, pas la moindre la tâches
 faites, leurs leçons sues: — je ne pouvais trouver autre
 
 chose en eux que ces symboles. Ni souci d'écouter, ni
-ineptie, ni fierté, ni même mauvaise volonté... Je pas-
-sais des journées exactement sans les voir.
+ineptie, ni fierté, ni même mauvaise volonté... Je passais des journées exactement sans les voir.
 Ont-ils une âme? me disais-je le soir, en constatant
 une fois de plus, avec remords, que je ne les avais ni
 entendus parler, ni aperçus rire. C'est par leur faute
 que je fus un long temps en doute sur l'existence, sur
-la réalité des enfants. Je ne me résignais à leur recon-
-naître à chacun son âmette que parce que l'un différait
+la réalité des enfants. Je ne me résignais à leur reconnaître à chacun son âmette que parce que l'un différait
 physiquement de l'autre.
 
 ... — Pourquoi aimez vous vos parents? demandé-je.
@@ -1309,12 +1197,10 @@ malheur de l'un fait le bonheur de l'autre — Jules,
 d'un seul mouvement plein d'expérience impudeur,
 dénonce son père, ses oncles, leurs amis, son milieu,
 peut-être sa race:
-— Dans les administrations, la mort, surtout préma-
-turée, d'un chef profitera d'autant à son remplaçant.
+— Dans les administrations, la mort, surtout prématurée, d'un chef profitera d'autant à son remplaçant.
 Quelle expérience sous la bouffissure de ces traits
 
-... — Que désirez-vous pour vos étrennes, questionné-
-je, afin de bien employer vos vacances?
+... — Que désirez-vous pour vos étrennes, questionnéje, afin de bien employer vos vacances?
 — Je voudrais une carabine, avoue Fernand; je ferai
 tout mon possible pour me faire bon tireur, afin que si
 mon pays est en guerre avec personne; car j'ai aussi
@@ -1327,15 +1213,13 @@ n'attends pas les vacances avec impatience; je sais
 qu'elles viendront assez tôt, car dans la vie, on n'a
 jamais trop de temps pour s'instruire.
 Je regarde avec stupeur ce visage rond, ce sourire
-confiant, cette complaisance grasse. Croit-il me trom-
-per? Je le punirais avec délices.
+confiant, cette complaisance grasse. Croit-il me tromper? Je le punirais avec délices.
 — Qu'aimez-vous donc lire? demandé-je encore.
 — J'aime les livres d'histoire, déclame Albert en
 
 l'homme en proie aux enfants
 
-avançant sa moue batailleuse, parce qu'ils nous ensei-
-gnent les prouesses qu'ont faites nos ancêtres, et que
+avançant sa moue batailleuse, parce qu'ils nous enseignent les prouesses qu'ont faites nos ancêtres, et que
 les Français ont toujours été les plus braves, et que la
 France a souvent versé son sang pour défendre les
 faibles et les opprimés.
@@ -1385,16 +1269,13 @@ Conception miroboalante! c'est la mienne en lui. Et vous
 nous vantez ces appareils admirables qui absorbent un
 lapin vivant et restituent un chapeau de feutre? Le
 cerveau d'un enfant de treize ans est une machine bien
-plus hardie; et des transformations bien plus extraordi-
-naires s'accomplissent entre ses deux oreilles.
+plus hardie; et des transformations bien plus extraordinaires s'accomplissent entre ses deux oreilles.
 Marcel enfin, mon cher discuteur, lui-même me trahit.
 Dans non amour désolé de la liberté, dans ma faiblesse
-à punir, dans cette indulgence où couvait la plus dou-
-loureuse, la plus vampirique curiosité de la vie, il n'a
+à punir, dans cette indulgence où couvait la plus douloureuse, la plus vampirique curiosité de la vie, il n'a
 que de la lâcheté.
 — Je puis l'avouer, écrit-il à l'un de ses amis, (et la
-lettre est une rédaction à corriger par moi), ma na-
-tenue avec le professeur de français n'est plus irrépro-
+lettre est une rédaction à corriger par moi), ma natenue avec le professeur de français n'est plus irrépro-
 
 l'homme en proie aux enfants
 
@@ -1443,8 +1324,7 @@ les poches, contemplant la cour enliassée de vieilles
 pluies et triste.
 — Eh bien, questionné-je, vous vous habituez, oui?
 Vous n'aurez pas trop de peine à vous mettre au cou-
-Il me regarde de ses yeux campagnards, sourit et ré-
-pond d'une voix embrouillée:
+Il me regarde de ses yeux campagnards, sourit et répond d'une voix embrouillée:
 — Moi, oh non! m'sieu, je viens ici pour me dessaler
 
 Je voudrais bien qu'ils fussent sincères. Je ne suis
@@ -1456,8 +1336,7 @@ plutôt que leurs camarades?
 Destruction des personnalités
 
 Je m'étais dit au deuxième jour:
-— Éveillons ces esprits! Sans individualités éner-
-giques, la vie n'est que grouillement, la démocratie en
+— Éveillons ces esprits! Sans individualités énergiques, la vie n'est que grouillement, la démocratie en
 particulier n'est que vermine.
 
 ... — Gérald, il faut lutter contre votre sincérité pour
@@ -1488,14 +1367,12 @@ leur sottise.
 
 ... — Émile, vous faites trois fautes par phrase à
 la géographie; mais travaillez aussi l'histoire et la
-grammaire. Passez deux heures à une carte et vingt mi-
-nutes à une composition française, voilà ce qui s'appelle
+grammaire. Passez deux heures à une carte et vingt minutes à une composition française, voilà ce qui s'appelle
 mal employer son temps.
 C'est un garçon singulier, dont le visage et la cervelle
 ressemblent à une boutique de bric-à-brac. Il a les traits
 si mal disposés qu'on les croirait doublés, et l'esprit
-encombré de notions grotesques pillées dans les incom-
-parables « magazines » qu'éditent pour la jeunesse
+encombré de notions grotesques pillées dans les incomparables « magazines » qu'éditent pour la jeunesse
 M. Pierre Lafitte et M. Fayard.
 En outre, il est hargneux. Le résultat ne tarde pas:
 Émile n'étudie plus ses leçons de géographie, mais il
@@ -1516,8 +1393,7 @@ J'admire l'efficace de ma pédagogie contre les garçons
 qui choisissent dans la manne. J'ai mission de leur
 enseigner ce qu'a de la culture; ils l'avaleront, doivent-je appliquer
 la question de l'eau. S'ils ont un besoin d'une certaine
-culture particulière, est-ce que cela regarde les pro-
-grammes? Nous travaillons pour l'humanité et pour
+culture particulière, est-ce que cela regarde les programmes? Nous travaillons pour l'humanité et pour
 la patrie; nous ne travaillons pas pour les indivi-
 
 ... — Enfin, un autre livre, où nous pouvons lire la
@@ -1530,8 +1406,7 @@ cathédrales, mais cette petite charade socratique est
 ces monuments?
 — Dans la tête à monsieur Thierry!
 J'entends. Les camarades entendent. C'est un rire
-infini. Je ris aussi, je me réjouis: quelle farce intelli-
-gente, et, naturellement involontaire, vient tout de
+infini. Je ris aussi, je me réjouis: quelle farce intelligente, et, naturellement involontaire, vient tout de
 même juste, instinctivement juste et profonde, quelle
 fine critique! En mon for intérieur, je félicite Robert de
 sa subtilité; il a compris l'artificiel de toute histoire.
@@ -1546,8 +1421,7 @@ l'homme en proie aux enfants
 autres se calment: ils trouvent aussi cela juste. Tous,
 Robert compté, sont satisfaits. J'en souffre.
 
-... Venu pour éveiller les personnalités, je dois com-
-battre et réduire les enfants indisciplinés, les enfants
+... Venu pour éveiller les personnalités, je dois combattre et réduire les enfants indisciplinés, les enfants
 vaniteux, et ceux qui, dans ce que les programmes
 leur imposent, veulent picorer à leur plaisir. Car, si je
 ne les subjugue pas, l'Autorité me le rappellerait, ma
@@ -1571,12 +1445,10 @@ d'un coup profondément, tant sa lividité est saisissante.
 — M'sieu, murmure-t-il auprès de mon estrade, est-ce
 qu'on m'a envoyé vous dire que je ne viendrai pas aujour-
 d'hui ni la semaine prochaine, parce que ma sœur est
-— Qu'est-ce qu'il a? souffle quelqu'un.
+— Qu'est-ce qu'il souffle quelqu'un.
 — Allez-vous-en, mon pauvre Robert, dis-je en lui
-flattant la joue, en luttant contre un désir moitié imagi-
-naire moitié vrai de l'embrasser.
-Il part, pas si vite pourtant que ne l'atteigne la moqu-
-erie méchante de Julien.
+flattant la joue, en luttant contre un désir moitié imaginaire moitié vrai de l'embrasser.
+Il part, pas si vite pourtant que ne l'atteigne la moquerie méchante de Julien.
 — T'as l'air d'un rescapé.
 C'était au temps du massacre noir de Courrières: ce
 mot du Nord avait gagné l'Île-de-France. Robert se
@@ -1591,8 +1463,7 @@ Je finis de dicter en songeant. Peut-être eussé-je dû,
 oui, embrasser Robert et parler: « Mes enfants, Robert
 a perdu sa sœur, qui avait vingt ans. Nous le plaignons,
 et il dira surtout à ses parents que nous les plaignons
-aussi bien sincèrement. » J'aurait été ce que je pen-
-sais; mais je n'ai pas osé. Ainsi que Jean-Jacques nous
+aussi bien sincèrement. » J'aurait été ce que je pensais; mais je n'ai pas osé. Ainsi que Jean-Jacques nous
 l'avoue de son esprit, mon cœur à moi ne me conseille
 que dans l'escalier.
 Et puis, suis-je un professeur de douleur? Il n'est pas
@@ -1637,10 +1508,8 @@ ses dents cachées.
 
 Je leur posais des questions concrètes et simples pour
 les mieux comprendre, non sans un demi-remords de
-mon indiscrétion. Je voulais savoir au juste s'ils pen-
-saient, et ce qu'ils pensaient; ce qu'ils me diraient de
-l'utilité de l'instruction, des raisons qu'ils avaient de fré-
-quenter l'école primaire supérieure, de la profession
+mon indiscrétion. Je voulais savoir au juste s'ils pensaient, et ce qu'ils pensaient; ce qu'ils me diraient de
+l'utilité de l'instruction, des raisons qu'ils avaient de fréquenter l'école primaire supérieure, de la profession
 qu'ils choisiraient un jour, me renseigna. Part faite au
 mensonge, à la vantardise et à l'incertitude, j'en appris
 qui scandalisèrent ma naïveté.
@@ -1695,12 +1564,10 @@ Puis s'annoncent les fonctionnaires.
 Jules découragé un jeune malade de ses amis: « Peiner
 beaucoup et gagner peu, voilà la place de maçon. Moi,
 je veux m'instruire, afin de pouvoir entrer dans une
-étude de notaire ou employé de ministère. » Aux for-
-mules de l'enfant, je retrouve le style du père, scribe à
+étude de notaire ou employé de ministère. » Aux formules de l'enfant, je retrouve le style du père, scribe à
 la compagnie de Lyon.
 Fernand, fils d'un maréchal-ferrant, affirme avec un
-stoïcisme complaisant son intention de devenir insti-
-tuteur. « Cette profession est ingrate et meurtrière. Elle
+stoïcisme complaisant son intention de devenir instituteur. « Cette profession est ingrate et meurtrière. Elle
 exige beaucoup de dévouement, elle n'est pas rétribuée
 comme elle devrait l'être. Mais mes goûts sont tout
 modestes: j'aurai une maison d'école entourée
@@ -1734,20 +1601,16 @@ Maurice, jeune idéaliste, nous détend par un doux
 aveu: « Sans ton certificat d'études primaires, écrit-il
 au fâcheux ami qui lui vante l'ignorance, tu ne peux
 entrer en apprentissage; et comme tu ne trouves pas
-d'éducation, tu fais un voyou. Moi, qui continue de tra-
-vailler, j'aurai une belle situation et je trouverai facile-
-ment à me marier avec une belle jeune fille. » Plein de
+d'éducation, tu fais un voyou. Moi, qui continue de travailler, j'aurai une belle situation et je trouverai facilement à me marier avec une belle jeune fille. » Plein de
 ces songes, ce fils d'un professeur d'École Normale
-hésite pourtant, à ce qu'il dit, entre les vocations in-
-cohérentes de chimiste, de menuisier, de serrurier ou
+hésite pourtant, à ce qu'il dit, entre les vocations incohérentes de chimiste, de menuisier, de serrurier ou
 Les petites espérances ferventes de ceux qui « n'ont
 pas d'ambition » m'émeuvent davantage.
 Victor est fils d'épicier. Ayant fondé et dirigé,
 l'espace d'un matin, une Gazette collégienne en souvenir
 d'un touchante stupidité, il du style. Aussi s'efface-t-il,
 plus énergiquement que tous, d'enfoncer la dustinée
-la tête du rétif qui dédaigne l'École primaire supé-
-rieure: « Tu ne trouveras pas de place où tu pourras
+la tête du rétif qui dédaigne l'École primaire supérieure: « Tu ne trouveras pas de place où tu pourras
 gagner de l'argent. Avec l'instruction, je pourrai
 trouver une place de comptable ou une autre bonne;
 tandis que toi, tu seras toujours malheureux,
@@ -1757,9 +1620,7 @@ ras pas dans le progrès. » Cette intention qu'a Victor
 de se lancer dans le progrès en devenant comptable, — non,
 je ne puis pas dire comme elle me touche!
 Les studieux André, fils de paysan, aspire au brevet.
-Je le regarde avec stupeur dévorer des livres de gram-
-maire: c'est qu'il a décidé de bien apprendre l'ortho-
-graphe. « Si nous ne faisons pas de fautes lorsque nous
+Je le regarde avec stupeur dévorer des livres de grammaire: c'est qu'il a décidé de bien apprendre l'orthographe. « Si nous ne faisons pas de fautes lorsque nous
 écrivons des lettres à des supérieurs, croit-il, alors ils
 voient notre talent, et n'ayant pas envie d'obtenir
 une place: on ne travaille pas toute la vie dans les
@@ -1771,22 +1632,19 @@ maison de commerce, au contraire, on monte vite en
 grade, et on arrive à avoir de bons appointements sans
 avoir beaucoup de peine. »
 Et n'est-ce pas l'essentiel?
-Émile, sans doute, a peur des outils. Un de ses cama-
-rades devient menuisier, il le rabroue, sans élégance.
+Émile, sans doute, a peur des outils. Un de ses camarades devient menuisier, il le rabroue, sans élégance.
 métier. En entrant à l'École primaire supérieure, tu
 professeur même; comptable. »
 Louis, celui qui chastifiait son frère, a peur de
 la fatigue. Sa mère, pauvre journalière, a le porter
 aux lavoirs et aux glanages trop longtemps avant sa
-naissance. Il se geint doucement: « Grâce à l'instruc-
-tion, on est heureux, on peut se trouver de bonnes
+naissance. Il se geint doucement: « Grâce à l'instruction, on est heureux, on peut se trouver de bonnes
 places dans les bureaux. Au contraire, les gens ignorants
 
 l'homme en proie aux enfants
 
 sont réduits à mendier ou à être placés dans des ateliers
-où les travaux sont durs, où ils sont assujettis au mau-
-vais traitements et aux accidents. »
+où les travaux sont durs, où ils sont assujettis au mauvais traitements et aux accidents. »
 Et André a peur de la mort. C'est l'autre André,
 l'anarchiste, un paresseux presque tragique, aux traits
 dispersés que un perpétuel sommeil, aux lèvres toujours
@@ -1798,8 +1656,7 @@ ouvrier qui n'a pas d'instruction, à l'autre vous tarez comme les
 convives qui montent sur les toits et qui d'un moment
 à l'autre atteignent la mort. »
 Enfin le légendaire René, et enfileur de phrases,
-scribe fils de scribes, confesse d'un coup une pensée en-
-tière de la petite bourgeoisie et des hauteurs suprêmes
+scribe fils de scribes, confesse d'un coup une pensée entière de la petite bourgeoisie et des hauteurs suprêmes
 du peuple, toute la « philosophie presque, et toute la
 morale démocratiques. Il écrit ceci: « J'ai choisi une
 profession plutôt libérale: c'est celle d'Employé dans
@@ -1810,16 +1667,14 @@ ma vieillesse assurée par une retraite qui me mettra à
 l'abri de la misère. »
 Les voilà donc! Tous ils veulent quitter le sarrau ou
 la blouse, tous s'engoncer dans la jaquette, la redingote
-ou au moins le beau veston à boutons de métal. Le tra-
-vail manuel est sale; il est fatigant, il est désagréable:
-il n'est pas « poétique »; il déshonore, il épuise, il ruine;
+ou au moins le beau veston à boutons de métal. Le travail manuel est sale; il est fatigant, il est désagréable:
+il n'est pas « poétique il déshonore, il épuise, il ruine;
 — ces enfants qui chaque jour voient leurs parents en
 souffrir, les entendent le maudire, et qui apprennent,
 comment ne chercheraient-ils pas à s'y dérober?
 
 Ils comprennent. On lire une formule plus âpre que
-celle-ci, gravée par la répétition familiale à la profon-
-deur de l'instinct: « Mes parents, dit encore André, le
+celle-ci, gravée par la répétition familiale à la profondeur de l'instinct: « Mes parents, dit encore André, le
 dévorateur des grammaires, ne veulent pas que je
 cultive la terre, parce qu'ils ont beaucoup de mal pour
 ne rien gagner à la faire produire. Ils fatigueraient toute
@@ -1831,16 +1686,14 @@ leur dire, à lui, à ses camarades, au nom d'un morale
 cossue ou d'un révolutionarisme phraseur: — Mieux
 Aussi jouiront-ils. Parvenus « messieurs » grâce à son
 long effort, ils ne connaitront plus leur père. Telle est
-l'aristocratie républicaine, la suprême fleur de la déma-
-gogie: un peuple d'apostats.
+l'aristocratie républicaine, la suprême fleur de la démagogie: un peuple d'apostats.
 Ceux qui ne veulent pas trahir leur classe espèrent
 au moins la dominer.
 L'autre Louis, traînant ses bottines sans boutons,
 rêve à la puissance: « Je voudrais être le directeur
 d'une belle et propre ferme; j'aurai de nombreux
 domestiques qui m'obéiront. »
-Lucien, le bègue, fils de cordonnier, décide, l'irré-
-solu: « Viens à l'École supérieure: tu fréquenteras
+Lucien, le bègue, fils de cordonnier, décide, l'irrésolu: « Viens à l'École supérieure: tu fréquenteras
 chaque jour les ateliers. Et alors, au lieu d'être un
 simple ouvrier, tu pourrais, en te présentant plus tard
 à l'Examen des Arts et Métiers, devenir contremaître
@@ -1850,8 +1703,7 @@ Mareean, fils d'instituteur comme l'autre, apporte le
 
 l'homme en proie aux enfants
 
-même argument: « Si tu fais tout de suite ton appren-
-tissage, tu ne seras pas ouvrier avant l'âge de seize
+même argument: « Si tu fais tout de suite ton apprentissage, tu ne seras pas ouvrier avant l'âge de seize
 ou dix-huit ans. Si tu passes, au contraire, à l'École
 des Arts et Métiers, tu peux sortir à dix-huit ou dix-neuf
 Fonctionnaires ou jaunes, voilà l'idéal de ces enfants
@@ -1875,9 +1727,7 @@ Qu'on juge si je puis me fier à ce pauvre délire:
 « Voilà bientôt un an que je suis à l'École primaire
 supérieure, vous apprendrez avec tristesse que je n'ai
 pas fait grand chose pendant cette année scolaire. Je
-ne sais même pas si je suis de force à passer en troi-
-
-sième année si je reviens. J'aimerais bien mieux ne
+ne sais même pas si je suis de force à passer en troisième année si je reviens. J'aimerais bien mieux ne
 plus aller à l'École supérieure.
 « Malgré cela, j'ai acquis une idée que je croyais
 ne pouvoir jamais posséder. J'ai une autre idée sur la
@@ -1888,8 +1738,7 @@ monde... même de vous; et plus encore les vieux,
 impuissant, je reviendrai en France ou je cultiverai la
 « J'ai appris à connaitre la nature, et quoique j'aie
 beaucoup ennuyé mes professeurs, il est resté quelque
-chose là, ce quelque chose, jamais on ne me l'enlè-
-vera: — l'amour de la nature, je l'avais dit;
+chose là, ce quelque chose, jamais on ne me l'enlèvera: — l'amour de la nature, je l'avais dit;
 je veux être électricien; mais c'était pour rassurer mes
 parents, qui voyaient que je ne pensais à rien.
 « J'ai de plus l'injustice des hommes, et combien
@@ -1902,9 +1751,7 @@ suivrai ma destinée. »
 
 Un post-scriptum confidentiel s'adressait à moi:
 « Monsieur, si vous prêcrai s'il vous plaît de bien
-vouloir ne pas communiquer cette composition fran-
-çaise à mes camarades, qui, sans nul doute, se moque-
-raient de moi: car telle est la moquerie du genre
+vouloir ne pas communiquer cette composition française à mes camarades, qui, sans nul doute, se moqueraient de moi: car telle est la moquerie du genre
 humain. Je vous en serai reconnaissant, car c'est vous
 
 propres idées et non des idées inventées que j'exprime ici: et si je les écris, c'est pour que vous me disiez si j'ai raison ou tort. »
@@ -1913,9 +1760,7 @@ Imprudemment peut-être, je fis à cette lettre une réponse sérieuse. Je discu
 
 Parmi ses camarades, quelques-uns encore, plus modestement, résistent à la pression ambiante. Certains ne répondent rien, déclarent qu'ils n'ont « pas assez d'imagination pour savoir ». D'autres, cinq ou six sur soixante, poussés par un instinct plus sain, ou sottement désireux de me flatter, contestent la doctrine générale. Mais les meilleurs encore, avec équivoque. Marcel, le discuteur, abrège: « Tu pourras aussi choisir un métier manuel, l'instruction que tu recevras ne sera pas perdue. » Jacques, fils d'un fonctionnaire des Eaux et Forêts, proclame à deux fins ceci: « Il faut aussi qu'en s'instruisant on commence à travailler manuellement. On arrive ainsi à se perfectionner dans son savoir, à s'élever plus haut, à être plus heureux plus tard. »
 
-C'est tout. Je n'ai pas exagéré, j'ai constaté les réalités: les enfants que l'École primaire supérieure reçoit des ouvriers et des petits bourgeois, pour leur donner, disent ses programmes, « un enseignement essentielle-
-
-ment pratique elle les restitue avides de sinécures et d'aristocratie.
+C'est tout. Je n'ai pas exagéré, j'ai constaté les réalités: les enfants que l'École primaire supérieure reçoit des ouvriers et des petits bourgeois, pour leur donner, disent ses programmes, « un enseignement essentiellement pratique elle les restitue avides de sinécures et d'aristocratie.
 
 Consciences ébauchées et composites, le témoignage de ces enfants est trop facilement récusable. Que connaissent-ils de la vie? Quels documents certains peuvent-ils fournir sur elle? Jamais on ne croirait qu'ils parlent: ils récitent! — Je l'accorde: mais alors leur parole est plus lourde encore et plus chargée d'une douloureuse sincérité. C'est le milieu qui crie, ce ne sont plus les individus. Depuis les petites classes où ces gamins brillèrent, instituteurs, parents, voisins, leur ont répété la même foi: — haine du travail manuel, adoration des mystérieuses écritures, pieux souci de la retraite, des appointements réguliers, des nobles fréquentations; — et cet évangile démocratique de l'Arrivisme, ils me le resservent, tous du même style, à moi qui vainement, absurdement, vais essayer de le contredire
 
@@ -2025,9 +1870,7 @@ Je les aimerais. Ah! m'aimeraient-ils? Presque tous ceux que j'ai rencontrés su
 
 Je reconnais bien l'amour: son premier conseil est d'une lâcheté…
 
-Que dit donc à présent M. le Principal? Ma rêverie s'amuse, ébauche des formes. Là-bas des bonnes bedaines, là-bas des faces bilieuses de gratte-papier; là-bas de grasses joues jaunes et des corsages cocasses; là-bas des traits énergiques, de fins visages qui ne souriront point: — les parents de mes élèves! commerçants, fonctionnaires, ouvriers aisés, métayers, mar-
-
-chands de cochons, combien d'hommes? c'est la toute petite bourgeoisie et le prolétariat tourné; c'est le monde de ces pauvres qui n'osent pas être pauvres, républicains conservateurs, liseurs de journaux, gens de métier presque honteux de leur métier, collectionneurs de papillons ou de polissoirs préhistoriques; indispensables médiocres adaptés à la médiocrité, talents sacrifiés ou sottises gorgiases; — honnêtes gens aux honnêtes vies.
+Que dit donc à présent M. le Principal? Ma rêverie s'amuse, ébauche des formes. Là-bas des bonnes bedaines, là-bas des faces bilieuses de gratte-papier; là-bas de grasses joues jaunes et des corsages cocasses; là-bas des traits énergiques, de fins visages qui ne souriront point: — les parents de mes élèves! commerçants, fonctionnaires, ouvriers aisés, métayers, marchands de cochons, combien d'hommes? c'est la toute petite bourgeoisie et le prolétariat tourné; c'est le monde de ces pauvres qui n'osent pas être pauvres, républicains conservateurs, liseurs de journaux, gens de métier presque honteux de leur métier, collectionneurs de papillons ou de polissoirs préhistoriques; indispensables médiocres adaptés à la médiocrité, talents sacrifiés ou sottises gorgiases; — honnêtes gens aux honnêtes vies.
 
 Comment imaginer une conversation d'eux sincère avec moi sincère! J'en rirais, si cent yeux d'oiseaux n'épiaient ma vanité grotesque. Ainsi, sur la garantie illusoire d'un diplôme, sans même s'inquiéter de ma tournure d'esprit, ils me livrent l'éducation de leur fils? Les plus riches ne me recevraient pas chez eux, moi inférieur: pourtant ils me font confiance, ils m'abandonnent leurs enfants Mais mesdames, messieurs, savez-vous si je ne suis pas… comment doutez-vous un seul instant que je ne sois un corrupteur de la jeunesse? — Avec moi j'apporte la détestation des formules, l'expérience amère de l'exil et de la solitude, le souvenir de la bassesse, la colère des affections trahies et de la justice injuriée: toutes les douleurs et l'orgueil qui m'ont déclassé. Avec moi entrent ici mes propres maîtres, ceux des écoles, que je remercie pour leur science et leur bonté; et les autres, oserai-je les nommer? les souverains sans pitié de mon être, Victor Hugo et Marc Aurèle, J.-H. Rosny, Rodin, l'effrayant Pascal, Frédéric Nietzsche et Gœthe, Beethoven et Dostoïewsky… Et vous me laissez seul avec ces innocents?
 
@@ -2077,9 +1920,7 @@ Je ne dis rien, je sens mon cœur peser… Hélas, avouer la faute, c'est double
 
 Puis s'approche le soir. Plus brusque qu'une tentation, une idée me saisit. « Mais ce Victor Hugo, quel faux bonhomme! Il n'était pas digne non plus de cette beauté qu'il jetait dans les vents. Et ce Julien, me comparer à lui; c'est un simple voyou. Et tous ces gosses, ce ne sont que des animaux: sais-je ce qu'ils deviendront? » J'écoute cette voix brutale avec hébétude. Me voici au fond du bourbier. Ainsi, ayant, de mes immorales lèvres, de mon immorale intelligence, tiré des paroles hypocrites pour ordonner le travail, établir la justice, glorifier la beauté abattus par mon acte; maintenant ma mémoire et mes sens même se renient? Je suis détruit tout entier.
 
-O vous qui viendrez, amis dont la main ne s'est pas tendue encore, frères en marche vers un futur qui sera à vous et à moi, vous qui me connaîtrez et ne pourrez point vous résoudre à me haïr, comment vous y prendrez-vous, ne vous aurai-je pas fait la tâche trop diffi-
-
-cile, pour « m'aimer plus ardemment que je n'ai aimé mes souillures »?
+O vous qui viendrez, amis dont la main ne s'est pas tendue encore, frères en marche vers un futur qui sera à vous et à moi, vous qui me connaîtrez et ne pourrez point vous résoudre à me haïr, comment vous y prendrez-vous, ne vous aurai-je pas fait la tâche trop difficile, pour « m'aimer plus ardemment que je n'ai aimé mes souillures
 
 … Ma lampe soupire tout bas. Voici l'encre, le papier, la plume pour songer et juger.
 
@@ -2242,7 +2083,7 @@ plus lourds, qu'ils se réjouissaient donc au bel éclair, aux nuages fuligineux
 Paupières battantes devant la Beauté
 
 Ces lecteurs de Jules Verne, de Louis Boussenard, d'Hector Malot; ces mioches qui se regardent comme de fiers malandrins pour avoir feuilleté quelques-uns de ces ineptes bouquinets pornographiques que l'on vend deux sous; — je les pousse sans les prévenir aux torrents de la beauté virile.
-Un proverbe allemand m'excite: « Ce qu'il y a de meilleur est juste bon pour les enfants »; la sincère joie de Jeanne à lire des subtilités m'encourage; pourquoi donc résisterais-je à mon propre instinct.
+Un proverbe allemand m'excite: « Ce qu'il y a de meilleur est juste bon pour les enfants la sincère joie de Jeanne à lire des subtilités m'encourage; pourquoi donc résisterais-je à mon propre instinct.
 Mais souvent ils le blessent.
 Je dicte du Verhaeren. La liberté du rythme froisse Charles, puriste inattendu. Il grogne: — Des vers comme ça, j'en ferais bien autant.
 Du Maeterlinck. Les deux Marcel, Thomas, Marc, si pédant, Léon, Frédéric, Théodore, toute la seconde année proteste: — On n'y comprend rien; les phrases sont trop longues; ne se suit pas. On voit bien que c'est pas un Français!
@@ -2260,9 +2101,7 @@ Aucune imploration ne m'arrête. Leur dictant le charmant chapitre où Victor Hu
 laisse et la plus mystérieusement belle des phrases qu'il contient: « Les pensées qui tombaient du ciel étaient douces comme une petite main d'enfant qu'on baise. »
 Ils me répondent de cruelles niaiseries. Au lieu de m'avouer leur émotion, ils commentent celle de Victor Hugo. Ils trouvent pêle-mêle en ces deux pages de la gaieté, du calme, de la fraîcheur, peu d'animation, de la réalité, de la bonté, de la beauté. Fernand déclare même qu'à les lire « on se croit à l'instant transporté dans un autre monde ». Et Gabriel qui a pris le jardin pour le grand-duché, conclut: « Dans ce pays, tout le monde y est très bien. Les oiseaux chantent, font leurs nids sans être dérangés. Il ne pleut pas beaucoup et ainsi le pays est favorable à tout le monde. »
 Ou bien ils reproduisent la tendre image, mais quelques-uns la paraphrasent avec une sorte de grâce balbutiée. René écrit: « Les pensées qui venaient étaient douces, pures, belles, comme la main d'un enfant; car celui-ci a les mains non souillées, non salies par aucun travail de la vie humaine. » Charles subtilise: « Les pensées réelles de la nature sont comme une main d'enfant que l'on baise, car les mains d'enfant sont douces. » Antoine enfin essaie d'expliquer à la fois le sentiment et l'idée: « Quand on baise une main de petit enfant, c'est doux; et les pensées qui venaient à Victor Hugo et qui semblaient tomber du ciel étaient douces comme la main d'un enfant. »
-En somme, me disais-je après toutes ces expériences, les enfants sont indifférents au style, aux images, et à tout ce que nous appelons superficiellement (peut-être « poésie ». Dès qu'ils s'intéressent aux abstractions ou aux formes, ils sont corrompus: le vieil enfant com-
-
-mence à pourrir autour du jeune adolescent. Ces êtres de jeu et de mouvement ne cherchent qu'une seule excitation dans l'art: l'exemple des actes. Victor Hugo, avec des coupures, les passionnera autant que Jules Verne: mon ami Jean ne peut séparer ces deux maîtres en son admiration.
+En somme, me disais-je après toutes ces expériences, les enfants sont indifférents au style, aux images, et à tout ce que nous appelons superficiellement (peut-être « poésie ». Dès qu'ils s'intéressent aux abstractions ou aux formes, ils sont corrompus: le vieil enfant commence à pourrir autour du jeune adolescent. Ces êtres de jeu et de mouvement ne cherchent qu'une seule excitation dans l'art: l'exemple des actes. Victor Hugo, avec des coupures, les passionnera autant que Jules Verne: mon ami Jean ne peut séparer ces deux maîtres en son admiration.
 Eux que l'histoire ou la morale dogmatique ennuient, je les ai réduits au plus effrayant silence en leur lisant des œuvres pleines de la plus complexe pensée, mais tragiques, le *Parricide*, le *Petit Roi de Galice*; *Servitude et grandeur militaires*; le merveilleux *Crainquebille*; le *Quatorze Juillet*, de Romain Rolland; de Tolstoï, *Ce qu'il faut de terre pour un homme*; le *Dingley* des Tharaud, les *Quatre ans* de Daniel Halévy, les *Xipéhuz* de J.-H. Rosny, le *Dormeur* de Wells...
 
 La musique est mouvement. La poésie donc, si elle est une musique, ne sera-t-elle pas, au moyen du rythme, un commencement ravi de mouvement?
@@ -2317,7 +2156,7 @@ moi, il me souligne en un tome des *Contemplations* ce vers, qu'il s'applique à
 La faim, c'est le regard de la prostituée...
 
 — Msieu, qu'est-ce que c'est que ça, une prostituée?
-Ici, ma conscience et ma volonté désertent. J'ai toujours beaucoup admiré la réponse que fit, selon Rousseau, une dame à sa petite fille qui lui demandait d'où venaient les enfants; (vous la trouverez dans l'*Émile*); mais je n'ose pas en inventer une analogue. Je répète celle qu'on m'a jetée lorsque je m'étonnai du mot « courtisane »:
+Ici, ma conscience et ma volonté désertent. J'ai toujours beaucoup admiré la réponse que fit, selon Rousseau, une dame à sa petite fille qui lui demandait d'où venaient les enfants; (vous la trouverez dans l'*Émile*); mais je n'ose pas en inventer une analogue. Je répète celle qu'on m'a jetée lorsque je m'étonnai du mot « courtisane
 — Vous n'avez pas besoin de savoir cela à présent, vous le saurez toujours assez tôt.
 Théodore grimace. Il se rassied. Alors son voisin, Frédéric, un garçon de dix-huit ans, versé dans le pour et le contre, se penche vers lui et chuchote. Je le fais taire. Il sourit. J'ai envie de les injurier et puis aussi de rire: — Car dans la cour, tout à l'heure, les empêcherai-je de parler?
 
@@ -2402,9 +2241,7 @@ Ils ont raison, mais ils me surprennent. Je les fais taire, quoique cette idée 
 
 ... Charles, encore plus irritable et malfaisant ce jour-là que d'habitude, pique d'une plume à la joue l'un de ses camarades. Deux heures de consigne.
 — Charles, vous ne travaillez pas et vous vous conduisez mal. Votre composition de morale est absurde. On peut ménager un bon élève, mais un paresseux comme vous, on ne doit pas le manquer.
-— On devrait punir les bons élèves plus que les mau-
-
-vais. Si ont pas de facilité pour apprendre, c'est pas leur faute. Et ont plus de peine que les autes à se tenir tranquilles.
+— On devrait punir les bons élèves plus que les mauvais. Si ont pas de facilité pour apprendre, c'est pas leur faute. Et ont plus de peine que les autes à se tenir tranquilles.
 — Maxime, dis-je, vous êtes trop intéressé dans la question pour la trancher.
 Mais je riais en moi-même de cette subtile parole, d'entendre maintenant affirmer l'inégalité comme une forme plus haute de la justice.
 
@@ -2593,7 +2430,7 @@ Ils se turent. Est-ce que j'avais menti? Ils le sentaient, et, craignant de le d
 
 l'école. Ou bien, mon Dieu, se fichaient-ils de leur avenir?
 A la veille des grandes vacances, ils employèrent à exprimer ces sentiments l'originalité la plus ingénieuse. Je commençais de leur trouver une âme: je me réjouissais en tout de l'entendre parler, et même alors qu'elle m'injuriait.
-Je confisquai plusieurs dessins drôles. Alfred avait représenté un ballon, de la nacelle duquel l'aéronaute, laissant pendre une banderole, annonçait aux populations: « Encore vingt-sept mètres à monter! »; — André, l'anarchiste, des joueurs balançant leurs boules au milieu d'un vaste écroulement de quilles, avec cette légende: « Plus que dix-huit à abattre! » — Et le subtil Robert, l'hypocrite au visage immobile, s'émut jusqu'à peindre en noir et en bleu un petit kobold aux pattes de crapaud, se hissant à tous muscles au long d'un mât de cocagne, pour y décrocher, dans une enveloppe cachetée de douze cachets, les bienheureuses « vacances »...
+Je confisquai plusieurs dessins drôles. Alfred avait représenté un ballon, de la nacelle duquel l'aéronaute, laissant pendre une banderole, annonçait aux populations: « Encore vingt-sept mètres à monter! — André, l'anarchiste, des joueurs balançant leurs boules au milieu d'un vaste écroulement de quilles, avec cette légende: « Plus que dix-huit à abattre! » — Et le subtil Robert, l'hypocrite au visage immobile, s'émut jusqu'à peindre en noir et en bleu un petit kobold aux pattes de crapaud, se hissant à tous muscles au long d'un mât de cocagne, pour y décrocher, dans une enveloppe cachetée de douze cachets, les bienheureuses « vacances »...
 La cour dormait telle un lac au soleil. Le soir, comme dans les romans d'aventures, il pleuvait de la poudre d'or. Au-dessus des murs, du côté de la poterne, tremblaient les horizons fiévreux.
 
 ... Vive la classe!
@@ -2676,9 +2513,7 @@ Je ne proposerai rien pour vous, je n'exigerai rien pour moi.
 Pourtant, j'ai écrit. Je ne m'adresse point aux pouvoirs: ils me mépriseraient, qui donc écouterait ma voix perdue? et d'ailleurs, ils ne peuvent rien. Je ne m'adresse pas à mes collègues: que chacun se fasse sa loi. Je m'adresse aux âmes solitaires qui, dans les ombres de l'hiver, songent à l'amour et à la vie tandis que soupire leur lampe; je m'adresse aux pères et aux mères dont le rêve caresse les enfants qui vont naître ou ceux qui sont nés; je m'adresse à ces petits garçons même qui, sans essayer, sans réussir à l'exprimer, *sont* cette vérité que je cherche.
 Ils rejouent. Les boules s'élancent un quart de seconde avant que j'entende le claquement du maillet, la cloche tinte, le soleil sourit dans son halo au-dessus du toit splendide. Divers tambours roulent, dont nous dédaignons l'appel trop connu. Robert essuie son front, Valentin secoue ses cheveux rouges, Maurice et Jean se poursuivent, les deux Marcel assaillent Marceau sur son pinacle de pierres...
 — Enfants sincères, me disais-je autrefois, fleurs nouvel écloses aux vieux jardins du monde, quels parfums inconnus allez-vous m'apporter?
-Je comprends ma folie enfin. J'en ai appelé un *le Messie*. Pensais-je donc qu'ils étaient vers moi des envoyés de Dieu et des Anges? Oubliais-je qu'ils m'étaient simplement confiés par la grande implo-
-
-ration de l'animal, de la plante, de l'homme? — frémissements pâles au visage sans couleur de la vie.
+Je comprends ma folie enfin. J'en ai appelé un *le Messie*. Pensais-je donc qu'ils étaient vers moi des envoyés de Dieu et des Anges? Oubliais-je qu'ils m'étaient simplement confiés par la grande imploration de l'animal, de la plante, de l'homme? — frémissements pâles au visage sans couleur de la vie.
 J'avais jeté en eux mes questions comme des sondes, et je n'avais jamais recueilli que des perles banales. Le même mot d'ordre émouvait leurs lèvres asservies. Leurs parents l'avaient prononcé, ou leurs maîtres, ou les bavards haïssables des livres. Quand je leur reprochais durement leur mensonge, ils se taisaient, ils écoutaient: et un jour vint où ce fut ma voix qu'ils me renvoyèrent répercutée.
 — Voilà le secret de la pédagogie, crus-je, mais les pédagogues ne veulent pas qu'on le dise: les enfants n'ont pas d'âme.
 Pourtant, certains hommes en ont une. Et ces mômes qui jouent devant moi, ce n'est plus mes phrases ni les phrases de leurs parents qu'ils répètent, il n'y a plus d'interposition entre l'immense vie autour d'eux et en eux leur faible vie: les étincelles qui bondissent de l'une à l'autre enfin sont libres!
@@ -2756,7 +2591,7 @@ Son destin m'étonnait. Il n'était tragique en rien. Ses camarades ignoraient, 
 
 l'homme en proie aux enfants
 
-faisions jamais la moindre allusion; et nous ne prenions même pas ces précautions bêtes que la sentimentalité nous eût suggérées, et qui auraient tout simplement instruit l'enfant à mieux souffrir. Comme ses camarades, il rédigeait des lettres à ses parents, il les remerciait des « sacrifices qu'ils faisaient pour lui »; il livrait des renseignements sur leur profession.
+faisions jamais la moindre allusion; et nous ne prenions même pas ces précautions bêtes que la sentimentalité nous eût suggérées, et qui auraient tout simplement instruit l'enfant à mieux souffrir. Comme ses camarades, il rédigeait des lettres à ses parents, il les remerciait des « sacrifices qu'ils faisaient pour lui il livrait des renseignements sur leur profession.
 Rien en lui n'exprimait le chagrin ou l'anxiété; — mais seulement une espèce de surprise bourrue. Peut-être jugeait-il sa vie bizarre, il ne la jugeait à coup sûr ni dramatique, ni désespérée. Sa hargneuse liberté d'esprit lui venait sans doute de son abandon: il voyait les dessous de tous ces beaux sentiments que nous appelons respect filial, union de la famille, amour; et il ne s'en moquait pas à tort.
 — Que fera-t-il? pensais-je. Un séducteur comme son père, une victime comme sa mère; ou un homme libre?
 … Toujours ce quart de sourire, quand je pérorais morale; ces yeux tranquilles qu'il ne baissa pas un seul jour.
@@ -2790,9 +2625,7 @@ l'homme en proie aux enfants
 
 leur dignité, plus primaires et plus supérieurs, si j'ose dire, que le nôtre.
 Enfin, le Marcel aux yeux verts, Marc et Frédéric, reçus, sont entrés à l'École Normale du département, tandis que leurs amis Gérald, Léopold et Henri (le regardeur de nuages), refusés, mais déjà pourvus du brevet élémentaire, ont obtenu des suppléances ou des postes d'attente dans des écoles primaires. — Faut-il que leur destin me déçoive ou me réjouisse? Je n'aime pas beaucoup les instituteurs: dogmatiques, librespenseurs qui pensent peu, et républicains d'un républicanisme gueulard, leur intolérance, leur impersonnalité répétitive me glacent. Mais s'ils consentent, comme certains nous l'ont promis, à se préoccuper des intérêts du peuple, à s'y renaturaliser au lieu de s'en désagréger pour lui imposer leur tyrannie pédante, ils conquerront la plus difficile estime. De ces six, deux fils d'instituteurs, le fils d'un paysan, le fils d'un peintre en bâtiments, deux fils d'inconnus, j'en sais au moins deux qui ne deviendront jamais des cuistres. Ce petit jardin autour de leur maison, dont Fernand rêvait, qu'ils le cultivent, qu'ils y nourrissent un tendre parterre de douceur, d'incertitude et de bonté…
-Malgré tant de discours moraux, beaucoup des autres petites âmes n'ont pas résisté à l'appel insinuant des sirènes du carton vert. M. Fernand, docteur de la calligraphie, et moi, démiurge de la grammaire, qu'on nous juge à nos fruits! — L'obscène Georges est télégraphiste selon son désir. René, malgré le sien, n'y est pas parvenu: il fait pour l'instant les courses de je ne sais quelle officine, une honorable sacoche en bandoulière; et il est tombé dans la dévotion. Robert, l'hypo-
-
-crite, son tourmenteur, grossoie chez un avoué. Léon, Charles, Antoine, l'inconnaissable Paul, cet Émile qui haïssait le rabot, le cher Robert qu'on a guéri de vouloir illustrer les armées, les deux Louis, le favori de l'injustice et le squelette en spirale, travaillent dans des banques, chez des architectes, chez des géomètres. Les parents (un facteur, je les récapitule; un scribe, un gardien de prison, deux veuves vivant tristement de faim, un cordonnier, un marchand de vins, deux agents d'affaires, un agent-voyer, un cultivateur), les plus pauvres surtout, sacrifiés et pitoyables, s'enorgueillissent: de leurs mains calleuses aux mains blanches de leurs enfants, ils admirent le savonnage du Progrès.
+Malgré tant de discours moraux, beaucoup des autres petites âmes n'ont pas résisté à l'appel insinuant des sirènes du carton vert. M. Fernand, docteur de la calligraphie, et moi, démiurge de la grammaire, qu'on nous juge à nos fruits! — L'obscène Georges est télégraphiste selon son désir. René, malgré le sien, n'y est pas parvenu: il fait pour l'instant les courses de je ne sais quelle officine, une honorable sacoche en bandoulière; et il est tombé dans la dévotion. Robert, l'hypocrite, son tourmenteur, grossoie chez un avoué. Léon, Charles, Antoine, l'inconnaissable Paul, cet Émile qui haïssait le rabot, le cher Robert qu'on a guéri de vouloir illustrer les armées, les deux Louis, le favori de l'injustice et le squelette en spirale, travaillent dans des banques, chez des architectes, chez des géomètres. Les parents (un facteur, je les récapitule; un scribe, un gardien de prison, deux veuves vivant tristement de faim, un cordonnier, un marchand de vins, deux agents d'affaires, un agent-voyer, un cultivateur), les plus pauvres surtout, sacrifiés et pitoyables, s'enorgueillissent: de leurs mains calleuses aux mains blanches de leurs enfants, ils admirent le savonnage du Progrès.
 Paperasserie universelle, romans-feuilletons lus à l'ombre dans les bureaux puant la poussière, dégoûtante torpeur: idéal sommeillant de la Démocratie — L'éveillera-t-il, par son marteau de chaudronnier, ce curieux Jacques, qui s'est mis en route pour cela avec une énergie emphatique? « La vie des bureaux, écrivait-il huit jours avant son départ, ce n'est pas une vie; c'est une manière de s'abrutir tout en étant pour ainsi dire nuisible à la société. Ce que je veux, c'est travailler manuellement, me rendre utile autant que possible par mes actes et par mes idées. »
 Et, le dernier matin, sa vieille casquette au poing, son profil âpre et jaune, aux cheveux drus, aux lèvres abaissées sous une toute jeune moustache verte, affirmant sa pensée, c'est lui qui, reniant son bon vieux fonctionnaire de père, acheva ma doctrine:
 — Msieu, j'ai pas été un très bon écolier, mais je vas tâcher d'être un bon ouvrier.
@@ -2817,7 +2650,7 @@ l'homme en proie aux enfants
 
 Jacques d'abord, le seul qui paraisse avoir appliqué mon vouloir sourd.
 En réalité, je ne lui en ai fourni que le vocabulaire: c'est de son instinct qu'il s'est surtout autorisé; et si quelqu'un a le déterminer, son professeur de travail manuel, notre collègue le plus maître de sa tâche, y a réussi bien plutôt que moi.
-Si ensuite Valentin, félicitant Jacques de son départ, lui écrit: « Tu as raison de vouloir prendre un métier; ton père aurait presque fait ton malheur en te plaçant à l'École supérieure, où tu serais devenu un bureaucrate, un parasite et un être nuisible à la société »; j'entends bien encore. Pure phrase, signes bien employés. N'ignorant pas que je pense ainsi, peine moins brutalement, et je regrette tout à coup ma force maladroite), Valentin épie un compliment que je lui refuse, mais qui lui eût suffi; il ne s'engage à rien.
+Si ensuite Valentin, félicitant Jacques de son départ, lui écrit: « Tu as raison de vouloir prendre un métier; ton père aurait presque fait ton malheur en te plaçant à l'École supérieure, où tu serais devenu un bureaucrate, un parasite et un être nuisible à la société j'entends bien encore. Pure phrase, signes bien employés. N'ignorant pas que je pense ainsi, peine moins brutalement, et je regrette tout à coup ma force maladroite), Valentin épie un compliment que je lui refuse, mais qui lui eût suffi; il ne s'engage à rien.
 Lui et quelques autres ne font que parler: et leur parole, qui me répète seulement, qui ne m'apporte pas l'écho d'un milieu, est sans valeur. Mais en voici qui peinent à penser.
 Léopold, ce grand garçon prétentieux, longuement chapitré, lentement convaincu, avoue un jour en maudissant sa docilité: « J'aurais choisi le métier de cultivateur. Le travail des champs, m'objectèrent mes parents, est trop pénible maintenant; il faut chercher du travail exigeant moins de forces et plus rémunérateur. Mes parents m'ont refusé le but où j'aspirais, et m'ont ainsi lancé dans l'incertitude. »
 Et le Marcel aux yeux bruns discute. Fils d'instituteur, futur instituteur, il ne changera pas sans doute pour cela de décision: et toutefois il est troublé. « Quant
@@ -2832,12 +2665,10 @@ Je puis espérer qu'ils prennent souci, plus tard, de ne pas exposer leurs enfan
 
 l'homme en proie aux enfants
 
-travail de leurs mains, impossible l'activité industrielle. Je puis espérer qu'eux-mêmes, instituteurs, méditant plus profond, peinant mieux, ils acquièrent lentement conscience de la dignité vraie de cette profession où les délégua le peuple, où ils doivent demeurer, créateurs d'idées populaires plutôt qu'adaptateurs d'idées bourgeoises, les serviteurs du peuple. Marcel, achevant ses réflexions, ne me promet-il pas de « mieux instruire ses camarades, de leur faire comprendre que le vrai bonheur est à la campagne… de combattre la routine qui existe encore dans beaucoup de campagnes, et qui fait que de nombreux cultivateurs sont malheureux »?
+travail de leurs mains, impossible l'activité industrielle. Je puis espérer qu'eux-mêmes, instituteurs, méditant plus profond, peinant mieux, ils acquièrent lentement conscience de la dignité vraie de cette profession où les délégua le peuple, où ils doivent demeurer, créateurs d'idées populaires plutôt qu'adaptateurs d'idées bourgeoises, les serviteurs du peuple. Marcel, achevant ses réflexions, ne me promet-il pas de « mieux instruire ses camarades, de leur faire comprendre que le vrai bonheur est à la campagne… de combattre la routine qui existe encore dans beaucoup de campagnes, et qui fait que de nombreux cultivateurs sont malheureux
 Moi-même, c'est la même expérience qui m'a informé.
 J'ai lentement reconnu où l'on m'avait placé, et pourquoi. J'étais institué dans cette école, (le Directeur me l'eût dit s'il l'avait su), en Docteur de la Stabilité. Historien, géographe, il me fallait décrire le monde comme il est devenu et tel qu'il apparaît, sans laisser voir qu'il deviendra encore et qu'il ne sera plus. Cette vivante France, patriote, on m'invitait à la représenter comme éternelle, victorieuse aussi des agressions géologiques futures; républicain, comme achevée, incapable désormais de se dépasser en une plus stoïque déclaration des Droits de l'Homme. Moraliste, sous la dictée du Devoir et de la Solidarité, missionnaire d'un kantisme renouviériste et d'un socialisme édulcoré, les programmes m'imposaient (en toute liberté de conscience) de célébrer la Démocratie et de pavoiser, tournant sur elle-même aux feux de bengale d'un incessant Quatorze-Juillet intellectuel, l'absurde roue d'un Progrès immobile.
-Et grammairien enfin, regratteur de syllabes, la main à la manivelle d'un orgue de barbarie des idées, « pro-
-
-fesseur de littérature pour me donner tout mon nom, mon rôle exact était d'enseigner à utiliser les phrases toutes faites, les signes du style et de la réflexion, les formules commodes qui permettent de parler pour ne pas penser; (1) — toute la mimique de l'esprit.
+Et grammairien enfin, regratteur de syllabes, la main à la manivelle d'un orgue de barbarie des idées, « professeur de littérature pour me donner tout mon nom, mon rôle exact était d'enseigner à utiliser les phrases toutes faites, les signes du style et de la réflexion, les formules commodes qui permettent de parler pour ne pas penser; (1) — toute la mimique de l'esprit.
 Distillateur de formules, tant que j'aurais j'aurais poursuivi en mes enfants la banalité, le beau style du roman-feuilleton et du journal, le mensonge. — Ardemment, avec une passion qui se fût répercutée à leurs yeux en flamme heureuse, j'aurais proposé à leur vie intérieure, par exemple, les modèles du père Tiennon, paysan, dont Guillaumin nous a raconté le laborieux effort ému en pleine ignorance; d'Eugène Carrière, peintre, tel que Séailles et Morice nous l'ont montré agissant au plus pur jour de sa vertu; et de Beethoven, grand comme l'humanité; — moi, immobilisateur juré des libertés, pitoyable éclusier de la vie morale! —
 
 (1) Proudhon dit: « Ce que les bourgeois veulent pour le peuple, c'est une première initiation aux éléments des connaissances humaines, l'Intelligence des Signes, une sorte de sacrement, de baptême intellectuel, consistant dans la communication de la parole, de l'écriture, des nombres, des figures; plus quelques formules de religion et de morale; — pour que les natures délicates puissent constater, en ces travailleurs voués à la peine, le reflet de l'âme, la dignité de la conscience; par respect pour elles-mêmes, pour n'avoir pas trop à rougir de l'humanité. » (De la capacité politique des classes ouvrières, page 286)
@@ -2989,7 +2820,7 @@ l'homme en proie aux enfants
 côte fut rude. Mais de la douleur acceptée à la douleur imposée, ô Regardeur de Nuages, ô Critique des Morales; mais de l'intelligence à la sensibilité, Marcel, de la conscience à l'inconscience, quel élan ivre!
 Ils sont tous, ces enfants que j'aime comme je m'aime: sans pitié; le soleil de Novembre agite sa palme pâle sur leurs visages.
 Ce moment que je craignais, où j'aspirais jadis, est-il venu? Ils me possèdent, je les possède. Je leur ai donné ma jeunesse: les livres lus, les pensées bondissantes, le Danube et le Rhin dans le printemps et dans l'automne, la parole indulgente ou tragique de mes maîtres, et le rire de Jeanne… Et mon enfance mystérieuse encore, que je supposais perdue, ce petit garçon timide et blême qui regardait le jour doré rétrograder sur des pavés mélancoliques, ce petit garçon sans péchés s'est éveillé dans ma mémoire où je le croyais mort, et il s'est avancé vers leurs auréoles…
-O chers Ressuscitateurs, vous l'avez accueilli. Ensemble, Messies sans Messages, vous abattiez les samares tournoyantes de l'érable. Rappelez-vous ce soir où nous souffrions tous de l'envie de pleurer pour n'avoir pas dans la guerre sainte accompagné les soldats de l'an II, et parce que nous n'avions pas « gardé nos sabots pour faire dans les villes des entrées triomphales »! — Mais ne m'avez-vous pas donné plus encore, plus précieux, plus incertain: votre prochaine jeunesse! Mes huit ans, disparus, vos vingt ans, qui sont à vivre, se rejoignent en moi et s'embrassent. Vous avez mes témoignages, j'ai reçu vos engagements: ainsi je suis votre mémoire.
+O chers Ressuscitateurs, vous l'avez accueilli. Ensemble, Messies sans Messages, vous abattiez les samares tournoyantes de l'érable. Rappelez-vous ce soir où nous souffrions tous de l'envie de pleurer pour n'avoir pas dans la guerre sainte accompagné les soldats de l'an II, et parce que nous n'avions pas « gardé nos sabots pour faire dans les villes des entrées triomphales — Mais ne m'avez-vous pas donné plus encore, plus précieux, plus incertain: votre prochaine jeunesse! Mes huit ans, disparus, vos vingt ans, qui sont à vivre, se rejoignent en moi et s'embrassent. Vous avez mes témoignages, j'ai reçu vos engagements: ainsi je suis votre mémoire.
 Il faut que je le leur dise. Comment m'y prendre?
 
 L'heure presse. Ma poitrine tressaute tandis que j'évoque l'aboiement brutal de la cloche. D'autres enfants m'appellent en Franche-Comté. Mon adieu doit remercier ceux-ci d'abord.
@@ -3008,7 +2839,7 @@ O fou que j'étais, moi qui voulais encore remercier avec des paroles; moi qui t
 Ce ne sont plus des oiseaux, ce ne sont plus des pantins, ce ne sont plus des morts.
 
 … Dans les yeux, le secret; sur les lèvres, le silence… Ce sont des sources.
-De leurs yeux, de leurs lèvres, descend un torrent où leurs ancêtres passent, où passe et s'écoule cet univers qui les a produits et qu'ils vont reproduire, où moi tout entier je passe aussi, plus fragile qu'un reflet de nuage dans une écume. Absurde, absurde vanité qui ridiculise en moi mes vieilles angoisses. Avec la ferveur aveugle de ma logique, pour soumettre à mes digues ces libertés et ces fatalités inépuisables, j'ai deux ans durant tâché de « faire des âmes »: comme si jamais il n'y avait d'âmes avant les écoles!
+De leurs yeux, de leurs lèvres, descend un torrent où leurs ancêtres passent, où passe et s'écoule cet univers qui les a produits et qu'ils vont reproduire, où moi tout entier je passe aussi, plus fragile qu'un reflet de nuage dans une écume. Absurde, absurde vanité qui ridiculise en moi mes vieilles angoisses. Avec la ferveur aveugle de ma logique, pour soumettre à mes digues ces libertés et ces fatalités inépuisables, j'ai deux ans durant tâché de « faire des âmes comme si jamais il n'y avait d'âmes avant les écoles!
 Ainsi deux ans, pareil au serviteur imbécile de Faust,
 
 j'ai bourré de phrases et même d'idées les cornues où j'espérais voir se former la hideur repliée et fœtale d'Homunculus. Heureusement, le soleil de l'Ile-de-France ne s'est pas laissé discipliner, ni le corps ni la pensée des morts, ni le sourire charmant des sœurs et des amies: — acceptée, desséchée, absorbée, mon influence vit maintenant en ces enfants comme un seul jour de printemps dans un arbre de mille ans.

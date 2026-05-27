@@ -73,9 +73,7 @@ aux deux répétiteurs. L'autre, plus petite, était assez
 Es nue, mais proprement rangée, avec une couchette de
 fer, dans un rideau d'indienne, une table carrée et
 quelques planches avec des livres. Celle-ci appartenait
-à Monsieur le surveillant général. Elle offrait un con-
-
-traste parfait avec la « turne » des deux répétiteurs,
+à Monsieur le surveillant général. Elle offrait un contraste parfait avec la « turne » des deux répétiteurs,
 
 pavée de briques, alors que l'autre était planchéiée, et
 
@@ -101,10 +99,8 @@ qu'eux-mêmes étaient contraints de chiper de l'essence;
 pour leur lampe de cuivre, quand ils étaient libres le
 soir, en vacances, ou les dimanches et jeudis d'études
 réunies; — que le patron refusait de refaire encore une
-fois leur serrure; qu'enfin il leur fallait se payer du fromage, du jambon, de la confiture, pour suppléer à l'or-
-dinai qu'on leur servait, sur leur traitement de Sas
-quarante-cinq francs pour le plus jeune, de $oixante-et-
-onze francs pour l'ancien.
+fois leur serrure; qu'enfin il leur fallait se payer du fromage, du jambon, de la confiture, pour suppléer à l'ordinai qu'on leur servait, sur leur traitement de Sas
+quarante-cinq francs pour le plus jeune, de $oixante-etonze francs pour l'ancien.
 disaient tout cela presque en riant, sans arrièrejensée, sans indignation, comme des bohèmes amusés
 de leur misère. Yves était stupéfait. Il se demandait ce
 qu'il serait devenu, lui, s'il s'était trouvé dans une telle
@@ -208,9 +204,7 @@ enfin les emploierait-on à des répétitions! de classes,
 de leçons, etc. Les répétiteurs allaient être des répétiteurs!.…
 — Parfait! Bravo! mais comment? Les dortoirs,
 les marches militaires, qui les ferait? Et parbleu! des
-commis de magasins, des garçons d'écuries, des sous50
-
-officiers, de jeunes ou vieux bureaucrates, ronds-de-cuir
+commis de magasins, des garçons d'écuries, des sousofficiers, de jeunes ou vieux bureaucrates, ronds-de-cuir
 en purée! des larbins ou des gens chics. — Quoi donc? à
 Tous ces gens-là de bonne volonté, par enthousiasme?
 Que non! Pour de la galette. On paieraïit tant la nuit,
@@ -235,8 +229,7 @@ l'éducation des consciences, des esprits, des cœurs.
 les graves et doctes messieurs du conseil de l'instruction publique décrétaient, que, pour faire des dortoirs,
 - des récréations, des promenades, n'importe qui était
 bon, venu de n'importe où. Elle déclarait: corvées,
-plus haut et plus fort que quiconque, toutes ces fonc-
-tions accomplies jusqu'ici par des jeunes gens qu'elle
+plus haut et plus fort que quiconque, toutes ces fonctions accomplies jusqu'ici par des jeunes gens qu'elle
 avait prétendu avoir choisis et elle payait ces corvées,
 elle les vendait à l'encan, comme un tas de saletés dont
 
@@ -396,8 +389,7 @@ il faut cette tâche insipide et nécessaire! Si encore je
 5 pouvais leur enseigner quelque littérature? Oui, un peu.
 À Cinq, dix minutes d'histoire anglaise et allemande
 1 chaque classe! Je leur lirais des traductions de Shakes3 peare, de Heïine, etc. Par un instant au moins de
-1 temps à autre je pourrais approcher de leur être inté-
-rieur, — les forcer à voir que, par délà la Manche, par
+1 temps à autre je pourrais approcher de leur être intérieur, — les forcer à voir que, par délà la Manche, par
 LE: delà le Rhin, des hommes comme nous ont vécu, vivent,
 pour de la Beauté, de la Justice, de la Vérité! — les
 ment me sont autant de barrières hérissées et meurtrières
@@ -408,8 +400,7 @@ tenté? Mes collègues! Tous bourgeois, tous mariés, tous
 indifférents à ce qui n'est pas leur bien-être personnel!
 Il n'y a que mon voisin... et il me blague! et il est con- Ée:
 scient que sa vie est inique, et il continue à la vivre en
-s'en moquant! Mais les instituteurs! les ouvriers! Con-
-nais pas! je ne sais rien d'eux! C'est honteux! faut à
+s'en moquant! Mais les instituteurs! les ouvriers! Connais pas! je ne sais rien d'eux! C'est honteux! faut à
 que je les voie au plus tôt. Et ici? Eh bien j'oserai! Ce
 soir, quand « la petite » venir faire ma couverture,
 elle la trouvera faite... Je ferai mon lit dès le lever; je;
@@ -418,7 +409,7 @@ faut que je commence, que je devienne un homme! je
 me le suis juré. Je crois que la vérité et la justice sont
 là, dans l'accomplissement quotidien incessant de la
 révolution personnelle. Je ferai ma révolution, coûte
-que coûte! »;
+que coûte!
 Il leva la tête, raffermi un peu par l'espérance d'un;
 plus grand effort. La nuit était tout à fait tombée, il
 Soudain la porte s'ouvrit. Quelque chose de blanc se
@@ -518,15 +509,13 @@ pas de bois! Elle se laisse faire, ou pas. Dans tous les
 mâle — s'abêtissent ensemble, ont des gosses, filles où
 garçons, qui serviront aussi; les garçons un jour ou
 l'autre se feront casser la tête pour un patron, oules
-patrons — à la mine, ou au fameux « champ d'hon-
-neur »! — Les filles Dieu sait! Et puis voilà encore
+patrons — à la mine, ou au fameux « champ d'honneur — Les filles Dieu sait! Et puis voilà encore
 des « choses »!.… — Ou bien. elle n'épouse pas.
 Alors c'est peut-être pis!.. Et puis c'est le monde!.
 Pouah! l'immonde saleté!.…
 En rentrant du restaurant, ce même soir, il fit sa couverture, et se remit au travail, résolu à interroger plus à
 longuement la jeune fille sur son passé dès qu'elle vien-;
-Vers neuf heures et demie, il reçut la petite visite atten-
-due. Sans embarras, mademoiselle Lina lui dit sa vie.
+Vers neuf heures et demie, il reçut la petite visite attendue. Sans embarras, mademoiselle Lina lui dit sa vie.
 Elle était fille de paysans des environs. Elle avait servi
 d'abord chez un horloger en qualité de bonne et de factrice à la fois. Elle gardait souvent la boutique. Il y
 avait peu d'ouvrage. Elle s'était plu là. Elle avait
@@ -540,15 +529,12 @@ obtenu des excuses de madame et de monsieur.
 Ensuite elle avait été à la Poste... enfin chez madame
 Guiraud depuis un an. C'était sa meilleure place.
 Yves dit:
-— C'est bien! Demain je parlerai à madame Guiraud. Nous vous trouverons bien deux ou trois demi62
-
-heures par semaine pour faire quelques dictées, lettres,
+— C'est bien! Demain je parlerai à madame Guiraud. Nous vous trouverons bien deux ou trois demiheures par semaine pour faire quelques dictées, lettres,
 part, je vous ferai toute cette partie de votre ouvrage:
 que vous devez faire chez moi — cela vous dégagera FPS
 , d'autant. Madame Guiraud est très bonne, elle ne
 . refusera pas cela. Vous ne devez pas vous laisser aller
-la stupidité. Vous avez reçu une instruction élémen-
-taire, vous devez la compléter — ou au moins ne pas
+la stupidité. Vous avez reçu une instruction élémentaire, vous devez la compléter — ou au moins ne pas
 +4 perdre ce que vous savez. Il faut que vous ne vous ren_ diez pas inférieure à ceux que vous servez... Il ne faut
 pas laisser l'infériorité — l'esclavage, se justifier.
 Leur conversation se prolongea jusqu'à près de onze
@@ -559,8 +545,7 @@ avec une gloire d'aube.
 …. Dès le lendemain en effet, il obtint de la bonne dame
 - Guiraud trois demi-heures par semaine du temps de
 mademoiselle Lina, qu'il choisit parmi ses heures libres
-… des matins, et il commença cette même semaine à in-
-terroger sa nouvelle élève.
+… des matins, et il commença cette même semaine à interroger sa nouvelle élève.
 
 Ce fut aussi vers ce temps qu'il rencontra un ouvrier
 chez un de ses collègues: Têtu. Têtu était un ancien
@@ -643,9 +628,7 @@ du quotidien labeur. La causerie s'élargissait maïintenant. Madec revint sur l
 — Je ne mets pas les pieds au café.
 — Ah! bon Dieu! Si tous étaient comme vous! C'est
 
-bien cela, c'est beau! savez-vous? Je ne parle pas seu-
-
-lement des ouvriers; moins que les autres ils sont pables quand ils boivent jusqu'à la soûlerie. — J'aime
+bien cela, c'est beau! savez-vous? Je ne parle pas seulement des ouvriers; moins que les autres ils sont pables quand ils boivent jusqu'à la soûlerie. — J'aime
 . beaucoup ces bons bourgeoïs, ceux de mon genre, par
 exemple, qui passent leurs journées le derrière sur une
 chaise, sans sueur, avec des entours confortables, pré-
@@ -679,9 +662,7 @@ avec du loisir.et tant de soin au milieu des plus beaux
 - — Voyez-vous, je ne fais partie d'aucun groupe, d'au-
 
 - cune société. Cependant j'approuverais hautement la
-propagande antialcoolique, si elle ne s'était pas si mes-
-
-quinement entichée de l'unique but qu'elle poursuit — à
+propagande antialcoolique, si elle ne s'était pas si mesquinement entichée de l'unique but qu'elle poursuit — à
 
 avec les armes déloyales de la Foi — aveuglément, stupidement quelquefois. Oui, assurément, il faut tuer
 l'alcoolisme. Mais je dis que la voie qu'on prend, — bien
@@ -694,18 +675,15 @@ connaissent pas d'autres joies, parce que les bourgeois
 ne leur en enseignent pas d'autres, parce que les bourgeois n'en connaissent pas d'autres! Et si les bourgeois
 n'en connaissent pas d'autres, c'est que le bourgeois est
 pourri par le milieu qu'il s'est créé. — Il s'est bâti cette
-société pour son propre bien-être, égoïstement, vorace-
-ment. Or, tout égoïsme est bestial et condamné à ne se
-nourrir que de grossières, que de crapulardes jouis-
-sances. L'égoïsme repose sur la force brute. Tout individu qui ne s'efforce pas de faire entrer dans chacun
+société pour son propre bien-être, égoïstement, voracement. Or, tout égoïsme est bestial et condamné à ne se
+nourrir que de grossières, que de crapulardes jouissances. L'égoïsme repose sur la force brute. Tout individu qui ne s'efforce pas de faire entrer dans chacun
 des actes de sa vie la préoccupation d'autrui, qui
 n'érige pas la maxime de son action en maxime universelle, est fatalement amené à rouler, sans délai, au
 plus bas degré de l'échelle humaine. Si je convoite
 quelque bien matériel pour moi seul, je ne le fais
 qu'à mes dépens. Ce que je possède en propre, je le
 
-: vole! — Preuve? … Il me faut des gendarmes, des sol-
-dats et des canons pour défendre mon bien contre autrui,
+: vole! — Preuve? … Il me faut des gendarmes, des soldats et des canons pour défendre mon bien contre autrui,
 qui, à son tour, encouragé par la loi de mon action, veut
 aussi posséder pour soi. — Mais du jour où j'arrive à
 considérer que tout bien matériel, nécessaire à la vie
@@ -717,17 +695,13 @@ impitoyables; je sens naître en moi le dégoût, le
 
 mépris, l'horreur de toutes jouissances basses et violentes auxquelles j'étais contraint de m'abandonner,
 quand la pensée n'était pour moi que la geôlière des
-soucis d'augmenter et de garder mon bien-être maté-
-riel! Le bourgeois souffre à penser; son rêve est de ne
+soucis d'augmenter et de garder mon bien-être matériel! Le bourgeois souffre à penser; son rêve est de ne
 plus penser; d'où nécessité de quelque passion qui lui
-ôte un moment le souci de soi-même, qui l'aliène à soimême; d'où les jeux stupides, prétextes à boire, à s'enivrer; d'où l'alcool!... Et d'autre part l'ouvrier misé-
-rable, anxieux de son pain, perpétuellement, ignorant
+ôte un moment le souci de soi-même, qui l'aliène à soimême; d'où les jeux stupides, prétextes à boire, à s'enivrer; d'où l'alcool!... Et d'autre part l'ouvrier misérable, anxieux de son pain, perpétuellement, ignorant
 de tout, n'ayant pas le temps de penser à autre chose,
 voyant la folie hilare et bruyante du bourgeois, n'ima_gine pas d'autre jouissance!
 
-— Abolissez la propriété privée, et vous vous libé-
-
-rerez de toutes folies, de l'alcoolisme entre autres!
+— Abolissez la propriété privée, et vous vous libérerez de toutes folies, de l'alcoolisme entre autres!
 
 à Têtu tapa sur ses genoux:
 
@@ -741,9 +715,7 @@ Périer, secouant la cendre de sa pipe sur le chenetne
 
 retenez ceci: la Révolution ne se fera que par l'in-
 
-… dividu non plus par la foule; et elle se fera quotidien-
-
-nement, heure par heure, par chacun de nous. La Révo-
+… dividu non plus par la foule; et elle se fera quotidiennement, heure par heure, par chacun de nous. La Révo-
 
 …—. lution se fait à toute minute, depuis le commencement.
 
@@ -751,13 +723,11 @@ Il faut que chacun de nous s'affranchisse personnelle-
 
 À ment de toute bestialité d'abord, et aide à la même
 
-œuvre, de tout son pouvoir ceux qui l'entourent: cha-
-cun de nous, bourgeois ou ouvriers. La tâche est
+œuvre, de tout son pouvoir ceux qui l'entourent: chacun de nous, bourgeois ou ouvriers. La tâche est
 d'autant plus ardue que l'individu est plus étroitement
 asservi aux forces ennemies dont l'enserre l'esprit
 inique de la société actuelle; mais, coûte que coûte, il
-faut qu'il s'affranchisse! C'est l'heure des Héros ob-
-scurs. Fais-toi toi-même ce que tu voudrais que les
+faut qu'il s'affranchisse! C'est l'heure des Héros obscurs. Fais-toi toi-même ce que tu voudrais que les
 autres soient! Tu veux que la justice règne? Fais de
 toi un juste, envers et contre tous et tout! Que la jus- …
 tice règne en toi, par toi! Exige ton droit imprescriptible à la lumière, à l'air, au bien-être, à la liberté. —
@@ -771,8 +741,7 @@ Agissez sur l'opinion publique contre vos chefs hiérarchiques, contre vos maît
 Abolis dans ta vie privée tout ce qui n'est pas propre,
 tout ce qui est antisocial. La société humaine doit
 reposer sur la raison: vis une vie toute de raison. (2
-Interdis-toi tout geste, toute parole, toute action con-
-traires à la raison. Maïîtrise-toi toi-même: Ilest lamentable, il est honteux, il est odieux, il est ixhumain, que
+Interdis-toi tout geste, toute parole, toute action contraires à la raison. Maïîtrise-toi toi-même: Ilest lamentable, il est honteux, il est odieux, il est ixhumain, que
 tu supportes un autre maître que toi-même! — Quand
 l'individu s'exerce à un pareil jeu, il s'y prend d'amour
 lui-même, et cette joie lui suffit. IL n'a bientôt plus
@@ -848,9 +817,7 @@ d'ailleurs entrait dans son plan de vie. IL voulait que
 . heure et demie chaque jour, au grand air. Il prolongeait
 ses promenades à pied les jeudis, vendredis et di-
 ; manches, où il avait tout le temps à lui. IL connut
-4 bientôt toute la pauvre campagne nue et nulle des envi-
-
-rons.. Cependant, au cœur même de la petite ville, il
+4 bientôt toute la pauvre campagne nue et nulle des environs.. Cependant, au cœur même de la petite ville, il
 n'avait pas tardé à trouver un lieu familier: le cha a
 teau. C'était un antique donjon carré, de vingt à trente
 mètres de hauteur, à douze arcs-boutants, fait de tuffe
@@ -858,8 +825,7 @@ blanche et datant du douzième siècle; seul reste de
 l'immense citadelle dont de vagues débris s'effritaient
 encore par la plaine. Cette tour carrée, visible de dix à
 vingt kilomètres à la ronde, était plantée sur le sommet
-du coteau dont les vieilles maisons de Villetaupier tapis-
-saient les flancs, et comblaient le vieux vallon. Le donjon
+du coteau dont les vieilles maisons de Villetaupier tapissaient les flancs, et comblaient le vieux vallon. Le donjon
 s'élevait dans une solitude orgueilleuse, et les trous
 
 ; carrés de son couronnement lorgnaient tristement la
@@ -894,16 +860,13 @@ source imaginaire qu'ils auraient dérobée. Il se plaisait
 surtout aux jours de tempête. Il aimait la tiède
 humidité du vent d'ouest. Enveloppé de sa pèlerine, il
 marchait sur le gravier trempé dont on avait semé les
-… allées de l'esplanade. Aux rumeurs du vent qui souf-
-flait par la plaine et frémissait dans les ramures dénu_ dées des vieux tilleuls bossués et tordus comme d'im-
-menses ceps au-dessus de sa tête, il se souvenait du
+… allées de l'esplanade. Aux rumeurs du vent qui soufflait par la plaine et frémissait dans les ramures dénu_ dées des vieux tilleuls bossués et tordus comme d'immenses ceps au-dessus de sa tête, il se souvenait du
 Miss de la mer. foulait les sables des grèves, il
 aspirait avec délices la fraîcheur marine des embruns
 perlant sur ses cils, ses joues, ses moustaches. Puis il
 ouvrait les yeux et regardait vers le sud.
 —. L'illusion ne s'évanouissait pas. Le ciel n'était qu'une
-ite éperdue de nuées sombres, au ventre lourd, traî-
-nant jusqu'aux menus sommets des ondulations stériles.
+ite éperdue de nuées sombres, au ventre lourd, traînant jusqu'aux menus sommets des ondulations stériles.
 Par delà se creusait un long et large vallon peuplé
 ; 2 d'arbres, de champs cultivés, de maisons dispersées. IL
 … distinguait comme une haute bouée, dominant les
@@ -920,8 +883,7 @@ l'angoisse infime de son individualité.…. - DE
 Ses jours de loisir dans la semaine étaient aussi bien
 remplis. Les matins, c'était l'arrivée de mademoiselle
 Lina, dans sa chambre, avec, à la main, quelque balai “4
-et un livre scolaire. Il écartait aussitôt toutes ses pape-
-rasses, sur l'étroite table lui ménageait un coin. Elle
+et un livre scolaire. Il écartait aussitôt toutes ses paperasses, sur l'étroite table lui ménageait un coin. Elle
 était bonne écolière, docile, travailleuse; et c'était une
 bonne demi-heure qu'ils passaient ensemble vraiment:
 frère et sœur. Il lui faisait faire des lettres, des dictées,
@@ -942,14 +904,11 @@ Et mademoiselle Lina, avec son balai et sa nouvelle
 Un jeudi par mois Yves faisait la promenade à
 place du répétiteur de service. Il trouvait maintenant
 autant de plaisir à errer par la campagne avec les
-trente où quarante pauvres diables en uniforme, pen-
-dant trois heures, qu'il y avait trouvé de peine autre-
-fois, quand cette tâche lui était régulièrement imposée
+trente où quarante pauvres diables en uniforme, pendant trois heures, qu'il y avait trouvé de peine autrefois, quand cette tâche lui était régulièrement imposée
 
 deux fois par semaine. Cependant le répétiteur qu'il
 Jibéraït ainsi, avait une après-midi par mois pour faire
-de son temps ce qui lui plaisait. À quatre heures il ren-
-trait, et retrouvait un répétiteur qui, frais et dispos,
+de son temps ce qui lui plaisait. À quatre heures il rentrait, et retrouvait un répétiteur qui, frais et dispos,
 gardait les élèves en cour de récréation, tandis qu'Yves
 Le retournait vivement chez lui pour soufller un peu,;
 en prenant une tasse de thé; puis il revenait au collège
@@ -977,9 +936,7 @@ trois heures. Madec lisait à haute voix aux
 . œuvre de romantique français ou étranger. Il s'appli-
 . quait à simplifier, à commenter, — à causer, de façon à
 ne pas faire durer une heure entière sa lecture. Le
-choix des ouvrages présentait toujours quelque diffi-
-
-culté, car cette étude réunissait presque tous les élèves à
+choix des ouvrages présentait toujours quelque difficulté, car cette étude réunissait presque tous les élèves à
 internes du collège, de tous âges. IL y avait quelques a
 philosophes et rhétoriciens, de dix-sept et dix-huit ans;
 mais la majorité était faite de moyens et de petits, de
@@ -989,8 +946,7 @@ poèmes de Victor Hugo, de Vigny, un drame de Schilz
 ler, des pages de Tolstoï, un conte de Ruskin. Il s'at-
 _tarda longuement sur « l'Ennemi du Peuple » d'Ibsen,
 et les petits mêmes écoutèrent attentivement le com
-mentaire qu'il en fit, et les applications qu'il leur sug-
-géra de l'idée maîtresse de cette grande œuvre aux
+mentaire qu'il en fit, et les applications qu'il leur suggéra de l'idée maîtresse de cette grande œuvre aux
 événements de la vie présente les invitèrent à lui poser
 des questions si embarrassantes, que Madec resta à
 court de réponses. Un d'eux, fils d'un avocat connu,
@@ -1047,17 +1003,14 @@ charité! Non! Vous n'en avez pas besoin, Dieu merci! …
 C'est une affaire de justice, de raison surtout. Votre -
 gamin aimerait déjà à apprendre l'anglais; vous ne le “3
 trouvez pas encore d'âge à avoir de très sérieuses a
-leçons — qui d'ailleurs le fatigueraient. Tout en s'amu-
-sant avec moi, il trouve le moyen d'éviter d'avance les
-difficultés qui pourraient le décourager ensuite. Pour-
-quoi allez-vous empêcher cela par un faux-orgueil bour- à
+leçons — qui d'ailleurs le fatigueraient. Tout en s'amusant avec moi, il trouve le moyen d'éviter d'avance les
+difficultés qui pourraient le décourager ensuite. Pourquoi allez-vous empêcher cela par un faux-orgueil bour- à
 geois? Eh, que diable! habituez-vous donc à penser;
 Le service que je vous rends, ou à votre gamin, si tant À
 est qu'il vaille quelque chose, eh bien rendez-le donc,!
 non à moi, bien sûr, puisque je n'en ai pas besoin, à
 maintenant, mais à quelque autre qui en a besoin, sous;
-une forme ou sous une autre. Et sinon vous, laissez-
-moi par apprendre à Pierrot que cela doit se faire,;
+une forme ou sous une autre. Et sinon vous, laissezmoi par apprendre à Pierrot que cela doit se faire,;
 se fera couramment, dans une société supérieure, un.
 peu plus vraiment humaine que celle-ci. Le salaire que
 je demande pour ce que je fais gratuitement, le voici:
@@ -1098,8 +1051,7 @@ paix aux gens! Est-ce qu'on vous demande quelque
 a chose! Vous figurez-vous que vous allez changer le
 — monde, vous? Vous êtes trop pêtit, mon bon!
 —. Arverne raillait avec amertume, comme s'il en vou-:
-lait vraiment à Yves de sa naïveté — et Yves quelque-
-fois trouvait que le ricanement d'Arverne avait quelque
+lait vraiment à Yves de sa naïveté — et Yves quelquefois trouvait que le ricanement d'Arverne avait quelque
 ; chose de diabolique. Il sortait, meurtri.
 
 a Cependant les vacances du jour de l'An étaient arri-
@@ -1111,8 +1063,7 @@ Jes bas quartiers de la ville:
 — Je viendrai à votre rencontre avec une lanterne,
 avait dit Périer; sans cela vous ne vous reconnaîtriez
 
-(C'était une joie pour Yves d'avoir accepter l'invi-
-tation de Périer. Celle de Têtu était venue un peu plus
+(C'était une joie pour Yves d'avoir accepter l'invitation de Périer. Celle de Têtu était venue un peu plus
 
 2. — J'en ai assez des soirées bourgeoises, murmurait-
 — il, en s'acheminant au rendez-vous, avec un saint4 honoré à la crème sous le bras. — Je ne suis pas fâché
@@ -1134,8 +1085,7 @@ dès qu'il aperçut la lueur trouble de la lanterne.
 — Avance au ralliement! répliqua en riant le bon “4 Ki.
 Ils se trouvèrent, et aussitôt, sautant un large ruisseau débordé qui encombraïit le milieu de la rue, ils À
 entrèrent. Périer était seul locataire de la maisonnette
-proprette, pauvrette, blanchie à la chaux, d'une frai-
-cheur de linge.
+proprette, pauvrette, blanchie à la chaux, d'une fraicheur de linge.
 — Dommage d'être dans ce trou! disait Périer. Si.
 c'était seulement la campagne, on aurait de l'air
 Il y avait deux pièces en bas: la salle à manger, où:
@@ -1152,8 +1102,7 @@ une sorte de mélopée paysanne (elle était vendéenne);
 — eh ben? vous vous êtes donc pas perdu? Pauv
 monsieur Madec! A-t-on idée aussi de venir dans des
 maisons comme celle-ci? À
-Elle parlait toujours ainsi, avec une ironie sans amer-
-tume, qui dilatait légèrement ses narines.;
+Elle parlait toujours ainsi, avec une ironie sans amertume, qui dilatait légèrement ses narines.;
 — Non, madame! Vous me prenez toujours pour un si
 
 Périer, le poing sur la hanche où se plissait la blouse
@@ -1211,6 +1160,5 @@ avec un froufroutement d'étoffes mouillées. Yves se
 Et Boulon, le menton encadré d'une barbe noire
 d'Assyrien symétriquement taillée, la bouche ouverte
 en un rire, tendait à Yves une large et robuste main
-blanche. Et la petite dame Boulon papottait déjà étour-
-diment parmi les lentes paroles grasses de Valentine,
+blanche. Et la petite dame Boulon papottait déjà étourdiment parmi les lentes paroles grasses de Valentine,
 tandis que Périer, fermant les portes, criait derrière

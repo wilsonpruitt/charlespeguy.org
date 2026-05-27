@@ -18,8 +18,7 @@ première, parce qu'elle pose, en fait, la question,
 dans le détail.
 Envisageons la presse au point de vue industriel. Sa matière première est le papier blanc, qu'elle transforme en
 feuilles imprimées. Souvent, les frais de la transformation
-dépassent le prix de vente du produit fabrique, et le béné-
-fice ne vient que des sous-produits, ainsi qu'il arrive pour
+dépassent le prix de vente du produit fabrique, et le bénéfice ne vient que des sous-produits, ainsi qu'il arrive pour
 En journalisme, le sous-produit, c'est la publicité.
 .… Contrairement à l'opinion courante, ce ne sont pas les
 journaux à bon marché qui ont le plus besoin des annonces
@@ -134,9 +133,7 @@ C'est-à-dire: tout article mercantile, et non, bien entendu, tout
 
 troisième cahier de la deuxième série
 
-prendraient sur leur salaire, socialiste ou bour-
-
-geois, pour assurer le salaire socialiste des socialistes qui travailleraient au journal.
+prendraient sur leur salaire, socialiste ou bourgeois, pour assurer le salaire socialiste des socialistes qui travailleraient au journal.
 
 Tous les ouvriers qui travailleraient au journal,
 ouvriers intellectuels et ouvriers manuels, ouvriers
@@ -171,8 +168,7 @@ espérances même.
 
 Enfin et surtout ce journal serait un journal de
 famille, s'adressant d'abord aux femmes et aux
-enfants, sans qui toute œuvre est vaine; et il garderait envers tous ses lecteurs la très grande révé-
-rence, car elle est due aussi aux grands enfants.
+enfants, sans qui toute œuvre est vaine; et il garderait envers tous ses lecteurs la très grande révérence, car elle est due aussi aux grands enfants.
 
 Quand Pierre Deloire écrivit cet article, on peut dire
 que l'affaire Dreyfus devenait sérieuse. L'article paraissait le 15. L'avant-veille, 15, après qu'un conseil de
@@ -188,15 +184,12 @@ d'avoir accusé de troubler la France ceux qui la
 veulent généreuse, à la tête des nations libres et
 justes, lorsqu'on ourdit soi-même l'impudent complot d'imposer l'erreur, devant le monde entier.
 C'est un crime d'égarer l'opinion, d'utiliser pour
-une besogne de mort cette opinion qu'on a pervertie, jusqu'à la faire délirer. C'est un crime d'empoi-
-
-troisième cahier de la deuxième série
+une besogne de mort cette opinion qu'on a pervertie, jusqu'à la faire délirer. C'est un crime d'empoitroisième cahier de la deuxième série
 sonner les petits et les humbles, d'exaspérer les passions de réaction et d'intolérance en s'abritant derrière l'odieux antisémitisme, dont la grande France
 libérale mourra, si elle n'en est pas guérie.
 
 Tout le monde alors découvrait à quel redoutable danger la presse immonde exposait en France la justice, la
-vérité, l'humanité, la santé sociale. Et cependant l'ar-
-ticle de Pierre Deloire n'était pas un article de circonstance. Il n'était pas non plus l'aération d'un rêve individuel. Ni la manifestation d'un rêve collectif. Il était
+vérité, l'humanité, la santé sociale. Et cependant l'article de Pierre Deloire n'était pas un article de circonstance. Il n'était pas non plus l'aération d'un rêve individuel. Ni la manifestation d'un rêve collectif. Il était
 l'exposé délibéré d'un plan d'action.
 
 Depuis le premier mai 1897 quelques jeunes gens mettaient en commun tout ce qu'ils pouvaient pour fonder
@@ -217,8 +210,7 @@ l'heure où commence mon histoire, ces jeunes gens
 
 socialisme. Ils ne pensaient pas que ce fût un domaine
 à partager entre plusieurs gros propriétaires. Ils s'imaginaient que le socialisme était l'ensemble de ce qui
-prépare la révolution sociale et pensaient que cette ré-
-volution sociale tendaït à faire le bonheur de l'humanité. Le même historien Pierre Deloire, négligeant un
+prépare la révolution sociale et pensaient que cette révolution sociale tendaït à faire le bonheur de l'humanité. Le même historien Pierre Deloire, négligeant un
 peu ses travaux professionnels, avait rédigé non pas un
 catéchisme ou un manuel — car personne alors n'eût
 osé parler de catéchisme ou de manuel socialiste, —
@@ -234,8 +226,7 @@ Les socialistes veulent remplacer autant que possible le gouvernement des hommes
 l'administration sociale des choses, des biens: En
 effet, les hommes étant variés indéfiniment, ce qui
 est bon d'ailleurs, on ne peut pas organiser le gouvernement des hommes selon une exacte méthode
-scientifique; tandis que, les biens n'étant pas indé-
-finiment variés, on peut organiser selon une exacte
+scientifique; tandis que, les biens n'étant pas indéfiniment variés, on peut organiser selon une exacte
 méthode scientifique l'administration des biens.
 la plupart des difficultés, des souffrances qui
 paraissent tenir au mauvais gouvernement des

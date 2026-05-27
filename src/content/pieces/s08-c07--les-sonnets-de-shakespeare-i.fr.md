@@ -98,7 +98,7 @@ ft: Celui qui volontiers verse au jour dit la somme:
 A 1 Décuple et ton image et ta puissance d'homme!
 Et si par dix enfants ton être est répété,
 Plus heureuse dix fois sera ton âme heureuse: AN:
-4 Tu renaîtras vivant en ta postérité,
+Tu renaîtras vivant en ta postérité,
 Quand viendra te faucher la mortelle Faucheuse. à
 Ne fais pas l'obstiné: ne prends pas, toi si beau,
 Pour héritiers la Mort et les vers du tombeau!
@@ -304,7 +304,7 @@ Doublement tu vivrais en eux comme en mes vers!
 
 Po. Comment te comparer aux matins de l'Eté? Ar.
 Ta grâce est plus aimable et ton humeur plus douce: NM:
-5 Son vent rude abolit le bourgeon velouté, -
+Son vent rude abolit le bourgeon velouté, -
 Me, Et de trop près l'Hiver le talonne et le pousse.
 ï (4: Souvent l'or de son teint se tache et se ternit Si.
 
@@ -312,18 +312,18 @@ Me, Et de trop près l'Hiver le talonne et le pousse.
 Hier franc et rieur, à peine s'il sourit
 ne Aujourd'hui, tant le sort changeant le rend revêche.
 mie Mais toi, point ne verras se flétrir ton printemps, #1
-6 Nise famer jamais tes beautés immortelles
+Nise famer jamais tes beautés immortelles
 Voyant croître en mes vers tes bourgeons éclatants
 La Mort doit s'avouer sa défaite éternelle.
 Tant que vivra le monde, et l'amour et l'envie, “EN
 
-14 Vivront ces vers, et ces vers-là donnent la vie!
+Vivront ces vers, et ces vers-là donnent la vie!
 
 E. O Temps, ronge au lion ses ongles acérés,
 Pousse la Terre à dévorer sa propre race;
 Brise au tigre cruel ses crocs de sang lustrés;
 Sur l'orgueilleux phénix de cent ans, fais main basse.
-24 Qu'en l'œil pur des saisons, les rires et les pleurs
+Qu'en l'œil pur des saisons, les rires et les pleurs
 é Passent quand passe, à Temps, ta grande aile rapide; LE
 Rad: Chasse de l'univers les parfums et les fleurs: “4
 Soit, mais je te défends crime de régicide!
@@ -363,10 +363,10 @@ Qui rit au sein laiteux que décache une mère; —
 Mais moins qu'un cierge d'or dans le ciel triomphant.
 je Qu'il chante, ce chanteur qui de ses vers s'enivre: de
 
-0 En mon miroir comment lirai-je ma vieillesse il
+En mon miroir comment lirai-je ma vieillesse il
 VAN: Tant que Jeunesse et Toi vous serez frère et sœur? HE::
 (0 Mais, quand le Temps te creusera de sa tristesse,
-0 La beauté radieuse, Ami, qui illumine
+La beauté radieuse, Ami, qui illumine
 PLUMES Est aussi le manteau visible de mon cœur,
 : Et, si tu vaines le Temps, je serai son vainqueur.
 Pour te garder à mon amour, veille toi-même, CPR:
@@ -377,7 +377,7 @@ Vois, je berce ton cœur sur mon souci qui aime,
 1 gai Tu me donnas un cœur qui point ne se renie.
 
 Comme un acteur novice, inhabile au succès,
-4 Perd le fil de son rôle en entrant sur la scène;
+Perd le fil de son rôle en entrant sur la scène;
 Comme un fauve irrité dont la rage en excès
 : Affaiblit dans son cœur la force de sa haine;
 De Ainsi, pauvre en sang-froid, je ne puis célébrer
@@ -437,7 +437,7 @@ Honneur si grand, que mon esprit, pauvre en parure,
 à manquer du pourpoint des mots et sembler nu; À
 A Mais j'escompte l'accueil de ta riche nature
 Où, tout nus, mes pensers seront les bienvenus.
-12 Puis, l'astre bienfaisant qui pointe mon aiguille
+Puis, l'astre bienfaisant qui pointe mon aiguille
 Par son doux ascendant sur ton pôle aimanté
 Ni Vêtira de velours mon amour en guenille
 Pour qu'il soit digne, Ami, de tes almes bontés.,
@@ -540,7 +540,7 @@ en AU Comme l'art a grandi des poètes du jour,
 
 4 des matins j'ai la gloire de l'aurore “48
 Caresser les sommets de ses regards royaux,
-Sa face d'or baiser le pré vert qui se dore, À:
+Sa face d'or baiser le pré vert qui se dore,
 h. Et, céleste alchimiste, empourprer les ruisseaux;
 
 Puis, tout-à-coup, laisser le plus vil des nuages “TR
@@ -570,13 +570,13 @@ Dal TU Le remords du coupable est un faible secours.
 À Richissime rançon des heures douloureuses.
 
 Ne pleure plus, Ami, sur ta faute passée:
-4 Comme le fier soleil, la lune est éclipsée A
+Comme le fier soleil, la lune est éclipsée A
 Et le chancre hideux mord le bourgeon mignard.
 Tout homme est criminel et je le suis moi-même, 1 ÇSR
 De mes comparaisons autorisant tes torts; de)
 Je me corromps à te verser ce frais baptême NUS
 Qui porte à tes péchés confus ces réconforts. ne
-4 Au crime de tes sens, c'est moi qui trouve un sens, on 5}
+Au crime de tes sens, c'est moi qui trouve un sens, on 5}
 Qui change en avocat ton plus rude adversaire,
 à Et, plaidant contre moi, me condamne aux dépens:
 La guerre est telle entre l'amour la colère, 1 LE
@@ -584,23 +584,23 @@ Qu'en ces discords civils, je suis pour le voleur, À (gi
 L'amer et doux bandit qui n'a pillé mon cœur.
 
 AISSE-MOr confesser qu'il nous faut rester deux (54
-14 Bien qu'unis en un seul d'une amour indivise:
+Bien qu'unis en un seul d'une amour indivise:
 Ainsi je porterai mes stigmates hideux 3 (ét
-1 Seul, sans ton aide, afin que seul les coups me visent. NET
+Seul, sans ton aide, afin que seul les coups me visent. NET
 Ils ont, nos deux amours, la même dignité,
 {1288 Encor que séparés de volontés fatales
-5 Qui, sans changer en rien leur aimante unité, à
+Qui, sans changer en rien leur aimante unité, à
 5) Dépouillent leur bonheur des minutes vitales.
 LOIR! Il ne m'est plus permis de te connaître au jour,
-40 De peur que mon péché ne te soit une honte; De,
+De peur que mon péché ne te soit une honte; De,
 Cesse en public aussi d'honorer ton amour,
-4 Que cet honneur ne soit pour ta gloire un mécompte.
+Que cet honneur ne soit pour ta gloire un mécompte.
 Ne le fais plus: c'est mon désir expiatoire: mn,
 nn: Tout ton être étant mien, mienne est aussi ta gloire. Ki:
 
 4 3 Un père prend plaisir, anémié par l'âge,
-2 A voir son fils bondir sous le flux du sang fort; +102
-À: Ainsi, rendu boiteux par le Sort et sa rage,
+A voir son fils bondir sous le flux du sang fort; +102
+Ainsi, rendu boiteux par le Sort et sa rage,
 À Je puise en ta vigueur mon plus cher réconfort.
 Tous ces dons, anoblis de servir sous ta loi, ta
 à Siégeant, couronnés d'or, au front de ta puissance, je
@@ -625,7 +625,7 @@ Quand sur lui tu répands les flots sacrés de l'art? a
 a à Que les Neuf d'autrefois, chères aux ménestrels, "+1
 te Et donne à ton poète aimé, pour le défendre
 1} Des embüches du Temps, les nombres éternels. Ni
-1 À Si mon humble vers plaît à ces jours curieux,
+À Si mon humble vers plaît à ces jours curieux,
 mA) A moi la peine, à toi le laurier glorieux!
 
 Comment ai-je le front de chanter ta valeur
@@ -635,16 +635,16 @@ Fût-ce pour cela seul, nous vivrons séparés, rte
 Et nos deux fleurs d'amour délaisseront leur tige; (7
 4 à Alors je te paierai mes éloges dorés,
 Le Légitime tribut que ton mérite exige.
-4 Absence, à quels tourments tu nous ferais souffrir, “14 À
+Absence, à quels tourments tu nous ferais souffrir, “14 À
 Si ton loisir amer n'offrait la douce ivresse
 De l'amour qu'on rappelle au cœur pour le fleurir:
 ES Et pour le décevoir d'une vaine caresse; on.
-4 Et si tu n'enseignais à doubler l'être aimé,
+Et si tu n'enseignais à doubler l'être aimé,
 Qui, bien qu'absent, paraît, par nos chants exhumé.
 
 (NN RENDS toutes mes amours, cher Amour, prends-lestoutes: de
 1 0 Qu'as-tu de plus alors que tu n'avais avant? LA
-18 Aucun sincère amour, cher Amour, ne s'ajoute pie
+Aucun sincère amour, cher Amour, ne s'ajoute pie
 A mon amour total, fleuve sans affluent. RAT
 Si par amour pour moi tu me prends mon Aimée,
 3) Je ne puis te blâmer d'user de mon amour;
@@ -672,7 +672,7 @@ Dies; Où tu dois déchirer à la fois deux traités: He)
 FE: Le sien, car tes attraits à tes lèvres l'entrainent;
 de Le tien, car tes attraits à me tromper t'amènent.
 
-(: Qu'Elle soit à toi, Will, n'est pas tout mon chagrin,
+Qu'Elle soit à toi, Will, n'est pas tout mon chagrin,
 Et pourtant je l'aimais d'un cœur tendre et farouche; #10
 Mais qu''Elle te possède est le pire destin ANT
 Et la perte d'amour qui de plus près me touche. Net
@@ -683,7 +683,7 @@ En te laissant l'aimer par amour de moi-même. il ).
 Te perdre, c'est un gain pour mon cœur amoureux;
 À 4. La perdre, c'est un gain pour ton cœur qui s'en loue;
 Si je les perds tous deux, ils se trouvent tous deux, Ne.
-18 Et tous deux par amour sur cette croix me clouent.
+Et tous deux par amour sur cette croix me clouent.
 Mais nous ne faisons qu'un, à flatterie extrême:
 a En aimant mon Ami c'est toujours moi qu''Elle aime. A
 
@@ -746,11 +746,11 @@ Coffret que ne força jamais œil déloyal;
 Mais l'accusé soutient que ce n'est qu'un leurre
 Et qu'en lui peignis ton visage royal.
 a Le Pour juger ce procès, convoquant les Pensées, Eau
-4 Tenanciers de mon cœur, j'en formai le jury
-108 Dont le verdict fixa les parts controversées
+Tenanciers de mon cœur, j'en formai le jury
+Dont le verdict fixa les parts controversées
 Et de l'œil lumineux et du cœur attendri. à
 Et mon œil eut pour part ta forme et ta couleur, An.
-a, Et mon cœur eut l'intime amitié de ton cœur. à
+Et mon cœur eut l'intime amitié de ton cœur. à
 
 Une ligue entre l'œil et le cœur est formée, 3 hi:
 . Pour échanger en paix des bienfaits mutuels: Ge: »
@@ -798,7 +798,7 @@ Toi, pour m'abandonner, peux invoquer les lois;
 Pour t'aimer, je ne puis trouver de raison, moi!
 
 les isonnets de Shakespeare 0000
-108 Je traîne en route un cœur pesant comme un plomb vil
+Je traîne en route un cœur pesant comme un plomb vil
 DU Et quand mon lent effort à l'auberge m'amène, le
 ‘Aa Mon gémissant repos soupire à mon exil: A À
 en « Loin de l'Ami, chaque mille franchi Ceñtraine! »
@@ -817,14 +817,14 @@ De ce pas lent et languissant, quand je m'en vais
 Comment fuir au galop l'attrait de ta présence?
 Mais, au retour, comment t'absoudre, à pauvre bête,
 Quand l'éclair le plus vif semble toujours trop lent, à à
-3 Quand j'éperonne en vain les flancs de la tempête, SE
+Quand j'éperonne en vain les flancs de la tempête, SE
 Et me sens immobile en son vol affolant!
 te Il n'est point de cheval dont la course dépasse pi:
 La course du Désimné de l'amour parfait
 Idéal, il hennit et dévore l'espace
 Par amour excusant ma rosse et son méfait: HÉTE
 « Puisqu'en quittant l'Ami, tu marchas à ta guise, À
-L'ONR se Garde ton amble égal: moi, j'ai l'aile des brises! »:
+L'ONR se Garde ton amble égal: moi, j'ai l'aile des brises!
 
 Je ressemble à ce riche, auquel sa clef bénie DAS;
 Verse la volupté d'un suave trésor, Es 2018
@@ -836,7 +836,7 @@ AN Grâce au retour discret de leur vol coutumier, À
 Des rubis souverains d'un opulent collier. ‘.
 Le temps, qui loin de moi vous garde, est ma cassette
 
-9 Orgueil emprisonné qu'on étale et qu'on fête
+Orgueil emprisonné qu'on étale et qu'on fête
 
 En des jours éclatants pour en dorer l'éclat.
 de Béni sois-tu, joyau dont le haut prix embrase
@@ -851,15 +851,15 @@ N'est de vos traits royaux que la pâle copie;: nur
 à. Qu'on mette au front d'Hélène un astre de beauté, À
 Et c'est vous que revêt le péplos d'Olympie!
 Qu'on parle du Printemps, de l'Automne fécond, de
-1 L'un n'est que le fantome obscur de votre flamme,
+L'un n'est que le fantome obscur de votre flamme,
 L'autre a l'or généreux de votre cœur profond,:
 Et chaque être béni nous reflète votre àme! Le
 Vous possédez de toute grâce une parcelle, 7,180
 Vous seui avez, sous le soleil, le cœur fidèle!
 
 Nr, Oh! combien la beauté nous apparaît plus belle
-40 Quand pour pur ornement elle a la vérité.
-1 Le pénétrant parfum que la rose recèle
+Quand pour pur ornement elle a la vérité.
+Le pénétrant parfum que la rose recèle
 Embellit à nos yeux sa grâce et sa beauté. Foi
 te Sans parfum, l'églantine a la même richesse
 mil Que la pourpre embaumée au cœur plissé des roses,
@@ -867,7 +867,7 @@ Et même feuille et même fleur et même ivresse S'il
 ! Quand, aux souflles de Juin, ses boutons se déclosent,
 Mais pour seule veriu n'ayant que l'apparence,
 Elle vit sans amant et sans respect s'endort;
-1 Tout entière elle meurt. Les roses, pure essence, LA
+Tout entière elle meurt. Les roses, pure essence, LA
 Font un exquis parfum de leurs exquises morts!
 Ainsi doit se faner la rose de ta vie;
 de Mais ton vrai cœur, je le distille en poésie! Re”
@@ -889,14 +889,14 @@ Mais jusque-là vivras en un monde qui t'aime. à
 
 Garde-lui tout son fil, comme une faim d'enfant
 Qui, du pain d'aujourd'hui pleinement assouvie, ‘1%
-4 Retrouvera demain ses aiguillons puissants.
+Retrouvera demain ses aiguillons puissants.
 Et clos-les sous le faix des festins endormants;
-7 Mais n'en étouffe point la tendre frénésie A
+Mais n'en étouffe point la tendre frénésie A
 a Sous la torpeur sans fin des assoupissements.
-4 Que notre triste exil soit comme un large fleuve
+Que notre triste exil soit comme un large fleuve
 LE Qui sépare la rive où-viennent chaque jour
-1 Plus béni sourira le moment du retour!
-;! Notre exil'est encor l'hiver sombre et morose
+Plus béni sourira le moment du retour!
+Notre exil'est encor l'hiver sombre et morose
 Ds. Qui donne un triple charme à la saison des roses. NUS
 
 Qu''ai-je autre chose à faire, humble et soumis esclave, Le.
@@ -960,7 +960,7 @@ LUE Creuser au front du Beau parallèles de mort, à
 14 1 Se repaître en pillard des suprêmes richesses
 Rien ne résiste au fer de sa faulx sans remords.
 Dre Au ciel de l'avenir, malgré sa main cruelle,
-4 Ta gloire avec mes vers s'envole à tire d'aile!
+Ta gloire avec mes vers s'envole à tire d'aile!
 
 Le 55 toi qui le veux, quand ton errant fantôme (3
 Aux tourments de la nuit soulève mes cils lourds?
@@ -1065,7 +1065,7 @@ Des fantômes de fleurs, et non fleur qu'il porte? Et
 Pourquoi vivre en un monde épuisé de son
 “34 Et vidé du sang pur qui rougit les artères? PAS
 “oh La Nature en faillite en lui trouve un trésor,
-0 Et, fière d'autres gains, vit sur son aumoniére.
+Et, fière d'autres gains, vit sur son aumoniére.
 Ne - L'opulente beauté des anciens jours heureux,
 DL. VPar lui seul se conserve en ces temps désastreux. sie
 
@@ -1073,7 +1073,7 @@ Sa joue est le tableau des jours évanouis:
 "es Où naissait et mourait le beau, comme une plante, i\57eS
 1104 Où ces bourgeons bâtards, d'hier épanouis,
 N'osaient encor parer une beauté vivante; LA
-1 Où les cheveux dorés des chers morts respectés à
+Où les cheveux dorés des chers morts respectés à
 
 — Bien sacré des tombeaux — n'étaient mis au pillage
 Pour, sur un second chef, revivre transplantés de
@@ -1118,7 +1118,7 @@ Noir corbeau qui du ciel pàlit le pâle azur.
 Que courtise l'amour flatteur de notre temps
 “al Le chancre aime la fleur aux senteurs rajeunies,
 À Et n'es-tu pas toi-même un pur et frais printemps? ROUE
-4 Oui, tu as traversé les pièges du jeune âge, "avi
+Oui, tu as traversé les pièges du jeune âge, "avi
 Ou sans assaut, ou sans effroi, toujours vainqueur;
 : ï Cet éloge est puissant; mais jamais il n'encage
 \5 L''Envie, aux quatre vents secouant sa rancœur. À
@@ -1138,18 +1138,18 @@ Lorsque mes dissous seront mêlés d'argile,
 a N'épelez même pas mon nom d'ombre couvert:
 Laissez l'amour erouler avec le corps fragile.
 Vous! voir ce monde sage et scruter votre deuil,
-6 Et rire de nous deux quand l'un est au cercueil! à
+Et rire de nous deux quand l'un est au cercueil! à
 
 ‘ti Oh! de peur que le monde, Ami, ne vous impose «
 De dire l'attrait fort qui vivait en mon sein +10
-58 Et me fait chérir mort, qu'en l'oubli je repose
+Et me fait chérir mort, qu'en l'oubli je repose
 Un seul mérite en moi vous chercheriez en vain.:
 Vous ne voudriez pas deviser dans les larmes ‘EE
 ( Un mensonge pieux non moins qu'immérité, #4
 Ni m'accorder, défunt, plus de force et de charme A
 A Que n'en peut m'octroyer l'avare vérité.
 Pour que vous ne chantiez un héros illusoire
-4 Et que votre amour vrai ne prenne un masque faux, AU.
+Et que votre amour vrai ne prenne un masque faux, AU.
 - Enfouissez, avant qu'il nuise à notre gloire, SES
 L'esprit avec le corps en un commun repos.
 
@@ -1173,7 +1173,7 @@ Consumé des ardeurs dont il s'était nourri.
 Tu vois, et ton amour plus puissant veut m'étreindre,
 Pressé d'aimer ce qui demain devra s'éteindre.
 
-a; les sonnets de Shakespeare
+les sonnets de Shakespeare
 
 LA Mais sois content, Ami: quand la rude sentence
 M'aura sans caution, frappé du coup fatal,
@@ -1195,7 +1195,7 @@ Et cette âme en ton âme à tout jamais ruisselle.
 s'il avait songé au suicide. — Sonnet en façon d'envoi qui clôt ce
 groupe de quatre, et cette première moitié de l'œuvre.
 
-À; rez-de-chaussée, Paris, cinquième arrondissement.
+rez-de-chaussée, Paris, cinquième arrondissement.
 Nos Cahiers sont édités par des souscriptions men-
 1 suelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
@@ -1212,8 +1212,7 @@ Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
 4 sont numérotés à la presse et imprimés au nom du
 4 souscripteur; le tirage à part sur whaiman a commencé
-4 de fonctionner au premier janvier 1906; les inscrip-
-tions pour cet abonnement particulier sont reçues en
+4 de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en
 4 tout temps et reçoivent un numéro d'ordre déterminé
 automatiquement par le rang même qu'elles occupent!
 4 dans l'ordre de l'arrivée, les numéros les plus bas venant à

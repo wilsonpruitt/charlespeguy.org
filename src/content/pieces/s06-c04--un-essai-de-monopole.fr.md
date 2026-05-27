@@ -37,8 +37,7 @@ le catalogue analytique sommaire, 1900-1904, de
 nos cinq premières séries.
 
 . Ce catalogue a été justement établi pour donner,
-autant qu'il se pouvait, une image en bref, un raccourci, une idée, abrégée, mais complète, de nos édi-
-tions antérieures et de nos cinq premières séries; tout y
+autant qu'il se pouvait, une image en bref, un raccourci, une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y
 est classé dans l'ordre; il suffit de le lire pour trouver,
 
 à leur place, les références demandées.
@@ -147,8 +146,7 @@ non moins évidemment, un cahier de l'enseignement,
 cahier de l'enseignement primaire des indigènes à
 LES Madagascar; il rejoint ainsi, et très heureusement,
 notre récent cahier de légalité devant l'instruction,
-deuxième cahier de cette sixième série, cahier de ren-
-trée, où il y avait un si gros souci du véritable enseije gnement primaire; il rejoint également tant de cahiers
+deuxième cahier de cette sixième série, cahier de rentrée, où il y avait un si gros souci du véritable enseije gnement primaire; il rejoint également tant de cahiers
 que nous avons publiés, et de tant d'enseignements,
 tant de cahiers, tant de courriers que nous avons
 je publiés, et de tant de pays; il est à un grand carrefour
@@ -161,8 +159,7 @@ nouveau langage; à Paris quand nos politiciens radicaux
 font de l'anticléricalisme, de l'enseignement laïque et du
 monopole d'État, quand ils veulent introduire partout
 le gouvernement de leur enseignement ofliciel, ce
-commandement paraît former une plaisanterie excessi-
-vement spirituelle, parce que l'on ne pense alors qu'à
+commandement paraît former une plaisanterie excessivement spirituelle, parce que l'on ne pense alors qu'à
 : embêter les catholiques; en France tout anticléricaic lisme paraît être uniquement un anticatholicisme;
 LE quand on parle du monopole, quand on veut faire le
 
@@ -181,9 +178,7 @@ générale, par suite l'attitude mutuelle de tous les ayants
 droits; ce changement de relation et pour ainsi dire de
 situation topographique entraîne immédiatement un
 changement de mentalité, un changement de moralité;
-ou du moins d'application de la moralité; il fait dispa-
-
-raître automatiquement la mentalité politicienne, l'immoralité politique parlementaire; automatiquement il
+ou du moins d'application de la moralité; il fait disparaître automatiquement la mentalité politicienne, l'immoralité politique parlementaire; automatiquement il
 fait apparaître la mentalité humaine, juridique, la
 moralité commune. De ce nouveau langage, de cette
 mentalité restituée, de cette moralité retrouvée, il suit
@@ -255,8 +250,7 @@ ces commentaires qui ne peuvent point passer dans un
 quotidien; il a mis en annexes plusieurs documents plus
 longs et particulièrement intéressants; nous avons
 composé ces notes en sept, et non pas en six, parce que
-par leur importance elles forment des annexes perpé-
-tuelles; nous ferons ainsi toutes les fois que dans un
+par leur importance elles forment des annexes perpétuelles; nous ferons ainsi toutes les fois que dans un
 cahier les notes auront cette importance d'annexes.
 
 Ainsi constitué, ce cahier de courrier, ce cahier d'enseignement, ce cahier de courrier d'enseignement doit
@@ -265,21 +259,13 @@ se lire comme tous nos cahiers, dans un esprit de
 
 il sagesse et d'impartialité, comme un cahier d'histoire
 
-contemporaine; l'auteur s'y comporte comme un par-
-
-fait, comme un véritable historien; par ce temps de
+contemporaine; l'auteur s'y comporte comme un parfait, comme un véritable historien; par ce temps de
 
 démagogie, le véritable historien est rare; il est ce qui
 
-manque le plus; on sera même frappé de ce ton mo-
+manque le plus; on sera même frappé de ce ton modeste et honnête, suivi; on verra comment un protestant historien parle des catholiques, et comment un
 
-deste et honnête, suivi; on verra comment un protes-
-
-tant historien parle des catholiques, et comment un
-
-libéral historien parle de l'État; on sera très heureu-
-
-sement surpris de ce ton honnête, ancien, désormais,
+libéral historien parle de l'État; on sera très heureusement surpris de ce ton honnête, ancien, désormais,
 
 à hélas, nouveau parmi nous.
 
@@ -291,13 +277,7 @@ aussi étrangement à nous; je ne sais pas si l'on pourra
 
 s'en défendre; dès les premiers mots, contre la volonté,
 
-contre le sens même de l'auteur, cette histoire de l'en-
-
-seignement primaire des indigènes à Madagascar appa-
-
-raîit comme une de ces histoires asiatiques merveil-
-
-leuses où se complaisait la spirituelle malice du dixhuitième siècle français; comme une de ces histoires
+contre le sens même de l'auteur, cette histoire de l'enseignement primaire des indigènes à Madagascar apparaîit comme une de ces histoires asiatiques merveilleuses où se complaisait la spirituelle malice du dixhuitième siècle français; comme une de ces histoires
 
 de l'autre bord où s'est complu tout le dix-huitième
 
@@ -317,9 +297,7 @@ la France, des intentions qui ne sont point dans
 
 1 pensée de l'auteur, des transparences qui n'en sont
 
-12 point, des mots qui sont évidemment dits pour Mada-
-
-gascar et que l'on jurerait qui sont dits pour la France;
+12 point, des mots qui sont évidemment dits pour Madagascar et que l'on jurerait qui sont dits pour la France;
 
 et pourtant ils ne sont pas dits pour la France; et c'est
 nous qui faisons des transpositions.
@@ -335,8 +313,7 @@ du cahier; je continue; fin du chapitre premier:
 quelconque, pour être sérieuse, doit tenir compte des
 
 . faits réels. En dehors des faits, il n'y a que déclamation. Il ne s'agit pas de quémander des faveurs pour
-qui que ce soit. Ceux dont j'ai rappelé les efforts n'élè-
-veront aucune protestation contre le développement de
+qui que ce soit. Ceux dont j'ai rappelé les efforts n'élèveront aucune protestation contre le développement de
 l'enseignement officiel et laïque, dont ïls sont les
 premiers à reconnaître le droit et la nécessité. Ils
 réclament pour eux le droit commun tout entier, mais
@@ -416,8 +393,7 @@ en France; alarme inutile; une originale tentative;
 
 : changement de front; l'art des statistiques; statistiques
 scolaires, statistiques électorales; enfants à la rue;
-contre l'élite; à démocratie; l'iniliative interdite; parfaitement; l'arbitraire; allons donc; paradoxe d'illégalité; vraiment; comme chez nous, alors; leçons de fran-
-çais; pour la langue malgache; fagots et fagrots; pour
+contre l'élite; à démocratie; l'iniliative interdite; parfaitement; l'arbitraire; allons donc; paradoxe d'illégalité; vraiment; comme chez nous, alors; leçons de français; pour la langue malgache; fagots et fagrots; pour
 les écoles laïques; Éthiopianisme; vous saurez que cet
 Éthiopianisme est un nationalisme, comme tout le
 monde.
@@ -435,9 +411,7 @@ primaire des indigènes à Madagascar, nous écrivait: « Il faut toujours tenir
 
 : publiant, de ceci: Le gouvernement de Madagascar est
 
-à une satrapie. Il est loisible à Gallieni et à ses subor-
-
-donnés de rendre la vie impossible aux individus ou
+à une satrapie. Il est loisible à Gallieni et à ses subordonnés de rendre la vie impossible aux individus ou
 aux collectivités qui s'exposent à des rancunes de l'administration. D'autre part, les enquêtes sont presque
 impossibles dans la colonie. Les Malgaches sont si
 aplatis que les victimes d'un abus de pouvoir refuseraient de déposer contre le fonctionnaire oppresseur. »
@@ -446,8 +420,7 @@ violences de langage, légitimes sans doute, mais qui
 tout de même ne sont pas d'un véritable historien.
 
 Singulier pays que ce pays de Madagascar; et comme
-ces violences de langage même servent à nous repré-
-senter une aussi lointaine situation; figurez-vous que
+ces violences de langage même servent à nous représenter une aussi lointaine situation; figurez-vous que
 ce gouvernement de Madagascar est une satrapie; ce
 n'est pas comme le gouvernement de cette France; le
 gouvernement de cette France n'en est pas une,
@@ -455,8 +428,7 @@ cette Madagascar, nous représente assez bien ce que
 sera le gouvernement de cette France quand le commandement de M. Jaurès nous aura tous courbés; il
 fera bon vivre dans la satrapie du satrape Jaurès; on
 croirait y être; il sera loisible à Jaurès et à ses subordonnés de rendre la vie impossible aux individus ou aux
-collectivités qui s'exposent à des rancunes de l'adminis-
-tration; d'autre part, les enquêtes sont presque impossibles dans la colonie; les Français sont si aplatis que les
+collectivités qui s'exposent à des rancunes de l'administration; d'autre part, les enquêtes sont presque impossibles dans la colonie; les Français sont si aplatis que les
 victimes d'un abus de pouvoir refuseront de déposer
 contre le fonctionnaire oppresseur: et comme le dit
 Jaurès, périssent mes principes, et vive ma colonie.
@@ -469,8 +441,7 @@ d'avoir le moindre rapport avec une mission, même
 quand elle n'est investie d'aucun caractère ofliciel, et
 qu'il ne s'agit que d'enseignement industriel et agricole.
 La thèse est soutenable. Mais, si le régime de l'école
-congréganiste officielle était contraire à tous les prin-
-cipes de notre démocratie, la suppression du régime
+congréganiste officielle était contraire à tous les principes de notre démocratie, la suppression du régime
 des subventions conditionnelles ne choque aucun de
 ces principes. Quelques-uns, dont je suis, peuvent
 mettre en doute l'utilité pratique de cette suppression
@@ -527,10 +498,7 @@ j'adresse de très vives et très sincères félicitations aux
 Sœurs de Saint-Joseph de Cluny, à la London Mis-:
 sionary Society et à la Mission protestante française
 
-pour être entrées résolument dans les vues du gouver-
-
-nement de la colonie et pour les résultats très satisfai-
-sants déjà constatés. Ces trois missions ont devancé
+pour être entrées résolument dans les vues du gouvernement de la colonie et pour les résultats très satisfaisants déjà constatés. Ces trois missions ont devancé
 dans cette voie l'enseignement officiel. »
 Même chapitre, en note; sur une école tenue par les
 Frères de la Doctrine chrétienne: à
@@ -550,7 +518,7 @@ de Soavimbahoaka. Il faut rappeler à ce sujet qu'à l''Ex-
 position Universelle de 1900, les Frères de Tananarive méritaient une médaille pour la partie agricole. Enfin, au dernier concours d'Amdrohibe, leur école a envoyé des produits
 de toute espèce, qui témoignent des progrès incessants des
 élèves et du désir du personnel enseignant de seconder
-efficacement les vues du Gouvernement de la Colonie. »:
+efficacement les vues du Gouvernement de la Colonie.
 Je ne sais point si je m'abuse; mais je suis tout
 surpris, et tout heureux, de la loyauté de cette citation;
 j'entends la citation du Journal Officiel de Madagascar
@@ -599,7 +567,7 @@ vue du rendement industriel dans une usine ou un grand
 « C'est ainsi que le but à atteindre a été perdu de vue dans
 É certaines écoles privées et que j'ai été amené à diverses -
 reprises, notamment au mois de janvier dernier, à rappeler à
-:; quelques-unes d'entre elles » …
+quelques-unes d'entre elles » …
 On entend ce langage officiel; d'une part le gouveri peur général prescrit que les écoles privées, libres,
 donnent un enseignement professionnel; mais d'autre -
 part il faut que cet enseignement professionnel ne fasse
@@ -607,8 +575,7 @@ pas faire une profession; si on utilise un métier, il;
 devient un métier industriel, vulgaire, commun; il
 devient un métier comme tout le monde peut en avoir;
 il n'est plus un métier universitaire, un métier noble,
-un métier gouvernemental, un métier scolaire, un mé-
-tier que l'on peut mettre sur les programmes et que les
+un métier gouvernemental, un métier scolaire, un métier que l'on peut mettre sur les programmes et que les
 Nous avons ici un avant-goût de ce que sera dans
 nos écoles primaires et dans nos lycées l'enseignement
 du travail manuel quand les grandes révolutions jaurésistes auront fait pénétrer le socialisme gouverneF mental dans le monopole de l'enseignement; on ne fera
@@ -732,15 +699,13 @@ A écoles oflicielles et laïques; pour faire croire au public,
 au bon populaire, au lecteur, qu'elles réussissent, on
 fera des apparences, on travaillera les statistiques;
 mais enfin, pour donner au moins un point d'appui à ce
-;: travail même, il faut bien qu'il y ait quelqu'un dans les
+travail même, il faut bien qu'il y ait quelqu'un dans les
 à écoles du gouvernement; alors le gouvernement fait des
 
 Parmi tous ces efforts, il y en a de toutes les qua-
 
 Le gouvernement général, pour agir sur les imaginations,
-: a donné à ses instituteurs un bel uniforme, magnifique-
-
-ment galonné. Il me suffit de sourire.
+: a donné à ses instituteurs un bel uniforme, magnifiquement galonné. Il me suffit de sourire.
 de Suflit-il bien de sourire; je suis très lourd et prends
 tout au sérieux; en France on n'a point donné encore
 je aux instituteurs un bel uniforme, magnifiquement
@@ -753,8 +718,7 @@ médailles du gouvernement, on leur donne les médailles
 du Matin; je vois très bien venir le jour en France où
 tout citoyen qui ne sera point jaurésiste professionnel
 ne pourra point devenir instituteur; et à ceux qui, étant
-jaurésistes professionnels, auront devenir instituteurs, le gouvernement jaurésiste décernera un bel uniforme magnifiquement galonné; et quiconque aura con-
-tredit un instituteur, dans l'exercice ou hors de l'exer_cice de ses fonctions, sera passible, quiconque aura nié
+jaurésistes professionnels, auront devenir instituteurs, le gouvernement jaurésiste décernera un bel uniforme magnifiquement galonné; et quiconque aura contredit un instituteur, dans l'exercice ou hors de l'exer_cice de ses fonctions, sera passible, quiconque aura nié
 devant un instituteur la thèse de la réalité du monde
 sensible sera passible d'un emprisonnement de six
 mois à trois ans, et d'une amende de six mille à vingt
@@ -797,9 +761,7 @@ on voit aussi Jaurès devenu, redevenu professeur de
 l'enseignement supérieur, — il en a le droit, sans coup
 d'État, étant docteur, — professeur de philosophie;
 montant de l'enseignement primaire, traversant le secondaire, le monopole d'État aura gagné le supérieur;
-Jaurès enseignera, de deux années l'une, alternative-
-
-métaphysique; mais il s'agira de lui trouver des élèves;
+Jaurès enseignera, de deux années l'une, alternativemétaphysique; mais il s'agira de lui trouver des élèves;
 un oflicier, — un officier de défense républicaine, — se
 rendra au cours de M. Raub; il demandera la liste des
 élèves; M. Raubh lui répondra poliment, soucieux, d'un
@@ -858,13 +820,9 @@ cinq cent mille fonctionnaires de défense républicaine
 
 - Jeur faisant accomplir un par file à gauche fantastique;
 
-- cinquante millions de sujets peuvent donner deux mil-
+- cinquante millions de sujets peuvent donner deux milunités de millions de délations.
 
-unités de millions de délations.
-
-Ce qu'il y a de bon dans cette histoire de Mada-
-
-gascar, c'est qu'elle nous montre la fin de toutes ces
+Ce qu'il y a de bon dans cette histoire de Madagascar, c'est qu'elle nous montre la fin de toutes ces
 
 De fait, aussi longtemps que cet officier fut à la tête
 
@@ -884,9 +842,7 @@ par un instituteur du gouvernement. Des faits analogues
 se sont passés, en 1897, dans le Vonizongo.
 
 ï Chasser tous les citoyens de chez eux et Les y remplacer par des émissaires du gouvernement, c'est toute
-la politique de Jaurès; on voit, par cette histoire merveilleuse, où elle aboutit, à quelle faillite, à quelle ban-
-
-queroute, à quelle banqueroute frauduleuse; faut-il
+la politique de Jaurès; on voit, par cette histoire merveilleuse, où elle aboutit, à quelle faillite, à quelle banqueroute, à quelle banqueroute frauduleuse; faut-il
 
 —_. donc le redire, que la force ne fonde rien d'éternel, que
 ce qui vient de la force, également s'en retourne par la
@@ -904,8 +860,7 @@ de l'enseignement; toute cette histoire de Madagascar
 nous fournit un a@mirable exemple, specimen, un
 cas, particulier, bien fait d'un essai de monopole; tout
 LE y conduisait; nulle part l'autorité du gouvernement de
-Le l'État, la fantaisie, le caprice, la tyrannie gouverneM 1 mentale ne sévit aussi indiscutée que dans le gouver-
-nement des colonies; si quelque part l'État peut faire
+Le l'État, la fantaisie, le caprice, la tyrannie gouverneM 1 mentale ne sévit aussi indiscutée que dans le gouvernement des colonies; si quelque part l'État peut faire
 Le un essai bien fait de sa tyrannie, c'est évidemment
 il dans ses possessions coloniales; mais de toutes les
 É colonies si quelqu'une se prêtait à l'exercice de cette
@@ -915,15 +870,13 @@ historique, insulaire, tout concourait à faire d'elle un
 admirable champ d'expérience en vase clos; son éloignement géographique; Madagascar est pour nous une
 colonie de l'autre côté de l'Afrique; pour l'atteindre en
 ; imagination, il faut passer par-dessus cet énorme
-continent; son éloignement de communication; Mada-
-gascar est en dehors des grandes routes passagères du
+continent; son éloignement de communication; Madagascar est en dehors des grandes routes passagères du
 monde; pour l'atteindre en réalité, il faut contourner
 
 tout cet énorme continent; son isolement, géographique;
 son isolement, historique; la conquête de Madagascar
 fut en effet elle-mêmeinsulaire, pour ainsi dire; je veux
-dire qu'elle forme elle-même comme une île dans l'évé-
-nement, dans l'histoire de nos acquisitions coloniales;
+dire qu'elle forme elle-même comme une île dans l'événement, dans l'histoire de nos acquisitions coloniales;
 elle fut une conquête résolue, arrêtée, délibérée, limitée,
 nette, effectuée; d'un seul coup achevée, complète; il y
 a des conquêtes péninsulaires, traînées, allongées:; il y
@@ -938,8 +891,7 @@ on a depuis longtemps remarqué que les grandes îles,
 isolées, deviennent souvent le terrain d'histoires nationales qui sont comme des expériences ethniques, des
 histoires en vase clos, des événements de laboratoire;
 parce qu'elles sont grandes, elles offrent assez de terrain pour que tout un peuple y naïisse, y croisse, s'y
-développe, s'y essaie, s'y exerce, pour qu'il y ait expé-
-rience; parce qu'elles sont insulaires, isolées, elles
+développe, s'y essaie, s'y exerce, pour qu'il y ait expérience; parce qu'elles sont insulaires, isolées, elles
 offrent un terrain assez limité pour que ce peuple s'y
 - achève et pour que l'expérience, qui était devenue possible, soit close; ainsi les faunes et les flores insulaires
 sont particulièrement caractérisées; ainsi l'Angleterre
@@ -1033,7 +985,7 @@ général Gallieni a raison d'y tenir et de lui donner tous
 ses soins. Il y aurait une absurdité flagrante et surtout
 TES une évidente injustice à se dissimuler l'importance de
 ce que le Gouverneur général de la Colonie, avec un
-134 D'après le Journal Officiel de Madagascar du 7 mai,
+D'après le Journal Officiel de Madagascar du 7 mai,
 4 elle devait être ouverte le
 
 budget difficilement équilibré, a réaliser. Mais il
@@ -1169,15 +1121,9 @@ droit de s'instruire. »
 Autrement dit, et mutations faites, c'est à peu près
 la question qui se pose en France; en France aussi la
 question post-scolaire, — c'est elle qui est ici, car des
-écoles qui s'adressent à des enfants au-dessus de qua-
+écoles qui s'adressent à des enfants au-dessus de quatorze ans sont des écoles post-scolaires, et non pas des
 
-torze ans sont des écoles post-scolaires, et non pas des
-
-écoles scolaires, — en France aussi la question post-
-
-scolaire est encore plus difficile à résoudre que la ques-
-
-tion scolaire, — sans vouloir avancer par que la
+écoles scolaires, — en France aussi la question postscolaire est encore plus difficile à résoudre que la question scolaire, — sans vouloir avancer par que la
 
 question scolaire soit aucunement facile; — au-dessous
 de quatorze ans on sait encore un peu quoi faire des
@@ -1295,8 +1241,7 @@ Ils se bousculent pour s'emparer de son fardeau et lui
 d'enfants et d'adolescents inoccupés et abandonnés à
 eux-mêmes, nous nous en doutons. On les traite, coue ramment, de « chapardeurs et l'on n'a pas tort. Le
 a vol à l'étalage, la maraude, quantité d'industries sus-
-: pectes, n'ont aucun secret pour cette jeunesse sans éduj cation. Et l'on se propose de la grossir, dujourau lende-
-main, des centaines d'enfants qui, ayant quatorze ans
+: pectes, n'ont aucun secret pour cette jeunesse sans éduj cation. Et l'on se propose de la grossir, dujourau lendemain, des centaines d'enfants qui, ayant quatorze ans
 révolus, devront être renvoyés de toutes les écoles et
 seront rejetés dans la rue?
 1; « Il est clair que l'immense majorité de ces élèves, âgés
@@ -1305,9 +1250,7 @@ Pas plus que les autres Malgaches, ils n'auront de travail régulier avant seize
 bandes de gamins dont je viens de parler. Je conçois
 que l'administration songe à mettre hors de certaines
 écoles les quelques douzaines d'adultes qui les encombrent, et qui risquent, tout au plus, d'apprendre quelque
-; chose de notre langue. Pour corriger ce mince inconvé-
-
-nient, fallait-il créer, de façon à peu près inévitable, un
+; chose de notre langue. Pour corriger ce mince inconvénient, fallait-il créer, de façon à peu près inévitable, un
 mal plus grand? L'augmentation presque forcée du
 vagabondage est une manière assez étrange de contribuer au renouvellement moral de la jeunesse malgache.
 
@@ -1336,9 +1279,7 @@ me mette à écrire ma table des matières, qui sera
 
 le chapitre XII, leçons de français, et le chapitre XIII,
 
-pour la langue malgache, étant des chapitres de tech-
-
-nique et de pédagogie stricte, n'auraient peut-être pas
+pour la langue malgache, étant des chapitres de technique et de pédagogie stricte, n'auraient peut-être pas
 
 donné beaucoup à la transcription; mais les autres chapitres, au contraire, j'entends les autres qui nous restent,
 seraient presque à sortir et à transcrire en entiers; nous
@@ -1395,7 +1336,7 @@ Sur la proposition du chef du service de l'enseignement;
 Le conseil d'administration entendu,
 ARTICLE PREMIER. — L'arrêté du 15 juin 1903 est abrogé et
 : remplacé par les dispositions suivantes:
-4 ARTICLE 2. — l'enseignement est donné à Madagascar
+ARTICLE 2. — l'enseignement est donné à Madagascar
 dans les écoles officielles et les écoles privées.
 surveillance administrative, les écoles officielles et les
 écoles privées ressortissent à l'une des quatre circonscrip1 tions scolaires ci-après:
@@ -1531,8 +1472,7 @@ visés par l'article 27 ci-après, qui doivent toujours être
 
 établis en tenant compte de la situation économique parti:.
 culière de la région.
-ARTICLE 19. — La durée des études dans chacune des sec-
-tions des écoles régionales est de trois ans.
+ARTICLE 19. — La durée des études dans chacune des sections des écoles régionales est de trois ans.
 ARTICLE 20. — Tous les ans, le chef du service de l'ensei-
 È gnement fixe, après avoir pris l'avis du chef dela province,
 le nombre des élèves à admettre en première année, dans
@@ -1563,19 +1503,14 @@ de leur sortie de l'école.
 à ARTICLE 24. — Des bourses de 120 francs par an, dont le
 nombre est fixé par arrêté du Gouverneur Général, sur la
 proposition du chef du service de l'enseignement, sont
-attribuées par les chefs de province et sur l'avis des direc-
-
-teurs des écoles régionales aux élèves les plus méritants et
+attribuées par les chefs de province et sur l'avis des directeurs des écoles régionales aux élèves les plus méritants et
 les plus nécessiteux de ces écoles.
 .
 
 ARTICLE 95, — Tout élève qui quitte volontairement l'école à
-ou qui en est exclu, tout instituteur qui ne réalise pas l'en-
-gagement qu'il a souscrit, est tenu de restituer:
+ou qui en est exclu, tout instituteur qui ne réalise pas l'engagement qu'il a souscrit, est tenu de restituer:
 
-1° Le montant de ses frais d'études de 2 ans au plus, cal-
-
-culés à raison de 10 francs par mois;
+1° Le montant de ses frais d'études de 2 ans au plus, calculés à raison de 10 francs par mois;
 
 Le montant des allocations dont il aura jouir en
 qualité de boursier.
@@ -1585,8 +1520,7 @@ province, le Gouverneur Général peut accorder une remise
 partielle ou totale de ces sommes.
 
 ARTICLE 27. — Les programmes détaillés d'enseignement
-pratique des écoles régionales, établis d'après les programmes généraux annexés au présent arrêté, sont pré-
-parés comme il a été dit à l'article 18 ci-dessus et présentés
+pratique des écoles régionales, établis d'après les programmes généraux annexés au présent arrêté, sont préparés comme il a été dit à l'article 18 ci-dessus et présentés
 par le chef du service de l'enseignement à l'approbation du
 
 ARTICLE 28. — La sanction des études de l'école régionale
@@ -1609,8 +1543,7 @@ Les plus méritants et les plus nécessiteux d'entre eux,
 âgés de plus de seize ans, pourront recevoir des allocations
 annuelles, dont le taux est fixé comme suit:
 
-ARTICLE 32. — Les professeurs assistants des écoles régio-
-nales sont répartis en cinq classes, dont le traitement
+ARTICLE 32. — Les professeurs assistants des écoles régionales sont répartis en cinq classes, dont le traitement
 mensuel est fixé ainsi qu'il suit: À à
 ARE Les professeurs assistants originaires de l'Imérina ou du
 A Betsiléo, en service dans les régions excentriques, pourront
@@ -1710,8 +1643,7 @@ commenceront l'apprentissage d'un métier (menuiserie,
 ARTICLE 49. — Les instituteurs officiels sont choisis parmi
 les élèves des cours normaux officiels.
 
-ARTICLE 50. — Ils sont nommés par le Gouverneur Géné-
-ral, sur la proposition du chef du service de l'enseignement.
+ARTICLE 50. — Ils sont nommés par le Gouverneur Général, sur la proposition du chef du service de l'enseignement.
 
 ARTICLE 51. — Ils doivent posséder le certificat d'aptitude
 à l'enseignement dans les écoles primaires de Madagascar,
@@ -1744,11 +1676,10 @@ Rés de l'école normale ou de l'école régionale;
 
 1 1° La lecture d'une page de texte français avec traduction
 |. 11 et explication en malgache;
-1502 2° La lécture d'une page de texte en malgache avec tra-
-duction en français et explication en malgache;
+1502 2° La lécture d'une page de texte en malgache avec traduction en français et explication en malgache;
 HAE 4° Des interrogations sur les matières du programme
 Le je des écoles primaires (arithmétique, système métrique, his-
-18 ARTICLE 56.— L'examen aura lieu au siège de chaque cours
+ARTICLE 56.— L'examen aura lieu au siège de chaque cours
 
 normal, à une date fixée par le Gouverneur Général, sur
 le la proposition du chef du service de l'enseignement. Il sera
@@ -1792,7 +1723,7 @@ une rizière est mis à leur disposition. Ils ont l'obligation
 d'utiliser ce terrain pour l'enseignement pratique agricole
 de leurs élèves.
 
-14 AnrTicLe 60. — Les contremaîtres employés dans les écoles
+AnrTicLe 60. — Les contremaîtres employés dans les écoles
 Le officielles reçoivent un salaire mensuel de 45 francs et
 jouissent des mêmes avantages que les instituteurs officiels,
 ji: notamment au point de vue de la jouissance d'un terrain
@@ -1816,12 +1747,9 @@ l'article 32 ci-dessus.
 ARTICLE 64. — Les instituteurs et les contremaîtres offi1e ciels sont exemptés du service militaire.
 ARTICLE 65. — Les avancements, gratifications ou distinctions quelconques seront accordés aux instituteurs et
 aux contremaîtres officiels sur la proposition du chef du
-service de l'enseignement annotée par le chef de la pro-
-vince où ils sont en service.
+service de l'enseignement annotée par le chef de la province où ils sont en service.
 
-ARTICLE 66. — Les instituteurs et les contremaîtres offi-
-
-ciels sont passibles des peines disciplinaires suivantes:
+ARTICLE 66. — Les instituteurs et les contremaîtres officiels sont passibles des peines disciplinaires suivantes:
 
 ARTICLE 67. — La réprimande est prononcée par le chef
 du service de l'enseignement ou par le chef de la province.
@@ -1839,8 +1767,7 @@ de l'enseignement et l'avis du chef de la province.
 L'instituteur rétrogradé prend rang dans son nouvel
 emploi du jour de la décision et ne peut être proposé pour
 l'avancement qu'après avoir effectué dans cet emploi le
-temps minimum exigé pour être élevé à la classe supé-
-rieure, sans qu'il puisse être tenu compte du temps qu'il y!
+temps minimum exigé pour être élevé à la classe supérieure, sans qu'il puisse être tenu compte du temps qu'il
 avait antérieurement passé.
 
 ARTICLE 68.— Il est créé un cadre d'inspecteurs indigènes

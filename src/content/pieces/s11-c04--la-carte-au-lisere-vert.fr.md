@@ -20,8 +20,7 @@ Frœschwiller, un ordre de cabinet du roi de Prusse
 nommait le comte de Bismarck-Bohlen gouverneur
 : général de l'Alsace. Le 21, par une instruction adressée
 au chancelier, le roi déterminait les limites de ce gouf vernement: « le Haut-Rhin, le Bas-Rhin, et le nouveau
-département de la Moselle, comprenant les arrondisse-
-ments de Metz, Thionville, Sarreguemines, Château-
+département de la Moselle, comprenant les arrondissements de Metz, Thionville, Sarreguemines, Château-
 Salins et Sarrebourg ». Au mois de septembre, c'est-à-.
 dire pendant le bombardement de Strasbourg et plus
 d'un mois avant la capitulation de Metz, une carte de
@@ -112,8 +111,7 @@ d'écoliers et d'étudiants. Nous et les nôtres, nous
 n'avons que trop de penchant aux souriantes nonchalances. S'ils sont d'une ignorance supérieure à la
 moyenne, les jeunes soldats qui, interrogés à leur arrivée
 à la caserne, répondent que Bismarck fut un général de
-Napoléon et que Strasbourg est un grand port de l'Amé-
-rique, d'autres, qui ont plus de flair et savent éviter les
+Napoléon et que Strasbourg est un grand port de l'Amérique, d'autres, qui ont plus de flair et savent éviter les
 trop grosses maladresses, ne seraient pas beaucoup
 moins embarrassés si l'on poussait un peu l'interrogatoire: l'école primaire a bien rempli son office, maïs ils
 étaient trop jeunes, ils ont appris trop vite, et ils en sont
@@ -150,32 +148,28 @@ d'intérêt se posèrent pour les diverses catégories de la
 population sacrifiée, comment l'Allemagne s'y prit pour:
 coudre ce lambeau de France à son Empire reconstitué,
 è et pourquoi la suture est toujours visible: voilà ce que;
-j'ai voulu tenter, ambitieux de remplir de quelques pré-
-cisions les mots vagues dont on se contente facilement
+j'ai voulu tenter, ambitieux de remplir de quelques précisions les mots vagues dont on se contente facilement
 à propos d'une histoire qui n'est plus « actuelle ». Si je
 n'ai tout lire, ni tout dire — il y faudrait dix ans, et
 dix volumes je souhaite du moins qu'on reconnaisse
 à ce livre quelque mérite de clarté et de sincérité; qu'on
 partage un peu l'émotion que j'ai éprouvée à l'écrire;
 à et qu'à la faveur de cette communion de sentiment qui
-Ê incline à l'indulgence, on ne s'étonne pas si, passionné-
-ment attaché à la petite patrie orpheline de la grande,
+Ê incline à l'indulgence, on ne s'étonne pas si, passionnément attaché à la petite patrie orpheline de la grande,
 J'ai tenu à m'acquitter d'une tâche que depuis longtemps je considérais comme un souvenir envers l'une,
 envers l'autre comme un devoir.
 
 e. 1. — Avant qu'il n'y eût Alsace ni Lorraine
-4 é; Si inquiète que fût déjà l'existence des peuplades qui
+4 Si inquiète que fût déjà l'existence des peuplades qui
 4 vivaient, avant l'ère chrétienne, sur le sol de la future
 Alsace et de la future Lorraine, — sans cesse occupées
 À à refouler un ennemi qui avait passé le Rhin ou à battre
 Se en retraite elles-mêmes en-deçà des Vosges, — on ne
 À saurait fonder sur leur histoire toute l'histoire à venir,
 É. et, assimilant complaisamment les uns aux Français,
-les autres aux Allemands d'aujourd'hui, étudier la situa-
-tion de l'Alsace-Lorraine à la lumière trop vague de ce
+les autres aux Allemands d'aujourd'hui, étudier la situation de l'Alsace-Lorraine à la lumière trop vague de ce
 3% passé trop lointain. À cet âge de la civilisation, ces
-groupes d'hommes belliqueux, campés sur des terri-
-toires mal définis, étaient naturellement, et sans qu'on
+groupes d'hommes belliqueux, campés sur des territoires mal définis, étaient naturellement, et sans qu'on
 0 ait le droit d'en tirer des allusions à de plus modernes
 ET événements, en perpétuels combats contre ceux de l'est
 ‘#3 ou de l'ouest. On est donc bien tenté de passer au
@@ -221,8 +215,7 @@ et, même après la disparition du duché, son souvenir
 ._ subsistant constitua une sorte de lien nominal entre les
 Dot domaines alsaciens épars et indépendants les uns des
 
-Malgré cette première ébauche d'individualités difté-
-rentes, l'histoire des deux pays se poursuivit, confondue,
+Malgré cette première ébauche d'individualités diftérentes, l'histoire des deux pays se poursuivit, confondue,
 4 longtemps encore, même dans la dislocation commenFe. Se: çante de l'Empire de Charlemagne. Au premier partage,
 : à la mort de Louis le Pieux, l'aîné de ses fils, Lothaire,
 eut, pour héritage, outre l'Italie avec Rome et la
@@ -263,8 +256,7 @@ est précisément le plus ancien document qui existe de à
 notre langue française). Mais c'est seulement à partir
 succession, que la délimitation politique se précise: la
 - partie alsacienne tombe aux mains de Louis le Germanique, et s'incorpore ainsi au Saint-Empire-Romain,
-tandis que Charles le Chauve, qui était plus particuliè-
-rement le successeur français de Charlemagne, se fait
+tandis que Charles le Chauve, qui était plus particulièrement le successeur français de Charlemagne, se fait
 couronner roi de Lorraine à Metz. Au reste, les rivalités entre les deux souverains brouillèrent rapidement
 la netteté de ce partage, de nouvelles contestations
 survinrent, et de nouveaux remaniements; à la faveur de
@@ -281,8 +273,7 @@ Romain Germanique, — la différenciation allait continuer, leurs destinées al
 2. — Du Saint-Empire à la Révolution
 Cette entrée commune dans le Saint-Empire n'avait
 pas en effet le sens qu'on pourrait croire et que d'aucuns ont voulu lui donner. Le nom du Saint Empire
-Romain Germanique ne saurait autoriser des rappro-
-chements trop ingénieux: le Saint-Empire n'était pas
+Romain Germanique ne saurait autoriser des rapprochements trop ingénieux: le Saint-Empire n'était pas
 l'Allemagne d'aujourd'hui. Il avait pour origine et
 fondement, non pas un territoire, non pas une nation,
 mais un titre que le transfert à Constantinople du siège
@@ -306,8 +297,7 @@ qu'une fédération où entraient, pour tout ou partie de
 leurs domaines particuliers, des feudataires de rangs et
 d'ordres très divers: rois et comtes, évêques et abbés,
 villes. Et que d'être pour ainsi dire collègues dans;
-l'Empire ne signifiait pas qu'on dût se développer sui-
-vant une même loi et vivre une histoire commune,
+l'Empire ne signifiait pas qu'on dût se développer suivant une même loi et vivre une histoire commune,
 l'exemple de l'Alsace et de la Lorraine suflirait à le
 ï Si l'on veut se guider avec quelque clarté dans l'histoire touffue et mouvementée de ce pays, il convient
 de ne pas perdre de vue deux points importants: — d'abord, que l'unité de l'Alsace est fort récente, et
@@ -330,8 +320,7 @@ Dans les premiers temps de son union au Saint
 à par les empereurs, quand, pour des raisons de famille
 é antérieures à leur élévation à l'Empire, ils étaient plus
 directement touchés par les affaires d'Alsace: ainsi
-Frédéric Barberousse, un Hohenstauffen, dont la maï-
-son, avant d'être impériale, gouvernait le duché de
+Frédéric Barberousse, un Hohenstauffen, dont la maïson, avant d'être impériale, gouvernait le duché de
 à Souabe, auquel se rattachait alors l'Alsace; ainsi
 Rodolphe de Habsbourg, dont les possessions patrimoF niales s'étendaient partie en Suisse, partie dans la
 Mais, du jour où les empereurs n'eurent plus de raison
@@ -343,8 +332,7 @@ contre elle-même, l'Alsace se divisa de plus en plus (1):
 ce furent des guerres et des pilleries sans fin. L'évêque
 de Strasbourg, la ville de Strasbourg, le comte palatin,
 Es le comte de Wurtemberg, la ville de Wissembourg, les
-Suisses, le comte de Lichtenberg, le seigneur de Féné-
-trange, le duc de Lorraine y bataillent sans cesse aux
+Suisses, le comte de Lichtenberg, le seigneur de Fénétrange, le duc de Lorraine y bataillent sans cesse aux
 Le” dépens de sa tranquillité. Ajoutez à cela les expéditions
 LE de tous ceux qui entrent en Alsace et contre lesquels
 É l'empereur ne vient pas protéger ce pays trop éloigné:
@@ -370,9 +358,7 @@ parties de l'Alsace, la région de Mulhouse, celle de
 Munster, la ville de Strasbourg surtout, qui, dès qu'elle
 fut acquise au protestantisme, devint le refuge de beaucoup de protestants poursuivis en France. La question
 religieuse et la question politique étaient intimement
-mêlées. Les protestants allemands soutinrent les hugue-
-
-nots français. Il y avait un ennemi commun, au point
+mêlées. Les protestants allemands soutinrent les huguenots français. Il y avait un ennemi commun, au point
 de vue politique et au point de vue religieux: la maison
 d'Autriche, dont la branche allemande et la branche espagnole poursuivaient ensemble la réalisation d'un double
 dessein: toute-puissance de l'Autriche et triomphe
@@ -391,9 +377,7 @@ s'il n'eut pas à son égard de dessein arrêté et quoique
 
 la jolie légende ne soit sans doute qu'une légende: le
 cardinal accourant au lit de mort du Père Joseph, son
-Éminence grise, pour lui annoncer triomphalement: « Bri-
-
-sach est à nous! » A diverses reprises, des petites
+Éminence grise, pour lui annoncer triomphalement: « Brisach est à nous! » A diverses reprises, des petites
 : principautés (le comté de Hanau-Lichtenberg), des
 sous la garde des troupes françaises, ou suédoises à
 la solde du roi. Et en 1648, à la signature des traités
@@ -402,8 +386,7 @@ de la protection accordée par le roi aux princes protess tants d'Allemagne, l'E
 Mais, on le sait, l'Alsace n'était pas à cette époque
 un tout compact. L'Empereur n'était pas le propriétaire
 absolu d'une province formant une unité territoriale
-délimitée: il y possédait: 1° quelques terres héré-
-ditaires (surtout dans la Haute-Alsace, comme le comté
+délimitée: il y possédait: 1° quelques terres héréditaires (surtout dans la Haute-Alsace, comme le comté
 : de Ferrette); 2° une sorte de haute administration,
 exercée par sa « Préfecture » de Haguenau, sur les
 Munster, Kaysersberg, Turckheim), qui avaient acheté
@@ -418,9 +401,7 @@ terres dépendant de l'évêché de Spire, du comté de
 1 margrave de Bade, du duc de Lorraine.
 Aussi les discussions en vue de la paix avaient-elles
 É été longues, subtiles et embrouillées, d'ailleurs sans
-conclusion nette sur ces points: que cédait exacte-
-
-la carte au liséré vert Free
+conclusion nette sur ces points: que cédait exactela carte au liséré vert Free
 ment l'empereur? étaient-ce des droits de suzeraineté?
 ou des territoires? que cédait-il comme chef de la
 maison d'Autriche? et que cédait-il comme représentant
@@ -436,8 +417,7 @@ couler des flots de discussion. (1) Les articles précédents
 (33, 74, 79) avaient énuméré les possessions cédées au
 roi: Brisach, le landgraviat de Haute-Alsace, le landgraviat de Basse-Alsace, le Sundgau, la Préfecture des
 Dix villes libres, prononcé que cette cession était faite
-à la France sans aucune réserve, complète et perpé-
-tuelle; que l'empereur renonçait, en ce qui concernait:
+à la France sans aucune réserve, complète et perpétuelle; que l'empereur renonçait, en ce qui concernait:
 cette cession, à l'interdiction générale d'aliéner les biens
 et droits de l'Empire. L'article 87 survient tout à coup,
 maintenant, pour les évêques de Strasbourg et de Bâle,
@@ -447,14 +427,11 @@ Avec cette finale qui remet les choses en l'état premier:
 Ita tamen ut. « De façon toutefois que rien ne soit
 considéré comme changé par la présente déclaration
 à tout le droit de souveraineté suprême concédé plus
-Quoiqu'il y eût, à n'en pouvoir douter, cession, l'en-
-
-chevêtrement de ces clauses les rendait parfois contradictoires. S'il s'agissait d'un chant homérique, on serait
+Quoiqu'il y eût, à n'en pouvoir douter, cession, l'enchevêtrement de ces clauses les rendait parfois contradictoires. S'il s'agissait d'un chant homérique, on serait
 tenté de chercher les interpolations, les passages
 tombés, déplacés, mal replacés.. Était-ce lassitude
 de négociations trop longues? stratagème impérial
-pour donner et retenir à la fois? finesses de diplo-
-mates, qui empêcheraient l'émotion des esprits indé-
+pour donner et retenir à la fois? finesses de diplomates, qui empêcheraient l'émotion des esprits indé-
 : pendants d'Alsace, toujours prompts à l'inquiétude?
 Peut-être y avait-il aussi, en ce temps où batailles et
 traités étaient la grande raison d'être des princes, une
@@ -463,8 +440,7 @@ implicite entre les paragraphes, de laisser la porte
 ouverte aux revendications, de ne limiter définitivement
 ni la France pour l'Allemagne, ni l'Allemagne pour la
 France. Et mieux encore y saisirait-on comme un
-à symbole de cette différence des temps, que les théori-
-ciens allemands se plaisent à ne pas voir: aujourd'hui
+à symbole de cette différence des temps, que les théoriciens allemands se plaisent à ne pas voir: aujourd'hui
 encore, il peut y avoir dans un traité des interstices
 dangereux, capables de tenter plus tard les processifs
 de la diplomatie et les agressifs des armées, mais on
@@ -550,7 +526,7 @@ du Rhin aux troupes du roi tandis qu'elle l'accordait à
 celles de l'empereur. Aussi, lorsque, le 30 septembre
 1681, Strasbourg, enveloppée par les troupes de
 Louvois, signa sa capitulation — qui lui conservait
-d'ailleurs sa constitution, et sa liberté religieuse —;
+d'ailleurs sa constitution, et sa liberté religieuse
 lorsqu'en 1697, l'article 16 du traité de Ryswick
 consacra la cession pleine et entière à la France de la
 ville de Strasbourg avec toutes ses dépendances situées
@@ -631,7 +607,7 @@ leur reconnaissance et leur attachement. (1)
 
 Au commencement de la Révolution (le 7 juillet 1789)
 les citoyens de Strasbourg firent présenter cette adresse
-à « Nos seigneurs les Etats généraux de France »:
+à « Nos seigneurs les Etats généraux de France
 
 Les citoyens de Strasbourg partagent à l'extrémité du
 pays l'allégresse générale sur la réunion des représentants
@@ -729,8 +705,7 @@ France: le roi de France, par son mariage, était comte
 E. de Courtrai, de Mons-en-Puelle, de Crécy. Aussi voit-on
 4 les ducs se mêler aux querelles d'Orléans et de Bour-
 1 gogne. Et même, lorsque, d'alliances dangereuses en
-à intrusions hautaines, cette lutte de partis prit le carac-
-tère d'une guerre nationale contre l'étranger, il se
+à intrusions hautaines, cette lutte de partis prit le caractère d'une guerre nationale contre l'étranger, il se
 É trouva que René d'Anjou, gendre du duc Charles Il de
 Lorraine, fit campagne contre les Anglais avec Jeanne
 il Ce René d'Anjou était héritier du comté de Bar.
@@ -738,8 +713,7 @@ il Ce René d'Anjou était héritier du comté de Bar.
 LE il administra le duché au nom de sa femme après la
 ._ mort de son beau-père (1431). Lorraine et Bar étaient
 3 donc réunis entre ses mains, et, sauf de courtes périodes,
-ne se désunirent plus. La dynastie angevine faillit d'ail-
-leurs être dangereuse au pays: chevaliers aventureux,
+ne se désunirent plus. La dynastie angevine faillit d'ailleurs être dangereuse au pays: chevaliers aventureux,
 … ces princes ne se plaisaient qu'aux tentatives de con_ quêtes lointaines. Heureusement, leurs absences lais-
 - saient l'autorité à des régents plus pondérés, évêques
 - ou seigneurs du pays, sous lesquels, pacifiquement, il se
@@ -855,8 +829,7 @@ sous réserve d'un dédommagement pour le roi détrôné,
 François IIL (lequel recevrait comme compensation le
 duché de Toscane). C'est ainsi que Stanislas Leczinzki
 … devint duc de Lorraine et de Bar (1736), sa vie durant,
-- à condition de laisser, après lui, les duchés à la cou-
-ronne de France. C'est dire que, par anticipation, l'ad-
+- à condition de laisser, après lui, les duchés à la couronne de France. C'est dire que, par anticipation, l'ad-
 … ministration devint française dès le règne de Stanislas;
 - un peu rude parfois, dans son désir d'effacer les souve-:
 nirs du passé, elle ne provoqua pourtant que des
@@ -869,8 +842,7 @@ Coislin élevaient aussi d'admirables monuments: les
 
 la carte au liséré vert
 deux villes voisines et sœurs recevaient simultanément,
-quoique sous des administrations différentes, l'ineffa-
-çable empreinte de l'art national.
+quoique sous des administrations différentes, l'ineffaçable empreinte de l'art national.
 
 A la mort de Stanislas (1766), le duché revint à la
 France, et les intendants n'eurent pas de peine à poursuivre l'œuvre d'assimilation: depuis longtemps, l'assimilation était faite dans les esprits, — et la Révolution
@@ -879,11 +851,11 @@ les yeux et consciente d'elle-même.
 
 .
 
-;; 3. — Depuis la Révolution
+3. — Depuis la Révolution
 On peut dire qu'à partir de ce moment l'histoire des
 … provinces françaises perd chaque jour de sa person-
 É nalité. Toutefois, à l'ouverture de la période révolution34 paire, les traces apparaissent encore de leurs passés
-a: particuliers. — Ainsi, à l'occasion de la convocation des
+particuliers. — Ainsi, à l'occasion de la convocation des
 États-Généraux, on retrouve les souvenirs de l'Alsace
 3 ancienne, respectés par la France: d'abord dans la
 Si forme, l'Alsace n'ayant pas de « baillis et sénéchaux
@@ -911,11 +883,10 @@ Schlestadt, trois élus par le Tiers de Belfort et Huningue,
 il y eut, pour Strasbourg, deux députés, et, pour les
 Dix villes, deux députés également, « députés du Tiers-
 État des Dix villes impériales d'Alsace ». (1) — Ainsi
-encore la situation des « princes possessionnés »: un
+encore la situation des « princes possessionnés un
 certain nombre de princes d'empire (duc des DeuxPonts, duc de Wurtemberg, landgrave de HesseDarmstadt, margrave de Brandebourg, prince-évêque
 de Strasbourg, évêques de Spire, Cologne, Trèves, Bâle)
-possédaient de vastes domaines en Alsace, où ils exer-
-çaient encore quelques-uns de leurs anciens droits.
+possédaient de vastes domaines en Alsace, où ils exerçaient encore quelques-uns de leurs anciens droits.
 féodaux; (2) et lorsque la Révolution française abolit,
 le 4 août, le régime féodal dans tout le royaume, les
 l'empereur: ce fut même l'origine du conflit avec l'Autriche, et de la grande guerre contre-révolutionnaire.
@@ -950,8 +921,7 @@ réunies à Strasbourg, Frédéric de Dietrich, maire de la
 ville, reçut sur la plate-forme de la cathédrale et fit
 
 dresser les premiers drapeaux tricolores déployés à
-Strasbourg, et que « ce spectacle des rives oppo-
-sées du Rhin, dit le procès-verbal officiel, apprit à
+Strasbourg, et que « ce spectacle des rives opposées du Rhin, dit le procès-verbal officiel, apprit à
 l'Allemagne que l'empire de la liberté était fondé en
 France ». (2) Dans le même temps, les gardes nationales de Metz — de Metz où bientôt « le patriotisme »
 sera « une passion » (3) — envoyèrent à l'Assemblée
@@ -967,17 +937,14 @@ dans les départements de la Meuse, de la Moselle et des Ardennes
 (1° juillet 1592), citée par Larchey, Pays messin, dans Lorr.,
 
 la carte au liséré vert
-tution dont leur cité a joui, constitution libre, répu-
-
-blicaine, pendant laquelle les Messins ont contracté À
+tution dont leur cité a joui, constitution libre, républicaine, pendant laquelle les Messins ont contracté À
 des alliances avec de grands peuples et ont des souverains à leur solde « que la constitution nouvelle ne
 leur laisse rien à regretter dans l'ancienne existence
 de la République, et qu'au contraire leurs pères seraient
 sans doute jaloux de leur bonheur, s'il leur était possible de le contempler ». (x)
 
 « existence » nouvelle, ce serait, enfin, la suppression de tout ce qui restait encore des inégalités personnelles et des complexités territoriales d'autrefois: plus
-d'Alsace, plus de Lorraine, plus de « Dix villes impé-
-riales plus de comté de Hanau-Lichtenberg, plus de seigneurie de Ferrette ou d'ailleurs, plus de prince-évêque,
+d'Alsace, plus de Lorraine, plus de « Dix villes impériales plus de comté de Hanau-Lichtenberg, plus de seigneurie de Ferrette ou d'ailleurs, plus de prince-évêque,
 plus de petits souverains intermédiaires, ruineux, à demi
 étrangers, qui empêchaient parfois de voir la France:
 mais une organisation identique pour le pays tout entier,
@@ -1005,8 +972,7 @@ comment ces Alsaciens et ces Lorrains voulurent, de
 Français: Kléber, Kellermann, de Strasbourg, Rapp,
 de Colmar, Lefebvre, de Rouffach, Ney, de Sarrelouis,
 Custine, Lasalle, Richepanse, de Metz, Molitor, de:
-É - Hayange, Mouton, de Phalsbourg, Éblé, de Saint-Jean-
-de-Rohrbach; — et qu'à Strasbourg, chez le maire
+É - Hayange, Mouton, de Phalsbourg, Éblé, de Saint-Jeande-Rohrbach; — et qu'à Strasbourg, chez le maire
 Dietrich, fut chantée pour la première fois la HMar_ seillaise.
 Depuis lors il n'y eut dans l'état de l'ancienne Alsace
 et de l'ancienne Lorraine que quelques modifications
@@ -1052,8 +1018,7 @@ titre et du même cœur que tous les départements de
 France. L'Alsace, la Lorraine, les Trois-Évêchés, rem-
 ; placés depuis quatre-vingts ans par des divisions ministratives nouvelles, qui étaient tout ensemble effet
 : et cause d'un état moral nouveau, font partie intégrante
-À et, semble-t-il, inséparable du bloc national. C'est pré-
-cisément l'heure où semble triompher en Europe — con-
+À et, semble-t-il, inséparable du bloc national. C'est précisément l'heure où semble triompher en Europe — con-
 É séquence des trois Révolutions françaises — le droit
 des peuples à disposer d'eux-mêmes par-dessus les conL venances personnelles des princes, à supprimer les
 barrières intérieures surannées pour s'amalgamer et
@@ -1073,8 +1038,7 @@ verain légitime, appuyé de l'adhésion populaire (1)
 le 22 avril 1860, ces populations approuvèrent la cession, par 130.533 voix sur 130.839 suffrages exprimés
 (135.449 électeurs inscrits). En Allemagne même, dans
 la rude Allemagne encore féodale, si, des centaines
-d'États allemands qui existaient avant 1780, la Confé-
-dération germanique de 1815 n'en avait plus compté
+d'États allemands qui existaient avant 1780, la Confédération germanique de 1815 n'en avait plus compté
 que trente-neuf; si le Zollverein rapprochait vingt-cinq
 millions d'Allemands sous la direction de la Prusse;
 si au Parlement de Francfort le président a parlé d'une
@@ -1145,9 +1109,7 @@ le second Empire, — et que, d'autre part, les Vosges ne
 sont pas les Alpes. Du reste, ici encore, derrière la
 théorie, la pensée réelle apparaît: ce n'était pas reconnaître les Vosges-frontièré, que de vouloir les dépasser,
 jusqu'au-delà de Château-Salins, de Metz, de Thion-
-: ville. Les Allemands défendraient-ils le même prin-
-
-cipe, si leurs voisins s'étaient amusés à le transporter
+: ville. Les Allemands défendraient-ils le même principe, si leurs voisins s'étaient amusés à le transporter
 symétriquement, de l'ouest à l'est du fleuve, et à revendiquer pour la France jusqu'au faîte de la Forêt-Noire”?.….
 La France, théoriquement, rationnellement, pouvait
 donc être tranquille. Mais, en fait, elle aurait ne
@@ -1197,8 +1159,7 @@ des jeux diplomatiques où se complaisaient les gouvernements de Joseph II, de F
 Frédéric en parle, — et les désapprouve, — parce
 qu'à ce moment l'ambition de l'Autriche pouvait porter
 ombrage au roi de Prusse: «.… Toutes ces acquisitions auraient formé comme une galerie qui, de Vienne,
-en s'agençant les unes aux autres, la conduisait jusqu'aux bords du Rhin, où l'Alsace.…. pouvait être répé-
-tée, ce qui menait enfin à cette Lorraine, qui naguère
+en s'agençant les unes aux autres, la conduisait jusqu'aux bords du Rhin, où l'Alsace.…. pouvait être répétée, ce qui menait enfin à cette Lorraine, qui naguère
 avait été le domaine des ancêtres de Joseph. » (1) Par
 contre, au début de la Révolution française, ce sont les
 agents de la Prusse qui engagent les princes possessionnés à réclamer la réunion de l'Alsace à l'Empire.
@@ -1241,8 +1202,7 @@ jusqu'au fond de son âme de l'effort commun vers l'indé-
 
 la carte au liséré vert
 pendanceet sent que la lutte ne sera pas vaine. Brochures
-(Le Rhin est-il la frontière naturelle et sûre de l'Alle-
-magne poésies (La Frontière, de Frédéric Stolberg),
+(Le Rhin est-il la frontière naturelle et sûre de l'Allemagne poésies (La Frontière, de Frédéric Stolberg),
 articles de journaux (Feuilles allemandes, Mercure
 rhénan) se multiplièrent, donnant le même mot d'ordre,
 ? poussant le même cri, reprenant ces idées, les amplifiant avec éloquence, revendiquant l'Alsace, la Lorraine,
@@ -1333,8 +1293,7 @@ parmi les Allemands, « du vif penchant qui attire 'AIsacien vers l'Allemagne; d
 qu'il éprouve de n'être plus avec nous... » Croit-on,
 ajoutait-il, que l'Alsace renoncerait « volontairement à
 la France qui lui assure déjà tout ce que le mouvement
-des esprits veut encore conquérir ailleurs? » Immé-
-diatement, les journaux officieux allemands protestèrent,
+des esprits veut encore conquérir ailleurs? » Immédiatement, les journaux officieux allemands protestèrent,
 et l'un d'eux, faisant, comme on dit, d'une pierre deux
 coups, ne craignit pas de comparer l'Alsace et la Lorraine à la Pologne, de prétendre qu'elles n'étaient pas
 plus légitimement acquises à la France, que la ville de
@@ -1368,8 +1327,7 @@ De guerre, nous n'en voulons pas; de haine nationale,;
 nous n'en connaissons pas. Sans doute, si la guerre était
 inévitable, nous ne marchanderions pas nos sacrifices à la
 France; mais aujourd'hui qu'il en est temps encore, nous
-venons vous tendre la main et vous demander votre con-
-cours, pour défendre dans nos deux pays la cause de la,
+venons vous tendre la main et vous demander votre concours, pour défendre dans nos deux pays la cause de la,
 paix et de la liberté... Unissez l'Allemagne, mais par la
 liberté et pour le progrès; c'est dans le même esprit que,
 nous aussi, nous accomplirons notre tâche... (2)
@@ -1484,8 +1442,7 @@ vigoureux, à l'Allemagne, à la Prusse marchant en tête
 de l'Allemagne impériale. (5) « Das walte Gott! »
 6) Franz von Lôher (Abrechnung mit Frankreich), cité par Gustav
 Meyer — voir plus bas — demande lArtois, Dunkerque et Lille
-avec les Flandres, le Luxembourg français le comté de Montbé-
-liard, et quelques colonies d'outre-mer: « Artois, Dünkirchen mit
+avec les Flandres, le Luxembourg français le comté de Montbéliard, et quelques colonies d'outre-mer: « Artois, Dünkirchen mit
 
 SIREN Dieu le veuille! » (1) — A peine, de temps en temps,
 . une objection timide, commerciale et intéressée: un
@@ -1507,7 +1464,7 @@ l'édifice du monde. (4)
 : - Et ce long regret territorial s'animait d'une haine
 tenace, ardente, sainte. Un des leviers qui avaient agi
 33 le plus puissamment sur l'âme allemande dans la lutte
-2 Sur ces mots se termine la brochure du docteur Wagner,
+Sur ces mots se termine la brochure du docteur Wagner,
 40 comme — voir plus haut — « Elsass und Lothringen deutsch »
 LE (2) « Elsass und Lothringen eine volkswirthschaftliche Studie,
 NE - Russland vorziehe? Die Antwort darauf kann nicht zweifelhaft
@@ -1542,8 +1499,7 @@ felt wenig Unterschied. Der Freiheit, weil der politischen Selbstbeherrschung un
 
 notre adresse. Le poète Stolberg, à l'heure de Leipzig,
 honnissait déjà « le frivole voisin (1) et le général
-Scharnhorst, en 1840, déclarait que « la France repré-
-sente le principe de l'immoralité si elle n'est pas
+Scharnhorst, en 1840, déclarait que « la France représente le principe de l'immoralité si elle n'est pas
 anéantie, c'est qu' « il n'y aurait plus de Dieu au ciel ». (2)
 « Nation d'enfants dit maintenant la Gazette Nationale,
 qui « aime la guerre comme une chasse et qui est « si
@@ -1558,8 +1514,7 @@ miasme qui empeste toute la France et qui a son siège
 à Paris tandis qu'heureusement « le sens monarchique des peuples de race germanique les préserve
 des convulsions épileptiques dans lesquelles se débattent
 les races latines (6) « la France ne connaît pas de
-plus grands souvenirs que ceux de la Révolution fran-
-çaise, cette catastrophe pleine de sang et de honte (7)
+plus grands souvenirs que ceux de la Révolution française, cette catastrophe pleine de sang et de honte (7)
 
 (2) Cité par A. Chuquet, Alsace en 1814,
 
@@ -1581,8 +1536,7 @@ et le chancelier donner lecture de la déclaration de
 remettre, le prédicateur Hoffmann, développant devant
 Guillaume et les députés, le verset du psalmiste:
 « Avec Dieu, nous voulons accomplir des exploits
-s'écria que la Prusse allait combattre « pour la mora-
-lité du monde ». (3)
+s'écria que la Prusse allait combattre « pour la moralité du monde ». (3)
 L'Allemagne avait assez tendu sa volonté; l'heure
 était venue de passer à l'acte; elle agit implacablement. à
 SAR par Albert Sorel, Hist. diplom. de la guerre fr.-all., LA,
@@ -1608,8 +1562,7 @@ Alliance et Als.-Lorr., p. 35.)
 
 la carte au liséré vert “TOR CE
 lieu d'entrer dans de nouvelles négociations à ce sujet;
-Bismarck s'emparant en maître de l'affaire pour en télé-
-graphier le récit aux représentants de la Confédération
+Bismarck s'emparant en maître de l'affaire pour en télégraphier le récit aux représentants de la Confédération
 et à la presse, dans un style condensé et brutal qui
 faisait d'un _embarras diplomatique un outrage à
 national; la responsabilité de la guerre habilement De
@@ -1646,8 +1599,7 @@ raconter en détail la douloureuse histoire, et je me con-
 
 ; tenterai de l'avoir ainsi rappelée: rapide sommaire des
 
-; faits, qui, de l'ardente revendication allemande, géné-
-ratrice de la guerre, nous amène jusqu'au dénouement
+; faits, qui, de l'ardente revendication allemande, génératrice de la guerre, nous amène jusqu'au dénouement
 désastreux que fut pour nous la paix.
 
 La visée de l'Allemagne avait été trop précise pour
@@ -1655,15 +1607,11 @@ La visée de l'Allemagne avait été trop précise pour
 qu'une indemnité satisfît l'orgueil de son triomphe, si
 
 è énorme, si invraisemblable qu'elle dût être. On dit que
-sous la Restauration, lors de la discussion sur le « mil-
-
-liard des émigrés — un seul milliard, — le général Foy
+sous la Restauration, lors de la discussion sur le « milliard des émigrés — un seul milliard, — le général Foy
 
 se récria, que ce chiffre dépassait l'imagination, qu'il ne
 
-s'était pas écoulé un milliard de minutes depuis la naïs-
-
-sance du Christ. Cinq milliards! La première fois
+s'était pas écoulé un milliard de minutes depuis la naïssance du Christ. Cinq milliards! La première fois
 
 4 que, dans leurs pourparlers, le chancelier eut dit son
 
@@ -1699,7 +1647,7 @@ servir jusqu'en 1954, date finale de la concession). D'autre part, la
 
 convention d'armistice avait stipulé le paiement par la Ville de
 
-4 Paris, dans les quinze jours, d'une contribution de guerre de
+Paris, dans les quinze jours, d'une contribution de guerre de
 
 200.000.000 de francs, payables en numéraire, billets de la Banque
 
@@ -1713,8 +1661,7 @@ s'augmentait encore — pour cette raison même — d'un
 intérêt de 5 pour cent à payer sur les trois derniers milliards, depuis le 2 mars 1871 jusqu'aux dates auxquelles
 leur paiement s'échelonnaïit: soit 315.359.073 francs
 d'intérêts; et ce total de 5.315.359.073 francs, net pour
-l'Allemagne, s'alourdissait pour la France de supplé-
-ments interminables: ces 5.315.359.073 francs, c'était,
+l'Allemagne, s'alourdissait pour la France de suppléments interminables: ces 5.315.359.073 francs, c'était,
 en plus, les frais des emprunts destinés à en rendre le
 paiement possible, soit plus de 600 millions; — et dix
 millions encore parce que, le paiement étant à effectuer
@@ -1750,8 +1697,7 @@ départements, aux communes et aux parliculiers; et
 7 millions d'indemnités aux compagnies de chemins de
 fer (autres que celle de l'Est); et 2 milliards pour la
 reconstitution du matériel militaire et naval; et les
-travaux publics qui s'imposeraient comme une consé-
-quence du traité: par exemple, la grande artère
+travaux publics qui s'imposeraient comme une conséquence du traité: par exemple, la grande artère
 navigable, formée par les canaux de la Marne au Rhin
 et du Rhône au Rhin, se trouvant coupée par la nouvelle frontière, il faudrait rattacher ensemble les deux
 tronçons restés français: d'où 65 millions pour la canalisation de la Meuse et son raccordement avec le canal
@@ -1779,9 +1725,7 @@ avait seul la vertu libératoire. De la sorte, le paiement intégral
 
 ne devait dater que du jour où, comme ils disaient, « le paiement
 
-a aurait été reconnu ». Or, ce comptage et cette vérification deman-
-
-se daient du temps... L'Allemagne n'avait aucun intérêt à se presser
+a aurait été reconnu ». Or, ce comptage et cette vérification demanse daient du temps... L'Allemagne n'avait aucun intérêt à se presser
 
 : dans ses mouvements et à rapatrier ses troupes. C'était le Trésor
 
@@ -1829,9 +1773,7 @@ et de la Lorraine, (3) déclaration éloquente et nette
 
 à qu'avait rédigée Gambetta, triple affirmation solennelle,
 
-que « l'Alsace et la Lorraine ne veulent pas être alié-
-
-nées que « la France ne peut consentir ni signer la
+que « l'Alsace et la Lorraine ne veulent pas être aliénées que « la France ne peut consentir ni signer la
 
 cession de la Lorraine et de l'Alsace que « l'Europe
 
@@ -1859,16 +1801,14 @@ assentiment ». Malheureusement, la France était trop
 la Meurthe et la Moselle), c'est vingt-neuf départements
 qui avaient donné leurs voix à Thiers, représentant de
 la paix. Aussi, le député du Haut-Rhin étant descendu
-de la tribune, et lorsque Thiers eut demandé à l'Assem-
-blée d'agir logiquement avec elle-même, de ne pas
+de la tribune, et lorsque Thiers eut demandé à l'Assemblée d'agir logiquement avec elle-même, de ne pas
 voter, si elle se disposait à souscrire un traité de paix,
 une motion qui impliquait la continuation de la guerre,
 
 la carte au liséré vert
 la commission chargée d'examiner la proposition remplaça le texte Keller par celui-ci, laudatif, mais fuyant,
 qui le trahissait en le traduisant:
-L'Assemblée Nationale, accueillant avec la plus vive sym-
-pathie la déclaration de M. Keller et de ses collègues, s'en
+L'Assemblée Nationale, accueillant avec la plus vive sympathie la déclaration de M. Keller et de ses collègues, s'en
 remet à la sagesse et au patriotisme des négociateurs.
 Muni de ce « blanc-seing » (le mot est de Rochefort,
 qui accueillit par cette interpellation la lecture de la
@@ -1881,8 +1821,7 @@ les dispositions pacifiques de l'Assemblée de Bordeaux.
 Le 26 février, signatures: Thiers et Jules Favre, pour
 la France, Bismarck, pour l'Allemagne. Heures atroces.
 Remontant en voiture, Thiers, « immobile et comme:
-foudroyé « succombait à son émotion « de Ver-
-sailles à Paris, ses yeux ne cessèrent de se mouiller de
+foudroyé « succombait à son émotion « de Versailles à Paris, ses yeux ne cessèrent de se mouiller de
 larmes, qu'il essuyait sans dire un mot ». (1) Le 28, il
 était de retour à Bordeaux, donnait aussitôt lecture du
 projet de loi destiné à ratifier sa signature. Et le;
@@ -1903,8 +1842,7 @@ Jusqu'ici les conquérants se contentaient de mettre la
 ; main sur un territoire, de s'en emparer par la force. Ils le
 gardaient s'ils le pouvaient. C'était le droit de la guerre.
 ; KA. Aujourd'hui, les prétentions de la Prusse sont toutes velles. Après avoir saisi l'Alsace et la Lorraine, elle prétend
-faire voter, consacrer cette prise de possession par le suf-
-frage universel... Ici se montre la pensée intime des sances nouvelles; elles savent que tout ce qui n'est pas
+faire voter, consacrer cette prise de possession par le suffrage universel... Ici se montre la pensée intime des sances nouvelles; elles savent que tout ce qui n'est pas
 fondé sur les principes nouveaux inaugurés par la France
 4 est caduc. Faire servir une Assemblée Nationale à démem3 brer la nation, voilà le dessein de l'ennemi. Ainsi l'esprit
 4 féodal se vengerait de nos libres institutions démocratiques
@@ -2092,8 +2030,7 @@ du côté allemand: du général von Strantz, de l'ingénieur des
 mines Hauchecorne, et d'un assesseur de régence, Herzog. Par
 la suite, prirent part également aux travaux de la commission:
 le capitaine Bouvier, aide de camp du général Doutrelaine, Krafft,
-ingénieur des ponts et chaussées, le garde du génie Laloy (Fran-
-çais); — le capitaine d'état-major Rhein, le géomètre Hufnagel
+ingénieur des ponts et chaussées, le garde du génie Laloy (Français); — le capitaine d'état-major Rhein, le géomètre Hufnagel
 (Allemands). C'est le lieutenant-colonel Laussedat (plus tard
 membre de lInstitut et directeur du Conservatoire des Arts-etMétiers) qui, en fait, le général Doutrelaine étant malade et souvent absent, soutint principalement, du côté français, le poids de
 la discussion et dirigea jusqu'à la fin le travail des commissaires
@@ -2104,7 +2041,7 @@ nous nous sommes souvent reporté au cours de ce chapitre.
 (2) Cité par A. Sorel, Hist. diplom. de la guerre fr.-all., t. IX,
 
 i. 4 M. Thiers avait bien obtenu, en modification au
-ù; tracé primitif et général, de conserver Belfort, « la ville
+tracé primitif et général, de conserver Belfort, « la ville
 —. et les fortifications de Belfort dit l'article 1° des
 : préliminaires du 26 février, avec un rayon qui sera
 3 déterminé ultérieurement ». Mais les Allemands ne
@@ -2140,12 +2077,10 @@ qu'il ne paraissait: « la perte de terrains miniers d'une
 incontestable richesse et d'une qualité spéciale, la perte.
 surtout de quelques milliers de Français, qui devaient
 croire leur sort fixé, et cette perte consentie par suite
-d'une transaction volontaire avec le vainqueur... »:
+d'une transaction volontaire avec le vainqueur...
 L'humeur joviale d'un des négociateurs français, Pouyer-
-Quertier, qui plaisait à Bismarck, sauva du moins Vil-
-lerupt: «... Je ne vous eusse pas obligé à devenir
-Français, dit-il au chancelier, et vous me faites Alle-
-mand! — Comment cela?... Qui vous parle de prendre
+Quertier, qui plaisait à Bismarck, sauva du moins Villerupt: «... Je ne vous eusse pas obligé à devenir
+Français, dit-il au chancelier, et vous me faites Allemand! — Comment cela?... Qui vous parle de prendre
 votre Normandie?... — La chose est pourtant bien me
 simple: je suis un des principaux actionnaires des à
 forges de Villerupt, et vous voyez bien que, de ce côté,
@@ -2154,8 +2089,7 @@ Le 18 mai, l'Assemblée adopta les conclusions du
 rapporteur, et l'échange fut consigné définitivement
 dans le traité. (2) Sans doute Belfort et son rayon, à
 sa courageuse défense, de la victoire diplomatique Rs:
-remportée par Thiers, constituait un avantage intéres-
-sant pour nous. Mais la compensation n'était pas mince —
+remportée par Thiers, constituait un avantage intéressant pour nous. Mais la compensation n'était pas mince —
 et les Allemands n'ignoraient pas quelle valeur indus à
 trielle avait la région qu'ils prenaient en échange: le
 principal Allemand de la commission de délimitation
@@ -2166,18 +2100,15 @@ principal Allemand de la commission de délimitation
 pour des villages et des habitants qu'ils disputaient, à
 . mais pour un sous-sol riche, plein d'avenir monnayable:
 de fait, l'exploitation du minerai de fer dans cette
-à région d'Aumetz et d'Hayange a considérablement aug-
-menté depuis la guerre, avec toutes les conséquences
+à région d'Aumetz et d'Hayange a considérablement augmenté depuis la guerre, avec toutes les conséquences
 de l'exploitation prospère: augmentation du chiffre de
 4 la population, augmentation du prix des terrains. (1)
 È D'autres questions restaient encore à régler, réser4 vées d'un commun accord pour le tracé sur le terrain,
 qui commença dans les premiers jours de juillet.
 Ce que fut ce voyage, on le devine aisément: le
 lieutenant-colonel Laussedat, commissaire français, et
-à - Hauchecorne, l'ingénieur des mines, commissaire alle-
-mand, allant chacun de son côté, ne se parlant que
-É pour le service, quoique l'Allemand, vainqueur et con-
-tent, lui, eût fait l'aimable et proposé qu'on voyageât
+à - Hauchecorne, l'ingénieur des mines, commissaire allemand, allant chacun de son côté, ne se parlant que
+É pour le service, quoique l'Allemand, vainqueur et content, lui, eût fait l'aimable et proposé qu'on voyageât
 de compagnie, Reconnaissances de bornes déjà exisL. tantes (la frontière nouvelle coïincidait souvent avec les
 anciennes limites de départements), examen des mappes
 cadastrales, piquetage des sommets, plantations de
@@ -2188,16 +2119,13 @@ c'était de l'humanité. Ce qu'on appelle d'habitude les
 à impressions de voyage, avivait encore la sensibilité
 BE" du Français. Quand les commissaires arrivèrent à
 Sainte-Marie-aux-Chènes, un des villages cédés en
-compensation de Belfort, il n'y avait plus une seule mai-
-son debout, pas une pièce où l'on pût trouver un abri:
+compensation de Belfort, il n'y avait plus une seule maison debout, pas une pièce où l'on pût trouver un abri:
 (1) Cf. Laussedat, Délimit. de La front., p. 208 sqq.
 
 la carte au liséré vert
 
-occupée par les troupes pendant la journée de SaintPrivat, Sainte-Marie-aux-Chênes était encore un mon-
-ceau de décombres; « de rares habitants, raconte le À
-colonel Laussedat, cherchaïent dans des ruines les dé-
-bris de leurs mobiliers. Sur seuil, une brave femme
+occupée par les troupes pendant la journée de SaintPrivat, Sainte-Marie-aux-Chênes était encore un monceau de décombres; « de rares habitants, raconte le À
+colonel Laussedat, cherchaïent dans des ruines les débris de leurs mobiliers. Sur seuil, une brave femme
 me demande s'il était vrai que Sainte-Marie-aux-Chênes
 allait devenir prussienne. Je fus bien obligé de répondre
 que oui: « Monsieur, fit-elle, jai trois enfants, trois fils;
@@ -2233,8 +2161,7 @@ s'obstinant à ce qu'il ne fût point question de compensation pour une cession 
 2 manifestement aucun droit; il l'emporta encore: bataille
 gagnée, qui conserva à la France une commune de
 à 700 hectares et de 372 habitants; comme disait M. de
-Meaux dans son rapport, « quand il s'agit du sol fran-
-çais, quand il s'agit surtout de familles françaises, il
+Meaux dans son rapport, « quand il s'agit du sol français, quand il s'agit surtout de familles françaises, il
 n'est pas une chaumière qui ne soit pour nous inappréciable, il n'est pas un effort que, dans notre désastre,
 nous puissions croire superflu ».
 
@@ -2253,8 +2180,7 @@ Moyeuvre restât en France: outre les sentiments des
 
 la carte au liséré vert
 pour une si faible distance de la frontière nouvelle,
-menacerait cette industrie, — région riche hier, peut-
-être ruinée demain, si la séparation lui fermait ses
+menacerait cette industrie, — région riche hier, peutêtre ruinée demain, si la séparation lui fermait ses
 anciens débouchés et jetait ses produits sur le marché
 allemand déjà trop plein. Maïs le traité avait été signé
 sans qu'on tint compte de cette réclamation, et, après
@@ -2276,14 +2202,11 @@ des deux lignes) les expéditions de la manufacture de
 glaces de Cirey, ainsi que divers produits agricoles,
 industriels, forestiers de la région; le trafic pouvait
 même, non seulement s'embrancher sur Paris-Strasbourg, mais se continuer tout droit, au-delà d'Avricourt, par-dessus la grande ligne, jusqu'au canal de la
-Marne au Rhin, qu'une autre petite ligne, celle d'Avri-
-
-court à Dieuze, rencontrait près de Moussey. Trafic
+Marne au Rhin, qu'une autre petite ligne, celle d'Avricourt à Dieuze, rencontrait près de Moussey. Trafic
 …—._ inverse, également: de denrées alimentaires, et surtout
 de matières premières pour l'industrie, qui, la houille
 3 exceptée, venaient de France. Or, le tracé de la velle frontière faisait allemand tout un tronçon du
-4 - chemin de fer Avricourt-Cirey, et, sur les dix-huit kilo-
-mètres qui séparent ces localités, aurait contraint voyageurs et marchandises à deux passages de douane:
+4 - chemin de fer Avricourt-Cirey, et, sur les dix-huit kilomètres qui séparent ces localités, aurait contraint voyageurs et marchandises à deux passages de douane:
 ; pertes de temps, formalités coûteuses, ruine probable
 1 du chemin de fer, danger réel pour toute la région.
 Les commissaires français finirent par l'emporter: ils
@@ -2400,8 +2323,7 @@ disait que « les sujets français originaires des terri-
 - toires cédés, domiciliés actuellement sur ce territoire,
 qui entendront conserver la nationalité française »
 jouiraient jusqu'au 1° octobre 1872 « et moyennant
-une déclaration préalable faite à l'autorité compé-
-tente, de la faculté de transporter leur domicile en
+une déclaration préalable faite à l'autorité compétente, de la faculté de transporter leur domicile en
 France et de s'y fixer,.… auquel cas la qualité de citoyens
 : français leur sera maintenue ». Faculté qui était en
 réalité une obligation, si l'on voulait rester Françâis;
@@ -2413,8 +2335,7 @@ avant le 1° octobre 1872, d'une émigration réelle, transfert de la personne, 
 du traité fût, comme les autres, appliqué strictement.
 Discussions des plénipotentiaires, échanges de notes,
 rien qui püût faire croire au laisser-aller du vainqueur.
-Il n'y eut guère qu'un point à propos duquel les Alle-
-mands condescendirent à étendre la lettre du traité:
+Il n'y eut guère qu'un point à propos duquel les Allemands condescendirent à étendre la lettre du traité:
 « la faculté de transporter leur domicile en France »
 parut vraiment trop restrictive, et l'on reconnut que
 : l'option des émigrants devait être valable pourvu qu'ils
@@ -2451,8 +2372,7 @@ indemnités compensatrices aux dommages causés par
 eurent parfois de singulières conséquences: individus à deux
 nationalités, ou sans nationalité. Du reste, et sans entrer dans les
 questions d'espèces, on peut noter ici que les domiciliés non
-originaires, dont il a été question tout à l'heure, restèrent Fran-
-çais de plein droit au point de vue français, tandis qu'aux yeux de
+originaires, dont il a été question tout à l'heure, restèrent Français de plein droit au point de vue français, tandis qu'aux yeux de
 lPadministration allemande, ils devaient émigrer pour ne point
 
 la guerre, tandis que, si l'on partait... Et puis, où était
@@ -2504,11 +2424,9 @@ part, l'administration nouvelle faisait prévoir des;
 .
 augmentations de solde, des promotions de grade;:
 mais, c'était l'administration allemande. D'autre part, à
-quelles que fussent les bonnes intentions de la mère-
-patrie, elle ne pourrait faire rentrer dans ses cadres,
+quelles que fussent les bonnes intentions de la mèrepatrie, elle ne pourrait faire rentrer dans ses cadres,
 du jour au lendemain, — peut-être même jamais,
-tout ce que déverseraient de disponibles les départe-
-ments séparés d'elle. Lorsque fut faite à l'Assemblée
+tout ce que déverseraient de disponibles les départements séparés d'elle. Lorsque fut faite à l'Assemblée
 Nationale la proposition que « les fonctionnaires qui
 ont refusé leurs services à la Prusse continueront à à
 recevoir de la France tout ou partie des émoluments:
@@ -2546,8 +2464,7 @@ analogue que « le pouvoir exécutif, dont ils relèvent,
 dans tout territoire envahi et leur accorder de préfé-
 ._ rence, « soit de nouveaux postes, soit des avancements
 4 réparateurs ». (1) — Les fonctionnaires pouvaient donc.
-espérer, s'ils rentraient en France, en des appuis bien-
-veillants; mais la concurrence serait forte, et la certi-
+espérer, s'ils rentraient en France, en des appuis bienveillants; mais la concurrence serait forte, et la certi-
 … tude leur échappait.
 « (1) Proposition Lucien Brun, etc.; conclusions de la commission
 - adoptées par l'Assemblée Nationale le 31 mars 1852. (Villefort,
@@ -2592,8 +2509,7 @@ l'année 1872. » (Villefort, Recueil des traités, t. 1, p. 334)?
 période de réorganisation lente et de transition favorable à l'accoutumance, quand on savait qu'il avait
 prétendu faire rendre la justice « au nom des hautes
 puissances allemandes dès l'occupation; ni douter de
-son mépris du passé, quand on avait entendu le procureur Popp, inaugurant le tribunal de Strasbourg, célé-
-brer pompeusement la défaite de la « nation avide de
+son mépris du passé, quand on avait entendu le procureur Popp, inaugurant le tribunal de Strasbourg, célébrer pompeusement la défaite de la « nation avide de
 gloire et de butin la « délivrance » des deux provinces
 « qui sont notre sang et notre chair et rappeler aux
 juges qu'ils ont à leur disposition, pour continuer
@@ -2606,8 +2522,7 @@ de veiller à l'exécution de toutes les mesures de
 police qu'il plairait à l'administration allemande d'édicter, de plier la fierté de leur tradition française à
 l'emploi de la langue du vainqueur. Tous, excepté six,
 Mais les fonctionnaires de la justice n'étaient qu'un
-état-major sans troupes. D'autres — ceux de l'instruction publique, par exemple, ou des postes — consti-
-tuaient une véritable armée. Partout, les chefs de
+état-major sans troupes. D'autres — ceux de l'instruction publique, par exemple, ou des postes — constituaient une véritable armée. Partout, les chefs de
 service partirent, avec l'espoir d'une « mutation » plus
 facile, ayant souvent, plus que leurs subordonnés, les
 moyens de l'attendre, plus conscients aussi de leur
@@ -2617,8 +2532,7 @@ se dispersèrent, certaines cherchant un point de ralliement de l'autre côté d
 
 la carte au liséré vert
 Faculté de médecine, pourtant composée en grande
-partie d'indigènes, émigra vers « École Prépara-
-toire » de Nancy, qui, grâce à cet apport alsacien
+partie d'indigènes, émigra vers « École Préparatoire » de Nancy, qui, grâce à cet apport alsacien
 Bernheim, agrégés), fut aussitôt promue Faculté; tandis
 que plusieurs des anciens professeurs et agrégés qui ne
 quittaient pas Strasbourg, y formèrent, sous la direction
@@ -2662,8 +2576,7 @@ venus de la France intérieure, mais encore des indi- » gènes, et quoique l'ad
 - le programme allemand et enseigner en allemand, ce
 - fut un exode: Leser, Buisson, Boucher, Cottler…
 
-Mais il y avait aussi la foule, la foule des institu-
-teurs, la foule de tous les fonctionnaires subalternes,
+Mais il y avait aussi la foule, la foule des instituteurs, la foule de tous les fonctionnaires subalternes,
 … greffiers, employés des postes, facteurs, sergents de
 4 (1) Le gymnase protestant de Strasbourg, institution vieille de
 
@@ -2672,9 +2585,7 @@ ici de ses professeurs, quoiqu'ils ne fussent pas proprement d'Etat,
 ce n'est pas seulement parce que la confirmation par l'Etat leur
 … conférait une sorte d'assimilation avec leurs collègues du lycée,
 mais encore à cause du rôle considérable qu'il jouait, à côté
-du lycée, dans l'éducation de la jeune bourgeoisié strasbour-
-
-la carte au liséré vert
+du lycée, dans l'éducation de la jeune bourgeoisié strasbourla carte au liséré vert
 ville, la foule de tous ceux qui sont plus liés au sol,
 qui vivent davantage — appoint souvent indispensable
 au traitement — dans la maïson et de la terre paternelles. Devinez-vous l'état d'âme de cet instituteur
@@ -2699,9 +2610,7 @@ instituteurs, qui ne « servent » pas seulement de leur
 personne, — gêne intime et limitée, — mais qui, audelà d'elle, engagent l'avenir, il leur faudrait enseigner
 l'histoire allemande, et à l'allemande: méthode patriotique, ardemment, presque exclusivement, qui ne se
 préoccupe guère de faire à l'usage des écoles primaires de la science impartiale et sereine: l'Allemagne,
-« bienfaisante à tous, à personne redoutable Charle106
-
-magne, empereur allemand, rien qu'allemand; (1) l'AIsace insidieusement ravie par Louis XIII et Louis XIV,
+« bienfaisante à tous, à personne redoutable Charlemagne, empereur allemand, rien qu'allemand; (1) l'AIsace insidieusement ravie par Louis XIII et Louis XIV,
 
 . mais Frédéric proclamé grand roi pour avoir pris la
 Silésie; (2) l'Allemagne touchant, au nord, la Baltique
@@ -2736,13 +2645,10 @@ et le parti pris contre la France s'y manifestent crûment ».(J. Heimweh, Tripl
 ; netière (Un manuel allemand de géographie, dans Revue des DeuxMondes, 1* juin 1876), qui fait remarquer que l'auteur est professeur dans un séminaire, qu'il s'agit d'un ouvrage sérieux et
 d'enseignement. Ce dernier livre est, il est vrai, par sa date de
 7 publication, de quatre ou cinq années postérieur à l'époque où nous
-nous plaçons dans ce chapitre; ce n'est pourtant pas un anachro-
-nisme que de le citer ici: cette histoire et cette géographie tendancieuses ne furent ni d'un moment, ni d'un livre unique. On
+nous plaçons dans ce chapitre; ce n'est pourtant pas un anachronisme que de le citer ici: cette histoire et cette géographie tendancieuses ne furent ni d'un moment, ni d'un livre unique. On
 : hésite à citer davantage: « Les habitants de la Champagne sont
 
-apparentés de très près aux Lorrains orientaux; leur stature im-
-
-la carte au liséré vert SÉPARER
+apparentés de très près aux Lorrains orientaux; leur stature imla carte au liséré vert SÉPARER
 
 à enseigner que l'annexion récente de l''Alsace-Lorraine
 ne fut pas, pour les Allemands, une conquête (Zroberung), mais une reprise (Zurückeroberung)... Dans.
@@ -2751,8 +2657,7 @@ pourraient-ils vivre? A le tenter même, beaucoup en
 éprouvaient d'avance comme une honte. De tous ces
 
 modestes, à qui l'avenir, s'ils partaient, serait plus diffcile qu'aux grands, et dont la fidélité serait moins
-glorieuse, beaucoup s'en allèrent, donnant par leur dé-
-part la preuve héroïque, et qu'on regardait généralement alors comme la plus significative, de leur attache- -
+glorieuse, beaucoup s'en allèrent, donnant par leur départ la preuve héroïque, et qu'on regardait généralement alors comme la plus significative, de leur attache- -
 ment aux vaincus: à la fin de 1872, 26 seulement des
 fonctionnaires de l'Alsace-Lorraine étaient AlsaciensLorrains d'origine. (1) Quant à ceux qui restèrent; ce
 fut rarement par quelque souplesse d'ambition mauvaise, mais par impossibilité matérielle, contraints, et
@@ -2804,9 +2709,7 @@ et d'affection. La plupart des ecclésiastiques restèrent.
 
 . difficultés personnelles? Sans doute; car, de quelqu'un
 
-des trois cultes qu'ils fussent les ministres, ils ne retrou-
-
-veraient pas, du jour au lendemain, à poursuivre leur
+des trois cultes qu'ils fussent les ministres, ils ne retrouveraient pas, du jour au lendemain, à poursuivre leur
 
 ministère ailleurs: les curés, à cause de leur nombre
 
@@ -2836,8 +2739,7 @@ du traité de Francfort avait stipulé que « les hautes
 parties contractantes, étant d'avis que les circonscriptions diocésaines des territoires cédés à l'Empire allemand doivent coïncider avec la nouvelle frontière...,
 se concerteront, après la ratification du présent traité,
 sans retard, sur les mesures à prendre en commun à
-cet effet ». Quel serait exactement ce transfert d'obé-
-dience? Les deux évêchés d'Alsace-Lorraine, soustraits
+cet effet ». Quel serait exactement ce transfert d'obédience? Les deux évêchés d'Alsace-Lorraine, soustraits
 désormais à la juridiction métropolitaine de l'archevêque de Besançon, seraient-ils, comme jadis, suffragants d'archevêchés allemands, Metz, de Trèves, et
 Strasbourg, de Mayence? En fait, la lutte du chancelier
 
@@ -2882,8 +2784,7 @@ du pouvoir nouveau, d'un pouvoir dont l'hostilité poli
 tique s'aggraverait peut-être d'hostilité religieuse, d'un
 : gouvernement qui aurait la main lourde le jour où
 il l'abattrait sur les fonctionnaires catholiques et qui …
-saurait inventer « l'état de siège dans les affaires ecclé-
-siastiques » (1): l'ère du ÆXulturkampf s'ouvrait. Pour:
+saurait inventer « l'état de siège dans les affaires ecclésiastiques » (1): l'ère du ÆXulturkampf s'ouvrait. Pour:
 tant, ils restèrent. Dans la tourmente, où le temporel
 n'était pas seul en cause, ils sentaient peser sur eux. « les grandes responsabilités d'autrefois; la situation
 
@@ -2900,12 +2801,9 @@ qu'il ne fallait pas « s'attrister comme ceux qui n'ont
 point d'espérance — l'évêque de Metz, l'admirable
 Dupont des Loges, donnerait l'exemple de la tutelle
 courageuse sur les fidèles, de la correction digne à
-l'égard du gouvernement, sans rien renier de « la fidé-
-lité à son passé » et de « la religion de ses souvenirs ».(3)
+l'égard du gouvernement, sans rien renier de « la fidélité à son passé » et de « la religion de ses souvenirs ».(3)
 Pour être coreligionnaires des nouveaux maîtres, et
-(1) Cette expression spirituelle est du chanoine Dacheux (Cathé-
-
-drale de Strasbourg, p. 59).
+(1) Cette expression spirituelle est du chanoine Dacheux (Cathédrale de Strasbourg, p. 59).
 
 (2) 7 septembre 1851. Monument élevé à la mémoire des soldats
 français morts pendant le siège de Metz.
@@ -2923,9 +2821,7 @@ des ministres protestants n'en était que plus
 sympathie suspecte pour l'Allemagne! Le baron Pron,
 
 à préfet du Bas-Rhin, disait, au début de la guerre, qu'ils
-… tendaient la main aux Prussiens. (1) Pendant le bombar-
-
-dement de Strasbourg, on raconta que les batteries
+… tendaient la main aux Prussiens. (1) Pendant le bombardement de Strasbourg, on raconta que les batteries
 prussiennes, dont les obus pleuvaient sur la cathédrale,
 respectaient le quartier de leur temple Saint-Thomas (2)
 D. jusqu'à ce que les faits démentissent d'eux-mêmes à
@@ -2990,12 +2886,11 @@ le grand-rabbin de Colmar, s'en allèrent; celui-ci, dans
 un dernier sermon, avant de quitter son temple,
 exprima des sentiments qu'il savait être ceux de tous
 les autres. Il se justifia « de ne pas rester au milieu de
-son troupeau »: qu'il ne pouvait parler et agir contre
+son troupeau qu'il ne pouvait parler et agir contre
 sa conscience, prêcher, comme on ne manquerait pas
 de le lui demander, « l'oubli du passé, la résignation au
 fait accompli l'amour d'une patrie qu'il ne saurait
-éprouver lui-même; « dans tous les cœurs vit l'espé-
-rance de voir le droit reprendre son empire, de voir
+éprouver lui-même; « dans tous les cœurs vit l'espérance de voir le droit reprendre son empire, de voir
 l'Alsace rendue au pays... dont on ne parviendra jamais
 à détacher son âme; cette espérance est la mienne,
 et, quand elle se réalisera, oh! alors, vous m'appellerez,
@@ -3028,8 +2923,7 @@ des cinq dernières années, du 1° juillet 1865 au 1° juillet
 fit commencer le délai de cinq années assez tôt pour
 qu'à l'autre extrémité les mauvaises années de la guerre
 n'y fussent pas comprises). Reconnaissance d'un droit,
-qui pourtant le limitait, et justice parfois injuste. L'in-
-demnité, par exemple, était menacée d'une réduction
+qui pourtant le limitait, et justice parfois injuste. L'indemnité, par exemple, était menacée d'une réduction
 d'un tiers si, optant pour la France, le cédant ne pre-:
 nait pas soin de présenter un successeur capable et À
 ; connaissant l'allemand, ou si, restant, il résignait ses
@@ -3059,8 +2953,7 @@ Compagnie comptait alors douze membres, s'étaient
 trouvés trop nombreux et avaient racheté, au fur et à
 mesure des décès, trois des douze études, se réduisant
 ainsi à neuf. La nouvelle loi donc rétablir sous une
-se autre forme l'ancien état de choses, ramener la concur-
-rence? concurrence grave, même si les arrivants
+se autre forme l'ancien état de choses, ramener la concurrence? concurrence grave, même si les arrivants
 Re: apportaient quelques affaires supplémentaires. D'où,
 pétition des avoués de Nancy pour l'abrogation de la
 “4 loi, propositions diverses pour empêcher l'installation!
@@ -3089,9 +2982,8 @@ quasi-militaire, et qui serait sous l'autorité directe du
 chancelier de l'Empire. (2)
 
 .… Et enfin, derrière ceux-là, qui, appartenant à des
-compagnies très bourgeoises ou à de puissantes administrations, trouveront peut-être des mutations compen-
-satrices, il y a la foule, la foule de tous ceux qui ne
-sont pas encadrés et soutenus, pour lesquels il n'y a;
+compagnies très bourgeoises ou à de puissantes administrations, trouveront peut-être des mutations compensatrices, il y a la foule, la foule de tous ceux qui ne
+sont pas encadrés et soutenus, pour lesquels il n'y
 pas de collègues, de camarades, d'esprit de corps, et;
 dont l'existence, — commerçants, agriculteurs, indus- -
 triels, — dépend, sans contribution ni garantie de
@@ -3101,11 +2993,9 @@ Sur quinze mille kilomètres carrés, usines et comptoirs:
 avec toute la hardiesse que leur donnent des relations
 depuis longtemps établies et régulièrement entretenues,
 en tenant compte, pour l'établissement de leurs prix et
-la direction de leurs voyageurs, des autres centres pro-
-ducteurs disséminés sur le reste du territoire; vers l'est,:
+la direction de leurs voyageurs, des autres centres producteurs disséminés sur le reste du territoire; vers l'est,:
 au contraire, une barrière, — des affaires moindres, ou:
-autres. Soulevez la barrière du côté où elle est, trans-
-portez-la du côté où elle n'est pas, et voilà peut-être, du
+autres. Soulevez la barrière du côté où elle est, transportez-la du côté où elle n'est pas, et voilà peut-être, du
 jour au lendemain, la ruine.
 
 D'abord, il y avait une situation présente à liquider.
@@ -3137,8 +3027,7 @@ temps à agir que le zèle du fisc ne s'embarrasse pas de
 ; coup de marchandises alsaciennes empruntant la voie
 suisse pour entrer en France, avait décidé que l'AlsaceLorraine, étant, depuis la signature des préliminaires,
 : détachée du territoire français et incorporée à l'Empire
-À allemand, les envois de ces deux provinces à destina-
-tion de la France seraient soumis désormais aux condi-
+À allemand, les envois de ces deux provinces à destination de la France seraient soumis désormais aux condi-
 : tions du tarif général appliqué aux marchandises
 provenant de l'étranger. Cet incident ayant excité
 Cf. Lantz (L.), Notice hist. et stat., p. 13, sqq.
@@ -3147,8 +3036,7 @@ la carte au liséré vert; A
 encore l'ardeur des industriels menacés, ils avaient fini
 par obtenir du gouvernement français, d'abord, la levée:
 de l'interdit prononcé par le directeur des douanes de
-Bourg; puis, le droit d'introduire en franchise leurs pro-
-duits sur le territoire français jusqu'à la signature du:
+Bourg; puis, le droit d'introduire en franchise leurs produits sur le territoire français jusqu'à la signature du:
 traité définitif; enfin, dans le traité, l'insertion de
 l'article 9, qui maintenait « pour un espace de témps de
 six mois, depuis le 1° mars, dans les conditions faites
@@ -3158,10 +3046,8 @@ des territoires cédés pour l'importation en France ». à
 Toutefois, comme la difficulté des communications avec
 la France, l'encombrement des chemins de fer par les à
 transports militaires, la diminution et le mauvais état à
-de leur matériel rendaient ce délai de six mois insuff-
-sant, que d'ailleurs on était au 10 mai et que le délai
-partant du 1° mars était déjà fort écourté, la Commis-
-sion pour la défense des intérêts alsaciens avait entrepris aussitôt une nouvelle campagne et provoqué la
+de leur matériel rendaient ce délai de six mois insuffsant, que d'ailleurs on était au 10 mai et que le délai
+partant du 1° mars était déjà fort écourté, la Commission pour la défense des intérêts alsaciens avait entrepris aussitôt une nouvelle campagne et provoqué la
 Convention additionnelle du 12 octobre 1871, (1) qui fixa
 définitivement le régime douanier sous lequelles produits
 de l'Alsace-Lorraine devaient être importés en France, À
@@ -3170,8 +3056,7 @@ de l'Alsace-Lorraine devaient être importés en France, À
 1872, demi-droit du 1‘ juillet au 31 décembre 1872.
 Mais ces démarches, discussions et règlements, qui;
 atténuaient le mal présent, n'assuraient pas l'avenir. Il
-fallait s'en préoccuper. On a déjà, dans les discus-
-sions relatives à la délimitation de la frontière, Hayange à
+fallait s'en préoccuper. On a déjà, dans les discussions relatives à la délimitation de la frontière, Hayange à
 et Cirey faire valoir des considérations économiques en;
 Cf. G. Bergmann, Rapport, p. 10-11. Voir aux Annexes.
 
@@ -3256,7 +3141,7 @@ les craintes ou les chances pour l'avenir, souvent, dans
 la discussion intérieure, un argument s'élevait, prenant
 aussitôt voix prépondérante: ne pas voir ses fils
 devenir soldats allemands. « Il avait des fils, il est
-parti »: expression simple, syllogisme elliptique, qui
+parti expression simple, syllogisme elliptique, qui
 fut courant à cette époque, et qui, quarante ans après,
 est encore à lui seul une explication suflisante,
 lorsqu'on parle, entre gens de là-bas, des départs au
@@ -3296,8 +3181,7 @@ date fatale, l'exode se précipita, enthousiaste et navré.
 (2) Cf. Villefort, Recueil des trailés, t. III,
 Boukalfa, Camp-du-Maréchal. Une: loi votée par l'Assemblée
 Nationale, le 15 septembre 1871, sur la proposition de Keller, avait
-; promis 100.000 hectares de terres aux Alsaciens-Lorrains qui vien-
-draient se fixer en Algérie comme colons. Dès la fin de 1872, il à
+; promis 100.000 hectares de terres aux Alsaciens-Lorrains qui viendraient se fixer en Algérie comme colons. Dès la fin de 1872, il à
 en était arrivé 2.500.
 
 Le 1° octobre 1872, près de 60.000 personnes étaient
@@ -3345,8 +3229,7 @@ Prusse, » disait le roi Frédéric-Guillaume I". (Zd., ibid., p. 3)
 la carte au liséré vert
 gouvernement général d'Alsace, firent-elles du gouverneur, comte de Bismarck-Bohlen, le chef de toute
 ladministration, en lui adjoiïgnant un commissaire civil
-muni de tous les pouvoirs que la loi française confé-
-rait aux ministres. Le gouverneur se considérait ainsi
+muni de tous les pouvoirs que la loi française conférait aux ministres. Le gouverneur se considérait ainsi
 comme le nouveau souverain, au nom de l'Allemagne,
 d'un nouvel État allemand:.
 Habitants de l'Alsace! disait-il dans sa proclamation
@@ -3368,9 +3251,7 @@ qu'un administrateur suppléant ou intérimaire, et doit
 : se contenter d'assurer le fonctionnement des services
 au nom du maître ancien, sans réglementer à sa guise
 comme s'il était définitivement le nouveau. (2) Division;
-— qui subsista — du gouvernement général en trois dé-
-partements (Bas-Rhin, Haut-Rhin, (3) Lorraine) et vingt-
-deux arrondissements, nomination, à leur tête, de
+— qui subsista — du gouvernement général en trois départements (Bas-Rhin, Haut-Rhin, (3) Lorraine) et vingtdeux arrondissements, nomination, à leur tête, de
 (3) Depuis: Basse-Alsace et Haute-Alsace.
 
 préfets et de sous-prélets allemands, réglementation
@@ -3411,7 +3292,7 @@ de mon gouvernement dans la limite des nécessités imposées par les opération
 Mais certaines ordonnances ultérieures étaient, on
 vient de le voir, de nature à inquiéter: qu'allaient
 devenir, en vérité, « les institutions et les usages du
-pays »? Inquiétude d'autant plus naturelle que la
+pays Inquiétude d'autant plus naturelle que la
 France, pour marquer qu'elle n'obéissait qu'à la force
 en cédant l'Alsace et la Lorraine, n'avait rien spécifié
 quant à leur avenir allemand. L'Allemagne était done
@@ -3485,8 +3366,7 @@ d'Empire comme on l'appellera: Reichsland, — un
 souvenir de sa fondation et comme une garantie de sa
 durée. Mais, pour être impériale, et non prussienne
 . ou badoïse, l'Alsace-Lorraine n'en était guère plus
-maîtresse de sa vie politique. Sauf les lois qui engage-
-raient les finances de l'Empire et pour lesquelles le
+maîtresse de sa vie politique. Sauf les lois qui engageraient les finances de l'Empire et pour lesquelles le
 Parlement de l'Empire serait consulté, les lois particulières à l'Alsace-Lorraine seront élaborées par le Conseil
 fédéral, qui est une assemblée de délégués des souverains allemands, et où l'Alsace-Lorraine ne déléguera
 personne; l'empereur aura d'ailleurs un droit de veto
@@ -3520,8 +3400,7 @@ fixée six mois après (loi du 30 décembre 1871), montra
 mieux encore dans quelle dépendance étroite le
 Reichsland serait de l'Empire. Le gouverneur général
 fait place à un président-supérieur, résidant à Strasbourg, mais qui dépend directement de Berlin: du
-chancelier de l'Empire et d'une division de la chancel-
-lerie spécialement chargée des affaires d'AlsaceLorraine. Ici, il allait rester quelque chose de la:
+chancelier de l'Empire et d'une division de la chancellerie spécialement chargée des affaires d'AlsaceLorraine. Ici, il allait rester quelque chose de la:
 France, et même trop: son droit administratif, dans
 l'état où l'Empire français l'avait laissé, et entre des
 mains qui l'appliqueraient sans indulgence: ainsi,
@@ -3533,8 +3412,7 @@ en vertu d'anciennes lois françaises, et en l'exceptant
 même parfois (pour la presse, par exemple) du bénéfice
 
 : d'une législation plus libérale applicable à tout l'Empire.
-Loi du 6 juin 1868 (2) soumettant les réunions (politi-
-ques ou religieuses) à l'approbation du sous-préfet, (3)
+Loi du 6 juin 1868 (2) soumettant les réunions (politiques ou religieuses) à l'approbation du sous-préfet, (3)
 
 avec droit d'entrée dans la salle pour un délégué de
 l'administration, qui peut, dans certains cas, dissoudre
@@ -3542,10 +3420,8 @@ l'administration, qui peut, dans certains cas, dissoudre
 (1) Das Staatsrecht des deutschen Reiches, par le Philippzorn,
 cité par A. Laugel, Acen. intell.,
 
-(3) On a plus haut que l'organisation en préfectures et sous-
-préfectures (départements et arrondissements) avait été maintenue
-par le gouverneur général; elle le fut aussi par la loi du 30 dé-
-cembre, et subsiste toujours.
+(3) On a plus haut que l'organisation en préfectures et souspréfectures (départements et arrondissements) avait été maintenue
+par le gouverneur général; elle le fut aussi par la loi du 30 décembre, et subsiste toujours.
 
 la réunion; loi du 10 avril 1834 et décret du 15 mars
 1852 laissant les associations libres jusqu'à vingt mem-
@@ -3556,8 +3432,7 @@ la réunion; loi du 10 avril 1834 et décret du 15 mars
 françaises restèrent en vigueur; et c'est autour de notre
 4 loi sur l'état de siège — une loi « datant de l'époque
 4 orageuse de 1849 comme dit un jour l'abbé Winterer
-— que se forma le fameux Paragraphe de la Dicta-
-ture.-(1) En cas de danger pour la sûreté publique,
+— que se forma le fameux Paragraphe de la Dictature.-(1) En cas de danger pour la sûreté publique,
 le président supérieur est autorisé à prendre toutes les
 
 - mesures qu'il jugera nécessaires pour prévenir ce dan-
@@ -3565,8 +3440,7 @@ le président supérieur est autorisé à prendre toutes les
 à ritoire exposé, les pouvoirs que la loi du 9 août 1849
 E. confère aux autorités militaires dans le cas d'état de
 3% siège. (2) Il avisera immédiatement le Chancelier des
-à dispositions prises. Il a le droit de requérir, pour l'exé-
-cution de ces mesures, toutes les troupes qui se trouvent
+à dispositions prises. Il a le droit de requérir, pour l'exécution de ces mesures, toutes les troupes qui se trouvent
 S. sur le territoire d'Alsace-Lorraine. » Ainsi, par ces
 dispositions qui aggravaient la loi française tout en
 4 s'appuyant sur elle, le président supérieur avait le droit
@@ -3635,8 +3509,7 @@ de Teterchen, près de Boulay, dissoutes les maisons
 organisée — un directeur général à Strasbourg, des
 à directeurs à Colmar et à Metz, des directeurs cantok
 4 jeunes gens que les rapports officiels comptaient pour les trois
-4 départements de l'Alsace-Lorraine, 27.937 seulement furent pré-
-sents dans leurs foyers au moment de la formation des rôles.
+4 départements de l'Alsace-Lorraine, 27.937 seulement furent présents dans leurs foyers au moment de la formation des rôles.
 Sur ces 27.937, les conseils de révision n'en trouvèrent d'ailleurs
 à que 10.011, en quatre ans, qui fussent immédiatement propres au
 É service: beaucoup d'infirmes et de malingres étaient restés,
@@ -3650,21 +3523,16 @@ force (on se rappelle, parmi ce petit groupe, les noms du
 la carte au liséré vert.
 naux, tous avec des attributions très étendues — que
 chaque jour des incidents nouveaux irritent les esprits.
-Pour avoir fondé une association que l'autorité soup-
-çonnaïit de détourner les enfants de l'école et de vou-
-ral de l'évêché de Strasbourg, avait choisir dans
-les vingt-quatre heures entre l'expulsion et la forte-
-resse (mars 1873). Lichtenberger avait reçu l'ordre de
+Pour avoir fondé une association que l'autorité soupçonnaïit de détourner les enfants de l'école et de voural de l'évêché de Strasbourg, avait choisir dans
+les vingt-quatre heures entre l'expulsion et la forteresse (mars 1873). Lichtenberger avait reçu l'ordre de
 quitter le territoire, à la suite d'une conférence où il À
 traitait « de l'influence des femmes sur la littérature -
-française »: sujet qui n'est point subversif.…. il est vrai
+française sujet qui n'est point subversif.…. il est vrai
 qu'elle se terminait par le rappel d'une: invocation
 célèbre de Sainte-Beuve aux « esprits charmants et
 légers, qui furent de tout temps la grâce et l'honneur
 de la terre de France et qui doivent, au moment
-où « la science brutale, la politique violente nous en-
-vahissent nous sauver « encore une fois de la bar-
-barie ». (1) Dans le même temps, Ernest Lauth, le;
+où « la science brutale, la politique violente nous envahissent nous sauver « encore une fois de la barbarie ». (1) Dans le même temps, Ernest Lauth, le;
 successeur de Kuss à la mairie de Strasbourg, n'ayant
 pas caché ses sentiments au préfet: « Vous espérez
 donc le retour des Français? — Certainement! » (2) le
@@ -3673,9 +3541,8 @@ le directeur de la police comme commissaire extraordi-
 F. Lichtenberger, De l'influence des femmes sur la littérature
 française (Paris, Sandoz et Fischbacher, in-32, 1873). — On dit
 même que les allusions de l'orateur firent moins contre lui qu'un
-contre-sens de la traduction allemande: opposant la femme allemande à la femme anglaise, il avait dit que, « comme les mys-
-tiques, elle aspire à se dépouiller d'elle-même que « son individualité a quelque chose de la cire, qui est bien capable de …
-recevoir, mais non de donner une empreinte »: or, cire était
+contre-sens de la traduction allemande: opposant la femme allemande à la femme anglaise, il avait dit que, « comme les mystiques, elle aspire à se dépouiller d'elle-même que « son individualité a quelque chose de la cire, qui est bien capable de …
+recevoir, mais non de donner une empreinte or, cire était
 devenu pâte molle pour le rédacteur, et pâté gras — eine felte
 Pastete — pour le traducteur de l'officieux Courrier du Bas-Rhin.
 
@@ -3697,8 +3564,7 @@ l'esprit des « Dix villes libres de la République
 Ê de Strasbourg et de la République de Mulhouse, les
 traditions particulières relativement respectées par la
 monarchie française, la Révolution entraînant l'Alsace
-… parce qu'elle allait dans le sens (1) du démocratisme alsa-
-cien, (2) tous ces souvenirs, toutes ces tendances avaient
+… parce qu'elle allait dans le sens (1) du démocratisme alsacien, (2) tous ces souvenirs, toutes ces tendances avaient
 ; traversé le dix-neuvième siècle de libération en libéra-
 (1) « La France devint ce que nous avions été; ce que nous
 3 voulions être, nous le sommes redevenus par elle et avec elle. »
@@ -3788,9 +3654,7 @@ tion, dans la rue de l'Arsenal, le quartier israélite de Metz, s'était
 4 écriée, aux applaudissements de ses voisins et coreligionnaires:
 « Je ferai voter mon homme pour notre évèquel »
 
-(1) Teutsch (circonscription de Saverne), Lauth (Strasbourg-
-
-ville), de Schauenburg (Strasbourg-campagne), Mgr. Raess, évêque
+(1) Teutsch (circonscription de Saverne), Lauth (Strasbourgville), de Schauenburg (Strasbourg-campagne), Mgr. Raess, évêque
 
 de Strasbourg (Schlestadt), abbé Philippi (Molsheim), Hartmann
 
@@ -3822,8 +3686,7 @@ abandon. Elle n'a pas été libre; elle s'est courbée sous la
 violence; et nos codes nous enseignent que la violence est:
 uñe cause de nullité pour les conventions qui en sont
 
-Pour donner à la cession de l'Alsace-Lorraine une appa-
-rence de légalité, le moins que vous deviez faire, c'était de
+Pour donner à la cession de l'Alsace-Lorraine une apparence de légalité, le moins que vous deviez faire, c'était de
 soumettre cette cession à la ratification du peuple cédé:
 
 Un célèbre jurisconsulte, le professeur Bluntschli, de
@@ -3837,7 +3700,7 @@ sans droit et sans volonté, dont on transmet la propriété. »
 
 … Vous le voyez, Messieurs, nous ne trouvons dans les
 enseignements de la morale et de la justice rien, abso- À
-iument rien, qui puisse faire pardonner notre annexion à;
+iument rien, qui puisse faire pardonner notre annexion
 
 votre empire; et notre raison se trouve en cela d'accord
 avec notre cœur. Notre cœur, en effet, se sent irrésistiblement attiré vers notre patrie française. Deux siècles de
@@ -3919,11 +3782,9 @@ momeni fit-elle comprendre au gouvernement qu'il valait
 encore mieux donner aux Alsaciens-Lorrains un mencement de satisfaction, que de les jeter complète-
 à ment vers les protestataires parce que les autonomistes
 n'auraient rien obtenu. — C'est ainsi que fut votée la
-— « Constitution de 1879 »: loi du 4 juillet, qui remplace
-le président-supérieur, dont la fonction consistait parti-
-culièrement à transmettre toutes les affaires à la
-chancellerie de Berlin, par un sfatthalter, ou lieutenant-
-gouverneur, qui sera à la fois un délégué de l'empereur
+— « Constitution de 1879 loi du 4 juillet, qui remplace
+le président-supérieur, dont la fonction consistait particulièrement à transmettre toutes les affaires à la
+chancellerie de Berlin, par un sfatthalter, ou lieutenantgouverneur, qui sera à la fois un délégué de l'empereur
 avec les pouvoirs du chef de l'État et une sorte de
 4 chancelier spécial pour les affaires d'Alsace-Lorraiïne,
 se faisant contresigner par son ministère dans le
@@ -3959,8 +3820,7 @@ fera jamaïs de la Délégation une véritable représentation du pays. (2) — 
 (1) Cf. F. Eccard, Const. de l'Als.-Lorr., p. 21: En fait, toutes
 les lois d'Alsace-Lorraine ont été votées, depuis 1877, sauf de rares
 exceptions, par le Landesausschuss, mais le Reichstag reste un
-épouvantail que le gouvernement peut agiter devant les repré-
-sentants du pays, quand ils ne veulent pas obéir à ses volontés. »
+épouvantail que le gouvernement peut agiter devant les représentants du pays, quand ils ne veulent pas obéir à ses volontés. »
 
 (2) Depuis 1882, les séances de la Délégation sont publiques et
 la langue allemande obligatoire dans les débats.
@@ -3982,8 +3842,7 @@ de sympathies personnelles; s'il eut le grand mérite de
 comprendre les résistances de la population et de ne
 pas se froisser même quand l'évêque de Metz refusa
 de recevoir « ordre de la Couronne, seconde classe,
-avec étoile qu'il lui transmettait de la part de l'empe-
-reur, (2) il avait, d'auire part, un devoir à remplir envers son souverain, — un devoir qui n'était pas seule-
+avec étoile qu'il lui transmettait de la part de l'empereur, (2) il avait, d'auire part, un devoir à remplir envers son souverain, — un devoir qui n'était pas seule-
 ? ment de pacification superficielle, mais aussi d'étroite
 4 surveillance et d'action germanisatrice; si bien qu'entre
 les Allemands qui lui reprochaient sa modération et les
@@ -4017,8 +3876,7 @@ Je vous le demande, Messieurs, peut-on supprimer des journaux
 
 5708 « n. de haute trahison, qu'au bout de quatorze mois la Cour
 “suprême de Leipzig devait déclarer injustifiée.…. Et les
-…._ électeurs continuaient d'envoyer au Reichstag les can-
-didats de la protestation.;
+…._ électeurs continuaient d'envoyer au Reichstag les candidats de la protestation.;
 Le Manteuffel mourut en 1885. (1) Le modérateur disparu,
 . il ne restait plus personne pour s'opposer au système de
 la coercition. Depuis longtemps, Bismarck avait perdu
@@ -4081,8 +3939,7 @@ d'Antoine, de cette nouvelle manifestation de l'arbitraire gouvernemental à l'�
 
 (4) Le procureur impérial, lui appliquant une loi française de
 l'Empire, l'inculpa du délit de fausse nouvelle, sous prétexte qu'il
-avait dit dans son manifeste électoral: On a supprimé le fran-
-çais dans les écoles, et cependant la connaissance des deux
+avait dit dans son manifeste électoral: On a supprimé le français dans les écoles, et cependant la connaissance des deux
 langues est nécessaire dans un pays-frontière — tandis que le
 français ne devait être considéré comme « supprimé » que dans
 les écoles primaires.
@@ -4097,16 +3954,14 @@ l'un tué, l'autre blessé, par des coups de feu que tirait
 sur eux, du territoire annexé, un soldat chargé d'une
 surveillance de braconnage qu'en France on aurait
 confiée à des gendarmes ou à des douaniers — gens
-plus rassis; (2) — puis l'institution des maires de car-
-et les dissolutions de sociétés, l'Association des Sociétés
+plus rassis; (2) — puis l'institution des maires de caret les dissolutions de sociétés, l'Association des Sociétés
 4 chorales d'Alsace, la Fanfare Sellenick, le Cercle Mul-
 À housien, y comprises ses sections de botanique et de
 4 zoologie; (3) quatre Alsaciens condamnés (sur huit
 accusés) par la Cour Suprême de Leipzig, comme affliés à la Ligue des Patriotes (juin 1887); l'arrestation
 du vaillant Ch. Appell, teinturier à Strasbourg, ancien
 ; mobile du siège, médaillé militaire, accusé de haute
-trahison au préjudice de l'Empire (janvier 1888); la coïn-
-cidence de ces événements avec la popularité du général
+trahison au préjudice de l'Empire (janvier 1888); la coïncidence de ces événements avec la popularité du général
 1 (1) Suppression de « admission temporaire » des tissus étrangers
 4 dans l'usine de teinture et d'impression que dirigeait M. Lalance,
 mesure rapportée aussitôt après qu'il eut donné sa démission
@@ -4121,8 +3976,7 @@ ports, qui constituait encore une violation de l'article
 du traité de Francfort: l'obligation pour toute personne
 qui voulait entrer en Alsace-Lorraine par la frontière:;
 de France, mais pour tout Français qui voulait y entrer
-par quelque frontière que ce fût, de présenter un pas-
-seport visé par l'ambassade d'Allemagne à Paris, visa.
+par quelque frontière que ce fût, de présenter un passeport visé par l'ambassade d'Allemagne à Paris, visa.
 dont la validité était d'un an pour les étrangers, de Ke.
 huit semaines pour les Français, — qui dispensait les
 étrangers, mais non les Français, d'une déclaration de:
@@ -4135,8 +3989,7 @@ et, malgré tout, en 1890, des élections encore protestataires: (2) ce furent, 
 tous les jours, l'oppression et la fièvre, la perpétuelle
 attente, d'angoisse ou d'espoir…
 Cette crise fit aux Alsaciens-Lorrains une conscience
-nouvelle. Vingt ans avaient passé. Ni l'ardente protesta-
-tion de 1887, ni l'affaire Schnaebelé, ni la question des
+nouvelle. Vingt ans avaient passé. Ni l'ardente protestation de 1887, ni l'affaire Schnaebelé, ni la question des
 passeports n'y avaient rien fait. L'aurore ne s'était pas
 levée, que tant d'hommes avaient vue en rêve. Il fallait,
 de plus en plus, vivre dans la réalité du jour, compter de
@@ -4157,8 +4010,7 @@ cimetières comme dit un jour, au Reïichstag, en parS lant de cette époque, le
 : s'étaient fait élire en 1890, ne devaient leur succès qu'à
 À la lassitude affolée de leurs électeurs: voter pour des
 3 candidats « de conciliation comme Zorn de Bulach,
-4 1893, pour des candidats ofliciels, directeurs d'arron-
-dissement, dans leurs propres arrondissements, comme
+4 1893, pour des candidats ofliciels, directeurs d'arrondissement, dans leurs propres arrondissements, comme
 Poehlmann à Schlestadt, ou Alexandre de Hohenlohe à.
 
 Haguenau, cela n'avait guère d'autre sens qu'un eri
@@ -4184,17 +4036,14 @@ Pétri parce que, « si Pétri est élu, Appell sera grâcié ». Pétri ne
 
 4 de 1893 donnèrent, sur 237.000 suffrages exprimés, 73.000 voix aux
 
-candidats du gouvernement, 165.000 aux opposants (Alsaciens-
-
-la carte au liséré vert:
+candidats du gouvernement, 165.000 aux opposants (Alsaciensla carte au liséré vert:
 revenir les parents, les amis, les clients de France, rentrer un peu d'air libre... Ils comprenaient maintenant
 comment l'Allemagne les tenait, combien elle pouvait
 contre eux, contre leurs intérêts, contre leurs sentiments! Pourtant ils étaient un peuple, et qui avait des
 droits. Plus séparés de la France qu'ils n'auraient cru,
 peut-être, mais non pas plus rapprochés de l'Allemagne,
 ce n'était pas une raison pour mourir dans le fossé,
-entre les deux nations, ni même pour se laisser con-
-traindre et absorber par la plus forte. Et s'il fallait
+entre les deux nations, ni même pour se laisser contraindre et absorber par la plus forte. Et s'il fallait
 en venir, non point à l'attitude, certes, mais à l'idée des
 autonomistes, c'était, l'honneur sauf, après vingt ans
 passés, quelques espoirs déçus, et une rude épreuve subie.
@@ -4236,30 +4085,24 @@ par sa récente comme par sa vieille histoire, était
 plus préparée à son rôle, s'il s'agissait d'animer une
 On ne saurait mettre à l'origine de ce mouvement,
 qui commença dans les années 1892-1897, ni une date
-exacte ni un nom. La nécessité s'en imposait plus pré-
-cisément à quelques esprits; d'autres suivaient, sentant
+exacte ni un nom. La nécessité s'en imposait plus précisément à quelques esprits; d'autres suivaient, sentant
 ï qu'allaient prendre corps des aspirations jusque-là
 confuses en eux. La confiance était permise: ce n'étaient
 pas rêveries vagues et constructions sur le sable: les
 ; Alsaciens-Lorrains étaient encore chez eux en Alsace-
 Lorraine. Certes, une armée de fonctionnaires était
 venue, d'outre-Rhin, prendre la direction des affaires du
-pays, occuper les places qu'avait refusées, au lende-
-main de la guerre, la fierté des Alsaciens; mais tous,:
+pays, occuper les places qu'avait refusées, au lendemain de la guerre, la fierté des Alsaciens; mais tous,:
 
 la carte au -hisené perte FES
 merveille pour faire de l'Alsace-Lorraine « un champ
-d'expériences où le pangermanisme s'entraîne à gou-
-verner (1) laissaient, par même, les indigènes indif-
-férents ou hostiles. Certes, l'Alsace-Lorraine s'était
+d'expériences où le pangermanisme s'entraîne à gouverner (1) laissaient, par même, les indigènes indifférents ou hostiles. Certes, l'Alsace-Lorraine s'était
 pauvrie, de 1871 à 1895, par l'émigration, d'environ 200.000 à
-personnes, mais ce chiffre, considérable, ne représen-
-tait pourtant qu'un huitième environ de la population de … à
+personnes, mais ce chiffre, considérable, ne représentait pourtant qu'un huitième environ de la population de … à
 1871; (2) et si les partants avaient été remplacés, même:
 en surnombre, par des étrangers au pays, l'élément à
 indigène n'en constituait pas moins les six à sept hui- à
-tièmes de la population, (3) et sans que l'élément étran-
-ger l'eût suffisamment pénétré pour en modifier l'esprit.
+tièmes de la population, (3) et sans que l'élément étranger l'eût suffisamment pénétré pour en modifier l'esprit.
 L'action s'appuierait donc sur une base solide. — Et les À
 objets ne manqueraient point à cette action. Même en
 dehors des périodes de crise et des incidents qui excitent à
@@ -4317,7 +4160,7 @@ de chose déjà ancienne, que de se rajeunir à l'allemande confor-
 
 la carte au liséré vert
 lions à affecter aux « chemins de fer d'Alsace-Lorraïine
-et de Guillaume-Luxembourg »? (1) Etait-ce bien pour
+et de Guillaume-Luxembourg (1) Etait-ce bien pour
 eux que le Reichstag avait voulu participer aux frais:
 de construction de cette somptueuse Université de Strasbourg qui devait être, dans l'esprit de ses fondateurs,
 une Université allemande de premier rang, un foyer
@@ -4340,7 +4183,7 @@ l'Université de Strasbourg reçoit, chaque année depuis 1876, une
 subvention de {00.000 marks sur le budget de l'Empire. (Cf. ce que
 disait le professeur Du Bois-Reymond, le 5 août 1870: « L'Université de Berlin, casernée (einquartiert) en face du palais du roi, est
 
-la garde du corps intellectuelle de la maison de Hohenzollern »:
+la garde du corps intellectuelle de la maison de Hohenzollern
 cité par E. Lavisse, Fondat. Univ. de Berlin)
 
 (3) A l'époque où nous nous plaçcons dans ce chapitre: 67.000 en
@@ -4397,8 +4240,7 @@ candidat du gouvernement... part Il est vrai que je
 ne vote jamais pour lui, mais cela, personne ne le sait...
 Pourtant, mes adversaires du Conseil auraient-ils dit du
 mal de moi au préfet? Saurait-on que j'ai un petit-cousin à
-officier français?.. que j'ai attrapé mes rhumatismes pen-
-dant la guerre, dans la garde mobile, à Strasbourg?..
+officier français?.. que j'ai attrapé mes rhumatismes pendant la guerre, dans la garde mobile, à Strasbourg?..
 La Revue Alsacienne, du Pierre Bucher, au-dessus
 du mouvement populaire entretenu par le théâtre, atteint
 la bourgeoisie directrice, encourage l'étude de l'histoire, #4
@@ -4407,16 +4249,14 @@ les raisons profondes de l'attachement de l'Alsacien à
 son sol et de sa fidélité à ses traditions, rappelle par
 tous les moyens, articles de la Revue, Musée alsacien,
 conférences, fêtes, qu'en deçà de ce passé germanique,
-auquel les Allemands se plaisent à remonter sans se sou-
-cier de l'intervalle, l'Alsace a un passé plusrécent, — celui
+auquel les Allemands se plaisent à remonter sans se soucier de l'intervalle, l'Alsace a un passé plusrécent, — celui
 qui l'a faite ce qu'elle fut au dix-neuvième siècle et qui
 vibre encore dans le sang alsacien. — Et les satiriques: à
 Zislin, de Mulhouse, Hansi, de Colmar, qui, sans crainte Le
 de l'amende et de la prison — lesquelles ne sont pas de
 vains mots dans ce pays — sauront faire éclater le large
 rire de leurs concitoyens aux dépens du « non-moi »
-la scène se passe, au sommet des Vosges, à l'Hôtel fran-
-çais de la Schlucht, tables d'hôte à cheval sur la fron-;
+la scène se passe, au sommet des Vosges, à l'Hôtel français de la Schlucht, tables d'hôte à cheval sur la fron-;
 tière: couple d'Allemands en tenue de montagne, lui,
 rougeaud, lunettes, chapeau tyrolien, elle, longue, revêche, et... « fagotée Dieu sait comme! Légende:
 ; « Comment donc le maître d'hôtel a-t-il savoir que
@@ -4465,7 +4305,7 @@ bien, soit dit en passant, de quel cœur part toujours
 
 de nous et de nos disputes que nousreconnaissons,aux
 
-3 Vogesenbilder, par Hansi, deux albums in-4°, Ch. Bahy,
+Vogesenbilder, par Hansi, deux albums in-4°, Ch. Bahy,
 
 la carte au liséré pert
 veilles d'élections, sur les murs de nos anciennes à
@@ -4517,8 +4357,7 @@ tout aussi vrai que, pour la plus grande satisfaction de lPadversaire commun, no
 meurtris, les uns et les autres, à notre point de départ et nous
 avons été tous surpris de constater qu'une entente, ne comportant
 le sacrifice d'aucun principe chez aucun des alliés, nous serait également ‘profitable. Voila comment M. Blumenthal, qui est resté
-démocrate et nous autres, qui n'avons rien sacrifié de notre « clé-
-ricalisme avons convenu de ne plus nous entre-déchirer, mais de
+démocrate et nous autres, qui n'avons rien sacrifié de notre « cléricalisme avons convenu de ne plus nous entre-déchirer, mais de
 
 tâcher de trouver un terrain d'action commun pour les questions
 qui nous unissent, sauf à nous séparer de nouveau quand le
@@ -4582,8 +4421,7 @@ des droits de douane et impôts indirects revenant à
 l'Empire, pour la perception desquels l'Alsace-Lorraine
 dépense 4 millions de marks et ne reçoit, en retour,
 : (1) Cf. FE. Eccard, Const. de l'Als.-Lorr., p. 24: le statthalter est
-seulement autorisé à nommer des commissaires qui peuvent assis-
-ter, avec simple voix consultative, aux séances du Conseil fédéral
+seulement autorisé à nommer des commissaires qui peuvent assister, avec simple voix consultative, aux séances du Conseil fédéral
 consacrées aux affaires de la Terre d'Embpire.
 À (2) « Les sommes du Dispositionsfond dont le statthalter a l'admiR nistration, doivent servir au bien général du pays. Ce serait
 à mésuser (missbräuchliche Verwendung) de ces fonds que d'employer
@@ -4596,8 +4434,7 @@ la carte au liséré vert:
 qu'une indemnité de 2 millions et demi; tandis que, -
 d'autre part, l'Empire, non seulement se refuse à payer
 l'impôt industriel pour les chemins de fer qu'il exploite
-dans les deux provinces, mais encore exige de la Délé-
-gation une subvention de 40.000 marks pour chaque
+dans les deux provinces, mais encore exige de la Délégation une subvention de 40.000 marks pour chaque
 kilomètre de chemin de fer même stratégique, au lieu
 que, dans les États confédérés, c'est l'Empire qui subventionne les lignes stratégiques de mauvais rendement
 commercial. (1) Il est vrai que la dictature n'est plus, mais
@@ -4640,8 +4477,7 @@ celle de l'enseignement du français.
 La première a prouvé à l'Alsace-Lorraine que, dans
 les questions où il s'agit d'un État de l'Empire en
 même temps que d'elle, les intérêts de la Terre d'Empire
-pèsent d'un moindre poids que ceux de l'État confé-
-déré. (1) — La France, au milieu du dix-neuvième siècle,
+pèsent d'un moindre poids que ceux de l'État confédéré. (1) — La France, au milieu du dix-neuvième siècle,
 sans se laisser arrêter par les frais (plus de 100.000.000
 de francs) ni par les difficultés techniques, avait doté ses
 provinces de l'Est d'un vaste système de canaux, admirable pour l'époque. Aussi, l'écoulement des produits
@@ -4650,8 +4486,7 @@ H. Haug, Navig. intér.; Paul Léon, Port de Str.; Ph. Gerber, Condit.
 
 la carte au liséré vert
 de l'industrie alsacienne se faisant de plus en plus vers
-le centre de la France, l'attention de Strasbourg s'était-
-elle peu à peu détournée du Rhin. Mais, séparée de la
+le centre de la France, l'attention de Strasbourg s'étaitelle peu à peu détournée du Rhin. Mais, séparée de la
 France par l'annexion à l'Allemagne, la ville avait
 songer à se créer des débouchés nouveaux, et sa pensée
 s'était portée naturellement vers son fleuve, qui depuis
@@ -4692,8 +4527,7 @@ grand-duché. Huit années se passèrent en échanges de
 vues et de projets. Enfin, une convention fut signée
 : entre l'Alsace-Lorraine et le grand-duché de Bade, le
 28 novembre 1901: Bade prenait à sa charge 40 0/0 des
-frais qu'occasionnerait la régularisation du Rhin supé-
-rieur. Mais la Chambre badoïse, remaniant le projet du
+frais qu'occasionnerait la régularisation du Rhin supérieur. Mais la Chambre badoïse, remaniant le projet du
 3 gouvernement, ne consentit à inscrire au budget les
 dépenses nécessaires à cette participation qu'en la ré-
 3 duisant à 30 o/o et à la condition que les chemins de
@@ -4701,16 +4535,14 @@ La Chambre de Commerce de Strasbourg déclara
 à alors, énergiquement, que les conditions badoises
 a étaient inacceptables, qu'elle ne s'était intéressée au
 4 projet de régularisation que parce qu'il avait paru
-rapidement réalisable, qu'elle s'en désintéressait main-
-tenant, et qu'il fallait en revenir au canal latéral (1903). À
+rapidement réalisable, qu'elle s'en désintéressait maintenant, et qu'il fallait en revenir au canal latéral (1903). À
 
 la carte au liséré vert
 Une Société fut créée, sous les auspices des Chambres à
 de Commerce de Strasbourg et de Metz, « pour l'amé- à
 lioration des voies navigables en Alsace-Lorraine ». On
 calcula qu'un canal qui ne serait qu'alsacien, c'est-à-dire
-entièrement creusé sur le territoire alsacien et aboutis-
-sant à un port alsacien (Lauterbourg, près de l'ancienne
+entièrement creusé sur le territoire alsacien et aboutissant à un port alsacien (Lauterbourg, près de l'ancienne
 frontière française entre l'Alsace et le Palatinat),
 améliorerait déjà le trafic, le Rhin étant navigable
 256 jours par an jusqu'à Lauterbourg, 190 seulement
@@ -4777,8 +4609,7 @@ de cette époque apprit à la fois les deux langues.
 Toute autre fut la manière de l'Allemagne. Si elle avait à
 craïintivement dosé l'enseignement du français dans les
 établissements d'instruction primaire supérieure ou;
-secondaire, des écoles primaires elle l'avait complète-
-ment banni; et les conséquences de cet ostracisme
+secondaire, des écoles primaires elle l'avait complètement banni; et les conséquences de cet ostracisme
 menaçaient de devenir de plus en plus graves pour
 l'avenir depuis que l'obligation du français avait disparu
 du programme des écoles normales. Plus hardis à
@@ -4823,13 +4654,10 @@ avec M. Kübler comme président et l'abbé Wetterlé
 —._ comme secrétaire, pour étudier les diverses motions
 présentées. Cette commission a conclu (6 juillet 1909) en
 ; demandant au gouvernement de favoriser par tous les
-; moyens l'enseignement nécessaire de la langue fran-
-
-nie la carte au liséré vert
+; moyens l'enseignement nécessaire de la langue frannie la carte au liséré vert
 çaise: eninstituant l'enseignementobligatoire dufrançais,
 à ‘avec un minimum de quatre heures par semaine, dansles
-classes supérieures des écoles primaires; en ne restreignant pas plus que dans les États confédérés l'ensei-
-gnement privé du français par des personnes nappar- …
+classes supérieures des écoles primaires; en ne restreignant pas plus que dans les États confédérés l'enseignement privé du français par des personnes nappar- …
 tenant pas au personnel scolaire; en autorisant les
 instituteurs des écoles primaires à enseigner le français,
 en dehors de leurs classes, sans restriction du nombre
@@ -4867,14 +4695,10 @@ a sienne le lui permettront.
 administratives et morales où a vécu l'Alsace-Lorraine
 depuis près de quarante ans, la démarcation subsiste
 entre les deux éléments de la population. Le régime
-allemand s'est-il sincèrement efforcé de la faire dispa-
-
-raître? Sévère jusqu'à la dureté et même jusqu'à la
+allemand s'est-il sincèrement efforcé de la faire disparaître? Sévère jusqu'à la dureté et même jusqu'à la
 
 violence, comme il l'a été longtemps, ou d'une méfiance
-continue, active, avec des accès d'humeur « dictato-
-
-riale comme il l'est toujours, on sait seulement qu'il:
+continue, active, avec des accès d'humeur « dictatoriale comme il l'est toujours, on sait seulement qu'il:
 
 n'y a guère réussi. Entre les immigrés et les indigènes,
 
@@ -4882,9 +4706,7 @@ fusion. (1) Ceux qui sont venus d'outre-Rhin pour
 
 « coloniser » la Terre d'Empire, ont été surtout attirés
 
-À par les grandes villes. Et là, entre indigènes et immi-
-
-grés, les mariages ne sont pas fréquents; les habitudes
+À par les grandes villes. Et là, entre indigènes et immigrés, les mariages ne sont pas fréquents; les habitudes
 
 ; diffèrent, les lieux de réunion ne sont pas les mêmes.
 
@@ -4900,9 +4722,7 @@ rattachent toujours à la France les « frères séparés »
 
 (1) Cf. A. Laugel, Aven. intell., p. 264: « Les difficultés de l'heure
 
-présente proviennent, en somme, de la lutte entre la pensée ger-
-
-manisatrice qui dirige les actes de l'administration, et la pensée
+présente proviennent, en somme, de la lutte entre la pensée germanisatrice qui dirige les actes de l'administration, et la pensée
 
 nationaliste qui dirige la résistance tacite, mais péremptoire de la
 
@@ -4934,9 +4754,7 @@ jour, lorsque nous aurons besoin d'une gouvernante pour "4
 nos autres enfants (2) aujourd'hui, souvent, les
 jeunes Allemands fonctionnaires, nés dans le pays,
 cessent d'entasser des pots de bière, le soir, autour des A
-tables de brasserie, sourient de la raideur des lieute-
-
-nants, et disent déjà: « Nous autres Alsaciens-Lorrains ».
+tables de brasserie, sourient de la raideur des lieutenants, et disent déjà: « Nous autres Alsaciens-Lorrains ».
 « Au lieu de germaniser, nous nous francisons
 confiait un juge à un oflicier. (1) La Grèce captive
 séduisit son farouche vainqueur: joli souvenir classique,
@@ -4982,8 +4800,7 @@ mann, de Kléber et de Lefèvre, de Dollfus, de Risler et
 de Kæchlin, de toutes ses gloires et de tous ses intérêts
 français. Il ne songeait pas à tout ce qui les sépare et:
 les séparera longtemps encore... Contrastes de tous
-les instants, qu'un mot, une attitude, un geste fait appa-
-raître.. Dans la banlieue de Strasbourg, près de
+les instants, qu'un mot, une attitude, un geste fait apparaître.. Dans la banlieue de Strasbourg, près de
 Neuhof, toute une famille d'excursionnistes allemands à
 descend du tram. Une rangée de casernes neuves s'al-.
 longe au bord de la route; aux portes, entre deux
@@ -5056,8 +4873,7 @@ Il est difficile, pour un Français, — surtout quand il
 comme on dit vulgairement, mais énergiquement,
 À des attaches avec ce pays, — d'en écrire sans rien laisser
 y paraître de son émotion entre les dates et les faits. Je
-m'yserai du moins efforcé. Aussi bien ne m'en défen-
-drai-je pas: au cours de ma tâche, souvent, des textes
+m'yserai du moins efforcé. Aussi bien ne m'en défendrai-je pas: au cours de ma tâche, souvent, des textes
 mêmes qui passaient sous mes yeux, plus d'un souvenir
 4 ancien, plus d'une impression récente s'est levée, qui
 É m'encourageait à persévérer. C'est qu'elles ne sont pas
@@ -5076,16 +4892,12 @@ perde le moins possible malgré les années. Dans les
 - n'est indifférent. Des champs de bataille, des tombes,
 
 LE des monuments commémoratifs, il y en a ailleurs, sur
-le territoire resté français; mais, entre Woœærth, Frœsch-
-
-willer et Reichshoffen, entre le Kronprinz Friedrich,
+le territoire resté français; mais, entre Woœærth, Frœschwiller et Reichshoffen, entre le Kronprinz Friedrich,
 colossal cavalier qui domine la vallée, et ce fantassin de
 
 3 bronze qui, au bord de la route de Woærth à Morsbronn,
 
-s'élance, farouche, pour donner « l'exemple aux généra-
-
-ne tions futures (1) la pensée ne peut pas être de tristesse
+s'élance, farouche, pour donner « l'exemple aux générane tions futures (1) la pensée ne peut pas être de tristesse
 
 paisible, de philosophie sereine et comme repentie:
 ES (1) Monument du Régiment d'Infanterie de Nassau 88: « Den
@@ -5111,9 +4923,7 @@ on se moque en regagnant son train, cela se voit ailleurs
 qu'à Avricourt ou à Novéant. Mais, cette frontière-ci,
 des milliers d'hommes l'ont franchie, par fidélité du cœur
 
-à la patrie vaincue, et beaucoup sont revenus, jusque-
-
-là, qui furent arrêtés là, à un quart d'heure de « chez:
+à la patrie vaincue, et beaucoup sont revenus, jusquelà, qui furent arrêtés là, à un quart d'heure de « chez:
 eux crispés, sanglotants, sans pouvoir passer. Un
 air de clairon, une marche militaire, ce n'est rien pour
 nous, pour nos ironies supérieures que le banal irrite.
@@ -5130,8 +4940,7 @@ s'en vont à la gare, clairons sonnanis, pour prendre le
 ; sions les plus douloureuses furent, d'abord, le grand silence qui
 
 succéda tout à coup aux trente et un jours d'obus, le 27 septembre,
-quand le drapeau blanc de la capitulation eut été hissé sur la cathé-
-drale, — puis, le lendemain, la gaieté légère des fifres qu'on distinguait dans la musique des régiments allemands qui faisaient
+quand le drapeau blanc de la capitulation eut été hissé sur la cathédrale, — puis, le lendemain, la gaieté légère des fifres qu'on distinguait dans la musique des régiments allemands qui faisaient
 leur entrée en ville. — Il y a quelques semaines, (N° du 22 août 1909)
 le Journal d'Alsace-Lorraine, publiant un « filet » à propos dun
 appel de souscription lancé par quelque société de germanisation,
@@ -5168,15 +4977,12 @@ venu, (1) — cela n'est pas sans malice. Une inscription
 will nimm rüss. » Cf. cette plaisanterie dont la censure exigea la
 suppression dans une pièce récente du Théâtre alsacien: « Le plus
 grand malheur pour nous, dit un personnage alsacien, c'est qu'un
-; Allemand vienne à mourir ici. — … Pourtant..., cela en fait tou-
-
-la carte'au liséré vert DE à
+; Allemand vienne à mourir ici. — … Pourtant..., cela en fait toula carte'au liséré vert DE à
 commémorative aux portes d'une ville, y a-til de « quoi s'émouvoir? Mais lorsque, sur des remparts de
 Vauban, (1) deux mots et deux dates saïllent du mur en
 — cela n'est pas sans arrogance. Qu'est-ce qu'un petit
 cercle de bourgeois dans un cheflieu de canton — deux
-brasseurs, trois gros fermiers, le médecin, le pharma-
-cien, le banquier, le notaire”? et que peut bien être, en?
+brasseurs, trois gros fermiers, le médecin, le pharmacien, le banquier, le notaire”? et que peut bien être, en?
 fin d'exercice, une délibération sur l'emploi de la
 cagnotte? Rien, certes, moins que rien: partie de À
 campagne au Hchwald ou à Sainte-Odile? ou diner fin
@@ -5196,8 +5002,7 @@ réjouissances, et qu'un passant, interrogé, vous répond
 jours un de moins? — Non, car toule sa famille vient d'Allemagne
 pour l'enterrement, et, comme elle se trouve bien en Alsace, elle
 ne veut plus s'en aller! »... — Et aussi ce mot qui était courant à
-Strasbourg, l'an dernier, lorsque l'annonce d'une prochaine tenta-
-tive du comte Zeppelin et de son dirigeable dans la direction de
+Strasbourg, l'an dernier, lorsque l'annonce d'une prochaine tentative du comte Zeppelin et de son dirigeable dans la direction de
 l'Alsace avait excité la curiosité publique: «.… C'est le seul Alle-:
 mand qu'on ait attendu... » Et ces plaisanteries circulent avec de;
 
@@ -5238,7 +5043,7 @@ Bas-Rhin, du Haut-Rhin, de la Moselle, de la Meurthe et
 Par MM. Léon Gambetta, Grosjean, Humbert, Küss,
 
 Edouard Teutsch, Dornès, Hartmann, Ostermann, La Flize,
-1 D'après le document ayant appartenu à M. Scheurer1 Kestner, sénateur, et portant les signatures recueillies par lui à
+D'après le document ayant appartenu à M. Scheurer1 Kestner, sénateur, et portant les signatures recueillies par lui à
 
 la carte au liséré vert
 Nous, soussignés, citoyens Français choisis et députés Le
@@ -5340,25 +5145,22 @@ Les pleins pouvoirs des deux Parties contractantes ayant
 la carte au liséré vert ME.
 été trouvés en bonne et due forme, il a été convenu ce qui
 suit, pour servir de base préliminaire à la paix définitive à
-La France renonce en faveur de l'Empire allemand à:
+La France renonce en faveur de l'Empire allemand
 tous ses droits et titres sur les territoires situés à l'est de;
 la frontière ci-après désignée.
 La ligne de démarcation commence à la frontière nord-:
 ouest du canton de Cattenom, vers le grand-duché de
 Luxembourg, suit vers le sud les frontières occidentales des be:
 cantons de Cattenom et de Thionville, passe par le canton
-de Briey, en longeant les frontières occidentales des com-
-munes de Montois-la-Montagne et de Roncourt, ainsi que
+de Briey, en longeant les frontières occidentales des communes de Montois-la-Montagne et de Roncourt, ainsi que
 ï les frontières orientales des communes de Sainte-Marie-aux- "4
 Chênes, Saint-Ail, Habonville, atteint la frontière du canton
 de Gorze, qu'elle traverse le long des frontières communales
-de Vionville, de Bouxières et d'Onville, suit la frontière sud-
-ouest respectivement sud de l'arrondissement de Metz, la
+de Vionville, de Bouxières et d'Onville, suit la frontière sudouest respectivement sud de l'arrondissement de Metz, la
 frontière occidentale de l'arrondissement de Château-Salins
 jusqu'à la commune de Pettoncourt, dont elle embrasse les
 frontières occidentale et méridionale, pour suivre la crête
-des montagnes entre la Seille et le Moncel jusqu'à la fron-
-tière de l'arrondissement de Sarrebourg au sud de Garde.
+des montagnes entre la Seille et le Moncel jusqu'à la frontière de l'arrondissement de Sarrebourg au sud de Garde.
 La démarcation coïncide ensuite avec la frontière de cet À
 arrondissement jusqu'à la commune de Tanconville, dont
 elle atteint la frontière au nord; de là, elle suit la crête des: à
@@ -5388,8 +5190,7 @@ les membres de la commission en référeront à leurs Gouvernements respectifs.
 La frontière, telle qu'elle vient d'être décrite, se trouve
 : marquée en vert sur deux exemplaires conformes de la carte
 du territoire formant le gouvernement général d'Alsace,
-publiée à Berlin, en septembre 1870, par la division géogra-
-phique et statistique de l'état-major général, et dont un
+publiée à Berlin, en septembre 1870, par la division géographique et statistique de l'état-major général, et dont un
 exemplaire sera joint à chacune des deux expéditions du
 Toutefois le tracé indiqué a subi les modifications sui-
 À vantes de l'accord des deux Parties contractantes: dans -
@@ -5416,13 +5217,9 @@ allemandes quitteront l'intérieur de la ville de Paris ainsi a
 que les forts situés sur la rive gauche de la Seine, et dans
 
 le plus bref délai possible, fixé par une entente entre les HTÈN
-autorités militaires des deux Pays, elles évacueront entiè-
+autorités militaires des deux Pays, elles évacueront entièrement les départements du Calvados, de l'Orne, de la
 
-rement les départements du Calvados, de l'Orne, de la
-
-Sarthe, d'Eure-et-Loir, du Loiret, de Loir-et-Cher, d'Indre-
-
-et-Loire, de l'Yonne, et, de plus, les départements de la LES
+Sarthe, d'Eure-et-Loir, du Loiret, de Loir-et-Cher, d'Indreet-Loire, de l'Yonne, et, de plus, les départements de la LES
 Seine-Inférieure, de l'Eure, de Seine-et-Oise, de Seine-et-
 
 Marne, de l'Aube et de la Côte-d'Or, jusqu'à la rive gauche
@@ -5433,7 +5230,7 @@ temps derrière la Loire, qu'elles ne pourront dépasser avant a.
 
 la signature du Traité de paix définitif.
 
-4 Sont exceptées de cette disposition la garnison de Paris,
+Sont exceptées de cette disposition la garnison de Paris,
 ;. dont le nombre ne pourra pas dépasser quarante mille - (539)
 hommes, et les garnisons indispensables à la sûreté des
 L'évacuation des départements situés entre la rive droite se
@@ -5445,15 +5242,11 @@ Traité de paix définitif et le payement du premier
 
 demi-milliard de la contribution stipulée par l'article 2,.1:28
 
-en commençant par les départements les plus rap-
-
-prochés de Paris, et se continuera au fur et à mesure
+en commençant par les départements les plus rapprochés de Paris, et se continuera au fur et à mesure
 
 que les versements de la contribution seront effectués.
 
-Après le premier versement d'un demi-milliard, cette éva-
-
-euation aura lieu dans Îles départements suivants: Somme,
+Après le premier versement d'un demi-milliard, cette évaeuation aura lieu dans Îles départements suivants: Somme,
 
 Oise et les parties des départements de la Seine-Inférieure,:
 
@@ -5463,9 +5256,7 @@ la Seine, ainsi que la partie du département de la Seine et
 
 les forts situés sur la rive droite. SES
 
-Après le payement de deux milliards, l'occupation alle-
-
-mande ne comprendra plus que les départements de la
+Après le payement de deux milliards, l'occupation allemande ne comprendra plus que les départements de la
 
 Marne, des Ardennes, de la Haute-Marne, de la Meuse, des
 Vosges, de la Meurthe, ainsi que la forteresse de Belfort
@@ -5489,8 +5280,7 @@ Les intérêts des habitants des territoires cédés par la
 “5 France, en tout ce qui concerne leur commerce et leur
 à droit civil, séront réglés aussi favorablement que possible, lorsque seront arrêtées les conditions de la paix défi-
 , nitive. Il sera fixé, à cet effet, un espace de temps pendant
-4 lequel ils jouiront de facilités particulières pour la cireula-
-tion de leurs produits. Le Gouvernement allemand «.:..:
+4 lequel ils jouiront de facilités particulières pour la cireulation de leurs produits. Le Gouvernement allemand «.:..:
 - portera aucun obstacle à la libre émigration des habitants
 des territoires cédés, et ne pourra prendre contre eux
 aucune mesure atteignant leurs personnes ou leurs proDe priétés.
@@ -5498,9 +5288,7 @@ aucune mesure atteignant leurs personnes ou leurs proDe priétés.
 - en liberté par voie d'échange seront rendus immédiatement
 
 la carte au liséré vert
-3 après la ratification des présents Préliminaires. Afin d'accé-
-lérer le transport des prisonniers français, le Gouver-
-nement français mettra à la disposition des autorités allemandes, à l'intérieur du territoire allemand, une partie du
+3 après la ratification des présents Préliminaires. Afin d'accélérer le transport des prisonniers français, le Gouvernement français mettra à la disposition des autorités allemandes, à l'intérieur du territoire allemand, une partie du
 ; matériel roulant de ses chemins de fer, dans une mesure
 qui sera déterminée par des arrangements spéciaux et aux,
 prix payés en France par le Gouvernement français pour:
@@ -5698,9 +5486,7 @@ deux Pays au taux ci-dessus indiqué.
 allemand trois mois d'avance de tout payement qu'il compte
 faire aux caisses de l'Empire allemand.
 
-Après le payement du premier demi-milliard et la ratifi-
-
-cation du Traité de paix définitif, les départements de la
+Après le payement du premier demi-milliard et la ratification du Traité de paix définitif, les départements de la
 
 Somme, de la Seine-Inférieure et de l'Eure seront évacués
 en tant qu'ils se trouveront encore occupés par les troupes
@@ -5726,8 +5512,7 @@ pourra être exercée sur le payement des cinq cents pre
 Les troupes allemandes continueront à s'abstenir des
 . réquisitions en nature et en argent dans les territoires
 occupés; cette obligation de leur part étant corrélative aux
-obligations contractées pour leur entretien par le Gouver-
-nement français, dans le cas où, malgré des réclamations ER,
+obligations contractées pour leur entretien par le Gouvernement français, dans le cas où, malgré des réclamations ER,
 réitérées du Gouvernement allemand, le Gouvernement ERr
 français serait en retard d'exécuter les dites obligations, NE
 les troupes allemandes auront le droit de se procurer ce:
@@ -5740,13 +5525,11 @@ régime actuellement en vigueur sera maintenu jusqu'à
 En vertu de la Convention de Ferrières du 11 mars 1891,,
 les réductions indiquées par cette Convention seront mises
 à exécution après l'évacuation des forts. DE
-Dès que l'effectif de l'armée allemande sera réduit au-
-dessous du chiffre de cinq cent mille hommes, il sera tenu “4
+Dès que l'effectif de l'armée allemande sera réduit audessous du chiffre de cinq cent mille hommes, il sera tenu “4
 compte des réductions opérées au-dessous de ce chiffre
 pour établir une diminution proportionnelle dans le prix: Des
 d'entretien des troupes payé par le Gouvernement français.;
-Le traitement exceptionnel accordé maintenant aux pro-
-duits de l'industrie des territoires cédés pour l'importation
+Le traitement exceptionnel accordé maintenant aux produits de l'industrie des territoires cédés pour l'importation
 en France sera maintenu pour un espace de temps de six
 mois, depuis le 1° mars, dans les conditions faites avec les
 délégués de l'Alsace. F::
@@ -5772,8 +5555,7 @@ Vingt mille prisonniers seront dirigés sans délai sur
 +4 en Algérie, après leur organisation, pour être employés
 dans cette colonie.
 È Les traités de commerce avec les différents États de
-l'Allemagne ayant été annulés par la guerre, le Gouverne-
-ment français et le Gouvernement allemand prendront
+l'Allemagne ayant été annulés par la guerre, le Gouvernement français et le Gouvernement allemand prendront
 - pour base de leurs relations commerciales le régime du
 4 traitement réciproque sur le pied de la nation la plus favoL 7risée:
 Sont compris dans cette règle les droits d'entrée et de
@@ -5787,15 +5569,13 @@ merce, a accordées ou accordera à des États autres que;
 ceux qui suivent: l'Angleterre, la Belgique, les Pays-Bas,
 la Suisse, l'Autriche, la Russie.
 
-Les traités de navigation, ainsi que la convention rela-
-tive au service international des chemins de fer dans ses
+Les traités de navigation, ainsi que la convention relative au service international des chemins de fer dans ses
 rapports avec la douane, et la convention pour la garantie
 réciproque de la propriété des œuvres d'esprit et d'art,
 seront remis en vigueur.
 
 Néanmoins le Gouvernement français se réserve la.
-faculté d'établir sur les navires allemands -et leurs car-
-gaisons des droits de tonnage et de pavillon, sous la:
+faculté d'établir sur les navires allemands -et leurs cargaisons des droits de tonnage et de pavillon, sous la:
 réserve que ces droits ne soient pas plus élevés que ceux
 qui grèveront les bâtiments et les cargaisons des nations
 
@@ -5908,13 +5688,11 @@ de fer Guillaume-Luxembourg et de l'Est français, en date
 manière qu'elles ne sont applicables à l'état de choses
 créé par les stipulations contenues dans le paragraphe 1°,
 le Gouvernement allemand se déclare prêt à se substi- “4
-tuer aux droits et aux charges résultant de ces conven-
-tions pour la compagnie des chemins de fer de l'Est. Jr:
+tuer aux droits et aux charges résultant de ces conventions pour la compagnie des chemins de fer de l'Est. Jr:
 Pour le cas où le Gouvernement français serait subrogé,
 soit par le rachat de la concession de la compagnie de
 l'Est, soit par une entente spéciale, aux droits acquis par
-cette société en vertu des conventions sus-indiquées, il s'en-
-gage à céder gratuitement, dans un délai de six semaines,
+cette société en vertu des conventions sus-indiquées, il s'engage à céder gratuitement, dans un délai de six semaines,
 ses droits au Gouvernement allemand.
 Pour le cas où ladite subrogation ne s'effectuerait pas, le “#4
 Gouvernement français n'accordera de concessions pour
@@ -6040,12 +5818,10 @@ ES inscrites dans les certificats d'origine, soit par emploi de
 matières étrangères autres que les matières premières.
 4° Veiller à l'exactitude et à la sincérité des déclarations.
 Les certificats d'origine seront nominatifs et non négo-
-Lesdits syndicats sont tenus de signaler au Gouver-
-nement lésé toute infraction aux conditions ci-dessus indiquées, ainsi qu'aux statuts des syndicats, qui ont été déjà
+Lesdits syndicats sont tenus de signaler au Gouvernement lésé toute infraction aux conditions ci-dessus indiquées, ainsi qu'aux statuts des syndicats, qui ont été déjà
 approuvés par le Gouvernement français.
 
-Le Gouvernement lésé pourra priver le chef d'établisse-
-ment coupable de linfraction du bénéfice des clauses qui
+Le Gouvernement lésé pourra priver le chef d'établissement coupable de linfraction du bénéfice des clauses qui
 
 Pendant la durée de la présente Convention, les marchés
 
@@ -6078,8 +5854,7 @@ intérêts militaires et commerciaux autant que celle d'Avricourt.
 Les devis de cette construction seront faits d'un commun
 accord; le Gouvernement allemand aura soin de la faire
 exécuter le plus tôt possible. ne
-Jusqu'à l'achèvement de la nouvelle station, le Gouver-
-nement allemand se réserve le droit de tenir occupée la
+Jusqu'à l'achèvement de la nouvelle station, le Gouvernement allemand se réserve le droit de tenir occupée la
 commune d'Igney ainsi que la partie de la commune d'Avri-:
 La commission de délimitation sera chargée de déterminer
 la nouvelle frontière.
@@ -6103,9 +5878,7 @@ eux nous paraît se résumer le plus nettement toute la:
 pensée française sur le fait de 1871:
 ALBERT SOREL. — Jlistoire diplomatique de la guerre
 « Quand l'Alsace et plus tard la Lorraine étaient devenues
-françaises, l'idée de l'unité allemande n'avait pas encore péné-
-tré en Allemagne, le principe des nationalités n'était ensei-
-gné par personne, et les États pratiquaient un droit publie
+françaises, l'idée de l'unité allemande n'avait pas encore pénétré en Allemagne, le principe des nationalités n'était enseigné par personne, et les États pratiquaient un droit publie
 qui ne ressemblait en rien à celui que l'on a tenté d'appli-
 ( quer en Europe à la suite de la Révolution francaise. »
 FusrEL DE CouLANGES. — L'Alsace est-elle allemande ou
@@ -6213,8 +5986,7 @@ EccaArp (K.). — La Constitution de l'Alsace-Lorraine (dans
 la Revue alsacienne illustrée, 1” janvier 1906).
 
 EnRHARD (L.). — La Question d'Alsace-Lorraine et Frédéric- À
-le-Grand (Extrait de la Revuc d'Alsace, Strasbourg, Schle-
-sier et Schweikhardt, 1901). RUN
+le-Grand (Extrait de la Revuc d'Alsace, Strasbourg, Schlesier et Schweikhardt, 1901). RUN
 
 ELsreiN (G. D'). — L'Alsace-Lorraine sous la domination
 Fiscugacu (G.). — Le Siège de Strasbourg (in-4°, Strasbourg,
@@ -6261,8 +6033,7 @@ illustrée. — Voir: Prost). À
 Laucez (Anselme). — Le Théâtre alsacien (dans la Revue
 alsacienne illustrée, 1900, 1907). 8 de
 
-MAN EAUGEL (Anselme).— L'Art alsacien, ses origines et Les con-
-ditions de son développement (Extrait du Bulletin de la
+MAN EAUGEL (Anselme).— L'Art alsacien, ses origines et Les conditions de son développement (Extrait du Bulletin de la
 A Société industrielle de Mulhouse, Mulhouse, Bader, 1905).
 — — L'avenir intellectuel de l'Alsace (dans la Revue
 2 politique et parlementaire, 10 août 1908). je)
@@ -6350,9 +6121,8 @@ BRUT et en France (dans la Revue des Deux-Mondes, 1° juin 1879 Yan 7 UN
 LE (dans la Revue des Deux-Mondes, 1° octobre 1881). à
 DRE ViILLEFORT (A.). — Recueil des traités, conventions, Lots
 A AU décrets et autres actes relatifs à la paix avec l'Allemagne
-5 Wuss (J.-J.). — Au pays du Rhin (in-18, Paris, Chap
-A WELSGHINGER (Henri). — Souvenirs sur l'Assemblée Natio-
-te nale (dans le Journal des Débats, 1908, 1909). À
+Wuss (J.-J.). — Au pays du Rhin (in-18, Paris, Chap
+A WELSGHINGER (Henri). — Souvenirs sur l'Assemblée Natiote nale (dans le Journal des Débats, 1908, 1909). À
 Elsass (dans la Revue alsacienne illustrée, 1900) (ad.
 : A par André Korn: Le Génie national des races française
 et allemande en Alsace, in-8°, Paris, Giard et Brière, 1903). PAU
@@ -6371,8 +6141,7 @@ Ai Les Murailles d'Alsace-Lorraine (in-f, Paris, Le Chevalier,
 . Notice sur l'industrie et le commerce de l'Alsace (Œxposition
 universelle de Vienne) (in-32, Strasbourg, Maurice Schauen-
 
-Organisation du gouvernement — Alsace-Lorraine (Assem-
-blée générale des maires et des notables, à Strasbourg,
+Organisation du gouvernement — Alsace-Lorraine (Assemblée générale des maires et des notables, à Strasbourg,
 À le 16 avril 1871) (Pièce, Strasbourg, Schauenbourg, 1871).
 
 Annuaire de Législation étrangère (publié par la Société

@@ -41,7 +41,7 @@ Et dans l'homme. PRE "6-5
 à Dans les peuples et dans les hommes et dans les rois DANS
 1 dans les peuples. Es.;
 Dur Dans l'homme et dans la femme sa compagne. LATE
-Et surtout dans les enfants. À 12 à,
+Et surtout dans les enfants. À
 me: Dans le regard et dans la voix des enfants. me
 ï. Car les enfants sont plus mes créatures.
 D. Ils n'ont pas encore été défaits par la vie. ER:
@@ -174,8 +174,7 @@ Une flamme anxieuse a traversé l'épaisseur des nuits.
 |. Depuis cette première fois que ma grâce a coulé pour;
 la création du monde.
 
-Depuis toujours que ma grâce coule pour la conserva-
-tion du monde. »
+Depuis toujours que ma grâce coule pour la conservation du monde. »
 Depuis cette fois que le sang de mon fils a coulé pour
 le salut du monde.: À
 
@@ -496,7 +495,7 @@ Avec ses outils sûrement et sa race et son sang ses
 La bénédiction de Dieu qui est sur sa maison et sur sa
 É La grâce de Dieu qui vaut plus que tout.
 Ille sait bien.
-3 Qui est sur le pauvre et sur celui qui travaille.
+Qui est sur le pauvre et sur celui qui travaille.
 Et qui élève bien ses enfants.
 Il le sait bien.
 ! Parce qu'il l'a promis.
@@ -576,8 +575,7 @@ La mettant sous la protection de ses saints patrons.
 Il dormira, son corps ainsi reposera.
 Parmi les siens, (attendant les siens).
 Attendant la résurrection des corps.
-Jusqu'à la résurrection des corps son corps ainsi repo-
-sera. SE
+Jusqu'à la résurrection des corps son corps ainsi reposera. SE
 Il pense avec tendresse à ce temps où on n'aura pas
 besoin de lui.
 . Qui porteront la même charge.
@@ -738,21 +736,20 @@ _. soufiler dans ses doigts).
 É _. Disparaît comme par enchantement.
 - 2 Et il n'a plus qu'un tremblement de chaleur au bout des #4
 Et la bise aigre.
-É; Qui souffle toujours.
+Qui souffle toujours.
 Parce qu'elle n'a pas d'enfants.
 Parce qu'elle est une créature inanimée.
 ë. Et elle ne connaît pas toutes ces histoires-là.
 É La bise aigre dans la forêt.
-4 4 Vient à présent lui glacer deux grosses larmes qui des-
-cendent bêtement sur ses joues.
+4 4 Vient à présent lui glacer deux grosses larmes qui descendent bêtement sur ses joues.
 aps Dans les sillons creusés de ses deux joues et qui
 viennent se perdre dans les broussailles de sa barbe.
 Comme deux glaçons.
 RSC Alors lui, riant et honteux.
 Riant en dedans et honteux en dedans et en dessus.;
 Ê Et riant même tout haut.
-:; Car il est doux et il est honteux de pleurer.
-4 Pour un homme.
+Car il est doux et il est honteux de pleurer.
+Pour un homme.
 Alors le pauvre homme il veut faire le malin.
 - Celui qui n'a pas pleuré.;
 : On veut toujours faire le malin.
@@ -908,8 +905,7 @@ même.
 A nos enfances nous joignons Jésus.
 Et grandissants nous en sommes disjoints, nous nous
 en disjoignons pour toute la vie.
-Enfants votre ignorance, votre assurance, votre inno-
-cence est l'ignorance même et la même innocence de.
+Enfants votre ignorance, votre assurance, votre innocence est l'ignorance même et la même innocence de.
 Jésus, de l'enfant Jésus.
 Et sa timide assurance.
 Vous êtes des espérances comme l'enfant Jésus était
@@ -918,7 +914,7 @@ Réellement vous êtes des enfants Jésus.
 C'est pour cela, enfants, que nous sommes si heureux -
 
 que vous êtes les maîtres et que vous commandez SERRE
-7 Cest le commandement même de l'espérance. FES
+Cest le commandement même de l'espérance. FES
 Votre règne est le règne propre de l'espérance. Cr.
 Car nous autres homnies qu'est-ce que nous sommes, SA
 Dans notre pauvre imitation. Te
@@ -943,7 +939,7 @@ Et au mieux aller le pli même de la contrition.
 : Nous ne sommes jamais que des innocences recouvrées.
 Et eux ils sont l'innocence première.
 Nous qu'est-ce que nous devenons.
-3 Qu'est-ce que nous sommes devenus.
+Qu'est-ce que nous sommes devenus.
 Qu'est-ce que nous savons.
 Qu'est-ce que nous pouvons.
 Qu'est-ce que nous faisons.
@@ -954,8 +950,7 @@ Et en supposant le mieux, en allant au mieux, en met- À
 à tant tout pour le mieux nous ne serions jamais que
 eur des innocences conservées.
 Mais eux ils sont l'innocence première. à
-Et autant le fruit mûr, juste mûr, pris à l'arbre, l'em-
-porte sur le fruit conservé.
+Et autant le fruit mûr, juste mûr, pris à l'arbre, l'emporte sur le fruit conservé.
 Frais vaut mieux que le fruit conservé.
 Autant l'innocence de l'enfant l'emporte sur l'innocence
 
@@ -972,8 +967,7 @@ Pour les enfants jouer, travailler, se reposer, s'arrêter,
 courir, c'est tout un. DEP
 ._ Cest le même. Ils ne font pas seulement la différence. a
 Ils sont heureux. QUE
-Ils s'amusent tout le temps. Autant quand ils travail-
-lent, autant quand ils s'amusent. FAR
+Ils s'amusent tout le temps. Autant quand ils travaillent, autant quand ils s'amusent. FAR
 Ils ne s'en aperçoivent même pas. #1
 Ils sont bien heureux.
 Aussi leur commandement est le commandement même ES
@@ -1010,7 +1004,7 @@ Et qui parlait rarement et d'une autre voix.
 .
 
 D'une voix qui n'était pas la sienne.
-Tant elle avait affreusement peur. -;
+Tant elle avait affreusement peur.
 Et ne voulait pas le dire.
 Mais lui, par Dieu, c'était un homme. Il n'avait pas;
 peur de parler.
@@ -1197,10 +1191,10 @@ dans une ferme.
 Car celui qui a loué ses enfants dans une ferme.?
 Il reste le propriétaire de ses enfants.
 Et c'est Le fermier qui en devient le locataire. Le fermier.:
-:: Lui au contraire il ne veut plus être que le locataire de
+Lui au contraire il ne veut plus être que le locataire de
 : ses enfants.
 Il n'en a plus que l'usufruit.
-4 Et c'est le bon Dieu qui en a la nue (et la pleine) pro-
+Et c'est le bon Dieu qui en a la nue (et la pleine) pro-
 Mais c'est un bon propriétaire que le bon Dieu.
 Admire comme cet homme est sage, à
 Cet homme qui ne veut plus être que le fermier de ses
@@ -1312,8 +1306,7 @@ Etil y en a peut-être même plusieurs.
 … Mais enfin il a été un grand saint, mettons même un:
 saint, c'est déjà beaucoup). PRE.
 - Mais il y a des jours où il faut aller plus haut. à
-. Il ne faut pas avoir peur de dire la vérité. C'est pour-
-tant une bien grande sainte que sainte Germaine. #1
+. Il ne faut pas avoir peur de dire la vérité. C'est pourtant une bien grande sainte que sainte Germaine. #1
 Et une bien grande patronne. Et qui doit être bien
 (Bien qu'on ne sache pas au juste ce qu'elle a fait. à
 Mais il ne faut pas le dire.)
@@ -1333,7 +1326,7 @@ Et du refoulement des armées barbares, ne
 SEE Évêque et saint de France,
 ne Et qui peut servir de patron. LE
 4 5 D'un très grand patron.
-34 Et cette sainte Geneviève, née à Nanterre.
+Et cette sainte Geneviève, née à Nanterre.
 42 se Parisienne, patronne de Paris.
 à Patronne et sainte de France voilà de grands patrons
 PTE Pourtant il y a des jours où les plus grandes amitiés ne
@@ -1341,7 +1334,7 @@ PTE Pourtant il y a des jours où les plus grandes amitiés ne
 LEE Ni Marcel ni Geneviève,
 Geneviève notre grande amie.
 Niles plus grands patronages ni les plus grandes
-18 Il y a des jours où les patrons et les saints ne sufliHN sent pas. PAS.
+Il y a des jours où les patrons et les saints ne sufliHN sent pas. PAS.
 Les plus grands patrons et les plus grands saints.
 4 6 Les patrons ordinaires, les saints ordinaires.
 
@@ -1385,7 +1378,7 @@ RES Alors il faut prendre son courage à deux mains.
 tout.
 Pare Être hardi. Une fois. S'adresser hardiment à celle qui
 est infiniment belle.
-#1 Parce qu'aussi elle est infiniment bonne,
+1 Parce qu'aussi elle est infiniment bonne,
 in" A celle qui intercède.
 La seule qui puisse parler avec l'autorité d'une mère.
 S'adresser hardiment à celle qui est infiniment pure.
@@ -1427,8 +1420,7 @@ serait un peu fort.
 Et ensemble heureusement qu'ils ne sont point jaloux
 de la sainte Vierge.
 C'est même ce que l'on nomme la communion des
-Ils savent bien quelle elle est et qu'autant l'enfant l'em-
-porte sur l'homme en pureté.
+Ils savent bien quelle elle est et qu'autant l'enfant l'emporte sur l'homme en pureté.
 Autant et septante fois autant elle l'emporte sur eux en (
 Autant l'enfant l'emporte sur l'homme en jeunesse.:
 Autant et septante fois autant elle l'emporte sur les
@@ -1491,7 +1483,7 @@ Ils ne seront restés que en foi et en charité.
 Maïs ce pécheur qui est parti et qui a failli se perdre
 Par son départ même et parce qu'il allait manquer à
 lappel du soir
-4 Il a fait naître la crainte et ainsi il a fait jaillir l'espé-
+Il a fait naître la crainte et ainsi il a fait jaillir l'espé-
 Au cœur de Dieu même,
 Au cœur de Jésus SR.
 Le frémissement de l'espérance.
@@ -1562,7 +1554,7 @@ Parce qu'elle est la plus humble des créatures.; PTT
 Parce qu'elle était une pauvre femme, une misérable
 Fee femme, une pauvre juive de Judée.
 A celle qui est infiniment loin
-1 Parce qu'elle est infiniment près.
+Parce qu'elle est infiniment près.
 À celle qui est la plus haute princesse ATFUE
 Parce qu'elle est la plus humble femme. Ne.
 A celle qui est la plus près de Dieu
@@ -1573,12 +1565,12 @@ A celle qui est pleine de grâce
 - Parce qu''aussi elle est pleine d'efficace +4
 Et parce qu'elle est pleine de grâce et pleine d'efficace
 Et à l'heure de notre mort ainsi soit-il. Dur.
-3 D'avoir conçu et d'avoir enfanté,
+D'avoir conçu et d'avoir enfanté,
 D'avoir nourri et d'avoir porté Mn.
 L'Homme qui a craint, mn:
 
 le porche -
-L'Homme qui a espéré. à;
+L'Homme qui a espéré.
 (Œt il avait bien raison d'espérer, puisqu'il a réussi à
 sauver tant de saintes et tant de saints. Au moins
 pour commencer. En somme enfin il a réussi tout de
@@ -1640,7 +1632,7 @@ suis-moi bien.
 A toutes les créatures il manque quelque chose, ER.
 
 Non seulement qu'elles ne sont point le Créateur,
-0 Dieu leur Créateur.
+Dieu leur Créateur.
 …_. (Ceci c'est dans l'ordre.
 C'est l'ordre même).
 Quelles ne sont point leur propre Créateur.
@@ -1690,15 +1682,14 @@ vous le dis, que leurs anges dans les cieux voient
 —._ toujours la face de mon Père, qui est aux cieux.; a
 
 En effet le Fils de l'homme est venu sauver ce qui avait
-3 Que vous semble? Si quelqu'un avait cent brebis, et que »
-#4 l'une d'elles se soit perdue en route
+Que vous semble? Si quelqu'un avait cent brebis, et que »
+4 l'une d'elles se soit perdue en route
 (Trompée de chemin);
 est-ce qu'il ne laisse pas les quatre-vingt-dix-neuf
 dans les montagnes, et ne pas chercher celle qui
 s'est perdue?
 Et sil a le bonheur de la trouver: En vérité jevous;
-le dis, qu'il se réjouit sur elle plus que sur les quatre-
-vingt-dix-neuf, qui ne se sont pas perdues.:
+le dis, qu'il se réjouit sur elle plus que sur les quatrevingt-dix-neuf, qui ne se sont pas perdues.:
 Ainsi n'est pas la volonté devant votre Père, qui est aux
 
 à cieux, que périsse un seul de ces petits.
@@ -1734,7 +1725,7 @@ fait une si grande peur) homme, fait homme, il a -
 æ_- Par cette petite brebis de rien du tout qui s'était égarée, "4
 “. par cette créature brebis à
 À Homme, fait homme, il a connu la bourgeonnante espé- à
-3 Le bourgeonnement de l'espérance qui pointe au cœur « - plus douce que le fin bourgeon d'avril.
+Le bourgeonnement de l'espérance qui pointe au cœur « - plus douce que le fin bourgeon d'avril.
 É A toutes les créatures il manque quelque chose, et non
 point seulement de n'être pas Créateur.
 É A celles qui sont charnelles, nous le savons, il manque
@@ -1785,8 +1776,7 @@ Inerte sans elle mais laborieuse avec elle, travailleuse
 (5 par elle, agissante par elle.
 de Cette charrue qui derrière elle laboure la terre lorraine.
 Ni (Mais qui la laboure à une condition, c'est qu'on la tire).
-Comme le cheval de labour, la bonne bête doit non seu-
-lement se porter et se mouvoir elle-même,
+Comme le cheval de labour, la bonne bête doit non seulement se porter et se mouvoir elle-même,
 Sur ses quatre jambes, sur ses quatre pieds,
 à Mais ensemble traîner cette charrue qui, ainsi animée,
 A derrière elle laboure la terre,
@@ -1814,7 +1804,7 @@ Ensemble ils participent à la commune félicité éternelle,
 - Elle l'immortelle, et lui le mortel et le mort mais le
 : Lui étant seulement devenu un corps glorieux.
 : Comme les deux mains sont jointes dans la prière,
-4 Et l'une n'est pas plus injuste que l'autre,:
+Et l'une n'est pas plus injuste que l'autre,:
 Ainsi le corps et l'âme sont comme deux mains jointes,
 k. Et l'un et l'autre ensemble ils entreront ensemble dans
 la vie éternelle.
@@ -1824,7 +1814,7 @@ es Et infiniment plus que le sacrement. #4
 Ou tous les deux ensemble ils retomberont comme deux
 Pour une captivité éternelle.
 
-4 Comme un bon laboureur pour labourer cette lourde
+Comme un bon laboureur pour labourer cette lourde
 Qui poisse au soc de la charrue,
 : Attelle au cheval vigoureux la charrue (elle-même
 Mais en elle-même inerte),
@@ -2020,7 +2010,7 @@ SE D'un sang bouillant.
 Ils ne connaissent donc point la rémission charnelle
 Ils ne connaissent point le gros orgueil d'homme,
 Tout plein de soi.
-Tout gonflé, tout nourri de soi. »:
+Tout gonflé, tout nourri de soi.
 Ils ne connaissent point tant de graisse, tant de man- NS:
 : Que par l'effrayante, que par l'affreuse maïgreur,
 Que par le décharnement
@@ -2242,7 +2232,6 @@ Au printemps l'année;
 A l'enfance la vie
 é Au temps l'éternité
 A la création Dieu même
-Tout entier.
 A la moisson le blé
 A la vigne le vin
 12 monde entier, et l'éternel et le temporel, et le spirituel
@@ -2305,7 +2294,7 @@ M. Parle ministère, par l'administration de la même eau,
 L'une après l'autre sur les mêmes poitrines et sur les
 Et sur les mêmes fronts, À
 : Et jusque sur les cercueils des mêmes corps défunts, A
-2 Ainsi de mains en mains, de doigts en doigts, DE
+Ainsi de mains en mains, de doigts en doigts, DE
 AS bout du doigt au bout du doigt les générations
 Qui éternellement vont à la messe, ON
 

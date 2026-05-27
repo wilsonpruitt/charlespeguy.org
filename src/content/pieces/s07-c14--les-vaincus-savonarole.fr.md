@@ -33,14 +33,12 @@ Voir à l'intérieur en fin de ce cahier les conditions et
 le prix de l'abonnement.
 À Nous mettons le présent cahier dans le commerce:
 1648 treizième cahier de la septième série; un cahier jaune
-de XII 96 pages; grand jésus; nous le ven-
-
-paraissant vingt fois par an
+de XII 96 pages; grand jésus; nous le venparaissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
 NI Nous avons publié dans nos éditions antérieures et …
 
-4 Le dans nos cinq premières séries, 1900-1904, un Si
+Le dans nos cinq premières séries, 1900-1904, un Si
 
 LEA grand nombre de documents, de textes formant dosf Den siers, de renseignements et de commentaires; — un
 “LE si grand nombre de cahiers de lettres, — nouvelles,
@@ -96,7 +94,7 @@ Pour la sixième série, année ouvrière 1904-1905, et
 À Les cahiers de Pâques des séries précédentes ont "4
 les deux précédents cahiers de M. Gabriel Trarieux; “1
 CUS Quinzièrre cahier, cahier pour le dimanche des
-44 Rameaux de la sixième série et cahier pour le dimanche
+Rameaux de la sixième série et cahier pour le dimanche
 de Pâques, un cahier vert de XVI--176 pages, octavo
 1 grand jésus, bon à tirer du mardi 18, fini d'imprimer
 Enny Marx. — La tragédie de Tristan et Iseut;
@@ -119,8 +117,7 @@ A et dix exemplaires d'abonnement, numérotés de
 Tous nos exemplaires sur whatman sont numérotés
 
 à la presse et imprimés au nom du souscripteur; nos
-Ù tirages d'exemplaires sur whatman sont rigoureuse-
-ment limités au nombre d'abonnements à chaque in- « siant souscrits; nous ne vendons point d'exemplaires
+Ù tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque in- « siant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement: l'abonnement
 sur shatman à cette septième série est de cent francs
 pour tous pays.
@@ -147,8 +144,7 @@ ne trois francs
 Dur GABRIEL TRARIEUX. — Les Vaincus, — Joseph d'Ari17 mathée, — trois actes; à monsieur Édouard Schuré;
 Treizième cahier, cahier de Pâques de la cinquième
 6 série, un cahier blanc de 152 pages, bon à tirer du
-. quatre actes; — avant-propos de M. Georges Clemen-
-ceau; — à madame Segond-Weber; — la fin dun
+. quatre actes; — avant-propos de M. Georges Clemenceau; — à madame Segond-Weber; — la fin dun
 monde, la montée au temple; Athêné Polias, le Caesa
 reum; Hypatie et Krysès; les moines de Nitria, la mort
 
@@ -167,10 +163,8 @@ DNS,: membres du Conseil des Huit. si
 d'artisans, le palais des Ridolfi. Au fond, maisons avec
 portiques, perspective de rues étroites. A droite, l'église
 Sainte-Marie-des-Fleurs: vaste porche cintré, exhaussé de
-trois marches. Au début de l'acte, le frère Dominique Buonvincini, vêtu de la chape blanche des Dominicains, se pro-
-mène devant l'église en murmurant des prières. Des enfants,
-également vêtus de blanc, la tête couronnée d'olivier, achè-
-vent d'élever au fond de la place un bücher. Ils plantent au
+trois marches. Au début de l'acte, le frère Dominique Buonvincini, vêtu de la chape blanche des Dominicains, se promène devant l'église en murmurant des prières. Des enfants,
+également vêtus de blanc, la tête couronnée d'olivier, achèvent d'élever au fond de la place un bücher. Ils plantent au
 sommet un mannequin grotesque, affublé d'oripeaux éclatants.
 L'ouvrage est fini, frère Dominique!
 — Quel beau feu de joie cela faire!
@@ -209,9 +203,7 @@ Dolfo Spini et deux jeunes gens débouchent par le fond à
 droite. Ils titubent légèrement. À
 Qui se promène de si belle heure, avec, dans sa
 
-main, un bréviaire?.. Une fillette en quête d'aven-
-
-ture? Hé! c'est madonna Ridolfi!.. À
+main, un bréviaire?.. Une fillette en quête d'aventure? Hé! c'est madonna Ridolfi!.. À
 “4 FRANÇOISE, essayant de passer;
 Messire Dolfo Spini, bonjour. Excusez-moi, je:
 Soun vais à l'église.
@@ -259,7 +251,7 @@ a embrasser cette petite... Tu en feras autant si tu
 veux... après moi. C'est le carnaval... Elle en sera je
 4 quitte pour deux rosaires…
 comme Bacchus!
-2 A ton aise! à
+A ton aise! à
 Messires! Messires!.. de grâce.
 SANDRO, ferraillant avec Dolfo
 Dee: N'ayez point de peur, madonna. (li fait sauter l'épée
@@ -295,7 +287,7 @@ silence Françoise Ridolfi… J'étais
 Entendu quoi, père Manzi?
 Un duel! un chant carnavalesque.. Toute une
 ferraille d'Arrabiati... comme au temps de Laurent Pa.
-4 Vous regrettez ce temps-là, vous, voisin?
+Vous regrettez ce temps-là, vous, voisin?
 Dieu m'en garde! J'aime la République. Cepen-
 LA dant le duc Lorenzo...
 ANTONIO, lui parlant sous le nez
@@ -356,8 +348,7 @@ les murs, Pagolo?
 
 PAGOLO, venant à eux. Avec volubilité
 
-Des billets doux... bonjour, voisins!... qu'échan-
-gent le Pape et la Seigneurie à propos du prieur de À
+Des billets doux... bonjour, voisins!... qu'échangent le Pape et la Seigneurie à propos du prieur de À
 Saint-Marc. Le rouge, c'est le bref du Saint-Père,
 rouge comme la pourpre cardinalice ou comme une
 
@@ -400,7 +391,7 @@ la mort du Médicis, on n'avait pas autant de
 La cloche de Sainte-Marie-des-Fleurs a sonné
 : l'autre nuit toute seule...
 Toutes les corneilles de Saint-Marc ont déserté le
-4 Le La foudre est tombée sur le Dôme...
+Le La foudre est tombée sur le Dôme...
 (NUS Un glaive a brillé dans l'Arno. DUR
 ut: Que veut dire tout cela pour le Frate?.… [2
 Et C'est bon!
@@ -508,8 +499,7 @@ l'agrément de ce que je vois.
 — Ma sœur, l'anathème est sur toi!.….
 
 — Donne-nous ton collier, ma sœur!….
-— Ma sœur, ces fleurs dans tes cheveux sont in-
-dignes d'une chrétienne... Ton bon ange en est
+— Ma sœur, ces fleurs dans tes cheveux sont indignes d'une chrétienne... Ton bon ange en est
 — Qu'est-ce qu'ils veulent dire?
 — Donne-leur ton collier, Nella!
 — Ah! Silvio me l'avait acheté!.…
@@ -545,8 +535,7 @@ s'élève. Une foule bariolée d'hommes et de femmes du
 peuple envahit la scène. Il s'y mêle des gens d'épée, des
 
 artistes, reconnaissables à leurs bonnets rouges. Ils lais-
-, sent un vide devant l'église semblent attendre quel-
-qu'un. Les enfants se rangent autour du bûcher. Aux
+, sent un vide devant l'église semblent attendre quelqu'un. Les enfants se rangent autour du bûcher. Aux
 fenêtres des maisons voisines se montrent des visages
 curieux. Pendant ce tumulte un jeune homme à la phy- ON.
 É sionomie difforme s'assoit par lerre sans façon devant
@@ -632,8 +621,7 @@ tes femmes seront traînées par les cheveux et tes
 enfants seront massacrés. Écoute! ce n'est rien
 encore!.… La famine tordra tes entrailles et la peste
 rongera tes os! Alors des fantômes vivants s'abattront sur les places, sans force, pour mourir au
-hasard, comme des chiens!... Les proches mécon-
-naîtront les proches, le fils délaissera son père, la
+hasard, comme des chiens!... Les proches méconnaîtront les proches, le fils délaissera son père, la
 mère jettera son nourrisson!.… Alors, ô Florence, ton
 ciel s'obscurcira d'une croix noire... il pleuvra des
 flèches de feu!.…. Et les fossoyeurs par les rues iront
@@ -646,11 +634,8 @@ musique céleste... le ciel sur tes murs était bleu...
 Une procession sans nombre de la ville sortait vers
 la plaine, vêtue de blanc, portant des cierges, des
 bannières et des rameaux... elle chantait un chant
-suave.. Et, tout au bout de l'horizon, sur une Jéru-
-
-salem nouvelle, resplendissait une croix d'or... O ÉD:
-mon peuple, tu montais dans la gloire vers la bien-
-heureuse cité!.… Un rêve! n'était-ce qu'un rêve?..
+suave.. Et, tout au bout de l'horizon, sur une Jérusalem nouvelle, resplendissait une croix d'or... O ÉD:
+mon peuple, tu montais dans la gloire vers la bienheureuse cité!.… Un rêve! n'était-ce qu'un rêve?..
 Ne seras-tu jamais à Dieu?... (Soupirs et murmure pas-
 ? sionné: Sauve-nous, Frate! Sauve-nous!) Insensé! sauve-toi:
 toi-même! mais, puisque tu soupires à l'aide, je À
@@ -706,9 +691,7 @@ richesses. Mets-nous dans la fournaise ardente.
 
 Nous donnerons tout pour ton baiser... Viens!
 
-enseigne-nous, Seigneur très pauvre, la grâce ado-
-
-rable entre toutes de la très haute Pauvreté! Elle
+enseigne-nous, Seigneur très pauvre, la grâce adorable entre toutes de la très haute Pauvreté! Elle
 
 seule t'a accompagné, ainsi qu'une épouse attentive,
 
@@ -761,8 +744,7 @@ brûler leurs propres œuvres! Ces gens-là sont
 Fous d'une sublime folie! Je les envie presque... À
 
 À el-Ange, tu ne brûles pas ton dessin? (Miche.
-Ange hausse les épaules.) Alors, combien me le vends-
-nou Je ne le vends pas, je le garde.
+Ange hausse les épaules.) Alors, combien me le vendsnou Je ne le vends pas, je le garde.
 MACHIAVEL, examinant le dessin
 Tant pis, mais tu as raison... Quelle fougue! RUE
 Cest le Prophète lui-même, à genoux et les bras ni
@@ -774,7 +756,7 @@ Il reprend sa course et disparaît au milieu des cris.:'4
 . Cest un point de vue... Rien de si bête qu'un
 peuple trop spirituel... un passant) Quel est le
 crime de ce Vénitien, mon ami? Ni
-3 Il voulait acheter ces défroques, tout enlever d'un A
+Il voulait acheter ces défroques, tout enlever d'un A
 
 coup de filet. Il en a offert, dit-on, mille ducats
 à la Seigneurie!
@@ -880,15 +862,11 @@ Alighieri!.…. Ces lettres ont la vigueur de frappe de
 141 la pensée qu'elles expriment, et ce fermoir d'argent
 :1'4 massif est un noble et parfait joyau.
 
-Je suis assez fier du volume. Il vient de la Biblio-
-
-thèqueLaurentienne.Lechancelier du roide France,
+Je suis assez fier du volume. Il vient de la BibliothèqueLaurentienne.Lechancelier du roide France,
 1: Philippe de Commines, un connaisseur, voulait
 (3100 l'enlever à tout prix.
 21 tu MACHIAVEL, se penchant sur la page ouverte,
-40) ï Chant dixième de l'Inferno: les tombes ar-
-
-dentes.. Parfaitement. Quels ennemis et quels amis
+40) ï Chant dixième de l'Inferno: les tombes ardentes.. Parfaitement. Quels ennemis et quels amis
 rêviez-vous d'envoyer là-bas?
 Jen BERNARDO, fermant son livre
 Tu les connais. Quoi de nouveau?
@@ -906,8 +884,7 @@ Euh! qui sait? ne.
 Le Pape est à bout de patience, il veut sévir.
 , Certes, il le veut... Entre nous, mettez-vous grand:
 
-crédit en ce vieux roué de Borgia? L'avocat espa-
-gnolveille en lui sous la robe du très saint Pontife…
+crédit en ce vieux roué de Borgia? L'avocat espagnolveille en lui sous la robe du très saint Pontife…
 Sa famille est très encombrante, dela Vanozza à la;
 Lucrèce, sans compter le beau duc César. D'in- 1708
 sultes il ne lui chaut guère, pourvu que rentrent les NE
@@ -989,9 +966,7 @@ nous nommons duc un des nôtres. Je me fais
 
 - gouverneur de Pise, l'ambassade de Rome est pour
 À Merci, et comptez sur mon zèle. La partie m'inté-
-À. resse en elle-même. Je regretterai la victoire, peut-
-
-être: ce Frate a voulu de grandes choses. S'il
+À. resse en elle-même. Je regretterai la victoire, peutêtre: ce Frate a voulu de grandes choses. S'il
 
 4 échoue, ce sera manque d'équilibre et d'un peu de
 
@@ -1145,15 +1120,12 @@ véridique image apparaît à une heure de la vie, "4
 dans une grande douleur ou une grande joie. Alors
 s'effacent toutes les autres... Quelquefois elle ne
 1 vient jamais...
-Ah!... et pour moi elle n'est pas venue... Com-
-ment le savez-vous?.…
+Ah!... et pour moi elle n'est pas venue... Comment le savez-vous?.…
 Vous êtes incrédule... Je le sais par ces yeux et
 ; cette bouche. Mais vous allez rire de moi...
 Sourire seulement. Je vous écoute...
 ï Voilà... Vos yeux cherchent la vie, cherchent la
-lumière et la joie. Ils s'élancent comme deux éper-
-viers dans le ciel... Votre bouche est pensive, pri-
-je sonnière... On dirait qu'elle ne s'est ouverte que;
+lumière et la joie. Ils s'élancent comme deux éperviers dans le ciel... Votre bouche est pensive, prije sonnière... On dirait qu'elle ne s'est ouverte que;
 à derrière la grille d'un cloître... On dirait qu'elle ne
 veut pas s'ouvrir... Votre bouche et vos yeux ne
 sont pas d'accord... Ni
@@ -1175,8 +1147,7 @@ Vous excellez dans l'art des songes... D'où vous:
 viennent-ils?
 sais-je?.. J'ai fait des voyages. Il suflit de
 - savoir ouvrir les yeux... Si les hommes n'étaient te
-pas aveugles, ils se promèneraient les mains join-
-tes! une simple rue de Florence est pleine de Se
+pas aveugles, ils se promèneraient les mains jointes! une simple rue de Florence est pleine de Se
 vivants tableaux... Je ne suis pas le seul en Italie JE
 qui voie la beauté, qui la cherche... Depuis que les
 
@@ -1193,10 +1164,8 @@ pourtant... Cela me rappelle mes premières surprises en écoutant le frère Sav
 aussi un vaste monde, mais loin, bien loin de moi...:
 Je haïs Le frère Savonarole!
 Pourquoi dites-vous cela? à
-Je le hais!.… il voudrait faire de Florence un cou-
-vent où l'on parle à voix basse, en rasant les murs À
-les yeux clos. Il sacrifierait toutes les choses pré-
-cieuses, — toutes les vanités, comme ils disent, qui À
+Je le hais!.… il voudrait faire de Florence un couvent où l'on parle à voix basse, en rasant les murs À
+les yeux clos. Il sacrifierait toutes les choses précieuses, — toutes les vanités, comme ils disent, qui À
 sont le plaisir et l'orgueil des yeux, — pour je ne
 
 sais quel rêve invisible... et je le retrouve à chaque
@@ -1240,8 +1209,7 @@ un matin, à travers les mers mystérieuses!
 . Pour être heureux, faut-il tant de choses?;
 Le bonheur, n'est-ce pas un grand désir?
 Quelque jour, vous quitterez Florence.
-Quelle pensée! Je parle à l'aventure! Pour-
-quoi dites-vous cela, madonna? Puis-je avoir à
+Quelle pensée! Je parle à l'aventure! Pourquoi dites-vous cela, madonna? Puis-je avoir à
 envie de partir?..
 
 ï 4 D'autres cités sont hospitalières.
@@ -1287,19 +1255,16 @@ la mort et la vie.
 FRANÇOISE, le regardant avec angoisse
 L'amour, dites-vous?.… quel amour?.…. À
 Celui qui éclot comme un lys de pourpre et qu'on
-emporte à la dérobée, enivré comme un conqué-
-rant!.… Celui qui brûle dans la grâce des jours,
+emporte à la dérobée, enivré comme un conquérant!.… Celui qui brûle dans la grâce des jours,
 dans la profondeur des nuits calmes, dans l'éternel
 
 sourire de l'aube, dans le souffle du clair renouveau... Celui qui met toute ville en fête, et donne
-soif de mordre à la vie comme à une orange parfu-
-mée.. Celui qui ouvre au cœur des portes vers le;
+soif de mordre à la vie comme à une orange parfumée.. Celui qui ouvre au cœur des portes vers le;
 , pays vierge des songes où nul n'a respiré encore. Le
 Celui qui fait un fou d'un sage, et du fou que je suis;
 plus qu'un homme, depuis que vous habitez mon À
 4 âme, et que je ne me connais plus!
-À s'approche lentement de Françoise qui l'a écouté frémis-
-sante. Elle se lève et s'appuie sur son siège en fermant
+À s'approche lentement de Françoise qui l'a écouté frémissante. Elle se lève et s'appuie sur son siège en fermant
 ? les yeux. Un silence.
 : FRANÇOISE, à mi-voix, sans le regarder » À
 L'amour. oui, c'est la vie... la vie... la vie.
@@ -1347,7 +1312,7 @@ A Quel crime? Vous m'aimez... je vous aime... je
 “STE ne connais pas d'autre loi! à
 
 C'est un péché qui perd les âmes! Françoise et
-44 Paolo s'aimaient aussi.
+Paolo s'aimaient aussi.
 
 254 l'amour, après la vie... Que m'importe 2... Je ne
 
@@ -1407,12 +1372,12 @@ FRANÇOISE, lui envoyant des deux mains un violent baiser ES
 Adieu! Adieu! Adieu! (Sandro disparaît. Elle ne.
 fait en chancelant quelques pas vers l'autre porte.) Nourrice!
 Comme tues pâle! Tu trembles!... Tu es toute LES
-4 FRANÇOISE, lui faisant signe de se taire, se laisse tomber Le
+FRANÇOISE, lui faisant signe de se taire, se laisse tomber Le
 vai sur un siège
 chercher... mon voile de laine. DRE
 Où veux-tu aller?.. Il fait presque nuit.
 
-: À: tic ses
+: tic ses
 
 Une cour intérieure du cloître de Saint-Mare, la nuit.
 Pièce rectangulaire entourée d'un couloir voûté donnant
@@ -1483,7 +1448,7 @@ prière muette. Frère Dominique paraît sous les arcades et s'arrête
 à quelque distance. Savonarole Vaperçoit.) C'est toi, mon
 . Dominique? Non, reste... Mon cœur se rafraichit
 à près de toi. Li:
-44 DOMINIQUE, s'approchant avec crainte Au
+DOMINIQUE, s'approchant avec crainte Au
 Vous paraissez triste, mon Père?
 - Je le suis, mon fils, en vérité... Ma journée
 approche du terme, et je songe à l'avare moisson.
@@ -1539,9 +1504,7 @@ Qu'est-ce là, d'être sauvé soi-même, quand on a
 rêvé ce triomphe d'emporter à Dieu tous les hommes à
 dans l'immense filet du salut?.. Mourir vaincu, ce
 n'est rien encore, si l'œuvre sûrement doit sum
-vivre... Mais mourir vaincu sans savoir qui répa-
-rera la défaite! Mourir au soir d'une étape sté-
-rile, sans avoir la terre promise où s'embrasse- À
+vivre... Mais mourir vaincu sans savoir qui réparera la défaite! Mourir au soir d'une étape stérile, sans avoir la terre promise où s'embrasse- À
 ront tous les peuples! Oh! si tu m'emportais,
 Seigneur, sur quelque cime lumineuse, où je puisse
 
@@ -1562,14 +1525,12 @@ tous ceux qui l'attendent, la tête courbée par la vie, si
 
 dans les couvents, dans les chaumières, dans les;
 
-cités et les bourgades, en France, en Italie, en Alle-
-magne, s'ils secouaient le poids séculaire de leur
+cités et les bourgades, en France, en Italie, en Allemagne, s'ils secouaient le poids séculaire de leur
 torpeur et de leur silence, peut-être nous serions
 une armée! Mais le monde n'est plein que à me
 É d'esclaves enivrés de leur servitude. L'homme
 libre marche dans un désert, sans un écho qui lui
-réponde. Je le sais, moi qui suis debout! Com-
-prends-tu, maintenant, comprends-tu? Allumer
+réponde. Je le sais, moi qui suis debout! Comprends-tu, maintenant, comprends-tu? Allumer
 Florence comme une torche vive. par Florence
 éclairer l'Italie. par l'Italie, de proche en proche,
 réveiller les nations chrétiennes du lourd sommeil
@@ -1583,7 +1544,7 @@ sager du Christ. C'est là, c'est là, l'Œuvre
 sublime... l'éblouissante Vision!
 
 ï DOMINIQUE, joignant les mains
-4 Je vois... je vois... je vois... C'est beau!
+Je vois... je vois... je vois... C'est beau!
 Hélas! c'est un soupir qui monte entre les
 murailles d'un cloître, et nous ne sommes que deux
 à pauvres moines qui mourront demain, comme
@@ -1634,9 +1595,7 @@ A d'en haut qui éclate!.. En cela, j'aurai frappé juste.
 NL: Achève, achève ta pensée.
 
 SE Ne Il faudrait autre chose que la foudre... que ces
-perpétuels fléaux... Les cœurs ont besoin d'allé-
-
-geance… croyaient que la République serait a
+perpétuels fléaux... Les cœurs ont besoin d'allégeance… croyaient que la République serait a
 la fin de leurs misères.. Ils sont comme las d''es-
 Ah! il leur faudrait autre chose... une victoire,
 
@@ -1666,7 +1625,7 @@ TE l'adversaire des Borgia... Suppose que ma voix À
 a de de la chrétienté!... (Un silence) Connaïs-tu un sûr
 D'assez sûr pour un tel message, je ne connais
 que moi. qui ne peux partir...
-4 Cherche, je chercherai aussi.
+Cherche, je chercherai aussi.
 5300 Pourvu qu'il ne soit pas trop tard, et que le roi
 - de France t'écoute. Puissions-nous tenir jusque-là!
 (rs SAVONAROLE, lui tendant la main
@@ -1709,8 +1668,7 @@ madame Lucrèce.. On dit, — pour moi je n'en sais
 rien, — que le duc César l'a tué lui-même... Il est
 vrai qu'il ne s'en défend guère.
 César Borgia meurtrier de son frère! Caïn!
-Certes, ces accidents sont bien tristes. Le dé-
-sespoir d'Alexandre a été sans bornes. Je l'ai;
+Certes, ces accidents sont bien tristes. Le désespoir d'Alexandre a été sans bornes. Je l'ai;
 vu, devant tout le sacré Collège, pleurant, criant, À
 se frappant la poitrine... Il s'accusait de forfaits
 horribles.. il était vraiment hors de lui... C'est
@@ -1745,8 +1703,7 @@ Arrière de moi!.
 un coup suprême... Il faut que cette lettre parte. à
 À Dieu décidera... Je vois clair. Maintenant, j'irai me
 jusqu'au bout!... (Un nouveau silence. Il se lève; les deux
-pie dans ton antre de Rome, Idole des Idoles, Anté-
-christ! Je démolirai ta superbe et tu seras renou- EN.
+pie dans ton antre de Rome, Idole des Idoles, Antéchrist! Je démolirai ta superbe et tu seras renou- EN.
 velée, ou je me briserai contre toi! O s'il était
 possible encore de rompre un jour ces grandes
 Un silence. Il fait quelques pas. GES
@@ -1810,8 +1767,7 @@ __. fuit pas ce regard commet en son cœur l'adultère.….
 ? Vous ne devez pas le revoir!
 
 Grâce! dans quelques jours... bientôt! LATE
-Ne rusez pas avec vous-même... Ce sera mainte-
-nant, ou jamais! #10
+Ne rusez pas avec vous-même... Ce sera maintenant, ou jamais! #10
 "Re Elle se laisse tomber sur le banc et pleure, la tête dans ses si
 (4 Pauvre enfant! Vous pleurez de vraies larmes.
 ‘la paix reviendra...
@@ -1858,8 +1814,7 @@ a Amène-le... (Sort Fra Benedetto) Dieu l'envoie.
 Entrez dans ma cellule, ma fille, je vous rappellerai
 Le FRE tout à l'heure... mène Françoise à une des cellules qui
 trie ouvrent sur le couloir du fond.) Priez du fond du cœur.
-11 ferme la porte de la cellule et revient dans la cour. San-
-dro arrive par la gauche.;
+11 ferme la porte de la cellule et revient dans la cour. Sandro arrive par la gauche.;
 FAR Françoise!.. Où est Françoise Ridolfi?.…
 “C'est elle que tu réclames de la sorte?
 Elle est ici! je l'ai suivie... je l'ai attendue penRU. dant ces longues heures... Je sais qu'elle est ici,
@@ -1922,13 +1877,12 @@ Que pourrais-tu faire de pire que tu n'oses vouloir +5
 L'enlever, m'enfuir avec elle, hors de votre PL,
 atteinte, loin, loin!.. Vous ne me reprocherez plus, LNS
 alors, de ne pas me dévouer tout entier!.… Du
-Oui, un crime en appelle un autre. Après l'adul-
-tère, la fuite, l'abandon de ta ville natale... Tout Re:
+Oui, un crime en appelle un autre. Après l'adultère, la fuite, l'abandon de ta ville natale... Tout Re:
 Ce sera votre œuvre, non la mienne, si vous me le:
 Re, poussez à bout. ne
 
-1 SAVONAROLE, marchant à lui et lui mettant la main
-à: SAC sur l'épaule
+SAVONAROLE, marchant à lui et lui mettant la main
+SAC sur l'épaule
 : Nous le verrons bien!.…
 DU. À l'instant même! Françoise est dans ceite
 “to cellule. Tandis que tu trembles de rage, elle prie,
@@ -1936,15 +1890,14 @@ elle combat dans l'angoisse, elle pleure pour elleet
 +4 pour toi. Va, fais-lui tes offres infàmes!... Enlève-
 SAR Elle, si près de moi! si près! Françoise!
 LE Elle ne peut pas t'entendre... Il te faut aller la
-4 SANDRO fait quelques pas, puis s'arrête, en proie àun
+SANDRO fait quelques pas, puis s'arrête, en proie àun
 ne trouble profond Le
 mar. Françoise! Rien... On dirait qu'elle est morte.
 
 Sans doute elle prie ardemment.…. Françoise! Je
 ne sais quelle puissance me retient là, cloué!.…. Je « (3
 n'ose... Je ne sais plus ce que je veux... Ah! la
-voir! la voir et l'entendre!... s'élance d'un mouve-
-ment brusque au-devant de Savonarole qui lui barre le passage,
+voir! la voir et l'entendre!... s'élance d'un mouvement brusque au-devant de Savonarole qui lui barre le passage,
 immobile, et le regarde fixement. Il s'arrête de nouveau, et, bientôt, 46 a
 recule comme malgré lui.) Si j'allais trouver une étrangère
 qui ne m'écouterait point?.… Si c'était. vous qu'elle
@@ -1956,8 +1909,7 @@ de plus grand, que tu ignores, et que tu désires
 pourtant... Une dure étape te reste à faire... Tu hi:
 demeures toujours révolté.…..
 ! SANDRO, avec un défi sauvage NI
-Oui, révolté contre vos règles, vos commande-
-ments, votre foi! Ne pensez pas m'avoir séduit
+Oui, révolté contre vos règles, vos commandements, votre foi! Ne pensez pas m'avoir séduit
 comme les bourgeois de Florence! Ne pensez pas:
 ; me tenir jamais! Je cède, ce soir, parce que je
 suis lâche... et que je ne vois pas clair devant
@@ -1972,17 +1924,16 @@ féconde!. Parle, crie tout haut ta douleur!:
 quoi triompher.…. Est-ce ma faute si, sans cet amour,
 74 ma vie n'est qu'un désert stérile? Si toute la
 dE beauté de la terre s'évanouit comme une ombre
-à, vaine, quand je ne vois plus sa beauté?.. Sije suis
+vaine, quand je ne vois plus sa beauté?.. Sije suis
 sans force pour l'œuvre qui est ma seule raison
 
 Celle que vous chargez d'anathèmes.…. l'art
 
 sublime, que vous condamnez!...
 
-4 Enfin! voilà l'aveu sincère! voilà l'idolâtrie
+Enfin! voilà l'aveu sincère! voilà l'idolâtrie
 
 secrète qui fait toute ta lâcheté!.. l'art, la passion
-4
 
 (ot de l'apparence, de la beauté, comme vous dites, À
 profanant un terme sacré! C'est par lui que tu
@@ -1994,8 +1945,7 @@ que de rassasier ton désir! Tu es le digne fils de
 Florence, toi qui n'oses monter de toi-même où;
 t'invite ta propre pensée, pour ne pas avouer d'autre
 maître que l'avide plaisir de tes yeux!
-Et quand cela seraït?... Je connais vos impréca-
-tions ordinaires. elles ne m'ont pas converti. Je
+Et quand cela seraït?... Je connais vos imprécations ordinaires. elles ne m'ont pas converti. Je
 vous le dis, je n'ai pas honte de la plus féconde
 allégresse qui jamais aït gonflé ma poitrine! Jen'ai À
 pas honte de donner ma force aux beaux songes qui es
@@ -2039,8 +1989,7 @@ les autres vivre en paix!
 plus rien à t'apprendre!..
 
 Ah! vous jouez, vous jouez de moi, parce que
-vous savez ma blessure!.. Vous êtes donc invulné-
-rable, vous qui êtes si dur pour les autres?.. Dites
+vous savez ma blessure!.. Vous êtes donc invulnérable, vous qui êtes si dur pour les autres?.. Dites
 enfin, que voulez-vous de moi?;
 
 Je veux réveiller toute ton âme... lui donner le À
@@ -2118,11 +2067,9 @@ sans mesure... On ne compte pas avec lui!;
 à Vos paroles frappent sur mon âme comme des
 haches dans les clairières.. elles volent, éclairant
 des ruines, comme des flambeaux dans la nuit.
-2 Frappe toi-même avec elles, frappe! Tu verras le
+Frappe toi-même avec elles, frappe! Tu verras le
 N'est-ce pas un crime?.. Je l'ignore... D'un côté
-c'est le monde qui rayonne, en ses floraisons infi-
-
-nies.. de l'autre, c'est un obscur abime, où m'attire
+c'est le monde qui rayonne, en ses floraisons infinies.. de l'autre, c'est un obscur abime, où m'attire
 je ne sais quel effroi..
 Va, laisse-toi rouler dans l'abîme!. Tu seras Le A
 recueilli par des anges qui t'éclaireront de leurs ie:
@@ -2139,8 +2086,7 @@ moines qui ne montre qu'à Dieu son cœur nu...
 : Vous êtes trop haut pour moi, mon Père... Je ne
 suis pas un saint, comme vous}...
 . Hélas! les Saints sont encore des hommes!... les
-plus attachés à ce monde, Jérôme, Augustin, Fran-
-çois même sont allés le plus haut loin de lui... Qui!
+plus attachés à ce monde, Jérôme, Augustin, François même sont allés le plus haut loin de lui... Qui!
 
 peut se dire sans défaillances, avant le Calvaire
 suprême que l'on monte en portant sa croix?.… Si à
@@ -2173,8 +2119,7 @@ Non, l'heure n'en est pas venue... La pénitence est
 un don très rare... Cela ne se fait point par surprise. Le cloître n'est pas non plus ce que tu
 penses. Il ressemble à toute autre chose humaine.
 Ce n'est que le vestibule du ciel.
-Ne me laissez pas sans assistance! Je retombe-
-rais dans l'ornière.. J'ai besoin d'un grand dévouement!;
+Ne me laissez pas sans assistance! Je retomberais dans l'ornière.. J'ai besoin d'un grand dévouement!;
 
 8. Vois-tu ces lettres? elles sont destinées au roi
 
@@ -2218,14 +2163,11 @@ PS: pleurent ensemble, afin que je voie de ces yeux A
 paupières lassées devraientse refermer dans l'ombre,
 1 mon Dieu, je te bénis encore d'avoir sauver ces
 
-Salle des fêtes du palais Ridolfi, provisoirement transfor-
-mée en salle du Conseil des Huit. Fenêtres munies à l'exté-
-rieur d'épaisses barres de fer forgé. Portes de chêne à droite
+Salle des fêtes du palais Ridolfi, provisoirement transformée en salle du Conseil des Huit. Fenêtres munies à l'extérieur d'épaisses barres de fer forgé. Portes de chêne à droite
 et à gauche. Sur une table une urne de bronze et des fèves
 bianches et noires. Sièges épars autour de la table. Trois ni
 seigneurs àgés y sont assis; ils causent à voix basse avec “2
-des soupirs en hochant la tête. Quatre autres, dont Machia-
-vel, sont debout devant une fenêtre, observant le spectacle rte
+des soupirs en hochant la tête. Quatre autres, dont Machiavel, sont debout devant une fenêtre, observant le spectacle rte
 du dehors. Dans un coin, sur un escabeau, le greffier Cec- Ne
 1 cone, bossu, compulse un dossier de paperasses.
 Quelle cohue!.. La place est comble! aux por- (2
@@ -2260,8 +2202,7 @@ Je m'étonne que le Frate ait accepté une pareille
 gageure.…. Je le croyais moins fou.
 Il ne l'est point... Il n'a pas répondu en personne,
 seul un de ses disciples a parlé... Nous avons pris
-celui-ci au mot, sans attendre que le Frate le dé-
-mente, et fait afficher toute l'histoire... Nous verrons à présent ce quil dire devant un tel aréopage.
+celui-ci au mot, sans attendre que le Frate le démente, et fait afficher toute l'histoire... Nous verrons à présent ce quil dire devant un tel aréopage.
 Un homme providentiel, ce franciscain, d'avoir
 inventé le défi! Ha! Ha! s'offrir comme une oïe
 grasse pour faire griller un confrère... Une cuisante
@@ -2280,8 +2221,7 @@ Qu'augures-tu de la foule?
 
 Douteuse. Valori, avec ses Piagnoni, peut teniren
 échec Dolfo. Comme dirait Bautista, mon maître,
-la canaïlle fera pencher la balance... C'est l''événe-
-ment qui décidera. (
+la canaïlle fera pencher la balance... C'est l''événement qui décidera. (
 Ton moine est-il prêt?
 
 Heu! heu! il attend dans la salle voisine. L'im-;
@@ -2296,18 +2236,14 @@ pris dans le Milanais..
 
 Bah!... et ces missives?..
 
-Appellent Charles VIIT à l'aide et parlent de dé-
-
-poser le Pape!
+Appellent Charles VIIT à l'aide et parlent de déposer le Pape!
 
 Tiens! Tiens! pas fou, Savonarole... Il nous
 préparait une surprise... De son assurance nouvelle, et ce miracle toujours suspendu... Bien joué!
 je lui rends mon estime... Mais nous le tenons!.…
 (Souriant) Pour le coup, Roderic Borgia être vraiment en colère! Je voudrais l'entendre...
 
-Autre chose... sais-tu le nom du messager? San-
-
-dro Botticelli lui-même! Je viens de le voir à
+Autre chose... sais-tu le nom du messager? Sandro Botticelli lui-même! Je viens de le voir à
 
 l'instant. Et on ne l'a pas saisi sans peine... Ila
 fait une défense de lion... à
@@ -2329,8 +2265,7 @@ vers les autres Seigneurs. Tous prennent place autour de la table.
 
 Ridolfi seul reste debout.) Messires, je vous ai réunis:
 pour prendre une décision grave. Vous n'ignorez
-pas les circonstances. La sécurité florentine est me-
-nacée, à l'extérieur, par une ligue chaque jour plus A
+pas les circonstances. La sécurité florentine est menacée, à l'extérieur, par une ligue chaque jour plus A
 puissante. Le commerce, autrefois si prospère, est
 ruiné par l'interdit. Parmi nous une faction exaltée,
 — fléau coutumier des Républiques, — maintient la
@@ -2340,8 +2275,7 @@ moine qui abuse de l'esprit de la foule, et dont le
 prestige funeste n'a être détruit jusqu'ici par ses
 fourberies répétées. Voici cependant qu'il chancelle
 et que l'heure d'agir est venue. Un autre moine s'est
-levé qui, pour démasquer l'imposteur, l'a défié d'accomplir devant le peuple ce miracle qu'il diffère toujours, s'offrant, au péril de sa vie, à franchir un bra-
-sier ardent sur une longueur de plusieurs aunes, si
+levé qui, pour démasquer l'imposteur, l'a défié d'accomplir devant le peuple ce miracle qu'il diffère toujours, s'offrant, au péril de sa vie, à franchir un brasier ardent sur une longueur de plusieurs aunes, si
 Jérôme Savonarole acceptait de subir l'épreuve.
 Nous avons déjà pris soin de faire en sorte qu'il ne
 pût se dérober sans scandale. Il faut que, devant tout
@@ -2349,12 +2283,9 @@ le peuple, il soit aujourd'hui confondu. Alors nous
 le tiendrons à merci, mais veillons à saisir l'avantage, car nous avons affaire ici à un adversaire subtil, prompt à inventer des ressources. Il importe de
 tout prévoir et de le frapper à coup sûr. Je vous
 propose donc, si Savonarole ne relève point le défi,
-de le déclarer dès maintenant traître envers Flo113
-
-rence et l'Église, afin de pouvoir le livrer sur l'heure
-au Pape qui le réclame à grands cris. Les mesures à;
-cet effet sont prises, et vous n'avez plus qu'à les ap-
-prouver. Dans la surprise de la foule nous pourrons
+de le déclarer dès maintenant traître envers Florence et l'Église, afin de pouvoir le livrer sur l'heure
+au Pape qui le réclame à grands cris. Les mesures
+cet effet sont prises, et vous n'avez plus qu'à les approuver. Dans la surprise de la foule nous pourrons
 agir sans encombre, et nous serons ainsi délivrés de
 cet obsédant fanatique qui nous pèse depuis si longtemps et qui mène Florence à sa perte... J'espère
 que nous sommes tous d'accord?
@@ -2390,8 +2321,7 @@ canonise; nous ne devons songer qu'à la paix
 publique. Si l'épreuve du feu y pouvait grand chose,
 
 je serais pour l'épreuve du feu; je n'y vois qu'un
-tison de discordes. Quand nous aurons brûlé Savo-
-parole, que diront demain ses partisans?.. Si vous.
+tison de discordes. Quand nous aurons brûlé Savoparole, que diront demain ses partisans?.. Si vous.
 voulez faire une épreuve, qu'on plonge les deux
 moines dans une cuve d'eau tiède! Nous verrons
 ni celui qui sortira sec!
@@ -2451,8 +2381,7 @@ Je ne l'ai pas proposé. pour mon compte!.….
 C'était pour faire pièce à Jérôme... Je ne croyais
 
 pas qu'on ferait tant de bruit. Être brûlé vif!
-Ah! Jésus! Ah! mon doux patron saint Fran-
-çois Moi qui n'ose même pas, la nuit, moucher
+Ah! Jésus! Ah! mon doux patron saint François Moi qui n'ose même pas, la nuit, moucher
 de mes doigts une chandelle! Grâce, Seigneurs
 saint... Comment voudrais-je quitter cette vie?.…. Je
 sais bien que je prendrais feu comme une tonne de
@@ -2478,11 +2407,9 @@ cru, voilà mon seul crime... j'ai trop de simpli-;
 Éclat de rire général. Machiavel hausse les épaules, sans
 pouvoir s'empêcher de sourire.
 IL est certain que ce pauvre diable serait victime
-de son zèle si on lui infligeait malgré lui le désagré-
-ment qu'il redoute. Il y a moyen d'arranger les À
+de son zèle si on lui infligeait malgré lui le désagrément qu'il redoute. Il y a moyen d'arranger les À
 choses en ne les poussant pas trop loin. Après tout,
-que voulons-nous de lui? Qu'il fasse bonne conte-
-nance. Il n'est pas tout à fait nécessaire de brûler ce
+que voulons-nous de lui? Qu'il fasse bonne contenance. Il n'est pas tout à fait nécessaire de brûler ce
 corps bien nourri. De deux choses l'une: ou Jérôme
 refuse l'épreuve, et l'autre est sauvé. Ou Jérôme à
 l'accepte, mais on exige qu'il la subisse le premier.
@@ -2656,8 +2583,7 @@ au hasard! Ah!... ah!... les Piagnoni se défendent! je les vois autour de Valor
 comme des ombres, sans ouvrir la bouche... C'est
 beau! Si je pouvais descendre, et me battre!.…
 
-Mon Dieu, pitié pour ceux qui frappent! Misé-
-ricorde à ceux qui meurent!..…
+Mon Dieu, pitié pour ceux qui frappent! Miséricorde à ceux qui meurent!..…
 La porte! entendez-vous la porte?.. On la bat
 en brèche, on l'enfonce!.… elle cède, elle tombe sous
 les coups! Ils montent! ils montent! Qui estce?.. (Un silence. Voix plus rapprochées: Viva Gesu!… Vioa ni:
@@ -2728,8 +2654,7 @@ Alors, c'est pour ce soir?
 Pour ce soir. J'ai donné mes ordres. Convenez
 qu'il est temps d'en finir. ne
 
-Sans doute, sans doute, depuis un mois de ques-
-tionnaires, de tortures superflues en somme, pour +4
+Sans doute, sans doute, depuis un mois de questionnaires, de tortures superflues en somme, pour +4
 lui surtout il est grand temps... En ce qui nous Mo.
 
 concerne, par exemple, le résultat n'est pas merveilleux.
@@ -2864,8 +2789,7 @@ DOMINIQUE, avec un sanglot
 
 C'est toi, mon enfant?.. Tu es bien en vie? Ah!
 je ne distingue pas ton visage... je ne peux pas voir
-« ce que tu ressens... Laïisse-moi toucher tes pau-
-pières, tes mains, tes bras... Ils sont brisés... Tes
+« ce que tu ressens... Laïisse-moi toucher tes paupières, tes mains, tes bras... Ils sont brisés... Tes
 pieds, aussi? Oh! si je pouvais les laver, et te
 donner une robe neuve! On souffre atrocement,
 n'est-ce pas?.. Maïs je sais... je sais ta constance.
@@ -2891,9 +2815,7 @@ nous, mon Dieu!
 Eh bien... ceci du moins me reste. je n'ai pas ES:
 signé! je n'ai pas signé!... ce que ma maïn n'a pas
 
-écrit, ma main ne l'a pas reconnu!.. Ce qu'ils mon-
-
-treront pour ma honte, ce n'est pas de moi... ce “22
+écrit, ma main ne l'a pas reconnu!.. Ce qu'ils montreront pour ma honte, ce n'est pas de moi... ce “22
 
 n'est pas moi! Dieu, du moins, connaît l'impos- #4
 
@@ -2912,9 +2834,7 @@ Ne fais pas cette chose insensée... Garde-toi de
 
 Es-tu sûr que ce grand courage ne fléchira pas un #38
 
-instant?.. Celui qui l'a donné le retire... EÉcoute-
-
-moi, qui ai défailli... Quant au reste, à quoi bon
+instant?.. Celui qui l'a donné le retire... EÉcoutemoi, qui ai défailli... Quant au reste, à quoi bon
 des paroles?.. Jésus-Christ s'est tu sur la croix... +7
 
 Dieu seul console, au moment suprême... je ne ps:
@@ -2976,7 +2896,7 @@ n'êtes-vous pas heureux?.…
 Heureux?.. Comment pourrions-nous l'être, à
 l'heure où vous allez mourir?...
 On peut être heureux dans un grand deuil... Ce
-n'est pas cela que je veux dire... Que vous manquetil? Oh! réponds-moi!.. Il sera trop tard tout à;
+n'est pas cela que je veux dire... Que vous manquetil? Oh! réponds-moi!.. Il sera trop tard tout
 l'heure... Ce peu de minutes qui nous restent peut
 encore délivrer nos âmes, faire que sans regret je
 m'en aille. Vous n'êtes pas heureux... Pourquoi?.…
@@ -2988,8 +2908,7 @@ ruines. et si faibles, si misérables, si désarmés
 devant le monde, que nous n'osons plus nous
 
 tendre la main, comme si c'était commettre un
-crime... Nous ne savons plus ce qui n'est pas men-
-songe... ni s'il reste une vérité... si la misère et si
+crime... Nous ne savons plus ce qui n'est pas mensonge... ni s'il reste une vérité... si la misère et si
 le mal ne sont pas le dernier mot de cette vie... si
 la seule chose qui dure, ce n'est point un éternel
 sanglot.. Vous étiez notre force, mon père. Nous
@@ -3009,10 +2928,7 @@ mendiants... Vous n'avez pas besoin du monde.
 C'est lui qui attend de vous l'aumône... l'aumône
 d'un peu de bonheur... Il faut être heureux pour
 donner la joie... la joie qui rachète et qui lave...
-tout le sang et toutes les larmes... Il faut être heu190
-
-reux sans attendre... Comment l'humanité vivrait-
-elle, si personne n'osait commencer? Vous portez
+tout le sang et toutes les larmes... Il faut être heureux sans attendre... Comment l'humanité vivraitelle, si personne n'osait commencer? Vous portez
 l'avenir en vous-mêmes... Comprenez-vous, mes pe- 0)
 tits enfants?... Ne croyez pas que ma tête s'égare…
 J'ai dit, je sais bien, autre chose... quand l'orgueil
@@ -3124,7 +3040,7 @@ du hideux spectacle (RE
 nt: Sandro... Sandro... n'entendez-vous pas?... ilme
 semble que l'air résonne d'un son de Iyres invi-
 SANDRO, se traînant sur le sol, baise la robe de Savonarole
-4 Savonarole se retourne, très calme, le doigt sur ses lèvres. «?
+Savonarole se retourne, très calme, le doigt sur ses lèvres.
 Il lève la main vers le ciel. Il reprend le bras de Domi-
 À nique. Tous deux descendent vers la place, où lombreet
 lé, le silence semblent s'accroiître et suspendre le cours du
@@ -3182,6 +3098,4 @@ francs les dix-sept cahiers de cette sixième série complète.
 
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
-au total des prix marqués; ainsi à dater du pre-
-
-mier janvier 1906 la sixième série complète se vend
+au total des prix marqués; ainsi à dater du premier janvier 1906 la sixième série complète se vend

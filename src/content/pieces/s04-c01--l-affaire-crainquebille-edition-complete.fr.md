@@ -35,7 +35,7 @@ Anatole France à l'inauguration de VÉmancipation,
 2% université populaire du quinzième arrondissement.
 Ps: … Nous avons reproduit ce discours, la liberté par l'étude,
 3 à dans le quinzième cahier de la troisième série, Anatole
-#4 France, Cahiers de la Quinzaine;
+4 France, Cahiers de la Quinzaine;
 "24 Dans le même troisième cahier de la première série,
 d'après le Figaro du mercredi 3 janvier 1900, de l'His-
 - toire contemporaine, le conte intitulé Clopinel; d'après
@@ -44,16 +44,14 @@ l'article intitulé Après Clopinel; et d'après le Figaro du
 …. mercredi 17 janvier, de la méme histoire, la conclusion
 24 de l'article intitulé Spectacle consolant; cette conclu-
 … sion est des Universités Populaires. Ces différents
-Es. articles, et celui que nous avons reproduit dans le quin-
-sième cahier de la troisième série, portaient dans le
+Es. articles, et celui que nous avons reproduit dans le quinsième cahier de la troisième série, portaient dans le
 ee. troisième cahier de la première série ce titre général:
-10 Pour et contre le Socialisme. Nous ne les avons pas
+Pour et contre le Socialisme. Nous ne les avons pas
 reproduits dans le quinzième cahier de la troisième
 … série. Les deux premiers de ces articles ont passé dans
 “#2 Monsieur Bergeret à Paris, quatrième volume de l'Hisde toire contemporaine, un volume à trois francs cinquante:
 “5 Dans le septième cahier de la deuxième série, aujour-
-Le. d'hui épuisé, n'existe plus que dans les collections com-
-plètes, d'après la Petite République datée du mardi
+Le. d'hui épuisé, n'existe plus que dans les collections complètes, d'après la Petite République datée du mardi
 16 31 juillet 1900, le discours prononcé l'avant-veille à la
 se salle Wagram par Anatole France pour la Célébration
 de Diderot.
@@ -105,13 +103,11 @@ l'affaire Crainqguebille
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
-o Avant que l'on commence à relire l'histoire de Crain-
-ce quebille, Anatole France me pardonnera d'y épingler
+o Avant que l'on commence à relire l'histoire de Craince quebille, Anatole France me pardonnera d'y épingler
 ù une citation, parce que cette citation jette une lumière
 FRE sur les débats engagés pour et contre la liberté de
 l'enseignement: LUE
-à Le système scolaire serait calqué sur le système judi-
-ciaire: les magistrats de la raison diraient le vrai,
+à Le système scolaire serait calqué sur le système judiciaire: les magistrats de la raison diraient le vrai,
 dans les mêmes conditions et sous les mêmes garanties
 FAR que les juges disent le juste.:
 (Gustave Téry, dans la Petite République
@@ -131,11 +127,8 @@ assis sur un siège élevé, comme si de paraître
 devant des magistrats l'accusé lui-même en recevait un funeste honneur. Au fond de la salle, entre
 les deux assesseurs, M. le président Bourriche
 siégeait. Les palmes d'oflicier d'académie étaient
-attachées sur sa poitrine. Un buste de la République et un Christ en croix surmontaient le pré-
-toire, en sorte que toutes les lois divines et
-humaines étaient suspendues sur la tête de Crain15
-
-quebille. 11 en conçut une juste terreur. N'ayant
+attachées sur sa poitrine. Un buste de la République et un Christ en croix surmontaient le prétoire, en sorte que toutes les lois divines et
+humaines étaient suspendues sur la tête de Crainquebille. 11 en conçut une juste terreur. N'ayant
 point l'esprit philosophique, il ne se demanda pas
 ce que voulaient dire ce buste et ce crucifix et ilne
 rechercha pas si Jésus et Marianne, au Palais,
@@ -194,8 +187,7 @@ d'asperges! parce que les poireaux sont les asperges
 
 comme il descendait la rue Montmartre, madame
 Bayard, la cordonnière, sortit de sa boutique et
-s'approcha de la voiture légumière. Soulevant dé-
-daigneusement une botte de poireaux:
+s'approcha de la voiture légumière. Soulevant dédaigneusement une botte de poireaux:
 
 — Lis ne sont guère beaux, vos poireaux. Combien la botte?
 
@@ -272,8 +264,7 @@ pas suffisante. Il l'exposa simplement et sans art
 — Nom de nom! puisque je vous dis que j'attends À
 mon argent. à
 L'agent 64 se contenta de répondre: 87%
-— Voulez-vous que je vous f.. une contraven-
-tion? Si vous le voulez, vous n'avez qu'à le dire.
+— Voulez-vous que je vous f.. une contravention? Si vous le voulez, vous n'avez qu'à le dire.
 En entendant ces paroles, Crainquebille haussa
 lentement les épaules et coula sur l'agent un regard
 douloureux qu'il éleva ensuite vers le ciel. Et ce.
@@ -287,8 +278,7 @@ des carottes! J'ai soixante ans sonnés. Je suis las.
 Et vous me demandez si je lève le drapeau noir de
 la révolte. Vous vous moquez et votre raillerie est
 Soit que l'expression de ce regard lui eût échappé,
-soit qu'il n'y trouvât pas une excuse à la désobéis-
-sance, l'agent demanda d'une voix brève et rude si
+soit qu'il n'y trouvât pas une excuse à la désobéissance, l'agent demanda d'une voix brève et rude si
 c'était compris.
 Or, en ce moment précis l'embarras des voitures
 était extrême dans la rue Montmartre. Les fiacres,
@@ -298,8 +288,7 @@ pressés les uns contre les autres, semblaient indis- À
 solublement joints et assemblés. Et sur leur immobilité frémissante s'élevaient des jurons et des cris.
 
 Les cochers de fiacre échangeaient de loin, et lentement, avec les garçons bouchers des injures
-héroïques, et les conducteurs d'omnibus, considé-
-rant Crainquebille comme la cause de l'embarras,
+héroïques, et les conducteurs d'omnibus, considérant Crainquebille comme la cause de l'embarras,
 l''appelaient « sale poireau ».
 Cependant sur le trottoir, des curieux se pressaient, attentifs à la querelle. Et l'agent, se voyant
 observé, ne songea plus qu'à faire montre de son
@@ -331,12 +320,10 @@ bon. Suivez-moi.
 
 Crainquebille, dans l'excès de la stupeur et de la
 détresse, regardait avec ses gros yeux brûlés du
-soleil l'agent 64, et de sa voix cassée, qui iui sor-
-
-tait tantôt de dessus la tête et tantôt de dessous
+soleil l'agent 64, et de sa voix cassée, qui iui sortait tantôt de dessus la tête et tantôt de dessous
 les talons, s'écriait, les bras croisés sur sa blouse
 
-— J'ai dit: « Mort aux vaches »? Moi?.. Oh!
+— J'ai dit: « Mort aux vaches Moi?.. Oh!
 
 Cette arrestation fut accueillie par les rires des
 employés de commerce et des petits garçons. Elle
@@ -377,27 +364,22 @@ il avait été témoin de la scène et qu'il affirmait que
 l'agent n'avait pas été insulté, et qu'il s'était totalement mépris. Il donna ses nom et qualités: docteur
 David Matthieu, médecin en chef de l'hôpital
 Ambroise Paré, officier de la Légion d'honneur. En
-d'autres temps, un tel témoignage aurait suflisam-
-
-ment éclairé le commissaire. Mais alors, en France,
+d'autres temps, un tel témoignage aurait suflisamment éclairé le commissaire. Mais alors, en France,
 les savants étaient suspects.
 -Crainquebille, dont l'arrestation fut maintenue,
 passa la nuit au violon et fut transféré, le matin,
 dans le panier à salade, au dépôt. À
-La prison ne lui parut ni douloureuse, ni humi-
-liante. Elle lui parut nécessaire. Ce qui le frappa en
+La prison ne lui parut ni douloureuse, ni humiliante. Elle lui parut nécessaire. Ce qui le frappa en
 y entrant ce fut la propreté des murs et du carrelage.
 — Pour un endroit propre, c'est un endroit
 propre. Vrai de vrai! On mangerait par terre.
 Laissé seul, il voulut tirer son escabeau:; mais il
 s'aperçut qu'il était scellé au mur. Il en exprima
 tout haut sa surprise.
-— Quelle drôle d'idée! Voilà une chose que j'au-
-rais pas inventée, pour sûr.:
+— Quelle drôle d'idée! Voilà une chose que j'aurais pas inventée, pour sûr.:
 S'étant assis, il tourna ses pouces et demeura dans +4
 l'étonnement. Le silence et la solitude l'accablaient.
-Il s'ennuyait et il pensait avec inquiétude à sa voi-
-ture mise en fourrière encore toute chargée de
+Il s'ennuyait et il pensait avec inquiétude à sa voiture mise en fourrière encore toute chargée de
 choux, de carottes, céleri, de mâche et de pissenlit.;
 — Où qu'ils m'ont étouffé ma voiture?
 Le troisième jour, il reçut la visite de son avocat,
@@ -437,10 +419,8 @@ sa vieille gorge un bruit de ferraille et de carreaux
 
 M. l'agent a dit: « Mort aux vaches! » Alors j'ai
 dit: « Mort aux vaches! »
-Il voulait faire entendre qu'étonné par l'impu-
-tation la plus imprévue, il avait, dans sa stupeur,
-répété les paroles étranges qu'on lui prêtait fausse-
-ment et qu'il n'avait certes point prononcées. IL
+Il voulait faire entendre qu'étonné par l'imputation la plus imprévue, il avait, dans sa stupeur,
+répété les paroles étranges qu'on lui prêtait faussement et qu'il n'avait certes point prononcées. IL
 avait dit: « Mort aux vaches! » comme il eût dit::
 « Moi! tenir des propos injurieux, l'avez-vous
 M. le président Bourriche ne le prit pas ainsi.
@@ -508,8 +488,7 @@ la Préfecture, « ces modestes serviteurs de la société,
 fatigues et affrontent des périls incessants, et qui
 pratiquent l'héroïsme quotidien. Ce sont d'anciens
 soldats, et qui restent soldats. Soldats, ce mot dit
-Et maître Lemerle s'éleva, sans effort, à des con-
-sidérations très hautes sur les vertus militaires. Il
+Et maître Lemerle s'éleva, sans effort, à des considérations très hautes sur les vertus militaires. Il
 était de ceux, dit-il, « qui ne permettent pas qu'on
 touche à l'armée, à cette armée nationale à laquelle
 il était fier d'appartenir ».
@@ -562,17 +541,14 @@ Jérôme Crainquebille à quinze jours de prison et
 francs d'amende. Le Tribunal avait fondé sa;
 conviction sur le témoignage de l'agent Matra.
 Mené par les longs couloirs sombres du Palais,
-Crainquebille ressentit un immense besoïin de sym-
-pathie. Il se tourna vers le garde de Paris qui le
+Crainquebille ressentit un immense besoïin de sympathie. Il se tourna vers le garde de Paris qui le
 conduisait et l'appela trois fois:
 Et il soupira:
 — 11 y a seulement quinze jours, si on m'avait
 dit qu'il m'arriverait ce qui m'arrive!.…
 Puis il fit cette réflexion:
 — Ils parlent trop vite, ces messieurs. Ils parlent
-bien mais ils parlent trop vite. On peut pas s'expli-
-
-quer avec eux... Cipal, vous trouvez pas qu'ils
+bien mais ils parlent trop vite. On peut pas s'expliquer avec eux... Cipal, vous trouvez pas qu'ils
 
 Mais le soldat marchait sans répondre ni tourner
 la tête.
@@ -647,8 +623,7 @@ vérité, mais d'après des caractères intrinsèques,
 permanents et manifestes. Il les pèse au poids des
 armes. a-t-il rien de plus simple et de plus sage à
 la fois? Il tient pour irréfutable le témoignage d'un
-gardien de la paix, abstraction faite de son huma-
-nité et conçu métaphysiquement en tant qu'un
+gardien de la paix, abstraction faite de son humanité et conçu métaphysiquement en tant qu'un
 numéro matricule et selon les catégories de la
 police idéale. Non pas que Matra (Bastien), à
 … Cinto-Monte (Corse), lui paraisse incapable d'erreur.
@@ -664,8 +639,7 @@ Bernard ont se tromper. Nous nous trompons
 tous et à tout moment. Nos raisons d'errer sont;
 innombrables. Les perceptions des sens et les
 jugements de l'esprit sont des sources d'illusion et
-des causes d'incertitude. Il ne faut pas se fier au té-
-moignage d'un homme: Testis unus, testis nullus.
+des causes d'incertitude. Il ne faut pas se fier au témoignage d'un homme: Testis unus, testis nullus.
 Mais on peut avoir -foi dans un numéro. Bastien
 Matra, de Cinto-Monte, est faillible. Mais l'agent
 abstraction faite de son humanité, ne se trompe pas.
@@ -676,8 +650,7 @@ Aussi le Tribunal n'a-t-il point hésité à repousser
 le témoignage du docteur David Matthieu, quin'est
 
 qu'un homme, pour admettre celui de l'agent 64, qui
-est une idée pure, et comme un rayon de Dieu des-
-cendu à la barre.
+est une idée pure, et comme un rayon de Dieu descendu à la barre.
 En présidant de cette manière, le président Bour- À
 riche s'assure une sorte d'infaillibilité, et la seulea
 laquelle un juge puisse prétendre. Quand l'homme à
@@ -711,8 +684,7 @@ force publique. Et pour reconnaître ma sagesse, il
 vous suflit d'imaginer que j'ai agi inversement.
 
 Vous verrez tout de suite que c'eût été absurde. Car
-si je jugeais contre la force, mes jugements ne se-
-raient pas exécutés. Remarquez, messieurs, que les à
+si je jugeais contre la force, mes jugements ne seraient pas exécutés. Remarquez, messieurs, que les à
 juges ne sont obéis que tant qu'ils ont la force avec
 eux. Sans les gendarmes, le juge ne serait qu'un « pauvre rêveur. Je me nuiraïs si je donnaiïs tort à un
 gendarme. D'ailleurs le génie des lois s'y oppose. à
@@ -733,15 +705,13 @@ aurais pas condamné à quinze jours de prison et
 francs d'amende. Je vous aurais tenu quitte de
 toute peine. Vous pouvez m'en croire.;
 Ainsi sans doute eût parlé le président Bourriche,
-car il a l'esprit juridique et il sait ce qu'un magis-
-trat doit à la société. Il en défend les principes
+car il a l'esprit juridique et il sait ce qu'un magistrat doit à la société. Il en défend les principes
 avec ordre et régularité. La justice est sociale. IL
 
 n'y a que de mauvais esprits pour la vouloir
 humaine et sensible. On l'administre avec des;
 — règles fixes et non avec les frissons de la chair et
-les clartés de l'intelligence. Surtout ne lui deman-
-dez pas d'être juste, elle n'a pas besoin de l'être
+les clartés de l'intelligence. Surtout ne lui demandez pas d'être juste, elle n'a pas besoin de l'être
 puisqu'elle est justice, et je vous dirai même que
 l'idée d'une justice juste n'a germer que dans la
 tète d'un anarchiste. Le président Magnaud rend,
@@ -783,13 +753,10 @@ on aux vaches! » Et, qu'il eût été condamné à
 quinze jours de prison pour l'avoir crié, c'était, en
 sa pensée, un auguste mystère, un de ces articles
 
-de foi auxquels les croyants adhèrent sans les com-
-prendre, une révélation obscure, éclatante, ado-
-rable et terrible.
+de foi auxquels les croyants adhèrent sans les comprendre, une révélation obscure, éclatante, adorable et terrible.
 Ce pauvre vieil homme se reconnaissait coupable:
 d'avoir mystiquement offensé l'agent 64, commele
-petit garçon qui au catéchisme se reconnaît cou-
-pable du péché d'Ëve. lui était enseigné, par son
+petit garçon qui au catéchisme se reconnaît coupable du péché d'Ëve. lui était enseigné, par son
 arrêt, qu'il avait crié: « Mort aux vaches! » C'était
 donc qu'il avait crié « Mort aux vaches! » d'une
 . façon mystérieuse, inconnue de lui-même. Il était à.
@@ -846,11 +813,8 @@ charrette, tandis que, devant lui, les moïneaux,
 comme lui matineux et pauvres, qui cherchaient
 leur vie sur la chaussée, s'envolaient en gerbe avee
 son cri familier: Des choux, des navets, des
-carottes! Une vieille ménagère qui s'était appro-
-chée, lui disait en tâtant des céleris:
-— Qu'est-ce qui vous est donc arrivé, père Crain-
-
-quebille? Il y a bien trois semaines qu'on ne vous
+carottes! Une vieille ménagère qui s'était approchée, lui disait en tâtant des céleris:
+— Qu'est-ce qui vous est donc arrivé, père Crainquebille? Il y a bien trois semaines qu'on ne vous
 a pas vu. Vous avez été malade? Vous êtes un peu
 — Je vas vous dire, m'ame Maiïlloche, j'ai fait le À
 Rien n'est changé dans sa vie, à cela près qu'il à
@@ -858,12 +822,11 @@ chez le troquet plus souvent que d'habitude,
 parce qu'il a l'idée que c'est fête, et qu'il a fait
 connaissance avec des personnes charitables. Il
 rentre, un peu gai, dans sa soupente. Étendu dans
-le plumard, il ramène sur lui les sacs que lui a;
+le plumard, il ramène sur lui les sacs que lui
 prêtés le marchand de marrons du coin et qui lui
 servent de couverture, et il songe: « La prison, il
 faut. Mais on est tout de même mieux chez soi. »
-Son contentement fut de courte durée. Il s'aper-
-çut vite que les clientes lui faisaient grise mine.
+Son contentement fut de courte durée. Il s'aperçut vite que les clientes lui faisaient grise mine.
 — Des beaux céleris, m'ame Cointreau!
 — Il ne me faut rien.
 — Comment, qu'il ne vous faut rien? Vous vivez
@@ -871,8 +834,7 @@ pourtant pas de l'air du temps.
 Et m'ame Cointreau, sans lui faire de réponse,
 rentrait fièrement dans la grande boulangerie dont
 elle était la patronne. Les boutiquièxes et les con-;
-cierges, naguère assidues autour de sa voiture ver-
-doyante et fleurie, maintenant se détournaient de
+cierges, naguère assidues autour de sa voiture verdoyante et fleurie, maintenant se détournaient de
 lui. Parvenu à la cordonnerie de l'Ange Gardien,
 
 19,
@@ -903,9 +865,7 @@ Madame Laure, comme elle le reconnaissait ellemême, n'était pas duchesse. Ce n
 monde qu'elle s'était fait une idée du panier à
 
 salade et du Dépôt. Mais on peut être honnête dans
-tous les états, pas vrai? Chacun a son amour51
-
-propre, et l'on n'aime pas avoir affaire à un individu
+tous les états, pas vrai? Chacun a son amourpropre, et l'on n'aime pas avoir affaire à un individu
 qui sort de prison. Aussi ne répondit-elle à Crain- “4
 quebille qu'en simulant un haut-le-cœur. Et le vieux à
 marchand ambulant, ressentant l'affront, hurla
@@ -940,8 +900,7 @@ cela qu'il lui faisait un reproche. Il ne la méprisait
 pas d'être ce qu'elle était. Il l'en estimait plutôt, la
 sachant économe et rangée. Autrefois ils causaient
 tous deux volontiers ensemble. Elle lui parlait de
-ses parents qui habitaient la campagne. Et ils for-
-maient tous deux le même vœu de cultiver un petit
+ses parents qui habitaient la campagne. Et ils formaient tous deux le même vœu de cultiver un petit
 jardin et d'élever des poules. C'était une bonne
 cliente. De la voir acheter des choux au petit Martin, un sale coco, un pas grand chose, il en avait
 reçu un coup dans l'estomac; et quand il l'avait
@@ -987,8 +946,7 @@ en gueule. C'est que, trouvant la société imparfaite,;
 nécessaires, et que ses pensées ne se déroulaient
 pas dans sa tête avec ordre et mesure.
 Le malheur le rendait injuste. Il se revanchait
-sur ceux qui ne lui voulaient pas de mal et quel-
-quefois sur de plus faibles que lui. Aïnsi quil
+sur ceux qui ne lui voulaient pas de mal et quelquefois sur de plus faibles que lui. Aïnsi quil
 donna une gifle à Alphonse, le petit du marchand
 de vin, qui lui avait demandé si l'on était bien à
 l'ombre. Il le gifla et lui dit:
@@ -1014,13 +972,10 @@ me rafraîchir. Sûr que j'ai quelque chose de brûlé À
 dans l'intérieur. Et il y a encore que la boisson:
 comme rafraîchissement.
 Souvent il lui arrivait de manquer la criée nale et il ne se fournissait plus que de marchandise
-avariée qu'on lui livrait à crédit. Un jour se sen-
-tant les jambes molles et le cœur las, il laissa sa
-voiture dans la remise et passa toute la sainte jour-
-née à tourner autour de l'étal de madame Rose, la.
+avariée qu'on lui livrait à crédit. Un jour se sentant les jambes molles et le cœur las, il laissa sa
+voiture dans la remise et passa toute la sainte journée à tourner autour de l'étal de madame Rose, la.
 tripière, et devant tous les troquets des Halles. Le
-soir, assis sur un panier, il songea, et il eut con-
-science de sa déchéance. Il se rappela sa force première et ses antiques travaux, ses longues fatigues!
+soir, assis sur un panier, il songea, et il eut conscience de sa déchéance. Il se rappela sa force première et ses antiques travaux, ses longues fatigues!
 et ses gains heureux, ses jours innombrables, égaux
 et pleins; les cent pas, la nuit, sur le carreau des -
 Halles, en attendant la criée; les légumes enlevés À
@@ -1047,18 +1002,12 @@ et incapable de se relever. Tous les gens qui pas- NOR
 
 Satan, de
 
-La misère vint, la misère noire. Le vieux mar-
-
-chand ambulant, qui rapportait autrefois du fau-
-
-bourg Montmartre les pièces de cent sous à plein
+La misère vint, la misère noire. Le vieux marchand ambulant, qui rapportait autrefois du faubourg Montmartre les pièces de cent sous à plein
 
 sac, maintenant n'avait plus un rond. C'était
 l'hiver. Expulsé de sa soupente, il coucha sous des
 charrettes, dans une remise. Les pluies ayant
-tombé pendant vingt-quatre jours, les égouts dé-
-
-bordèrent et la remise fut inondée.
+tombé pendant vingt-quatre jours, les égouts débordèrent et la remise fut inondée.
 
 ; Aceroupi dans sa voiture, au-dessus des eaux tra
 
@@ -1081,8 +1030,7 @@ m'en servirais pas?
 
 Il se leva et sortit dans la rue. Il n'était guère
 plus de onze heures. Il faisait un temps aigre et
-noir. Une bruine tombait, plus froide et plus péné-
-trante que la pluie. De rares passants se coulaient
+noir. Une bruine tombait, plus froide et plus pénétrante que la pluie. De rares passants se coulaient
 au ras des murs.
 
 Crainquebille longea l'église Saint - Eustache et
@@ -1092,9 +1040,7 @@ l'on voyait, autour de la flamme, tomber une petite
 pluie rousse. L'agent la recevait sur son capuchon,
 
 à il avait l'air transi, mais soit qu'il préférât la lumière à l'ombre, soit qu'il fût las de marcher, il
-restait sous son candélabre, et peut-être s'en faisait-
-
-il un compagnon, un ami. Cette flamme tremblante
+restait sous son candélabre, et peut-être s'en faisaitil un compagnon, un ami. Cette flamme tremblante
 
 était son seul entretien dans la nuit solitaire. Son
 immobilité ne paraissait pas tout à fait humaine;
@@ -1142,8 +1088,7 @@ Le sergot secoua la tête sous son capuchon
 
 — S'il fallait empoigner tous les poivrots qui
 
-disent ce qui n'est pas à dire, y en aurait de l'ou-
-vrage!.. Et de quoi que servirait?
+disent ce qui n'est pas à dire, y en aurait de l'ouvrage!.. Et de quoi que servirait?
 
 Crainquebille, accablé par ce dédain magnanime,
 demeura longtemps stupide et muet, les pieds.
@@ -1332,9 +1277,7 @@ Premier cahier. — Compte rendu de congrès; bilan;
 attentats dans l'Yonne (affaires Hervé et Fradet),
 mémoires et dossiers pour les libertés du personnel
 enseignant en France; une mauvaise affaire pour les
-socialistes ministériels; où l'administration universi-
-
-taire, ayant cru lever un lièvre, leva un sanglier; les
+socialistes ministériels; où l'administration universitaire, ayant cru lever un lièvre, leva un sanglier; les
 droits politiques des fonctionnaires; un cahier de
 72 pages,: un franc
 
@@ -1356,8 +1299,7 @@ but; le socialisme et la vie; de la propriété individuelle
 les radicaux et la propriété individuelle; propriété individuelle et code bourgeois; la propriété individuelle.
 et l'impôt; la propriété individuelle et le droit succes
 soral; la Révolution française et le droit successoral;
-la propriété individuelle et les lois bourgeoises d'expro-
-priation; la propriété individuelle et les sociétés de
+la propriété individuelle et les lois bourgeoises d'expropriation; la propriété individuelle et les sociétés de
 commerce; propriété individuelle et sociétés anonymes;
 avertissement: Charles Péguy, de la raison;
 quatrième cahier de la troisième série, un très fort
@@ -1366,8 +1308,7 @@ Ce cahier n'est pas mis dans le commerce. Nous ne le
 vendons que dans les collections complètes. -
 GEORGES DELAHACHE. — Juifs, cinquième cahier de
 la troisième série, un cahier de 72 pages, un franc
-- Dans le même cahier: l'affaire Hervé, documents, ar-
-ticles de Hervé: à bas la guerre; nos intérêts en Chine;:
+- Dans le même cahier: l'affaire Hervé, documents, articles de Hervé: à bas la guerre; nos intérêts en Chine;:
 embarquement pour la Chine; au conseil général de
 l'Yonne; à quoi servent les armées permanentes; deux
 cas de refus de service militaire en Hollande. — Charles:
@@ -1376,10 +1317,9 @@ JEAN HuGurs. — La Grève, trois actes, sixième
 cahier de la troisième série, un cahier de 72 pages,
 - un franc
 Dans le même cahier: une lettre de Maurice Bouchor;:
-Charles Péguy, Racine, l'affaire Téry, une lettre à:
+Charles Péguy, Racine, l'affaire Téry, une lettre
 ; Septième cahier.— Polémiques et dossiers: M. Gus__ tave Téry: réponse de M. Gustave Téry; réponses
-particulières à M. Gustave Téry; une lettre de M. Gal-
-louédec; un cahier de 72 pages, épuisé,
+particulières à M. Gustave Téry; une lettre de M. Gallouédec; un cahier de 72 pages, épuisé,
 n'existe plus que dans les collections complètes.
 : Dans le même cahier: Gustave Hervé, l'Anniversaire
 de Wagram; à nos amis de l'Yonne; Félicien Challaye,
@@ -1466,8 +1406,7 @@ francs, s'ils ne sont pas épuisés, ou en épuisement, les
 vingt et un cahiers énoncés ci-dessus.
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins au
-total des prix marqués; ainsi à partir du premier jan-
-vier 1903 la troisième série, si des collections nous en
+total des prix marqués; ainsi à partir du premier janvier 1903 la troisième série, si des collections nous en
 restent, sera vendue au moins trente-trois francs.
 
 Nos Cahiers sont édités par des souscriptions men-:
@@ -1502,4 +1441,4 @@ reçoit pour l'administration et pour la librairie tous.
 les jours de la semaine, le dimanche excepté, — de
 huit heures à onze heures et de une heure à sept
 M. Charies Péguy, gérant des cahiers, reçoit pour À
-la rédaction le jeudi soir de deux heures à cinq heures. «;
+la rédaction le jeudi soir de deux heures à cinq heures.

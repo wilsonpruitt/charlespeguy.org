@@ -46,8 +46,7 @@ royaumes mais à y opérer une révolution
 de l'intérieur. Et il n'est pas étonnant que
 cette philosophie, qui est une philosophie
 de l'intérieur, aboutit non point à déplacer
-des royaumes par un mouvement exté-
-rieur, par une translation externe, par;
+des royaumes par un mouvement extérieur, par une translation externe, par;
 une subslitulion extrinsèque, mais à les
 rénover, à les creuser, à les rendre eux- “4
 mêmes en y opérant une interne révolu-
@@ -63,8 +62,7 @@ Et c'est une dynamique.
 4 séparées que des royaumes. Car il a
 peut-être rien qui soit aussi contraire aux
 arts plastiques que les arts musiciens. Et
-À 14 il n'y a peut-être rien qui soit aussi contra-
-rié aux « sciences » mathémaliques que “.
+À 14 il n'y a peut-être rien qui soit aussi contrarié aux « sciences » mathémaliques que “.
 8 les « sciences » naturelles. Et dans la
 4 à morale je distinguerais peut-être une
 4 civique qui aurait mes préférences.
@@ -86,8 +84,7 @@ et anteplatonicien, il ne s'agit pas que
 Le bergsonisme ne fait pas des cartes
 De même que les révolutions de l'anatomie et de la physiologie dans les sciences
 naturelles n'ont point consisté à opposer
-le règne animal au règne végétal ou réci-
-proquement mais à poursuivre parallèle-;
+le règne animal au règne végétal ou réciproquement mais à poursuivre parallèle-;
 ment dans les deux règnes une certaine
 
 [2 resituation de la pensée en face de deux
@@ -128,9 +125,7 @@ n'est pas inférieur quand il n'est pas de.
 basse qualité. On ne me fera jamais dire
 que le comique est un genre inférieur.
 Quant au tragique j'avoue que je ne vois
-rien d'humain qui soit supérieur au pathé-
-tique de Sophocle et que pour un demi-
-chœur d'Antigone je donnerais les trois
+rien d'humain qui soit supérieur au pathétique de Sophocle et que pour un demichœur d'Antigone je donnerais les trois
 Critiques précédées d'un demi-quarteron
 
 pas dire seulement, ce qui est entendu, a
@@ -139,7 +134,7 @@ que je les donnerais en beauté, sub specie A
 tique infiniment plus et autrement que à
 4 dans cette critique une connaissance, un
 
-2 IL faut renoncer à cette idée que la
+IL faut renoncer à cette idée que la
 Ï 2 passion soit trouble (ou obscure) et que
 3 la raison soit claire, que la passion soit
 1 4 confuse et que la raison soit distincte. ‘#50
@@ -150,7 +145,7 @@ raisons au contraire qui courent loujours
 4 après les encombrements de leurs trains
 …._O de bagages. On ne peut même pas dire
 3 que la passion est riche et que la raison
-É et que la sagesse est pauvre, car il y a:
+É et que la sagesse est pauvre, car il y
 8 des passions qui sont plates comme des A
 
 note sur M. Bergson NE: je
@@ -180,11 +175,9 @@ différents royaumes qu'il faut chercher,
 à qu'il faut poursuivre, qu'il faut reconnaître des hiérarchies, des subordinations,;
 
 ; des coordinations parallèles. De valeur,
-de mérite, de clair, de trouble, de distinc-
-tion, de profondeur. Des hiérarchies parallèles,comparables, correspondantes, et sans
+de mérite, de clair, de trouble, de distinction, de profondeur. Des hiérarchies parallèles,comparables, correspondantes, et sans
 
-Ici encore les uns et les autres se trom-
-pent, ou plutôt les uns et les autres abusent.
+Ici encore les uns et les autres se trompent, ou plutôt les uns et les autres abusent.
 
 Mais de la même erreur et du même abu-; En
 passions profondes et des passions super-
@@ -223,16 +216,11 @@ Au fond c'est partout le même débat.
 C'est le secret de la situation faite à l'histoire et à la sociologie et surtout aux
 historiens et aux sociologues dans les
 temps modernes. Les historiens veulent
-n'avoir qu'à être des historiens pour con-
-naître le- passé. Les sociologues veulent
-n'avoir qu'à être des sociologues pour con-
-naître les sociétés de l'homme. Un instant,
-messeigneurs. Il y faut aussi la connais-
+n'avoir qu'à être des historiens pour connaître le- passé. Les sociologues veulent
+n'avoir qu'à être des sociologues pour connaître les sociétés de l'homme. Un instant,
+messeigneurs. Il y faut aussi la connaissance du passé, et des sociétés, et de
 
-sance du passé, et des sociétés, et de
-
-Les poètes sont infiniment plus raison-
-nables, (on s'y attendait), qui admettent
+Les poètes sont infiniment plus raisonnables, (on s'y attendait), qui admettent
 très bien qu'il ne suffit pas de faire des
 
 vers pour être des poêtes. Et s'ils ne.:ÉL0eS
@@ -263,7 +251,7 @@ pathétique des Grecs et des Français,
 étant classique, est infiniment plus clair à
 que la critique allemande, qui est roman-
 5 tique. Ou plutôt le pathétique des Grecs
-;: et des Français est clair et la critique À
+et des Français est clair et la critique À
 allemande ne l'est pas. Et la critique des
 Grecs et des Français, étant classique, est
 à profonde, et le pathétique allemand, étant
@@ -271,9 +259,7 @@ romantique, ne l'est pas. à
 Rien n'est aussi clair que les invocations
 ou que les lamentations d'Antigone. Rien
 n'est aussi clair que les stances de à
-Polyeucte. Par contre rien n'est plus pro-
-fond qu'une analyse et une critique plato-
-nicienne, rien n'est plus profond qu'une
+Polyeucte. Par contre rien n'est plus profond qu'une analyse et une critique platonicienne, rien n'est plus profond qu'une
 : analyse et une critique de Pascal.
 
 Cessons donc d'attribuer certaines qualités à certains ordres comme des pardessus. Mais poursuivons parallèlement à
@@ -313,8 +299,7 @@ leurs troubles artificiels, (intellectuels), ne
 leur ont jamais permis d'obtenir que des
 profondeurs superficielles. Quand Hugo
 suivait sa nature, son génie classique il
-était profond et clair. Quand il s'esquin-
-tait pour être et à être romantique il se
+était profond et clair. Quand il s'esquintait pour être et à être romantique il se
 donnait un mal de chien pour obtenir un
 (Je ne veux point, comme ils disent,
 passionner le débat, et faire des person-
@@ -327,8 +312,7 @@ dévête de sa clarté, et, quand il est Que
 Comme les romantiques ne pouvaient LCR
 nier que les classiques fassent clairs, ils
 ont entrepris de se rattraper sur la pro #2
-4 _fondeur. Ils ont voulu se faire les spécia-
-listes de la profondeur. Mais ceux qui
+4 _fondeur. Ils ont voulu se faire les spécialistes de la profondeur. Mais ceux qui
 à sont profonds ne se sont jamais dit qu'ils
 É. Et ils ne l'ont jamais dit aux autres. ME
 Alors les romantiques ont feint qu'il y AUS
@@ -518,8 +502,7 @@ NE qu'elle descend, qu'elle tombe du futur
 au passé par le ministère, par l'accom- “#4
 plissement du présent ne change pas seu-
 LES lement de date, qu'elle change d'être.
-Qu'elle ne change pas seulement de calen-
-ne drier, qu'elle change de nature. Que le
+Qu'elle ne change pas seulement de calenne drier, qu'elle change de nature. Que le
 passage par le présent est le revêtement À
 78 d'un autre être. Que c'est le dévétement
 mémoire). Mais quand ce même philo
@@ -556,8 +539,7 @@ négligence qui consiste à ne pas considérer,
 à négliger de considérer que du tout neuf
 ‘LS n'est pas forcément du lout nouveau. à
 Beaucoup de contre sens viennent de là,
-"4 d'erreurs de jugement. On croit généra-
-lement qu'il suffit qu'une idée soit neuve
+"4 d'erreurs de jugement. On croit généralement qu'il suffit qu'une idée soit neuve
 pour qu'elle soit nouvelle. On croit qu'il
 ES suffit qu'une idée soit neuve pour qu'elle Fire
 Ron n'ait jamais servi. Quelle erreur. Elle a
@@ -655,14 +637,10 @@ la philosophie cartésienne a commencé
 
 par être une dénonciation du désordre. -
 
-La philosophie cartésienne « été essen-
-
-tiellement une philosophie de l'ordre
+La philosophie cartésienne « été essentiellement une philosophie de l'ordre
 
 comme la philosophie bergsonienne est
-essentiellement une philosophie de la réa-
-
-lité. Qu'ensuite Descartes ait réussi à
+essentiellement une philosophie de la réalité. Qu'ensuite Descartes ait réussi à
 
 imposer l'ordre et même l'idée d'ordre, et
 
@@ -670,9 +648,7 @@ pour toujours, à l'univers pensant, et
 
 même à soi-même, c'est une autre ques-
 
-; tion, c'est une question ultérieure. Qu''en-
-
-suite Bergson ait réussi à imposer à l'uni-
+; tion, c'est une question ultérieure. Qu''ensuite Bergson ait réussi à imposer à l'uni-
 
 : vers pensant, et même à soi-même, et pour
 
@@ -690,9 +666,7 @@ le destinés à réussir totalement plus que
 
 César ou que Napoléon. Mais il serait
 
-aisé de montrer que Bergson est infini-
-
-ment meilleur bergsonien que Descartes
+aisé de montrer que Bergson est infiniment meilleur bergsonien que Descartes
 
 ne fut bon cartésien. Et je dirai: Il est
 
@@ -705,15 +679,14 @@ RES: ment un meilleur bergsonien que Des- si
 mieux écrire discours de la méthode pour
 4 bien conduire sa raison et pour chercher
 558 ou pour trouver la vérité dans les sciences.
-Cest un programme, hélas, et c'est pres-
-que un programme électoral. Et il a été a
+Cest un programme, hélas, et c'est presque un programme électoral. Et il a été a
 . presque aussi peu réaliséqu'un programme
 280 électoral. Quand au lieu de relire le pro- À
 (4 programme on considère les résultats,
 qu'est-ce qu'on voit. On voit que Descartes à
 a élé un grand philosophe, un grand
 :7 métaphysicien, un grand mathématicien,
-#40 un grand savant. Mais un grand parmi
+40 un grand savant. Mais un grand parmi
 ME d'autres, à son rang au même rang que
 
 d'autres, de la même sorte et de la même
@@ -745,7 +718,7 @@ jamais rien découvert, que les tables pour 4°
 LE que les autres découvrent.:
 Ou plutôt les tables pour que les autres “10
 FTP aient inventé, les tables pour que: les
-1 Les tables de Bacon n'ont jamais servi
+Les tables de Bacon n'ont jamais servi
 RES u'aux historiens des inventions à expli-
 LES quer comment les inventions avaient été RES
 DS. faites, après qu'elles avaient été faites. "41
@@ -793,7 +766,7 @@ l'idée de tourbillon est claire et distincte,
 ce sera et parce qu'elle sera plus commode
 “3 et parce qu'elle épousera de plus près de
 Le. nouveaux aspects de la réalité physique.
-44 Ce n'est pas en fonction du discours de la
+Ce n'est pas en fonction du discours de la
 
 méthode que l'on réadoptera l'hypothèse
 des tourbillons cartésiens. Ce ne sera
@@ -862,8 +835,7 @@ tout son système à partir de sa méthode.
 Il ne la pas même déduit tout entier à
 partir de ses principes. Il ne l'a pas même
 déduit tout entier à partir. du je pense.
-È Lui-même il disait qu'il fallait que l'expé-
-rience alläât au devant de la déduction. Il
+È Lui-même il disait qu'il fallait que l'expérience alläât au devant de la déduction. Il
 1 entendait par là, et fort explicitement,!
 À que la déduction ou mathématique ou
 4 logique ou métaphysique et généralement
@@ -880,8 +852,7 @@ suspens devant deux ou plusieurs solutions SU.
 
 ET effectives égales, devant deux ou plusieurs
 5 solutions réalisées ou réalisables égales, te
-devant deux ou plusieurs solutions de réali-
-salion du détail. C'est pour arbitrer entre
+devant deux ou plusieurs solutions de réalisalion du détail. C'est pour arbitrer entre
 ces deux ou plusieurs solutions égales, c'est-
 ES à-dire qui satisfont également aux condi- « PATE
 mie tions de la dernière solution déductive, on
@@ -902,8 +873,7 @@ qu'une sortie de la place méme vienne au -
 devant d'elle et lui donne la main. En ce
 point intermédiaire entre l'homme et.le
 monde, en ce point intermédiaire entre;
-l'esprit et la réalité, en ce point intermé-
-diaire où s'établit la liaison entre l'armée
+l'esprit et la réalité, en ce point intermédiaire où s'établit la liaison entre l'armée
 de secours et littéralement le secours propre
 de la place, en ce point s'opère pour
 Descartes la connaissance de la vérité.
@@ -1025,11 +995,9 @@ de quoi, repassant mon esprit sur tous les
 Dee objets qui s'étaient jamais présentés à
 ; mes sens, j'ose bien dire que je n'y ai
 remarqué aucune chose que je ne pusse
-assez commodément expliquer par les prin-
-cipes que j'avais trouvés. Mais il faut aussi
+assez commodément expliquer par les principes que j'avais trouvés. Mais il faut aussi
 2 que j'avoue que la puissance de la nature:
-est si ample et si vaste, que ces prin-
-cipes sont si simples et si généraux, que je
+est si ample et si vaste, que ces principes sont si simples et si généraux, que je
 
 4 ne remarque quasi plus aucun effet particu-
 4% lier que d'abord je ne connaisse qu'il peut; si
@@ -1099,8 +1067,7 @@ reoa. Qu'importe. Parce qu'un voyage est
 singulier, parce qu'il est interrompu, parce
 : qu'il est discontinu et même parce qu'il -
 ESS est partiellement rétrograde ce n'est pas Me
-ane raison pour ne pas le faire. Qu'im-
-porte, si le voyage est hardi, si la tenta- à
+ane raison pour ne pas le faire. Qu'importe, si le voyage est hardi, si la tenta- à
 LE tive est féconde, si l'aventure est récom-
 5:00 pensée. Ce qui revient à dire qu'une “4
 RAS grande philosophie n'est point une philo-
@@ -1193,8 +1160,7 @@ Dot. de la Méthode veut que l'on n'avance que
 nègre partie, se plaçant, allant se placer par le
 ne Je pense au cœur même de l'être et du
 À D. moi et de la pensée, procède pour partir au
-14 ne bond le plus prodigieux qu'il y ait peut-
-étre dans l'histoire des métaphysiques. ne
+14 ne bond le plus prodigieux qu'il y ait peutétre dans l'histoire des métaphysiques. ne
 
 Dirai-je qu'il se l'est donné bonne et
 1508 que peut-être il a besoin plus tôt qu'il
@@ -1209,8 +1175,7 @@ Peut-être que s'il n'eût jamais les cieux
 ne les eût point aussi aisément déduits.
 Peut-être que s'il n'eût jamais les cieux je
 ; il ne les eût point trouvés. Et ainsi de HSE
-que s'il n'eûl point une certaine expé-
-rience des cieux il n'eût point aussi
+que s'il n'eûl point une certaine expérience des cieux il n'eût point aussi
 aisément une telle connaissance de l'évé- Mas ne
 “4 nement des cieux. Il veut qu'il n'ait FAT
 besoin que l'expérience vint au devant de
@@ -1234,20 +1199,17 @@ Jeu, des minéraux et quelques autres telles à
 à. et les plus simples, et par conséquent les
 “740 plus aisées à connaître. Bien peu de phy-
 1088 à connaître. dans Descartes n'avais-je
-point raison de parler d'un certain pro-
-granune électoral, et d'un certain ton d'un
+point raison de parler d'un certain progranune électoral, et d'un certain ton d'un
 » » « 4 programme électoral. Mais qu'est-ce à
 À 3 dire, sinon que je trouve ici un renforce-
-148 ment de ce que j'avançais au commence-
-ment de cette note, que ce n'est pas
+148 ment de ce que j'avançais au commencement de cette note, que ce n'est pas
 Ne parce que la méthode de Descartes est
 ; bonne qu'elle a une aussi haute for-
 Es tune, mais parce qu'elle est une méthode.
 “4 C'est pour cela qu'elle s'est inscrile dans #2
 4 l'histoire éternelle. À
 
-Ce n'est point parce qu'elle est victo-
-rieuse, c'est parce qu'elle se bat. Ce n'est +1
+Ce n'est point parce qu'elle est victorieuse, c'est parce qu'elle se bat. Ce n'est +1
 point parce qu'elle arrive, c'est parce
 qu'elle part.
 C'est uniquement, au fond, parce qu'elle
@@ -1260,13 +1222,11 @@ une morale, une morale de pensée ou #3
 une morale pour penser; ou si l'on veut Le
 tout est morale chez lui. Parce que tout À
 est conduite et volonté de conduite.
-Sa morale provisoire est une morale pro-
-visoire pour la conduite de la conduite
+Sa morale provisoire est une morale provisoire pour la conduite de la conduite
 (ordinaire, personnelle et sociale). Sa ne
 méthode est une morale instauratoire pour de
 la conduite de la pensée. Mais l'une et
-l'autre sont conjointes et ont exacte-
-ment le même procédé): « Ma seconde
+l'autre sont conjointes et ont exactement le même procédé): « Ma seconde
 maxime était d'être le plus ferme et le Re.
 
 Et plus résolu en mes actions que je pour-:
@@ -1323,8 +1283,7 @@ point pour de faibles raisons, encore que
 ce n'ait peut-être été au commencement
 que le hasard seul qui les ait déterminés
 à le choisir; car, par ce moyen, s'ils ne
-vont justement où ils désirent, ils arrive-
-ront au moins à fin quelque part où
+vont justement où ils désirent, ils arriveront au moins à fin quelque part où
 vraisemblablement ils seront mieux que
 dans le milieu d'une forêt. »
 
@@ -1332,9 +1291,7 @@ Toute la question est précisément de
 savoir si la pensée aussi n'est pas mieux
 n'importe où que dans le milieu d'une
 Jorêt. Ce que je dis, c'est que justement
-parce que sa morale élail provisoire, jus-
-
-tement parce qu'elle n'entrait pas dans:
+parce que sa morale élail provisoire, justement parce qu'elle n'entrait pas dans:
 È son système, parce qu'elle n'était pas
 . arrêtée, parce que pour ainsi dire elle:
 È n'était pas officielle, justement parce qu'il a
@@ -1359,12 +1316,11 @@ pas arriver. Arriver où on n'allait pas
 plutôt que de ne pas arriver. Avant tout
 arriver. Tout, plutôt que de vaguer. Et
 que la plus grande erreur c'est encore
-d'« errer »: voilà sa nature méme et la
+d'« errer voilà sa nature méme et la
 race de son secret.
 ù Je ne voudrais point le rendre suspect:
 ; reproché à la philosophie bergsonienne,
-turt, selon moi, et un jour je le mon-
-trerai), mais enfin il est évident que la
+turt, selon moi, et un jour je le montrerai), mais enfin il est évident que la
 philosophie cartésienne est un système de
 pensée où arriver est d'un prix éminent, il
 et même d'un prix unique. Tout, plutôt!
@@ -1395,9 +1351,7 @@ son auteur, qui même ne vécut pas peut-
 4 une fois pour toutes mais celle qui les
 4 pose; qu'une grande philosophie n'est.
 point celle qui prononce, mais celle qui ne
-Descartes promet une méthode de certi-
-
-note sur M. Bergson
+Descartes promet une méthode de certinote sur M. Bergson
 tude et aussitôt après et presque en même
 temps il tombe dans des propositions qui
 bientôt nous paraissent scandaleuses. Ou
@@ -1418,9 +1372,7 @@ Une grande philosophie n'est pas celle
 qui introduit une inquiétude, qui ouvre
 un ébranlement.
 Le monde n'a peut-être pas suivi la
-méthode cartésienne et Descartes certai-
-
-nement ne l'a pas suivie. Mais Descartes
+méthode cartésienne et Descartes certainement ne l'a pas suivie. Mais Descartes
 
 et le monde ont suivi l'ébranlement carté-
 
@@ -1432,8 +1384,7 @@ qui a pris quelque chose.
 
 Une grande philosophie n'est pas celle
 qui est invincible en raisonnements. Ce à
-n'est même pas celle qui une fois, une cer-
-taine fois, a vaincu. C'est celle qui, une
+n'est même pas celle qui une fois, une certaine fois, a vaincu. C'est celle qui, une
 Jois, s'est battue.
 Et les petites philosophies, qui ne sont
 pas même des philosophies, sont celles qui SET
@@ -1454,14 +1405,12 @@ qu'il faut savoir, c'est si les premiers mots
 3 de ce Discours de la Méthode ont été le
 
 note sur M. Bergson Ar.
-point d'origine d'un immense ébranle-
-ment, d'une onde, d'une immense vague
+point d'origine d'un immense ébranlement, d'une onde, d'une immense vague
 circulaire dans l'océan de la pensée. Sur
 la face de l'océan de la pensée.
 Une grande philosophie n'est pas celle
 qui est le premier en composition. Ce n'est
-À pas celle qui est le premier en disserta-
-tion. C'est dans les classes de philosophie
+À pas celle qui est le premier en dissertation. C'est dans les classes de philosophie
 « que l'on vainc par des raisonnements.
 Mais la philosophie ne pas en classes
 de philosophie.
@@ -1475,16 +1424,13 @@ plus, que de vouloir avoir raison contre “4
 même grossièreté que d'assister à un
 débat de philosophie avec la pensée de
 voir un des deux adversaires avoir tort
-ou avoir raison. Contre l'autre. Parlez-
-
-moi seulement d'une philosophie qui est
+ou avoir raison. Contre l'autre. Parlezmoi seulement d'une philosophie qui est
 É-- plus délibérée, comme celle de Descartes, EN
 
 ou plus profonde, ou plus attentive, ou;
 
 plus pieuse. Ou plus déliée. Parlez-moi
-d'une philosophie sévère. Ou d'une philo-
-sophie heureuse. Parlez-moi surtout d'une AS
+d'une philosophie sévère. Ou d'une philosophie heureuse. Parlez-moi surtout d'une AS
 certaine fidélité à la réalité, que je mets
 au dessus de tout.
 Une grande philosophie n'est pas enfin nus
@@ -1512,8 +1458,7 @@ entente et sans entendement. Que la
 Mais qu'elle soit à ce point livrée à l'en- à
 vers, c'est une véritable gageure. On.
 aurait beaucoup fait, on aurait peut-être
-tout fait si seulement on forçait les com-
-de bataille. Acies suas, non alienas, non
+tout fait si seulement on forçait les comde bataille. Acies suas, non alienas, non
 Ê Aujourd'hui je ne veux que marquer à
 des temps. De même que Hugo est clas- à
 sique au premier temps et romantique au
@@ -1523,11 +1468,7 @@ deuxième, de même une philosophie peut
 
 ; lement à plusieurs temps. Il y a aussi
 
-l'histoire. Quoi qu'on pense métaphysique-
-
-ment du système cartésien, quand Des-
-
-cartes avait fait éclater sa méthode, cum
+l'histoire. Quoi qu'on pense métaphysiquement du système cartésien, quand Descartes avait fait éclater sa méthode, cum
 
 irrupisset, quand il avait fait entrer par
 
@@ -1564,16 +1505,13 @@ revient essentiellement à remonter vivement une pente et à la faire remonter
 5 vivement à l'homme et à l'esprit.;
 Dans le sens où le cartésianisme a
 consisté à remonter la pente du désordre,
-; dans le même sens le berg'sonisme a con-
-sisté à remonter la pente du tout fait.
+; dans le même sens le berg'sonisme a consisté à remonter la pente du tout fait.
 Toute grande philosophie a un premier
 ”. temps, qui est un temps de méthode, et
 : un deuxième temps, qui est un temps de À
 : métaphysique. Quand on dit que le plato-
-- nisme est une philosophie de la dialec-
-tique, et le cartésianisme une philosophie
-de l'ordre, et le bergsonisme une philoso-
-phie du réel, on les prend tous les trois;
+- nisme est une philosophie de la dialectique, et le cartésianisme une philosophie
+de l'ordre, et le bergsonisme une philosophie du réel, on les prend tous les trois;
 dans leur temps de méthode. Quand on
 dit que le platonisme est une philosophie à
 de l'idée, et le cartésianisme une philosophie de la substance, et le bergsonisme
@@ -1588,15 +1526,14 @@ Il y a certainement dans le bergsonisme;
 peut-être la rupture, la déliaison qu'il!
 .. s'agissait d'opérer dans le bergsonisme "4
 à était encore plus menacée, plus précaire,
-et d'autre part plus indispensable encore NE à;
+et d'autre part plus indispensable encore NE
 que celle qu'il s'agissait d'opérer dans le
 44 cartésianisme. Nous sommes infiniment
 plus liés à l'esclavage du tout fait que
 nous ne sommes liés à l'esclavage du sa
 É. désordre. L'esclavage du tout fait est
 infiniment plus prét à nous reprendre que
-l'esclavage du désordre. Et il a des con-
-séquences infiniment plus désastreuses.
+l'esclavage du désordre. Et il a des conséquences infiniment plus désastreuses.
 ) Dans le désordre méme il peut y avoir
 5 des coups de fortune et méme des coups
 4 d'ordre. Dans ce qui est fatigué il n'y a
@@ -1617,8 +1554,7 @@ paniques en avant. On n'a jamais ou des
 Jfatigues et des vieillesses donner par
 erreur des œuvres de nouveauté.
 Il peut y avoir dans le désordre une;
-certaine fécondité. L'habitude et le vieil-
-lissement essayent en vain de faire le À
+certaine fécondité. L'habitude et le vieillissement essayent en vain de faire le À
 jeune homme.
 C'est qu'on nomme une révolution,
 
@@ -1634,8 +1570,7 @@ révolutions, dans tous les ordres, n'ont
 point été faites avec et par des idées
 extraordinaires et c'est même le propre
 du génie que de procéder par les idées les
-; plus simples. Seulement en temps ordi-
-naire les idées simples rôdent comme des
+; plus simples. Seulement en temps ordinaire les idées simples rôdent comme des
 fantômes de réve. Quand une idée simple
 prend corps, il y a une révolution. La
 la descente, à remonter l'habitude de
@@ -1654,8 +1589,7 @@ milliers de créanciers répètent machina-
 au sérieux, ces paroles, les laisse comme
 lui entrer dedans, c'est instantanément
 la plus grande révolution qu'il puisse” à
-actuellement y avoir, car c'est une révo-
-lution dans le règne de l'argent, c'est à
+actuellement y avoir, car c'est une révolution dans le règne de l'argent, c'est à
 une subversion du règne de l'argent. Et
 c'est encore un homme de sauvé.
 Tout est dans l'incorporation, dans
@@ -1672,8 +1606,7 @@ coup elle est prise au sérieux, c'est cela
 ; qui est, et qui fait, une révolution. Et
 É l'histoire ne compte que trois ou quatre ‘ue
 de ces grands ébranlements.
-Discours de la méthode pour bien con-
-duire sa raison et chercher la vérité dans
+Discours de la méthode pour bien conduire sa raison et chercher la vérité dans
 
 les sciences. Le bergsonisme aussi est une de
 méthode pour bien conduire sa raison. Le
@@ -1706,8 +1639,7 @@ recherche de la vérité dans les sciences,
 : nommons métaphysique, et au moins les
 métaphysiques des sciences). Le bergsonisme a été dans son principe un effort
 pour conduire La raison à l'étreinte de la:
-réalité. (Dans les sciences, dans les méta-
-physiques des sciences, dans la métaphy--
+réalité. (Dans les sciences, dans les métaphysiques des sciences, dans la métaphy--
 sique). Déjà le platonisme avait été dans
 son principe un effort pour conduire la
 raison par la dialectique idéale ou si l'on
@@ -1721,8 +1653,7 @@ d'art contre la beauté, de foi contre Dieu.:
 Le bergsonisme n'a jamais élé ni un
 irrationalisme ni un antirationalisme. Il
 a été un nouveau ralionalisme et ce sont
-les grossières métaphysiques que le berg-
-sonisme « a déliées (métaphysiques maté-;
+les grossières métaphysiques que le bergsonisme « a déliées (métaphysiques maté-;
 rialistes, métaphysiques médico-légales,
 à physiques sociologiques et tant d'autres)
 qui étant des durcissements, des scléroses,
@@ -1738,12 +1669,10 @@ en a fait jouer des articulations nouvelles.
 
 a Les fameuses règles de Bacon n'ont;
 à introduit dans l'histoire du monde aucune
-1 fécondité. Nous ne leur devons rigoureu-
-sement rien. Ni une invention, ni une
+1 fécondité. Nous ne leur devons rigoureusement rien. Ni une invention, ni une
 : Tous ceux qui depuis les premiers balbu- ke.
 “54 tiements de la pensée grecque avaient fait
-une invention, une découverte, un mou-
-vement avaient sans y penser appliqué les.
+une invention, une découverte, un mouvement avaient sans y penser appliqué les.
 - règles de Bacon. Tous ceux avant Bacon.
 Mais depuis Bacon tout homme qui se
 lèverait de bon matin avec le ferme proE pos d'appliquer les règles baconiennes, et
@@ -1756,14 +1685,12 @@ de de pensée sortir de la contemplation des
 
 1 règles de Bacon. Et voilà une belle application, el, non la moins importante, des LE
 ; tables de présence, et d'absence, et des à
-Si j'étais un grand philosophe je n'au-
-rais peut-être pas le droit de raconter
+Si j'étais un grand philosophe je n'aurais peut-être pas le droit de raconter
 l'histoire suivante. D'autant que ce n'est
 . pas une histoire et que c'est encore un
 mot de soldat. Mais je ne suis qu'un
 pauvre moraliste. Quand donc y en
-avait un, au de l'arme, qui se tra-
-vaillait trop ostensiblement faire un
+avait un, au de l'arme, qui se travaillait trop ostensiblement faire un
 ! avait toujours un autre qui disait froide5 ment: Surtout n'oublie pas de respirer.
 Tous ceux qui ont fait quelque chose dans
 : le monde sont des types qui n'ont pas
@@ -1798,8 +1725,7 @@ partie même il n'y a que le cœur, en tout
 vingt lignes, qui soit les règles de la
 méthode. Ce sont ces vingt lignes qui ont
 révolutionné le monde et la pensée. Valmy
-aussi est une petite bataille, un duel d'ar-
-tillerie, je veux dire livrée avec de petits
+aussi est une petite bataille, un duel d'artillerie, je veux dire livrée avec de petits
 effectifs, et même pas livrée du tout, avec
 presque pas de morts et de blessés.
 à C'est un préjugé, mais il est absolu-
@@ -1817,14 +1743,12 @@ note sur M. Bergson
 méme préjugé qui veut qu'une logique ES
 raide soit plus une logique qu'une logique;
 souple. Et qu'une méthode scientifique
-raide soit plus une méthode, et plus scien-
-tifique, qu'une méthode scientifique souple.;
+raide soit plus une méthode, et plus scientifique, qu'une méthode scientifique souple.;
 Et surtout qu'une morale raide soit plus
 une morale, et plus de la morale, qu'une
 morale souple. C'est comme si on disait À
 que les mathématiques de la droite sont
-plus des mathématiques que les mathéma-
-tiques de la courbe. “4
+plus des mathématiques que les mathématiques de la courbe. “4
 Il est évident au contraire que ce sont
 les méthodes souples, les logiques souples,
 les morales souples qui sont les plus
@@ -1835,15 +1759,11 @@ infiniment moins sévères que les morales
 Une logique raide peut laisser échapper;
 des replis de l'erreur. Une méthode raide
 
-peut laisser échapper des replis de l'igno-
-rance. Une morale raide peut laisser
+peut laisser échapper des replis de l'ignorance. Une morale raide peut laisser
 échapper des replis du péché, dont une
-morale souple au contraire épousera, dé-
-noncera, poursuivra les sinuosités d'échap-
-pements. C'est une logique souple, une
+morale souple au contraire épousera, dénoncera, poursuivra les sinuosités d'échappements. C'est une logique souple, une
 méthode souple, une morale souple qui
-poursuit, qui atteint, qui dessine les sinuo-
-sités des fautes et des déficiences. C'est une
+poursuit, qui atteint, qui dessine les sinuosités des fautes et des déficiences. C'est une
 morale souple qui épuise les sinuosités des
 défaillances. C'est dans une morale souple
 que tout apparaît, que tout se dénonce, que
@@ -1873,8 +1793,7 @@ bergsonisme, sur l'ancien et le moderne,
 sur le classique et le romantique tomberait si l'on voulait bien une fois déclasser
 le raide du ferme et du dur. Ce sont les.
 morales raides où il peut y avoir des
-niches, à poussières, à microbes, des moi-
-sissures et des creux de pourriture, dans
+niches, à poussières, à microbes, des moisissures et des creux de pourriture, dans
 des coins dans les raideurs, des dépôts,.
 lues, et ce que nos Latins nommaient
 situs, une moisissure, une saleté venant

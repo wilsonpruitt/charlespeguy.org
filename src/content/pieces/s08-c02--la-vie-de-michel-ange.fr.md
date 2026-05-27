@@ -36,8 +36,7 @@ bonne, rez-de-chaussée, Paris, cinquième arrondisse- …
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner, «
 autant qu'il se pouvait, une image en bref, un raccourci, à
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé de
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé de
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 Ce catalogue, grand jésus, forme un cahier
@@ -109,8 +108,7 @@ ummort de Jean-Michel; Otto; Minna...................:
 ES Sa édition Ollendorff................. trois francs cinquante a
 — — Jean-Christophe. — WI. — L'adolescent;
 7. à a — — Jean-Christophe. — II. — L'adolescent,
-À Sur l'œuvre elle-même de Michel-Ange, pour l'ana-
-brse et l'énumération de cette œuvre, se reporter au
+À Sur l'œuvre elle-même de Michel-Ange, pour l'anabrse et l'énumération de cette œuvre, se reporter au
 volume que M. Romain Rolland vient de publier à la de
 Librairie de l'Art ancien et moderne, dans la collection
 He) » Ange, — un fort volume carré octavo de 184 pages,
@@ -123,7 +121,7 @@ Dix-huitième cahier de la septième série; un cahier RE:
 vert de 108 pages; grand jésus.... deux francs
 RoMaIN RoLLAND. — Vies des Hommes illustres. —
 la vie de Michel-Ange. — I. — la lutte; Michel
-0 Ange; la force; la force qui se brise; le désespoir;
+Ange; la force; la force qui se brise; le désespoir;
 (2€ une reproduction du portrait de Michel-Ange par
 à À Marcello Venusti, musée du Capitole, Rome.
 Si Comme on le voir ci-après, la pagination du
@@ -131,13 +129,11 @@ Si Comme on le voir ci-après, la pagination du
 Ange, fait suite à la pagination du cahier rappelé
 15 ci-dessus, première partie de cette même vie.
 
-AS Alors, dans ce cœur dévasté, après que le renonce-
-ment fut accompli à tout ce qui le faisait vivre, une vie À
+AS Alors, dans ce cœur dévasté, après que le renoncement fut accompli à tout ce qui le faisait vivre, une vie À
 
 ! nouvelle se leva, un printemps refleurit, l'amour brûla
 À d'une flamme plus claire. Mais cet amour n'avait
-De presque plus rien d'égoïste et de sensuel. Ce fut l'ado-
-ration mystique de la beauté d'un Cavalieri. Ce fut la
+De presque plus rien d'égoïste et de sensuel. Ce fut l'adoration mystique de la beauté d'un Cavalieri. Ce fut la
 religieuse amitié de Vittoria Colonna, — communion
 28 passionnée de deux âmes en Dieu. Ce fut enfin la ten- À
 dresse paternelle pour ses neveux orphelins, la pitié
@@ -146,9 +142,7 @@ dresse paternelle pour ses neveux orphelins, la pitié
 est bien fait pour déconcerter la moyenne des esprits,
 — honnêtes ou malhonnêtes. — Même dans l'Italie de;
 la fin de la Renaissance, il risquait de provoquer des
-interprétations fâcheuses; l'Arétin y faisait des allu-
-
-la vie de Michel-Ange
+interprétations fâcheuses; l'Arétin y faisait des allula vie de Michel-Ange
 sions outrageantes. (1) Mais les injures des Arétins
 Michel-Ange. « Ils se font dans leur cœur un Michel
 agniolo de l'étoffe dont leur propre cœur est fait. » (2)
@@ -191,7 +185,7 @@ Me S'il était ainsi conquis par la beauté des pensées, des à
 encore par la beauté du corps! LYS
 De La fôrza d'un bel viso a che spronal!
 mu. La force d'un beau visage, quel éperon c'est pour moi! Ne.
-4 Rien au monde ne m'est une telle joie.
+Rien au monde ne m'est une telle joie.
 Pour ce grand créateur de formes admirables, qui
 était en même temps un grand croyant, un beau corps
 était divin, — un beau corps était Dieu même apparais- es
@@ -212,8 +206,7 @@ la vie de Michel-Ange A
 
 vivants, fut Gherardo Perini, vers 1522. (1) Michel-Ange;
 s'éprit plus tard de Febo Poggio, en 1533, et de
-Cecchino dei Bracci, en 1544. (2) Son amitié pour Cava-
-lieri ne fut donc pas exclusive et unique; mais elle fut
+Cecchino dei Bracci, en 1544. (2) Son amitié pour Cavalieri ne fut donc pas exclusive et unique; mais elle fut
 durable, et elle atteignit à un degré d'exaltation, que
 légitimait dans une certaine mesure non seulement la à
 beauté, mais la noblesse morale de l'ami.
@@ -234,13 +227,10 @@ plus voulu de moi. » À
 
 Voir aux Annexes, XII. — Poésies, XXXV. de
 
-(2) Henry Thode, qui, dans son remarquable ouvrage sur Michel-
-angelo und das Ende der Renaissance, ne résiste pas au désir de
+(2) Henry Thode, qui, dans son remarquable ouvrage sur Michelangelo und das Ende der Renaissance, ne résiste pas au désir de
 construire son héros de la façon la plus belle, fût-ce parfois aux:
 dépens de la vérité, place après l'amitié pour Gherardo Perini,
-l'amitié pour Febo Poggio, de façon à s'élever, par degrés, jus-
-
-qu'a l'amitié pour Tommaso dei Cavalieri, parce qu'il ne peut
+l'amitié pour Febo Poggio, de façon à s'élever, par degrés, jusqu'a l'amitié pour Tommaso dei Cavalieri, parce qu'il ne peut
 admettre que Michel-Ange soit redescendu de l'amour le plus parfait
 à l'affection d'un Febo. Mais, en réalité, Michel-Ange était déjà à
 en relations depuis plus d'un an avec Cavalieri, quand il s'éprit de "1
@@ -254,8 +244,7 @@ lami de son ami Luigi del Riccio, Michel-Ange ne le connut que
 plus de dix ans après Cavalieri. Cecchino était fils d'un banni florentin, et mourut prématurément à Rome en 1544. Michel-Ange
 écrivit en mémoire de lui quarante-huit épigrammes funéraires, ke.
 d'un idéalisme idolâire, si l'on peut dire, et dont quelques-unes sont
-d'une sublime beauté. Ce sont peut-être les poésies les plus som-
-bres que Michel-Ange ait jamais écrites. — (Voir aux Annexes, XIII)
+d'une sublime beauté. Ce sont peut-être les poésies les plus sombres que Michel-Ange ait jamais écrites. — (Voir aux Annexes, XIII)
 
 EN Par dessus tous les autres, sans comparaison, il aima,
 dit Vasari,
@@ -285,7 +274,7 @@ débute à peine et qui est si ignorant. Je ne puis croire;
 pourtant que vous mentiez. Je crois, oui, je suis certain que
 — l'affection que vous me portez n'a d'autre cause que l'amour
 A qu'un homme comme vous, qui est la personnification de
-2 Part, doit nécessairement avoir pour ceux qui se consacrent
+Part, doit nécessairement avoir pour ceux qui se consacrent
 
 la vie de Michel-Ange
 à l'art et qui l'aiment. Je suis de ceux-là, et, pour ce qui est
@@ -297,14 +286,12 @@ l'occasion, et je me recommande éternellement à vous.
 Votre tout dévoué, Thomao Cavaliere. (1)
 Cavalieri semble avoir toujours gardé ce ton d'affec.
 tion respectueuse et réservée. Il resta fidèle à Michel-Ange
-jusqu'à sa dernière heure, à laquelle il assista. Il con-
-serva sa confiance; il était le seul qui passât pour avoir
+jusqu'à sa dernière heure, à laquelle il assista. Il conserva sa confiance; il était le seul qui passât pour avoir
 de l'influence sur lui, et il eut le rare mérite d'en user
 toujours pour le bien et la grandeur de son ami. Ce
 fut lui qui décida Michel-Ange à terminer le modèle »
 en bois de la coupole de Saint-Pierre. Ce fui lui qui nous;
-conserva les plans de Michel-Ange pour la construc-
-tion du Capitole, et qui travailla à les réaliser. Ce fut
+conserva les plans de Michel-Ange pour la construction du Capitole, et qui travailla à les réaliser. Ce fut
 lui enfin, qui, après la mort de Michel-Ange, veilla
 à l'exécution de ses volontés. 1 À
 Mais l'amitié de Michel-Ange pour lui était comme
@@ -324,7 +311,7 @@ dans cette lettre. » — Il est clair qu'il s'agit mot: amour.
 
 n'est égal ». Il lui fait don de tout son présent, de tout se
 son avenir; et il ajoute
-7 Ce m'est une douleur infinie de ne pouvoir vous donner
+Ce m'est une douleur infinie de ne pouvoir vous donner
 aussi mon passé, pour pouvoir vous servir plus longtemps;
 +4 car l'avenir sera court: je suis trop vieux... (1) Je ne
 … crois pas que rien puisse détruire notre amitié, bien que
@@ -336,8 +323,7 @@ aussi mon passé, pour pouvoir vous servir plus longtemps;
 Le corps et l'âme, et les remplit d'une telle douceur, qu'aussi a
 longtemps que je pense à vous, je ne sens ni souffrance, ni
 crainte de la mort. (3) — Mon àme est dans les mains de
-… … celui à qui je l'ai donnée. (4) Si je devais cesser de pen-
-ser à lui, je crois que je tomberais mort sur-le-champ. (5)
+… … celui à qui je l'ai donnée. (4) Si je devais cesser de penser à lui, je crois que je tomberais mort sur-le-champ. (5)
 … Il fit à Cavalieri de superbes présents:
 D'étonnants dessins, des têtes merveilleuses au crayon
 4 rouge et noir, qu'il avait faits dans l'intention de lui
@@ -357,7 +343,7 @@ a (6) Lettre de Michel-Ange à Cavalieri (28 juillet 1533).
 la vie de Michel-Ange
 dans les cercles littéraires et connus de toute l'Italie. (x)
 On a dit du sonnet suivant qu'il était « la plus belle:
-poésie lyrique de l'Italie, au seizième siècle »: (2)
+poésie lyrique de l'Italie, au seizième siècle (2)
 Avec vos beaux yeux je vois une douce lumière, que je
 ne peux plus voir avec mes yeux aveugles. Vos pieds.
 m'aident à porter un fardeau, que mes pieds perclus ne
@@ -394,8 +380,7 @@ dire Michel-Ange à Cecchino dans une de ses épigrammes funé-
 À mouvement de dépit pourra-t-il rompre jamais et dénouer
 ; Cet oubli de soi, ce don ardent de tout son être qui,
 se fond dans l'être aimé, n'eut pas toujours cette séré-
-; nité. La tristesse reprenait le dessus; et l'âme, possé-
-dée par l'amour, se débattait en gémissant.;
+; nité. La tristesse reprenait le dessus; et l'âme, possédée par l'amour, se débattait en gémissant.;
 Je pleure, je brüle, je me consume, et mon cœur se
 nourrit de sa peine.
 piango, ardo, consumo, core
@@ -456,8 +441,7 @@ Florence, était éloigné de Cavalieri.
 
 prince d'Urbin. Sa race était une des plus nobles d'Italie,
 …. une de celles où s'était le mieux incarné le lumineux
-… esprit de la Renaissance. A dix-sept ans, elle épousa le-
-marquis de Pescara, Ferrante Francesco d'Avalos,
+… esprit de la Renaissance. A dix-sept ans, elle épousa lemarquis de Pescara, Ferrante Francesco d'Avalos,
 …. grand général, — le vainqueur de Pavie. — Elle l'aima; il (ds
 … ne laima point. Elle n'était pas belle. (1) Les médailles
 - qu'on connaît d'elle montrent une figure virile, volon-
@@ -471,8 +455,7 @@ Ange a représenté une jeune femme casquée. Tout au plus, a-t-il,
 subir, en le faisant, l'influence inconsciente du souvenir de
 Mittoria, idéalisée et rajeunie; car la figure des Uflizi a les traits
 ; réguliers de Vittoria et son expression sévère. L'œil est préoccupé, De
-grand, et le regard dur. Le cou est nu, les seins découverts. L'ex-
-pression est d'une violence froide et concentrée.
+grand, et le regard dur. Le cou est nu, les seins découverts. L'expression est d'une violence froide et concentrée.
 à (2) Ainsi la représente une médaille anonyme, reproduite dans ne
 le Carteggio Vittoria Colonna (publié par Ermanno Ferrero et si
 Giuseppe Müller). Telle Michel-Ange la vit, sans doute. Ses cheveux
@@ -502,9 +485,7 @@ la pie de Michel-Ange
 Filonico Alicarnasseo, qui la connut et écrivit sa vie,
 laisse entendre, malgré tous les égards d'expressions;
 dont il use, qu'elle était laide: « Quand elle fut mariée
-au marquis de Pescara, dit-il, elle s'appliqua à déve-
-lopper les dons de son esprit; car, comme elle ne possé-
-dait pas grande beauté, elle s'instruisit dans les lettres,
+au marquis de Pescara, dit-il, elle s'appliqua à développer les dons de son esprit; car, comme elle ne possédait pas grande beauté, elle s'instruisit dans les lettres,
 pour s'assurer l'immortelle beauté qui ne passe pas,:
 ; comme l'autre. » — Elle était passionnément intellectuelle. Dans un sonnet, elle dit elle-même que
 « les sens grossiers, impuissants à former l'harmonie
@@ -518,8 +499,7 @@ Elle souffrit cruellement, en effet, des infidélités de
 son mari, qui la trompait dans sa propre maison, au à
 et au de tout Naples. Cependant, quand il mourut,
 en 1525, elle ne s'en consola point. Elle se réfugia dans;
-la religion et dans la poésie. Elle mena une vie claus-
-sonnet: — beau et triste dessin, que Michel-Ange n''eût, en ce eas,
+la religion et dans la poésie. Elle mena une vie claussonnet: — beau et triste dessin, que Michel-Ange n''eût, en ce eas,
 voulu laisser voir à personne. — Elle est âgée, nue jusqu'à mi-corps,
 les mamelles vides et pendantes: la tête n'a point vieilli, elle est
 droite, pensive et fière: un collier entoure le cou long et fin; les
@@ -610,10 +590,7 @@ ambassadeur de Venise auprès de Charles-Quint, aux Pays-Bas, en
 Allemagne et en Espagne, puis auprès de Clément VII, de 1528
 à 1930. Il fut nommé cardinal par Paul III, en 1535, et légat en 1541 À
 à la diète de Ratisbonne. Il ne réussit pas à s'entendre avec les
-protestants, et se rendit suspect aux catholiques. Il revint, décou-
-ragé, et mourut à Bologne, en août 1542. Il avait composé de nom-
-breux écrits: De immortalitate animae, — Compendium primae phi-
-losophiae, et un traité de la Justification, où il était très près des
+protestants, et se rendit suspect aux catholiques. Il revint, découragé, et mourut à Bologne, en août 1542. Il avait composé de nombreux écrits: De immortalitate animae, — Compendium primae philosophiae, et un traité de la Justification, où il était très près des
 idées protestantes sur la grâce.
 
 (3) Citées par Henri Thode.
@@ -645,9 +622,7 @@ Contarini, les Giberti et les Pole.
 
 (2) Déposition de Carnesecchi devant l'Inquisition, en 1566.
 
-(3) Reginald Pole, de la maison d'York, avait fuir l'Angle-
-
-terre, où il était entré en conflit avec Henry VIII; il passa à Venise
+(3) Reginald Pole, de la maison d'York, avait fuir l'Angleterre, où il était entré en conflit avec Henry VIII; il passa à Venise
 
 en 1532, y devint l'ami enthousiaste de Contarini, fut fait cardinal LE
 
@@ -655,9 +630,7 @@ par Paul IL, et légat du patrimoine de Saint-Pierre. D'un grand
 charme personnel et dun esprit conciliant, il se soumit à la;
 contre-réforme, et ramena à lobéissance beaucoup des libres
 
-; esprits du groupe de Contarini, qui étaient prêts à passer au pro-
-
-ta testantisme. Vittoria Colonna se mit entièrement sous sa direction, DE
+; esprits du groupe de Contarini, qui étaient prêts à passer au prota testantisme. Vittoria Colonna se mit entièrement sous sa direction, DE
 à Viterbe, de 1541 à 1544. — En 1554, Pole retourna comme légat en £.
 Angleterre, où il devint archevêque de Canterbury, et mourut en
 
@@ -668,8 +641,7 @@ reniait Ochino, dont elle livrait les écrits à l'Inquisition
 de Rome; comme Michel-Ange, cette grande âme était
 brisée par la peur. Elle noyaïit ses remords dans un.
 
-Vous avez le chaos d'ignorance où j'étais, et le laby-
-rinthe d'erreurs où j'allais, le corps perpétuellement en
+Vous avez le chaos d'ignorance où j'étais, et le labyrinthe d'erreurs où j'allais, le corps perpétuellement en
 mouvement pour trouver le repos, l'âme toujours agitée
 pour trouver la paix. Dieu a voulu qu'il me fût dit: Fiat
 lux! et qu'il me füt montré que je n'étais rien, et que tout
@@ -753,8 +725,7 @@ chemin, dans la direction de San Silvestro; il allait par la
 via Esquilina, vers les Thermes, en philosophant avec son
 disciple Urbino. Et comme notre envoyé l'avait rencontré et
 ramené, c'élait lui-même qui se tenait en personne sur le
-seuil. La marquise se leva, et resta longtemps en conversa-
-tion avec lui, debout, à part des autres, avant qu'elle l'invität À
+seuil. La marquise se leva, et resta longtemps en conversation avec lui, debout, à part des autres, avant qu'elle l'invität À
 à prendre place entre Lattanzio et elle.
 François de Hollande s'assit à côté de lui; mais
 Michel-Ange ne fit aucune attention à son voisin, —
@@ -771,8 +742,7 @@ choses, d'une façon adroïte et discrète, sans toucher à la
 |. peinture. On eût dit quelqu'un qui assiège une ville forte,
 — avec peine et avec art; et Michel-Ange avait l'air d'un
 assiégé vigilant et défiant, qui met ici des postes, qui lève
-les ponts, qui place ailleurs des mines, et qui tient la gar-
-nison en éveil aux portes et sur les murs. Mais enfin, la
+les ponts, qui place ailleurs des mines, et qui tient la garnison en éveil aux portes et sur les murs. Mais enfin, la
 4% marquise l'emporta. Et vraiment, personne n'aurait se
 défendre d'elle.
 . — Allons, — dit-elle, — il faut bien reconnaître qu'on est À
@@ -781,9 +751,7 @@ propres armes, c'est-à-dire avec la ruse. Il faudra, messer BE:
 Lattanzio, que nous parlions avec lui de procès, de brefs
 du pape, ou bien... de peinture, si nous voulons le réduire
 - au silence, et avoir le dernier mot. ‘#e
-détour ingénieux amène la conversation sur le ter-
-rain de l'art. Vittoria entretient Michel-Ange d'une con-
-struction pieuse, qu'elle a le projet d'élever; et aussitôt dE
+détour ingénieux amène la conversation sur le terrain de l'art. Vittoria entretient Michel-Ange d'une construction pieuse, qu'elle a le projet d'élever; et aussitôt dE
 Michel-Ange s'offre à examiner l'emplacement, pour À
 ébaucher un plan.
 Je n'aurais pas osé vous demander un si grand service,
@@ -813,8 +781,7 @@ que la marquise traite avec une gravité religieuse. Une
 acte de foi.
 
 — La bonne peinture, —dit Michel-Ange, — s'approche de
-Dieu et s'unit à lui... Elle n'est qu'une copie de ses perfec-
-tions, une ombre de son pinceau, sa musique, sa mélodie.
+Dieu et s'unit à lui... Elle n'est qu'une copie de ses perfections, une ombre de son pinceau, sa musique, sa mélodie.
 
 Aussi, ne suflit-il point que le peintre soit un grand et habile
 maître. Je pense bien plutôt que sa vie doit être pure et
@@ -868,8 +835,7 @@ Hollande, il le félicite « d'être du petit nombre de ceux qui savent
 fuir le tumulte de Rome, pour s'abriter dans ce port tranquille ».
 Ce ne sont pas, à dire vrai, les lettres que nous avons conservées
 de Vittoria, et qui sont nobles sans doute, mais un peu froides.
-— 11 faut penser que de toute cette correspondance, nous ne possé-
-dons plus que cinq lettres, d'Orvieto et de Viterbe, et trois lettres,
+— 11 faut penser que de toute cette correspondance, nous ne possédons plus que cinq lettres, d'Orvieto et de Viterbe, et trois lettres,
 (2) Reproduit dans le Michel-Ange de la collection des Maitres
 
 la vie de Michel-Ange RTE
@@ -882,25 +848,21 @@ Louvre. Retourner à Dieu! Quitter ce monde, ces
 hommes, qu'il ne regarde même pas, et qui rampent à
 ses pieds, stupides, épouvantés! S'arracher au dégoût
 de cette vie, enfin, enfin! — Le dessin du British
-Museum a plus de sérénité. Le Christ est sorti du tom-
-beau: il plane, son corps vigoureux flotte dans l'air
+Museum a plus de sérénité. Le Christ est sorti du tombeau: il plane, son corps vigoureux flotte dans l'air
 qui le caresse; les bras croisés, la tête renversée en
 arrière, les yeux fermés, en extase, il monte dans la
 lumière, comme un rayon de soleil.
 Ainsi Vittoria rouvrit à l'art de Michel-Ange le monde
 de la foi. Elle fit plus encore: elle donna l'essor à son
-génie poétique, que l'amour de Cavalieri avait ré-
-veillé. (1) Non seulement elle l'éclaira sur les révélations
+génie poétique, que l'amour de Cavalieri avait réveillé. (1) Non seulement elle l'éclaira sur les révélations
 ( Cest alors que Michel-Ange pensa à publier un recueil de ses à
 poésies. Ses amis Luigi del Riceio et Donato Giannotti lui en don- ne
 nèrent l'idée. Jusque-là, il n'avait pas attaché grande importance à
 ce qu'il écrivait. Giannotti s'occupa de cette publication, vers 1545.
-Michel-Ange fit un choix parmi ses vers; et ses amis les reco-
-détourna de cette idée, qui lui sembla une vanité dernière. Ses poé- à
+Michel-Ange fit un choix parmi ses vers; et ses amis les recodétourna de cette idée, qui lui sembla une vanité dernière. Ses poé- à
 sies ne furent pas publiées de son vivant, sauf un petit nombre,
 qui parurent dans des ouvrages de Varchi, Giannotti, Vasari, etc.
-Mais elles circulaient de main en main. Les plus grands composi-
-teurs: Archadelt, Tromboncino, Consilium, Costanzo Festa, les
+Mais elles circulaient de main en main. Les plus grands compositeurs: Archadelt, Tromboncino, Consilium, Costanzo Festa, les
 mirent en musique. Varchi lut et commenta un des sonnets, en
 1546, devant l'Académie de Florence. Il y trouvait « la pureté À
 antique et la plénitude de pensées de Dante ».
@@ -924,8 +886,7 @@ de sa reconnaissance attendrie: a
 ., Bienheureux esprit qui, par un ardent amour, retiens en
 À vie mon vieux cœur, près de mourir, et qui, parmi tes biens as
 et tes plaisirs, me distingues seul entre tant de plus nobles
-.. êtres, — telle tu apparus autrefois à mes yeux, telle main-
-tenant à mon âme tu te montres, afin de me consoler.
+.. êtres, — telle tu apparus autrefois à mes yeux, telle maintenant à mon âme tu te montres, afin de me consoler.
 C'est pourquoi, recevant ce bienfait de toi qui penses à moi À
 dans mes soucis, je t'écris pour te remercier. Car ce serait
 . grande présomption et grand honte, si je prétendais te
@@ -980,12 +941,10 @@ poussé par une force étrangère. Mais le marteau divin qui
 dans le ciel se dresse, crée sa propre beauté et la beauté des.
 autres par son unique force. Aucun autre marteau ne peut se
 Vasari. Le se brouilla, pour un temps, avec un de ses plus
-chers amis, Luigi del Riccio, parce que celui-ci lui faisait des pré-
-sents, malgré lui:
+chers amis, Luigi del Riccio, parce que celui-ci lui faisait des présents, malgré lui:
 « Je suis plus oppressé, lui écrit-il, par ton extrême bonté, que
 si tu me volais. Il faut de l'égalité entre amis: si l'un donne plus,!
-et l'autre moins, alors on en vient au combat; et si l'un est vain-
-queur, l'autre ne le pardonne pas. »
+et l'autre moins, alors on en vient au combat; et si l'un est vainqueur, l'autre ne le pardonne pas. »
 
 créer sans marteau; celui-là seul fait vivre tous les autres.
 Et parce que le coup qu'il frappe sur l'enelume est d'autant Qu.
@@ -1018,8 +977,7 @@ Aussi, j'espère que de là-haut viendra l'achèvement de mon être.
 — Maintenant, au ciel, il y aura quelqu'un pour pousser le soufflet:
 ici-bas, il wavyait aucun aide à la forge, où sont forgées les vertus. »
 (2) Voir aux Annexes, XX. (Poésies, )
-C'est au revers du manuscrit de ce sonnet que se trouve le des-
-sin à la plume, où l'on prétend reconnaître l'image de Vittoria,
+C'est au revers du manuscrit de ce sonnet que se trouve le dessin à la plume, où l'on prétend reconnaître l'image de Vittoria,
 (3) L'amitié de Michel-Ange pour Vittoria Colonna ne fut pas
 extlusive d'autres passions. Elle ne suffisait pas à remplir son âme.
 On s'est bien gardé de le dire, par un souci ridicule « idéaliser » à
@@ -1104,8 +1062,7 @@ siens avait l'imprudence de s'adresser à leurs soins.
 Heureusement pour lui, après sa chute, maître Baccio?
 Rontini de Florence, son ami, qui était un médecin de
 beaucoup d'esprit et qui lui était fort attaché, eut pitié de à
-! lui, et alla, un jour, frapper à la porte de sa maison. Per-
-sonne ne lui répondant, il monta, et chercha de chambre
+! lui, et alla, un jour, frapper à la porte de sa maison. Personne ne lui répondant, il monta, et chercha de chambre
 en chambre, jusqu'à ce qu'il arrivät dans celle où Michel-;
 Ange était couché. Celui-ci fut au désespoir, quand il le vit.
 Mais Baccio ne voulut plus partir et ne le quitta plus que
@@ -1114,8 +1071,7 @@ Comme autrefois Jules II, Paul III venait voir peindre
 Michel-Ange, et donnait son avis. Il était accompagné!
 de son maître des cérémonies, Biagio Cesena. Un
 jour, il demanda à ce dernier ce qu'il pensait de
-l'œuvre. Biagio, qui était, dit Vasari, une très scru-
-puleuse personne, déclara qu'il était souverainement
+l'œuvre. Biagio, qui était, dit Vasari, une très scrupuleuse personne, déclara qu'il était souverainement
 inconvenant d'avoir représenté en un lieu aussi solennel
 tant de nudités indécentes; c'était là, ajoutait-il, une
 peinture bonne à décorer une salle de baïns, ou une À
@@ -1157,12 +1113,10 @@ Vierge Marie, et dans des aititudes que la plus sévère religion n'a;
 pas inspirées. »
 (A. Baschet: Paul Véronèse devant le Saint-Office, 1880)
 (2) C'était une vengeance. Il avait essayé de lui extorquer, selon
-son habitude, quelques œuvres d'art; il avait eu, de plus, leffron-
-terie de lui tracer un programme pour le Jugement Dernier.
+son habitude, quelques œuvres d'art; il avait eu, de plus, leffronterie de lui tracer un programme pour le Jugement Dernier.
 Michel-Ange avait décliné poliment cette offre de collaboration « étrange, et fait la sourde oreille aux demandes de présent. L'Arétin
 voulut montrer à Michel-Ange ce qu'il en pouvait coûter de lui
-(5) Une comédie de l'Arétin, l'Hipocrito, fut le prototype de Tar-
-tuffe. (P. Gauthiez: l'Arétin, 1895)
+(5) Une comédie de l'Arétin, l'Hipocrito, fut le prototype de Tartuffe. (P. Gauthiez: l'Arétin, 1895)
 
 la vie de Michel-Ange "50
 Ange; (1) et, pour achever, il l''accusait d'avoir volé à
@@ -1207,8 +1161,7 @@ ordre: arranger une peinture ne coûte pas grand
 peine, » — Il savait dans quelle ardente foi il avait
 accompli cette œuvre, parmi les religieux entretiens de
 Vittoria Colonna, et sous l'égide de cette âme imma_ culée. Il eût rougi de défendre la chaste nudité de ses
-pensées héroïques contre les sales soupçons et les sous-
-entendus des hypocrites et des cœurs bas.
+pensées héroïques contre les sales soupçons et les sousentendus des hypocrites et des cœurs bas.
 Quand la fresque de la Sixtine fut terminée, (1)
 Michel-Ange crut enfin avoir le droit d'achever le monu- “4
 ment de Jules II. Maïs le pape insatiable exigea que le
@@ -1233,8 +1186,7 @@ la fresque, n'est pas un art pour les vieillards ».
 Michel-Ange trouva que les Esclaves ne convenaient plus au tombeau ainsi réduit, et il sculpta deux autres figures: La Vie actice et
 
 la vie de Michel-Ange: FETE
-de Jules continuèrent de lui réclamer âprement l'ar-
-gent, qu'ils prétendaient lui avoir été autrefois
+de Jules continuèrent de lui réclamer âprement l'argent, qu'ils prétendaient lui avoir été autrefois
 déboursé. Le pape lui faisait dire de n'y pas penser,;
 et d'être tout à son travail de la Chapelle Pauline.
 « Mais, répondait-il,
@@ -1244,8 +1196,7 @@ c'est pourquoi je ne fais rien de bon, tant que j'ai ces
 préoccupations. J'ai été enchaîné à ce tombeau, toute ma
 vie; j'ai perdu toute ma jeunesse à tâächer de me justifier
 devant Léon et Clément VII; j'ai été ruiné par ma trop À
-grande conscience. Ainsi le veut mon destin! Je vois beau-
-coup de gens, qui se sont fait des rentes de 2 à 3.000 écus;
+grande conscience. Ainsi le veut mon destin! Je vois beaucoup de gens, qui se sont fait des rentes de 2 à 3.000 écus;
 et moi, après de terribles efforts, je suis seulement parvenu
 à être pauvre. Et l'on me traite de voleur! Devant les
 hommes, — (je ne dis pas devant Dieu), — je me tiens pour
@@ -1254,8 +1205,7 @@ suis pas un voleur, je suis un bourgeois florentin, de à
 noble naissance, et fils d'un homme honorable. Quand;
 je dois me défendre contre des coquins, je deviens fou, à la À
 Pour désintéresser ses adversaires, il termina de sa
-main les statues de la Vie active et de la Vie contem-
-plative, bien qu'il n'y fût pas forcé par son contrat.
+main les statues de la Vie active et de la Vie contemplative, bien qu'il n'y fût pas forcé par son contrat.
 Enfin, le monument de Jules fut inauguré à San
 Pietro Vincoli, en janvier 1545. Que restait-il du
 beau plan primitif? — Le seul Moïse, qui en devenait
@@ -1263,16 +1213,13 @@ le centre, après n'en avoir été autrefois qu'un détail.
 Caricature d'un grand projet!
 Du moins, c'était fini. Michel-Ange était délivré du
 cauchemar de toute sa vie.
-Lettre à un Monsignore inconnu (octobre 1542). (Lettres, édi-
-
-tre Contra l'inutil mie cieco tormento.
+Lettre à un Monsignore inconnu (octobre 1542). (Lettres, éditre Contra l'inutil mie cieco tormento.
 [4 Son désir eût été, après la mort de Vittoria, de "12
-revenir à Florence, pour « coucher ses fatigués, à: 1100
+revenir à Florence, pour « coucher ses fatigués, 1100
 côté de son père, dans le repos ». (2) Maïs après avoir
 Servi, toute sa vie, les papes, il voulut consacrer ses
 … dernières années à servir Dieu. Peut-être y avait-il été «
-. poussé par son amie, et accomplissait-il un de ses der-
-niers vœux. Un mois aÿant la mort de Vittoria Colonna,
+. poussé par son amie, et accomplissait-il un de ses derniers vœux. Un mois aÿant la mort de Vittoria Colonna,
 le premier janvier 1545, Michel-Ange était en effet
 nommé, par bref de Paul Ill, préfet et architecte de RER:
 Saint-Pierre, avec pleins pouvoirs pour élever l'édifice. et
@@ -1300,18 +1247,15 @@ Vasari accuse d'avoir volé Michel-Ange, et qui visait à
 le supplanter. On répandit le bruit que Michel-Ange À
 n'entendait rien à l'architecture, qu'il gaspillaït l'argent
 et ne faisait que détruire l'œuvre de son prédécesseur:
-Le Comité d'administration du bâtiment, prenant lui-
-même parti contre son architecte, provoqua en 1551 une
-enquête solennelle, présidée par le pape; les inspec-
-teurs et les ouvriers vinrent y déposer contre Michel-
+Le Comité d'administration du bâtiment, prenant luimême parti contre son architecte, provoqua en 1551 une
+enquête solennelle, présidée par le pape; les inspecteurs et les ouvriers vinrent y déposer contre Michel-
 Lettre de Michel-Ange à Lionardo, son neveu. (3 juillet
 
 (2) s'agit ici d'Antonio San Gallo, architecte en chef de Saint-
 Pierre, depuis 1537 jusqu'à sa mort en octobre 1546. Il avait toujours
 été ennemi de Michel-Ange, qui le traita sans ménagements. Ils se
 trouvèrent opposés l'un à l'autre, à propos des fortifications du
-Borgo (quartier du Vatican), pour lesquelles Michel-Ange fit aban-
-donner les plans de San Gallo, en 1545, et lors de la construction
+Borgo (quartier du Vatican), pour lesquelles Michel-Ange fit abandonner les plans de San Gallo, en 1545, et lors de la construction
 du palais Farnese, que San Gallo avait bâti jusqu'au second étage,
 et que Michel-Ange termina, imposant en 1549 son modèle pour la
 corniche et éliminant le projet de son rival. — (Voir le Michel-
@@ -1333,8 +1277,7 @@ dans l'esprit, vous ne l'apprendrez jamais: car ce
 serait contre ma dignité. » (3)
 Contre les haïnes, que de tels procédés soulevaient, il
 n'eût se soutenir un instant sans la faveur des
-papes. (4) Aussi, lorsque mourut Jules IL, (5) et que le car-
-dinal Cervini devint pape, Michel-Ange fut sur le point
+papes. (4) Aussi, lorsque mourut Jules IL, (5) et que le cardinal Cervini devint pape, Michel-Ange fut sur le point
 de quitter Rome. Mais Marcel ne fit que passer sur le
 trône; et Paul lui succéda. De nouveau assuré de la
 protection souveraine, Michel-Ange continua de lutter. “.
@@ -1378,19 +1321,17 @@ plus à Saint-Pierre. On fit courir le bruit qu'il se
 démettait de ses fonctions; et le Comité lui donna
 pour suppléant Nanni, qui trancha aussitôt du maître.
 
-Il comptait finir par lasser le vieux homme de quatre-
-vingt-huit ans, malade et moribond. Il ne connaissait
+Il comptait finir par lasser le vieux homme de quatrevingt-huit ans, malade et moribond. Il ne connaissait
 
 pas son adversaire. Michel-Ange, sur-le-champ, alla
 trouver le pape; il menaça de quitter Rome, si justice -
-ne lui était faite. Il exigea une nouvelle enquête, con-
-vainquit Nanni d'incapacité et de mensonge, et le fit
+ne lui était faite. Il exigea une nouvelle enquête, convainquit Nanni d'incapacité et de mensonge, et le fit
 
 (1) Lettre de Michel-Ange à Lionardo. (11 mai 1555).
 
 Affecté par les critiques de ses propres amis, il demanda pourtant,
 en 1560, « qu'on voulüt bien le décharger du fardeau qu'il portait à
-gratuitement, depuis dix-sept ans, sur l'ordre des papes ». —!
+gratuitement, depuis dix-sept ans, sur l'ordre des papes ».
 Mais sa démission ne fut pas acceptée, et Pie IV, par un bref,.
 renouvela ses pouvoirs. — C'est alors qu'il se résolut enfin à
 exécuter, sur les instances de Cavalieri, le modèle en bois de la
@@ -1443,15 +1384,13 @@ l'église: — « c'était une œuvre d'un art si rare, qu'on
 n'a jamais une église pareille, pour la beauté, la
 richesse et la variété. On commença la construction, on
 dépensa 5.000 écus. Puis, l'argent manqua, on en resta
-là, et Michel-Ange en éprouva le plus violent cha-
-grin. » (1) L'église ne fut jamais construite, et même le
+là, et Michel-Ange en éprouva le plus violent chagrin. » (1) L'église ne fut jamais construite, et même le
 Telle fut la dernière déception artistique de Michel-
 Ange. Comment eût-il avoir l'illusion, en mourant,
 que Saint-Pierre, à peine ébauché, serait jamais réalisé,;
 qu'aucune de ses œuvres lui survivrait? Lui-même, s'il à
 eût été libre, peut-être les eût-il brisées. L'histoire de sa
-dernière sculpture, la Déposition de Croix de la cathé-
-drale de Florence, montre à quel détachement de
+dernière sculpture, la Déposition de Croix de la cathédrale de Florence, montre à quel détachement de
 art il était arrivé. S'il continuait encore de sculpter,
 ce n'était plus par foi dans l'art, mais par foi dans le
 Christ, et parce que « son esprit et sa force ne pouvaient
@@ -1476,7 +1415,7 @@ Se maggior caccia sempre il minor duolo,,
 penne alim ben tarpat et rasa.(2)
 
 : La flamme d'amour n'est pas restée dans mon cœur. Le:
-pire mal [la vieillesse] chasse toujours le moindre: j'ai -:
+pire mal [la vieillesse] chasse toujours le moindre: j'ai
 rogné les ailes de l'âme. Ge:
 
 Il avait perdu ses frères et ses meilleurs amis. Luigi
@@ -1491,8 +1430,7 @@ mourut en 1555. Il avait reporté son besoin d'affection
 familiale et bourrue sur ses neveux orphelins, sur les
 
 enfants de Buonarroto, son frère le plus aimé. Ils étaient;
-deux: une fille, Cecca (Francesca), et un garçon, Lio-
-nardo. Michel-Ange plaça Cecca dans un couvent; il lui
+deux: une fille, Cecca (Francesca), et un garçon, Lionardo. Michel-Ange plaça Cecca dans un couvent; il lui
 
 (1) Tiberio Calcagni la racheta à Antonio, et demanda à Michel-;
 Ange la permission de la réparer. Michel-Ange y consentit,
@@ -1512,8 +1450,7 @@ de ses biens. (2) — Il se chargea personnellement de
 l'éducation de Lionardo, qui avait neuf ans à la mort
 de son père. Une longue correspondance, qui rappelle à
 souvent celle de Beethoven avec son neveu, témoigne. À
-du sérieux avec lequel il remplit sa mission pater-
-nelle. (3) Ce ne fut pas sans de fréquentes colères. )
+du sérieux avec lequel il remplit sa mission paternelle. (3) Ce ne fut pas sans de fréquentes colères. )
 Lionardo mettait souvent à l'épreuve la patience de son
 oncle; et cette patience n'était pas grande. La mauvaise
 écriture du jeune garçon suffisait à jeter Michel-Ange À
@@ -1587,13 +1524,11 @@ la vie de Michel-Ange
 d'un perce-bois! (1) Si tu avais de l'amour pour moi, tu
 m'aurais écrit: « Michel-Ange, gardez les 53.000 écus, et À
 dépensez-les pour vous: car vous nous avez tant donné que
-cela nous suffit; votre vie nous est plus chère que la for-
-tune... » — Mais, depuis quarante ans, vous avez vécu de
+cela nous suffit; votre vie nous est plus chère que la fortune... » — Mais, depuis quarante ans, vous avez vécu de
 moi; et jamais je n'ai reçu de vous seulement une bonne
 Une grave question fut celle du mariage de Lionardo.
 Elle occupa l'oncle et le neveu pendant six ans. (3)
-Lionardo, docile, ménageait l'oncle à héritage; il accep-
-tait toutes ses observations, le laissait choisir, discuter,
+Lionardo, docile, ménageait l'oncle à héritage; il acceptait toutes ses observations, le laissait choisir, discuter,
 rejeter les partis qui s'offraient: il semblait indifférent.
 Michel-Ange se passionnait au contraire, comme si
 c'était lui qui devait se marier. Il regardait le mariage
@@ -1623,8 +1558,7 @@ fille de la maison Ginori, et qu'elle te plaît. Il ne me plaît
 à pas à moi que tu prennes pour femme une fille que le père
 ne te donnerait pas s'il avait assez pour lui constituer une à
 dot convenable. Je désire que celui qui veut te donner une
-1 femme la donne à toi, et non à ta fortune... Tu as unique-
-ment à considérer la santé de l'âme et du corps, la qualité
+1 femme la donne à toi, et non à ta fortune... Tu as uniquement à considérer la santé de l'âme et du corps, la qualité
 ; du sang et des mœurs, et, de plus, qui elle a pour parents:
 1 car cela est de grande importance... Donne-toi la peine de?
 4 trouver une femme qui n'ait pas honte de laver les plats, en
@@ -1701,7 +1635,6 @@ ne manqua point d'amitiés illustres ou distinguées. (4)
 (4) 1 faut bien distinguer entre les périodes de sa vie. On trouve
 dans cette longue carrière des déserts de solitude, mais aussi SE
 1] quelques périodes d'amitiés. C'est, vers 1515, à Rome, un petit LA
-cercle de Florentins, libres et bons vivants: — Domenico Buonin-
-zano, Giovanni Gellesi, Canigiani. — C'est, un peu plus tard, sous
+cercle de Florentins, libres et bons vivants: — Domenico Buoninzano, Giovanni Gellesi, Canigiani. — C'est, un peu plus tard, sous
 le pontificat de Clément VII, la spirituelle société de Francesco Qu”
 Berni et de Fra Sebastiano del Piombo, ami dévoué mais dange-

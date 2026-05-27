@@ -46,8 +46,7 @@ Jrancs; ce cahier comptait comme premier cahier de la
 six ième série et nos abonnés l'ont reçu à sa date, le
 2 octobre 1904, comme premier cahier de la sixième
 séri toute personne qui jusqu'au 31 décembre 1905 DE
-S'abot nat rétrospectivement à la sixième série le rece-
-vait, par le fait même de son abonnement, en tête de la ASE
+S'abot nat rétrospectivement à la sixième série le recevait, par le fait même de son abonnement, en tête de la ASE
 série; nous envoyons contre un mandat de cinq francs Se
 à oute personne qui nous en fait la demande. HAN ES RES
 
@@ -124,9 +123,7 @@ de la cinquième série; marqué deux francs, ce cahier se
 
 Le troisième livre, l'adolescent, formait le huitième
 
-cahier de la sixième série; marqué trois francs cin-
-
-quai ile, ce cahier se vend aujourd'hui trois francs cin-
+cahier de la sixième série; marqué trois francs cinquai ile, ce cahier se vend aujourd'hui trois francs cin-
 
 Le quatrième livre, la révolte, se composait lui-même
 
@@ -163,8 +160,7 @@ Deuxième volume, le deuxième livre, le matin, un
 Troisième volume, le troisième livre, l'adolescent, un
 Quatrième volume, et dernier, le quatrième livre, et
 dernier, la révolte, un volume à trois francs cinquante.
-Non seulement ces quatre volumes de l'édition Ollen-
-dorff sont en vente à la librairie des cahiers; mais ROUS
+Non seulement ces quatre volumes de l'édition Ollendorff sont en vente à la librairie des cahiers; mais ROUS
 
 demandons naturellement à nos amis et à nos abonnés Rte
 de continuer à se pourvoir de ces volumes, autant qu'ils à
@@ -182,8 +178,7 @@ dans la dixième série. à
 . Pour ce Jean-Christophe à Paris comme pour le Jean- À
 Christophe il « a été bien entendu que cette édition des
 cahiers en est la première édition; qu'elle en est une
-édition complète; qu'elle en est la seule édition com-
-plète; qu'elle est tirée à un petit nombre d'exemplaires
+édition complète; qu'elle en est la seule édition complète; qu'elle est tirée à un petit nombre d'exemplaires
 … qu'elle ne sera pas réimprimée.;
 
 treizième cahier de la neuvième série
@@ -238,8 +233,7 @@ puisqu'ils l'ont prise à la tête de notre Occident, où la Es
 lumière s'éteint, et que certains d'entre eux menacent
 - de mort notre civilisation. Mais je n'ignore pas que
 d'autres, parmi eux, sont une de nos richesses d'action de
-dans leur race. Je sais toutes les puissances de dé-
-vouement, tout le désintéressement orgueilleux, tout
+dans leur race. Je sais toutes les puissances de dévouement, tout le désintéressement orgueilleux, tout
 l'amour et le désir du mieux, l'énergie inlassable, le
 travail opiniâtre et obscur de milliers d'entre eux. Je
 sais qu'il y a en eux un Dieu. Et c'est pour cela que
@@ -306,13 +300,11 @@ Tu troubles les braves gens.; à
 Les braves gens, — oui, sans doute, — les braves +3)
 gens, à qui cela fait de la peine qu'on ne trouve pas TA
 tout très bien, qu'on leur montre tant de choses tristes
-et laides! Eux-mémes sont exploités: mais ils n'en veu-
-lent pas convenir. Cela les chagrine tant de constater
+et laides! Eux-mémes sont exploités: mais ils n'en veulent pas convenir. Cela les chagrine tant de constater
 le mal chez les autres, qu'ils aiment encore mieux étre
 victimes. Ils veulent qu'on leur répète, au moins une
-: Jois par jour, que tout est pour le mieux dans la meil-
-le leure des nations, et que
-À « tu resteras, 6 France, la première. »: à
+: Jois par jour, que tout est pour le mieux dans la meille leure des nations, et que
+À « tu resteras, 6 France, la première. à
 
 ET: Après quoi, les braves gens rassurés se remettent à
 dormir, — et les autres à faire leurs affaires. Bonnes
@@ -399,7 +391,7 @@ filet, pour l'agacement de ses voisins, qu'avec sa maladresse ordinaire il heurt
 contre les vitres, et tâchait vainement de voir. Il se*
 retournait vers ses compagnons de voyage, quêtant un
 regard qui lui permit d'engager la conversation, de
-À; demander où l'on était. Mais ils sommeillaient, ou ils
+demander où l'on était. Mais ils sommeillaient, ou ils
 
 Jean-Christophe à Paris. TETE SA
 faisaient semblant, l'air renfrognés et ennuyés, affectant a
@@ -415,8 +407,7 @@ Bousculant et bousculé, il se dirigea vers la sortie,
 repoussant les facteurs qui s'offraient à porter sons
 bagage. Soupçonneux comme un paysan, il pensait que;
 chacun voulait le voler. Il avait chargé sur son épaule
-sa précieuse -valise, et il allait son chemin, sans se sou-
-cier des apostrophes des gens, au milieu desquels il se
+sa précieuse -valise, et il allait son chemin, sans se soucier des apostrophes des gens, au milieu desquels il se
 frayait un passage. Enfin il se trouva sur le pavé gluant
 à Il était trop préoccupé de sa charge, du gîte qu'il allait
 choisir, et de l'embarras de voitures où il se trouvait
@@ -431,13 +422,12 @@ au rez-de-chaussée. Elle s'intitulait Hôtel de la Civilisa-.
 tion. Un gros homme, en bras de chemise, fumait la
 pipe, à une table; il accourut, en voyant entrer
 -Christophe. ne comprit rien à son jargon; mais il
-jugea du premier coup d'œil l'Allemand gauche et en-
-fantin, qui refusait de laisser prendre son paquet et
+jugea du premier coup d'œil l'Allemand gauche et enfantin, qui refusait de laisser prendre son paquet et
 
 En s'éve tuait à lui faire un discours, en une langue AES
 semb lable. Il le conduisit par un escalier malodorant à
 une pièce sans air, qui donnait sur une cour intérièure.
-:: 4 ne manqua pas de vanter la tranquillité d'un lieu, où
+4 ne manqua pas de vanter la tranquillité d'un lieu, où
 à _ne Parvenait aucun des bruits du dehors; et il lui en
 demanda un bon prix. Christophe, comprenant mal,
 ignorant les, conditions de la vie à Paris, harassé,
@@ -453,12 +443,10 @@ se mêlent les exhalaisons des usines de la banlieue et
 la lourde haleine de la ville. On ne voyait pas à dix pas.
 À La lueur des becs de tremblait comme une bougie
 qui s'éteindre. Dans les demi-ténèbres, une cohue de
-gens roulait en flots contraires. Les voitures se croi-
-saient, se heurtaient, obstruant le passage, refoulant
+gens roulait en flots contraires. Les voitures se croisaient, se heurtaient, obstruant le passage, refoulant
 la circulation comme une digue. Les chevaux glissaient
 4 sur la boue glacée. Les injures des cochers, les trompes
-etles cloches des tramways faisaient un vacarme assour-
-dissant. Ce bruit, ce grouillement, cette odeur saisirent
+etles cloches des tramways faisaient un vacarme assourdissant. Ce bruit, ce grouillement, cette odeur saisirent
 Christophe à la tête et au cœur. Il s'arrêta un instant,
 fut aussitôt Poussé par ceux qui marchaient derrière lui,
 et emporté par le courant. Il descendit le boulevard de:
@@ -477,10 +465,8 @@ eux. C'était un magasin de photographies et de cartes de)
 postales: elles représentaient des filles en chemise, où
 sans chemise; des journaux illustrés étalaient des plat
 ù santeries obscènes. Des.enfants, de jeunes femmes
-regardaient tranquillement. Une fille maigre aux che-
-veux rouges, voyant Christophe absorbé dans sa con- -
-templation, lui fit des offres. Il la regarda sans com-
-prendre. Elle lui prit le bras, avec un sourire stupide:
+regardaient tranquillement. Une fille maigre aux cheveux rouges, voyant Christophe absorbé dans sa con- -
+templation, lui fit des offres. Il la regarda sans comprendre. Elle lui prit le bras, avec un sourire stupide:
 Il secoua son étreinte, et s'éloigna, rougissant de colère.
 Les cafés-concerts se succédaient; à la porte, des affiches
 de cabotins grotesques paradaient. La foule était tou
@@ -527,17 +513,12 @@ Il se trompa de chemin, erra au hasard, se retrouva
 … devant sa maison, au moment où il se croyait définitive-
 “. ment perdu: — il avait oublié jusqu'au nom de la rue
 où il habitait.
-4. rentra dans son infâme logis. A jeun, les yeux brû-
-
-lants, le cœur et le corps courbaturés, il s'affaissa sur
+4. rentra dans son infâme logis. A jeun, les yeux brûlants, le cœur et le corps courbaturés, il s'affaissa sur
 une chaise, dans un coin de sa chambre; ilyresta deux
 heures, incapable de bouger. Enfin il s'arracha à cette
 
 apathie, et il se coucha. Il tomba dans une torpeur À
-fiévreuse, d'où il s'éveillait, à chaque minute, avec Pillu-
-sion d'avoir dormi des heures. La chambre était étouf-
-
-fante; il brûlait des pieds à la tête; il avait une soif
+fiévreuse, d'où il s'éveillait, à chaque minute, avec Pillusion d'avoir dormi des heures. La chambre était étouffante; il brûlait des pieds à la tête; il avait une soif
 horrible; il était en proie à des cauchemars stupides,
 qui continuaient de s'accrocher à lui, même quand A
 avait les yeux ouverts; des angoisses aiguës le péné
@@ -558,8 +539,7 @@ grand-père avait marqué au crayon, de sa grosse écriture, les dates des jours
 chapitre; le livre était rempli de bouts de papier jauni,,
 où le vieux avait noté ses naïves réflexions. Cette Bible
 était placée sur une planche, au-dessus de son lit; illa.…
-prenait souvent, pendant ses longues insomnies, conver-
-sant avec elle, plutôt qu'il ne la lisait. Elle était encore
+prenait souvent, pendant ses longues insomnies, conversant avec elle, plutôt qu'il ne la lisait. Elle était encore
 ouverte sur son lit, pendant sa dernière maladie, et elle
 
 Mia ait tenu compagnie jusqu'à l'heure de la mort,
@@ -569,9 +549,7 @@ siècle des deuils et des joies de la famille se dégageait
 
 de ce livre. Christophe se sentit moins seul avec lui.
 - Il l'ouvrit aux plus sombres pages:
-EPNLa vie de l'homme sur la terre est une guerre conti-
-
-nuelle, et ses jours sont comme les jours d'un merce-:
+EPNLa vie de l'homme sur la terre est une guerre continuelle, et ses jours sont comme les jours d'un merce-:
 Sie me couche, je dis: Quand me lèverai-je? Et,;
 étant levé, j'attends le soir avec impatience, et je suis à
 rempli de douleur jusqu'à la nuit.
@@ -602,8 +580,7 @@ plaisir nouveau. Christophe était ranimé par pre
 souffle, qui montait du vieux livre: le soufile Sinaï,
 ï des vastes solitudes, et de la mer puissante, balayaït
 les miasmes. La fièvre de Christophe tomba. Il se 48)
-Le de coucha, plus calme, et il dormit d'un trait jusqu'a a len-
-demain. Quand il rouvrit les yeux, le jour était vel ce
+Le de coucha, plus calme, et il dormit d'un trait jusqu'a a lendemain. Quand il rouvrit les yeux, le jour était vel ce
 ES Il vit plus nettement encore l'ignominie de sa chambre;
 il sentit sa misère et son isolement; mais il les regax
 en face. Le découragement était parti; il ne lui restait
@@ -611,8 +588,7 @@ en face. Le découragement était parti; il ne lui restait
 Quand Dieu me tuerait, je ne laisserais pas espérer
 Il se leva, et commença la lutte, avec tranq aillité.
 
-- Il décida, le matin même, de faire les premières dé-
-marches. Il connaissait deux seules personnes à Paris,
+- Il décida, le matin même, de faire les premières démarches. Il connaissait deux seules personnes à Paris,
 deux jeunes gens de son pays: son ancien ami, Otto
 Diener, qui était associé à un oncle, marchand de draps,
 
@@ -631,9 +607,7 @@ lPamour. Diener aussi l'avait aimé. Ce gros garçon
 … indépendance de Christophe; il s'était évertué à l'imiter,
 … d'une façon ridicule: ce qui irritait Christophe et le
 flattait. Alors ils faisaient des projets qui bouleversaient
-Je monde. Puis Diener avait voyagé, pour faire son édu-
-
-cation commerciale, et ils ne s'étaient plus revus; mais
+Je monde. Puis Diener avait voyagé, pour faire son éducation commerciale, et ils ne s'étaient plus revus; mais
 
 Christophe avait parfois de ses nouvelles par les gens
 . du pays, avec qui Diener était resté en relations réguWodières.
@@ -687,8 +661,7 @@ de qu'il cherchaït, rue de la Banque. En entrant, il crut
 voir, au fond de la boutique longue et obscure, Diener
 Es occupé à ranger des ballots, au milieu d'employés. Mais:
 il était un peu myope, et se défiait de ses yeux, bien que
-a leur intuition le trompât rarement. Il y eut un remue-
-ménage parmi les gens du fond, quand Christophe eut
+a leur intuition le trompât rarement. Il y eut un remueménage parmi les gens du fond, quand Christophe eut
 . dit son nom au commis qui le recevait; et, après un
 conciliabule, un jeune homme se détacha du groupe, et
 dit en allemand:
@@ -706,7 +679,7 @@ Len Le jeune homme le regarda avec stupéfaction, croyant
 qu'il plaisantait. Mais Christophe ne songeait déjà plus
 à lui. Il s'était assis tranquillement dans un coin,
 le dos tourné à la rue; et il semblait prêt à y camper.
-15 Le commis retourna au fond du magasin, et chuchota
+Le commis retourna au fond du magasin, et chuchota
 avec ses collègues; ils cherchaient, avec une consterg LA 2 17 à Paris.
 
 Jean-Christophe à Paris SA
@@ -722,8 +695,7 @@ boutons d'or à son plastron de chemise, et des bagues
 
 Il vint à Christophe, d'un air dégagé. Christophe, qui
 révassait sur sa chaise, eut un sursaut d'étonnement, Il
-saisit les mains de Diener, et s'exclama, avec une cor-
-dialité bruyante, qui fit rire sous cape les employés, et
+saisit les mains de Diener, et s'exclama, avec une cordialité bruyante, qui fit rire sous cape les employés, et
 rougir Diener. Le majestueux personnage avait ses À
 raisons pour ne pas vouloir reprendre avec Christophe
 ses relations d'autrefois; et il s'était promis de le tenir
@@ -766,8 +738,7 @@ Valgarade de Christophe, et des poursuites dirigées
 contre lui.)
 — Alors, reprit Christophe, tu sais que je ne suis pas
 —. ici pour mon plaisir. J'ai fuir. Je n'ai rien. Il faut que
-Diener attendait la demande. Il la reçut, avec un mé-
-ange de satisfaction — (car elle lui permettait de.
+Diener attendait la demande. Il la reçut, avec un méange de satisfaction — (car elle lui permettait de.
 reprendre sa supériorité sur Christophe) — et de gêne
 ; — (car il n'osait pas la lui faire sentir, comme il eût
 — Ah! fit-il avec importance, c'est bien fâcheux, bien
@@ -826,8 +797,7 @@ instant, que c'était le nom de la maison où était em-
 
 - ployé Sylvain Kohn. Il prit note de l'adresse... Que lui
 
-importait? Il n'irait certainement pas... Pourquoi w'irait-
-il pas?.. Si ce gueux de Diener, qui avait été son ami,
+importait? Il n'irait certainement pas... Pourquoi w'iraitil pas?.. Si ce gueux de Diener, qui avait été son ami,
 
 le recevait ainsi, qu'avait-il à attendre d'an drôle, qu'il: ets
 avait traité sans ménagement, et qui devait le haïr?
@@ -851,9 +821,7 @@ Madeleine. Un hôtel, à porte cochère monumentale. Une
 cour vitrée. Christophe monta à un salon du premier à À
 étage, et demanda Sylvain Kohn. Un employé à fivrée
 lui répondit « qu'il ne connaissait pas ». Christophe, À
-étonné, crut qu'il prononçait mal, et il répéta sa ques-
-
-tion; mais l'employé, après avoir écouté attentivement,:
+étonné, crut qu'il prononçait mal, et il répéta sa question; mais l'employé, après avoir écouté attentivement,:
 ; affirma qu'il avait personne de ce nom dans la
 . maison. Tout décontenancé, Christophe s'excusait, et il
 allaït sortir, quand au fond d'un corridor une porte
@@ -881,19 +849,16 @@ fort est qu'il l'était. Ce petit juif allemand, ce lourdaud,
 s'était fait le chroniqueur et l'arbitre des élégances
 1 parisiennes. Il écrivait de fades courriers mondains,
 Le d'un raflinement compliqué. IL était le champion du
-beau style français, de l'élégance française, de la galan-
-terie française, de l'esprit français, — Régence, talon
+beau style français, de l'élégance française, de la galanterie française, de l'esprit français, — Régence, talon
 
 ,
 instants, eût choqué Christophe, mais qui lui faisait du
 bien, maintenant, dans cette ville étrangère.
-— Mais comment se fait-il, demanda Christophe, en-
-core un peu soupçonneux, qu'on m'ait répondu tout à
+— Mais comment se fait-il, demanda Christophe, encore un peu soupçonneux, qu'on m'ait répondu tout à
 l'heure que Monsieur Kohn n'était pas?
 — Monsieur Kobn n'est pas là, dit Sylvain Kobn, en
 riant. Je ne me nomme plus Kohn. Je m'appelle Hamil-
-Il alla serrer la main à une dame qui passait, et gri-
-maça quelques sourires. Puis il revint. Il expliqua que f. à
+Il alla serrer la main à une dame qui passait, et grimaça quelques sourires. Puis il revint. Il expliqua que f. à
 c'était une femme de lettres, célèbre par des romans
 ( d'une volupté brûlante. La moderne Sapho avait une dé- à
 coration violette à son corsage, des formes plantureuses,
@@ -916,8 +881,7 @@ arriver, faites-en votre profit. A
 
 ? Jean-Christophe à Paris
 rouge, Lauzun. On se moquait de lui; mais cela ne
-: l'empêchait point de réussir, Ceux qui disent que le ri-
-dicule tue à Paris ne connaissent point Paris: bien loin
+: l'empêchait point de réussir, Ceux qui disent que le ridicule tue à Paris ne connaissent point Paris: bien loin
 d'en mourir, il y a des gens qui en vivent; à Paris, le
 ridicule mène à tout, même à la gloire, même aux
 LE bonnes fortunes. Sylvain Kohn n'en était plus à compter
@@ -944,13 +908,11 @@ msaur 5 riant. Je ne me nomme plus Kohn. Je m'appelle Hamil- à
 te dus 98 … Lalla serrer la main à une dame qui passait, et gri- "il
 ET elques sourires. Puis il revint. Il expliqua que à
 ne décier ) femme de lettres, célèbre par des romans
-à Æmülante. La moderne Sapho avait une dé-
-corsage, des formes plantureuses,.
+à Æmülante. La moderne Sapho avait une décorsage, des formes plantureuses,.
 à Wwdent sur une figure réjouie et prétentieuses, d'une voix
 ce qu'était devenu
 terie à montrer qu'il:
-Y vait oublié son anti-
-étaient absolument
+Y vait oublié son antiétaient absolument
 rrompit de nouveau. A
 Stophe, il n'y a donc que
 Et dit avec fatuité:
@@ -963,8 +925,7 @@ dicule tue à Paris ne connaissent point Paris: bien loin
 d'en mourir, il y a des gens qui en vivent; à Paris, le Au
 ridicule mène à tout, même à la gloire, même aux
 bonnes fortunes. Sylvain Kohn n'en était plus à compter
-les déclarations que lui valaient, chaque jour, ses mari-
-parlait, avec un accent lourd et une voix de tête.
+les déclarations que lui valaient, chaque jour, ses mariparlait, avec un accent lourd et une voix de tête.
 — Ah! voilà une surprise! criait-il gaiement, en
 serrant et secouant la main de Christophe dans ses
 mains boudinées, aux doigts courts, qui semblaient tas
@@ -972,8 +933,7 @@ sés dans une peau trop étroite. Il ne pouvait se décider
 à lâcher Christophe. On eût dit qu'il retrouvait son
 meilleur ami. Christophe, interloqué, se demandait si #1
 Kohn se moquait de lui. Mais Kohn ne se moquait pas.
-Ou bien, s'il se moquait, ce n'était pas plus qu'à l'ordinaire. Kohn n'avait pas de rancune: il était trop intel-
-ligent pour cela. Il y avait beau temps qu'il avait oublié
+Ou bien, s'il se moquait, ce n'était pas plus qu'à l'ordinaire. Kohn n'avait pas de rancune: il était trop intelligent pour cela. Il y avait beau temps qu'il avait oublié
 les mauvais traitements de Christophe; et, s'il s'en était es
 souvenu, il ne s'en fût guère soucié. Il était ravi de cette
 occasion de se faire voir à un ancien camarade dans
@@ -982,8 +942,7 @@ ses manières parisiennes. Il ne mentait pas, en disant
 sa surprise: la dernière chose du monde, à laquelle il
 se fût attendu, était bien une visite de Christophe; et
 s'il était trop avisé pour ne pas savoir d'avance qu'elle À
-avait un but intéressé, il était des mieux disposés à l'ac-
-cueillir, par ce seul fait qu'elle était un hommage rendu
+avait un but intéressé, il était des mieux disposés à l'accueillir, par ce seul fait qu'elle était un hommage rendu
 à son pouvoir.
 — Et vous venez du pays? Comment la maman?
 demandait-il, avec une familiarité, qui, à d'autres
@@ -998,8 +957,7 @@ riant. Je ne me nomme plus Kohn. Je m'appelle HamilF - ton.
 : Il alla serrer la main à une dame qui passait, et gri-
 À maça quelques sourires. Puis il revint. Il expliqua que
 c'était une femme de lettres, célèbre par des romans
-d'une volupté brûlante. La moderne Sapho avait une dé-
-coration violette à son corsage, des formes plantureuses,
+d'une volupté brûlante. La moderne Sapho avait une décoration violette à son corsage, des formes plantureuses,
 et des cheveux blond ardent sur une figure réjouie et
 plâtrée; elle disait des choses prétentieuses, d'une voix
 mâle, qui avait un accent franc-comtois.
@@ -1040,8 +998,7 @@ Ils sortirent ensemble. Chemin faisant, Christophe
 hasarda sa requête:
 — Vous voyez maintenant quelle est ma situation. Je.
 suis venu ici chercher du travail, des leçons de musique,
-en attendant que je me sois fait connaître. Pourriez-
-vous me recommander?:
+en attendant que je me sois fait connaître. Pourriezvous me recommander?:
 — Comment donc! fit Kohn. A qui vous voudrez. Je
 connais tout le monde ici. Tout à votre service.
 Il était heureux de faire montre de son crédit.
@@ -1066,8 +1023,7 @@ mit le comble à son irritation, en voulant à la fin trin-
 Rhein. Kohn vit, avec épouvante, le moment où il allait
 chanter. Les voisins de table les regardaient ironiquement. Kohn prétexta des occupations urgentes, et se
 leva. Christophe s'accrochait à lui; il voulait savoir
-quand il pourrait avoir une recommandation, se pré-
-senter chez quelqu'un, commencer ses leçons.
+quand il pourrait avoir une recommandation, se présenter chez quelqu'un, commencer ses leçons.
 — Je vais m'en occuper. Aujourd'hui. soir même,
 promettait Kohn. J'en parlerai tout à l'heure. Vous pouvez être tranquille.
 — Quand saurai-je?
@@ -1088,21 +1044,19 @@ Christophe la lui dicta. HAE
 Il se dégagea des poignées de main de Christophe, et
 Ouf! pensait-il. Voilà un raseur!;
 Il avertit, en rentrant, le garcon de bureau qu'il ne
-serait pas là, quand « l'Allemand » viendrait le voir. —;
+serait pas là, quand « l'Allemand » viendrait le voir.
 Dix minutes après, il l'avait oublié.
 Christophe revint à son taudis. Il était tout attendri.
 — Le bon garçon! Le bon garçon! pensait-il. Comme
 j'ai été injuste envers lui. Et il ne m'en veut pas! À
 Ce remords lui pesait; il fut sur le point d'écrire à à (
-Kohn combien il était peiné de l'avoir mal jugé autre-
-fois, et qu'il lui demandait pardon du tort qu'il lui avait
+Kohn combien il était peiné de l'avoir mal jugé autrefois, et qu'il lui demandait pardon du tort qu'il lui avait
 fait, Il avait les larmes aux yeux, en y pensant. Mais il SA:
 lui était moins aisé d'écrire une lettre qu'une partition;
 et après avoir pesté dix fois contre l'encre et la plume;
 de l'hôtel, qui en effet étaient ignobles, après avoir barbouillé, raturé, déchiré quatre ou cinq feuilles de papier,
 il s'impatienta et envoya tout promener.
-Le reste de la journée fut long à passer; mais Chris-
-tophe était si fatigué par sa mauvaise nuit et par les
+Le reste de la journée fut long à passer; mais Christophe était si fatigué par sa mauvaise nuit et par les
 courses du matin qu'il finit par s'assoupir sur sa chaise.
 ne sortit de sa torpeur, vers le soir, que pour se cou- à
 cher; et il dormit douze heures de suite, sans s'arrêter. 57188
@@ -1211,8 +1165,7 @@ qu'ils ont des indulgences spéciales pour les fâcheux et
 
 pour les ennemis même, qui leur offrent une occasion à
 
-de l'exercer à leurs dépens. D'ailleurs, Kohn ne lais-
-sait pas d'être touché par l'intérêt que Christophe pre- Le
+de l'exercer à leurs dépens. D'ailleurs, Kohn ne laissait pas d'être touché par l'intérêt que Christophe pre- Le
 nait à sa personne. Il se sentit disposé à lui rende —
 
 — Il me vient une idée, dit-il. En attendant les leçons,
@@ -1233,8 +1186,7 @@ n'était pas fâché de se débarrasser de Christophe, tout
 en l'obligeant.
 
 Le lendemain, Christophe vint prendre Kohn à son
-: bureau. Il avait, sur son conseil, emporté quelques com-
-positions pour les montrer à Hecht. Ils trouvèrent eelui-
+: bureau. Il avait, sur son conseil, emporté quelques compositions pour les montrer à Hecht. Ils trouvèrent eelui-
 à son magasin de musique, près de l'Opéra. Hecht
 ne se dérangea pas, à leur entrée; il tendit froidement
 deux doigts à la poignée de main de Kohn, ne répondit
@@ -1298,8 +1250,7 @@ Daniel Hecht, ne les connaissait pas.
 : — Eh bien, dit-il, je pourrais peut-être vous occuper,
 puisque vous m'êtes recommandé par mon ami Hamil-
 . ton. Nous faisons en ce moment une collection, une
-Bibliothèque de la jeunesse, où nous publions des mor-
-ceaux de piano faciles. Sauriez-vous nous « simplifier »
+Bibliothèque de la jeunesse, où nous publions des morceaux de piano faciles. Sauriez-vous nous « simplifier »
 - le Carnaval de Schumann, et l'arranger à six et à huit
 — Et voilà ce que vous m'offrez, à moi, à moi!..
 Ce « moi » naïf fit la joie de Kohn; mais Hecht prit
@@ -1350,8 +1301,7 @@ J'ai dit que cela se pourrait.
 musicien comme moi?,
 — Un musicien comme vous? dit Hecht, d'un ton
 d'ironie blessante. D'aussi bons musiciens que vous,
-pour le moins, n'ont pas cru cette occupation au-
-dessous de leur dignité. Certains, que je pourrais nommer, et qui sont maintenant bien connus à Paris, m'en
+pour le moins, n'ont pas cru cette occupation audessous de leur dignité. Certains, que je pourrais nommer, et qui sont maintenant bien connus à Paris, m'en
 ont été reconnaissants.
 — C'est qu'ils sont des jean-foutres, éclata Christophe. — (IL connaissait déjà certaines finesses de la
 langue française.) — Vous vous trompez, si vous croyez
@@ -1361,8 +1311,7 @@ regarder en face, et de me parler du bout des dents?
 Vous n'avez même pas daigné répondre à mon salut,
 quand je suis entré... Mais qu'est-ce que vous êtes donc,
 pour en user ainsi avec moi? Êtes-vous seulement
-musicien? Avez-vous jamais rien écrit? Et vous pré-
-tendez m'apprendre comment on écrit, à moi, dont c'est
+musicien? Avez-vous jamais rien écrit? Et vous prétendez m'apprendre comment on écrit, à moi, dont c'est
 la vie d'écrire! Et vous ne trouvez rien de mieux à
 m'offrir, après avoir ma musique, que de châtrer de
 grands musiciens, et de faire des saloperies sur leurs
@@ -1466,8 +1415,7 @@ prit un air digne, quand elle sut pourquoi il venait..
 Tout de suite, elle aborda la question de prix, se hâtant
 
 d'ajouter qu'elle ne voulait pas y mettre beaucoup,
-parce que le piano est une chose agréable, mais pas né-
-cessaire: elle lui offrit cinquante centimes l'heure. Elle
+parce que le piano est une chose agréable, mais pas nécessaire: elle lui offrit cinquante centimes l'heure. Elle
 ne voulut jamais aller au delà de quatre francs par me
 semaine. Après quoi, elle demanda à Christophe, d'un
 air méfiant, si au moins il savait bien la musique. Elle
@@ -1488,8 +1436,7 @@ les touches, — qui était incapable de distinguer un son
 d'un autre, — qui se tortillait d'ennui, — qui lui bâillait
 au nez, dès les premières minutes, — quand il eut à subir
 la surveillance de la mère et sa conversation, ses idées” à
-sur la musique et sur l'éducation musicale, — il se sen-
-tit si misérable, si misérablement humilié qu'il n'avait
+sur la musique et sur l'éducation musicale, — il se sentit si misérable, si misérablement humilié qu'il n'avait
 même plus la force de s'indigner. Il rentrait, dans un
 état d'accablement; certains soirs, il ne pouvait diner.
 S'il en était tombé là, au bout de quelques semaines,? À
@@ -1546,13 +1493,10 @@ lhistoire; et leur malveillance pour les voisins en fut
 réjouie. Maïs, le soir, tout le quartier répétait que
 l'Allemand était une brute, qui battait les enfants.
 
-Christophe fit de nouvelles démarches chez des mar-
-
-chands de musique: elles ne servirent à rien. Il trouvait
+Christophe fit de nouvelles démarches chez des marchands de musique: elles ne servirent à rien. Il trouvait
 les Français peu accueillants; et leur agitation désor-
 
-. donnée l'ahurissait. Il avait l'impression d'une société-
-anarchique, dirigée par une bureaucratie rogue et despotique.
+. donnée l'ahurissait. Il avait l'impression d'une sociétéanarchique, dirigée par une bureaucratie rogue et despotique.
 
 Un soir qu'il errait sur les boulevards, découragé de
 l'inutilité de ses efforts, il vit Sylvain Kohn, qui venait
@@ -1583,9 +1527,7 @@ d'amusement qu'ils pouvaient avoir pour lui; et il avait
 entrevu dans Christophe une source de haut comique,
 dont il se promettait bien de profiter. Set
 
-— Il fallait venir me voir, continuait-il. Je vous atten-
-
-dais. Qu'est-ce que vous faites, ce soir? Vous allez
+— Il fallait venir me voir, continuait-il. Je vous attendais. Qu'est-ce que vous faites, ce soir? Vous allez
 
 venir dîner. Je ne vous lâche plus. Nous serons entre
 
@@ -1638,8 +1580,7 @@ de tomber dans le domaine public, et qu'on lachetait beaucoup trop. Aussi récla
 protection énergique, frappant de lourdes taxes les
 chefs-d'œuvre du passé, afin de s'opposer à leur diffu-
 
-à sion à prix réduits, qu'ils taxaient aigrement de concur-
-rence déloyale pour la marchandise des artistes d'à
+à sion à prix réduits, qu'ils taxaient aigrement de concurrence déloyale pour la marchandise des artistes d'à
 
 Ils s'interrompirent les uns et les autres pour écouter
 les chiffres des recettes qu'avait faits telle ou telle pièce
@@ -1668,8 +1609,7 @@ d'argent, il avait renoncé à suivre la discussion, quand
 ils finirent par parler de littérature, — ou, tout au moins,
 de littérateurs.
 Christophe dressa l'oreille, en entendant le nom de
-11 s'agissait de savoir s'il avait été cocu. Ils discu-
-tèrent longuement sur les amours de Sainte-Beuve et de
+11 s'agissait de savoir s'il avait été cocu. Ils discutèrent longuement sur les amours de Sainte-Beuve et de
 . madame Hugo. Après quoi, ils parlèrent des amants de
 . George Sand, et de leurs mérites respectifs. C'était la
 grande occupation de la critique littéraire d'alors:
@@ -1726,12 +1666,9 @@ feignaient ‘de intéresser. Ils faisaient grand bruit
 surtout d'un opéra nouveau, dont ils n'étaient pas loin
 de faire dater la musique, ou tout au moins l'ère nouvelle de la musique. Leur ignorance et leur snobisme
 s'accommodaient assez de cette idée, qui les dispensait
-de connaître le reste. L'auteur de cet opéra, un Parisien, dont Christophe entendait le nom pour la pre-
-mière fois, avait, disaient certains, fait table rase de
+de connaître le reste. L'auteur de cet opéra, un Parisien, dont Christophe entendait le nom pour la première fois, avait, disaient certains, fait table rase de
 tout ce qui était avant lui, renouvelé de toutes pièces,
-re-créé la musique. Christophe sursauta. Il ne deman-
-
-dait pas mieux que de croire au génie. Mais un génie
+re-créé la musique. Christophe sursauta. Il ne demandait pas mieux que de croire au génie. Mais un génie
 de cette trempe, qui d'un coup anéantissait le passé!..
 Nom de nom! C'était un gaillard; comment diable
 … avait-il faire? — Il demanda des explications. Les
@@ -1744,8 +1681,7 @@ Goujart savait la musique, à peu près comme SganaLa relle savait le latin.
 4 — … Vous nentendez point le latin?
 — (Avec enthousiasme) Cabricias, arci thuram, catad lamus, Ssingulariter,.…. bonus, bona, bonum.…
 Se trouvant en présence d'un homme, qui « entendait
-le latin il se replia prudemment aussitôt dans le ma-
-quis de l'esthétique. De ce refuge inexpugnable, il se
+le latin il se replia prudemment aussitôt dans le maquis de l'esthétique. De ce refuge inexpugnable, il se
 …. mit à fusiller Beethoven, Wagner, et l'art classique, qui
 métaient pas en cause: (mais en France, on ne peut
 B. louer un artiste, sans lui offrir en holocauste tous ceux
@@ -1783,8 +1719,7 @@ et, sans qu'on la connût, sa musique fut jugée détestable. Mais l'attention d
 aux yeux railleurs, prompts à saisir les ridicules, avait
 été ramenée vers ce personnage bizarre, qui agitait avec
 des mouvements gauches et violents des bras maïgres
-aux mains énormes, et qui dardait des regards furi-
-bonds, en criant d'une voix suraiguëé. Sylvain Kobn
+aux mains énormes, et qui dardait des regards furibonds, en criant d'une voix suraiguëé. Sylvain Kobn
 entreprit d'en donner la comédie à ses amis.
 La conversation s'était définitivement écartée de la
 littérature pour s'attacher aux femmes. — A vrai dire,
@@ -1835,8 +1770,7 @@ On essaya de le relancer dans la discussion; mais il
 fronça les sourcils, et il ne broncha plus, les coudes sur
 la table, honteux et irrité. Il ne desserra plus les dents
 jusqu'à la fin du diner, si ce n'est pour manger et pour
-boire. Il buvaït énormément, au contraire de ces Fran-
-çais, qui touchaient à peine à leurs vins. Son voisin
+boire. Il buvaït énormément, au contraire de ces Français, qui touchaient à peine à leurs vins. Son voisin
 encourageait malignement, et remplissait son verre,
 qu'il vidait sans y penser. Mais, quoiqu'il ne fût pas
 habitué à ces excès de table, surtout après les semaïnes
@@ -1860,8 +1794,7 @@ une éponge; et il les emportait. Il lui semblaït n'avoir
 qu'il avait tout raflé.
 Mais pour l'instant, il n'avait l'air que d'un lourdaud
 d'Allemand, qui s'empiffrait de mangeaille, attentif
-seulement à ne pas perdre une goulée. Et il ne distin-
-guait rien, sinon qu'en écoutant ses convives s'interpeller
+seulement à ne pas perdre une goulée. Et il ne distinguait rien, sinon qu'en écoutant ses convives s'interpeller
 par leurs noms, il se demandait, avec une insistance:
 d'ivrogne, pourquoi tant de ces Français avaient des
 ) anglo- ou hispano-américains.…
@@ -1875,8 +1808,7 @@ tour, et, ne regardant personne, il aka chercher son
 manteau et son chapeau accrochés à l'entrée. Après les
 ï avoir mis, il partait sans dire bonsoir, quand, par
 … l'entrebâäillement d'une porte, il aperçut dans un cabinet
-voisin un objet qui le fascina: un piano. Il y avait plu-
-sieurs semaines qu'il n'avait touché à un instrument de
+voisin un objet qui le fascina: un piano. Il y avait plusieurs semaines qu'il n'avait touché à un instrument de
 musique. Il entra, caressa amoureusement les touches,
 ï s'assit, et, son chapeau sur la tête, son manteau sur le
 
@@ -1916,19 +1848,15 @@ Den sut pour ment, une place de critique musical était vacante dans RH!
 compositeur de talent, avait été congédié, parce qu'il
 JM" s'obstinait à dire ce qu'il pensait des œuvres et des
 awk auteurs. Goujart ne s'était jamais occupé de musique, dr:
-se dat avait assez des gens compétents; au moins, avec Gou-
-jart, on n'avait rien à craindre: il n'attachait pas une
+se dat avait assez des gens compétents; au moins, avec Goujart, on n'avait rien à craindre: il n'attachait pas une
 importance ridicule à ses opinions; toujours aux ordres #3:
-de la direction, et prêt à en faire passer les éreinte-
-eme ments et les réclames. Qu'il ne fût pas musicien, c'était
+de la direction, et prêt à en faire passer les éreinteeme ments et les réclames. Qu'il ne fût pas musicien, c'était
 pee une considération secondaire. La musique, comme on
 sait, chacun en connaît assez en France. Goujart avait
 vite acquis la science indispensable. Le moyen était
 simple: il consistait, aux concerts, à prendre pour
-AU voisin quelque bon musicien, si possible un composi-
-teur, et à savoir ce qu'il pensait des œuvres qu'on
-jouait. Au bout de quelques mois de cet apprentis-
-wté OÙ sage, on connaissait le métier: l'oison pouvait voler.
+AU voisin quelque bon musicien, si possible un compositeur, et à savoir ce qu'il pensait des œuvres qu'on
+jouait. Au bout de quelques mois de cet apprentiswté OÙ sage, on connaissait le métier: l'oison pouvait voler.
 +1 A À la vérité, ce n'était pas comme un aigle; et Dieu 1 à
 ue” sait les sottises que Goujart déposait dans sa feuille,
 avec autorité! Il écoutait et lisait à tort et à travers,
@@ -1943,8 +1871,7 @@ je le mort, et se gardait bien de répondre. Il était à sil
 Jean-Christophe à Paris
 dos, il commença de jouer. Il avait parfaitement oublié
 : où il était. IL ne remarqua point que deux personnes se
-À glissaient dans la pièce pour l'entendre. L'une était Syl-
-vain Kohn, passionné/de musique, — Dieu sait pourEd: quoi! car il n'y comprenait rien, et il aimait autant la
+À glissaient dans la pièce pour l'entendre. L'une était Sylvain Kohn, passionné/de musique, — Dieu sait pourEd: quoi! car il n'y comprenait rien, et il aimait autant la
 mauvaise que la bonne. — L'autre était le critique musi-
 É cal, Théophile Goujart. Celuià— (c'était plus simple) —
 ne comprenait ni n'aimait la musique; mais cela ne le
@@ -1995,11 +1922,8 @@ où scie LE moyen était
 Jean-Christophe à Paris à
 dos, il commença de jouer. Il avait parfaitement oublié
 où il était. Il ne remarqua point que deux personnes se
-glissaient dans la pièce pour l'entendre. L'une était Sylvain Kohn, passionné/de musique, — Dieu sait pour-
-
-quoi! car il n'y comprenait rien, et il aimait autant la
-mauvaise que la bonne. — L'autre était le critique musi-
-cal, Théophile Goujart. Celui-là — (c'était plus simple) —
+glissaient dans la pièce pour l'entendre. L'une était Sylvain Kohn, passionné/de musique, — Dieu sait pourquoi! car il n'y comprenait rien, et il aimait autant la
+mauvaise que la bonne. — L'autre était le critique musical, Théophile Goujart. Celui-là — (c'était plus simple) —
 ne comprenait ni n'aimait la musique; maïs cela ne le
 
 : génait point pour en parler. Au contraire: il a pas
@@ -2039,9 +1963,7 @@ auteurs. Goujart ne s'était jamais occupé de musique,
 
 … et il ne savait rien: on le choisit sans hésiter. On en
 
-avait assez des gens compétents; au moins, avec Gou-
-
-jart, on n'avait rien à craindre: il n'attachaïit pas une
+avait assez des gens compétents; au moins, avec Goujart, on n'avait rien à craindre: il n'attachaïit pas une
 
 ; importance ridicule à ses opinions; toujours aux ordres
 
@@ -2055,9 +1977,7 @@ de la direction, et prêt à en faire passer les éreinte-
 
 vite acquis la science indispensable. Le moyen était
 
-… simple: il consistait, aux concerts, à prendre pour » voisin quelque bon musicien, si possible un composi-
-
-teur, et à savoir ce qu'il pensait des œuvres qu'on
+… simple: il consistait, aux concerts, à prendre pour » voisin quelque bon musicien, si possible un compositeur, et à savoir ce qu'il pensait des œuvres qu'on
 
 jouait. Au bout de quelques mois de cet apprentis-
 
@@ -2134,18 +2054,15 @@ instruments, Et quand le morceau était fini, il eût crevé,
 ; s'il n'avait fait part à Christophe de ses ineptes
 
 Jean-Christophe à Paris
-Il était un-curieux mélange de sentimentalité germa-
-nique, de blague parisienne, et de fatuité insupportable. a
+Il était un-curieux mélange de sentimentalité germanique, de blague parisienne, et de fatuité insupportable. a
 Tantôt c'étaient des jugements apprêtés et précieux,
-tantôt des comparaisons extravagantes, tantôt des indé-
-cences, des obscénités, des insanités, des coquecigrues.
+tantôt des comparaisons extravagantes, tantôt des indécences, des obscénités, des insanités, des coquecigrues.
 Pour louer Becthoven, il y voyait des polissonneries,
 une sensualité lubrique. Il trouvait un élégant badinage
 dans de sombres pensées. Le quatuor en dièse
 mineur lui semblait aimablement crâne. Le sublime
 adagio de la Neuvième Symphonie le faisait penser à À
-Chérubin. Après les trois coups qui ouvrent la Sym-
-phonie en mineur, il criaït: N'entrez pas! y a
+Chérubin. Après les trois coups qui ouvrent la Symphonie en mineur, il criaït: N'entrez pas! y a
 quelqu'un. » Il admirait la bataille de Heldenleben,
 parce qu'il prétendait y reconnaître le bruit d'une
 automobile. Et partout, des images pour expliquer les à
@@ -2154,16 +2071,13 @@ demandait comment il pouvait aimer la musique. Cependant, il n'y avait point de 
 de ces pages, qu'il comprenait de la façon la plus
 cocasse, les larmes lui venaient presque aux yeux.
 Maïs, après avoir été ému par une scène de Wagner, il!
-tapotait sur le piano un galop d'Offenbach, ou chanton-
-nait une scie de café-concert, après l'Ode à la Joie.
+tapotait sur le piano un galop d'Offenbach, ou chantonnait une scie de café-concert, après l'Ode à la Joie.
 Alors Christophe bondissait, et il hurlaït de colère.
 Mais le pire n'était pas quand Sylvain Kohn était
-absurde; c'était quand il voulait dire des choses pro-
-fondes et délicates, quand il voulait poser aux yeux de
+absurde; c'était quand il voulait dire des choses profondes et délicates, quand il voulait poser aux yeux de
 Christophe, quand c'était Hamilton, et non Sylvain
 Kohn, qui parlait. Dans ces moments-là, Christophe
-dardait sur lui un regard chargé de haine, et il l'écra-
-sait sous des paroles froidement injurieuses, qui bles-
+dardait sur lui un regard chargé de haine, et il l'écrasait sous des paroles froidement injurieuses, qui bles-
 ; saient l''amour-propre de Hamilton: les séances de à
 
 : piano se terminaient fréquemment par des brouilles.
@@ -2199,16 +2113,14 @@ Christophe fut ravi. Il trouva l'attention délicate, et
 ce qu'il l'avait vu, le premier soir. Seul à seul avec lui,
 il était sans morgue, bon enfant, timide, cherchant à
 s'instruire. Ce n'était que lorsqu'il se trouvait avec
-d'autres qu'il reprenait instantanément son air supé-
-rieur et son ton cassant. D'ailleurs, son désir de s'instruire avait toujours un caractère pratique. Il n'était
+d'autres qu'il reprenait instantanément son air supérieur et son ton cassant. D'ailleurs, son désir de s'instruire avait toujours un caractère pratique. Il n'était
 pas curieux de ce qui n'était pas d'actualité. Pour le
 moment, il aurait voulu savoir ce que Christophe pensait d'une partition qu'il avait reçue, et dont il eût été;
 bien embarrassé pour rendre compte: Car il lisait à
 peine ses notes.;
 Ils allèrent ensemble à un concert symphonique. à
 L'entrée était commune avec un music-hall. Par un;
-boyau sinueux, on accédait à une salle sans dégage-
-ments: l'atmosphère était étouffante; les sièges, trop
+boyau sinueux, on accédait à une salle sans dégagements: l'atmosphère était étouffante; les sièges, trop
 
 étroits, entassés; une partie du public se tenait debout,
 bloquant toutes les issues: — l'inconfortable français.
@@ -2281,8 +2193,7 @@ Danaïdes. Il ne restait rien au fond.
 ! chose. Il trouvait à tous les concerts les mêmes figures
 et les mêmes morceaux. Ces programmes copieux ne
 sortaient jamais du même cercle. Presque rien avant
-Beethoven. Presque rien après Wagner. Et dans l'inter-
-valle, que de lacunes! IL semblait que la musique se
+Beethoven. Presque rien après Wagner. Et dans l'intervalle, que de lacunes! IL semblait que la musique se
 réduisit à cinq ou six noms célèbres en Allemagne, à
 trois ou quatre en France, et à une demi-douzaine de
 4 morceaux russes, — toujours les mêmes, — Rien des
@@ -2352,8 +2263,7 @@ Jean-Christophe à Paris
 rellement, n'étaient pas très connus: ils restaient can-.
 : tonnés dans leurs petites revues; à une ou deux exceptions près, les journaux n'étaient pas pour eux. Braves.
 
-gens, intelligents, intéressants, que leur isolement incli-
-nait parfois au paradoxe, et l'habitude de monologuer …
+gens, intelligents, intéressants, que leur isolement inclinait parfois au paradoxe, et l'habitude de monologuer …
 tout seuls, à l'intolérance de jugement et au bavardage. 4}
 
 — Les autres avaient appris hâtivement les rudiments
@@ -2375,8 +2285,7 @@ de neuvièmes et de successions de tierces majeures. À
 déroulaient dans une page, ils s'épongeaient le front
 avec fierté: ils croyaient avoir expliqué le morceau; ils
 croyaient presque l'avoir écrit. À vrai dire, ils n'avaient
-fait que le répéter, en termes d'école, comme un collé-
-gien qui fait l'analyse grammaticale d'une page de
+fait que le répéter, en termes d'école, comme un collégien qui fait l'analyse grammaticale d'une page de
 Cicéron. Mais il était si difficile aux meilleurs d'entre
 eux de concevoir la musique comme une langue natu- À
 relle de l'âme, que, lorsqu'ils n'en faisaient pas une suc- à
@@ -2393,12 +2302,10 @@ dont on avait beaucoup abusé dans ces dernières années,
 commençait-il à paraître pédant, perruque, et, pour tout
 dire, un peu coco. Les gens très distingués prônaient
 mystérieusement Rameau, et Couperin dit le Grand.
-Entre ces savants hommes, des luttes épiques s'éle-
-vaïent. ils étaient tous musiciens; mais comme ils ne
+Entre ces savants hommes, des luttes épiques s'élevaïent. ils étaient tous musiciens; mais comme ils ne
 étaient pas tous de la même manière, ils prétendaient,
 chacun, que sa manière seule était la bonne, et ils
-) criaient: raca! sur celles de leurs confrères. Ils se trai-
-taient mutuellement de faux littérateurs et de faux
+) criaient: raca! sur celles de leurs confrères. Ils se traitaient mutuellement de faux littérateurs et de faux
 .! savants; ils se lançaient à la tête les mots d'idéalisme
 subjectivisme et d'objectivisme. Christophe se disait
 ; que ce n'était pas la peine d'être venu d'Allemagne,
@@ -2417,8 +2324,7 @@ monies succulentes: ils parlaient de musique, comme
 
 Jean-Christophe à Paris.
 
-sique était pour eux un discours, ou plutôt une collec-
-tion de discours, une Assemblée parlementaire, où les
+sique était pour eux un discours, ou plutôt une collection de discours, une Assemblée parlementaire, où les
 orateurs parlaient tous à la fois, sans s'occuper de leurs A
 voisins, jusqu'à ce qu'ils eussent fini; tant pis si on ne.
 les entendait pas! on pourrait lire leurs discours, le
@@ -2437,18 +2343,14 @@ il répondit
 
 — La musique. Montrez-moi donc la vôtre. ‘hi
 
-Sur leur musique, ils étaient tous d'accord. Ces ba-
-tailleurs intrépides, ces hoplites de l'harmonie, ces à
+Sur leur musique, ils étaient tous d'accord. Ces batailleurs intrépides, ces hoplites de l'harmonie, ces à
 chevau-légers du contrepoint, qui se gourmaient à qui
 mieux mieux, quand ils ne gourmaient point quelque
 vieux mort illustre, dont la célébrité avait trop duré, se
-trouvaient réconciliés en une passion commune: l''ar-
-deur de leur patriotisme musical. La France était pour
+trouvaient réconciliés en une passion commune: l''ardeur de leur patriotisme musical. La France était pour
 eux le grand peuple musical. Ils proclamaïient sur tous À
 les tons la déchéance de l'Allemagne. — Christophe
-n'en était pas blessé. Il l'avait tellement décrétée lui-
-même qu'il ne pouvait de bonne foi contredire à ce juge-
-ment. Mais la suprématie de la musique française
+n'en était pas blessé. Il l'avait tellement décrétée luimême qu'il ne pouvait de bonne foi contredire à ce jugement. Mais la suprématie de la musique française
 l'étonnait un peu: à vrai dire, on en voyait peu de
 
 - traces dans le passé. Les musiciens français affirmaient;
@@ -2462,8 +2364,7 @@ Belge. Cette exécution faite, on en était plus à l'aise
 pour admirer des maîtres archaïques, qui tous étaient
 oubliés, et dont certains étaient restés jusqu'à ce jour
 totalement inconnus. Au rebours des écoles laïques de
-France, qui font dater le monde de la Révolution fran-
-çaise, les musiciens regardaient celle-ci comme une
+France, qui font dater le monde de la Révolution française, les musiciens regardaient celle-ci comme une
 
 chaîne de montagnes massives, qu'il fallait gravir pour
 contempler, derrière, l'âge d'or de la musique, l'Eldorado de l'art. Après une longue éclipse, l'âge d'or allait
@@ -2533,9 +2434,7 @@ il était naturel, avec ses habitudes d'un art tout diffé:
 rent, il ne comprenait rien à cette musique nouvelle, et
 comprenait d'autant moins qu'il croyait la comprendre.
 
-Tout lui semblait baigné dans un demi-jour perpé-
-
-tuel. C'était une grisaille, où les lignes s'estompaient,
+Tout lui semblait baigné dans un demi-jour perpétuel. C'était une grisaille, où les lignes s'estompaient,
 
 … s'enfonçaient, émergeaient par moments, s'effaçaient de
 
@@ -2556,8 +2455,7 @@ leur petite lanterne; seulement, c'était comme celle des
 vers luisants: elle ne réchauffait rien, et éclairait à
 
 Jean-Christophe à Paris FAP
-peine. Les titres des œuvres changeaïent: il était par-
-fois question de printemps, de midi, d'amour, de joie -
+peine. Les titres des œuvres changeaïent: il était parfois question de printemps, de midi, d'amour, de joie -
 de vivre, de course à travers les champs: la musique,
 elle, ne changeaït pas; elle était uniformément douce,
 pâle,“engourdie, anémique, étiolée. — C'était alors la
@@ -2574,9 +2472,7 @@ musique pure était presque toujours de la musique à
 programme, ou tout au moins à sujets. Ils avaient
 beau médire de la littérature: il leur fallait une
 béquille littéraire sur laquelle s'appuyer. Étranges
-béquilles, à l'ordinaire! Christophe remarqua la puéri-
-
-lité bizarre des sujets qu'ils s'astreignaient à peindre.
+béquilles, à l'ordinaire! Christophe remarqua la puérilité bizarre des sujets qu'ils s'astreignaient à peindre.
 
 C'étaient des vergers, des potagers, des poulaillers, des
 ménageries musicales, de vrais Jardins des Plantes.
@@ -2588,13 +2484,10 @@ de Päris, l'auberge hollandaise, ou la croupe d'un
 cheval blanc. Cela semblait à Christophe des jeux de
 vieux enfants, qui ne s'intéressaient qu'à des images,
 et qui, ne sachant pas dessiner, barbouillaient leurs
-cahiers de tout ce qui leur passait par la tête, inscri-
-
-vant naïvement au-dessous, en grosses lettres, que
+cahiers de tout ce qui leur passait par la tête, inscrivant naïvement au-dessous, en grosses lettres, que
 c'était le portrait d'une maison ou d'un arbre.
 A côté de ces imagiers aveugles, qui voyaient avec
-.._ leurs oreilles, il y avait aussi des philosophes: ils trai-
-taient en musique des problèmes métaphysiques; leurs
+.._ leurs oreilles, il y avait aussi des philosophes: ils traitaient en musique des problèmes métaphysiques; leurs
 symphonies étaient la lutte de principes abstraits, l'exposé d'un symbole ou d'une religion. C'étaient les
 mêmes qui, dans leurs opéras, abordaïent l'étude des
 questions juridiques et sociales de leur temps: toute la
@@ -2603,8 +2496,7 @@ Femme et du Citoyen, élaborée par les métaphysiciens
 de la Butte et du Palais-Bourbon. On ne désespérait pas à
 de mettre sur le chantier la question du divorce, la
 recherche de la paternité, et la séparation de l'Église et
-de l'État. Il y avait des symbolistes laïques et des sym-
-bolistes cléricaux. On entendait chanter des chiffonniers
+de l'État. Il y avait des symbolistes laïques et des symbolistes cléricaux. On entendait chanter des chiffonniers
 philosophes, des grisettes sociologues, des boulangers
 prophétiques, des pêcheurs apostoliques. Goethe parlait
 déjà des artistes de son époque, « qui reproduisaient
@@ -2628,16 +2520,14 @@ On répète toujours que la musique est une langue
 universelle. C'est bien mal la connaître. Qui la pénètre
 autant que de races; peut-être même la musique offret-elle plus d'espèces diverses que la poésie: car elle se
 modèle plus exactement sur les moindres plis de la
-pensée. Ces différences frappaient moins autrefois qu'au-
-jourd'hui. Au temps où la société polie de toute l'Europe
+pensée. Ces différences frappaient moins autrefois qu'aujourd'hui. Au temps où la société polie de toute l'Europe
 parlait le latin et le français, elle avait aussi en musique
 une langue internationale, à base d'italien, sous le voïle
 de laquelle se dissimulait l'opposition des pensées. Une
 telle éducation avait formé des génies européens, comme
 Gluck et Beethoven, qui étaient en musique l'équivalent
 des Jean-Jacques et des Goethe. Mais depuis que les
-races ont repris âprement conscience de leur individua-
-lité, leurs musiques comme leurs littératures se sont À
+races ont repris âprement conscience de leur individualité, leurs musiques comme leurs littératures se sont À
 nettement scindées. Pour les comprendre maïntenant,
 il faut se donner la peine d'en apprendre la langue, et
 ne pas croire qu'on la sait d'avance. Christophe le
@@ -2661,8 +2551,7 @@ signifiait rien, puisque lui, n'y comprenait rien,
 Christophe ne s'en faisait pas faute. Les symphonies
 françaises lui semblaient une dialectique abstraite, où
 les thèmes musicaux s'opposaient ou se superposaient
-. les uns aux autres, à la façon d'opérations arithmé-
-tiques: pour exprimer leurs combinaisons, on aurait
+. les uns aux autres, à la façon d'opérations arithmétiques: pour exprimer leurs combinaisons, on aurait
 aussi bien les remplacer par des chiffres, ou par des
 lettres de l'alphabet. L'un bâtissait une œuvre sur
 l'épanouissement progressif d'une formule sonore, qui,
@@ -2697,7 +2586,7 @@ les thèmes musicaux se superposaient 4 a
 ms, les uns aux autres, à 1 d'opérations arithmé- il
 tiques: pour exprimer leur ibinaïisons, on aurait
 TTL] aussi bien les remp chiffres, ou par des
-ù lettres de l'alphabet. une œuvre sur y:
+ù lettres de l'alphabet. une œuvre sur
 se l'épanouissement progr formule sonore, qui,
 nie n'apparaissant complèt la dernière page de
 mer la dernière partie, resta larve pendant les “Al
@@ -2734,8 +2623,7 @@ Sarah-Bernhardt, qui partaient toujours à côté du ton,
 1 et continuaient, pendant des heures, à marcher, comme
 des mulets, à demi assoupis, sur le bord de la pente
 glissante, — Christophe retrouvait sous le masque, de
-petites âmes froides et fades, outrageusement parfu-
-mées, à la façon de Gounod et de Massenet, mais avec
+petites âmes froides et fades, outrageusement parfumées, à la façon de Gounod et de Massenet, mais avec
 
 moins de naturel. Christophe se redisait le mot injuste
 
@@ -2760,11 +2648,9 @@ correct et hagard, se démenait, foudroyait, faisait
 des gestes à la Michel-Ange, comme s'il s'agissait
 de soulever des armées de Beethoven ou de Wagner.
 Le public composé de mondains, qui mouraient d'ennui,
-mais qui pour rien au monde n'eussent renoncé à l'hon-
-neur de payer chèrement un ennui glorieux, et de petits
+mais qui pour rien au monde n'eussent renoncé à l'honneur de payer chèrement un ennui glorieux, et de petits
 apprentis, heureux de se prouver leur science d'école,
-en reconnaissant au passage les ficelles du métier, dé-
-pensaient un enthousiasme frénétique, comme les gestes
+en reconnaissant au passage les ficelles du métier, dépensaient un enthousiasme frénétique, comme les gestes
 du chef d'orchestre, et les clameurs de la musique...
 — Tu parles! disait Christophe.
 (Car il était devenu un Parisien accompli.)
@@ -2798,8 +2684,7 @@ utilisés d'une façon confuse, irrésolue, et se perdissent
 en route. Il était rare que ces artistes sussent prendre
 … conscience nettement de leur nature, et coordonner
 : leurs forces avec constance en vue d'un but donné. n'nà
-C'était l'effet ordinaire de l'anarchie française, qui dé-
-pense des ressources énormes de talent et de bonne
+C'était l'effet ordinaire de l'anarchie française, qui dépense des ressources énormes de talent et de bonne
 volonté à s'annihiler par ses incertitudes et ses contradictions. Il était presque sans exemple qu'un de leurs
 grands musiciens, un Berlioz, un Saint-Saëns, — pour
 ne pas nommer les plus récents, — ne se fût pas
@@ -2809,10 +2694,8 @@ Cette mauvaise utilisation de soi-même était aussi
 sensible dans les exécutions des œuvres musicales que
 dans les œuvres mêmes. Il y avait contradiction entre
 les intentions de leur art, et sa réalisation. Ils étaient
-tous à vanter leur génie de finesse et de nuances déli-
-cates; et l'on ne pouvait trouver manque de raffinement »
-plus complet que dans leur façon habituelle de pré-
-senter la musique. Pas de salles de concert. Des
+tous à vanter leur génie de finesse et de nuances délicates; et l'on ne pouvait trouver manque de raffinement »
+plus complet que dans leur façon habituelle de présenter la musique. Pas de salles de concert. Des
 théâtres d'une acoustique ridicule. Des chœurs grossiers. Des orchestres qui jouaient presque toujours
 d'une façon lourde, pâteuse, bredouillée, appuyée.
 _. Pourtant, les chefs d'orchestre étaient intelligents et
@@ -2831,7 +2714,7 @@ même pas, qui écrasent la ligne mélodique, lui donnent
 un air vulgaire, qu'accentue encore le caractère ora-
 
 : toire de l'interprétation française, toujours portée à
-prêter de l'éloquence à qui parle simplement, et à:
+prêter de l'éloquence à qui parle simplement, et
 affubler d'un panache les têtes les plus rebelles à ces
 ornements ridicules? Pourquoi ces chanteurs qui crient,
 pourquoi ces instruments qui font rage, pourquoi ce
@@ -2902,8 +2785,7 @@ Le temple de la rue Saint-Jacques exerçait un apo-
 ; stolat: on y sauvait les âmes et la musique. On enseignait méthodiquement les règles du génie. De laborieux. Sa
 élèves appliquaient ces recettes, avec beaucoup de
 
-É; peine et une certitude absolue. On eût dit qu'ils vou-
-laient racheter par leurs pieuses fatigues la légèreté
+peine et une certitude absolue. On eût dit qu'ils voulaient racheter par leurs pieuses fatigues la légèreté
 coupable de leurs grands pères: les Auber, les Adam,
 6 et cet archi-damné, cet âne diabolique, Berlioz, le diable
 en personne, diabolus musica. Avec une louable
@@ -2920,8 +2802,7 @@ sortir. Aussi leur musique manque d'air: c'est de law
 musique de chambre close, de chaise longue, de la
 
 LE musique qui ne marche pas. Tout le contraire d'un!
-Beethoven, composant à travers les champs, dégringo-
-lant les pentes, marchant à grandes enjambées, sous le
+Beethoven, composant à travers les champs, dégringolant les pentes, marchant à grandes enjambées, sous le
 soleil et la pluie, et effrayant les troupeaux par ses
 . gestes et par ses cris! Il n'y avait pas de danger que
 les musiciens de Paris dérangeassent leurs voisins par
@@ -2934,8 +2815,7 @@ leur pensée; et des tentures empéchaient d'arriver:
 
 Fe" La Schola avait tâché de renouveler l'air; elle avait
 
-ouvert les fenêtres sur le passé. Sur passé seule-
-ment. C'était les ouvrir sur la cour, et non pas sur
+ouvert les fenêtres sur le passé. Sur passé seulement. C'était les ouvrir sur la cour, et non pas sur
 
 la rue. Cela ne servait pas à grand chose. L'appar-;
 tement était resté clos si longtemps que l'air du dehors:
@@ -2943,16 +2823,12 @@ tement était resté clos si longtemps que l'air du dehors:
 était bien lent à y rentrer. Il eût fallu ouvrir toutes
 
 les portes et toutes les fenêtres. Et c'était ce qu'on
-ne voulait pas. A peine la fenêtre ouverte, ils repous-
-
-saient le battant, comme de vieilles dames, qui ont
+ne voulait pas. A peine la fenêtre ouverte, ils repoussaient le battant, comme de vieilles dames, qui ont
 
 peur de s'enrhumer. Il entrait par quelques bouffées
 2. AU moyen-âge, de Bach, de Palestrina, de chansons
 populaires. Mais qu'était-ce que cela? La chambre n'en » continuait pas moins de sentir le renfermé. Au fond,
-« ils s'y trouvaient bien; ils se défiaient des grands cou-
-
-rants modernes. Et s'ils connaissaient plus de choses
+« ils s'y trouvaient bien; ils se défiaient des grands courants modernes. Et s'ils connaissaient plus de choses
 que les autres, ils niaient aussi plus de choses en art.
 
 La musique prenait dans ce milieu un caractère doc-
@@ -3035,26 +2911,23 @@ de sacrifice ne venait pas de ce que l'on sacrifiait ce
 que l'on n'avait pas. Il lui semblait sentir la peur dela
 peine, la recherche de leffet produit avec le minimum
 de fatigue, le renoncement par indolence au rude effort.
-que réclament les puissantes constructions wagné-
-riennes. Il n'était pas sans être frappé par la déclama-
-tion unie, simple, modeste, atténuée, bien qu'elle lui
+que réclament les puissantes constructions wagnériennes. Il n'était pas sans être frappé par la déclamation unie, simple, modeste, atténuée, bien qu'elle lui
 parût monotone, et qu'en sa qualité d'Allemand il ne la
 trouvât pas vraie: — (il trouvait même que plus elle
 cherchait à être vraie, plus elle faisait sentir combien
 la langue française convenait mal à la musique: trop +.
 logique, trop dessinée, de contours trop définis, — un
 
-monde parfait en soi, mais hermétiquement clos.) —:
+monde parfait en soi, mais hermétiquement clos.)
 
 - Néanmoins, l'essai était curieux, et Christophe en ap- ASP
 
 prouvait volontiers l'esprit de réaction révolutionnaire RME
 4 contre les violences emphatiques de l'art wagnérien.. Et
-5 Le musicien français semblait s'être appliqué, avec une
+Le musicien français semblait s'être appliqué, avec une
 discrétion ironique, à ce que tous les sentiments pas- NE
 Le: sionnés se murmurassent à mi-voix. L'amour, la mort LE
-sans cris. Ce n'était que par un tressaillement imper-
-ceptible de la ligne mélodique, un frisson de l'orchestre eur
+sans cris. Ce n'était que par un tressaillement imperceptible de la ligne mélodique, un frisson de l'orchestre eur
 
 comme un pli au coin des lèvres, que l'on avait
 conscience du drame qui se jouait dans les âmes. On eût Ne
@@ -3068,9 +2941,7 @@ Den, les lèvres trop rouges, — la bourgeoise de la me
 … Troisième République qui joue la marquise Louis XV. RAA
 Mais ces instants étaient exceptionnels: c'était une sa
 détente à la contrainte que l'auteur s'imposait; dans le es
-reste de l'œuvre régnait une simplicité raflinée, une sim-
-
-plicité qui n'était pas si simple, qui était le produit de la
+reste de l'œuvre régnait une simplicité raflinée, une simplicité qui n'était pas si simple, qui était le produit de la
 volonté, la fleur subtile d'une vieille société. Le jeune NON
 
 Barbare qu'était Christophe ne la goûtait qu'à demi,
@@ -3101,9 +2972,7 @@ pas raffinée. La vie ne se prend pas avec des gants.
 Christophe entendait venir le roulement des canons, À
 qui allaient broyer cette civilisation épuisée, cette petite
 
-Était-ce ce sentiment de pitié, mélancolique et orgueil-
-
-leuse, qui lui inspirait malgré tout une sympathie pour
+Était-ce ce sentiment de pitié, mélancolique et orgueilleuse, qui lui inspirait malgré tout une sympathie pour
 
 4 cette œuvre? Toujours est-il qu'elle l'intéressait, plus
 
@@ -3119,9 +2988,7 @@ Sclwung (d'élan), et qu'il n'y avait pas assez de mu-
 
 avec les autres œuvres musicales françaises. Il était
 
-À attiré par cette lampe qui brûlait au milieu du brouil-
-
-lard. Il apercevait encore d'autres lueurs qui tremblotaient autour d'elle, vives, fantasques et brillantes. Ces
+À attiré par cette lampe qui brûlait au milieu du brouillard. Il apercevait encore d'autres lueurs qui tremblotaient autour d'elle, vives, fantasques et brillantes. Ces
 
 . feux-follets l'intriguaient: il eût voulu s'en approcher
 
@@ -3140,9 +3007,7 @@ possédait Christophe. A part un ou deux, ils parais-,
 Presque tous vivaient à l'écart, les uns hors de Paris, à
 les autres à Paris, mais isolés, de fait et de volonté,
 
-enfermés dans un cercle étroit, — par orgueil, par sau-
-
-vagerie, par dégoût, par apathie. Si peu nom
+enfermés dans un cercle étroit, — par orgueil, par sauvagerie, par dégoût, par apathie. Si peu nom
 
 qu'ils fussent, ils étaient divisés en petits CRAN
 
@@ -3161,15 +3026,12 @@ wêtre compris que d'eux-mêmes, ils n'en étaient pas;:
 mieux compris. Adulés, déformés par l'opinion que
 leurs partisans avaient d'eux et qu'ils s'en faisaient
 eux-mêmes, ils perdaient pied dans la conscience qu'ils
-avaient de leur art et de leur génie. D'aimables fantai-
-sistes se croyaient réformateurs. Des artistes Alexan-
-drips se posaient en rivaux de Wagner. — Presque tous
+avaient de leur art et de leur génie. D'aimables fantaisistes se croyaient réformateurs. Des artistes Alexandrips se posaient en rivaux de Wagner. — Presque tous
 étaient victimes de la surenchère. Il fallait qu'ils sautas- à
 sent; chaque jour, plus haut qu'ils n'avaient sauté, la
 veille, et surtout que leurs rivaux n'avaient sauté. Ces à
 exercices de haute voltige ne leur réussissaient pas tou- à
-jours; et cela n'avait d'attrait que pour quelques pro-
-fessionnels. Ils ne se souciaient pas du public, et le « public ne se souciait pas d'eux. Leur art était un art
+jours; et cela n'avait d'attrait que pour quelques professionnels. Ils ne se souciaient pas du public, et le « public ne se souciait pas d'eux. Leur art était un art
 sans peuple, une musique qui ne s'alimentait que dans
 la musique, dans le métier. Christophe avait l'im- à
 pression, vraie ou fausse, qu'aucune musique, plus que
@@ -3208,7 +3070,7 @@ vus, en France? Créateurs et critiques, — les meilleurs
 4 travaillaient en silence, loin du bruit, comme Franck
 avait fait, comme faisaient les mieux doués des compo-
 4 siteurs d'à présent, et tant d'artistes, qui vivraient
-; toute leur vie dans l'ombre, pour fournir plus tard à;
+; toute leur vie dans l'ombre, pour fournir plus tard
 quelque journaliste la gloire de les découvrir et de se
 dire leur ami, — et cette petite armée de savants
 obscurs et laborieux, qui, sans ambition, insoucieux à
@@ -3218,8 +3080,7 @@ obscurs et laborieux, qui, sans ambition, insoucieux à
 Jean-Christophe à Paris STATS
 musicale du pays, préparaient la grandeur de la France dE
 à venir. Combien y avait-il d'esprits, dont la richesse, à
-la liberté, et la curiosité universelle eût attiré Chris-
-tophe, s'il avait les connaître! Maïs à peine avait-il
+la liberté, et la curiosité universelle eût attiré Christophe, s'il avait les connaître! Maïs à peine avait-il
 entrevu, en passant, deux ou trois d'entre eux; il ne les
 connaissait qu'à travers des caricatures de leur pensée.
 Il ne voyait que leurs défauts, copiés, exagérés par les
@@ -3241,8 +3102,7 @@ bruns: ils sont musique; elle éprouve, à les voir, l'im-;
 pression d'une caresse de notes, d'un accord délicieux.
 Cette musique intérieure est mille fois plus riche à
 que la musique qui l'exprime, et le clavier est inférieur
-à celui qui en joue. Le génie musical se mesure juste-
-ment à la puissance de la vie, et à celle de l'exprimer
+à celui qui en joue. Le génie musical se mesure justement à la puissance de la vie, et à celle de l'exprimer
 au moyen de l'instrument imparfait, d'arracher à la
 misérable épinette le cri profond de la vie. — Mais
 combien de gens s'en doutent en France? Pour ce
@@ -3366,8 +3226,7 @@ lettres françaises d'une juste notoriété, s'évertuer à ce.
 
 métier, pour lequel ils n'étaient point doués. Certains
 s'épuisaient à écrire, comme les autres, des ordures que
-les journaux du matin débitaient par tranches. Ils pon-
-daient cela régulièrement, à dates fixes, une ou deux SE
+les journaux du matin débitaient par tranches. Ils pondaient cela régulièrement, à dates fixes, une ou deux SE
 - fois par semaine; et cela durait depuis des années. Ils
 4 pondaient, pondaïént toujours, n'ayant plus rien à dire,
 54 se torturant le cerveau pour en faire sortir quelque
@@ -3402,8 +3261,7 @@ de la Sprée, et l'effroyable pourriture d'une élite de:
 l'Allemagne impériale, dont la brutalité rendait l'igno
 minie plus repoussante encore. Mais Sylvain Kohn ne
 pensait pas à en tirer avantage; il n'en était pas plus À
-choqué que des mœurs parisiennes. Il pensait ironique-
-ment: « Chaque peuple a ses usages et il trouvait si
+choqué que des mœurs parisiennes. Il pensait ironiquement: « Chaque peuple a ses usages et il trouvait si
 naturels ceux du monde où il vivait, que Christophe
 pouvait croire que c'était la nature même de la race.
 Aussi ne se faisait-il pas faute, comme ses compatriotes, de voir dans cet ulcère dévorant des aristocraties intellectuelles de l'Europe le vice propre de l'art
@@ -3414,8 +3272,7 @@ pour l'oublier, par la suite. Il ne manquait pourtant pas
 d'œuvres qui n'étaient pas uniquement occupées de ce
 que l'un de ces écrivains appelait noblement « le goût
 des divertissements fondamentaux ». Mais des plus
-belles et des meilleures d'entre elles, rien ne lui arrivait. Elles n'étaient pas de celles qui cherchent les suffrages d'un Sylvain Kohn et de ses amis; elles ne s'in-
-quiétaient pas d'eux, et ils ne s'inquiétaient pas d'elles:
+belles et des meilleures d'entre elles, rien ne lui arrivait. Elles n'étaient pas de celles qui cherchent les suffrages d'un Sylvain Kohn et de ses amis; elles ne s'inquiétaient pas d'eux, et ils ne s'inquiétaient pas d'elles:
 ils s'ignoraient mutuellement. Jamais Sylvain Kobhn
 n'en eût parlé à Christophe. De bonne foi, il était convaincu que ses amis et lui incarnaient l'art français, et
 qu'en dehors de ceux que leur opinion et la presse des
@@ -3427,11 +3284,9 @@ France. Des poètes qui étaient le meilleur titre d'hon-
 de la France, Christophe ne connut rien. Des roman-
 - ciers, seuls lui parvinrent, émergeant au-dessus de la
 marée des médiocres, quelques livres de Barrès et,
-. « d'Anatole France. Maïs il était encore trop peu fami-
-liarisé avec la langue pour pouvoir pleinement goûter
+. « d'Anatole France. Maïs il était encore trop peu familiarisé avec la langue pour pouvoir pleinement goûter
 luniversel dilettantisme et l'ironie érudite de l'un, Part
-‘inégal, mais supérieur parfois de l'autre. Il resta quel-
-que temps à regarder curieusement les petits orangers
+‘inégal, mais supérieur parfois de l'autre. Il resta quelque temps à regarder curieusement les petits orangers
 en caisse, qui poussaient dans la serre chaude d'Anatole
 France, et les fleurs grêles et parfaites, qui montaient
 sur le sol ingrat de Barrès. Il s'arrêta quelques instants
@@ -3467,8 +3322,7 @@ comme Goethe: « Que les femmes fassent autant
 qu'elles veulent des poésies et des écrits; maïs que les Ne
 hommes n'écrivent pas comme des femmes! Voilà ce
 qui ne me plaît pas. » Il ne pouvait voir sans dégoût
-ces minauderies, cette coquetterie louche, cette sensi-
-blerie se dépensant de préférence au profit des êtres
+ces minauderies, cette coquetterie louche, cette sensiblerie se dépensant de préférence au profit des êtres
 les moins dignes d'intérêt, ce style pétri d'idéologies,
 de mignardise et de sensualité, ce mélange de raffine- ‘#4
 ment et de brutalité, ces charretiers psychologues.
@@ -3476,8 +3330,7 @@ Ainsi que Schiller disait de Schlegel, « ils s'étaient
 fabriqué un idéal d'eux-mêmes avec l'amour et le bel
 esprit ». Ils s'imaginaient unir en eux « une faculté infinie
 d'aimer » avec « un détestable esprit d'ironie puis,
-après s'être constitués » de la sorte, « ils se permet-
-taient tout, déclaraient franchement que l'impudence
+après s'être constitués » de la sorte, « ils se permettaient tout, déclaraient franchement que l'impudence
 était leur déesse ». — Littérature... Littérature... Cela
 
 puait la littérature. Az.

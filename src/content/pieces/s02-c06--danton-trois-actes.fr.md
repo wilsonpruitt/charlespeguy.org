@@ -61,7 +61,7 @@ Qu'est-ce que cela?
 datr00ne
 C'est ce petit homme bossu, près de la charrette, qui joue de la clarinette!
 Ils éclatent de rire.
--! Pourquoi ne viens-tu pas, Hérault? Cela ne t'in_ téresse donc pas? Tu as l'air mélancolique. A quoi, songes-tu?
+Pourquoi ne viens-tu pas, Hérault? Cela ne t'in_ téresse donc pas? Tu as l'air mélancolique. A quoi, songes-tu?
 Le bruit s'éloigne peu à peu dans la rue.
 Je pensais, Camille, qu'Anacharsis a trente-huit ans, et Hébert trente-cinq ans, ton âge, Philippeaux et Vincent, vingt-sept ans, six ans de moins que moi,
 -et que toi, Desmoulins.
@@ -121,9 +121,7 @@ Prends garde, Camille; tu es un enfant; tu joues avec le feu. Tu crois que le pe
 
 Il n'y a qu'à lui en jeter un autre. Allons, n'entend-on pas mon Vieux Cordelier? Sa voix ne résonne-t-elle pas jusqu'au fond de la République?
 
-Si vous saviez quel succès a son dernier nu-
-
-méro! De tous côtés on lui écrit: des pleurs, des baisers, des déclarations d'amour. Ah! si j'étais jalouse! On le suppliede continuer, de sauver le pays.
+Si vous saviez quel succès a son dernier numéro! De tous côtés on lui écrit: des pleurs, des baisers, des déclarations d'amour. Ah! si j'étais jalouse! On le suppliede continuer, de sauver le pays.
 
 Combien de ces amis viendront à son secours, si on l'attaque?
 Je n'ai besoin de personne. À moi, mon écritoire!
@@ -389,9 +387,7 @@ Que veux-tu? Il y a une chose que tu n'empêcheras jamais: C'est que Danton soit
 Le nom de l'amour est banal, sa réalité est rare.
 Il y a de certains hommes, dit-on, qui ne la connaissent point.
 ROBESPIERRE, après un court moment de silence, froidement, les mains un peu nerveuses
-Je ne suis pas venu parler des débauches de Danton. — Camille, tu t'obstines, malgré mes avertissements, à suivre la voie où de mauvais conseils et ton étourderie t'ont jeté. Ton pamphlet malfaisant semer les divisions par toute la France. Tu dépenses ton esprit à ébranler le crédit des hommes nécessaires à la République. Toutes les réactions s'arment de tes sarcasmes contre la liberté. Long45
-
-temps j'ai désarmé les haïnes que tu soulèves, je t'ai sauvé deux fois: je ne te sauverai pas toujours.
+Je ne suis pas venu parler des débauches de Danton. — Camille, tu t'obstines, malgré mes avertissements, à suivre la voie où de mauvais conseils et ton étourderie t'ont jeté. Ton pamphlet malfaisant semer les divisions par toute la France. Tu dépenses ton esprit à ébranler le crédit des hommes nécessaires à la République. Toutes les réactions s'arment de tes sarcasmes contre la liberté. Longtemps j'ai désarmé les haïnes que tu soulèves, je t'ai sauvé deux fois: je ne te sauverai pas toujours.
 L'État s'émeut des complots des factieux; je n'ai aucune volonté contre celle de l'État.
 CAMILLE, blessé et blessant
 Épargne-toi la peine de tant songer à moi. Ta sollicitude me touche, Maximilien, mais je n'ai besoin de personne: je sais me défendre seul, et je marche sans lisières.
@@ -418,9 +414,7 @@ DANTON, changeant de ton et s'avançant vers
 Robespierre avec l'expression d'une cordialité sincère
 Robespierre, nous avons tort tous trois. Soyons
 
-des hommes qui n'obéissent qu'à la raison et sa-
-
-chons sacrifier nos rancunes à la patrie. Je viens toi, et je t'offre ma main. Pardonne-moi un mouvement d'impatience.
+des hommes qui n'obéissent qu'à la raison et sachons sacrifier nos rancunes à la patrie. Je viens toi, et je t'offre ma main. Pardonne-moi un mouvement d'impatience.
 Danton croit qu'il suffit d'un mot pour effacer ses outrages. L'offenseur n'a point de peine à oublier ses offenses.
 J'ai tort sans doute de prêter à mes adversaires
 
@@ -684,9 +678,7 @@ odeur de bois coupé, la paix et l'espérance. L'honnête figure de Duplay, la v
 Quel bien?
 Vous vous défiez de quelqu'un?
 Je me défie de tous les hommes. Je lis le mensonge dans les regards, je vois la ruse embusquée sous les protestations. Leurs yeux, leur bouche, leurs serrements de main, leur corps tout entier ment. Le soupçon empoisonne toutes mes pensées, J'étais fait pour des sentiments plus doux. J'aime les hommes, je voudrais croire en eux. Mais comment y croire encore, quand on les voit comme moi, chaque jour,se parjurer dix fois, se vendre, vendre leurs amis, vendreleurs armées, vendre leur patrie, par crainte, par ambition, par débauche, par malfaisance! J'ai
-vutrahir Mirabeau, Lafayette, Dumouriez, Custine, le roi, les aristocrates, les Girondins, les Héber41
-
-tistes. Les troupes auraient livré vingt fois la patrie envahie, si elles n'avaient senti constamment derrière leur dos l'ombre de la guillotine. Les trois quarts de la Convention conspirent contre la Convention. Les vices sont à la gène sous la discipline héroïque que la Révolution leur impose. Ils n'osent attaquer de front la vertu; ils se masquent de pitié, de clémence, pour tromper l'opinion, l'émouvoir en faveur des scélérats, l'exciter contre les patriotes.
+vutrahir Mirabeau, Lafayette, Dumouriez, Custine, le roi, les aristocrates, les Girondins, les Hébertistes. Les troupes auraient livré vingt fois la patrie envahie, si elles n'avaient senti constamment derrière leur dos l'ombre de la guillotine. Les trois quarts de la Convention conspirent contre la Convention. Les vices sont à la gène sous la discipline héroïque que la Révolution leur impose. Ils n'osent attaquer de front la vertu; ils se masquent de pitié, de clémence, pour tromper l'opinion, l'émouvoir en faveur des scélérats, l'exciter contre les patriotes.
 J'arracherai les masques, je forcerai l'Assemblée voir ce qu'ils recouvrent: la face hideuse de la trahison; j'obligerñi les complices déguisés des conspirateurs à les condamner avec moi, ou à périr avec eux: la République vaincra. Mais, à Dieu! parmi combien de ruines! Le vice est comme l'Hydre.
 Chaque goutte de sang qui tombe fait naître de nouveaux monstres. Les meilleurs se laissent prendre, l'un après l'autre, à la contagion. Avant-hier Philip-
 
@@ -803,7 +795,7 @@ C'est la même chose.
 « Que manque-t-il au Comité pour anéantir la
 République, si ceux des députés qu'il ne peut acheter il les envoie au Luxembourg? »
 
-Il y a: « il peut les envoyer et non pas: « illes,
+Il y « il peut les envoyer et non pas: « illes,
 
 N'ergote pas toujours!
 
@@ -817,9 +809,7 @@ Desmoulins est faible, enfantin, non factieux. Il fut mon ami d'enfance; je le c
 BILLAUD, soupçonneux at-il des privilèges pour les amis de Robespierre”?
 
 VADIER, goguenard. Il lit le numéro du Vieux Cordelier
-Écoute encore, Maximilien: voici pour toi. Il paraît que si tu fermes les maisons de débauche, si tu fais étalage d'un beau zèle pour purifier les mœurs et chasser les putains, c'est sur les instruc-
-
-tions de Pitt; car « tu ôtes ainsi au gouvernement un de ses plus grands ressorts: le relâchement des mœurs ». Tu entends, Incorruptible? Ceci doit te faire plaisir?
+Écoute encore, Maximilien: voici pour toi. Il paraît que si tu fermes les maisons de débauche, si tu fais étalage d'un beau zèle pour purifier les mœurs et chasser les putains, c'est sur les instructions de Pitt; car « tu ôtes ainsi au gouvernement un de ses plus grands ressorts: le relâchement des mœurs ». Tu entends, Incorruptible? Ceci doit te faire plaisir?
 
 L'âme basse et hypocrite!
 Il tombe, la téte sur la table, étourdi comme un bœuf abattu.
@@ -877,17 +867,11 @@ Demande-lui donc, Billaud, s'il se sert de Danton comme d'un matelas capitonné 
 
 Parle franchement: tu as peur d'être découvert par la chute de Danton. Tu te colles à lui comme une égide qui te protège. Danton détourne de toi l'attention et les traits.
 
-Je méprise ces perfides calomnies. Que m'impor-
+Je méprise ces perfides calomnies. Que m'importent les dangers? Je ne tiens pas à ma vie. Mais j'ai l'expérience du passé et je vois l'avenir. Vous êtes des furieux; vos haines vous affolent. Vous pensez à vous-mêmes, vous ne pensez point à la République.
 
-tent les dangers? Je ne tiens pas à ma vie. Mais j'ai l'expérience du passé et je vois l'avenir. Vous êtes des furieux; vos haines vous affolent. Vous pensez à vous-mêmes, vous ne pensez point à la République.
+Examinons donc sans passion ce que la République doit attendre des conspirateurs. Et ne nous demandons point si Danton a des talents, mais si
 
-Examinons donc sans passion ce que la Républi-
-
-que doit attendre des conspirateurs. Et ne nous demandons point si Danton a des talents, mais si
-
-ces talents servent à la République. — D'où par-
-
-tent, depuis trois mois, toutes les attaques contre la
+ces talents servent à la République. — D'où partent, depuis trois mois, toutes les attaques contre la
 Révolution? De Danton. Qui a inspiré les lettres de
 Philippeaux contre le Comité? Danton. Qui soufle à Desmoulins ses venimeux pamphlets? Danton.
 Chaque numéro du Vieux Cordelier lui est soumis, discuté avec lui, corrigé de sa main. Si le fleuve est empoisonné, prenons le mal à sa source. — Où est la sincérité de Danton? Où sa bravoure? Depuis un an, qu'a-t-il fait pour la République?
@@ -1483,10 +1467,8 @@ J'eusse agi seul. Je ne suis l'ami d'aucun de ceux qui sont ici. J'ai parlé que
 Cela suflit. L'affaire est claire.
 Guillotinez-moi. La guillotine aussi est un coup de sabre. Je ne demande qu'une chose: qu'on me couche sur le dos; je veux faire face au couteau.
 Vadier et Billaud-Varenne entrent. Fouquier se lève et leur serrer la main. Rumeur dans la foule.
-LE PEUPLE à Quelques approbations, et de nombreuses protestations. Certains commencent par applaudir, puis s'in-
-dignent plus fort que les autres.
-Quelques applaudissements, et agitation. On sent que la foule a de la sympathie pour Westermann; mais elle se surveille, et attend pour prendre parti une ini-
-tialive qui ne se produit pas.
+LE PEUPLE à Quelques approbations, et de nombreuses protestations. Certains commencent par applaudir, puis s'indignent plus fort que les autres.
+Quelques applaudissements, et agitation. On sent que la foule a de la sympathie pour Westermann; mais elle se surveille, et attend pour prendre parti une initialive qui ne se produit pas.
 réponse de la Convention! de la Convention!
 
 Les scélérats, nous les tenons!
@@ -1615,9 +1597,7 @@ Et moi aussi, j'ai une femme, des enfants. — Se
 
 reprenant. Allons, Danton, point de faiblesse.
 
-Pourquoi ne profites-tu pas de l'émotion du peu-
-
-ple? Il est près de se battre.
+Pourquoi ne profites-tu pas de l'émotion du peuple? Il est près de se battre.
 
 Cette canaille! allons donc! — Public de cabotins! — Ils s'amusent du spectacle que nous leur donnons; ils sont pour applaudir à la:' victoire.
 Ils sont trop habitués à ce que j'agisse pour eux.

@@ -20,11 +20,9 @@ LACS Nous mettons ce cahier dans le commerce; nous le
 
 se Nous reproduisons ci-après la leçon d'ouverture, —
 9 décembre 1902, — du cours professé en Sorbonne
-par M. Henry Michel. M. Henry Michel fait en Sor-
-bonne le cours d'histoire des doctrines politiques. Après
+par M. Henry Michel. M. Henry Michel fait en Sorbonne le cours d'histoire des doctrines politiques. Après
 5) avoir étudié, les années précédentes, le réveil de l'idée
-libérale sous la Restauration; la poussée de l'idée démo-
-cratique sous la Monarchie de Juillet, son avènement
+libérale sous la Restauration; la poussée de l'idée démocratique sous la Monarchie de Juillet, son avènement
 à avec la Révolution de Février; la crise de 1849-57, il
 1 a choisi pour sujet, en 1901-1902, la contribution de
 Michelet et celle de Quinet à l'idée démocratique, dans
@@ -41,7 +39,7 @@ la maladie. L'an prochain il a déjà annoncé, comme
 à sur la fin de Michelet. Il a l'intention de publier ce
 cours sur Quinet. Il a l'intention aussi de publier les
 
-cours précédents. Il achève, en ce moment, un gros «; volume sur la loi Falloux, qui contient des documents
+cours précédents. Il achève, en ce moment, un gros volume sur la loi Falloux, qui contient des documents
 Eh inédits, et qui jettera quelque jour sur la question de la
 : à liberté d'enseignement, historiquement; c'est une partie
 
@@ -55,8 +53,7 @@ française, qui, mieux qu'aucune autre, a parler
 : du peuple de France. La démocratie doit à Edgar
 Quinet, au citoyen fidèle et intègre, au républicain Ai
 exemplaire, qui a poussé jusqu'à l'héroïsme le dé- RU:
-vouement à ses idées, au grand cœur, au vaste et puis-
-sant esprit, à l'intrépide confesseur de l'idée laïque que:
+vouement à ses idées, au grand cœur, au vaste et puissant esprit, à l'intrépide confesseur de l'idée laïque que:
 ï fut Edgar Quinet, même récompense, mêmes honneurs.
 Michelet est lai inet a exercé sur la
 Michelet est plus populaire. Quinet a exercé sur la JET
@@ -72,7 +69,7 @@ sont dignes.
 (1) Edgar Quinet est à Bourg, le 17 février 1803 (et non à Stras- ne
 bourg, comme l'ont dit les biographes allemands). IL est mort à PAUL à HAN
 
-4 L'homme, je ne le considère pas dans la riche variété
+L'homme, je ne le considère pas dans la riche variété
 4 de ses dons. Je n'entends parler que du philosophe
 politique. Comment s'est-il formé? Quelle est la domide nante de son tempérament moral, la tendance caracté-;
 à ristique de sa pensée, et, si l'on peut dire, l'allure
@@ -80,8 +77,7 @@ naturelle de son âme?
 ne Le père d'Edgar Quinet, mathématicien distingué,
 4 à chercheur original, était commissaire des guerres à
 2 larmée du Rhin. Quand lenfant eut trois ans, madame
-à Quinet alla rejoindre son mari à Wesel. (1) Ils y habi-
-tèrent un palais rempli de soldats. C'étaient des cavaa liers qui revenaient d'Austerlitz. Ils prirent l'enfanten
+à Quinet alla rejoindre son mari à Wesel. (1) Ils y habitèrent un palais rempli de soldats. C'étaient des cavaa liers qui revenaient d'Austerlitz. Ils prirent l'enfanten
 ne affection. L'enfant, de son côté, ne voulait pas les
 quitter. Il mangeaït à la gamelle. Il allait au fourrage
 ; sur un grand mouton, bridé, harnaché. Il revenait en
@@ -96,9 +92,7 @@ des Œuvres complètes d'Edgar Quinet dans l'édition Hachette. C'est
 à cette édition que je renvoie, sauf pour les Lettres d'Exil (4 vo-
 
 Tous les éléments d'une biographie complète se trouvent dans
-les ouvrages de madame Edgar Quinet: Mémoires d'Exil (pre-
-
-mière et deuxième séries), Paris; journal du Siège, Sentiers de France,
+les ouvrages de madame Edgar Quinet: Mémoires d'Exil (première et deuxième séries), Paris; journal du Siège, Sentiers de France,
 Edgar Quinet depuis l'Exil, Cinquante ans d'amitié (avec les lettres
 de Quinet à Michelet). M. Valès, professeur d'histoire au lycée
 Voltaire, prépare une vie d'Edgar Quinet qui paraître inces- « samment, et où ilutilise, outre les pièces imprimées, des manuscrits
@@ -108,8 +102,7 @@ le plus tard possible. Ce furent ses premiers
 jeux. A huit ans, il entre au collège de Charolles, et
 y a pour maître un ancien capitaine de dragons.Ilarri- ne.
 vait parfois à ce maître de faire la classe. Alors, ‘le VERS
-temps se passait à « revoir »les manœuvres de cava-
-lerie auxquelles il avait pris part. Avec les grammaires La
+temps se passait à « revoir »les manœuvres de cavalerie auxquelles il avait pris part. Avec les grammaires La
 des tout petits, il figurait des escadrons, desrégiments.…
 devint un magasin à fourrages pour les chevaux de la
 Grande Armée. Les classes vaquèrent.. Bientôt, ce fut
@@ -203,7 +196,7 @@ LE gouvernement de la Défense nationale, pour les décider
 (3 sans peine, jusqu'au général Trochu. Il lui expose le
 3); plan le plus propre à faciliter la marche d'une armée de
 fe: secours. Quel désespoir, quand il constate que cet à
-ï; homme ne comprend pas, et ne veut pas! Quelle explo- TA
+homme ne comprend pas, et ne veut pas! Quelle explo- TA
 14 sion de colère, à la nouvelle que Bourbaki se dirige
 Paris vient de l'appeler, Quinet réclame la lutte à
 outrance, repousse de son vote les préliminaires de
@@ -211,9 +204,7 @@ outrance, repousse de son vote les préliminaires de
 réduite, mutilée, il ne reste à Quinet qu'une manière de
 lui témoigner sa tendresse filiale: c'est, après tant
 d'années d'exil, de reprendre Jentement possession du
-our sol, de l'atmosphère de son pays. Il va, « par les sen-
-
-tiers de France (2) et ce lui est une douceur infinie
+our sol, de l'atmosphère de son pays. Il va, « par les sentiers de France (2) et ce lui est une douceur infinie
 
 de retrouver la Normandie et la Bretagne, la Touraine Ne
 
@@ -247,8 +238,7 @@ brillante intelligence, s'était attachée à former l'âme
 de son fils par ses entretiens, par de fortes lectures. (1)
 A sept ans, sans rien savoir encore, l'enfant connais- na.
 sait La Bruyère, Racine, Corneille, tout le théâtre de PRO.
-Voltaire, quelques pièces de Shakespeare. Il connais-
-sait aussi l'idole de sa mère, madame de Staël. Quint
+Voltaire, quelques pièces de Shakespeare. Il connaissait aussi l'idole de sa mère, madame de Staël. Quint
 a été nourri dans ce culte. A quinze ans, il essaiede
 lire les Considérations sur la Révolution française, qui
 viennent de paraître. Il est obligé de renoncer à cette ‘te
@@ -259,8 +249,7 @@ où Quinet comprendre madame de Staël.
 Histoire de mes idées, page 74.: ti:
 (2) Histoire de mes idées, page 75. Ni Geuc
 
-me En 1820, — il est alors âgé de dix-sept ans, — il tra-
-verse une crise intellectuelle, la crise que beaucoup de
+me En 1820, — il est alors âgé de dix-sept ans, — il traverse une crise intellectuelle, la crise que beaucoup de
 LPS jeunes gens ont connue vers cette date. La France, si
 abaissée, doit reprendre son rang. Ses destinées, si
 humbles sous la Restauration, doivent briller de nou-
@@ -274,8 +263,7 @@ travers la forêt de Seillon, et là, « sur le bord des
 réfléchit. Il discerne deux directions, entre lesquelles
 : il faut choisir. D'un côté, la voie ouverte par Chateau-;
 D. briand; de' l'autre, la voie ouverte par madame ce
-! de Staël. Chateaubriand, dont le style lui plaît davan-
-tage, c'est le passé, c'est le Moyen-Age. Madame de
+! de Staël. Chateaubriand, dont le style lui plaît davantage, c'est le passé, c'est le Moyen-Age. Madame de
 Ne couleur, c'est l'avenir, l'avenir par la liberté. Et le
 È jeune solitaire, anxieux, frémissant, se dit à lui-même: à
 « C'est qu'il faut aller, est le siècle, est la vie. » (x)
@@ -297,16 +285,13 @@ Madame Quinet pratiquait le christianisme le plus
 large et le plus libre, le plus indifférent aux rites et ‘#4
 aux formules. Sincèrement pieuse, elle priait souvent.
 Elle priait où qu'elle se trouvât, aux champs, dans
-son jardin, variant chaque jour sa prière, l'accom-
-joies du moment. La prière de madame Quinet, c'était #4
-une conversation avec Dieu, dans l'abandon et leffu-
-sion du cœur. Ce fut ainsi, « pendant le doux printemps È a:
+son jardin, variant chaque jour sa prière, l'accomjoies du moment. La prière de madame Quinet, c'était #4
+une conversation avec Dieu, dans l'abandon et leffusion du cœur. Ce fut ainsi, « pendant le doux printemps
 de Certines, en plein air, parmi les fleurs et les BRU
 abeilles, à l'ombre des tilleuls et des saules que
 Quinet sentit Dieu. Il ne connut l'Église que par les
 messes du père Pichon. Le père Pichon était un vieux É À
-trappiste, qui avait passé les mauvais jours de la Révo-
-lution dans un ermitage, où il avait presque désappris Lie
+trappiste, qui avait passé les mauvais jours de la Révolution dans un ermitage, où il avait presque désappris Lie
 la parole humaine. Il allait de chaumière en chaumière,;
 sa besace sur le dos, mendiant sa nourriture. Et le
 dimanche, il bégayait une messe hésitante, à laquelle
@@ -337,31 +322,27 @@ Es France ». (1) Voici très exactement en quoi consiste
 Elle a une « mission » à remplir. Les secousses qui
 7 l'agitent, les épreuves qui, au cours de son histoire, ne:
 lui ont pas été épargnées, sont le gage et comme la
-"4 rançon de cette mission. Loin d'elle, les faciles prospé-
-rités ininterrompues! Loin delle, le calme et le demi-
+"4 rançon de cette mission. Loin d'elle, les faciles prospérités ininterrompues! Loin delle, le calme et le demi-
 FES sommeil des autres nations! C'est dans la douleur que
 la France engendrera le dogme nouveau. Ce dogme À
 (1) Lettres d'Exil, tome page
 
 tient en deux mots: démocratie et liberté. La vie civile 500)
-n'a pas d'autre sens, elle n'a pas d'autre fin. Tous les A:
+n'a pas d'autre sens, elle n'a pas d'autre fin. Tous les
 peuples connaîtront un jour la liberté et la démocratie,
-la liberté par la démocratie. La France a été la pre-
-mière àles connaître, à les expérimenter. Elle a souffert, LRU
+la liberté par la démocratie. La France a été la première àles connaître, à les expérimenter. Elle a souffert, LRU
 au cours de ces expériences. Elle souffrira encore. Mais ï 14 à
 elle remplira sa tâche jusqu'au bout. La Révolution Rise ce
 française se continue dans les cœurs, comme dans les Rens 1%
 faits. la Révolution, loin d'être la négation du ne
 christianisme, constitue l'une des « époques » de son De:
 développement. La Révolution amène au jour, plus net,
-plus dégagé, plus visible qu'il ne le fut jamais, le prin-
-cipe même du christianisme, l'esprit de vie qui l'anime, à
+plus dégagé, plus visible qu'il ne le fut jamais, le principe même du christianisme, l'esprit de vie qui l'anime, à
 le soutient, le fait durer, malgré l'Église: la liberté. (1)
 On voit comment le sens religieux, le libéralisme, le RTE
 patriotisme se combinent et s'organisent dans cette Re.
 synthèse, dont la formule est: « la magistrature du SEE
-monde » exercée par la France de la Révolution, béri-
-tière authentique et continuatrice légitime du Christ.
+monde » exercée par la France de la Révolution, béritière authentique et continuatrice légitime du Christ.
 
 La formule a vieilli, je le sais. Ce n'est plus ainsi que
 s'expriment les esprits d'avant-garde. Mais je suis bien (2
@@ -371,8 +352,7 @@ colères, les vengeances qui ont poursuivi Quinet, et “oi
 dont la plus redoutable est le silence organisé autour
 de son œuvre. Si Quinet n'avait été qu'un libre penseur, LES
 il eût paru infiniment moins redoutable à l'Église.
-L'Église ne lui a jamais pardonné, elle ne lui pardon-
-nera jamais d'avoir été un libre penseur religieux.
+L'Église ne lui a jamais pardonné, elle ne lui pardonnera jamais d'avoir été un libre penseur religieux.
 
 Révolution française (cours de 1845), tomes et III des Œuvres +498)
 
@@ -415,8 +395,7 @@ y dans ce livre, une page qu'il faut citer: -
 moderne possède un principe que, seule, elle est en ne
 état de professer, et c'est sur ce principe qu'est fondé
 son droit absolu d'enseignement en matière civile. Ce:
-qui fait le fond de cette société, ce qui la rend pos-
-sible, ce qui l'empêche de se décomposer, est précisé- Ne
+qui fait le fond de cette société, ce qui la rend possible, ce qui l'empêche de se décomposer, est précisé- Ne
 ment un point qui ne peut être enseigné avec la même me
 autorité par aucun des cultes officiels. Cette société vit
 sur le principe de l'amour des citoyens les uns pour les si
@@ -427,13 +406,10 @@ action, cette doctrine qui est le pain de vie du monde
 moderne? Qui enseignera au catholique la fraternité
 avec le juif? Est-ce celui qui, par sa croyance même, est
 obligé de maudire la croyance juive? Qui enseignera à
-Luther l'amour du papiste? Est-ce Luther? Qui ensei-
-grera au papiste l'amour de Luther? Est-ce le Pape?
+Luther l'amour du papiste? Est-ce Luther? Qui enseigrera au papiste l'amour de Luther? Est-ce le Pape?
 Il faut pourtant que ces trois ou quatre mondes, dont: À
 la loi est de s'exécrer mutuellement, soient réunis RS.
-dans une même amilié. Qui fera ce miracle? Qui réu-
-nira ces trois ennemis acharnés, irréconciliables? Évi-
-demment, un principe supérieur et plus universel, Ce ‘Le
+dans une même amilié. Qui fera ce miracle? Qui réunira ces trois ennemis acharnés, irréconciliables? Évidemment, un principe supérieur et plus universel, Ce ‘Le
 
 principe, qui n'est celui d'aucune église, voilà la pierre bi:
 3% de fondation de l'enseignement laïque. » (1) RER.
@@ -446,8 +422,7 @@ TARN doivent « s'aimer » l'une l'autre, former ce que la be.
 “14 à langue de la vieille France appelait une « amitié
 expression noble et charmante, que Michelet a relevée,
 3 pour l'appliquer aux fédérations révolutionnaires. »
-de c'est cette « amitié » que les clergés et les morales con-
-fessionnelles sont impuissants à fonder. Ils peuvent
+de c'est cette « amitié » que les clergés et les morales confessionnelles sont impuissants à fonder. Ils peuvent
 Ne bien préconiser ou accepter la tolérance, surtout quand
 à ils ne sont pas les plus forts, les seuls maîtres. Mais
 aucun de ces clergés, aucune de ces morales confes4 sionnelles n'enseignera jamais « l'amour » du clergé
@@ -456,8 +431,7 @@ Le seule la morale laïque est en mesure de donner cette
 Je voudrais savoir dans combien d'écoles cette page
 ne de Quinet est connue. Combien y a-t-il de maîtres qui
 : lont lue, méditée, fait comprendre de leurs élèves? Et
-74 si le nombre des écoles où elle a été l'objet d'un com-
-mentaire est, comme je crains, assez restreint, je
+74 si le nombre des écoles où elle a été l'objet d'un commentaire est, comme je crains, assez restreint, je
 à demande que, le 17 février prochain, le jour anniver24 saire de la naissance de Quinet, il n'y ait pas une école
 +3 de la République où cette page ne soit lue et sobrement
 expliquée. Que tous nos collèges aussi, tous nos lycées
@@ -473,8 +447,7 @@ de ces pages. Il faut que ce recueil soit dans toutes les
 mains. Chose étrange, presque paradoxale! Tous ceux RE:
 qui ont écrit sur l'éducation, tous les pédagogues ai +4
 fameux, depuis Rabelais et Montaigne jusqu'aux
-maîtres de Port-Royal; depuis Rousseau et Kant, jus-
-qu'à Fræbel et Pestalozzi; depuis Rollin jusqu'à Spencer
+maîtres de Port-Royal; depuis Rousseau et Kant, jusqu'à Fræbel et Pestalozzi; depuis Rollin jusqu'à Spencer
 et Bain, — sans oublier le vieux Comenius, — ont été
 vantés, prônés, célébrés dans ces dernières années. ve!
 Seul, Quinet a été oublié. Notre pays n'a pas l'air de
@@ -482,11 +455,9 @@ se douter qu'il possède en Quinet un éducateur incom- 1 <a:
 Si la voix de Quinet eût été écoutée, cette conception a.
 de l'école laïque et de la morale laïque aurait pénétré,
 il y a plus d'un demi-siècle, dans nos lois. DFE
-Reportons-nous à la séance de l'Assemblée législa-
-tive du 19 février 1850. On y discute le projet de loi AU.
+Reportons-nous à la séance de l'Assemblée législative du 19 février 1850. On y discute le projet de loi AU.
 relatif à l'instruction publique, projet qui est devenu la Ne
-loi Falloux. L'article 21 de ce projet stipule que le pre-
-mier degré de l'instruction primaire comprend, entre
+loi Falloux. L'article 21 de ce projet stipule que le premier degré de l'instruction primaire comprend, entre
 autres matières, « l'instruction morale et religieuse ».
 Quinet a déposé un amendement, pour ajouter ces
 mots: sans acceplion de dogmes particuliers aux
@@ -504,8 +475,7 @@ elle demeure confessionnelle, il arrivera de deux choses
 ù recevoir les enfants des diverses confessions, et il se
 Le formera, dans ces écoles « pour ainsi dire autant de
 4 nations ». L'école, loin de tendre à l'union, perpétuera
-sa les haïnes, ou, tout au moins, les « antipathies pro-
-fondes qui séparent les Églises. Toute la législation
+sa les haïnes, ou, tout au moins, les « antipathies profondes qui séparent les Églises. Toute la législation
 ral française tend à rapprocher les citoyens, à les fondre
 dans un sentiment commun: il y aura une seule loi,
 parmi les lois fondamentales, qui contrariera l'effort
@@ -540,9 +510,7 @@ Mais la loi du 28 mars 1882 a réalisé la pensée de Si
 Quinet. Elle a inscrit l'instruction morale et civique
 parmi les matières de l'enseignement primaire. Elle a
 stipulé que l'instruction religieuse devra être donnée a.;
-dans des locaux indépendants de l'école. Cette loi con-
-stitue la « grande Charte » de l'école, dans notre démo-
-cratie. Il est d'autant plus naturel et d'autant plus
+dans des locaux indépendants de l'école. Cette loi constitue la « grande Charte » de l'école, dans notre démocratie. Il est d'autant plus naturel et d'autant plus
 légitime de regarder Edgar Quinet comme un précur- À Es
 seur, que les deux hommes qui ont la plus grande
 part dans la préparation et le vote de cette loi, puis, EN
@@ -573,8 +541,7 @@ langue d'Edgar Quinet, la raison n'est pas seulement
 ï une faculté destructrice, c'est une faculté créatrice. De
 4 la raison doit surgir tout un monde nouveau; monde
 L. civil, monde moral, monde religieux. Quinet ajoute
-3 donc quelque chose au sens du mot. Il corrige et com-
-plète le dix-huitième siècle. Non pas qu'il le renie, non
+3 donc quelque chose au sens du mot. Il corrige et complète le dix-huitième siècle. Non pas qu'il le renie, non
 pas qu'il ait été touché par l'esprit de réaction qui
 atteint tant d'écrivains, entre 1820 et 1840. Mais il sent
 ES que le dix-huitième siècle a manqué d'une certaine À vité sincère et émue, qui lui est, à lui, Quinet, si natu-
@@ -588,8 +555,7 @@ parce qu'il les possède déjà. (1) Il creuse la notion de
 raison, et il y trouve, impliquées, deux autres réalités,
 La personnalité: voilà le point lumineux qui, de très À
 bonne heure, éclaire pour lui le monde des choses DU.
-morales. Il a écrit, dès 1823, une histoire du développe-
-ment de la personnalité à travers les âges. Cette histoire
+morales. Il a écrit, dès 1823, une histoire du développement de la personnalité à travers les âges. Cette histoire
 jamais paru. Il ne la considérait pas comme un A à
 simple essai de jeunesse, puisque en 1857 encore il
 comptait tirer quelque chose de son manuscrit. Les cir-: 1)
@@ -608,8 +574,7 @@ choses, une explication mécanique. Mais quand il arrive Be.
 au monde civil, cette explication défaille, impuissante. « A
 Il invoque un miracle, un Deus machina. Quinet ne ne.
 pense pas que l'intervention du miracle soit nécessaire. Ne
-L'homme porte en lui la personnalité: elle suflit à expli-
-quer le monde civil. Re:
+L'homme porte en lui la personnalité: elle suflit à expliquer le monde civil. Re:
 De même, l'idée de personnalité morale conduit Qui- À
 Lettres à sa mère, tome pages 353 et suivantes.
 
@@ -631,7 +596,7 @@ religieuse, c'est la création en nous, l'affermissement, À
 de léducation de la personnalité. +4
 Par quel moyen? Par le travail de la conscience sur
 à elle-même. La conscience, voilà la force merveilleuse,
-inépuisable en ses effets, que l'homme a toujours négli- »;
+inépuisable en ses effets, que l'homme a toujours négli-
 gée. Il n'a pas vu, il n'a pas senti que le véritable
 « pouvoir spirituel le seul pouvoir spirituel, c'est la À
 ni: conscience individuelle. Anxieux de bien faire et de
@@ -648,16 +613,14 @@ au-dessus de nous, hors de nous. Il est en nous, ilest
 nouS-même, il est ce qui, chez nous, est le plus vrai-: y
 ment, le plus complètement nôtre. Dépouillez l'homme
 de tous ses attributs, de toutes ses facultés, réduisez-le
-à la plus extrême indigence d'éléments: il est un élé-
-ment que vous ne réussirez pas à éliminer, sans que
+à la plus extrême indigence d'éléments: il est un élément que vous ne réussirez pas à éliminer, sans que
 ‘homme périsse, et c'est la conscience. L'homme
 cherche, péniblement, l'Église qui lui apportera la
 paix. Il n'est qu'une Église pour lui, l'Église intérieure,
 elle dont il est à la fois le pontife et le fidèle, l'autel et Di:
 a loi. Le système des idées de Quinet est suspendu à ni:
 ette notion de la c@nscience, comme à un roc aigu.
-la démocratie de s'y accrocher d'une prise victo-
-ieuse, si elle ne veut, après des vicissitudes qu'il n'est 4 À À
+la démocratie de s'y accrocher d'une prise victoieuse, si elle ne veut, après des vicissitudes qu'il n'est 4 À À
 as malaisé d'imaginer, redevenir, quelque jour, la
 roie des doctrines d'autorité et d'hétéronomie. nu:
 On le voit: par delà l'influence positive exercée sur
@@ -669,8 +632,7 @@ ncore davantage, quand elle sera pénétrée de tant de; +.
 ie, individuelle ou collective. #0
 reconnaissant une capacité illimitée de rajeunis- “14
 ment et de métamorphoses, Quinet substitue au vieil
-léal statique des dogmes et de la plupart des philo-
-ophies, un idéal dynamique, sans cesse en rénovation, à
+léal statique des dogmes et de la plupart des philoophies, un idéal dynamique, sans cesse en rénovation, à
 a progrès. Il ne dit pas à l'homme, avec ces philoso- sa à
 
 %. phies, avec ces dogmes: sois obéissant, humbl le juste,
@@ -707,17 +669,14 @@ d'avance, et par définition, — en attendant qu'il le à
 devienne en fait, — une conscience vivante? N'est-elle
 pas le régime qui se sera pleinement réalisé, le jour où "ANS
 la conscience aura ordonné elle-même et sanctionné
-toutes les relations établies entre les citoyens, les rela-
-tions économiques, autant que les relations spiri-
+toutes les relations établies entre les citoyens, les relations économiques, autant que les relations spiri-
 Edgar Quinet a droit à une consécration solennelle.
 droit aussi à titre de réparation nationale. Quinet est +510
 mort en pleine période de réaction. $es funérailles n'ont
 aucun caractère officiel. Le bureau de l'Assemblée, à
 qui aurait y assister, s'est abstenu. Quinet, constant
 aux convictions de toute sa vie, avait voulu être enterré +200
-civilement. Le gouvernement de la République, en con-
-viant les grands corps de l'État au Panthéon, le 17 fé-
-vrier 1903, ne fera qu'acquitter, bien tard, une dette
+civilement. Le gouvernement de la République, en conviant les grands corps de l'État au Panthéon, le 17 février 1903, ne fera qu'acquitter, bien tard, une dette
 sacrée. Dès la première heure de l'exil, Quinet disait à
 sa patrie, sans se plaindre, stoïquement: « Tu as été
 pour moi une mère sévère, je n'ai jamais connu tes
@@ -764,8 +723,7 @@ rachète l'offense qui lui a été faite, en 1875, par le bureau He:
 de l'Assemblée nationale. Nous ne serons pas quittes au!
 non plus envers sa mémoire, si quelques fragments:°4,
 de ses œuvres sont lus aux enfants des écoles publiques.
-Ce serait borner notre admiration et notre reconnais-
-sance à une manifestation éphémère, et ce serait aussi;
+Ce serait borner notre admiration et notre reconnaissance à une manifestation éphémère, et ce serait aussi;
 les matérialiser à l'excès. Un grand idéaliste, un homme
 de foi morale ardente, comme le fut Quinet, attend de
 nous davantage. Il attend des lendemains à cette fête,,
@@ -781,13 +739,10 @@ cahier de la cinquième série. Rs.
 
 Ils se rencontrèrent chez Cousin, un matin de mai à
 825. Michelet, jeune homme de vingt-sept ans, avec
-les cheveux gris, un corps souffreteux, une physio-
-omie nerveuse; Quinet, à vingt-deux ans plus impé-
-ueux qu'un enfant, grand, fort, magnifique, l'air plus
+les cheveux gris, un corps souffreteux, une physioomie nerveuse; Quinet, à vingt-deux ans plus impéueux qu'un enfant, grand, fort, magnifique, l'air plus
 dilitaire que professoral. Ils s'intéressèrent lun l'autre
 sortirent ensemble. Ils avaient un penchant commun on
-our la philosophie de l'histoire, où tous deux reconnais-
-aient un merveilleux progrès depuis Démosthènes
+our la philosophie de l'histoire, où tous deux reconnaisaient un merveilleux progrès depuis Démosthènes
 usqu'à Royer-Collard. Michelet traduisait Vico, et A
 Juinet, Herder. Ils causèrent de leurs grands hommes, il;
 uis de maints sujets. Michelet projetait de longues
@@ -799,8 +754,7 @@ lont « l'idée seule, écrit-il, lui faisait aimer la vie ». as #1
 ours suivants, et leurs vies étaient liées.
 Ce ne fut pas vers l'Angleterre que se dirigea Quinet, TSS
 pais vers l'Allemagne, la douce et savante Allemagne
-alors. Il y étudie Schelling, Hegel: « Notre philo-
-ophie de l'histoire me semble encore tout à fait jeune,
+alors. Il y étudie Schelling, Hegel: « Notre philoophie de l'histoire me semble encore tout à fait jeune,
 crit-il à Michelet, jeune comme nous, et je me réjouis AU
 le voir combien il nous reste à travailler. » Il lui
 
@@ -810,7 +764,7 @@ a s'écrie-t-il, à mesure que la pensée se développe
 Aimons-nous dans la science et nous ne nous perdrons.
 Michelet, cédant aux instances de Quinet, vint à.
 a Heïdelberg. Ce fut une occasion de conversations infiUs nies, commencées à voix basse dans la bibliothèque,
-A: A continuées en promenade à travers bois et prolongées
+A continuées en promenade à travers bois et prolongées
 4 jusqu'à la nuit dans les rues de la petite ville universiSRE taire. Ces heures d'ivresse intellectuelle scellèrent leur
 “M. intimité, et ils se séparèrent avec une tristesse un peu.
 73 sentimentale. « Après vous avoir quitté, écrit Quinet à
@@ -836,8 +790,7 @@ F. casanier, sortait peu. « Si je ne te dis rien de lui,
 Scrit-il à sa mère d'un trait qui le peint tout entier,
 c'est que son amitié m'est devenue tellement intime
 que je n'y songe guère plus qu'à moi-même. »
-Il était à Strasbourg en juillet 1830. « Quelle désola-
-ion!.… écrit-il, je ne me consolerai jamais de n'avoir À
+Il était à Strasbourg en juillet 1830. « Quelle désolaion!.… écrit-il, je ne me consolerai jamais de n'avoir À
 pas marché avec les faubourgs. » Dès le 20 août, ne,
 Michelet, que ses préoccupations intellectuelles n'em-: ni:
 pêchaiïent pas d'être fort avisé aux choses de la terre,
@@ -849,16 +802,14 @@ cés, il écrivit dans les journaux d'opposition. Michelet
 s'efforça de le calmer: « Je sais tout ce qu'on peut dire
 sur ce pauvre gouvernement, dit-il très sagement; Ke:
 mais je le crois utile comme transition et je souhaite
-que la transition soit lente. » Professeur à l'École nor-
-male, conservateur aux archives, précepteur des filles
+que la transition soit lente. » Professeur à l'École normale, conservateur aux archives, précepteur des filles
 du roi, il s'était ménagé une installation commode dans
 ce régime transitoire, et s'employait detoutes ses forces
 à y installer son ardent ami. La tâche était diflicile. si
 Edgar Quinet eut une entrevue avec Guizot et les lèvres à
 pincées du grand doctrinaire lui signifièrent qu'il perdait à
 ses peines.
-Il partit pour l'Allemagne dans une minute d'impa-
-tience, et dès lors mena une vie heurtée, dispersant au Et
+Il partit pour l'Allemagne dans une minute d'impatience, et dès lors mena une vie heurtée, dispersant au Et
 hasard ses admirables facultés. Il étudia les poèmes De
 français du douzième siècle, la vie de Jésus-Christ, la
 personnalité d'Homère; il publia son Prométhée et son
@@ -876,7 +827,7 @@ nr. l'administration financière de ses publications et tenait »
 toutes choses. Les caractères de Michelet et de Quinet …
 4 divergeaient en mürissant, et leur amitié n'en était pas-_
 Un. diminuée: au contraire, ils semblaient prendre plaisir …
-4 Enfin, en 1838, le gouvernement alors plus favorable
+Enfin, en 1838, le gouvernement alors plus favorable
 au libéralisme offrit à Quinet une chaire à Lyon.:
 DAURE « Acceptez, lui dit Michelet. Lyon est le chemin de
 Paris. » Il accepta. Il n'avait jamais parlé, et il se décou- « pi. vrit soudain les meilleurs dons de l'orateur: l'action,
@@ -893,8 +844,7 @@ L. qu'il choisit d'étudier fut l'Église, cause de mort pour.
 les races latines. Il retrouvait ainsi toutes ses passions.
 ï Le public ne fut pas déçu par sa leçon d'ouverture, et à
 
-elles qui suivirent maintinrent l'excitation. On applau-
-lit, on dénigra. Michelet, professeur très pacifique
+elles qui suivirent maintinrent l'excitation. On applaulit, on dénigra. Michelet, professeur très pacifique
 lepuis 1838, reçut, par contre-coup, quelques attaques..
 1 s'anima; l'année suivante, les deux amis firent pacte À
 traitèrent le même sujet: Les Jésuites, l'éducation
@@ -906,8 +856,7 @@ ffrait un spectacle touchant. Ils l'exposaient, à la
 nanière un peu théâtrale qui plaisait alors, ils l'afi- “4
 haïent, dirions-nous aujourd'hui, en venant mutuelle- #4
 rent s'écouter, s'asseyant tour à tour à la droite de
-elui qui parlait. Le succès immédiat, extrême, qu'ob-
-int ce double cours, il faut être parisien, sans doute, dE:
+elui qui parlait. Le succès immédiat, extrême, qu'obint ce double cours, il faut être parisien, sans doute, dE:
 our le bien concevoir. On vint pour sifiler, on vint
 our applaudir, et aussi pour le plaisir d'entendre.
 es étudiants arrivaient par bandes, en chantant, hos- ni
@@ -926,8 +875,7 @@ La collaboration des deux amis dura quelque temps
 
 encore. Ils publièrent ensemble leurs cours sur les
 Jésuites, puis se dédièrent l'un à l'autre, Michelet son
-ee. livre du Peuple, et Quinct son livre sur Le Christia-
-nisme et la Révolution. « Depuis le premier instant où
+ee. livre du Peuple, et Quinct son livre sur Le Christianisme et la Révolution. « Depuis le premier instant où
 Æ. nous nous sommes connus, écrivait Quinet, par quel
 hasard est-il arrivé que, séparés ou rapprochés, nous
 : n'avons cessé au même moment de croire et souvent
@@ -941,8 +889,7 @@ de comme par le passé, d'une manière désordonnée et
 notes d'un voyage qu'il avait fait en Espagne. Michelet
 reutra dans le courant profond de son activité. « Je
 36 suis enterré aux Cordeliers, aux Jacobins, écrivait-il
-en septembre 1847, je ne puis aller vous voir. » Il conti-
-nuait l'Histoire de France.
+en septembre 1847, je ne puis aller vous voir. » Il continuait l'Histoire de France.
 pe: La révolution de 1848 les sépara davantage encore.
 À Aux premiers appels du tambour, Edgar Quinet prit
 à son fusil de garde national et alla se battre, chose qui
@@ -991,7 +938,7 @@ son ihgratitude envers les proscrits. Cette légèreté le
 frappa douloureusement. Il craignit qu'un abîme ne se
 7 fût ouvert entre sa patrie et lui. Il sentit qu'il allait
 4 devenir sévère, peut-être un peu âpre, et qu'en France
-à: il serait moins aimé. Il fut attristé, mais nullement
+il serait moins aimé. Il fut attristé, mais nullement
 ébranlé. Avec cette résolution que l'âge affermissait en
 lui, il se mit en travers de son temps et désormais
 à chacun de ses actes fut une opposition et une contra-
@@ -1000,25 +947,21 @@ Michelet revint à Paris; il y travailla beaucoup, et
 se la Réforme et son imagination lui représentait avec
 » tant de vivacité les supplices infligés aux révoltés d'a-
 lors qu'il avait moins de pitié disponible pour ses amis
-- de Cayenne ou de Bruxelles. En même temps il rédi-
-geait l'Oiseau, etles mœurs exquises de ces petits êtres
+- de Cayenne ou de Bruxelles. En même temps il rédigeait l'Oiseau, etles mœurs exquises de ces petits êtres
 « lui donnaïent du réconfort. L'artiste grandissant consode lait lidéologue vaincu. Il perdit sa fille et Quinet lui
 . écrivit aussitôt une lettre chaleureuse. « Je travaille, je
-; vis, » répondit Michelet. Quinet perdit un enfant. « Fra-
-vaillez-vous? » lui écrivit Michelet. L'égoïsme naturél,
+; vis, » répondit Michelet. Quinet perdit un enfant. « Fravaillez-vous? » lui écrivit Michelet. L'égoïsme naturél,
 À ou, pour mieux dire, l'absorption nécessaire aux grands
 3 producteurs était fortifiée en lui par son état de maladie
 et les adulations dont l'entourait sa femme. En 1855, il
 traversa Bruxelles. Les proscrits se réunirent un soir
 pour le fêter. Il vint, raconte madame Quinet, disserta
 sur l'aviculture et parut éviter toute allusion politique.
-En 1859, l'Empire, vainqueur de l'Autriche et décidé-
-ment installé, proclama l'amnistie générale. Hugo,
+En 1859, l'Empire, vainqueur de l'Autriche et décidément installé, proclama l'amnistie générale. Hugo,
 Quinet, Charras refasèrent avec éclat et publièrent leurs
 
 motifs. Nous ne sommes pas les coupables, dirent-ils. à
-Nous n'admettons pas qu'on nous amnistie. Nous ren-
-trerons à notre heure. Mais les Parisiens, de plus en 1566
+Nous n'admettons pas qu'on nous amnistie. Nous rentrerons à notre heure. Mais les Parisiens, de plus en 1566
 plus habitués à leur brillant régime, n'approuvèrent pas Ex:
 ces obstinés. Madame Michelet fit à son mari une maison
 agréable. Elle donna des soirées et des bals qui par- 1%
@@ -1032,8 +975,7 @@ on ne l'écoutait pas, et, comme il ne voyait plus de fin de.
 du lac de Genève, à Veytaux.
 Michelet y vint passer le mois d'octobre 1861. D'autres dE.
 Français vinrent aussi, anciens proscrits qui prenaient A
-plaisir à revoir leurs résidences et leurs amis d'infor-
-tune. Ces petites « France de l'extérieur — Michelet
+plaisir à revoir leurs résidences et leurs amis d'infortune. Ces petites « France de l'extérieur — Michelet
 les nommaïit ainsi, — avaient leur charme et leur
 tristesse. L'entente y était parfaite sur les questions
 essentielles. Mais sur la tactique les opinions diffé- "1
@@ -1068,9 +1010,7 @@ la Femme, la Sorcière, la Bible de l'humanité. La gloire
 
 4) Il revint séjourner à Veytaux en juillet 1865. Il fut
 
-affectueux et charmant. Il s'amusait à faire rire la can-
-
-dide madame Quinet avec des bouffonneries, puis il la
+affectueux et charmant. Il s'amusait à faire rire la candide madame Quinet avec des bouffonneries, puis il la
 
 à. faisait frémir en aflirmant d'une voix grave que rien
 
@@ -1097,8 +1037,7 @@ même divisés par l'histoire des hommes, les deux amis me
 se rassérénaient par l'histoire de la nature. Au moment
 
 des adieux, madame Michelet, avec une grâce un: peu
-féline, prodiguait des câlineries: « Nous nous rever-
-rons, il le faut, vous reviendrez à Paris... je vais vous
+féline, prodiguait des câlineries: « Nous nous reverrons, il le faut, vous reviendrez à Paris... je vais vous
 chercher un appartement... » Doucement, Quinet faisait
 dela tête un geste négatif. Elle l''embrassa: « J'ai passé
 ici des jours de bonheur. Je n'ai jamais senti un tel
@@ -1116,8 +1055,7 @@ Il lui déplaisait, d'ailleurs, que Quinet s'entretint d'his- Pt.
 toire naturelle avec Michelet, car elle avait sur ce point
 de grandes prétentions et laissait volontiers entendre ES
 que l'Oiseau, l'Insecte, étaient ses œuvres. Quinet avait
-éveillé sa double jalousie de femme et de collabora-
-trice. Il ne lui fut pas difficile de circonvenir son mari, ne.
+éveillé sa double jalousie de femme et de collaboratrice. Il ne lui fut pas difficile de circonvenir son mari, ne.
 son éternel malade. ESA
 Quinet publiait à ce moment même son histoire de la NE
 Révolution, qui est une œuvre belle, mais amère. Il
@@ -1130,8 +1068,7 @@ Révolution même une faute initiale. IL avait écrit
 quarante années. L'effet produit fut considérable et
 À THEN Michelet, qui avait composé son histoire en 1848, dans
 à la manière enthousiaste d'alors, éprouva de l'agace-
-, ment. Bientôt, il ressentit comme une infidélité le désac-
-cord intellectuel survenu entre Quinet et lui. Il écrivit à
+, ment. Bientôt, il ressentit comme une infidélité le désaccord intellectuel survenu entre Quinet et lui. Il écrivit à
 1 son vieil ami que plusieurs de ses thèses lui étaient
 ou « pénibles » et « inacceptables ».
 “38 difficultés de famille l'attristaient; il était tout à fait
@@ -1140,12 +1077,10 @@ unissait aux Quinet. Des discussions politiques s'élevè-
 Ne rent entre les deux hommes. Quinet abhorrait les leurres -
 à de l'empire libéral qui faisait illusion alors.
 É Des congratulations littéraires tinrent lieu de cordiase lité. Madame Michelet venait de publier ses Mémoires
-, d'une enfant, et Michelet le dernier volume de son His-
-toire. Il avait enfin terminé cette œuvre immense, fruitde de son apparente faiblesse; il avait achevé de ressusya citer la civilisation latine, depuis les origines de Rome
+, d'une enfant, et Michelet le dernier volume de son Histoire. Il avait enfin terminé cette œuvre immense, fruitde de son apparente faiblesse; il avait achevé de ressusya citer la civilisation latine, depuis les origines de Rome
 jusqu'au dix-neuvième siècle. Un grand dîner fut offert
 à l'illustre ménage et Quinet, avec une émotion extrême,
-à porta un toast à son ami: « Je bois à une chose immor-
-telle, l'Histoire de France; le monument est achevé! »
+à porta un toast à son ami: « Je bois à une chose immortelle, l'Histoire de France; le monument est achevé! »
 Peut-être y eut-il dans cette émotion, non certes de
 4 l'envie, mais un retour un peu mélancolique sur soirême, une inquiétude pour les pauvres livres disparates
 qu'il laissait, un regret enfin pour sa popularité et sa
@@ -1181,14 +1116,12 @@ bout des lèvres: de la maison exquise, de la vue admi- ill
 rable qu'on enviait à l'exilé, auquel eût pourtant mieux Pa.
 convenu le ruisseau de la rue du Bac. Deux jeunes gens
 étaient qui gènaient l'entretien. M. et madame à
-Michelet partirent sans qu'un mot intime ait été pro-
-noncé, et ce fut la dernière entrevue.
+Michelet partirent sans qu'un mot intime ait été prononcé, et ce fut la dernière entrevue.
 Une extraordinaire épître vint compléter cette déce- à
 vante visite. IL est sûr que nos rapports ont changé, ASS
 ; écrivait Michelet;.… expliquons-nous donc une fois. »
 
-Et, après avoir rappelé leurs manières diverses de com-
-prendre la Révolution, il faisait à Quinet le reproche de
+Et, après avoir rappelé leurs manières diverses de comprendre la Révolution, il faisait à Quinet le reproche de
 n'avoir pas cité son histoire dans la sienne. « … Cela a
 surpris tout le monde... Je ne dis pas cela par une sotte
 6 vanité, mais pour marquer ce surprenant oubli de celui
@@ -1203,8 +1136,7 @@ Quinet fut désespéré. Les meilleurs souvenirs de sa
 ; responsable. Quinet résolut de rester, malgré Michelet
 à lui-même, son ami. « Notre amitié est notre honneur
 lui écrivit-il fermement. « Nous devons à ce triste temps
-se de lui donner l'exemple d'une telle amitié entière jus-
-qu'à la fin. Rien ne me séparera de vous, entendez
+se de lui donner l'exemple d'une telle amitié entière jusqu'à la fin. Rien ne me séparera de vous, entendez
 bien cela... Rien ne me découragera, je ne changerai
 jamais pour vous, je me le promets à moi-même. »
 À Quinet eut la récompense de son effort: la brouille
@@ -1245,24 +1177,20 @@ regardant le ciel rougi, seul avec sa femme et pleurant
 contre son épaule.
 Le 28 juin 1871, Michelet écrit à Edgar Quinet. Il ARE à
 parle de sa santé, qui est meilleure, et de son opuscule à 5 TA
-la France devant l'Europe, qu'il a n'envoyer à per-
-sonne parce qu'il était déparé par trop de fautes d'im-
-pression. « Que de choses contiendrait cette lettre, » dit- 1 ta
+la France devant l'Europe, qu'il a n'envoyer à personne parce qu'il était déparé par trop de fautes d'impression. « Que de choses contiendrait cette lettre, » dit- 1 ta
 il en concluant, « si je suivais mes pensées! mais je me
-fatigue encore aisément ». Ce fut la fin de leur corres-
-pondance. Michelet traîna ses dernières années dans
+fatigue encore aisément ». Ce fut la fin de leur correspondance. Michelet traîna ses dernières années dans
 
 les stations du midi de la France, au bord de la mer ou
 à la campagne. Ilne vit plus son ami ni ne communiqua
 - à avec lui. A grand peine, avec une dépense d'énergie
 à nerveuse dont l'œuvre se ressent, ilacheva son Histoire.
-à; du dix-neuvième siècle, — livre pénible, déclamatoire,
+du dix-neuvième siècle, — livre pénible, déclamatoire,
 avec deséclairs admirables d'intelligence, et tout assom4 bri par la tristesse d'un homme qui doute de la vie au
 moment de la quitter. La guerre avait déconcerté ses
 è vues d'avenir en fortifiant les institutions militaires
 5 dans une Europe nécessairement divisée; il en était
-À Quinet, lui aussi fort souffrant, trouva la force d'efvo: fectuer un long voyage. « Le sacrifice une fois con-
-sommé, dit très bien M. Henry Michel, dans une belle
+À Quinet, lui aussi fort souffrant, trouva la force d'efvo: fectuer un long voyage. « Le sacrifice une fois consommé, dit très bien M. Henry Michel, dans une belle
 étude qui vient de ramener l'attention publique vers
 à notre auteur, — la France réduite, mutilée, il ne reste
 à à Quinet qu'une manière de lui témoigner sa tendresse
@@ -1287,8 +1215,7 @@ ouvrant son journal. Il pâlit et tendit la feuille à sa
 nine que virile, qui décevait parfois, mais qui se faisait
 toujours pardonner! « Je ne puis que vous dire mon EN
 saisissement... écrivit-il à madame Michelet... « Je se
-suis hors d'état d'ajouter un mot... Je l'essaie inutile-
-ment. Puissiez-vous avoir toute la force dont vous avez ES
+suis hors d'état d'ajouter un mot... Je l'essaie inutilement. Puissiez-vous avoir toute la force dont vous avez ES
 Quinet vécut treize mois encore. Sa dernière œuvre, +20
 
 l'Esprit nouveau, est belle de sérénité et de jeunesse.
@@ -1362,10 +1289,8 @@ Premières impressions décisives qui façonnent la petite
 désormais. De quel amour le vieillard proscrit évoque la?
 campagne fiévreuse, les étangs empourprés par le soir,
 les premières centaurées dans les bois, les bœufs qu'il tes à
-menait au labour, toute cette agreste existence, exal-
-tée et comme embaumée par les entretiens maternels,
-les prières qu'à haute voix, simplement, en toute cir-
-constance, madame Quinet prononçait devant ses
+menait au labour, toute cette agreste existence, exaltée et comme embaumée par les entretiens maternels,
+les prières qu'à haute voix, simplement, en toute circonstance, madame Quinet prononçait devant ses
 enfants attentifs, dialogues spontanés entre elle et: a
 l'Esprit invisible et présent! Puis c'est un brusque
 changement. La famille émigre à Charolles. Quinet Ce
@@ -1396,11 +1321,7 @@ l'histoire, et les rudes tableaux qu'il vit défiler devant
 
 antérieures. Elles sont pour lui chose sensible, frémis-
 
-À sante, et non lettre morte, comme pour un élève ordi-
-
-naire. s'ébauche sa vocation. Revenu aux campa-
-
-gnes natales, l'adolescent s'émeut déjà de sentir que
+À sante, et non lettre morte, comme pour un élève ordinaire. s'ébauche sa vocation. Revenu aux campagnes natales, l'adolescent s'émeut déjà de sentir que
 
 à tressaille en lui tout un monde d'idées confuses, à quoi
 
@@ -1432,9 +1353,7 @@ L'Histoire de mes idées se borne à cette période de
 0 limbes. Dès Lors, c'est l'œuvre de Quinet qui commence à
 à parler pour lui. Son premier essai, sur Herder, qu'il
 4 écrit à vingt et un ans, indique avec une lucidité, une
-4 conscience de soi surprenantes, l'idée maîtresse, essen-
-
-tielle, que son effort, en trente volumes, ne fera que
+4 conscience de soi surprenantes, l'idée maîtresse, essentielle, que son effort, en trente volumes, ne fera que
 
 É développer. Cette idée, c'estle rapport nécessaire entre « É la croyance et la politique, — rapport de la pensée à
 
@@ -1442,14 +1361,11 @@ de eue cote
 l'acte, — et l'évolution parallèle, au cours des siècles,
 . des empires et des religions. Avec une ardeur infati-;
 gable, Quinet, d'abord, l'applique au passé, cherche en "LEE
-Orient, berceau des races, puis dans la civilisation hel-
-lène, les premiers fondements solides de sa philosophie
+Orient, berceau des races, puis dans la civilisation hellène, les premiers fondements solides de sa philosophie
 de l'histoire. C'est de ce point de vue qu'ensuite il envi- A
-sage le christianisme et les dix-huit siècles qui en dé-
-coulent, qui sont pour lui comme des messages où suc-;
+sage le christianisme et les dix-huit siècles qui en découlent, qui sont pour lui comme des messages où suc-;
 cessivement se concrétisent les idées morales du Christ. er.
-Il arrive à la Révolution. Il voit en elle l'accomplisse-
-ment temporel et définitif de ce grand rêve d'amour EL.
+Il arrive à la Révolution. Il voit en elle l'accomplissement temporel et définitif de ce grand rêve d'amour EL.
 chrétien, dont l'Église ne représente plus que la dévia- EU:
 tion ascétique. Entre ces deux forces contraires, Église
 et Révolution, le divorce désormais est fatal, la lutte
@@ -1462,26 +1378,22 @@ ses conséquences, que si la vie nationale s'affranchit du,
 Ainsi par une marche invincible à travers l'infini
 labyrinthe des croyances et des dogmes éteints, Edgar #4
 Quinet s'est acheminé vers une conclusion actuelle. Ce
-long séjour parmi les morts, cette érudition poussié-
-reuse n'ont pour but que de nous faire vivre, en déchif-
-frant le mot de l'énigme qui se pose devant les sociétés Si
+long séjour parmi les morts, cette érudition poussiéreuse n'ont pour but que de nous faire vivre, en déchiffrant le mot de l'énigme qui se pose devant les sociétés Si
 modernes. Avec plus de force impérieuse, plus de déci- ne:
 sive clarté qu'aucun de ses rivaux en histoire, Taine,
 Renan ou Michelet, l'auteur du Génie des Religions, de HN.
-la Révolution française, des Jésuites et de l'Ultramon-
-
-tanisme, de la Création et de l'Esprit nouveau s'est
+la Révolution française, des Jésuites et de l'Ultramontanisme, de la Création et de l'Esprit nouveau s'est
 À attaqué au problème vital qui déchire en effet notre:
 4 temps. De sa fortune paradoxale. Sans influence de
 son temps, voici qu'il grandit chaque jour. Depuis 1870,
 ; on peut dire que la pensée française est toute possédée
 de la sienne. Ces lucides éducateurs du peuple, un
 Ferry, un Jean Macé, un Pécaut, sont les élèves d'Edgar
-à: Quinet. Nous vivons en lui et par lui nous sommes. La
+Quinet. Nous vivons en lui et par lui nous sommes. La
 1 presse et la Chambre retentissent des discussions que,
 14 solitaire, agita jadis ce précurseur dans le village de
 Veytaux, devant le grandiose décor des Alpes. Quand
-:; M. Buisson, l'autre jour, répondait au président du Con- -
+M. Buisson, l'autre jour, répondait au président du Con- -
 à seil, il ne faisait que reproduire ces fortes paroles de
 ; Quinet: « Voulez-vous affranchir l'enseignement laïque?
 Osez affirmer ce que trois siècles ont affirmé avant
@@ -1492,8 +1404,7 @@ Un acte de foi: c'est sur ces mots que logiquement
 doit se terminer une étude sur ce croyant intrépide.
 Acte de foi non dans la lettre de révélations surannées
 ; et de miracles puérils, mais dans la puissance féconde,
-éternelle et calme de l'esprit. Acte de foi dans la desti4 née de l'homme, où il voit le miracle vrai auquelabou-
-tit à travers les âges l'évolution organique et dont il
+éternelle et calme de l'esprit. Acte de foi dans la desti4 née de l'homme, où il voit le miracle vrai auquelaboutit à travers les âges l'évolution organique et dont il
 essaie dans la Création d'entrevoir les stades futurs,
 terrestres et ultra-terrestres, car il admet, — comme
 Blanqui dans l'Éternité par les Astres, — les profondes
@@ -1533,8 +1444,7 @@ faire? Les séparer.
 
 Quoi! Le sacerdoce n'aurait plus rien à faire dans les
 
-écoles! il n'aurait plus les yeux ouverts sur les géné-
-rations nouvelles! Quelle impiété! Je dis, moi, que
+écoles! il n'aurait plus les yeux ouverts sur les générations nouvelles! Quelle impiété! Je dis, moi, que
 c'est le seul moyen de respecter, tout ensemble, la
 . liberté de conscience et la liberté des cultes.
 La grande prétention du sacerdoce est qu'il n'a:
@@ -1565,8 +1475,7 @@ D. La science a sa certitude, son évidence, qui
 44 il que la religion absolue soit placée sous la dépen-
 HER dance de l'esprit de secte? Est-ce juste? est-ce pos-
 É Supposez qu'il n'y eût d'autre enseignement moral
-que celui qui est distribué au nom des Eglises particu-
-lières; j'ai montré que, dans ce cas, la société actuelle
+que celui qui est distribué au nom des Eglises particulières; j'ai montré que, dans ce cas, la société actuelle
 ne pourrait subsister telle qu'elle est. Chacun suivant
 rigoureusement le principe exclusif déposé dans son »
 
@@ -1580,11 +1489,9 @@ rait pu, en se développant, produire la société française
 telle qu'elle est aujourd'hui, alliance pacifique de toutes DU::
 les croyances, de toutes les opinions, de toutes les
 sectes dans le sein d'une même nation. C'est dire que
-chacune de ces Églises a l'autorité d'un système consi-
-dérable, mais qu'aucune d'elles n'est plus le principe
+chacune de ces Églises a l'autorité d'un système considérable, mais qu'aucune d'elles n'est plus le principe
 vital de cette société. Pour qu'elle subsiste, il faut que
-l'esprit qui l'a faite continue de se répandre par l'édu-
-cation, de génération en génération. est la raison
+l'esprit qui l'a faite continue de se répandre par l'éducation, de génération en génération. est la raison
 d'être de l'enseignement laïque sans acception d'aucun
 Toutes les objections iront se briser contre ce fait:
 nulle Église particulière n'étant l'âme de la France,
@@ -1613,13 +1520,11 @@ il n'y en a qu'une qui soit légitime. Tous ceux qui ne lui
 4 appartiennent pas sont maudits; ils resteront orphe-
 ; lins. Soyez donc séparés les uns des autres dans le
 ! temps, puisque vous devez l'être dans l'éternité.
-Croyez-vous que ce serait un malheur irréparable-
-pour votre enfant de naître ainsi à la vie civile dans un
+Croyez-vous que ce serait un malheur irréparablepour votre enfant de naître ainsi à la vie civile dans un
 sentiment de concorde, de paix, d'alliance avec tous
 ses frères? Le premier sourire qui lui a été donné du
 ciel, est-ce pour maudire? Faut-il que son premier
-bégayement soit un anathème? — Mais vous contrai-
-gnez mon fils de n'avoir ni colère ni exécration contre
+bégayement soit un anathème? — Mais vous contraignez mon fils de n'avoir ni colère ni exécration contre
 ceux qui ne pensent pas, ne croient pas, ne prient pas …
 à comme moi. C'est une violation de la liberté du père de »
 famille. — Eh! que ne le disiez-vous plus tôt!
@@ -1691,21 +1596,17 @@ quoi il est question dans l'enseignement laïque. à à
 
 a principe que, seule, elle est en état de professer, et
 
-c'est sur ce principe qu'est fondé son droit absolu, d'en-
-
-seignement en matière civile. Ce qui fait le fond de
+c'est sur ce principe qu'est fondé son droit absolu, d'enseignement en matière civile. Ce qui fait le fond de
 
 4 cette société, ce qui la rend possible, ce qui l'empêche
 3 de se décomposer, est précisément un point qui ne peut
 être enseigné avec la même autorité par aucun des
 4 cultes officiels. Cette société vit sur le principe de
-l'amour des citoyens les uns pour les autres, indépen-
-damment de leur croyance.
+l'amour des citoyens les uns pour les autres, indépendamment de leur croyance.
 Or, dites-moi qui professera, non pas seulement en
 
 paroles, mais en action, cette doctrine, qui est le pain
-de vie du monde moderne? Qui enseignera au catho-
-lique la fraternité avec le juif? Est-ce celui qui, par sa de
+de vie du monde moderne? Qui enseignera au catholique la fraternité avec le juif? Est-ce celui qui, par sa de
 croyance même, est obligé de maeudire la croyance
 juive? Qui enseignera à Luther l'amour du papiste?
 Est-ce Luther? Qui enseignera au papiste l'amour de *:48
@@ -1726,8 +1627,7 @@ Comment s'est constituée la science moderne? En la
 séparant de la science de l'Église. Le droit civil? En le
 séparant du droit canon. La constitution politique? En
 la séparant de la religion de l'État. Tous les éléments de LA
-la sociabilité moderne se sont développés en s'éman-
-cipant des Églises. Le plus important de tout reste à
+la sociabilité moderne se sont développés en s'émancipant des Églises. Le plus important de tout reste à
 ordonner, l'éducation. Par une conséquence qui se: 1 °00
 déduit de tout ce qui précède, n'est-il pas clair qu'il ne 1540
 peut être réglé qu'à la condition d'être pleinement
@@ -1749,7 +1649,7 @@ Faire que la liberté du prêtre catholique ne devienne …
 caste, peut-il exercer régulièrement le pouvoir civil, à
 se moins qu'on ne rentre dans le chemin de la théocratie?
 L'évèque sera-t-il préfet? Le curé sera-t-il maire? Celui
-:; qui accuse peut-il être en même temps le juge? Comnn ment donc celui qui, au nom du Moyen-Age, fait le
+qui accuse peut-il être en même temps le juge? Comnn ment donc celui qui, au nom du Moyen-Age, fait le
 procès de l'esprit moderne, peut-il être en même temps
 chargé de répandre et d'enseigner cet esprit?
 à Il est arrivé que des hommes qui avaient établi des
@@ -1770,16 +1670,13 @@ paroles qui dans un autre temps sont tombées de ma Ne.
 Où sont tous ceux qui, dans le temps dont jeparle,ne «
 faisaient qu'un seul esprit? Ceux qui s'unissaient alors VER
 dans une même pensée, avec l'ardeur de la jeunesse, "4
-sont-ils séparés? D'autres sont-ils tombés dans l'indifté-
-rence sur ce qui leur semblait la seule chose impor-
-tante? Quelques-uns se souviennent-ils de ce que nous RY:
+sont-ils séparés? D'autres sont-ils tombés dans l'indiftérence sur ce qui leur semblait la seule chose importante? Quelques-uns se souviennent-ils de ce que nous RY:
 avons pensé ensemble? (1)
 A tous je leur dois cette déclaration, que, ce que je
 tenais alors pour vrai, je le tiens aujourd'hui pour
 évident; que le fantôme qui apparaît dans les heures: à
 de la jeunesse est le bon génie de la vérité; que le
-salut de la France est dans la voie où nous avions com-
-mencé d'entrer. Sachons donc y persévérer.
+salut de la France est dans la voie où nous avions commencé d'entrer. Sachons donc y persévérer.
 Tout ceci est une allusion au cours du. Collège de France. A
 
 Cette lettre est insérée dans le tome premier
@@ -1803,8 +1700,7 @@ système dans l'Histoire de France et par vous avez
 
 moins de péchés sur la conscience qu'aucun autre.
 D'ailleurs, si vous aviez péché, et là, vous avez tant
-de loyauté et de vitalité dans l'esprit, que vous trou-
-veriez dans vos propres erreurs une source de progrès
+de loyauté et de vitalité dans l'esprit, que vous trouveriez dans vos propres erreurs une source de progrès
 nouveaux vers la vérité. “1
 Cela dit du plus profond de mon cœur, voici un point ir.
 sur lequel je vous supplie d'attacher impartialement
@@ -1817,19 +1713,16 @@ Eh bien, je vous l'avoue, en les examinant très sérieu- ne
 sement avec ce que nos expériences nouvelles nous
 ont appris, ces systèmes, selon moi, croulent à vue
 d'œil; il reste le talent, la science, mais la vérité
-philosophique a disparu. Tous ces systèmes appartien-
-nent à des écrivains qui ont vécu sous la Restauration “#l
+philosophique a disparu. Tous ces systèmes appartiennent à des écrivains qui ont vécu sous la Restauration “#l
 ou sous Louis-Philippe. Ils acceptent la monarchie
 libre, constitutionnelle, comme l'état définitif; c'est à
 leurs yeux la consommation de l'Histoire de France,
 c'est sur ce fondement qu'ils bâtissent leurs systèmes;
 tout le passé, ils l'expliquent par ce dénouement; ils
 voient tout aboutir à la liberté dans la monarchie con- « à
-stitutionnelle; les problèmes les plus difficiles se résol-
-vent selon eux par l'idée du régime parlementaire.
+stitutionnelle; les problèmes les plus difficiles se résolvent selon eux par l'idée du régime parlementaire.
 L'Histoire de France, en un mot, n'est pour eux que la
-préparation de cette monarchie tempérée où la démo-
-cratie doit se reposer. Ce fondement sur lequel ils ont
+préparation de cette monarchie tempérée où la démocratie doit se reposer. Ce fondement sur lequel ils ont
 bâti a disparu. Je demande maintenant, ce que sont
 En les examinant aujourd'hui, j'ai été étonné plus "4
 
@@ -1855,8 +1748,7 @@ Les historiens répèêtent cela à satiété; c'est le fil qui
 ; les conduit. Quand de telles énormités logiques avaient
 au moins pour elles une apparence de réalité dans les
 années du régime parlementaire, la raison humaine se.
-taisait, s'inclinait; mais, aujourd'hui que cette appa-
-rence même est enlevée, on voit à le sophisme et
+taisait, s'inclinait; mais, aujourd'hui que cette apparence même est enlevée, on voit à le sophisme et
 ; l'on s'étonne qu'il ait été si facilement accepté. Voyez
 s'il n'y a pas un mal très grand, très profond et où lan
 société française peut aller s'abimer sans retour. Ce à
@@ -1898,7 +1790,7 @@ réagit, notre historien châtie durement ces générations,
 De petits esprits bourgeois qui ne comprenaient pas que
 de l'on travaillait à assurer pour leurs descendants la
 à liberté constitutionnelle. Voilà le sens, si ce ne sont les
-:: Dans les systèmes implacables par lesquels on défi-
+Dans les systèmes implacables par lesquels on défi-
 : gure le passé, il est bien frappant que les écrivains
 démocrates, républicains, aient suivi à la trace les
 écrivains de la monarchie libre. C'est à qui entrera le
@@ -1924,24 +1816,21 @@ historien me représente en ce moment un astronome
 
 qui a passé sa vie à calculer la courbe d'une certaine
 étoile et il se trouve malheureusement que cette étoile ‘Es
-prend une direction tout opposée à celle que l'astro-
-nome a marquée. J'en conclus que le calcul n'est pas “00
+prend une direction tout opposée à celle que l'astronome a marquée. J'en conclus que le calcul n'est pas “00
 juste et qu'il faut avoir le courage de se l'avouer. Nos
 théoriciens ont négligé, dans le calcul, une quantité qui 2/40
 se trouve avoir une valeur énorme: c'est la question
 morale. Ils ont totalement oublié l'effet que produit sur Me
 un peuple l'éducation séculaire par le pouvoir absolu.
 Ils n'ont oublié qu'une seule chose dans l'histoire ‘#4
-humaine, c'est l'âme humaine. Comme ils ont ce pou-
-voir absolu concourir à certains progrès, ils se sont
+humaine, c'est l'âme humaine. Comme ils ont ce pouvoir absolu concourir à certains progrès, ils se sont
 dit: La liberté suivra. Et ils ont négligé de remarquer "4
 que, sous la pression d'une monarchie sans limites, se
 formait le tempérament moral d'une nation, à qui il
 deviendrait de plus en plus difficile de pouvoir respirer
 l'air de la liberté. L'éducation du peuple par ses institu-:
 tions, c'était le fond des historiens de l'antiquité.
-Comment se fait-il que nos théoriciens aient absolu-
-ment oublié ces larges bases?
+Comment se fait-il que nos théoriciens aient absolument oublié ces larges bases?
 
 Cet extrait forme le chapitre du Livre cinquième
 À de La Révolution. Dans cet ouvrage, Edgar Quinet réa-
@@ -1963,28 +1852,23 @@ En France, la Révolution ne peut être le développe1 ment ni de la royauté ni
 base qui n'ait rien de commun avec la tradition. est
 À la grandeur, la sublimité, et en même temps le péril de
 à la Révolution française.
-Comme l'ancienne Église ne fournissait la base d'au-
-cune des innovations, on se trouva par la force des
+Comme l'ancienne Église ne fournissait la base d'aucune des innovations, on se trouva par la force des
 
 choses contraint de chercher ce fondement dans la ‘ai
 philosophie. Pour la première fois dans le monde, la be.
 philosophie dut tenir lieu d'institution, de croyance et
 d'archives. Elle avait jusque-là fécondé, remué quelques
-rares esprits dans la solitude, il fallait qu'elle descen-
-dît sur la place publique, qu'elle devint l'âme même,
+rares esprits dans la solitude, il fallait qu'elle descendît sur la place publique, qu'elle devint l'âme même,
 ou plutôt l''Égérie d'un peuple.
 Par ce peu de mots, on voit déjà combien tout était
 nouveau, et quelle expérience inouïe allait se faire sur
 une nation.
 Il fallait que la philosophie transformât l'ancienne
-religion ou que la philosophie devint elle-même la reli-
-gion du peuple nouveau. Mais que de questions eut
+religion ou que la philosophie devint elle-même la religion du peuple nouveau. Mais que de questions eut
 naissent aussitôt! Un système d'idées pures peut-il;
-servir d'aliments à un peuple? La vérité toute nue, sup-
-posé qu'on l'eût trouvée, peut-elle véritablement suffire
+servir d'aliments à un peuple? La vérité toute nue, supposé qu'on l'eût trouvée, peut-elle véritablement suffire
 aux multitudes? Cela s'est-il ou se verra:t-il jamais?
-Après avoir rencontré de telles questions, par les-
-quelles s'ouvre la Révolution française, le plus grand {is
+Après avoir rencontré de telles questions, par lesquelles s'ouvre la Révolution française, le plus grand {is
 malheur serait de ne pas même les pressentir: c'est ce
 qui arriva.
 On a dit que l'époque où la vérité philosophique
@@ -1997,18 +1881,14 @@ ce qu'il y avait de faux dans ses croyances, et ne
 tarda pas à en avoir honte et à les abandonner. Dans ce
 sens, il est très exact de dire que Socrate et Platon,
 pour avoir rencontré un dieu meilleur, ont corrompu le
-paganisme et avec lui le monde antique; car la plu-
-
-part des hommes qui s'étaient dégoûtés de leur ancien
+paganisme et avec lui le monde antique; car la plupart des hommes qui s'étaient dégoûtés de leur ancien
 À culte ne purent s'élever à la religion pure des idées. Ils
 4; se trouvèrent privés de religion, sans avoir acquis
 ; aucune philosophie, ce qui est la pire condition où
 {RE l'homme se puisse imaginer; par s'explique la décadence du monde antique. Ils s'étaient assez affranchis
 de de l'erreur pour la quitter, ils ne s'étaient pas assez épris
 ; de la vérité pour l'épouser.
-C'est ce qu'on voit encore de nos jours, chez les peu-
-plades sauvages auxquelles on présente, avec le chris-
-tianisme, un système et un ordre supérieur à celui
+C'est ce qu'on voit encore de nos jours, chez les peuplades sauvages auxquelles on présente, avec le christianisme, un système et un ordre supérieur à celui
 qu'ils ont jamais concevoir. Cet ordre nouveau les
 : trouble, ils ne peuvent y atteindre, mais ils en voient
 4 assez pour perdre la foi qu'ils avaient mise en leurs
@@ -2033,21 +1913,17 @@ Quelle religion la France peut-elle adopter? 3° Les
 Français peuvent-ils vivre en corps de peuple sans
 Un des signes étranges de ces temps, c'est qu'aucune
 de ces questions, qui contenaient pourtant en substance
-tout l'avenir, n'ait été ouvertement posée par le dix-
-huitième siècle. Un seul écrivain, J.-J. Rousseau, a:
+tout l'avenir, n'ait été ouvertement posée par le dixhuitième siècle. Un seul écrivain, J.-J. Rousseau,
 abordé cet ordre d'idées dans la Profession de foi du
 Vicaire savoyard. semble qu'il avait en lui ce qui
 était nécessaire pour donner un Credo à la Révolution.
 Ses paroles étaient acceptées presque sans examen; il SA
-inspirait la foi, plutôt que la persuasion. Aucun philo-
-sophe n'avait exercé à ce point l'autorité du prêtre. A
-cela, ajoutez une considération qui frappe. La Profes-
-sion de foi du Vicaire savoyard contient en germe les;
+inspirait la foi, plutôt que la persuasion. Aucun philosophe n'avait exercé à ce point l'autorité du prêtre. A
+cela, ajoutez une considération qui frappe. La Profession de foi du Vicaire savoyard contient en germe les;
 principes qui constituent l'Unitarisme en Amérique;
 nulle différence essentielle entre le livre du philosophe
 et la croyance religieuse d'une partie des États-Unis.
-Comment le même fonds d'idées qui a produit une reli-
-gion de l'autre côté de l'Océan, et qui s'y concilie avec
+Comment le même fonds d'idées qui a produit une religion de l'autre côté de l'Océan, et qui s'y concilie avec
 la société nouvelle, comment ces mêmes idées, pro-:
 duites avec l'éloquence, l'autorité d'un philosophe
 prêtre, sont-elles restées à peu près stériles parmi "4
@@ -2074,12 +1950,9 @@ Comment allier une profession de foi si inouïe dans:
 è l'Église, ou, pour mieux dire, une telle révolte avec le
 Le maintien de l'ancienne Église?
 Dans la réponse à cette question est le secret que je
-4 cherche: — « Autrefois, je disais la messe avec la légè-
-reté que l'on met à la longue aux choses les plus:
+4 cherche: — « Autrefois, je disais la messe avec la légèreté que l'on met à la longue aux choses les plus:
 É graves, quand on les fait trop souvent; depuis mes
-nouveaux principes, je la célèbre avec plus de véné-
-
-ration... Je suis avec soin tous les rites, je récite atten-
+nouveaux principes, je la célèbre avec plus de vénération... Je suis avec soin tous les rites, je récite atten-
 $. tivement, je m'applique à n'omettre jamais ni le
 moindre mot, ni la moindre cérémonie... Je prononce
 
@@ -2088,7 +1961,7 @@ leur effet toute la foi qui dépend de moi... J'ai: temps ambitionné l'honneur 
 ; tionne encore, mais je ne l'espère plus. Mon bon ami,!
 je ne trouve rien de si beau que d'être curé... Je pense « que solliciter quelqu'un de quitter la religion où il est
 né, c'est le solliciter de mal faire, et par conséquent
-À mal faire soi-même. »;
+À mal faire soi-même.
 ; Un curé qui dit la messe sans croire ni à l'Évangile,
 
 à la divinité de Jésus, et qui se contente de laisser 6 à
@@ -2096,8 +1969,7 @@ penser qu'il y croit, voilà donc l'idéal de réformation à
 que Jean-Jacques Rousseau propose à la Révolution
 qui le suit! Que tout cela est artificiel et cède à la
 première épreuve! Faire croire que l'or croit, c'est le
-point de départ; d'ailleurs, aucun changement exté-
-rieur, l'idée protestante dans la machine catholique.
+point de départ; d'ailleurs, aucun changement extérieur, l'idée protestante dans la machine catholique.
 Comme s'il n'y avait aucun rapport entre les idées et à
 les rites! entre les sentiments et les signes, entre les
 croyances et les formes! “3
@@ -2146,8 +2018,7 @@ Comment comprendront-ils que ce vicaire idéal donne
 À institués? Il leur faudrait pour cela une divination prois phétique; car le plus grand mystère de cette forme
 nouvelle de religion serait le prêtre qui voudrait l'é-
 Voilà donc une révolution religieuse qui s'accompli4 rait sans que personne en eût conscience! Un malen5 tendu éternel en serait le fond. Le peuple, en voyant
-« les anciennes cérémonies, les anciens sacrements, res-
-terait persuadé que l'ancien dogme est conservé. Le;
+« les anciennes cérémonies, les anciens sacrements, resterait persuadé que l'ancien dogme est conservé. Le;
 prêtre seul aurait le secret des changements qu'il y
 
 apporte dans son for intérieur; il n'aurait fait de révo-:
@@ -2163,9 +2034,7 @@ dans le fond des abimes. Ce ne sont partout que ruines
 du vieux culte; la terre même chancelle et s'entr'ouvre
 à chaque pas; les livres, les institutions disparaissent
 les uns après les autres. À mesure que je suis ce guide,
-ce révélateur de l'esprit nouveau, les croyances, les tra-
-
-ditions, les monuments s'évanouissent comme l'ombre;
+ce révélateur de l'esprit nouveau, les croyances, les traditions, les monuments s'évanouissent comme l'ombre;
 
 et lorsqu'au sortir de ce pèlerinage à travers tant de
 
@@ -2175,9 +2044,7 @@ j'espère, sinon embrasser l'avenir, du moins avoir À
 
 franchi le passé, qu'arrive-t-il? Le Vicaire savoyard
 
-m'a ramené au seuil de la vieille Église; il me fait ren-
-
-irer dans ce cercle du Moyen-Age que je croyais avoir
+m'a ramené au seuil de la vieille Église; il me fait renirer dans ce cercle du Moyen-Age que je croyais avoir
 
 franchi pour toujours! Et tant d'efforts pour en sortir,: À
 
@@ -2189,9 +2056,7 @@ après mon guide dans la cité des morts. Je me vois de
 
 nouveau au point de départ, scellé, enseveli dans
 
-l'ancienne lettre que je n'ai pas brisée, mais plus misé-
-
-rable, plus triste qu'auparavant. Tel le prisonnier qui,
+l'ancienne lettre que je n'ai pas brisée, mais plus misérable, plus triste qu'auparavant. Tel le prisonnier qui,
 
 après avoir essayé vainement de franchir la dernière
 
@@ -2240,8 +2105,7 @@ Tome HI. — Le Christianisme et la Révolution française. se
 Tome VI. — Marnix de Sainte-Aldegonde; Philosophie 1140
 de l'Histoire de France. TER
 Tome VII. — Les Roumains; Allemagne et Italie.:
-Tome VIII. — Premiers Travaux; Introduction à la Phi-
-losophie de l'Histoire de l'Humanité; Essai sur Herder; 1100
+Tome VIII. — Premiers Travaux; Introduction à la Philosophie de l'Histoire de l'Humanité; Essai sur Herder; 1100
 Examen de la vie de Jésus. SRE:
 Tome IX. — La Grèce moderne; Histoire de la Poésie.
 Tome X. — Mes vacances en Espagne. PE:
@@ -2262,13 +2126,11 @@ Idées sur la philosophie de l'Histoire de l'Humanité, par-.
 : HERDER, traduit par Edgar Quinet, 3 volumes octavo,
 deuxième édition. — Levrault, éditeur, 1827.
 Lettres d'Exil, 4 volumes in-18.— Calmann-Lévy, éditeur.
-Edgar Quinet, extraits de ses œuvres, publiés à l'occa-
-sion du centenaire. — Hachette, éditeur. ‘sf
+Edgar Quinet, extraits de ses œuvres, publiés à l'occasion du centenaire. — Hachette, éditeur. ‘sf
 ! [Nous remercions M. Albert Valès à l'obligeance duquel
 nous devons les renseignements suivants “1
-50 Ceux des papiers de Quinet que madame Quinet consi-=M
-1 dérait comme les plus importants ont été remis à la Biblio-
-thèque nationale, où ils ne pourront être consultés qu'à
+Ceux des papiers de Quinet que madame Quinet consi-=M
+1 dérait comme les plus importants ont été remis à la Bibliothèque nationale, où ils ne pourront être consultés qu'à
 54 partir de 1910. Ces papiers ont été répartis en 96 numéros
 à Les plus intéressants doivent être les numéros 92-93: Correspondance d'Edgar Quinet et de Minna Moré, et
 ; Il existe une ou deux malles de papiers Quinet, qui je.
@@ -2332,8 +2194,7 @@ DE Le prix de nos abonnements ordinaires est à peu près
 : égal au prix de revient; le prix de nos abonnements de
 : propagande est donc sensiblement inférieur au prix de
 revient. Nous ne consentons des abonnements de propaFr gande que pour la France.
-SES Nous acceptons que nos abonnés paient leur abonne-
-ment par mensualités de un ou deux francs.
+SES Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou deux francs.
 Pour tout changement d'adresse envoyer soixante
 de centimes, quatre timbres de quinse centimes.
 1° 04 L'abonnement de propagande cesse de fonctionner

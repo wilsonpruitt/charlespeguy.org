@@ -19,8 +19,7 @@ Nous prévoyons que le premier cahier de la sixième
 série, paraissant le dimanche 2 octobre prochain, sera
 le catalogue analytique sommaire de nos cinq premières
 séries; nous demandons à nos abonnés, de même que
-nous pensons dès aujourd'hui à préparer létablissement de ce catalogue, de penser, pour leur part, à en pré-
-parer la distribution utile; c'est-à-dire que nous leur
+nous pensons dès aujourd'hui à préparer létablissement de ce catalogue, de penser, pour leur part, à en préparer la distribution utile; c'est-à-dire que nous leur
 demandons, pendant l'achèvement de cette cinquième
 série, de chercher et de nous indiquer à qui nous pourrons utilement envoyer ce catalogue analytique sommaire,comme nous envoyons nos pient de paraître; pour
 savoir ce qui aura paru dans les cinq premières séries
@@ -73,8 +72,7 @@ Sur le coup de midi, comme tous les travailleurs
 parcourut les rues, sa caisse de cuivre accrochée sur le
 genou, allant et venant suivant le rythme de sa
 marche. Il s'arrêtait aux carrefours, tapant à tour de
-bras sur la peau d'âne, dont le ronflement sonore faisait fuir les volailles épeurées; puis, prenant la pré-
-caution d'assujettir ses lunettes sur son nez, il tirait un
+bras sur la peau d'âne, dont le ronflement sonore faisait fuir les volailles épeurées; puis, prenant la précaution d'assujettir ses lunettes sur son nez, il tirait un
 papier blanc plié sous son baudrier de cuir, et le
 
 le livre de la misère
@@ -86,8 +84,7 @@ certains termes du style administratif.
 administrés que demain, 20 septembre 1887, aura lieu
 dans cette localité la réunion du Comice agricole de
 l'arrondissement de Colombey. Il compte sur le bon
-esprit des habitants, dont il a maïntes fois appré-
-cier l''empressement, pour donner à cette solennité
+esprit des habitants, dont il a maïntes fois apprécier l''empressement, pour donner à cette solennité
 toute l'importance qu'elle comporte. En conséquence,
 lesdits habitants devront enlever les fumiers devant les
 maisons, parer, par tous les moyens qui sont à leur
@@ -107,8 +104,7 @@ Puis ils retournaient s'attabler devant leurs assiettes
 fumantes, où des morceaux de lard rose tremblaient
 parmi des platées de choux.
 
-Tout à coup, un clair carillon tomba en volées fré-
-missantes du haut du clocher d'ardoise, faisant courir
+Tout à coup, un clair carillon tomba en volées frémissantes du haut du clocher d'ardoise, faisant courir
 une pluie d'ondes sonores sur les petits toits de tuile
 brune rongés de mousses, envahis de joubarbes et
 d'herbes sauvages. Les sons tombaient dans les rues
@@ -139,9 +135,7 @@ les tas de fagots amoncelés devant les granges. Tout
 le monde s'était mis à la besogne, sentant vaguement
 qu'il y allait de l'honneur et du bon renom de la commune dans l'opinion des étrangers.
 
-Pour une fois, les dissensions intestines, qui travaillent ces petits villages, s'étaient tues; les républi-
-
-le livre de la misère
+Pour une fois, les dissensions intestines, qui travaillent ces petits villages, s'étaient tues; les républile livre de la misère
 cains, les rouges comme on dit là-bas, s'attelaient à la
 besogne avec la même ardeur que les calotins et les
 mangeurs de bon Dieu, car la cérémonie qui se préparait était chose d'importance et chacun avait à cœur
@@ -203,9 +197,7 @@ toitures de tuiles, fleuries d'herbes sauvages, comme
 des coiffures de fête.
 
 On était tout à la satisfaction du devoir accompli,
-quand on s'aperçut qu'un tas de fumier restait à l'en-
-
-le livre de la misère
+quand on s'aperçut qu'un tas de fumier restait à l'enle livre de la misère
 trée d'une cour, juste à l'endroit où la rue tournait
 pour déboucher dans la prairie, où devait avoir lieu le
 concours d'animaux gras et l'exposition d'instruments
@@ -270,9 +262,7 @@ et sa poitrine velue, ruisselante de sueur. Il portait aux
 oreilles des boucles d'or, et sa barbe sale, toute grise
 de poussière, retombait comme une broussaille sur sa
 blouse, dont le devant, enduit de crasse, avait une rigidité de carton. On le craignait, mais on ne le respectait pas, bien qu'il fût riche, car c'était un soiflard
-sans pareil, et comme il se soûlait avec ses domes-
-
-tiques, quand il avait il ne savait pas tenir son
+sans pareil, et comme il se soûlait avec ses domestiques, quand il avait il ne savait pas tenir son
 
 rang, si bien que ses gens le relevaient des fumiers où
 
@@ -369,14 +359,12 @@ ronflement sonore, dans l'ombre de l'immense grenier,
 traversé de rais de soleil, où flottaient des poussières
 
 Quatre gaillards robustes vinrent avec des pelles et
-des fourches prendre possession du fumier. Ils grimpè-
-rent à l'assaut de sa masse imposante, comme d'une
+des fourches prendre possession du fumier. Ils grimpèrent à l'assaut de sa masse imposante, comme d'une
 place forte prise à l'ennemi, puis ils se mirent à le
 charger sur de lourds chariots, tassant le terreau et
 les couches pourries plus anciennes qu'ils aplatissaient
 avec une grande pelle de bois. Monsieur le maire surveillait leur travail et il ne se décida à porter ses pas
-ailleurs que lorsque la dernière voiture, cahotée, grin-
-çante et dont la membrure pliait à se rompre sous
+ailleurs que lorsque la dernière voiture, cahotée, grinçante et dont la membrure pliait à se rompre sous
 l'énorme charge, eut monté le chemin raviné de la côte,
 tirée par six vigoureux percherons…
 
@@ -401,8 +389,7 @@ parmi des trophées d'instruments agricoles, la silhouette
 d'une grosse dame un peu dévêtue se dressait, serrant
 sur ses plantureuses mamelles un trésor ruisselant de
 navets, d'artichauts, de pommes de terre, qui croulaient
-le long de ses flancs, mal retenus par son étreinte géné-
-reuse et imprévoyante. Immédiatement sous ses pieds,
+le long de ses flancs, mal retenus par son étreinte généreuse et imprévoyante. Immédiatement sous ses pieds,
 un cartouche se balançait dans le vide, orné par la
 plume de l'instituteur de lettres d'une fantaisie extravagante, et l'on pouvait lire ces mots à travers les arabesques d'une bâtarde terriblement compliquée:
 
@@ -618,9 +605,7 @@ le grenier, sur le foin. ne nous fait pas peur.
 Les deux hommes soupèrent à un bout de table, d'un
 morceau de pain et de fromage.
 
-Puis le vieux Matouillot prit sa chaise et alla s'as-
-
-le livre de la misère
+Puis le vieux Matouillot prit sa chaise et alla s'asle livre de la misère
 
 seoir devant l'âtre en feu, présentant à la flamme ses
 mains gercées, qu'il agitait d'un mouvement monotone,
@@ -748,9 +733,7 @@ courtes se ramasseraient au pied des grands arbres.
 
 Dans le village tout dormait encore, car on profitait
 d'un jour de fête et de repos pour rester dans les draps
-un peu plus tard que de coutume. Seuls les coqs, chan-
-
-le livre de la misère
+un peu plus tard que de coutume. Seuls les coqs, chanle livre de la misère
 tant d'une voix claire, se répondaient d'une maison à
 l'autre, dans le silence des rues emplies des lueurs
 pales de l'aube. Parfois, on voyait une fille ébouriffée,
@@ -814,9 +797,7 @@ La journée s'annonçait bonne et la recette fructueuse,
 car bien rares étaient les maisons d'où la ménagère ne
 sortait pas pour les héler au passage, apportant une
 peau de lapin saignante bourrée de paille fraîche. C'é-
-taient des marchandages à n'en plus finir, des do-
-
-le livre de la misère
+taient des marchandages à n'en plus finir, des dole livre de la misère
 
 léances geignardes et de longs pleurnichements que le
 vieux savait pousser avec une habileté consommée,
@@ -969,9 +950,7 @@ le livre de la misère
 Suffit. Maintenant que j'suis assez vieux pour faire un
 
 mort, demande qu'une chose au bon Dieu, c'est de
-m'en aller comme j'ai venu et sans rien devoir à personne. Et pour ce que vaut l'existence, j'recommen-
-
-cerais pas pour une pipe de tabac.
+m'en aller comme j'ai venu et sans rien devoir à personne. Et pour ce que vaut l'existence, j'recommencerais pas pour une pipe de tabac.
 
 Le vieux s'animait dans la rage inexpliquée et
 furieuse qui grandissait en lui, au seul penser des
@@ -1151,9 +1130,7 @@ somptueux comme des monceaux d'argent, et cherchant
 vainement à en deviner l'usage, concluaient qu'on
 devait manger des denrées diantrement bonnes, dans
 des plats aussi précieux. Des farceurs humaïient l'air
-au passage des mannes d'osier renfermant les vic-
-
-tuailles et se passaient la main sur le ventre d'un air
+au passage des mannes d'osier renfermant les victuailles et se passaient la main sur le ventre d'un air
 
 Cela surtout intriguait le père Matrouillot, ce festin
 à cent sous par tête. C'était pour lui une somme prodigieuse et il tracassait son fils pour savoir ce qu'on pouvait bien y manger.
@@ -1221,9 +1198,7 @@ plus que lui.
 
 Longtemps vétérinaire dans l'arrondissement, il avait
 une façon de soigner le bétail malade qui plaisait à tous
-les paysans. Familier et jovial, il entrait dans les étables en racontant des gaudrioles, en rassurant les pay-
-
-sans affolés à l'idée de catastrophes possibles, et
+les paysans. Familier et jovial, il entrait dans les étables en racontant des gaudrioles, en rassurant les paysans affolés à l'idée de catastrophes possibles, et
 comme il était habile, et qu'il se tirait à son honneur des
 cas graves, il leur donnait à tous l'impression d'un
 sauveur miraculeux. Quand il avait affaire à un pauvre
@@ -1260,8 +1235,7 @@ deux ou trois métaphores, des images d'une rhétorique
 
 le livre de la misère
 ampoulée, déclamatoire et vide, qui revenaient à tout
-bout de champ, lui tenaient lieu de pensée, de raison-
-nement, de logique, lui tenaient lieu de tout. On était
+bout de champ, lui tenaient lieu de pensée, de raisonnement, de logique, lui tenaient lieu de tout. On était
 
 de son avis avant qu'il eût parlé, et la grosse bête populaire, vaincue et heureuse d'être domptée, se roulait à
 ses pieds, se vautrait dans la poussière avec un sourd
@@ -1300,9 +1274,7 @@ moulée dans un corsage de satin noir, garni de jais
 bruissant, et brillant comme une armure.
 
 Elle prit un air dédaigneux en les regardant, tandis
-que les ailes de son nez délicatement chiffonné palpi-
-
-taient insensiblement et qu'une moue de mépris plissait
+que les ailes de son nez délicatement chiffonné palpitaient insensiblement et qu'une moue de mépris plissait
 sa lèvre.
 
 Arsène Mitouret tourna le dos à Jean des Brebis et
@@ -1313,9 +1285,7 @@ des prix commençait.
 Le sous-préfet, déliant une liasse de papiers derrière
 laquelle disparaissait sa face de bureaucrate taciturne
 et rêveur, lut, d'une voix blanche et qu'on entendait à
-peine, un long discours, où il était question des sollici-
-
-tudes gouvernementales acquises au monde des travailleurs.
+peine, un long discours, où il était question des sollicitudes gouvernementales acquises au monde des travailleurs.
 
 Puis on lut le palmarès; mais on n'écoutait pas, dans
 l'attente du morceau de résistance: le discours du
@@ -1555,8 +1525,7 @@ amas de démolitions, parmi les terrains vagues, aux
 abords des grandes villes. Certains morceaux de
 
 bois même, qui avaient être primitivement des
-clôtures de guinguette, gardaient encore des inscriptions, des enseignes naïvement enluminées, repré-
-sentant des amoncellements de victuailles, des traces
+clôtures de guinguette, gardaient encore des inscriptions, des enseignes naïvement enluminées, représentant des amoncellements de victuailles, des traces
 de peinture ancienne qui, avivées par la pluie, avaient
 repris, ce soir-là, une coloration plus éclatante et
 comme neuve. Sur le derrière, une espèce de râtelier contenait des paquets d'osier, dont les tiges étaient
@@ -1578,9 +1547,7 @@ Le cheval était plus misérable encore. Pauvre vieille
 haridelle, à la peau galeuse et rongée de plaques saignantes, au poil jadis roux, maintenant jaunâtre, usé,
 couvert de larges plaques de boue qui s'écaillaient,
 elle avait l'air de chanceler dans les soufles âpres du
-vent, qui balayait l'étroit couloir de roches. Vrai che-
-
-le livre de la misère
+vent, qui balayait l'étroit couloir de roches. Vrai chele livre de la misère
 
 val de l'Apocalypse, par quel effort de volonté obscure,,
 par quel instinct de la vie enraciné dans sa carcasse
@@ -1608,8 +1575,7 @@ cheval, s'attelèrent eux aussi, résolument, comme des
 bêtes. Ayant passé à leurs épaules des courroies, dont
 le cuir leur entrait dans la peau, excitant la pauvre
 bête par des « hue! » répétés, s'arc-boutant et agrippant
-le sol du talon de leurs chaussures ferrées, ils s'effor-
-çaient de sortir l'équipage du mauvais pas.
+le sol du talon de leurs chaussures ferrées, ils s'efforçaient de sortir l'équipage du mauvais pas.
 
 — Harri, le rouge. Harri!
 
@@ -1673,8 +1639,7 @@ peuplades lointaines, habitant le centre des continents
 mystérieux, l'Afrique ignorée, et fermée aux explorateurs.
 
 Ainsi ils allaient d'un pays à l'autre, soupçonneux et
-méfiants, sentant peser sur eux la réprobation univer-
-selle, sans rien savoir de notre vie à nous, les heureux
+méfiants, sentant peser sur eux la réprobation universelle, sans rien savoir de notre vie à nous, les heureux
 de la terre, qui nous asseyons à une bonne table,
 auprès d'un bon feu, qui avons de bons lits moelleux
 pour y étendre nos membres lassés. Traqués par la
@@ -1830,9 +1795,7 @@ Le cheval butait, fléchissait sur ses genoux saignants,
 manquait de tomber à chaque pas. Ses flancs maigres
 et décharnés haletaient comme un soufilet de forge, et
 chaque respiration profonde faisait saillir le cercle de
-ses côtes. L'air était si froid qu'une vapeur tiède sor-
-
-tait de ses naseaux, comme une fumée.
+ses côtes. L'air était si froid qu'une vapeur tiède sortait de ses naseaux, comme une fumée.
 
 Soudain, de grands souflles de rafale passèrent, violents et déchaïînés. Les dernières feuilles des grands
 peupliers s'abattirent, en tourbillonnant, dans un champ
@@ -1916,8 +1879,7 @@ plus à cette dure montée où ils avaient peiné pendant
 des heures. La route plus unie et plus facile, inclinée
 par une pente insensible, faisait que la carriole descendait d'une marche égale et sûre. Le vieux cheval, soulagé, avait une allure plus dégagée, un pas plus ferme:
 
-on entendait le clapotement régulier de ses fers tom-
-bant dans les flaques d'eau. Et ce qui leur paraissait
+on entendait le clapotement régulier de ses fers tombant dans les flaques d'eau. Et ce qui leur paraissait
 plus doux que tout le reste, ce qui les réconfortait
 vraiment, c'était la tranquillité de cette atmosphère où
 ne passaient plus les rafales de la bise glacée, qui se
@@ -1930,8 +1892,7 @@ longtemps par le vent et la pluie, leur cuisait maintenant: et cette chaleur leu
 Quelles idées maintenant flottaient dans leurs cerveaux aux notions rudimentaires, déformées par toutes
 
 sortes de terreurs? Sensations obscures de l'animal
-humain qui a faim et qui a froid, qui aspire confusé-
-ment après le moment où il pourra se tasser dans un
+humain qui a faim et qui a froid, qui aspire confusément après le moment où il pourra se tasser dans un
 gîte abrité, — vague désir de l'étable et de la paille
 chaude, sommeillant dans la chair lassée de la haridelle, marchant sur ses boulets.
 
@@ -2024,9 +1985,7 @@ C'était l'heure du souper. Une odeur de soupe aux
 choux, exquise et chaude, flottait dans l'air.
 
 Alors ils jugèrent bon de s'arrèter là, espérant ils ne
-savaient trop quoi du voisinage des hommes qui d'ha-
-
-bitude leur étaient hostiles: une vague protection, un
+savaient trop quoi du voisinage des hommes qui d'habitude leur étaient hostiles: une vague protection, un
 sentiment obscur de réconfort, contre les dangers sans
 nombre qui s'embusquent au fond de la nuit.
 
@@ -2142,8 +2101,7 @@ allaient sortir et tomber de leurs orbites.
 Pendant ce temps, ses pauvres petites mains crispées
 allaient et venaient sur la couverture mince qui enveloppait son corps, et parfois il les portait à son cou,
 comme s'il eût voulu desserrer l'horrible étreinte qui
-l'étranglait, la griffe de la chose monstrueuse qui arrê-
-tait le souffle dans sa gorge.
+l'étranglait, la griffe de la chose monstrueuse qui arrêtait le souffle dans sa gorge.
 
 Le père, lui ayant ouvert ses dents serrées avec une
 cuiller d'étain, vit au fond de sa gorge des peaux
@@ -2246,9 +2204,7 @@ d'années, à la face barbue et rougeaude.
 machinalement, l'esprit encore tout obsédé par la peur
 qu'il venait d'éprouver.
 
-Le bohémien lui donnait des explications qu'il enten-
-
-dait mal. Il s'approcha de la carriole dont la toile était
+Le bohémien lui donnait des explications qu'il entendait mal. Il s'approcha de la carriole dont la toile était
 toute baignée de la lumière frissonnante du lumignon:
 ayant considéré longuement et dédaigneusement la
 femme immobile et l'enfant endormi, les loques en
@@ -2334,8 +2290,7 @@ moins abandonné dans la détresse sans nom qui l'affolait
 tout à l'heure.
 
 Quand ils furent arrivés à la roulotte, l'enfant n'avait
-plus que le souffle: un souflle frêle, hésitant, qui sor-
-tait avec peine de ses lèvres violettes.
+plus que le souffle: un souflle frêle, hésitant, qui sortait avec peine de ses lèvres violettes.
 
 Alors le vieux paysan conseilla d'aller chercher un docteur, dont il donna le nom, dans un bourg voisin à peine
 distant de deux kilomètres: il fallait gravir la pente
@@ -2397,8 +2352,7 @@ les façades blanches des maisons, la maison de l'homme
 qui viendrait sauver son enfant. Le sentier devait
 longer de grandes mares endormies dans la profondeur
 des bois: des flammes étranges et mystérieuses voletaient, comme des âmes errantes, sur les panaches
-soyeux des roseaux, dont le peuple bruissait confusé-
-ment. Et l'homme s'affolait, perdait la tête à cette
+soyeux des roseaux, dont le peuple bruissait confusément. Et l'homme s'affolait, perdait la tête à cette
 vision terrifiante sortie de l'au-delà, qui le mettait en
 démence, lui donnait l'idée d'un bouleversement du
 monde, d'êtres surnaturels sortis de la tombe en cette
@@ -2450,9 +2404,7 @@ Près du mur blanc où l'aurore versait sa clarté
 
 debout, appuyés sur les brancards de la mauvaise
 
-roulotte, tordant leurs mains dans un geste de déses-
-
-poir. Et cette douleur silencieuse faisait peine à
+roulotte, tordant leurs mains dans un geste de désespoir. Et cette douleur silencieuse faisait peine à
 voir.
 
 Ils avaient sorti le cadavre de l'enfant du fond de la
@@ -2463,8 +2415,7 @@ yeux de son image.
 
 L'enfant paraissait dormir: une grande sérénité avait
 envahi ses traits et comme toutes ses couleurs lui
-étaient revenues, parmi la défroque et les chiffons misé-
-rables sur lesquels il reposait, il avait l'air d'une poupée
+étaient revenues, parmi la défroque et les chiffons misérables sur lesquels il reposait, il avait l'air d'une poupée
 de cire.
 
 Les heures passèrent; les pauvres gens étaient toujours à la même place, dans la même attitude de résignation et de désespoir, pareils à deux statues de la
@@ -2524,8 +2475,7 @@ monotone de la lumière.
 
 Tout au fond du val les eaux frissonnèrent, elles aussi,
 comme envahies soudain par cette vie recommençante.
-Sous les saules maigres et dénudés, le ruisseau fré-
-tillait comme un lézard, se cachait un instant, reparaissait plus loin, roulant dans ses ondes un trésor de
+Sous les saules maigres et dénudés, le ruisseau frétillait comme un lézard, se cachait un instant, reparaissait plus loin, roulant dans ses ondes un trésor de
 paillettes lumineuses et les grands étangs flambaient,
 jetant une réverbération éblouissante, qui brülait les
 
@@ -2559,8 +2509,7 @@ Puis elle repartit vers le bourg.
 le livre de la misère
 
 Alors toute une procession d'enfants arriva, sans
-doute envoyés par la vieille, qui avait répandu la nou-
-velle: des petits garçons et des petites filles aux yeux (
+doute envoyés par la vieille, qui avait répandu la nouvelle: des petits garçons et des petites filles aux yeux (
 bleus, aux cheveux pâles et décolorés comme de la
 filasse de chanvre. Elles apportaient dans leur tablier
 les dernières fleurs des jardins, les plantes vivaces et
@@ -2628,9 +2577,7 @@ Le maire coupa court:
 
 — Allons, vous ferez le nécessaire pour qu'on enterre
 cet enfant. Vous passerez chez Victor le charron et vous
-lui direz de faire une boîte. coûtera encore de l'ar-
-
-le livre de la misère
+lui direz de faire une boîte. coûtera encore de l'arle livre de la misère
 gent à la commune. C'est tout ce qu'on a à gagner avec
 cette engeance.
 
@@ -2663,8 +2610,7 @@ de chœur, à cause de la lenteur de son allure.
 était attendu à diner chez un confrère.
 
 Arrivé près de la roulotte, il aspergea la petite caisse
-d'eau bénite, marmottant des orémus d'une voix indifté-
-rente et ennuyée. Il se hâtait, s'embrouillait, faisait les
+d'eau bénite, marmottant des orémus d'une voix indiftérente et ennuyée. Il se hâtait, s'embrouillait, faisait les
 versets et les répons à lui tout seul, ne donnait pas le
 temps de le rattraper au gamin dérouté, qui remplaçait
 
@@ -2757,9 +2703,7 @@ On se hâtait dans l'incertitude du temps et dans la
 fièvre de la besogne qui s'achève. La prairie, tondue par
 endroits comme une pelouse, effleurée de rayons obliques et chauds, était toute vibrante du susurrement des
 faulx, du bruit aigre et lointain des faucheuses dévidant
-leurs engrenages. Les tas de foins amoncelés proje-
-
-le livre de la misère
+leurs engrenages. Les tas de foins amoncelés projele livre de la misère
 
 taient de grandes ombres, qui insensiblement s'allongeaient encore. À d'autres places, les foins prêts à être
 fauchés, remplis de fleurs, scabieuses de velours pâle
@@ -2822,9 +2766,7 @@ chauve-souris gigantesque. Des cavernes de feu creu-
 
 À saient dans ses flancs des fournaises croulantes,
 
-; tandis qu'au dessus les rais du soleil, projetés en éven-
-
-tail, sillonnaient tout le ciel de leur poussière lumi-
+; tandis qu'au dessus les rais du soleil, projetés en éventail, sillonnaient tout le ciel de leur poussière lumi-
 
 Alors la vieille remarqua des poules qui, s'étant
 blotties sous un banc, le long d'une façade chaude,
@@ -2967,9 +2909,7 @@ temps de s'apitoyer sur la misère d'autrui.
 Pour sûr qu'il n'avait pas l'air hardi. C'était sans
 doute quelque vagabond de grand chemin, un campvolant, un chemineau qui venait chercher de lembauche, et s'offrait pour donner un coup de main, au
 travail de la fenaison. Tous pareils, ces bohémiens! Ils
-n'avaient pas plus tôt amassé quatre sous, qu'ils repar-
-
-taient sur la grand route, comme s'ils étouffaient entre
+n'avaient pas plus tôt amassé quatre sous, qu'ils repartaient sur la grand route, comme s'ils étouffaient entre
 des murs. Elle ressentit en un instant cette haine propre
 aux paysans contre les aventuriers de grand chemin,
 
@@ -2983,9 +2923,7 @@ Prenant les devants, elle lui dit d'une voix aigre et
 — Nous n'avons besoin de personne et nous faisons
 not' ouvrage tout seuls.
 
-L'homme eut un mouvement des épaules d'une lassi-
-
-tude infinie, puis il secoua la tête doucement, comme
+L'homme eut un mouvement des épaules d'une lassitude infinie, puis il secoua la tête doucement, comme
 pour faire signe que ce n'était pas ce qu'il voulait.
 
 Alors Manon intervint:
@@ -3184,8 +3122,7 @@ pas une ne manquait. C'était une habitude qu'elle avait
 comme tous les soirs. Puis elle alla prendre un seau
 
 de bois blanc qui traînait dans un coin, elle l'emplit de
-pommes de terre écrasées et se mit en devoir de pré-
-parer le repas du cochon.
+pommes de terre écrasées et se mit en devoir de préparer le repas du cochon.
 
 Le porc, flairant la pâtée, reniflait bruyamment
 
@@ -3245,14 +3182,12 @@ porte, la fille rouée de coups, traînée par les cheveux
 sur le plancher, piétinée comme une loque inerte. Elle
 avait fait ses couches à la ville, pour éviter un scandale;
 lorsque l'enfant était venu, elle n'avait même pas voulu
-le voir, chose informe, vagissante et crispée d'un fré-
-missement de douleur, comme s'il avait pressenti sa
+le voir, chose informe, vagissante et crispée d'un frémissement de douleur, comme s'il avait pressenti sa
 
 destinée. Puis elle ne se rappelait plus rien, qu'une
 sensation inexprimable de vide et de soulagement, à la
 pensée que ce cauchemar était fini. Elle baïssaït la tête
-parfois, quand elle sentait planer sur elle le regard iro-
-nique des gens, qui la dévisageaient, à son retour au
+parfois, quand elle sentait planer sur elle le regard ironique des gens, qui la dévisageaient, à son retour au
 village. Et elle s'était mise à travailler résolument, à
 tanner dans les champs du matin au soir, à se conduire
 en fille sage, voulant à tout prix se faire pardonner!
@@ -3406,8 +3341,7 @@ coulait dans tous ses membres.
 
 Enfin le souper s'acheva et la jeune fille partit.
 
-— Maintenant on peut causer, fit la Thibaude. C'gar-
-çon-là prétend qu'il est l'enfant que j'ai avant
+— Maintenant on peut causer, fit la Thibaude. C'garçon-là prétend qu'il est l'enfant que j'ai avant
 not'mariage. Tu sais bien... Alors y dit comme qu'y
 voudrait rester avec nous, qu'y ferait bien not'affaire.
 
@@ -3579,8 +3513,7 @@ collier, et vous sort des mauvais pas.
 
 Ne connaissant que la consigne, il passait sa vie à
 nettoyer, à polir, à astiquer. Il avait tous les soirs d'interminables discussions avec l'homme de chambre, qui
-voulait souflier la « calbombe lorsque sonnait l'ex-
-ünction des feux. Et jusque bien avant dans la nuit,
+voulait souflier la « calbombe lorsque sonnait l'exünction des feux. Et jusque bien avant dans la nuit,
 on l'entendait fourbir et frotter à tour de bras, dans un
 coin plein d'ombre, écrasant la cire sur la patelette
 vernie de son sac, et l'étendant à petits coups avec un
@@ -3591,12 +3524,9 @@ pendant qu'il allait toujours son train, soufilant
 
 : bruyamment et poussant de gros soupirs de satisfaction, lorsque l'ouvrage touchait à sa fin. Son ombre
 promenée sur la muraille blanchie à la chaux, répétait
-tous ses mouvements avec des déformations grima-
-çantes et toutes sortes de gesticulations grotesques.
+tous ses mouvements avec des déformations grimaçantes et toutes sortes de gesticulations grotesques.
 
-Somme toute, c'était un bon soldat. Jusqu'aux sousofficiers, d'habitude si enragés, si prompts à vous col-
-
-ler « quatre crans sur le coin de la gueule qui s'amadouaient devant lui et, subitement désarmés par sa
+Somme toute, c'était un bon soldat. Jusqu'aux sousofficiers, d'habitude si enragés, si prompts à vous coller « quatre crans sur le coin de la gueule qui s'amadouaient devant lui et, subitement désarmés par sa
 mine souriante, par ses airs goguenards et bon enfant,
 lui éclataient de rire au nez, ne pouvant garder leur
 sérieux, n'ayant plus le courage de le boucler, quand il
@@ -3615,9 +3545,7 @@ gouttes, vaguement dérouté par les expressions techniques, qu'il ne comprenait
 retenir tant de mots bizarres: « le frein hydraulique,
 et les rayures hélicoïdales, et le dégagement du talon
 du loquet « un tas de sacrés fourbis inventés bien
-sûr pour l'embêtement du pauvre monde ». Il l'appre-
-
-le livre de la misère
+sûr pour l'embêtement du pauvre monde ». Il l'apprele livre de la misère
 
 nait, cette théorie compliquée et décevante, avec tout
 son Corps, avec tous ses membres, avec la même
@@ -3651,9 +3579,7 @@ toute chose. Et quand le lieutenant se fut informé de
 sa profession, de ses préférences, une fois ses classes
 terminées, on l'envoya travailler de son état chez le
 
-maître bottier, qui justement réclamait de bons ou-
-
-vriers, à cor et à cri.
+maître bottier, qui justement réclamait de bons ouvriers, à cor et à cri.
 
 Dès lors, marcha tout seul. Il devint un veinard,
 
@@ -3661,8 +3587,7 @@ un embusqué, une espèce de soldat à moitié civil, à qui
 
 il ne manquait, pour être plus heureux, que d'être
 
-payé un peu plus largement et d'avoir quelque indé-
-pendance. Il apparaissait dans la chambrée aux heures
+payé un peu plus largement et d'avoir quelque indépendance. Il apparaissait dans la chambrée aux heures
 
 des repas, et la soupe mangée, il se jetait silencieu-
 
@@ -3715,8 +3640,7 @@ En ce temps-là, nous étions deux pièces habitant
 côte à côte, séparés seulement par la cloison du batflanc, logés sous les toits dans la caserne Masséna, une
 grande bâtisse triste, posée au bord des remparts,
 
-regardant la plaine de ses rangées de fenêtres symé-
-triques, pareilles à des prunelles aveugles.
+regardant la plaine de ses rangées de fenêtres symétriques, pareilles à des prunelles aveugles.
 
 Des bleus! nous étions des bleus, rentrant au soir de
 la manœuvre à pied, harassés et fourbus, sentant peser
@@ -3789,8 +3713,7 @@ sabots traînés lourdement sur le plancher, cela me
 mettait au cœur une sorte de joie douce, vaguement
 rassurée et confiante.
 
-Il me contait des histoires de son pays. Il avait là-
-bas une payse, qui lui écrivait des lettres sur du papier
+Il me contait des histoires de son pays. Il avait làbas une payse, qui lui écrivait des lettres sur du papier
 à fleurs, orné de dentelles. Il allait se promener avec
 elle, avant son service, le long des grèves blanches de
 la rivière démesurément agrandies par la tombée des
@@ -4147,8 +4070,7 @@ venaient des fenêtres et des portes mal closes.
 
 Il veillait le malade, tout occupé à protéger la lampe
 contre les courants d'air. À chaque instant la flamme
-papillonnait, bleuissait, montait dans le verre, et mena-
-çait de s'éteindre.
+papillonnait, bleuissait, montait dans le verre, et menaçait de s'éteindre.
 
 Cette nuit d'épouvante prit fin.
 
@@ -4249,8 +4171,7 @@ une veste bien propre et soigneusement ajustée; une
 raie bien tracée séparait ses cheveux longs en deux
 bandeaux corrects. Il allait et venait, sifflotant des
 airs, une plume habituellement fichée sur l'oreille, avec
-un aspect de nonchalance qui sentait son grand seigneur. Tous ces riens aperçus au passage nous inspiraient un immense sentiment de respect et d'admira-
-tion, à nous autres, petits bleus, qui passions dans les
+un aspect de nonchalance qui sentait son grand seigneur. Tous ces riens aperçus au passage nous inspiraient un immense sentiment de respect et d'admiration, à nous autres, petits bleus, qui passions dans les
 couloirs, vêtus de treillis rapiécés, crottés jusqu'à
 
 l'échine, sentant peser sur nous l'humiliation de notre
@@ -4353,8 +4274,7 @@ mortuaire, galonné d'argent, s'étant relevé, on entrevoyait un peu la blanche
 misère et la nudité vous faisaient frissonner, quand on
 
 le livre de la misère
-pensait que le pauvre bougre devait avoir froid là-
-dedans, dans ce suaire de toile mince que l'administration accorde parcimonieusement aux morts.
+pensait que le pauvre bougre devait avoir froid làdedans, dans ce suaire de toile mince que l'administration accorde parcimonieusement aux morts.
 
 Elle était aussi bien froide et toute nue, cette chapelle
 qui ressemblait plutôt à l'intérieur compassé d'un
@@ -4590,7 +4510,7 @@ l'habitude de se promener le long du canal, par les soirs
 d'été, en soufflant des marches dans une trompette de
 cuivre rapportée du régiment. C'était sa seule distraction, et il s'en donnait à cœur joie, sonnant tous les
 refrains de la caserne: « Maréchal des logis » et « toi
-qu'arrives de Mostaganem »: les sons rauques et stridents montaient dans les soirs de pourpre et s'envolaient au loin, portés sur les eaux calmes.
+qu'arrives de Mostaganem les sons rauques et stridents montaient dans les soirs de pourpre et s'envolaient au loin, portés sur les eaux calmes.
 
 Il habitait dans le faubourg une masure, une cahute
 branlante comme un château de cartes, bâtie avec des
@@ -4607,9 +4527,7 @@ flanc du mont, craintivement blottie sous les canons
 le livre de la misère;
 qui tendaient le cou comme des bêtes aux aguets, sous”
 les affûts qui profilaient dans le ciel vide leurs
-silhouettes menaçantes, la « cambuse » était une au-
-berge. Une branche de genêt desséchée se balan-
-çant au-dessus de la porte basse, invitait le passant à
+silhouettes menaçantes, la « cambuse » était une auberge. Une branche de genêt desséchée se balançant au-dessus de la porte basse, invitait le passant à
 entrer, lui offrant une hospitalité misérable.
 
 Cest que le Trompion s'était retiré, avec sa
@@ -4637,8 +4555,7 @@ son grand nez une goutte d'eau, qu'il essuyait sur la
 
 manche de son tricot de laine d'un geste machinal.
 
-— Chouette, dit-il tout haut, faire beau décidé-
-ment. On pourra aller leur z'y dire deux mots.
+— Chouette, dit-il tout haut, faire beau décidément. On pourra aller leur z'y dire deux mots.
 
 La petite pluie fine et pénétrante qui tombait depuis
 le matin, noyant les arbres etles bâtisses dans une
@@ -4677,8 +4594,7 @@ il leur dit d'une grosse voix qui voulait être bourrue:
 — Allons, la marmaille, qu'on me foute la paix et allez
 voir vot mère, qu'elle vous mouche!
 Les petits n'obéissaient pas. Plus la grosse voix!
-redoublait ses éclats, plus les rires s'éveillaient der-
-rière lui, espiègles; le plus jeune, un moucheron pas
+redoublait ses éclats, plus les rires s'éveillaient derrière lui, espiègles; le plus jeune, un moucheron pas
 plus haut qu'une botte, lui répondit « Zut » d'un air si
 drôle, que toute la bande s'esclaffa. à
 Courroucé et ravi, le Trompion leva les mains, jeta
@@ -4764,8 +4680,7 @@ commun dans les villages de la côte, où les vignerons,
 qui sont friands de semblable denrée, lui donnaient
 en échange des litres d'eau-de-vie de marc qu'il pendait à sa ceinture. Comme c'était coup double! On
 carottait le garde-pêche, et on se payait la tronche
-du fisc, du jean-foutre de l'octroi, assis dans sa gué-
-rite à l'entrée du faubourg. On le regardait sous le nez
+du fisc, du jean-foutre de l'octroi, assis dans sa guérite à l'entrée du faubourg. On le regardait sous le nez
 et on lui disait: « Mon vieux, j'te déclare que je n'ai
 
 Poussant la porte à claire voie du jardinet, le Trompion fut tout de suite sur la grand route. Comme la
@@ -4826,8 +4741,7 @@ de cette grande clarté froide qu'il a dans les pays du
 nord, à la fin des longs hivers.
 
 A un tournant de la route, une masure s'élevait
-parmi des terrains vagues, plus éclopée et plus misé-
-rable encore que celle du Trompion.
+parmi des terrains vagues, plus éclopée et plus misérable encore que celle du Trompion.
 
 Des haïllons séchaient sur la palissade de pieux qui
 fermait le jardin. Des trognons de choux et des tiges
@@ -4899,8 +4813,7 @@ fuite rapide, égale et monotone, et sur l'autre rive, la
 prairie apparaissait, noyée sous une buée de lumière
 transparente et chaude. Le soleil baïssait à l'horizon et
 les silhouettes des grands bœufs, qu'on avait déjà
-lâchés dans les herbages, s''agrandissant démesuré-
-ment dans le crépuscule, se faisaient étranges, fantastiques, monstrueuses.:
+lâchés dans les herbages, s''agrandissant démesurément dans le crépuscule, se faisaient étranges, fantastiques, monstrueuses.:
 
 Mais ils s'arrachèrent à cette contemplation, car il
 ne fallait pas songer à jeter l'épervier dans ces eaux
@@ -4942,9 +4855,7 @@ Arrivés au bas de la pente, ils s'accroupirent, le
 regard rasant la surface de l'eau, où traînait un reste
 de jour pâle, cherchant à voir clair dans ses profondeurs.
 
-Le Trompion, n'apercevant rien, se dépitait, et rele-
-
-le livre de la misère
+Le Trompion, n'apercevant rien, se dépitait, et relele livre de la misère
 vant le nez, il se mit à contempler d'un air détaché la
 rive opposée, où des massifs de saules s'arrondissaient
 dans l'ombre envahissante. À
@@ -4964,8 +4875,7 @@ Le Trompion, dont les yeux s'étaient habitués à
 l'obscurité, finit par voir le poisson.
 
 Tout à leurs pieds, dans les profondeurs de l'eau
-claire, qui s'ouvrait comme une fosse, bordée de quartiers de rocs revêtus de mousses verdâtres et de végé-
-tations aquatiques, les carpes se promenaient. Elles
+claire, qui s'ouvrait comme une fosse, bordée de quartiers de rocs revêtus de mousses verdâtres et de végétations aquatiques, les carpes se promenaient. Elles
 défilaient aux yeux des deux maraudeurs, avec un
 calme, une tranquillité qui les narguaït. Les gueuses,
 on eût dit qu'elles étaient comme chez elles, et elles
@@ -5050,9 +4960,7 @@ dans ces trous profonds, sans cesse tournoyants de
 
 Il fallait se garder du père Hantz, le barragiste, un
 
-vieil Alsacien ivrogne, qui n'était pas commode à l'oc-
-
-casion. Mais à cette heure-là, il devait être attablé à
+vieil Alsacien ivrogne, qui n'était pas commode à l'occasion. Mais à cette heure-là, il devait être attablé à
 
 l'auberge des mariniers, plus occupé à boire la goutte
 
@@ -5088,9 +4996,7 @@ Marquemal prit son élan: escaladant le talus de
 maçonnerie, il s'enfuit à toutes jambes. Son ombre se
 perdit parmi les troncs des vieux saules, dans les profondeurs de la prairie, vaporeuse de clair de lune.
 
-Le Trompion, abandonnant son filet, se jeta résolu-
-
-ment à l'eau. Nageant sans bruit, il se laissa emporter
+Le Trompion, abandonnant son filet, se jeta résolument à l'eau. Nageant sans bruit, il se laissa emporter
 par le courant. L'eau était froide. Ses dents claquaient.
 Ayant trouvé un peu au-dessous une place commode
 pour aborder, il cherchait à se glisser dans les
@@ -5105,8 +5011,7 @@ joyeusement. Ses vêtements trempés laissaient derrière
 lui un ruissellement d'eau boueuse, qui faisait de
 grandes flaques dans la poussière de la route. Le père
 Hantz, jovial, lui détachait à chaque pas une large
-bourrade dans le dos, à lui casser les reins, et lui répé-
-tait: ÇAh! mon caïillard. Che te tiens. » On l'enferma
+bourrade dans le dos, à lui casser les reins, et lui répétait: ÇAh! mon caïillard. Che te tiens. » On l'enferma
 dans un petit réduit situé derrière la maison du barragiste. On y remisait d'ordinaire des gaffes, des crocs,
 des engins de batellerie. Tremblant de tous ses membres, le Trompion songeait à des choses tristes, aux
 gens de police inexorables, à l'amende qu'il faudrait
@@ -5188,8 +5093,7 @@ un sourire de soulagement et reprenait sa faction
 Maintenant le grand jour était venu, cette clarté
 douteuse de novembre qui filtre du ciel bas et qu'on
 dirait salie par les flots de boue ruisselant sur la terre.
-Autour des baraquements militaires, situés à l'extré-
-mité des faubourgs d'une petite ville de l'Est, le paysage
+Autour des baraquements militaires, situés à l'extrémité des faubourgs d'une petite ville de l'Est, le paysage
 avait une grandeur morne et désolée. Les monts
 lointains disparaissaient sous la pluie, rayant l'horizon
 de fines hachures, et des ondulations de terrain fuyaient
@@ -5244,12 +5148,10 @@ des truites.
 
 Mais il s'arracha à ces pensées.
 
-Il pénétra dans la guérite vitrée où somnolait le maré-
-chal des logis de planton. Au bruit de la porte, le
+Il pénétra dans la guérite vitrée où somnolait le maréchal des logis de planton. Au bruit de la porte, le
 4 margis se leva, comme poussé par un ressort, laire au menton, la main rivée à la visière du képi.
 Sur la table graisseuse traïnait un encrier de plomb et
-un grand cahier de toile grise. Cri-Cri vérifia longue-
-ment les noms des hommes manquants et des permissionnaires rentrés après l'appel du soir.
+un grand cahier de toile grise. Cri-Cri vérifia longuement les noms des hommes manquants et des permissionnaires rentrés après l'appel du soir.
 Puis il s'éloigna et monta dans les chambres.
 La volée frissonnante du dernier appel montait dans le
 silence de la cour, jetant ses notes rapides sur le pavé
@@ -5295,8 +5197,7 @@ l'angle de la palissade et apparaissait dans la cour du
 quartier, avec la régularité d'un automate mis en mouvement par une horloge allemande. Il allait et venait,
 promenant le long des murs sa silhouette maigre
 drapée dans sa pèlerine à capuchon, l'œil sournois et
-guettant en dessous, embusqué sur la piste du misé-
-rable gibier humain qu'il flairait dans le vent autour
+guettant en dessous, embusqué sur la piste du misérable gibier humain qu'il flairait dans le vent autour
 
 Ah le rossard'! Dans les chambrées c'était encore
 pis. Il entrait doucement, sur la pointe des pieds, et il
@@ -5320,8 +5221,7 @@ tache qu'on voulait dissimuler, l'accroc qu'on n'avait
 pas le temps de raccommoder.
 
 Alors il exultait. Il avait une façon bien à lui de vous
-regarder en dessous, tandis que sa voix se faisait douce-
-reuse et qu'un frémissement de joie agitait tout son
+regarder en dessous, tandis que sa voix se faisait doucereuse et qu'un frémissement de joie agitait tout son
 
 corps. Alors on eût dit que son grand nez maigre s'allongeait; ses yeux luisaient et par dessous sa longue
 moustache eflilée, ses lèvres se retroussaient sur ses
@@ -5388,8 +5288,7 @@ mal définie, enveloppé d'une sorte de réprobation, ne
 
 pouvant fréquenter les sous-officiers qui le craignaient,
 
-pas plus que les officiers qui le dédaignaient et répon-
-daient à son salut avec hauteur.
+pas plus que les officiers qui le dédaignaient et répondaient à son salut avec hauteur.
 
 Le brigadier Joachim s'étira paresseusement, secoua
 
@@ -5636,9 +5535,7 @@ rien savoir de ma gueule.
 
 Eux autres, qui? On ne savait pas. L'adjudant, les
 maréchaux des logis, les officiers, l'institution formidable, qui usaient de leur pouvoir et de leur force, qu'il
-devinait confusément ligués contre lui, pour l'empri-
-
-le livre de la misère
+devinait confusément ligués contre lui, pour l'emprile livre de la misère
 
 sonner, le punir, briser à force de privations cette;
 volonté têtue qui ne voulait pas plier, se rendre maniable
@@ -5730,10 +5627,8 @@ maisons ayant l'air de se chevaucher, de grimper les
 unes sur les autres, et la place y fait défaut.
 
 Ce logis sentait le moisiet le renfermé. Une fraîcheur
-humide vous tombait sur les épaules, dès qu'on péné-
-trait dans le long couloir. Les pièces étaient dallées de
-carreaux luisants, où les pieds des meubles se reflé-
-taient. Le mobilier sommaire, décent et pauvre, avait
+humide vous tombait sur les épaules, dès qu'on pénétrait dans le long couloir. Les pièces étaient dallées de
+carreaux luisants, où les pieds des meubles se reflétaient. Le mobilier sommaire, décent et pauvre, avait
 été acheté au bazar. Sur le papier de mode ancienne,
 des nénuphars en bouquet mettaient le long des murs
 la douceur sinueuse des plantes d'eau. Lorsqu'on ouvrait
@@ -5801,8 +5696,7 @@ marché et des soucis d'argent. Et il lui semblait qu'un
 être nouveau surgissait en elle, qui avait un regard plus;
 net et plus clairvoyant pour discerner l'irréparable
 médiocrité de son existence. Elle se mit à faire le tour
-de sa détresse avec une sorte de satisfaction, un renon-
-cement triste et doux. Comme un général vaincu qui
+de sa détresse avec une sorte de satisfaction, un renoncement triste et doux. Comme un général vaincu qui
 descend de cheval après sa défaite pour manger un
 morceau de pain dur, accablée et souriante, elle eut
 plaisir à s'asseoir sur les ruines de son existence.
@@ -5912,8 +5806,7 @@ Georges Michallet qui était couché avec sa femme!
 
 Une immense stupeur l'écrasa.
 
-Du même coup le geste de menace ébauché se dé-
-tendait; les poings lancés en avant coulaient le long
+Du même coup le geste de menace ébauché se détendait; les poings lancés en avant coulaient le long
 des hanches, tombaient, s'ouvraient sur la couture du
 pantalon, tandis que, les talons se rejoignant, Cri-Cri
 prenait instinctivement cette raideur automatique,
@@ -5996,8 +5889,7 @@ le livre de la misère
 
 Ilirait là-bas, mais seul, car il n'emmènerait pas cette
 gueuse! Il n'aurait personne pour le soigner ni s'occuper de lui. Il serait un vieux garçon, comme les autres,
-maniaque, malade, indifférent à tous. Et on le laisse-
-rait crever dans son coin.
+maniaque, malade, indifférent à tous. Et on le laisserait crever dans son coin.
 
 Alors il lui sembla qu'il touchait le fond de sa détresse,
 qu'il n'irait pas plus loin dans cette descente de noyé,
@@ -6166,9 +6058,7 @@ des rideaux de brume.
 Alors un farceur a une bonne inspiration. Il chanter un peu pour marquer la cadence du pas, remettre
 du cœur aux ventres, et ragaillardir les esprits. Et les
 refrains de la caserne défilent, égrenant dans l'air froid
-leur cocasserie stupéfiante: on chante « le petit tam-
-
-bour qui revenait des Flandres » et « le cantonnier qui
+leur cocasserie stupéfiante: on chante « le petit tambour qui revenait des Flandres » et « le cantonnier qui
 cassait des tas de cailloux ».
 
 Mais les chants hésitent, ne peuvent se lever dans cet
@@ -6226,6 +6116,5 @@ ils échangeaient des embrassades.;.
 Cri-Cri marchait à petits pas, lourd de rêverie, se à
 laissant distancer par la colonne.
 Au loin, tout au loin, sous les arbres blancs de givre, il
-il n'y avait plus qu'un tourbillon de poussière où dispa-
-raissait la troupe gesticulante; dans Pair, planait
+il n'y avait plus qu'un tourbillon de poussière où disparaissait la troupe gesticulante; dans Pair, planait
 toujours la clameur vengeresse.

@@ -52,9 +52,7 @@ Il a deux éditions; la préface de la première édition est datée de l'été 
 édition est datée de septembre 1884. Le livre est aujour--
 d''hui à peu près introuvable. L'auteur est mort.
 
-. Autorisée par son fils, M. Brunnemann, notre colla-
-
-borateur mademoiselle Louise Lévi en avait commencé
+. Autorisée par son fils, M. Brunnemann, notre collaborateur mademoiselle Louise Lévi en avait commencé
 
 depuis longtemps la traduction; la publication du livre
 
@@ -65,8 +63,7 @@ le traducteur, engagé lui-méme depuis longtemps dans
 des études personnelles sur la Révolution française, en
 … particulier sur Maximilien Robespierre, ne se conten-
 … tait pas d'effectuer une transcription littérale; il a
-« voulu nous donner une traduction annotée; et ces anno-
-tations soigneuses, consciencieuses, ne forment pas la
+« voulu nous donner une traduction annotée; et ces annotations soigneuses, consciencieuses, ne forment pas la
 … partie la moins importante du volume.
 … Les recherches nécessitées par ce travail personnel
 ont ainsi demandé au traducteur un très long temps;
@@ -225,8 +222,7 @@ Munich. On a avancé, — mais sans preuves, — qu'il s'était suicidé.
 
 sérieux et pensif, dans la conscience de ses devoirs vis-
 
-à-vis de ses sœurs et de son frère. Deux tantes pater-
-nelles, qui n'étaient pas encore mariées, se chargèrent
+à-vis de ses sœurs et de son frère. Deux tantes paternelles, qui n'étaient pas encore mariées, se chargèrent
 d'abord de l'éducation des deux petites filles, puis on
 
 ; les mit au couvent de Tournay, où elles grandirent
@@ -252,11 +248,7 @@ des aptitudes extraordinaires de l'enfant. Robespierre
 tint à Paris les promesses d'Arras. Il se plongea en
 particulier dans l'étude de l'Antiquité, pour laquelle il
 
-avait une prédilection, grâce à l'enseignement du pro-
-
-fesseur de rhétorique, du savant Hérivaux qui, esti-
-
-mant fort son travail, aimait à le nommer son
+avait une prédilection, grâce à l'enseignement du professeur de rhétorique, du savant Hérivaux qui, estimant fort son travail, aimait à le nommer son
 « Romain et qui le désigna pour orateur lors d'une
 visite que le roi fit au collège, après son couronnement. (1)
 
@@ -374,9 +366,7 @@ de son futur collègue du Comité de salut public, Carnot,
 qui se trouvait alors à Arras comme officier du génie.
 
 Il est très caractéristique pour Robespierre de le voir,
-à cette époque déjà, le soutien des opprimés et le ven-
-
-geur de l'innocence injustement poursuivie, comme il
+à cette époque déjà, le soutien des opprimés et le vengeur de l'innocence injustement poursuivie, comme il
 le fut toujours pendant sa courte existence. On en a la
 preuve dans une série de causes plaidées par lui dès
 
@@ -462,8 +452,7 @@ législation, pour que nous ne le reproduisions pas ici
 offense le droit naturel, contrarie ouvertement leur but,
 qui est la conservation des droits de l'homme, le bonheur et la tranquillité des citoyens. » (1)
 
-(1) On trouve encore dans ce mémoire une phrase qui revien-
-dra souvent dans les discours et les rapports.de Robespierre: « De
+(1) On trouve encore dans ce mémoire une phrase qui reviendra souvent dans les discours et les rapports.de Robespierre: « De
 toutes les maximes de la morale, la plus profonde, la plus sublime
 peut-être, et en même temps la plus certaine, est celle qui dit que
 rien n'est utile que ce qui est honnête. » Robespierre s'élève contre
@@ -482,8 +471,7 @@ Le plus grand éloge qu'il adresse à Gresset est d'être
 ? resté honorable et pur au milieu des séductions de
 Paris: « Tu fus un grand poète! Tu fus beaucoup plus,
 tu fus un homme de bien! En vantant tes ouvrages, je
-ne serai point obligé de détourner mes yeux de ta con-
-duite! » Maïs cette manière de placer l'honnête homme;
+ne serai point obligé de détourner mes yeux de ta conduite! » Maïs cette manière de placer l'honnête homme;
 au-dessus du poète déplut à l'Académie; Robespierre
 ne reçut pas le prix; (1) il est possible aussi qu'il ait
 choqué les académiciens en s'élevant contre les classiques et en vantant le drame bourgeois.
@@ -590,10 +578,8 @@ lui prodigue ses peines et ses sueurs, que l'opulence
 ._ regarde avec dédain, que l'orgueil appelle la lie du
 peuple, mais à qui la justice doit une protection d'autant plus spéciale qu'elle est son seul soutien et son
 
-(1) Robespierre avait fréquenté comme étudiant la maison du pré-
-sident Dupaty. E. Hamel, dans son Histoire de Robespierre (tome I),
-esquisse la belle figure de ce magistrat si peu semblable à ses collè-
-gues de l'ancien régime. Il fut enfermé à Lyon, dans la prison de
+(1) Robespierre avait fréquenté comme étudiant la maison du président Dupaty. E. Hamel, dans son Histoire de Robespierre (tome I),
+esquisse la belle figure de ce magistrat si peu semblable à ses collègues de l'ancien régime. Il fut enfermé à Lyon, dans la prison de
 Pierre-Scise, pour avoir pris parti contre les cours souveraines et
 critiqué vivement les lettres patentes en vertu desquelles un accusé
 
@@ -705,8 +691,7 @@ ministres. L'opinion peu favorable de Robespierre sur Mirabeau
 desquels se trouvait le duc d'Orléans. La prise de la
 Bastille leur fournit la garantie que toute tentative de
 la cour tendant à opprimer l'Assemblée par les armes
-échouerait misérablement; et sans inquiétude désor-
-mais au sujet de leur sûreté personnelle, ils purent
+échouerait misérablement; et sans inquiétude désormais au sujet de leur sûreté personnelle, ils purent
 songer à la tâche qu'ils s'étaient eux-mêmes assignée:
 donner au pays une Constitution. Parmi la députation
 qui accompagna le roi à Paris (16 juillet), se trouvait
@@ -787,7 +772,7 @@ que le pouvoir exécutif, pour prononcer des jugements,
 a besoin d'une certitude non équivoque, mais qu'il suf-
 
 (1) Il ne faudrait pas conclure, d'après ces paroles, que Robespierre admettait la violation du secret des lettres; son discours
-débute même par ces mots: « Sans doute, les lettres sont inviolables, je le sais, j'en suis convaincu... »; mais il faut préciser la
+débute même par ces mots: « Sans doute, les lettres sont inviolables, je le sais, j'en suis convaincu... mais il faut préciser la
 
 situation: le baron de Castelnau avait été arrêté comme émissaire
 des princes et ses papiers saisis; il ne s'agissait donc pas de lettres
@@ -896,8 +881,7 @@ une seule tête ou qu'elle en ait sept cents. — Note du traducteur.
 
 Une lettre pastorale de l'évêque de Rouen, par
 laquelle il cherchait à agiter son diocèse contre l'As-
-semblée nationale et qui avait vraiment pour résul-
-tat de provoquer des troubles dans la commune de À
+semblée nationale et qui avait vraiment pour résultat de provoquer des troubles dans la commune de À
 Tréguier (Côtes-du-Nord), fournit à Clermont-Tonnerre,
 le 20 octobre, un prétexte pour demander que la discus-;
 sion des projets extraordinaires fût renvoyée à un jour
@@ -906,16 +890,14 @@ jeudis. Robespierre combattit la motion et montra une
 fois de plus son coup d'œil pénétrant d'homme d'État
 en démasquant le but caché de la proposition: rendre
 illusoire le droit de pétition du peuple: « La motion de
-M. de Clermont-Tonnerre demande une sérieuse atten-
-tion. Il s'agit de proscrire un usage salutaire quoiqu'il
+M. de Clermont-Tonnerre demande une sérieuse attention. Il s'agit de proscrire un usage salutaire quoiqu'il
 embarrasse les opérations de l'Assemblée. Il propose
 de remettre à un jour déterminé des demandes qui
 sont un besoin de chaque jour. Est-il permis, par
 exemple, de différer l'examen de l'affaire de Tréguier,
 quand le feu de la guerre civile est allumé dans ce diocèse? Serait-il permis de ne pas s'occuper demain de
 l'état de la ville de Rouen, quand cette ville est dans
-le plus grand danger? Il me faut exprimer mes inquié-
-tudes avec franchise: dans le même moment où le
+le plus grand danger? Il me faut exprimer mes inquiétudes avec franchise: dans le même moment où le
 désordre règne dans les provinces, les trames d'une
 conspiration nous enveloppent, et je puis en découvrir
 les fils. Je demande si, lorsque cette réunion de circonstances légitime nos craintes, nous pouvons nous
@@ -949,9 +931,7 @@ bourgeoisie, à ce moment, était Brissot; son représenn tant le plus en vue, l
 aperçut dans ce malheureux événement une occasion
 arrivée à souhait pour obtenir, au moyen d'une loi
 martiale, la permission de tirer sur le peuple, qui cominençait depuis longtemps à la gêner. Robespierre lutta;
-en vain contre le torrent: « Ce ne sont pas des me-
-
-sures violentes qu'il faut prendre, mais des décrets
+en vain contre le torrent: « Ce ne sont pas des mesures violentes qu'il faut prendre, mais des décrets
 sages pour découvrir la source de nos maux; pour
 déconcerter la conspiration qui, peut-être, dans le moment où je parle, ne nous laisse plus d'autres ressources qu'un dévouement illustre. IL faut nommer un
 tribunal vraiment national. Nous sommes tombés dans
@@ -1040,8 +1020,7 @@ coupables qu'ignorants; ils n'ont se dépouiller
 encore des préjugés gothiques dans lesquels ils ont
 vécu; les sentiments de justice et d'honneur, la raison
 et le patriotisme n'ont pas encore pénétré jusqu'à eux.
-Ce sont des orgueilleux qu'il faut humilier, dés igno-
-rants qu'il faut instruire. Notre pitié et notre justice
+Ce sont des orgueilleux qu'il faut humilier, dés ignorants qu'il faut instruire. Notre pitié et notre justice
 n'exigent qu'une chose: que nous autorisions les, dé:
 putés des communes du Cambrésis, ses véritables
 
@@ -1080,8 +1059,7 @@ droits sacrés que leur donne le titre d'hommes.
 Cette cause est la cause générale, il faut décréterle
 .....
 On ne doit pas oublier qu'il fallait un grand courage
-pour se poser alors comme le défenseur des comé-
-diens, car, peu auparavant, tous les districts de Paris
+pour se poser alors comme le défenseur des comédiens, car, peu auparavant, tous les districts de Paris
 avaient protesté lorsque le district des « Cordeliers »
 élut des comédiens comme officiers de la Garde nationale; et François de Neufchâteau avait été rayé
 comme indigne de la liste des avocats pour avoir
@@ -1147,9 +1125,7 @@ qu'il se prononça contre un serment particulier de la
 Garde nationale, disant que chaque citoyen doit fidélité
 à la Constitution; c'est ainsi qu'il combattit la motion
 de l'abbé Gouttes qui voulait faire autoriser les autorités communales de Rouen à contracter un emprunt
-pour soutenir des ouvriers sans travail, à quoi Robes-
-
-pierre répondit que l'ensemble des citoyens seul a le
+pour soutenir des ouvriers sans travail, à quoi Robespierre répondit que l'ensemble des citoyens seul a le
 droit de prendre une telle décision. (3) Il défendit par
 
 Des hommes comme Léonard Bourdon et Chabot ne rougissaient pas de chercher une popularité facile en venant siéger à la
@@ -1169,9 +1145,7 @@ journaux. Quand nous suivrons d'autres textes, nous en indiquerons
 la provenance. — Note du traducteur.
 
 (3) Robespierre repoussa cette proposition parce qu'elle investissait les notables d'un pouvoir dangereux. Il fit remarquer avec
-justesse que les notables étaient une aristocratie et qu'ils empiéte-
-
-contre la motion de Collaud de la Salliette, tendant à
+justesse que les notables étaient une aristocratie et qu'ils empiétecontre la motion de Collaud de la Salliette, tendant à
 employer pour le bien public les traitements ecclésiastiques excédant 3.000 livres (4.300 francs environ) et
 soutint que les biens du clergé appartenant au peuple,
 les employer au bien du peuple n'est rien autre chose
@@ -1291,8 +1265,7 @@ notoire que les Bretons ont calmé des émotions plus
 violentes: il est notoire que, dans cette province, ces
 accidents ne sont tombés que sur ces magistrats qui
 ont refusé la justice au peuple, qui ont été rebelles à
-vos décrets et qui s'obstinent à les mépriser. Les dé-
-putés des contrées agitées n'ont assuré que les troubles
+vos décrets et qui s'obstinent à les mépriser. Les députés des contrées agitées n'ont assuré que les troubles
 se calment. Vous avez être rassurés à un certain
 point par le mémoire du garde des sceaux, plus
 effrayant par la force et lexagération des expressions
@@ -1325,8 +1298,7 @@ les contributions, sur la suppression du clergé, ont été
 publiés avec soin; qu'on a caché tous ceux de vos
 décrets qui, non moins utiles, présentaient aux peuples
 des objets de bienfaisance faciles à saisir? Qu'on ne
-vienne donc pas calomnier le peuple! J'appelle le té-
-moignage de la France entière: je laisse ses ennemis
+vienne donc pas calomnier le peuple! J'appelle le témoignage de la France entière: je laisse ses ennemis
 exagérer les voies de fait, s'écrier que la Révolution a
 été signalée par des barbaries: moi j'atteste tous les
 bons citoyens, tous les amis de la raison, que jamais
@@ -1357,11 +1329,10 @@ duisait dans les élections, si la législature suivantepou-
 , vait ainsi se trouver composée des ennemis de la Révo- À
 lution, la liberté ne serait plus qu'une vaine espérance
 que nous aurions présentée à l'Europe. Les nations
--: n'ont qu'un moment pour devenir libres: c'est celui où
+n'ont qu'un moment pour devenir libres: c'est celui où
 l'excès de la tyrannie doit faire rougir de défendre le
 despotisme. Ce moment passé, les cris des bons citoyens
-sont dénoncés comme des actes de sédition; la ser-
-vitude reste, la liberté disparaît. En Angleterre, une;
+sont dénoncés comme des actes de sédition; la servitude reste, la liberté disparaît. En Angleterre, une;
 loi sage ne permet pas aux troupes d'approcher des
 : lieux où se font chaque année les élections; et dans
 les agitations incertaines d'une révolution, on nous À
@@ -1403,8 +1374,7 @@ Champ de Mars. Et ce massacre devait à son tour
 exciter dans l'âme du peuple une haïne profonde etla
 soif de la vengeance; de sorte que plus d'un acte violent de 1792 et de 1793 devient par explicable.
 Le mois de mars amena le discours sur le droit de
-triage, c'est-à-dire le droit de prise accordée aux sei-
-gneurs par l'ordonnance royale de 1669 sur un tiers des
+triage, c'est-à-dire le droit de prise accordée aux seigneurs par l'ordonnance royale de 1669 sur un tiers des
 biens communaux; (1) le discours pour la mise en
 liberté de toutes les personnes emprisonnées en vertu
 de lettres de cachet; (2) le discours contre la motion
@@ -1419,11 +1389,9 @@ sacrés comme le contrat de vente, ou le contrat de donation. L'acte
 qui en a dépouillé les peuples au profit de quelques hommes privilégiés, n'était qu'une infraction absurde aux premiers principes
 de la justice et de l'humanité. Il faut opter entre l'ordonnance de
 1669 et la justice éternelle... »
-Le droit de triage fut aboli pour l'avenir, mais on perdit l'occa-
-sion de reconstituer les biens communaux, ainsi que le demandait À
+Le droit de triage fut aboli pour l'avenir, mais on perdit l'occasion de reconstituer les biens communaux, ainsi que le demandait À
 Robespierre. — Note du traducteur.
-(2) « … Si quelque chose peut nous affecter, c'est le regret de sié-
-ger depuis dix mois, sans avoir encore prononcé la liberté de ces
+(2) « … Si quelque chose peut nous affecter, c'est le regret de siéger depuis dix mois, sans avoir encore prononcé la liberté de ces
 malheureux, victimes d'un pouvoir arbitraire. L'assemblée sera à
 sans doute étonnée de voir que, lorsqu'il est question de la cause
 de l'innocence, on lui parle sans cesse, non pas de ces infortunés,
@@ -1501,9 +1469,7 @@ avaïent soutenu-le jury, il voudrait qu'on l'étendiît aux
 
 parties distinctes de notre procédure? Dans l'une, il
 
-; s'agit de l'honneur et de la vie; dans l'autre, de l'hon-
-
-neur et de la fortune. Si l'ordre judiciaire au criminel
+; s'agit de l'honneur et de la vie; dans l'autre, de l'honneur et de la fortune. Si l'ordre judiciaire au criminel
 
 ; sans jurés est insuflisant pour garantir ma vie et mon
 honneur, il l'est également au civil, et je réclame les
@@ -1555,8 +1521,7 @@ grande sagacité les attributions réciproques des nouveaux juges de paix et del
 celle-ci à ceux-là parce qu'elle ne doit être que leur
 Si nous avons résumer très brièvement les idées
 
-exposées par Robespierre, à la Constituante, sur l'or-
-ganisation de la justice, nous ne pouvons nous refuser
+exposées par Robespierre, à la Constituante, sur l'organisation de la justice, nous ne pouvons nous refuser
 à donner textuellement son discours du 30 mai contre
 la peine de mort:
 
@@ -1572,8 +1537,7 @@ législateurs, qui doivent être les organes et les inter-
 hommes, d'effacer du code des Français les lois de
 sang qui commandent des meurtres juridiques, et que
 à repoussent leurs mœurs et leur constitution nouvelle.
-; Je veux leur prouver: 1° que la peine de mort est essen-
-tiellement injuste; 2° qu'elle n'est pas la plusréprimante
+; Je veux leur prouver: 1° que la peine de mort est essentiellement injuste; 2° qu'elle n'est pas la plusréprimante
 des peines, et qu'elle multiplie les crimes beaucoup plus
 qu'elle ne les prévient.
 « Hors de la société civile, qu'un ennemi acharné
@@ -1626,9 +1590,7 @@ les lois pénales peuvent agir sur la sensibilité humaine?
 Hélas! avant la mort, combien de douleurs physiques
 et morales l'homme ne peut-il pas endurer.
 
-« Le désir de vivre cède à l'orgueil, la plus impé-
-
-rieuse de toutes les passions qui maîtrisent le cœur de
+« Le désir de vivre cède à l'orgueil, la plus impérieuse de toutes les passions qui maîtrisent le cœur de
 lhomme; la plus terrible de toutes les peines pour
 l'homme social, c'est l'opprobre, c'est l'accablant témoignage de l'exécration publique. Quand le législateur
 
@@ -1638,21 +1600,16 @@ employer la peine de mort? Les peines ne sont pas
 faites pour tourmenter les coupables, mais pour prévenir le crime par la crainte de les encourir.
 
 « Le législateur qui préfère la mort et les peines
-atroces aux moyens plus doux qui sont en son pou-
-voir, outrage la délicatesse publique, émousse le sentiment moral chez le peuple qu'il gouverne, semblable
+atroces aux moyens plus doux qui sont en son pouvoir, outrage la délicatesse publique, émousse le sentiment moral chez le peuple qu'il gouverne, semblable
 à un précepteur malhabile qui, par le fréquent usage des
 châtiments cruels, abrutit et dégrade l'âme de son
 élève; enfin, il use et affaiblit les ressorts du gouvernement, en voulant les tendre avec plus de force.
 
 « Le législateur qui établit cette peine, renonce à ce
-principe salutaire, que le moyen le plus efficace de répri-
-
-mer les crimes est d'adapter les peines au caractère des
+principe salutaire, que le moyen le plus efficace de réprimer les crimes est d'adapter les peines au caractère des
 différentes passions qui les produisent, et de les punir,
 pour ainsi dire, par elles-mêmes. Il confond toutes les
-idées, il trouble tous les rapports, et contrarie ouver-
-
-tement le but des lois pénales.
+idées, il trouble tous les rapports, et contrarie ouvertement le but des lois pénales.
 
 « La peine de mortest nécessaire, dites-vous? Si cela
 est, pourquoi plusieurs peuples ont-ils s'en passer?
@@ -1691,11 +1648,7 @@ sujets à l'erreur. Eussiez-vous imaginé l'ordre judiciaire le plus parfait, eu
 plus intègres et les plus éclairés, il restera toujours
 quelque plate à l'erreur ou à la prévention. Pourquoi vous interdire le moyen de les réparer? pourquoi vous condamner à l'impuissance de tendre une;
 main secourable à l'innocence opprimée? Qu'importent ces stériles regrets, ces réparations illusoires que
-vous accordez à une ombre vaine, à une cendre insen-
-
-sible? Elles sont les tristes témoignages de la bar-
-
-bare témérité de vos lois pénales. Ravir à l'homme la
+vous accordez à une ombre vaine, à une cendre insensible? Elles sont les tristes témoignages de la barbare témérité de vos lois pénales. Ravir à l'homme la
 possibilité d'expier son forfait par son repentir ou par
 des actes de vertu, lui fermer impitoyablement tout
 
@@ -1774,8 +1727,7 @@ motiva longuement son vote et dans cet exposé de motifs, nous
 trouvons les paroles suivantes: « Pour moi, j'abhorre la peine de:
 mort prodiguée par vos lois, et je n'ai pour Louis ni amour ni
 haïne: je ne hais que ses forfaits. J'ai demandé l'abolition de la
-peine de mort à l'Assemblée que vous nommez encore Consti-
-tuante, et ce n'est pas ma faute si les premiers principes du droit
+peine de mort à l'Assemblée que vous nommez encore Constituante, et ce n'est pas ma faute si les premiers principes du droit
 et de la raison lui ont paru des hérésies morales et politiques.
 Mais, si vous ne vous avisâtes jamais de les réclamer en faveur de
 tant de malheureux dont les délits sont moins les leurs que ceux du
@@ -1790,9 +1742,7 @@ Robespierre fit écarter cette motion: « Ce n'est pas au moment,
 dit-il, où vous allez effacer la peine de mort du code de vos lois,
 que vous devez adopter une proposition aussi cruelle. » Ainsi, au
 
-Robespierre ne négligeait aucune occasion de sou-
-
-tenir les prérogatives de la nation et de réclamer un
+Robespierre ne négligeait aucune occasion de soutenir les prérogatives de la nation et de réclamer un
 
 seul droit pour tous ceux qui ont le titre d'hommes.
 C'est ainsi qu'il parla de la manière la plus énergique
@@ -1838,9 +1788,7 @@ ecclésiastiques, lors de labolition du fermage,
 comme le réclamaient la prudence et la justice;
 mais l'Assemblée n'y consentit pas, car elle était bien
 loin d'accorder à la classe ouvrière la même attention qu'à la classe moyenne aisée, dont elle était issue
-pour la plus grande part et dont elle fondait la domi-
-
-nation à la place de l'ancien régime; elle ne le suivit
+pour la plus grande part et dont elle fondait la domination à la place de l'ancien régime; elle ne le suivit
 pas davantage quand il fit la peinture des dangers
 M. de Beaumetz écrivit à son père une longue diatribe contre son
 collègue en le priant de la faire circuler dans toute la province
@@ -1864,12 +1812,10 @@ l'élévation de son caractère: « Vous avez vous apercevoir que
 nous ne pouvons ni envisager les objets sous les mêmes rapports,
 ni nous rencontrer sur la même route. Cette obstination à heurter
 tous les intérêts qui ne sont pas l'intérêt public, que vous appelez
-esprit factieux; ce refus persévérant de composer avec les pré-
-jugés, avec les passions ou viles ou cruelles, qui depuis tant de
+esprit factieux; ce refus persévérant de composer avec les préjugés, avec les passions ou viles ou cruelles, qui depuis tant de
 siècles ont opprimé les hommes, qui vous semble le comble de la
 témérité; ce sentiment invincible par lequel on est forcé de
-réclamer sans cesse les droits sacrés de l'infortune et de l'huma-
-nité, contre l'injustice et la tyrannie, avec la certitude de ne
+réclamer sans cesse les droits sacrés de l'infortune et de l'humanité, contre l'injustice et la tyrannie, avec la certitude de ne
 recueillir de cette conduite que haine, vengeance et calomnie
 vous n'ignorez pas que ce n'est point le chemin qui conduit aux?
 honneurs et à la fortune. Vous savez combien la complaisance, la
@@ -1895,8 +1841,7 @@ nation française le pouvoir de rétablir sur la terre l'empire de la
 justice et de la raison; pour rendre à l'homme ses vertus, son
 bonheur et sa dignité première. J'ai rempli autant qu'il était en
 moi la tâche sublime qui nous était imposée; je n'ai transigé ni
-avec l'orgueil, ni avec la force, ni avec la séduction; toute espé-
-rance, toute vue d'intérêt personnel fondée sur une pareille mission, m'a toujours paru un crime et un opprobre. Je ne m'inquiète
+avec l'orgueil, ni avec la force, ni avec la séduction; toute espérance, toute vue d'intérêt personnel fondée sur une pareille mission, m'a toujours paru un crime et un opprobre. Je ne m'inquiète
 pas si mes concitoyens le savent ou l'ignorent, que le succès de vos
 calomnies et celles de vos adhérents aient répondu ou non à votre
 attente; il me suffit de les avoir servis selon mon pouvoir; et,
@@ -1942,14 +1887,11 @@ Mais l'Assemblée, tout en réservant au Corps législatif;
 : le droit de déclarer la guerre, n'accorda pas moins au
 gouvernement le droit de la proposer. Quand la loi
 vint en discussion, Robespierre essaya encore, au nom
-des mêmes arguments, de détourner le péril qu'il pré-
-voyait pour le pays: « Quand je vois la route qu'ont
+des mêmes arguments, de détourner le péril qu'il prévoyait pour le pays: « Quand je vois la route qu'ont
 suivie ceux qui veulent avoir de l'influence sur nos
 délibérations, je ne trouve que des motifs de défiance.
 Ceux pour qui la guerre est le premier des besoins
-parce qu'ils y reconnaissent le meilleur moyen de pou-
-
-voir s'opposer à la Révolution, qui les désespère, ceux-là
+parce qu'ils y reconnaissent le meilleur moyen de pouvoir s'opposer à la Révolution, qui les désespère, ceux-là
 n'envisagent pas les choses de la même manière que
 Mais il eut gain de cause quand il défendit l'élection
 des prêtres par le peuple: « Toutes les fonctions publiques ont pour but l'ordre et le bonheur de la société;
@@ -1977,8 +1919,7 @@ pas à s'attendrir exclusivement sur le sort de quelques individus
 condamnés à recevoir un traitement de trente mille livres de rente.
 Pour moi, je la réclame au nom de la justice et de la raison, pour
 la multitude innombrable de nos concitoyens dépouillés par tant
-d'abus; pour les pères de famille qui ne peuvent nourrir les nombreux citoyens qu'ils ont donnés à la patrie; pour la foule des ecclé-
-siastiques pauvres qui ont vieilli dans les travaux d'un ministère
+d'abus; pour les pères de famille qui ne peuvent nourrir les nombreux citoyens qu'ils ont donnés à la patrie; pour la foule des ecclésiastiques pauvres qui ont vieilli dans les travaux d'un ministère
 actif et qui n'ont recueilli que des infirmités et la misère, dont les
 
 l'opinion publique. Ce jour-là, guidé par le seul amour
@@ -1990,21 +1931,18 @@ un privilège, et cependant c'est quelque chose de plus
 que le droit commun des autres citoyens. Il est de principe qu'aucune puissance ne doit s'élever au-dessus du
 4 décider des destinées des représentants... Mais, dira-
 t-on, s'ils sont coupables, ils doivent être punis! Oui,
-sans doute, il faut réduire la question à ce point. Peut-
-il exister un tribunal qui puisse déclarer coupables les
+sans doute, il faut réduire la question à ce point. Peutil exister un tribunal qui puisse déclarer coupables les
 représentants de la nation? Si l'on répond affirmativement, il est évident que ce tribunal sera l'arbitre de
 leur destinée. S'il ne peut décider de leur sort sous
 forme de procès, il le pourra avec des formes et par
-des jugements iniques; et l'inviolabilité détruite, l'indé-
-pendance des représentants de la Nation n'existe plus.
+des jugements iniques; et l'inviolabilité détruite, l'indépendance des représentants de la Nation n'existe plus.
 Pour que les représentants de la Nation jouissent de.
 touchantes réclamations retentissent tous les jours à nos oreilles.
 Vous avez à choisir entre eux etles évêques. Soyez généreux comme Ldes législateurs, comme les représentants du peuple, et non comme;
 des hommes froids et frivoles qui ne savent accorder leur intérêt
 qu'aux prétendues pertes de ceux qui mesurent leurs droits sur
 leurs anciennes usurpations, sur leurs besoins factices et dévorants, à
-et qui refusent leur compassion aux véritables misères de l'hu-
-manité. » L'attitude de Robespierre est d'autant plus à relever que
+et qui refusent leur compassion aux véritables misères de l'humanité. » L'attitude de Robespierre est d'autant plus à relever que
 sa lutte contre l'hébertisme, sous la Convention, et que son amitié
 avec certains membres du clergé démocrates et irréprochables,
 comme Grégoire et Royer, l'ont exposé à beaucoup de calomnies;
@@ -2017,9 +1955,7 @@ l'inviolabilité, il faut qu'ils ne puissent être attaqués
 par aucun pouvoir particulier. Aucune décision ne peut
 
 les frapper, si elle ne vient d'un pouvoir égal à eux et
-il n'y a pas de pouvoir de cette nature. Il existe un pou-
-
-voir supérieur aux représentants de la Nation, c'est la
+il n'y a pas de pouvoir de cette nature. Il existe un pouvoir supérieur aux représentants de la Nation, c'est la
 Nation elle-même. Si elle pouvait se rassembler en
 
 . corps, elle serait leur véritable juge... Si vous ne consacrez ces principes, vous rendez le Corps législatif
@@ -2035,9 +1971,7 @@ d'entre eux, Rossier, Chapuis, Sudan et Huguenot,
 furent condamnés aux galères dans le bagne de Brest. (1)
 Les deux premiers y avaient succombé sous le poids
 des souffrances; Sudan et Huguenot, au contraire,
-reçurent la liberté par les soins de l'Assemblée nationale. En partant, ils voulurent apporter à celle-ci l'ex-
-
-pression de leur gratitude; mais si grands étaient
+reçurent la liberté par les soins de l'Assemblée nationale. En partant, ils voulurent apporter à celle-ci l'expression de leur gratitude; mais si grands étaient
 encore les préjugés de la majorité, dans l'Assemblée
 constituante, qu'elle repoussa leur demande, malgré
 l'intervention chaleureuse de Robespierre, parce qu'une
@@ -2045,9 +1979,7 @@ ancienne ordonnance interdisait aux galériens de s'approcher de la cour. La lib
 Robespierre en cette occasion lui valut de la part d'une
 
 (1) Comparer mon ouvrage: Trois Martyrs suisses de la liberté au
-siècle dernier (Drei schweïizer Freiheits-Martyrer des vorigen Jahr-
-
-hunderts), Frauenfeld, J. Huber, 1861. — Note de l'auteur.
+siècle dernier (Drei schweïizer Freiheits-Martyrer des vorigen Jahrhunderts), Frauenfeld, J. Huber, 1861. — Note de l'auteur.
 
 feuille réactionnaire, l'Ami du Roi, le surnom honorable « avocat des galériens ». Un autre pamphlet
 croyait l'insulter en le donnant à ses lecteurs commeun
@@ -2068,16 +2000,13 @@ Camille Desmoulins: « le commentaire vivant de la
 Déclaration des Droits, le bon sens en personne. » (3) « Mirabeau lui-même fut obligé de se joindre publique-
 (1) C'était le journal les Révolutions de Paris qui écrivait ces
 : lignes. — Note du traducteur.
-(2) A la suite d'une lettre du roi qui avait demandé que l'Assem-
-blée en corps vint lui présenter ses remerciements, Robespierre
+(2) A la suite d'une lettre du roi qui avait demandé que l'Assemblée en corps vint lui présenter ses remerciements, Robespierre
 s'était opposé au déplacement de l'Assemblée tout entière, ily « avait un manque de dignité. De cette appréciation dans le
 journal de Barère. — Note du traducteur.:
 (3) On trouvera dans le journal de Desmoulins, les Révolutions
 de France et de Brabant, en même temps que les éloges les plus
 enthousiastes de Robespierre, une image fidèle des idées politiques
-de celui-ci dont Camille fut, pendant toute la Révolution, le dis-
-
-ment à ce concert d'éloges, et il le fit en ces termes:
+de celui-ci dont Camille fut, pendant toute la Révolution, le disment à ce concert d'éloges, et il le fit en ces termes:
 « Tous les partis s'accordent à rendre à M. Robespierre
 la justice qu'il n'a jamais renié les principes de la
 A liberté, et il n'est pas beaucoup de membres dont on
@@ -2104,9 +2033,7 @@ Nous avons encore à mentionner toute une série de
 Robespierre se montra, au milieu d'occasions très
 ciple fervent et ému. Desmoulins a revêtu les théories de Robespierre de son admirable prose, aussi pure et aussi ferme que celle
 de Pascal et de Voltaire dont il rappelle à la fois l'indignation éloquente et la fine raillerie. — Note du traducteur.
-Bismarck. À la suite des événements de 1848. — Note du traduc-
-
-diverses, l'ami le plus sincère du peuple, le défenseur …
+Bismarck. À la suite des événements de 1848. — Note du traducdiverses, l'ami le plus sincère du peuple, le défenseur …
 le plus ferme de ses droits sur lesquels il veillait avec « un soin jaloux. Le 21 juillet, il défend le droit desmuni- …
 cipalités à établir une taxe du pain en faveur dela
 classe la plus pauvre; le 28 juillet, il combat une motion
@@ -2119,11 +2046,10 @@ au roi pour exprimer à celui-ci l'attachement de l'Assemblée à sa personne, R
 envoie en même temps une députation chargée d'assister
 à la fête funéraire que l'on préparait en l'honneur des « citoyens tombés pour la liberté à la prise de la Bastille.
 11 combat la pétition d'une délégation venue du Béarn « et qui demandait le maintien à la couronne du château
-de Pau où Henri était né; Robespierre fit ressortir «: ce fait que la pétition était adressée au roi etnonà
+de Pau où Henri était né; Robespierre fit ressortir ce fait que la pétition était adressée au roi etnonà
 l'Assemblée et ajouta qu'il ne fallait pas augmenter le
 nombre des domaines royaux. Il demande l'augmenta- « tion du traitement des facteurs, qui n'est pas en rapport
-avec les énormes traitements des fonctionnaires supé-
-rieurs de la poste. Il veut fermer au clergé l'accès des
+avec les énormes traitements des fonctionnaires supérieurs de la poste. Il veut fermer au clergé l'accès des
 ï «.… Est-il le seul qui ait donné des preuves d'opposition? Et,
 s'il fallait un exemple exclusif, je le demande à tous les hommes
 impartiaux, faudrait-il tomber sur un homme qui, attaché par toutes
@@ -2142,8 +2068,7 @@ opposé de résistance lorsque le peuple affamé s'était
 mis en travers de l'exportation des grains. Il combat le
 monopole du tabac, comme tous les impôts indirects qui
 “atteignent peu les riches et retombent d'autant plus
-lourdement sur les pauvres. Il veut la réunion immé-
-diate d'Avignon à la France parce que la population la
+lourdement sur les pauvres. Il veut la réunion immédiate d'Avignon à la France parce que la population la
 réclame: « … On nous a dit qu'Avignon était la proF priété du Pape. Juste ciel! les peuples, la propriété
 - d'un homme? Et c'est dans la tribune de l'Assemblée
 nationale de France qu'on a proféré ce blasphème!.…
@@ -2160,8 +2085,7 @@ France ait été différée: « … En défendant les Avignonnais, c'est la
 
 fonctionnaires qui ont réellement fait des avances au
 Trésor à la suite de « brevets de retenue — lettres »
-royales qui assuraient à un fonctionnaire une retenue «. sur le traitement de son successeur. — Il défend les sol-
-dats de Nancy qu'on accusait d'insubordination envers
+royales qui assuraient à un fonctionnaire une retenue «. sur le traitement de son successeur. — Il défend les soldats de Nancy qu'on accusait d'insubordination envers
 leurs officiers et il objecte qu'onne peut pas savoir, sur
 un simple rapport du ministre, qui porte la responsa- « bilité de faits assurément regrettables. (1) En un mot,
 nous le voyons toujours en avant lorsqu'il s'agit de
@@ -2209,8 +2133,7 @@ le Droit et la Justice éternelle; mais, de son indulM gence quand le ministre v
 juge au tribunal de Versailles: c'était la juste récompense
 … de ses efforts. Mentionnons encore un fait curieux apparA tenant à l'année 1790: c'est le 29 décembre qu'il assista,
 comme témoin, au mariage de son camarade de collège,
-Camille Desmoulins, avec Lucile Duplessis. (1) La béné-
-diction nuptiale fut donnée à Saint-Sulpice aux jeunes
+Camille Desmoulins, avec Lucile Duplessis. (1) La bénédiction nuptiale fut donnée à Saint-Sulpice aux jeunes
 … époux par un ancien professeur de Camille et de Maxi- —
 milien au collège Louis-le-Grand, l'abbé Bérardier, qui
 _était devenu député à l'Assemblée nationale.
@@ -2310,19 +2233,15 @@ doux et efficaces l'extrême inégalité des fortunes!
 conformément à ce principe, il se déclare pour l'égalité
 dans l'héritage entre tous les co-partageants et il
 demande qu'une loi particulière fixe les cas où il serait
-permis au testateur d'avantager un héritier au détri-
-ment des autres. Il réclame une diminution de la moitié
+permis au testateur d'avantager un héritier au détriment des autres. Il réclame une diminution de la moitié
 au moins sur les traitements des ministres, auxquels
 l'assemblée avait attribué de 100.000 à 150.000 livres.
 Il proteste, — quoique seul à peu près sur ce point dans
 le parti démocratique, — contre les poursuites judi-.
-ciaires spéciales qui devaient atteindre les ecclésias-
-tiques dont les discours ou les écrits auraient déplu:
+ciaires spéciales qui devaient atteindre les ecclésiastiques dont les discours ou les écrits auraient déplu:
 « Il n'y a pas de distinction à faire entre un ecclésias- « tique et un autre citoyen. Il est absurde de vouloir
 porter contre les ecclésiastiques une loi qu'on n'a pas
-encore osé porter contre tous les citoyens. Des consi-
-dérations particulières ne doivent jamais l'emporter « sur les principes de la justice et de la liberté. Un ecclé-
-siastique est un citoyen; et aucun citoyen ne peut être
+encore osé porter contre tous les citoyens. Des considérations particulières ne doivent jamais l'emporter « sur les principes de la justice et de la liberté. Un ecclésiastique est un citoyen; et aucun citoyen ne peut être
 soumis à des peines pour ses discours... » (2)
 obtint, par un discours plein de tact et de finesse, que
 l'Assemblée passât à l'ordre du jour sur la demande en poursuites.
@@ -2335,8 +2254,7 @@ jours auparavant, obtenu la mise en liberté du curé d'Issy-l'Evêque
 jeté en prison à cause de son attachement aux principes démocra78
 
 Il défend l'inviolabilité du secret des correspondances: « Une atteinte portée à cette inviolabilité est
-un attentat à la foi publique. » (x) Il proclame en poli-
-tique le principe suivant: « Rien n'est juste que ce qui
+un attentat à la foi publique. » (x) Il proclame en politique le principe suivant: « Rien n'est juste que ce qui
 est honnête, rien n'est utile que ce qui est juste; » et
 condamne en conséquence le mystère du comité diplo-
 — matique qui suivait en ceci l'exemple du gouverneee A,.
@@ -2371,18 +2289,13 @@ s'exercera bientôt aussi contre les écrits patriotiques. Chaque
 raison dans ses correspondances. » Robespierre obtint que l'Assemblée rendit à la circulation, sans les ouvrir, les lettres qui avaient » été déposées sur le bureau de son président. — Note du traducteur.
 (2) Le gouvernement s'obstinait à cacher les menées des émigrés
 
-mettre des incursions sur le domaine d'autres pou-
-voirs ou même pour confisquer à l'occasion toutes les
+mettre des incursions sur le domaine d'autres pouvoirs ou même pour confisquer à l'occasion toutes les
 libertés publiques; conformément à ces principes, ilne
-veut pas que les autorités inférieures soient aveuglé-
-
-ment soumises aux autorités supérieures ni que le
-ministre puisse les révoquer sous prétexte de déso-
-béissance envers des ordres supérieurs; il réclame À
+veut pas que les autorités inférieures soient aveuglément soumises aux autorités supérieures ni que le
+ministre puisse les révoquer sous prétexte de désobéissance envers des ordres supérieurs; il réclame À
 encore pour que la nomination des hauts fonctionnaires
 Trésor soit confiée aux représentants de la nation et
-non au ministre. Enfin c'est Robespierre qui, le pre-
-mier, proposa le service obligatoire, l'armement du
+non au ministre. Enfin c'est Robespierre qui, le premier, proposa le service obligatoire, l'armement du
 peuple et le renouvellement de tous les cadres d'offi-
 Le 21 juin au matin, on apprit à Paris le départ de la
 famille royale qui avait quitté les Tuileries dans la nuit
@@ -2422,8 +2335,7 @@ soir, en sortant de l'Assemblée nationale. Il parla longuement, avec
 . une animation extraordinaire: « Ce n'est pas à moi que la fuite du
 premier fonctionnaire public devait paraître un événement désas-;
 — treux. Ce jour pouvait être le plus beau de la révolution; il peut le
-devenir encore et le gain de quarante millions d'entretien que coù-
-tait l'individu royal serait le moindre des bienfaits de cette journée. » Puis Robespierre fait le tableau des dangers qui menacent
+devenir encore et le gain de quarante millions d'entretien que coùtait l'individu royal serait le moindre des bienfaits de cette journée. » Puis Robespierre fait le tableau des dangers qui menacent
 la France. D'abord l'Europe en armes; mais le péril venu de l'ex- -
 … térieur n'est pas celui qui l'effraie: « que toute l'Europe se ligue
 contre nous, et l'Europe sera vaincue ». C'est le péril intérieur qu'il
@@ -2480,14 +2392,13 @@ pas moins sa ligne de conduite et montra qu'on ne pou-
 À vait parler d'inviolabilité, en ce qui touchait le roi, que
 à où il y avait responsabilité ministérielle; que ce
 ._ n'était pas le cas ici, et que, dans cette occasion, le roi
-fé. ne pouvait être envisagé autrement que comme cou-
-pable: « On ne peut envisager que deux hypothèses en
+fé. ne pouvait être envisagé autrement que comme coupable: « On ne peut envisager que deux hypothèses en
 prenant une résolution semblable à celle que je combats: ou bien le roi, que je supposerais coupable envers
 une nation, conserverait encore toute l'énergie de l'au-
 È torité dont il était d'abord revêtu, ou bien les ressorts
 du gouvernement se relâcheront dans ses mains. Dans
 .« le premier cas, le rétablir dans toute sa puissance,
-n'est-ce pas évidemment exposer la liberté publique à;
+n'est-ce pas évidemment exposer la liberté publique
 un danger perpétuel? Et à quoi voulez-vous qu'il
 . emploie le pouvoir immense dont vous le revêtez, si ce
 n'est à faire triompher ses passions personnelles, si ce
@@ -2500,8 +2411,7 @@ tribunal de l'arrondissement des Tuileries. — Note du traduc-
 Maximilien Robespierre, ne.
 nement se relâchent-ils dans ses mains, alors les rênes
 du gouvernement flotient nécessairement entre les
-mains de quelques factieux qui le serviront, le trahi-
-ront, le caresseront, l'intimideront tour à tour, pour
+mains de quelques factieux qui le serviront, le trahiront, le caresseront, l'intimideront tour à tour, pour
 régner sous son nom. Messieurs, rien ne convient aux
 factieux et aux intrigants comme un gouvernement À
 faible, c'est seulement sous ce point de vue qu'il faut
@@ -2512,9 +2422,7 @@ espèce de gouvernement où les factieux règnent.
 Comités, il faut substituer des mesures générales, évidemment puisées dans l'intérêt de la paix et de la
 liberté. Ces mesures proposées, il faut vous en dire un
 mot: elles ne peuvent que vous déshonorer, et,sij'étais
-réduit à voir sacrifier aujourd'hui les premiers prin-
-cipes de la liberté, je demanderais au moins la permis-
-sion de me déclarer l'avocat de tous les accusés; je
+réduit à voir sacrifier aujourd'hui les premiers principes de la liberté, je demanderais au moins la permission de me déclarer l'avocat de tous les accusés; je
 voudrais être le défenseur des trois gardes du corps, À
 de la gouvernante du dauphin, de M. Bouillé lui-même.
 Dans les principes de vos comités, le roi n'est pas
@@ -2544,8 +2452,7 @@ sai une logique serrée; les arguments s'enchainent dans une progression
 très heureuse, et le ton de l'ironie alterne avec celui de l'indignaE tion pour s'élever parfois à une très haute éloquence. Nous renfi voyons à ce discours, — trop long pour être offertici au lecteur, —tous
 ceux qu'une étude littéraire des discours de Robespierre pourrait
 intéresser. — Notons encore que ce discours est en tout conforme,
-quant à la doctrine, aux célèbres discours prononcés par Robes-
-pierre, deux ans plus tard, dans le procès du roi; ils peuvent se
+quant à la doctrine, aux célèbres discours prononcés par Robespierre, deux ans plus tard, dans le procès du roi; ils peuvent se
 ramener, en effet, à ce passage du discours de 1791: « Le roi est
 inviolable, dites-vous; il ne peut pas être puni: telle est la loi.
 Vous vous calomniez vous-mêmes! Non, jamais vous n'avez décrété
@@ -2561,22 +2468,19 @@ Cromwell avait été le principal acteur, il répondit aussitôt: « La
 seule question est un crime, la réponse en serait un autre. » Le
 ( discours sur l'inviolabilité produisit une si grande impression à la
 cour, qu'elle répandit le bruit d'une prétendue folie de Robespierre,
-comme on le voit par une dépêche du baron de Staël à son gouver-
-nement. — Note du traducteur.
+comme on le voit par une dépêche du baron de Staël à son gouvernement. — Note du traducteur.
 
 quences, je me crois obligé, en faveur de l'impérieuse
 loi qui me lie à la défense des intérêts de la nation, je
 me crois, dis-je, obligé de protester en son nom. »
-Le dimanche 17 juillet eut lieu le trop fameux mas-
-sacre du Champ de Mars. Des milliers de citoyens sans
+Le dimanche 17 juillet eut lieu le trop fameux massacre du Champ de Mars. Des milliers de citoyens sans
 armes, accompagnés de leurs femmes et de leurs
 enfants, s'étaient rendus dans l'après-midi au Champ à
 de Mars, soit pour user de droits légaux en signantune
 pétition à l'Assemblée nationale, soit pour se promener:
 simplement en famille. Ils furent attaqués brusquement
 par la bourgeoisie armée qui formait, seule, la garde
-nationale depuis que la malheureuse loi sur l''organisa-
-tion de ces milices en avait chassé les citoyens passifs. à
+nationale depuis que la malheureuse loi sur l''organisation de ces milices en avait chassé les citoyens passifs. à
 Et, sous la direction de Lafayette et de Baïlly, sur l'ordre
 de Charles Lameth, qui s'en est vanté publiquement en
 1832, dans la Chambre des députés, les salves d'artillerie
@@ -2605,8 +2509,7 @@ C'est ainsi qu'il fut amené à loger d'une manière
 durable dans cette hospitalière maison, ravi qu'il était
 de l'amabilité de la famille. Il s'y fixa donc, tout en
 à payant une pension pour le logement et la nourriture;
-il car il prenait auparavant ses repas dans un petit res-
-taurant à trente sous.:
+il car il prenait auparavant ses repas dans un petit restaurant à trente sous.:
 à Duplay était en 1735 à Saint-Didier (Haute-Loire).
 Venu jeune à Paris, il avait été protégé par madame
 Geoffrin, l'intelligente amie des Encyclopédistes; et il
@@ -2636,14 +2539,11 @@ les visites dans le salon de son hôte; l'ameublement
 On y plaça plus tard le portrait en pied de Robespierre
 peint par Gérard. C'était cette pièce élégante dans
 laquelle le disciple de Rousseau « s'asseyait au milieu
-des images plastiques, tableaux ou gravures, qui mul-
-tipliaient et reflétaient son Moi
+des images plastiques, tableaux ou gravures, qui multipliaient et reflétaient son Moi
 
 En août, on procéda à une nouvelle revision de l'acte
 constitutionnel, sans qu'on y introduisit de notables
-changements. C'est chose touchante que de voir Robes-
-pierre élever la voix chaque jour, — bien qu'il fût con-
-vaincu de l'inutilité de ses efforts, — pour défendre les
+changements. C'est chose touchante que de voir Robespierre élever la voix chaque jour, — bien qu'il fût convaincu de l'inutilité de ses efforts, — pour défendre les
 droits du peuple et les grands principes de la Liberté
 et de l'Égalité. Les Parisiens lui témoignèrent leur À
 reconnaissance en le nommant accusateur public, (1)
@@ -2708,14 +2608,11 @@ assistants du cri mille fois répété de: « Vive la liberté!
 Vive la nation! » Robespierre, qui n'était guère l'ami
 de semblables démonstrations, se jeta avec Pétion
 dans un fiacre; mais il en descendit aussitôt lorsqu'on
-fit mine de vouloir dételer les chevaux. Alors Robes-
-pierre supplia le peuple de ne pas perdre le respect de
+fit mine de vouloir dételer les chevaux. Alors Robespierre supplia le peuple de ne pas perdre le respect de
 lui-même et de ne pas prodiguer à des individus les
 marques de reconnaissance. Il put dès lors poursuivre
 tranquillement son chemin, accompagné de ce cri
-renouvelé sans cesse par des milliers de voix enthou-
-membre de l'Assemblée constituante ne pourrait être porté au mi-
-nistère pendant les quatre années qui suivraient la session, — plus
+renouvelé sans cesse par des milliers de voix enthoumembre de l'Assemblée constituante ne pourrait être porté au ministère pendant les quatre années qui suivraient la session, — plus
 tard, Buzot fit ramener ce terme à deux années; — qu'ils ne pour-
 
 À raient, de plus, accepter pendant le même laps de temps aucun
@@ -2733,8 +2630,7 @@ quelquefois à l'empressement de la reconnaissance publique. Ils
 pensaient que le respect des lois nouvelles dépendait beaucoup de
 celui qu'inspirait la personne des législateurs et que le respect
 qu'imprime le législateur est attaché en grande partie à l'idée de
-son caractère et de son désintéressement: du moins faut-il conve-
-nir que ceux qui fixent la destinée des nations et des races futures
+son caractère et de son désintéressement: du moins faut-il convenir que ceux qui fixent la destinée des nations et des races futures
 doivent être absolument isolés de leur propre ouvrage, qu'ils
 doivent être comme la nation entière et comme la postérité: il ne
 suffit pas même qu'ils soient exempts de toute vue personnelle et
@@ -2756,13 +2652,10 @@ présent, l'homme d'action a toujours fait oublier le
 philosophe de l'Assemblée constituante. Cest un
 devoir pour l'historien de remettre en lumière cette
 partie trop oubliée de sa vie; et nous comptons sur
-réduite à l'impuissance de'trouver facilement sept cent vingt défen-
-seurs qui nous vaillent; et si dans un temps où l'esprit public
-n'était point encore né, où la nation ignorait ses droits et ne pré-
-voyait pas encore sa destinée, elle a faire des choix dignes de
+réduite à l'impuissance de'trouver facilement sept cent vingt défenseurs qui nous vaillent; et si dans un temps où l'esprit public
+n'était point encore né, où la nation ignorait ses droits et ne prévoyait pas encore sa destinée, elle a faire des choix dignes de
 cette révolution, pourquoi n'en ferait-elle pas de meilleurs encore
-lorsque l'opinion publique est éclairée et fortifiée par une expé-
-rience de deux années, si féconde en grands événements et en
+lorsque l'opinion publique est éclairée et fortifiée par une expérience de deux années, si féconde en grands événements et en
 grandes leçons? » D'ailleurs, n'y avait-il pas danger à se charger
 encore pour deux ans du fardeau des destinées d'une nation?
 « … Athlètes victorieux, mais fatigués, laissons la carrière à des
@@ -2792,27 +2685,23 @@ partie son œuvre; où elle fut infidèle aux grands
 principes de 1789, — distinction entre les citoyens actifs
 et les citoyens passifs; conservation de l'esclavage; (1)
 conservation de l'armée ancienne avec ses officiers à À
-l'esprit rétrograde, — ce fut contre la volonté de Robes-
-pierre et malgré tous ses efforts. Si on avait mieux
+l'esprit rétrograde, — ce fut contre la volonté de Robespierre et malgré tous ses efforts. Si on avait mieux
 écouté sa voix, probablement que toutes les révolutions
 ultérieures n'auraient pas lieu.
 C'est par que s'explique son immense popularité
 qui portait son nom de ville en ville, de hameau en
 hameau, comme un symbole de liberté et de justice.
 Les journaux, les sociétés populaires, retentissaient:
-Dans les discussions des 7 et 8 mai 1791, Robespierre de-
-manda hautement l'abolition de l'esclavage; le 7, il s'écrie: « Oui,
+Dans les discussions des 7 et 8 mai 1791, Robespierre demanda hautement l'abolition de l'esclavage; le 7, il s'écrie: « Oui,
 dès le moment où dans un de vos décrets vous aurez prononcé
 le mot esclave, vous aurez prononcé votre propre déshonneur. »
 Le lendemain, il improvise à la tribune une de ses apostrophes
-les plus éloquentes: « Périssent les colonies!.. » Interrompu vio-
-lemment, il poursuit sans se troubler: « Oui, périssent les colonies,;
+les plus éloquentes: « Périssent les colonies!.. » Interrompu violemment, il poursuit sans se troubler: « Oui, périssent les colonies,;
 s'il doit vous en coûter voire honneur, votre gloire, votre liberté!
 Je le répète: Périssent les colonies, si les colons veulent par les À
 menaces nous forcer à décréter ce qui convient le plus à leurs à
 intérêts. Je déclare, au nom de l'Assemblée {se reprenant), au nom )
-de ceux des membres de cette Assemblée qui ne veulent pas ren-
-verser la Constitution, je déclare, au nom de la Nation qui veut être À
+de ceux des membres de cette Assemblée qui ne veulent pas renverser la Constitution, je déclare, au nom de la Nation qui veut être À
 libre, que nous ne sacrifierons pas aux députés des colonies qui
 n'ont pas défendu leurs commettants comme M. Monneron; je
 déclare, dis-je, que nous ne leur sacrifierons ni la Nation ni les colonies, ni l'humanité tout entière. » On voit quelle est l'origine de la:
@@ -2839,11 +2728,7 @@ peuple, n'a été qu'un individu d'intelligence médiocre.
 
 D'autres, — nominasunt odiosa, — séduisent les peuples
 
-par le génie de la force brutale; Robespierre s'impo-
-
-sait à l'amour des masses par l'énergie de son carac-
-
-tère, par l'ascendant de ses vertus, par la grandeur de
+par le génie de la force brutale; Robespierre s'imposait à l'amour des masses par l'énergie de son caractère, par l'ascendant de ses vertus, par la grandeur de
 
 ses talents, par son incorruptibilité. Jamais il n'a
 
@@ -2885,15 +2770,11 @@ pas, trait pour trait, en sa première chasteté morale de constituant,
 
 l'avocat d'Arras, l'incorruptible Robespierre (nous sommes en 1790),
 
-avec sa vertu, son désintéressement, son passé provincial et labo-
-
-toujours fidèle à ces principes immortels. Même plus
-tard, au moment où il ne s'agissait plus, pour la Révo-
-lution, que de vaincre ou de mourir, quand on fut
+avec sa vertu, son désintéressement, son passé provincial et labotoujours fidèle à ces principes immortels. Même plus
+tard, au moment où il ne s'agissait plus, pour la Révolution, que de vaincre ou de mourir, quand on fut
 obligé de recourir à des mesures sévères pour sauver
 la patrie, déchirée à l'intérieur par les partis, menacée
-et attaquée sur toutes les frontières par les rois coali-
-sés, Robespierre resta cependant toujours l'idéal d'un
+et attaquée sur toutes les frontières par les rois coalisés, Robespierre resta cependant toujours l'idéal d'un
 homme d'ordre qui sait que, sans l'ordre, la liberté n'est:
 : qu'une fiction, et qui s'efforce de se tenir à une même
 distance de ces deux écueils également dangereux: la À
@@ -2901,13 +2782,11 @@ contre-révolution, et l'exagération révolutionnaire. (1)
 
 (1) En ce qui touche spécialement le rôle de Robespierre à la
 Constituante, nous ne croyons pouvoir mieux terminer cette;
-deuxième partie que par le jugement de M. Aulard, que l'on n'accu-
-sera pas, certes, de partialité en faveur de Robespierre:
+deuxième partie que par le jugement de M. Aulard, que l'on n'accusera pas, certes, de partialité en faveur de Robespierre:
 
 « Dans la Constituante, il renonça à toute influence présente ou
 prochaine. Il se fit l'homme des principes, « l'homme de l'avenir ».
-comprit, presque seul, que la Révolution ne faisait que com-
-mencer, qu'elle useraïit et rejetterait ses premiers instruments. Son
+comprit, presque seul, que la Révolution ne faisait que commencer, qu'elle useraïit et rejetterait ses premiers instruments. Son
 souci fut de se réserver, intact et fort, pour les luttes terribles
 auxquelles on ne faisait que préluder. Dès l'origine il rompt avec
 les constitutionnels et les triumvirs (Duport, Lameth, Barnave).
@@ -2956,20 +2835,15 @@ législateurs était frappante: dans l'élection du bureau
 provisoire, on put constater qu'il n'y avait pas moins de
 soixante membres au-dessous de vingt-six ans.
 
-Ensuite, la position des partis se trouvait complète-
-
-ment changée. Les constitutionnels, qui formaient la
+Ensuite, la position des partis se trouvait complètement changée. Les constitutionnels, qui formaient la
 gauche dans l'Assemblée nationale, composaient la
 droite dans la Législative, au nombre d'environ cent
 vingt membres. En face d'eux, et d'une force double à
-peu près, se tenaient les novateurs ou réformistes, com-
-
-posés surtout des représentants de la Gironde et de la
+peu près, se tenaient les novateurs ou réformistes, composés surtout des représentants de la Gironde et de la
 ville de Paris, qui devaient former plus tard dans la
 Convention, les premiers, le noyau du parti de la
 Gironde, les seconds, du parti de la Montagne ou des
-Jacobins. Mais, dans l'Assemblée législative, ils mar-
-chaient encore ensemble et cherchaient en commun À
+Jacobins. Mais, dans l'Assemblée législative, ils marchaient encore ensemble et cherchaient en commun À
 leurs inspirations dans le club des Jacobins. Au milieu,
 se trouvaient les timides ou le ventre qui, comme dans
 toutes les assemblées, formaient l'appoint de la majo-
@@ -2983,13 +2857,11 @@ comme spectateurs, assister aux séances en se permet- à
 tant d'influer sur les votes. Et il partit pour Arras, libre
 de tout souci, désireux seulement de revoir sa ville À
 natale après une absence de plus de deux années. (2)
-Son frère et sa sœur, accompagnés de madame Buis-
-sart, la femme de son ami, étaient venus à sa rencontre
+Son frère et sa sœur, accompagnés de madame Buissart, la femme de son ami, étaient venus à sa rencontre
 jusqu'à Bapaume. La garde nationale de cette ville,
 ainsi que les volontaires de Paris, — dont il constata
 avec une profonde tristesse le mauvais armement, — lui À
-offrirent une couronne civique; et les autorités muni-
-cipales donnèrent un banquet en son honneur. À
+offrirent une couronne civique; et les autorités municipales donnèrent un banquet en son honneur. À
 Il déclara aux Jacobins qu'elle lui semblait bien supérieure à À
 l'Assemblée précédente. — Note du traducteur.
 (2) La veille du départ de Robespierre, une députation du fau- à
@@ -2999,8 +2871,7 @@ si bien défendu les droits du peuple pendant toute la Constituante.
 
 : A partir de Bapaume, le voyage fut un véritable
 triomphe. A sonentrée, Arras était illuminée. On voulut
-À dételer ses chevaux pourtraîner la voiture, mais Robes-
-pierre descendit aussitôt et se rendit à pied à la maison
+À dételer ses chevaux pourtraîner la voiture, mais Robespierre descendit aussitôt et se rendit à pied à la maison
 — de son frère et de sa sœur, accompagné des mille cris
 de: « Vive le défenseur du peuple! » Le jour suivant,
 « la garde nationale de l'Oise vint lui apporter ses ova-
@@ -3033,18 +2904,14 @@ mort pour tous ceux qui se trouveraient encore à la fin
 de l'année dans l'armée des émigrés; (1) et une longue
 détention pour les ecclésiastiques qui provoqueraient,
 
-; par la parole ou par la plume, au mépris de la Consti-
-tution. (2) Nous avons déjà appris à connaître Robes-
-pierre, dans l'Assemblée nationale, comme l'ennemi le
+; par la parole ou par la plume, au mépris de la Constitution. (2) Nous avons déjà appris à connaître Robespierre, dans l'Assemblée nationale, comme l'ennemi le
 plus déclaré de toute loi d'exception. Aussi, lorsqu'un
 journal girondin, La Chronique de Paris, voulut s'ap-;
 puyer, pour ces mesures violentes contre les prêtres, sur.
 une prétendue lettre de Robespierre, celui-ci protesta,
-le 6 novembre, par un écrit adressé au club des Jaco-
-bins d'Arras. Cet acte lui attira l'inimitié de la feuille
+le 6 novembre, par un écrit adressé au club des Jacobins d'Arras. Cet acte lui attira l'inimitié de la feuille
 girondine, qui, dès lors, pour le ridiculiser, ne l'appela
-plus autrement que « le prêtre alors que, peu aupa-
-ravant, elle avait encore déclaré toute naturelle, et
+plus autrement que « le prêtre alors que, peu auparavant, elle avait encore déclaré toute naturelle, et
 louable au plus haut degré, une ovation faite à Robespierre à l'occasion d'une visite de ce dernier chez une
 amie de sa sœur, à Béthune. Brissot, lui aussi, était
 encore prodigue d'éloges pour Robespierre dans son
@@ -3060,8 +2927,7 @@ Décret du 9 novembre 1791. — Note du traducteur.
 « Séance du lundi 28 novembre 1791. Présidence de M. Coure Robespierre entre au milieu des plus vifs applaudissements.
 M. Collot d'Herbois, qui occupait le fauteuit comme vice-président,
 
-Les débats sur la guerre venaient justement de com-
-mencer dans l'Assemblée législative. Tout le monde
+Les débats sur la guerre venaient justement de commencer dans l'Assemblée législative. Tout le monde
 désirait cette guerre, mais pour des motifs bien diffé- -
 rents; seul, Robespierre y était opposé, comme il le fut
 demande que ce membre de l'Assemblée constituante, justement
@@ -3109,8 +2975,7 @@ politiques. Quand on aime profondément la justice et l'humanité,
 on sent vivement les droits des hommes et des citoyens; on les
 
 toujours. Le roi la voulait, mais venant des puissances
-étrangères sans qu'il parût les appuyer; les constitu-
-tionnels, avec le ministre Narbonne à leur tête, dési- À
+étrangères sans qu'il parût les appuyer; les constitutionnels, avec le ministre Narbonne à leur tête, dési- À
 raient une guerre contre les petits princes allemands du
 défend avec courage. On a déjà une grande disposition à distinguer
 les procédés de la franche probité, le langage pur de la raison et
@@ -3121,8 +2986,7 @@ que vous aurez à éviter. Quelques règles très simples vous aideront:
 à les deviner. Tenez-vous d'abord en garde contre des apparences
 trompeuses. Les ennemis et les amis de la liberté, dans les circon- )
 stances où nous sommes, se présenteront à vous avec les mêmes À
-dehors, et vous parleront le même langage, avec cette seule diffé-
-rence, peut-être, que les premiers tiendront de leur ancien genre
+dehors, et vous parleront le même langage, avec cette seule différence, peut-être, que les premiers tiendront de leur ancien genre
 de vie et des vices mêmes de l'éducation le talent d'attirer votre
 confiance par des paroles insinuantes et par des manières plus
 aimables. Pour vous défendre de toute surprise, remontez au delà à
@@ -3131,8 +2995,7 @@ habitudes et leur conduite avant la Révolution. L'homme ne se à
 détache pas tout à coup des avantages qui pouvaient flatter son
 orgueil, de tous les préjugés qui ont dirigé toute sa vie. Que cette
 raison-là seule ne soit cependant pas, contre ceux que nous vous
-désignons, une raison absolue d'exclusion; qu'elle vous engage seu-
-lement à exiger d'eux des preuves constantes d'un amour sincère à
+désignons, une raison absolue d'exclusion; qu'elle vous engage seulement à exiger d'eux des preuves constantes d'un amour sincère à
 pour l'égalité, d'un respect religieux pour les droits du peuple et
 pour l'infortune. Si, une fois dans sa vie, un homme s'est montré
 lâche ou impitoyable, dans quelque condition qu'il ait vécu, ne
@@ -3154,9 +3017,7 @@ dominés par l'ascendant d'une âme fière, courageuse et sensible, a
 ont repoussé la fortune, bravé les tracasseries des petites cabales
 ou les persécutions d'un gouvernement tyrannique, pour adorer la:
 
-Rhin et les émigrés de Coblentz; les Girondins aspi-
-
-raient à une guerre générale qui servit à la propagation
+Rhin et les émigrés de Coblentz; les Girondins aspiraient à une guerre générale qui servit à la propagation
 de leurs idées en Europe. (1)
 
 Robespierre seul reconnut le danger immense pour
@@ -3302,9 +3163,7 @@ lavoir endormi un instant, l'ont enchaîné pour des siècles.
 lui, et surtout de la haine de Louvet qui se trouva tout
 particulièrement blessé, lui, le parlementaire exercé, À
 de se voir retirer la parole, aux Jacobins, sur la propo-;
-sition de Robespierre, et à cause d'expressions incor-
-rectes dont il s'était servi. Le comité de correspon-
-dance, qui se composait presque entièrement de.
+sition de Robespierre, et à cause d'expressions incorrectes dont il s'était servi. Le comité de correspondance, qui se composait presque entièrement de.
 Le peuple est là; mais vous, représentants, n'y êtes-vous pas
 aussi? Et qu'y faites-vous si, au lieu de prévoir et de déconcerter
 les projets de ses oppresseurs, vous ne savez que l'abandonner au
@@ -3314,16 +3173,14 @@ Robespierre terminait par des paroles graves et fermes
 « Ne nous dites donc plus que la nation veut la guerre. La
 nation veut que les efforts défendent ses intérêts; la guerre est, à
 ses yeux, un reméde extrême dont elle désire d'être dispensée; à
-c'est à vous d'éclairer l'opinion publique, et il suffit de lui pré-
-senter la vérité et l'intérêt général pour les faire triompher. La “4
+c'est à vous d'éclairer l'opinion publique, et il suffit de lui présenter la vérité et l'intérêt général pour les faire triompher. La “4
 grandeur d'un représentant du peuple n'est pas de caresser À
 l'opinion momentanée qu'excitent les intrigues des gouvernements, mais que combat la raison sévère, et que de longues cala- À
 mités démentent. Elle consiste quelquefois à lutter seul, avec sa;
 conscience, contre le torrent des préjugés et des factions. Il doit
 confier le bonheur public à la sagesse, le sien à sa vertu, sa gloire à
 aux honnêtes gens et à la postérité.
-« Au reste, nous touchons à une crise décisive pour notre Révo-
-lution.. Malheur à ceux qui, dans cette circonstance, n'immoleront À
+« Au reste, nous touchons à une crise décisive pour notre Révolution.. Malheur à ceux qui, dans cette circonstance, n'immoleront À
 pas au salut public l'esprit de parti, leurs passions et leurs préjugés
 même. J'ai voulu payer aujourd'hui à ma patrie la dernière dette
 peut-être que j'avais contractée avec elle. Je n'espère pas que mes
@@ -3333,11 +3190,9 @@ même, une consolation me restera: je pourrai attester à mon pays à
 que je n'aurai point contribué à sa ruine. »
 Brissot répliqua par un discours dans lequel il reprocha à Ro-
 bespierre d'avoir avili le peuple en doutant des progrès de la,
-liberté; d'avoir calomnié Narbonne; — celui-ci avoua plus tard lui-
-même qu'il avait songé uniquement à former une armée pour “4
+liberté; d'avoir calomnié Narbonne; — celui-ci avoua plus tard luimême qu'il avait songé uniquement à former une armée pour “4
 appuyer le roi; — de s'être laissé aller à des craintes chimériques
-tirées de l'exemple de César; — l'avenir donna trop raison à Robes-
-pierre; — Brissot eut le tort, en outre, de s'abaisser à des person-
+tirées de l'exemple de César; — l'avenir donna trop raison à Robespierre; — Brissot eut le tort, en outre, de s'abaisser à des person-
 Robespierre répondit par son grand discours du 2 janvier 1792,
 discours d'une logique nerveuse et pressante, d'une éloquence
 
@@ -3457,8 +3312,7 @@ Et Robespierre termina par quelques sages conseils sur les périls
 du gouvernement représentatif et par l'apologie des œuvres de la
 
 On a dit qu'il haïssaïit la guerre par timidité d'homme d'étude et
-par lâcheté naturelle de tempérament. D'autres estimeront peut-
-être, et avec plus de justesse, que Robespierre montra en cette circonstance un courage civique admirable. — Les citations sont
+par lâcheté naturelle de tempérament. D'autres estimeront peutêtre, et avec plus de justesse, que Robespierre montra en cette circonstance un courage civique admirable. — Les citations sont
 empruntées: pour le discours du 2 janvier, à la publication spéciale
 qu'en fit la Société des Jacobins; pour les autres discours, au
 journal du club. — Note du traducteur.
@@ -3487,8 +3341,7 @@ l'univers oscille encore aujourd'hui; la philosophie du
 sentiment, qui rapproche, et la philosophie de la raison
 pure, qui isole, Jean-Jacques Rousseau et Voltaire. (1)
 Cependant, il ne faut pas transformer Robespierre en un!
-apôtre du sentiment pur. Son génie est tout abstrait, tout rationaliste; et nous avons Duport lui reprocher de tenir sans inter-
-ruption une chaire de droit naturel. Le sentiment n'est, pour
+apôtre du sentiment pur. Son génie est tout abstrait, tout rationaliste; et nous avons Duport lui reprocher de tenir sans interruption une chaire de droit naturel. Le sentiment n'est, pour
 Robespierre, que l'efflorescence de l'idée. C'est que l'individualisme
 ne découle pas nécessairement des principes de la raison pure. La
 raison, étant commune à tous les hommes, peut les rapprocher dans
@@ -3513,9 +3366,7 @@ qu'une occasion favorable pour l'humilier. Tandis que
 Robespierre demandait l'égalité pour tous et visait à
 unir avec la grande masse, pour former un peuple libre,
 la minorité des hommes qui possèdent, et les biens de
-la fortune, et les biens intellectuels. Les Girondins voulaient aussi le triomphe de la Révolution, mais ils joi-
-
-gnaient à l'amour de la patrie des mobiles égoïstes, et
+la fortune, et les biens intellectuels. Les Girondins voulaient aussi le triomphe de la Révolution, mais ils joignaient à l'amour de la patrie des mobiles égoïstes, et
 ne reculaient pas, pour atteindre leur but, devant des
 compromis avec les constitutionnels et avec la cour,
 toutes choses qui inspiraient à Robespierre une véritable horreur.
@@ -3531,9 +3382,7 @@ Chez Robespierre, comme chez Kant, la déduction des principes
 est toute rationnelle, a priori. Chez tous les deux, il y a une république des esprits intelligents et libres, des « fins en soi ». Rousseau lui-même n'avait-il pas subi l'influence de Descartes? et le
 Contrat social n'est-il pas le type, en sociologie, de cette méthode
 que Stuart-Mill appellera la « méthode mathématique et qu'il
-fort au nom de l'empirisme anglais? — Note du traduc-
-
-aux délibérations. Nous retrouverons en lui l'homme
+fort au nom de l'empirisme anglais? — Note du traducaux délibérations. Nous retrouverons en lui l'homme
 de la légalité et aussi le combattant infatigable pour
 les droits du peuple. Il se prononça nettement contre
 toute recommandation de candidats aux élections municipales, de la part des Jacobins, parce qu'on doit, en
@@ -3550,30 +3399,25 @@ population sur la guerre et de conférer la dictatureà
 l'Assemblée législative. (1)
 En opposition avec les déclamations violentes d'un
 Isnard et d'un Guadet, il voyait les meilleurs moyens
-de sauver la patrie dans les mesures suivantes: licenciement et remplacement de tous les officiers; réinté-
-gration des soldats et des sous-officiers chassés de
+de sauver la patrie dans les mesures suivantes: licenciement et remplacement de tous les officiers; réintégration des soldats et des sous-officiers chassés de
 l'armée pour leurs opinions libérales; armement de
 . toute la nation sans aucune distinction; rétablissement
 des sections, (2) pour la surveillance et le contrôle des
 (1) Ici, comme en toute occasion, comme pour l'appel au peuple À
-dans le procès du roi, comme pour l'organisation du conseil exé-
-cutif dans la Constitution de 1793, Robespierre est nettement opposé
+dans le procès du roi, comme pour l'organisation du conseil exécutif dans la Constitution de 1793, Robespierre est nettement opposé
 aux tendances plébiscitaires, dont il entrevoyait les dangers. Nous
 préciserons plus loin son attitude sur ce point, mais il y avait dès À
 maintenant un trait à relever. — Note du traducteur.
-(2) L'Assemblée constituante avait, malgré un discours de Robes-
-pierre, interdit les assemblées permanentes de sections. Robespierre
+(2) L'Assemblée constituante avait, malgré un discours de Robespierre, interdit les assemblées permanentes de sections. Robespierre
 
 - autorités; confédération civique fraternelle de toutes
 les gardes nationales de la France; répression des
 troubles à l'intérieur par le châtiment sévère des insti-
 - gateurs de l'émeute d'Avignon; transfert à Paris de la
 Haute-Cour nationale; châtiment de tous les membres
-contre-révolutionnaires des Assemblées départemen__ tales et même de l'Assemblée législative; (1) suspen-
-sion de la loi martiale et de la loi contre les offenses
+contre-révolutionnaires des Assemblées départemen__ tales et même de l'Assemblée législative; (1) suspension de la loi martiale et de la loi contre les offenses
 à aux fonctionnaires; mise en accusation du ministère et
-À surveillance attentive sur les actes des nouveaux mi-
-nistres, — qu'il préférait d'ailleurs ne pas voir choisir À
+À surveillance attentive sur les actes des nouveaux ministres, — qu'il préférait d'ailleurs ne pas voir choisir À
 … parmi les Jacobins, car il n'aurait pas plus de confiance,
 pour cela, dans le patriotisme de la Cour, mais il en
 - aurait moins dans les vertus des élus; (2) — publicité
@@ -3593,8 +3437,7 @@ de (1) Sur ce dernier point, il y a erreur du docteur Brunnemann.
 Robespierre demandait exclusivement la mise en accusation du.
 ï ministère et non pas des députés. — Note du traducteur.
 ï (2) Mirabeau avait déjà conseillé au roi de se choisir des ministres
-- parmi les Jacobins, « car des Jacobins ministres ne sont pas tou-
-jours des ministres jacobins, » disait-il avec cynisme. Mirabeau et
+- parmi les Jacobins, « car des Jacobins ministres ne sont pas toujours des ministres jacobins, » disait-il avec cynisme. Mirabeau et
 … Robespierre savaient que les renégats de la cause populaire en
 deviennent ensuite les ennemis les plus acharnés, — Note du traducoteur.
 
@@ -3668,12 +3511,10 @@ guerre n'était qu'un piège éternel de la cour. L'histoire a confirmé
 pleinement, depuis, le point de vue de Robespierre. « Nous savons
 aujourd'hui que le roi et reine trahissaient la France. En effet,
 ils faisaient désavouer par un agent secret auprès de la cour de
-Vienne la diplomatie officielle du gouvernement français, dévoi-
-laient les plans de campagne arrêtés en conseil des ministres, et
+Vienne la diplomatie officielle du gouvernement français, dévoilaient les plans de campagne arrêtés en conseil des ministres, et
 demandaient surtout que l'Europe vint en armes les secourir. Mais
 on ignorait alors cette duplicité qui n'était guère soupçonnée que
-par Robespierre et par Marat. » — MM. Lavisse et Rambaud, — Histoire générale, du quatrième siècle à nos jours, tome VIII, la Révolu-
-tion, page 132. — Note du traducteur.
+par Robespierre et par Marat. » — MM. Lavisse et Rambaud, — Histoire générale, du quatrième siècle à nos jours, tome VIII, la Révolution, page 132. — Note du traducteur.
 1 (1) Il ne faut pas confondre, comme on le fait généralement, le
 mode d'élection des tribunaux criminels de ce temps avec celui du
 
@@ -3696,8 +3537,7 @@ que je serais l'implacable ennemi des aristocrates. Ils
 se sont trompés. Comme citoyen, le mot d'aristocrate,
 dès longtemps, ne signifie plus rien pour moi; jene
 connais plus que les bons et les mauvais citoyens;
-comme magistrat du peuple, je ne connais ni aristo-
-crates, ni patriotes, ni modérés; je ne connais quedes
+comme magistrat du peuple, je ne connais ni aristocrates, ni patriotes, ni modérés; je ne connais quedes
 hommes, des citoyens accusés; je me rappelle que je
 ne suis que le vengeur du crime et l'appui de l'innocence.
 Le jour le plus heureux de ma vie serait celui où je
@@ -3727,20 +3567,18 @@ républicain; je sais que dans les républiques se sont
 nobles et généreux; mais je crois qu'il nous convient
 dans ce moment de proclamer bien haut que nous
 sommes les amis décidés de la Constitution, jusqu'à
-ce que la volonté générale, éclairée par une mûre expé-
-rience, déclare qu'elle aspire à un bonheur plus grand.
+ce que la volonté générale, éclairée par une mûre expérience, déclare qu'elle aspire à un bonheur plus grand.
 Je déclare, moi, et je le fais au nom de la Société, qui
 ne me démentira pas, que je préfère l'individu que le
 hasard, la naissance, les circonstances nous ont donné
 , pour roi à tous les rois qu'on voudrait nous donner
 : (1) Robespierre devait plus tard montrer dans l'affaire des
-73 Girondins protestataires du 31 mai, que les paroles que nous
+Girondins protestataires du 31 mai, que les paroles que nous
 1 avons transcrites étaient pour lui une vérité. — Note du traducteur,
 (2) Le même qui lança plus tard le fameux manifeste. Le duc de
 Brunswick ne publia d'ailleurs ce manifeste que sous la pression du
 roi de Prusse. Cette pièce avait été rédigée par Mallet du Pan et
-corrigée par Louis XVI qui avait ajouté de sa main l'article mena-
-çant Paris d'une subversion totale. — Note du traducteur.
+corrigée par Louis XVI qui avait ajouté de sa main l'article menaçant Paris d'une subversion totale. — Note du traducteur.
 
 et il fit entendre ces paroles dans une autre occasion:
 « J'aime mieux voir une assemblée représentative populaire et des citoyens libres et respectés avec un roi,
@@ -3764,15 +3602,14 @@ Lorsque la famille royale s'associa pour une somme
 : de deux cents livres à la collecte faite au bénéfice des
 soldats de Châteauvieux, et que Danton voulut voir
 (1) On voit quel est le sens de ces fameuses déclarations « monarchiques » tant reprochées à Robespierre. Elles ne témoignent que
-d'un grand amour de la légalité et de la véritable liberté. Robes-
-pierre appelle déjà la république « un bonheur plus grand » et
+d'un grand amour de la légalité et de la véritable liberté. Robespierre appelle déjà la république « un bonheur plus grand » et
 souhaite la voir sortir de « la volonté générale, éclairée par une
 müre expérience ». Il parle des vertus républicaines avec un
 enthousiasme qui révèle des sympathies secrètes. Mais Robespierre n'était pas de ces brouillons qui bâtissent dans les nuages ou
 sur le sable. Et il préparait la république au lieu d'en parler seulement. Il la préparait en provoquant des institutions destinées à
 la faire pénétrer dans nos mœurs. Et quel autre que Robespierre
 à cette époque, — si ce n'est peut-être l'abbé Fauchet, — parlait du
-« grand problème social »? Qui donc s'en souciait? — Note du traducteur.:
+« grand problème social Qui donc s'en souciait? — Note du traducteur.:
 
 4 refuser cette offrande comme offensante pour les victimes de Bouillé, Robespierre s'exprima ainsi: « Tout
 ceci ne regarde pas la Société; (1) elle n'est que la
@@ -3782,12 +3619,9 @@ dépositaire des sommes qu'on remet entre ses mains.
 - C'est aux infortunés de pourvoir, par tous les moyens
 
 possibles, à leur soulagement; c'est à eux à recueillir
-les bienfaits de l'humanité: nous ne sommes que dépo-
-
-sitaires. Il y a quelque chose de vrai et de généreux
+les bienfaits de l'humanité: nous ne sommes que dépositaires. Il y a quelque chose de vrai et de généreux
 dans les observations de M. Danton, et ces observations ne sont pas indignes de son patriotisme. Mais il y
-a plus de raisons de ne pas nous occuper de ces circonstances; nous devons nous occuper des grands inté-
-rêts de la chose publique. Ce que la famille royale fait
+a plus de raisons de ne pas nous occuper de ces circonstances; nous devons nous occuper des grands intérêts de la chose publique. Ce que la famille royale fait
 comme individu ne nous regarde pas. Si, comme fonctionnaires publics (sic), elle fait du bien, nous la bénirons; si elle ne le fait pas, nous lui représenterons les
 droits du peuple et nous les défendrons contre elle. »
 
@@ -3809,11 +3643,9 @@ dans son discours; il faut seulement qu'il soit bien défendu. C'est
 le dégrader que de eroire qu'il est sensible à des marques exté-
 
 Dumouriez au club des Jacobins, lorsqu'un assistant
-couvrit d'un bonnet rouge la tête de Robespierre, celui-
-jeta, indigné, sur le sol, l'emblème cher aux Giron-
+couvrit d'un bonnet rouge la tête de Robespierre, celuijeta, indigné, sur le sol, l'emblème cher aux Giron-
 
-Du reste, il n'avait pas plus confiance dans le minis-
-tère girondin, auquel le roi avaitété obligé de recourir
+Du reste, il n'avait pas plus confiance dans le ministère girondin, auquel le roi avaitété obligé de recourir
 le 23 mars, que dans le ministère précédent, composé
 de Constitutionnels et de Feuillants: « Ils paraissent
 aimer la Constitution; mais, par bonheur, les destinées
@@ -3830,11 +3662,9 @@ donne aux principes de la liberté et aux actes des mandataires
 ristique. Les Jacobins, enivrés par la présence d'un ministre, “4
 ayant voté l'impression de son discours et chassé de la tribune
 Legendre qui s'opposait à celte mesure, Robespierre prit hautement:
-la défense du citoyen honni pour ses convictions. Voici quelques pas-
-sages de son discours: «.… Je ne suis point de ceux qui croient qu'il
+la défense du citoyen honni pour ses convictions. Voici quelques passages de son discours: «.… Je ne suis point de ceux qui croient qu'il
 est absolument impossible qu'un ministre soit patriote et même
-j'accepte avec plaisir les présages heureux que nous offre M. Dumou-
-riez. Quand il aura rempli ces présages, quand il aura dissipé les °4
+j'accepte avec plaisir les présages heureux que nous offre M. Dumouriez. Quand il aura rempli ces présages, quand il aura dissipé les °4
 ennemis armés contre nous par ses prédécesseurs, et les conjurés
 qui dirigent notre gouvernement, malgré l'expulsion de quelques
 ministres, alors, seulement alors, je serai disposé à lui décerrer
@@ -3875,17 +3705,13 @@ J'avoue que, ne voyant aucun sens à cette idée, je n'aurais jamais pensé qu'u
 tant de courage, pendant trois ans, pour tirer le peuple
 de l'esclavage du despotisme, pût concourir à le
 remettre ensuite sous l'esclavage de la superstition. »
-Robespierre répondit avec plus de feu que d'habi-
-tude: « La première objection porte sur ce que j'aurais
-commis la faute d'induire les citoyens dans la superstition, après avoir combattu le despotisme. La supersti-
-
-tion, il est vrai, est des appuis du despotisme, mais
+Robespierre répondit avec plus de feu que d'habitude: « La première objection porte sur ce que j'aurais
+commis la faute d'induire les citoyens dans la superstition, après avoir combattu le despotisme. La superstition, il est vrai, est des appuis du despotisme, mais
 ce n'est pas induire les citoyens dans la superstition
 que de prononcer le nom de la Divinité. J'abhorre,
 autant que personne, toutes ces sectes impies qui se
 sont répandues dans l'univers pour favoriser l'ambi-.
-tion, le fanatisme et toutes les passions, en se cou-
-vrant du pouvoir sacré de l'Éternel, qui a créé la
+tion, le fanatisme et toutes les passions, en se couvrant du pouvoir sacré de l'Éternel, qui a créé la
 nature et l'humanité; mais je suis bien loin de le con-;
 fondre avec ces imbéciles dont le despotisme s'est
 armé. Je soutiens, moi, ces éternels principes sur lesquels s'étaye la faiblesse humaine pour s'élancer à la:
@@ -3911,8 +3737,7 @@ attaché sous ce rapport à l'adresse présentée à la
 une idée de l'Étre éternel qui influe essentiellement sur
 
 4 les destins des nations, qui me paraît à moi veiller
-. d'une manière toute particulière sur la Révolution fran-
-çaise, n'est point une idée trop hasardée, mais un
+. d'une manière toute particulière sur la Révolution française, n'est point une idée trop hasardée, mais un
 à sentiment de mon cœur, qui m'est nécessaire. Et
 comment ne me serait-il pas nécessaire, à moi qui,
 livré dans l'Assemblée constituante à toutes les passions et à toutes les viles intrigues, et environné de
@@ -3979,9 +3804,7 @@ Lorsque le président, qui était l'archevêque de Paris,
 
 voulut résumer les opinions des orateurs avant de faire
 passer au vote, un Girondin, Santhonax, essaya de
-mettre les rieurs de son côté en interrompant le prési-
-
-dent par ces mots: « Pas de capucinade, monsieur le
+mettre les rieurs de son côté en interrompant le président par ces mots: « Pas de capucinade, monsieur le
 
 ; président! » Et les Girondins ne rougirent pas de le
 récompenser de cet acte héroïque par une mission de
@@ -4137,7 +3960,7 @@ veut accaparer toute réputation afin de dominer
 « flatteur du peuple « tyran des opprimés homme
 « qui distille le poison de la défiance « bavard
 É « intrigant « insensé « furieux « patriote crite « Jupiter denuntiator « Masaniello tels sont
-;; quelques échantillons des gentillesses par lesquelles
+quelques échantillons des gentillesses par lesquelles
 les Girondins cherchaient à ébranler la popularité
 à toujours croissante de Robespierre; ils allèrent même, —
 ; risum teneatis, — jusqu'à l'accuser d'être payé par la
@@ -4159,9 +3982,7 @@ Expression d'un homme qui a Robespierre de très près, qui
 a été son médecin et son ami, Souberbielle. — Les calomnies lancées contre Robespierre, particulièrement l'accusation d'être à la
 solde de l'étranger et d'avoir des entrevues secrètes avec la reine
 et le « comité autrichien lui attirèrent plusieurs tentatives d'assassinat. Mais des amis courageux résolurent de veiller de loin sur
-ses jours: de ce nombre était un ouvrier typographe, nommé Nji-
-
-colas, — plus tard imprimeur du tribunal révolutionnaire, — qui,
+ses jours: de ce nombre était un ouvrier typographe, nommé Njicolas, — plus tard imprimeur du tribunal révolutionnaire, — qui,
 sans être d'abord connu personnellement de Robespierre et à l'insu
 
 Du côté de Robespierre ou plutôt « pour la cause du
@@ -4193,22 +4014,16 @@ porter mes plaintes à d'autre tribunal qu'à celui de l'opinion
 publique; mais il est juste au moins que je rende un hommage à
 ce tribunal vraiment souverain, en répondant devant lui à mes:
 adversaires. Je le dois d'autant plus que, dans les temps où nous
-sommes, ces sortes d'attaques sont moins dirigées contre les per-
-sonnes que contre les principes qu'elles défendent. Chef de parti,
+sommes, ces sortes d'attaques sont moins dirigées contre les personnes que contre les principes qu'elles défendent. Chef de parti,
 agitateur du peuple, agent du comité autrichien, payé ou tout au #4
 moins égaré, si l''absurdité de ces inculpations me défend de les De
 réfuter, leur nature, l'influence et le caractère de leurs auteurs
 méritent au moins une réponse. »
 . À Brissot, qui lui demandait hautainement ce qu'il avait fait “4
-dans la Révolution pour oser censurer les autres, Robespierre ré-
-pondit sans affecter une fausse modestie, mais avec l'assurance À
+dans la Révolution pour oser censurer les autres, Robespierre répondit sans affecter une fausse modestie, mais avec l'assurance À
 fière de l'homme qui a rempli son devoir: « Jamais personne ne à
 m''accusa d'avoir exercé un métier lâche, ni flétri mon nom par des
-liaisons honteuses, ou par des procès scandaleux, mais on m'ac-
-cusa de défendre, avec trop de chaleur, la cause des faibles oppri-
-més contre les oppresseurs puissants; on m'aceusa, avec juste rai-
-
-peuple, de l'égalité, de la Constitution qu'on attaque en
+liaisons honteuses, ou par des procès scandaleux, mais on m'accusa de défendre, avec trop de chaleur, la cause des faibles opprimés contre les oppresseurs puissants; on m'aceusa, avec juste raipeuple, de l'égalité, de la Constitution qu'on attaque en
 -
 son, d'avoir violé le respect aux tribunaux tyranniques de
 l'ancien régime, pour les forcer à être justes, par pudeur; d'avoir
@@ -4258,8 +4073,7 @@ n'ai plus affaire au peuple, à des hommes simples et purs, mais à
 à une assemblée particulière, agitée par mille passions diverses, à
 ‘des courtisans ambitieux, habiles dans l'art de tromper, qui,
 cachés sous le masque du patriotisme, se réunissaient souvent aux
-phalanges aristocratiques pour étouffer ma voix. Je ne pouvais pré-
-tendre qu'au succès qu'obtiennent le courage et la fidélité à des
+phalanges aristocratiques pour étouffer ma voix. Je ne pouvais prétendre qu'au succès qu'obtiennent le courage et la fidélité à des
 devoirs rigoureux; il n'était point en moi de rechercher ceux de
 l'intrigue et de la corruption; j'aurais rougi de sacrifier des prin- à
 cipes sacrés au frivole honneur d'attacher mon nom à un grand 27%
@@ -4267,16 +4081,14 @@ nombre de lois. Ne pouvant faire adopter beaucoup de décrets
 favorables à la liberté, j'en ai repoussé beaucoup de désastreux;
 j'ai forcé du moins la tyrannie à parcourir un long circuit pour
 approcher du but fatal où elle tendait, j'ai mieux aimé souvent à
-exciter des murmures honorables, que d'obtenir de honteux applau-
-dissements; j'ai regardé comme un succès de faire retentir la voix?
+exciter des murmures honorables, que d'obtenir de honteux applaudissements; j'ai regardé comme un succès de faire retentir la voix?
 de la vérité, lors même que j'étais sûr de la voir repoussée; portant toujours mes regards au delà de l'étroite enceinte du sanc- A
 tuaire de la législation, mon but était surtout de me faire entendre
 de la nation et de l'humanité, je voulais réveiller sans cesse dans le À
 cœur des citoyens le sentiment de la dignité de l'homme, et ces
 principes éternels qui défendent les droits des peuples contre les
 erreurs ou contre les caprices du législateur même. Si c'est un sujet
-de reproche, comme vous le dites, de paraître souvent à la tri-
-bune; si Phocion et Aristide que vous citez ne servaient leur patrie
+de reproche, comme vous le dites, de paraître souvent à la tribune; si Phocion et Aristide que vous citez ne servaient leur patrie
 que dans les camps et dans les tribunaux, je conviens que leur
 exemple me condamne, mais voilà mon excuse: quoi qu'il en soit
 d'Aristide et de Phocion, j'avoue encore que cet orgueil intraitable,
@@ -4287,12 +4099,10 @@ les dépouilles de la nation; que souvent redoutable aux tyrans et
 aux traîtres, il ne respecta jamais que la vérité, la faiblesse et l'in-
 Robespierre rappela qu'en demandant la non-réélection des #3
 membres de la Constituante, il avait lui-même introduit Brissot
-et Condorcet sur la scène politique. Brissot avait exhorté Robes-
-pierre au respect envers les Encyclopédistes, ses « maîtres en
+et Condorcet sur la scène politique. Brissot avait exhorté Robespierre au respect envers les Encyclopédistes, ses « maîtres en
 patriotisme et en liberté Robespierre répondit: « J'aurais cru,
 moi, que dans cet art, nous n'avions d'autres maîtres que la
-nature, » et il rappela que si ces « académiciens » et ces « géo-
-mètres » avaient « combattu et ridiculisé les prêtres ils n'en
+nature, » et il rappela que si ces « académiciens » et ces « géomètres » avaient « combattu et ridiculisé les prêtres ils n'en
 avaient pas moins « courtisé les grands et adoré les rois en
 tirant d'eux « un assez bon parti et persécuté Jean-Jacques, dont
 Robespierre fit un éloge émouvant. Et rappelant aussi le décret à
@@ -4304,9 +4114,7 @@ quatre ans du ministère les membres des diverses assemblées
 4 législatives: « Comment le délire de la haine a-t-il donc vous:
 aveugler au point d'imprimer dans vos petites feuilles, et de
 répandre partout dans vos petites coteries, et même dans les lieux
-publics, que celui qui provoqua ces deux décrets aspire au minis-
-
-tère, pour lui et ses amis; que je veux renverser les nouveaux
+publics, que celui qui provoqua ces deux décrets aspire au ministère, pour lui et ses amis; que je veux renverser les nouveaux
 ministres, pour m'élever sur leurs ruines. Je n'ai pas encore dit
 un seul mot contre les nouveaux ministres, il en est même
 parmi eux que je préférerais, quant à présent, à tout autre, et que;
@@ -4347,8 +4155,7 @@ l''abandonne; je l'abandonne à tous les esprits faibles et versatiles que l'imp
 Ami du peuple, quoique ce dernier sût fort bien qu'il
 n'était pas sympathique à Robespierre (1) et qu'il le
 connût personnellement si peu que, dans sa feuille, il
-écrivait toujours son nom Roberspierre. Maïs nous fati-
-répandent. J'aurai l'orgueil encore de préférer à leurs frivoles
+écrivait toujours son nom Roberspierre. Maïs nous fatirépandent. J'aurai l'orgueil encore de préférer à leurs frivoles
 applaudissements le suffrage de ma conscience et l'estime de tous
 les hommes vertueux et éclairés; appuyé sur elle et sur la vérité,
 j'attendrai le secours tardif du temps, qui doit venger l'humanité
@@ -4431,8 +4238,7 @@ lumières d'un sage sénateur l'intégrité d'un véritable homme de
 bien et le zèle d'un vrai patriote, mais qu'il manquait également
 
 et des vues et de l'audace d'un homme d'Etat. »
-Robespierre a rendu compte aussi de cette entrevue dans diffé-
-rents discours et en particulier dans sa réponse à Louvet, sous la
+Robespierre a rendu compte aussi de cette entrevue dans différents discours et en particulier dans sa réponse à Louvet, sous la
 
 ; Convention; « Ce fut au mois d'août 1791, que Marat vint me voir.
 
@@ -4445,8 +4251,7 @@ Le ministère girondin attendait tout salut d'un plan
 formé par Servan, qui était entré à la fin de mai dans
 le ministère avec le portefeuille de la guerre. Ce plan
 consistait à rassembler dans les environs de Paris;
-Jusque-là je n'avais avec lui aucune relation directe ou indi-
-recte. La conversation tomba sur les affaires publiques dont il me
+Jusque-là je n'avais avec lui aucune relation directe ou indirecte. La conversation tomba sur les affaires publiques dont il me
 parla avec désespoir. Je dis, moi, tout ce que les patriotes les plus
 extrêmes pensaient de lui, savoir qu'il était lui-même un obstacle
 au bien que pouvaient produire les vérités utiles développées
@@ -4584,8 +4389,7 @@ mis tout en œuvre pour arrêter votre marche; ceux qui vous
 auraient fait égorger s'ils l'avaient osé, vont se présenter à vous
 avec un air caressant. L'aristocratie et l'incivisme veulent, dit-on,
 
-et ce que nous appelons politique de juste mi-
-offrir la table de l'hospitalité et le baiser fraternel au patriotisme
+et ce que nous appelons politique de juste mioffrir la table de l'hospitalité et le baiser fraternel au patriotisme
 et à la liberté. Que l'honneur d'accueillir la vertu soit réservé à la
 ) vertu seule. Fuyez leurs perfides caresses, fuyez les tables opulentes À
 où l'on boit, dans des coupes d'or, le poison du modérantisme et À
@@ -4614,8 +4418,7 @@ oppresseurs du peuple.
 « L'heure fatale sonne. Marchons au champ de la Fédération.
 Voici l'autel de la patrie; voici le lieu où jadis les Français
 resserrèrent les liens de leur association politique. Reviennent-ils
-encenser de fausses divinités? De méprisables idoles viendront-
-elles encore se placer entre vous et la liberté, pour usurper le
+encenser de fausses divinités? De méprisables idoles viendrontelles encore se placer entre vous et la liberté, pour usurper le
 culte qui lui est Ne prêtons serment qu'à la patrie et à
 nous-mêmes, entre les mains du roi immortel de la nature, qui
 nous fit pour la liberté, et qui punit les oppresseurs. Ici, tout nous
@@ -4659,8 +4462,7 @@ leur donna les plus sages conseils. Il fut leur interprète pour
 une pétition à l'Assemblée nationale, pétition dans laquelle ils
 demandaient la mise en accusation de Lafayette, le licenciement
 de l'état-major de l'armée et la destitution des Directoires contrerévolutionnaires. L'Assemblée passa à l'ordre du jour. Robespierre
-rédigea aussi pour les fédérés une adresse aux Français des 83 dé-
-partements. Enfin, comme il pressentait le rôle que ces hommes
+rédigea aussi pour les fédérés une adresse aux Français des 83 départements. Enfin, comme il pressentait le rôle que ces hommes
 allaient jouer dans la révolution du 10 août, qu'il prévoyait déjà,
 il engagea les Parisiens à conserver les fédérés chez eux, à les
 traiter en frères, en amis, en libérateurs, à partager avec eux
@@ -4675,8 +4477,7 @@ lâche, le système de bascule et de capitulations. — Note du traducteur.
 Ils aidèrent alors à la prise des Tuileries, qui allait
 détruire la royauté. Et quoiqu'ils se soient donné plus
 tard beaucoup de peine pour accaparer la gloire de à
-cette journée, ils n'y eurent pas une part plus considé-
-rable que celle de Robespierre. (1)
+cette journée, ils n'y eurent pas une part plus considérable que celle de Robespierre. (1)
 En effet, quand on connut le manifeste du duc de
 Brunswick, — ce manifeste est du 21 juillet, —le mot de
 déchéance courut dans toutes les bouches. Robespierre
@@ -4684,14 +4485,12 @@ se prononça également le 29, aux Jacobins, enfaveur de
 cette mesure et demanda la convocation d'une nouvelle
 Assemblée élue pour un an au suffrage direct par tous
 les citoyens et en reconnaissant le droit aux électeurs À
-de rappeler leurs mandataires. Il réclamait aussi l'ex-
-clusion de tous les membres de l'Assemblée consti- à
+de rappeler leurs mandataires. Il réclamait aussi l'exclusion de tous les membres de l'Assemblée consti- à
 tuante et de l'Assemblée législative. (2) Les événements
 avaient instruit Robespierre et détruit progressivement
 (1) Les Mémoires parus récemment de Fournier l'Américain et
 de P. Choudieu jettent une lueur très vive sur l'inaction des Giron- Ne
-dins, au 10 août. Les chefs s'abstinrent, Pétion s'opposa avec opi-
-niâtreté à tout mouvement. Seul Barbaroux, qui était alors un
+dins, au 10 août. Les chefs s'abstinrent, Pétion s'opposa avec opiniâtreté à tout mouvement. Seul Barbaroux, qui était alors un
 indépendant, joua un rôle actif, avec les fédérés marseillais, mais
 sans aller lui-même sur le théâtre de l'action, comme il l'avoua
 dans la suite. En réalité, la révolution fut faite par les sections de
@@ -4711,9 +4510,7 @@ en lui l'idée qu'on pouvait accorder la monarchie avec
 
 le bien du peuple; (1) les Girondins, au contraire, qui
 
-espéraient toujours recouvrer le pouvoir sous la monar-
-
-chie, faisaient front avec la plus grande énergie aux
+espéraient toujours recouvrer le pouvoir sous la monarchie, faisaient front avec la plus grande énergie aux
 tendances républicaines; et ils proposèrent par la
 bouche d'un des leurs, Lasource, l'éloignement des
 fédérés, parce qu'ils craignaient de voir ceux-ci agir
@@ -4733,8 +4530,7 @@ tout mon pouvoir à tous les décrets que l'opinion publique proscrit aujourd'hu
 toujours borné à en réclamer l'exécution fidèle; non pas à la manière de cette secte politique que l'on nomme modérée, qui n'en
 invoque la lettre et les vices que pour en tuer les principes et
 l'esprit; non pas à la manière de la cour et des ambitieux, qui
-violant éternellement toutes les lois favorables à la liberté, exé-
-cutent avec un zèle hypocrite et une fidélité meurtrière toutes celles
+violant éternellement toutes les lois favorables à la liberté, exécutent avec un zèle hypocrite et une fidélité meurtrière toutes celles
 dont ils peuvent abuser, pour opprimer le patriotisme; mais comme
 un ami de la patrie et de l'humanité, convaincu que le salut public
 nous ordonne de nous réfugier à l'abri de la Constitution, pour
@@ -4767,8 +4563,7 @@ eurent adopté une conduite moins hésitante, après
 l'échec des négociations avec la cour. On décida néan- -
 Robespierre qu'aux moments de crise extrême, à la veille de grands;
 soulèvements populaires. Le même jour il écrivit à Couthon pour
-le rappeler près de lui: « … Nous touchons aux plus grands événe-
-ments. Nous sommes arrivés au dénouement du drame constitu- 2:30
+le rappeler près de lui: « … Nous touchons aux plus grands événements. Nous sommes arrivés au dénouement du drame constitu- 2:30
 tionnel. La Révolution reprendre un cours plus rapide, si elle
 ne s'abîme pas dans le despotisme militaire et dictatorial.
 « Dans la situation où nous sommes, il est impossible aux amis
@@ -4786,8 +4581,7 @@ pouvait servir de chef à une émeute sans renier ses principes. Pour
 lui, — et Saint-Just professera la même doctrine, — le peuple a toujours
 le droit de changer son gouvernement, comme de révoquer tous ses
 mandataires; mais il est interdit aux mandataires du peuple
-d'usurper la souveraineté nationale. Voilà pourquoi, ni Robes-
-pierre, ni aucun de ses amis, n'ont jamais fait partie d'un comité
+d'usurper la souveraineté nationale. Voilà pourquoi, ni Robespierre, ni aucun de ses amis, n'ont jamais fait partie d'un comité
 insurrectionnel. — Note du traducteur.
 (1) 11 se brouilla avec Robespierre, dans la suite, et quitta les À
 Duplay. — Note du traducteur.
@@ -4819,9 +4613,7 @@ mais, cette fois, sans distinction de citoyens actifs et de
 Le même jour, Robespierre fut élu, « avec pleins
 pouvoirs pour sauver la patrie par sa section de la
 place Vendôme, membre de la nouvelle municipalité,
-de la Commune révolutionnaire; et il assista régulière-
-
-ment aux séances, du 12 au 26 août. (1) Il déclina, par
+de la Commune révolutionnaire; et il assista régulièrement aux séances, du 12 au 26 août. (1) Il déclina, par
 contre, le poste auquel venait de l'appeler la confiance
 des électeurs, de président du tribunal extraordinaire
 pour la poursuite des défenseurs du Château au août,
@@ -4890,7 +4682,7 @@ Voulant absolument trouver la main de Robespierre dans les
 massacres de septembre, et ne l'y rencontrant nulle part, ne lui at-on pas attribué une adresse que Tallien avait rédigée, Taliien que
 Robespierre méprisait si fort dès cette année 1792 qu'il refusa de
 porter avec lui une adresse à l'Assemblée législative et déclara
-tout net qu'il ne voulait « rien avoir de commun avec cet individu »? Dans l'adresse de Tallien, on lisait la phrase suivante:
+tout net qu'il ne voulait « rien avoir de commun avec cet individu Dans l'adresse de Tallien, on lisait la phrase suivante:
 « Nous avons fait arrêter des prêtres perturbateurs, nous les avons
 fait enfermer conformément à votre décret, et sous peu de jours
 le sol de la liberté sera purgé de leur présence. » On a voulu
@@ -4926,8 +4718,7 @@ propre conscience en chargeant sans cesse autrui de À
 leurs accusations; car ils avaient alors entièrement
 le pouvoir entre les mains; (1) et des paroles comme
 Robespierre; celui-ci combattit même le lendemain une des
-principales dispositions de cette adresse. On voit par quels pro-
-cédés on est parvenu à charger la mémoire de Robespierre de
+principales dispositions de cette adresse. On voit par quels procédés on est parvenu à charger la mémoire de Robespierre de
 paroles et de faits atroces auxquels il resta étranger. — Note du
 L'inaction des Girondins avait indigné Saint-Just, qui la leur
 reprocha amèrement dans son rapport du 8 juillet 1793: « Et nous
@@ -4944,8 +4735,7 @@ aux instruments de la justice populaire plutôt un en-
 - ment à la Commune la prise de Verdun. Aussitôt la
 À Commune lança un appel à tous les hommes en état de
 É porter les armes pour qu'ils se rendissent sur l'heure
-5 ou de ceux qui, dans ce temps-là, jouissaient de l'autorité et répon-
-daient seuls de l'ordre public et de la vie des citoyens, ou de nous
+5 ou de ceux qui, dans ce temps-là, jouissaient de l'autorité et répondaient seuls de l'ordre public et de la vie des citoyens, ou de nous
 tous qui arrivions désintéressés de nos déserts? Pétion et Manuel
 étaient alors les magistrats de Paris. Ils répondaient à quelqu'un,
 . — Robespierre, comme on le verra plus loin, — qui leur conseillait
@@ -4979,11 +4769,9 @@ tement en marche au nombre de 60.000; et, à cet effet,,
 elle établit un comité militaire permanent de huit membres. Elle délégua aussi deux commissaires auprès
 de l'Assemblée législative, qui approuva les mesures
 prises et décréta la peine de mort pour ceux qui s'y à
-déroberaient. Pendant ce temps, Robespierre (1) pré-
-sida de neuf heures du soir à une heure du matin l'assemblée des électeurs, qui s'étaient réunis aux Jacobins
+déroberaient. Pendant ce temps, Robespierre (1) présida de neuf heures du soir à une heure du matin l'assemblée des électeurs, qui s'étaient réunis aux Jacobins
 parce qu'ils n'avaient pas trouvé suflisamment de place
-(1) Quelques dates encore pour fixer les occupations de Robes-
-pierre avant les journées de septembre. Le 27 août, la section de
+(1) Quelques dates encore pour fixer les occupations de Robespierre avant les journées de septembre. Le 27 août, la section de
 la place Vendôme, à laquelle il appartenait, se réunit en assemblée
 électorale afin de nommer seize électeurs; elle choisit à l'unanimité )
 Robespierre comme président. Robespierre la présida chaque jour,
@@ -5009,8 +4797,7 @@ cette commission exécutive, qui siégeait non à l'Hôtel-de-Ville, mais
 la Commune, dont Robespierre était membre, il fit tous ses efforts
 pour arrêter les massacres, comme on le verra. Les journées de
 septembre paraissent avoir été un mouvement spontané de la population parisienne, affolée par l'approche de l'ennemi. Soixante mille
-hommes de garde nationale restèrent sourds à toutes les réqui-
-sitions du commandant général Santerre. — Note du traducteur.
+hommes de garde nationale restèrent sourds à toutes les réquisitions du commandant général Santerre. — Note du traducteur.
 
 4 dans l'ancien bâtiment électoral, l'Évêché; — l'Assem4 blée se composait des électeurs de la ville de Paris
 £. et des cantons ruraux environnants, elle comptait
@@ -5056,8 +4843,7 @@ les prisons. On décida d'envoyer de nouveau des com
 missaires pour « tâcher de calmer les esprits et éclairer
 les citoyens sur leurs véritables intérêts et de faire
 partir également de fortes divisions de troupes pour
-protéger le Temple, où la famille royale avait été con-
-duite, et les autres prisons. Le Conseil général envoya
+protéger le Temple, où la famille royale avait été conduite, et les autres prisons. Le Conseil général envoya
 aussi des commissaires au Palais-Bourbon, où les à
 Suisses avaient été conduits. (1) Il passa à l'ordre du à
 jour sur une motion de la section des Quinze-Vingts, —
@@ -5099,8 +4885,7 @@ est du 2 septembre. Il fut plus heureux le lendemain au Temple.
 La prison royale put être préservée des fureurs populaires au
 moyen d'un ruban tricolore tendu tout autour. Robespierre se
 “4 trouvait-il encore à la Commune lorsqu'il reçut la mission d'aller
-2 défendre la prison royale? M. E. Hamel ne le croit pas et fait remar-
-quer dans son Histoire de Robespierre qu'il passa toute la journée
+2 défendre la prison royale? M. E. Hamel ne le croit pas et fait remarquer dans son Histoire de Robespierre qu'il passa toute la journée
 du 3 au milieu de l'assemblée électorale qu'il présidait. « Si donc,
 ; comme cela est probable, il s'acquitta de la mission dont, présent
 ou non, l'avait chargé le conseil général, ce fut seulement à l'issue
@@ -5115,8 +4900,7 @@ affirme tenir ce détail de la bouche même de celui qui accompagnait
 Robespierre chez Pétion et qu'il ne pouvait nommer sous la Res-
 À tauration sans le compromettre. Robespierre avait raconté ce trait
 ; de lâcheté à Saint-Just, comme on a le voir par le fragment de
-rapport cité plus haut. De cette époque date la brouille de Robes-
-pierre et de Pétion. Charlotte Robespierre raconte ce qui suit dans
+rapport cité plus haut. De cette époque date la brouille de Robespierre et de Pétion. Charlotte Robespierre raconte ce qui suit dans
 ses Mémoires: « Quelques jours après les événements des 2 septembre, Pétion vint voir mon frère. Maximilien avait désavoué le
 ….. massacre des prisons, et aurait voulu que chaque prisonnier fût
 
@@ -5131,8 +4915,7 @@ la première nouvelle des événements, tenté de pénétrer:
 dans les prisons et d'arrêter, au péril de sa propre vie,
 les scènes de massacre. Qu'il y serait difficilementparvenu, c'est ce qu'accordera bien vite tout homme de LS.
 renvoyé devant des juges élus par le peuple. Pétion et Robespierre
-s'entretinrent des derniers événements. J'étais présente à leur entre-
-vue, et j'entendis mon frère reprocher à Pétion de n'avoir pas LE.
+s'entretinrent des derniers événements. J'étais présente à leur entrevue, et j'entendis mon frère reprocher à Pétion de n'avoir pas LE.
 interposé son autorité pour arrêter les déplorables excès des 2 et 3. (
 Pétion parut piqué de ce reproche, et répondit assez sèchement
 Ce que je puis vous dire, c'est qu'aucune puissance humaine ne pouvait
@@ -5205,7 +4988,7 @@ pour deux mille exemplaires de ce huitième cahier
 le mardi 19 janvier 1904.
 Ce cahier à été composé et tiré au tarif des ouvriers syndiqués.
 
-4 Nos Cahiers sont édités par des souscriptions suelles régulières et par des souscriptions extraordi:
+Nos Cahiers sont édités par des souscriptions suelles régulières et par des souscriptions extraordi:
 naires; la souscription ne confère aucune autorité sur
 2. la rédaction ni sur l'administration: ces fonctions
 o des abonnements de souscription à cent francs;

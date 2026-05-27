@@ -35,12 +35,10 @@ de manganèse mis au contact de l'acide chlorhydrique
 donne de l'eau, du chlore et du chlorure de manganèse:
 
 À._ infectieuses sont causées par la présence dans l'orga_ nisme de bactéries microscopiques. — J'ai suivi, note
-bien, l'ordre établi par Auguste Comte dans sa classifi-
-cation des sciences. J'arrive à la sociologie. Suis-je en
+bien, l'ordre établi par Auguste Comte dans sa classification des sciences. J'arrive à la sociologie. Suis-je en
 droit d'admettre comme scientifique, uniquement scientifique, et valable au même titre que les précédentes,
 une proposition ainsi conçue: L'évolution des sociétés
-modernes organisées selon le régime de la grande industrie les conduit naturellement à la propriété collec-
-tive des moyens de production, de distribution et
+modernes organisées selon le régime de la grande industrie les conduit naturellement à la propriété collective des moyens de production, de distribution et
 Je ne veux pas qu'il y ait de doute sur mon opinion
 Je me rallie à la proposition ci-dessus. Je la crois vrai- À
 semblable et même probable. Mais je nie qu'elle ait la
@@ -49,8 +47,7 @@ supercherie. Nous ne faisons pas croire aux gens que
 nous tenons la vérité d'une révélation d'en haut. Nous
 ne devons pas non plus nous appuyer sur une science
 non contrôlée, qui, en fait, n'existe pas. Le mot de
-sociologie est très utile pour désigner l'extension néces-
-saire de la méthode rationnelle dans le domaine humain
+sociologie est très utile pour désigner l'extension nécessaire de la méthode rationnelle dans le domaine humain
 et social, comme dans tous les autres. Mais cette extension est très peu avancée. La sociologie sera: elle n'est
 pas. Lagardelle dit très bien: Marx n'est pas la Bible et
 les prophètes. J'ajouterais volontiers: Marx n'est pas
@@ -67,10 +64,8 @@ on les appelle MM. Anatole Leroy-Beaulieu, Paul LeroyBeaulieu, Paul Beauregard �
 qui répètent du haut de chaires plus ou moïns officielles
 que la science proclame l'éternité des concurrences illimitées, que La science condamne l'intervention de l'État
 dans le contrat de travail, que La science démontre Vimpossibilité du régime collectiviste. A vrai dire, ils parlent comme le mort hypnotisé d'Edgar Poë, dans le cas
-de M. Waldemar. Ils ont cessé d'exister depuis de lon-
-gues années, sans s'en apercevoir. Et c'est la critique
-socialiste qui les a tués. Elle a prouvé que leurs pré-
-tendus axiomes ne sont que le résultat de raisonnements plus ou moins plausibles, souvent spécieux ou
+de M. Waldemar. Ils ont cessé d'exister depuis de longues années, sans s'en apercevoir. Et c'est la critique
+socialiste qui les a tués. Elle a prouvé que leurs prétendus axiomes ne sont que le résultat de raisonnements plus ou moins plausibles, souvent spécieux ou
 purement sophistiques. La science n'a rien à voir dans
 leur cas: la critique socialiste nous l'a montré; elle
 nous a rendu ce grand service. N'allons point, nous
@@ -78,9 +73,7 @@ socialistes, retomber dans leur ornière. Raisonnons le
 plus juste que nous pourrons, cela vaut mieux que de
 remplacer le charlatanisme d'une fausse science par
 le fétichisme d'une science à naître.
-Mais tout ceci n'est que la bagatelle de la porte: j'ar-
-
-rive à ce qui me tient vraiment à cœur. L'avènement
+Mais tout ceci n'est que la bagatelle de la porte: j'arrive à ce qui me tient vraiment à cœur. L'avènement
 nécessaire de la société collectiviste fütil une vérité
 certaine comme en donne le calcul des éclipses, est-ce
 pour cela que nous serons socialistes, que nous devrons
@@ -90,15 +83,12 @@ psychologique. Il n'y a pas d'action sans mobile d'action.
 
 Et tout mobile d'action est essentiellement affectif. Je
 m'explique. On me dit — avec certitude, selon notre
-hypothèse —: le régime socialiste sera. Fort bien. C'est
-un fait. Et puis après? Nous nous sommes trouvés par-
-fois dans une cohue qui nous entraînait, inéluctablement, dans une direction qui n'était pas la nôtre. Nous
+hypothèse le régime socialiste sera. Fort bien. C'est
+un fait. Et puis après? Nous nous sommes trouvés parfois dans une cohue qui nous entraînait, inéluctablement, dans une direction qui n'était pas la nôtre. Nous
 étions entraînés, mais de fort mauvais gré. Ainsi nous
 pourrions nous savoir emportés vers la cité collectiviste,
 mais nous révolter d'avance contre ses lois, loin d'en
-préparer le règne. — Le biologiste qui connaît les mé-
-thodes pasteuriennes est-il en rien obligé, de par la cer-
-titude de ces méthodes, de guérir les malades? Encore
+préparer le règne. — Le biologiste qui connaît les méthodes pasteuriennes est-il en rien obligé, de par la certitude de ces méthodes, de guérir les malades? Encore
 faut-il qu'il veuille les appliquer à leur guérison, qu'il y
 soit par quelque désir. Désir de savoir davantage,
 désir de gagner de l'argent, désir d'action philanthro_ pique, peu importe. Dans tous les cas, désir: c'est
@@ -169,8 +159,7 @@ Ce ne sont pas seulement les intelligences, ce sont les
 consciences qu'il faut conquérir. Les consciences au
 sens moral du mot. Pour la conscience scientifique,jene
 sais pas ce que c'est, sinon un pur état d'esprit, tout
-abstrait et spéculatif, et qui ne peut que fournir des élé-
-ments à la conviction active. Les forces économiques
+abstrait et spéculatif, et qui ne peut que fournir des éléments à la conviction active. Les forces économiques
 feront la Révolution sociale, soit: mais la conscience
 morale des hommes la dirigera dans sa voie et en pro-.
 clame par avance la légitimité.
@@ -204,8 +193,7 @@ voisines des miennes. La manière dont il définit le rôle
 des intellectuels, et s'élève contre ceux qui trafiquent du
 socialisme, m'en est le meilleur garant. Mais il faut éviter certaines confusions et certaines illusions qui ont
 leur danger. Pour moi, j'aime mieux me réclamer d'un
-devoir certain que d'une science hypothétique et incomplète. Et je ne saurais être soupçonné de médire mé-
-chamment de cette science prétendue: ce serait le fait
+devoir certain que d'une science hypothétique et incomplète. Et je ne saurais être soupçonné de médire méchamment de cette science prétendue: ce serait le fait
 d'un cordonnier décriant l'usage des chaussures, A toi
 
 M. Charles Guieysse nous écrit:
@@ -250,13 +238,11 @@ Et ensuite, nous pourrons nous demander comment le mouvement ouvrier et le mouve
 
 Remarquez bien qu'ainsi je dis que le mouvement
 socialiste n'est pas un mouvement nouveau, qu'il est
-simplement une forme nouvelle du mouvement ré-
-publicain, et que c'est l'histoire, l'étude des événements politiques qui légitiment cette forme nouvelle.
+simplement une forme nouvelle du mouvement républicain, et que c'est l'histoire, l'étude des événements politiques qui légitiment cette forme nouvelle.
 C'estl'abandon de la conception autoritaire des idéalistes jacobins qui — par la force de la loi ou par la
 
 force brutale, peu importe ici — veulent brusquement passer de la société mauvaise à la société parfaite, et qui jusqu'à présent se sont usés, se sont brisés contre les forces conservatrices. Aujourd'hui,
-nous, socialistes non-prolétaires ou idéalistes libé-
-raux, qui rêvons d'une société meilleure, nous finissons par reconnaître notre impuissance créatrice,
+nous, socialistes non-prolétaires ou idéalistes libéraux, qui rêvons d'une société meilleure, nous finissons par reconnaître notre impuissance créatrice,
 et nous disons aux prolétaires: « C'est vous-mêmes
 qui vous émanciperez; nous, nous sommes impuissants. »
 
@@ -271,9 +257,7 @@ Et cette besogne incessante d'organisation et de
 réorganisation, de hiérarchies établies, brisées et
 rétablies, cette recherche constante d'une discipline
 sans autorité, seront particulièrement éducatives
-quand la classe ouvrière aura s'organiser, s'unifier, alors elle sera à la veille de remporter la vic-
-
-toire, et cette victoire ne coûtera pas une seule vie
+quand la classe ouvrière aura s'organiser, s'unifier, alors elle sera à la veille de remporter la victoire, et cette victoire ne coûtera pas une seule vie
 humaine, n'amènera aucune misère, rendra toute
 réaction impossible; c'est la société nouvelle, fondée
 sur le travail créateur et non plus sur la propriété
@@ -281,9 +265,7 @@ conservatrice, qui sera moralement établie.
 
 On croit trop facilement — et c'est selon moi
 la formidable erreur initiale des guesdistes — que
-tout le problème socialiste tient dans la « transfor-
-
-mation de la société capitaliste en société collectiviste ou communiste ». Il y a bien autre chose!
+tout le problème socialiste tient dans la « transformation de la société capitaliste en société collectiviste ou communiste ». Il y a bien autre chose!
 Dans les entreprises industrielles, agricoles et commerciales collectivistes, la division du travail sera
 encore plus grande qu'aujourd'hui, et par conséquent
 la hiérarchie des fonctions sera infiniment plus
@@ -301,8 +283,7 @@ Les droits et les devoirs des employés et ouvriers?
 è Comment seront désignés les chefs techniques, les
 directeurs capables? quelles sanctions, morales ou
 légales, existeront pour réaliser les droits et les
-Il a un ensemble de problèmes qui doit préoc-
-cuper les socialistes autant que la socialisation des
+Il a un ensemble de problèmes qui doit préoccuper les socialistes autant que la socialisation des
 moyens de production; il faut arriver à une transformation des lois morales du travail, et elle est
 plus difficile peut-être à obtenir que le changement
 de propriété des instruments de travail.
@@ -313,13 +294,11 @@ la discipline dans le travail libre.
 la classe ouvrière appartient donc une tâche
 formidable, et c'est seule qu'elle doit et peut la mener à bien; c'est aux ouvriers seuls qu'il appartient
 de se délivrer, de créer leur liberté et leur discipline.
-Actuellement, les éléments de l'organisation ou-
-vrière sont les suivants: 1° les groupes politiques
+Actuellement, les éléments de l'organisation ouvrière sont les suivants: 1° les groupes politiques
 etles groupes d'études sociales; 2° les syndicats prob fessionnels et les coopératives de production; 3° les
 
 coopératives de consommation; 4° les universités
-populaires. Et l'on conçoit que ces éléments se fédè-
-rent de deux manières principales: les éléments de
+populaires. Et l'on conçoit que ces éléments se fédèrent de deux manières principales: les éléments de
 même espèce existant en des lieux différents (toutes
 les coopératives, tous les groupes politiques, tous
 les syndicats, etc.), ou bien les éléments différents
@@ -336,9 +315,7 @@ faire, quel est le rôle de l'élément politique? Il domine tout, si l'on veut 
 dans son sens large; mais si on l'entend dans
 son sens étroit d'action électorale et parlementaire, il ne doit pas à mon sens dominer les autres
 éléments, sous peine que les mêmes duperies
-recommencent éternellement, sous peine de mainte-
-
-nir les politiciens au pouvoir, ou mieux, si l'on veut,
+recommencent éternellement, sous peine de maintenir les politiciens au pouvoir, ou mieux, si l'on veut,
 sous peine de voir toujours des idéalistes généreux,
 mais autoritaires et impuissants, garder la direction
 du mouvement socialiste.
@@ -380,8 +357,7 @@ l'expérience de la vie prolétarienne et de l'observation des phénomènes éco
 Et cette conception de mouvement ouvrier est
 indépendante des doctrines socialistes; c'est une
 simple conception de politique démocratique avec
-un suffrage universel qui ne consiste plus à se choï-
-sir librement des maîtres, mais qui nomme des
+un suffrage universel qui ne consiste plus à se choïsir librement des maîtres, mais qui nomme des
 légués avec un mandat précis et déterminé: législation des syndicats, retraites ouvrières, service de
 deux ans ou milice, etc., etc., — et même plus tard
 quand les électeurs prolétariens sauront ce que c'est
@@ -391,17 +367,13 @@ régime de la propriété capitaliste en régime collectiviste.
 
 Or, les intellectuels, quels qu'ils soient, ne connaissent pas la pie ouvrière, parce qu'ils ne vivent
 pas de la vie ouvrière; ils ne sauraient donc trouver
-normalement leur place dans les organisations ouvrières, ou tout au moins ils ne peuvent normale-
-
-ment prétendre à diriger effectivement le mouvement ouvrier.
+normalement leur place dans les organisations ouvrières, ou tout au moins ils ne peuvent normalement prétendre à diriger effectivement le mouvement ouvrier.
 
 Comme le dit fortbien Lagardelle, les intellectuels
-ne forment pas une classe. De leur ensemble se dé-
-gage une force, la force des idées, mais ils ne peuvent réaliser quelque chose qu'en eux-mêmes, ils ne
+ne forment pas une classe. De leur ensemble se dégage une force, la force des idées, mais ils ne peuvent réaliser quelque chose qu'en eux-mêmes, ils ne
 peuvent rien réaliser pour les autres. Ils peuvent
 individuellement se perfectionner et perfectionner
-des individus à leur contact, mais non point amé-
-liorer directement la société elle-même. Les intellectuels quand ils travaillent socialement, travaillent isolément, ils ne forment pas bloc.
+des individus à leur contact, mais non point améliorer directement la société elle-même. Les intellectuels quand ils travaillent socialement, travaillent isolément, ils ne forment pas bloc.
 Tandis que le mouvement ouvrier est essentiellement socialiste (c'est-à-dire tend à changer la
 société), le mouvement intellectuel est essentiellement individualiste (c'est-à-dire tend à changer
 l'individu). Et tandis que le mouvement ouvrier
@@ -473,8 +445,7 @@ créer la liberté intellectuelle, assurer le libre développement de la pensée
 qui ne demande pas à une organisation sociale
 nouvelle de donner à tous les hommes la satisfaction des besoins matériels pour permettre à tous
 les hommes les joies intellectuelles, est, inconsciemment ou consciemment, un aristocrate et aussi un
-égoïste. Et, d'autre part, les intellectuels sont né-
-cessaires aux ouvriers dans leur lutte pour construire une société fondée sur le Travail et non sur
+égoïste. Et, d'autre part, les intellectuels sont nécessaires aux ouvriers dans leur lutte pour construire une société fondée sur le Travail et non sur
 la Propriété, pour leur faire connaître les phénomènes économiques, pour leur donner conscience
 de tout le travail humain des générations mortes,
 pour ajouter à leur expérience l'expérience des
@@ -503,8 +474,7 @@ vie économique le permettent, la culture intellectuelle à laquelle ils ont dro
 comme les abstractions n'ont de valeur qu''autant
 qu'elles s'appuient sur des réalités et qu'elles peuvent se réaliser un jour, les intellectuels, pour ne
 pas échafauder de vains systèmes, pour ne pas se
-perdre dans le rêve, doivent continuellement péné-
-trer le peuple, connaître l'ouvrier et le paysan, étudier l'homme.
+perdre dans le rêve, doivent continuellement pénétrer le peuple, connaître l'ouvrier et le paysan, étudier l'homme.
 Cette pénétration réciproque des intellectuels et
 des ouvriers ne saurait être réglée exactement,
 elle ne saurait être organisée d'une façon uniforme
@@ -516,8 +486,7 @@ sera véritablement organisé, seraunifié pour l'étude
 des lois morales et économiques du Travail. C'est
 pourquoi je critique un peu l'expression d'employés
 
-de Lagardelle, et que je préfère dire que lesintel-
-lectuels ont le devoir de se mettre au service de
+de Lagardelle, et que je préfère dire que lesintellectuels ont le devoir de se mettre au service de
 la classe ouvrière; il me semble qu'ainsi je dis que,
 non seulement ils ne sont plus des aristocrates,
 mais encore que c'est librement, par conscience de
@@ -525,8 +494,7 @@ leur vraie dignité, qu'ils rendent des services aux
 ouvriers, qu'ils les instruisent, qu'ils les aident
 Et c'est parce que cette pénétration sera libre,
 c'est parce que les liens d'amitié s'établiront librement et pourront se rompre sans haïines, c'est parce
-que, dans le domaine intellectuel, les hommes iné-
-gaux de valeur ne se hiérarchisent pourtant pas,
+que, dans le domaine intellectuel, les hommes inégaux de valeur ne se hiérarchisent pourtant pas,
 c'est pour cela que, sans danger ni pour le mouvement ouvrier ni pour le mouvement intellectuel,
 certains intellectuels pourront être choisis par les ne
 ouvriers et entrer temporairement parfois dans le
@@ -641,8 +609,7 @@ d'étudiants ne nous en a demandé. Le Groupe des
 pour un citoyen quémandeur, ne nous a pas demandé
 un seul exemplaire de cette brochure.
 
-Cette indifférence pour le travail imprimé est géné-
-rale. Qu'il s'agisse d'organiser une représentation, une
+Cette indifférence pour le travail imprimé est générale. Qu'il s'agisse d'organiser une représentation, une
 conférence, un meeting, un punch, un banquet, on
 
 trouve à peu près de l'argent pour parler, manger et
@@ -694,8 +661,7 @@ aux lettres qu'on m'envoie.
 Nous attirons l'attention des personnes à qui nous
 faisons présenter des reçus ou des traites sur ce que
 nous n'en faisons présenter que par la poste et qu'il est
-impossible de donner au facteur une somme supé-
-rieure à celle qui est portée sur l'effet.
+impossible de donner au facteur une somme supérieure à celle qui est portée sur l'effet.
 
 Nous prions nos amis et nos abonnés de vouloir bien
 acheter tous leurs livres à la librairie des cahiers.
@@ -781,21 +747,15 @@ de midi à sept heures.
 Nous serons heureux surtout de fournir aux bibliothèques. Nous ne saurions trop engager nos amis
 perdus des campagnes et des petites villes à fonder sans
 
-formalités des bibliothèques. Autant les groupes à par-
-
-loirs parlementaires sont vains, autant les sociétés
+formalités des bibliothèques. Autant les groupes à parloirs parlementaires sont vains, autant les sociétés
 
 d'études et de lecture sont efficaces, pourvu qu'on y lise.
 
-“. Nous fournissons toutes espèces de livres, non seule-
-
-ment de littérature, mais de sciences, droit, médecine,
+“. Nous fournissons toutes espèces de livres, non seulement de littérature, mais de sciences, droit, médecine,
 
 à et ainsi de suite.
 
-Les bénéfices de la librairie seront versés intégrale-
-
-ment aux cahiers. Nous publierons dans les cahiers les
+Les bénéfices de la librairie seront versés intégralement aux cahiers. Nous publierons dans les cahiers les
 
 bilans mensuels de la librairie.
 
@@ -814,13 +774,10 @@ seule fin que l'on nous tue.
 Il est indispensable qu'un de nos amis, qui parle et
 écrit le français, le russe, le polonais et l'allemand,
 
-libre jusqu'à cinq heures du soir, trouve un emploi litté-
-raire ou commercial pour sa journée, — Écrire
+libre jusqu'à cinq heures du soir, trouve un emploi littéraire ou commercial pour sa journée, — Écrire
 
 - Nous sommes heureux de reproduire les notes que
 
-M. André Bourgeois, envoyé à Montceau par l'adminis-
-
-tration de Pages libres, a rapportées de son voyage.
+M. André Bourgeois, envoyé à Montceau par l'administration de Pages libres, a rapportées de son voyage.
 
 dont quatre ont passé dans Pages libres.

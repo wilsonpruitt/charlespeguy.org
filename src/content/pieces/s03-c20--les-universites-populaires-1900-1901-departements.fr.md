@@ -63,7 +63,7 @@ Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 Nos Cahiers sont édités par des souscriptions men_ suelles régulières et par des souscriptions extraordi_ maires; la souscription ne confère aucune autorité sur
 . la rédaction ni sur l'administration: ces fonctions
 des abonnements de souscription à cent francs;
-à; des abonnements ordinaires à vingt francs:
+des abonnements ordinaires à vingt francs:
 et des abonnements de propagande à huit francs.
 : Le prix de nos abonnements ordinaires est à peu près
 “2 égal au prix de revient: le prix de nos abonnements de
@@ -81,7 +81,7 @@ six cahiers de la deuxième et de la troisième série.
 Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce dix-neuvième cahier
 
--: Les cahiers de Bernard Lazare, l'Oppression des Juifs
+Les cahiers de Bernard Lazare, l'Oppression des Juifs
 dans l'Europe orientale, les Juifs en Roumanie, les:
 Juifs en Russie, les Juifs en Galicies CES
 as le cahier de Jean Deck, de la Finlande:
@@ -103,8 +103,7 @@ six exemplaires pour dix francs
 douze exemplaires pour seize francs
 vingt exemplaires pour vingt-quatre francs.
 
-Ce cahier, notices d'U. P. départementales pour d'U. P. parisiennes pour 1900-1901, le Bulletin numéro2
-secrétariat de la Société, 28, rue Serpente, Paris sixième,
+Ce cahier, notices d'U. P. départementales pour d'U. P. parisiennes pour 1900-1901, le Bulletin numérosecrétariat de la Société, 28, rue Serpente, Paris sixième,
 
 — forment un ensemble de documents nécessaires
 la période de naissance (1899-1901) des Universités
@@ -123,8 +122,7 @@ de cette idée que ce qui est désirable avant tout, c'est
 tous les hommes. La seconde dérive de cette tout
 4 autre idée que ce qu'il faut poursuivre avant tout, c'est
 4 le développement intellectuel des ouvriers, de manière
-. qu'ils puissent convenablement lutter contre les institu-
-tions et obtenir justice par leurs propres efforts.
+. qu'ils puissent convenablement lutter contre les institutions et obtenir justice par leurs propres efforts.
 Ces deux tendances, nous ne les trouvons guère à
 l'état de pureté caractéristique dans telles ou telles
 U. P. Elles sont plus ou moins combinées, elles coexistent avec plus ou moins de force. Mais elles ne peuvent
@@ -301,9 +299,7 @@ y tenir. Nous n'avons pas moins de quarante personnes
 dire de toutes les opinions. Les romans y sont rares. Nous
 avons à peu près quatre cents petits volumes divers. Nous » sommes en pourparlers pour un local plus grand, où nous
 pourrions mettre trois cents personnes et y monter une
-scène. Alors cet hiver nous donnerions souvent des mati-
-
-nées théâtrales et musicales.
+scène. Alors cet hiver nous donnerions souvent des matinées théâtrales et musicales.
 
 Notre U. P. est laïque et basée sur l'esprit de tolérance et
 de discussion libre. Toutes les opinions politiques et religieuses y sont groupées. Cependant nous, les libres-penseurs,
@@ -343,23 +339,19 @@ deux abbés angevins et que notre but était de faire abstenir
 aux élections les individus, à seule fin que la cléricaille
 Enfin nous vivons, et ce grâce à l'énergie de madame
 veuve Laboulais, qui fut à notre début (puisqu'elle est à la
-campagne maintenant) la présidente de toutes nos cause-
-ries. Les deux pasteurs protestants, MM. Forget et Audra,
+campagne maintenant) la présidente de toutes nos causeries. Les deux pasteurs protestants, MM. Forget et Audra,
 furent aussi deux pionniers, et d'autres encore..
 Notre société est formée, et le succès pour cet hiver avee
 notre nouveau local est certain.
 Voilà ce que je crois devoir vous dire, et qui, j'espère,
 vous permettra de faire un petit article..
-Ouvrier, je n'ai que le soir, las de ma journée, pour m'oc-
-cuper de toutes les choses humanitaires qui me sont à À
+Ouvrier, je n'ai que le soir, las de ma journée, pour m'occuper de toutes les choses humanitaires qui me sont à À
 cœur. Aussi je vous prie de m'excuser dans le style et
 l'écriture. À
-Notre U. P. n'a pas une année d'existence. Elle a été fon-
-dée et organisée dans le courant du mois de novembre 1900,
+Notre U. P. n'a pas une année d'existence. Elle a été fondée et organisée dans le courant du mois de novembre 1900,
 grâce à l'initiative des syndicats de la Bourse du Travail.
 Ceux-ci envoyèrent un délégué à celui qui signe ces lignes
-pour le prier de concourir avec eux à cette œuvre d'éducation mutuelle et de solidarité. Bientôt, un comité fut consti-
-tué, composé par moitié d'universitaires de tout ordre et
+pour le prier de concourir avec eux à cette œuvre d'éducation mutuelle et de solidarité. Bientôt, un comité fut constitué, composé par moitié d'universitaires de tout ordre et
 d'ouvriers. L'inauguration de l''U. P. eut lieu le 24 novembre
 
 sous la présidencede M. Mulac, maire d'Angoulême, accompagné d'une grande partie des conseillers municipaux.
@@ -383,9 +375,7 @@ Nous avions à lutter contre certaines difficultés, des préventions même. De 
 
 - ville n'est pas faite pour favoriser la fréquentation d'un
 lieu de réunion. Des différents quartiers de la ville éloignés
-du centre, nos auditeurs sont obligés à une pénible ascension pour se rendre à la Bourse du Travail: cet inconvénient peut décourager les plus zélés par les froides et plu-
-
-vieuses soirées d'hiver. Malgré tout, nous avons lieu d'être
+du centre, nos auditeurs sont obligés à une pénible ascension pour se rendre à la Bourse du Travail: cet inconvénient peut décourager les plus zélés par les froides et pluvieuses soirées d'hiver. Malgré tout, nous avons lieu d'être
 satisfaits de notre première campagne; et les résultats
 acquis sont de bon augure pour l'avenir.
 
@@ -444,8 +434,7 @@ au théâtre, attirant d'ordinaire un public de huit cents à
 
 Voici le nom des conférenciers et des sujets qu'ils ont
 
-M. Bernard, garde-général: le reboisement des mon-
-tagnes (avec projections) (1 conférence).
+M. Bernard, garde-général: le reboisement des montagnes (avec projections) (1 conférence).
 
 ; M. Bernard, professeur: lectures de Labiche, le Misanthrope et l'Auvergnat, la Poudre aux yeux; Guy de Maupassant; les Procès d'animaux au Moyen-Age (4 conférences).
 
@@ -476,8 +465,7 @@ M. Vernay, inspecteur primaire: les Coopératives an-
 En outre, MM. Ferrero, Bernard, Martin et Sisson ont À
 récité des monologues et des poésies, et à trois confé- À
 rences du dimanche MM. Frey, Hérisson, Laydernier, Martin
-et Marteaux ont exécuté des morceaux de musique elas-
-sique (Haydn, Mozart, Beethoven, Schubert et Schumann).
+et Marteaux ont exécuté des morceaux de musique elassique (Haydn, Mozart, Beethoven, Schubert et Schumann).
 Une bibliothèque, comprenant une centaine de volumes,
 a été organisée; des journaux et des revues sont tous les
 soirs à la disposition des lecteurs; mais il faut reconnaître
@@ -535,8 +523,7 @@ Alcoolisme. — Les ravages de l'alcoolisme: 1° dans l'indi- À
 vidu; 2° dans la société. — Les remèdes à l'alcoolisme: À
 1° par l'action individuelle; 2° par l'action collective. — L'alimentation normale. — À la suite de notre campagne contre À
 l'alcoolisme, une Société antialcoolique s'est constituée qui
-comprend quarante membres et tient des réunions men-
-suelles fort suivies. Nous sommes persuadés que cet exemple
+comprend quarante membres et tient des réunions mensuelles fort suivies. Nous sommes persuadés que cet exemple
 devrait être suivi dans toutes les U. P. Il est nécessaire de
 créer un nouveau milieu aux transfuges du cabaret, et toute
 U. P. remplit éminement les conditions favorables à la régénération des alcooliques convertis.
@@ -580,9 +567,7 @@ prêétaient leur concours à la partie musicale. Ces fêtes ont
 beaucoup contribué au succès de l'œuvre.
 
 Une innovation importante a été très appréciée des membres de la Société: c'est un Bulletin mensuel qui résume
-l'enseignement donné dans les causeries, en fixe le souve-
-nir, porter aux absents une parole amie, réveille fes vo-
-lontés paresseuses, et resserre entre tous les adhérents les
+l'enseignement donné dans les causeries, en fixe le souvenir, porter aux absents une parole amie, réveille fes volontés paresseuses, et resserre entre tous les adhérents les
 liens d'une franche et cordiale solidarité.
 
 Vers Pâques, l'activité de la Société se ralentit nécessai- rement. Les beaux jours sont arrivés: l'ouvrier barrisien
@@ -617,13 +602,10 @@ ville où les distractions manquent. Mais nous avions un
 de vivre. Nous l'avons écartée absolument de notre programme, et pour tout dire en un mot, nous n'admettons pas
 de journaux dans notre salle de lecture. A Paris, on
 trouve un public pour tous les orateurs; c'est pourquoi on
-a y donner dans les P. une sorte d'enseignement su-
-périeur; c'est pourquoi aussi toutes les U. P. y ont été en-
-trainées à faire de la propagande politique. Mais une
+a y donner dans les P. une sorte d'enseignement supérieur; c'est pourquoi aussi toutes les U. P. y ont été entrainées à faire de la propagande politique. Mais une
 ne pourra vivre en province, surtout dans une petite ville,
 qu'en renonçant franchement à la politique. La Déclaration Le
-des Droits de l'homme (avec des corrections en ce qui con-
-cerne la propriété) est notre seul programme, secret ou
+des Droits de l'homme (avec des corrections en ce qui concerne la propriété) est notre seul programme, secret ou
 avoué. Si nous portons de l'ombrage à quelques bourgeois
 réactionnaires ou à quelques sectaires des opinions les
 plus avancées, nous réunissons du moins les ouvriers de
@@ -668,8 +650,7 @@ sa troisième année d'existence. La nouvelle organisation
 de la Société, fondée sur l'adjonction aux membres
 
 teurs, payant une cotisation annuelle de francs, de
-membres actifs, payant une cotisation mensuelle de 25 cen-
-times, a donné de bons résultats. La Société a été admi- à
+membres actifs, payant une cotisation mensuelle de 25 centimes, a donné de bons résultats. La Société a été admi- à
 nistrée sans diflicultés par son comité, composé de cinq
 membres donateurs, de cinq membres actifs, et de einq
 membres de l'enseignement public faisant partie de la
@@ -732,16 +713,13 @@ confiance, l'an prochain, son œuvre d'émancipation et de
 : L'Université Populaire de Besançon, fondée aux débuts
 
 , de l'année 1900, donne ses conférences dans un vaste local
-pouvant contenir quatre cents personnes. Ce local, spécia-
-
-lement aménagé à cet effet, a été gracieusement mis à notre
+pouvant contenir quatre cents personnes. Ce local, spécialement aménagé à cet effet, a été gracieusement mis à notre
 
 disposition par le conseil municipal, ainsi que l'éclairage
 L'Université Populaire fonctionne sous la direction d'une
 commission exécutive de neuf membres; un secrétaire
 général, un secrétaire adjoint, un trésorier et un trésorier
-adjoint. Les cinq autres membres sont délégués spéciale-
-ment par les sous-commissions des lettres, des sciences,
+adjoint. Les cinq autres membres sont délégués spécialement par les sous-commissions des lettres, des sciences,
 des arts, de propagande et de matériel. Cette commission
 exécutive se réunit au moins une fois par mois.
 
@@ -884,8 +862,7 @@ L'Université Populaire de Bourges, dite l'Éducation
 Mutuelle, a été fondée l'été dernier sous les auspices de
 la Bourse du Travail. C'est une association régulièrement
 organisée, comprenant des membres honoraires et des
-membres actifs, ayant ses statuts et son comité d'administration, et dont les intérêts sont gérés par un secrétaire-
-trésorier sous le contrôle du comité.
+membres actifs, ayant ses statuts et son comité d'administration, et dont les intérêts sont gérés par un secrétairetrésorier sous le contrôle du comité.
 Les ressources dont elle dispose sont de trois sortes: À
 1° Une subvention municipale de 4.000 francs.
 y 2° Les cotisations des membres honoraires et les dons,
@@ -925,9 +902,7 @@ piano, mandoline et même cornemuse).
 
 Les conférences sont interrompues pour la saison d'été,
 
-mais une fois par mois, pour rappeler qu'elle existe tou-
-
-jours, la Société donnera une soirée littéraire et musicale.
+mais une fois par mois, pour rappeler qu'elle existe toujours, la Société donnera une soirée littéraire et musicale.
 
 ; En dehors de ces conférences qui ont lieu au siège
 social, une seule conférence a été faite (dans la grande salle
@@ -970,8 +945,7 @@ Enfin, si nous avons le bonheur de pouvoir compter sur
 quelques-uns des conférenciers parisiens qui se sont donné À
 la tâche de travailler à l'enseignement populaire du peuple,
 nous pourrons donner chaque mois ou tous les deux mois
-une conférence de plus grande portée, qui appellera l'at-
-tention sur notre société et contribuera à la rendre plus rospère.
+une conférence de plus grande portée, qui appellera l'attention sur notre société et contribuera à la rendre plus rospère.
 
 L'idée de la fondation d'une U. P. à Brest, qui préoccupait, dès le début de l'hiver 1899-1900, plusieurs membres
 ou amis des sociétés populaires, fut lancée incidemment,
@@ -987,9 +961,7 @@ fit aflicher un appel: « Aux travailleurs qui comprennent
 que leur perfectionnement intellectuel et moral est la condi- 1— DÉPARTEMENTS
 tion nécessaire de toute amélioration durable de leur sort,
 et de tout progrès réel pour la société tout entière; aux
-libres esprits qui, dans toutes les conditions sociales, com-
-
-prennent que la démocratie serait le plus dangereux des régimes pour la liberté et la civilisation, si elle ne se fondaït sur la culture réfléchie de l'ensemble des citoyens, sur
+libres esprits qui, dans toutes les conditions sociales, comprennent que la démocratie serait le plus dangereux des régimes pour la liberté et la civilisation, si elle ne se fondaït sur la culture réfléchie de l'ensemble des citoyens, sur
 une opinion publique enfin éclairée. » Le comité précisait
 ainsi l'esprit de l'œuvre: « L'U. P., œuvre d'éducation
 sociale et morale mutuelle, n'enseignerait, sur les grandes
@@ -1111,12 +1083,10 @@ notre œuvre. Nous nous sommes heurtés fréquemment à
 l'inertie des uns et au mauvais vouloir des autres; il est
 bien rare que nous ayons rencontré des encouragements.
 Toutefois, après dix-huit mois d'efforts incessants, nous #4
-En germe depuis novembre 1899, notre Université Popu-
-laire a pris forme au mois de février dernier. De sept à Le
+En germe depuis novembre 1899, notre Université Populaire a pris forme au mois de février dernier. De sept à Le
 l'origine, nos membres, tant actifs qu'honoraires, sont à
 actuellement soixante-dix; mais, hélas, la classe ouvrière
-paraît encore nous bouder et ses éléments sont peu nom-
-breux dans notre association.
+paraît encore nous bouder et ses éléments sont peu nombreux dans notre association.
 Notre U. P. possède en location un modeste local rue
 Verte, numéro 32; il se compose d'une salle de réunion
 pouvant contenir cent auditeurs et d'un petit cabinet con-!
@@ -1183,8 +1153,7 @@ mois payable par trimestre; celle des membres honoraires
 Un mois après sa fondation l'U. P. s'est trouvée avoir
 jusqu'à 350 francs, nous avions fait beaucoup de frais
 dans le local dont je vous ai entretenu plus haut; chauffage,
-éclairage, chaises; que bien entendu nous avons démé-
-nager; actuellement l'U. P. a environ 160 franes en caisse.
+éclairage, chaises; que bien entendu nous avons déménager; actuellement l'U. P. a environ 160 franes en caisse.
 
 Dans le début, il se faisait deux conférences par semaine
 (mardi et vendredi) et une causerie le dimanche, maintenant
@@ -1231,9 +1200,7 @@ réunion fut tenue chez C. L** et nous décidämes d'aller
 demander l'avis du corps enseignant d'Épernaÿ en consultant M. l'Inspecteur primaire et M. le Principal du Collège.
 Ces messieurs nous encouragèrent à persévérer dans notre
 œuvre; spontanément ils nous offrirent leur précieux concours et celui des professeurs et instituteurs. Notre idée
-marchait donc sous de bons auspices. Une réunion prépa-
-
-ratoire, à laquelle furent invitées toutes les personnes
+marchait donc sous de bons auspices. Une réunion préparatoire, à laquelle furent invitées toutes les personnes
 susceptibles de faire des conférences, eut lieu dans une
 salle que nous louâmes à cet effet. L'accord fut parfait et
 le Comité provisoire désigné.
@@ -1347,15 +1314,11 @@ bien régulières; mais nous nous proposons de faire le
 
 nécessaire pour organiser, l'hiver prochain, ce mode d'en- » seignement. Des concours nombreux nous sont promis.
 
-Des cours de filetageet machines, mathématiques élémen-
-
-taires, géométrie et dessin, ainsi que de musique, ontfonc-
+Des cours de filetageet machines, mathématiques élémentaires, géométrie et dessin, ainsi que de musique, ontfonc-
 
 Ceux de solfège et chant fonctionnent encore.
 
-a Nous avons des fêtes de famille (concerts), très réus-
-
-sies et la série en comprendra encore deux, pensons-nous.
+a Nous avons des fêtes de famille (concerts), très réussies et la série en comprendra encore deux, pensons-nous.
 
 . 4 En ce moment nous préparons des excursions qui com- à menceront dès que le temps le permettra.
 
@@ -1384,9 +1347,7 @@ notre chère Université populaire.
 
 Voici une petite ville de 11.000 âmes, toute industrielle,
 
-… quiest dotée d'une Université Populaire type, pourrions-
-
-nous dire, et fondée à bien peu de frais.
+… quiest dotée d'une Université Populaire type, pourrionsnous dire, et fondée à bien peu de frais.
 
 Le fondateur de cette Université est M. G. Lemyre, rédacteur au Progrès du Nord, de Lille.
 
@@ -1465,9 +1426,7 @@ cours suivis par chacun des maîtres.
 Mais du rapport du secrétaire général, M. G. Lemyre, sur
 
 ; les travaux de l'année du début, il résulte que la limite d'âge pour les admissions devra être élevée et portée à dix- sept ou dix-huit ans: les tout jeunes gens, en effet, ne
-s'intéressent pas également à toutes les matières du pro-
-
-gramme et dès que les sujets traités sont un peu sérieux et
+s'intéressent pas également à toutes les matières du programme et dès que les sujets traités sont un peu sérieux et
 ne s'adressent pas à leur imagination, comme la littérature
 et l'histoire, ils se montrent dissipés et peu attentifs.
 En résumé, l'œuvre entreprise au Cateau a été couronnée
@@ -1606,8 +1565,7 @@ Section de la Croix-Rousse. — La section de la CroixRousse qui compte 300 memb
 premiers numéros des Annales de l'Université populaire
 lyonnaise) est organisée d'une manière définitive et puissamment assise.
 
-tête une commission de gérance composée de seize commis-
-saires (huit ouvrières et huit ouvriers) nommés à l'élection
+tête une commission de gérance composée de seize commissaires (huit ouvrières et huit ouvriers) nommés à l'élection
 par les membres participants. Cette commission, ainsi que
 son nom l'indique, n'a à s'occuper que de la partie matérielle et économique de la seule section de la Croix-Rousse. à
 (Dans la pensée de la fondatrice de l'œuvre il s'agit en effet
@@ -1623,8 +1581,7 @@ rez-de-chaussée et d'un premier étage. Au rez-de-chaussée
 se trouvent: une grande salle de cours (avec estrade), contenant cinq cents personnes; deux salles de trente mètres
 
 (G) Les membres participants sont les ouvriers et ouvrières d'un À
-quartier qui ne paient que 2 franes par an de cotisation. Les socié-
-taires sont ceux qui versent de 6 à 100 francs par an et au-dessus.
+quartier qui ne paient que 2 franes par an de cotisation. Les sociétaires sont ceux qui versent de 6 à 100 francs par an et au-dessus.
 
 carrés de surface pouvant servir de salles de consultations
 gratuites et d'une cour de quinze mètres de longueur (avec
@@ -1672,16 +1629,14 @@ libre pour permettre aux Croïix-Roussiens de se rendre
 compte des tendances de l'œuvre d'éducation entreprise.
 Section de la Guillotière. — La section de la Guillotière
 n'a pas encore de local. Elle a faire ses cours dans une
-école communale et ses conférences dans le grand amphi-
-théâtre de l'institut de chimie, ce qui n'a pas été sans inconvénients. Les cours ont lieu deux fois par semaine, de
+école communale et ses conférences dans le grand amphithéâtre de l'institut de chimie, ce qui n'a pas été sans inconvénients. Les cours ont lieu deux fois par semaine, de
 8 heures et demie à 9 heures et demie, et les conférences le
 dimanche de 3 à heures et demie.
 
 Cette section ne compte que soixante membres participants. M. le docteur Beauvisage, vice-président de VU. P.L. À
 chargé d'organiser cette section, s'est attaché uniquement à
 faire un cours d'enseignement scientifique intégral, d'après.
-les idées de M. Bertrand. L'auditoire, insuffisamment pré-
-paré, a moins répondu à son appel qu'il eût été désirable,
+les idées de M. Bertrand. L'auditoire, insuffisamment préparé, a moins répondu à son appel qu'il eût été désirable,
 malgré la très grande valeur des professeurs.
 Ceci semble prouver, qu'à Lyon tout au moins, l'Université Populaire, — ainsi que l'avait pressenti madame Des-
 
@@ -1690,8 +1645,7 @@ sociale; que c'est ce qui intéresse surtout les travailleurs
 manuels. En résumé, l'Université Populaire lyonnaise est
 une œuvre d'éducation sociale essentiellement libérale et
 
-En science comme en lettres, les professeurs et les confé-
-renciers montrent à leurs auditeurs comment l'esprit humain doit se dégager de toute théorie conventionnelle en
+En science comme en lettres, les professeurs et les conférenciers montrent à leurs auditeurs comment l'esprit humain doit se dégager de toute théorie conventionnelle en
 prenant la raison pour seul guide dans ses recherches sur
 les faits de toute nature ou sur les hommes et leurs À
 
@@ -1733,23 +1687,18 @@ lieu habituellement le vendredi à neuf heures précises du
 soir. En plus des conférences faites au siège même de la
 société, le Foyer du Peuple rayonne dans tous les quartiers de la ville de Marseille, Le caractère de l'enseignement
 est relativement ambulant. Les conférenciers se transportent selon les demandes des organisateurs de réunions,
-soit dans des salles préparées spécialement pour l'assem-
-
-blée, soit dans les écoles communales, soit dans les bars,
+soit dans des salles préparées spécialement pour l'assemblée, soit dans les écoles communales, soit dans les bars,
 les brasseries et les cabarets.
 En dehors des séances destinées aux conférences, Le
 Foyer du Peuple a toutes les semaines une réunion parti-.
-culière de son comité de direction. Cette réunion est desti-
-née à la préparation des conférences régulières du groupe
+culière de son comité de direction. Cette réunion est destinée à la préparation des conférences régulières du groupe
 . central et à l'organisation des conférences sollicitées par
 les groupes sectionnaires de la ville.
 Les projets de l'université populaire le Foyer du Peuple
 1° Fonder un groupe central avec conférences-causeries
 tous les soirs;
 2° Organiser des conférences-causeries et des conférences
-didactiques avec projections lumineuses, dans les diffé-
-rents quartiers de la ville de Marseille et tout particulière-
-ment dans les réunions des sociétés des amis de l'instruction laïque; ces sociétés sont au nombre de quatorze, dont
+didactiques avec projections lumineuses, dans les différents quartiers de la ville de Marseille et tout particulièrement dans les réunions des sociétés des amis de l'instruction laïque; ces sociétés sont au nombre de quatorze, dont
 huit urbaines et six suburbaines;
 3° Créer une bibliothèque circulante; À
 4° Créer un cabinet de lecture au siège central et donner
@@ -1928,9 +1877,7 @@ des membres auditeurs à o franc 50 par an et des membres
 honoraires à 3 francs par an.
 
 Quoique nous n'ayons encore rien fait pour attirer personne, nos concitoyens viennent à nous en assez grand
-nombre. Nous sommes, en effet, près de deux cent cin-
-
-quante, malgré l'état encore rudimentaire de notre installation. Mais tout être en marche dans le courant du
+nombre. Nous sommes, en effet, près de deux cent cinquante, malgré l'état encore rudimentaire de notre installation. Mais tout être en marche dans le courant du
 mois, et nous espérons, sans présomption aucune, voir
 rapidement s'augmenter le nombre de nos adhérents.
 
@@ -1976,8 +1923,7 @@ ouvriers chez eux, dans leurs faubourgs étendus et lointains. Nous donnons quat
 de ces faubourgs, le mois suivant dans un autre, et nous
 aurons ainsi de mois en mois parcouru tous les quartiers
 éloignés du centre.
-D'ordinaire c'est dans une salle d'école que nous convo-
-quons nos auditeurs. Mais nous avons aussi, sur la propo-
+D'ordinaire c'est dans une salle d'école que nous convoquons nos auditeurs. Mais nous avons aussi, sur la propo-
 ! sition de nos camarades ouvriers, demandé l'hospitalité de
 la Bourse du travail. Elle passe pour être animée de sentiments très révolutionnaires, presque libertaires. Nous à
 
@@ -2021,8 +1967,7 @@ conférences avec noms d'auteurs. »
 Chacune de nos réunions comporte deux parties: la conférence, et une lecture ou audition musicale. La lecture est
 accompagnée de quelques mots d'explication sur l'auteur,
 l'ouvrage, les idées, la forme. Elle est souvent dialoguée.
-Tartuffe, la Robe Rouge, lues à plusieurs, ont paru intéres-
-ser vivement l'auditoire, qui a bien voulu ne pas sourire,
+Tartuffe, la Robe Rouge, lues à plusieurs, ont paru intéresser vivement l'auditoire, qui a bien voulu ne pas sourire,
 malgré la gaucherie inévitable de ces demi-représentations.
 Les auditions musicales donnent un mal énorme à la
 commission spéciale qui en est chargée. Il faut trouver des
@@ -2072,8 +2017,7 @@ L'an prochain, nous n'aurons probablement pas d'innovation importante à réalis
 de notre système actuel pour le juger. Mais peut-être dans
 deux ans aurons-nous la confortable et vaste Maison du
 peuple que la ville se propose de bâtir, où trouveront place
-Bourse du travail, Bibliothèque populaire, café tempé-
-rant, où nous pourrons entretenir quotidiennement avec
+Bourse du travail, Bibliothèque populaire, café tempérant, où nous pourrons entretenir quotidiennement avec
 les ouvriers conscients et désireux de s'instruire les plus
 utiles et les plus agréables relations.
 Vous me demandez quelques détails sur le Maset du
@@ -2215,8 +2159,7 @@ De cette hospitalité, nous avons profité cette année
 encore. Ce sera certainement la dernière. Nous avons de
 sérieuses raisons de croire que la municipalité fera tous
 
-ses efforts pour nous faire déguerpir de la Bourse du Tra-
-vail. Maintenant que nous avons un budget régulier, nous
+ses efforts pour nous faire déguerpir de la Bourse du Travail. Maintenant que nous avons un budget régulier, nous
 consentirons à notre éviction et nous comptons même la
 devancer. Nos ressources se composent des cotisations des
 membres actifs — trente centimes par semaine durant les
@@ -2234,8 +2177,7 @@ a plus que doublé: nos conférences ont été suivies par une
 moyenne de cent cinquante auditeurs (au lieu de soixante,
 l'an dernier), et nos concerts par plus de troiscent cinquante
 personnes: tout ce que notre salle, embrasures de fenêtres
-et échelles comprises, pouvait contenir. Aussi, pour répondre à cet empressement, avons-nous cru devoir multiplier les conférences. Nous avons décidé de faire deux confé-
-rences par semaine, au lieu d'une, sans compter un cours
+et échelles comprises, pouvait contenir. Aussi, pour répondre à cet empressement, avons-nous cru devoir multiplier les conférences. Nous avons décidé de faire deux conférences par semaine, au lieu d'une, sans compter un cours
 hebdomadaire de mécanique pour les ouvriers mécaniciens.
 Mais nous nous sommes aperçus, après une expérience de
 deux mois, que c'était trop: notre auditoire s'émiettaitet
@@ -2320,9 +2262,7 @@ cette première soirée qui était publique.
 
 Un local est spécialement affecté aux Veillées du
 Peuple. se compose de deux pièces de chacune cinq
-mètres de côté servant de bibliothèque et de salle de lec-
-
-ture. Une grande salle (jardin d'hiver) est en outre mise à
+mètres de côté servant de bibliothèque et de salle de lecture. Une grande salle (jardin d'hiver) est en outre mise à
 notre disposition pour les conférences. Un bail de deux années est passé avec le propriétaire de l'établissement.
 
 Bien qu'association organisée, notre U. P. se réclame du plus large esprit d'indépendance; — ni directeur ni président: un comité de douze membres dont trois secrétaires, trois trésoriers, un bibliothécaire, un archiviste, —
@@ -2528,8 +2468,7 @@ La nécessité de se réunir plus fréquemment ne s'est pas
 fait sentir jusqu'ici; d'ailleurs, la possession du local par
 d'autres sociétés que l''U. P. chaque jour de la semaine
 rend pour le moment impossible toute tentative de ce
-genre. Peut-être cependant pourra-t-on, si la saison se présente assez belle, essayer le dimanche quelques promenades instructives ou simplement récréatives dans les envi-
-rons: l'idée s'est présentée à quelques esprits, mais n'a pas
+genre. Peut-être cependant pourra-t-on, si la saison se présente assez belle, essayer le dimanche quelques promenades instructives ou simplement récréatives dans les environs: l'idée s'est présentée à quelques esprits, mais n'a pas
 
 encore été examinée de près. La préoccupation générale
 semble portée vers une conception un peu différente de,
@@ -2562,8 +2501,7 @@ Bientôt après, ces premiers maîtres venant à faire défaut,
 
 4 deux professeurs du Lycée et un industriel viennent prêter
 leur concours à l'œuvre obseure et l'on obtient de l'inspecteur d'Académie une salle d'école primaire. — Au mois de
-janvier 1901 je suis invité à faire des conférences hebdo-
-madaires devant cet auditoire de vingt ouvriers environ,
+janvier 1901 je suis invité à faire des conférences hebdomadaires devant cet auditoire de vingt ouvriers environ,
 soit pour ajouter quelque intérêt à ces cours d'un caractère
 trop technique, soit pour retenir les inconstants, dont la
 défection compromettre cet essai d'enseignement posiscolaire. Non seulement ces conférences (données sous le
@@ -2743,9 +2681,7 @@ A partir de ce jour les attaques commencèrent.
 Rien ne pouvait nous être plus utile. Nous existions!
 . Malheureusement pour certains d'entre nous, les diffi-
 - cultés vinrent de où nous pouvions les attendre le moins.
-Nos adversaires nous calomnièrent, répandirent des mensonges pour nous nuire et nous perdre, mensonges entre-
-
-tenus et recueillis avec soin. Ils continuent d'ailleurs.
+Nos adversaires nous calomnièrent, répandirent des mensonges pour nous nuire et nous perdre, mensonges entretenus et recueillis avec soin. Ils continuent d'ailleurs.
 
 Cet Quoi qu'il en soit, nous avons le public que nous désirions.
 Les bourgeois eux-mêmes commencèrent à s'y intéresser et
@@ -2753,8 +2689,7 @@ le voisinage de la redingote et du bourgeron peut être
 
 ) constaté dans nos réunions.
 
-A Nous n'avons pas encore de local convenable; il est dif-
-ficile d'en trouver un dans une ville aussi étendue que
+A Nous n'avons pas encore de local convenable; il est difficile d'en trouver un dans une ville aussi étendue que
 Tours. Il faudrait disposer de ressources que nous n'avons pas. La ville nous fournit une subvention de cinq cents
 francs. — Pour bien faire, il nous faudrait deux locaux
 dans deux quartiers opposés.
@@ -2836,8 +2771,7 @@ Un patronage laïque, à La Fuye, présidé par le sympathique M. Billet, met so
 qui peut contenir jusqu'à deux cents personnes.
 
 Pendant les quelques mois de l'été prochain, nous préparerons une nouvelle campagne qui, nous l'espérons, grâce
-à l'expérience acquise, sera plus variée et même coor-
-donnée. Les professeurs du lycée viendront peut-être plus
+à l'expérience acquise, sera plus variée et même coordonnée. Les professeurs du lycée viendront peut-être plus
 nombreux encore, s'ils sont encouragés par les autorités
 
 Les principaux sujets traités ont été les suivants
@@ -2863,9 +2797,7 @@ Cours: Hygiène pratique (consultations gratuites par M. le
 docteur Bougrier). — Algèbre et géométrie (M. Jaudel). —
 Géométrie (M. Filleteau, instituteur). — Comptabilité commerciale (M. Filleteau, instituteur). — Dessin industriel et
 
-3° Droit usuel: Les enfants et le droit criminel; les en-
-
-fants et le droit civil (M. Schlumpf). — Le mariage dans la
+3° Droit usuel: Les enfants et le droit criminel; les enfants et le droit civil (M. Schlumpf). — Le mariage dans la
 législation française; le divorce et la législation française
 (M. Marchais, agréé). — Cours de droit usuel (consultations (MM. Marchais et Schlumpf).
 
@@ -2973,9 +2905,7 @@ camarades du dehors.
 
 La Société a un local à elle, mais trop grand. Nous en
 cherchons un correspondant mieux à nos besoins et à nos
-ressources. Celles-ci sont alimentées par les seules cotisa-
-
-tions: o franc par mois pour les membres actifs et la
+ressources. Celles-ci sont alimentées par les seules cotisations: o franc par mois pour les membres actifs et la
 même somme, seulement payée en une seule fois, pour les
 
 Nous nous préoccupons de former une bibliothèque. Nous
@@ -2996,8 +2926,7 @@ Ceci pourra, peut-être, s'organiser cette année.
 Nos causeries seront apparemment dans la même note
 que celles de l'année écoulée. Avec, en plus, des études de
 critique et d'analyse littéraire et peut-être des causeries sur
-l'hygiène privée et publique que nous espérons d'un doc-
-teur, mais elles se font vraiment trop attendre. Il est possible qu'il y ait d'autres choses encore.
+l'hygiène privée et publique que nous espérons d'un docteur, mais elles se font vraiment trop attendre. Il est possible qu'il y ait d'autres choses encore.
 Bref nous sommes en voie de formation et en puissance
 de développement. Le milieu ofliciel ne nous est pas favorable et, naturellement, le personnel des écoles non plus.
 
@@ -3230,8 +3159,7 @@ l'année prochaine sur différents points de notre arrondissement.
 Au mois de mai 1896, la Société d'Ethnographie et d'Art
 Populaire, qui tenait à Niort son premier congrès, invita le
 poète Auguste Gaud à lui donner trois conférences. La à
-première sur les vieilles chansons du Poitou, avec le con-
-cours d'un violoneux et de deux chanteurs du pays mellois,
+première sur les vieilles chansons du Poitou, avec le concours d'un violoneux et de deux chanteurs du pays mellois,
 fut présidée par M. André Theuriet, et obtint un très. vif
 succès. Les deux autres, l'une sur les vieux noëls poitevins
 et avec le concours des mêmes auxiliaires, l'autre sur les
@@ -3376,8 +3304,7 @@ fêtes. La seconde de l'an dernier a été donnée le 14 juillet,
 au moment où le Bulletin paraissait; malgré de grandes
 craintes, elle a fort réussi, a donné un éclat inaccoutumé à
 la fête nationale, et a procuré aux attractions ordinaires un
-public plus nombreux et plus en train. Cette année, la pre-
-mière fête a lieu, avec deux éditions du même programme,
+public plus nombreux et plus en train. Cette année, la première fête a lieu, avec deux éditions du même programme,
 les 2 et 9 février.
 
 La Coopération s'était mise dans ses meubles et avait
@@ -3429,9 +3356,7 @@ Article 2. — La Coopération n'a aucun caractère politique ni religieux et to
 Article 3. — Le siège social est à l'école de Chey; il
 peut être changé par décision du Comité.
 
-Article 4. — Sont membres de la Coopération, sur pré-
-
-sentation de deux membres majeurs, les personnes, —
+Article 4. — Sont membres de la Coopération, sur présentation de deux membres majeurs, les personnes, —
 d'une part: ou qui ont coopéré aux entreprises de l'Association, ou qui payent une cotisation de 25 centimes par
 mois; — et, d'autre part, dont l'admission aura été prononcée provisoirement par le Comité et confirmativement par
 l'Assemblée générale. Un refus d'admission temporaire
@@ -3506,8 +3431,7 @@ Voulez-vous me permettre de vous soumettre un projet
 pour la réalisation duquel votre concours serait précieux?
 Les principales communes de notre arrondissement sont
 ou vont être incessamment pourvues d''Universités populaires, de sociétés d'instruction populaire, de commissions
-de bibliothèques ou autre organisation travaillant à l'ex-
-tension, à la propagation, à la vulgarisation des sciences et
+de bibliothèques ou autre organisation travaillant à l'extension, à la propagation, à la vulgarisation des sciences et
 des idées générales.
 Ne pensez-vous pas que le moment serait venu de donner
 aux collaborateurs de ces diverses entreprises un centre,
@@ -3643,8 +3567,7 @@ Article premier. — Les membres de droit et les membres ci-contre désignés se
 Article 2. — Sur nouvelle convocation de M. le SousPréfet, moins d'un mois après la première, l'Université
 poitevine tiendra sa première séance dont l'ordre du jour
 1° Lecture du procès-verbal d'élection des membres ayant: À
-accepté leurs fonctions, par M. Lalot, secrétaire de la pre-
-mière séance; Vote des statuts; se à
+accepté leurs fonctions, par M. Lalot, secrétaire de la première séance; Vote des statuts; se à
 3° Élection du bureau
 5° De membres pour remplacer les non-acceptants, s'il y
 7° Fixation de l'ordre du jour et établissement d'un programme.
@@ -3686,17 +3609,14 @@ vie propre au « pays ».
 
 Des conférenciers d'élite s'y forment, dont la science
 
-(1) Pour obtenir l'autorisation préfectorale, ce mot a être offi-
-ciellement remplacé, par application de l'article 4 de la loi du
+(1) Pour obtenir l'autorisation préfectorale, ce mot a être officiellement remplacé, par application de l'article 4 de la loi du
 18 mars 1889, qui spécifie qu'en aucun cas les établissements libres d'enseignement ne peuvent prendre la dénomination d'université
 exclusivement réservée aux établissements de l'État. L'article
 de la dite loi punit toute infraction d'une amende de 100 à
 
 et le talent rayonnent ensuite sur les universités populaires.
 
-Les membres font les uns avec les autres profonde con-
-
-naissance et, s'entraînant les uns les autres, cèdent à une
+Les membres font les uns avec les autres profonde connaissance et, s'entraînant les uns les autres, cèdent à une
 émulation intellectuelle dont le Poitou entier ne peut que.
 
 Quand il s'est agi de constituer l'Université poitevine, il a été procédé suivant la seule méthode qui s'offrit. Il ne pou-
@@ -3769,8 +3689,7 @@ cette tâche qui consiste à rendre publiques les affaires, dans
 . ce sens que non seulement elles se traitent au grand jour,
 mais que chaque citoyen soit apte à les comprendre et à les
 juger, ce qui est proprement former une démocratie: une
-suite de conférences sera donnée sur les pères de la démocratie française; les chercheurs, les travailleurs de la pen-
-sée sont excités par des encouragements, une bibliothèque
+suite de conférences sera donnée sur les pères de la démocratie française; les chercheurs, les travailleurs de la pensée sont excités par des encouragements, une bibliothèque
 de travail — moyennant trois francs par an — à la disposition de quiconque voudra y puiser; les membres. euxmêmes se tiennent à la disposition de ceux qui désireraient
 faire appel à leur concours comme conférenciers: ils ne
 . dédaignent aucun public, si petit soit-il. Faire profiter les
@@ -3797,8 +3716,7 @@ sciences. Ils doivent leur formation intellectuelle aux auteurs les plus divers 
 systématique; ils ont expérimenté qu'en toute matière il est
 profitable de puiser directement aux sources; ils se rappellent, par exemple, que, la Déclaration des Droits de
 l'Homme, qui, d'ailleurs, place l'humanisme avant le civisme, a été proclamée sous un roi et signée par lui. Aussi,
-n'est-ce pas avec autoritarisme et étroitesse qu'ils composent leur bibliothèque; l'esprit d'anathème et d'excommu-
-nication n'est pas le leur. Et eux-mêmes, les membres de
+n'est-ce pas avec autoritarisme et étroitesse qu'ils composent leur bibliothèque; l'esprit d'anathème et d'excommunication n'est pas le leur. Et eux-mêmes, les membres de
 l'Université, ne seront pas tous forcément du même bord
 il n'est personne, en effet, lorsqu'il s'agit d'idées et d'études,
 dont nous puissions dire: il ne possède aucune parcelle de
@@ -3810,19 +3728,14 @@ Parmi les ouvrages de la bibliothèque, il en est qui y sont
 de droit: le Dictionnaire, l'Histoire de France, les plus au
 courant des études récentes; parmi les membres de l'Université, il ne saurait en être autrement. Les « esprits amateurs de belles-lettres » sont « doux » et pacifiques; aussi,
 — ces raisons s'ajoutent à celle précédemment donnée, —
-pour éviter toute compétition et tout froissement, la plu-
-part de ceux qui, à Melle, ont des titres à être de l''Universilé poitevine en seront-ils membres de droit; etcenoyau
+pour éviter toute compétition et tout froissement, la plupart de ceux qui, à Melle, ont des titres à être de l''Universilé poitevine en seront-ils membres de droit; etcenoyau
 de membres, en résidence au lieu même du siège social,
 assurera la fréquentation des séances. Ces membres de
 droit sont: d'une part, les deux représentants donnés par
 le suffrage universel à ces deux personnalités morales, la
 ,
 
-: ville de Melle et son arrondissement; d'autre part, les fonc-
-
-tionnaires dont la situation administrative et littéraire fai-
-
-sait, au point de vue de l'Université, les premiers de la
+: ville de Melle et son arrondissement; d'autre part, les fonctionnaires dont la situation administrative et littéraire faisait, au point de vue de l'Université, les premiers de la
 
 sous-préfecture. Parmi eux, un curé et un pasteur. Aucune
 question ne se posait à ce sujet, sans un débat soulevé récemment dans les universités populaires, des comités et des
@@ -3900,8 +3813,7 @@ plus quatre autres membres élus, chaque année, après le
 Article 15. — La bibliothèque est mise à la disposition des
 personnes qui, n'étant pas membres de l'Université, ont
 reçu une autorisation écrite du président et ont versé une
-somme de trois francs par an. Un registre est à la disposi-
-tion de tous les lecteurs et emprunteurs pour indiquer les
+somme de trois francs par an. Un registre est à la disposition de tous les lecteurs et emprunteurs pour indiquer les
 ouvrages dont ils désirent l'achat. La commission statue
 sur ces demandes.
 Article 16, — La commission des concours pourra choisir
@@ -3939,8 +3851,7 @@ et de mettre à leur service une bibliothèque de travail, qui
 fournisse les matériaux à leurs études personnelles et à
 leurs conférences. Des membres correspondants ajoutent
 aux ressources en hommes et en argent. Parmi eux, M. Jean
-Philippe, président de l'U. P. de Niort. Des concours for-
-ment une génération de chercheurs où l'Université trouvera
+Philippe, président de l'U. P. de Niort. Des concours forment une génération de chercheurs où l'Université trouvera
 ses membres de demain. Désormais, un centre est créé,
 d'où des conférenciers rayonneront dans toutes les Universités Populaires, et même dans les communes où il n'y en
 a pas, prêts à répondre à tout appel, animés d'un même
@@ -4011,8 +3922,7 @@ a des émules et ses bonnes idées sont applaudies jusqu'au
 fin fond de la province.
 
 L'un des résultats très appréciables de l'Université poitevine est que les trois ou quatre conférenciers de chacune de
-nos communes, au lieu de devoir en un an préparer hâti-
-vement chacun une moyenne de trois ou quatre conférences,
+nos communes, au lieu de devoir en un an préparer hâtivement chacun une moyenne de trois ou quatre conférences,
 peuvent en travailler à fond une ou deux, puis les colporter
 de commune en commune, sûrs d'être bien accueillis par
 des collègues et, cependant, d'avoir leur place occupée par
@@ -4022,8 +3932,7 @@ leur propre Université.
 L'œuvre, désormais solidement établie, ne fait que grandir
 
 |_etse développer. Pour en faire partie, demander les statuts
-au secrétaire, M. François Lalot, directeur de l'École com-
-munale, à Chey, ou au trésorier, M. Guillaud, juge de paix
+au secrétaire, M. François Lalot, directeur de l'École communale, à Chey, ou au trésorier, M. Guillaud, juge de paix
 Commune de Lezay (Deux-Sèvres). — Enseignement
 ; des Adultes. — Conférences. — École publique de
 garçons du bourg.
@@ -4091,8 +4000,7 @@ Idées, samedi 7 avril 1900, le Correspondant et le Socialiste contre l'Universi
 jeudi 12 avril 1900, rubrique au jour le jour, le projet
 de loi Waldeck-Rousseau sur les syndicats et les socialistes, interview de Jules Guesde oùse trouve la phrase
 ‘devenue fameuse: « Les universités populaires, elles
-ont autant d'importance que l'œuvre des petits teigneux »; un article de Henri Turot dans La Petite République, vendredi 13 avril 1900, Républicains; une rectification de Jules Guesde à Henri Turot, annoncée, com-
-mentée, insérée par Henri Turot dans la Petite
+ont autant d'importance que l'œuvre des petits teigneux un article de Henri Turot dans La Petite République, vendredi 13 avril 1900, Républicains; une rectification de Jules Guesde à Henri Turot, annoncée, commentée, insérée par Henri Turot dans la Petite
 République du samedi 14 avril 1900, contenant et
 reproduisant une précédente rectification de Guesde au
 Temps: un article du Temps, vendredi 13 avril 1900,
@@ -4333,8 +4241,7 @@ Nous n'avons pas l'intention de présenter au public une
 biographie détaillée d'Hippolyte Taine; nous désirons seu-
 
 M. Paul Dupuy est surveillant général, et non bibliothécaire À
-à l'Ecole normale. — Note des cahiers; les autres notes appartien-
-nent à l'introduction citée, lement lui fournir des points de repère qui faciliteront la à
+à l'Ecole normale. — Note des cahiers; les autres notes appartiennent à l'introduction citée, lement lui fournir des points de repère qui faciliteront la à
 
 lecture des lettres et fragments inédits, objets de cette.
 
@@ -4344,9 +4251,7 @@ publication. — Beaucoup d'amis de sa pensée ont déjà parlé de lui en meill
 
 une étude plus complète sur l'homme et sur l'œuvre; ils
 rempliront cette tâche avec un esprit plus dégagé que le
-nôtre; notre devoir à nous est de leur en faciliter l'accom-
-
-plissement tout en restant fidèle aux instructions laissées
+nôtre; notre devoir à nous est de leur en faciliter l'accomplissement tout en restant fidèle aux instructions laissées
 
 par M. Taine.
 
@@ -4354,9 +4259,7 @@ C'était un des traits dominants de son caractère que
 l'horreur de la publicité et des indiscrétions sur la vie
 intime; il dérobaïit aux étrangers, avec un soin jaloux,!
 l'existence la plus digne et la plus noble. Il ne pouvait
-souffrir la pensée qu'une photographie, une interview don-
-
-nant une idée de son foyer domestique, pourraient s'étaler
+souffrir la pensée qu'une photographie, une interview donnant une idée de son foyer domestique, pourraient s'étaler
 aux yeux du public. Il refusait toutes les autorisations
 d'éditer son portrait dans les journaux illustrés; (2) ce fut
 
@@ -4388,8 +4291,7 @@ vivante avec son ton de voix, son geste, ses meubles, échappe au
 un grand sacrifice qu'il fit à ses confrères des Débats que.
 de consentir à figurer dans le tableau de Jean Béraud,
 reproduit en 1889 dans le livre du Centenaire; (1) et quand
-son ami Léon Bonnat fit de lui à la même époque l'admi-
-rable portrait qu'on a voir à l'Exposition de 1900, (2) ce
+son ami Léon Bonnat fit de lui à la même époque l'admirable portrait qu'on a voir à l'Exposition de 1900, (2) ce
 fut à la condition expresse qu'il ne serait pas exposé de son
 vivant. Enfin ses dispositions testamentaires interdisent
 formellement toute reproduction de « lettres intimes ou
@@ -4398,12 +4300,10 @@ matières purement générales ou spéculatives, par exemple
 de philosophie, d'histoire, d'esthétique, d'art, de psychologie; encore devra-t-on en retrancher tous les passages qui,
 de près ou de loin, touchent à la vie privée, et aucune Ne
 d'elles ne pourra être publiée que sur une autorisation
-donnée par mes héritiers apres les susdits retranche-
-ments opérés par eux. »
+donnée par mes héritiers apres les susdits retranchements opérés par eux. »
 On ne trouvera donc ici, comme faits d'ordre privé, que
 ce qui a été jugé indispensable pour l'histoire de ses idées
-et pour montrer dans quel milieu elles s'étaient dévelop-
-pées. —Il avait du reste souvent approuvé sans restriction,
+et pour montrer dans quel milieu elles s'étaient développées. —Il avait du reste souvent approuvé sans restriction,
 devant sa famille et ses amis, les belles et copieuses biographies anglaises contemporaines, telles que la vie de Charlotte Brontë, (3) celle de lord Macaulay, (4) de lord Palmerston, (5) ete. C'est à ces modèles que nous tentons de nous
 public! Et ce n'est pas toi, mon meilleur ami, qui me donneras le
 désagrément de m''étaler devant lui. Tu sais bien que je n'ai pas
@@ -4479,9 +4379,7 @@ CHARLES GUIEYSSE. — Les Universités Populaires et le mouvement ouvrier, deuxi
 de la troisième série, un cahier de 72 pages, un franc
 
 Georces Sorez. — De l'Église et de l'État, cahier de 72 pages, un franc Jean Jaurès. — Études Socialistes: introduction,
-question de méthode; préface, République et Socia-
-lisme; le mouvement rural; revision nécessaire; évolution révolutionnaire: majorités révolutionnaires; Lieb-
-knecht et la tactique; grève générale et révolution; le
+question de méthode; préface, République et Socialisme; le mouvement rural; revision nécessaire; évolution révolutionnaire: majorités révolutionnaires; Liebknecht et la tactique; grève générale et révolution; le
 but; le socialisme et la vie; de la propriété individuelle
 les radicaux et la propriété individuelle; propriété individuelle et code bourgeois; la propriété individuelle
 et l'impôt; la propriété individuelle et le droit successoral; la Révolution française et le droit successoral;

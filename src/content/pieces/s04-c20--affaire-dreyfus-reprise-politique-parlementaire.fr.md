@@ -30,8 +30,7 @@ nous avons publiés dans la série même; nous tâche-
 54 ordres pour que ces cahiers supplémentaires leur par-,
 viennent pendant les vacances.
 Ces cahiers supplémentaires alourdiront encore le
-4 budget de notre quatrième série; je prie nos souscrip54 teurs, — souscriptions mensuelles régulières et sou-
-scriptions extraordinaires, — de vouloir bien nous en.
+4 budget de notre quatrième série; je prie nos souscrip54 teurs, — souscriptions mensuelles régulières et souscriptions extraordinaires, — de vouloir bien nous en.
 Nous demandons à nos abonnés d'utiliser leurs
 déplacements de vacances pour nous trouver des.
 
@@ -50,11 +49,9 @@ ites. Elles étaient à construire. Elles étaient des
 éments de preuve, matière à travailler, démonstra-
 Aux funérailles de Zola, aux obsèques de M. David
 adamard, beau-père de M. Dreyfus, des allusions fort
-aires, pour qui savait, avaient été faites au recommen-
-ment que l'on méditait. Dans notre vingt-et-unième
+aires, pour qui savait, avaient été faites au recommenment que l'on méditait. Dans notre vingt-et-unième
 ahier de la troisième série, bon à tirer du samedi ‘ri
-août 1902, si l'on veut bien se reporter à la consulta-
-on que notre collaborateur Bernard-Lazare nous donna NE
+août 1902, si l'on veut bien se reporter à la consultaon que notre collaborateur Bernard-Lazare nous donna NE
 la loi et les congrégations, datée de Paris, 6 août
 902, on y trouvera plusieurs phrases qui annonçaient
 éjà, et non moins clairement, pour qui savait, l'inten- à
@@ -85,12 +82,12 @@ positions prises dans ces dernières années. Il per
 de librement et logiquement développer leur pensée, de
 1 séparer radicalement des professionnels de la politiqu
 À 4 et d'accomplir leur œuvre en dehors d'eux. — "3
-44 Cette phrase véritablement prophétique domine
+Cette phrase véritablement prophétique domine
 
 débat, le double débat de la démagogie anticatholiq
 Bernard-Lazare, qui était la nôtre, qui était celle de
 
-les anciens et des véritables dreyfusistes, —:
+les anciens et des véritables dreyfusistes,
 urvu qu'ils ne fussent d'aucun État-Major, — dès
 était celle que nous avons exactement conservée.
 lors Bernard-Lazare pensait, nous pensions que es à
@@ -99,22 +96,17 @@ dicale et radicale-socialiste, le gouvernement radical
 radical-socialiste, la politique radicale et radicale- “Li
 xcialiste, l'autorité de commandement radicale et LS:
 dicale-socialisie sur la démagogie, le gouvernement,
-politique et l'autorité de commandement nationa-
-que et antidreyfusiste, s'étaient disqualifiés pour le (
+politique et l'autorité de commandement nationaque et antidreyfusiste, s'étaient disqualifiés pour le (
 commencement ou pour la continuation de laffaire.?
 événement a montré qu'ils n'étaient pas disqualifiés À
 le déshonorer.
-Si les paroles de Bernard-Lazare avaient été enten-
-les intéressés, le dreyfusisme, le monde se fussent si
+Si les paroles de Bernard-Lazare avaient été entenles intéressés, le dreyfusisme, le monde se fussent si
 )argné un recommencement triste.
-Ayant assez à travailler de travail ordinaire, j'atten-
-ais les renseignements et les événements publics, je
+Ayant assez à travailler de travail ordinaire, j'attenais les renseignements et les événements publics, je
 en demandais pas plus. Un matin notre collaborateur
 ernard-Lazare, qui gardait encore le Hit, ou la
 ambre, me dit: Vous savez, c'est entendu, Jaurès
-à marcher, il s'engagera dans la discussion de l'inva-
-dation Syveton. Je vous le dis pour votre gouverne-
-ent personnel. Mais gardez cela pour vous. — Le en he:
+à marcher, il s'engagera dans la discussion de l'invadation Syveton. Je vous le dis pour votre gouverneent personnel. Mais gardez cela pour vous. — Le en he:
 ndemain matin j'ouvris mes journaux et, dans la.
 etite République, je lus en bonne place que Jaurès:
 vait fait la même confidence en réunion publique, RU,
@@ -137,9 +129,7 @@ Quand je sus que les intéressés préparaient un
 
 recommencement de l'affaire, la première chose que je
 
-ne me demandai pas fut de savoir si les cahiers mar-
-
-cheraient ou ne marcheraïent pas, pour parler comme
+ne me demandai pas fut de savoir si les cahiers marcheraient ou ne marcheraïent pas, pour parler comme
 
 : France. Nos anciens abonnés n'ont pas oublié, nos
 
@@ -155,23 +145,15 @@ Elle ne pouvait pas varier. Dreyfusistes de la première
 
 heure, peut-être avant Jaurès, de l'heure où il n'y en
 
-avait pas beaucoup, universellement, totalement, per-
-
-pétuellement, continûment, continuellement, constam-
+avait pas beaucoup, universellement, totalement, perpétuellement, continûment, continuellement, constam-
 
 è ment, exactement dreyfusistes, dreyfusistes de toutes
 
 les heures, et même des heures où il n'y a presque plus
 
-À de dreyfusistes, nous n'avons jamais accepté l'am-
+À de dreyfusistes, nous n'avons jamais accepté l'amnistie, aucune amnistie, non pas seulement cette amnistie légale et parlementaire que les politiciens, Jaurès
 
-nistie, aucune amnistie, non pas seulement cette am-
-
-nistie légale et parlementaire que les politiciens, Jaurès
-
-tout le premier, nous ont imposée, mais cette univer-
-
-selle amnistie mentale morale que les dreyfusistes
+tout le premier, nous ont imposée, mais cette universelle amnistie mentale morale que les dreyfusistes
 
 et que les antidreyfusistes se sont trouvés d'accord
 pour s'accorder mutuellement.
@@ -181,8 +163,7 @@ Je me permets de rappeler, pour commencer, que
 nous avons été des dreyfusistes de la toute première
 
 heure. Si l'on veut bien se reporter aux premières de
-ces fameuses listes, — pétitions, souscriptions, et en-
-dossements de démarches, — aux toutes premières
+ces fameuses listes, — pétitions, souscriptions, et endossements de démarches, — aux toutes premières
 listes, à celles qui étaient dangereuses, on y trouvera
 non seulement mon nom, mais ceux de presque tous ny:
 les amis constants qui ont fait la force et la vie de ces
@@ -197,18 +178,14 @@ commandement. Il ne peut pas y avoir, dans une telle
 affaire, une autorité du premier occupant. Si nous je
 prétextions de ce que nous avons été des dreyfusistes
 de la première heure pour demander une autorité de, à
-commandement sur tous ces dreyfusistes de la dou-
-zième heure, nous ne serions pas fondés. Mais réci-
-proquement nous n'admettons pas que ces dreyfusistes
+commandement sur tous ces dreyfusistes de la douzième heure, nous ne serions pas fondés. Mais réciproquement nous n'admettons pas que ces dreyfusistes
 de la douzième heure exercent sur nous l'autorité de
 commandement que nous ne demandons pas sur eux.
 Il serait singulier qu'une autorité de commandement À
-que l'antériorité ne confère pas, la postériorité, l'inexac-
-titude, la lâcheté, la faiblesse, le retard la conférât.
+que l'antériorité ne confère pas, la postériorité, l'inexactitude, la lâcheté, la faiblesse, le retard la conférât.
 Nous défendons généralement toutes nos libertés
 contre toutes les autorités de commandement. Nous
-défendons en particulier toutes nos libertés dreyfu-
-sistes contre toutes les autorités de commandement
+défendons en particulier toutes nos libertés dreyfusistes contre toutes les autorités de commandement
 _prétendues dreyfusistes qui ont voulu s'établir parmi
 nous et sur nous.
 
@@ -234,9 +211,7 @@ les retardataires se rattrapent de leur ancienne fai-
 
 A blesse, de leur ancienne lâcheté, se défendent, sauvent
 
-des reproches mérités qu'ils prévoient ou qu'ils enten-
-
-dent, compensent leur absence initiale en insistant sur
+des reproches mérités qu'ils prévoient ou qu'ils entendent, compensent leur absence initiale en insistant sur
 
 leur nouveau rôle et sur leur présence obsédante et sur
 
@@ -262,13 +237,10 @@ installé pour Jaurès un véritable culte, on ne peut
 s'imaginer aujourd'hui de quelle innocente, affectueuse
 et respectueuse vénération nous l'entourions. Nous Ni
 allämes le voir dans son étroit appartement de la rue
-Madame, je crois au 15, tout au commencement l'af-
-faire. Il nous fit entrer dans son étroit éabinet de tra-
-vail. avait sur son bureau, il nous montra un ou des Le
+Madame, je crois au 15, tout au commencement l'affaire. Il nous fit entrer dans son étroit éabinet de travail. avait sur son bureau, il nous montra un ou des Le
 albums portant spécimens de l'écriture du bordereau,
 de l'écriture de Dreyfus, et de celle d'Esterhazy. J'étais
-déjà dreyfusiste forcené. Il était l'heure, nous le con-
-duisimes jusqu'à la Chambre. allait à pied pour ni
+déjà dreyfusiste forcené. Il était l'heure, nous le conduisimes jusqu'à la Chambre. allait à pied pour ni
 prendre l'air et pour se donner de l'exercice, parce qu'il
 était fatigué; il avait de la congestion. C'était dans les
 derniers mois de cette ancienne législature. Il avait
@@ -284,29 +256,23 @@ ménu, têtu, menton rasé, nez pincé, nez de procuréur, où
 
 d'avoué, favoris grisonnants où blancs, lèvres hori- ‘is
 hargneuses, minces; l'air à la fois finassier et propret,
-fouinassier et guilleret; marchant menu à côté de quel-
-qu'un. Jaurès dit: C'est Méline; il a encore de la vie, le
+fouinassier et guilleret; marchant menu à côté de quelqu'un. Jaurès dit: C'est Méline; il a encore de la vie, le
 
 Nous le conduisimes jusqu'à la Chambre par le bou-.
 levard Saint-Germain. Il était heureux de voir des jeunes
 gens. nous conta ses peines. Je ne commets aucune NS.
-indiscrétion de rapporter aujourd'hui ces propos loin-
-tains. Tout le monde les a connus ou devinés depuis. Ki: à
+indiscrétion de rapporter aujourd'hui ces propos lointains. Tout le monde les a connus ou devinés depuis. Ki: à
 
 PRE vingtième cahier de quatrième série
 Tout le monde sait quelle était alors la situation. Il y
 avait un groupe socialiste. L'ambition, la méthode, l'es-
 (al poir de Jaurès était d'entraîner tout le groupe offciellement et comme groupe dans l'action dreyfusiste nou-
-È vellement commencée. Nous lui disions, dès lors anar-
-chiste, en un sens, qui n'est nullement celui de M. Sébastien Faure: Qu'importent ces hommes, qu'importent ces
-partis; qu'importent ces députés, ces ministres, qu'im-
-portent ces politiciens; qu'importe ce groupe? Marchons
+È vellement commencée. Nous lui disions, dès lors anarchiste, en un sens, qui n'est nullement celui de M. Sébastien Faure: Qu'importent ces hommes, qu'importent ces
+partis; qu'importent ces députés, ces ministres, qu'importent ces politiciens; qu'importe ce groupe? Marchons
 seuls. On n'a pas besoin d'être plusieurs. Puisque nous
 avons raison, puisque nous sommes justes, puisque
-nous sommes vrais, commençons par marcher, conti-
-nuons par marcher, finissons par marcher. Si les autres
-: suivent, tant mieux. S'ils ne suivent pas, ou s'ils contra-
-rient, mieux vaut marcher sans eux, avancer, que de
+nous sommes vrais, commençons par marcher, continuons par marcher, finissons par marcher. Si les autres
+: suivent, tant mieux. S'ils ne suivent pas, ou s'ils contrarient, mieux vaut marcher sans eux, avancer, que de
 rester en arrière avec eux, et que de reculer avec eux
 pour leur faire plaisir.
 — Ne croyez pas, nous disait-il, que ce soit pour mon
@@ -325,8 +291,7 @@ mes habits pour m'empêcher de monter à la tribune.
 Quand je monte à la tribune, je suis déjà vidé, je suis
 creusé, je suis épuisé par ces dévoràtions intérieures, je
 
-suis exténué d'avance. L'autre jour, pendant que je par-
-lais, contre cette Chambre lâche et hostile, c'était ke:
+suis exténué d'avance. L'autre jour, pendant que je parlais, contre cette Chambre lâche et hostile, c'était ke:
 comme si j'avais mille aiguilles qui me traversaient ni
 le cerveau. Je crois que je vais tomber malade. Je ne AU
 sais pas si j'aurai la force de tenir jusqu'à la fin de la
@@ -340,8 +305,7 @@ mieux renseignés des citoyens. Nous n'étions pas
 comme lui embarrassés dans les dificultés de parti.
 Nous n'étions pas retardés du retard parlementaire
 
-Nous n'en voulons tirer aucune autorité de comman-
-dement. Nous avons souvent insisté auprès de Jaurès, Le
+Nous n'en voulons tirer aucune autorité de commandement. Nous avons souvent insisté auprès de Jaurès, Le
 
 _verbalement ou par écrit, vivement, fortement. Nous: A
 ne le regrettons pas. Mais nous n'avons jamais la
@@ -404,9 +368,7 @@ de parole, de thant et de musique, de ténors, de verbe,;.
 d'attroupement, aux pays de fête, aux pays soleil:
 aux pays romains, aux paÿs du commandement romain, pa.
 de la paix romaine et de l'aütorité romaine, de l'empire es
-et de la domination romaine, aux pays de sénatet de con-
-suls; c'est une pénte habituelle aux pays vraiment etpro-
-fondément parlementaires, aux pays originaires de la
+et de la domination romaine, aux pays de sénatet de consuls; c'est une pénte habituelle aux pays vraiment etprofondément parlementaires, aux pays originaires de la
 politique, aux municipes, aux villes de form, aux cités
 d'agora. C'est donc aussi une pente habitüelle aux
 orateurs surtout. Qu'est le véritable orateur dans une
@@ -422,8 +384,7 @@ la voix de l'orateür, et au regard son geste, la plus
 profonde la plus inévitable aussi autorité de com- ni:
 mandement, puisqu'au lieu de saisir les biens, comme
 une autorité de comtandement économique, au lieu de
-saisir les seuls corps, comme une autorité de comman-
-dement temporelle, cette autorité du commandement
+saisir les seuls corps, comme une autorité de commandement temporelle, cette autorité du commandement
 oratoire, comme une autorité religieuse, comme une ta
 
 vingtième cahier de la quatrième série
@@ -432,13 +393,9 @@ autorité d'Église, comme la nouvelle autorité que lon
 
 ; veut nous faire d'un État seul enseignant, seul philo-
 
-14 sophe, seul savant, seul artiste, cette autorité du com-
+14 sophe, seul savant, seul artiste, cette autorité du comet, beaucoup plus profondément, sentimentale, saisit
 
-et, beaucoup plus profondément, sentimentale, saisit
-
-pour les régir et pour les asservir les personnels senti-
-
-ments, les passions profondes, les intimes émotions;
+pour les régir et pour les asservir les personnels sentiments, les passions profondes, les intimes émotions;
 
 les instincts mêmes, les réserves de vie, et les obscurs
 
@@ -451,13 +408,9 @@ L'autorité du commandement oratoire est d'autant
 Pie peler et nous l'avouer, nous qui avons si souvent et si
 à profondément, d'une telle voix et d'untel cœur, acclamé
 
-Jaurès dans les plus grandes réunions, dans des assem-
+Jaurès dans les plus grandes réunions, dans des assemblées capitales, et tout d'abord dans ce grand premier
 
-blées capitales, et tout d'abord dans ce grand premier
-
-meeting du Tivoli. Un grand orateur, un véritable ora-
-
-teur, un orateur de génie dans une assemblée, un
+meeting du Tivoli. Un grand orateur, un véritable orateur, un orateur de génie dans une assemblée, un
 
 Jaurès dans une assemblée, dominant la foule, c'est un
 
@@ -465,7 +418,7 @@ roi. Rappelons nos anciennes acclamations, et les sen-
 
 à timents de nos anciennes acclamations. Combien n'y
 
-;; avait-il pas d'autorité de commandement dans la voix
+avait-il pas d'autorité de commandement dans la voix
 
 du grand orateur, dans son effort, dans son geste mar-
 
@@ -485,17 +438,14 @@ aimé, recherchécomme une jouissance, maïs non connu,
 
 mal conscient, des tumultueuses passions de la foule.
 
-C'est le gouvernement dont on ne se méfie pas, le gouver-
-
-nement à qui les simples et tant d'innocents se donnent.
+C'est le gouvernement dont on ne se méfie pas, le gouvernement à qui les simples et tant d'innocents se donnent.
 
 Un grand philosophe ne règne pas. Un grand savant ne «
 règne pas. Un grand artiste ne règne pas. Les grands À
 comédiens seuls règnent, et les grands orateurs. Je ne
 dis pas cela pour les diminuer; une race qui à donné le
 grand Molière en est glorifiée pour toujours. Il est vrai
-que Molière n'était pas seulement un comédien de repré-
-sentation. Comédiens, — y compris les tragédiens, —
+que Molière n'était pas seulement un comédien de représentation. Comédiens, — y compris les tragédiens, —
 orateurs, chanteurs et chefs d'orchestre. Eux seuls ont
 accès directement au public, à la foule. Eux seuls ont
 ce contact immédiat qui est ici indispensable à l'exer- À #3
@@ -507,10 +457,8 @@ réveille, ranime, excite, étreint, outre les sentiments
 des consciences, les sentiments et les instincts des
 inconscients. Il règne. Autant l'exercice modeste, pru- "4
 dent, sage, précautionneux de la critique scientifique pi.
-peut éloigner un Duclaux des attitudes gouvernemen-
-tales, autant par l'exercice de son génie oratoire un
-Jaurès devait incliner à exercer une autorité de com-
-mandement. Cette attitude prise dans les situations
+peut éloigner un Duclaux des attitudes gouvernementales, autant par l'exercice de son génie oratoire un
+Jaurès devait incliner à exercer une autorité de commandement. Cette attitude prise dans les situations
 où il se sentait le plus fort, le plus grand, le plus
 mémorable, où il suivait son génie, où il était le plus
 puissant, Jaurès devait naturellement et par préférence #0
@@ -559,13 +507,11 @@ meetings, il était inévitable que l'autorité de comman- FES
 dement exercée invinciblement par le grand orateur
 sur un auditoire, sur la foule populaire, devint dans ce
 cas particulier une autorité de commandement exercée à.
-parle grand orateur ou par le grand conférencier par-
-lementaire sur son auditoire parlementaire, sur la foule
+parle grand orateur ou par le grand conférencier parlementaire sur son auditoire parlementaire, sur la foule
 des députés. La foule parlementaire demande et reçoit ‘#4
 Fautorité de commandement comme toute foule popu-. 7°
 laire. Sans doute l'autorité se fait ici moins apparente, a
-parce que les autorités latentes, éventuelles, des col-
-lègues demandent quelque ménagement. Mais ces
+parce que les autorités latentes, éventuelles, des collègues demandent quelque ménagement. Mais ces
 ménagements ne sont guère que de forme. C'est tout de “4
 même une autorité de commandement qui s'exerce.
 Elle est souvent limitée par la corruption; elle n'est =.
@@ -574,20 +520,17 @@ assemblée parlementaire et en particulier dans la
 Chambre que nous avons aujourd'hui, des autorités:
 de commandement s'exercent et se combattent, il
 y a des meneurs, il y a des chefs. Jaurès est devenu ce
-qu'il n'était pas ou presque pas dans l'ancienne légis-
-lature, un chef parlementaire. Il exerce, commetel, une
+qu'il n'était pas ou presque pas dans l'ancienne législature, un chef parlementaire. Il exerce, commetel, une
 autorité de commandement parlementaire. Il est évident
 qu'il a voulu introduire, et qu'il a commencé d'intro- SE:
-duire dans le dreyfusisme, avec son autorité de com-
-mandement oratoire, son autorité de commandement —.
+duire dans le dreyfusisme, avec son autorité de commandement oratoire, son autorité de commandement —.
 Non seulement le philosophe, l'artiste, le savant ne
 règnent pas, mais ils ne sont pas populaires; et plus a
 ils sont grands, plus ils ne sont pas populaires; ils ne si
 
 vingtième cahier de la quatrième série
 à sont pas envers le peuple du même ordre que sont
-avec lui les populaires, l'orateur, le comédien, le parle-
-mentaire, le chanteur, le chef d'orchestre; le grand
+avec lui les populaires, l'orateur, le comédien, le parlementaire, le chanteur, le chef d'orchestre; le grand
 philosophe, le grand artiste, le grand savant ne règne
 ; pas, quand un orateur petit règne. Il y a dans leur
 modestie, dans leur patience, dans leur tristesse, dans
@@ -633,26 +576,22 @@ cette découverte ou de cette déconvenue intérieure
 
 qu'est la force ou la faiblesse de combinaison, d'inven-
 
-a tion, l'invention étant en ce sens une découverte inté-
-rieure; inventer, c'est découvrir en soi dans une plus
+a tion, l'invention étant en ce sens une découverte intérieure; inventer, c'est découvrir en soi dans une plus
 grande richesse native de combinaisons, dans plus de
 
 souplesse, dans plus de variété le joint que les autres
 chercheurs n'avaient pas déeouvert encore en eux. Mais
 surtout ce que le populaire aime dans quelques sciences: 3)
-et dans quelques savants, c'est l'utilité, surtout mira-
-culeuse, dans sa pensée, qu'il en tire, c'est ce qu'il
+et dans quelques savants, c'est l'utilité, surtout miraculeuse, dans sa pensée, qu'il en tire, c'est ce qu'il
 croit qu'il y a de miraculeux dans certains résultats, et
 qui proprement n'y est pas, car ce qu'on nomme le
 bonheur de la découverte n'a rien de théologiquement
 miraculeux. Ainsi les quelques artistes et les quelques
 savants qui ont régné ou bien ont régné non pas comme
-artistes et comme savants mais comme politiques, ora-
-teurs, comédiens, et souvent parlementaires, comme ai
+artistes et comme savants mais comme politiques, orateurs, comédiens, et souvent parlementaires, comme ai
 hommes d'État ou tribuns, — car il est notable que RES
 beaucoup de ces véritables artistes et de ces véritables “14
-savants, quand ils font métier politique et parlemen-
-taire, oublient totalement leur personnalité de savants
+savants, quand ils font métier politique et parlementaire, oublient totalement leur personnalité de savants
 et d'artistes et deviennent des orateurs quelconques,
 des politiques parlementaires quelconques, — ou bien Me
 ont régné non pas comme artistes et comme savants
@@ -682,9 +621,7 @@ celle où tous les autres orateurs tendent invinciblement,
 ï sinon complaisamment; de tous les orateurs le prédica-
 
 4 teur est celui qui exerce le plus et le mieux, le plus
-abondamment, le plus somptueusement, le plus confor-
-
-tablement l'autorité du commandement oratoire; aussi
+abondamment, le plus somptueusement, le plus confortablement l'autorité du commandement oratoire; aussi
 
 . est-il de tous les orateurs celui que les autres envient
 secrètement, consciemment ou inconsciemment, et sur
@@ -703,30 +640,18 @@ Les contradicteurs, quand ïls ne sont pas de connivence, quand ils ne sont pas 
 des avocats du diable, sont littéralement excommumniés
 et livrés au bras séculier; ils reçoivent les tabourets
 
-par la tête, ce qui est la forme et la manifestation mo-
+par la tête, ce qui est la forme et la manifestation moderne de l'intolérance religieuse. Les meetings sont devenus rituellement des vêpres. Et l'Znternationale remplace
 
-derne de l'intolérance religieuse. Les meetings sont deve-
-
-nus rituellement des vêpres. Et l'Znternationale remplace
-
-À le Magnificat. Les orateurs tendent tous à exercer l'auto-
-
-rité du commandement oratoire comme le prédicateut;
+À le Magnificat. Les orateurs tendent tous à exercer l'autorité du commandement oratoire comme le prédicateut;
 
 ) la tribune est devenue chaire. Inversement quand
-l'Église introduit l'avocat du diable pour faire la contra-
-diction, quelle que soit l'antiquité de cette habitude, si
-traditionnelle qu'elle soit et quand même elle se rattacherait au drame et à la comédie religieuse du Moyens Age, et quand même elle rejoindrait une antiquité chré-
-
-tienne encore plus éloignée, au sens où l'Église pratique
-aujourd'hui cette coutume, afin de rajeunir et de popu-
-lariser l'éloquence de la chaire, pour stimuler latten-
-tion, pour corser les offices, pour exciter les fidèles,
+l'Église introduit l'avocat du diable pour faire la contradiction, quelle que soit l'antiquité de cette habitude, si
+traditionnelle qu'elle soit et quand même elle se rattacherait au drame et à la comédie religieuse du Moyens Age, et quand même elle rejoindrait une antiquité chrétienne encore plus éloignée, au sens où l'Église pratique
+aujourd'hui cette coutume, afin de rajeunir et de populariser l'éloquence de la chaire, pour stimuler lattention, pour corser les offices, pour exciter les fidèles,
 pour transformer, pour déformer une assistance en
 auditoire et en spectateurs, pour faire, elle aussi, de la #1
 quand l'Église introduit dans ses temples et dans ses “2
-offices le débat de contradictions outrées, criardes et fac-
-tices, elle méconnaït ce qui fait sa véritable force et sa
+offices le débat de contradictions outrées, criardes et factices, elle méconnaït ce qui fait sa véritable force et sa
 véritable grandeur. Ayant la grandeéloquence, l'ancienne
 éloquence de la chaire, Bossuet, quand elle introduit la
 polémique et l'engueulement, unilatéral, mutuel ou réci- à.:
@@ -737,8 +662,7 @@ en effet dans l'incertitude et dans la trivialité. On ne ne
 saura jamais toutes les sottises qu'aura fait commettre
 à l'Église catholique cette manie, cette outrance de se
 moderniser, souvent même de s'américaniser. Elle en
-oublie, elle en méconnaît toute sa force et toute sa gran-
-deur. C'était elle qui avait le sens de la véritable élo- À
+oublie, elle en méconnaît toute sa force et toute sa grandeur. C'était elle qui avait le sens de la véritable élo- À
 quence, pasce que l'éloquence est un moyen d'exercer He.
 une autorité de commandement, parce que tout cela se
 tient, parce que toutes les autorités de commandement
@@ -767,27 +691,22 @@ la chaire, et que l'Église au contraire, la grande maitresse d'antiquité, la g
 commandement, se disperse aux formes récentes et
 déjà vieillies, qu'en outre elle contrefait et feint, des
 À Toutes ces réunions controverses que l'on organise
-dans le cinquième arrondissement de Paris pour la jeu-
-nesse des Écoles et un peu ailleurs ne prouvent pas
+dans le cinquième arrondissement de Paris pour la jeunesse des Écoles et un peu ailleurs ne prouvent pas
 . contre ce que nous avons dit du gouvernement oratoire; ou bien elles sont des entreprises d'argent ou de
 publicité; ou bien elles ne tiennent que par l'autorité
 morale ou par l'autorité commandement du président, du bureau, des orateurs ou des conférenciers; ou
-bien elles ne fournissent que des controverses de con-
-férenciers: le talent du conférencier est tout à fait
+bien elles ne fournissent que des controverses de conférenciers: le talent du conférencier est tout à fait
 distinct du génie oratoire; ou bien chacun des deux È )
 
 teurs gouverne une partie, moralement cloisonnée, de ‘#2
 Vassistance; ou bien les assistants ne sont venus que
-pour la représentation; dans ces conférences-contro-
-verses on peut dire que, sauf de rares et d'honorables
-exceptions, l'assistance, quand elle échappe au gouver-
-nement oratoire unique, y échappe tantôt par un par- “3
+pour la représentation; dans ces conférences-controverses on peut dire que, sauf de rares et d'honorables
+exceptions, l'assistance, quand elle échappe au gouvernement oratoire unique, y échappe tantôt par un par- “3
 tage de gouvernement oratoire, tantôt par indifférence, ESS
 amusement et plaisir, et non pas par la véritable
 Plus que tout autre grand orateur parlementaire,
 Jaurès devait incliner à spécifier en autorité de com- +2
-mandement parlementaire son autorité de commande-
-ment oratoire. Les plus grands admirateurs de son
+mandement parlementaire son autorité de commandement oratoire. Les plus grands admirateurs de son
 génie oratoire s'accordent à constater qu'il n'est pas À
 proprement un grand orateur parlementaire, mais qu'il
 est plutôt un grand orateur, généralement parlant, un
@@ -801,11 +720,9 @@ qu'il vaut. La tribune yest trop petite pour lui, pour son
 ampleur, pour son geste, pour sa voix même, pour sa AR.
 lourdeur. y manque de cette souplesse, de cette
 achemination, de cet accompagnement, de cette inces- Du
-sante adaptation qui fait le véritable orateur parlemen-
-taire. Il y devient ainsi l'égal et quelquefois l'inférieur
+sante adaptation qui fait le véritable orateur parlementaire. Il y devient ainsi l'égal et quelquefois l'inférieur
 de gens qui, absolument parlant, sont loin de le valoir,
-comme l'honorable M. Briand ou son collègue l'hono-
-rable M. Ribot. Sentant naturellement son manque,
+comme l'honorable M. Briand ou son collègue l'honorable M. Ribot. Sentant naturellement son manque,
 
 me vingtième cahier de la quatrième série
 
@@ -817,7 +734,7 @@ l'accord est unanime sur ce point, que ce sont justement
 
 ; les qualités de force, de masse, de pesanteur, de com-
 
-à: mandement. Jaurès transporte donc en vrac à la tribune
+mandement. Jaurès transporte donc en vrac à la tribune
 
 sa grande et lourde éloquence des meetings, son bloc
 
@@ -831,9 +748,7 @@ a la présente législature, fut mauvaise, que son premier
 
 À discours fut mal accueïlli, fit un mauvais effet, donna
 
-SAINS une impression désagréable, solennelle, pénible, grin-
-
-çante, fatiguée, fausse, lourde, que son prestige d'ora- —
+SAINS une impression désagréable, solennelle, pénible, grinçante, fatiguée, fausse, lourde, que son prestige d'ora- —
 
 (8 teur en fut fortement entamé, qu'il en souffrit beaucoup,
 
@@ -859,7 +774,7 @@ Sa cléricaliste. Jaurès alors transporte à la tribune son
 
 raison que c'est la seule qu'il ait, la seule dont il soit
 
-à bien assuré, parce que se sentant toujours menacé à;
+à bien assuré, parce que se sentant toujours menacé
 
 ; la tribune, menacé parles combinaisons parlementaires,
 
@@ -874,13 +789,11 @@ de sa propre originalité. Il s'efforce, à la tribune parle
 mentaire, ainsi qu'il y réussissait à la tribune des
 meetings, d'exercer une autorité de commandement. 5 set
 Telle est, au dire de ses plus grands admirateurs, la A
-qualification de son éloquence. Il a voulu, par entraîne-
-ment, par habitude, par méthode, introduire dans le
+qualification de son éloquence. Il a voulu, par entraînement, par habitude, par méthode, introduire dans le
 recommencement du dreyfusisme cette double autorité SUR
 de commandement oratoire et de commandement
 La division, l'organisation, la répartition des indi- AA.
-vidus ou des masses parlementaires en partis parle-
-mentaires, la formation des partis et des sous-partis de,
+vidus ou des masses parlementaires en partis parlementaires, la formation des partis et des sous-partis de,
 parlementaires en groupes et en sous-groupes contribue
 beaucoup à incliner un orateur parlementaire dans le à
 sens d'exercer une autorité de commandement. Nous
@@ -898,9 +811,7 @@ beaucoup mieux, sévit beaucoup plus gravement dans
 une société restreinte. Toutes choses égales d'ailleurs,
 dans une société nombreuse la hauteur et l'éloignement
 du maître, la communauté, la dilution de la servitude
-en diminue l'intensité. Mais toutes choses égales d'ail-
-
-vingtième cahier de la quatrième série
+en diminue l'intensité. Mais toutes choses égales d'ailvingtième cahier de la quatrième série
 leurs, dans une société peu nombreuse la proximité du:
 maître, la restriction du champ de la servitude en:
 à accroît considérablement l'intensité. Ainsi les groupes
@@ -920,16 +831,13 @@ cents; dans l'assemblée on se heurte à des égaux, ou
 maîtres; dans le groupe on ne se heurte qu'aux résistances et à l'envie des inférieurs; dans le groupe les
 complices, amis politiques; on s'entend entre soi; dans
 l'assemblée le grand nombre même des subordonnés
-À fait comme un grand flot, une grande vague d'indifté-
-rence ou d'hostilité qui peut emporter tout; ici on est
+À fait comme un grand flot, une grande vague d'indiftérence ou d'hostilité qui peut emporter tout; ici on est
 peu nombreux, on est entre amis; et il est doux
 d'exercer une autorité de commandement sur de
 véritables amis quand ces véritables amis sont de
 C'est une raison pour quoi le gouvernement parlementaire a si rapidement dégénéré en. gouvernement:
 des partis parlementaires et pourquoi le gouvernement
-des partis parlementaires s'est aussi rapidement cris24
-
-tallisé, aggloméré, en gouvernement des groupes et
+des partis parlementaires s'est aussi rapidement cristallisé, aggloméré, en gouvernement des groupes et
 des sous-groupes. Assez fortement installé pendant
 les anciennes législatures, le gouvernement des groupes; Si
 s'était détendu pendant quelques années. Il est aujour-
@@ -963,8 +871,7 @@ ment, concentré dans l'objet, culminant devant l'unité
 du maître, en reçoit toutes les sales satisfactions
 
 vingtième cahier de la quatrième série
-, qu'il demande. Les groupes et les sous-groupes parle-
-mentaires ne sont pas tant des coalitions d'intérêts,
+, qu'il demande. Les groupes et les sous-groupes parlementaires ne sont pas tant des coalitions d'intérêts,
 2: des syndicats d'arrivisme et d'ambition que des coalive; tions de servitude, commandement et obéissance, des
 a syndicats d'arrogance et de platitude mutuelles. Ce
 4 n'est pas tant pour que les groupés arrivent qu'il y a
@@ -996,16 +903,14 @@ sont formés en compagnies, en sections, en escouades.
 
 Il n'y a pas seulement dans la société bourgeoise pré- ee.
 sente le militarisme dogmatique, le militarisme à objet
-militaire. Il y a aussi et surtout un militarisme inté-
-rieur, de mœurs, d'habitudes, de vice et de besoin. Ce
+militaire. Il y a aussi et surtout un militarisme intérieur, de mœurs, d'habitudes, de vice et de besoin. Ce
 n'est pas en vain que tant de civils parlent tant de
 
 Jaurès, qui n'était pas un homme de groupe dans 2%
 l'ancienne législature, quand le groupe socialiste était tee À
 quand il y avait un groupe socialiste et que ce groupe “hi
 socialiste n'était presque pas un groupe parlementaire,:%4
-Jaurès est devenu un homme de groupe justement pen-
-dant la dernière, la précédente législature, pendant son
+Jaurès est devenu un homme de groupe justement pendant la dernière, la précédente législature, pendant son
 interlégislature, quand exclu forcément de tout groupe EL.
 parlementaire il sentit plus profondément combien
 cette situation lui manquait. Et il est devenu un
@@ -1016,8 +921,7 @@ groupes allaient se constituer, qui sont parlementaires,
 et qui ne sont pas socialistes.
 
 Non seulement Jaurès est devenu un homme de
-gouvernement parlementaire, non seulement il est devenu un homme de gouvernement de parti parlemen-
-taire, maïs il est devenu très spécialement un homme
+gouvernement parlementaire, non seulement il est devenu un homme de gouvernement de parti parlementaire, maïs il est devenu très spécialement un homme
 de gouvernement de groupe parlementaire. Dès avant mn.
 sa réélection, mais surtout depuis qu'il est redevenu dus
 député, il a donné tout son effort pour que le gouver- À
@@ -1029,8 +933,7 @@ ces groupes; cela pour son action extérieure; et inté- 1%
 , vingtième cahier de la quatrième série
 rieurement il a donné tout son effort pour que les
 députés dits socialistes se missent en un groupe parle-
-Ce n'est pas seulement par les moyens du gouverne-
-ment parlementaire, ce n'est pas seulement par les
+Ce n'est pas seulement par les moyens du gouvernement parlementaire, ce n'est pas seulement par les
 moyens du gouvernement de parti parlementaire, c'est
 très spécialement par les moyens du gouvernement de
 groupe parlementaire que Jaurès a voulu introduire son
@@ -1041,8 +944,7 @@ incontesté; délégué permanent de ce groupe auprès des
 de ce groupe en ces comités officiels ou officieux d'entente et vraiment de gouvernement où s'exerce loin de
 toute publicité le gouvernement parlementaire du bloc,
 et ainsi tout le gouvernement parlementaire de toute la
-France, comités où le gouvernement se transporte luimême et rend un compte qu'il ne doit qu'aux assem-
-blées régulièrement convoquées; délégué enfin par ce …
+France, comités où le gouvernement se transporte luimême et rend un compte qu'il ne doit qu'aux assemblées régulièrement convoquées; délégué enfin par ce …
 groupe auprès des autres groupes républicains pour
 être le candidat commun à la vice-présidence de la
 Chambre et bientôt l'élu commun, Jaurès ne voulut pas,
@@ -1052,17 +954,13 @@ forme politique de groupe parlementaire. IL s'était
 depuis longtemps, et dans un article au moins de
 Petite République, prononcé théoriquement et formellement contre la simple politique parlementaire etpour
 la politique parlementaire de groupe, avec ce qu'elle à
-d'occulte et d'étroit, et, pour dire le mot, d'oligar-
-
-chique, en particulier pour la politique de groupe des NE
+d'occulte et d'étroit, et, pour dire le mot, d'oligarchique, en particulier pour la politique de groupe des NE
 quatre groupes républicains bloqués. Il ne pouvait pas,
-il ne voulut pas entamer une aussi grosse action poli-
-tique parlementaire que lui semblaït être son recom- {000
+il ne voulut pas entamer une aussi grosse action politique parlementaire que lui semblaït être son recom- {000
 mencement de l'affaire sans avoir averti, entretenu ses
 camarades, ses collègues des groupes ainsi bloqués. +4
 On doit attribuer pour la plus grande part à cette préoc-: à
-cupation le soin qu'il eut d'en faire la divulgation pré-
-maturée. S'il parla de l'affaire et du recommencement
+cupation le soin qu'il eut d'en faire la divulgation prématurée. S'il parla de l'affaire et du recommencement
 qu'il en voulait tenter dans quelques réunions publiques 11110
 et dans son journal, ce fut en partie pour émousser
 une opinion publique, et surtout parlementaire, qui je
@@ -1123,8 +1021,7 @@ s'était pas avancé à la légère, et s'il n'a pas reculé à la
 bâte. Je mai aucun scrupule à répondre que la conduite
 
 politique et juridique de M. le général Andrénemeparaît
-pas constante. Il est arrivé récemment au général André « un événement capital dans la vie d'un homme, unévénement dont les biographes et les historiens oublient sou-
-vent l'importance: il a pris sa retraite. On n'est plusle
+pas constante. Il est arrivé récemment au général André « un événement capital dans la vie d'un homme, unévénement dont les biographes et les historiens oublient souvent l'importance: il a pris sa retraite. On n'est plusle
 même homme après qu'avant cet événement. Les boutiquiers d'Orléans meurent six mois après qu'ils ont
 
 cédé. C'est surtout un événement fondamental dans la À
@@ -1137,8 +1034,7 @@ que ses collègues du ministère l'ont contraint à se
 décerner lui-même à lui-même la médaille militaire;
 il a subi cette violence, mais ne remplace pas la
 jeunesse, et l'activité. Avant d'avoir passé la limite
-fatale, M. le général André, s'il descendait du minis-
-tère, — mettons pour cause d'affaire Dreyfus, — rece- de.
+fatale, M. le général André, s'il descendait du ministère, — mettons pour cause d'affaire Dreyfus, — rece- de.
 vait régulièrement un commandement de corps d'armée.
 Depuis qu'il a passé la limite fatale M. le général André, (140
 s'il descend du ministère, devient un pauvre homme, (2200
@@ -1146,16 +1042,13 @@ un réserviste, un réserviste rémunéré, un retraité, mais:4 À
 un réserviste enfin, comme vous et moi, et tel que M. le oui;
 général de Galliffet. Comme tant de vieux officiers, il
 sera contraint de se faire journaliste. Comme tous les
-gens qui ne savent plus quoi faire, il pense au Parle-
-ment. Maïs on ne sait pas encore si c'est à la Chambre
+gens qui ne savent plus quoi faire, il pense au Parlement. Maïs on ne sait pas encore si c'est à la Chambre
 ou au Sénat qu'il continuera de sauver la République.
 D'une part on dit qu'il est désigné pour devenir le séna- À ki.
 teur de Dijon. Plus de quinze ou vingt maires et je ne
-sais combien d'adjoints le supplient de se porter can-
-didat au conseil général dans son canton de Gevrey-
+sais combien d'adjoints le supplient de se porter candidat au conseil général dans son canton de Gevrey-
 Chambertin. D'autre part on avait parlé de lui pour la
-première circonscription de Sceaux, communes et can-
-ton de Montreuil-Vincennes, Seine. Cette circonscription
+première circonscription de Sceaux, communes et canton de Montreuil-Vincennes, Seine. Cette circonscription
 est devenue vacante et à pourvoir depuis que le gou- Da.
 vernement de M. Combes a payé d'un riche consulat
 général en Amérique la démission du possesseur
@@ -1164,13 +1057,11 @@ vingtième cahier de la quatrième série
 nationaliste, M. Pierre-Marie Richard. Notons que "3
 M. Combes désobéit à ses propres circulaires. Il a À
 é formellement commandé à ses subordonnés de réserver
-1 les faveurs gouvernementales aux combistes, et lui-
-te même on vient de noter qu'il réserve beaucoup de ces
+1 les faveurs gouvernementales aux combistes, et luite même on vient de noter qu'il réserve beaucoup de ces
 faveurs à des nationalistes. Il est vrai que c'est pour
 les acheter. — Le général André candidat sera comme
 Re: Sur la coïncidence de Jaurès et du général André, sur
-guerre, je rappelle que je n'ai saisir, dans le dix-
-huitième cahier de la quatrième série, qu'un exemple, …
+guerre, je rappelle que je n'ai saisir, dans le dixhuitième cahier de la quatrième série, qu'un exemple, …
 ! parmi tant d'exemples, de la duplicité parlementaire,
 : et que j'ai tâché seulement que cet exemple fût culmi-
 ; Rendons justice à Jaurès. Dans le soin qu'il eut de
@@ -1179,11 +1070,9 @@ il entrait beaucoup de loyauté, de constance, envers
 ï soi-même, envers le public, envers ces collègues. Il persévérait ainsi dans un système de gouvernement dont
 il s'est fait l'adepte et le théoricien. Il continuait ainsi
 comme il avait dès longtemps commencé. IL évitait
-ainsi de se démentir, de démentir son action précé-
-dente, et les précédentes relations entretenues avec ses
+ainsi de se démentir, de démentir son action précédente, et les précédentes relations entretenues avec ses
 à collègues. Mais il entrait aussi beaucoup de politique.
-Par le seul fait qu'ils écoutaient des conversations com-
-mencées et poursuivies publiquement, les collègues
+Par le seul fait qu'ils écoutaient des conversations commencées et poursuivies publiquement, les collègues
 1 chefs de groupe donnaient des gages publiquement.
 ï Une fois qu'ils auraient laissé passer sans interrompre;
 et sans contredire, ils ne pourraient plus dire qu'il n'y
@@ -1194,34 +1083,27 @@ loyauté. La politique fut déçue; la loyauté fut jouée.
 Dès lors Jaurès avait mal compté avec la lâcheté de ses
 amis politiques. De jours en jours Jaurès, et Francis de
 Pressensé, qui en toute cette affaire paraît l'avoir secondé
-loyalement, de jours en jours Jaurès et Francis de Pres-
-sensé entretenaient le groupe, les groupes, les bureaux à
-des groupes, les chefs des groupes. L'effet de ces com-
-munications répétées aux groupes fut exactement le Et
+loyalement, de jours en jours Jaurès et Francis de Pressensé entretenaient le groupe, les groupes, les bureaux à
+des groupes, les chefs des groupes. L'effet de ces communications répétées aux groupes fut exactement le Et
 contraire de celui que l'on avait escompté.
-Jaurès avait voulu, sincèrement, donner aux parle-
-mentaires politiciens radicaux et radicaux-socialistes
+Jaurès avait voulu, sincèrement, donner aux parlementaires politiciens radicaux et radicaux-socialistes
 une impression de constance et de loyauté; il ne réussit ne
 qu'à susciter leur méfiance politique et parlementaire. ACTES
-Les parlementaires politiciens radicaux et radicaux-
-socialistes, qui se connaissent, et qui se représentent mn!
+Les parlementaires politiciens radicaux et radicauxsocialistes, qui se connaissent, et qui se représentent mn!
 volontiers à leur image tous les politiques et tous les par- nn:
 lementaires se dirent: Puisque Jaurès nous prévient, c'est me:
 qu'il veut faire des combinaisons politiques et parlemen- À
 taires sans nous. Puisque Jaurès nous fait des avances,
 puisqu'il nous traite aussi poliment, trop poli pour être
 honnête, c'est qu'il prépare des machinations politiques
-et parlementaires contre nous. Et, prenant leurs précau-
-tions, ils répondirent aux combinaisons, aux machina- ta
+et parlementaires contre nous. Et, prenant leurs précautions, ils répondirent aux combinaisons, aux machina- ta
 tions qu'ils supposaient par des combinaisons, par des
 Jaurès avait voulu donner aux parlementaires politi- 4 2%
 ciens radicaux et radicaux-socialistes une impression?
 de sagesse et de fermeté politique; il ne réussit qu'à
 réveiller leur incurable couardise. Puisque Jaurès nous; À
 prévient, se dirent les radicaux, les célèbres hommes ne
-de gouvernement, les hommes d'État, les hommes d'au-
-
-vingtième cahier de la quatrième série
+de gouvernement, les hommes d'État, les hommes d'auvingtième cahier de la quatrième série
 4% torité, les hommes laïques, puisqu'il fait appel à notre
 : courage politique et parlementaire, c'est donc qu'il y
 4 avoir du danger. Et dès lors ils dressèrent les oreiïlles,
@@ -1233,9 +1115,7 @@ orateur. Il nous connaît.
 Ainsi le long délai ménagé par l'indiscrétion voulue;
 prématurée de Jaurès pour donner aux radicaux de
 gouvernement le temps de rassembler leurs forces non
-päs éparses mais absentes fut employé tout entier à pré-
-parer la trahison des radicaux et la défection des radi-
-caux-socialistes. Dès lors et déjà en ceci Jaurès eut l'hon-
+päs éparses mais absentes fut employé tout entier à préparer la trahison des radicaux et la défection des radicaux-socialistes. Dès lors et déjà en ceci Jaurès eut l'hon-
 : neur de se tromper totalement sur la valeur et sur la tenue
 politique de ses amis politiques. Dès lors se préparaïent
 la trahison et la défection qui devaient s'accomplir
@@ -1248,20 +1128,14 @@ gauche radicale, union démocratique; de jours en jours
 É se succédaient les procès-verbaux inquiétants, et ces
 3 communiqués sournois à la presse, que personne ensuite
 ne voulut avouer dans la publicité des séances.
-Par une opération beaucoup plus profonde et beau-
-coup plus grave, par une altération politique parlemen-
-
-taire beaucoup plus dangereuse, par une corruption 40)
+Par une opération beaucoup plus profonde et beaucoup plus grave, par une altération politique parlementaire beaucoup plus dangereuse, par une corruption 40)
 politique parlementaire Jaurès, qui avait soumis son
-recommencement de l'affaire à la politique parlemen-
-taire de groupe, introduisit la politique parlementaire “4
+recommencement de l'affaire à la politique parlementaire de groupe, introduisit la politique parlementaire “4
 de groupe au, cœur de l'affaire qu'il recommençait; RTE
 extérieurement il avait exposé le recommencement de
-l'affaire à la domination, aux hasards, aux combinai-
-sons, aux machinations des groupes politiques parle- ‘ir:
+l'affaire à la domination, aux hasards, aux combinaisons, aux machinations des groupes politiques parle- ‘ir:
 mentaires; intérieurement, c'est-à-dire par une déviation, 1 à
-par une perversion beaucoup plus profonde et beau-
-coup plus grave, il mit son recommencement de l'affaire ce
+par une perversion beaucoup plus profonde et beaucoup plus grave, il mit son recommencement de l'affaire ce
 dans la forme politique de groupe parlementaire.
 On peut à peu près résumer le mode, la méthode, le
 sens de ce recommencement en disant que Jaurès a ne
@@ -1296,10 +1170,8 @@ travail et d'administration. Puisqu'on avertissait,
 puisqu'on prévenait tout le monde, et le- grand public
 des journaux et des meetings, et le public politique, et
 ; le public parlementaire, et les radicaux douteux, et les
-radicaux-socialistes penchants, et les ennemis antisé-
-mites, il était indispensable, il était convenable, il était
-juste, il était correct de nous prévenir aussi, de pré-
-venir les dreyfusistes.
+radicaux-socialistes penchants, et les ennemis antisémites, il était indispensable, il était convenable, il était
+juste, il était correct de nous prévenir aussi, de prévenir les dreyfusistes.
 
 On sait qu'on n'en fit rien. Tout d'un coup on nous
 dit qu'on marchaït. Et pendant plusieurs mois nous
@@ -1307,17 +1179,13 @@ eûmes ce spectacle singulier que Jaurès, entrepreneur
 du recommencement, éditeur et peut-être auteur du
 recommencement, s'adressait à tout le monde, excepté
 
-à nous. Il adressaït au grand public des communica-
-
-tions et des exhortations oratoires; il adressait aux
+à nous. Il adressaït au grand public des communications et des exhortations oratoires; il adressait aux
 
 politiques des confidences oratoires; il adressait aux
 
 : parlementaires des admonestations oratoires; il adres-
 
-à sait aux radicaux et aux radicaux-socialistes des encou-
-
-antidreyfusistes qualifiés des menaces oratoires; il
+à sait aux radicaux et aux radicaux-socialistes des encouantidreyfusistes qualifiés des menaces oratoires; il
 
 adressa quelque chose d'oratoire à tout le monde. Mais
 à nous il n'adressa rien. Aux dreyfusistes il n'adressa
@@ -1340,8 +1208,7 @@ ger ses véritables amis, parce qu'on ne les redoute pas.
 Jaurès entretenait le public, parce qu'il redoutait à
 l'indifférence ou l'hostilité du public; il entretenait le nn:
 monde politique, parce qu'il redoutait les machinations
-du monde politique; il entretenait le monde parlemen-
-taire, parce qu'il redoutait les combinaisons du monde
+du monde politique; il entretenait le monde parlementaire, parce qu'il redoutait les combinaisons du monde
 parlementaire; il entretenait ses amis politiques les Au
 radicaux et les radicaux-socialistes parce que, tout en se
 trompant sur la grandeur de leur faiblesse et sur la
@@ -1364,13 +1231,11 @@ ne existence qu'après la défaite politique parlementaire
 
 acquise; quand le public lui fut devenu hostile ou
 
-indifférent; — l'indifférence étant ici la pire des hosti-
-
-ne lités; — quand le monde politique eut rejeté son
+indifférent; — l'indifférence étant ici la pire des hostine lités; — quand le monde politique eut rejeté son
 
 recommencement de l'affaire, quand le monde parle-
 
-:: mentaire l'eut joué, quand les radicaux-socialistes
+mentaire l'eut joué, quand les radicaux-socialistes
 
 l'eurent lâché, quand les radicaux l'eurent trahi, quand
 
@@ -1410,18 +1275,16 @@ quelque conseil, maïs on négligea de leur faire savoir
 
 C'était une décision capitale, et de conséquence incal-
 
-ù culable, que de réintroduire par les moyens politiques …;
+ù culable, que de réintroduire par les moyens politiques
 parlementaires une affaire qui n'avait jamais ététraitée,
 sommairement parlant, et en son chef, que par les
 
 noyens de la justice et de la révolution. Cette décision PA:
 apitale fut prise on ne sait par qui, on ne sait pour
-juoï, on ne sait comment, on ne sait quand. Cette incer-
-itude, cette ignorance a donné lieu aux plus graves
+juoï, on ne sait comment, on ne sait quand. Cette inceritude, cette ignorance a donné lieu aux plus graves
 nquiétudes, et aux plus graves soupçons. Des dreyfu- Le a
 istes anciens, rendus soupçonneux par tant d'expé- Me:
-iences pénibles, se sont demandé si le recommence-
-nent de l'affaire nommé reprise, à telle date, en de à
+iences pénibles, se sont demandé si le recommencenent de l'affaire nommé reprise, à telle date, en de à
 elles conditions, émanait librement de M. Dreyfus ou
 contraire si elle émanait politiquement de M. Jaurès:
 nème ils se sont demandé si cette brusque reprise
@@ -1429,22 +1292,18 @@ avait pas été imposée, amicalement, enlevée par à
 aurès; dans l'état actuel de nos connaissances, nous
 le pouvons répondre à de telles inquiétudes. Je ne
 onfonds pas, et l'on doit distinguer d'abord, la décision
-qui était prise depuis longtemps de recommencer l'af-
-aire, de tenter la reprise avec les éléments que l'on à.
+qui était prise depuis longtemps de recommencer l'afaire, de tenter la reprise avec les éléments que l'on à.
 wait réunis, et la décision qui fut prise un jour, brusque,
 le recommencer tout de suite et par les moyens politi- “1
-ues parlementaires. La première de ces deux déci-
-ions était une décision d'opportunité; la deuxième
+ues parlementaires. La première de ces deux déciions était une décision d'opportunité; la deuxième
 tait une décision de moralité. te
 Par une pénétration intérieure, profonde et grave, à
 les mœurs politiques parlementaires dans ce recom- à
 nencement politique parlementaire d'une affaire qui
 tait révolutionnaire et morale, ce recommencement de
-affaire fut organisé sous le régime d'une totale irres-
-onsabilité. On me dit que cette décision capitale fut te
+affaire fut organisé sous le régime d'une totale irresonsabilité. On me dit que cette décision capitale fut te
 rise contre l'avis du principal intéressé; je n'en veux …
-ien savoir; pour les mêmes raisons que nous deman-
-lons que l'action dreyfusiste soit et reste ouverte, pour di:
+ien savoir; pour les mêmes raisons que nous demanlons que l'action dreyfusiste soit et reste ouverte, pour di:
 es mêmes raisons nous nous rendons compte qu'il faut on
 
 Ù vingtième cahier de la quatrième série
@@ -1467,8 +1326,7 @@ traite les colonialistes avec plus d'égards, avec plus de
 
 C'est le grand secret de la politique, de faire ou de.
 faire semblant de faire une action avec tout le monde,'
-éxcepté avec ceux qui sont naturellement, spontané-
-ment désignés, volontairement qualifiés pour la faire:
+éxcepté avec ceux qui sont naturellement, spontanément désignés, volontairement qualifiés pour la faire:
 : France a quelque part indiqué le grotesque politique
 ê de tous ces hannetons, de tous ces bourdonnants, de'
 tous ces habiles bêtes, qui pendant le premier temps du
@@ -1479,15 +1337,13 @@ de bruit, nous disaient-ils; vous épouvantez les bonnes,
 ? volontés. Si vous vous teniez tranquilles, ou plus heu
 reusement encore si vous n'existiez pas, l'affaire "4
 
-fus marcheraït toute seule; sans vous l'injustice mili-
-taire et juridique se dissoudrait, l'armée militaire et An
+fus marcheraït toute seule; sans vous l'injustice militaire et juridique se dissoudrait, l'armée militaire et An
 démagogique romprait les rangs. — France comparaït
 ces bons conseilleurs aux excellents historiens qui décou- A
 vrent que sans Luther et sans Calvin la Réforme aurait
 marché toute seule. ce fut exactement le défaut et
 le contresens politique de Jaurès en son recommen- LE
-cement de l'affaire. Gêné depuis l'amnistie dans la fré-
-queniation des dreyfusistes, il conçut ingénieusement
+cement de l'affaire. Gêné depuis l'amnistie dans la fréqueniation des dreyfusistes, il conçut ingénieusement
 le plan de tout refaire le dreyfusisme sans eux.
 C'est le fin de la politique. Faire du catholicisme avec
 les catholiques, du libéralisme avec les libéraux, du
@@ -1499,14 +1355,11 @@ catholicisme avec les démagogues anticatholiques et
 catholiques, faire du libéralisme sous la forme du Ne:
 monopole, faire du socialisme sous les espèces de l'État
 bourgeois, faire enfin du dreyfusisme avec les radicaux;:
-faire de l'antimilitarisme avec les militaires, de préfé-
-rence avec les généraux de défense républicaine, faire
-de l'anticolonialisme avec l'ancienne infanterie de ma-
-rine, et préparer la révolution sociale avec les radicaux
+faire de l'antimilitarisme avec les militaires, de préférence avec les généraux de défense républicaine, faire
+de l'anticolonialisme avec l'ancienne infanterie de marine, et préparer la révolution sociale avec les radicaux
 réactionnaires, c'est très compliqué, c'est très malin,
 c'est de la politique. Et c'est ainsi que l'on devient grand 4]
-C'est la pente naturelle des politiques, et des politi-
-ques parlementaires, que de procéder par autorité de sa
+C'est la pente naturelle des politiques, et des politiques parlementaires, que de procéder par autorité de sa
 commandement. Quand un homme libre parle à des di:
 hommes libres, quand un homme libre s'entretient avec
 
@@ -1536,9 +1389,7 @@ parlementaires toute parole subit une déperdition, une
 dépréciation propre, une falsification, une altération
 
 propre. Et c'est précisément pour compenser l'effet de
-cette déperdition, c'est afin de redresser l'infléchis-
-
-sement de cette altération que les chefs de groupe, que
+cette déperdition, c'est afin de redresser l'infléchissement de cette altération que les chefs de groupe, que
 
 à les capitaines politiques parlementaires, que les orax teurs, que les hommes d'État, que les hommes de gou-.
 
@@ -1554,26 +1405,21 @@ s'établit ainsi vraiment comme une monnaie fiduciaire.
 Tout le monde en et en éprouve, le besoin. Elle AUS
 devient une institution de servitude mutuelle. Débar- F. LKR
 rassés de la servitude qu'ils subissent, les politiques #73
-parlementaires soumis ne seraient pas moins embarras-
-sés de leur liberté nouvelle que ne le seraient leurs maï- me.
+parlementaires soumis ne seraient pas moins embarrassés de leur liberté nouvelle que ne le seraient leurs maï- me.
 tres ainsi débarrassés de la servitude qu'ils exercent. CSS
 Il s'établit ainsi un cours fictif, une valeur fiduciaire des te À
 paroles et des actes. Ni les actes parlementaires ne por-; É je.
 tent jamais l'effet, ni les paroles parlementaires ne eu:
 portent jamais le sens qu'elles porteraient en français. à
-Tous les partis et tous les groupes politiques parlemen-
-
-taires pratiquent, admettent cette déperdition, cette:
-perversion de sens des paroles politiques parlemen-
-taires et des actes. Il s'établit ainsi un véritable langage de
+Tous les partis et tous les groupes politiques parlementaires pratiquent, admettent cette déperdition, cette:
+perversion de sens des paroles politiques parlementaires et des actes. Il s'établit ainsi un véritable langage de
 politique parlementaire, un langage propre, un langage
 fiduciaire, un idiome, un langage conventionnel. Tous
 les partis politiques parlementaires, sans aucune excep-: PCR
 tion, parlent ce langage conventionnel, tous l'entendent;
 Fopposition républicaine ou réactionnaire n'a rien à
 envier ici aux différentes et pour un temps fructueuses ‘té
-positions républicaines. Apprendre la politique parle-
-mentaire, c'est apprendre à parler ce langage, et les “1
+positions républicaines. Apprendre la politique parlementaire, c'est apprendre à parler ce langage, et les “1
 plus grossiers démagogues y parviennent. Savoir la ‘#4
 politique parlementaire, c'est savoir parler ce langage, A
 et les plus grands orateurs y succombent. Quand le pré-!
@@ -1599,8 +1445,7 @@ ta chaleur communicative des banquets, tout le monde
 entend que le président du conseil veut dire que le -.
 ministre de la guerre et celui de la marine étaient saouls.
 ; Et malheureusement quand Jaurès parlait éloquemment
-de justice et de vérité pendant le premier temps de l''af-
-faire, on croyait qu'il s'agissait de justice et de vérité,
+de justice et de vérité pendant le premier temps de l''affaire, on croyait qu'il s'agissait de justice et de vérité,
 parce qu'il parlait encore français; mais aujourd'hui
 quand il parle tumultueusement de justice et de vérité,
 tout le monde entend qu'il parle politique parlementaire, et qu'il s'agit de sauvegarder et de favoriser les
@@ -1623,9 +1468,7 @@ par ses mandataires politiques. {1
 Mais le peuple commence à s'éclairer un peu; et les bS:
 politiques parlementaires trouvent de jour en jour des
 résistances qu'ils ne prévoyaient pas. Surtout dansle ne.
-monde ouvrier. Comme toutes les autorités de com-
-mandement, l'autorité du commandement gouverne-
-mental politique parlementaire sera dévoilée, soulevée,
+monde ouvrier. Comme toutes les autorités de commandement, l'autorité du commandement gouvernemental politique parlementaire sera dévoilée, soulevée,
 déjouée, par le modeste et patient effort de liberté.. 2200
 L'autorité de commandement exercée par les chefs
 parmi et sur leurs amis politiques dans les groupes, He.
@@ -1639,8 +1482,7 @@ imaginé pour compenser le même effet. Puisque les
 troupes entendent moins quand on dit plus, puisque les
 troupes politiques parlementaires font la réduction, la
 traduction, il faut bien qu'inversement les chefs disent #4
-plus pour qu'on entende moins, qu'ils parlent un lan-
-gage à réduire et à traduire. Une fois ce langage fidu-:
+plus pour qu'on entende moins, qu'ils parlent un langage à réduire et à traduire. Une fois ce langage fidu-:
 ciaire, conventionnel, établi par un jeu de surenchère
 croissante, il faut bien que tout le monde le parle, et
 ceux mêmes qui ont le plus contribué à l'établir en sont
@@ -1671,11 +1513,7 @@ menacés, tout le monde entendrait: MVous avons été
 
 É irrémédiablement battus. Ainsi le mensonge parlemen-
 
-0 taire, contaminant le langage même, victime et prison-
-
-nier de sa propre surenchère et de sa propre exagéra-
-
-tion, tourne, rôde et bourdonne en un cercle d'outrances.
+0 taire, contaminant le langage même, victime et prisonnier de sa propre surenchère et de sa propre exagération, tourne, rôde et bourdonne en un cercle d'outrances.
 
 ; Et l'autorité de commandement de groupe, l'autorité
 
@@ -1687,9 +1525,7 @@ Peut-être assistons-nous ici au phénomène le plus
 
 ù important de toute l'histoire parlementaire contempo-
 
-; raine: le peuple des électeurs entend et parle un cer-
-
-tain langage politique presque sincère; la foule des
+; raine: le peuple des électeurs entend et parle un certain langage politique presque sincère; la foule des
 
 élus entend et parle un autre langage politique, un à langage convenu, tout à fait différent du premier, mais
 
@@ -1701,8 +1537,7 @@ foule politique des élus parlaient deux langages poli-
 
 Dee tiques totalement différents, il n'y aurait qu'un moindre
 
-de mal; ces deux parties de la nation vivraient séparé-
-ment, et par suite assez indépendamment; si le langage
+de mal; ces deux parties de la nation vivraient séparément, et par suite assez indépendamment; si le langage
 
 politique des élus n'était pas formé des mêmes mots
 que le langage politique des électeurs, les électeurs
@@ -1716,8 +1551,7 @@ de la situation politique parlementaire actuelle, c'est que A il
 le langage politique parlementaire des élus etle langage RAR
 politique des électeurs sont deux langages parallèles,
 correspondants, à la fois totalement étrangers pour le que
-sens, et pourtant formés des mêmes mots, deux lan-
-gages où les mêmes mots figurent, soutiennent les
+sens, et pourtant formés des mêmes mots, deux langages où les mêmes mots figurent, soutiennent les
 mêmes rapports, mais en des sens totalement diffé
 rents, totalement étrangers. Ainsi le peuple croit si
 savoir, et il ne sait pas, et il ne sait pas qu'il ne sait (10
@@ -1758,23 +1592,19 @@ parlent ce langage politique parlementaire, et presque
 je tous les lecteurs entendent ce langage en français. Et
 « les journalistes et les députés savent parfaitement que
 À les lecteurs et que les électeurs entendront en français
-tout ce qu'ils écrivent et tout ce qu'ils disent en parle-
-mentaire. Et c'est ce qui les rend aussi totalement cou-
-pables. Car ils ne peuvent arguer de leur ignorance.
+tout ce qu'ils écrivent et tout ce qu'ils disent en parlementaire. Et c'est ce qui les rend aussi totalement coupables. Car ils ne peuvent arguer de leur ignorance.
 ; Mais c'est aussi tout le secret du jeu. La distance qu'il
 11 y a du langage parlementaire au langage français
 “or mesure à chaque instant le bénéfice de l'opération,
 A puisque les parlementaires promettent au peuple en
 langage parlementaire et que le peuple tient aux parle
-de mentaires en langage français. Les parlementairespro1 mettent les réformes ou les révolutions en langage par-
-lementaire; le peuple paie l'impôt en langage français.
+de mentaires en langage français. Les parlementairespro1 mettent les réformes ou les révolutions en langage parlementaire; le peuple paie l'impôt en langage français.
 Les parlementaires promettent les monopoles en lanco gage parlementaire; le peuple fournit son travail en
 langage français. Les parlementaires font des lois en
 langage parlementaire; le peuple les subit langage
 français; il y aurait même une très curieuse étude à
 des faire de la marge que la magistrature est forcée d'attribuer à l'exagération du langage parlementaire quand
-on en vient à l'application des lois. Les meneurs par-
-lementaires exercent leurs entraînements en langage
+on en vient à l'application des lois. Les meneurs parlementaires exercent leurs entraînements en langage
 parlementaire; le peuple reçoit les coups en langage
 français. Le peuple des grévistes se fait fusiller en
 
@@ -1793,8 +1623,7 @@ le peuple entend en français, il aime entendre en fran- “VON à
 forme et la condition d'un assujettissement dont on ne Hi:
 voit pas la fin.
 
-Il y aura beaucoup à dire de ce mensonge fondamen-
-tal de la politique parlementaire, et de la situation du
+Il y aura beaucoup à dire de ce mensonge fondamental de la politique parlementaire, et de la situation du
 peuple envers ce mensonge. Le peuple est victime sans
 doute; mais il est en même temps complice; ou plutôt "112
 il est victime des politiques parlementaires; et ilesten
@@ -1815,20 +1644,17 @@ l'autre. Cette excuse est légitime, elle est valable, et Ne.
 pourtant. Il faut bien avouer que le peuple aime à
 
 cingiième cahier - de la quatrième. série
-entendre en français exprès même les discours politi-
-ques parlementaires, parce que c'est beau, parce que
+entendre en français exprès même les discours politiques parlementaires, parce que c'est beau, parce que
 . c'est grand, parce que c'est rassurant, réconfortant,
 confortable, parce que c'est excitant, et, comme on dit,
-; enthousiasmant. Le peuple-se plaît à entendre en fran-
-çais. Il est ainsi victime et complice. Il y a une com-
+; enthousiasmant. Le peuple-se plaît à entendre en français. Il est ainsi victime et complice. Il y a une com-
 . plicité trouble et obscure, une complaisance double
 ù envers les politiques parlementaires et envers soi-
 à même.
 Si évidente que soit cette complicité, le peuple entend:
 en français et il croit ferme à ce qu'il entend. Ou plutôt
 il croit d'autant plus ferme qu'il n'a pas la conscience
-*. tranquille de la complicité qu'il sent assez bien. Tou-
-jours par un effet d'équivalence, le peuple se rassure
+*. tranquille de la complicité qu'il sent assez bien. Toujours par un effet d'équivalence, le peuple se rassure
 de sa complicité sur sa crédulité. Sinon il ne croirait
 tout de même pas tout ce qu'il croit, ou fait semblant
 de croire. Il tient d'autant plus à sa naïveté qu'elle est
@@ -1845,9 +1671,7 @@ qu'il entend. Voulu ou non, ce faux entendu perpétuel
 et universel est vraiment le vice fondamental de la
 politique parlementaire, le mensonge fondamental de
 la politique parlementaire; c'est peut-être le phénomène le plus important de la politique parlementaire
-dans l'histoire contemporaine; et il fait la plus impor50
-
-tante explication que l'on puisse donner de la confiance
+dans l'histoire contemporaine; et il fait la plus importante explication que l'on puisse donner de la confiance
 entière continuée inlassablement par le peuple aux
 politiques parlementaires. Cette confiance ne se meut
 pas dans le même ordre que les actes à qui elle est
@@ -1865,8 +1689,7 @@ d'une affaire inoubliable évite, non moins que tout le a
 peuple des électeurs, de chercher la vérité des relations
 qui lunissent à son état-major politique parlementaire.;
 Il a peur, comme tout le menu peuple, de découvrir
-cette vérité. Il découvrirait qu'en effet les chefs poli-
-tiques parlementaires prétendus dreyfusistes, que l'état- À
+cette vérité. Il découvrirait qu'en effet les chefs politiques parlementaires prétendus dreyfusistes, que l'état- À
 parle, comme tous les politiques parlementaires, le
 langage politique parlementaire, et que lui, menu
 . peuple pourtant véritable dreyfusiste, et véritable
@@ -1885,9 +1708,7 @@ tout en quel idiome se tient la conversation recommencée
 Me langage français présente au lecteur avisé de telles
 0; constances et dans leur exagération même et dans les
 à accélérations de telles constances de surenchères que
-fre: l'on pourrait établir pour un temps donné un diction-
-
-naire en français du langage parlementaire, ou si l'on
+fre: l'on pourrait établir pour un temps donné un dictionnaire en français du langage parlementaire, ou si l'on
 veut un tableau de concordance, une table des sens
 atteints par les mêmes mots, par les mêmes tournures,
 ! par les mêmes phrases, par les mêmes formules dans
@@ -1902,9 +1723,7 @@ scandale ne vient plus de ce langage, il vient des
 accomplie. Ce n'est pas quand on parle ce langage
 politique parlementaire qu'il y a scandale, c'est quand
 
-1 on ne le parle pas, c'est quand un politique parlemen-
-
-taire omet pour un instant de le parler. Ce n'est pas à
+1 on ne le parle pas, c'est quand un politique parlementaire omet pour un instant de le parler. Ce n'est pas à
 politique parlementaire se trompe et dit vrai. On n'a
 
 5 pas oublié le scandale causé pendant la première
@@ -1914,9 +1733,7 @@ M. Lebret, si j'ai bonne mémoire, qui était, je crois,
 . garde des sceaux dans un ministère antidreyfusiste,
 
 — ne serait-ce pas le ministère Dupuy? — admirons:
-comme les gardes des sceaux de la troisième Répu-
-
-blique ont plus que les autres ministres du mal à se
+comme les gardes des sceaux de la troisième République ont plus que les autres ministres du mal à se
 
 garder eux-mêmes, — ce M. Lebret avait dit à ses
 
@@ -1943,31 +1760,27 @@ militaires, entre les troupes parlementaires et les
 troupes militaires, entre les chefs parlementaires et
 les chefs militaires; dans l'armée militaire aussi on;
 procède par autorité de commandement; et dans
-l'armée militaire aussi on parle sur le ton du comman-
-dement. Mais dans l'armée militaire exactement
+l'armée militaire aussi on parle sur le ton du commandement. Mais dans l'armée militaire exactement
 comme dans l'armée parlementaire cette autorité de il
 commandement et ce ton de commandement ne servent
 qu'à faire un appoint, à balancer un défaut. Si les
 députés étaient parfaitement honnêtes, leurs chefs
 n'auraient pas besoin de parler en beau, de majorer la
 réalité; si les députés étaient parfaitement courageux,
-leurs chefs n'auraient pas besoin de parler fort, d'aug-
-menter la réalité; si les députés étaient parfaitement nm.
+leurs chefs n'auraient pas besoin de parler fort, d'augmenter la réalité; si les députés étaient parfaitement nm.
 honnêtes et courageux, si, parlementairement parlant,
 
 PNR vingtième cahier de la quatrième série
 ils étaient parfaitement bons, leurs chefs n'auraient pas
 besoin d'exercer une autorité de commandement et de
 parler sur un ton de commandement; il n'y aurait
-É pas de chefs, pas d'excitations, pas d'encourage-
-ments; chacun proposerait ses raisons. Et pour le
+É pas de chefs, pas d'excitations, pas d'encouragements; chacun proposerait ses raisons. Et pour le
 recommencement de laffaire Jaurès eût dit: Nous vous
 7 demandons de recommencer l'affaire, parce qu'il est
 juste de la recommencer. Pareïillement si les soldats
 étaient parfaitement courageux, si, militairement parlant, ils étaient des soldats parfaitement bons, leurs
 chefs n'auraient pas besoin d'exercer une autorité de
-commandement et de parler sur un ton de commande-
-ment; ils n'auraient qu'à donner des indications; ils
+commandement et de parler sur un ton de commandement; ils n'auraient qu'à donner des indications; ils
 4 diraient: Voici la créte que nous avons à occuper; elle
 est à dix-huit cents mètres environ; nous avons tout lieu
 de croire, par notre service des renseignements, qu'elle
@@ -1988,10 +1801,7 @@ coups de sabre en l'air, ces visages convulsés: en
 exactement ainsi, fait la différence entre le bon député
 
 imaginaire et les mauvais députés réels, pour autant, Le
-— et c'est pour beaucoup, — pour autant que les mau-
-vais députés réels sont éloignés du bon député imagi-
-naire. Plus les soldats sont mauvais, plus ils sont éloi-
-gnés du courage modèle imaginaire, plus il faut de: it,
+— et c'est pour beaucoup, — pour autant que les mauvais députés réels sont éloignés du bon député imaginaire. Plus les soldats sont mauvais, plus ils sont éloignés du courage modèle imaginaire, plus il faut de: it,
 discipline militaire. Plus les députés sont mauvais, plus
 ils sont malhonnêtes, faibles ou lâches, plus il faut de
 discipline parlementaire. C'est pour cela que les radi- Ne
@@ -2004,9 +1814,7 @@ et le bloc. Ils se sont enrégimentés d'autant plus qu'ils
 se sentaient mauvais soldats parlementaires. Ce n'est
 pas une comparaison que nous faisons du parlemen- De
 taire au militaire. C'est une parenté que nous consta- (230
-tons, une parenté naturelle, avec ce qu'elle peut com-
-porter de différence et de ressemblance. Les ressem-
-blances du parlementaire au militaire sont nombreuses,
+tons, une parenté naturelle, avec ce qu'elle peut comporter de différence et de ressemblance. Les ressemblances du parlementaire au militaire sont nombreuses,
 profondes. Il faut que le chef parlementaire, comme le
 chef militaire, entraîne ses hommes. Il ne s'agit pas de
 convaincre. Il ne s'agit pas de justice et de raison. Ilne Ne
@@ -2026,22 +1834,19 @@ pas seulement une autorité de commandement poli
 tique parlementaire, qu'il ne parle pas seulement sur
 un ton de commandement, mais que toute son élo-
 ; quence et toute son écriture ont désormais le ton du
-commandement oratoire, du commandement parlemen- « taire, du commandement professionnel et du comman-
-dement militaire. Nous ne sommes pas ici en présence;
+commandement oratoire, du commandement parlemen- « taire, du commandement professionnel et du commandement militaire. Nous ne sommes pas ici en présence;
 d'un de ces tics littéraires comme on en trouve dans
 l'œuvre des meilleurs orateurs et des meilleurs écri-
 . vains. Il s'agit du ton même, c'est-à-dire de ce qu'il y a
 de plus profond, de personnel, — car Le style est de
 l'homme méme, — dans un discours ou dans un article, À
 qui est devenu dans Jaurès essentiellement, inévitable-;
-ment, le ton parlementaire et le ton du commande-
-ment. Ce ne sont nulles raisons, nulles démonstrations,
+ment, le ton parlementaire et le ton du commandement. Ce ne sont nulles raisons, nulles démonstrations,
 nulles propositions. Ce ne sont qu'exhortations, encouragements, feintes et assurances, feintes assurances,
 admonestations, vigueurs, tambours et clairons. Ce
 n'est plus qu'entraînement. Il y a longtemps que Jaurès
 penchaïit pour tomber dans ce ton du commandement
-parlementaire et militaire. Mais pendant toute la pre-
-mière et toute la grande partie de l'affaire Dreyfus la
+parlementaire et militaire. Mais pendant toute la première et toute la grande partie de l'affaire Dreyfus la
 fréquentation pragmatique, le commerce quotidien, la
 collaboration d'hommes qui n'étaient à aucun degré
 , ni en aucun sens des politiques ni des parlementaires,
@@ -2050,9 +1855,7 @@ autorité de commandement l'avait un peu guéri de
 cette inclinaison. Anarchistes, socialistes libertaires,
 naires, mais socialistes, — nuls radicaux-socialistes,
 
-nuls radicaux anticléricalistes, nuls radicaux de gou-
-vernement, — bourgeois libéraux ou libertaires, ou-
-vriers, syndicalistes, gens de métier, hommes qui
+nuls radicaux anticléricalistes, nuls radicaux de gouvernement, — bourgeois libéraux ou libertaires, ouvriers, syndicalistes, gens de métier, hommes qui
 n'appartenaient à aucuns partis politiques, gens de
 travail, impolitiques, moraux et moralistes, on ne res
 pirait dans le grand atelier et dans la grande armée “+4
@@ -2069,26 +1872,21 @@ et d'extrême importance, il y a des idées, petites, qui
 ne viennent pas. +340
 Mais en même temps qu'il amnistiait les criminels
 antidreyfusistes, en même temps qu'il amnistiait ses
-amis politiques et ses ennemis, Jaurès lui-même s'ac-
-cordait à lui-même cette amnistie mentale et morale
+amis politiques et ses ennemis, Jaurès lui-même s'accordait à lui-même cette amnistie mentale et morale
 d'oublier les bonnes habitudes qu'il avait commencé de
 recevoir, et la guérison provisoirement acceptée. Brus- {214
 quement il retomba dans cette inclination d'exercer
-une autorité de commandement politique parlemen-
-taire et militaire. Qu'on relise la série de ses articles
+une autorité de commandement politique parlementaire et militaire. Qu'on relise la série de ses articles
 et de ses discours: on aperçoit nettement la rechute. Le
 La tentation était grande. Il fallait redevenir le grand
-tribun. Il semble qu'impatient de respirer l'air poli-
-tique Jaurès ait fait l'amnistie surtout pour que le re-
-commencement de la vie politique devint possible. En
+tribun. Il semble qu'impatient de respirer l'air politique Jaurès ait fait l'amnistie surtout pour que le recommencement de la vie politique devint possible. En
 ce sens l'amnistie n'est pas seulement un acte politique
 
 ; vingtième cahier de la quatrième série
 en elle-même, elle est la réintégration de la politique,
 elle est le recommencement, la reprise de la politique;
 me et plût aux dieux, comme dit la grammaire grecque, À
-plût aux dieux que Jaurès eût réussi son recommence-
-ment de l'affaire comme il avait réussi son recommen- A
+plût aux dieux que Jaurès eût réussi son recommencement de l'affaire comme il avait réussi son recommen- A
 cement de la politique. Mais il faut croire qu'il est plus
 facile de recommencer de l'injustice que de la justice,
 : et du mensonge que de la vérité.
@@ -2103,8 +1901,7 @@ tique vit, le dreyfusisme ne vit pas. Le dreyfusisme
 interrompit la politique; la politique a interrompu le
 dreyfusisme. Quand et où l'affaire Dreyfus commence,
 Es la politique finit. Quand et où la politique recommence,
-à l'affaire Dreyfus finit. Et en cela le dreyfusisme accom-
-pagne l'affaire Dreyfus. Le dreyfusisme est l'amnistie
+à l'affaire Dreyfus finit. Et en cela le dreyfusisme accompagne l'affaire Dreyfus. Le dreyfusisme est l'amnistie
 À mortelle de la politique; la politique est l'amnistie à
 mortelle du dreyfusisme. Le dreyfusisme et la politique
 3 ne peuvent pas être contemporains; ils ne peuvent pas
@@ -2112,8 +1909,7 @@ mortelle du dreyfusisme. Le dreyfusisme et la politique
 pouvaient demeurer dans la même cité.
 La première application que Jaurès fit de sa nou-
 : velle politique, le premier exercice de lautorité qu'il
-recouvra dans le commandement politique parlemen-
-taire fut cette campagne singulière, vaine et forcenée,
+recouvra dans le commandement politique parlementaire fut cette campagne singulière, vaine et forcenée,
 qu'il tenta, qu'il poursuivit pour l'unité socialiste. Il ne
 
 s'agit pas ici de critiquer cette campagne même. Nos à
@@ -2127,18 +1923,14 @@ Recommencer l'affaire Dreyfus par les moyens par- de
 lementaires politiques, reprendre le dreyfusisme par
 la politique, ainsi réciproquement que reprendre la
 politique par le dreyfusisme, c'était une gageure, et
-pour tout logicien, pour tout philosophe, une impossi-
-bilité. On ne résout pas de telles contradictions inté-
-rieures, de telles impossibilités logiques. On ne conci-
-pas des idées aussi totalement contradictoires. y he:
+pour tout logicien, pour tout philosophe, une impossibilité. On ne résout pas de telles contradictions intérieures, de telles impossibilités logiques. On ne concipas des idées aussi totalement contradictoires. y he:
 Tout philosophe en était averti. Jaurès, qui est, je - 1210
 pense, agrégé de philosophie, et qui a enseigné, devait À
 y prendre garde. Nous verrons que dans le détail, dans ‘fl
 l'événement, dans le fait, et parlant comme historiens, #3
 recommencement de l'affaire Dreyfus par les moyens
 politiques parlementaires était un recommencement de
-a politique parlementaire et n'était pas un recommen-
-cement de laffaire Dreyfus et du dreyfusisme. Au- qe.
+a politique parlementaire et n'était pas un recommencement de laffaire Dreyfus et du dreyfusisme. Au- qe.
 jourd'hui, avant d'examiner le détail et l'événement, et Le
 parlant comme philosophes, ilest évident qu'en logique, #4
 en psychologie, en morale, en toute philosophie le
@@ -2162,9 +1954,7 @@ honnêtement employer le mode conditionnel, un modeste
 
 NePS optatif, et quelques irréels, Jaurès affectait l'indicatif;
 
-et le futur de l'affirmatif lui était particulièrement fami-
-
-lier. C'est ainsi qu'on lance des troupes dévouées dans
+et le futur de l'affirmatif lui était particulièrement familier. C'est ainsi qu'on lance des troupes dévouées dans
 
 ù le sacrifice et dans le massacre. Combien de fois
 
@@ -2184,9 +1974,7 @@ pouvait pas s'en passer, de cette unité; si ne
 se faisait pas, il ne vivrait pas. Le menu peuple mar-
 
 ( chaïit sur cette assurance. On sait dans quelle faillite,
-je dirai dans quelle banqueroute politique parlemen-
-
-taire succomba cette présomptueuse anticipation. Et
+je dirai dans quelle banqueroute politique parlementaire succomba cette présomptueuse anticipation. Et
 
 pourtant Jaurès vit. Et il vit même très bien.
 
@@ -2196,21 +1984,17 @@ faillite, vers quelle banqueroute politique parlemen-
 
 É taire s'achemine cette seconde anticipation présomp-
 
-4 tueuse que fut le recommencement politique parlemen-
-
-taire de l'affaire Dreyfus. Mais nous savons que c'est
+4 tueuse que fut le recommencement politique parlementaire de l'affaire Dreyfus. Mais nous savons que c'est
 
 la deuxième grande application de la politique nouvelle, un deuxième exercice de l'autorité que Jaurès à
 
 recouvrée dans le commandement politique parlemen- je
 taire. Pour nous qui avons assisté à la première cam- hé:
 pagne, tentée, poursuivie, abandonnée, pour l'unité Fes
-socialiste, ce fut le même ton, le même style, apparem-
-ment formé des mêmes assurances, intérieurement
+socialiste, ce fut le même ton, le même style, apparemment formé des mêmes assurances, intérieurement
 rongé des mêmes inquiétudes. Le langage politique
 parlementaire de Jaurès, plus que tout autre, a de ces le
-constances de surenchères qui permettraient l'établis-
-sement d'un lexique. Lexique du langage de Jaurès.
+constances de surenchères qui permettraient l'établissement d'un lexique. Lexique du langage de Jaurès.
 Notons que c'est pour cela que Jaurès, plus que tout DE
 autre, obtient de son peuple une surenchère de confiance Au
 et que nous obtenons, quand nous parlons de lui, (XSARA
@@ -2225,8 +2009,7 @@ politique moins gênante que la manifestation de la vérité.
 était le contrepoids nécessaire du chauvinisme français,
 ni ses ennemis n'ont voulu voir, ni ses amis n'ont ou
 voulu voir, ni lui-même il n'a voulu avouer que l'épithète ni:
-nécessaire de son langage politique, entendue en fran-
-çais, signifie très exactement: du moins je le crois. #3
+nécessaire de son langage politique, entendue en français, signifie très exactement: du moins je le crois. #3
 L'écart du langage politique parlementaire au sens
 français est beaucoup plus considérable dans Jaurès
 que dans nul autre. Quand Jaurès commence un article
@@ -2245,8 +2028,7 @@ qu'elle est inévitable; mais quand il n'y croit pas du
 à tout, c'est alors qu'il dit qu'elle est indubitable. Et
 au quand dit indubitablement, cela veut dire je le
 présume, et quand il dit infailliblement, cela veut
-dire: j'ai bien peur de me tromper. Il est inévi-
-table que les justes revendications... Aïnsi la force
+dire: j'ai bien peur de me tromper. Il est inévitable que les justes revendications... Aïnsi la force
 à du mot remplace la force de la chose; de l'idée, dunue fait, de l'hypothèse même; et plus la chose manque de
 réalité, plus il faut que le mot, pour compenser, aït
 à de violence artificielle. Beaucoup de difficultés seront
@@ -2267,8 +2049,7 @@ grand accroissement obtenu dans les temps modernes
 par la démocratie, par la politique, par l'éloquence
 
 politique et parlementaire. Mais l'accroissement géné- ‘#0
-ral du politique et du parlementaire ne paraît pas expli-
-quèr toute la fortune du mot tribun. Le mot tribune,
+ral du politique et du parlementaire ne paraît pas expliquèr toute la fortune du mot tribun. Le mot tribune,
 lui, n'a pas reçu un égal accroissement. Vous trouvez à
 quantité de gens qui osent mépriser la tribune et qui
 n'osent pas mépriser le tribun. Les deux mots ne sont +4
@@ -2291,8 +2072,7 @@ par le tribun des soldats et par le tribun du peuple.
 Ainsi le tribun moderne et contemporain, l'homme de
 la tribune, a été investi confusément de l'autorité
 romaine, et ici nous rejoignons ce que nous avons dit
-du commandement romain. Dans la confuse imagina-
-tion populaire et dans l'inconsciemment populaire
+du commandement romain. Dans la confuse imagination populaire et dans l'inconsciemment populaire
 imagination de tant de gens d'études à qui les études
 n'ont rien appris, en qui les études n'ont pas pénétré, T#èl
 le grand tribun est revêtu de la vieille autorité romaine,
@@ -2301,9 +2081,7 @@ de l'autorité des tribuns militaires, et de la toute par- a
 4 vinglième cahier de la quatrième série -
 1 ticulière puissance tribunitienne. Je maiïntiens que dans
 » la confuse imagination du peuple, et inconsciemment
-a dans l'imagination populaire, parlementaire et poli-
-
-tique de plus d'un professeur agrégé d'histoire, quand
+a dans l'imagination populaire, parlementaire et politique de plus d'un professeur agrégé d'histoire, quand
 À on dit un tribun, quand on répète un puissant tribun,
 NEA quand plus familièrement et plus communément on dit
 ESA le grand tribun, j'affirme qu'on ne se représente plus
@@ -2318,8 +2096,7 @@ moins profonds, ni les moins dangereux, — on se
 à représente vaguement et confusément, mais d'autant
 plus puissamment et inévitablement, un magistrat
 : ( oratoire, un héritier des anciens commandements,
-un maître du peuple par l'autorité du comman-
-dement du verbe. La plupart de nos grands tribuns
+un maître du peuple par l'autorité du commandement du verbe. La plupart de nos grands tribuns
 Re: nous sont venus des pays romains, des pays de consuls,
 Mirabeau, Gambetta, Jaurès; qui voudrait faire de
 164 l'histoire à la Taine, il y aurait ici une belle occasion
@@ -2338,11 +2115,9 @@ nation du peuple un grand orateur qui fait un bruit “40
 autorité de commandement, — qui a une forte carrure,
 des poings énormes en marteaux; du biceps; des épau- eue
 les; de la poitrine, je dirai du poitrail; un cou puissant,;
-ce que les romans populaires nomment un cou de tau-
-reau; des poumons; une tête énorme et vaste, et dedans, 51%
+ce que les romans populaires nomment un cou de taureau; des poumons; une tête énorme et vaste, et dedans, 51%
 si possible, du génie; un front large et puissant; des
-traits fortement accentués; un fort coup de voix; si pos-
-sible une voix profonde, grave et ténébreuse; des yeux ne:
+traits fortement accentués; un fort coup de voix; si possible une voix profonde, grave et ténébreuse; des yeux ne:
 gros, assez ronds, et surtout des paupières; des épaules
 voûtées, puissantes; des hanches; des reins; les jambes 7 si
 et les pieds n'importent pas autant. La grande et belle
@@ -2352,13 +2127,10 @@ grand tribun n'est pas non plus seulement celle du; A
 grand orateur. C'est une éloquence toute de confiance,
 de puissance et de gloire. L'enthousiasme est son effet
 constant, sa base inférieure. Dans la pensée du peuple
-un grand tribun est un grand orateur qui parle telle-
-ment fort et tellement puissamment, tellement de con-
-fiance et tellement d'enthousiasme qu'on n'a pas besoin
+un grand tribun est un grand orateur qui parle tellement fort et tellement puissamment, tellement de confiance et tellement d'enthousiasme qu'on n'a pas besoin
 de savoir ce qu'il dit et que lui-même il n'a presque
 pas besoin de le savoir. Il se diminuerait même à le
-savoir, comme tout le monde. Il se diminuerait s'il tra-
-vaillait, s'il faisait attention. Ce serait donc qu'il aurait
+savoir, comme tout le monde. Il se diminuerait s'il travaillait, s'il faisait attention. Ce serait donc qu'il aurait
 peur de baisser. Il manquerait à sa propre hauteur, à à
 sa propre inspiration, à son propre enthousiasme, à
 son autorité militaire, à sa puissance proprement tri-
@@ -2370,13 +2142,11 @@ de. discipline. Enthousiasme constant du grand tribun
 à pour lui-même, et enthousiasme constant du peuple
 40 pour le grand tribun, tel est le régime. De l'audace,
 encore de l'audace, toujours de l'audace, le grand tribun
-1 4 est aussi quelqu'un qui a et qui donne cette forme par-
-ticulière de bravoure, qui n'est pas du courage, et
+1 4 est aussi quelqu'un qui a et qui donne cette forme particulière de bravoure, qui n'est pas du courage, et
 qui consiste à fermer les yeux pour ne pas voir le
 Je danger où l'on court. Le tribun, pour le gros peuple
 : c'est quelqu'un qui dit toujours qu'il y a pas de danger,
-qu'il y a pas besoin d'avoir peur. — La contamina-
-tion de sens est incontestable, — je parle ici français;
+qu'il y a pas besoin d'avoir peur. — La contamination de sens est incontestable, — je parle ici français;
 HAN et non parlementaire, — et elle est du même ordre que
 tant de contaminations qui se produisirent à propos de
 la Révolution française: elle est un effet de la même:
@@ -2418,8 +2188,7 @@ La respiration de servitude manquait aux hommes
 d'autorité. Les tribuns se lassèrent d'être des citoyens à
 comme tout le monde.
 
-Ils voulurent se revêtir de leur puissance tribu-
-nitienne.? ni
+Ils voulurent se revêtir de leur puissance tribunitienne.? ni
 
 Recommencer l'affaire par un exercice de cette puis- a
 sance, qui tue l'affaire ou que l'affaire tue, c'était une
@@ -2452,16 +2221,14 @@ radicaux qui marchaient contre, et menaces conditionde nelles aux radicaux; entr
 sans aucune indication, sans aucune confidence. A aucun
 moment de l'affaire ainsi recommencée le grand orateur:
 ne nous communiqua les renseignements qu'il avait sur;
-les dispositions de l'ennemi, et, ce qui était malheureu-
-sement le plus important, sur les dispositions de l'ami.
+les dispositions de l'ennemi, et, ce qui était malheureusement le plus important, sur les dispositions de l'ami.
 ; Non seulement pendant tout le débat parlementaire il
 ; fit comme s'il était beaucoup plus maître de ses troupes
 
 et beaucoup plus assuré de la victoire qu'il ne l'était,
 ce qui est l'enfance de l'art de la guerre, mais ce qui
 
-science de la vérité, mais le lendemain du débat parle-
-mentaire il écrivit dans son journal comme s'il était
+science de la vérité, mais le lendemain du débat parlementaire il écrivit dans son journal comme s'il était
 content du résuliat. On sait pourtant quel était ce à
 résultat. Il continua la campagne dans son journal tout
 comme s'il eût été content du résultat commencé,
@@ -2472,13 +2239,10 @@ laissant en l'air les petites gens qui s'étaient mis en. “.
 route et continuaient de marcher etcomptaientmarcher
 jusqu'au bout. Le même arbitraire, la même autorité ji.
 de commandement qui avait décidé le recommencement
-de l'affaire décida sans doute aussi la fin du recommen-
-cement de l'affaire. Et de même que nous n'avons rien
-connu du recommencement de l'affaire, nous ne connais-
-sons rien aussi de la fin de ce recommencement. Jaurès NE
+de l'affaire décida sans doute aussi la fin du recommencement de l'affaire. Et de même que nous n'avons rien
+connu du recommencement de l'affaire, nous ne connaissons rien aussi de la fin de ce recommencement. Jaurès NE
 avait recommencé. Jaurès a fini de recommencer. Que
-son saint nom soit béni. Pendant tout le recommence-
-ment il avait parlé de l'affaire comme s'il ne pouvait pl]
+son saint nom soit béni. Pendant tout le recommencement il avait parlé de l'affaire comme s'il ne pouvait pl]
 pas se passer de ce recommencement; et le lendemain
 de la fin du recommencement il s'en passait très bien et
 se portait mieux que jamais. Cette seconde fin brusque,
@@ -2516,8 +2280,7 @@ Fe. intérieure, plus redoutable, plus responsable d'autant
 obtient aujourd'hui confiance auprès de bien peu de
 a gens, mais ceux qui la lui ont gardée ou la lui ont
 Fe. rendue la lui ont gardée ou la lui ont rendue presque
-cite entière. Il a amnistier beaucoup de crimes et beau-
-coup de gens. Il a vouloir amnistier l'amnistie même. à
+cite entière. Il a amnistier beaucoup de crimes et beaucoup de gens. Il a vouloir amnistier l'amnistie même. à
 . n'a pas amnistier dans certaines consciences
 4 droites et bonnes sa gloire et sa grandeur passée.
 Au lieu de justifier cette confiance, comme il devait, À
@@ -2538,8 +2301,7 @@ qui n'en ont pas du tout.
 
 A aucun moment Jaurès nenous a dit ce qu'il pensait,
 ni ce qu'ilsavait de ses ennemis, de ses amis politiques,
-des radicaux, surtout et nommément de certains radi-
-caux, des radicaux-socialistes, surtout et nommément
+des radicaux, surtout et nommément de certains radicaux, des radicaux-socialistes, surtout et nommément
 de quelques radicaux-socialistes, des socialistes qui lui
 étaient ennemis, de certains ministres, du général
 André, ministre de la guerre, de M. Combes, président
@@ -2569,18 +2331,14 @@ Rien ne pouvait nous être plus désagréable que cette
 es confusion fâcheuse. Ayant accoutumé de parler à des
 À politiciens, Jaurès continuait de nous parler comme à
 Léa des politiciens. Il avait par l'amnistie amnistier
-1 l'affaire. Il ne pouvait plus, en ce sens, par le recomri mencement de l'affaire, amnistier en lui-même l'amK nistie. Son langage demeurait politique dans le recom-
-
-mencement de l'affaire; et dans le recommencement de
+1 l'affaire. Il ne pouvait plus, en ce sens, par le recomri mencement de l'affaire, amnistier en lui-même l'amK nistie. Son langage demeurait politique dans le recommencement de l'affaire; et dans le recommencement de
 se l'affaire, plus en particulier il devenait ou demeurait …
 (50 politique envers nous. Jaurès gardaït envers nous son
 langage appris, son langage politique parlementaire,
 son langage de groupe, son autorité de commandement,
 4 en général sous la forme du commandement, en parti-;
 
-culier sous la forme particulièrement odieuse de l'auto-
-
-rité d'encouragement. Ces encouragements étaient
+culier sous la forme particulièrement odieuse de l'autorité d'encouragement. Ces encouragements étaient
 
 ï inutiles, car nous sommes prêts.
 
@@ -2599,16 +2357,14 @@ et le véritable personnel dreyfusiste. L'État-Major «
 
 reyfusiste, comme tous les États-Majors, nous a 4 SE
 aités durement; maïs les petites gens, qui furent 4) à
-ime du dreyfusisme, et qui en ont seuls gardé la mé-
-soire, ne s'y sont pas irompés; ils nous ont continué:
+ime du dreyfusisme, et qui en ont seuls gardé la mésoire, ne s'y sont pas irompés; ils nous ont continué:
 ‘ur audience, leur travail, souvent leur aide. Ceux qui (4
 ous ont quittés ne nous ont pas quittés, nous indignes,
 our un dreyfusisme plus juste ou plus approfondi.
 es anciens camarades nous ont quittés pour les hon- (
 eurs, pour les puissances, pour les biens temporels «
 es partis et de l'État, pour les mensonges politiques "4
-arlementaires, pour exercer des autorités de com-
-randement, quand la vieille maison dreyfusiste fut #1
+arlementaires, pour exercer des autorités de comrandement, quand la vieille maison dreyfusiste fut #1
 evenue modeste, voûtée, moussue. Ils nous ont quittés où
 our l'injustice et pour le mensonge. Ils nous ont laissé:
 à justice et la vérité redevenue miséreuse.
@@ -2616,16 +2372,13 @@ Nous n'en tirons nulle vanité. Nous n'avons gardé NISSS
 our nous que les tristesses de la maison. Nous gar- +4
 ons sans orgueil et sans vanité la profondeur et la
 onstance de notre ancien dreyfusisme. Et nous n'en à
-oulons tirer non plus aucune autorité de commande-
-nent. Nous savons que la constance ni la fidélité ne
+oulons tirer non plus aucune autorité de commandenent. Nous savons que la constance ni la fidélité ne
 onfère aucune autorité de commandement. Rien ne
-onfère aucune autorité de commandement. La con-
-tance et la fidélité ne demandent pas plus à com- ES
+onfère aucune autorité de commandement. La contance et la fidélité ne demandent pas plus à com- ES
 nander, n'ont pas plus envie de commander, que:
 l'obéir. Il n'y a pas dans cette affaire, il ne peut y
 voir dans aucune affaire une autorité du plus constant.
-à constance est comme une antériorité perpétuelle-
-nent continuée. Elle est à l'antériorité en un sens ou
+à constance est comme une antériorité perpétuellenent continuée. Elle est à l'antériorité en un sens ou
 omme la durée serait à une création. L'autorité que Ne:
 antériorité ne confère pas, la constance ne la confère.°
 as, L'autorité que l'antériorité ne confère pas en une À je
@@ -2648,8 +2401,7 @@ EN des amnisties, exercent sur nous l'autorité de commanVA dement que nous ne d
 : contre toutes les autorités de commandement prétendues dreyfusistes qui ont voulu s'établir parmi nous et » sur nous.
 Il est notoire que dans presque toutes les campagnes
 Le et dans presque tous les débats, dans presque tous les
-travaux, les combattants ou les ouvriers de la perpé-
-tuelle dernière heure, c'est-à-dire les combattants ou
+travaux, les combattants ou les ouvriers de la perpétuelle dernière heure, c'est-à-dire les combattants ou
 les ouvriers inconstants, c'est-à-dire les mauvais commo: battants et les mauvais ouvriers, puisque la constance
 6 est provisoirement et pour longtemps la première des »
 Le vertus, réclament pour eux la faveur et l'injustice”
@@ -2659,8 +2411,7 @@ semble presque universel, d'exercer une autorité de
 commandement, il s'établit en eux comme un besoin
 mauvais d'équilibre, de rançon, de talion, d'équivaAN
 
-lence injuste; outre le zèle faux et l'outrance de l'in-
-constant, les inconstants se rattrapent à chaque instant
+lence injuste; outre le zèle faux et l'outrance de l'inconstant, les inconstants se rattrapent à chaque instant
 de leur ancienne faiblesse et de leur faiblesse toujours ne
 présente, à chaque instant de leur ancienne lâcheté, de
 leur lâcheté toujours sous-présente, ils se défendent, se;
@@ -2668,8 +2419,7 @@ sauvent des reproches mérités qu'on leur fait ou qu'ils
 se font eux-mêmes, qu'ils prévoient ou qu'ils entendent, En
 compensent leur absence initiale et leur continuelle
 absence en insistant sur leur nouveau rôle intermittent!
-sur leur présence intermittente obsédante et sur l'au-
-orité de commandement qu'ils veulent exercer dans:
+sur leur présence intermittente obsédante et sur l'auorité de commandement qu'ils veulent exercer dans:
 les intermittences de leurs nouvelles attitudes.
 Quand donc je sus que l'on préparait un recommen-.
 ‘ement de l'affaire, la première chose que je ne me
@@ -2687,8 +2437,7 @@ Elles ne se posent pas pour ceux qui, résolus à n'entrer; Ne
 as même dans les considérations de la politique, À
 poursuivent modestement mais continuellement leur
 action morale. Nous n'avons pas un seul instant à
-ous demander si nos cahiers contribueraient au recom-
-nencement de l'affaire, pour cette bonneraison que nos
+ous demander si nos cahiers contribueraient au recomnencement de l'affaire, pour cette bonneraison que nos
 cahiers, pour leur part de travail, pour leur part d'ac-
 
 F. vingtième cahier de la quatrième série
@@ -2705,8 +2454,7 @@ principal inconvénient du mot recommencement du.
 « mot reprise, et de l'acte même, dans le sens et dans le
 :2# ton et de la teneur où on le fit, fut en effet de faire croire
 4: que pendant un certain temps, pendant un certain
-à intervalle, compris entre l'amnistie et ce recommen-
-cement même, elle avait cessé de continuer. En ce sens
+à intervalle, compris entre l'amnistie et ce recommencement même, elle avait cessé de continuer. En ce sens
 ; À les auteurs du recommencement, par la manière dont
 2 ils présentaient, dont ils introduisaient ce recommende: cement, nous firent à nous, auteurs de la continuation,
 firent à l'affaire, et au dreyfusisme même, peut-être
@@ -2719,9 +2467,7 @@ firent à l'affaire, et au dreyfusisme même, peut-être
 
 34 refuser certains camarades qui nous revenaient.
 F. On l'a trop oublié: au moment où certains auteurs »
-12 de l'amnistie firent savoir qu'ils préparaient un recompr mencement de l'affaire, la question ne pouvait absoluEx ment pas se poser de savoir si les auteurs de la conti-
-
-nuation, si les adversaires de l'amnistie contribueraient »
+12 de l'amnistie firent savoir qu'ils préparaient un recompr mencement de l'affaire, la question ne pouvait absoluEx ment pas se poser de savoir si les auteurs de la continuation, si les adversaires de l'amnistie contribueraient »
 
 ; à ce recommencement. Une telle question, de con-.
 à tribuer ou de ne contribuer pas, se posait pour les
@@ -2746,14 +2492,13 @@ matique, mais officiellement, un dossier de l'affaire à
 partir de son recommencement fût constitué en cahiers. È À
 . De quelle utilité pouvait, devait être un tel dossier pour
 le dreyfusisme, c'est ce que nous verrons facilement 4]
-. quand nous examinerons de l'intérieur ce recommence-
-mént même.
+. quand nous examinerons de l'intérieur ce recommencemént même.
 La question qui se posait alors était exactement la
 question contraire de celle que l'on a presque générale- SE
 ment posée; la question qui se posait n'était pas de PTE
 . Savoir si en intention nous nous rendrions aux auteurs ANÉCIES
 du recommencement, mais si en fait les auteurs du
-. recommencement, qui se prétendaient dreyfusistes, en à;
+. recommencement, qui se prétendaient dreyfusistes, en
 .. effet se rendaient à nous, s'ils revenaient dans le vieil FAN
 É atelier et si revenus ils nous y aidaient. Premièrement
 la question n'allait pas de nous à eux; mais elle reve- Lo.
@@ -2803,8 +2548,7 @@ souvent contrarié leurs propres intentions; mais puis- "+3
 que cette fois il s'agissait de nous, les intentions SSRR
 n'étaient pas en cause, parce qu'on les connaissait
 toutes, puisqu'ils annonçaient qu'ils allaient nous dire
-les leurs, et que les nôtres par définition sont perpé-
-tuellement connues. Nos intentions envers l'affaire, le
+les leurs, et que les nôtres par définition sont perpétuellement connues. Nos intentions envers l'affaire, le
 dreyfusisme et le recommencement de l'affaire étaient
 parfaitement et perpétuellement connues. se
 Nos intentions envers les auteurs du recommencement À
@@ -2853,17 +2597,12 @@ même s'était présenté, s'était déroulé, s'était finalement
 En. compromis ou perdu le recommencement que l'on avait
 de voulu tenter de l'affaire Dreyfus par les moyens poliRe: tiques parlementaires. Aujourd'hui, et dans ce deuxième
 à cahier, nous n'avons le dreyfusisme qu'autant
-A que le jeu politique et parlementaire lui-même, annon-
-
-étouffant ce recommencement de l'affaire, nous y met-
-tait en présence du faux ou du véritable dreyfusisme;
+A que le jeu politique et parlementaire lui-même, annonétouffant ce recommencement de l'affaire, nous y mettait en présence du faux ou du véritable dreyfusisme;
 nous n'étions pas du côté du dreyfusisme; nous étions: il Re.
 pendant tout ce temps du côté politique parlementaire.
 Ayant à étudier le recommencement de l'affaire parles
-moyens politiques parlementaires, nous avons com-
-mencé par étudier les moyens politiques parlemen- eut
-Cette méthode peut sembler inverse, mais cette inver-
-sion même était indispensable; j'ai annoncé depuis long-
+moyens politiques parlementaires, nous avons commencé par étudier les moyens politiques parlemen- eut
+Cette méthode peut sembler inverse, mais cette inversion même était indispensable; j'ai annoncé depuis long-
 . Lemps que nous essaierions quelque jour de faire une
 nous serons entraînés sans doute, par cet essai même, ‘71008
 à essayer de faire une histoire de tout Le dreyfusisme en
@@ -2872,8 +2611,7 @@ de travailler à une telle histoire que quand on pourrale:
 ,. faire utilement; nous ne la rédigerons qu'aux dates où
 . l'on saura, et où l'on pourra dire beaucoup, sinon tout, die ‘#4
 dela vérité; ces temps ne sont pas encore près d'arriver.
-Peut-être les hommes de notre âge ne pourront-ils pro-
-céder que par mémoires posthumes. A
+Peut-être les hommes de notre âge ne pourront-ils procéder que par mémoires posthumes. A
 Je prévois que cette histoire du dreyfusisme en SE
 France ne comportera pas moins de quatre parties, qui
 — une histoire du fonctionnement, ou de l'exercice 1 ta
@@ -2890,9 +2628,7 @@ ou de la quatrième partie, décomposition, renversement
 HER ou contrefaçon; dans une histoire de la formation du
 drey fusisme il faudrait faire exactement le contraire de
 ce que nous avons fait pour une esquisse de l'histoire
-du recommencement; dans une histoire de la formaK tion, dans une histoire du commencement et du dreyfu-
-sisme et de l'affaire Dreyfus, il faudrait aller de l'inté-
-rieur à l'extérieur; dans une histoire durecommencement
+du recommencement; dans une histoire de la formaK tion, dans une histoire du commencement et du dreyfusisme et de l'affaire Dreyfus, il faudrait aller de l'intérieur à l'extérieur; dans une histoire durecommencement
 nous avons été contraints d'aller de l'extérieur vers l'intérieur. C'est que le recommencement de l'affaire Dreyfus ne s'est nullement fait par un mouvement symé-
 ; trique dumouvement par qui s'était faitle commencement
 Et de l'affaire Dreyfus. Cette récente et presque posthume
@@ -2900,24 +2636,19 @@ partie de l'affaire ne se meut pas dans l'histoire d'un
 3 pour et dans la grande histoire la grande et la première
 ., partie de cette grande affaire et de ce grand dreyfu-
 4 sisme. Il ne faut pas que l'identité de la victime et que
-: l'identité de certains hommes, il ne faut pas que l'identité des noms et des mots nous abuse: le recommen-
-cement n'a pas été un recommencement du commencement.:
+: l'identité de certains hommes, il ne faut pas que l'identité des noms et des mots nous abuse: le recommencement n'a pas été un recommencement du commencement.:
 Dans la réalité du commencement, et ainsi dans une:
 
 histoire du commencement, puisqu'il faut qu'avant tout A
 l'histoire accompagne la réalité, nous assistons à un
 mouvement de l'intérieur, partant de l'intérieur, à
-un mouvement moral, dans le secret et dans la pro-
-fondeur des consciences, à un mouvement de germina- LE
-tion mentale et morale, et de végétation qui s'élargis-
-sait peu à peu et gagnait de proche en proche. Non pas
-que feignant un miracle nous voulions négliger les cir-
-constances extérieures, les conditions d'histoire et de ‘FI
+un mouvement moral, dans le secret et dans la profondeur des consciences, à un mouvement de germina- LE
+tion mentale et morale, et de végétation qui s'élargissait peu à peu et gagnait de proche en proche. Non pas
+que feignant un miracle nous voulions négliger les circonstances extérieures, les conditions d'histoire et de ‘FI
 géographie qui accueillirent, mal ou bien, qui entra- (
 vèrent ou fomentèrent la germination, la croissance et: À
 plante non plus ne vit pas dans le miracle et dans le
-vide; la plante non plus n'est pas totalement et abso-
-lument indépendante et libre du milieu où elle vit, du
+vide; la plante non plus n'est pas totalement et absolument indépendante et libre du milieu où elle vit, du
 sol et du climat. Elle en dépend même considérable-
 
 Mais si considérable que soit la dépendance de la La
@@ -2928,8 +2659,7 @@ ciel peuvent tuer la plante ou la nourrir; ils peuvent la
 restreindre ou la déformer; ils peuvent la faire languir;
 comme ils peuvent aussi lui donner les moyens d'un
 accroissement normal, d'une heureuse vieillesse, d'un
-accroissement exubérant, d'une luxuriance, d'une évo-
-lution grandissante; comme aussi d'une dévolution.
+accroissement exubérant, d'une luxuriance, d'une évolution grandissante; comme aussi d'une dévolution.
 Mais ils ne peuvent pas l'adultérer.
 Pendant la grande première partie de l'affaire il est
 
@@ -2943,7 +2673,7 @@ LANET comme tout ce qui se produit à l'événement, comme
 des conditions extérieures, des situations, des hommes.
 et des mouvements qui les entravaient ou qui lessecon3 daient, qui les tuaient dans les consciences et hors des
 Des consciences ou qui les nourrissaient, qui les restrei4 gnaient, les déformaient ou qui au contraire les fomendeu as taient. Et il faut toujours compter avec l'extérieur.
-è: L'ambiance existe. La terre et l'air existe. On n'agit
+L'ambiance existe. La terre et l'air existe. On n'agit
 
 WP: qu'à force de gagner vers et sur l'extérieur. Mais dans
 Eh Ù cette grande première partie de l'affaire le mouvement
@@ -2977,24 +2707,19 @@ ont refait l'affaire, qui l'ont refaite à leur image, qui
 ont refait une contrefaçon grotesque et lamentable de
 l'affaire; nous les avons nommés des moyens parce
 qu'il est sage de prendre et d'intituler d'abord une ques- 1°
-tion comme on l'intitule généralement, comme l'intitu-
-lent ses auteurs; mais ce que nous aurons à nous COTE
+tion comme on l'intitule généralement, comme l'intitulent ses auteurs; mais ce que nous aurons à nous COTE
 demander dans le prochain cahier, ce sera justement
 si ce n'étaient pas les prétendus moyens politiques par-
 _Jementaires qui étaient la fin, et la prétendue fin drey-;
 fusiste qui étaient les moyens; ce que nous aurons à
 nous demander, ce sera justement si ce que l'on nous a me:
 fait dernièrement, et qui promettait d'être un recom- “40
-mencement de l'affaire Dreyfus par les moyens poli-
-tiques parlementaires n'a pas été au contraire une con-. De:
-ünuation, un cas particulier de la politique parlemen-
-taire par les moyens, par l'exploitation de l'ancienne à:
+mencement de l'affaire Dreyfus par les moyens politiques parlementaires n'a pas été au contraire une con-. De:
+ünuation, un cas particulier de la politique parlementaire par les moyens, par l'exploitation de l'ancienne
 Pour le savoir nous nous mettrons à l'intérieur de ce DEONE
 recommencement, nous nous transporterons du côté du
-dreyfusisme, et redescendant l'histoire de ce recommen-
-cement, comme dreyfusistes nous verrons bien ce qui DR.
-nous arrivera. Moi-même il me tarde un peu de regar-
-der et de parler en dreyfusiste, et non plus comme un 6 ne
+dreyfusisme, et redescendant l'histoire de ce recommencement, comme dreyfusistes nous verrons bien ce qui DR.
+nous arrivera. Moi-même il me tarde un peu de regarder et de parler en dreyfusiste, et non plus comme un 6 ne
 historien de la politique parlementaire. IL me tarde
 aussi de suivre dans le détail et de redescendre l'évé- … "4 ta
 nement des faits. Si réelles que soient les institutions et
@@ -3043,8 +2768,7 @@ un cas individuel. Je sais parfaitement qu'ayant à étudier un recommencement d
 n'avons presque jamais parlé que de Jaurès; et que
 
 j'ai presque toujours prononcé le nom de Jaurès, et
-que je n'ai presque jamais prononcé le nom de Drey-
-fus. Mais c'est la réalité même qui nous y a contraints. à
+que je n'ai presque jamais prononcé le nom de Dreyfus. Mais c'est la réalité même qui nous y a contraints. à
 Dans la réalité l'intervention de Jaurès était presque
 partout, et l'intervention de M. Dreyfus ne fut presque
 nulle part. M. Dreyfus n'est intervenu qu'en second,
@@ -3059,8 +2783,7 @@ que l'on nous a faite ou que l'on a tentée par les
 moyens politiques parlementaires n'a pas été une con-:
 tinuation, un cas particulier de la politique parlemen- à
 taire par les moyens, par l'exploitation de l'ancienne
-affaire Dreyfus. Mais cette question générale se ramas-
-sera sans doute en une question particulière, qui sera
+affaire Dreyfus. Mais cette question générale se ramassera sans doute en une question particulière, qui sera
 de savoir si le recommencement de l'affaire Dreyfus «
 que Jaurès nous a fait par les moyens politiques par- à
 lementaires n'a pas été littéralement une affaire Jaurès »
@@ -3075,8 +2798,7 @@ temps utile pour la revendication de la justice et pour
 la: manifestation de la vérité. Nous avons publié en leur
 temps plusieurs manifestations importantes de cecomité.
 Elles sont à confronter avec les manifestations contraires de M. Henry Bérenger et de tous les radicaux
-anticatholiques antidreyfusistes. Nous ferons cette con-
-frontation, si nous le pouvons, dans le dernier cahier
+anticatholiques antidreyfusistes. Nous ferons cette confrontation, si nous le pouvons, dans le dernier cahier
 que nous préparons sur le recommencement de l'affaire.
 En attendant nous devons dès aujourd'hui, dans un
 dossier de l'affaire Dreyfus, publier l'importante communication que l'on lire:
@@ -3097,10 +2819,8 @@ et malgré tout condamné. a *IS
 Vous avez combattu vaillamment pour le droit.
 Le Comité catholique pour la défense du Droit qui,
 dans la mesure de ses forces, a défendu la même TES
-b. cause et qui souhaite ardemment une réparation judi-
-ciaire, vous adresse ses félicitations.
-Mais le droit, monsieur le député, est un et indivi-
-sible. Permettez-nous de vous dire ici que vous mécon-
+b. cause et qui souhaite ardemment une réparation judiciaire, vous adresse ses félicitations.
+Mais le droit, monsieur le député, est un et indivisible. Permettez-nous de vous dire ici que vous mécon-
 _maissez cruellement, vous et vos amis, ce principe qui
 est absolu, ce principe qui est notre sauvegarde à
 tous.
@@ -3167,8 +2887,7 @@ Vattitude de la grande majorité de ses coreligionnaires?
 . dans l'affaire Dreyfus a été publiée par La Justice Sociale TE
 Elle a été reproduite extenso par Le Soir, le Signal, le “1
 National, le Petit National, l'Univers Israélite, le Haut-
-Rhin. Ce dernier, croyons-nous, est le seul journal dépar-
-temental ‘qui l'ait publiée en entier. Divers journaux de
+Rhin. Ce dernier, croyons-nous, est le seul journal départemental ‘qui l'ait publiée en entier. Divers journaux de
 Paris et de province en ont donné des extraits. Elle a été
 vivement prise à partie par la Vérité Française, dans son FLE
 . numéro du 9 avril et, de nouveau, dans celui du 19 avril.: STE
@@ -3176,8 +2895,7 @@ La Revue Idéaliste, dans sa livraison du premier mai, a bien Et à
 voulu lui en emprunter un fragment pour l'insérer sous sa ne
 Le numéro de la Justice Sociale du 29 mars 1902 a été
 adressé à N.N. S.S. les Archevêques et Évêques de France à
-l'exception d'un, prélat auquel il nous a paru conve-
-nable et discret de ne point le faire envoyer), à Messieurs
+l'exception d'un, prélat auquel il nous a paru convenable et discret de ne point le faire envoyer), à Messieurs
 les Curés de Paris et de Lyon, à d'autres ecclésiastiques ES “4
 distingués, à de hautes personnalités du monde des Lettres, Tan;
 des Sciences, de la Politique, à quelques parents et amis. 23 RTE
@@ -3211,7 +2929,7 @@ Au? étudié les documents? Ont-ils les éléments indispensables pour
 “oh « Que serait le respect de la justice, s'il était permis de suspecter
 gratuitement ou la perspicacité ou la bonne foi des Tribunaux?
 « Veuillez recevoir, Monsieur, l'assurance de mes sentiments
-4 « CARDINAL LECOT, archevêque de Bordeaux. »,
+4 « CARDINAL LECOT, archevêque de Bordeaux.
 Mgr Lecot exprime ici l'opinion de la grande majorité du clergé
 ï français auquel, en effet on ne pouvait demander de faire une étude
 À spéciale de ce colossal procès dont il était impossible de prévoir
@@ -3227,8 +2945,7 @@ leur carte nous au surplus, écrit quelques jours plus
 tard pour préciser qu'il n'avait pas entendu par nous
 donner son approbation sans réserves. «
 bilité de se livrer à cette étude, combien il est fâcheux que les on
-hommes politiques qui dirigent le sentiment catholique au Parle-
-ment et dans la presse, n'aient pas cherché à voir clair dans des
+hommes politiques qui dirigent le sentiment catholique au Parlement et dans la presse, n'aient pas cherché à voir clair dans des
 ténèbres accumuléés à plaisir, mais qu'ils aient, au contraire, en
 accrédité cette opinion que l'on ne pouvait être bon catholique qu'à
 la condition d'être convaincu de la culpabilité de l'officier juif et
@@ -3244,8 +2961,7 @@ intérêt à votre communication. Il est assurément regrettable que »
 l'attitude passive et effacée de la plus grande partie du clergé, pen- hd.
 dant que l'opinion était soulevée par l'affaire Dreyfus, ait paru
 encourager ou approuver les passions et la partialité de quelques per-
-Sonnalités plus ou moins autorisées à représenter les intérêts reli-
-gieux, On n'a pas assez nettement et assez tôt distinguer l'aspect
+Sonnalités plus ou moins autorisées à représenter les intérêts religieux, On n'a pas assez nettement et assez tôt distinguer l'aspect
 juridique et universel de ce cas, et, sans rien préjuger sur le fond, 4 à
 qui relevait des tribunaux, reconnaître au moins que les garanties
 du droit ne peuvent être violées pour personne, et qu'il n'y à pas
@@ -3261,11 +2977,10 @@ trouble. Sa Grandeur s'abstiendra donc de tout acte qui serait de 7308
 
 : 5 SRE Parmi les membres de l'épiscopat français auxque
 LE numéro de La Justice Sociale a été adressé il en est certaiARS nement beaucoup qui ne l'ont pas lu. Ce qui nous incite a a
-2 le croire c'est que plusieurs prélats que lon sait très libé-
-raux ne figurent pas au nombre de ceux qui nous ont fait
+2 le croire c'est que plusieurs prélats que lon sait très libéraux ne figurent pas au nombre de ceux qui nous ont fait
 A pies Cette manifestation qui, dans notre pensée, était destinée
 (SAR à passer beaucoup plus inaperçue, a encore rencontré la
-À: complète adhésion de religieux éminents, de prédicateurs
+complète adhésion de religieux éminents, de prédicateurs
 FFC célèbres, d'ecclésiastiques savants et du plus grand mérite.
 Mes Des membres de l'Institut, des professeurs du Collège de
 SARUNES France, des maîtres de l'Université nous ont complimenté
@@ -3294,10 +3009,9 @@ KE. de si éloquentes protestations. “.
 re, lettres des évêques qui nous ont fait l'honneur de nous féliciter de
 notre attitude. Nous n'avons même pas songé un seul instant à
 Le leur demander l'autorisation de publier ces lettres dont le carac-
-É; tère est purement confidentiel. Ne
+tère est purement confidentiel. Ne
 
-très orthodoxes. Mais où elle a été Ine avec une particu-
-lière sympathie, c'est dans les milieux universitaires catho- FRA
+très orthodoxes. Mais où elle a été Ine avec une particulière sympathie, c'est dans les milieux universitaires catho- FRA
 Enfin, n'oublions pas de mentionner que notre lettre a 5%
 reçu un accueil vraiment trop flatteur de la part du Comité De:
 catholique pour la Défense du Droit. Ce comité a pour CESR
@@ -3313,9 +3027,7 @@ exclusivement de catholiques, déclare « s'appuyer sur les
 principes de 1789 dont l'application loyale pourra, seule,
 après le triomphe définitif de la Justice et de la Vérité EL:
 dans la crise actuelle, assurer en France la paix intérieure
-avec la pleine liberté religieuse il dénonce le mal pro-
-fond causé au pays notamment par ces deux fléaux: l'anti-
-christianisme, l'antisémitisme.
+avec la pleine liberté religieuse il dénonce le mal profond causé au pays notamment par ces deux fléaux: l'antichristianisme, l'antisémitisme.
 Plusieurs prêtres en font partie; car, on ne l'a pas assez We:
 remarqué, les ecclésiastiques ont été beaucoup moins
 ardents que les laïques dans cette guerre contre les Juifs, Dre
@@ -3331,14 +3043,11 @@ cours de plusieurs sermons, de profiter de sa présencedans STRESS
 la chaire de vérité pour faire comprendre, d'une façon "1408
 diserète mais très claire, quelle était, sur ce sujet, sa mâle
 et fière conviction. Nous nous souvenons d'avoir entendu À
-tomber de ses lèvres hardies la plus éloquente des protes-
-
-tations contre la violation criminelle des droits imprescriptibles d'un accusé.
+tomber de ses lèvres hardies la plus éloquente des protestations contre la violation criminelle des droits imprescriptibles d'un accusé.
 : Depuis que nous avons les diverses brochures éditées
 ! par le Comité catholique pour la Défense du Droit et
 A notamment La Conscience chrétienne et l'Affaire Dreyfus,
-de M. l'abbé Pichot (1), et divers opuscules de M. Quincam-
-poix, le très distingué publiciste, nous nous étonnons que
+de M. l'abbé Pichot (1), et divers opuscules de M. Quincampoix, le très distingué publiciste, nous nous étonnons que
 les partisans de la cause du prétendu traître n'aient pas
 l'excellente idée d'en inonder le pays catholique. Combien
 étaient dans notre cas et n'en avaient pas la moindre
@@ -3370,10 +3079,8 @@ vus de sens critique et qui ont par trop la foi aveugle du
 charbonnier, le dreyfusisme est devenu comme le huitième "4
 des péchés capitaux quand il n'a pas été érigé à la hauteur
 d'une monstrueuse hérésie.:
-Pour beaucoup, un catholique ne peut être qu' « anti-
-dreyfusard » (il faut bien employer ce mot puisque les
-circonstances l'ont imposé à la langue française), et cepen-
-dant les Juifs n'étaient point seuls à défendre Dreyfus. Ni
+Pour beaucoup, un catholique ne peut être qu' « antidreyfusard » (il faut bien employer ce mot puisque les
+circonstances l'ont imposé à la langue française), et cependant les Juifs n'étaient point seuls à défendre Dreyfus. Ni
 Demange, ni Labori, ni Cornély, ni le colonel Picquart ne.
 sont des Juifs. En revanche, dans le même moment, on
 comptait dix-sept juifs au Gaulois du juif Meyer qui, au che
@@ -3387,8 +3094,7 @@ inférieur tout individu vivant en dehors de nos frontières.
 Et pourtant, remarquons-le, cette crise terrible qui a
 bouleversé tout le pays et qui a dans le monde entier
 tant de retentissement, aurait été évitée à la France et au
-monde si, de bonne grâce, la Revision qui devait fatale-
-ment s'imposer plus tard avait été acceptée de suite.
+monde si, de bonne grâce, la Revision qui devait fatalement s'imposer plus tard avait été acceptée de suite.
 Au lieu d'équivoquer dans des communiqués à la presse,
 de mentir à la tribune de la Chambre, de prêter de faux
 serments devant l'image du Christ aux audiences des Cours
@@ -3474,8 +3180,7 @@ Appendice. — Procès-verbal d'autopsie de Lemercier- A
 Les lettres du colonel Combe; 4 NES
 Les photographies de Carlsruhe. CRUE
 
-que Dossier de l'affaire Dre, vfus depuis son recommence-
-ment. Le colonel Picquart a publié dans la zette de
+que Dossier de l'affaire Dre, vfus depuis son recommencement. Le colonel Picquart a publié dans la zette de
 ans 7 RENE l'article important que nous reproduisons
 après. En tout état de la cause, l'article de M.. Picquart
 est important pour l'histoire de l'affaire Dreyfus, et non
@@ -3483,7 +3188,7 @@ moins important pour une histoire du dreyfusisme, que
 nous ne confondons pas avec l'histoire del'affaire DreyFC fus. Ace double titre il doit entrer dans le dossier que
 RES nous formons. Les journaux français qui se disent
 DrUR tir dreyfusistes n'ont donné de cet article que des citations
-4 NES Gazette de Lausanne et Journal suisse, fondée en
+NES Gazette de Lausanne et Journal suisse, fondée en
 AS 1798, numéro du mardi 2 juin. a
 Date à La collaboration du colonel Picquart à la Gazette de.
 “ae a Lausanne est mensuelle. Son article paraît générale-
@@ -3545,19 +3250,15 @@ cour d'assises, et par l'ardeur avec laquelle ces poursuites ont été continué
 ù longtemps, malgré tant d'obstacles.
 Ce n'est pas Esterhazy qui, même après son acquittement par le conseil de guerre, aurait osé poursuivre
 que celui-ci l'avait accusé publiquement, dans une
-lettre adressée au ministre de la guerre, d'être « lau-
-
-teur de la trahison » pour laquelle Alfred Dreyfus avait
+lettre adressée au ministre de la guerre, d'être « lauteur de la trahison » pour laquelle Alfred Dreyfus avait
 M. Reinach. Enfermé à la prison du Cherche-Midi et Re.
 mis au secret le 23 septembre 1898, j'ignorai totalement
 ce qui se passa au dehors jusqu'au 19 novembre, date
 à laquelle le secret fut levé. C'est alors seulement que
 je fus mis au courant des découvertes de M. Reïinach,
 et que je pus suivre la marche de ses accusations.
-Mon impression, en présence de cette nouvelle inter-
-prétation de l'Affaire, fut nettement défavorable. Ayant
-vécu pendant plusieurs années dans le milieu de l'état-
-major, ayant assisté de près aux débuts de l'Affaire, il
+Mon impression, en présence de cette nouvelle interprétation de l'Affaire, fut nettement défavorable. Ayant
+vécu pendant plusieurs années dans le milieu de l'étatmajor, ayant assisté de près aux débuts de l'Affaire, il
 m'était impossible d'admettre a priori une hypothèse
 qui se trouvait en contradiction flagrante avec mille
 détails familliers aux gens de la maison. Je n'en examinai
@@ -3593,8 +3294,7 @@ d'Esterhazy, si, comme l'affirme M. Reïnach, il avait
 reconnu du premier coup d'œil l'écriture de l'autre
 traître, il est contraire à la saine raison d'admettre qu'il
 ait remis bénévolement à ses chefs une pièce qui pouF vait le perdre.
-: M. Reinach a senti de tout temps la valeur de l'ob-
-jection. Au début, il nia que le bordereau eût été livré
+: M. Reinach a senti de tout temps la valeur de l'objection. Au début, il nia que le bordereau eût été livré
 à à Henry. Voici ce qu'il écrivit à ce sujet dans le Siècle
 (4 Je sais aujourd'hui que le bordereau n'a pas été reçu en
 1894 par Henry, qui n'était ni chef ni sous-chef du bureau
@@ -3616,7 +3316,7 @@ présence de tout témoin, et qui l'a remis le lendemain
 ques officiers du bureau des renseignements. à
 M. Reinach, alors, a changé de thèse.
 Il a soutenu que le bordereau n'avait pas été livré à de:
-Henry par l'agent ordinaire, qui était illettré (ou à peu À:
+Henry par l'agent ordinaire, qui était illettré (ou à peu
 près), et qui se bornaït à ramasser des débris de cette
 espèce dans le fond des corbeiïlles à papier, sans être
 même capable de reconstituer les pièces déchirées. Le “4
@@ -3672,8 +3372,7 @@ capable de tout pour obéir à un signe du « grand chef
 pour prévenir un désir qu'il a ou cru deviner.
 Quelle que soit la part qu'aient eue respectivement “4
 l'intérêt et la conviction dans la manière d'être d''Henry, à
-ses services lui ont valu des satisfactions et des récom-
-penses hors de toute proportion avec sa valeur. C'est <#e
+ses services lui ont valu des satisfactions et des récompenses hors de toute proportion avec sa valeur. C'est <#e
 souvent le propre des hommes arrivés aux plus hauts
 degrés de la hiérarchie, de reconnaitre et d'apprécier
 infiniment plus le dévouement à leur personne que les
@@ -3691,8 +3390,7 @@ croix d'officier de la Légion d'honneur. Après son faux de:
 le plus connu, il fut inscrit au tableau d'avancement
 
 NE dans les conditions les plus brillantes, passant par110 dessus la tête d'une quantité d'officiers instruits et
-ù méritants, et il fut investi en même temps de la direc49 tion de ce bureau de renseignements dont il était inca-
-pable de contrôler les travaux les plus importants,
+ù méritants, et il fut investi en même temps de la direc49 tion de ce bureau de renseignements dont il était incapable de contrôler les travaux les plus importants,
 k. c'est-à-dire tous ceux qui ont trait aux armées étran-!
 4 gères. L'année suivante, au plus fort de la collusion
 avec Esterhazy, il était promu lieutenant-colonel.
@@ -3715,15 +3413,12 @@ petites fractions et acheva de se libérer en 1897. Les
 lettres ont été produites au procès. Voilà l'homme qui
 en une seule année aurait touché pour sa trahison près
 de cent mille francs, de compte à demi avec Esterhazy!
-J'ai fréquemment demandé dans les milieux dreyfu112
-
-à sards,nonsansironie, je l'avoue, sil'onavaitenfin trouvé
+J'ai fréquemment demandé dans les milieux dreyfuà sards,nonsansironie, je l'avoue, sil'onavaitenfin trouvé
 à quoi Henry employait le prix de sa trahison. On m'a
 toujours répondu qu'il y avait d'excellentes pistes,
 mais qu'elles s'étaient trouvées brusquement arrêtées, 3188
 sans doute par l'effet de quelque manigance. ES
-On m'avait dit exactement la même chose à l'état-
-major en 1894 et plus tard, lorsque je m'informais de ce SET
+On m'avait dit exactement la même chose à l'étatmajor en 1894 et plus tard, lorsque je m'informais de ce SET
 qu''étaient devenues les sommes énormes qu'avait
 Il y a quelque chose, cependant, qui est de nature à
 nous éclairer sur la persistance avec laquelle certains ES.
@@ -3741,8 +3436,7 @@ a permis d'apprendre, que quand Esterhazy est allé
 vendre ses services à Schwarzkoppen, il lui a nommé À
 un informateur, et que cet informateur était Henry. IL
 est d'ailleurs probable qu'Esterhazy ait tenu le propos. À à
-C'est bien un tour de sa façon. Cela expliquerait pour-
-quoi on disait, en 1894, dans certains milieux, que quel- ASS; à;
+C'est bien un tour de sa façon. Cela expliquerait pourquoi on disait, en 1894, dans certains milieux, que quel- ASS;
 
 . qu'un trahissait au deuxième bureau, et pourquoi le
 nom d'Henry a été plusieurs fois mis en avant par des
@@ -3771,8 +3465,7 @@ la dernière partie de l'Affaire. C'était comme un boulet
 que le parti dreyfusard trainait après lui, et dont la
 gêne fut particulièrement sensible à l'occasion de
 
-M. Waldeck-Rousseau affectait de traiter cette amnis-
-tie comme une mesure ayant pour effet de renvoyer
+M. Waldeck-Rousseau affectait de traiter cette amnistie comme une mesure ayant pour effet de renvoyer
 dos à dos les gens compromis des deux partis, les PAL
 dreyfusards aussi bien que leurs adversaires. Il avait
 nettement indiqué, par une phrase retentissante et ne
@@ -3829,8 +3522,7 @@ risque de la voir apparaître. C'est le souci d'aider à
 1 d'écrire ces lignes.
 
 Cette lettre porte non seulement contre l'hypothèse
-de M. Joseph Reinach, mais contre plusieurs hypo-
-thèses de Jaurès, puisque Jaurès, avec son éloquence
+de M. Joseph Reinach, mais contre plusieurs hypothèses de Jaurès, puisque Jaurès, avec son éloquence
 l'hypothèse de M. Reinach. Cherchant dans la Petite 40%
 République, numéro daté du mardi 9 juin, des rensei-;
 gnements sur la fin du recommencement de l'affaire, je
@@ -3841,8 +3533,7 @@ Député de Carmaux
 Député de Paris
 Où en est l'Affaire Dreyfus?
 On trouve des billets à l'avance.: à La Petite République; LA
-au café de la Mairie, 115, rue Ordener; à l'Université Popu-
-laire, 3 et 5, rue Jules-Jouy, de 9 heures à 10 heures du soir.
+au café de la Mairie, 115, rue Ordener; à l'Université Populaire, 3 et 5, rue Jules-Jouy, de 9 heures à 10 heures du soir.
 
 3 vingtième cahier de la quatrième série
 “ral Les anciens et les véritables dreyfusistes liront cette
@@ -3861,8 +3552,7 @@ Quand je dis que l'agitation politique parlementaire
 2 est faite presque entièrement de représentation théä-
 trale, j'entends ces mots, représentation théâtrale,
 comme on voit, au sens premier. Ce n'est point par
-hasard que l'affaire Dreyfus, commencée hors des poli-
-ticiens dans des meetings révolutionnaires, a été recomVe mencée par les politiques parlementaires dans des
+hasard que l'affaire Dreyfus, commencée hors des politiciens dans des meetings révolutionnaires, a été recomVe mencée par les politiques parlementaires dans des
 : La Petite République du matin même, datée du
 4 dimanche 14, ajoutait aux renseignements déjà donnés
 4 ces détails attendrissants:
@@ -3871,14 +3561,12 @@ On peut se procurer des billets à l'avance:
 ï Réaumur, 1113 et au café de la Mairie, 113, rue Ordener.
 À partir de 7 heures 1/2: au théâtre Trianon.
 à La Petite République qui avait placé hier tous les billets
-qui lui avaient été confiés, tient aujourd'hui à la disposi-
-tion de ses amis quelques places de loges, une vingtaine de
+qui lui avaient été confiés, tient aujourd'hui à la disposition de ses amis quelques places de loges, une vingtaine de
 fauteuils, une avant-scène et un certain nombre de places
 
-Moyens de communication: à: +0
+Moyens de communication: +0
 Métropolitain: station d'Anvers; tramways: Étoile et te
-Les citoyens Battesti, Bellat, Bilanges, Boileau, Lauffen-
-nier, Welch, ainsi que tous les membres du bureau:45$
+Les citoyens Battesti, Bellat, Bilanges, Boileau, Lauffennier, Welch, ainsi que tous les membres du bureau:45$
 du Comité, sont très instamment priés de se trouver au
 théâtre Trianon au plus tard à 7 heures 1/2. ne.
 Par quel jeu politique parlementaire Jaurès, ayant +6
@@ -3888,18 +3576,16 @@ chef repris sa reprise et en a saisi un simple comité
 électoral, un comité de tiers d'arrondissement, le comité
 électoral de Rouanet, Comité Républicain Socialiste de
 Clignancourt, et si cette manifestation faisait une
-reprise de la reprise, ou au contraire, un bel enterre- y:
+reprise de la reprise, ou au contraire, un bel enterre-
 ment, c'est ce que nous examinerons dans ce dernier
 Les journaux du dimanche nous ont apporté le compte
 rendu de cette représentation. L'assistance était nom- à
-breuse et enthousiaste. On a refusé du monde. Je prou-
-verai que le public de spectateurs bourgeois que A
+breuse et enthousiaste. On a refusé du monde. Je prouverai que le public de spectateurs bourgeois que A
 Jaurès déplace aujourd'hui dans ses représentations
 oratoires n'a presque plus d'éléments communs avec
 l'ancien public d'ouvriers, d'hommes d'action qu'il
 déplaçait il y a cinq ou six ans pour l'action dreyfusiste A
-Il y avait un mot des comptes rendus que nous de-
-vons conserver. Je ne sais plus si c'est dans Petite
+Il y avait un mot des comptes rendus que nous devons conserver. Je ne sais plus si c'est dans Petite
 République ou dans un journal ami de Jaurès que le
 
 vingtième cahier de la quatrième série
@@ -3910,8 +3596,7 @@ ne sont féroces pour lui les journalistes amis.
 é Jaurès a déclaré qu'il avait toute confiance dans
 Il faut que l'on sache que Jaurès parle pour soi-même
 : et pour son recommencement de l'affaire; il n'a nullement qualité pour parler pour toute l'affaire Dreyfus, -
-pour tout le dreyfusisme, pour tout le personnel drey-
-fusiste, en particulier il n'a pas qualité pour parler pour
+pour tout le dreyfusisme, pour tout le personnel dreyfusiste, en particulier il n'a pas qualité pour parler pour
 à la continuation de l'affaire Dreyfus et du dreyfusisme.
 À Ni l'affaire Dreyfus ni le dreyfusisme n'ont attendu
 ; M. Combes et le combisme pour venir au monde. Et aujourd'hui elles ne sont nullement aux ordres, à la discrétion, à la fantaisie de M. Combes et du combisme.
@@ -3927,8 +3612,7 @@ Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
 Dans le seizième cahier de la troisième série j'ai
 lemandé à nos abonnés de vouloir bien souscrire deux
-“ents actions de cent francs à un emprunt que je nom-
-nais emprunt des cahiers. Les versements pouvaient
+“ents actions de cent francs à un emprunt que je nomnais emprunt des cahiers. Les versements pouvaient
 -“mmencer pour le 28 mai de l'année dernière.
 Cet emprunt n'a pas réussi autant que je l'espérais. ne:
 le dois dire avant tout compte rendu que d'après mon
@@ -3941,15 +3625,12 @@ Je ne veux pas faire aujourd'hui l'histoire de cette
 quatrième série, et j'espère que nous ne la ferons
 jamais. Je voudrais ne pas faire aussi l'histoire de cet #4
 emprunt. Notre œuvre est déjà devenue si considérable A
-qu'il a fallu tout un cahier, sixième cahier de la qua-
-trième série, cahier de courrier, courrier de Paris,, 2408
+qu'il a fallu tout un cahier, sixième cahier de la quatrième série, cahier de courrier, courrier de Paris,, 2408
 inventaire des cahiers, en forme de catalogue, un cahier
 de 72 pages, un franc, pour donner un sommaire de nos; À
-éditions, — éditions des cahiers antérieures à la fonda-
-ion des cahiers et cahiers des trois premières séries. -
+éditions, — éditions des cahiers antérieures à la fondaion des cahiers et cahiers des trois premières séries. -
 Il faudrait plusieurs cahiers pour faire une histoire des
-cahiers; il faudrait tout un cahier pour faire une his-
-toire de l'emprunt et de la quatrième série. nous DL.
+cahiers; il faudrait tout un cahier pour faire une histoire de l'emprunt et de la quatrième série. nous DL.
 
 vingtième cahier de la quatrième série
 avons résolu depuis assez longtemps de vivre, tant que
@@ -3969,6 +3650,5 @@ assurer la marche et le travail de nos cahiers. IlLy a
 donc pendant toute la quatrième série absence de
 8.100 francs, qui nous ont fait faute.
 - Je demande à nos abonnés de vouloir bien souscrire
-ces 81 actions ou parts. Pour des raisons que l'on conjt naît ou que l'on devine, et que je ne veux pas énumé-
-rer, puisque nous avons résolu de n'entrer pas aujourd'hui dans l'histoire de nos cahiers, je répète que nous
+ces 81 actions ou parts. Pour des raisons que l'on conjt naît ou que l'on devine, et que je ne veux pas énumérer, puisque nous avons résolu de n'entrer pas aujourd'hui dans l'histoire de nos cahiers, je répète que nous
 ne pouvons absolument compter que sur nous-mêmes.

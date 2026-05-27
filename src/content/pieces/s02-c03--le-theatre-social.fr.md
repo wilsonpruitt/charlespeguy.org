@@ -84,8 +84,7 @@ avec Dumas fils; d'une façon plus hardie et plus
 étendue, avec Ibsen; — et enfin, nous entrons avec
 les œuvres dramaliques de Hauptmann, Avant
 l'Aurore, les Tisserands, avec des œuvres dans le
-sens de celle de Marsolleau, avec le Germinal in-
-terdit de Zola... (Applaudissements. — Cris de
+sens de celle de Marsolleau, avec le Germinal interdit de Zola... (Applaudissements. — Cris de
 Vive Zola!) nous entrons dans la période où ce
 n'est plus la société bourgeoise qui se critique timidement elle-même, où c'est le prolétariat, où c'est la
 masse ouvrière qui commence à monter sur la,
@@ -155,9 +154,7 @@ Rappelez-vous souvent à vous-même qu'il ne faut qu'un
 seul homme méchant et puissant pour que cent mille
 autres hommes pleurent, gémissent et maudissent leur
 
-Citoyens, c'est en ces termes que le grand ency-
-clopédiste, le grand ouvrier de la pensée révolu-
-tionnaire, adressait à une princesse la dédicace de
+Citoyens, c'est en ces termes que le grand encyclopédiste, le grand ouvrier de la pensée révolutionnaire, adressait à une princesse la dédicace de
 son drame, et avec une pareille dédicace, on pouvait
 s'attendre à ce que dans le drame lui-même il y eût
 de merveilleuses hardiesses sur la lutte des personnages; il y a un paysan en habit de paysan qui
@@ -247,9 +244,7 @@ Pendant près d'un demi-siècle, nous allons voir le
 régime bourgeois s'étaler, triompher, et s'il est
 obligé, comme je le disais au début, de se critiquer
 partiellement lui-même, s'il est obligé d'avouer ses
-propres vices et ses propres contradictions, il n'ac-
-
-cepte pas que ce soit une autre classe que la classe
+propres vices et ses propres contradictions, il n'accepte pas que ce soit une autre classe que la classe
 bourgeoise qui lui adresse ces reproches; c'est la
 bourgeoisie encore assez puissante pour se critiquer
 et se censurer elle-même.
@@ -275,13 +270,11 @@ profonds de l'humanité; il ne peut pas méconnaître
 
 que, parfois, rarement, suivant lui, la femme tombée, la courtisane, comme dit son théâtre, a gardé
 une noblesse d'âme qui devrait lui permettre de
-reprendre sa place dans les cadres de la société ré-
-gulière, si les rigueurs de la propriété ne le lui
+reprendre sa place dans les cadres de la société régulière, si les rigueurs de la propriété ne le lui
 interdisaient; et il ne peut pas méconnaître, non
 plus, de quelle souffrance est accablé l'enfant natu-
 
-_rel; ilne peut pas méconnaître, non plus, com-
-bien de fois la perpétuité, l'ancienne perpétuité
+_rel; ilne peut pas méconnaître, non plus, combien de fois la perpétuité, l'ancienne perpétuité
 du mariage avant le divorce, faisait obstacle à la
 loyauté, à la sincérité des sentiments naturels. Et
 de ses œuvres, pas en toutes, a plaidé pour la femme
@@ -314,30 +307,23 @@ paysans, de petits bourgeois; puis, c'était le mensonge de l'Église; enfin, le
 bouleverser, pour créer des conditions nouvelles,
 employant toutes sortes de ruses et d'iniquités pour
 concentrer, pour accaparer, achetant d'avance les
-terrains pour les vastes opérations, les vastes spé-
-culations. En sorte que, de quelque côté que regardât Ibsen, vers les vieilles formes conservatrices de
+terrains pour les vastes opérations, les vastes spéculations. En sorte que, de quelque côté que regardât Ibsen, vers les vieilles formes conservatrices de
 la société, ou vers la forme nouvelle du capitalisme,
 il ne voyait partout que déguisement, hypocrisie,
 la considération attachée à ce qui grandit par n'importe quel moyen, et dans cette sorte de bagarre
 des intérêts aveugles, la petite bourgeoisie routinière, moutonnière, aveugle, s'entretenant de cancans misérables, suivant au hasard ceux qui diffament ou ceux qui imaginent, mais incapable de
 
-discerner la vérité. Et Ibsen cria: partout déguise-
-
-la liberté aux individus! (Vifs applaudissements)
+discerner la vérité. Et Ibsen cria: partout déguisela liberté aux individus! (Vifs applaudissements)
 
 Citoyens, vous voyez quelle est la différence du
 
 point de vue d'Ibsen au point de vue des socialistes
 
-révolutionnaires, tel que Marx, par exemple, le dé-
-
-finit. Selon Marx, il y a lutte d'une classe contre
+révolutionnaires, tel que Marx, par exemple, le définit. Selon Marx, il y a lutte d'une classe contre
 
 une classe, de la classe prolétarienne contre la
 
-classe capitaliste, les possédants; et tous les men-
-
-songes, toutes les iniquités sociales ne disparaîtront
+classe capitaliste, les possédants; et tous les mensonges, toutes les iniquités sociales ne disparaîtront
 
 que par le triomphe de la classe prolétarienne, qui
 
@@ -364,9 +350,7 @@ disparition de ces mensonges ne hâtait pas l'heure
 
 de l'affranchissement. Au contraire, — tandis que,
 
-dans la pensée marxiste, le drame social est con-
-
-stitué aujourd'hui par la lutte d'une classe contre
+dans la pensée marxiste, le drame social est constitué aujourd'hui par la lutte d'une classe contre
 
 une autre classe, — dans Ibsen, c'est la lutte d'un
 
@@ -498,8 +482,7 @@ qui n'ont pas de conclusion révolutionnaire explicite — qui aujourd'hui, par 
 prennent, peut-être sans la volonté de leur auteur,
 des conclusions révolutionnaires.
 
-Ce qui me frappe, c'est qu'aujourd'hui les créa-
-teurs du théâtre, dans la critique qu'ils appliquent
+Ce qui me frappe, c'est qu'aujourd'hui les créateurs du théâtre, dans la critique qu'ils appliquent
 à la société bourgeoise, vont plus hardiment, plus
 profondément, plus cruellement jusqu'au fond même
 du mensonge. C'est ainsi par exemple que la criti- À
@@ -551,9 +534,7 @@ sociales, comme le chômage, qui pourraient disparaître, si la classe ouvrière
 révolte et en exigeait la disparition.
 
 Il y a donc là, dans l'œuvre de Marsolleau, un
-ferment que nous pouvons et que nous devons rete-
-nir, et ainsi, saisissant toutes les forces de mouve-
-ment et de progrès, d'où qu'elles viennent, tous
+ferment que nous pouvons et que nous devons retenir, et ainsi, saisissant toutes les forces de mouvement et de progrès, d'où qu'elles viennent, tous
 ensemble, citoyens et camarades, nous préparerons
 une société nouvelle, jusqu'au jour où l'humanité
 n'aura plus besoin de traduire sur la scène, sur les

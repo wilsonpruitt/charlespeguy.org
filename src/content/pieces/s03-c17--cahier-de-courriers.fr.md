@@ -26,8 +26,7 @@ cahier de la deuxième série, un franc
 Nous reviendrons sur ce dossier.
 Lionel Landry. — Courrier de Chine, quatorzième
 cahier de la deuxième série, un franc
-Compte rendu sténographique non officiel de la ver-
-sion française du cinquième congrès socialiste international tenu à Paris du 23 au 27 septembre 1900,
+Compte rendu sténographique non officiel de la version française du cinquième congrès socialiste international tenu à Paris du 23 au 27 septembre 1900,
 seizième cahier dela deuxième série, un très fort cahier
 de 216 pages trois francs cinquante
 
@@ -126,7 +125,7 @@ est profondément artistique. Nulle part au monde n'est
 
 mieux appliquée la règle d'or du camarade William
 Morris: « N'ayez chez vous rien que vous ne sachiez
-utile ou que vous ne croyiez beau. »,
+utile ou que vous ne croyiez beau.
 
 Dans la chambre japonaise, où ne se trouvent à l'ordinaire que quelques objets de beauté, les meubles
 n'apparaissent que pendant le temps qu'ils sont utiles.
@@ -354,9 +353,7 @@ formes des pierres, leur prètent divers degrés de
 beauté. — Mais c'est surtout aux fleurs qu'ils ont une
 particulière dévotion. Les fêtes les plus populaires, les
 véritables fêtes nationales, se célèbrent à l'occasion de
-l'apparition de certaines fleurs: petit fait très significatif, découvrant jusqu'au fond l'âme japonaise, révélant l'exquis sentiment poétique de cette race privilé-
-
-giée. On en troupes joyeuses, dès le mois de février,
+l'apparition de certaines fleurs: petit fait très significatif, découvrant jusqu'au fond l'âme japonaise, révélant l'exquis sentiment poétique de cette race privilégiée. On en troupes joyeuses, dès le mois de février,
 admirer les fleurs des pruniers, et en respirer l'odeur,
 célébrée par d'antiques chansons; on voir fleurir les
 - cerisiers au début d'avril, les azalées et les glycines au
@@ -516,9 +513,7 @@ Tanyou ou Okio, comme tel autre du grand artiste
 Ce qu'il faut indiquer encore, c'est que, si le bon
 marché des gravures de l'école réaliste a rendu possible
 à tous d'en acquérir, la contemplation des chefsd'œuvre anciens de l'art classique est accessible aussi à
-tout Japonais. La peinture, au Japon, a un rôle déco-
-
-ratif; elle est conçue comme une dépendance de l'archix
+tout Japonais. La peinture, au Japon, a un rôle décoratif; elle est conçue comme une dépendance de l'archix
 
 tecture: les grandes œuvres pictoriales du passé
 décorent les temples: tous peuvent aller les y voir,
@@ -601,9 +596,7 @@ impudicité: sont-ils en cela moins moraux que nous?
 Il est exact, comme on l'a dit, que le y est
 souvent, sans y être jamais regardé. Une femme peut se
 laisser voir au bain; mais elle aurait honte de se décolleter en une robe de bal européenne, pour montrer sa
-gorge et ses épaules. L'éducation ne tend pas à corri-
-
-ger la nature: on ne contraint les enfants que le moins
+gorge et ses épaules. L'éducation ne tend pas à corriger la nature: on ne contraint les enfants que le moins
 possible; on les laisse pousser librement. La vie est:
 douce aux bébés japonais, et il semble qu'il y ait de la
 reconnaissance dans leur gaîté: on a dit qu'ils ne pleurent jamais, et il est exact qu'on ne les fait jamais
@@ -701,9 +694,7 @@ d'ailleurs fort différente — aux habitants de la cité
 idéale rêvée par le grand artiste socialiste. C'est la
 même vie matérielle simple et embellie; c'est le même
 goût pour la nature, le,même sentiment artistique;
-c'est la même douceur de manières, la même cordialité; c'est la même espèce de moralité, simple embel-
-
-lissement de la nature: c'est la même nuance de joie, le
+c'est la même douceur de manières, la même cordialité; c'est la même espèce de moralité, simple embellissement de la nature: c'est la même nuance de joie, le
 même intérêt à la vie: « Nous prenons le plus vif plaisir
 à toute la vie du monde... Oh! que j'aime la terre, etles
 Saisons, et l'air! que j'aime la terre, et tout ce qui naît
@@ -997,11 +988,8 @@ ma carte, qui n'était pourtant qu'une carte allemande
 de la province de Posen, comprenant en outre un morceau de la frontière russe.
 
 Toujours sans nous adresser la parole, l'officier nous
-remit aux quatre soldats qui nous avaient accompa-
-
-gnés, et nous recommençâmes à marcher, sans savoir
-où nous allions. Cette fois, j'étais beaucoup moins ras-
-suré sur l'issue de notre aventure.
+remit aux quatre soldats qui nous avaient accompagnés, et nous recommençâmes à marcher, sans savoir
+où nous allions. Cette fois, j'étais beaucoup moins rassuré sur l'issue de notre aventure.
 N'ayant rien mangé depuis vingt-quatre heures, nous
 commencions aussi à avoir terriblement faim. A midi,
 nous arrivämes dans un gros village, du nom de « Brunislaw ». On nous mena de suite chez le natchelnik.
@@ -1110,8 +1098,7 @@ Nous eùmes donc notre cellule spéciale, ce qui con- stituait un immense avanta
 Les malheureux n'ont pas toujours la place de se
 
 coucher en long pour la nuit, et plusieurs sont forcés
-de dormir accroupis sur le plancher rempli de cra-
-chats et de saletés. L'air ne se renouvelle pas assez,
+de dormir accroupis sur le plancher rempli de crachats et de saletés. L'air ne se renouvelle pas assez,
 car les fenêtres sont garnies de boîtes en métal qui
 empêchent l'air et la lumière de pénétrer suflisamment.
 La cuve aux immondices contribue à rendre l'atmosphère absolument fétide.
@@ -1232,9 +1219,7 @@ dans la prison et repartaient le lendemain. Une fois, je
 vis de cour, par la porte ouverte, un convoi d'une
 quarantaine de prisonniers qui arrivaient, escortés par
 des soldats. Plusieurs hommes avaient les mains attachées.
-Nous ne connaïissions naturellement que les prison46
-
-niers qui restaient plus longtemps. Je me souviens très
+Nous ne connaïissions naturellement que les prisonniers qui restaient plus longtemps. Je me souviens très
 bien de quelques types. Il y avait entre autres un,
 homme dans la force de l'âge, qui était de la ville
 même et avait à purger un an de prison pour avoir -
@@ -1339,8 +1324,7 @@ char avec un gardien pour une station, dont j'ai oublié
 le nom. De là, le chemin de fer nous mena à Alexandrowo, où il fallut encore courir chez un fonctionnaire
 à uniforme, pour faire signer des papiers. A la gare,
 des gendarmes et un inspecteur nous demandèrent trois
-fois notre passeport, que le gardien exhibaït avechumi-
-lité. S'il n'est pas facile d'entrer en Russie, il est encore
+fois notre passeport, que le gardien exhibaït avechumilité. S'il n'est pas facile d'entrer en Russie, il est encore
 plus difficile d'en sortir. Enfin le train partit; nous
 arrivâmes dans la nuit à Thorn, en territoire prussien.
 Mon portefeuille et ma carte, qui avaient l'honneur d'être mis jusque sous les yeux du comte Schouwaloff, alors gouverneur à Varsovie, me furent rendus
@@ -1429,8 +1413,7 @@ exemple a été du reste suivi dans un certain nombre
 de communes.
 Le lendemain avait lieu le recrutement pour la ville
 de Tammerfors: 327 conscrits, dont 25 seulement
-répondirent à l'appel de leur nom. Une fois l'appel ter-
-miné, les conscrits allèrent chanter une sérénade sous
+répondirent à l'appel de leur nom. Une fois l'appel terminé, les conscrits allèrent chanter une sérénade sous
 les fenêtres du secrétaire qui la veille avait refusé de
 participer aux opérations du recrutement. Puis, dans
 le cours de l'après-midi, un imposant cortège, où figuraient des gamins, mais aussi beaucoup d'ouvriers, à
@@ -1635,8 +1618,7 @@ Il n'y avait guère qu'un officier, un lieutenant, qui les
 A un seul moment, du reste, la situation devint menaçante. Il était environ six heures un quart. Je vis arriver sur la place des ouvriers, sans doute des maçons
 ayant fini leur travail. Il y en avait une trentaine ou
 une quarantaine, qui se portèrent vers l'église. La police
-intervint, très durement, à coups de poing et de four-
-reau de sabre. Les ouvriers ripostèrent; des agents
+intervint, très durement, à coups de poing et de fourreau de sabre. Les ouvriers ripostèrent; des agents
 dégainèrent. Deux cosaques qui se trouvaient près du
 groupe tombèrent sur un ouvrier arrêté, qu'on emmenait au poste. Les autres ouvriers lancèrent des pierres
 à la police; les agents durent se replier, laissant un des à
@@ -1667,12 +1649,9 @@ la sotnia exécuta sur un boulevard, sans le moindre
 Aussitôt après, le calme se rétablissait. Le lendemain res
 matin, le conseil municipal faisait afficher une proclamation invitant au calme. Le dimanche, c'était le gouverneur qui affichait un avis menaçant. Les troupes
 étaient consignées; trois compagnies étaient cachées
-dans la cour de la station de police. Rien ne se produi63
-
-sit, quoiqu''on sentît nettement une grande irritation
+dans la cour de la station de police. Rien ne se produisit, quoiqu''on sentît nettement une grande irritation
 chez tous. Le gouverneur général était revenu le samedi
-matin. Il ne semble pas qu'il ait cherché le renouvelle-
-ment des scènes du 18; car il lui eût été facile, en faisant patrouiller les cosaques sous prétexte de maintenir
+matin. Il ne semble pas qu'il ait cherché le renouvellement des scènes du 18; car il lui eût été facile, en faisant patrouiller les cosaques sous prétexte de maintenir
 Fordre, de provoquer des manifestations. Il paraît
 même qu'il laissa un groupe siffler sous ses fenêtres
 c'est ce que son journal travestit en une attaque contre
@@ -1692,10 +1671,7 @@ d'envoyer une pétition à l'empereur, pour se plaindre
 gouverneur, qui n'avait pas même observé les prescriptions édictées par le Code pénal en matière de
 répression des manifestations par la force armée.
 Tels sont les faits. Mais telle n'est pas la manière
-dont on les a présentés en Europe. Le gouverneur géné-
-ral a fondé à Helsingfors, aux frais du budget finlan-
-
-dais, un journal russe, la Gazette de Finlande, rédigé
+dont on les a présentés en Europe. Le gouverneur général a fondé à Helsingfors, aux frais du budget finlandais, un journal russe, la Gazette de Finlande, rédigé
 en partie par des officiers sous ses ordres. L'agence
 télégraphique russe a l'habileté de faire passer cette
 feuille au service de Bobrikoff pour un journal officiel

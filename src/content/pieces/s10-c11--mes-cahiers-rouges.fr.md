@@ -34,13 +34,9 @@ nous, non pas honteux certes, mais honteusement
 battus; non pas d'une défaite qui apporte la gloire, à
 qui vont les suprêmes honneurs, — (de la gloire, car
 un secret instinct, un avertissement secret, un secret
-remords nous avertit qu'il y a toujours quelque impu-
+remords nous avertit qu'il y a toujours quelque impureté dans la réussite, une grossièreté dans la victoire,
 
-reté dans la réussite, une grossièreté dans la victoire,
-
-une certaine impureté, au moins métaphysique, un reli-
-
-quat, un résidu d'impureté, une impureté résiduaire
+une certaine impureté, au moins métaphysique, un reliquat, un résidu d'impureté, une impureté résiduaire
 
 dans la fortune; et qu'ainsi et pour la même cause et
 
@@ -90,8 +86,7 @@ des vaincus comme nous, des vaincus autant que nous.
 ‘En moins de cent vingt ans l'œuvre non pas de la Révolution française, mais le résultat de l'avortement de la
 Révolution française et de l'œuvre de la Révolution
 française sous les coups, sous la pesée, sous la poussée
-de la réaction, de la barbarie universelle est littérale-
-ment anéantie. Complètement. Et non seulement il n'en
+de la réaction, de la barbarie universelle est littéralement anéantie. Complètement. Et non seulement il n'en
 reste plus rien. Ni traces de rien. Mais nulles traces de
 promesses même, ni d'aucune fécondité ultérieure.
 Nous sommes des vaincus avant que de naître. Nous
@@ -109,8 +104,7 @@ de le dire. Tout ce que nous faisons, tout ce que nous
 avons voulu faire depuis quinze ans est commandé
 
 par le souvenir, par un souvenir implacable, par la
-trace de ce désastre antécédent, par ce désastre anté-
-cédent même. Par la situation qu'il nous a faite dans
+trace de ce désastre antécédent, par ce désastre antécédent même. Par la situation qu'il nous a faite dans
 le monde et par la situation qu'il nous a faite en
 nous-mêmes. À nous-mêmes dans le monde; à nousmêmes en nous-mêmes. Nous avions cru, un'peu naïvement peut-être, que nous pourrions parler comme si
 nous n'avions pas été battus en 70. L'événement nous a
@@ -132,8 +126,7 @@ soubassement des autres réalités, du plus grand nombre
 des réalités matérielles, des réalités économiques, des
 réalités de puissance, et d'un très grand nombre des
 réalités d(e l'esprit, des réalités intellectuelles et mentales; morales même. J'oserai dire: religieuses.
-L'expérience nous a montré, une fois de plus, l'événe-
-ment nous a rappelé, durement, âprement, une fois de
+L'expérience nous a montré, une fois de plus, l'événement nous a rappelé, durement, âprement, une fois de
 plus, que le vaincu ne peut pas parler comme le vainqueur, ou au moins comme celui qui n'est, qui n'a été
 
 ni vaincu ni vainqueur; qu'il ne peut pas parler le même
@@ -146,13 +139,10 @@ irrévocable; qu'une défaite militaire dure aussi longtemps qu'elle n'est pas r
 vaincu militaire dure aussi longtemps qu'elle n'est pas
 révoquée; qu'il peut bien y avoir des amnisties pour
 
-. les guerres civiles, des amnisties qui sont d'ailleurs géné-
-
-ralement, surtout aujourd'hui, des jeux parlementaires,
+. les guerres civiles, des amnisties qui sont d'ailleurs généralement, surtout aujourd'hui, des jeux parlementaires,
 des jeux de la politique parlementaire; mais qu'il n'y
 _qu'ilne peut y avoir ni amnésie ni amnistie militaire, pour
-les événements militaires, antécédents, pour les situa-
-tions nées des événements militaires. Pour les situations
+les événements militaires, antécédents, pour les situations nées des événements militaires. Pour les situations
 faites militaires. Dans le sévère compte des forces militaires, des événements, des situations militaires. Parce
 que la force militaire est non pas seulement une force
 brutale, mais surtout une sorte de force pure, je veux
@@ -185,8 +175,7 @@ langage ancien régime, l'Europe bientôt entière s'intercala, finit par s'inte
 - à partir, Nos moins grands contemporains s'en apercevront peut-être bientôt, si, comme tout permet de le
 supposer, ils ont l'intention de changer encore une fois
 de langage, de substituer encore une fois un langage à
-un autre, un nouveau à un ancien, le langage syndica-
-liste au langage parlementaire. Nos pères n'ont pas
+un autre, un nouveau à un ancien, le langage syndicaliste au langage parlementaire. Nos pères n'ont pas
 se parler eux-mêmes pourtant) le langage révolutionnaire, le langage nouveau régime sans qu'intervint
 la guerre, et la victoire ou la défaite. Et il fallut choisir.
 Nos moindres contemporains (et quand je dis moindres
@@ -197,20 +186,14 @@ même au seuil de la grande, et même assez de temps
 après le commencement de la grande, et nous ne savons
 nullement, nul ne peut augurer, même par habitude, à
 nul ne peut conjecturer, nul ne sait ce que sera demain,
-quel ordre de grandeur nous arrivera demain), nos con-
-
-temporains ne pourront, ce demain, se parler
+quel ordre de grandeur nous arrivera demain), nos contemporains ne pourront, ce demain, se parler
 
 mêmes pourtant) le langage révolutionnaire, le langage
 
 syndicaliste sans que la même guerre intervienne, qui
 
 sait? une guerre plus grande, si possible, et encore et toujours d'être vainqueur ou vaincu. De choisir. Notre maître
-M.Sorel (maître étant en bon français ici non pas, naturel-
-
-lement, celui qui commande, mais celui de qui on a (beau-
-
-coup) appris, celui de qui on a reçu des enseignements
+M.Sorel (maître étant en bon français ici non pas, naturellement, celui qui commande, mais celui de qui on a (beaucoup) appris, celui de qui on a reçu des enseignements
 
 essentiels) notre maître M. Sorel n'avait pas seulement
 
@@ -227,8 +210,7 @@ acquis, est de plein droit, n'a donc plus besoin d'être
 même dit) c'était de savoir ce que l'Europe fera (on dit
 l'Europe par habitude et parce que c'est le plus près)
 (mais de proche en proche bientôt ce sera le monde);
-c'est-à-dire que ce sera de savoir exactement, et peut-
-être et sans doute en plus grand, ce que c'était de
+c'est-à-dire que ce sera de savoir exactement, et peutêtre et sans doute en plus grand, ce que c'était de
 
 savoir il y a cent vingt ans; et que pour la Révolution
 syndicaliste qui est prête, et qui sera une Révolution
@@ -252,9 +234,7 @@ humanitaires, il y à toutes les chances pour qu'elle
 ne dise pas comme nous, pas plus que la première
 fois; pour, étant autre, qu'elle dise autrement que
 nous, et qu'elle en vienne aisément à dire et faire
-contre nous. Et alors tous nos pacifistes et nos antimi-
-
-litaristes sauront le prix de la guerre. Défendant un
+contre nous. Et alors tous nos pacifistes et nos antimilitaristes sauront le prix de la guerre. Défendant un
 ordre, ou un désordre nouveau, ils feront d'ailleurs
 des guerres merveilleuses. Du moins il faut lespérer.
 Ces pacifistes et ces antimilitaristes font toujours,
@@ -309,12 +289,10 @@ certain corpus, sans un corps de peuple, sans un appui,
 
 de peuple, sans une matière, sans un peuple qui fût
 tout cela, sans un peuple corps, en un mot sans une
-patrie. Au sage il a fallu la cité hellénique; au pro-
-phète il a fallu la race et le peuple d'Israël; au saint
+patrie. Au sage il a fallu la cité hellénique; au prophète il a fallu la race et le peuple d'Israël; au saint
 il a fallu le peuple chrétien: Et certains peuples de À
 l'Occident, au moins pour commencer. Et il est pas
-jusqu'à cette sorte de préformation temporelle de l'Empire romain dans et pour l'avènement du christianisme, si importante, qui charnelle,. corporelle, maté-
-rielle, ne nous paraisse en effet d'une importance
+jusqu'à cette sorte de préformation temporelle de l'Empire romain dans et pour l'avènement du christianisme, si importante, qui charnelle,. corporelle, matérielle, ne nous paraisse en effet d'une importance
 comme excessive, très vraiment inquiétante. Nos
 positivistes apprendront la métaphysique comme nos;
 pacifistes apprendront la guerre. Nos positivistes ap-:
@@ -347,16 +325,10 @@ comme en efligie et en représentation anticipée, par une
 
 sorte de délégation antérieure, en image et plus qu'en
 
-similitude, intérieurement ensuite dans un cercle inté-
-
-rieur concentrique nous l'avons été nous-mêmes, sans
+similitude, intérieurement ensuite dans un cercle intérieur concentrique nous l'avons été nous-mêmes, sans
 image, (cette fois), et sans délégation. Sans députation,
 
-… aucune. La défaite enfante la défaite et jusqu'à la révo-
-
-cation de la défaite c'est un cercle vicieux de com-
-
-promissions liées, de progressions, de dégressions
+… aucune. La défaite enfante la défaite et jusqu'à la révocation de la défaite c'est un cercle vicieux de compromissions liées, de progressions, de dégressions
 
 circulaires descendantes. Ce n'est pas seulement la
 communication extérieure qui est coupée à un peuple
@@ -389,8 +361,7 @@ Comme il n'y en a pas deux, dans la vie d'un homme.
 fois. Comme il n'en est pas donné deux à la même per_ sonne, homme ou peuple. A la même. histoire. A la
 à même aventure. Ce crime a inauguré notre vie publique,
 notre vie civique. En réalité il a inauguré toute notre -
-vie; et on ne peut se défaire de son inauguration. Irré-
-vocablement il commandera toute notre vie de ce temps;;
+vie; et on ne peut se défaire de son inauguration. Irrévocablement il commandera toute notre vie de ce temps;;
 non seulement notre vie publique et civique; mais toute
 notre vie intellectuelle et morale, mentale; et même
 physique. Car il y a une atteinte physique de toutesles
@@ -398,8 +369,7 @@ atteintes, une atteinte charnelle, une inscription physique de tous les anciens 
 et ensemble, et d'ensemble, de déchéance en déchéance,
 de démagogie en démagogie il a commandé, il a fait
 cette déchéance où nous sommes; il nous a mis où nous
-Je ne m'en tairai jamais. J'en resterai, j'en demeure-
-rai, je m'en laisserai toujours inconsolable. Je n'ai
+Je ne m'en tairai jamais. J'en resterai, j'en demeurerai, je m'en laisserai toujours inconsolable. Je n'ai
 jamais tant senti, aussi nettement, ce que c'est qu'un
 événement historique, qu'une fois, et que c'est toujours
 un monument historique, je ne l'ai jamais autant
@@ -426,8 +396,7 @@ apprenait. Hélas il apprenait de l'histoire.
 Il s'instruisait. Je n'ai jamais aussi bien compris
 . qu'alors, dans un éclair, aussi instantanément senti ce
 que c'était que l'histoire; et l'abime irrefranchissable
-- qu'il y qui s'ouvre entre l'événement réel et l'évé-
-nement historique; l'incompatibilité totale, absolue:
+- qu'il y qui s'ouvre entre l'événement réel et l'événement historique; l'incompatibilité totale, absolue:
 - l'étrangèreté totale; l'incommunication; l'incommensu- -
 rabilité: littéralement l'absence de commune mesure
 même possible.
@@ -459,8 +428,7 @@ fouillées. L'histoire, l'événement de l'histoire sont ces …
 carreaux de plâtre qu'aussitôt la rosace abolie nous …
 mettons au même lieu, chacun tous tant que nous
 sommes selon notre petit entendement, selon nos petits
-moyens et notre petite capacité. Selon notre petit com-
-merce. Après la rosace abolie et seulement alors et à …
+moyens et notre petite capacité. Selon notre petit commerce. Après la rosace abolie et seulement alors et à …
 défaut de la rosace abolie quand nous sommes corrects.
 Avant même et au besoin en la démolissant, nous
 
@@ -497,8 +465,7 @@ comme un homme d'un autre temps. (Dans le même
 temps pour moi, car ce temps, qui était le même temps
 pour moi, pour lui au contraire, pour lui étrangèrement
 s'analysait aussitôt, se décomposaiït en un temps autre,
-en un temps étranger; en un langage autre, en un lan-
-gage étranger.) IL m'entendait en un langage étranger.:
+en un temps étranger; en un langage autre, en un langage étranger.) IL m'entendait en un langage étranger.:
 C'est dire, hélas, qu'il ne m'entendait pas du tout.
 qui fait qu'on n'en sortira jamais, c'est que ce langage
 aussi parfaitement étranger correspond naturellement
@@ -630,8 +597,7 @@ Une opération non inventée, non imaginaire. Ce n'est à
 pas qu'on peut rien rattraper, qu'un éclair de génie
 ou de la grâce paye pour toute la longueur d'une vie. Le
 plus grand génie du monde ne remplace pas d'avoir
-tel berceau, telle patrie, d'être sorti de telle race ter-
-rienne. Le plus grand génie du monde aussi ne remplace
+tel berceau, telle patrie, d'être sorti de telle race terrienne. Le plus grand génie du monde aussi ne remplace
 pas d'avoir telle amitié, à telle date, en ce lieu, tel
 berceau d'amitié. Tout homme par sa naissance temporelle, par sa situation temporelle, par son lieu, par
 son temps temporel, par sa prise de date, une certaine

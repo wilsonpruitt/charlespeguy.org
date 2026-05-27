@@ -75,10 +75,9 @@ l'énoncé même le plus succinct; pour savoir ce quia.
 44 paru dans les cinq premières séries des cahiers, il
 1 suffit d'envoyer un mandat de cinq francs à are
 RE: Bourgeois, administrateur des cahiers, 8, rue-de la Sor-.;
-4 bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-ment; on recevra en retour le catalogue analytique
+4 bonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
 : sommaire, 1900-1904, de nos cinq premières séries.
-170 Ce catalogue a été justement établi pour donner, …
+Ce catalogue a été justement établi pour donner, …
 autant qu'il se pouvait, une image en bref, un raccourci,
 JE une idée, abrégée, mais complète, de nos éditions ant =.
 À rieures et de nos cinq premières séries; tout y est classé
@@ -91,8 +90,7 @@ francs; ce cahier comptait comme premier cahier de la
 sixième série et nos abonnés l'ont reçu à sa date, le ni
 2 octobre 1904, comme premier cahier de la sixième
 série; toute personne qui jusqu'au 31 décembre 1905
-s'abonnait rétrospectivement à la sixième série le rece-
-vait, par le fait même de son abonnement, en tête de la
+s'abonnait rétrospectivement à la sixième série le recevait, par le fait même de son abonnement, en tête de la
 … série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande. Au
 Pour la septième série, année ouvrière 1905-1906, et |.
@@ -122,8 +120,7 @@ chacun d'eux demeure également identique à lui-même.!
 Nous aurons l'exemple de deux ensembles de nombres
 — l'ensemble des nombres qui mesurent les espaces et +10
 l'ensemble des nombres qui mesurent les temps — tels
-4 que à chaque nombre de l'un de ces ensembles corres-
-pond un nombre de l'autre.
+4 que à chaque nombre de l'un de ces ensembles correspond un nombre de l'autre.
 ne [Il est clair que les espaces pourraient être considérés
 
 ::1 indépendamment des temps employés à les parcourir. A
@@ -193,8 +190,7 @@ la question suivante se pose naturellement: « Cette
 ( relation existe-t-elle aussi pour les couples inconnus? »
 4 — On sent toute l'importance de cette question: si, en
 ! effet, la relation persiste, il n'est plus nécessaire, pour
-connaître un couple inconnu — c'est-à-dire pour con-
-naître le nombre inconnu qui correspond dans l'un des À
+connaître un couple inconnu — c'est-à-dire pour connaître le nombre inconnu qui correspond dans l'un des À
 ensembles à un nombre donné dans l'autre ensemble,
 — il n'est plus nécessaire de déterminer expérimenta-
 6 lement ce nombre inconnu; il suflit de déterminer
@@ -205,8 +201,7 @@ donnée: si, par exemple, entre le temps depuis lequel
 parcouru par ce corps il persiste cette relation, à savoir.
 que l'espace est égal au carré du temps multiplié par « se un certain nombre invariable (qui est la moitié de l'acnn célération due à la pesanteur, 9,8088), si cette relation
 É persiste, il ne sera plus nécessaire, pour savoir quel »
-1 espace correspond au temps 3 par exemple, de déter-
-miner expérimentalement cet espace (opération difficile
+1 espace correspond au temps 3 par exemple, de déterminer expérimentalement cet espace (opération difficile
 de déterminer mathématiquement un nombre tel qu'il
 à soit égal au carré de 3 multiplié par la moitié de 9,8088; à
 si (autre exemple) entre la température d'une barre
@@ -222,8 +217,7 @@ cette relation persiste, il ne sera plus nécessaire, pour
 savoir quelle température correspond à la longueur;
 de 1",04 par exemple, de déterminer expérimentalement
 cette température (opération longue, coûteuse, sujette
-à erreurs et à recommencements); il suffira de détermi-
-ner mathématiquement coup sûr) un nombre tel que
+à erreurs et à recommencements); il suffira de déterminer mathématiquement coup sûr) un nombre tel que
 : la relation existant pour les couples connus persiste
 pour les couples inconnus et seulement alors, voir n'est
 plus nécessaire pour savoir: prévoir est devenu possible.:
@@ -234,10 +228,8 @@ regardera si la relation existant entre et b,, entre
 Ici deux suppositions sont possibles: 1° Supposons
 d'abord qu'on ait vérifié que la relation existe entre
 et et qu'on ait vérifié qu'elle existe pour un grand
-nombre d'autres couples, mille par exemple. On admet-
-tra alors qu'elle existe aussi pour les autres couples
-encore inconnus. [On le voit, la persistance d'une rela-
-tion est une chose que l'on admet, elle est l'objet d'une.
+nombre d'autres couples, mille par exemple. On admettra alors qu'elle existe aussi pour les autres couples
+encore inconnus. [On le voit, la persistance d'une relation est une chose que l'on admet, elle est l'objet d'une.
 hypothèse, d'une croyance (et non d'une connaissance),
 elle implique un acte de confiance, un acte de foi:
 que, justement dans les cas où on s'abstient de le véri- NE
@@ -254,8 +246,7 @@ la persistance d'une relation est encore l'objet d'un
 4 préjugé, (2) plus exactement du préjugé de la coutume,
 ï puisque la seule raison qu'on ait de croire que la rela- À
 tion sera, c'est qu'elle a été. — Mais cette foi, comme à
-le préjugé qui l'accompagne, est d'une nature particu-
-de lière: elle est révocable: si ce qu'elle croyait vrai vient
+le préjugé qui l'accompagne, est d'une nature particude lière: elle est révocable: si ce qu'elle croyait vrai vient
 È à se montrer faux, elle s'évanouit instantanément; bien
 plus, elle se sait révocable: elle sait que ce qu''élle croit
 vrai peut cesser de l'être et que la durée d'une chose, à
@@ -269,10 +260,8 @@ qu'avec peine. Très exceptionnel est cet admirable langage de
 “14 M. Poincaré (Science et Hypothèse, page 179): « Le physicien qui
 4 vient de renoncer à une de ses hypothèses devrait être plein de
 14 joie, car il vient de trouver une occasion inespérée de découverte. ‘si
-Si la vérification ne se fait pas, c'est qu'il y a quelque chose d'iuat-
-tendu, d'extraordinaire; c'est qu'on trouver de linconnu et du
-. 4 nouveau. » (Notons ici la profonde différence entre cet anar-
-chisme, heureux du changement des catégories, et l'anarchisme de
+Si la vérification ne se fait pas, c'est qu'il y a quelque chose d'iuattendu, d'extraordinaire; c'est qu'on trouver de linconnu et du
+. 4 nouveau. » (Notons ici la profonde différence entre cet anarchisme, heureux du changement des catégories, et l'anarchisme de
 a M. Bergson, heureux de leur absence. Voir une critique du bergPH sonisme par M. Poincaré, Valeur de la Science, page 216.) — Très
 exceptionnel aussi le savant qui s'avoue que la longue durée
 dune relation n'implique pas sa nécessité; que, par exemple, cette
@@ -287,8 +276,7 @@ exemple, qui remplacerait alors (a,, b,) dans le discours
 ci-après: ces deux cas sont identiques comme s'op-
 Dans la seconde vérité, la propriété considérée (perpendicularité)
 est impliquée dans la définition des objets qu'elle affecte (rayon
-d'un cercle, tangente définie comme limite de sécante). Faire resL- sortir cette implicité, cest le propre de la démonstration mathé-
-matique. C'est cette implicité que l'on entend par « nécessité des
+d'un cercle, tangente définie comme limite de sécante). Faire resL- sortir cette implicité, cest le propre de la démonstration mathématique. C'est cette implicité que l'on entend par « nécessité des
 vérités mathématiques ». — Rien de pareil dans la première vérité.
 La masse étant jusqu'ici définie « le plus ou moins d'effort que
 réclame le corps pour acquérir un mouvement déterminé et le
@@ -297,8 +285,7 @@ terrestre on pourra retourner en tous sens et regarder jusqu'au
 fond la définition de ces objets sans y trouver inscrit que l'un soit
 proportionnel à l'autre. La propriété considérée (proportionna- à
 ( lité) apparaît donc ici comme posée extérieurement sur les objets
-qu'elle affecte. IL est donc raisonnable de considérer comme pos-
-sible de rencontrer les objets sans la propriété, c'est-à-dire des
+qu'elle affecte. IL est donc raisonnable de considérer comme possible de rencontrer les objets sans la propriété, c'est-à-dire des
 Ï corps tels qu'entre leur masse et leur poids il n'y ait pas pro- À
 portionnalité. (C'est la classique distinction de Kant entre les juge-
 1 ments analytiques et synthétiques, ou de Leibnitz entre les vérités
@@ -322,8 +309,7 @@ varient énormément avec la nature des substances. Seul, le phé-
 PAstronomie, soit par le maniement journalier des corps, pour que
 nous lenregistrions sans un sentiment de surprise et d'admiration. »
 
-posant au premier.) On cherchera alors et on trou-
-vera (nous avons dit que la mathématique enseigne à:
+posant au premier.) On cherchera alors et on trouvera (nous avons dit que la mathématique enseigne
 À le faire) une nouvelle relation telle qu'elle existe à la
 fois entre et b,, et b,, etc, et entre les deux
 termes du couple réfractaire, disons entre et b,. On
@@ -343,11 +329,8 @@ que la correspondance est logique (capable d'une loi);
 le second, qu'elle est illogique ou empirique ou
 dans 1 qu'ell illogiq
 fortuite (capable de hasard). À
-( Reconnaître les correspondances logiques et en expli-
-citer les lois, c'est tout l'objet de la physique mathé-
-matique. La forme, seule de ces lois, dira même
-(1) Je dis « à travers » et non « entre ». L'expression de M. Poin-
-caré (Valeur de la Science, page 174): « une loi est une relation
+( Reconnaître les correspondances logiques et en expliciter les lois, c'est tout l'objet de la physique mathématique. La forme, seule de ces lois, dira même
+(1) Je dis « à travers » et non « entre ». L'expression de M. Poincaré (Valeur de la Science, page 174): « une loi est une relation
 constante entre le phénomène d'aujourd'hui et celui de demain
 peut prêter au malentendu: En effet, ce n'est pas entre deux phé- “1
 nomènes qu'a lieu la relation, c'est entre deux éléments de chacun
@@ -360,21 +343,17 @@ ont lieu. (1) Ré.
 
 Les correspondances fournies par les phénomènes «
 naturels — c'est-à-dire par le monde extérieur n'ayant
-subi aucune modification de la part de lhomme—sont-
-elles des correspondances logiques? Montrer quelle ré-
-ponse — consciente ou inconsciente — firent à cette
+subi aucune modification de la part de lhomme—sontelles des correspondances logiques? Montrer quelle réponse — consciente ou inconsciente — firent à cette
 question les physiciens anciens, et quelle les physiciens
 modernes, tel est l'objet du suivant article de M.Georges
 Les physiciens anciens — entendons jusqu'à ces trente 55200
-dernières années — répondaient: oui, les correspon-
-dances fournies par les phénomènes naturels sont
+dernières années — répondaient: oui, les correspondances fournies par les phénomènes naturels sont
 
 (1) « Nos équations expriment des rapports et, si ces équations
 restent vraies, c'est que ces rapports conservent leur réalité. Elles
 nous apprennent, après comme avant, qu'il y a tel rapport entre 4 (8
 quelque chose et quelque autre chose; seulement, ce quelque
-chose nous l'appelions autrefois mouvement, nous lappelons main-
-tenant courant électrique. Mais ces appellations n'étaient que des
+chose nous l'appelions autrefois mouvement, nous lappelons maintenant courant électrique. Mais ces appellations n'étaient que des
 images substituées aux objets réels que la nature nous cachera ne
 éternellement. Les rapports véritables entre ces objets réels sont
 la seule réalité que nous puissions atteindre, et la seule condition,
@@ -383,8 +362,7 @@ images que nous sommes forcés de mettre à leur place. Si ces +400
 rapports nous sont connus, qu'importe si nous jugeons commode
 de remplacer une image par une autre. » (Science et Hypothèse,
 
-logiques. [On prétendit même ensuite ramener ces cor-
-respondances logiques à un type unique, dit « équations
+logiques. [On prétendit même ensuite ramener ces correspondances logiques à un type unique, dit « équations
 de Lagrange ». Représenter tout phénomène naturel par
 un système d'équations de Lagrange concentra tous les
 efforts de la physique, parmi lesquels un des plus!
@@ -393,8 +371,7 @@ Maxwell.] Pour ces physiciens, le cas des phénomènes
 astronomiques, lesquels soft précisément capables de +14
 correspondances logiques, devait être le cas général des
 phénomènes naturels: ceux des phénomènes naturels,
-non encore capables de correspondances logiques (phé-
-nomènes de frottement ou irréversibles) (1) ne devaient
+non encore capables de correspondances logiques (phénomènes de frottement ou irréversibles) (1) ne devaient
 cette incapacité qu'à un mauvais choix des grandeurs À
 entre lesquelles on établissait une correspondance ou
 au mauvais choix de cette correspondance même
@@ -412,8 +389,7 @@ le cas des phénomènes irréversibles est le cas général,
 À non pas à l'insuffisance de notre effort, mais à l'essence
 de (1) On sait que tout ce que l'on a établir, pour les correspon- ‘v°
 dances présentées par ces phénomènes, c'est que leur écart d'avec
-une certaine correspondance logique (dite « loi d'entropie a tou-
-jours lieu dans le même sens. Cest la célèbre « inégalité de
+une certaine correspondance logique (dite « loi d'entropie a toujours lieu dans le même sens. Cest la célèbre « inégalité de
 Clausius ». ne
 
 même de ces phénomènes. (1) C'est dire, avec Fresnel,
@@ -435,9 +411,7 @@ face, isolément, courageusement: le religieux en effet et Don
 
 le métaphysicien classique ne pouvant se défendre, en
 
-même temps qu'ils posent le miracle, de poser l'exis-
-
-tence d'un être semblable à eux (Dieu, la « Providence à ta
+même temps qu'ils posent le miracle, de poser l'existence d'un être semblable à eux (Dieu, la « Providence à ta
 
 l'Etre infini,..….) au regard de qui le miracle cesse d'être À
 miracle pour devenir chose logique. (2) On peut ajouter
@@ -476,9 +450,7 @@ frottements, comme dans la chimie des hautes tempéra- A
 tures, par exemple, ou par leur soumission à certaines
 conditions, comme dans la physique des modifications
 ; permanentes de M. Pierre Duhem); (1) monde restreint
-et inajusté à la nature même partielle, maïs dont prati-
-ement la connaissance semble si ièrement fruc-
-tueuse à l'homme et même suflisante.. Il abandonne la;.
+et inajusté à la nature même partielle, maïs dont pratiement la connaissance semble si ièrement fructueuse à l'homme et même suflisante.. Il abandonne la;.
 : possession de la nature à l'artiste, au poète, à l'amant: Ne
 ; « qu'elle s'éveille aux bras d'un autre plus heureux que;
 
@@ -516,10 +488,8 @@ on l'avait si souvent confondue antérieurement; d'autre
 part, les géomètres se sont beaucoup préoccupés de
 métaphysique et, chaque fois qu'ils ont abordé des
 problèmes de physique mathématique, ils se sont posé, Ai
-avec anxiété, la question de savoir quels rapports exis-
-tent entre la science et la réalité. Dans toutes les
-branches du savoir il serait possible de relever des ten-
-dances analogues vers la réflexion métaphysique et
+avec anxiété, la question de savoir quels rapports existent entre la science et la réalité. Dans toutes les
+branches du savoir il serait possible de relever des tendances analogues vers la réflexion métaphysique et
 certaines anxiétés semblables à celles qui agitent
 l'esprit des géomètres; mais il faut procéder à une dis
 cussion spéciale pour chacune des branches, eticijene
@@ -535,10 +505,8 @@ l'ancienne philosophie de la nature croyait que cette
 44 connaissance était l'objet même de la recherche scienti-
 à fique; c'est la technique du calcul infinitésimal qui les a
 conduits à cette doctrine. (1) Ce calcul considère des
-différences qui existent entre des grandeurs qui appa-
-raissent dans deux phénomènes très voisins dans leur
-succession; il exprime la vitesse avec laquelle ces gran-
-deurs varient; de il passe à la détermination des férences qui existent entre les mêmes grandeurs consi6 dérées à deux époques quelconques, aussi éloignées
+différences qui existent entre des grandeurs qui apparaissent dans deux phénomènes très voisins dans leur
+succession; il exprime la vitesse avec laquelle ces grandeurs varient; de il passe à la détermination des férences qui existent entre les mêmes grandeurs consi6 dérées à deux époques quelconques, aussi éloignées
 : qu'on le veut. (2) Ainsi la connaissance mathématique à
 de la nature aboutit à nous donner des différences
 4 quantitatives qui sont étendues sur le cours du temps,
@@ -568,8 +536,7 @@ donnée, en la combinant avec les formules qui donnent
 
 les différences quantitatives, pour calculer la position LtYeS
 
-que l'astre occupera dans le ciel à des époques ulté-
-rieures; il construit ainsi des horaires (Connaissance
+que l'astre occupera dans le ciel à des époques ultérieures; il construit ainsi des horaires (Connaissance
 
 des temps) dont le navigateur se servira au cours de
 
@@ -606,8 +573,7 @@ nery, Recherches sur l'histoire de l'astronomie ancienne, page 10) Ni
 
 elle n'avait cherché que la construction des tables nautiques. « Le but de la mécanique céleste, dit M. Poin-
 
-à caré, (1) n'est pas atteint quand on a calculé des éphé-
-mérides plus ou moins approchées sans pouvoir se
+à caré, (1) n'est pas atteint quand on a calculé des éphémérides plus ou moins approchées sans pouvoir se
 rendre compte du degré d'approximation obtenu. Si
 
 É l'on constate des divergences entre ces éphémérides
@@ -622,8 +588,7 @@ grand but est de savoir si la loi de Newton suffit pour
 expliquer tous les changements qui se produisent dans
 le système planétaire. (2) Ainsi la mécanique céleste,
 qui a fourni la notion de la science considérée comme
-prévision, conduit à une autre notion, à celle de la con-
-naissance des mouvements célestes considérés dans ce
+prévision, conduit à une autre notion, à celle de la connaissance des mouvements célestes considérés dans ce
 qu'ils ont de plus fondamental et de plus éloigné de
 
 1 l'observation. On pourrait se demander si on ne revient;
@@ -650,9 +615,7 @@ Le tives; (3) les plus grands savants ont fait les plus
 
 que les orbites ne s'éloigneront jamais beaucoup de leurs positions
 
-primitives; Poisson a seulement prouvé qu'elles repassent indéfi-
-
-niment très près de ces positions; on ne peut pas non plus prouver
+primitives; Poisson a seulement prouvé qu'elles repassent indéfiniment très près de ces positions; on ne peut pas non plus prouver
 
 que les corps ne sauraient se choquer (pages 140-141).
 
@@ -669,8 +632,7 @@ couvrir de légères bandes autour de positions moyennes. (4
 C'est sur l'existence d'un tel mode de succession À
 que l'on discute et non sur une prévision de phéno- à
 
-Tandis que l'astronomie se préoccupait ainsi de péné-
-trer la nature du système planétaire, les physiciens
+Tandis que l'astronomie se préoccupait ainsi de pénétrer la nature du système planétaire, les physiciens
 abandonnaiïent toute recherche exacte sur la nature
 des phénomènes terrestres; à leurs yeux la seule chose À
 qu'il soit utile de rechercher serait une connaissance
@@ -716,9 +678,7 @@ en apparence très éloignés... Dans les prémisses de
 
 ces théories, ce qu'il y a de vrai, c'est ce qui est commun
 
-à tous les auteurs; c'est l'affirmation de tel ou tel rap-
-
-port entre certaines choses que les uns appellent d'un °508
+à tous les auteurs; c'est l'affirmation de tel ou tel rapport entre certaines choses que les uns appellent d'un °508
 
 nom et les autres d'un autre. » l'on peut ainsi
 
@@ -762,22 +722,18 @@ Kelvin (qui cependant croit à la possibilité de connaître
 la matière) a imaginé, pour rendre compte de l'élasticité
 de l'éther, des combinaisons mécaniques extraordinaires, comprenant des gyroscopes. (1) Maxwell suppose
 que les corps mauvais conducteurs d'électricité: sont;
-formés de cellules conductrices enfermées dans des pa-
-rois très minces et isolantes; il applique cette hypothèse
+formés de cellules conductrices enfermées dans des parois très minces et isolantes; il applique cette hypothèse
 même aux gaz. (2) Ce grand inventeur ne se souciait
-même pas beaucoup d'éviter les contradictions; M. Poin-
-caré nous apprend (3) que souvent les lecteurs français
+même pas beaucoup d'éviter les contradictions; M. Poincaré nous apprend (3) que souvent les lecteurs français
 éprouvent un sentiment de malaise et de défiance en
 consultant ses livres; et il conclut ainsi: (4) « On ne À
 doit pas se flatter d'éviter toute contradiction; mais il À
-faut en prendre son parti. Deux théories contradic-
-toires peuvent, en effet, pourvu qu'on ne les mêle pas
+faut en prendre son parti. Deux théories contradictoires peuvent, en effet, pourvu qu'on ne les mêle pas
 et qu'on n'y cherche pas le fond des choses, être toutes
 deux d'utiles instruments de recherches. »
 Il me semble vraisemblable que les mathématiciens
 ont adopté cette attitude sceptique et parlé avec autant
-de mépris des hypothèses parce qu'ils ont cru qu'on arri-
-verait ainsi à accroître la confiance que les hommes ont
+de mépris des hypothèses parce qu'ils ont cru qu'on arriverait ainsi à accroître la confiance que les hommes ont
 dans les résultats de la science, en débarrassant celle-ci
 M. d'une alliance compromettante. Que les équations restent
 bonnes, c'est l'essentiel, puisque c'est au moyen de ces
@@ -791,29 +747,23 @@ bonnes, c'est l'essentiel, puisque c'est au moyen de ces
 nous puissions atteindre ». (1)
 Les images au moyen desquelles nous nous représen-
 ; tons la réalité, sont choisies en raison de leur simplicité::
-et de leur commodité; ce sont des raisons plutôt esthé-
-tiques que scientifiques qui dirigent dans le choix des
+et de leur commodité; ce sont des raisons plutôt esthétiques que scientifiques qui dirigent dans le choix des
 On est arrivé à un résultat bien différent de celui que
 l'on voulait atteindre: la mécanique a été ébranlée
 tout entière; ses théorèmes fondamentaux avaient été
 autrefois considérés comme ayant un caractère de
-nécessité, parce qu'ils étaient regardés comme expri-
-mant les propriétés immuables de la matière; (2)
+nécessité, parce qu'ils étaient regardés comme exprimant les propriétés immuables de la matière; (2)
 aujourd'hui ils apparaissent comme de simples conven- À
-tions commodes qui furent jadis justifiées par d'an-
-ciennes expériences faites à une époque où la méthode
-expérimentale était grossière et' qu'on ne pourrait véri-
-fier aujourd'hui d'une manière rigoureuse. Par une suite
+tions commodes qui furent jadis justifiées par d'anciennes expériences faites à une époque où la méthode
+expérimentale était grossière et' qu'on ne pourrait vérifier aujourd'hui d'une manière rigoureuse. Par une suite
 logique des idées on en est venu à se demander (3) « si
 le savant n'est pas dupe de ses définitions et si le monde
 : qu'il croit découvrir, n'est pas tout simplement créé par
 son caprice ». à
 C'est pour combattre le scepticisme que M. Poincaré
 a écrit son livre sur « la science et l'hypothèse ».
-D'après lui c'est nous qui avons conféré aux lois fonda-
-mentales leur certitude, en les regardant comme des
-conventions; mais ces conventions ne sont pas arbi-
-traires; « elles le seraient si on perdait de vue les
+D'après lui c'est nous qui avons conféré aux lois fondamentales leur certitude, en les regardant comme des
+conventions; mais ces conventions ne sont pas arbitraires; « elles le seraient si on perdait de vue les
 
 il: Georges Sorel
 expériences qui ont conduit les fondateurs de la science …
@@ -821,8 +771,7 @@ expériences qui ont conduit les fondateurs de la science …
 ; fisent pour les justifier ». (1) On ne peut pas dire que:
 ; l'expérience ait jamais prouvé la parfaite exactitude des
 4 lois; mais les raisonnements faits à propos de ces expé- AE)
-Ne riences ont démontré que ces conventions étaient com-
-modes. (2) Quand on examine l'histoire de la science
+Ne riences ont démontré que ces conventions étaient commodes. (2) Quand on examine l'histoire de la science
 ï on s'aperçoit que ses fondateurs avaient une grande à
 liberté de choix; leurs moyens d'observation étant fort
 : imparfaits, les anciens savants n'étaient pas gênés par À
@@ -847,8 +796,7 @@ de leur donner des énoncés en rapport avec les besoins a
 4 la science est parvenue à s'ajuster convenablement à
 l'expérience de manière à éviter les erreurs persistantes.
 
-; L'expérience ne prouve pas que les principes de la mé-
-canique sont vrais, mais elle ne prouve pas non plus \?4
+; L'expérience ne prouve pas que les principes de la mécanique sont vrais, mais elle ne prouve pas non plus \?4
 
 qu'ils sont faux; il semble même impossible qu'elle
 puisse jamais trancher une telle question. (1)
@@ -875,8 +823,7 @@ pendule de Foucault aurait les avertir qu'ils faisaient je
 5 fausse route: M. Poincaré estime (3) qu'avec de l'ingé- Hi) ni
 À niosité il serait possible de se tirer d'affaire au moyen: (0
 1 d'un éther doué de propriétés convenables. Ces théories « à
-auraient seulement le tort de compliquer, d'une ma-
-nière excessive, les explications: « Ils inventeraient
+auraient seulement le tort de compliquer, d'une manière excessive, les explications: « Ils inventeraient
 quelque chose qui ne serait pas plus extraordinaire Ne
 que les sphères de verre de Ptolémée et on irait
 , ainsi accumulant les complications jusqu'à ce que le à
@@ -924,8 +871,7 @@ au rang de fossiles ou de figures du langage, elles ont été à
 
 la chair de la science. Auguste Comte avait jadis décrété
 qu'il fallait se garder des hypothèses et prétendu que À
-4 leur emploi appartenait aux âges théologique et métaPi physique; tout progrès eût été arrêté si ses contempo-
-rains l'avaient pris au sérieux, (1) car jamais on ne vit
+4 leur emploi appartenait aux âges théologique et métaPi physique; tout progrès eût été arrêté si ses contemporains l'avaient pris au sérieux, (1) car jamais on ne vit
 homme fermant les yeux avec plus d'entêtement sur les
 4 voies nouvelles que l'on explorait de son temps. Alors
 4 que Fresnel renouvelait la physique en montrant que
@@ -935,9 +881,7 @@ de plus en plus dominante dans les théories, Auguste
 
 1 thèse sur les agents qui produisent les phénomènes et
 À sur leur mode d'action; il repoussait (3) notamment
-l'idée de ramener l'optique au mouvement. Quelle fail-
-
-lite de la science, si les physiciens avaient les livres
+l'idée de ramener l'optique au mouvement. Quelle faillite de la science, si les physiciens avaient les livres
 te d'Auguste Comte! Heureusement ils ne furent lus que
 É À par les médecins, ce qui était sans conséquence.
 
@@ -1082,8 +1026,7 @@ matique sans recourir aux hypothèses moléculaires,
 qui, il y à quarante ans, l'encombraient. Ainsi dans la
 science achevée a disparu tout ce qui a servi à la faire;
 l'esprit des mathématiciens est plus satisfait, mais les
-lois fondamentales semblent dépendre d'heureux ha-
-sards; la thermodynamique est arrivée au même but
+lois fondamentales semblent dépendre d'heureux hasards; la thermodynamique est arrivée au même but
 que la mécanique rationnelle; le lien qui la rattachait à Era
 la réalité devient obscur.
 (a) M. Poincaré estime que cela n'est point possible. (Thermody- 17241000
@@ -1100,8 +1043,7 @@ hypothèses atomistes, qui se montrèrent alors si
 fécondes, n'avaient rien produit d'utile pour la science
 dans l'antiquité.
 
-Le nouvel atomisme se constitua sous l'étroite dépen-
-dance des découvertes de Galilée; c'est parce que la …
+Le nouvel atomisme se constitua sous l'étroite dépendance des découvertes de Galilée; c'est parce que la …
 conception cartésienne n'était pas subordonnée aux lois
 de la chute des graves qu'elle demeura inutilisable. Deux
 faits sont particulièrement frappants dans la pesanteur:
@@ -1130,8 +1072,7 @@ Les points matériels ne sont pas autre chose que les centres de
 gravité des atomes.
 
 mouvements et raisonner sur des forces analogues à la
-pesanteur. Les corps électrisés s'attirent ou se repous-
-sent; il faut donc qu'il y ait des masses électriques: à
+pesanteur. Les corps électrisés s'attirent ou se repoussent; il faut donc qu'il y ait des masses électriques: à
 attractives ou des masses répulsives; les fluides fictifs
 
 sont aussi indestructibles que la matière pesante, à
@@ -1140,8 +1081,7 @@ l'image de laquelle ils sont imaginés. à à
 Les hypothèses moléculaires ont fourni de très à
 grandes ressources pour l'invention; les géomètres les
 
-avaient si intimement combinées avec le calcul infinité-
-simal qu'il parut longtemps impossible d'aborder l'ana- À
+avaient si intimement combinées avec le calcul infinitésimal qu'il parut longtemps impossible d'aborder l'ana- À
 
 lyse des mouvements autrement qu'en partant de l'hypo-?
 thèse qui réduit les corps à n'être qu'un ensemble de À
@@ -1166,8 +1106,7 @@ inventions de lord Kelvin, l'atomisme a pris une autre
 signification: il apparaît comme un mécanisme constitué
 
 avec des éléments de machines et on a montré que les
-forces centrales pouvaient être remplacées par des sy-
-stèmes articulés. (1) Nous sommes ainsi amenés à conce-:
+forces centrales pouvaient être remplacées par des systèmes articulés. (1) Nous sommes ainsi amenés à conce-:
 
 voir les hypothèses d'une manière nouvelle et bien plus à
 
@@ -1180,12 +1119,10 @@ science; mais avant de faire cette recherche, nous
 devons encore signaler un service éminent qu'elles
 1 rendent à la science, d'où les géomètres actuels vouLe: draient les exclure.
 
-À Les hypothèses présentent quelque chose de para-
-doxal: il est, de plus en plus, évident qu'elles sont tout A
+À Les hypothèses présentent quelque chose de paradoxal: il est, de plus en plus, évident qu'elles sont tout A
 à fait artificielles et que les atomes n'expliquent un:°08
 phénomène qu'à la condition qu'on leur aït tout d'abord
-attribué des propriétés propres à donner cette explica-
-tion; (1) — et cependant l'histoire de la science nous
+attribué des propriétés propres à donner cette explication; (1) — et cependant l'histoire de la science nous
 apprend que notre confiance dans la certitude des lois Eee
 dépend de la nature des hypothèses que nous formons Ne
 pour les représenter. Les savants ont un sentiment plus
@@ -1207,8 +1144,7 @@ Il est douteux qu'avant le dix-sepiième siècle on eût
 ï l'idée parfaitement claire de lois Ciernelles et immuables;
 les philosophes avaient toujours quelques hésitations
 et ils s'arrangeaient pour pouvoir introduire un peu
-: à d'incertitude. Aujourd'hui l'idée de telles lois est deve-
-nue banale, parce que l'atomisme, dont la science
+: à d'incertitude. Aujourd'hui l'idée de telles lois est devenue banale, parce que l'atomisme, dont la science
 actuelle est tout imprégnée, a été construit de manière
 à exiger l'invariabilité de la loi. Les cartésiens ne se
 placèrent point sur ce terrain; et ce fut une des causes
@@ -1250,23 +1186,17 @@ théories qui ont rapproché la lumière de l'électricité;
 mais il ne me semble pas que l'on ait bien jusqu'ici
 pourquoi ce rapprochement constituait un grand pro-:
 grès; je ne suis pas du tout persuadé que l'unité ait
-autant d'intérêt pour le savant que le pense M. Poin-
-caré; (1) l'avantage me semble consister en ce que les
+autant d'intérêt pour le savant que le pense M. Poincaré; (1) l'avantage me semble consister en ce que les
 
-lois de l'électricité ont gagné en certitude en se rappro-
-chant de celles de l'optique. Les phénomènes lumineux
+lois de l'électricité ont gagné en certitude en se rapprochant de celles de l'optique. Les phénomènes lumineux
 donnent lieu aux expériences les plus rigoureuses et ils
 
 se développent sur des espaces prodigieux; les anciens
-avaient déjà le pressentiment que l'optique est sus-
-ceptible d'une connaissance géométrique et qu'elle peut #. ne
+avaient déjà le pressentiment que l'optique est susceptible d'une connaissance géométrique et qu'elle peut #. ne
 
-ainsi prendre place à côté de l'astronomie: toute hypo-
-thèse qui rattachera une branche de la physique à À ne
+ainsi prendre place à côté de l'astronomie: toute hypothèse qui rattachera une branche de la physique à À ne
 l'optique aura, par suite, pour résultat de lui donner
-quelque chose du caractère de science absolue que pos-
-
-sède l'optique. L'électricité avait grand besoin d'un tel
+quelque chose du caractère de science absolue que possède l'optique. L'électricité avait grand besoin d'un tel
 secours, car ses lois n'avaient pas été déterminées à
 d'une manière bien satisfaisante.
 
@@ -1277,8 +1207,7 @@ parce qu'elles expliquent fort bien les phénomènes
 acoustiques; chaque fois que l'on fonde une théorie
 physique sur la considération de tels mouvements,
 notre esprit est conduit à admettre que nous atteignons
-un degré supérieur d'exactitude: c'est en cela que l'uni-
-fication des explications (par l'élasticité) est intéres-.
+un degré supérieur d'exactitude: c'est en cela que l'unification des explications (par l'élasticité) est intéres-.
 
 Je citerai encore la thermodynamique comme un;
 exemple de l'influence des hypothèses sur l'idée de loi
@@ -1297,7 +1226,7 @@ compliquées. La simplicité du principe d'équivalence
 l'expression de ces doutes; cependant on est arrivé très
 : vite à regarder ce principe comme étant parfaitement à
 rigoureux. Il est facile de voir comment cette conception
-À! s'est imposée: on est parti de l'idée que la chaleur
+s'est imposée: on est parti de l'idée que la chaleur
 s'explique par le mouvement et que, dès lors, on peut
 appliquer ici les théorèmes généraux de la mécanique
 rationnelle: « On allègue le principe des forces vives,
@@ -1316,13 +1245,12 @@ pose toujours que l'on peut appliquer les formules
 4 et on transporte à la physique l'idée d'absolu qui appar-
 f. tient aux mouvements de la mécanique rationnelle. 1 1708
 
-4 L'examen des hypothèses nous amène toujours à
+L'examen des hypothèses nous amène toujours à
 à considérer, à la place de la réalité, des appareils
 A construits par l'homme et fonctionnant comme ceux que
 nous employons journellement; pour aller jusqu'au bout
 de la question, il nous faut chercher s'il n'y aurait pas
-13 quelque lien entre cette manière de construire les hypo-
-thèses et la méthode expérimentale, qui emploie des
+13 quelque lien entre cette manière de construire les hypothèses et la méthode expérimentale, qui emploie des
 4 apparéils construits avec tant de précision qu'on peut
 à. les regarder comme étant presque aussi parfaits que
 ATEN des figures géométriques. 1:48
@@ -1344,8 +1272,7 @@ comment il décrit le processus de la pensée scientifique:
 l'idée expérimentale; celle-ci dépend du sentiment assez
 vague et très personnel que le savant a d'une explication
 possible des faits; 2° « en vue de cette idée, il raisonne,
-institue une expérience et en réalise les conditions maté-
-rielles; 3 de cette expérience résultent de nouveaux
+institue une expérience et en réalise les conditions matérielles; 3 de cette expérience résultent de nouveaux
 phénomènes qu'il faut observer, et ainsi de suite ». Le
 savant contrôle son idée par les faits et se garantit par (1
 la contre-épreuve contre une illusion possible, résultant
@@ -1356,8 +1283,7 @@ il en existe cependant une réelle, au point de vue des
 conséquences pratiques que l'homme peut en tirer et ni.
 relativement à la puissance qu'il acquiert par leur A
 moyen... A l'aide de ces sciences expérimentales,
-l'homme devient un inventeur de phénomènes, un véri-
-table contremaître de la création et ailleurs: (5) #4
+l'homme devient un inventeur de phénomènes, un véritable contremaître de la création et ailleurs: (5) #4
 (1) Chez Auguste Comte, cette différence s'efface complètement;
 voici comment M. Lévy-Brühl définit sa doctrine: « Ce n'est pas
 l'intervention de l'homme dans les phénomènes qui constitue
@@ -1367,16 +1293,14 @@ sont les plus propres à mettre en évidence la marche des phéno-
 À (2) Claude Bernard, Introduction à la médecine expérimentale, Hat À
 À page 44. Conférez page 37 et pages 57-62 sur l'idée expérimentale.
 
-« L'expérience n'est au fond qu'une observation provo-
-quée dans un but quelconque. On sera seulement forcé “4
+« L'expérience n'est au fond qu'une observation provoquée dans un but quelconque. On sera seulement forcé “4
 3 de recourir à l'expérimentation quand lobservation que
 Pon doit provoquer n'existe pas toute préparée dans la
 La grande préoccupation de Claude Bernard était de
 4 garantir les physiologistes contre des conclusions Ffi hâtives; il savait, par sa longue pratique, à quelles
 erreurs est exposé le savant qui opère sur les êtres
 vivants et qui se trouve souvent en présence de résultats
-contradictoires ou étranges. (1) Le matériel du labora-
-toire n'était pas alors aussi considérable qu'aujourd'hui
+contradictoires ou étranges. (1) Le matériel du laboratoire n'était pas alors aussi considérable qu'aujourd'hui
 ; et les instruments du physiologiste sont loin de présenter
 le caractère quasi-industriel de l'outillage du physicien; ‘ti
 ï aussi Claude Bernard parle-t-il des moyens matériels
@@ -1402,10 +1326,8 @@ s'intitulent généralisateurs. » (Claude Bernard, Loc. cit., pages 27-28) il
 
 Dans les deux cas, nous voyons triompher l'art du; ne
 constructeur qui sait établir des outils fonctionnant
-avec la perfection des figures que considère la cinéma-
-tique. L'habileté de l'opérateur ne joue plus un rôle
-prépondérant, comme cela avait lieu au temps où il fal-
-lait expérimenter avec des instruments rudimen- \9
+avec la perfection des figures que considère la cinématique. L'habileté de l'opérateur ne joue plus un rôle
+prépondérant, comme cela avait lieu au temps où il fallait expérimenter avec des instruments rudimen- \9
 . taires; (1) maintenant l'automatisme se retrouve plus ‘re
 ou moins partout et il faut plus d'attention que d'ap-
 à Le grand fait qui domine toute la science moderne est
@@ -1415,8 +1337,7 @@ de ce grand fait qu'il faut partir pour reviser les prin-:
 cipes qui sont demeurés jusqu'ici encore obscurs dans
 Il s'en faut cependant de beaucoup que l'automatisme
 ait encore autant dominé le laboratoire que l'atelier;
-mais c'est en raisonnant sur l'outillage le plus perfec-
-tionné que l'on peut comprendre celui dans lequel la
+mais c'est en raisonnant sur l'outillage le plus perfectionné que l'on peut comprendre celui dans lequel la
 main de l'homme intervient notablement. Nous savons
 maintenant que le travail de l'ancienne manufacture,
 fondé sur l'extraordinaire division des tâches, était une
@@ -1427,13 +1348,11 @@ que les mécanismes; la division du travail a disparu Dx.
 quand on sut tailler des appareils suivant des principes
 1 (1) Le très ancien laboratoire a été souvent caractérisé par ce
 
-Georges Sorel +1
 géométriques. Lorsque nous voyons aujourd'hui un
 homme travailler avec un outillage primitif, nous com- A
 prenons que son corps, la pièce qu'il tient à la main et
 son instrument forment une machine. (1)
-Les laboratoires sont loin d'être aussi faciles à com-
-prendre que les ateliers pour plusieurs raisons. Ils
+Les laboratoires sont loin d'être aussi faciles à comprendre que les ateliers pour plusieurs raisons. Ils
 ressemblent aux usines qui existaient au début du dix- À
 neuvième siècle, dans lesquelles existaient côte à côte
 à des mécanismes très éloignés les uns des autres au point
@@ -1457,25 +1376,19 @@ hasards et dans lesquels une certaine partie de la
 4 nature est englobée. » La machine, elle aussi, comprend
 (1) Reuleaux prend comme exemple un rémouleur qui fait tourner! À
 È sa meule avec son pied; il montre comment on peut analyser ce
-mécanisme et le noter dans sa nomenclature. (Cinématique, tra-
-
-un corps englobé dans sa combinaison de mouvements; A
+mécanisme et le noter dans sa nomenclature. (Cinématique, traun corps englobé dans sa combinaison de mouvements; A
 c'est ce corps que Reuleaux appelle la pièce d'œuvre; (1)
 quelquefois l'outil façonne cette pièce et la force à
 prendre avec lui une relation géométrique (exemple:
 barre passant dans un laminoir); d'autres fois les pièces
 d'œuvre, déjà suffisamment affinées, servent d'outil
 l'une vis-à-vis de l'autre (exemple: fils qui se tordent
-dans le métier à filer); dans les machines de déplace-
-ment, le but est de mouvoir la pièce d'œuvre (exemple: 5%
+dans le métier à filer); dans les machines de déplacement, le but est de mouvoir la pièce d'œuvre (exemple: 5%
 Les anciens n'ont possédé d'appareils de précision
-que pour l'astronomie; tandis qu'on range celle-ci ordi-
-nairement parmi les sciences d'observation, je la consi-
-dère comme la première des sciences expérimentales.
+que pour l'astronomie; tandis qu'on range celle-ci ordinairement parmi les sciences d'observation, je la considère comme la première des sciences expérimentales.
 L'opinion courante a quelque chose de choquant: il
 serait étrange que l'homme fût parvenu à des résultats «
-hautement scientifiques dans une branche de connais-
-sances qui serait dépourvue des moyens de recherche …
+hautement scientifiques dans une branche de connaissances qui serait dépourvue des moyens de recherche …
 que l'on regarde comme étant les plus scientifiques. Si 0 À
 l'opinion reçue était vraie, on aurait quelque droit de se “0
 demander si nous n'exagérons pas l'importance de la
@@ -1486,13 +1399,9 @@ par suite de l'admiration qu'il éprouvait pour l'astronomie.
 instruments astronomiques avec les machines; nous ne
 associons, en effet, l'idée de machine avec celle de
 grosses forces et de changements de forme qui ne
-s'opèrent qu'en triomphant des résistances; mais Reu-
+s'opèrent qu'en triomphant des résistances; mais Reuleaux fait observer (1) que c'est une mauvaise appréciation des choses et que le théodolithe employé pour "1
 
-leaux fait observer (1) que c'est une mauvaise appré-
-ciation des choses et que le théodolithe employé pour "1
-
-lever des plans est une machine. Dans l'appareil astro-
-nomique la main intervient pour forcer la lunette à se
+lever des plans est une machine. Dans l'appareil astronomique la main intervient pour forcer la lunette à se
 
 placer sur un astre déterminé, paree qu'on n'x point de
 moyen géométrique pour relier la lunette avec le ciel:
@@ -1556,23 +1465,18 @@ fonda tout d'abord la science. 4040
 
 Le constructeur moderne s'efforce de disposer les
 appareils de telle sorte qu'il puisse raisonner sur eux
-comme fait le théoricien; les dispositifs qu'étudie la mé-
-canique rationnelle ne ressemblent guère à ce que nous
+comme fait le théoricien; les dispositifs qu'étudie la mécanique rationnelle ne ressemblent guère à ce que nous
 voyons dans la nature (solides invariables glissant les ‘#4
 uns sur les autres sans frottement, liens souples et ni
-inextensibles, fluides sans viscosité, ressorts d'une élas-
-ticité parfaite, milieux sans résistance); mais, en choi-
-sissant les matériaux avec soin, on peut réaliser avec
+inextensibles, fluides sans viscosité, ressorts d'une élasticité parfaite, milieux sans résistance); mais, en choisissant les matériaux avec soin, on peut réaliser avec
 ; une approximation extraordinaire quelques-unes de
 ces conditions, sans toutefois faire disparaître les frotRe tements. Ceux-ci altèrent beaucoup le calcul des forces, De.
 É mais d'ordinaire ne troublent guère la transmission des
 mouvements, en sorte que les constructeurs peuvent À
 appliquer les résultats que fournit la cinématique.
-Les physiciens ont rarement à tenir compte des résis-
-tances passives dans leurs expériences, en sorte qu'on À
+Les physiciens ont rarement à tenir compte des résistances passives dans leurs expériences, en sorte qu'on À
 peut dire qu'ils opèrent au moyen des dispositifs de la
-mécanique rationnelle, dans lesquels se trouve intro-
-duite la pièce d'œuvre; leur but est de soumettre les
+mécanique rationnelle, dans lesquels se trouve introduite la pièce d'œuvre; leur but est de soumettre les
 6 changements que subit celle-ci à une loi mathématique
 4 analogue à celles qui régissent les mouvements d'un
 ; mécanisme théorique. S'ils réussissent à trouver une
@@ -1589,21 +1493,15 @@ si on ne se donnait point cette condition qu'il doit y
 avoir homogénéité dans le mécanisme, en sorte que la
 
 aux dispositifs de la mécanique rationnelle. Ainsi se
-trouvent justifiées les hypothèses; elles relient la phy-
-
-sique mathématique aux méthodes expérimentales les
+trouvent justifiées les hypothèses; elles relient la physique mathématique aux méthodes expérimentales les
 
 plus perfectionnées et sont comme un prolongement des
 
 mécanismes de laboratoire dans une expérimentation UN
 idéale. Nous avons confiance dans la science moderne
 
-en raison de la perfection de ses procédés expérimen-
-
-taux: nous avons confiance complète dans les lois
-mathématiques au cas seulement où un tel prolonge-
-
-ment de l'expérience par l'hypothèse est accompli. Les
+en raison de la perfection de ses procédés expérimentaux: nous avons confiance complète dans les lois
+mathématiques au cas seulement où un tel prolongement de l'expérience par l'hypothèse est accompli. Les
 
 faits signalés plus haut trouvent ainsi leur explication
 
@@ -1617,30 +1515,24 @@ Les hypothèses de lord Kelvin nous montrent, de la À
 manière la plus claire, l'homogénéité que je signale
 entre la pièce d'œuvre théorique et les mécanismes à
 
-(1) M. Poincaré dit que le procédé de la science consiste à intro-
-
-duire entre deux termes réels A et un terme intermédiaire qui
+(1) M. Poincaré dit que le procédé de la science consiste à introduire entre deux termes réels A et un terme intermédiaire qui
 
 ait avec À exactement la relation exprimée par la loi; il reste entre
 
 et une loi approchée et toujours revisable (Loc. cit., page 166). #02
 
-Il serait plus exact de dire que tous les termes réels ont été rem-
-
-placés par des termes fictifs.
+Il serait plus exact de dire que tous les termes réels ont été remplacés par des termes fictifs.
 
 expérimentaux; mais il me semble que les anciens
 avaient déjà le sentiment de cette homogénéité, car
 ils combinèrent leurs hypothèses astronomiques de
-manière à les rendre semblables à leur outillage expérimental. (1) La théorie cinétique des gazblessenoshabi-
-tudes actuelles d'esprit parce qu'elle n'offre aucune
+manière à les rendre semblables à leur outillage expérimental. (1) La théorie cinétique des gazblessenoshabitudes actuelles d'esprit parce qu'elle n'offre aucune
 analogie avec les mécanismes perfectionnés; aujourd'hui
 beaucoup de savants seraient disposés à n'admettre
 . d'autres explications de la nature que celles quisont
 fondées sur la considération des « liaisons géométriques
 analogues, par exemple, à nos systèmes articulés; ils #1
-veulent ainsi réduire la dynamique à une sorte de ciné-
-matique ». (2) Hertz avait cherché à introduire cette
+veulent ainsi réduire la dynamique à une sorte de cinématique ». (2) Hertz avait cherché à introduire cette
 conception qui a l'avenir pour elle; sans doute, onpeut
 . penser, avec M. Poincaré, que d'autres hypothèses
 à peuvent s'adapter aux formules; mais la question est
@@ -1677,8 +1569,7 @@ manière à rendre compte des phénomènes qui semblaient
 dépendre de l'ancienne. 11 n'y a pas d'hypothèses
 nécessaires; c'est la conclusion à laquelle aboutit tout
 le livre de M. Poincaré et cela nous apparaît maintenant à
-comme évident, parce que ‘toute hypothèse est l'intro-
-duction d'un mécanisme étranger à la nature. Ne: à
+comme évident, parce que ‘toute hypothèse est l'introduction d'un mécanisme étranger à la nature. Ne: à
 Il faut ici appeler l'attention sur un principe qui
 domine toute la mécanique appliquée des modernes
 « Au lieu de s'efforcer, comme autrefois, dit Reuleaux, (1)
@@ -1755,7 +1646,7 @@ A Ce sont deux conclusions très singulières que les fonda- Le
 44 seulement ils traitèrent le monde comme limité, mais encore ils
 afirmèrent qu'il tend au repos mécanique et à l'égalité de tempé- …
 rature. La science du dix-septième siècle supposait le monde infini
-À; et éternel; les évolutionnistes modernes ne se sont pas encore;7
+et éternel; les évolutionnistes modernes ne se sont pas encore;7
 Ait bien rendu compte de Pétat de la question.,
 
 nique misérable du dix-septième siècle, plus aussi nous
@@ -1778,10 +1669,7 @@ clairement que la science a atteint un plus haut degré.
 
 est conventionnelle; mais on voit que la liberté du
 choix est très loin d'être illimitée: jadis elle semblait
-; nulle et on croyait qu'il y avait des hypothèses néces-
-saires, parce qu'on n'avait pas beaucoup de combinai-
-
-sons pour créer un monde artificiel, capable d'être
+; nulle et on croyait qu'il y avait des hypothèses nécessaires, parce qu'on n'avait pas beaucoup de combinaisons pour créer un monde artificiel, capable d'être
 étudié' mathématiquement; aujourd'hui que l'outillage
 de la mécanique (et de l'expérimentation) est devenu si
 riche, on est tenté d'admettre qu'on pourrait faire des
@@ -1815,8 +1703,7 @@ traduisent donc pas nécessairement par des bouleverse-
 Il est clair que, de temps à autre, il se produit de
 tels bouleversements; mais l'histoire montre que l'on
 arrive à conserver la plus grande partie des anciennes
-acquisitions. Cette curieuse conservation semble suscep-
-tible d'une explication très vraisemblable. Nous ne
+acquisitions. Cette curieuse conservation semble susceptible d'une explication très vraisemblable. Nous ne
 è connaissons qu'un nombre assez restreint de familles
 cinématiques (2) et souvent une forme simple est un cas
 particulier d'une forme dont le type général ne paraît a
@@ -1845,8 +1732,7 @@ soit fondée: il faut, pour donner au principe de l'équi-.
 : valence toute la généralité qu'on lui attribue, choisir ce
 qu'on appelle énergie dans chaque cas particulier. (1)
 
-Il se pourrait que nous fussions donc dupes d'une illu-
-sion de langage; mais il semble bien cependant que
+Il se pourrait que nous fussions donc dupes d'une illusion de langage; mais il semble bien cependant que
 tous les mécanismes possibles de la mécanique ration- À
 nelle soient tenus de se subordonner à une loi qui
 empêche le mouvement de produire les effets indé-
@@ -1867,8 +1753,7 @@ rationnelle, des problèmes relatifs au frottement,
 alors que les principes de cette science supposent
 1 que les corps glissent les uns sur les autres sans frot- A
 
-La considération des résistances passives a été intro-
-duite à titre d'artifice; on a mesuré, dans quelques cas
+La considération des résistances passives a été introduite à titre d'artifice; on a mesuré, dans quelques cas
 très simples, la part de travail qu'elles produisent et on
 en a déduit des lois empiriques très grossières que l'on
 applique de la manière la plus arbitraire; quelquefois
@@ -1880,34 +1765,30 @@ réalité, au moyen de coefficients que les praticiens ee:
 semble, au premier abord, qu'une manière de procéder
 
 si barbare ne devrait pas conduire à des résultats bien
-satisfaisants, et cependant la mécanique appliquée par-
-vient à résoudre des questions qui provoquent l'admira- …
+satisfaisants, et cependant la mécanique appliquée parvient à résoudre des questions qui provoquent l'admira- …
 tion universelle; comment y parvient-elle? ne
 Les problèmes que se pose le constructeur ne res- à
 semblent point à ceux que traite géomètre. Les
 auteurs de livres classiques ne mettent pas bien en évidence le grand écart qui existe entre ces deux genres
 de questions. Le mathématicien veut savoir la valeur
-que prennent certaines quantités qui dépendent de cer-
-taines données; tout problème aboutit pour lui à une
+que prennent certaines quantités qui dépendent de certaines données; tout problème aboutit pour lui à une
 équation qu'il est obligé de résoudre par des méthodes
 approchées, mais qui, dans son esprit, comporterait
 une solution rigoureuse. Le constructeur veut s'assurer
 qu'une machine, dont il a établi le projet, comporte
 assez de force pour l'usage industriel en vue duquel il
 l'exécute; il ne connaît que d'une manière assez sOm-
-maire les forces qu'exigent les outils; ces forces dépen-
-dent de l'alimentation en matières premières; le
+maire les forces qu'exigent les outils; ces forces dépendent de l'alimentation en matières premières; le
 constructeur compte sur l'attention intelligente du
 conducteur qui réglera l'alimentation'et la vitesse. Le
-problème ne se pose point sous la forme d'une équation, À;
+problème ne se pose point sous la forme d'une équation,
 mais d'une inégalité. Si le constructeur ne redoute pas
 13 trop de faire une dépense supplémentaire, il se donnera
 une marge assez notable et sa machine produira plus
 qu'on n'espérait: ce fait a une influence considérable ES
 sur le progrès industriel. (x)
 Ainsi il est possible de construire des machines excel-
-; (x) Dans la navigation les données sont particulièrement indéter-
-minées et il faut se concéder une large marge; chaque nouveau
+; (x) Dans la navigation les données sont particulièrement indéterminées et il faut se concéder une large marge; chaque nouveau
 paquebot réalise un progrès aux essais sur le programme donné
 4 au constructeur. Les vitesses vont ainsi toujours en Me
 
@@ -1951,8 +1832,7 @@ valeur moyenne et de le rapprocher ainsi d'une vraie force. de
 
 passives. » La nature ne saurait donc se ramener à la
 La mécanique céleste a se constituer jusqu'ici sans
-tenir compte des résistances que le milieu interplané-
-taire peut opposer aux astres; on à cependant cru
+tenir compte des résistances que le milieu interplanétaire peut opposer aux astres; on à cependant cru
 nécessaire de prendre cette résistance en considération
 pour la comète d'Encke, « mais, dit M. Poincaré, (1) le À
 milieu résistant qui rendrait compte des anomalies de
@@ -1968,15 +1848,13 @@ identique à la mécanique rationnelle. Mais on voit que °4
 cette identité de la nature et de la science tient à
 un accident et ne saurait constituer une présomption
 en faveur d'une identité analogue existant sur la,
-Dans la physique terrestre, il existe un autre phéno-
-mène qui a fait croire à l'identité de la science et de la
+Dans la physique terrestre, il existe un autre phénomène qui a fait croire à l'identité de la science et de la
 nature: l'acoustique s'explique très bien par la théorie
 des petites oscillations et la durée de celles-ci paraît
 être indépendante des résistances passives; il semble
 donc qu'il y ait une classe très importante d'expériences
 qui se présentent en complet accord avec la mécanique
-rationnelle. La résistance diminue l'amplitude des oscil-
-lations et le son s'atténue peu à peu; mais l'amplitude
+rationnelle. La résistance diminue l'amplitude des oscillations et le son s'atténue peu à peu; mais l'amplitude
 (x) Annuaire du Bureau des longitudes pour l'année 1898,
 
 à ne joue aucun rôle dans l'acoustique qui s'occupe seule «
@@ -2029,8 +1907,7 @@ l'équivalence; il n'est point possible de faire des expé- Et
 riences bien précises pour prouver l'exactitude de la loi
 à c'est parce qu'on a cru que la nier équivaudrait à
 è admettre le mouvement perpétuel; mais M. Poincaré
-observe que (1) « l'impossibilité du mouvement perpé-
-tuel n'entraine la conservation de l'énergie que pour les
+observe que (1) « l'impossibilité du mouvement perpétuel n'entraine la conservation de l'énergie que pour les
 à Les méthodes expérimentales permettent, dans un La
 Det, très grand nombre de cas, de rendre tout à fait négli4] geable l'influence des résistances passives et d'établir
 Fe, ainsi des contacts plus ou moins parfaits entre la science,
@@ -2055,12 +1932,10 @@ si près de coïncider qu'il serait inutile d'appliquer à ce
 
 cas la thèse de l'indétermination.
 Une des grandes difficultés que rencontre la méca- #5
-nique se trouverait éliminée dans la doctrine que je pro-
-pose. Il semble qu'il n'y ait que des mouvements relatifs
+nique se trouverait éliminée dans la doctrine que je propose. Il semble qu'il n'y ait que des mouvements relatifs
 dans le monde, et cependant la science raisonne comme
 si le mouvement était absolu. La science a le droit Lui.
-d'opérer de la sorte parce qu'elle opère sur des méca-
-nismes qu'elle se donne, qui sont analogues aux mé- À
+d'opérer de la sorte parce qu'elle opère sur des mécanismes qu'elle se donne, qui sont analogues aux mé- À
 
 canismes expérimentaux et comme eux parfaitement::
 isolables de la nature. (1) S'isoler de la nature dans une À
@@ -2082,8 +1957,7 @@ d'explications mécaniques, ils se produisent cependant
 31 mécanique' était possible; À
 4 2° Chaque groupe de phénomènes se produit comme,
 5 s'il dépendait d'un mécanisme à liaisons si complètes
-113 que le mouvement d'un point y détermine les mouve-
-ments de tous les autres points;
+113 que le mouvement d'un point y détermine les mouvements de tous les autres points;
 ï 3 Les divers groupes sont reliés entre eux d'une mae 4 nière aussi nécessitante que le sont les diverses parties
 (1 d'un même groupe, en sorte que le monde entier
 : 4 dépende du mouvement astronomique.
@@ -2092,7 +1966,7 @@ De: axiomes sont toujours plus ou moins mélés; on pourrait
 4 - probablement les ramener à un seul énoncé; mais je
 crois que, pour clarté des discussions, il vaut mieux
 11 les maintenir séparés. a
-4 Jusqu'à ces derniers temps les savants ne se sont pas
+Jusqu'à ces derniers temps les savants ne se sont pas
 11 beaucoup préoccupés du premier axiome; il leur semble
 3 1 évident que dans tôute transformation un même signe
 1 dût apparaître après le même espace de temps; ilest
@@ -2113,8 +1987,7 @@ qui font rejeter le second; il présente un vice de plus,
 en ce qu'il suppose que tous les mécanismes que
 construit la science seraient reliés les uns aux autres.
 Une telle conception du monde est en opposition avec
-le principe même de la méthode expérimentale qui sup-
-pose la possibilité de s'isoler.
+le principe même de la méthode expérimentale qui suppose la possibilité de s'isoler.
 Les savants actuels ne croient plus pratiquement au
 déterminisme; mais les préjugés d'une philosophie
 vieillie les dominent encore et ils n'osent avouer la
@@ -2135,15 +2008,13 @@ traduit dans les Saggi critica). a
 1900 juillet Le système des mathématiques.
 1901 mai La valeur sociale de l'art (tirage à part
 chez Jacques, éditeur). ( à
-à 1902 septembre La crise de la pensée catholique (réé-
-on: dité chez Jacques, éditeur).
+à 1902 septembre La crise de la pensée catholique (rééon: dité chez Jacques, éditeur).
 1903 novembre Sur divers aspects de la mécanique. il
 1 1905 novembre Les préoccupations métaphysiques des
-Comme annexe à cet article, nous reproduisons ci-
-après le compte rendu que M. Sorel fit du livre de
+Comme annexe à cet article, nous reproduisons ciaprès le compte rendu que M. Sorel fit du livre de
 M. Poincaré à l'apparition de ce livre: ‘tue
 
-08 M. Poincaré- semble avoir voulu marquer, d'une manière
+M. Poincaré- semble avoir voulu marquer, d'une manière
 11 définitive, la frontière qui le sépare de l'école de M. Le Roy; » mais je crois qu'il y aurait quelque chose à ajouter à ses
 explications pour permettre au lecteur de comprendre la
 … vraie portée de cette discussion qui n'est pas seulement
@@ -2158,12 +2029,10 @@ vie; — mais la science ne connaît pas le réel; on pourrait
 même dire qu'elle s'en éloigne d'autant plus qu'elle arrive
 à prendre la forme d'un discours plus parfait. De SA
 découlent des conséquences d'une haute portée: 1° la +10
-science ne saurait nier en principe la possibilité du mi-
-racle; 2° sa condition essentielle est d'affirmer le mystère
+science ne saurait nier en principe la possibilité du miracle; 2° sa condition essentielle est d'affirmer le mystère
 et sa propre incompétence; 3° le théologien qui, grâce à la
 ne révélation, essaie de lever un coin du voile mystérieux, ne ar.
-du 42 peut être critiqué par la science, C'est en vue de ses conclu-
-sions religieuses que le système de M. Le Roy a été
+du 42 peut être critiqué par la science, C'est en vue de ses conclusions religieuses que le système de M. Le Roy a été
 MR: construit. M. Poincaré ne paraît pas disposé à les admettre:
 que net il cherche à se dégager des liens qui le rattachent à cette (4
 nouvelle philosophie. Il me semble qu'il n'y parvientqu'en
@@ -2217,7 +2086,7 @@ nouvelles théories électriques; (pages 190-194) enfin il n'y a
 De. du calcul, conserveraient toujours leur utilité et pourraient
 : 14 fournir des approximations toujours croissantes, grâce à
 :#E l'introduction incessante d'éléments correctifs. LES:
-4 Pour pouvoir se maintenir sur le terrain des principes, il Nas
+Pour pouvoir se maintenir sur le terrain des principes, il Nas
 faudrait procéder d'une manière désespérée: il faudrait
 ni introduire des hypothèses capables d'échapper à tout ni
 contrôle expérimental, par exemple, celle d'une « énergie «
@@ -2243,8 +2112,7 @@ mémoires de chimie publiés il y a soixante-dix ans, on ver-
 148 rait combien il a été difficile de se reconnaître au milieu de
 tant de contradictions. Je suis persuadé que la science doit
 être distinguée des savants et que ceux-ci se trompent au il
-pur moins une fois sur trois quand ils abordent des terres nou-
-velles; quand ils ne se trompent pas complètement, ils LA
+pur moins une fois sur trois quand ils abordent des terres nouvelles; quand ils ne se trompent pas complètement, ils LA
 voient les choses sous un aspect qui ne sera pas celui qu'on. 60)
 
 1 leur reconnaîtra plus tard; toute exploration a débuté par
@@ -2297,8 +2165,7 @@ peut s'étendre assez loin pour expliquer l'illusion que l'on a
 eue si longtemps de pouvoir établir une identité entre la
 science et le monde.
 Approximation qui est d'autant plus grande qu'il entre moins
-de la nature dans nos appareils; les sciences ne s'appliquant rigou-
-reusement qu'aux mécanismes entièrement créés par nous.
+de la nature dans nos appareils; les sciences ne s'appliquant rigoureusement qu'aux mécanismes entièrement créés par nous.
 
 Le compte rendu que l'on vient de lire est emprunté
 ; à la Revue générale de Bibliographie française, numéro
@@ -2320,8 +2187,7 @@ sont aussi en vente à la librairie des cahiers; notam-
 seizième cahier de la huitième série
 1906 Le système historique de Renan.
 1903 Saggi critica del marxismo (traduction et pré- Mer.
-1906 Insegnamenti sociali della economia contempo-
-ranea (traduction et préface de M. V. Racca).
+1906 Insegnamenti sociali della economia contemporanea (traduction et préface de M. V. Racca).
 
 Il a été tiré de ce cahier treize exemplaires sur
 
@@ -2329,12 +2195,10 @@ whatman ainsi distribués:
 premier exemplaire de souche, exemplaire du gérant;
 
 deuxième exemplaire de souche, exemplaire de ministrateur;
-troisième exemplaire de souche, exemplaire de l'im-
-dix exemplaires d'abonnement, numérotés de 1 à
+troisième exemplaire de souche, exemplaire de l'imdix exemplaires d'abonnement, numérotés de 1 à
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur; nos
-tirages d'exemplaires sur whatman sont rigoureuse-
-stant souscrits; nous ne vendons point d'exemplaires
+tirages d'exemplaires sur whatman sont rigoureusestant souscrits; nous ne vendons point d'exemplaires
 
 sur whatman en dehors de l'abonnement; l'abonnement
 sur whatman à cette huilième série est de cent francs
@@ -2357,14 +2221,13 @@ l'année, mais l'abonnement ainsi souscrit est, de droit,
 À valable pour la série en cours. ni
 à Prix de l'abonnement, pour chaque série annuelle
 pendant le cours de cette série:
-ï! Paris, départements, Alsace-Lorraine
+Paris, départements, Alsace-Lorraine
 à paire........... Autres pays de l'Union postale uni-
 Abonnement sur whatman... cent francs pour tous pays LA
 Les exemplaires sur whatman, tirage non réimposé,
 ; sont numérotés à la presse et imprimés au nom
 ‘al souscripteur; le tirage à part sur whatman a commencé
-4 de fonctionner au premier janvier 1906; les inscrip-
-tions pour cet abonnement particulier sont reçues en A
+4 de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en A
 no: tout temps et reçoivent un numéro d'ordre déterminé …
 ‘#4 automatiquement par le rang même qu'elles occupent
 D. dans l'ordre de l'arrivée, les numéros les plus bas venant

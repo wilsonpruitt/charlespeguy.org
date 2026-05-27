@@ -46,7 +46,7 @@ La déchirure de l'aube, mais le temps passe,
 Les siècles. La fenêtre est sombre, rien ne luit.
 Seule une lampe dans un coin, devant l'icône.
 Grain de feu, sauve-nous! petite étoile jaune,
-Élance-toi, grandis rose aux carreaux de givre, a!
+Élance-toi, grandis rose aux carreaux de givre,
 Sois l'Archange debout sur la neige, délivre
 C'est le jour.
 Pâle soleil blessé qui combattais dans lair
@@ -129,7 +129,7 @@ S'avance obliquement l'aurore: il est sauvé.
 Jésus, pour la dernière fois, lointain azur
 …_O Sanslimite, éclaircie entre les cheminées
 : Vers le silencieux infini, grand jour pur,
-4 Descends, force la nuit où vont nos destinées,
+Descends, force la nuit où vont nos destinées,
 Montre à le visage ancien de la douleur,
 “3 Les vices, fouille l'ombre en tous les recoins, lève
 Sur les monstres tapis dans la cave ton glaive.
@@ -159,7 +159,7 @@ Est impuissant malgré les coups dont il assomme,
 Où l'être enfin, las de lui-même, ne peut plus
 Rester seul, replié dans son logis, reclus.
 Il faut à la misère immensément accrue, A
-A son piétinement innombrable, à sa horde À;
+A son piétinement innombrable, à sa horde
 Errante, à son flot noir qui monte et qui déborde, À
 De l'espace, dans toute sa largeur la rue.
 
@@ -172,7 +172,7 @@ Ou bien c'est comme un gai, vif compagnon de route.
 y Il dit: Courage, allons, camarade! On l'écoute.
 "ESS 11 chante: Espère, l'heure est venue. On le croit.
 Naguères, la souffrance avait honte: maussade,
-4 Dérobant aux regards sa plaie empoisonnée,
+Dérobant aux regards sa plaie empoisonnée,
 Elle rasait les murs, tournait la palissade
 … Du terrain vague avec la chienne abandonnée. ne
 E=- Mais aujourd'hui qu'un seul cœur bat, qu'un seul profond,
@@ -182,14 +182,14 @@ Dans un remous, un bruit de grand fleuve qui roule.
 Sentez-vous? c'est comme une autre âme: je la vois
 Briller dans tous les yeux; sa voix dans chaque voix
 Tremble; comme au midi carillonné des fêtes,
-33 Elle est la brise en l'oriflamme, elle est encor,
+Elle est la brise en l'oriflamme, elle est encor,
 Es; Émergeant de l'obscur moutonnement des têtes,
 Balancée au soleil, l'icône toute en or;
 a Elle est la vision nocturne reparue,
-60 Mais grandie et mêlée au jour clair, à la rue,
+Mais grandie et mêlée au jour clair, à la rue,
 Non plus songe qui fuit nos bras quand nous dormons,
 0% Mais nous, nous-mêmes, respirant à pleins poumons;
-704 Haleines des enfants, vapeurs des lèvres douces,
+Haleines des enfants, vapeurs des lèvres douces,
 Glace qui luit et fond dans les moustaches rousses,
 
 Femmes, troupeau serré de tristes châles noirs,

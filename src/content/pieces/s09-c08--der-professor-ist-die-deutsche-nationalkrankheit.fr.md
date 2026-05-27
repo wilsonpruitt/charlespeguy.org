@@ -33,8 +33,7 @@ grand nombre de documents, de textes formant dossiers, de renseignements et de c
 
 si grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un
-si grand nombre de cahiers d'histoire et de philo-
-sophie; et ces documents, renseignements, textes,
+si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes,
 
 . dossiers et commentaires, ces cahiers de lettres,
 d'histoire et de philosophie étaient si considérables
@@ -49,8 +48,7 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-ce ù une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+ce ù une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 Ce catalogue, grand jésus, forme un cahier
@@ -122,11 +120,9 @@ font subir des pédagogues encroûtés dans la tradition, à
 des jeunes gens avides de pensée libre et personnelle.
 Dans les assemblées et les congrès d'éducation on étale
 les horreurs de ce régime, on montre comment les
-esprits les plus capables et Les plus originaux sont pour-
-suivis, torturés jusqu'à leur épuisement, jusqu'à ce
+esprits les plus capables et Les plus originaux sont poursuivis, torturés jusqu'à leur épuisement, jusqu'à ce
 qu'on retire de l'eau les cadavres de malheureux
-Dans leur haine les adversaires de l'école ne recu-
-lèrent pas devant les solutions les plus féroces. « Le
+Dans leur haine les adversaires de l'école ne reculèrent pas devant les solutions les plus féroces. « Le
 moyen le plus simple et le plus radical serait de ras-
 Page 235. — Il est à noter que de la traduction allemande du livre
 d'Ellen Key: Le siècle de l'enfant, qui est une apologie des droits
@@ -148,8 +144,7 @@ diable emporte les professeurs! » Et plus loin: « Un
 champignons! Les arbres fruitiers pourraient produire:
 bien davantage: l'école! Des leçons sur les arbres
 fruitiers! Les élections sont mauvaises: des leçons sur
-je. la question sociale! Les collectes des missions ne rap-
-portent pas assez: des missions à l'école! Les gens
+je. la question sociale! Les collectes des missions ne rapportent pas assez: des missions à l'école! Les gens
 . prennent trop de toupet: des leçons sur le toupet! » (2)
 Et un autre de conclure: « Il se forme partout des:
 sociétés protectrices de l'enfance. Ce n'est pas sans
@@ -179,19 +174,16 @@ dans les critiques même justes, mettre en garde contre
 la chaleur des propositions utopiques, montrer l'infinie
 complexité de la question et demander par même des
 circonstances atténuantes. Bref ils veulent eux aussi
-réformer cette école, mais avéc prudence et en connaissance de cause. Tous s'accordent sur un point: néces-
-sité de modifier l'organisation de l'école allemande, ses
+réformer cette école, mais avéc prudence et en connaissance de cause. Tous s'accordent sur un point: nécessité de modifier l'organisation de l'école allemande, ses
 programmes et son esprit. à
 Il de soi que les routes aboutissant à ce point
 viennent des directions les plus opposées. C'est pour des
 raisons philosophiques que tel écrivain fut amené à se à
-convaincre de cette nécessité. Tel autre pour des rai-
-sons pédagogiques ou sociales; tel autre par amour de À à
+convaincre de cette nécessité. Tel autre pour des raisons pédagogiques ou sociales; tel autre par amour de À à
 larmée ou des arts. Souvent même le seul souvenir
 d'années d'enfance pénibles suffit à expliquer la hame
 inspiratrice d'un pamphlet ou d'un roman.
-Il de soi aussi que dans la plupart des cas les cri-
-tiques adressées à l'école s'accompagnent de proposi- hi.
+Il de soi aussi que dans la plupart des cas les critiques adressées à l'école s'accompagnent de proposi- hi.
 
 : tions positives en vue de créer une organisation meil- LE
 leure. Après avoir signalé le mal on indique le remède.
@@ -204,16 +196,14 @@ Nous n'entrerons pas dans le détail des raisons qui
 
 décidèrent chacun des auteurs. Nous laisserons aussi de
 
-côté les diverses solutions proposées. Nous voulons seulement noter une heure intéressante et grave dans l'his-
-toire de l'école allemande. De toutes ces critiques vigou-:
+côté les diverses solutions proposées. Nous voulons seulement noter une heure intéressante et grave dans l'histoire de l'école allemande. De toutes ces critiques vigou-:
 reuses nous voulons dégager et reproduire celles qui se
 répètent avec le plus de fréquence et semblent résumer
 le plus nettement l'opinion de nombreux Allemands sur
 l'école allemande.;
 
 ANA le travail
-La quantité de travail exigée des élèves est considé-
-rable. Le nombre d'heures de classes par semaine varie
+La quantité de travail exigée des élèves est considérable. Le nombre d'heures de classes par semaine varie
 entre vingt-cinq et trente-deux. Les matières accessoires
 ne sont pas comprises dans ce chiffre. Cela fait en
 moyenne de cinq à sept heures de classe dans une
@@ -237,8 +227,7 @@ tête, des maux de cœur et autres symptômes analogues. » (1)
 La succession même des classes ne contribue pas
 pour peu à ce surmenage des enfants. S'ils assistent à
 cinq classes dans la matinée, ils changent cinq fois de
-matière, Leur attention, à peine arrêtée sur une explication latine, doit se porter au son de la cloche annon-
-çant l'heure suivante sur de la gécgraphie. A celle-ci
+matière, Leur attention, à peine arrêtée sur une explication latine, doit se porter au son de la cloche annonçant l'heure suivante sur de la gécgraphie. A celle-ci
 succède une leçon d'allemand, puis une de langues
 vivantes, puis une de sciences peut-être. Enfin le
 
@@ -292,14 +281,11 @@ en eux la crainte et la haine.
 D'autre part quelle place, quelle minute est done
 réservée au travail personnel des élèves, s'ils ne veulent à
 _pas se priver de toute liberté ou mal faire la tâche im-
-1 posée? À quel moment pourraient-ils rêver ou gamba-
-
-der? La flânerie et la détente sont pourtant indispensables. Les efforts personnels activent plus les progrès
+1 posée? À quel moment pourraient-ils rêver ou gambader? La flânerie et la détente sont pourtant indispensables. Les efforts personnels activent plus les progrès
 que les meilleures imitations et révisions. « jamais,
 écrit un professeur, nos élèves n'ont moiïns de loisir
 pour une activité personnelle que maintenant. Cependant cette activité personnelle est si importante pour
-leurs progrès dans les diverses matières et pour le dé-
-veloppement d'un profond intérêt scientifique ». (x)
+leurs progrès dans les diverses matières et pour le développement d'un profond intérêt scientifique ». (x)
 
 Bien loin de laisser aux élèves cette liberté on soumet
 leur travail à un contrôle constant. Chaque devoir,
@@ -314,8 +300,7 @@ lèvres, toute la journée juge ses élèves, ou les jauge
 si l'on veut. Bienheureux lorsqu'un directeur méticuleux
 ou borné ne lui réclame pas encore plus de zensuren
 qu'il n'en voudrait donner. Dans une comédie intitulée:
-Flachsmann, comme éducateur, Otio Ernst a pré-
-senter un directeur qui exigeait que toute réponse d'un
+Flachsmann, comme éducateur, Otio Ernst a présenter un directeur qui exigeait que toute réponse d'un
 élève fût l'obiet d'une zensur dans un cahier spécial,
 même lorsque celui-ci avait répondu que quatre et trois
 font sept. Quoi qu'il en soit « perdant toute la journée,
@@ -346,16 +331,14 @@ banc. N'est-on pas certain, en effet, que l'élève travaille
 seul et donne toute sa mesure? Si le sujet est choisi de
 bonne façon, n'est-il pas facile de s'assurer que l'élève
 a bien appris tout ce que l'on a dans la dernière
-quinzaine? Aussi l'Extemporale est-il d'un usage fré-
-quent et tout à fait recommandé. Malheureusement les
+quinzaine? Aussi l'Extemporale est-il d'un usage fréquent et tout à fait recommandé. Malheureusement les
 abus ne font point défaut. N'a-t-on point trouvé même
 . des professeurs allemands qui remplissaient par un
 Extemporale Yheure où la fatigue, la somnolence les
 gagnaient? D'autres prônent à tel point ces exercices,
 leur attribuent une telle valeur, les font miroiter à tel -
 point que leurs élèves n'en peuvent plus détacher leurs
-yeux et sont envahis par une excitation incompara-
-blement. plus vive que celle causée par nos composiN 2 Professor. — à:
+yeux et sont envahis par une excitation incomparablement. plus vive que celle causée par nos composiN 2 Professor. —
 
 tions si décriées. Et surtout comment corrige-t-on ces
 Extemporalien? Il sembie dans de nombreux cas que
@@ -404,8 +387,7 @@ n'est pas important de s'arrêter aux reproches de
 partialité adressés en mainte occasion. Ils sont plus
 fréquents que justifiés. Ils dérivent plus de la nature
 des individus que de la nature des choses.
-D'autres reproches sont plus graves. Ils ont trait sur-
-tout à la masse de connaissances et de travail qu'on
+D'autres reproches sont plus graves. Ils ont trait surtout à la masse de connaissances et de travail qu'on
 exige. Les jeunes gens de dix-neuf ans en moyenne qui
 subissent l'examen doivent faire montre de connaissances énormes dans toutes les branches du savoir
 humain. ces notions considérables, si vraiment elles
@@ -459,8 +441,7 @@ Leur activité intellectuelle est brisée. L'examen terminé,
 un nouvel effort leur devient impossible. A une jeunesse
 pleine d'espoirs et d'ambitions succède une vie de
 déboïres et de découragement. Ce sont des ratés.
-Enfin ce labeur énorme, cette succession ininterrom-
-pue de notes, d''Exfemporalien, cette hantise de l'exaLS men laisse de fâcheuses traces sur les caractères. Les
+Enfin ce labeur énorme, cette succession ininterrompue de notes, d''Exfemporalien, cette hantise de l'exaLS men laisse de fâcheuses traces sur les caractères. Les
 enfants apprennent trop tôt et trop longtemps à désirer
 les premières places ou les meilleures notes: « Dès leur
 premier âge les enfants apprennent à admirer les succès:
@@ -483,9 +464,7 @@ En ce qui concerne les professeurs on s'est plaint de
 la dépendance dans laquelle les tiennent les gouvernements. Ceux-ci sont attachés à l'école par une aftection
 très intéressée, entendent en conserver la direction
 
-supérieure et s'en servir comme d'un moyen d'instruc-
-
-tion et de domination. Aussi exigent-ils des professeurs,
+supérieure et s'en servir comme d'un moyen d'instruction et de domination. Aussi exigent-ils des professeurs,
 de façon explicite ou non, une attitude politique et
 sociale conforme à leurs propres désirs. Ils leur imposent
 à cet égard non seulement la neutralité, mais encore la
@@ -513,8 +492,7 @@ incomplètes, qu'il se laisse guider plus par des soucis
 religieux que pédagogiques, et que les maîtres placés
 sous sa dépendance réclament d'être au moins surveillés
 par un homme du métier. (1)
-Dans l'enseignement secondaire le contrôle est assuré-
-ment moins méticuleux et dangereux. Mais il n'en reste
+Dans l'enseignement secondaire le contrôle est assurément moins méticuleux et dangereux. Mais il n'en reste
 pas moins beaucoup de progrès à faire. Le temps n'est
 pas encore très éloigné où « un directeur osait demander
 à un vieux professeur, devant ses collègues! réunis,
@@ -533,8 +511,7 @@ de journaux ou revues.
 (2) L. Gurlitt: Der Deutsche und seine Schule, Page
 
 toute personnalité chez le maître... Il semble que l'idéal
-de nos autorités scolaires soit celui de ce ministre fran-
-çais du second Empire qui se félicitait en pensant qu'à
+de nos autorités scolaires soit celui de ce ministre français du second Empire qui se félicitait en pensant qu'à
 une certaine keure dans toutes les écoles du pays on
 faisait le même exercice. » (1) Il est juste d'ajouter que
 les ministres, comme ïil arrive assez fréquemment en
@@ -636,8 +613,7 @@ faire afficher un règlement intérieur de trente-deux arti_ cles et décider pa
 du même modèle, devront être suspendues toutes à la
 même hauteur, chacune à son clou. Charge comique
 . assurément. Mais le vrai n'est-il pas parfois plus vraisemblable que la fiction? En tout cas, il paraît que dans
-l'ensemble l'ordre, la régularité, et l'uniformité repré-
-sentent l'idéal pour certains directeurs et professeurs.
+l'ensemble l'ordre, la régularité, et l'uniformité représentent l'idéal pour certains directeurs et professeurs.
 Les mouvements des élèves doivent être bien réglés et
 dans la mesure du possible identiques. Chaque élève
 À doit d'ailleurs ordonner et coordonner les siens afin
@@ -677,14 +653,12 @@ chaque cas particulier. ) ne
 
 ont été négligés, bien des élèves ont quitté l'école
 5 amertume ou la haine dans le cœur.
-D'assez nombreuses raisons expliquent cette concep-
-tion allèmande de la discipline. Elle tient au caractère
+D'assez nombreuses raisons expliquent cette conception allèmande de la discipline. Elle tient au caractère
 même du peuple habitué de longue date à la soumis-,
 sion, à son ardeur à accomplir le devoir, à son besoin,
 : d'ordre, à son rigorisme protestant. Puis le succès
 ayant couronné les efforts de la discipline unie à la
-… force cette tendance s'est encore accentuée. Il est vrai-
-semblable enfin que l'admiration pour l'armée et le
+… force cette tendance s'est encore accentuée. Il est vraisemblable enfin que l'admiration pour l'armée et le
 culte de Bismarck ont contribué à rendre si dure la
 vie à l'école.:
 On peut invoquer aussi des raisons politiques. Il ne
@@ -789,9 +763,7 @@ nait de moins en moins conscient, tandis que sur le “4
 second (dédain des professeurs) on se plaisait à jeter
 une lumière toujours plus crue.
 On se moque de leur physique et de leurs manières.
-Ces lourdauds mal vêtus, d'allures risibles, d'une gau-
-
-cherie indicible, d'une distraction sans bornes, fournissent aux journaux satiriques un filon inépuisable. On
+Ces lourdauds mal vêtus, d'allures risibles, d'une gaucherie indicible, d'une distraction sans bornes, fournissent aux journaux satiriques un filon inépuisable. On
 3; représente ces vieux types de professeurs se promenant
 
 avec leurs bottines à tirants en caoutchouc et leurs
@@ -803,13 +775,9 @@ pas de tendre leurs cordes vocales, de remuer les
 
 lèvres et la langue, et qui dans leur gosier englué par la
 
-bière et le tabac ont des bredouillements et des gazouil-
+bière et le tabac ont des bredouillements et des gazouillements, comme s'ils avaient du hachis dans la
 
-lements, comme s'ils avaient du hachis dans la
-
-bouche. » (1) Ou bien ce sont ces braves « qui comman-
-
-dent une explication de Thucydide comme un exercice
+bouche. » (1) Ou bien ce sont ces braves « qui commandent une explication de Thucydide comme un exercice
 
 ; militaire: Ouvrez livres! Lisez! Tête haute! Alors
 
@@ -821,7 +789,7 @@ Un élève reste court au milieu de la phrase. Alors
 
 textuellement ma phrase. Assis! Mauvaise note! » (2)
 
-4 Le caractère des professeurs semble prêter aussi à
+Le caractère des professeurs semble prêter aussi à
 
 plus d'une critique. On n'est pas sûr qu'ils soient
 
@@ -834,9 +802,7 @@ Ils laccomplissent machinalement. Ils ne tardent pas à
 È. devenir indifférents aux efforts et aux progrès de leurs
 
 élèves. Ils ne sont pas éloignés de voir en eux des unités
-plutôt que des personnalités, des matériaux à mani-
-
-puler plutôt que des êtres à cultiver. De à sentir et à
+plutôt que des personnalités, des matériaux à manipuler plutôt que des êtres à cultiver. De à sentir et à
 
 faire sentir sa supériorité, la distance est courte. Et
 
@@ -844,8 +810,7 @@ faire sentir sa supériorité, la distance est courte. Et
 
 c'est alors à l'égard des élèves une morgue insolente,
 une raillerie froide, à moins que ce ne soit une humeur
-de tyran capricieux et cruel. À moins encore que le ré-
-sultat ne soit tout différent. Oublieux de sa véritable
+de tyran capricieux et cruel. À moins encore que le résultat ne soit tout différent. Oublieux de sa véritable
 tâche le professeur pourra se laisser guider par des
 considérations bien étrangères à l'enseignement et parfois bien basses. Il se laissera moralement aller et donnera une bonne place à l'éiève qu'il favorise pour telle
 ou telle raison et non pas à celui qui la mérite. De toute
@@ -871,8 +836,7 @@ en tutelle! Il est honteux qu'il se soit laissé mettre ces
 chaînes sans mot dire! Par nous avons totalement
 
 A apprie de travailler à l'œuvre morale de notre
-époque. Cela ne nous regarde plus. Nous sommes dece venus la trompette du loyalisme, toujours prête, iné-
-branlable et fidèle, qu'il suffit de porter aux lèvres les
+époque. Cela ne nous regarde plus. Nous sommes dece venus la trompette du loyalisme, toujours prête, inébranlable et fidèle, qu'il suffit de porter aux lèvres les
 jours de fête de l'empereur, des sociétés de tir, d'anni__ versaire de Sedan, pour entendre aussitôt les bruyantes
 et bien connues fanfares de triomphe. Pas un souffle ne
 . vient troubler la splendeur éclatante de ce miroir. Et
@@ -884,8 +848,7 @@ volontairement du nombre des représentants ou des
 pionniers de la civilisation. Ils se contentent de corriger
 consciencieusement des cahiers, de commencer leur
 classe à l'heure, d'éviter des conflits avec les parents et
-leurs supérieurs, et après cela Dieu, l'empereur, le chan-
-celier, le ministre, l'inspecteur, le directeur, eh bien!
+leurs supérieurs, et après cela Dieu, l'empereur, le chancelier, le ministre, l'inspecteur, le directeur, eh bien!
 ma foi, ils leur obéissent. » (1)
 Autant dire immédiatement que nombre de ces pro_ fesseurs sont de purs fonctionnaires, des bureaucrates.
 Et si la vie et l'enthousiasme font défaut à l'école « la
@@ -934,8 +897,7 @@ cinquième qui fuyaient un de leurs camarades parce qu'il ignorait
 le génitif de mensa.;
 
 grand poète allemand Schiller était mort à quarante-six
-On s'est préoccupé de trouver les causes de ces phé-
-se ‘nomènes inquiétants. Elles sont évidemment multiples.
+On s'est préoccupé de trouver les causes de ces phése ‘nomènes inquiétants. Elles sont évidemment multiples.
 Chaque critique peut en indiquer une autre. Il en est
 toutefois quelques-unes sur lesquelles l'opinion est
 ne Il semble certain que le travail scolaire exigé des
@@ -987,8 +949,7 @@ Savants, mais au moins d'agir, dans la carrière à
 laquelle ils se destinent, dans un esprit et avec une
 méthode vraiment scientifique. Ce qui est essentiel,
 c'est que l'étudiant ait une vue nette des devoirs de la
-science et des opérations par lesquelles elle les accom-
-plit, c'est qu_ sur un point au moins, il ait fait lui-même À
+science et des opérations par lesquelles elle les accomplit, c'est qu_ sur un point au moins, il ait fait lui-même À
 ce travail, qu'il ait suivi quelques problèmes jusque
 daris ces dernières conséquences, jusqu'au terme où il
 (1) Cité par L. Gurlitt: Der Deutsche und seine Schule. Page
@@ -1000,7 +961,7 @@ Foyt bien, disent d'autres. Mais tout cela ne pas
 absolument sur le cou, au sortir d'un lycée où ils ont:
 été soumis à la discipline la plus rigoureuse. Pensez-
 
-ï; _vous qu'ils n'abuseront pas de cette liberté, ou que tout » au moins ils sauront en user? Ne perdront-ils pas pied?
+_vous qu'ils n'abuseront pas de cette liberté, ou que tout » au moins ils sauront en user? Ne perdront-ils pas pied?
 - Et voyez-les justement sous conduite de camarades
 plus anciens se diriger vers la salle d'armes pour se
 
@@ -1053,8 +1014,7 @@ et si dans une vision rapide ils en avaient Conscience,
 aussitôt ils verraient remuer et vivre cet immense corps
 qu'ils disséquaient péniblement. « Maïs nos contemporains subissent le sort de la femme de Lot; ils regardent
 en arrière et sont changés en statues de sel. C'est-à-dire à
-qu'ils étudient leur spécialité et deviennent des réper-
-toires ambulants. Ils peuvent instruire peut-être mais
+qu'ils étudient leur spécialité et deviennent des répertoires ambulants. Ils peuvent instruire peut-être mais
 non pas vivifier. » (3)
 
 CARS Pour parachever sans doute l'œuvre de l'Université
@@ -1068,12 +1028,10 @@ En 1900, une comédie de Max Dreyer, der ProbekanF didat (le stagiaire) montra, 
 exagéré des feux de la rampe, que le stage pouvait en
 Allemagne présenter des inconvénients. Un jeune giaire a entretenu ses élèves de la théorie de Darwin.
 Grand scandale à l'école! Le directeur lui demande
-3 de se rétracter devant ses élèves. Après bien des hési-
-tations, le désir de conserver' sa fiancée et d'autres raiLA sons personnelles, l'amènent à consentir. Mais en pré-
+3 de se rétracter devant ses élèves. Après bien des hésitations, le désir de conserver' sa fiancée et d'autres raiLA sons personnelles, l'amènent à consentir. Mais en pré-
 __sence des élèves l'amour de la vérité et la conscience
 À l'emportent. Avec flamme il leur parle de la science et
-48 de la vérité. Il quitte l'établissement à la recherche dé-
-sormais d'un autre gagne-pain. Ce cas, extrême assuré-
+48 de la vérité. Il quitte l'établissement à la recherche désormais d'un autre gagne-pain. Ce cas, extrême assuré-
 .. ment, signale le danger. Puisque par définition même:
 ces stagiaires sont à la merci des supérieurs, ne sont-ils
 . pas obligés de se soumettre aux désirs de ceux-ci? Les
@@ -1082,15 +1040,10 @@ le moyen d'arrêter dès le début la carrière des hommes
 … dont ils redouteraient la liberté de pensée et l'indépendance de caractère?
 ET Même dans les circonstances plus ordinaires, le stage
 peut encore nuire. Il est utile de faire gagner du temps
-‘Eea aux jeunes professeurs en leur montrant certains procé-
-
-dés qu'ils auraient peut-être quelque peine à décou-
-vrir. Mais la possession de tous ces moyens est encore
+‘Eea aux jeunes professeurs en leur montrant certains procédés qu'ils auraient peut-être quelque peine à découvrir. Mais la possession de tous ces moyens est encore
 loin de faire le bon professeur. Dans un congrès tenu en
 1905 à Erfurt, quelqu'un prétendait: « qu'on exagère
-limportance du stage. Comment procède-t-on? On dé-
-
-montre aux stagiaires le bien-fondé de procédés quelconques, puis on les laisse marcher. Réussissent-ils? On
+limportance du stage. Comment procède-t-on? On démontre aux stagiaires le bien-fondé de procédés quelconques, puis on les laisse marcher. Réussissent-ils? On
 triomphe: eh! eh! voyez-vous l'effet de la préparation
 pédagogique? Mais d'autres fois, des jeunes gens
 capables de réciter sur le bout des doigts des traités
@@ -1133,8 +1086,7 @@ puissances du passé et « exigent des enfants le respect
 pour eux » au lieu d'arriver en elasse « avec le respect
 à la grandeur de l'homme en devenir » (5). Leur but
 semble être plutôt de contraindre au travail que de
-fortifier la volonté, d'inculquer des principes que d'ou-
-vrir les esprits, de restreindre que de développer, d'en-
+fortifier la volonté, d'inculquer des principes que d'ouvrir les esprits, de restreindre que de développer, d'en-
 … seigner que de former les caractères. De cette
 impression qui se grave dans la conscience des enfants
 « que l'école et la vie dans ses manifestations les plus
@@ -1158,8 +1110,7 @@ sortent sont bien préparés au travail qu'ils devront
 fournir à l'usine, au laboratoire ou au magasin. (3)
 
 Mais leur objet, par définition même, est limité.
-sont les autres, les écoles de culture générale, qui fa-
-çonnent les jeunes gens appelés un jour à gouverner ou
+sont les autres, les écoles de culture générale, qui façonnent les jeunes gens appelés un jour à gouverner ou
 tout au moins à administrer le peuple allemand, à
 s'adonner aux arts, aux lettres ou bien aux sciences. Au
 point de vue de la civilisation celles-ci passent donc, à
@@ -1170,7 +1121,7 @@ culture générale et de former des « spécialistes » tandis que d'autre
 part elles wéveillent pas assez l'initiative individuelle et forment
 surtout de bons sous-ordres.
 
-27 Cest à leur propos et sur leurs programmes que se sont
+Cest à leur propos et sur leurs programmes que se sont
 À livrés durant ces dernières années les plus acharnés
 Ces écoles de culture générale se subdivisent à leur
 me tour. On trouve le gymnase (gymnasium) avec une
@@ -1202,8 +1153,7 @@ de son enseignement pour la nation. Remarquons d'ailleurs que nombre de ces crit
 par ce fait que les autres écoles, tout en s'organisant
 malgré et contre le gymnase prenaient à leur insu
 modèle sur lui. Qu'elles le veuillent ou non, elles ne
-peuvent nier un air de ressemblance avec le vieux gym-
-nase leur ancêtre. Dans des corps nouveaux revit souvent l'esprit antique.
+peuvent nier un air de ressemblance avec le vieux gymnase leur ancêtre. Dans des corps nouveaux revit souvent l'esprit antique.
 Lorsqu'on parle de programmes le premier reproche
 qu'on leur adresse est d'être trop chargés. Non sans
 raison. Les Allemands n'y ont point manqué. De plus
@@ -1232,9 +1182,7 @@ Et chacune tire à soi un coin toujours plus grand du
 bonnet, à la colère et au détriment des autres. Aussi
 qu'arrive-t-il? Les malheureux élèves sollicités dans les
 
-plus diverses directions, obligés cependant de tout con-
-
-naître, ne peuvent plus rien voir avec soin. « Dans le
+plus diverses directions, obligés cependant de tout connaître, ne peuvent plus rien voir avec soin. « Dans le
 - gymnase actuel on a fait entrer de force les études
 les plus dissemblables, qui ne s'accordent pas du
 tout. Rien par suite ne peut se faire rendre pleine
@@ -1252,11 +1200,7 @@ plus utiles à l'élève pour toute sa vie, que beaucoup
 
 . sité presque égale ne peut manquer de produire sur les
 
-jeunes imaginations une ennuyeuse sensation de gri-
-
-saille. De là, le manque d'intérêt, d'attention et la pa-
-
-resse. « La suralimentation produit le dégoût. Nos
+jeunes imaginations une ennuyeuse sensation de grisaille. De là, le manque d'intérêt, d'attention et la paresse. « La suralimentation produit le dégoût. Nos
 
 élèves sont bourrés intellectuellement, ils ne peuvent
 
@@ -1276,8 +1220,7 @@ de nos étudiants sont capables de saisir vite et bien les
 impressions des sens, de les apprécier clairement et de
 les reproduire nettement. Très souvent on rencontre
 une sorte d'apathie, de myopie intellectuelle qui est
-plus funeste que la myopie de l'œil contractée aussi fré-
-quemment à l'école. On dirait que l'esprit juvénile est
+plus funeste que la myopie de l'œil contractée aussi fréquemment à l'école. On dirait que l'esprit juvénile est
 rabougri, a perdu sa fraîcheur à force de s'occuper de
 chinoiseries grammaticales et d'apprendre par cœur
 toutes ces règles avec d'innombrables exceptions, tandis que l'activité observatrice, qui chez les enfants,
@@ -1324,8 +1267,7 @@ moyens d'y parvenir seront bons.
 Est-ce dans ce sens que travaille le gymnase? Il ne
 le semble pas. Il a bien admis d'autres disciplines, mais
 il a conservé l'esprit d'autrefois. Il poursuit toujours la
-recherche de cet idéalisme dit classique qui a son ori-
-gine dans l'ascétisme mystique du moyen-âge « et dans
+recherche de cet idéalisme dit classique qui a son origine dans l'ascétisme mystique du moyen-âge « et dans
 les auteurs romains, surtout chez Cicéron et son bavar_ dage plutôt superficiel sur la valeur idéale de toute ac-
 _tivité purement intellectuelle, par quoi il s'opposait au
 
@@ -1342,8 +1284,7 @@ pratique, elle éduque trop peu le éœur, elle soigne peu
 ou prou la vie des sens, tandis qu'elle cultive à l'excès
 la vie interne. » (2) Inutile d'ajouter qu'en agissant ainsi
 on se facilitera sans doute sa tâche — car il est infiniment plus aisé de cultiver et surtout de contrôler l'intelligence que toute autre faculté — mais que l'on commet
-une grave erreur. « Savoir n'est pas sagesse » prophé-
-tisait déjà Lichtenberg. Le développemeni de l'intellect
+une grave erreur. « Savoir n'est pas sagesse » prophétisait déjà Lichtenberg. Le développemeni de l'intellect
 seul ne suflit pas. Car: « le savoir en soi a un effet à
 peu près nul sur la formation du caractère, et à peu:
 près insignifiant sur l'activité qu'on déploiera dans la
@@ -1369,8 +1310,7 @@ Et cela d'autant plus qu'il faut souvent entendre cette
 culture de l'intellect dans un sens bien étroit. Dans les
 à belles œuvres des littératures antiques ou modernes,
 ce n'est pas sur la beauté qu'insistent certains profes_ seurs. Ce n'est même pas sur leur contenu intellectuel
-pare à ( Cet égarement s'explique en partie par les origines moyen-
-âgeuses du gymnase; mais aussi par les principes philosophiques
+pare à ( Cet égarement s'explique en partie par les origines moyenâgeuses du gymnase; mais aussi par les principes philosophiques
 . posés par Herbart et les conséquences pédagogiques qu'on en à
 ; tirées. Pour Herbart l'intelligence est la faculté fondamentale. Le
 sentiment n'est autre chose qu'un certain rapport de représentations et le vouloir, rien de plus qu'un certain mouvement de la
@@ -1389,8 +1329,7 @@ propre bien, prêchaient les professeurs. Oui, voilà ce
 qu'ils disaient. Mais tout le monde ne voit-il pas que par
 cet effronté charlatanisme ils nous fourraient des saletés
 dans les oreilles, pour nous empêcher d'entendre la voix
-: de la raison! Qu'ils prétendaientparlà donner à leur infé-
-conde pédanterie une sorte de consécration et de dignité!
+: de la raison! Qu'ils prétendaientparlà donner à leur inféconde pédanterie une sorte de consécration et de dignité!
 Montrez-m''en un qui se fût soucié de la vraie vie de ses
 élèves, même autant que d'un hexamètre interpolé dans
 Homère... « Homère est un livre sacré brame l'un
@@ -1413,9 +1352,7 @@ et après qu'à la poésie antique seule choyée jadis, on
 eût ajouté la poésie moderne comme susceptible de
 cultiver les esprits, de nouveau on s'est plu toujours
 davantage dans l'analyse. Les protestations qui s'élèvent
-aujourd'hui de toutes parts, contiennent beaucoup d'exa-
-
-gération et réclament souvent des choses dangereuses
+aujourd'hui de toutes parts, contiennent beaucoup d'exagération et réclament souvent des choses dangereuses
 ou impossibles, mais au fond le sentiment est com-
 À préhensible et justifié: on interprète, commente, analyse
 as beaucoup trop pour que le plaisir de goûter les chefs_ d'œuvre pût encore exister. » (1) Ou plus brièvement: À
@@ -1440,8 +1377,7 @@ difficilés pour la majorité des élèves. Ils les font cepenbe dant — au pri
 cesse leur attention sur les textes, on les amène à se
 leurrer de mots. « Rien ne caractérise mieux le marasme
 de notre soi-disant culture moderne, que ce fait qu'on
-nous jette à la tête des millions de connaissances hété-
-roclites — en paroles. Le mot semble être la fin de tout,
+nous jette à la tête des millions de connaissances hétéroclites — en paroles. Le mot semble être la fin de tout,
 les choses elles-mêmes nous restent étrangères. On
 dirait que le mot a tué les choses. » (1)
 Enfin — critique grave entre toutes — cet enseignement
@@ -1450,8 +1386,7 @@ que les élèves apprennent dans les exercices de traduction (2) tout cet idéal
 à de vrais Allemands. Leur génie est fait de force et de
 droiture, d'amour du réel et de besoïn d'agir. C'est un
 enseignement propre à développer ces qualités qui eût
-été nécessaire. Au lieu de cela qu'ont offert les péda-
-gogues? Un mélange de culture antique et de mysticisme moyenâgeux où se rejoignent le penchant à la
+été nécessaire. Au lieu de cela qu'ont offert les pédagogues? Un mélange de culture antique et de mysticisme moyenâgeux où se rejoignent le penchant à la
 torique. Il se peut que cette éducation convienne aux
 Welsches, les descendants de ces peuples antiques.
 Mais sûrement elle est nuisible aux Germains. IL se
@@ -1460,14 +1395,11 @@ de l'idéalisme antique, se soient bornés à en cataloguer
 les détails philologiques, ou bien le poussant vers le
 rêve et la métaphysique, sans deviner la beauté pleine
 de force et de vie des grandes œuvres antiques, aient
-réussi à le faire contribuer au développement d'un ro-
-mantisme maladif. Peu importe. Ce fut pour l'Alle-
+réussi à le faire contribuer au développement d'un romantisme maladif. Peu importe. Ce fut pour l'Alle-
 ; L. Gurlitt: Der Deutsche-und seine Schule. Page
 
 magne une erreur funeste, « Pendant des siècles notre
-RER enseignement secondaire a été anti-allemand. Nos an-
-cêtres faisaient de leurs garçons des jeunes gens vigou-
-reux, des hommes sains, des caractères à la volonté de
+RER enseignement secondaire a été anti-allemand. Nos ancêtres faisaient de leurs garçons des jeunes gens vigoureux, des hommes sains, des caractères à la volonté de
 fer. Alors s'introduisit un élément étranger qui fit se
 ratatiner nos solides gars en savants de cabinet, en
 rêveurs sans contact avec la vie. » (1) Il est grand -
@@ -1478,8 +1410,7 @@ une école qui soit faite pour la vie et vraiment alle_. mande.
 Dans la majorité des pays il serait difficile sinon
 impossible de parler de la méthode usitée dans l'en-
 ._ seignement. Chaque enseignement, chaque discipline et
-peut-être bien chaque maître suit la sienne. En Alle-
-magne une telle locution est admissible. Il existe une
+peut-être bien chaque maître suit la sienne. En Allemagne une telle locution est admissible. Il existe une
 méthode imposée ou du moins recommandée à tous les
 maîtres des écoles primaires ou secondaires et valable
 pour toutes les disciplines.
@@ -1502,15 +1433,13 @@ pénétraïent et se fixaient plus aisément darts les esprits
 si l'on avait recours à un certain nombre d'opérations,
 marquant autant d'étapes dans le chemin à parcourir. de
 Les pédagogues allemands de la seconde moitié du dixneuvième siècle ont cru pouvoir déterminer et ordonner
-3 ces onérations d'une manière certaine. Le point de dé-
-part sera toujours les connaissances possédées par
+3 ces onérations d'une manière certaine. Le point de départ sera toujours les connaissances possédées par
 l'élève, qu'il les ait acquises, soit à la dernière leçon, soit
 beaucoup plus tôt, s'il s'agit de notions générales. Puis
 l'attention est éveillée et fixée sur l'objet de la nouvelle
 leçon. À ce moment sont expliqués quelques points particuliers qui gêneraient pour comprendre l'ensemble. A
 cette préparation fait suite l'exposé général de la matière à assimiler. Puis elle est divisée en parties dont
-chacune est étudiée en détail. Puis par des comparaisons et analogies on raccroche les connaissances nou-
-velles à d'autres déjà casées dans le cerveau des enfants.
+chacune est étudiée en détail. Puis par des comparaisons et analogies on raccroche les connaissances nouvelles à d'autres déjà casées dans le cerveau des enfants.
 Puis on fait saisir de nouveau l'ensemble et — au cas
 échéant — on porte une appréciation littéraire ou mo-.
 rale, et montre par des applications soit à des matières
@@ -1547,9 +1476,7 @@ On fait observer que le maniement de ce mécanisme
 n'est pas aussi aisé que d'aucuns l'imaginent. L'ordre
 prescrit pour les explications et commentaires ne pas
 sans difficultés. Bien distinguer les divers aspects d'une
-question, les exposer successivement exige déjà des dis-
-
-positions professionnelles spéciales. D'autre part, dans
+question, les exposer successivement exige déjà des dispositions professionnelles spéciales. D'autre part, dans
 lart de poser des questions, n'est pas un Socrate qui
 veut. Il s'agit de les choisir telles qu'elles ne dépassent
 point l'intelligence des élèves, mais ne restent point
@@ -1568,8 +1495,7 @@ de questions ridicules. Témoin ce Flachsmann qui en- À
 tretenant ses élèves du mariage et de la famiile leur
 
 : demandait: « Qu'est-ce qui est posé dans la famille;
-lorsqu'un mariage est conclu? » et exigeait comme ré-
-ponse: « le fondement ». Et n'allez pas dire quele maniement peut être enseigné et appris. Sans doute les
+lorsqu'un mariage est conclu? » et exigeait comme réponse: « le fondement ». Et n'allez pas dire quele maniement peut être enseigné et appris. Sans doute les
 maitres pourront profiter des règles établies et de l'ex »
 périence des autres. Ils pourront même acquérir une
 certaine virtuosité. N'empêche.que le don de trouver la
@@ -1590,16 +1516,13 @@ soient enserrés dans la même trame et jetés sur une
 ._ sorte de lit de Procuste ». (1)
 D'ailleurs on se rend compte de cet inconvénient en
 : examinant les réponses faites par les élèves, ce qui
-. conduit à une remarque curieuse. Le premier mouve-
-ment des élèves est de répondre par oui, non, ou par un
+. conduit à une remarque curieuse. Le premier mouvement des élèves est de répondre par oui, non, ou par un
 seul mot. Vraiment c'est peu. Tous les maîtres s'eflor-:
 cent, comme il leur est prescrit avec raison, d'obtenir
-é comme réponse une phrase entière. Mais le second vement des élèves est de retourner simplement la ques-
-tion et d'en faire la réponse qu'ils renvoient sans hési-:
+é comme réponse une phrase entière. Mais le second vement des élèves est de retourner simplement la question et d'en faire la réponse qu'ils renvoient sans hési-:
 ter. Cet événement n'est pas si rare à l'école. Mais, en
 vérité, si les interrogations n'avaient point d'autre
-. résultat, ce serait piètre. Ce serait enseigner tout bon-
-nement le psittacisme. Aussi faut-il reconnaître que l'on
+. résultat, ce serait piètre. Ce serait enseigner tout bonnement le psittacisme. Aussi faut-il reconnaître que l'on
 exige encore autre chose des enfants. On réclame d'eux
 une réponse exprimée en une phrase complète et con__ struite par eux-mêmes. Mais en fuyant un éeueil on
 
@@ -1647,8 +1570,7 @@ d'une autre du pourquoi et du comment. On est bien
 loin de l'idéal du calme épique, et de la jouissance que
 procure un certain laisser-aller familial et on se consume
 dans le souci de faire s'écouler sans accroc le travail
-Dangereuse elle l'est aussi par cette sorte de dissec-
-tion qu'on fait subir aux élèves. Afin d'obtenir de meilleurs résultats on a pour ainsi dire pratiqué sur eux la
+Dangereuse elle l'est aussi par cette sorte de dissection qu'on fait subir aux élèves. Afin d'obtenir de meilleurs résultats on a pour ainsi dire pratiqué sur eux la
 division du travail. On sépare leurs diverses facultés et
 on s'adresse à chacune d'elles successivement. On les
 invite à réfléchir, puis à sentir, puis à se servir de leurs
@@ -1677,8 +1599,7 @@ intense qu'elle se distingue avec peine de la passivité. Il
 leur suffit de se laisser conduire par la pensée du
 maître. « S'il est vrai que notre méthode d'enseignement cherche à assurer toujours le concours de lactivité personnelle de l'élève aux leçons du maître, en
 : réalité cela beaucoup moins loin qu'on ne le croit,
-Tout ce que le procédé par échelons, la forme catéché-
-tique, l'entre-croisement d'exposé dogmatique et de
+Tout ce que le procédé par échelons, la forme catéchétique, l'entre-croisement d'exposé dogmatique et de
 questions aux élèves, cette collaboration apparente ou
 réellement constante des élèves, tout cela est une
 activité de degré inférieur. Il ne reste à faire que des
@@ -1700,8 +1621,7 @@ mais leur sens critique a été négligé sinon même
 étouffé par ces exercices si prudemment calculés. En un
 mot cette méthode est impuissante à développer en
 eux une force pourtant primordiale et essentielle: la
-Aussi n'est-il point surprenant que des craintes sé-
-rieuses aient été exprimées au sujet des conséquences
+Aussi n'est-il point surprenant que des craintes sérieuses aient été exprimées au sujet des conséquences
 : de cette méthode d'instruction.
 On a contesté d'abord — et constaté non sans effroi
 — que les résultats obtenus soient aussi durables qu'on
@@ -1729,9 +1649,7 @@ intellectuelle et peuvent travailler sans les queâtions et les secours
 ; nécessairement qu'ils le soient aussi pour de jeunes Français ou
 de jeunes Anglais. SRE
 
-était infime et « que le cerveau des jeunes gens de dix-
-
-sept et dix-huit ans ressemblait à un chaudron récuré
+était infime et « que le cerveau des jeunes gens de dixsept et dix-huit ans ressemblait à un chaudron récuré
 
 à neuf ». (1) À quoi avaient donc servi ces leçons si A
 
@@ -1740,8 +1658,7 @@ qu'ils aient conservé l'empreinte de l'école et fussent
 dépourvus de cette activité personnelle qui dans le
 monde actuel devient cependant toujours plus nécessaire.
 
-Au point de vue de l'industrie par exemple. « On pré-
-tend que l'homme qui se tient près de la machine n'a
+Au point de vue de l'industrie par exemple. « On prétend que l'homme qui se tient près de la machine n'a
 besoin d'être éduqué que comme une machine. Mais sil
 n'est qu'une machine, il n'est aussi qu'une chose morte.
 
@@ -1771,8 +1688,7 @@ toute leur vie avec une constance rigide. Et toutes ces
 9 règles sont données sous forme théorique, les exercices -
 n'ont lieu que sur le papier dans les salles fermées,
 alors que dehors fermente la vie. Le genre des études
-actuelles produit une subalternité de l'activité intellec-
-tuelle qui ne peut manquer d'inspirer les plus sérieuses
+actuelles produit une subalternité de l'activité intellectuelle qui ne peut manquer d'inspirer les plus sérieuses
 L'armée elle-même se plaint, non pas que l'école sape
 les fondements de la discipline, mais au contraire ne
 développe pas assez la personnalité. « Où se trouve
@@ -1783,12 +1699,10 @@ dans la tactique de la guerre moderne. L'armée n'est
 ._ pas une machine à lancer des balles. « Devant l'ennemi,
 dit Scharnhorst dans son manuel à l'usage des officiers,
 le soldat n'est pas aussi mécanique que sur le terrain
-de manœuvres, et cela s'applique aussi bien aux géné-
-raux en chef qu'aux simples soldats. Dans la prochaine
+de manœuvres, et cela s'applique aussi bien aux généraux en chef qu'aux simples soldats. Dans la prochaine
 guerre la nation l'emportera, dont l'armée comptera le
 plus de personnalités. » (2)
-; Plus redoutable peut-être encore est une autre consé-
-quence. Puisque l'école par sa méthode d'instruction ne
+; Plus redoutable peut-être encore est une autre conséquence. Puisque l'école par sa méthode d'instruction ne
 réussitpas à développer l'activité personnelle, il s'en suit
 Par le fait même qu'elle est impuissante à développer
 les individualités. Son but est de donner à tous les élèves
@@ -1802,8 +1716,7 @@ y parvenir on a imaginé en quelque sorte un type sché-
 ont été dosées et ces procédés calculés. Le professeur
 est donc obligé de considérer à priori ses élèves comme
 conformes à ce type et de régler leur travail sur les
-forces présumées de cet élève schématique. il en ré-
-sulte évidemment que les enfants de capacités ordipaires lui sont à peu près semblables et profitent pleinement du travail de la classe. De leur côté les plus faibles
+forces présumées de cet élève schématique. il en résulte évidemment que les enfants de capacités ordipaires lui sont à peu près semblables et profitent pleinement du travail de la classe. De leur côté les plus faibles
 ne pourront que gagner en s'efforçant de se rapprocher
 de ce type d'élève moyen et d'exécuter les travaux prescrits pour lui. Mais les autres qui sont doués d'aptitudes
 spéciales, intellectuelles ou artistiques? A ceux-là
@@ -1828,34 +1741,26 @@ est vraisemblable que ces écrivains subissent plus ou moins lin-
 Vécole allemande après avoir ses œuvres. Il est vraisemblable
 aussi que l'intransigeance de Nietzsche, proclamant les droits
 
-absolus de l'individu, a été provoquée en partie par cette supré-
-matie de la médiocrité qu'il constatait en Allémagne.
+absolus de l'individu, a été provoquée en partie par cette suprématie de la médiocrité qu'il constatait en Allémagne.
 
 individualités spirituelles. » (1) Et son commentateur en
-méme temps qu'adversaire ajoute: « Le principe d'égalisation universelle en matière d'instruction, que l'épo-
-que actuelle prône avec un zèle littéralement fébrile et;
+méme temps qu'adversaire ajoute: « Le principe d'égalisation universelle en matière d'instruction, que l'époque actuelle prône avec un zèle littéralement fébrile et;
 troublant, peut être considéré comme une funeste fatalité. » (2)
 : Ainsi l'école en arrive à être ce qu'elle n'aurait jamais;
 devenir: une manière d'usine fabriquant en. masse
 ; des objets identiques, « des esprits et des caractères
-dressés uniformément ». (3) Et ce résultat doit satis-
-faire peut-être le désir secret des gouvernants alle-
-mands, mais il est tait pour inquiéter les esprits clairs
+dressés uniformément ». (3) Et ce résultat doit satisfaire peut-être le désir secret des gouvernants allemands, mais il est tait pour inquiéter les esprits clairs
 . et clairvoyants. Car ces hommes ainsi dressés fourni-:
 … ront Sans doute ponctuellement, avec une obéissance
-passive et une soumission de tous les instants, le tra-
-vail exigé d'eux, mais ils auront toutes les peines à faire
-preuve d'initiative personnelle. Leur travail sera minu-
-tieux et consciencieux; rarement ils auront la hardiesse
+passive et une soumission de tous les instants, le travail exigé d'eux, mais ils auront toutes les peines à faire
+preuve d'initiative personnelle. Leur travail sera minutieux et consciencieux; rarement ils auront la hardiesse
 de s'élever au-dessus des détails. Ils seront intègres et
 logiques peut-être dans leur idée du droit et du devoir
 mais durs et sans générosité. Ils seront surtout d'excel_ lents subordonnés. « Le résultat final est que notre
 gymnase en arrive de plus en plus à produire des ployés subalternes, des hommes du devoir, qui font
 ponctuellement leurs heures de bureau et se conforment “4
 en toute déférence à l'opinion de Son Excellence l'omniscient conseiller privé. » (4)
-Et l'on conclut ainsi sur ce point: « Au total l'évolu-
-
-tion effectuée dans le domaine de l'instruction fait songer à une chose bien différente: au sort de la chevalerie
+Et l'on conclut ainsi sur ce point: « Au total l'évolution effectuée dans le domaine de l'instruction fait songer à une chose bien différente: au sort de la chevalerie
 au moyen-âge. Armes offensives et défensives, technique du maniement des armes, tactique des armées
 de chevaliers, tout cela se perfectionnait de jour en
 jour; ils marchaient au combat ‘en rangs toujours plus
@@ -1868,8 +1773,7 @@ suisses, celle de la chevalerie française par des vilains
 anglais mal équipés et celle de Bourgogne par des ad-# 0%
 versaires de même genre. C'est que chacun de ces chevaliers était devenu incapable de se mouvoir et que les
 rangs serrés les faisaient tomber plus nombreux sous les
-traits ennemis. Si lon compare d'un côté, le soin réflé-
-chi apporté à perfectionner sans cesse et à aflermir
+traits ennemis. Si lon compare d'un côté, le soin réfléchi apporté à perfectionner sans cesse et à aflermir
 l'enseignement depuis mainte décade, et le sérieux avec
 lequel la tâche a été abordée et exécutée, et d'autre
 part les jugements défavorables qui de tous lieux ont
@@ -1900,8 +1804,7 @@ chacun, mais même de favoriser ces pratiques d'une
 règlement intérieur de l'école. Les collèges de professeurs voudront certainement contribuer à ce que ce but
 soit atteint. » (1) Pour remplir ce devoir, les programmes -
 portent que tous les élèves des écoles primaires où
-secondaires suivront deux ou trois heures d'enseigne-
-ment religieux par semaine durant toutes leurs classes.
+secondaires suivront deux ou trois heures d'enseignement religieux par semaine durant toutes leurs classes.
 Aux examens de sortie il existe des épreuves spéciales
 et obligatoires pour la religion. Les élèves sont invités
 (1) Instructions ministérielles prussiennes de 1901. Dans: Documents relatifs à La réforme de l'enseignement secondaire en Prusse
@@ -1915,8 +1818,7 @@ est presque partout l'inspecteur. Aïlleurs, il a le droit de:
 Il y a plus. Non seulement les élèves sont instruits de
 la Bible et des choses religieuses, mais les autres enseignements — en particulier l'histoire et la littérature —
 doivent concourir à l'affermissement du sentiment religieux. « Il faut qu'à côté du récit des.événements euxmêmes, léclaircissement des circonstances intimes
-occupe une place plus large que dans les classes précé-
-dentes, où elles étaient restées naturellement au dernier.
+occupe une place plus large que dans les classes précédentes, où elles étaient restées naturellement au dernier.
 plan. L'essentiel est de développer par lintelligence
 des rapports pragmatiques que les événements ont
 entre eux, la conviction que l'Histoire est régie par une
@@ -1944,8 +1846,7 @@ enseignement à celui de l'histoire. Par la représentation
 vivante des légendes héroïques, il prépare à lhistoire:
 nationale au même degré qu'il féconde et anime celle-ci
 par l'introduction à la connaissance des principaux
-chefs-d'œuvre de notre littérature. » (2) « L'enseigne-
-ment de la gymnastique a pour but de procurer les
+chefs-d'œuvre de notre littérature. » (2) « L'enseignement de la gymnastique a pour but de procurer les
 aptitudes qui ont de la valeur pour la vie et particuliè-
 . rement pour le service dans l'armée nationale, et d'autre
 … part de développer la conscience de travailler avec des
@@ -1959,10 +1860,8 @@ l'aide de Dieu tout-puissant ils ont vaillamment travaillé À
 Elle doit leur expliquer en quoi la forme monarchique
 l'emporte sur toute autre forme de gouvernement et,
 . sans leur cacher les difficultés sociales de l'ère actuelle,
-les mettre vivement en garde contre les théories malsaines. « L'enseignement relatif à des questions écono-
-miques et sociales qui ont trait à notre époque (réservé À
-) (1) est à noter que les fêtes ne sont pas pour les élèves uni-
-quement des jours de congé. Au contraire, ils sont réunis à Pécole
+les mettre vivement en garde contre les théories malsaines. « L'enseignement relatif à des questions économiques et sociales qui ont trait à notre époque (réservé À
+) (1) est à noter que les fêtes ne sont pas pour les élèves uniquement des jours de congé. Au contraire, ils sont réunis à Pécole
 pour célébrer dignement fète en commun,
 
 aux classes de seconde, première division, et de première, seconde division) exige un tact particulièrement
@@ -2038,8 +1937,7 @@ Et même il ne serait pas malaisé de relever mainte
 appréciation littéraire, exagérée dans l'éloge ou le
 blâme selon que l'auteur fut un bon patriote ou non,
 un bon croyant ou un mécréant.
-L'histoire souffre encore davantage. Dans cette con-
-ception de l'école — inspirée encore par le système du
+L'histoire souffre encore davantage. Dans cette conception de l'école — inspirée encore par le système du
 pédagogue Herbart— l'histoire est à la place d'honueur
 avec la religion. Alors que les autres matières sont
 appelées surtout à instruire, elles sont destinées toutes
@@ -2054,16 +1952,13 @@ directs d'un enseignement pouvaient être de créer une
 mentalité (Gesinnung) et non des concepts et du
 savoir ». (x) Et surtout cet honneur va:t-il sans dommage
 pour l'enseignement même de l'histoire? Pour exécuter A
-la tâche que vous lui assignez elle devra surtout racon-
-ter et faire admirer. Elle prendra de plus en plus un
+la tâche que vous lui assignez elle devra surtout raconter et faire admirer. Elle prendra de plus en plus un
 caractère épique. Et c'est sans doute pourquoi vous lui
 adjoignez comme auxiliaire la littérature. Mais c'est
 maintenir l'enseignement de l'histoire à un niveau infé-?
 rieur. Vous rayez l'histoire du nombre des matières
 susceptibles de former l'intelligence. Vous l'empêchez,
-d'accomplir son œuvre la plus utile, qui est de dévelop-
-
-per le sens critique, si rare chez les élèves et chez les
+d'accomplir son œuvre la plus utile, qui est de développer le sens critique, si rare chez les élèves et chez les
 . hommes. Ou si vous préférez, vous détournez lhistoire
 « de son véritable but qui est simplement d'habituer les
 à esprits à considérer les choses du point de vue historique.
@@ -2134,8 +2029,7 @@ faire la critique de la Bible, ni même de les informer
 des derniers résultats de l'exégèse. Les orthodoxes
 . veïllent (1) et ils risqueraient leur situation. Ce que les
 élèves apprennent c'est la religion sous sa forme traditionnelle et vulgaire. Naturellement aussi on leur
-enseigne respectivement que leur religion est la meil-
-leure et la seule vraie. Ils s'accoutument donc à tenir
+enseigne respectivement que leur religion est la meilleure et la seule vraie. Ils s'accoutument donc à tenir
 les fidèles des autres religions, juifs, brahmanistes ou
 mahométans pour des inférieurs, des étrangers et bientôt
 des ennemis.
@@ -2154,8 +2048,7 @@ joyeuses et humides années d'Université, monte dans la
 (1) Conférez les avertissements comminatoires du pasteur Stocker
 « à tous ceux qui nient les vérités de la révélation divine, partant
 … le caractère sacré de la Bible, la divinité du Christ, ete. que ces
-gens parlent du haut d'une chaire d'église ou d'école, non seule-
-ment dans les Universités, mais encore dans les Gymnases et les
+gens parlent du haut d'une chaire d'église ou d'école, non seulement dans les Universités, mais encore dans les Gymnases et les
 écoles primaires ». Zägliche Rundschau, 4 mai 1905, Cité par Gurlitt,
 
 chaire de l'aula de l'école, pour faire un véritable
@@ -2169,8 +2062,7 @@ même manière, c'est-à-dire comme une matière sur
 laquelle on sera interrogé à l'examen (2) aussi fastidieuse que les autres. Ne soyez pas surpris s'ils l'étudient de même manière en retenant la lettre de la Bible
 mais sans en comprendre l'esprit et si plus tard ils n'y
 voient que des histoires mensongères analogues à
-celles que leurs professeurs leur racontèrent sur d'au-
-tres points. Est-ce le but que vous poursuiviez? Ne
+celles que leurs professeurs leur racontèrent sur d'autres points. Est-ce le but que vous poursuiviez? Ne
 sentez-vous pas que leur religion sera superficielle,
 toute dans les gestes et que votre enseignement de la
 religion détruit en eux le sentiment religieux? (Que cet
@@ -2186,7 +2078,7 @@ remarque souvent, et « ce ramollissement progressif de
 piquant: « Les parents qui veulent échapper à la tyrannie de la
 droite et de la gauche, mais qui sont obligés par l'Etat de faire
 donner à leurs enfants un enseignement religieux, en sont réduits
-à leur faire suivre les cours de la religion juive. »;
+à leur faire suivre les cours de la religion juive.
 
 1 a colonne vertébrale passé à l'état endémique depuis
 une vingtaine d'années » (1) dont on a parlé. C'est ini
@@ -2203,8 +2095,7 @@ patrie, de l'empereur et de Dieu qu'on impose aux s'MT:
 .. élèves pèse sur eux comme un cauchemar dont ils souf- che se
 frent et s'efforcent de se débarrasser très vite, lorsqu'ils Le
 ont percé à jour sa vanité. Et cela se produit dès qu'ils À
-prennent contact avec la vie réelle. Il leur suffit de com-
-parer les éloges enthousiastes et livresques de l'école:
+prennent contact avec la vie réelle. Il leur suffit de comparer les éloges enthousiastes et livresques de l'école:
 avec les difficultés présentes, l'idéal philosophique et
 … (2) La contradiction apparente entre ces deux états d'esprit peut
 ‘être levée. D'abord ces deux états ne se montrent pas en général
@@ -2212,14 +2103,11 @@ dans les mêmes classes sociales ni dans les mêmes individus. Et
 il n'est même pas impossible qu'ils se rencontrent dans un même
 individu. Car on peut souvent distinguer entre le cerveau etle
 . cœur, et remarquer que certaines idées ont pénétré dans le cer- se.
-veau mais ne sont pas encore passées dans le sang. En temps nor-
-mal elles peuvent diriger notre action. Mais viennent des circon-
-. stances graves, les sentiments, les impressions d'enfance, les tradi-
-tions reprennent le dessus. Un exemple peut être fourni par la.
+veau mais ne sont pas encore passées dans le sang. En temps normal elles peuvent diriger notre action. Mais viennent des circon-
+. stances graves, les sentiments, les impressions d'enfance, les traditions reprennent le dessus. Un exemple peut être fourni par la.
 social-démocratie allemande. L'internationalisme n'est encore
 pour elle qu'un concept. Elle est nationale sinon nationaliste de TE
-A A De même l'ardeur avec laquelle les socialistes suivent leurs #3 ».… chefs, ne diffère pas en nature de celle qui pousse les autres Alle-
-nands à obéir à leur empereur. Ce n'est pas sans quelque raison
+A A De même l'ardeur avec laquelle les socialistes suivent leurs #3 ».… chefs, ne diffère pas en nature de celle qui pousse les autres Allenands à obéir à leur empereur. Ce n'est pas sans quelque raison
 que maître Hervé a parler du kaiser Bebel au récent congrès » international de Stuttgart. C'est dans le même sens que certains 2 A a
 ._ Allemands peuvent être souples et arrogants, ardents et abattus,
 
@@ -2269,8 +2157,7 @@ assez graves. Il y a conflit sur la question de l'esprit et
 du corps. Trop soucieux de cultiver l'esprit, l'école allemande oubliait que le corps faisait partie de l'homme. On
 revendique contre elle les droits du corps et des sens.
 y a conflit sur la question du but à donner aux
-études. Et l'école se trouve en présence de deux contradicteurs. Le premier lui dit: « Vous prétendez en-
-seigner aux hommes à lever les yeux vers le ciel et à
+études. Et l'école se trouve en présence de deux contradicteurs. Le premier lui dit: « Vous prétendez enseigner aux hommes à lever les yeux vers le ciel et à
 ne pas les baïsser toujours sur la réalité. Mais votre
 ciel n'est qu'un amas de nuages et votre élève n'aura
 4 pas fait vingt pas dans la vie qu'il donnera du nez
@@ -2307,12 +2194,8 @@ solidité et en puissance si, loin de rogner et &égaliser
 profit toutes leurs aptitudes spéciales. Er!
 Mais que signifient ces conflits? Ne sont-ils pas
 
-- l'image de ceux qui sur presque tous les grands pro-
-blèmes divisent les Aïlemands d'aujourd'hui? L'Alle- SAT
-magne est certainement le pays qui au cours du dix-
-neuvième siècle a subi les plus profondes transforma-
-
-tions puisque sa vie politique, économique et sociale a
+- l'image de ceux qui sur presque tous les grands problèmes divisent les Aïlemands d'aujourd'hui? L'Alle- SAT
+magne est certainement le pays qui au cours du dixneuvième siècle a subi les plus profondes transformations puisque sa vie politique, économique et sociale a
 été ‘entièrement changée. Les changements ont abouti à tE.
 … de grands succès matériels. Mais changements et succès
 
@@ -2332,8 +2215,7 @@ doute mais plus actuelles et plus âpres que jamais. à
 _. S'ilen est ainsi on peut penser que l'école allemande re.
 . sera pas aisément modifiée. Assurément des essais
 furent tentés. Partout on relève dans l'école des
-… efforts pour alléger dans la mesure du possible le far-
-deau de l'école, diminuer le nombre des heures, allon-
+… efforts pour alléger dans la mesure du possible le fardeau de l'école, diminuer le nombre des heures, allon-
 _ger lés récréations, faciliter les examens, réduire le
 travail de la maison... Partout on prescrit aux maîtres
 de considérer les aptitudes spéciales et différentes des
@@ -2410,8 +2292,7 @@ troisième exemplaire de souche, exemplaire de l'imprimeur;
 neuf exemplaires d'abonnement, numérotés de 1 à
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur; nos
-tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque in-
-stant souscrits; nous ne vendons point d'exemplaires
+tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque instant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement: l'abonnement
 sur whatman à cette neuvième série est de cent francs
 pour tous pays.
@@ -2473,9 +2354,7 @@ de l'abonnement recommandé sont empaquetés à part et
 
 ‘recommandés à la poste; la recommandation postale,
 comportant une transmission de signature, garantit le;
-destinataire contre certains abus; pour cette recom-
-
-mandation, pour lous pays, en sus, cinq francs.
+destinataire contre certains abus; pour cette recommandation, pour lous pays, en sus, cinq francs.
 
 ; Automatiquement et Sans augmentation de prix les
 exemplaires sur whatman sont tous recommandés et

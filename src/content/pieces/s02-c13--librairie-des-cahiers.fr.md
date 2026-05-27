@@ -21,8 +21,7 @@ Nous avons supprimer nos abonnements gratuits
 (44 (1) Jean Coste ou l'instituteur de village.
 treisième cahier de la deuxième série
 Variant de cent cinquante à deux cent cinquante à peu
-près depuis la fondation de nos cahiers, ils nous coû-
-taient au moins de deux à trois cents francs par mois.
+près depuis la fondation de nos cahiers, ils nous coûtaient au moins de deux à trois cents francs par mois.
 
 Pour nous aider à supporter cette charge, Les Journaux
 pour tous nous versaient une souscription mensuelle de
@@ -92,8 +91,7 @@ déjà parus feront bien de nous les demander sans aucun
 Beaucoup de nos amis dévoués se servent de leurs
 propres exemplaires pour chercher de nouveaux
 abonnés. Qu'ils n'oublient pas alors de nous demander
-les exemplaires de remplacement. Nous nous permetk tons de recommander à nos amis d'avoir des collec-
-tions complètes. Les cahiers qui peuvent aujourd'hui
+les exemplaires de remplacement. Nous nous permetk tons de recommander à nos amis d'avoir des collections complètes. Les cahiers qui peuvent aujourd'hui
 leur sembler oiseux entrent en série tout de même et
 ceux de nos abonnés qui dans dix ans auront la collec
 tion complète pourront alors s'apercevoir que les séries
@@ -216,9 +214,7 @@ vivront par les moyens du bord. J'entends par que le
 produit des souscriptions extraordinaires et des souscriptions mensuelles régulières, des abonnements de
 souscription, des abonnements ordinaires et des abonESS LIBRAIRIE DES CAHIERS
 - nements de propagande, renforcé des bénéfices que
-nous réalisons dans le commerce de la librairie, cou-
-
-vrira les dépenses. Le progrès de l'abonnement a été
+nous réalisons dans le commerce de la librairie, couvrira les dépenses. Le progrès de l'abonnement a été
 merveilleux. Nous avions 263 abonnés fermes à la fin de
 la première série. Nous en avons aujourd'hui environ
 1.200. Nous avons ainsi gagné au moins 1.000 abonnés,
@@ -236,12 +232,8 @@ envoyer régulièrement un, deux, trois, cinq francs par
 
 Des habitudes nouvelles s'introduisent parmi nous.
 -Un de nos amis russes, l'initiateur des Journaux pour
-tous, a bien voulu nous acheter plus de cent exemplai-
-
-res du dixième cahier — cahier d'annonces — où il y
-avait quelques éléments d'un dossier du récent mouve-
-
-ment pour la liberté en Russie. Nous avons envoyé ces
+tous, a bien voulu nous acheter plus de cent exemplaires du dixième cahier — cahier d'annonces — où il y
+avait quelques éléments d'un dossier du récent mouvement pour la liberté en Russie. Nous avons envoyé ces
 exemplaires à des adresses qu'il nous avait données.
 
 Nous espérons que des achats de ce genre se produiront
@@ -257,8 +249,7 @@ Mais surtout nous sommes heureux d'annoncer à nos
 
 treizième cahier de la deuxième série
 véritables amis que la librairie des cahiers sauverasans doute les cahiers, fournira l'appoint indispensable.
-André Bourgeois me communique les premiers résultats de la librairie. Ces résultats passent mon espé-
-rance. Et pourtant on m'accuse d'avoir l'espérance
+André Bourgeois me communique les premiers résultats de la librairie. Ces résultats passent mon espérance. Et pourtant on m'accuse d'avoir l'espérance
 La première opération date du 15 février 1907.
 En 3 mois et demi.. 464 volumes 1.334 francs
 Les nombres de la première colonne sont ceux des
@@ -277,8 +268,7 @@ que la librairie des cahiers ne coûte rien aux cahiers
 que du travail. Dans ces conditions nous pouvons éva-
 
 - Juer à ‘un cinquième environ du prix de vente le bénéfice
-introduit. C'est dire que depuis sa fondation la librai-
-rie des cahiers a rapporté aux cahiers, qui en avaient
+introduit. C'est dire que depuis sa fondation la librairie des cahiers a rapporté aux cahiers, qui en avaient
 près la moitié de ce que nous coûte la fabrication d'un
 Nous prions tous nos abonnés de vouloir bien acheter
 tous leurs livres à la librairie des cahiers.
@@ -290,8 +280,7 @@ généraux. Sans augmenter ni ce personnel ni ces frais
 généraux nous pouvons faire la commission detousles
 livres pour tous nos abonnés. Le personnel en fonctions
 est librement et entièrement dévoué aux cahiers.
-L'administrateur ponctuel qui a si parfaitement orga-
-nisé l'administration de nos éditions a non moins
+L'administrateur ponctuel qui a si parfaitement organisé l'administration de nos éditions a non moins
 ponctuellement organisé l'administration de la librairie.
 Nous recevons sans frais les abonnements à toutes
 les repues. Et cette opération nous est fort avantageuse.
@@ -323,8 +312,7 @@ Pour nous faciliter le travail, nous demandons à nos
 abonnés de nous envoyer des feuilles ou des fiches de
 Pour leur faciliter certain choix, nous annonçons les
 nouveautés. Nous ne pouvons pas penser à faire l'annonce des nouveautés spéciales. Mais sur les milliers
-de livres qui paraissent dans l'année il y en a une cin-
-quantaine au plus que tout honnête homme et toute
+de livres qui paraissent dans l'année il y en a une cinquantaine au plus que tout honnête homme et toute
 honnête société doit avoir dans sa bibliothèque. Nous
 annonçons ces honnêtes livres, non pas en les jugeant
 et en les absolvant, mais en disant en bref, du mieux
@@ -350,15 +338,12 @@ Nous prions ceux de nos abonnés qui auraient l'intention de nous acheter des li
 vouloir bien nous les commander avant la fin de juillet.
 Il est indispensable que le personnel des cahiers prenne
 un mois et demi de vacances, du lundi premier juillet
-Nous sommes heureux surtout de fournir aux biblio-
-thèques. Nous ne saurions trop engager nos amis
+Nous sommes heureux surtout de fournir aux bibliothèques. Nous ne saurions trop engager nos amis
 perdus des campagnes et des petites villes à fonder
 sans formalités des bibliothèques. Autant les groupes
 parloirs parlementaires sont vains, autant les sociétés
 de lecture sont eflicaces, pourvu qu'on y lise.
-Nous fournissons toutes espèces de livres, non seule13
-
-treizième cahier de la deuxième série
+Nous fournissons toutes espèces de livres, non seuletreizième cahier de la deuxième série
 ment de littérature, mais de sciences, droit, médecine,
 et ainsi de suite.
 
@@ -366,16 +351,14 @@ Nous avons fourni ou nous fournirons à plusieurs
 universitaires, bibliothèques scolaires. On a bien voulu
 nous demander quelquefois conseil pour la constitution même de ces bibliothèques, pour le choix des
 livres, étant donné un crédit de tant. Nous avons ainsi
-été conduits à dresser des listes que nous communi-
-quons sur demande. Ce travail sera poussé, complété
+été conduits à dresser des listes que nous communiquons sur demande. Ce travail sera poussé, complété
 dans la troisième série de nos cahiers.
 
 Étant donné qu'il existe une institution pernicieuse
 nommée la distribution des prix, mieux vaut y distribuer des bons livres que des mauvais. Nous sommes
 en état de vendre et au besoin d'indiquer ces bons
 
-Je prie instamment ceux de nos abonnés qui demeu-
-rent en province et qui passeront à Paris pendant les
+Je prie instamment ceux de nos abonnés qui demeurent en province et qui passeront à Paris pendant les
 vacances de vouloir bien venir me voir. Je serai aux
 cahiers le jeudi de deux à cinq. Un entretien sérieux
 vaut mieux qu'un an de correspondance.:
@@ -445,8 +428,7 @@ dans les villes de province nos cahiers sont lus en com-
 pour souscrire en commun, sans aucunes formalités.
 Outre qu'elle produit beaucoup plus, la souscription
 mensuelle régulière a cet avantage moral incomparable
-qu'elle demande au souscripteur une attention constante, une activité maintenue, un effort soutenu. L'ou-
-vrier, l'employé, le professeur, le répétiteur, l'institu__ teur qui pense à nous au commencement de chaque
+qu'elle demande au souscripteur une attention constante, une activité maintenue, un effort soutenu. L'ouvrier, l'employé, le professeur, le répétiteur, l'institu__ teur qui pense à nous au commencement de chaque
 mois nous console plus que tout des anciens lâchages
 Des amis nous demandent parfois pourquoi nous
 composons les cahiers de telle ou telle manière. Ils
@@ -458,8 +440,7 @@ en vivant et non par une encombrante énumération des
 raisons qu'ils ont de vivre, — et de vivre ainsi. Je ferai
 donc un mémoire, qui ne sera pas publié dans les séries
 des cahiers, où je donnerai ces raisons.
-Nous prions ceux de nos abonnés qui vont en vacan-
-ces de vouloir bien nous chercher des abonnements
+Nous prions ceux de nos abonnés qui vont en vacances de vouloir bien nous chercher des abonnements
 dans les régions qu'ils n'ont pas encore épuisées.
 notre connaissance et parmi les républicains il a été
 commis Cette année au moins quatre tentatives de

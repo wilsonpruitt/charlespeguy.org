@@ -61,9 +61,7 @@ cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 : catalogue analytique sommaire, 1900-1904, de nos
 
 Ce catalogue a été justement établi pour donner,
-autant qu'il se pouvait, une image en bref, un rac-
-
-courci, une idée, abrégée, mais complète, de nos édi-
+autant qu'il se pouvait, une image en bref, un raccourci, une idée, abrégée, mais complète, de nos édi-
 
 1 tions antérieures et de nos cinq premières séries; tout y
 
@@ -111,21 +109,16 @@ et au regard de l'histoire, il n'y a pas lieu de distinguer
 
 entre hier et aujourd'hui, entre ce qui est publié d'hier,
 et ce que nous publions aujourd'hui seulement, entre
-ce qui est publié présentement et ce qui se publie pré-
-sentement; cette règle s'est constamment justifiée en
+ce qui est publié présentement et ce qui se publie présentement; cette règle s'est constamment justifiée en
 
-3 fait; dans les nombreux corpus que nous avons consti-
-tués, et à qui tout le monde aujourd'hui se réfère, qui
-sait aujourd'hui ce qui était publié, qui sait au con-
-
-traire ce qui était inédit; la séparation rationnelle, et
+3 fait; dans les nombreux corpus que nous avons constitués, et à qui tout le monde aujourd'hui se réfère, qui
+sait aujourd'hui ce qui était publié, qui sait au contraire ce qui était inédit; la séparation rationnelle, et
 aussi la séparation de fait n'est pas entre l'édité et
 
 l'inédit; elle est entre le connu et l'inconnu; combien
 d'édité que nul ne connaît; combien d'inédit que nous
 connaissons tous; elle est aussi entre ce qui est à garder
-et ce qui est à rejeter; combien de textes momentané-
-ment tumultueux ou glorieux n'existent plus au regard
+et ce qui est à rejeter; combien de textes momentanément tumultueux ou glorieux n'existent plus au regard
 de la postérité; combien de textes obscurs au contraire
 affirment de jour en jour leur sérieux et leur solidité.
 Nous publions sans humilité les textes édités; nous
@@ -142,9 +135,7 @@ même, au développement historique de l'événement,
 
 comme le perpétuel entremêlement de tous ces ordres;
 
-nous avons été ainsi conduits à garder l'ordre chrono-
-
-logique à l'intérieur de chaque ordre, mais à présenter
+nous avons été ainsi conduits à garder l'ordre chronologique à l'intérieur de chaque ordre, mais à présenter
 
 les ordres eux-mêmes successivement, séparément,
 libres les uns des autres.
@@ -196,15 +187,12 @@ gérant et comme étant leur éditeur.
 Du premier regard on verra que ces notes n'étaient
 point faites pour être publiées; ainsi apparaît, une fois
 de plus, et sur un éminent exemple, que nos cahiers sont
-indispensables uniquement, dans le libre jeu des publi-
-
-cations contemporaines; on verra du premier regard
+indispensables uniquement, dans le libre jeu des publications contemporaines; on verra du premier regard
 que nulle autre forme d'édition, périodique ou non
 périodique, en librairie ou par abonnement, ne pouvait
 ni apporter à ces notes une publication digne d'elles
 comme édition ni leur apporter une publication digne
-d'elles comme public; nul public de librairie ou d'abon-
-nement ne pouvait accueillir ces textes graves et tristes
+d'elles comme public; nul public de librairie ou d'abonnement ne pouvait accueillir ces textes graves et tristes
 avec un respect sérieux comme les accueillera le publie
 de ces cahiers.
 
@@ -237,9 +225,7 @@ l'ordre où elles étaient quand elles sont venues dans
 nos mains; nous n'avons point voulu nous livrer nousmêmes au travail, ou au jeu, de refaire indéfiniment le
 plan de ces pensées; mieux valait, pour cette édition
 première, garder rigoureusement l'ordre premier, le
-seul ordre que nous connaïssions directement, immé-
-
-diatement, le seul en définitive dont, au fond, nous
+seul ordre que nous connaïssions directement, immédiatement, le seul en définitive dont, au fond, nous
 soyons premièrement sûrs, l'ordre où ces pages étaient
 quand on nous les a remises; la plupart de ces notes
 
@@ -253,8 +239,7 @@ combien la typographie, la raide, la nette et pauvre, la
 mémoire d'un tel texte manuscrit; nous nous contenterons pourtant de cette image imparfaite, mais honnête;
 on ne peut photographier tout; cela ferait un cercle
 vicieux; car nous serions tous forcés de refaire le travail de lecture que Maritain a fait une fois pour toutes,
-et pour nous tous; et il y aurait de l'affectation peut-
-être, justement pour un homme qui fut le plus étranger
+et pour nous tous; et il y aurait de l'affectation peutêtre, justement pour un homme qui fut le plus étranger
 à toute affectation.
 
 Pour les trois premières pages de ces notes, nous
@@ -290,7 +275,7 @@ de Waldeck-Rousseau
 
 pas Poter a
 
-600 Le Figaro du mercredi 12 octobre 1904 publiait
+Le Figaro du mercredi 12 octobre 1904 publiait
 les textes suivants: LTÉE SESNRr
 
 La famille de M. Waldeck-Rousseau a réuni divers
@@ -359,8 +344,7 @@ opérée, soit à l'apparence résultant du titre, et par
 À conséquent de ne pas procéder à la liquidation? Cette
 ; solution semble peu conforme à la volonté de la loi. La
 - Joine porte pas que les congrégations irrégulièrement
-0 formées pourront, dans les trois mois, demander l'auto-
-risation ou se liquider à leur guise. L'article 18 déclare,
+0 formées pourront, dans les trois mois, demander l'autorisation ou se liquider à leur guise. L'article 18 déclare,
 4 au contraire, que le non accomplissement des formes
 prescrites dans le délai fixé entraïnera, de plano, la
 k. dissolution, celle qu'elle prévoit et réglemente et qui
@@ -384,8 +368,7 @@ k. maccomplir aucun acte matériel qui, en faisant obstacle
 à l'exercice de leur droit apparent, pourrait déterminer
 à une responsabilité.
 
-La loi du premier juillet 1901 a considéré la congré-
-gation comme étant une personne morale unique, de
+La loi du premier juillet 1901 a considéré la congrégation comme étant une personne morale unique, de
 laquelle dépendent ses différents établissements. S'il
 
 existe une maison mère, un siège principal de la congrégation, pas de difficulté. C'est le tribunal du lieu de
@@ -395,13 +378,11 @@ nécessaire. Mais certaines congrégationss par exemple
 les Capucins, Bénédictins, Jésuites, etc., n'ont pas de
 principal établissement, mais des maisons distinctes.
 La direction centrale est fixée à l'étranger. Les Jésuites
-ont en France 92 maisons: faudra-t-il autant de juge-
-ments qu'il existe d'arrondissements sièges de ces
+ont en France 92 maisons: faudra-t-il autant de jugements qu'il existe d'arrondissements sièges de ces
 établissements? Cet inconvénient paraît inévitable,
 : aucun des directeurs de ces maisons n'ayant qualité
 pour représenter l'ensemble de l'ordre en France, et
-une procédure engagée contre le directeur ou les direc-
-teurs, à l'étranger, se heurterait sans nul doute à des
+une procédure engagée contre le directeur ou les directeurs, à l'étranger, se heurterait sans nul doute à des
 exceptions et fins de non-recevoir multiples. Il conviendra également d'examiner, dans le même cas
 (absence de maison mère), contre qui la procédure doit
 être suivie: le directeur de l'établissement ou tous les
@@ -424,8 +405,7 @@ une règle de conduite générale. Convient-il de décider
 
 Telles sont les questions qui se sont présentées à mon
 4 esprit et qu'il m'a paru nécessaire de soumettre à une
-étude qu'il appartient à votre département d'appro-
-fondir. Je prends des dispositions pour qu'à la date du
+étude qu'il appartient à votre département d'approfondir. Je prends des dispositions pour qu'à la date du
 premier octobre vous soyez en possession de tous les
 3 renseignements concernant les congrégations auxquelles
 a il y aurait lieu d'appliquer quelqu'une des dispositions
@@ -456,8 +436,7 @@ l'esprit politique, je pense que vous n'étiez pas ce
 , matin-là au Conseil, et pour bien des raisons, il importe
 que vous sachiez avec précision ce qui s'y est fait. Je
 n'en ai pas la date précise, mais il fut tenu entre le
-23 janvier, date de l'avis du Conseil d'État, et le 6 fé-
-vrier, date à laquelle j'ai envoyé les dépêches motivées
+23 janvier, date de l'avis du Conseil d'État, et le 6 février, date à laquelle j'ai envoyé les dépêches motivées
 par notre délibération. Les questions soulevées étant
 complexes, j'avais rédigé des notes, et ces notes, je les
 ai retrouvées. J'examinai tout d'abord les différentes
@@ -479,8 +458,7 @@ aux établissements régulièrement ouverts avant le
 1® juillet, aussi longtemps qu'aucune modification ne
 serait apportée à leur personnel enseignant ou à leur
 local. Une seconde catégorie comprenait les établissements ouverts par des congrégations reconnues, depuis
-le 1° juillet 1907. IL n'était pas douteux que la loi nou-
-velle leur fût applicable. A cette époque, cent soixantequinze s'étaient ouverts avec demande au Conseil
+le 1° juillet 1907. IL n'était pas douteux que la loi nouvelle leur fût applicable. A cette époque, cent soixantequinze s'étaient ouverts avec demande au Conseil
 
 à d'État du décret d'autorisation, deux cent huit avaient
 É omis cette formalité. Je proposai, et le Conseil accepta
@@ -490,8 +468,7 @@ trouvaient dans le dernier cas ci-dessus, d'inviter la
 3 maison mère à rappeler les membres de l'établissement
 illégalement ouvert ou à se mettre immédiatement en
 
-instance devant le Conseil d'État, faute de quoi, la con-
-grégation serait dissoute par décret, et, si elle persis-
+instance devant le Conseil d'État, faute de quoi, la congrégation serait dissoute par décret, et, si elle persis-
 : tait à exister, elle serait renvoyée devant les tribunaux.
 
 A la suite de cette délibération, j'ai télégraphié les
@@ -573,15 +550,13 @@ pour les raisons que je vous ai dites, toute visite et
 - passé. Pardonnez-moi, cher ami, ce long grimoire.
 à Vous pouvez, si vous le jugez de quelque utilité, vous
 É en inspirer, mais il vous est tout personnel, et je ne
-à veux point prêter au reproche de critiquer mon succes-
-seur avec la liberté d'un homme qui est rentré sous sa
+à veux point prêter au reproche de critiquer mon successeur avec la liberté d'un homme qui est rentré sous sa
 
 Croyez-moi votre affectueusement dévoué.
 
 Dès qu'il eut reçu cette lettre, M. Delcassé fit savoir à
 ; M. Waldeck-Rousseau que, sitôt au courant de la circu-
-ï laire de M. Combes, il avait rappelé au président du Con_ seil la décision du gouvernement précédent et la commu-
-nication que, comme ministre des affaires étrangères, il en
+ï laire de M. Combes, il avait rappelé au président du Con_ seil la décision du gouvernement précédent et la communication que, comme ministre des affaires étrangères, il en
 : avait faite alors au Vatican. Le Livre jaune porte, d'ail4 leurs, la trace de cet incident.
 
 Le Sénat se réunit le 29 janvier 1903 dans ses bureaux,
@@ -614,25 +589,19 @@ La loi de 1901 n'a pas pour objet de supprimer les
 
 … congrégations. Une proposition fut déposée, en ce
 
-sens, devant la Chambre; le gouvernement l'a combat-
-
-tue et la Chambre l'a repoussée.
+sens, devant la Chambre; le gouvernement l'a combattue et la Chambre l'a repoussée.
 
 Elle a pour objet de les soumettre au contrôle de
 l'État. Elle confie aux pouvoirs publics le soin: de
 
 vérifier le but qu'elles poursuivent et l'utilité qu'elles
-présentent; de mesurer leur développement; de conci-
-
-lier l'exercice des droits individuels avec les exigences
+présentent; de mesurer leur développement; de concilier l'exercice des droits individuels avec les exigences
 
 de l'ordre public.
 
 L'appréciation variera « suivant le degré d'intérêt ou
 
-d'utilité que présentent la congrégation ou l'établis-
-
-sement congréganiste, le caractère de son œuvre ». (1)
+d'utilité que présentent la congrégation ou l'établissement congréganiste, le caractère de son œuvre ». (1)
 Mais, sous ces réserves, par même que l'autorisation est exigée pour toutes les congrégations, aucune
 d'elles ne peut être considérée comme exclue, a priori,
 du bénéfice de cette autorisation.
@@ -694,8 +663,7 @@ les solutions qui ont été écartées, et qu'il importe gran-
 É _ont déterminé le Parlement à l'adopter.
 
 Le récit, daté et écrit de la main de M. Waldeck-Rousseau,
-de sa conversation avec M. Combes, ainsi que le télé-
-gramme qu'il adressa, deux jours plus tard, à M. Georges
+de sa conversation avec M. Combes, ainsi que le télégramme qu'il adressa, deux jours plus tard, à M. Georges
 Leygues, contiennent l'expression réitérée de son opinion
 très ferme sur la procédure que commandait la loi de 1901.
 
@@ -764,8 +732,7 @@ nous séparons.
 
 .. Mon cher ami, on raconte, paraît-il, à la Chambre,
 - que je me suis rallié aux conclusions de Rabier. Depuis
-le jour où je me suis expliqué au Sénat, sur la procé-
-dure à suivre, le texte de la loi de 1901 n'a pas changé
+le jour où je me suis expliqué au Sénat, sur la procédure à suivre, le texte de la loi de 1901 n'a pas changé
 — et mon opinion non plus.
 
 Résumé d'une allocution prononcée par M. WaldeckRousseau au groupe de l'Union républicaine du Sénat,
@@ -795,8 +762,7 @@ ce vote se font maintenant sentir. Il a permis de conclure
 à une orientation politique nouvelle et tout à fait diffé-
 11 rente de celle qui avait inspiré la loi.
 Les protestations qu'il a déterminées ont conduit à
-soulever d'autres questions, à susciter d'autres compli-
-cations, de façon que le problème des congrégations ne
+soulever d'autres questions, à susciter d'autres complications, de façon que le problème des congrégations ne
 fat plus qu'une des faces d'un problème, à la fois
 beaucoup plus vaste et beaucoup plus irritant. Il ne faut
 pas chercher ailleurs la cause d'une agitation, inconnue
@@ -812,8 +778,7 @@ des incidents tels que ceux de Reims, dont la prompte
 répression s'impose sans hésitation possible.
 Il n'y a qu'une règle de conduite sûre, elle consiste à
 se montrer scrupuleux observateurs des lois, à ne pas
-laisser croire qu'on veut leur faire produire des consé-
-quences différentes de celles qui avaient été affirmées et
+laisser croire qu'on veut leur faire produire des conséquences différentes de celles qui avaient été affirmées et
 Bientôt, la Commission sénatoriale, chargée d'examiner un petit nombre de demandes d'autorisation,
 déposera son rapport. Ce jour-là — et je suis persuadé
 que la Commission voudra qu'il soit prochain — le
@@ -849,8 +814,7 @@ Mon cher ami, les nouvelles arrivent lentement au
 votre discours. Demain j'aurai l'Officiel. Je vous remercie
 d'avoir, une fois de plus, défendu la politique que nous
 avons faite ensemble, large, réformatrice et sociale,
-sans avoir rien de commun avec le monomanisme pré-
-sent. L'anticléricalisme est une manière d'être constanie, persévérante et nécessaire aux États; il doit
+sans avoir rien de commun avec le monomanisme présent. L'anticléricalisme est une manière d'être constanie, persévérante et nécessaire aux États; il doit
 s'exprimer par une succession indéfinie d'actes et ne
 constitue pas plus un programme de gouvernement, que
 
@@ -888,17 +852,14 @@ Dans toutes les questions où des intérêts rivaux et
 légitimes se trouvent en présence, le rôle de la politique
 est et sera toujours de les concilier et, si un conflit
 s'élève, de les accorder par un juste départ, par une
-juste appréciation des droits de chacun et de ses obli-
-
-gations. — Sans cesse ces conflits se produisent, sans
+juste appréciation des droits de chacun et de ses obligations. — Sans cesse ces conflits se produisent, sans
 cesse le gouvernement s'emploie à les dénouer par un
 règlement équitable, de sorte que la politique courante
 est faite de solutions, d'accords et, dans le sens vrai
 du mot, de concordats successifs.
 
 Il n'y a donc pas de témérité à penser qu'en une
-matière où la rivalité est permanente et particuliè-
-rement grave par ses conséquences, la sagesse consiste
+matière où la rivalité est permanente et particulièrement grave par ses conséquences, la sagesse consiste
 à fixer d'avance la sphère d'action de chaque partie et
 le champ laissé à sa libre initiative.
 
@@ -960,9 +921,7 @@ de ces formules diplomatiques destinées à sauvegarder
 les amours-propres et à donner une certaine parure aux
 
 Nobis nominavit!.. Quand j'ai pris la direction des
-cultes, l'État avait coutume de ne pas prendre au tra-
-
-gique cet exécrable latin. Il ne lui apparaissait ni assez
+cultes, l'État avait coutume de ne pas prendre au tragique cet exécrable latin. Il ne lui apparaissait ni assez
 clair pour être accepté sans mot dire, ni assez anticontractuel pour mériter un éclat. À un langage obscur il
 répondait par des réserves très claires qui maintenaient formellement les droits qu'il tient du concordat
 lui-même.
@@ -996,17 +955,14 @@ très insensiblement modifiées.
 
 Une première considération toujours juste: que la
 politique compte avec les faits, et que de tous ceux
-dont nous subissons les conséquences, le plus considé-
-rable, celui dont la répercussion sera le plus durable:
+dont nous subissons les conséquences, le plus considérable, celui dont la répercussion sera le plus durable:
 le catholicisme.
 
 Associations. P. Bert, page
 
 à « Nous pensons, écrit Paul Bert, non seulement que
 
-è l'état social vers lequel aspirent nos collègues est préfé-
-
-rable et désirable, mais qu'il convient de travailler à
+è l'état social vers lequel aspirent nos collègues est préférable et désirable, mais qu'il convient de travailler à
 
 à en préparer l'établissement, et nous sommes absolu-
 
@@ -1017,9 +973,7 @@ pour hâter de nos efforts sa réalisation. Car autant
 qu'à eux le triomphe définitif du principe de la liberté
 de conscience nous est cher.
 
-« Mais nous nous demandons si, dans les circon-
-
-stances actuelles, ce triomphe ne serait pas retardé et
+« Mais nous nous demandons si, dans les circonstances actuelles, ce triomphe ne serait pas retardé et
 compromis précisément par les moyens qu'ils nous proposent d'employer. Et cette question nous la posons en
 
 envisageant non plus seulement les difficultés théoriques, mais les conditions pratiques du problème. Nous
@@ -1048,9 +1002,7 @@ cette sorte, et le sujet s'y prête merveilleusement, car
 
 il n'en est pas qui atteste moins de changements.
 
-Sans remonter au delà de dix ou quinze ans, interro-
-
-gez l'histoire des législatures qui se sont succédé et qui
+Sans remonter au delà de dix ou quinze ans, interrogez l'histoire des législatures qui se sont succédé et qui
 ont vu, après des ministères modérés, des ministères
 radicaux — des cabinets Floquet, Goblet, Brisson après
 des cabinets Ribot, Dupuy, Tirard, Méline.
@@ -1103,17 +1055,14 @@ pas. La séparation se fera; elle se fait par l'action
 lente et presque invisible du temps sur l'état des esprits,
 sur l'état des mœurs, par le progrès insaisissable, mais
 
-certain, de l'esprit de discussion, de contrôle, de cri-
-tique et d'analyse, et par la nécessité même pour le
+certain, de l'esprit de discussion, de contrôle, de critique et d'analyse, et par la nécessité même pour le
 catholicisme d'évoluer vers cette conception plus moderne, qui a déjà ses apôtres, de la séparation de la
 conscience politique et de la conscience religieuse.
 
 Mais, en pareille matière, quand il faut compter avec
 des croyances, des traditions, des habitudes, un atavisme séculaire, profondément enraciné, il faut, pour
 espérer d'une brusque mesure législative une soudaine
-transformation — il faut avoir les illusions et l'inexpé-
-
-rience parfois incorrigibles, et l'imprudence des esprits
+transformation — il faut avoir les illusions et l'inexpérience parfois incorrigibles, et l'imprudence des esprits
 purement spéculatifs, qui croient à la toute-puissance
 du verbe légiférer. On change par une loi l'assiette
 d'un impôt, des divisions administratives; on ouvre à
@@ -1126,8 +1075,7 @@ C'est l'œuvre patiente du temps et de la réaction
 qu'exercent sur la mentalité d'une nation toutes les
 mesures successives qui élargissent le champ des conquêtes intellectuelles.
 
-Ces considérations et ces chiffres féconds en consé-
-quences fourniront des conclusions de plusieurs sortes.
+Ces considérations et ces chiffres féconds en conséquences fourniront des conclusions de plusieurs sortes.
 
 S'il est une question dont on puisse dire qu'elle n'est
 pas mûre, c'est celle-là. Pourquoi alors cette obstination
@@ -1180,13 +1128,10 @@ J'ai appris le départ des H. à quatre heures, en revenant d'une promenade. J'a
 Suit un télégramme de service sans intérêt.
 
 La note suivante est en marge d'une réquisition du procureur de la République du même jour, 9 mai 1902, à la
-Sûreté pour la prier d'assurer la transmission d'un télé-
-gramme circulaire du juge d'instruction.
+Sûreté pour la prier d'assurer la transmission d'un télégramme circulaire du juge d'instruction.
 
 Le télégramme de la Sûreté était parti depuis trois
-heures quand le ministère a reçu la réquisition du pro-
-
-cureur de la République. A partir de l'ouverture de
+heures quand le ministère a reçu la réquisition du procureur de la République. A partir de l'ouverture de
 l'instruction nous ne pouvions plus qu'exécuter ses
 
 M. Waldeck-Rousseau a écrit au crayon la note suivante
@@ -1368,16 +1313,11 @@ actes doivent porter l'indication du domicile, et que le
 domicile indiqué à New-York, Broadway, 102, était
 faux, ce qui équivaut à l'absence de domicile.
 
-Jamais créancier, intervenant fût-ce contre son débi-
-
-teur et non en sa faveur, ne fut aussi mal reçu.
+Jamais créancier, intervenant fût-ce contre son débiteur et non en sa faveur, ne fut aussi mal reçu.
 
 Ce furent, si je ne me trompe, les Humbert qui contestèrent les premiers la recevabilité de l'intervention.
 En dépit de l'insistance de l'avoué de M. Duret,
-M. Guyon, l'affaire fut renvoyée de quinzaine en quin-
-zaine. Elle ne vint à l'audience qu'après que M. Fori-
-
-chon fut devenu premier président, et ce qui vint à
+M. Guyon, l'affaire fut renvoyée de quinzaine en quinzaine. Elle ne vint à l'audience qu'après que M. Forichon fut devenu premier président, et ce qui vint à
 l'audience ce fut la question de non-recevabilité de
 notre intervention et non l'affaire Humbert-Crawford
 elle-même. L'irrecevabilité fut plaidée, non seulement
@@ -1385,8 +1325,7 @@ elle-même. L'irrecevabilité fut plaidée, non seulement
 avec plus de ténacité encore.
 
 Ces incidents suscitèrent quelque curiosité au Palais.
-Je puis affirmer que, si discrètes que fussent les allégations que je portais à l'audience, je parus très témé-
-raire à la plupart de mes confrères, je parle de mes
+Je puis affirmer que, si discrètes que fussent les allégations que je portais à l'audience, je parus très téméraire à la plupart de mes confrères, je parle de mes
 
 amis. J'ignore ce qu'elles parurent aux autres. Mais à
 cette époque, tout le monde pensait de même.
@@ -1436,8 +1375,7 @@ contractés; j'admettais une transaction à l'origine, un
 litige réel. Le fait d'un procès concluait à la réalité de
 l'héritage. Les Humbert, sans l'inventer, voyaient se
 former et produire ses effets ce syllogisme à la Descartes: On attaque le testament, donc il existe; je
-plaide, donc j'hérite. Puis, les Crawford venant peut-
-être à disparaître, on continuait de plaider en leur nom.
+plaide, donc j'hérite. Puis, les Crawford venant peutêtre à disparaître, on continuait de plaider en leur nom.
 Cette hypothèse était aventureuse, sans doute, mais
 
 moins étrange que celle des gens inventant spontanément par le seul effort de leur imagination cette prodigieuse comédie.
@@ -1518,8 +1456,7 @@ L'idée compliquée d'une comédie judiciaire, celle
 romanesque d'une figuration de titres, se sont fait jour
 aisément; nul n'a soupçonné la fuite logique et devenue
 
-A trois heures, on était avisé au ministère de l'inté-
-rieur de l'absence des Humbert. On travaillait à forcer
+A trois heures, on était avisé au ministère de l'intérieur de l'absence des Humbert. On travaillait à forcer
 le coffre. La Sûreté télégraphia à tous les commissaires spéciaux un signalement provisoire, complété
 
 Quant aux mesures prises de suite pour arriver à
@@ -1533,9 +1470,7 @@ de dépêches.
 
 Trois mois avant ce brusque dénouement, personne
 ne voulait admettre la possibilité d'une mystification,
-dont les hommes d'affaires les plus avisés, les magis-
-
-trats les plus défiants, les prêteurs les plus difficiles
+dont les hommes d'affaires les plus avisés, les magistrats les plus défiants, les prêteurs les plus difficiles
 sur leurs sûretés, auraient été victimes, et qui se serait
 déroulée devant tous les degrés de juridiction.
 
@@ -1561,8 +1496,7 @@ fera sentir la nécessité.
 Plaider non sur le testament, mais sur une transaction portant sur ce testament, voilà qui est bien plus
 facile. Imaginer une convention de séquestre qui, en
 même temps qu'elle atteste la réalité de l'héritage, le
-frappe d'indisponibilité, voilà qui est bien plus ingé-
-nieux encore, puisque cette cenvention explique le fait
+frappe d'indisponibilité, voilà qui est bien plus ingénieux encore, puisque cette cenvention explique le fait
 inexplicable d'un héritier millionnaire réduit à emprunter. Cette double combinaison est même si géniale que
 
 je ne me résignerai qu'en face de l'évidence à croire
@@ -1570,8 +1504,7 @@ qu'elle a été imaginée dans le vide. Tout n'est pas fiction: il y a eu, au d�
 impossible de préciser.
 
 Quoi qu'il en soit, un, deux, trois jugements sont
-intervenus: désormais la fiction prend toutes les apparences de la réalité. Elle détermine la croyance iné-
-branlable à l'héritage, et cette croyance sera d'autant
+intervenus: désormais la fiction prend toutes les apparences de la réalité. Elle détermine la croyance inébranlable à l'héritage, et cette croyance sera d'autant
 plus robuste que l'héritage est plus énorme. Qui douterait de l'existence des Crawford? Ils ont paru chez des
 notaires, donné des procurations authentiques. De
 
@@ -1601,8 +1534,7 @@ l'histoire chronologique de tous les procès Humbert,
 et c'est de leur enchaînement seul qu'a naître la conjecture de ce vol prodigieux, mais non sa preuve. La
 vérité pénible à constater pour tous ceux qui ont été
 dupes, c'est que les Humbert n'ont succombé que parce
-qu'ils n'ont emprunter ce qu'il fallait pour désinté-
-resser Cattauï. Celui-ci payé, combien de temps encore
+qu'ils n'ont emprunter ce qu'il fallait pour désintéresser Cattauï. Celui-ci payé, combien de temps encore
 le syllogisme cartésien aurait-il fait son œuvre?
 
 Une autre responsabilité encore plus grande, se trouve
@@ -1708,9 +1640,7 @@ M. Waldeck-Rousseau. — Messieurs, si ce débat
 
 3 ne serais pas intervenu. Il me paraît, d'ailleurs, pouvoir
 
-se résoudre aisément, pacifiquement, par quelques con-
-
-cessions utiles de la part du Gouvernement, qui ne
+se résoudre aisément, pacifiquement, par quelques concessions utiles de la part du Gouvernement, qui ne
 
 coûteraient rien à son autorité et qui permettraient au
 
@@ -1735,23 +1665,17 @@ messieurs, la discussion s'est élargie. Elle a fourni à
 l'honorable M. Sébline l'occasion d'apporter ici une
 affirmation qui pour moi n'est pas nouvelle. -
 
-Je ne me plains pas d'avoir été amené à faire con-
-
-naître mon sentiment. On m'a fait beaucoup parler, et,
+Je ne me plains pas d'avoir été amené à faire connaître mon sentiment. On m'a fait beaucoup parler, et,
 
 ? à l'appui des opinions les plus diverses et parfois les
 
 plus contradictoires, chacun, sans me l'avoir demandée,
 
-a invoqué ma caution. Je pense que le Sénat ne trou-
-
-vera pas exagéré de ma part le souci d'être à mon tour
+a invoqué ma caution. Je pense que le Sénat ne trouvera pas exagéré de ma part le souci d'être à mon tour
 
 entendu dans ma propre cause. (Très bien! — Parlez!)
 
-M. Sébline considère que les lois qui se sont suc-
-
-cédé ou qui sont proposées au Parlement et qui lui
+M. Sébline considère que les lois qui se sont succédé ou qui sont proposées au Parlement et qui lui
 
 paraissent d'un caractère un peu exceptionnel sont la
 
@@ -1767,8 +1691,7 @@ Messieurs, je demeure persuadé que cette succession
 de projets nouveaux, que les difficultés incontestables
 auxquelles on se heurte aujourd'hui tiennent à cette
 circonstance unique que l'on a voulu obtenir de la loi
-de 1907 des résultats pour lesquels elle n'était pas pré-
-parée, (Très bien! très bien! au centre) que l'on a
+de 1907 des résultats pour lesquels elle n'était pas préparée, (Très bien! très bien! au centre) que l'on a
 voulu, notamment, d'une façon indirecte, trouver dans
 une loi sur le contrat d'association la solution de
 quelques-uns des plus redoutables problèmes qui sont
@@ -1858,9 +1781,7 @@ qu'elle a fait l'objet d'une circulaire aux préfets rendue
 entre l'honorable abbé Gayraud et moi. Il s'agissait de
 savoir quelle était la situation légale des établissements
 d'enseignement non autorisés fondés avant la loi de
-1901 par une congrégation autorisée. Nous avons exa-
-
-miné la question avec la plus grande attention.
+1901 par une congrégation autorisée. Nous avons examiné la question avec la plus grande attention.
 
 On pouvait dire qu'elle avait été tranchée par le Parlement. La Chambre des députés avait été saisie d'un
 amendement déposé par M. Péchaud; au Sénat, le
@@ -1880,9 +1801,7 @@ civile — en vertu de la loi de 1886, avant la loi de 19017,
 était un établissement légalement ou illégalement
 formé. (C'est cela
 
-Or, le raisonnement qui nous a déterminés se présen-
-
-tait avec une force singulière. Il m'est arrivé de le
+Or, le raisonnement qui nous a déterminés se présentait avec une force singulière. Il m'est arrivé de le
 soumettre à des amis politiques dont les opinions
 sont loin d'être semblables; il est toujours resté sans
 
@@ -2007,8 +1926,7 @@ qui, à la première heure du moins, fut exprimée par le
 Une loi avait été jugée nécessaire: l'autorisation ne
 [et serait donnée qu'à bon escient; elle devrait être
 mesurée, elle ne serait donnée qu'après une étude du
-dossier permettant — car l'article 13 le disait expressé-
-ment — non pas seulement d'accepter ou de rejeter en
+dossier permettant — car l'article 13 le disait expressément — non pas seulement d'accepter ou de rejeter en
 bloc les demandes d'autorisation, mais de leur faire
 5 subir toutes les modifications que l'intérêt public pourrait suggérer. Elles seraient donc examinées, vérifiées
 par qui? Ah! non pas dans les bureaux d'un ministère,
@@ -2036,9 +1954,7 @@ l'a répété tout à l'heure — avant de fermer un établis-
 
 étaient prêts à se substituer à l'initiative individuelle.
 
-— Il ajoutait: « Il faudra rechercher quel est le but pour-
-
-suivi, quelle est l'importance de l'œuvre, quels sont les
+— Il ajoutait: « Il faudra rechercher quel est le but poursuivi, quelle est l'importance de l'œuvre, quels sont les
 
 … services rendus » et même, si ma mémoire ne me trahit
 
@@ -2151,13 +2067,9 @@ On a et avant et pendant la discussion s'affirmer
 
 deux états d'esprit absolument différents dans le
 
-monde des ordres religieux très divers, et dont les ten-
+monde des ordres religieux très divers, et dont les tendances sont loin d'être tout à fait identiques: les us,
 
-dances sont loin d'être tout à fait identiques: les us,
-
-plus absorbés dans leurs œuvres de mission, d'ensei-
-
-gnement, d'assistance ou de hautes études catholiques;
+plus absorbés dans leurs œuvres de mission, d'enseignement, d'assistance ou de hautes études catholiques;
 
 les autres, avant tout militants et dominés surtout par
 des préoccupations politiques.
@@ -2189,8 +2101,7 @@ plus fertile en polémiques diffamatoires, plus démon_ strative des derniers ex
 , aujourd'hui les calculateurs profonds qui ont déchaïîné
 : l'orage peuvent contempler leur œuvre!
 
-La vie politique, messieurs, est faite d'actions ré-
-flexes et de justes retours. (Très bien! très bien! sur
+La vie politique, messieurs, est faite d'actions réflexes et de justes retours. (Très bien! très bien! sur
 un grand nombre de bancs) Demandera-t-on à des
 hommes encore tout bouillants de cette lutte, auxquels
 on g'a épargné aucune attaque, plus de possession
@@ -2212,10 +2123,7 @@ sure qu'on a déployé plus d'efforts pour unir et solidaiser dans une même ré
 cultes, et la cause des ordres monastiques, nous nous
 sommes appliqués de plus en plus à maintenir séparées
 des questions qui n'avaient rien de commun, et nous
-avons porté ce soin et ce souci jusqu'à vouloir que l'exé-
-cution de la loi de 1907 ne fût pas même confiée au mi-
-
-nistre des cultes, maïs au ministre de l'intérieur.
+avons porté ce soin et ce souci jusqu'à vouloir que l'exécution de la loi de 1907 ne fût pas même confiée au ministre des cultes, maïs au ministre de l'intérieur.
 
 Et ce n'est pas par pusillanimité — je ne crois pas
 que les actes de notre administration en portent l'empreinte — que nous avons montré cette prudence, mais
@@ -2243,8 +2151,7 @@ temps n'a pas manqué de vérifier.
 J'ai moi-même dit, messieurs, à la Chambre des
 députés, que la politique comptait avec les faits et
 
-; qu'entre tous les faits il n'en était pas de plus considé-
-rable que ce catholicisme, traversant les siècles, jusqu'à:
+; qu'entre tous les faits il n'en était pas de plus considérable que ce catholicisme, traversant les siècles, jusqu'à:
 la Réforme, avec le monopole de l'enseignement, avec
 le monopole de l'idéal, avec le monopole de l'éducation,
 et survivant aux grands mouvements intellectuels ou
@@ -2257,8 +2164,7 @@ ce qui se passe dans d'autres pays. Nous n'avons pas
 le bonheur, nous, d'être un pays neuf comme cette autre
 république si jeune et déjà si forte des États-Unis, où il
 semble que tout ait surgi simultanément, et l'organisme
-gouvernemental le plus puissant, le mieux réglé peut-
-être, et l'organisation la plus libre de tous les cultes les
+gouvernemental le plus puissant, le mieux réglé peutêtre, et l'organisation la plus libre de tous les cultes les
 plus différents, où nul, pour se faire une place, n'a
 prendre celle de personne (Très bien! très bien! au
 centre et à droite) et où la nécessité de réagir contre
@@ -2279,8 +2185,7 @@ Paul Bert et par lequel il expliquait ces mouvements
 
 Les défaillances du passé nous obligent d'exercer de
 
-nombreuses reprises, qu'il n'est pas malaisé de pré-
-senter aux esprits prévenus comme des usurpations.
+nombreuses reprises, qu'il n'est pas malaisé de présenter aux esprits prévenus comme des usurpations.
 Aussi ne s'exposerait-on pas, sans un véritable péril,
 après avoir fait rentrer la société religieuse dans ses
 « frontières, à paraître vouloir l'y poursuivre. (Très bien!
@@ -2301,8 +2206,7 @@ des résistances non moins formidables, nous les avons
 
 Faut-il rappeler toutes les difficultés auxquelles se
 heurta l'exécution de l'œuvre de Jules Ferry? Il nous a
-fallu faire face aux mêmes oppositions, aux mêmes ré-
-sistances. Mais une force incomparable a combattu
+fallu faire face aux mêmes oppositions, aux mêmes résistances. Mais une force incomparable a combattu
 pour nous, a vaincu pour nous: le sens et le respect de
 la légalité.
 
@@ -2341,11 +2245,7 @@ en obstruaient le cours. Le pays vous suivra, il vous
 
 des jugements nécessaires, il faut qu'ils soient contra-
 
-… dictoires et motivés, et, pour ma part, je n'ai pas pro-
-
-testé contre le huis clos des conseils de guerre pour admettre jamais le huis clos des commissions. (Applau-
-
-dissements répétés. — L'orateur', en regagnant son banc,
+… dictoires et motivés, et, pour ma part, je n'ai pas protesté contre le huis clos des conseils de guerre pour admettre jamais le huis clos des commissions. (Applaudissements répétés. — L'orateur', en regagnant son banc,
 
 À reçoit les félicitations d'un grand nombre de ses collègues.)
 
@@ -2355,9 +2255,9 @@ publiait le compte rendu suivant: TROIE
 
 ; Session extraordinaire de 1903
 
-4 Séance du vendredi 20 novembre
+Séance du vendredi 20 novembre
 
-1 Suite de la première délibération: 1° sur la proposition
+Suite de la première délibération: 1° sur la proposition
 
 de loi de M. Béraud et plusieurs de ses collègues,
 
@@ -2460,8 +2360,7 @@ monopole. Entre ces deux thèses, l'une empruntée à
 l'esprit moderne et au grand fait social de l'émancipation révolutionnaire, que M. Clemenceau rappelait en
 ( de si beaux termes, l'autre, renouvelée de la cité
 ; antique, (Sourires) si belle, si admirable par ses lettres
-et par ses arts, si détestable par sa souveraine indiffé-
-rence, par son inconscience sereine du droit individuel,
+et par ses arts, si détestable par sa souveraine indifférence, par son inconscience sereine du droit individuel,
 (Marques d'approbation sur divers bancs) chacun avait
 fait son choix, et il semblait qu'un débat, si heureusement engagé, dût promptement aboutir. Mais on n'a
 pas tardé d'apercevoir qu'il s'embarrassait, si j'ose
@@ -2502,9 +2401,7 @@ statué sur la question des relations entre l'État et les
 J'avoue ne pas très bien comprendre la relation qui
 peut exister entre la séparation des Églises et de l'État,
 par exemple, et l'interdiction d'enseigner portée contre
-les prêtres séculiers; et même, si je suis les inspira-
-
-tions premières de ma raison, j'arrive à considérer que
+les prêtres séculiers; et même, si je suis les inspirations premières de ma raison, j'arrive à considérer que
 moins le prêtre séculier sera fonctionnaire, que moins
 il sera dans la dépendance de l'État, et plus il sera
 5 rejeté dans le droit commun, moins on sera fondé à lui
@@ -2567,8 +2464,7 @@ qu'il s'exécute, et qu'il restera d'autant moins de
 : combats à livrer que l'on aura remporté plus d'avantages,
 à Or, quiconque analyse sans parti pris d'aucune sorte
 la situation présente, remarque que les difiicuités
-semblent croître à mesure que l'on se flatte de les sur-
-monter, que le but semble reculer, au moment où nous
+semblent croître à mesure que l'on se flatte de les surmonter, que le but semble reculer, au moment où nous
 croyons l'atteindre, et que la nécessité incessante de
 forger des lois plus sévères semble le résultat le plus
 direct des succès que l'on croyait remporter. Les critiques que j'avais formulées n'ont pas convaincu le
@@ -2631,8 +2527,7 @@ des laïques qui sont survenus; là, des congréganistes
 les tribunaux autorisent à tenir pour certain que, de
 des sécularisations fictives.
 Au lieu de laisser aux tribunaux le soir d'étudier les
-4 circonstances de fait et d'en tirer les plus justes con-
-clusions, voici ce que proposait M. Massé:
+4 circonstances de fait et d'en tirer les plus justes conclusions, voici ce que proposait M. Massé:
 : Comme il était difficile de trouver un critérium
 immuable de la sincérité des sécularisations, on en a
 É fait une question de lieu, de distance et de frontières.
@@ -2657,14 +2552,10 @@ certains enfants qui ne donnent pas d'orgueil aux
 
 Mais il faut faire quelque chose. A toutes les périodes
 de notre histoire politique, l'opinion ambiante finit
-par se cristalliser en une formule; celle qui se rencon-
-
-tre aujourd'hui dans les entretiens d'hommes politiques
+par se cristalliser en une formule; celle qui se rencontre aujourd'hui dans les entretiens d'hommes politiques
 
 ; qui n'appartiennent pas au même groupe que moi, mais
-qui ont la même foi républicaine, c'est: il faut cepen-
-
-dant faire quelque chose. Alors est survenu l'amendement de l'honorable M. Girard, retiré bientôt par
+qui ont la même foi républicaine, c'est: il faut cependant faire quelque chose. Alors est survenu l'amendement de l'honorable M. Girard, retiré bientôt par
 M. Girard, mais aujourd'hui représenté pour la plus
 grande partie tout au moins par l'amendement de
 
@@ -2697,8 +2588,7 @@ qui me confond: tous les principes seraient méconnus
 - si des congréganistes autorisés donnaient l'enseignement à de jeunes hommes dont l'esprit est dejà éveillé …
 sur tant de spectacles, qui peuvent raisonner et qui
 peuvent se défendre, mais il n'y a aucun inconvénient
-à ce qu'ils enseignent ces enfants plus petits, qui se-
-raient, bien plus que les autres, la cire molle dont on a
+à ce qu'ils enseignent ces enfants plus petits, qui seraient, bien plus que les autres, la cire molle dont on a
 ; parlé. (Approbation sur divers bancs au centre et à
 de droite )
 Cela n'est ni possible, ni raisonnable, et le problème
@@ -2707,8 +2597,7 @@ deux enseignements. (Nouvelle et vive approbation sur
 à les mêmes bancs)
 Quelles seront les difficultés du problème aïnsi rendu
 à ses termes vrais? C'est la question qu'il faut ré-
-Combien, monsieur le ministre de l'instruction pu-
-blique, aurez-vous d'enfants à recueillir au lendemain
+Combien, monsieur le ministre de l'instruction publique, aurez-vous d'enfants à recueillir au lendemain
 du jour-où tous les établissements congréganistes sans
 exception auront été fermés? On a prononcé des chiffres
 formidables et s'ils sont vrais, si même ils sont approximativement vrais, tout le monde comprend que vous
@@ -2757,8 +2646,7 @@ dire que le congréganiste dépendant d'une congrégation
 : autorisée pouvait donner l'enseignement, je demande ce
 à que désormais les mots signifient. (Applaudissements
 M. le président du conseil. — Je demande, moi, à
-, M. Waldeck-Rousseau. — Messieurs, je compren-
-drais encore ce qu'on nous propose de faire s'il y avait
+, M. Waldeck-Rousseau. — Messieurs, je comprendrais encore ce qu'on nous propose de faire s'il y avait
 : péril en la demeure, si d'heure à heure, on devait conjurer un danger présent. N'êtes-vous donc pas armés?
 Vous ne jugez pas nécessaire de faire ce que la loi de
 1901 vous autorise à faire et vous demandez qu'on vous
@@ -2770,8 +2658,7 @@ qui permet à l'État de demeurer constamment et à
 chaque instant le souverain juge de la question de savoir si une congrégation doit être maintenue ou suppri-
 À mée? De sorte que si, dans l'un de ces établissements,
 vous estimez que notre jeunesse soit en péril, un geste
-vous suffit pour qu'il soit fermé, que vous pouvez procé-
-der tout à la fois avec sûreté et avec mesure; et vous
+vous suffit pour qu'il soit fermé, que vous pouvez procéder tout à la fois avec sûreté et avec mesure; et vous
 voulez vous faire donner une injonction à laquelle vous
 
 serez dans l'impossibilité de répondre! (Très bien! au
@@ -2824,15 +2711,13 @@ résout pas.
 sut) En demandant que la question qu'il soulève trouve sa
 place dans le projet général qui a été annoncé dans un
 1 autre débat, nous ne demandons rien que le GouverJPA nement n'ait proposé lui-même; si pour rester trop attadot ché à une solution qu'il avait préconisée, nous sommes,
-par un phénomène singulier, en état d'opposition impré-
-et vue, aucune explication ne peut affaiblir la portée de
+par un phénomène singulier, en état d'opposition impréet vue, aucune explication ne peut affaiblir la portée de
 cette constatation que c'est cependant à la déclaration
 ministérielle lue, il y a huit jours, à cette tribune, que
 reste empruntée la solution que nous demandons au
 1 et sur divers bancs à gauche)
 
-: MCE Ci-après la note communiquée à la presse et résu-
-sa mant la déclaration faite par M. Waldeck-Rousseau le
+: MCE Ci-après la note communiquée à la presse et résusa mant la déclaration faite par M. Waldeck-Rousseau le
 29 janvier 1903 devant le premier bureau lors de
 Mon l'élection de la commission chargée de l'examen des
 démarches d'autorisation déposées sur le bureau du
@@ -2897,8 +2782,7 @@ tant de en surcharge. Rayé: ces.
 constat Ce sont des éventualités et des constatations qui méritaient d'être signalées au Sénat,
 Gouv au Gouvernement, car c'est une fausse interinterpret®" prétation du parlement, celle qui semble réserexclusivt ver exclusivement à l'opposition systématique:
 opp°* le soin de lui faire entendre des conseils.
-Il se plaint que les lois nouvelles se suc-
-cèdent, d'un caractère exceptionnel parfois, il
+Il se plaint que les lois nouvelles se succèdent, d'un caractère exceptionnel parfois, il
 Parlemt en conclut qu'en la proposant au Parlement
 - nous avons manqué de prévoyance, Où mêrne,
 
@@ -2940,7 +2824,7 @@ art.. les articles 13 et
 Je n'ignore pas que certains ordres n'ont rien
 rapplication négligé pour déterminer une application de la
 instant loi qui fût instantanée.
-8 Rien n'était plus conforme à leur politique.
+Rien n'était plus conforme à leur politique.
 
 te Je n'ai pas cédé seult à une lassitude qui se conciliait
 mal avec la constante application et le labeur continu
@@ -2954,8 +2838,7 @@ M. le P. a entreprise. Elle n'a jamais pour but de
 LUF permettre par voie indirecte d'établir au profit de l'en-
 ù seign laïque un monopole. Je l'ai dit en répond à l'hon
 M. Brisson; j'ai déclaré que l'enseignt libre devait être
-assujeti à de nouvelles garanties, mais que nous n'en-
-trerions pas dans la voie du monopole —
+assujeti à de nouvelles garanties, mais que nous n'entrerions pas dans la voie du monopole —
 La loi de 1907 suflirait-elle à réduire le nombre excessif des congréganistes?
 oui — puisqu'elle permet de
 limiter le personnel —
@@ -3010,8 +2893,7 @@ répondre à des interpellations si pressantes.
 
 Je dirai donc mon sentiment, très simplemt et très
 impartialemt et ma tâche est en vérité moins difficile
-qu'elle ne paraît, car s'il arrivait que je sois en con-
-tradittin avec le cabinet actuel, ce ne serait qu'autant
+qu'elle ne paraît, car s'il arrivait que je sois en contradittin avec le cabinet actuel, ce ne serait qu'autant
 qu'il paraîtrait être en contradiction avec lui-même.
 
 Ce qui pèse sur l'application de la loi ce qui la
@@ -3067,8 +2949,7 @@ sur papier jaune, à l'encre, une petite page intercalaire] -
 Dans les conjonctures difficiles, il est une règle dont
 il ne faut pas s'écarter, c'est le respect de la loi.
 Nous avons plus d'une fois et p. dans l'accomplissement de l'œuvre dont Ferry avait tracé le plan,
-rencontré la coalition violente des préjugés et des inté-
-rêts, des passions et des habitudes
+rencontré la coalition violente des préjugés et des intérêts, des passions et des habitudes
 Tous ses efforts ont été vains.
 
 [sur papier blanc, au crayon]
@@ -3093,9 +2974,7 @@ au delà de ses frontières —
 . c'est pour cela que situation regrettable
 remède: la légalité.
 
-SNS Dans les pages qui suivent, les soulignements tÿpo-
-
-graphiques doivent s'interpréter ainsi: TTC
+SNS Dans les pages qui suivent, les soulignements tÿpographiques doivent s'interpréter ainsi: TTC
 
 signifie que dans la copie le mot est souli-
 
@@ -3190,8 +3069,7 @@ sens le plus net de son devoir.
 que telle est bien sa Pratique naturelle, en surcharge.
 (4) M. en surcharge. et Plichon en surcharge.
 
-Il a justifié les mesures par lui prises à l'égard d'éta-
-blissements qui s'étaient fondés sans autorisation, et
+Il a justifié les mesures par lui prises à l'égard d'établissements qui s'étaient fondés sans autorisation, et
 dont les directeurs (1) au lieu de se pourvoir régulièrt
 s'ils estimaient que ces mesures fussent illégales
 avaient préféré recourir à la violence et tenter de
@@ -3319,9 +3197,7 @@ plus catégoriques et les plus
 
 Un long débat, de multiples amendements permirent
 au gouvt de dire à mainte reprise quelle était sa
-pensée — à savoir que chaque demande serait exami-
-
-née suivant le but poursuivi, l'importance (1) des services rendus.
+pensée — à savoir que chaque demande serait examinée suivant le but poursuivi, l'importance (1) des services rendus.
 Enfin, un amend! tendant à créer un régime spécial
 pour les cong. char. ou les missions, amenaiït le gouv' à
 déclarer que la loi, de même qu'elle n'impliquait aucune
@@ -3330,9 +3206,7 @@ fin de non recevoir contre aucune demande, ne pouvait
 [sur papier blanc, à l'encre, à l'intérieur la cote précédente]
 (2) Il est manifeste que l'État ne peut pas reconnaître
 à l'avance, les yeux fermés toutes les catégories de conie grégations qui voudraient se fonder...
-.… le gouvernt actuel revendique le droit qu'ont maintenu tous ses prédécesseurs de n'admettre une congré-
-
-gation qu'après s'être assuré que les principes du droit
+.… le gouvernt actuel revendique le droit qu'ont maintenu tous ses prédécesseurs de n'admettre une congrégation qu'après s'être assuré que les principes du droit
 individuel y seront respectés et qu'on y respectera aussi
 cette autre association supérieure qui s'appelle l'État.
 
@@ -3363,8 +3237,7 @@ Saisie de 5£ projets la C°" frappée de
 l'énormité de sa tâche.
 
 L'art. 13. « Aucune congrég®" ne pourra se fonder
-sans être autorisée par une loi qui dé-
-terminera les conditions de son fonctiont..
+sans être autorisée par une loi qui déterminera les conditions de son fonctiont..
 
 L'art. 21. Règlemt d'ad°: après avoir consulté les
 
@@ -3448,7 +3321,7 @@ au jour.
 
 Cepend! la C°" restait en présence de 54 projets.
 alors on a entendu les critiques
-les plus fortes …:
+les plus fortes
 
 Fusion des 54 projets en un seul...
 
@@ -3474,8 +3347,7 @@ toutes les deux être consultées s'il s'agissait (5) de les
 
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
-En dépit de cette innovation la restait en pré-
-sence de 54 projets tendant à autoriser des congrégations et motivés par la nécessité de les exclure.
+En dépit de cette innovation la restait en présence de 54 projets tendant à autoriser des congrégations et motivés par la nécessité de les exclure.
 
 Alors on « a entendu les objections les plus fortes tirées
 de l'extrême difficulté pour le Parlt d'accomplir une
@@ -3488,8 +3360,7 @@ pareille tâche. Il faudrait prendre une à une chacune
 des demandes, examiner chaque dossier... furent les
 1 mêmes critiques qui avaient été dirigées contre l'art.
 {4 lors de sa discussion, maïs elles étaient maintenant (1)
-formulées par ceux qui ne les avaient entendues autre-
-fois (2) qu'avec impatience.
+formulées par ceux qui ne les avaient entendues autrefois (2) qu'avec impatience.
 4 1 La prit le parti de fondre les 54 projets en un
 seul. Rien n'était plus parlementaire, mais elle conclut
 à ce que ces 54 articles ne fussent pas discutés. rien
@@ -3594,8 +3465,7 @@ surtout un but politique.
 
 Les unes considéraient que leur devoir était tracé et
 qu'elles devaient s'incliner devant la loi. Les autres
-restaient fidèles à la tactique dont le catholicisme militant et les politiques du parti attendent l'even‘t chimé-
-rique d'une C. révolution.
+restaient fidèles à la tactique dont le catholicisme militant et les politiques du parti attendent l'even‘t chimérique d'une C. révolution.
 
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
@@ -3855,8 +3725,7 @@ C'est l'œuvre même dont elle peut être l'instrument
 décisif qui serait compromise.
 
 Nous avons voulu soustraire la société moderne à
-lenvahissement d'une milice qui, devenue trop nombreuse et trop hardie la pressait (5) de toute part, pré-
-parait pour l'avenir non point la défaite de l'esprit
+lenvahissement d'une milice qui, devenue trop nombreuse et trop hardie la pressait (5) de toute part, préparait pour l'avenir non point la défaite de l'esprit
 
 (1) celle en surcharge. Rayé: Le sens le respect.
 
@@ -3925,8 +3794,7 @@ fois équitable prévoyante et ferme.
 
 Il était essentiel avant tout de conserver à l'exécution
 de la loi le caractère de mesure de haute police qu'affirmait le rattachement au Min. de l'Intérieur et non au
-ministère des Cultes des associations et des congré-
-gations — d'affirmer par que l'œuvre parasite (2)
+ministère des Cultes des associations et des congrégations — d'affirmer par que l'œuvre parasite (2)
 turbulente et politique des ordres militants n'intéressait
 en rien les rapports de l'État avec l'Église et la plus
 grosse faute qui pût être commise consistait à solidariser
@@ -3990,8 +3858,7 @@ moral. il a représenté pour le peuple sa part d'idéal et
 d'éducation et aujourd'hui encore il est pour tous ceux
 et presque indifférentes endormies y vibrent parfois avec une
 
-ï quil en est. tout entier, en surcharge. — que l'on croit dessé-
-chées, surajouté. — réveille, en surcharge au lieu de développe. —
+ï quil en est. tout entier, en surcharge. — que l'on croit desséchées, surajouté. — réveille, en surcharge au lieu de développe. —
 
 On lit encore: « que sous un choc imprudent certaines fibres
 tressaillent qui semblaient engourdies [Rayé: « vibrent soudain
@@ -4013,10 +3880,8 @@ statut social et religieux, je dirais volontiers plus social
 que religieux si puissant et si fort que chez beaucoup
 l'habitude a survécu à la foi.
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
-La plus bienfaisante indifférence gouverne les rap-
-ports entre l'État et les Églises et ceux des Églises
-entre elles. Tout sur un terrain neuf a surgi simulta-
-nément et l'organisme puissant de l'Etat, et l'organise
+La plus bienfaisante indifférence gouverne les rapports entre l'État et les Églises et ceux des Églises
+entre elles. Tout sur un terrain neuf a surgi simultanément et l'organisme puissant de l'Etat, et l'organise
 la plus libre des cultes les plus divers, chacun d'eux a
 trouvé sa place sans être obligé de la conq. sur un
 autre (1) et comme ce pays, si nouveau et déjà si
@@ -4074,8 +3939,7 @@ Toutes les difficultés auxquelles on se heurte ont
 passé par une première brèche ouverte sinon dans le
 , texte, du moins dans l'esprit de la loi.
 On s'était demandé puisque le pouvoir législatif (x)
-était institué juge, si le Parlement ou la Chambre seu-
-lement devrait statuer.
+était institué juge, si le Parlement ou la Chambre seulement devrait statuer.
 M. Bérenger avait posé la question. Il redoutait que
 l'intervention (2) d'une des assemblées suffit à clore un
 débat de cette nature.
@@ -4123,9 +3987,7 @@ une nouv. loi destructrice de la première.
 
 l'encre, sur feuillet de papier blanc]
 
-L'application de la loi qui allait être votée intéresserait des milliers [70.000] (1) de personnes. elle impli-
-
-il Waldeck-Rousseau
+L'application de la loi qui allait être votée intéresserait des milliers [70.000] (1) de personnes. elle impliil Waldeck-Rousseau
 quait dans tous les départ" et dans toutes les communes
 une transformation des services de l'enseignement, des
 œuvres d'assistance proprt dite, de celles qui concer-
@@ -4291,9 +4153,7 @@ dont l'Etat s'est montré jusqu'à présent incapable ».
 
 Nous considérons d'ailleurs que les dispositions nouvelles qui s'imposent doivent être limitées:
 
-1° aux demandes portant sur des établissements d'as-
-
-sistance fondés en France ou des établissements fondés
+1° aux demandes portant sur des établissements d'assistance fondés en France ou des établissements fondés
 à l'étranger
 
 2° à celles de ces demandes émanant des congrégations existant à la date du 1° juillet 1901.
@@ -4303,9 +4163,7 @@ fait la congrégation répond au but qu'elle s'est assigné,
 si elle est en mesure de rendre des services; on devra
 examiner spécialement en fait de missions dans quelle
 sphère elles doivent se mouvoir; il faudra rechercher
-dans le même cas quels établissements lui sont néces-
-
-saires. C'est à vrai dire l'œuvre que le Conseil d'État
+dans le même cas quels établissements lui sont nécessaires. C'est à vrai dire l'œuvre que le Conseil d'État
 accomplit chaque fois qu'il est en présence ou de la:
 formation d'un établissement nouveau ou d'une demande en autorisation d'accepter une donation ou un
 
@@ -4317,8 +4175,7 @@ même temps une question politique.
 (1) Rayé: … intéressant. soulèvent ainsi une
 
 En dossier annexe, une lettre qui fut envoyée à
-M. Waldeck-Rousseau et qui portait sur l'interpré-
-tation à donner, dans l'application, à la loi de 19017:
+M. Waldeck-Rousseau et qui portait sur l'interprétation à donner, dans l'application, à la loi de 19017:
 
 Pré-Saini-Gervais, le 12 août 1902
 Monsieur le Sénateur,
@@ -4391,16 +4248,13 @@ A cette lettre, Waldeck-Rousseau fit préparer la
 W.R. me prie de vous accuser réception de votre
 lettre du 12‘. Il ne lui est pas possible d'accéder au
 désir que vous voulez bien lui exprimer. Si la Congré-
-; gation des Filles du Esprit l'eût consulté il l'eût dis-
-suadée de recourir aux moyens violents; (r) si elle
+; gation des Filles du Esprit l'eût consulté il l'eût dissuadée de recourir aux moyens violents; (r) si elle
 s'adressait à lui il ne pourrait que décliner un patronage impliquant (2) l'approbation d'une attitude qu'il
 blâme. C'est donc seulement (3) aux conseils de cet
 Ordre si, mieux inspiré il rentre. dans les (4) voies
-légales, qu'il peut appartenir de faire valoir l'interpré-
-tation à laquelle s'était arrêté le précédent cabinet.
+légales, qu'il peut appartenir de faire valoir l'interprétation à laquelle s'était arrêté le précédent cabinet.
 [d'une autre encre]
-Veuillez agréer, Le C. l'expression de ma considé-
-ration la plus distinguée.
+Veuillez agréer, Le C. l'expression de ma considération la plus distinguée.
 (2) [impliqu]ant en surcharge. qui [impliqu]erait, rayé.
 (4) rentre dans en surcharge. revient à l'emploi rayé. y
 [d'une autre encre)
@@ -4422,9 +4276,7 @@ Lettre écrite à M. Delcassé par M. WaldeckRousseau au retour du premier voyag
 le testament politique de Waldeck-Rousseau
 Premier bureau pour la commission sénatoriale
 Le Sénat se réunit le 29 janvier 1903 dans ses
-bureaux, pour nommer une Commission char-
-
-gée d'examiner les demandes d'autorisation de.
+bureaux, pour nommer une Commission chargée d'examiner les demandes d'autorisation de.
 congrégations que le gouvernement lui avait
 renvoyées; M. Waldeck-Rousseau prit la parole
 dans le premier bureau; il avait remis à
@@ -4455,8 +4307,7 @@ M. Waldeck-Rousseau après son dernier minisF tère;
 Résumé de l'affaire et documents annotés; un
 télégramme circulaire de la Sûreté aux commissaires spéciaux, du 9 mai 1902, jour de la fuite
 des Humbert, à cinq heures du soir; en marge,
-une note de M. Waldeck-Rousseau; un télé-
-gramme de service sans intérêt; une note en
+une note de M. Waldeck-Rousseau; un télégramme de service sans intérêt; une note en
 marge d'une réquisition du procureur de la République, du même jour, 9 mai 1902, à la Süreté
 pour la prier d'assurer la transmission d'un
 télégramme circulaire du juge d'instruction;
@@ -4484,8 +4335,7 @@ d'école; présidence de M. Fallières;
 Journal officiel du samedi 21 novembre 1903; ‘#4
 Discours du vendredi 20 novembre 1903......
 Sénat. — Session extraordinaire de 1903
-de la première délibération: 1° sur la proposi-
-tion de loi de M.Béraud et plusieurs de ses col- LA
+de la première délibération: 1° sur la proposition de loi de M.Béraud et plusieurs de ses col- LA
 lègues, tendant à l'abrogation du chapitre pre-:
 mier du titre de la loi du 15 mars 1850 sur
 l'enseignement; 2° sur le projet de loi sur l'en-;
@@ -4500,7 +4350,7 @@ l'élection de la commission chargée de l'examen Li)
 des démarches d'autorisation déposées sur le À
 bureau du Sénat; ne
 
-4 Collège de France. — Premier semestre 190-190
+Collège de France. — Premier semestre 190-190
 Man: — MM. les lecteurs et professeurs ouvriront leurs co: urs
 Philosophie moderne. — M. Bergson, membre de LE
 l'Institut, Académie des Sciences morales et politiques, -
@@ -4550,11 +4400,7 @@ reçoit, par le fait même de son abonnement, en tête de
 la série; nous l'envoyons contre un mandat de cinq
 francs à toute personne qui nous en fait la demande.
 
-Raoul Allier. — L'enseignement primaire des indi-
-
-gènes à Madagascar. — Aujourd'hui reprenant ce qua-
-
-trième cahier de cette sixième série, je m'aperçois que
+Raoul Allier. — L'enseignement primaire des indigènes à Madagascar. — Aujourd'hui reprenant ce quatrième cahier de cette sixième série, je m'aperçois que
 dans les transcriptions que j'avais commencé de faire,
 justement pour débarrasser de tout souci de transcription la lecture du cahier même, j'ai omis plusieurs
 transcriptions importantes; cette omission était inévitable; il eût fallu, pour ainsi dire, transcrire presque
@@ -4568,9 +4414,7 @@ Sœurs de Saint-Joseph de Cluny, représentée par sa
 supérieure générale, résidant à Paris; on sait que le
 gouvernement et les différents Instituts catholiques
 avaient imaginé, par ces contrats, vieillerie condamnée,
-de faire de l'enseignement congréganiste, de l'enseigne-
-
-ment confessionnel, catholique, l'enseignement officiel,
+de faire de l'enseignement congréganiste, de l'enseignement confessionnel, catholique, l'enseignement officiel,
 gouvernemental, de revêtir un enseignement confessionnel d'une investiture officielle, de faire coïneider avec un
 monopole de l'enseignement congréganiste un monopole
 de l'enseignement d'État, de faire exactement recouvrir
@@ -4645,8 +4489,7 @@ statistiques, une note importante:
 Dans les premiers jours de mars 1904, une dépêche offi-
 
 : cieuse de Tananarive était communiquée à la presse: « Les
-mesures prises récemment en France au sujet des congré-
-gations et de leurs écoles ont amené le gouverneur général
+mesures prises récemment en France au sujet des congrégations et de leurs écoles ont amené le gouverneur général
 à modifier la réglementalion de l'enseignement à Madagascar conformément à l'orientation donnée par le gouvernement de la métropole. Un arrêté récent pris à ce sujet
 supprime désormais aux associations religieuses toute
 
@@ -4654,8 +4497,7 @@ On voit comment retenlissent dans nos colonies nos
 agitations démagogiques métropolitaines; de même que
 cet essai de monopole à Madagascar faisait comme un
 parfait exemple de laboratoire de ce qui nous attend à
-Paris en France, de même les événements de Madagascar forment comme un prolongement agrandi des évé-
-nements qui en France ne donneraient encore que des
+Paris en France, de même les événements de Madagascar forment comme un prolongement agrandi des événements qui en France ne donneraient encore que des
 indications; je me permets d'attirer l'attention sur la
 méthode même que suit un gouverneur général dans la
 
@@ -4680,8 +4522,7 @@ ils commencent par demander à des gouvernements
 extérieurs, supérieurs, non pas seulement des indications, mais des commandements; travailler sur la réalité, cela est donné à tout le monde, cela est bon pour
 tout le monde; ce qui est fin, ce qui est supérieur, et
 vraiment digne d'un général, c'est de gouverner de la
-réalité en regardant ailleurs qu'à cette réalité; le géné-
-ral, si cette comparaison ne l'offense pas, est comme
+réalité en regardant ailleurs qu'à cette réalité; le général, si cette comparaison ne l'offense pas, est comme
 un ouvrier qui se garderait par-dessus tout de regarder
 son travail; de peur de voir son ouvrage; un tel ouvrier
 ne réussirait pas beaucoup dans les arts et dans les
@@ -4690,8 +4531,7 @@ métiers, parce que la réalité industrielle a des sanctions
 immédiates que les fictions gouvernementales n'exercent point; et inséparablement c'est comme elles ont
 des sanctions immédiates que toutes les réalités non
 ï gouvernementales requièrent aussi des méthodes immédiates; et inséparablement c'est parce qu'elles me
-subissent point des sanctions immédiates que les fic-
-tions gouvernementales peuvent se passer de méthodes
+subissent point des sanctions immédiates que les fictions gouvernementales peuvent se passer de méthodes
 : immédiates; l'un tient à l'autre; l'un entraîne Fautre;
 un ouvrier industriel est contraint de regarder son traLA vail, immédiatement, parce que s'il ne regardait pas
 dr. son travail même il recevrait de son travail même des
@@ -4741,9 +4581,7 @@ même quand on rapporte au gouvernement de V'État
 tout l'immense travail industriel, économique, il y a
 évidemment exercice, et il peut y avoir abus de la centralisation; mais tous ces exercices et tous ces abus
 
-4 peuvent n'être pas pleinement et scandaleusementappa-
-
-rents; ils ne sont pas comme schématisés d'avance; au
+4 peuvent n'être pas pleinement et scandaleusementapparents; ils ne sont pas comme schématisés d'avance; au
 
 4 - contraire une centralisation dont le centre est à Paris
 
@@ -4751,9 +4589,7 @@ et la circonférence à Madagascar, par la longueurmême
 
 du rayon, par la disproportion du point central et de
 
-ï l'objet circonférentiel, apparaît comme une centralisa-
-
-tion maxima, comme un schème tout fait de centralisa-
+ï l'objet circonférentiel, apparaît comme une centralisation maxima, comme un schème tout fait de centralisa-
 
 ! Les schèmes tout faits, les schèmes de la nature et de
 
@@ -4763,13 +4599,9 @@ nous pouvons imaginer; non seulement ils sont réels,
 
 qui est l'unique vertu, et les autres sont imaginaires,
 
-mais ils sont Loujours mieux faits; techniquement, professionneliement, ils sont toujours d'une meilleure fabri-
+mais ils sont Loujours mieux faits; techniquement, professionneliement, ils sont toujours d'une meilleure fabrication; nous ne pourrions imaginer un exemple de
 
-cation; nous ne pourrions imaginer un exemple de
-
-centralisation aussi bien fait que cet exemple de Mada-
-
-gascar, historique, réel, tout fait; saisissons donc cet
+centralisation aussi bien fait que cet exemple de Madagascar, historique, réel, tout fait; saisissons donc cet
 
 Une île immense; des intérêts immenses; des besoins
 immenses; un ayenir immense; mais des difficultés
@@ -4786,10 +4618,7 @@ cartons verts; quelques fonctionnaires; quelques inintelligences et quelques st�
 quelques encroûlements; un ministre, un secrétaire où
 un sous-secrétaire d'État temporaire, étranger, venu
 d'ailleurs, allant ailleurs; toujours provisoire, passager,
-intermittent, succédané, placé par quelque combinaï-
-son parlementaire; quelquesrancunes et quelques endur-
-
-cissements; quelques manœuvres éphémères, un bud-
+intermittent, succédané, placé par quelque combinaïson parlementaire; quelquesrancunes et quelques endurcissements; quelques manœuvres éphémères, un bud-
 
 . get particulier voté au hasard des combinaisons et des
 ou civils, également coloniaux; dominant le tout, le
@@ -4803,9 +4632,7 @@ aussi longtemps qu'il y aura commandement; lequel des
 deux, de cet immense objet circonférentiel, ou de ce
 point central infime; la nature, la raison, l'histoire
 demanderaient que, à ne considérer que les proportions
-mêmes, s'il faut qu'il y ait commandement, ce fat lob-
-
-jet circonférentiel qui commandât au centre; pour tout
+mêmes, s'il faut qu'il y ait commandement, ce fat lobjet circonférentiel qui commandât au centre; pour tout
 ce qui tient à lui, objet circonférentiel, et seulement
 pour cela; mais que l'on se rassure; ce ne sont point
 la nature, la raison, l'histoire qui gouvernent les gouvernemenis; la méthode de la centralisation ne manque
@@ -4836,8 +4663,7 @@ comme si leur amplitude était multipliée par la longueur
 même du rayon, comme si leur importance était multipliée par l'importance même de la masse, par son
 importance proportionnelle, par le rapport, par l'énorme
 rapport de la masse au point; ainsi les moindres inclinaisons politiques, au centre, les moindres caprices
-parlementaires, au centre, les moindres faveurs ministé-
-rielles, au centre, les moindres jeux gouvernementaux,
+parlementaires, au centre, les moindres faveurs ministérielles, au centre, les moindres jeux gouvernementaux,
 au centre, donnent automatiquement, à la périphérie,
 des variations, des altérations énormes de la masse;
 un mot dans une discussion parlementaire, non pas
@@ -4881,11 +4707,9 @@ C'est le renversement même, c'est le renversement bout
 pour bout du mouvement naturel, rationnel, raisonnable, historique; la nature, la raison, l'histoire
 
 demandent que ce soit la périphérie qui fasse l'appel, À
-qui donne la secousse initiale, qui fasse la toute pre-
-mière mise en train; la nature, la raison, l'histoire
+qui donne la secousse initiale, qui fasse la toute première mise en train; la nature, la raison, l'histoire
 demandent que le mouvement parte de la périphérie, de
-de la masse éloignée, de la partie circonférentielle inté-
-raison, l'histoire demandent que le mouvement remonte
+de la masse éloignée, de la partie circonférentielle intéraison, l'histoire demandent que le mouvement remonte
 au centre, parvienne au centre, atteigne le centre; et
 ne le mouvement d'autorité gouvernementale qui revient,
 Ù qui descend, qui part du centre, qui revient à la périHi phérie intéressée, ne doit être qu'une répouse à l'appel
@@ -4903,8 +4727,7 @@ le sens du courant qui fait la communication des colo-
 pour bout, un sens factice, le sens contraire.
 À Notons que le même phénomène se produit toutes les
 ‘TRE fois que fonctionne la méthode de la centralisation;
-peut-être pourrait-on dire que ce phénomène de retour-
-nement n'est pas essentiel à la méthode de la centralisation, qu'il en est un abus, ou le résultat d'un abus, et
+peut-être pourrait-on dire que ce phénomène de retournement n'est pas essentiel à la méthode de la centralisation, qu'il en est un abus, ou le résultat d'un abus, et
 non pas le résultat d'un exercice; et en effet, si l'on
 
 voulait s'en tenir à la rigueur d'une analyse qui remonterait elle-même à des recherches plus approfondies,
@@ -4944,10 +4767,8 @@ nous avait apporté le gouvernement de Madagascar;
 en pratique la première moilié de l'ancienne centralisation s'est usée la première, s'est effacée toute; à mesure que le gouvernement central croissait en force, en
 autorité de commandement, et que le sentiment de la
 liberté baïissait partout, disparaissait de partout, et
-particulièrement se refroidissait aux extrémités, la parte du mouvement qui venait de ces extrémités s'atté-
-nuait, s'oblitérait, elle aussi, et la partie du mouvement
-au contraire qui venait du centre envahissait toute l'opé-
-ration; si bien qu'aujourd'hui, et dans l'immense majorité
+particulièrement se refroidissait aux extrémités, la parte du mouvement qui venait de ces extrémités s'atténuait, s'oblitérait, elle aussi, et la partie du mouvement
+au contraire qui venait du centre envahissait toute l'opération; si bien qu'aujourd'hui, et dans l'immense majorité
 des cas, il est strictement vrai de dire que la méthode
 de la centralisation fonctionne ainsi, que limpulsion
 vient du centre, et que tout le mouvement social, qui
@@ -4968,8 +4789,7 @@ l'écart de l'angle, et la longueur de Téloignement, qui
 ne voit qu'étant donnée la longueur du rayon, toute
 variation d'angle donnée au centre où à proximité
 du centre ponctué ressort'aux extrémités en oscillations de plus en plus formidables; il y avait autrefois
-à la tête de la vingtième brigade d'infanterie fran-
-çaise, à laquelle, si j'ai bonne mémoire, j'ai l'honneur d'appartenir, un général qui se nommait, je crois,
+à la tête de la vingtième brigade d'infanterie française, à laquelle, si j'ai bonne mémoire, j'ai l'honneur d'appartenir, un général qui se nommait, je crois,
 Le Loup de Sancy de Rolland, ou de Roland; je puis
 bien le nommer, sans délation, puisqu'il est depuis plusieurs mois passé dans la deuxième section, réserve, de
 l'État-Major général de l'armée; autrement dit, il a
@@ -4987,7 +4807,7 @@ j'entends comme général, et non comme homme;
 
 Ne comme homme je ne le connais pas; on lui attribuaït
 à une certaine incapacité technique et professionnelle;
-à: enfin les officiers qui servaient sous ses ordres avaient
+enfin les officiers qui servaient sous ses ordres avaient
 coutume de résumer sa manière de la manière suix vante: Quand il disaient-ils, fait tourner la queue de
 de, son cheval, il veut que le dernier homme de la dernière
 
@@ -5007,9 +4827,7 @@ quart de cercle cet objet situé à proximité, il n'y avait
 
 aucune raison pour que les hommes situés à la dernière
 
-extrémité de sa brigade n'eussent pas fait, instantané-
-
-ment, un immense quart de cercle, proportionné.
+extrémité de sa brigade n'eussent pas fait, instantanément, un immense quart de cercle, proportionné.
 
 Nous sommes gouvernés ainsi; ne cherchons pas
 à ailleurs; nous tenons ici un symbole parfait; tous nos
@@ -5057,9 +4875,7 @@ dy. gouvernementale qu'il s'aligne, dans son gouvernement
 
 alignement de gouverneur général sur les fluctuations
 
-d'une opinion publique mouvante, corrompue, fléchis-
-
-sante et complètement désordonnée.
+d'une opinion publique mouvante, corrompue, fléchissante et complètement désordonnée.
 
 Si un alignement pris sur quelques rigidités centrales
 
@@ -5100,17 +4916,14 @@ de la métropole donne l'orientation à Paris, on ne se
 demande plus comment on peut se représenter cette
 orientation à Madagascar; c'est un alignement qui
 
-manque tout de même un peu de file de base, une orien-
-
-tation dont la boussole manque un peu de constance;
+manque tout de même un peu de file de base, une orientation dont la boussole manque un peu de constance;
 
 un gouvernement central qui s'oriente uniquement sur
 les fluctuations de la démagogie; et un gouvernement
 - colonial qui se guide uniquement sur les orientations
 du gouvernement central; cela donne un gouvernement
 colonïal qui se guide uniquement, au deuxième degré,
-sur les fluctuations, multipliées, des mouvements démagogiques; cette réduplication du déplacement caracté-
-risera le gouvernement colonial; et en lui s'achèvera
+sur les fluctuations, multipliées, des mouvements démagogiques; cette réduplication du déplacement caractérisera le gouvernement colonial; et en lui s'achèvera
 l'exercice de la tyrannie contemporaine.
 
 On peut la résumer ainsi; on peut la représenter
@@ -5132,13 +4945,10 @@ molle rebondissent en retombées de cette lourde masse
 dure; enfin, tout là-bas, un gouvernement général qui
 prend les agitations de ces remous démagogiques, les
 soubresauts de ce gouvernement central pour le point
-fixe de son orientation; déplacements doubles, redou-
-
-blés; aberration double, redoublée; premièrement les
+fixe de son orientation; déplacements doubles, redoublés; aberration double, redoublée; premièrement les
 aberrations informes et vaseuses, colloïdales, de ces
 détournées, sournoises, orgueilleuses et basses, rampantes et mordantes, servantes maîtresses, qui joignent toutes les corruptions de la fausse grandeur à
-toutes les corruptions des misères véritables; deuxiè-
-mement les aberrations raides subordonnées d'un gouvernement d'État; troisièmement les aberrations multipliées, agrandies d'un gouvernement colonial.
+toutes les corruptions des misères véritables; deuxièmement les aberrations raides subordonnées d'un gouvernement d'État; troisièmement les aberrations multipliées, agrandies d'un gouvernement colonial.
 
 Nous avons ici un schème parfait des servitudes contemporaïines, une représentation parfaite de la servitude,
 et de la tyrannie moderne; c'est à cela que nous sommes
@@ -5204,8 +5014,7 @@ Les tyrannies molles, anciennes, simplement molles,
 les tyrannies de plèbes, de tourbes et de foules avaient
 leurs avantages et leurs inconvénients; elles avaient
 naturellement plus d'inconvénients que d'avantages,
-puisqu'elles étaient des tyrannies, et qu'étant des tyrannies elles faisaient des servitudes; mais enfin elles pré-
-sentaient quelques avantages compensatoires; par leur
+puisqu'elles étaient des tyrannies, et qu'étant des tyrannies elles faisaient des servitudes; mais enfin elles présentaient quelques avantages compensatoires; par leur
 mobilité même, qui faisait leur mollesse, elles pouvaient
 éruptions des libertés, aux évasions, aux invasions,
 aux interruptions, aux brisures et aux introductions;
@@ -5221,8 +5030,7 @@ jamais ces deux tyrannies, qui paraissent inconciliables,
 
 incompatibles, aient coïncidé comme elles paraissent
 vouloir coïncider dans le monde moderne, d'une coïncidence aussi régulière, aussi organique, aussi solide,
-aussi statutaire, aussi parfaitement acceptée; considé-
-rons en effet comment fonctionnent, dans la réalité, nos
+aussi statutaire, aussi parfaitement acceptée; considérons en effet comment fonctionnent, dans la réalité, nos
 réellement démagogiques, nos gouvernements d'État;
 ils cumulent tous les inconvénients des tyrannies molles
 et tous les inconvénients des tyrannies dures; ils ajoutent
@@ -5313,12 +5121,10 @@ ouvriers et intellectuels, savants et financiers, dirigeants
 
 - et manœuvres... Au sommet une bourgeoisie financière,
 comme en Occident, mais sans aucune influence, plus
-bas une bourgeoisie moyenne, intellectuelle et commer-
-çante, et enfin un immense prolétariat juif.
+bas une bourgeoisie moyenne, intellectuelle et commerçante, et enfin un immense prolétariat juif.
 
 Un prolétariat méconnu, s'il en fut! Car la classe la
-plus forte, la plus homogène, masse vraiment caracté-
-ristique de la nation, — le prolétariat juif a été de tout
+plus forte, la plus homogène, masse vraiment caractéristique de la nation, — le prolétariat juif a été de tout
 temps ignoré. On n'a jamais étudié le Juif que dans sa
 bourgeoisie, dit avec raison M. Bernard-Lazare, et les
 historiens juifs n'ont jamais fait que l'histoire de la
@@ -5331,11 +5137,8 @@ bourgeoisie juive et à l'usage des bourgeois juifs de
 leur temps. (1)
 
 Le Juif trafiquant, manieur d'argent, la bourgeoisie
-commerçante juive accaparait à elle seule la scène his-
-
-torique. Les antisémites l'attaquaient, les historiens juifs
-plaidaient les circonstances atténuantes. Mais le prolé-
-tariat, la masse juive, on se refusait à la voir, on persistait à la méconnaître.
+commerçante juive accaparait à elle seule la scène historique. Les antisémites l'attaquaient, les historiens juifs
+plaidaient les circonstances atténuantes. Mais le prolétariat, la masse juive, on se refusait à la voir, on persistait à la méconnaître.
 
 Il se révéla au cours des dernières vingt-cinq années.
 Et des plaines glacées de Yakoutsk, où travaillent les
@@ -5431,8 +5234,7 @@ Société de Colonisation juive, est un ouvrage capital où les diverses
 manifestations de l'activité sociale des Juifs russes sont étudiées
 avec un soin tout particulier. Il est à regretter seulement que pour
 des raisons d'ordre fiscal et administratif le Recueil ne contienne
-pas de renseignements sur la classe de marchands, d'intermé-
-diaires et d'industriels.
+pas de renseignements sur la classe de marchands, d'intermédiaires et d'industriels.
 
 On voit donc que dans la population juive en Russie,
 l'artisan, l'ouvrier, le petit boutiquier prédominent. Les
@@ -5524,11 +5326,9 @@ Nombre des
 Si nous retranchons de ce tableau les artisans, aideHe artisans et apprentis des dix gouvernements de la
 Pologne, dont les nombres respectifs sont de 63.654,
 27.801 et 25.216, nous verrons que dans une période de
-dix à onze ans le nombre des petits artisans, nous vou-
-lons dire des patrons, dans les quinze gouvernements
+dix à onze ans le nombre des petits artisans, nous voulons dire des patrons, dans les quinze gouvernements
 4 195.982 en 1901), tandis que celui des ouvriers (aideartisans et apprentis) n'a augmenté que de 31.254
-Le taux moyen des salaires, tant dans les ateliers d'arti-
-sans que dans les fabriques, peut être considéré comme
+Le taux moyen des salaires, tant dans les ateliers d'artisans que dans les fabriques, peut être considéré comme
 un taux de famine. Il ne dépasse pas 3 roubles et demi
 É ou 4 roubles par semaine. Les salaires les plus fréquents
 1| sont de 2 roubles et demi à 3 roubles par semaine;
@@ -5593,10 +5393,7 @@ inconnu. Néanmoins, — métamorphose difficile entre
 toutes, — les boutiquiers, les marchands et les artisans
 juifs établis par le gouvernement russe en 1807 et 1808
 dans les steppes des gouvernements de Kherson et
-colons. Il résulte d'une étude approfondie sur les colo16
-
-nies agricoles juives publiée dans le Recueil de maté-
-riaux que les agriculteurs juifs sont mieux outillés que
+colons. Il résulte d'une étude approfondie sur les colonies agricoles juives publiée dans le Recueil de matériaux que les agriculteurs juifs sont mieux outillés que
 les paysans russes et qu'ils ne le cèdent en rien aux colons
 des autres nationalités établis dans le Midi de la Russie.
 Si l'on considère tous les obstacles (règlements vexatoires, rigueurs administratives, calamités naturelles)
@@ -5663,18 +5460,15 @@ les bureaux de l'administration, voire clercs de notaires;
 3 on les accable d'impôts spéciaux sur leurs loyers, sur
 4 leurs héritages, sur les viandes qu'ils tuent et sur les
 put bougies qu'ils allument le vendredi soir.
-de A côté de ces taxes officielles décrétées par le gouji vernement russe, ils subissent l'exploitation de l'admi-
-nistration et de la police moscovites, les plus corrompues,
+de A côté de ces taxes officielles décrétées par le gouji vernement russe, ils subissent l'exploitation de l'administration et de la police moscovites, les plus corrompues,
 les plus vénales et les plus abjectes de l'Europe.
 il C'est surtout la classe des travailleurs qui est victime
 ‘le des vexations policières et du boycottage public. Les
-si usines d'État, de fournisseurs d'État, les usines chré-
-tiennes, en général, leur sont fermées. Les conseils
+si usines d'État, de fournisseurs d'État, les usines chrétiennes, en général, leur sont fermées. Les conseils
 municipaux antisémites obligent les adjudicataires de
 travaux publics à ne pas employer d'ouvriers juifs.
 Bref, l'antisémitisme gouvernemental et public s'ap-
-ï plique systématiquement à ravaler les Juifs, le prolé-
-tariat juif surtout, au niveau des parias.
+ï plique systématiquement à ravaler les Juifs, le prolétariat juif surtout, au niveau des parias.
 De Et malgré cela, c'est l'organisation prolétarienne juive
 ! qui paraît la plus dangereuse à l'autorité russe.
 Les ouvriers d'usines juifs ne forment que 2 o/o du
@@ -5748,9 +5542,7 @@ aux Juifs d'avoir à leur service des chrétiens. [Cette
 
 dernière loi fut confirmée en 1835 par Nicolas premier;
 
-4 mais la peine de mort fut remplacée par l'emprisonne-
-
-ment (Leroy-Beaulieu, Empire des Tsars, III, page 630).]
+4 mais la peine de mort fut remplacée par l'emprisonnement (Leroy-Beaulieu, Empire des Tsars, III, page 630).]
 
 ; Sous Catherine première la Petite-Russie, théâtre des
 
@@ -5843,8 +5635,7 @@ soldats levés parmi les Juifs, enfants de douze ans,
 Sous Alexandre IL, fis de Nicolas, les Israélites pour
 la première fois purent respirer. Aucune des lois restrictives ne fut abolie ni rapportée, mais elles furent
 appliquées avec moins de rigueur; on tolérait le séjour
-des juifs hors de leur ghetto territorial; ils purent fré-
-quenter les Universités et, une fois leurs études terminées, habiter partout.
+des juifs hors de leur ghetto territorial; ils purent fréquenter les Universités et, une fois leurs études terminées, habiter partout.
 
 C'est sous le règne d'Alexandre IL en 1871 qu'eut
 
@@ -5858,9 +5649,7 @@ ville témoignèrent à la Framce pendant la guerre de
 1870-71, ne trouva pas de meilleure vengeance que de
 1 lâcher quelques milliers de Russes et de Grecs sur les
 ai juifs d'Odessa. Le pillage dura trois jours et a servi de
-précédent et de modèle aux émeutes de 1881 et au mas-
-
-sacre de Kichinev. C'est également sous Alexandre
+précédent et de modèle aux émeutes de 1881 et au massacre de Kichinev. C'est également sous Alexandre
 que les accusations de meurtre rituel se multiplièrent
 
 ï contre les Israélites. A Saratov, notamment, plus d'une
@@ -5898,8 +5687,7 @@ avaient participé aux couspirations contre le « tsar
 
 (1) Un oukase de date récente accorde le droit de séjour hors du
 « Territoire » aux familles des militaires ayant fait la campagne
-actuelle, aux conseillers de commerce israélites, etc.; mais il w'ap-
-porte guère de modifications notables au droit du séjour des Juifs
+actuelle, aux conseillers de commerce israélites, etc.; mais il w'apporte guère de modifications notables au droit du séjour des Juifs
 ; dans l'intérieur de la Russie.
 
 libérateur ». La presse signala le Juif, « ce pelé, ce
@@ -6017,8 +5805,7 @@ commerce se développe, grâce à la construction des
 
 . chemins de fer. Dans un espace de trente ans la population des villes s'accroît rapidement jusqu'à décupler
 
-dans certains centres industriels. Une nouvelle caté-
-gorie d'ouvriers apparaît, — les travailleurs d'usines et
+dans certains centres industriels. Une nouvelle catégorie d'ouvriers apparaît, — les travailleurs d'usines et
 l'industrie ne reste pas sans influence sur la petite
 industrie. La capitalisation des métiers commence: le
 travail sur commande fait place au travail pour le
@@ -6054,8 +5841,7 @@ politiques de l'époque. L'auréole dont furent entourés,
 je dans les milieux avancés, les noms de Karl Marx,
 À le fondateur du socialisme scientifique, et de Ferdinand
 Lassalle, le fondateur du parti ouvrier allemand,
-4 — tous les deux juifs; — la possibilité de colla-
-borer à l'avènement d'un régime libre dans ces milieux
+4 — tous les deux juifs; — la possibilité de collaborer à l'avènement d'un régime libre dans ces milieux
 plus ou moins exempts des préjugés antijuifs encore
 très vivaces même chez les libéraux moscovites; ensuite
 le tempérament, le penchant révolutionnaire qui, quoi
@@ -6071,9 +5857,7 @@ les premières victimes. On déchaïîna contre eux la
 
 NE populace des villes; une série d'émeutes commença, où
 les juifs furent saccagés, pillés et parfois massacrés; la
-presse, la presse officielle surtout, les autorités approu-
-
-vaient hautement ces émeutes, les glorifiaient même
+presse, la presse officielle surtout, les autorités approuvaient hautement ces émeutes, les glorifiaient même
 comme un acte de protestation du peuple orthodoxe
 : fidèle au Tsar et à la Sainte Foi contre ces juifs fomenteurs de troubles et éternels perturbateurs. Quelques
 « révolutionnaires » mêmes, dans leurs manifestes,
@@ -6121,14 +5905,11 @@ avenir meilleur il faut savoir le conquérir. »
 cependant remarquer que ces pionniers ne pensaient
 à pas créer un grand mouvement ouvrier juif indépen-
 Ï dant; ils n'attribuaient à ce mouvement en lui-même
-qu'une importance secondaire et leurs yeux étaient tou-
-jours tournés vers l'ouvrier russe, duquel ils attendaient
+qu'une importance secondaire et leurs yeux étaient toujours tournés vers l'ouvrier russe, duquel ils attendaient
 le salut de l'ouvrier juif. Attachés au « Territoire dit
 un rapport du « Bund ne pouvant pas consacrer
 à leurs forces au service de la cause révolutionnaire
-russe, les intellectuels juifs commencent une propa-
-
-gande active parmi le prolétariat israélite.
+russe, les intellectuels juifs commencent une propagande active parmi le prolétariat israélite.
 Cette propagande avait au début un caractère théorique; on enseignait aux ouvriers l'histoire, les sciences
 naturelles, la géographie, l'économie politique; on a
 créé ainsi une élite ouvrière; en même temps des cercles
@@ -6143,9 +5924,7 @@ A forcément restreinte de petits cénacles succède une
 
 vaste agitation. Le mouvement prend de l'extension. IL …
 gagne Minsk, Smorgon et Varsovie. En Pologne, où la
-masse ouvrière juive était moins avancée qu'en Lithua34
-
-nie et la classe cultivée beaucoup plus assimilée, le
+masse ouvrière juive était moins avancée qu'en Lithuanie et la classe cultivée beaucoup plus assimilée, le
 mouvement ouvrier juif s'est développé beaucoup plus
 
 Mais il devient à Vilna, en Lithuanie, et en Russie
@@ -6176,9 +5955,7 @@ aura l'impossibilité d'améliorer sa situation économique sous tel ou tel rég
 économique et politique sont donc étroitement liées
 entre elles.
 
-L'auteur préconise une agitation continue et persévé-
-rante dans la masse ouvrière par les agitateurs intel-
-lectuels. Une communion étroite doit toujours exister
+L'auteur préconise une agitation continue et persévérante dans la masse ouvrière par les agitateurs intellectuels. Une communion étroite doit toujours exister
 entre ouvriers et propagandistes. La théorie et la
 à pratique, les cercles d'études et la large agitation, loin
 ! de se contredire, doivent se compléter.
@@ -6209,15 +5986,9 @@ Mais il faut qu'elle s'organise, qu'elle puisse soutenir
 ses revendications et faire sentir le poids de sa
 L'affranchissement des ouvriers juifs doit être l'œuvre
 ù des ouvriers juifs eux-mêmes. Il y a des droits à conquérir au prolétariat juif, droit de libre séjour, droit à
-l'instruction; ces droits qui sont pour nous des reven-
+l'instruction; ces droits qui sont pour nous des revendications essentielles ne Sauraient avoir pour le prolétariat russe qu'une valeur de Principe. C'est donc un
 
-dications essentielles ne Sauraient avoir pour le proléta-
-
-riat russe qu'une valeur de Principe. C'est donc un
-
-parti ouvrier juif qui doit conquérir ses droits spéci-
-
-constitution d'un tel parti, spécialement juif, ne
+parti ouvrier juif qui doit conquérir ses droits spéciconstitution d'un tel parti, spécialement juif, ne
 Saurait être en contradiction avec les principes internationalistes du socialisme, car il n'existe pas parmi les
 juifs de parti national, révolutionnaire et non socialiste:
 la conscience prolétarienne ne sera donc pas obscurcie.
@@ -6303,9 +6074,7 @@ Quelques mois après le congrès, 1898, le « Parti
 « Union générale ouvrière juive » est connue en Russie, et c'est
 ainsi que nous l'appellerons au cours de ces chapitres.
 
-tué, le « Bund » entre, à titre d'organisation auto-
-
-nome. Le parti accorde au « Bund » de pleins pouvoirs
+tué, le « Bund » entre, à titre d'organisation autonome. Le parti accorde au « Bund » de pleins pouvoirs
 
 dans toutes les questions relatives au prolétariat juif.
 
@@ -6347,9 +6116,7 @@ Les fonds du « Bund » sont alimentés surtout par les
 caisses de grèves (caisses de combat). Le nombre des
 ouvriers, membres de ces caisses, payant régulièrement
 leurs cotisations, a été en 1900 de 200 à Bialystok
-(20 o/o du nombre total des ouvriers israélites orga-
-
-nisés de la ville), 180 à Gomel (40 o/o), 350 à Vilna
+(20 o/o du nombre total des ouvriers israélites organisés de la ville), 180 à Gomel (40 o/o), 350 à Vilna
 
 Ces caisses de grève, comme leur nom l'indique,
 poursuivent un but économique. Mais elles subventionnent en même temps les bibliothèques ouvrières et
@@ -6370,8 +6137,7 @@ membres du parti arrêtés ou déportés, et contrèle
 Vactivité des organisations bundistes à l'étranger.
 
 L'organe suprême du parti est le congrès. Depuis la
-constitution du parti cinq congrès ont lieu. Les délé-
-gués des comités locaux et des deux associations
+constitution du parti cinq congrès ont lieu. Les délégués des comités locaux et des deux associations
 ouvrières professionnelles « Union des trieurs de
 soies pour brosses » et « Union des mégissiers y
 
@@ -6407,9 +6173,7 @@ dont 80 se sont terminées par la victoire des ouvriers,
 12 par un échec, et 3 par une réussite partielle.
 
 : Signalons encore quelques autres réclamations: la
-É suppression du travail aux pièces, le renvoi des contrex maîtres, l'organisation des secours médicaux, la dimi-
-
-nution ou la suppression des amendes et du travail de
+É suppression du travail aux pièces, le renvoi des contrex maîtres, l'organisation des secours médicaux, la diminution ou la suppression des amendes et du travail de
 nuit, la demande de réintégration des ouvriers révoqués, etc.
 
 Il faut noter que lorsqu'il s'agit de la réintégration
@@ -6431,8 +6195,7 @@ ateliers d'artisans de 21 jours et demi (817 jours pour
 une dura 18 semaines; une, — 15 semaines; deux, —
 de 1 à 2 semaines (33,7 0/0); et vingt, — moins d'une
 
-Il faut remarquer que grâce à ces grèves les travail-
-leurs israélites sont parvenus dans différentes villes à
+Il faut remarquer que grâce à ces grèves les travailleurs israélites sont parvenus dans différentes villes à
 améliorer notablement leurs conditions d'existence. Les
 
 salaires dans quelques endroits (peu nombreux d'ailleurs) ont augmenté de 15 à 40 0/0, dans d'autres de
@@ -6462,9 +6225,7 @@ lesquels lutte le « Bund sont eux aussi des prolétaires.
 En quelques années, toutes les concessions possibles
 ont été obtenues d'eux grâce à la solidarité des travailleurs. Et encore le sort de l'ouvrier ne s'est guère
 amélioré. Car s'il travaille moins et s'il est payé un peu
-mieux, il chôme davantage, par suite de la dispari-
-
-tion lente mais fatale de la petite industrie, et de la
+mieux, il chôme davantage, par suite de la disparition lente mais fatale de la petite industrie, et de la
 crise générale où se débat depuis vingt-cinq ans la
 Russie et que les persécutions gouvernementales et les
 à haines de races ne font qu'aggraver. Quant à la grande
@@ -6669,9 +6430,7 @@ par l'intransigeance du parti et par les attaques de
 l'Iskra.
 
 Comme nous l'avons déjà dit, le Parti socialiste russe
-reconnaissait dans son « Manifeste » à chaque nationa-
-
-lité « le droit à la reconnaissance et à l'aflirmation de
+reconnaissait dans son « Manifeste » à chaque nationalité « le droit à la reconnaissance et à l'aflirmation de
 son individualité propre ». Ce droit vague et mal défini
 n'a pas peu contribué à tenir.à l'écart du parti
 russe les organisations et les partis socialistes de
@@ -6703,8 +6462,7 @@ affaires touchant cette nationalité.
 Les droits des minorités nationales seront garantis par des
 4 lois spéciales préparées par le Parlement central.
 
-se détacher du parti, et de travailler en toute indépen-
-dance. Mais cette scission a sans doute affaibli le parti.;:
+se détacher du parti, et de travailler en toute indépendance. Mais cette scission a sans doute affaibli le parti.;:
 - On ne peut que le regretter pour les chefs de la Socialdémocratie russe, qui ont sacrifié à l'unitarisme étroit
 et forcé, — héritage de l'absolutisme russe, — les
 intérêts supérieurs de la cause socialiste.
@@ -6731,13 +6489,9 @@ décédé, s'achemine à son but par plusieurs voies. Les
 
 négociations diplomatiques entamées avec le Sultan et
 
-les grandes puissances, la création d'institutions finan-
+les grandes puissances, la création d'institutions financières (la « Banque coloniale juive » et le « Fonds
 
-cières (la « Banque coloniale juive » et le « Fonds
-
-national destinées à l'achat des territoires pales-
-
-te tiniens, l'agitation et la propagande en faveur de la
+national destinées à l'achat des territoires paleste tiniens, l'agitation et la propagande en faveur de la
 
 cause sioniste dans les milieux juifs et non-juifs, telles
 sont les différentes manifestations de l'activité sioniste.
@@ -6762,8 +6516,7 @@ lueur de joie capable d'éclairer l'existence dans les
 ghettos du moyen-âge.
 
 Ce n'est que vers la fin du dix-huitième siècle, sous
-la poussée des idées égalitaires de la Révolution fran-
-çaise, qu'un changement survint. Le Sanhédrin convoqué par Napoléon en France, Moïse Mendelssohn et ses
+la poussée des idées égalitaires de la Révolution française, qu'un changement survint. Le Sanhédrin convoqué par Napoléon en France, Moïse Mendelssohn et ses
 disciples en Allemagne déclarent qu'ils ne reconnaissent pas d'autre patrie pour le juif que celle où il
 est et à laquelle il est tenu par des relations civiques. Le Sionisme, pour Mendelssohn et ses adeptes,
 n'était plus le retour dans la terre des ancêtres. C'était
@@ -6799,9 +6552,7 @@ dans le livre retentissant de Moïse Hess, « Rome et
 
 : Jérusalem paru au lendemain du jour où les juifs
 allemands avaient acquis légalité des droits.
-En Russie, les théories du philosophe juif d'Alle-
-
-magne n'ont exercé aucune action sur ses coreligionpaires. Le souffle puissant de la Révolution n'est pas
+En Russie, les théories du philosophe juif d'Allemagne n'ont exercé aucune action sur ses coreligionpaires. Le souffle puissant de la Révolution n'est pas
 parvenu jusqu'aux bourgades juives de Pologne et de
 Lithuanie. L'émancipation des israélites, proclamée en
 France dès 1789, commençait à peine en Russie dans
@@ -6840,8 +6591,7 @@ première, fut fondée en 1879, en Palestine.
 
 En 1881 des émeutes antijuives se produisirent dans
 plusieurs villes de la Russie. C'est alors que parut la
-brochure du docteur Pinsker, un juif russe: « auto-
-émancipation qui préludait au sionisme politique,
+brochure du docteur Pinsker, un juif russe: « autoémancipation qui préludait au sionisme politique,
 comme le dit M. Max Nordau, et contenait déjà ses
 principes essentiels. Les juifs, d'après M. Pinsker, ne
 sont pas seulement un groupement religieux, mais
@@ -6873,8 +6623,7 @@ des sionistes russes que sont alimentés les fonds du
 de Russie, dont le dénuement dépasse celui des prolé-
 4 _taires les plus misérables de l'univers, ils trouvent
 moyen de contribuer, à force d'héroïques sacrifices, par
-une cotisation minime en fait, mais relativement oné-
-reuse pour eux, à l'œuvre de la propagande sioniste,
+une cotisation minime en fait, mais relativement onéreuse pour eux, à l'œuvre de la propagande sioniste,
 si Ainsi, la majorité des actionnaires de la « Banque colo-
 À niale sioniste » et des souscripteurs du « Fonds Natio4: nal — établissements financiers du Parti, — se trouve
 
@@ -6928,9 +6677,7 @@ philanthropie très large, il est vrai, « dédaignant les
 
 sentiers battus de la charité dégradante pour utiliser au
 
-profit des misérables les ressources de l'économie so-
-
-ciale (1) au contraire, les sionistes russes voient en lui
+profit des misérables les ressources de l'économie sociale (1) au contraire, les sionistes russes voient en lui
 
 leur régénération et leur rédemption nationale. Retour
 
@@ -6942,17 +6689,13 @@ Territoire juif d'un réseau d'écoles, de bibliothèques,
 
 de salles de lecture. L'action économique n'a pas été
 
-; négligée non plus. Des caisses d'épargne, des coopéra-
-
-tives de production et de consommation ont été créées
+; négligée non plus. Des caisses d'épargne, des coopératives de production et de consommation ont été créées
 
 dans plusieurs villes. La littérature hébraïque a pris,
 
 grâce au sionisme, un nouvel et puissant essor. Des
 
-journaux, des revues, paraissant à des milliers d'exem-
-
-plaires, se sont fondés. Toute une pléiade de poètes,
+journaux, des revues, paraissant à des milliers d'exemplaires, se sont fondés. Toute une pléiade de poètes,
 
 5 (Bialik, Tchernichovsky) d'écrivains et de philosophes,
 
@@ -7064,9 +6807,7 @@ Les bundistes accusaient les sionistes de faire le jeu
 3 du gouvernement russe, en s'abstenant de le combattre
 et en préchant l'indifférentisme en matière politique. De
 leur côté, les sionistes reprochaient aux bundistes de
-sacrifier les ouvriers israélites, soit aux bénéfices aléatoires de la Révolution russe, soit au profit d'une Constitution qui ne saura suflire à garantir la liberté inté-
-
-grale du peuple juif.
+sacrifier les ouvriers israélites, soit aux bénéfices aléatoires de la Révolution russe, soit au profit d'une Constitution qui ne saura suflire à garantir la liberté intégrale du peuple juif.
 
 Cependant, au cours de ces dernières années, le temps
 et les circonstances aidant, une détente s'était produite.
@@ -7074,9 +6815,7 @@ D'un côté les bundistes se sont rapprochés de leur
 peuple, en se groupant en une organisation nationale
 israélite, en adoptant la langue juive, en reconnaissant le droit du peuple juif à une autonomie nationale en Russie.
 
-De l'autre côté les sionistes, la jeunesse sioniste sur-
-
-tout, ont reconnu la nécessité, dans l'intérêt même du
+De l'autre côté les sionistes, la jeunesse sioniste surtout, ont reconnu la nécessité, dans l'intérêt même du
 sionisme, de combattre le tsarisme qui avilit et dégrade
 le peuple juif en Russie et entrave par tous les moyens
 
@@ -7116,8 +6855,7 @@ vérité qu'Israël poursuit avec une ténacité inlassable.
 Dans la grande lutte pour l'émancipation humaine, le
 À peuple de la Bible et des prophètes n'abdique pas ses
 
-Tous les hommes naissent et de-
-meurent libres et égaux en droits.
+Tous les hommes naissent et demeurent libres et égaux en droits.
 Nul ne pourra être inquiété pour
 ses opinions religieuses.
 Déclaration des Droits de
@@ -7132,8 +6870,7 @@ sceaux et de centreseings pour fonder un comptoir à Santiago
 ou faire sa fortune à la Bourse de Johannesburg, que pour
 passer une nuit d'hôtel à Varsovie. Le titre de citoyen
 français, qui devrait, à lui seul, assurer à tous ceux qui le
-portent, dans leurs relations avec l'étranger, un égal respect un traitement égal, est de nul effet sur les repré-
-sentants de l'administration russe en France indépendamment, si je puis dire, de son support confessionnel; et il y
+portent, dans leurs relations avec l'étranger, un égal respect un traitement égal, est de nul effet sur les représentants de l'administration russe en France indépendamment, si je puis dire, de son support confessionnel; et il y
 a vraiment quelque étrangeté à n'avoir jamais fait valoir,
 aux yeux de la chancellerie amie et alliée, la dignité de ce
 titre, qui se suflit à lui-même. Je sais la modestie de ma
@@ -7145,8 +6882,7 @@ On acclame la France, mais, quand les jours de liesse
 sont passés, que les délégations chamarrées se sont évanouies avec la fumée du champagne, on l'arrête à la frontière, comme les autres nations, peut-être un peu plus que
 
 : les autres, étant plus représentative de la liberté: l'esprit
-français n'est pas article d'importation. Donc, même Fran-
-çais, et même catholique, l'étranger, suspect par définition,
+français n'est pas article d'importation. Donc, même Français, et même catholique, l'étranger, suspect par définition,
 
 n'entre sur le territoire russe que s'il a été dûment étiqueté
 et parafé au départ. Mais, s'il est protestant, surtout s'il
@@ -7214,20 +6950,14 @@ Kichines n'est pas loin dans l'espace, — quatre heures de
 chemin de fer, — ni dans le temps, — trois mois à peine, —
 
 ils se ressentent encore de l'ébranlement qu'ils ont éprouvé,
-et la même impression se dégage de toutes les conversa-
+et la même impression se dégage de toutes les conversations: ici, on peut toujours craindre un Kichinev, mais un
 
-tions: ici, on peut toujours craindre un Kichinev, mais un
-
-Kichiney pire que l'autre, un Kichinev « sans fin »: l''admi-
-
-nistration de ce pays a bien le pouvoir de « laisser faire
+Kichiney pire que l'autre, un Kichinev « sans fin l''administration de ce pays a bien le pouvoir de « laisser faire
 
 — euphémisme correct; — aurail-elle aussi sûrement celui
 d'arrêter? Heureux donc les juifs de Russie, puisqu'ils ne
 
-sont pas à la merci de brutalités spontanées récalci-
-
-trantes à la répression, mais bien sous la tutelle d'une
+sont pas à la merci de brutalités spontanées récalcitrantes à la répression, mais bien sous la tutelle d'une
 
 administration forte qui intervient toujours... d'abord pour
 
@@ -7373,18 +7103,14 @@ comme un témoignage devant la justice, par un personnage
 très important de la ville, un homme d'intelligence très
 nette, qui connaît la valeur des mots, et qui ne dit que ce
 qu'il sait et voit. C'est le dimanche à six heures du soir
-que lui parviennent les premiers bruits de l'émeute com-
-
-mençante. Comme depuis plusieurs jours on discutait en
+que lui parviennent les premiers bruits de l'émeute commençante. Comme depuis plusieurs jours on discutait en
 ville au sujet des troubles prévus, il comprit immédiatement
 À que l'affaire serait sérieuse. La soirée apporta cependant
 
 a quelque apaisement dans la rue et dans les esprits. Mais le
 
 4 lundi matin à huit heures des gens accourent de divers
-côtés chez lui, lui annoncent que la foule recom-
-
-mence à s'agiler, que les personnes et les propriétés sont
+côtés chez lui, lui annoncent que la foule recommence à s'agiler, que les personnes et les propriétés sont
 il menacées, qu'aucune mesure n'est prise pour leur protecy tion. À huit heures et demie, deux:des israélites les plus
 
 considérés et les plus influents de la ville se rendent chez
@@ -7492,8 +7218,7 @@ faut bien se représenter et comme revivre, avec un frisson
 d'épouvante, quand on parle à ceux qui en furent témoins,
 qui vous disent les détails précis, la rue où l'événement
 s'est passé, les circonstances de brutalité qui l'entourèrent,
-le nom de l'amie qui en fut victime, l'horreur de ces situa-
-tions d'autant plus douloureuses qu'il faut les cacher et que
+le nom de l'amie qui en fut victime, l'horreur de ces situations d'autant plus douloureuses qu'il faut les cacher et que
 la vengeance est impossible.
 Histoires touchantes aussi, d'héroïsme ou de charité. Le
 gardien d'une synagogue refusa d'ouvrir porte et de
@@ -7517,8 +7242,7 @@ jeunes filles et femmes chrétiennes qui s'offrirent immédiatement et s'employ�
 beaucoup du père Jean qui, le lendemain du massacre,
 manifesta, par une lettre aux Novosti, un bon mouvement
 de pitié pour les innocents, — qu'il rétracta deux jours
-plus tard, — de l'archevêque de Jitomir, qui, tout en vitu-
-pérant le socialisme, prit en chaire la défense des massacrés. On cite surtout le cas très significatif d'un oflicier de
+plus tard, — de l'archevêque de Jitomir, qui, tout en vitupérant le socialisme, prit en chaire la défense des massacrés. On cite surtout le cas très significatif d'un oflicier de
 cavalerie: posté avec ses hommes à langle de deux rues,
 il entend à peu de distance, comme partant d'une cour ou
 d'une cave, des cris et des appels: entre sa compassion
@@ -7575,12 +7299,9 @@ Et particulièrement de Démètre Pisarjewski, un des ardents
 : du Bessarabetz, ami de Kruchevan et son contraire, dont
 l'existence est un roman, ou le fut, — car elle vient de se
 terminer de tragique façon. Peut-être fils de juive, Démèêtre
-Pisarjewski était antisémite par besoin d'action et par élé-
-gance; jeune, riche, brillant, heureux, épris de la vie, il
+Pisarjewski était antisémite par besoin d'action et par élégance; jeune, riche, brillant, heureux, épris de la vie, il
 était le coq du village et tout le monde savait ses aventures
-aimables, dont la diversité lamusait sans que leur simultanéité le gênât. Dans les journées de Kichinev il eut la mala-
-
-dresse, sinon de diriger les assaillants, du moins de se;
+aimables, dont la diversité lamusait sans que leur simultanéité le gênât. Dans les journées de Kichinev il eut la maladresse, sinon de diriger les assaillants, du moins de se;
 montrer au milieu d'eux avec sa casquette d'uniforme, et,
 parmi ces forcenés, de se distinguer par une particulière
 épilepsie, où l'alcool peut-être n'était pas étranger. Il fallut
@@ -7622,8 +7343,7 @@ la nuit se passe à l'église dans la joie du Christ ressuscité,
 au cerveau de beaucoup de ces élégants et de ces élégantes
 qui applaudirent les émeutiers, et s'offrirent la curiosité de
 1 regarder faire des victimes. — On fait remarquer que les
-poches des morts furent soigneusement vidées et que l'arEUrAl gent disparu s'élève à 250.000 roubles, que la grande majo-
-rité des émeutiers arrêtés ne sont pas de la ville, mais de
+poches des morts furent soigneusement vidées et que l'arEUrAl gent disparu s'élève à 250.000 roubles, que la grande majorité des émeutiers arrêtés ne sont pas de la ville, mais de
 va-nu-pieds du dehors, des gens sans aveu, chemineaux
 qu'attire toujours la richesse d'un pays où le tonneau coûte
 plus cher que le vin, habitués des traktirs de Nijni-
@@ -7634,8 +7354,7 @@ le poignet des morceaux de plomb arrachés aux conduites
 d'eau qu'ils brisaient au fur et à mesure de l'attaque, et
 beaucoup des blessures atroces qu'on a observées sur les
 victimes ont été faites avec ces armes improvisées. Et les
-; souvenirs se pressent s'accumulent, accusateurs. On sen-
-tait si bien l''émeute se former que le Grand-Rabbin de
+; souvenirs se pressent s'accumulent, accusateurs. On sentait si bien l''émeute se former que le Grand-Rabbin de
 Kichinev fit une démarche auprès de l'évêque orthodoxe
 pour lui demander de calmer les esprits: celui-ci se contenta de répondre qu'il croyait parfaitement que les Juifs
 faisaient le pain azyme avec le sang des enfants chrétiens: (1)
@@ -7643,8 +7362,7 @@ faisaient le pain azyme avec le sang des enfants chrétiens: (1)
 lrop s'étonner. Pour des Juifs français, habitués à d'autres mœurs,
 une démarche de ce genre revêtirait une sorte de dignité correcte,
 lAQNE due à légalité des personnes, à leur confraternité dans le fonctionnarisme ecclésiastique, à leur commun désir de paix. Il n'en
-est pas de même dans un pays où Dieu n'est que le Dieu des ortho-
-doxes, où le prêtre juif west rien. De fait, les communautés juives
+est pas de même dans un pays où Dieu n'est que le Dieu des orthodoxes, où le prêtre juif west rien. De fait, les communautés juives
 russes, — sauf en Pologne où elles ont gardé l'organisation que
 leur octroya Napoléon premier, — n'ont personne qui puisse parler
 avec autorité en leur nom; il y a généralement deux rabbins, —
@@ -7666,8 +7384,7 @@ faire demain? — N'ayez pas peur, répondit-il, à vous on ne
 fera rien. » — Vers le milieu de mai, comme l'agitation
 renaissait, un des blessés de Pâques, décidé à partir à
 l'étranger, faisait une démarche au bureau de police pour
-obtenir son passeport; il y rencontra beaucoup de chré-
-tiens, qui demandaient l'autorisation d'avoir des armes,
+obtenir son passeport; il y rencontra beaucoup de chrétiens, qui demandaient l'autorisation d'avoir des armes,
 pour eux, pour leurs domestiques, pour leurs valets
 d'écurie. Notre juif sollicite la même autorisation: on
 lavait accordée aux autres, on la lui refuse, il interroge,
@@ -7693,16 +7410,14 @@ pourrait pas le présenter ainsi à l'empereur. Les délégués
 juifs de Kichinev allèrent rendre visite au gouverneur
 
 1 d'Odessa, subirent, en manière de consolation, un discours
-qui était une apologie de l'antisémitisme et qui se termi-
-nait, naturellement, par des considérations sur le socialisme. Même semonce de M. de Plehwe aux délégués de
+qui était une apologie de l'antisémitisme et qui se terminait, naturellement, par des considérations sur le socialisme. Même semonce de M. de Plehwe aux délégués de
 Kichinev qui vinrent lui demander audience à Pétersbourg
 et qu'il reçut d'ailleurs correctement: il se défendit d'être
 antisémite, mais porla contre eux la même accusation:
 « Vous êtes socialistes! » — Ce qui lui attira cette
 réplique: « Nous ne l'étions pas en 1881! » — Dans la
 presse, tout ce qui n'accabla pas les juifs, fut suspect: le
-: Droit, de Saint-Pétersbourg, qui disait que ces deux jour-
-nées étaient une honte pour le pays, reçut une observation
+: Droit, de Saint-Pétersbourg, qui disait que ces deux journées étaient une honte pour le pays, reçut une observation
 très sévère; le Voskhod, journal juif de Pétersbourg, reçut
 deux observations, deux semaines de suite; à la troisième
 il aurait été supprimé. Le premier numéro du Bessarabetz
@@ -7723,9 +7438,7 @@ volontiers le tsar. Le tsar n'est pas en cause. Dans la nuit
 
 de Pâques, à l'heure bienheureuse où les fidèles échangent
 
-le baiser sur la bouche pour fêter la Résurrection du Sau-
-
-veur, Nicolas ne savait sans doute pas que le lendemain,
+le baiser sur la bouche pour fêter la Résurrection du Sauveur, Nicolas ne savait sans doute pas que le lendemain,
 
 ; sur un point déterminé de son empire, un massacre de juifs
 
@@ -7773,9 +7486,7 @@ rendre son maximum d'effet à l'organisme qu'il dirige,
 mais il emprunte sa propre force à cet organisme lui-même,
 et l'on conçoit quelle en doit être la puissance dans un
 pays où la sécurité du monarque et la sauvegarde des idées
-dont il vit, semblent être la cause finale de toutes les institutions et l'essentiel devoir de tous les sujets. L'Adminis-
-
-tration, c'est l'affaire Vidrine: les marchands juifs qui sont
+dont il vit, semblent être la cause finale de toutes les institutions et l'essentiel devoir de tous les sujets. L'Administration, c'est l'affaire Vidrine: les marchands juifs qui sont
 autorisés à s'établir hors du territoire, peuvent amener
 avec eux le nombre de commis nécessaire à la bonne
 marche de leur entreprise; le gouverneur contesta au marHe chand Vidrine le droit d'appeler un commis juif parce qu'il
@@ -7812,8 +7523,7 @@ et le crime, dans l'affaire de Kichinev, il faut se rappeler
 
 un fait sur lequel on n'a pas suffisamment insisté: c'est
 qu'il n'y a ici que 50.000 juifs sur plus de 120.000 habitants, À
-que ces juifs sont presque tous ouvriers ou petits mar-
-chands, non suspects de trafics incorrects, que les relations
+que ces juifs sont presque tous ouvriers ou petits marchands, non suspects de trafics incorrects, que les relations
 entre juifs et non juifs étaient bonnes, qu'en même la à
 ville était restée en paix malgré la généralité des massacres juifs en Russie, et que ce n'est que depuis sept ou
 huit ans que la paix y est troublée, — depuis l'apparition
@@ -7823,8 +7533,7 @@ soit qu'ils viennent du dehors, — tous les droits, si j'ose
 m'exprimer ainsi, — l'interdiction d'entrée à la frontière,
 l'interdiction de la vente sur la voie publique, la censure,
 la saisie, la suspension, la suppression, — si le Bessarabetz
-vit, s'il vit seul et sans contrepoids, c'est que l'Adminis-
-tration le veut! En Russie, nous disait un indigène aussi Fil
+vit, s'il vit seul et sans contrepoids, c'est que l'Administration le veut! En Russie, nous disait un indigène aussi Fil
 spirituel que véridique, en Russie tout vient d'en haut,
 même l'émeute…
 Aussitôt après l'événement, l'Administration, émue des
@@ -7875,8 +7584,7 @@ des logements de deux chambres, ou d'une seule, — parfois
 pour deux familles composées chacune de cinq ou six personnes; et le prix de la location de ces taudis varie entre
 deux roubles et demi et six roubles par mois, (environ
 six francs cinquante et seize francs) quand le mari, ouvrier
-) ou petit marchand, gagne un rouble (deux francs soixante-
-cinq) par jour, la femme, vendeuse au marché, un demirouble. — Seize francs par mois, soit 192 francs par an, ne
+) ou petit marchand, gagne un rouble (deux francs soixantecinq) par jour, la femme, vendeuse au marché, un demirouble. — Seize francs par mois, soit 192 francs par an, ne
 représentent peut-être pas un loyer très élevé; mais, dans
 la misère de ces gens, pour ces immondes logis souterls rains, c'est, comme on dit, « bien payé ». Il faut avouer que
 
@@ -7897,8 +7605,7 @@ la Communauté d'Odessa avance parfois les o franc 50 par
 jour et par personne nécessaires à leurs dépenses de nourriture et de logement, et qui souvent, n'ayant pas de quoi
 retourner chez eux, resteront là, indéfiniment.
 
-Naturellement, du fond de cette misère, des espoirs s'élè-
-vent auxquels le sionisme donne corps et vie. Ces hommes
+Naturellement, du fond de cette misère, des espoirs s'élèvent auxquels le sionisme donne corps et vie. Ces hommes
 ont conscience de former ici une société complète, avec la
 variété nécessaire de ses éléments, ouvriers et savants,
 intellectuels et financiers, dirigeants et manœuvres.
@@ -7909,7 +7616,7 @@ sur les bords de la mer Noire de la villa où il passe ses soirs
 d'été, il ne peut pas, sans passeport régulièrement visé,
 aller vingt-quatre heures à Benderi ou à Kichinev, il est
 « prisonnier » dans le Territoire comme les autres: il
-songe, par contraste, au pays où il sera enfin « chez lui »:
+songe, par contraste, au pays où il sera enfin « chez lui
 il est sioniste. Voici un médecin juif qui habite la Russie
 depuis vingt-cinq ans, qui a élevé tous ses enfants à la
 russe, dont deux filles sont mariées à des médecins juifs
@@ -7917,7 +7624,7 @@ de vieilles familles odessiennes, et qui se sent toujours à la
 veille d'un arrêté d'expulsion auquel il n'échappe que par
 des prodiges de diplomatie; il sait que, chassé d'ici, il ne
 sera, rentrant dans sa patrie, qu'un « Juif » encore, ou
-même qu'un « Juif russe »: comment ne rêverait-il pas
+même qu'un « Juif russe comment ne rêverait-il pas
 
 . d'une patrie propre, autonome et indépendante? est sioHA niste. Et ces hommes consacreront au sionisme des quaAL TE lités d'intelligence, une énergie, une ardeur qui ne s'emtil ploieraient, dans des pays plus heureux, qu'au paisible
 RARE exercice de quelque vice-présidence d'un comité de bienfaisance, ou qu'ils réserveraient tout simplement au soin
@@ -7949,30 +7656,24 @@ sans phrases, qu'à « sortir de ». Ceux-là mêmes ne songent pas que leur mal
 - part de lhumilité de leur condition, et que la Palestine ne
 leur saurait rendre, du jour au lendemain, l'âge d'or! Mais
 ils sont unis dans la foi, et la foi ne voit pas les difficultés.
-Remués périodiquement à travers les siècles par des espé-
-rances messianiques qui ne se sont pas réalisées, ils ont
+Remués périodiquement à travers les siècles par des espérances messianiques qui ne se sont pas réalisées, ils ont
 
 gardé, des tressaillements passés, une facilité plus grande
 
-à tressaillir encore. Très instruits de leurs antiques ori-
-gines, l'histoire a laissé au fond de leurs âmes comme le
+à tressaillir encore. Très instruits de leurs antiques origines, l'histoire a laissé au fond de leurs âmes comme le
 sel d'une poésie qui les destinait à recevoir fructueusement
 les germes du sionisme. Une idée à la fois mystique et
 sociale les réchauffe, un mot prestigieux les unit et les
 exalte. Le portrait du docteur Herzl est partout: appuyé
-le profil de sa barbe caressante se détachant sur les brouil-
-lards du Rhin qui se perd en une poétique perspective,:
+le profil de sa barbe caressante se détachant sur les brouillards du Rhin qui se perd en une poétique perspective,:
 l'apôtre du sionisme laisse errer aux lointains de la cam- (Ke
 pagne et de l'avenir la douceur rèveuse de ses yeux. Il
 semble que grâce au sionisme, à son organisation, à ses
 ramifications dans les moindres localités juives, ils se sen- “48
-tent moins menacés et moins seuls, et les lettres hébraï-
-ques du mot « Sion inscrites dans l'étoile symbolique, sur
-le papier des comités sionistes et sur la porte du restau-
-rant « kascher » où ils s'entretiennent, font sur ces malheu- A
+tent moins menacés et moins seuls, et les lettres hébraïques du mot « Sion inscrites dans l'étoile symbolique, sur
+le papier des comités sionistes et sur la porte du restaurant « kascher » où ils s'entretiennent, font sur ces malheu- A
 reux assoiffés d'une vie meilleure, l'effet d'un emblème neuf
-auquel la froide raison n'a pas encore touché et qui pos-
-sède toute sa vertu génératrice de dévouement et d'espoir.
+auquel la froide raison n'a pas encore touché et qui possède toute sa vertu génératrice de dévouement et d'espoir.
 Mais, hélas! en attendant une aurore qui ne se lève pas, ces à
 malheureux se heurtent, pour l'obtention de leurs passeports, au mauvais vouloir de la police, ceux qui n'ont pas
 encore l'âge du service militaire ont 800 francs à payer )
@@ -7982,8 +7683,7 @@ nuent de croupir, proie toute prête pour le choléra et le
 typhus, dans les sous-sols de Moldavanka.
 De cette ardeur commune vers un avenir plus heureux
 par un retour au passé géographique et religieux, Berditchev
-est le foyer. C'est de cette ville qu'on dit là-bas en plai-
-santant, que pour ses habitants le monde se réduit volon-
+est le foyer. C'est de cette ville qu'on dit là-bas en plaisantant, que pour ses habitants le monde se réduit volon-
 (1) Exactement trois cents roubles, dont le paiement est exigible
 de la famille de l'émigrant jusqu'au plus lointain degré de
 parenté.Les non-juifs ne sont soumis qu'à un paiement de cent
@@ -8029,7 +7729,7 @@ sont dans une situation diflicile, autant dans l''indigence.
 Une petite fille conduite pour la première fois à l'école
 ignorait ce que c'était que du sucre, elle n'en avait jamais (4
 ! s'entassent cinq ou six dans des chambres souterraines
-dont les loyers coûtent environ quarante roubles par an …!
+dont les loyers coûtent environ quarante roubles par an
 Evidemment cette population n'est pas contente de son:
 sort, — et l'Administration n'est pas contente d'elle. Elle
 l'écrase sous l'accusation de socialisme, un « tarte à la
@@ -8049,14 +7749,11 @@ d'humanité, on ne peut pas dire cependant que le pauvre
 corroyeur qui, le samedi après-midi, dans le clair-obscur
 de son sous-sol, en fait chantonner les litanies à son fils,
 soit un disciple dangereux de Karl Marx et de Lassalle.
-Mais à des autorités toujours en éveil ce vague humanita-
-risme, ce désir du mieux, ce « mécontentisme » est un pré-
-texte suflisant à suspicions, à vexations, et, au besoin, à
+Mais à des autorités toujours en éveil ce vague humanitarisme, ce désir du mieux, ce « mécontentisme » est un prétexte suflisant à suspicions, à vexations, et, au besoin, à
 Pas plus que leur socialisme, leur judaïsme n'est absolu,
 ni sous sa forme religieuse, ni sous sa forme politique. Au
 premier point de vue, il est piquant d'observer que, dans:
-cette « Mecque » Juive elle-même, l'influence des « situa-
-tions sociales » s'exerce, ironique et dissolvante, sur les
+cette « Mecque » Juive elle-même, l'influence des « situations sociales » s'exerce, ironique et dissolvante, sur les
 choses de la tradition. On m'avoue que les plus malheureux à
 sont les plus pieux, que les bourgeois aisés sont volontiers
 négligents: j'en ai même vus, que des liens ofliciels
@@ -8070,8 +7767,7 @@ qui d'un œil curieux et Limide suivaient nos allées et venues
 pis ne s'inquiétaient pas de savoir si nous étions sionistes:
 quand on les avait bien convaincus que nous n'élions pas
 des inspecteurs de la salubrité envoyés pour supprimer
-leurs bicoques, rassurés enfin, ils posaient à nos compa-
-gnons une autre question, toujours la même: « Ce sont des
+leurs bicoques, rassurés enfin, ils posaient à nos compagnons une autre question, toujours la même: « Ce sont des
 délégués de » (1) Vraiment la Palestine les attire
 à moins, — que l'émigration. — Mais, en dehors de toutes les
 différences d'idées et d'âmes, qui sont sans doute la vie
@@ -8083,14 +7779,12 @@ c'est que la dignité intellectuelle et morale est le tout de la
 reconnaissance pour les créations d'écoles qu'ils doivent à
 la caisse du parti), — c'est qu'ici ils ne sont rien moralement,
 qu'ils n'ont pas de droits, qu'on ne les traite ni ne les
-considère en hommes: et pour eux toutes les autres mi-
-
-sères ne sont rien auprès de celle-là.
+considère en hommes: et pour eux toutes les autres misères ne sont rien auprès de celle-là.
 
 Après Berditchev, la ville juive, il faut voir Kiev, la
 ville orthodoxe. Ici les juifs ne sont plus « chez eux si
 lon peut ainsi dire: quoiqu'ils soient encore géographiquement sur leur territoire, Kiev, à cause de son caractère
-à: de ville sainte, constitue une enclave où les juifs ne sont
+de ville sainte, constitue une enclave où les juifs ne sont
 pas plus libres que hors du Territoire, c'est-à-dire qu'ils n'y
 peuvent vivre que s'ils sont diplômés des universités, négociants de première ghilde, ou artisans. Et comme il y a
 beaucoup de juifs à Kiev, — précisément parce que la ville
@@ -8110,7 +7804,7 @@ main pour se convaincre qu'en cas de conflit la police peut
 toujours invoquer un précédent qui lui donne raison. Aussi
 bien est-ce une connaissance qu'on retrouve, car ce formulaire traîne à Paris sur les bureaux de l'Ambassade et c'est
 que l'attaché chercher la mention exacte qu'il convient à
-d'inscrire sur le passeport du « citoyen français israélite »:
+d'inscrire sur le passeport du « citoyen français israélite
 en instance de visa...
 Tel d'entre eux nous conte sa vocation contrariée, sa
 carrière brisée, dès le début: il était né, dit-il, dans des
@@ -8172,13 +7866,7 @@ lui fit remarquer que la condamnation allait amener la à
 
 dislocation des familles, les maris, artisans à Kiev, se
 
-trouvant obligés de rester, et leurs femmes de partir puis-
-
-qu'elles n'étaient pas propriétaires des vaches! Le vice-
-
-gouverneur ne contesta point, sourit, mais n'osa pas s'api-
-
-toyer. Le gouverneur sut même faire dire à l'avocat qu'il
+trouvant obligés de rester, et leurs femmes de partir puisqu'elles n'étaient pas propriétaires des vaches! Le vicegouverneur ne contesta point, sourit, mais n'osa pas s'apitoyer. Le gouverneur sut même faire dire à l'avocat qu'il
 
 avait été désagréablement surpris de le voir plaider une
 
@@ -8200,9 +7888,7 @@ contrebande, et parfois le matin on peut voir les agents de
 
 la police traîner leur râfle à la mairie. Naguëre encore un
 
-juif des environs, qui venait à Kiev pour affaires et comp-
-
-tait y passer une journée entre deux bateaux, fut cueilli au
+juif des environs, qui venait à Kiev pour affaires et comptait y passer une journée entre deux bateaux, fut cueilli au
 
 débarcadère, mis en prison, puis réexpédié. L'affaire fit
 
@@ -8214,9 +7900,7 @@ s'indigna, fit allusion aux « bakchich disant que cet
 
 homme n'avait sans doute pas en user; le rédacteur de
 
-l'article, ancien professeur à Kiev, personnage riche et in-
-
-fluent, fut convoqué chez le gouverneur, mais répondit à la
+l'article, ancien professeur à Kiev, personnage riche et influent, fut convoqué chez le gouverneur, mais répondit à la
 
 menace qu'il valait mieux ne pas commencer de poursuites
 
@@ -8224,11 +7908,7 @@ contre lui: sans quoi il apporterait les preuves.
 
 Dans un milieu si constamment troublé par les vexations
 
-policières, l'annonce des événements de Kichinev devait pro-
-
-duire un trouble profond. Les premières nouvelles ne par-
-
-vinrent qu'au bout de huit jours, par la voie privée, —
+policières, l'annonce des événements de Kichinev devait produire un trouble profond. Les premières nouvelles ne parvinrent qu'au bout de huit jours, par la voie privée, —
 
 lettres, télégrammes, conversations rapportées. Ce fut
 
@@ -8275,8 +7955,7 @@ prend souvent leur défense contre les vexations arbitraires
 de la police. On conte l'état d'âme d'un journaliste très
 connu de Kiev, qui s'était montré très violent contre les
 ; juifs lors des massacres de 1881; il s'est beaucoup amendé
-depuis, il a épousé une femme riche, dont la dot compor-
-tait d'importantes propriétés foncières, et, quoique les juifs
+depuis, il a épousé une femme riche, dont la dot comportait d'importantes propriétés foncières, et, quoique les juifs
 ; ne soient que tolérés dans ces fonctions, c'est en des fermiers juifs qu'il met sa confiance, trouvant en eux plus de
 capacités et moins d'exigences; dernièrement, ayant un
 différend avec un de ses fermiers, c'est un vieil avocat
@@ -8285,7 +7964,7 @@ les uns les autres, au lieu de se mépriser a priori: qui sait
 si avec le temps ce Kiévois et quelques-uns ‘de ses conci-
 , toyens ne prendraient pas à leur compte la définition
 
-spirituelle: « Le juif, c'est l'israélite qu'on ne connaît pas »?
+spirituelle: « Le juif, c'est l'israélite qu'on ne connaît pas
 MIEL il semble que les juifs, de leur côté, si pessimiste que
 … soit leur état d'esprit, — après vingt ans de malveillance et
 après Kichinev, — seraient volontiers disposés à la fusion.
@@ -8318,9 +7997,7 @@ bordées de maisonnettes de bois sans étage; en face du
 Marché une Synagogue en bois une autre en pierre, au
 fronton de laquelle le mot CHNATOTA se détache en russe
 
-À ainsi qu'en hébreu; un juif barbu, à lunettes et en redin-
-
-gote, achève lentement de promener sur le mur un pinceau
+À ainsi qu'en hébreu; un juif barbu, à lunettes et en redingote, achève lentement de promener sur le mur un pinceau
 
 Le badigeonneur, et, comme le jour tombe, au pas des portes,
 
@@ -8334,9 +8011,7 @@ il les rues élégantes où les pâtissiers à la mode affichent sur
 
 leurs panneaux à la fois primitifs pompeux des inscripw tions dont la lettre est française, sinon le style: Accepte
 
-de diverses commandes où les maisons meublées s'ap-
-
-pellent « Vieux-Berlin et, en face, par concurrence, « Neuf-
+de diverses commandes où les maisons meublées s'appellent « Vieux-Berlin et, en face, par concurrence, « Neuf-
 
 Moscou beaucoup de magasins sont juifs. C'est surtout
 
@@ -8352,9 +8027,7 @@ avec ses portails de bois et ses voûtes de pierre peints en
 
 des quartiers de viande qui gluent aux tréteaux, des pau-
 
-È vresses édentées, des mendiants hideux à voir, des mar-
-
-chandages, des rires, des discussions, des cris, — cela
+È vresses édentées, des mendiants hideux à voir, des marchandages, des rires, des discussions, des cris, — cela
 
 è grouille comme une cour des miracles, et, dans l'éclat blanc
 du soleil de midi, étourdit les yeux, jette au cerveau une A
@@ -8366,11 +8039,7 @@ interdiction des réunions sionistes, des cotisations, de la
 
 propagande. Mais l'étoile ici pas encore été enlevée. Et
 
-l'accueil est plutôt froid: ces étrangers effraient la ser-
-
-vante, qui circule autour de nous avec circonspection, cal-
-
-culant ses mots, ses gestes, presque tremblante. Mais dès
+l'accueil est plutôt froid: ces étrangers effraient la servante, qui circule autour de nous avec circonspection, calculant ses mots, ses gestes, presque tremblante. Mais dès
 que nous « jargonnons » avec elle, et qu'elle sent en nous
 des amis, elle se déride: j'ai rarement changer, d'une »
 façon aussi complète et aussi brusque, l'expression du visage
@@ -8382,25 +8051,21 @@ humain. La vie générale est relativement heureuse à
 mis trop de complaisance à troubler la paix.
 
 Minsk, même pour les juifs. Il y a peu d'indigents; si les
-industries ne sont pas très nombreuses, ni très impor-
-tantes, — quelques fabriques de sabots, d'allumettes et de
+industries ne sont pas très nombreuses, ni très importantes, — quelques fabriques de sabots, d'allumettes et de
 chaussures dans la banlieue, — en revanche le commerce
 est assez prospère, beaucoup de juifs sont petits ou
 gros marchands. Ils vivent en bonne intelligence avec les
 russes, et beaucoup, qui se trouvent bien de leur sort,
 résistent au sionisme. Les misérables sont assidus à tous
 les offices de la synagogue, — les autres se contentent d'y #4
-. paraître aux trois grandes fêtes et, pour le reste, se lais-
-sent aller à l'indifférence, aerger wie goy, — « pires que
+. paraître aux trois grandes fêtes et, pour le reste, se laissent aller à l'indifférence, aerger wie goy, — « pires que
 des chrétiens ». D'ailleurs confiants en eux-mêmes et très ‘fi
 disposés à se défendre en cas d'alerte. Quand on apprit à
 Minsk l'affaire de Kichinev, le bruit courut que les juifs
-allaient par manière de représailles se jeter sur les chré-
-tiens, — pogrome à rebours! — cette fois ce sont les À
+allaient par manière de représailles se jeter sur les chrétiens, — pogrome à rebours! — cette fois ce sont les À
 chrétiens qui prirent peur. Juifs et chrétiens ne sortaient de
 plus qu'armés. Maintenant tout est rentré dans l'ordre.
-A Varsovie, terme de notre voyage, il semble que la ques-
-tion se présente sous ses divers aspects à la fois, et nous
+A Varsovie, terme de notre voyage, il semble que la question se présente sous ses divers aspects à la fois, et nous
 permette ainsi de nous acheminer vers nos conclusions.
 Il y à Varsovie, sur 800.000 habitants, 280.000 juifs.
 Quelques familles, — financiers et gros industriels, — sont
@@ -8411,10 +8076,8 @@ grande par rapport à celle des employeurs, et d'ailleurs,
 s'ils sont souvent mal accueillis chez les patrons chrétiens,
 ils n'ont pas toujours chez les patrons juifs plus de
 chance: telles usines juives de Lods occupent des milliers A
-d'ouvriers, — presque tous chrétiens: par snobisme cer-
-tains de ces gros industriels ne veulent pas avoir l'air de
-s'intéresser à leurs coreligionnaires; de plus l'arrêt du tra-
-vail juif, pendant deux heures le vendredi, et pendant toute
+d'ouvriers, — presque tous chrétiens: par snobisme certains de ces gros industriels ne veulent pas avoir l'air de
+s'intéresser à leurs coreligionnaires; de plus l'arrêt du travail juif, pendant deux heures le vendredi, et pendant toute
 la journée le samedi, occasionne soit des diminutions de
 rendement, soit des difficultés d'organisation intérieure;
 
@@ -8427,16 +8090,14 @@ hi. 8 francs! A visiter les taudis immondes où vivent les juifs
 Le ï misérables de Varsovie, on est pris à la gorge par l'âäcreté
 — les yeux remplis de larmes. Dans les immenses maisons
 qui forment la rue Franziskanskaia, une populace en hailil lons pullule. Regardez, comme au Moldavanka d'Odessa, le
-ail tableau noir du « dvornik »: Odessa est dépassée. Voici une
-A maison de 1.420 personnes! Au fond de la cour, qui est elle-
-même occupée en partie par un marché, sur un long couloir
+ail tableau noir du « dvornik Odessa est dépassée. Voici une
+A maison de 1.420 personnes! Au fond de la cour, qui est ellemême occupée en partie par un marché, sur un long couloir
 en contre-bas, à demi souterrain, s'ouvrent de petits logejl ments pleins de gens, de meubles, d'ustensiles pêle-méêle,
 ï Dans cette chambre, qui prend jour par un soupirail, et
 qui n'a pas quinze mètres carrés, deux lits et un berceau.
 Il est cinq heures de l'après-midi, un enfant de sept ans
 A dort sur le grand lit, un bébé s'éveille dans le berceau,
-riant et gesticulant, la mère est auprès de lui, la grand-
-mère, le grand-père aussi, qui tourne un rouet: le père
+riant et gesticulant, la mère est auprès de lui, la grandmère, le grand-père aussi, qui tourne un rouet: le père
 reviendra du travail tout à l'heure; ils mangent et dorment
 à six personnes dans ce réduit. — Plus loin: deux lits
 À bout à bout, couverts de vêtements en désordre, en face
@@ -8467,8 +8128,7 @@ nationale. Dans le quartier des humbles et des miséreux,
 dont les boutiques se touchent, trop serrées les unes contre
 les autres, comme une famille qui se presse autour du foyer
 menacé, on suit avec ardeur les journaux rédigés en
-hébreu, les articles des rédacteurs sionistes, on parle fié-
-vreusement du Congrès de Bâle qui se prépare, du docteur
+hébreu, les articles des rédacteurs sionistes, on parle fiévreusement du Congrès de Bâle qui se prépare, du docteur
 Herzl, de Nordau, de Sokoloff. On en suit d'autres aussi,
 moins avoués, ceux qui se cachent, dont la police supprime
 l'imprimerie et expédie le rédacteur en Sibérie, — quand
@@ -8507,15 +8167,12 @@ Ne due aux théories et aux pratiques de l'antisémitisme mofe derne. Les juifs 
 (li çant, dans les moindres détails de l'organisation intérieure,
 ! de maintenir la tradition « juive-polonaise ils ont trois
 Ha. écoles professionnelles, où, par principe, ils admettent des
-jeunes gens chrétiens, — une politesse qu'en fait les chré-
-tiens ne leur rendent pas volontiers. — Mais mal considé-
+jeunes gens chrétiens, — une politesse qu'en fait les chrétiens ne leur rendent pas volontiers. — Mais mal considé-
 à rés quoi qu'ils fassent, ils n'osent plus mépriser, du haut de
 leur fierté polonaise, le « nationalisme-juif » des sionistes... (1)
 
 Il ne convient pas de faire de la question des juifs
-russes un bloc. Même dans la servitude il n'y a pas d'éga-
-
-lité. Les juifs de Minsk sont relativement tranquilles et
+russes un bloc. Même dans la servitude il n'y a pas d'égalité. Les juifs de Minsk sont relativement tranquilles et
 heureux, si l'on compare leur situation à celle des juifs
 .
 (LA (1) y a à Varsovie un assez grand nombre de juifs convertis,
@@ -8529,14 +8186,10 @@ Russie, hors du Territoire, sans formalités spéciales: avantage
 considérable pour tous les hommes que leurs affaires obligent à
 
 d'Odessa; le petit marchand de Shlobine, perdu au fond de )
-la Russie, vit en bonne intelligence avec ses voisins chré-
-tiens, tandis que celui de Kichinev, pourtant plus proche
+la Russie, vit en bonne intelligence avec ses voisins chrétiens, tandis que celui de Kichinev, pourtant plus proche
 de l'Europe civilisée, tremble sous la menace perpétuelle
 
-des folies du Bessarabetz qui sait si l'on ne trouve-
-
-rait pas un savetier de Bialystok ou un musicien de café-
-concert d'Odessa qui aura mené, à travers les mailles
+des folies du Bessarabetz qui sait si l'on ne trouverait pas un savetier de Bialystok ou un musicien de caféconcert d'Odessa qui aura mené, à travers les mailles
 
 étroites des vexations et des persécutions, une vie calme
 
@@ -8567,19 +8220,11 @@ quartier, la ville, faire sortir de son palais le gouverneur,
 
 de ses casernes la police, la gendarmerie, la troupe, de
 
-leurs bouges les coureurs de route, qui ne rentreront cha-
+leurs bouges les coureurs de route, qui ne rentreront chaeun chez soi qu'après avoir rétabli la paix à la manière
 
-eun chez soi qu'après avoir rétabli la paix à la manière
+un peu la population juive par des coups de sabre, des piétinements de chevaux, des arrestations et des expulsions...
 
-un peu la population juive par des coups de sabre, des pié-
-
-tinements de chevaux, des arrestations et des expulsions...
-
-L'immense disproportion des fortunes, qui est une caracté-
-
-ristique des civilisations retardataires, se marque naturel-
-
-lement aussi bien dans la Russie juive que dans la Russie
+L'immense disproportion des fortunes, qui est une caractéristique des civilisations retardataires, se marque naturellement aussi bien dans la Russie juive que dans la Russie
 
 orthodoxe. Le banquier largement millionnaire d'Odessa
 
@@ -8587,9 +8232,7 @@ qui a maison de ville sur Nikolaievsky et maison des
 
 voyager. D'ailleurs la tradition des « maranes » n'est pas perdue:
 
-beaucoup de ces convertis ne le sont qu'aux yeux de ladministra-
-
-tion et continuent à pratiquer leur culte sans parler de leur
+beaucoup de ces convertis ne le sont qu'aux yeux de ladministration et continuent à pratiquer leur culte sans parler de leur
 
 conversion à leurs coreligionnaires originels: on cite le cas d'un
 
@@ -8619,9 +8262,7 @@ Je les employés qu'il veut, que son fils ne sera peut-être pas
 
 à admis au lycée, ou à l'Université, ne sera certainement ni
 
-1} magistrat, ni officier, qu'en un mot, aux yeux de l'Adminis-
-
-tration, lui et les siens ne sont et ne seront jamais que des
+1} magistrat, ni officier, qu'en un mot, aux yeux de l'Administration, lui et les siens ne sont et ne seront jamais que des
 
 1 juifs sans droits.
 
@@ -8637,9 +8278,7 @@ assez belle pour forcer luniverselle compassion, et nous
 
 k. Le inciter à rechercher quelles sont les véritables causes de la
 
-Il faut d'abord remarquer la forme spéciale de cette mi-
-
-sère. Non qu'il n'y ait pas d'autres misères à côté, chez les
+Il faut d'abord remarquer la forme spéciale de cette misère. Non qu'il n'y ait pas d'autres misères à côté, chez les
 
 5 chrétiens, chez les russes comme on dit là-bas: ce serait « fers une singulière illusion d'optique, parce qu'on s'intéresse
 1 plus spécialement à la misère juive, de ne pas voir la
@@ -8652,7 +8291,7 @@ misère des autres. Si telle ville, autrefois plus heureuse,
 
 À raison pour que les juifs, et les juifs seuls, trouvent du
 
-(te travail dans ce « bourg-pourri »: leur misère n'est done
+(te travail dans ce « bourg-pourri leur misère n'est done
 
 parfois qu'une manifestation de la misère générale. Elle
 
@@ -8666,8 +8305,7 @@ sorte sur un seul point le poids de leur masse compacte,
 constituant à eux-mêmes et aux autres une concurrence
 fe. désastreuse pour tout le monde, soil quelle diminue le
 
-taux des salaires, soit qu'elle augmente le nombre des indi-
-gents, — et qui ne peut que concentrer davantage autour
+taux des salaires, soit qu'elle augmente le nombre des indigents, — et qui ne peut que concentrer davantage autour
 d'eux la haine: au lieu que, s'ils étaient répandus dans
 tout l'Empire, par le jeu naturel des lois économiques,
 l'équilibre ne manquerait pas de s'établir et de provoquer
@@ -8713,8 +8351,7 @@ Vaines au point de vue de la vérité qu'eflicaces, hélas!
 (REA comme prétextes de troubles et d'émeutes. Les juifs usuar riers? mais dans ce pays, les prêtres, les femmes, ni les
 Le paysans, ne peuvent souscrire d'effets; d'ailleurs l'usure
 Ne sévit avec bien plus d'intensité hors Territoire. Les
-juifs marchands d'alcool, les juifs empoisonneurs? Il fauAY drait se demander d'abord si, dans l'état actuel de la Rus-
-sie, le marchand d'alcool soulève nécessairement des haïnes
+juifs marchands d'alcool, les juifs empoisonneurs? Il fauAY drait se demander d'abord si, dans l'état actuel de la Russie, le marchand d'alcool soulève nécessairement des haïnes
 tel autour de lui; constater ensuite que du jour au lendemain,
 des milliers de juifs, chassés des villages, y ont laissé les
 débits qu'ils exploitaient, et que c'est l'État lui-même qui
@@ -8724,8 +8361,7 @@ lei valeur à cet argument. Les juifs restent trop attachés à
 À 1 gers, les juifs ne s'assimilent pas? Ici j'ai peur que ce soit
 un des arguments les plus chers à notre antisémitisme à
 nous qui s'égare dans le leur. Ce reproche peut avoir un
-sens lorsque, de deux états de mœurs coexistants et iné-
-gaux, c'est le moins avancé qui s'obstine à ne pas suivre
+sens lorsque, de deux états de mœurs coexistants et inégaux, c'est le moins avancé qui s'obstine à ne pas suivre
 LE l'autre: en est-il ainsi, actuellement, de la masse juive à
 la masse russe?
 à Or, même en l'admettant, — même en admettant aussi
@@ -8741,12 +8377,10 @@ nous, surannées, faut-il leur en faire un crime, s'indigner
 moins, comme on dit, ne font de mal à personne, quand
 les autres suivent leurs préjugés jusqu'à la haïne, et leurs
 Ù À superstilions jusqu'au crime? Dès la première vue, les
-. juifs de Russie apparaissent comme plus disposés à Passi-
-milation que leurs voisins de Galicie par exemple: la
+. juifs de Russie apparaissent comme plus disposés à Passimilation que leurs voisins de Galicie par exemple: la
 il! lévite, les bottes, le chapeau haut de forme, les boucles de
 
-cheveux descendant au long des tempes, — ils ne consi-
-dèrent plus tout cet « uniforme » comme de rigueur, et on À
+cheveux descendant au long des tempes, — ils ne considèrent plus tout cet « uniforme » comme de rigueur, et on À
 ne le rencontre ici qu'exceptionnellement. — Le critérium
 militaire n'est pas moins significatif. Les juifs dont les pères!
 ont été soldats sous Nicolas premier, — c'est-à-dire à une
@@ -8754,11 +8388,8 @@ ont été soldats sous Nicolas premier, — c'est-à-dire à une
 assimilés aux marchands de première ghilde, diplômés et
 artisans: ils ont, sous la condition de certaines formalités
 un peu compliquées, le droit de vivre partout en Russie:
-il y en a une centaine à Kiev. Aujourd'hui les juifs four-
-nissent à l'armée un contingent annuel de 15.000 hommes:
-il est vrai que le service est obligatoire, — mais les réfrac-
-taires et déserteurs juifs sont d'année en année moins nom-
-breux. — D'ailleurs ils insistent trop avec trop d'énergie,
+il y en a une centaine à Kiev. Aujourd'hui les juifs fournissent à l'armée un contingent annuel de 15.000 hommes:
+il est vrai que le service est obligatoire, — mais les réfractaires et déserteurs juifs sont d'année en année moins nombreux. — D'ailleurs ils insistent trop avec trop d'énergie,
 dans toutes leurs conversations, sur ce point qu'un juif ne
 peut pas occuper la moindre fonction qui touche de si loin
 que ce soit aux administrations de l'État, — pour qu'on ne
@@ -8789,8 +8420,7 @@ la tranquille médiocrité de leurs existences plutôt qu'excités
 perpétuellement par des désirs de ruine et de sang. Je ne
 veux pas dire qu'il n'y ait d'antisémitisme que par ordre;
 mais cet antisémitisme russe ‘emprunte aux restrictions
-ET administratives dont les juifs sont l'objet, une sorte d'auto-
-rité et comme un caractère officiel qui le rend particulière1 1 ment dangereux et intéressant.
+ET administratives dont les juifs sont l'objet, une sorte d'autorité et comme un caractère officiel qui le rend particulière1 1 ment dangereux et intéressant.
 (4 Il y a en effet, à ces fureurs, une cause profonde. Aux
 à voyageurs qui descendent du train d'Europe, à la gareht frontière d'Oungheni, la porte des salles daltente s'enI] tr'ouvre avec méfiance: ils ne passent qu'un à un sous l'œil
 d'un fonctionnaire en vareuse casquette blanches qui
@@ -8798,21 +8428,18 @@ d'un fonctionnaire en vareuse casquette blanches qui
 pas votre papier? il y manque un timbre, un parafe? Le
 À train attend, prêt à vous ramener vers l'Europe. Au bout
 sy) d'une demi-heure, les passeports, Lournés et retournés, visés
-du et signés, reviennent du bureau spécial et le même fonc-
-tionnaire les distribue en faisant l'appel des voyageurs, qui
+du et signés, reviennent du bureau spécial et le même fonctionnaire les distribue en faisant l'appel des voyageurs, qui
 À forment le cercle autour de lui. Cependant un douanier
 À méticuleux a fouillé jusqu'au fond de vos bagages, feuilleté
 votre buvard de correspondance, votre Baedeker: rien de
 suspect, — rien que deux journaux quelconques, qui
-4 traînent dans votre valise depuis Paris: purement et sim-
-plement, sans autre forme de procès, il les déchire. Enfin
+4 traînent dans votre valise depuis Paris: purement et simplement, sans autre forme de procès, il les déchire. Enfin
 reconnu bon pour l'entrée, vous poursuivez votre itinéraire:
 vous descendez à l'hôtel à Odessa, — à Kiev chez un ami:
 à l'hôtel, le portier vert et or, chez votre ami, son concierge,
 ! — personnage assermenté, — se précipite sur votre passeport, l'emporte, l'envoie à la police, l'y fait reprendre le
 lendemain, avee nouveau visa correctement daté. Loin de
-votre pays, avide de nouvelles, vous demandez, en dégus-
-tant un verre de thé, le Figaro ou le Matin, le Berliner
+votre pays, avide de nouvelles, vous demandez, en dégustant un verre de thé, le Figaro ou le Matin, le Berliner
 Tageblatt, le Daily Chronicle: plaqué sur une des colonnes
 du journal un rectangle noir, absolument opaque, vous
 effraie: ce n'est rien, — c'est un article que la censure a
@@ -8835,8 +8462,7 @@ Grande Muraille. Est en honneur dans l'Empire tout ce qui
 contribue à assurer la continuation de cet état de choses:
 popes, fonctionnaires et policiers, hiérarchie et résignation.
 Est suspect, tout ce qui pourrait la compromettre. les
-juifs, — il faut bien généraliser pour eux, puisqu'on géné-
-ralise contre eux, — les juifs ne sauraient être une pierre
+juifs, — il faut bien généraliser pour eux, puisqu'on généralise contre eux, — les juifs ne sauraient être une pierre
 inerte et brute dans un rempart de prohibition: au contraire, tout concourt à faire d'eux un pont entre la Russie
 retardataire et l'Europe libérée. — Déjà par la situation
 géographique du Territoire où l'autorité les parque, ils sont
@@ -8853,8 +8479,7 @@ de l'orthodoxie gouvernementale, — et qu'étant juifs, au lieu
 de se soumettre aux injustices de ce monde en vue d'une
 réparation dans un monde meilleur, ils veulent la justice
 dans ce monde même, et la vie avant la mort! — Enfin
-quand on vient d'un pays où, par le long travail des institutions démocratiques, il semble que l'intelligence ellemême se soit équitablement partagée entre toutes les caté-
-gories de la nation, on est d'autant plus surpris de constater, à égalité sociale, des différences aussi étranges que
+quand on vient d'un pays où, par le long travail des institutions démocratiques, il semble que l'intelligence ellemême se soit équitablement partagée entre toutes les catégories de la nation, on est d'autant plus surpris de constater, à égalité sociale, des différences aussi étranges que
 l'inertie intellectuelle du Russe pauvre, dont les yeux
 
 à vaguent sans lueur sans vie, et l'ardente curiosité de
@@ -8872,8 +8497,7 @@ il 4 passions, Bernard-Lazare nous disait quinze jours avant
 sa mort: « Le juif est l'homme qui depuis des siècles sait
 É lire... » Le juif russe lit, réfléchit, sa pensée dépasse les
 LA murs « de son échoppe souterraine, il sait qu'il y ailil (ia leurs, des juifs plus heureux, — et des hommes plus libres.
-Au Géographiques et sociales, morales et intellectuelles, beau-
-coup de raisons, on le voit, semblent destiner le juif de
+Au Géographiques et sociales, morales et intellectuelles, beaucoup de raisons, on le voit, semblent destiner le juif de
 HER Russie à jouer le rôle bienfaisant d'intermédiaire entre des
 civilisations inégales et de courtier du progrès. le proNA grès ne saurait se faire dans le sens de l'autocratisme
 russe. Donc le juif est dangereux. Donc le juif est persé-
@@ -8896,8 +8520,7 @@ d'autorisation au point de départ: car, bien que les me-
 ,
 sures récentes soient dirigées, au dire de l'Administration,
 non pas contre le sionisme agence d'émigration, mais
-contre le sionisme organisation dans l'Etat, il semble pra-
-tiquement difficile que la Russie, sans considération pour
+contre le sionisme organisation dans l'Etat, il semble pratiquement difficile que la Russie, sans considération pour
 les conséquences économiques de cette exode, et sans pudeur
 aux yeux de l'humanité, laisse se détacher d'elle, uniquement pour cause de religion, tout un morceau de population qui fournit un solide contingent de roubles au trésor
 et de soldats à l'armée. — L'application aux juifs du droit
@@ -8942,7 +8565,7 @@ que la Russie juive envoie jusqu'à nous; mais il faut voir
 eux, que les maux qu'ils souffrent, rappellent ceux que nos
 ni pères ont soufferts, que nous éprouvons encore nous-mêmes
 la ténacité des préjugés sous le poids desquels ils plient, — et
-;; parce que, Français, nous travaillerons ainsi à une de ces
+parce que, Français, nous travaillerons ainsi à une de ces
 je œuvres d'émancipation généreuse auxquelles la France
 Dur sera toujours fière de donner son concours, sous peine de
 n'être plus la France. Et c'est vers elle sans doute, la pre-
@@ -8961,7 +8584,7 @@ traduit par Elie Eberlin
 MAN Après Tolstoi et Gorki, l'écrivain le plus aimé en
 Russie est Vladimir Korolenko, chantre de la pitié
 4 enr maine, l'auteur du « Musicien aveugle » et des « Récits
-à; A la première nouvelle des massacres de Kichinev,
+A la première nouvelle des massacres de Kichinev,
 ORUE Korolenko s'est rendu immédiatement sur le lieu du à
 LAN désastre et il a résumé ses douloureuses impressions
 NON dans ce récit émouvant dans sa simplicité et pénétré
@@ -8977,8 +8600,7 @@ partout, à Kichinev, des traces de l'émeute: même dans » les grandes rues on
 des vitres brisées. Dans les faubourgs c'était pire et les
 traces du « pogrome » étaient autrement nombreuses.
 A Saint-Pétersbourg, vers celte époque, le Juif
-Dachevsky avait blessé d'un coup de couteau M. Krou-
-chevan, (2) et, — chose plus étrange encore, — un autre
+Dachevsky avait blessé d'un coup de couteau M. Krouchevan, (2) et, — chose plus étrange encore, — un autre
 
 juif, un médecin, voulut lui porter les premiers secours.
 
@@ -8997,9 +8619,7 @@ A. ou trois jours après, lorsque j'étais déjà à Kichinev, trois
 
 : jeunes gens inconnus attaquèrent un lycéen israélite qui
 
-se rendait à l'école; l'un d'eux lui porta un coup de poi-
-
-gnard dans l'aine: le poignard fut dirigé par une maïn
+se rendait à l'école; l'un d'eux lui porta un coup de poignard dans l'aine: le poignard fut dirigé par une maïn
 
 plus habile que celle de Dachevsky, et c'est grâce à un
 
@@ -9009,9 +8629,7 @@ plus habile que celle de Dachevsky, et c'est grâce à un
 
 EN blessé, Ce jeune homme, qui se rendait paisiblement à
 
-l'E son cours, n'était évidemment pas un personnage impor-
-
-tant, il n'avait pas encore comme M. Krouchevan des
+l'E son cours, n'était évidemment pas un personnage important, il n'avait pas encore comme M. Krouchevan des
 
 « larges conceptions d'un homme d'État c'est pour
 
@@ -9031,13 +8649,9 @@ réponse à l'attentat de Dachevsky. Si absurde que cela
 
 puisse paraître, celte opinion nest cependant pas
 
-invraisemblable. D'ailleurs tout est maintenant vrai-
+invraisemblable. D'ailleurs tout est maintenant vraisemblable. On peut s'attendre à tout à Kichinev, où il
 
-semblable. On peut s'attendre à tout à Kichinev, où il
-
-semble que l'air même soit saturé de haïne et de ran-
-
-cunes féroces. La vie de la ville est comme arrêtée. Les
+semble que l'air même soit saturé de haïne et de rancunes féroces. La vie de la ville est comme arrêtée. Les
 
 maisons en construction restent inachevées, la peur et
 
@@ -9053,8 +8667,7 @@ de s'y jouer, je me promenais à travers la ville et les fau-
 À Je nai certes pas ici la prétention d'expliquer d'une De
 … façon plus ou moins complète cet épisode navrant et de
 vous raconter comment cette foule oublia dans un
-… instant les principes de la civilisation la plus élémen-
-taire pour revenir à ses instincts primitifs de féroce
+… instant les principes de la civilisation la plus élémentaire pour revenir à ses instincts primitifs de féroce
 … bestialité. Il n'y a rien de caché qui ne devienne un
 jour manifeste ». Il est bien possible que tous les res-:
 sorts secrets du crime de Kichinev soient connus un
@@ -9091,17 +8704,13 @@ Pour cela je m'efforcerai de rétablir avec autant de
 
 sang-froid que possible un épisode des massacres. Ce
 
-sera l'histoire de la maison numéro 13, désormais tris-
-
-il Vladimir Korolenko
+sera l'histoire de la maison numéro 13, désormais trisil Vladimir Korolenko
 
 La maison numéro 13 est située dans le quatrième
 
 arrondissement de Kichinev dans une ruelle qui porte
 
-À le nom d'Asiatique au coin de la rue Stavrisky. D'ail-
-
-leurs, les habitants de Kichinev eux-mêmes connaissent
+À le nom d'Asiatique au coin de la rue Stavrisky. D'ailleurs, les habitants de Kichinev eux-mêmes connaissent
 
 il mal les noms de ces rues et ruelles étroites et entortil- -
 
@@ -9115,9 +8724,7 @@ mon compagnon, qui était à Kichiney depuis trois
 
 semaines déjà, et qui connaissait à peu près les endroits
 
-( où s'étaient déroulés les principaux incidents des mas-
-
-sacres, lui dit: « la maison numéro 13... où on
+( où s'étaient déroulés les principaux incidents des massacres, lui dit: « la maison numéro 13... où on
 
 Et il donna un coup de fouet à son cheval, aussi
 
@@ -9159,17 +8766,14 @@ portes enfoncées et bouchées avec des planches et des
 
 débris divers … Il faut rendre justice à la police de
 
-Kichinev: car si elle n'a opposé qu'une résistance mé-
-diocre aux massacreurs, elle a pris des mesures éner-
+Kichinev: car si elle n'a opposé qu'une résistance médiocre aux massacreurs, elle a pris des mesures éner-
 ._ giques envers les Juifs, en les forçant à réparer les
 maisons qui ont été saccagées et détruites. Mais elle n'a
 . plus aucun pouvoir sur le propriétaire de la maison
 
 La cour garde encore des traces éloquentes de la
 
-débâcle: elle est jonchée de plumes d'oreiller, de mor-
-
-ceaux de meubles, d'éclats de carreaux, de vaisselle
+débâcle: elle est jonchée de plumes d'oreiller, de morceaux de meubles, d'éclats de carreaux, de vaisselle
 
 cassée et de lambeaux de vêtements. Il suffit de jeter
 
@@ -9189,11 +8793,7 @@ brisées, et les linteaux détachés sont suspendus dans les
 
 trous noirs des fenêtres comme des bras désarticulés.
 
-Au coin de la cour, sous le hangar, on voit encore di-
-
-stinctement une grande tache brune, — du sang coa-
-
-gulé, — au milieu de mille débris de glaces, de briques,:
+Au coin de la cour, sous le hangar, on voit encore distinctement une grande tache brune, — du sang coagulé, — au milieu de mille débris de glaces, de briques,:
 - de chaux et de plumes d'oreiller.
 « Ici, on assassina Gruenschpun.. s'écria une voix
 étrange, en se rapprochant de nous.
@@ -9231,8 +8831,7 @@ duvet de plumes. Dans la maison tout a été saccagé
 É. avec le même soin que dans la cour: les tapisseries
 sont arrachées, les portes enfoncées, les cheminées
 … détruites et les murs troués de part en part.
-Ce « soin » méticuleux apporté à la destruction sau-
-wage fit naître en ville une légende. On raconta
+Ce « soin » méticuleux apporté à la destruction sauwage fit naître en ville une légende. On raconta
 É qu'avant le « pogrome » lun des antisémites » mi-
 … intellectuels de Kichinev avait préparé tout un stock de
 4 pieux munis de crochets que des « agents » spéciaux
@@ -9245,9 +8844,7 @@ et de bonheur.
 La maison numéro 13 se composait en effet de sept
 logements, dans lesquels vivaient à l'étroit, serrées
 les unes contre les autres, huit familles juives, en tout
-- quarante-cinq personnes y compris les enfants. Le pro-
-priétaire de la maison, Mocha Makline, était commis-
-sionnaire et tenait aussi une boutique en ville. Toutes
+- quarante-cinq personnes y compris les enfants. Le propriétaire de la maison, Mocha Makline, était commissionnaire et tenait aussi une boutique en ville. Toutes
 ses entreprises, — commission, fonds de commerce
 et maison, — ne lui rapportaient que 1.500 roubles
 
@@ -9261,9 +8858,7 @@ son gendre et ses petits enfants qui occupaient un des
 
 Navtoula Sercbrenik, petit boutiquier, en était un des
 
-locataires principaux. On peut reconnaitre l'emplace-
-
-ment de sa boutique d'après les débris de coffres en
+locataires principaux. On peut reconnaitre l'emplacement de sa boutique d'après les débris de coffres en
 
 bois qui formaient le comptoir et qui traînent par lerre
 
@@ -9281,20 +8876,12 @@ comptabilité. C'était une profession un peu savante
 
 qu'il exerçait à forfait et qui lui rapportait 25 à
 
-: roubles par mois. Gofcha Paskar était commis de bou-
-
-tique et avait un traitement de 35 roubles par mois. Il
+: roubles par mois. Gofcha Paskar était commis de boutique et avait un traitement de 35 roubles par mois. Il
 avait une femme, Ita, et deux énfants. Itzik Gervitz était
 
 surveillant à l'hôpital, mais resté sans place un peu
 
-avant le « pogrome il se trouvait dans un grand dénû-
-
-ment. Gofcha Tourkenitch avait un atelier de menui-
-
-serie avec trois ouvriers et Bassia Barabasch une bou-
-
-cherie. Enfin le vitrier Gruenschpun partait tous les
+avant le « pogrome il se trouvait dans un grand dénûment. Gofcha Tourkenitch avait un atelier de menuiserie avec trois ouvriers et Bassia Barabasch une boucherie. Enfin le vitrier Gruenschpun partait tous les
 
 matins avec ses carreaux et retournait le soir avec le
 
@@ -9312,13 +8899,12 @@ aux demandes en dommages-intérêts, peuvent être plutôt
 
 suspectes d'exagération que de diminution de chiffres..
 
-4 Ainsi menaient paisiblement et tranquillement leur
+Ainsi menaient paisiblement et tranquillement leur
 vie les habitants du numéro 13 jusqu'au 6 avril de cette
 année. Nissensohn allait dans les boutiques et dressait
 les livres de commerce, Berlatzki et Gofcha Paskar ven-
 … daiïent dans les boutiques toutes sortes de marchandises,
-Navtoula Serebrenik débitait à ses voisins juifs molda-
-vanes et russes des bougies, du savon, des allumettes,
+Navtoula Serebrenik débitait à ses voisins juifs moldavanes et russes des bougies, du savon, des allumettes,
 …. du pétrole, de l'indienne à bon marché et des bonbons.?
 Itzik Gervitz cherchait un emploi et le vitrier Gruen-
 … schpun remplaçait les carreaux cassés... Et personne
@@ -9332,9 +8918,7 @@ ce qui se passait et connurent l'attitude des autorités et
 choses se passaient ainsi parce que le gouverneur atten-
 ï dait des « ordres les ordres devaient arriver sans
 
-faute dans la nuit et alors tout allait rentrer le lende-
-
-main matin dans le calme. Le soir les troubles cessè-
+faute dans la nuit et alors tout allait rentrer le lendemain matin dans le calme. Le soir les troubles cessè-
 . rent d'eux-mêmes et la nuit se passa dans l'angoisse,
 . mais sans pogrome cependant.
 
@@ -9344,17 +8928,14 @@ Vers dix heures du matin, apparut le sergent de ville,
 
 (plaque numéro 148) personnage bien connu dans le
 la; quartier, qui, se souciant sans doute du sort des Juifs,
-AIX leur conseilla à haute voix de rentrer dans leurs loge-
-ments et de ne pas sortir dans la rue. Les Juifs, bien
+AIX leur conseilla à haute voix de rentrer dans leurs logements et de ne pas sortir dans la rue. Les Juifs, bien
 10 entendu, suivirent ce conseil, et les logements étroits
 juifs se remplirent de locataires effrayés. Les portes et
-A les devantures fermées, toute la ruelle Asiatsky sem-
-hs, blait engourdie dans une attente passive.
+A les devantures fermées, toute la ruelle Asiatsky semhs, blait engourdie dans une attente passive.
 |.! J'ai des raisons de croire que cet aspect: devantures « 1 closes, rues désertes et attente passive de ce qui devait
 arriver, — était celui de tous les faubourgs de Kichinev
 le deuxième jour du « pogrome ». En effet, j'avais la « triste possibilité de voir et de causer avec une victime.
-C'est M. Meyer Selman Weissmann. Avant le « po-
-grome » il élait borgne. Maïs pendant les massacres un
+C'est M. Meyer Selman Weissmann. Avant le « pogrome » il élait borgne. Maïs pendant les massacres un
 « chrétien » crut devoir lui crever l'autre œil. Lorsque
 je lui demandai s'il connaissait ce chrétien il m'a À
 répondu d'un ton héroïque qu'il ne saurait l'aflirmer.
@@ -9376,8 +8957,7 @@ ai en croissant en présence des troupes et de la police.:
 4 munication oflicielle. Ils tinrent conseil. L'idée générale
 qui se dégageait de leur conciliabule était que les habi- à
 - tants du quartier des abattoirs devaient évidemment
-. agir de la même façon que leurs concitoyens aux diffé-
-rents points de la ville. Weissmann nous a transmis
+. agir de la même façon que leurs concitoyens aux différents points de la ville. Weissmann nous a transmis
 . un détail de leur conversation: ils parlèrent de deux
 frères juifs et décidèrent qu'on pouvait laisser l'un d'eux
 
@@ -9390,9 +8970,7 @@ où ils pouvaient. Un des voisins de Meyer Weissmann,
 foule allait lui faire un mauvais parti pour avoir caché;
 un Juif. « Alors, me raconte Weïissmann, — nous nous
 
-- mimes à courir. » Il perdit beaucoup de temps en vou-
-
-lant confier ses petits à un ancien coreligionnaire aisé
+- mimes à courir. » Il perdit beaucoup de temps en voulant confier ses petits à un ancien coreligionnaire aisé
 
 qui s'était converti au christianisme. Ses filles recueil-
 
@@ -9415,9 +8993,7 @@ Je suis ici, répondit Ita, qui se tenait près du lit. Mais
 
 .… le malade s'agitait toujours et demandait de nouveau:
 
-« Ita, Ita, où es-tu donc? » Lorsqu'elle se pencha de nou-
-
-veau sur lui et répéta qu'elle était là, Meyer Weïissmann,
+« Ita, Ita, où es-tu donc? » Lorsqu'elle se pencha de nouveau sur lui et répéta qu'elle était là, Meyer Weïissmann,
 
 sans comprendre encore ce qui était arrivé, commença
 
@@ -9435,19 +9011,11 @@ qu'il est déjà « récompensé avec usure en ce qu'il ne
 
 peut plus jamais voir sa fille bien-aimée. Quant au
 
-garçon chrélien qui avait pratiqué sur le Juif cette opé-
+garçon chrélien qui avait pratiqué sur le Juif cette opération à l'aide d'un poids, il ne mérite bien entendu
 
-ration à l'aide d'un poids, il ne mérite bien entendu
+aucun bläme. Il apparaît plutôt comme une victime ». (1) Eh bien c'est peut-être vrai. Entrer dans la
 
-aucun bläme. Il apparaît plutôt comme une vic-
-
-time ». (1) Eh bien c'est peut-être vrai. Entrer dans la
-
-vie avec un tel acte sur la conscience..., ce serait vrai-
-
-ment horrible si le « garçon chrétien » pouvait le com-
-
-prendre. Et s'il en était incapable, il serait aussi une
+vie avec un tel acte sur la conscience..., ce serait vraiment horrible si le « garçon chrétien » pouvait le comprendre. Et s'il en était incapable, il serait aussi une
 
 victime, une victime plus malheureuse encore. Mais.
 
@@ -9458,9 +9026,7 @@ La tragédie dans la maison numéro 13 a débuté de
 même facon que celle qui s'est déroulée près des
 abattoirs. Le sergent de ville, (plaque numéro 148) ainsi
 
-que son collègue, rentra le matin de la ville, où proba-
-
-blement il croyait recevoir des ordres clairs et précis,
+que son collègue, rentra le matin de la ville, où probablement il croyait recevoir des ordres clairs et précis,
 
 mais ces ordres-là ne lui ont pas été donnés et alors
 
@@ -9480,8 +9046,7 @@ times des juifs ».
 
 Ce sergent de ville, après ce conseil si bienveillant, à
 
-. s'est assis sur une borne, puisqu'il n'avait pas évidem-
-ment autre chose à faire, et, d'après ce qu'on dit, il resta
+. s'est assis sur une borne, puisqu'il n'avait pas évidemment autre chose à faire, et, d'après ce qu'on dit, il resta
 . Jà. Cet homme ainsi assis sur sa borne devait être un
 
 superbe « modèle » pour un sculpteur qui aurait voulu
@@ -9533,9 +9098,7 @@ Ita Paskar, aussi avec deux enfants, et encore une …
 
 petite fille de quatorze ans, une servante. A l'intérieur
 
-le hangar ne se fermail pas, et en somme tous ces han-
-
-gars rappellent des boîtes en carton. Leur principal
+le hangar ne se fermail pas, et en somme tous ces hangars rappellent des boîtes en carton. Leur principal
 
 avantage était qu'il n'y avait rien là-dedans qui püt
 
@@ -9552,9 +9115,7 @@ aucun ordre, était assis sur la borne, et les deux pa-
 ! trouilles stationnaïent en haut et en bas de la rue où se
 
 À trouvait la maison numéro 13. Et dans la foule on
-voyait remonter petit à pelit tous les instincts de bes-
-
-tialité et de férocilé sauvage qui devaient faire éclater
+voyait remonter petit à pelit tous les instincts de bestialité et de férocilé sauvage qui devaient faire éclater
 
 bien vite la mince couche de vernis de civilisation que
 
@@ -9562,13 +9123,9 @@ lui avait value la religion chrétienne. La destruction
 
 était à son comble; les carreaux cassés, les vitres bri-
 
-Je sées, les cheminées détruites, les meubles et la vais-
+Je sées, les cheminées détruites, les meubles et la vaisselle réduits en pièces. Les feuilles des livres sacrés
 
-selle réduits en pièces. Les feuilles des livres sacrés
-
-traînaient par terre, des tas de duvet de plumes cou-
-
-vraient la cour; le duvet flottait dans l'air et pendait
+traînaient par terre, des tas de duvet de plumes couvraient la cour; le duvet flottait dans l'air et pendait
 
 aux arbres comme une gelée de givre. Au milieu de cet
 
@@ -9578,14 +9135,12 @@ enfer de fracas, de craquements, de ricanements sauvages, de rires et de cris de
 - longtemps saccagé pour rester des hommes.
 On s'est précipité d'abord vers le hangar. il n'y à
 À avait-qu'un homme, le vitrier Gruenschpun. Un voisin,
-- un Moldavane, que la veuve de Gruenschpun nous dési-
-gnait par son nom (c'élait une connaissance) a frappé
+- un Moldavane, que la veuve de Gruenschpun nous désignait par son nom (c'élait une connaissance) a frappé
 le premier le vitrier d'un coup de conteau à la gorge.
 - Le malheureux voulut s'enfuir du hangar, mais fut
 attrapé, traîné sous le hangar et achevé à coups de tri-
 …. ques, à la place même où maintenant encore on voit » une tache du sang.
-Comme nous lui demandions si elle connaissait vrai-
-ment le nom de l'assassin, si elle ne se trompait pas et
+Comme nous lui demandions si elle connaissait vraiment le nom de l'assassin, si elle ne se trompait pas et
 si ce n'était pas un assassin de passage, un Albanais
 de Turquie ou un forçat évadé, la veuve de Gruenschpun,
 . répondit avec conviction:
@@ -9594,8 +9149,7 @@ gneur nous donne me bonne vie, comme nous étions de
 bonnes connaissances. Cette « bonne connaissance »
 avait porté le premier coup de couteau dans la maison
 - numéro 13. Après cela la situation devint claire: le
-râle du vitrier, et les Juifs, et la foule elle-même peut-
-être avaient compris à quoi il fallait s'attendre.
+râle du vitrier, et les Juifs, et la foule elle-même peutêtre avaient compris à quoi il fallait s'attendre.
 Les israélites s'agitèrent comme des rats dans une
 souricière selon l'expression d'un des « chrétiens »
 . de Kichinev, homme jovial et qui trouve en pareils cas
@@ -9624,17 +9178,13 @@ massacreurs; c'est qu'ils se cachèrent, et les gens qui
 
 croyaient de leur plaisir (ou de leur devoir) de saccager
 
-les biens des juifs, mais pas de les tuer, le leur permi-
-
-rent. Néanmoins, les assassins se précipilèrent aussi
+les biens des juifs, mais pas de les tuer, le leur permirent. Néanmoins, les assassins se précipilèrent aussi
 
 jl. dass le grenier à la suite des fugitifs.
 
 Le grenier de la maison numéro 15, local étroit et
 
-! obseur, est encombré de poutres, de tuyaux de chemi-
-
-nées et de supports de toits. Les malheureux fugitifs,
+! obseur, est encombré de poutres, de tuyaux de cheminées et de supports de toits. Les malheureux fugitifs,
 
 après avoir fait quelques tours de ce grenier, compri-
 
@@ -9724,8 +9274,7 @@ les assassins. Ils se mirent à courir sur le toit, tantôt
 apparaissant sur le côté qui donne sur la rue, tantôt tes
 passant du côté de la cour. Derrière eux couraient les À
 assassins. Le même voisin qui porta le premier coup de
-couteau à Gruenschpun blessa Berlatzky. Un autre émeu-
-tier jetait dans les pieds des Juifs le lavabo en fer que
+couteau à Gruenschpun blessa Berlatzky. Un autre émeutier jetait dans les pieds des Juifs le lavabo en fer que
 deux mois après le « pogrome » nous vîmes encore sur
 le toit. Le lavabo en fer résonnait en se heurtant contre
 le toit. Et la foule riait probablement. Enfin tous les trois
@@ -9753,7 +9302,7 @@ le mari; il fut rejoint et tué en face du numéro 7 de la
 il. ruelle Asiatsky. On dit que l'un des assassins est nais et l'autre Moldavane. Comme il avait plu avant
 Pâques, il y avait des flaques d'eau aux bords de la rue.
 
-(: Nissensohn tomba dans une de ces flaques; alors les
+Nissensohn tomba dans une de ces flaques; alors les
 meurtriers le rincèrent dans la boue, comme un torchon
 1] ‘qu'on lave et que l'on tord.
 4) Après cela la foule, ayant satisfait ses instincts de
@@ -9769,8 +9318,7 @@ qui tua Gruenschpun et blessa Berlatzky lui porta un
 4 coup de pieu à la tête et mit ainsi un terme à ses souf-
 (3 La foule continuait à travailler. La place était toute
 ni encembrée de débris de meubles, de loques et de
-cadres brisés, de sorte qu'on ne pouvait plus la traverd ser qu'avec peine. Une juive m'a raconté qu'étant obli-
-gée de se rendre de l'autre côté de la place, où se trou-
+cadres brisés, de sorte qu'on ne pouvait plus la traverd ser qu'avec peine. Une juive m'a raconté qu'étant obligée de se rendre de l'autre côté de la place, où se trou-
 
 1 vaient ses enfants, elle essaya en vain à deux reprises
 
@@ -9851,8 +9399,7 @@ Le 1 Et pourtant. Lorsque j'étais en train de finir ces
 1 ù notes décousues, écrasé par cet amas de terribles ma-
 :Lv tériaux, j'ai appris par les journaux le suicide du À
 1 114 notaire Pisarjewski. Le nom de cet homme était sur
-ni toutes les lèvres au moment où je me trouvais à Kichi-
-le de Kichinev, toujours en quête nouvelles aventures,
+ni toutes les lèvres au moment où je me trouvais à Kichile de Kichinev, toujours en quête nouvelles aventures,
 jet À Pisarjewski, tout le monde le disait, avait pris part
 au « pogrome en dirigeant la foule des émeutiers.
 ! (0 On disait aussi que de fortes influences s'employaient à
@@ -9888,8 +9435,7 @@ de la bouche d'un homme du peuple, d'un cocher de
 Kichinev, originaire de Russie d'ailleurs. Lorsque nous
 eausions avec lui du « pogrome » et de ses conséquences,
 il raconté qu'une de ses connaissances, un horti-
-: culteur qui devait payer ses ouvriers, était venu der-
-nièrement pour emprunter de l'argent à Kichinev. Les
+: culteur qui devait payer ses ouvriers, était venu dernièrement pour emprunter de l'argent à Kichinev. Les
 Juifs, encore incertains du lendemain, avaient coupé le
 : crédit. Force fut donc à l'horticulteur de s'adresser aux
 usuriers chrétiens au lieu des usuriers Juifs. « Et dès lors,
@@ -9900,12 +9446,11 @@ trois fois. » On s'en aperçoit très bien à Kichinev.. Et
 3 parmi les gens, qui avaient sympathisé avec les massa-
 … creurs et excité dans la foule les préjugés obscurs, la
 haïne de races et les instincts sauvages de meurtre et
-de rapine, on pourrait citer certains usuriers très con-
-nus qui y ont trouvé leur profit.
+de rapine, on pourrait citer certains usuriers très connus qui y ont trouvé leur profit.
 Je n'ai pas l'intention de préconiser les projets desti-
 
 4 nés à résoudre la question juive. Mais si j'étais un de
-À: ces millionnaires juifs qui semblent s'occuper de cette
+ces millionnaires juifs qui semblent s'occuper de cette
 question, je ne saurais pas résister à la tentation d'une
 ! expérience sociale que voici: j'aurais transplanté, sinon
 tous, au moins la grande majorité des Juifs du lieu du
@@ -9915,8 +9460,7 @@ du pauvre un homme aisé, pourvu qu'ils consentissent
 1 tal juif, ainsi enlevée, le capital chrétien et même pa-
 : triotique serait apparu sans alliage ni mélange; lorsque
 à M. Krouchevan n'aurait plus le moyen de créer de
-sombres légendes de meurtres rituels, lorsque les usu-
-riers et les accapareurs se seraient promenés habillés à
+sombres légendes de meurtres rituels, lorsque les usuriers et les accapareurs se seraient promenés habillés à
 l'européenne, alors il faut croire qu'on aurait clair
 dans l'affaire; alors on comprendrait s'il est possible
 à de résoudre pareilles questions par les « pogromes par
@@ -9931,9 +9475,7 @@ traduit par Elie Eberlin
 
 Notre catalogue analytique sommaire............ MA
 
-Raoul Allier. — L'enseignement pri-
-
-maire des indigènes à Madagascar......
+Raoul Allier. — L'enseignement primaire des indigènes à Madagascar......
 
 : Sur les onze millions de Juifs que l'on compte NUE
 dans le monde entier la Russie en possède plus À
@@ -9945,8 +9487,7 @@ Lazare; on n'a jamais étudié le Juif que dans
 sa bourgeoisie; un aperçu mondial du proléta-
 
 . riat juif; les ghettos du monde; le renouveau!
-présent; mais en Russie; une sourde résis-
-tance; un caractère particulièrement tragique; \ut
+présent; mais en Russie; une sourde résistance; un caractère particulièrement tragique; \ut
 les causes économiques; les motifs d'ordre
 
 social et psychologique prédominent; le véri-
@@ -9992,8 +9533,7 @@ ne répugnent pas; une statistique, en date de
 quelques chiffres sur les juifs agriculteurs; les
 
 juifs et l'agriculture; 1807 et 1808 colons juifs
-dans les gouvernements de Kherson et d'Iékaté-
-rinoslav; mieux outillés; malgré tous empêchements; progrès rapides; quelques données statistiques; en Sibérie; au Caucase;
+dans les gouvernements de Kherson et d'Iékatérinoslav; mieux outillés; malgré tous empêchements; progrès rapides; quelques données statistiques; en Sibérie; au Caucase;
 
 IL. — Les causes historiques, psychologiques et
 morales du mouvement révolutionnaire parmi
@@ -10037,8 +9577,7 @@ LE ment sun la ROBE jusque-là ion rapid FES
 anlag de plus isie juive; issance Un A.
 4006 ent "geoisi ier; nai vrier:
 TRE centu ile bourg 1vrier; les ou tie
-à de la A mouveme remiers;; propaga lti-
-cer à l'écart oles, aux urtout uoi; ne.
+à de la A mouveme remiers;; propaga lticer à l'écart oles, aux urtout uoi; ne.
 NE ive; rué es russes;
 “(HR ÉNÉAEE éraires, aires russ il effroy. (9
 (SUR mor ritaire; nis ra-
@@ -10076,7 +9615,7 @@ relations avec organisations prolétariennes de
 grès de Londres; le gouvernement russe poursuit; mais le mouvement se répand de plus en
 
 plus; journaux socialistes; Vilna insuffisant; il
-?: faut un parti régulier;
+faut un parti régulier;
 IV. — Le « Bund » et son activité; ses rapports
 avec le parti Social-Démocratique russe.......
 Au mois de septembre 1897, premier congrès
@@ -10095,11 +9634,8 @@ le « Manifeste points essentiels; individualité
 « Bund » et le Parti social-démocratique russe;
 organisation du « Bund quatre congrès, 1898,
 de grèves; ouvriers payant régulièrement leurs
-cotisations; bibliothèques; le contrôle des comi-
-tés locaux; le comité central; activité; le
-« comité étranger le congrès; deux associa-
-tions ouvrières professionnelles; activité écono-
-mique du « Bund statistique des grèves;
+cotisations; bibliothèques; le contrôle des comités locaux; le comité central; activité; le
+« comité étranger le congrès; deux associations ouvrières professionnelles; activité économique du « Bund statistique des grèves;
 causes des grèves; résultats; néanmoins il faut
 constater que dans les dernières années le
 « Bund » tend de plus en plus à abandonner le
@@ -10111,10 +9647,9 @@ plus qu'un chrétien; moins une question de
 réglementation qu'une question d'offre et de
 
 tion fatale de la petite industrie; grande industrie non encore pris son essor; ne peut le
-limites des concessions; eux aussi des prolé-
-taires; d'où intérêts communs des ouvriers et
+limites des concessions; eux aussi des prolétaires; d'où intérêts communs des ouvriers et
 des patrons; d'ailleurs le « Bund » non organisation purement ouvrière; les chefs et bon
-nombre de militants « prolétaires intellectuels »;
+nombre de militants « prolétaires intellectuels
 
 la lutte politique pour un idéal; enthousiasme;
 statistique des persécutions subies par le
@@ -10137,19 +9672,11 @@ et encouragements au « Bund puis, au cours
 des deux dernières années, contestations sur
 attributions; l'Zskra; polémique très acerbe; au
 
-second Congrès du parti socialiste russe, rup-
-
-ture; intransigeance du parti; attaques de
-l'Iskra; le parti russe et les autres partis natio-
-
-naux en Russie; intervention du Sionisme; le
+second Congrès du parti socialiste russe, rupture; intransigeance du parti; attaques de
+l'Iskra; le parti russe et les autres partis nationaux en Russie; intervention du Sionisme; le
 
 ; « Bund » une sorte d'union fédérale; le congrès
-de Brunn, en 1897, pour l'Autriche-Hongrie; déci-
-
-sions de ce congrès sur la question des nationa-
-
-lités; rupture fâcheuse; repoussé un unitarisme
+de Brunn, en 1897, pour l'Autriche-Hongrie; décisions de ce congrès sur la question des nationalités; rupture fâcheuse; repoussé un unitarisme
 
 étroit et forcé, — héritage de l'absolutisme
 
@@ -10200,9 +9727,9 @@ LE sionistes; sionistes socialistes; en Occident
 LIRE la France, en Orient la Judée autonome
 
 24 deviendront les foyers d'où la lumière et: ( ne
-;: laction socialistes jailliront sur le monde
+laction socialistes jailliront sur le monde
 entier; les Poalé Zion; lutte de classes; en rat
-3 même temps sionistes; un « Manifeste »; Comi-;
+3 même temps sionistes; un « Manifeste Comi-;
 À tés de défense; une émeute antijuive à Homel; Fes
 une résistance vigoureuse; ailleurs; premiers
 rapports tendus entre bundistes et Poalé Zion;

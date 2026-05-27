@@ -41,9 +41,7 @@ Sue 8, rue de la Sorbonne, au rez-de-chaussée
 Dans les dix-sept cahiers de leur sixième série, année
 1904-1906, nos cahiers ont publié:
 — CnaRLes Pécuy. — Texte sans commen-
-— Cuances PÉGuy. — un essai de mono-
-pole. — RaouL ALLER. — L'enseignement pri-
-maire des indigènes à Madagascar............... 350 CE
+— Cuances PÉGuy. — un essai de monopole. — RaouL ALLER. — L'enseignement primaire des indigènes à Madagascar............... 350 CE
 — Le testament politique de Waldeck-
 — Porcué; GizLer; TuArAUD. — les primitifs. À
 français; contes de la Vierge. — cahier orné de À
@@ -160,7 +158,7 @@ Fidèlement courbés sur tes rames obliques.
 
 Et nous prenant leur place au même banc de chêne;
 ne Nous ramerons des reins, de la nuque, de l'âme, CE
-100 Pliés, cassés, meurtris, saignants sous notre chaîne;
+Pliés, cassés, meurtris, saignants sous notre chaîne;
 
 Et nous tiendrons le coup, rivés sur notre rame, à
 AA. Forçais fils de forçats aux deux rives de Seine, Tr"
@@ -211,7 +209,7 @@ Un réservoir sans fin pour les âges nouveaux.
 Mille ans de votre grâce ont fait de ces travaux
 Un reposoir sans fin pour l'âme solitaire. 4"
 Vous nous voyez marcher sur cette route droite, el}
-4 Tout poudreux, tout crottés, la pluie entre les dents. a
+Tout poudreux, tout crottés, la pluie entre les dents. a
 2 2 Sur ce large éventail ouvert à tous les vents
 ; La route nationale est notre porte étroite.
 
@@ -230,7 +228,7 @@ Ont appris ce que c'est que d'être familiers,
 ; Et comme on peut marcher, les pieds dans ses souliers, a
 Le Vers un dernier carré le soir d'une bataille,
 Nous sommes nés pour vous au bord de ce plateau,
-Dans le recourbement de notre blonde Loire, )!
+Dans le recourbement de notre blonde Loire,
 . Et ce fleuve de sable et ce fleuve de gloire
 N'est que pour baiser votre auguste manteau.
 ; Nous sommes nés au bord de ce vaste plateau,
@@ -294,7 +292,7 @@ ne Nous avons pour trois jours laissé notre négoce,
 « Etla rumeur géante et la ville colosse,
 D'autres viendront vers vous du lointain Cambrésis.
 Nous arrivons vers vous de Paris capitale.
-14 C'est que nous avons notre gouvernement,
+C'est que nous avons notre gouvernement,
 À Et notre temps perdu dans le lanternement;
 Et notre liberté décevante et totale. 1]
 Nous arrivons vers vous de l'autre Notre Dame, NE
@@ -382,7 +380,7 @@ Et que c'est bien assez de se lever matin.
 
 Le jour était en route et le soleil montait Fin
 Quand nous avons passé Sainte-Mesme et les autres.
-1 Nous avancions déjà comme deux bons apôtres.
+Nous avancions déjà comme deux bons apôtres.
 Nous sommes remontés par le Gué de Longroy.
 C'en est fait désormais de nos atermoiements,
 
@@ -571,7 +569,7 @@ Nous, nous retournerons par ce même chemin. AP)
 Le château sans un coin et sans une oubliette,
 Etce sol mieux gravé qu'un parfait parchemin.
 Et nunc et hora, nous vous prions pour nous
-14 Qui sommes plus grands sots que ce pauvre gamin, Me
+Qui sommes plus grands sots que ce pauvre gamin, Me
 è Et sans doute moins purs et moins dans votre main,
 Et moins acheminés vers vos sacrés genoux.
 Quand nous aurons joué nos derniers personnages,;
@@ -709,7 +707,7 @@ CRE Reine des confesseurs, des vierges et des anges,
 Nous voici retournés dans nos premiers villages.
 On nous en a tant dit, Ô reine des apôtres,
 19 a Nous n'avons plus de goût pour la péroraison. à
-à: Nous n'avons plus d'autels que ceux qui sont les vôtres,
+Nous n'avons plus d'autels que ceux qui sont les vôtres,
 Le Nous ne savons plus rien qu'une simple oraison.
 Nous avons essuyé de si vastes naufrages,
 Nous n'avons plus de goût pour le transbordement, Le
@@ -791,7 +789,7 @@ Ce qui partout ailleurs est un retranchement
 ; N'est ici qu'un soleil au ras de l'horizon.
 
 Ce qui partout aïlleurs est un dur labourage TU
-4 N'est ici que récolte et dessaisissement.
+N'est ici que récolte et dessaisissement.
 Ce qui partout ailleurs est le déclin d'un âge
 à N'est ici qu'un candide et cher vieillissement.
 qui partout ailleurs est une résistance
@@ -898,7 +896,7 @@ Vienne remémorer cette peine prescrite,
 VENT Nous ne demandons pas que la tige ployée
 Soit jamais redressée au livre de nature,
 Et que le lourd bourgeon et la jeune nervure
-2 Perce jamais l'écorce et soit redéployée.
+Perce jamais l'écorce et soit redéployée.
 Nous ne demandons pas que le rameau broyé
 Reverdisse jamais au livre de la grâce,
 Et que le lourd surgeon et que la jeune race
@@ -994,7 +992,7 @@ Nous avons parcouru de si mouvantes terres,
 
 : Nous nous sommes acquis si hautes renommées.
 
-4 Nous n'avons plus de goût pour le métier des armes,
+Nous n'avons plus de goût pour le métier des armes,
 
 Reine des grandes paix et des désarmements,
 
@@ -1083,4 +1081,4 @@ Nous qui n'avons connu que votre adversité,,
 Vos grâces de bonheur et de prospérité.
 
 1" Et tresser pour ces fronts, reine du pur froment,: (Se
-2 Quelques épis cueillis dans la moisson des fêtes.
+Quelques épis cueillis dans la moisson des fêtes.

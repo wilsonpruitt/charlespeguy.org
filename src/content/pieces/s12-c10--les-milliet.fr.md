@@ -27,80 +27,57 @@ fortes indemnités. Mais à ces réclamations légitimes
 s'en mêlaient d'autres qui l'étaient beaucoup moins.
 
 (1) A peine Santa Anna avait-il été nommé dictateur, qu'il fut
-chassé, puis réélu en janvier 1855. En août, ce fut le tour de Car-
-rera, dépossédé en septembre par Alvarès. En décembre, celui-ci
+chassé, puis réélu en janvier 1855. En août, ce fut le tour de Carrera, dépossédé en septembre par Alvarès. En décembre, celui-ci
 dut céder la place à Comonfort, et le mois suivant, à Zuloaga. En
 1859, Miramon, chef du parti clérical, s'empara du pouvoir, mais
 Juarez, à la tête des Libéraux, établit un second gouvernement
 à la Vera-Cruz et fut reconnu seul Président en janvier 1861.
 
-Le général Miramon, se trouvant à bout de res-
-sources, émit un emprunt de 15 millions de piastres
+Le général Miramon, se trouvant à bout de ressources, émit un emprunt de 15 millions de piastres
 (près de 80 millions de francs). Mais il ne pouvait pas
 ramener la confiance, et les bons de la Dette mexicaine
 tombèrent bientôt à 3 o/o de leur valeur nominale. Ce
-fut alors qu'un banquier suisse, Jecker, qui était lui-
-même sur le point de suspendre ses paiements, proposa
-de retirer les bons et de les échanger contre de nou-
-veaux titres, moyennant une prime de 25 o/o. (1)
+fut alors qu'un banquier suisse, Jecker, qui était luimême sur le point de suspendre ses paiements, proposa
+de retirer les bons et de les échanger contre de nouveaux titres, moyennant une prime de 25 o/o. (1)
 
 La créance de Jecker semblait bien
 compromise, quand l'habile homme eut l'idée de se faire naturaliser
-français (le 26 mars 1862). Il soudoya quelques person-
-nages influents et peu scrupuleux dans l'entourage de
+français (le 26 mars 1862). Il soudoya quelques personnages influents et peu scrupuleux dans l'entourage de
 Morny, auquel il promit pour sa part une vingtaine de
 
 M. de Saligny menaçait le Gouvernement mexicain
 d'une ruine certaine, si les propositions de Jecker
 n'étaient pas acceptées.
 
-Telle fut la véritable cause de cette désastreuse expé-
-dition. « C'est pour donner une valeur réelle à une
+Telle fut la véritable cause de cette désastreuse expédition. « C'est pour donner une valeur réelle à une
 créance fictive que la France a prodigué les hommes et
 les millions. » (3)
 
 (1) Voir de Montluc, *Correspondance de Juarez*. Charpentier,
 (2) Le fait a été prouvé par les comptes de la succession de
-Morny (mort en 1865). Jecker le confirma par une lettre qu'il écri-
-vit en décembre 1869 à M. Conti, chef du Cabinet de l'Empe-
-reur: « Vous ignorez sans doute que j'avais pour associé dans
+Morny (mort en 1865). Jecker le confirma par une lettre qu'il écrivit en décembre 1869 à M. Conti, chef du Cabinet de l'Empereur: « Vous ignorez sans doute que j'avais pour associé dans
 cette affaire M. le duc de Morny, qui s'était engagé, moyennant
 30 o/o des bénéfices de cette affaire, à la faire respecter et payer
 par le Gouvernement mexicain. » (Niox, *Expédition du Mexique*,
 (3) Du Barail. *Mes Souvenirs*. Plon-Nourrit éditeur, 1896.
 
-Il fallait colorer cette escroquerie et trouver des pré-
-textes plus avouables: les catholiques mexicains réfu-
-giés en France, Mgr. Labastida, archevêque de Mexico,
-le général Almonte, M. Gutiérez, les Eraz[?]n commen-
-cèrent par circonvenir l'impératrice, qui poussait son
+Il fallait colorer cette escroquerie et trouver des prétextes plus avouables: les catholiques mexicains réfugiés en France, Mgr. Labastida, archevêque de Mexico,
+le général Almonte, M. Gutiérez, les Eraz[?]n commencèrent par circonvenir l'impératrice, qui poussait son
 mari avec un regrettable ascendant sur l'esprit de son mari. Ils lui
 persuadèrent que les Mexicains étaient profondément
 attachés aux traditions politiques et religieuses du
 passé; ce serait faire œuvre pie que de les délivrer du
-joug républicain. — L'impératrice, dévote et peu intel-
-ligente, ne prit d'une belle passion pour cette belle entre-
-prise et poussa de toutes ses forces à la guerre.
+joug républicain. — L'impératrice, dévote et peu intelligente, ne prit d'une belle passion pour cette belle entreprise et poussa de toutes ses forces à la guerre.
 
-Quant à l'empereur, déjà sur le penchant d'une vie pro-
-fonde. La guerre de Sécession n'était pas encore ter-
-minée, mais, pour faire contrepoids à la propagation
-des idées républicaines et protestantes, qui trium-
-phaient aux États-Unis, la France devait fonder au
-Mexique une monarchie catholique. Napoléon III joue-
-rait un grand rôle dans l'histoire, s'il soutenait l'hégé-
-monie des races latines, prêtes à succomber sous la
+Quant à l'empereur, déjà sur le penchant d'une vie profonde. La guerre de Sécession n'était pas encore terminée, mais, pour faire contrepoids à la propagation
+des idées républicaines et protestantes, qui triumphaient aux États-Unis, la France devait fonder au
+Mexique une monarchie catholique. Napoléon III jouerait un grand rôle dans l'histoire, s'il soutenait l'hégémonie des races latines, prêtes à succomber sous la
 prépotence envahissante des Anglo-Saxons! — C'était
-oublier que la grande question est qu'il parviendrait diffici-
-lement à arrêter la décadence latine. Esprit nuageux et
+oublier que la grande question est qu'il parviendrait difficilement à arrêter la décadence latine. Esprit nuageux et
 chimérique, Napoléon III fut dupe de ces grands mots
-vides et obéit à de funestes suggestions. Rouher, com-
-plice, déclara solennellement à la Chambre que l'Expédi-
-tion du Mexique était « la plus grande pensée du
+vides et obéit à de funestes suggestions. Rouher, complice, déclara solennellement à la Chambre que l'Expédition du Mexique était « la plus grande pensée du
 
-On ne tarda pas à mettre en avant les indemnités récla-
-mées par les commerçants, qu'en octobre 1861, l'Angle-
-terre, la France et l'Espagne convinrent d'envoyer leurs
+On ne tarda pas à mettre en avant les indemnités réclamées par les commerçants, qu'en octobre 1861, l'Angleterre, la France et l'Espagne convinrent d'envoyer leurs
 
 flottes pour appuyer ces réclamations. — Partis de la
 Havane, les Espagnols s'emparèrent les premiers de la
@@ -118,8 +95,7 @@ Cet arrangement ne faisait pas l'affaire de M. Dubois
 de Saligny. C'est lui qui, aux réclamations de nos
 nationaux, avait ajouté celles de Jecker; c'est lui qui
 fit repousser par la France la convention de la Soledad;
-mais il dissimula adroitement son action et, se pré-
-tendant malade, laissa au naïf amiral Jurien de la
+mais il dissimula adroitement son action et, se prétendant malade, laissa au naïf amiral Jurien de la
 Gravière la responsabilité de cette regrettable déci-
 
 Le Gouvernement français désapprouva la convention
@@ -139,15 +115,13 @@ s'emparer du fort de Guadalupe (5 mai 1862). Elle dut
 
 C'est pour réparer cet échec que le général Forey
 partit en septembre. Il fut suivi du colonel de Brincourt
-et du général Douay amenant des renforts qui por-
-tèrent l'effectif de notre armée à 30.000 hommes.
+et du général Douay amenant des renforts qui portèrent l'effectif de notre armée à 30.000 hommes.
 
 Juarez écrivait à M. de Montluc:
 
 Le gouvernement mexicain se prépare à repousser la
 force par la force; il met sa confiance en la justice de la
-cause qu'il défend, celle de la nationalité et de l'indépen-
-dance du Mexique. Le pays sortira avec avantage d'une
+cause qu'il défend, celle de la nationalité et de l'indépendance du Mexique. Le pays sortira avec avantage d'une
 lutte injuste, à laquelle il a été provoqué à son corps
 
 1862-1863
@@ -172,8 +146,7 @@ grand fantôme blanc. Groupés sur le gaillard d'arrière,
 les officiers chantent un nocturne à plusieurs voix que les
 hommes, impressionnés par la magie du spectacle, écoutent
 
-Le vaisseau longea les côtes d'Espagne et, le 13 sep-
-tembre, il voguait déjà en plein Océan. Mais la brise
+Le vaisseau longea les côtes d'Espagne et, le 13 septembre, il voguait déjà en plein Océan. Mais la brise
 étant tombée, la marche se ralentit. L'existence à bord
 n'était pas folâtre.
 
@@ -181,9 +154,7 @@ A la table du commandant,
 écrit M. du Barail,
 nous ne
 sommes que trois: le commandant Rozier, très brave
-homme et très bon marin, très sec aussi avec ses subor-
-donnés et attristé par la lenteur de sa carrière, le comman-
-dant de Tucé, très honorable officier, mais très taciturne
+homme et très bon marin, très sec aussi avec ses subordonnés et attristé par la lenteur de sa carrière, le commandant de Tucé, très honorable officier, mais très taciturne
 convive, de plus, fort éprouvé par le mal de mer, et
 
 Il ne sera pas inutile de faire faire au lecteur une
@@ -197,8 +168,7 @@ blonde qui cachait complètement sa bouche, ses yeux
 d'un bleu clair, la douceur calme de sa physionomie,
 la modération extrême de ses gestes, tout révélait en
 lui le descendant d'une race du Nord. Grave, froid,
-silencieux, il manquait un peu de vivacité et d'expan-
-sion, et ses traits impassibles laissaient rarement
+silencieux, il manquait un peu de vivacité et d'expansion, et ses traits impassibles laissaient rarement
 deviner ce qui se passait en lui; je ne l'ai jamais
 rire aux éclats ni se mettre en colère. A son retour du
 Mexique, lorsque, après cinq ans d'absence, il retrouva
@@ -208,8 +178,7 @@ C'est ce calme imperturbable qui lui permettra de
 sauver son régiment du désastre de Sedan.
 
 (1) Une estime réciproque établit bientôt entre M. du Barail et
-M. de Tucé une sincère et durable amitié. J'en trouve le témoi-
-gnage dans le volumineuse correspondance que je mettrai plus
+M. de Tucé une sincère et durable amitié. J'en trouve le témoignage dans le volumineuse correspondance que je mettrai plus
 d'une fois à contribution. J'aurai recours aussi au très beau livre
 
 1862-1863
@@ -229,12 +198,10 @@ d'escadron. Officier intrépide, Adrien de Tucé semblait
 pour le commandement; personne n'aurait l'idée
 de lui désobéir. C'était un chef prévoyant; d'une
 sollicitude paternelle et éclairée. Audacieux, mais non
-téméraire, parce qu'il avait le sentiment de sa respon-
-sabilité, au moment du danger, il faisait passer dans
+téméraire, parce qu'il avait le sentiment de sa responsabilité, au moment du danger, il faisait passer dans
 l'âme de ses soldats, avec son sang-froid, sa ténacité
 et sa confiance. — D'un abord facile, sans que son
-autorité en souffrît jamais, il était sévère sur la disci-
-pline, mais on se plaisait à reconnaître la droiture de
+autorité en souffrît jamais, il était sévère sur la discipline, mais on se plaisait à reconnaître la droiture de
 son jugement et son impartialité, unie à un grand fond
 de bienveillance. Son apparente froideur laissait vite
 deviner l'ami sûr et dévoué, l'homme droit et loyal. Sa
@@ -272,8 +239,7 @@ chevaux étaient renversés et projetés d'un côté à l'autre. Tu
 peux t'imaginer quel chaos faisaient les caisses, les
 fourrages, les sacs. Nous avons beaucoup de chevaux
 renversés, six noyés, dix-neuf broyés et d'autres asphyxiés.
-On en a jeté d'un même coup trente-deux à la mer. Beau-
-coup de ceux qui restent ont des blessures très graves et
+On en a jeté d'un même coup trente-deux à la mer. Beaucoup de ceux qui restent ont des blessures très graves et
 n'en réchapperont pas; sans cela, les fourrages et l'orge ont été
 gâtés et jetés à l'eau. Heureusement, mes chevaux n'ont rien
 eu, ou peu de chose.
@@ -300,8 +266,7 @@ dites-moi ce que nous allons faire là, si vous le savez.
 
 Fort-de-France, 11 novembre 1865.
 
-... Nous sommes restés vingt-quatre heures en quaran-
-taine et, le lendemain, notre débarquement s'est effectué
+... Nous sommes restés vingt-quatre heures en quarantaine et, le lendemain, notre débarquement s'est effectué
 sans encombre. L'on nous a envoyés au fort Desaix qui est
 à trois kilomètres de la ville, sur une hauteur, et où l'air
 est très sain. Quel ravissant pays que la Martinique! de la
@@ -314,8 +279,7 @@ ils vous appellent tous *ché*, pour dire cher.
 
 En arrivant, le bâtiment a été envahi par une nuée de
 femmes qui venaient demander notre linge à blanchir. La
-plupart auraient bien commencer par se blanchir elles-
-mêmes, mais malgré cela elles sont d'une affabilité rare et
+plupart auraient bien commencer par se blanchir ellesmêmes, mais malgré cela elles sont d'une affabilité rare et
 pas sauvages du tout.
 
 J'ai été bien occupé pendant notre escale de cinq jours:
@@ -339,13 +303,10 @@ commis de grandes bêtises.
 Nos chevaux sont dans un état admirable, nous n'en
 avons perdu que trois. On parle beaucoup des serpents de
 les fruits du pays, le coco, la banane, la goyave, l'arbre à
-pain, l'ananas, la sapotille, la canne à sucre, mais franche-
-ment tout cela ne vaut pas une pomme. Le tabac est détes-
-table et extrêmement cher.
+pain, l'ananas, la sapotille, la canne à sucre, mais franchement tout cela ne vaut pas une pomme. Le tabac est détestable et extrêmement cher.
 
 J'ai trouvé à Fort-de-France un de mes amis qui, après
-avoir été brigadier au même régiment que moi, est mainte-
-nant gendarme. J'ai dîné avec lui. Il me semble que je
+avoir été brigadier au même régiment que moi, est maintenant gendarme. J'ai dîné avec lui. Il me semble que je
 m'établirais volontiers dans ce pays; mais non, il faut
 continuer ma vie errante, voguons pour le Mexique! Je
 pars demain matin, je continuerai ma lettre à bord. Je me
@@ -356,8 +317,7 @@ forte et accablante, je me sens frais, dispos et vigoureux.
 
 La Vera-Cruz, novembre 1862.
 
-Nous avons mis quinze jours à nous rendre de la Marti-
-nique à Vera-Cruz, lieu de notre débarquement qui s'est
+Nous avons mis quinze jours à nous rendre de la Martinique à Vera-Cruz, lieu de notre débarquement qui s'est
 effectué le 5 novembre; en tout 56 jours de traversée. Nous
 avons campé à la porte de la ville dans un endroit assez
 malsain. Une rivière dont l'embouchure est voisine se
@@ -376,19 +336,16 @@ séjour sous la tente est assez pénible dans ces parages
 Le vice-roi d'Égypte nous a donné un bataillon de nègres
 du Soudan. Cette race a la chance d'être réfractaire à la
 
-Le lendemain de notre débarquement, une affreuse tem-
-pête a détruit nos tentes, nous y voyions, au plus fort de la
+Le lendemain de notre débarquement, une affreuse tempête a détruit nos tentes, nous y voyions, au plus fort de la
 chaleur, dormir en plein soleil. La vente fonctionnait avec un
 magnifique trois-mâts anglais. C'est à grand peine que l'on
 parvint à sauver l'équipage de la goëlette; les trois-mâts,
-brisé sur les rochers, coula à fond. Les matelots, le capi-
-taine, sa femme et son enfant s'étaient réfugiés dans le haut
+brisé sur les rochers, coula à fond. Les matelots, le capitaine, sa femme et son enfant s'étaient réfugiés dans le haut
 des mâts, où ils se cramponnaient avec la vigueur du
 désespoir. Nous voyons les vagues furieuses les emporter
 un à un et les noyer sous nos yeux. Une chaloupe montée
 par six matelots et un quartier-maître, vint vaillamment le
-sauvetage, elle fut broyée et les sept braves marins dispa-
-rurent dans les flots. (2)
+sauvetage, elle fut broyée et les sept braves marins disparurent dans les flots. (2)
 
 La Vera-Cruz est une fort belle ville, bien alignée. Elle
 est bâtie au milieu des dunes, vue de la mer, sur ce fond
@@ -409,10 +366,8 @@ entraver la circulation.
 (1) C'était une troupe fort belle et admirablement disciplinée.
 Pas un de nos soldats n'a été malade. Ils sont les voyais, au plus fort de
 la chaleur, dormir en plein soleil, malgré tout leur équipement, sans en
-nous être pratiquement une telle impression de noirceur, on les voyait, malgré leurs commandés; des officiers, écrit-il, mi-
-spinaient une couleur soufre devenant juslâtre. La chef d'escadrons de
-Tucé, solide et au courant du service, mettait son une con-
-science et une application extrême. — Du BARAIL.
+nous être pratiquement une telle impression de noirceur, on les voyait, malgré leurs commandés; des officiers, écrit-il, mispinaient une couleur soufre devenant juslâtre. La chef d'escadrons de
+Tucé, solide et au courant du service, mettait son une conscience et une application extrême. — Du BARAIL.
 (2) Tout parait moisi, même les énormes pièces de canon que
 nous rongées jusqu'à l'âme, sans qu'on puisse leur imprimer le
 moindre choc sans crainte qu'on les voie tomber en poussière. — Du BARAIL.
@@ -421,8 +376,7 @@ moindre choc sans crainte qu'on les voie tomber en poussière. — Du BARAIL.
 que des insectes, reptiles, bêtes de toute espèce qui ne nous
 laissent aucun repos. Nous avons établi dans nos tentes un
 serpent à sonnettes et un quadrupède étrange, gros comme
-un renard, tenant à la fois du rat et du cochon. Les Chas-
-seurs l'ont mangé. Nous avions établi notre cuisine sur le
+un renard, tenant à la fois du rat et du cochon. Les Chasseurs l'ont mangé. Nous avions établi notre cuisine sur le
 bord d'un petit ruisseau fangeux et, tout en dînant, nous
 voyions les petits crocodiles prendre leurs ébats sous l'œil
 vigilant de leurs parents.
@@ -437,13 +391,9 @@ les mêmes animaux malfaisants, mais en bien plus grand
 nombre, car nous parcourions des forêts vierges. Rien ne
 peut donner une idée de cette végétation, c'est un spectacle
 de toute beauté. On trouve toutes les plantes d'ornement
-de nos jardins d'Europe, mais avec une attitude toute diffé-
-rente et dans des proportions gigantesques. Ce qui est mer-
-veilleux, c'est la vie intense qu'elles abritent; les oiseaux
-voltigent par myriades, ils sont parés des plus vives cou-
-leurs. Les perroquets et les perruches nous assourdissaient
-de leurs piaillements gutturaux, mille insectes nous harce-
-laient de leurs bourdonnements et de leurs piqûres. (1)
+de nos jardins d'Europe, mais avec une attitude toute différente et dans des proportions gigantesques. Ce qui est merveilleux, c'est la vie intense qu'elles abritent; les oiseaux
+voltigent par myriades, ils sont parés des plus vives couleurs. Les perroquets et les perruches nous assourdissaient
+de leurs piaillements gutturaux, mille insectes nous harcelaient de leurs bourdonnements et de leurs piqûres. (1)
 
 Dans les six jours de marche que nous avons fait pour
 aller jusqu'à Puente National, nous n'avons pas rencontré
@@ -462,8 +412,7 @@ méchantes encore, et qui ont mis plusieurs de nos hommes
 dans la nécessité d'entrer à l'hôpital. (1)
 
 Nous avons aussi des reptiles en quantité; il y en a de
-petits comme un crayon dont la morsure est très dange-
-reuse; le remède consiste à couper de suite le membre
+petits comme un crayon dont la morsure est très dangereuse; le remède consiste à couper de suite le membre
 attaqué, c'est le seul moyen d'échapper à la mort; d'autres,
 gros comme ma cuisse, pétrissent leur proie dans leurs
 plis et la gobent comme une cerise, mais ils ne sont pas
@@ -476,11 +425,9 @@ au milieu des forêts. Toujours la même végétation, les
 mêmes perroquets qui nous assourdissaient de leurs cris.—
 Nous n'avons pas rencontré de ville; la Soledad, où nous
 avons passé, n'est qu'un hameau de misérables cabanes.
-La construction de ces cabanes est ce qu'il y a de plus sim-
-ple: elle consiste en une rangée de pieux plantés debout
+La construction de ces cabanes est ce qu'il y a de plus simple: elle consiste en une rangée de pieux plantés debout
 les uns à côté des autres, et laissant entre eux l'espace pour
-passer au moins le bras, puis un toit en feuilles de bana-
-nier. Elles sont accouplées habituellement par deux, pour
+passer au moins le bras, puis un toit en feuilles de bananier. Elles sont accouplées habituellement par deux, pour
 que l'une fasse ombre à l'autre, à toute heure du jour.
 
 (1) M. Wolff raconte dans ses mémoires les terribles ravages
@@ -491,8 +438,7 @@ des vers qui évoluent, et rongent positivement les cartilages du
 nez, la voûte du palais et la gorge du patient, qu'on trouve ainsi
 dévoré vivant. Les indigènes se guérissent par des fumigations
 de vapeur d'eau saturée de piment rouge. » Quand nos hommes
-furent atteints, nos médecins diagnostiquèrent la syphilis et ordon-
-nèrent un traitement mercuriel qui fit mourir plus vite les
+furent atteints, nos médecins diagnostiquèrent la syphilis et ordonnèrent un traitement mercuriel qui fit mourir plus vite les
 malades. Cependant un de nos pharmaciens, M. Dauzats, parvint
 à engourdir les larves au moyen du chloroforme, puis il les tuait
 par des injections phéniquées.
@@ -504,12 +450,10 @@ léger des montagnes nous a fait grand plaisir et grand
 bien. Les sources d'eau vive abondent ici et l'eau fraîcheur
 est délicieuse.
 
-Cordova est une charmante petite ville entourée de jar-
-dins verdoyants, avec des plantations de caféiers, de tabac,
+Cordova est une charmante petite ville entourée de jardins verdoyants, avec des plantations de caféiers, de tabac,
 et de bananiers. (1)
 
-A Orizaba, les maisons n'ont généralement qu'un rez-de-
-chaussée; d'immenses toits de tuile débordent sur la rue et
+A Orizaba, les maisons n'ont généralement qu'un rez-dechaussée; d'immenses toits de tuile débordent sur la rue et
 protègent contre le soleil. Les habitants ne nous accueillent
 pas trop mal, mais tout est pillé et brûlé. Les bêtes de
 somme et les moyens de transport manquent presque com-
@@ -526,8 +470,7 @@ dans une chambre; j'en occupe une fort grande avec une
 vaste porte qui sert de fenêtre. Les officiers de l'état-major
 de mes deux escadrons sont établis avec moi; les chevaux
 sont attachés au piquet devant la porte et mangent
-leur maïs; mon ordonnance, Manière, assis à l'ombre, sur-
-veille, en raccommodant mes chaussettes, le séchage d'une
+leur maïs; mon ordonnance, Manière, assis à l'ombre, surveille, en raccommodant mes chaussettes, le séchage d'une
 lessive qu'il vient de faire.
 
 Notre tenue est assez pittoresque; nous portons tous,
@@ -548,8 +491,7 @@ en haut et s'élargissant dans le bas, ouvert sur le côté et
 se fermant par une rangée de petits boutons d'argent. Le
 sombrero est un chapeau de feutre ou de paille à très larges
 bords plats, décoré avec un grand tour d'une épaisse torsade
-en velours noir ou bleu en argent et en or. On cite des parti-
-culiers dont le chapeau vaut plusieurs milliers de piastres.
+en velours noir ou bleu en argent et en or. On cite des particuliers dont le chapeau vaut plusieurs milliers de piastres.
 Celui de Carvajal en vaut, dit-on, 18.000.
 
 Les femmes du peuple portent la jupe courte, généralement
@@ -564,8 +506,7 @@ percée au centre d'un trou pour laisser passer la tête, et
 retombant librement autour du corps.
 
 Grâce à notre séjour en Afrique, nos hommes se sont
-assez bien acclimatés, mais notre colonel est tombé grave-
-ment malade à la Vera-Cruz, de sorte que je commande
+assez bien acclimatés, mais notre colonel est tombé gravement malade à la Vera-Cruz, de sorte que je commande
 seul les deux escadrons de mon régiment. (1)
 
 Tout n'est pas couleur de rose dans ce voyage et, à
@@ -579,10 +520,8 @@ n'est pas toujours bonne; celle d'ici est sont mauvais, elle est
 intelligence, propose à M. du Barail de le faire rentrer en
 France. Celui-ci répondit qu'il attendrait à la Vera-Cruz la santé
 ou la mort. Il aurait d'ailleurs que, même en son absence, ses
-troupes étaient bien commandées: « Mes officiers, écrit-il, mi-
-spinaient une couleur soufre devenant juslâtre. Le chef d'escadrons de
-Tucé, solide et au courant du service, mettait à son une con-
-science et une application extrême. »
+troupes étaient bien commandées: « Mes officiers, écrit-il, mispinaient une couleur soufre devenant juslâtre. Le chef d'escadrons de
+Tucé, solide et au courant du service, mettait à son une conscience et une application extrême. »
 
 détestable. (1) Les provisions que l'on se procure sont très
 chères; un œuf coûte un medio (six sous), un poulet une
@@ -598,10 +537,8 @@ faire sérieuse résistance.
 que nous faisons, pour plusieurs raisons: La première
 c'est que je n'y comprends pas grand'chose; la seconde
 c'est qu'on nous assure que nos lettres sont décachetées.
-Je pense que l'honorable Monsieur qui remplit ces fonc-
-tions et auquel je présente mes civilités, voudra bien laisser
-passer celle-ci, en raison de ma discrétion, et qu'elle t'arri-
-vera avec toutes mes amitiés pour ton mari et tes parents.
+Je pense que l'honorable Monsieur qui remplit ces fonctions et auquel je présente mes civilités, voudra bien laisser
+passer celle-ci, en raison de ma discrétion, et qu'elle t'arrivera avec toutes mes amitiés pour ton mari et tes parents.
 
 *M. de Tucé à madame Milliet*
 
@@ -640,8 +577,7 @@ engagé avec les Mexicains à environ une lieue de; nous
 y sommes allés en grande hâte, et nous les avons chargés
 de suite. Ils étaient environ 200 cavaliers que nous avons
 sabrés et dispersés dans les montagnes, où nous n'avons
-les suivre. Nous n'avons en personne de blessé; seule-
-ment cinq chevaux tués; mais la journée a été un peu
+les suivre. Nous n'avons en personne de blessé; seulement cinq chevaux tués; mais la journée a été un peu
 rude. Partis le matin à six heures, nous ne sommes rentrés
 qu'à dix heures du soir, n'ayant guère mis pied à terre que
 trois quarts d'heure, car nous étions obligés de
@@ -649,26 +585,19 @@ jeter leur café pour remonter à cheval.
 
 Le pays dans lequel nous opérons est très dangereux.
 Ce sont d'immenses plaines de poussière, parsemées de
-cactus, dont la moindre piqûre rend un cheval indispo-
-nible pendant un certain temps. De plus, le terrain est
+cactus, dont la moindre piqûre rend un cheval indisponible pendant un certain temps. De plus, le terrain est
 miné par certains animaux qui s'y creusent des trous où
 nos chevaux enfoncent en grand nombre d'endroits par dix
-dans le genre des marmottes. Ils font des trous dans les-
-quels un cheval enfonce jusqu'au ventre, ce qui s'appelle la
+dans le genre des marmottes. Ils font des trous dans lesquels un cheval enfonce jusqu'au ventre, ce qui s'appelle la
 plaine est en outre sillonnée par ce qu'on nomme des
-*barrancas*; ce sont des ravins profonds de trente à qua-
-rante pieds, taillés à pic et creusés par les eaux de pluie.
+*barrancas*; ce sont des ravins profonds de trente à quarante pieds, taillés à pic et creusés par les eaux de pluie.
 Rien ne signale leur présence, on les voit lorsque l'on est
-en dessus, et on ne peut les traverser qu'à pas très peu d'en-
-droits, où les Indiens ont tracé une piste.
+en dessus, et on ne peut les traverser qu'à pas très peu d'endroits, où les Indiens ont tracé une piste.
 
 Nous vivons toujours assez difficilement: pas de vin, du
 pain de maïs... L'essentiel est qu'on a porte bien. Nous
-avons reçu pour nous remonter quelques chevaux mexi-
-
-cains. Quoi qu'en disent les romans, ce sont d'affreuses
-biques sans force et sans vitesse. Le moindre de nos che-
-vaux arabes vaut mieux que les *mustangs* les plus vantés.
+avons reçu pour nous remonter quelques chevaux mexicains. Quoi qu'en disent les romans, ce sont d'affreuses
+biques sans force et sans vitesse. Le moindre de nos chevaux arabes vaut mieux que les *mustangs* les plus vantés.
 
 Les troupes mexicaines auxquelles nous avons affaire
 sont assez bien armées: sabre, lance, mousqueton, mais
@@ -705,8 +634,7 @@ les personnes et les propriétés, vous paierez exactement
 tout ce que vous achèterez et *vous ne salirez pas vos mains
 et vos consciences des richesses acquises par le pillage*...
 Vous respecterez les vieillards, les femmes et les enfants...
-et, si vous êtes terribles dans le combat, vous vous mon-
-trerez humains après la victoire.
+et, si vous êtes terribles dans le combat, vous vous montrerez humains après la victoire.
 
 C'est à Napoléon III lui-même que le général Forey
 attribuait la rédaction de ces conseils trop souvent
@@ -715,8 +643,7 @@ homme égaré dans l'entourage impérial.
 
 Le général Forey était un homme de très haute taille
 à l'aspect martial, mais la rudesse de ses manières
-cachait une nature faible. Ses lenteurs et ses hésita-
-tions ont été funestes. Elles ont permis aux Mexicains
+cachait une nature faible. Ses lenteurs et ses hésitations ont été funestes. Elles ont permis aux Mexicains
 de mettre les fortifications de Puebla en un état de
 défense si redoutable, qu'il a fallu sacrifier bien des
 vies pour s'en emparer.
@@ -730,8 +657,7 @@ libre de choisir le gouvernement qui lui conviendra. »
 Quelques mois après, le général mexicain Rivera
 répondait dans une proclamation à l'armée française:
 
-Vous avez quitté votre patrie, vos familles, et malheu-
-reusement beaucoup d'entre vous laisseront leurs cendres
+Vous avez quitté votre patrie, vos familles, et malheureusement beaucoup d'entre vous laisseront leurs cendres
 ici, et pourquoi, pour qui? Pour les réclamations injustes
 de vils agioteurs, qui ne sont pas même Français, pour
 rétablir ce que vous avez renversé dans votre immortelle
@@ -753,8 +679,7 @@ armée extérieure qui cherche à inquiéter les assiégeants.
 Nous venons de faire (1) une reconnaissance à Cholula,
 l'ancienne ville sainte de l'empire aztèque.
 
-C'était jour de marché: vendeurs et acheteurs se pré-
-sentent dans la rue et s'écartèrent pour nous livrer passage.
+C'était jour de marché: vendeurs et acheteurs se présentent dans la rue et s'écartèrent pour nous livrer passage.
 La foule regardait avec une curiosité plutôt sympathique
 notre beau régiment qui faisait fièrement son entrée au
 son des trompettes. Arrivés sur la grande place, nous
@@ -763,8 +688,7 @@ reçoit avec les marques de la plus profonde déférence, mais
 il se garde bien de nous prévenir que l'armée ennemie, qui
 venait de se retirer à notre approche, n'était pas loin. —
 Le général de Mirandol commençait à lire au peuple une
-proclamation, quand des cavaliers mexicains viennent l'inter-
-rompre. Du haut d'un manteau voisin, les Mexicains
+proclamation, quand des cavaliers mexicains viennent l'interrompre. Du haut d'un manteau voisin, les Mexicains
 tiraient sur nous. La foule se disperse en un clin d'œil et
 disparaît. Nous nous élançons à l'instant au galop contre
 l'ennemi qui s'enfuit sans nous attendre.
@@ -776,16 +700,14 @@ hommes; ils avaient pour les premiers. Heureusement
 nous n'étions pas loin d'eux; nos Chasseurs se sont jetés
 dessus à corps perdu et les ont mis en déroute. (2) Nous
 n'avons aucun un régiment entier, les Lanciers rouges du
-Nouveau-Léon. Ce combat, qui a fait honneur au Chas-
-seurs d'Afrique, est connu sous le nom de combat de
+Nouveau-Léon. Ce combat, qui a fait honneur au Chasseurs d'Afrique, est connu sous le nom de combat de
 Cholula. Nous avons 2 hommes tués et 16 blessés, dont
 deux capitaines. Pour moi, j'ai le bonheur d'en sortir sain
 et sauf, après avoir culbuté avec mon cheval qui a été
 parfaitement pendant toute la bataille. J'en avais reçu un autre
 
 (2) « C'étaient trois régiments, quinze cents hommes, du plus
-beau seuils escadrons de Chasseurs d'Afrique mirent dans la plus com-
-plète déroute. Le terrain était jonché de morts. Nous n'avions
+beau seuils escadrons de Chasseurs d'Afrique mirent dans la plus complète déroute. Le terrain était jonché de morts. Nous n'avions
 fait cent prisonniers, et parmi eux, le colonel des Lanciers rouges
 de Durango, réputés les plus braves du pays. » — Du BARAIL.
 
@@ -799,10 +721,8 @@ du Cerro San Juan.
 
 A la fin de la journée, une pluie torrentielle vint gâter un
 peu la joie de notre succès. La nuit était si noire que nous
-trouvions difficilement notre chemin; le général eut l'heu-
-reuse idée de réquisitionner ces grandes lanternes d'église
-que l'on porte dans les processions, et c'est ainsi, dévote-
-ment éclairés, que nous rentrâmes au bivouac.
+trouvions difficilement notre chemin; le général eut l'heureuse idée de réquisitionner ces grandes lanternes d'église
+que l'on porte dans les processions, et c'est ainsi, dévotement éclairés, que nous rentrâmes au bivouac.
 
 Cette belle affaire, il y a des récompenses;
 trois croix de chevalier et huit médailles. Quant à moi j'ai
@@ -811,8 +731,7 @@ peut te rendre fière d'avoir un frère décoré de l'ordre du
 Medjidié classe, sois-le! Le Sultan vient de m'envoyer
 cette décoration pour les services que je lui ai rendus en
 
-Aix et son mari m'envoyaient des lettres de recommanda-
-tion pour des négociants du pays, m'assurant ainsi des
+Aix et son mari m'envoyaient des lettres de recommandation pour des négociants du pays, m'assurant ainsi des
 relations agréables et des moyens de se procurer de
 l'argent. Remerciez-les de ma part, je n'ai pas besoin
 d'argent ici, nous avons une très belle solde et il me suffit
@@ -824,8 +743,7 @@ supportables, mais Puebla n'est pas, j'en suis sûr, près de
 se rendre. Le siège sera long, peut-être encore un mois.
 
 La ville est attaquée par le Nord, nous avons déjà pris
-des ouvrages avancés, mais la fortification, quoique irrégu-
-lière, est fort bien entendue et garnie d'une artillerie très
+des ouvrages avancés, mais la fortification, quoique irrégulière, est fort bien entendue et garnie d'une artillerie très
 nombreuse et bien servie.
 
 Tu verras dans l'*Illustration*, un dessin représentant le
@@ -1115,9 +1033,7 @@ Paul me demande s'il y a ici quelques tableaux de l'École espagnole. Je n'ai pa
 Ton rêve qui t'a fait voir une belle ville avec de magnifiques monuments en ruines peut parfaitement s'appliquer à Mexico, et mieux encore à Vera-Cruz ou à Puebla. Nulle part au monde on ne peut voir autant de ruines qu'ici. Ce devait être bien beau il y a une centaine d'années; il en faudra bien autant pour rendre au pays toute sa splendeur.
 J'ai écrit à Fernand pour lui faire prendre un peu patience. Je pense qu'on le nommer maréchal des logis. — Je ne sais pas encore si on fera de moi un lieutenant-colonel; je ne saurai cela qu'après vous, si je suis nommé. Quant au colonel du Barail, il a l'assurance formelle de sa nomination au grade de général.
 
-Le 20 août, le courrier de France, si impatiemment attendu, apporta la liste officielle des récompenses; le général Forey recevait le bâton de maréchal, le colo-
-
-nel du Barail était nommé général; M. Margueritte, qui le remplaçait comme colonel au Chasseurs d'Afrique, était remplacé lui-même comme lieutenant-colonel par le commandant de Tucé.
+Le 20 août, le courrier de France, si impatiemment attendu, apporta la liste officielle des récompenses; le général Forey recevait le bâton de maréchal, le colonel du Barail était nommé général; M. Margueritte, qui le remplaçait comme colonel au Chasseurs d'Afrique, était remplacé lui-même comme lieutenant-colonel par le commandant de Tucé.
 M. du Barail devenait le plus jeune des généraux de l'armée française.
 Quant au maréchal Forey, ce fut pour lui une amère déception, quand il apprit qu'il était rappelé en France et qu'il devait céder le commandement en chef au général Bazaine.
 « M. Dubois de Saligny, (1) rappelé aussi, était remplacé par M. de Montholon. Cette nouvelle fut accueillie avec joie par toute l'armée qui voyait en lui l'auteur de toutes les fautes commises, le fauteur de la politique réactionnaire et cléricale, opposée au goût des Mexicains et même aux institutions politiques des Français, et enfin le principal obstacle à la pacification désirée. » (2)
@@ -1396,9 +1312,7 @@ Beaucoup d'Américains du Sud ont émigré. Ils arrivaient en assez grand nombre
 San Luis de Potosi, nov.
 
 Je ne sais pas encore si Fernand est arrivé. Je le tiens à Vera-Cruz au bureau de la place, le colonel du Preuil, de mon régiment, à Mexico, où il doit prendre provisoirement les fonctions de général de brigade de cavalerie. Je m'occuperai de Fernand, et je peux qu'il pourra lui rendre facile son passage au Chasseurs. Pendant l'absence du colonel, je prends le commandement de ce régiment et je le garderai probablement longtemps, car il est plus que probable que M. du Preuil quitte Mexico avant d'être général. Sera-ce moi qui le remplacerai? On peut parfaitement envoyer quelque officier de France et cela ne me surprendrait pas beaucoup.
-Nos escadrons sont fort dispersés... Nous avons ramené des Terres-Chaudes un bataillon d'infanterie d'Afrique (zéphirs). Rien ne peut donner idée de l'état dans lequel ces malheureux hommes sont rentrés. On les a tous ramenés en voiture, depuis l'endroit où elles peuvent rouler. Sur environ mille hommes, dont se compose ce bataillon, il y en a 75 en état, je veux dire, de faire du service, tout le reste est à l'hôpital. Le bataillon de zouaves qui est seulement allé les chercher, laisse 118 hommes à l'hôpital, et nos chasseurs qui ont ramassés, en partie sur leurs che-
-
-vaux, comptent 30 à 40 hommes par escadron atteints de fièvres; ils se remettent difficilement.
+Nos escadrons sont fort dispersés... Nous avons ramené des Terres-Chaudes un bataillon d'infanterie d'Afrique (zéphirs). Rien ne peut donner idée de l'état dans lequel ces malheureux hommes sont rentrés. On les a tous ramenés en voiture, depuis l'endroit où elles peuvent rouler. Sur environ mille hommes, dont se compose ce bataillon, il y en a 75 en état, je veux dire, de faire du service, tout le reste est à l'hôpital. Le bataillon de zouaves qui est seulement allé les chercher, laisse 118 hommes à l'hôpital, et nos chasseurs qui ont ramassés, en partie sur leurs chevaux, comptent 30 à 40 hommes par escadron atteints de fièvres; ils se remettent difficilement.
 Je ne sais pas ce que nous allons faire maintenant que le temps est beau. Pour marcher à l'ennemi on n'a que l'embarras du choix; il y a de tous les côtés des bandes qui pillent tout ce qui passe. Nous avons de temps en temps des courriers enlevés.
 Je n'entends plus parler des Américains; il paraît qu'ils se sont calmés. Il y a ici beaucoup de gens du Sud qui ont émigré et viennent fonder des établissements. Il y a également des gens de couleur qui prennent parti soit dans les guérillas, soit dans les contre-guérillas que nous avons organisées.
 San Luis est fort animé aujourd'hui, c'est la fête des Morts; sur la grande place, il y a une foule de boutiques et de cafés. Les Indiens affluent. On se fait des cadeaux de sucreries, qui consistent en petits cercueils, têtes de mort, ossements en sucre, des squelettes polichinelles et autres drôleries du même genre. Il y a des amas et des pyramides de fruits de toute espèce, venus des Terres-Chaudes.
@@ -1437,9 +1351,7 @@ Mes fonctions de fourrier me réclament, je te quitte; à bientôt une autre let
 
 *Fernand Milliet à sa mère*
 
-… Je continue mon métier de fourrier et, ma foi, ce n'est pas aussi difficile qu'on se l'imagine. Ce qu'il y a d'en-
-
-nuyeux, c'est d'être obligé de travailler en route, sous la tente et d'écrire sur ses genoux.
+… Je continue mon métier de fourrier et, ma foi, ce n'est pas aussi difficile qu'on se l'imagine. Ce qu'il y a d'ennuyeux, c'est d'être obligé de travailler en route, sous la tente et d'écrire sur ses genoux.
 
 Je ne vous ai pas dit qu'en arrivant à San Luis j'ai assisté à un bien curieux spectacle, la procession des Rois Mages: une foule énorme se pressait dans les rues et, quand la nuit fut tombée à fait noire, je vis sortir de la cathédrale une mystérieuse lanterne à feux changeants; c'était l'étoile qui devait guider les trois Rois. Ceux-ci se précipitaient à genoux sur son passage en marmottant des prières. Alors, musique en tête, une compagnie d'infanterie ouvrit la marche. Quel tintamarre infernal! tu n'as pas idée d'un pareil charivari. Puis les Apôtres s'avancèrent, majestueusement drapés. Ensuite un défilé de grands chariots portant des tableaux vivants; toute la vie de Jésus: La bonne Vierge tirait dans ses bras un gros bébé; mon Dieu sont enflés d'une auréole en carton doré; puis un beau ange qui regarde tendrement une belle fille à genoux devant lui, les cheveux épars, c'est le Christ et la Madeleine. Puis les Noces de Cana, le Jardin des Oliviers, etc., etc. Un grand gaillard maigre est attaché sur une croix, le sang ruisselle sur son visage. Un autre, suspendu, je ne sais comment, au-dessus d'un tombeau, fait mine de s'envoler au ciel, c'est la Résurrection. Mais ce qui est mon comble c'est la farandole furieuse que danse autour des chars une bande de diables enragés. Ils gambadent en agitant des chaînes et en poussant des cris aigus. Chemin faisant, ils empoignent et embrassent bruyamment les Vierges folles, qui crient aussi, mais sans avoir l'air de s'ennuyer.
 
@@ -1786,16 +1698,11 @@ On voit ce que veut dire et notamment, (si j'ai le droit de le dire), qu'il s'ag
 
 Nous avons été impitoyables, et l'on m'a rendu généralement cette justice que j'ai été plus impitoyable que les autres. Nous avons coupé tout ce qui ne tenait pas. Nulles tendresses particulières, les plus légitimes, les plus authentiques, n'ont été respectées. N'ont été sauvées, je puis me vanter qu'il n'y a pas dans tout le volume un seul plan incliné; ni une seule dégradation. Je me vante qu'il n'y a pas dans tout le volume un *morceau* qui ne commence et qui ne finisse en falaise.
 
-Dans le tissu même du livre, dans le texte je n'ai pas besoin de dire que nous n'avons rien tripoté. Il ne s'agissait point de faire des morceaux comme on fait des morceaux d'une *poterie*: en tapant dessus. Si on vent bien me passer la grossièreté de le dire, l'opération était un peu plus délicate. Nous n'avons jamais procédé que par abrasement et décantation. Il s'agissait de désarticuler. Il ne s'agissait point de *faire des morceaux.* Il s'agissait de retrouver dans le texte, et quelquefois (et souvent) sous le texte les véritables anciens membres, anciennement faits, primitivement faits, les membres réels, les membres naturels, les membres antérieurs, antérieurement faits, les membres premiers, les membres éléments de ces organismes et de ces organisations. Nous avons donc résolu, nous avons délié, nous avons essen-
-
-tiellement désarticulé. Nous avons peut-être dépecé. Nous n'avons jamais scié ni cassé. A quel point, avec quel bonheur Pesloüan a réussi à obtenir ainsi des *membres,* à deviner, à découvrir, à saisir, isoler), trouver), à configurer pour ainsi dire des membres en mouvement, des membres comme cinématiques et dynamiques dans des textes qui couraient, c'est ce qui saute aux yeux par le simple énoncé de ces membres mêmes, de ces quarante-trois chapitres, par la table, c'est ce qui saute aux yeux dans la table-sommaire du livre comme nous la donnons ci-après.
+Dans le tissu même du livre, dans le texte je n'ai pas besoin de dire que nous n'avons rien tripoté. Il ne s'agissait point de faire des morceaux comme on fait des morceaux d'une *poterie*: en tapant dessus. Si on vent bien me passer la grossièreté de le dire, l'opération était un peu plus délicate. Nous n'avons jamais procédé que par abrasement et décantation. Il s'agissait de désarticuler. Il ne s'agissait point de *faire des morceaux.* Il s'agissait de retrouver dans le texte, et quelquefois (et souvent) sous le texte les véritables anciens membres, anciennement faits, primitivement faits, les membres réels, les membres naturels, les membres antérieurs, antérieurement faits, les membres premiers, les membres éléments de ces organismes et de ces organisations. Nous avons donc résolu, nous avons délié, nous avons essentiellement désarticulé. Nous avons peut-être dépecé. Nous n'avons jamais scié ni cassé. A quel point, avec quel bonheur Pesloüan a réussi à obtenir ainsi des *membres,* à deviner, à découvrir, à saisir, isoler), trouver), à configurer pour ainsi dire des membres en mouvement, des membres comme cinématiques et dynamiques dans des textes qui couraient, c'est ce qui saute aux yeux par le simple énoncé de ces membres mêmes, de ces quarante-trois chapitres, par la table, c'est ce qui saute aux yeux dans la table-sommaire du livre comme nous la donnons ci-après.
 
 C'est dans le même esprit que je me suis permis d'écrire, pour ces membres anciens, des titres nouveaux. C'est que mes titres nouveaux sont eux-mêmes en réalité les titres anciens mêmes, les titres anciens propres, retrouvés, les titres que ces membres eussent portés si dans les anciens cahiers nous avions fait des sommaires où ces membres eussent été représentés. Ce sont les titres mêmes que ces chapitres, que ces membres porteront ou eux-mêmes ou dans des sommaires si je suis conduit quelque jour à écrire des sommaires pour des réimpressions plus complètes.
 
-Pesloüan a merveilleusement discerné dans des textes, sous des textes qui couraient, où étaient, où couraient réellement les membres, quels étaient, qui étaient les membres réels, anatomiques, physiolo-
-
-giques. Et ainsi nous avons peut-être découpé. (Peut-
-être désossé). Nous n'avons jamais disloqué.
+Pesloüan a merveilleusement discerné dans des textes, sous des textes qui couraient, où étaient, où couraient réellement les membres, quels étaient, qui étaient les membres réels, anatomiques, physiologiques. Et ainsi nous avons peut-être découpé. (Peutêtre désossé). Nous n'avons jamais disloqué.
 
 Cela étant, voici, sous le titre, par parties et par
 chapitres, par les cinq parties et par les quarante-trois
@@ -1817,21 +1724,18 @@ une deuxième loyauté de la guerre;
 
 11. — Sur l'art. — De l'initiation à la connaissance
 des arts plastiques, fragment de confessions,
-confidences du docteur, et de cet aperçu bergso-
-nien qu'il y a sans doute entre le génie et le talent
+confidences du docteur, et de cet aperçu bergsonien qu'il y a sans doute entre le génie et le talent
 une différence de nature même;
 
 12. — Sur la science. — Que la science même est
 révolutionnaire, en ce sens que le progrès de
-l'acquisition scientifique n'est point une capitali-
-sation morte; et sur ce point le témoignage
+l'acquisition scientifique n'est point une capitalisation morte; et sur ce point le témoignage
 personnel de Duclaux;
 
 un langage politique parlementaire propre d'où
 viennent, pour ainsi dire, tous nos malentendus;
 
-15. — Que nous aurons un jour, comme les Madé-
-casses, une métaphysique d'État;
+15. — Que nous aurons un jour, comme les Madécasses, une métaphysique d'État;
 
 16. — Et subsidiairement que cette métaphysique
 d'État sera fondée sans aucun doute sur quelque
@@ -1890,12 +1794,10 @@ y a une mystique d'Israël;
 
 30. — O soldats de l'an deux! ô guerres! épopées!
 
-31. — Qu'il y a dans le monde moderne une hypo-
-crisie du pacifisme; Hugo et Napoléon;
+31. — Qu'il y a dans le monde moderne une hypocrisie du pacifisme; Hugo et Napoléon;
 
 32. — Comment notre bon peuple était sorti pour
-voir passer le roi d'Espagne. Des mœurs singu-
-lières de ce peuple de Paris;
+voir passer le roi d'Espagne. Des mœurs singulières de ce peuple de Paris;
 
 33. — Mais que Hugo aussi était dans tout ce
 
@@ -1929,15 +1831,13 @@ charité de Jeanne d'Arc;
 « *Augere,* dit Bréal et Bailly, augmenter; créer.
 *Auctor,* qui augmente, qui crée, *d'où*: 1° auteur,
 cause; *particulièrement* (en parlant d'un projet),
-2° conseiller (en parlant d'un projet). » Et dans l'expli-
-cation « le verbe *augeo* « accroître, enrichir » est
+2° conseiller (en parlant d'un projet). » Et dans l'explication « le verbe *augeo* « accroître, enrichir » est
 employé dans les sens les plus divers. Ainsi dans la
-langue religieuse il signifie « honorer par des dons »:
+langue religieuse il signifie « honorer par des dons
 *augere aram donis.* On dit de même: *augere aliquem
 ratoris. Augeo* signifie aussi « créer ». Lucrèce,
 debet.* — Ces différents sens se retrouvent dans *auctor.* Il
-signifie « fondateur, père ». Virgile, vii, 49. *Isque paren-
-tem Te, Saturne, refert, tu sanguinis ultimus auctor.* —
+signifie « fondateur, père ». Virgile, vii, 49. *Isque parentem Te, Saturne, refert, tu sanguinis ultimus auctor.* —
 En parlant d'un écrit ou d'une œuvre d'art, « auteur ».
 parlant d'un acte, « conseiller, instigateur, garant ».
 *Auctor legis, pacis, belli.* La même diversité de sens
@@ -1969,10 +1869,7 @@ joie, et sérieuse, que d'avoir mettre, en tête d'un
 par un ami, une reproduction d'un portrait peint par
 un ami, pour aller à tant d'amis connus et inconnus, à
 qui je dois tant. Quel accord intérieur. Et doublant la
-première quelle entente secrète, quelle joie de repro-
-
-duire ici, de présenter un portrait portant cette signa-
-ture, (non seulement une signature amie), une signature
+première quelle entente secrète, quelle joie de reproduire ici, de présenter un portrait portant cette signature, (non seulement une signature amie), une signature
 filiale de la grande stature de notre Jean-Paul-
 Laurens. Depuis que le père, depuis que le patron,
 depuis que le peintre, depuis que Jean-Paul-Laurens,
@@ -1998,19 +1895,16 @@ saisi, je m'émerveille de regarder combien je dois,
 combien j'ai reçu, combien j'ai pris dans cette famille
 et dans ces cœurs. Je veux croire que ce M. Grasset
 pour moi depuis douze et treize ans le faisais et
-infatigablement je l'avais fait pour tant de nos contem-
-porains dont presque un tiers m'en ont gardé quelque
+infatigablement je l'avais fait pour tant de nos contemporains dont presque un tiers m'en ont gardé quelque
 reconnaissance. Celui qui à qu'à faire de la copie est
 bien heureux. Je viens de m'en apercevoir. (Et à plus
 
 gnements d'expérience, de carrière; d'amitié; un cœur
-si jeune, le plus jeune cœur que je connaisse actuel-
-lement. Je dirai quelque jour, j'essaierai de donner
+si jeune, le plus jeune cœur que je connaisse actuellement. Je dirai quelque jour, j'essaierai de donner
 quelque idée de tout cela, je n'y réussirai que très
 imparfaitement dans cette *Épître votive* à laquelle je
 pense *pour engager dès ce jour dans le parti de nos
-amis et de nos maîtres notre maître et notre père spiri-
-tuel Jean-Paul-Laurens, peintre.* Tu n'y échapperas
+amis et de nos maîtres notre maître et notre père spirituel Jean-Paul-Laurens, peintre.* Tu n'y échapperas
 point, Pierre. Dedans je ferai ton portrait. Ce sera, une
 fois de plus, *le portrait du peintre.* Malheureusement
 pour nos pauvres portraits à nous, pour nos *portraits
@@ -2036,8 +1930,7 @@ discernement qui courent tout au travers, ou plutôt tout
 au long de ces arts mêmes, de ces arts parents. Plus
 
 qu'apparentés, plus que conjoints, sortis, poussés des
-mêmes souches. Et quand ce ne serait que la recon-
-naissance, que l'immédiate, que la reconnaissance
+mêmes souches. Et quand ce ne serait que la reconnaissance, que l'immédiate, que la reconnaissance
 préliminaire de cette vérité élémentaire que nous
 autres littéraires quand nous voulons parler en
 littéraires des arts du dessin ou même seulement
@@ -2060,8 +1953,7 @@ que nous avons le plus aimés, de celui que nous
 nommions *le père Édet.* Je veux dire, les éditeurs,
 distingués en celui qui établit le texte et celui qui
 fabrique et vend le volume. L'établissement du texte,
-et qu'il se fît sans moi, me remplissait d'un émerveille-
-ment continuel, d'un émerveillement et d'une joie
+et qu'il se fît sans moi, me remplissait d'un émerveillement continuel, d'un émerveillement et d'une joie
 d'enfant. Qu'un livre de moi se fît, (et se fît aussi bien),
 
 sans que j'eusse à le faire, (qu'il se fît beaucoup mieux
@@ -2108,11 +2000,9 @@ pour ce volume je l'avais fait pour deux cents volumes
 ou cahiers, c'était mon métier, je le continuais de
 le faire, comme un métier quotidien, que tout ce qu'il
 faisait pour moi, tout ce que pour ce travail industriel
-et commercial, non seulement de faire le livre, de fabri-
-brer, de le fabriquer, ce qui ne serait rien encore, et de
+et commercial, non seulement de faire le livre, de fabribrer, de le fabriquer, ce qui ne serait rien encore, et de
 payer les imprimeurs, et de payer tous les frais généraux
-d'une maison de commerce à Paris, et de payer tou-
-jours, (on y arriverait peut-être encore, on en viendrait
+d'une maison de commerce à Paris, et de payer toujours, (on y arriverait peut-être encore, on en viendrait
 encore à bout), mais ce qui est le plus difficile de tout,
 presque impossible, non plus seulement de faire le livre,
 mais de faire le public, dans cet ingrat monde moderne,
@@ -2120,12 +2010,10 @@ dans cet ingrat public, de découvrir, de faire un public,
 pièce à pièce, homme par homme, d'obtenir, de faire
 une certaine audience. Quand je considérais tout ce
 que M. Grasset faisait ainsi pour moi, uniquement
-parce qu'il faisait son métier, je me surprenais à consi-
-dérer aussi que moi aussi c'était mon métier et que ce
+parce qu'il faisait son métier, je me surprenais à considérer aussi que moi aussi c'était mon métier et que ce
 métier je le faisais à peu près tous les jours que M. Grasset faisait
 pour moi depuis douze et treize ans je le faisais et
-infatigablement je l'avais fait pour tant de nos contem-
-porains dont presque un tiers m'en ont gardé quelque
+infatigablement je l'avais fait pour tant de nos contemporains dont presque un tiers m'en ont gardé quelque
 reconnaissance. Celui qui n'a qu'à faire de la copie est
 bien heureux. Je viens de m'en apercevoir. (Et à plus
 
@@ -2185,8 +2073,7 @@ que j'en ai une sorte d'orgueil enfantin. C'est une
 grande joie, et une grande découverte, que de gagner
 de l'argent comme tout le monde, de l'argent pour
 ainsi dire de droit commun. De l'argent qui ne doit
-rien à personne. Et cette joie fut naturellement dou-
-blée d'une autre, conjointe d'une autre. Je n'ai pas
+rien à personne. Et cette joie fut naturellement doublée d'une autre, conjointe d'une autre. Je n'ai pas
 besoin de dire que j'ai prié notre M. André Bourgeois
 de verser directement ces 1.500 francs dans la caisse
 
@@ -2206,26 +2093,22 @@ enfin mettre moi-même dans les cahiers de l'argent
 frais qui vînt de moi, de moi seul et pour ainsi dire de
 moi pur, qui eût été gagné par les moyens du bord,
 gagné si je puis dire authentiquement, socialement
-authentiquement, comme tout le monde, au prix cou-
-rant, de droit commun, au prix du marché, sur le
+authentiquement, comme tout le monde, au prix courant, de droit commun, au prix du marché, sur le
 marché des valeurs, et de devenir ainsi, de me faire le
 co-souscripteur de mes souscripteurs.
 
 Pendant que j'y étais et sous ce prétexte que les
 joies et que les découvertes et que les nouveautés et
 que les bonnes nouvelles vont par trois je voulais me
-payer une grande joie, (j'en avais envie depuis long-
-temps), une joie troisième ensemble, si je sais compter,
-une grande et merveilleuse nouveauté, une grande troi-
-sième découverte: (l'homme est insatiable): celle
+payer une grande joie, (j'en avais envie depuis longtemps), une joie troisième ensemble, si je sais compter,
+une grande et merveilleuse nouveauté, une grande troisième découverte: (l'homme est insatiable): celle
 d'envoyer enfin ce volume à toutes les personnes à qui
 
 j'avais si bonne envie de l'envoyer; en envoi d'auteur;
 à tant d'amis avérés à qui je dois tant. Je commençais
 à composer des listes dans ma tête, et j'avoue que ces
 listes croissaient à vue d'œil quand les décemvirs, qui
-savaient que l'on préparait un volume, et qui ne dou-
-taient un peu de soi, qu'il y avait dedans, me firent
+savaient que l'on préparait un volume, et qui ne doutaient un peu de soi, qu'il y avait dedans, me firent
 savoir, dans la forme habituelle, non seulement la
 m'accepteraient pas la moindre de recevoir un seul exemplaire
 de ma main, mais qu'ils avaient tous l'intention bien
@@ -2241,15 +2124,13 @@ le conseil de qui je ne prends aucune décision important
 conseils*). Non que je n'aie en prenant son nom de bonne
 quinzaine d'amis du premier degré. Mais d'abord je ne
 suis pas l'État. Je ne peux pas, peux pas convoquer, je ne peux
-pas assembler mes amis de province comme le gouverne-
-ment de l'État convoque et assemble à Paris en un
+pas assembler mes amis de province comme le gouvernement de l'État convoque et assemble à Paris en un
 tour de main pour un conseil, pour une session, les
 recteurs de ses dix-sept académies. Tous mes amis ne
 sont point recteurs. Ni tous mes recteurs ne sont point
 mes amis, bien qu'il y en ait au moins trois. Et ensuite
 et surtout le bon conseil serait peut-être encore une
-affaire d'amitié, mais le conseil, qui est chose infini-
-ment plus grave, n'est pas tellement une affaire
+affaire d'amitié, mais le conseil, qui est chose infiniment plus grave, n'est pas tellement une affaire
 d'amitié. Ces décemvirs sont des hommes avérés,
 
 éprouvés, durcis, dressés par la dure vie de Paris, par
@@ -2257,8 +2138,7 @@ une vie dont nos amis de province, heureusement pour
 eux, n'ont absolument aucune idée. Il ne faut point,
 pour le conseil, des amis qui soient demeurés innocents.
 Ces décemvirs sont durs. Ces décemvirs sont rudes. Ils
-me disent quelquefois, souvent, des choses fort désa-
-gréables. Je m'en aperçois bien aux vacances de
+me disent quelquefois, souvent, des choses fort désagréables. Je m'en aperçois bien aux vacances de
 Pâques, je fais la différence quand mes amis de
 province viennent me voir, qui sont restés innocents,
 ceux de nos amis, les miens il y a dix ans, les miens
@@ -2284,20 +2164,17 @@ sont purs et avertis. Cette fois-ci encore ils avaient
 
 raison. Si je voulais envoyer des exemplaires en envoi
 d'auteur à toutes les personnes qui ont rendu aux
-cahiers des services capitaux, et à moi personnelle-
-ment des services capitaux, je le dis à la gloire de
+cahiers des services capitaux, et à moi personnellement des services capitaux, je le dis à la gloire de
 l'amitié il ne me fallait pas en envoyer moins de neuf
 cents. Quand nous comptions, ou plutôt quand nous
 essayions de compter, il devenait évident qu'il n'y a
 peut-être pas un seul de nos neuf cents abonnés actuels
-qui ne nous aient rendu personnellement et solidaire-
-ment aux cahiers et à moi, (c'est tout un, c'est tout le
+qui ne nous aient rendu personnellement et solidairement aux cahiers et à moi, (c'est tout un, c'est tout le
 même), des services capitaux.
 
 (Non seulement à la gloire de l'amitié, mais à la
 gloire de cette sorte de bonté générale qu'il y a dans
-le monde et qui contraste si heureusement avec l'ai-
-greur, avec l'âcreté haineuse du Parti Intellectuel).
+le monde et qui contraste si heureusement avec l'aigreur, avec l'âcreté haineuse du Parti Intellectuel).
 
 Il faut penser que sans ces décemvirs ni les cahiers
 ni assurément moi nous ne marcherions pas trois
@@ -2305,8 +2182,7 @@ semaines. Ils sont l'amitié avertie, éprouvée, toujours
 vigilante, ancienne; inébranlable. Ils sont la sagesse
 même. Ils sont le conseil, et l'action après le conseil.
 Il fallait se rendre. A eux et à ce ferme propos qu'ils
-avaient formé de n'en point recevoir un seul exem-
-plaire de ma main et que nul n'en tiendrait un seul
+avaient formé de n'en point recevoir un seul exemplaire de ma main et que nul n'en tiendrait un seul
 exemplaire qui ne vînt de la main pour ainsi dire si je
 puis dire mercantile de M. Bourgeois, nul pas même
 
@@ -2316,18 +2192,14 @@ quarante-huit heures, en avait rapporté cinq cents
 exemplaires d'Orléans à Paris par la force de son
 moteur. Et par la vitesse des batteries à cheval.
 
-Ces cinq cents premiers exemplaires et les dix pre-
-miers exemplaires sur Hollande.
+Ces cinq cents premiers exemplaires et les dix premiers exemplaires sur Hollande.
 
-Il fallait d'autant plus se rendre à la sentence décem-
-virale que la vente de ce volume au bureau des cahiers,
+Il fallait d'autant plus se rendre à la sentence décemvirale que la vente de ce volume au bureau des cahiers,
 à la *librairie* des cahiers aura lieu dans des conditions
 toutes particulières. M. Grasset nous a fait comme
 libraires des conditions si intéressantes et si libérales
 qu'elles font de la vente ou plutôt de l'achat de ce
-volume à la librairie des cahiers une sorte de souscrip-
-tion permanente, littéralement une souscription perma-
-nente conjointe de M. Grasset, de l'acheteur et de moi
+volume à la librairie des cahiers une sorte de souscription permanente, littéralement une souscription permanente conjointe de M. Grasset, de l'acheteur et de moi
 aux *Cahiers de la Quinzaine.* de ces souscriptions
 permanentes aux *Cahiers* nous avons besoin aujour-
 d'hui autant et peut-être plus que jamais.
@@ -2348,8 +2220,7 @@ un monument à l'amitié. *Amicitiae et fidei sacrum.* Je
 m'aperçois enfin qu'il est un de mes livres les plus purs.
 Tout y vient de l'amitié. Tout y représente l'amitié. Tout
 y concourt à l'amitié. Une amie qui a l'intelligence du
-cœur m'écrivait que c'était de l'amitié à trois dimen-
-sions. Mais je crois bien qu'elle en oubliait une ou deux.
+cœur m'écrivait que c'était de l'amitié à trois dimensions. Mais je crois bien qu'elle en oubliait une ou deux.
 En tête un portrait peint par l'ami le plus fidèle et le
 plus grave. Un livre tout entier composé, plus que
 composé, organisé par l'ami le plus ancien, le plus
@@ -2372,8 +2243,7 @@ j'admirais secrètement sa bravoure, je ne le lui disais
 pas, (il ne faut jamais le dire aux hommes jeunes), je
 me rappelais, non sans quelque mélancolie, une ancienne
 audace, une ancienne bravoure qui était il y a douze
-quinze ans celle d'un nommé Péguy, je riais en moi-
-même et je lui disais: *Taisez-vous, jeune homme.*
+quinze ans celle d'un nommé Péguy, je riais en moimême et je lui disais: *Taisez-vous, jeune homme.*
 Comme dans *les Burgraves,* s'il est vrai toutefois que
 ce soit dans *les Burgraves,* car il y a en ce moment
 sur Paris une épidémie de citations qui tombent de
@@ -2431,7 +2301,7 @@ exactions de la germanisation prussienne*. — III.... 2 »
 
 VIII-15. — CHARLES-MARIE GARNIER. — les sonnets
 de Shakespeare, — *essai d'une interprétation en vers
-français*. —; — *essai d'une interprétation en vers
+français*. — *essai d'une interprétation en vers
 
 VIII-16. — GEORGES SOREL. — les préoccupations
 métaphysiques des physiciens modernes, — contre-

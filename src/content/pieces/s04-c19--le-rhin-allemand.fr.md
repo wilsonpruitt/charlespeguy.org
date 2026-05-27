@@ -37,9 +37,7 @@ A Mais, en 1839, MahmoudIl pensa qu'il avait reconstitué
 
 des forces suffisantes pour vaincre le pacha et annuler
 
-Re: la convention. Ses troupes envahirent la Syrie. Ibra-
-
-de him-pacha, un fils de Méhémet-Ali, détruisit l'armée
+Re: la convention. Ses troupes envahirent la Syrie. Ibrade him-pacha, un fils de Méhémet-Ali, détruisit l'armée
 turque à Nézib le 24 juin 1839. De nouveau l'Europe
 
 il s'interposa. Pour sauver la Turquie, les cinq grandes
@@ -48,9 +46,7 @@ il s'interposa. Pour sauver la Turquie, les cinq grandes
 
 À -de Metternich remet en leur nom une note à la Sublime-
 
-Porte. Elles l'engageaient à « s'abstenir de toute déli-
-
-bération définitive sans leur concours et à attendre
+Porte. Elles l'engageaient à « s'abstenir de toute délibération définitive sans leur concours et à attendre
 
 : l'effet de l'intérêt qu'elles lui portaient ».
 
@@ -63,8 +59,7 @@ Me Turquie ouvrirent des négociations à Londres. Personne
 bientôt qu'elles n'aboutiraient pas et cela par la faute;
 de la France. L'influence française était alors prépon-;
 dérante dans l'Orient et Méhémet-Ali était le favori
-des Français. M. Thiers, président du conseil des mi-
-nistres depuis le premier mars 1840, voulut terminer. Me
+des Français. M. Thiers, président du conseil des ministres depuis le premier mars 1840, voulut terminer. Me
 
 seul le différend oriental. Ses agents secrets s'efforcèrent de décider Mahmoud et Méhémet-Ali à conclure à
 directement, sans l'aide européenne, un accord.
@@ -84,8 +79,7 @@ causa une émotion violente.:
 à Ce que l'on ressentit d'abord ce fut l'affront fait à la
 . France. La traiter ainsi, au moment même où sa supré-
 ù matie politique semblait établie! La guerre seule
-… pouvait effacer un tel outrage. « Le traité est une inso-
-lence que la France ne supportera pas, imprimait le
+… pouvait effacer un tel outrage. « Le traité est une insolence que la France ne supportera pas, imprimait le
 
 ne. Gaston Raphaël
 Journal des Débats, (1) son honneur le lui défend. »
@@ -108,21 +102,17 @@ souffrait encore, la Sainte-Alliance au moment où les
 É cendres de Napoléon premier revenaient en France, (4)
 
 où Béranger, Thiers, Victor Hugo créaient la légende
-4 napoléonienne? « C'est un nouveau traité de Chau-
-mont disait le maréchal Soult. Edgar Quinet
+4 napoléonienne? « C'est un nouveau traité de Chaumont disait le maréchal Soult. Edgar Quinet
 Se publia une brochure: r815-1840, dont le succès fut
 7 grand. Il démontrait que le malaise où languissait la
-(2) Numéro du premier août, dans un article sur la politique exté-
-rieure non signé et attribué à Thiers.
+(2) Numéro du premier août, dans un article sur la politique extérieure non signé et attribué à Thiers.
 TA (3) Aux cendres de Napoléon, poésie. — Moniteur du 10 dé-
 
-(4) Retour décidé le 12 mai 1840. Translation aux Invalides effec-
-tuée le 15 décembre 1840. 6 août 1840, tentative du prince Louis4 Napoléon sur Boulogne.!
+(4) Retour décidé le 12 mai 1840. Translation aux Invalides effectuée le 15 décembre 1840. 6 août 1840, tentative du prince Louis4 Napoléon sur Boulogne.!
 
 France, les difficultés de la politique intérieure avaient:
 pour origine les traités de 1815, « qui pèsent sur nous:
-comme une fatalité ». Le devoir à remplir était impé-
-rieux: « La France ne doit pas faire un mouvement
+comme une fatalité ». Le devoir à remplir était impérieux: « La France ne doit pas faire un mouvement
 qui ne la mène à la délivrance du droit public des
 invasions, puisque chacun de nos partis ne sera;
 rien une ombre aussi longtemps que nous ne nous à
@@ -142,8 +132,7 @@ du territoire perdu s'ajoutait la crainte de l'invasion.
 : Edgar Quinet, un propagateur des idées allemandes en
 France, un ami sincère de l'Allemagne, ne pouvait
 s'empêcher de protester. Dans la préface (2) de
-1815-18/0 il disait aux Allemands: « IL n'est per-
-sonne de ce côté du Rhin qui désire plus sincèrement
+1815-18/0 il disait aux Allemands: « IL n'est personne de ce côté du Rhin qui désire plus sincèrement
 votre amitié; mais si pour l'obtenir il s'agit de laisser
 éternellement à vos princes, à vos rois absolus le pied
 sur notre gorge, et de leur abandonner pour jamais À
@@ -156,14 +145,12 @@ devoir est de nous y opposer jusqu'au dernier
 2 soufile. » (1) Et chacun pensait comme Quinet, souvent
 LE avec plus d'intempérance. Depuis longtemps on esti-
 : mait indispensable de reconquérir jusqu'à Düsseldorf
-toute la rive gauche du Rhin. (2) Maintenant on récla-
-mait cette conquête avec bruit. Pour se venger il fallait
+toute la rive gauche du Rhin. (2) Maintenant on réclamait cette conquête avec bruit. Pour se venger il fallait
 3 attaquer. Pour s'affranchir de 1815 il fallait reprendre les
 provinces rhénanes, auxquelles on tenait par dessus tout.
 D'ailleurs cette conquête devait être facile. Comme -
 en 1790, les Rhénans feraient fête aux armées françaide ses: Car la guerre serait révolutionnaire. Le traité de
-se Londres n'avait pas médiocrement excité les espé-
-rances du parti libéral. Il jugeait le moment propice
+se Londres n'avait pas médiocrement excité les espérances du parti libéral. Il jugeait le moment propice
 pour accroître au dedans comme au dehors son activité
 révolutionnaire. La monarchie de Juillet ne résisterait
 pas à une guerre. Et quelle occasion de renouveler à
@@ -175,15 +162,14 @@ en Pologne. En même temps il mettait la monarchie au
 ï défi d'avoir cette hardiesse. Le Temps imprimait:
 « L'Europe est bien faible contre nous. Elle peut essayer
 14 de jouer avec nous le terrible jeu de la guerre; nous
-É; jouerons avec elle Le terrible jeu des révolutions. » (3)
+jouerons avec elle Le terrible jeu des révolutions. » (3)
 : Le Journal des Débats écrivait: « La France, s'il le
 Edgar Quinet. — Œuvres, tome XIV, page
 6 (2) En 1830, le ministère de Polignac avait secrètement prié la
 Russie de l'aider à rentrer en possession des provinces rhénanes.
 
 faut, défendra seule l'indépendance de l'Europe; pour
-cette cause qui est celle de la civilisation contre la bar-
-barie, de la liberté contre le despotisme, nous épuiserons
+cette cause qui est celle de la civilisation contre la barbarie, de la liberté contre le despotisme, nous épuiserons
 jusqu'à la dernière goutte de notre sang. » (1) Le mouvement de relèvement français était à la fois nationaliste?
 et internationaliste, nationaliste et révolutionnaire.
 Les manifestations de l'humeur agressive de la
@@ -218,8 +204,7 @@ il pointait la marche des armées françaises. Il fit des
 à nance les crédits nécessaires pour augmenter l'effectif
 de la marine de 10.000 matelots, 5 vaisseaux de ligne,
 13 frégates, 9 bâtiments à vapeur. Le 29 septembre il
-crée 12 nouveaux régiments d'infanterie et 5 de cava-
-lerie. Le 21 septembre il ordonnance plus de 100 millions
+crée 12 nouveaux régiments d'infanterie et 5 de cavalerie. Le 21 septembre il ordonnance plus de 100 millions
 110 pour le matériel et l'effectif. Enfin il ordonnance un
 ta autre crédit supérieur à 100 millions pour commencer
 immédiatement à construire les fortifications autour de
@@ -234,34 +219,26 @@ a mille ouvriers sans travailn'attendaient qu'une occasion
 5 dese divertir. Celle-ci leur parut bonne. Ilsentonnèrent
 ta la Marseillaise, ignorée et proscrite depuis des années.
 Le 28 juillet 1840 fut inaugurée sur la place de la
-on Bastille la colonne de juillet. On porta solennelle-
-
-ment les restes de ceux qui étaient morts pour la à
+on Bastille la colonne de juillet. On porta solennellement les restes de ceux qui étaient morts pour la à
 Révolution. Le roi, les princes, les ministres s'étaient!
-abstenus de paraître par crainte d'une manifesta-
-tion dangereuse. Mais 80.000 gardes nationaux se
+abstenus de paraître par crainte d'une manifestation dangereuse. Mais 80.000 gardes nationaux se
 dirigèrent vers les Tuileries, chantant la Marseillaise;
 et proférant des menaces contre les Anglais et les
 Prussiens. Le roi dut se montrer au balcon. « Il a
 été salué par des acclamations vraiment très vives,
 et quand l'orchestre a exécuté la Marseillaise, il y
 à tous que la France füt à la veille d'événements
-redoutables. Par moments même, dans tel départe-
-ment, la nouvelle se répandait que la guerre venait:
-d'être déclarée, et il fallait que le préfet la démen-
-tit officiellement. Ce n'était partout que clameurs
+redoutables. Par moments même, dans tel département, la nouvelle se répandait que la guerre venait:
+d'être déclarée, et il fallait que le préfet la démentit officiellement. Ce n'était partout que clameurs
 contre l'Anglais, chants de a Marseillaise. On inter-:
 calait dans les pièces de théâtre des phrases belli-;
 queuses, aussitôt saisies et applaudies. » (2) « Devant
 les bureaux de recrutement on faisait queue comme.
-devant les théâtres quand il y a une pièce mar-
-
-quante. » (3) A l'étranger les marins ou les soldats des
+devant les théâtres quand il y a une pièce marquante. » (3) A l'étranger les marins ou les soldats des
 diverses nations s'observaient. La moindre imprudence Ms.
 : pouvait déchaïiner la guerre. La paix, disait M. Guizot,
 était à la merci des subalternes.
-Lorsqu'ils connurent ces manifestations les Alle-
-mands furent stupéfaits. Leur pays n'était que fort;
+Lorsqu'ils connurent ces manifestations les Allemands furent stupéfaits. Leur pays n'était que fort;
 Lettre de M. de Lavergne à Guizot, ambassadeur à Londres.
 Guizot, Mémoires, tome page 250. de:
 (2) Thureau-Dangin. — Histoire de la monarchie de Juillet, tomeIV, LE
@@ -319,8 +296,7 @@ plus lourdement sur eux. Cela les inquiétait. Les jour-
 . naux tout en parlant d'une guerre éventuelle espéraient
 que la paix triompherait. D'ailleurs le parti libéral
 demeurait assez sympathique à la France. Sympathie
-beaucoup moins efficace que ne l'imaginaient les révo-
-on alla dans certaines villes allemandes comme Karls-
+beaucoup moins efficace que ne l'imaginaient les révoon alla dans certaines villes allemandes comme Karls-
 
 Cité par Treitschke dans: Geschichte Deutschlands XIX.
 2) Protocole secret du 14 août 1840. Treitschke, tome page
@@ -360,26 +336,21 @@ cère. Aussi fut-il donné à un Allemand inconnu de
 lexprimer. Nicolas Becker fit en 1840 ce qu'en 1792:
 Rouget de l'Isle avait fait.
 
-Nicolas Becker naquit à Bonn le 8 octobre 1809, le der-
-nier de quatorze enfants. Les Français occupaient la ville. À
+Nicolas Becker naquit à Bonn le 8 octobre 1809, le dernier de quatorze enfants. Les Français occupaient la ville. À
 Son acte de naissance fut rédigé en français. Son père
-était commerçant. Sa mère était une des filles du der-
-
-nier maire de Cologne. Il passa par le gymnase de
+était commerçant. Sa mère était une des filles du dernier maire de Cologne. Il passa par le gymnase de
 Düren. Il étudia ensuite le droit à Bonn. Mais c'est
 avec difficulté qu'il réussit au premier examen (1833).
 De santé faible, sans fortune, sans ambition, il ne pour- À
 suit pas. Il occupe une petite place au tribunal de
 ses beaux-frères, greffier de justice de paix au village
-de Geilenkirchen et prend un logement au village voi-
-sin, Hünshoven. Il a besoin de rétablir sa santé. Il
+de Geilenkirchen et prend un logement au village voisin, Hünshoven. Il a besoin de rétablir sa santé. Il
 travaille peu. Il écrit de petites poésies et fréquente
 quelques poètes. En 1840 son Rhin allemand fait de lui!
 un homme populaire. En il est nommé greflier de ne
 justice de paix à Cologne. Le 27 août 1845 il mourut
 phtisique, âgé de trente-six ans. La lettre de faire part
-porte qu'il fut muni des sacrements de l'Église catho-
-lique. Le 29 août 1845 la Gazette de Francfort dit de lui
+porte qu'il fut muni des sacrements de l'Église catholique. Le 29 août 1845 la Gazette de Francfort dit de lui
 « Le poète du Rhin allemand était un brave homme,
 inoffensif, modeste, que tous ceux qui le connaissaient
 de près estimaient et aimaient. » à
@@ -436,9 +407,9 @@ ne portera sa robe verte, —
 Aussi longtemps qu'avec un bruit clair, une rame —
 LE Frappera ses flots! —
 
-:: Ils ne l'auront pas, —
+Ils ne l'auront pas, —
 
-1 Le libre Rhin allemand,
+Le libre Rhin allemand,
 2: Aussi longtemps que les cœurs se réconforteront —
 A son vin de feu; —
 3 a Aussi longtemps que dans son cours —
@@ -462,7 +433,7 @@ lai de son cours). Strophe 6, vers 1: die Flossen (les nageoires) au lieu
 de die Flosse (la nageoïire).
 1 (1) Cette strophe a été omise,dans presque toutes les traductions
 
-Ils ne l'auront pas, —:
+Ils ne l'auront pas,
 Le libre Rhin allemand,
 Jusqu'à ce que ses flots aient enseveli
 Les ossements du dernier homme.
@@ -475,8 +446,7 @@ organisèrent une démonstration en son honneur. Le
 la demeure du poète et lui remit une couronne de lierre,
 tandis qu'on chantait des poésies de circonstance.
 Nicolas Becker remercia ainsi: « Dieu tout puissant m'a
-jugé digne d'exprimer ce qui, répété par trente-six mil-
-lions de voix, devait trouver un écho dans toute l'Europe.
+jugé digne d'exprimer ce qui, répété par trente-six millions de voix, devait trouver un écho dans toute l'Europe.
 C'est un fait unique dans l'histoire, qu'une courte et
 simple chanson ait suffi à abattre comme d'un coup les
 sympathies que rêvait un puissant peuple voisin. Que
@@ -608,7 +578,7 @@ START Tant que l'on verra le poisson. AGE
 ÉTAPE LITE re] Jouer dans ses eaux fugitives,
 HRNENNNESS Tant qu'on entendra la chanson Der;
 Réveiller l'écho de nos rives. a
-4 Jurons-le tous: ils ne l'auront
+Jurons-le tous: ils ne l'auront
 Le beau Rhin de la Germanie,
 - #8 Que quand ses flots engloutiront
 2108 Le dernier fils de la patrie! (1)
@@ -645,7 +615,7 @@ Es du fleuve, qui pria les poètes de cesser, « car toutes ces
 De: vers en quarante-huit heures et se vit obligée de les
 4 refuser. Nous retiendrons seulement quelques strophes.
 Arndt, âgé de soixante et onze ans, écrivit sous le
-A! titre: Lorsque Thiers avait soulevé les Welches, une
+titre: Lorsque Thiers avait soulevé les Welches, une
 poésie plus agressive que le Rheinlied:
 Ils le veulent: prends donc fin, patience allemande, —
 La Prends fin depuis le Belt jusqu'au Rhin! —
@@ -678,13 +648,13 @@ Louis nous a ravi le pays — tie
 Parce que l'Allemagne était en lutte — EN
 Avec le chef de l'Empire!
 O Strassbourg, citadelle des routes (1) — à
-Tant que les Français y séviront, —;
+Tant que les Français y séviront,
 Jamais l'Allemagne ne se portera bien!...
 Le Rhin doit redevenir
 Dans tout son parcours —
 . Le bien des pays allemands! — ù À
 à Déployez votre bannière! —
-; Et toi peuple des Vosges —:
+; Et toi peuple des Vosges
 Et de la forêt des Ardennes,
 Nous voulons te délivrer — “es.
 Du joug de l'imposteur étranger!
@@ -704,11 +674,11 @@ Der La honte des Allemands!
 ne tard, des vers de sa propre façon: Aux Allemands
 RO: depuis 18/0. Il insistait sur l'idée de l'unité allemande:
 Mat Le sentiment allemand paraissait évanoui, perdu, —
-« à Restant éternellement un idéal, —:
+« à Restant éternellement un idéal,
 Qui jamais ne fut, et ne serait jamais mis au monde! —
 Un rayon froid et inanimé. —
 LES Pourtant à l'ouest partit le canon d'alerte, —
-4 Il retentit dans toutes les âmes, —
+Il retentit dans toutes les âmes, —
 nie Fast Tous, les moindres comme les meilleurs —
 Le Furent enflammés d'amour pour la patrie. —
 mie Ce qui avait pénétré l'âme de quelques-uns seulement, —
@@ -722,14 +692,14 @@ Re: énergiques des Allemands:
 Le vin du Rhin
 De ce lieu où croît un tel feu, —
 Où un tel vin jette encore des flammes, —
-Jamais de toute éternité, —:
+Jamais de toute éternité,
 Jamais nous ne nous laisserons chasser. —
 
 Trinquons! Trinquons! Le Rhin, —. LA
 Quand ce ne serait que pour son vin, —
 Le Rhin doit rester allemand... — à
 Il n'est pas digne du sang de ses grappes, —
-Pas digne de la femme allemande, du foyer allemand, — y!
+Pas digne de la femme allemande, du foyer allemand, —
 Celui qui ne brandit pas joyeusement son épée —
 Pour exterminer les ennemis. — AU
 Hardi! En plein dans la bataille! — à
@@ -752,7 +722,7 @@ autre chant national allemand, fut écrite en 1841. Aucune des nom- À
 breuses poésies suscitées par la guerre franco-allemande ne le A
 devint. Les chants nationaux allemands datent de 1840-41 et non
 
-;! « Du, Rhein, bleibst deutsch wie meine Brust! »
+« Du, Rhein, bleibst deutsch wie meine Brust! »
 
 Wirst du doch drum ein Welscher nicht,
 
@@ -809,7 +779,7 @@ Ferme et fidèle veille la garde au Rhin.—
 
 Le serment retentit, la vague s'écoule, —
 
-Ne (? Les étendards claquent au vent. —
+Ne Les étendards claquent au vent. —
 
 Nous tous voulons être ses gardiens! —
 
@@ -831,11 +801,7 @@ Ron Charlotte von Hagen dut être engagée à Francfort, les
 
 : Berlinois chantèrent: « Ils ne l'auront pas, la fée mer-
 
-TES 1 veilleuse! » A Breslau on parla d'introduire le tutoie-
-
-ment dans un « séminaire » de professeurs. Ils répon-
-
-dirent: « Nous ne voulons pas le « tu » dans notre
+TES 1 veilleuse! » A Breslau on parla d'introduire le tutoiement dans un « séminaire » de professeurs. Ils répondirent: « Nous ne voulons pas le « tu » dans notre
 séminaire. » À Hambourg on ne voulut pas d'un comité
 à de tempérance. Dans les maisons de commerce, les
 Per mots soll (doit) et haben (avoir) fournirent la matière
@@ -855,7 +821,7 @@ No) Il fait dire au Dieu du Rhin:
 
 Mais plus lourdement sur l'estomac me pèsent
 Les vers de Nicolas Becker.
-Il m'a chanté comme si j'étais encore —;
+Il m'a chanté comme si j'étais encore
 La vierge très chaste,
 Qui ne se laisse ravir par personne —
 La couronne de son honneur.
@@ -884,7 +850,7 @@ virent avec étonnement passer soixante chalands, chargés de grosses
 pierres élaient destinées à la cathédrale de Cologne qu'on achevaïit.
 Mais peu après ils ouvrirent les chalands préparés d'avance et
 immergèrent toutes les pierres dans le Rhin. L'entrée du port de
-Biberich fut obstruée. Telles étaient l'anarchie et la jalousie dans «,
+Biberich fut obstruée. Telles étaient l'anarchie et la jalousie dans
 les affaires intérieures de l'Allemagne même en 1841.
 
 de parler aujourd'hui du libre Rhin allemand. (1)
@@ -893,7 +859,7 @@ de parler aujourd'hui du libre Rhin allemand. (1)
 Re. Accordez, dit-il aux princes, la liberté de La presse. Le
 Sa peuple est mûr pour elle. Le véritable esprit allemand
 de. 2 C'est ainsi que le but sera atteint! Et si dans les jours futurs—
-1,325 La France orgueilleuse désire notre Rhin, —:
+1,325 La France orgueilleuse désire notre Rhin,
 Nous supporterons cela en souriant, —
 : eve SRE Sans chansons, mais la main à l'épée, —
 Car alors nous aurons réussi à l'attacher éternellement à
@@ -903,7 +869,7 @@ RTE Car allemand et libre, alors il restera notre (2) Rhin. —
 AR. Quelques poésies plus hardies furent même nette-
 LIVES ment internationalistes. Rudolph Gottschall dédiait ces
 Et toi, fils libre des montagnes libres, —
-210 Qu'enveleppent l'haleine et les parfums de la poésie, —
+Qu'enveleppent l'haleine et les parfums de la poésie, —
 PRCÉRES Tu n'es pas un garde-frontière, pas un sergent, —
 Le Pas un valet, bon pour un service de fonctionnaire —
 E. Qui se tiendrait aux portes de l'Allemagne —
@@ -932,7 +898,7 @@ Point d'Allemands, point de Français! Oubliez les noms! — À
 Soyons hommes seulement, ne soyons rien que des
 Et toi, Rhin, dis un puissant Amen — [hommes! —
 Bénis l'alliance des peuples!
-Et noue en liens indéchirables —:
+Et noue en liens indéchirables
 Tes boucles argentées autour des deux pays. — (1) )
 Lorsque la poésie de Becker fut connue en France au
 printemps de 5841, l'opinion publique était changée.
@@ -942,8 +908,7 @@ Il expliquait ainsi sa pensée à M. Perrin: « Si je m'étais A
 prononcé pour la paix, M. Thiers eût quitté le ministère
 et je serais aujourd'hui le plus impopulaire des hommes.
 Au lieu de cela j'ai crié plus haut que lui, et je l'ai mis
-aux prises avec les difficultés. » Il disait confidentielle-
-ment à M. de Saint-Aulaire, son ambassadeur à Vienne:
+aux prises avec les difficultés. » Il disait confidentiellement à M. de Saint-Aulaire, son ambassadeur à Vienne:
 (1) Cette poésie, postérieure à la crise, parut en 1842 dans les
 Lieder der Gegenwart (chansons actuelles). Elle fut sans doute
 inspirée par la réponse de Lamartine. *.
@@ -993,8 +958,7 @@ faire pour que la Syrie soit aux mains du pacha etnon
 
 (1) Cité par Debidour dans l'Histoire diplomatique de l'Europe,
 
-À (2) Edgar Quinet dans une lettre à sa mère du 14 octobre 1840 pré-
-tend savoir: « que tout le plan de campagne consistait à s'enfermer dans les ports de la Provence à tenter de conserver nos
+À (2) Edgar Quinet dans une lettre à sa mère du 14 octobre 1840 prétend savoir: « que tout le plan de campagne consistait à s'enfermer dans les ports de la Provence à tenter de conserver nos
 communications avec Alger ».
 
 (3) Lettre de Guizot au duc de Broglie, 23septembre 1840. Mémoires
@@ -1005,16 +969,13 @@ de Guizot, tome page
 cause les équipées révolutionnaires ou les désastres de
 Bourgeois et royalistes se souciaient surtout fort peu
 de réveiller l'esprit révolutionräire. Il apparaissait de
-plus en plus que la guerre projetée devait être révolu-
-tionnaire. Elle menaçait sérieusement d'emporter la
+plus en plus que la guerre projetée devait être révolutionnaire. Elle menaçait sérieusement d'emporter la
 monarchie de Juillet. Les rassemblements belliqueux ta
 devinrent séditieux. L'enthousiasme bourgeois se fit
-moindre. Les Débats, la Revue des Deux Mondes pri-
-rent le parti de Louis-Philippe. Le 15 octobre, Darmès CIE
+moindre. Les Débats, la Revue des Deux Mondes prirent le parti de Louis-Philippe. Le 15 octobre, Darmès CIE
 tira sur le roi qui revenait de Saint-Cloud, sans l'at- à
 teindre. On crut une révolution imminente. On en pro- à
-fita pour se calmer. « Beaucoup de gens, fort suscepti-
-bles naguère sur la question d'honneur national, furent
+fita pour se calmer. « Beaucoup de gens, fort susceptibles naguère sur la question d'honneur national, furent
 charmés de trouver dans la crainte de lanarchie un Es
 prétexte pour se refroidir. » (1):
 Le 20 octobre Thiers présente à Louis-Philippe un,
@@ -1053,8 +1014,7 @@ clairon, c'est une fanfare jouée sur la musette. » Plus
 bleus ». La Revue des Deux Mondes en disait: « La chanson sur le vert et libre Rhin n'est bonne tout au plus
 . qu'à charmer l'oisiveté quelque peu niaise des tabagies
 teutoniques; on lui fait trop d'honneur de la prendre au
-sérieux. » (2) De nombreux terrassiers allemands vin-
-rent travailler aux fortifications de Paris. Le Charivari
+sérieux. » (2) De nombreux terrassiers allemands vinrent travailler aux fortifications de Paris. Le Charivari
 en prit occasion pour plaisanter sur les fortifications. Il;
 prêta à ces terrassiers un chant des braves où ils chantaient: « Non, ils ne t'auront pas, Rhin! Rhin! Rhin!
 (1) Chanson de Casimir Delavigne sur la révolution de 1830. Il la
@@ -1062,8 +1022,7 @@ destinait à devenir la Marseillaise de la monarchie de Juillet.
 (2 Chronique de la Revue des Deux Mondes du 15 juin 1841.
 
 vin! vin! vin! Les fortifications nous appellent, ma
-truelle frémit d'impatience; en route et répétons tou-
-jours: Heug! Heug! Heug! le cri des braves! » (x) Il
+truelle frémit d'impatience; en route et répétons toujours: Heug! Heug! Heug! le cri des braves! » (x) Il
 semblait bien que tout se terminerait par des « chan- “4
 
 Mais pour quelques jours, la réponse que Lamartine $5
@@ -1081,14 +1040,11 @@ avait désapprouvé l'agitation de 1840. Il espérait sans
 doute que les traités de 1815, « refoulement violent de:;
 lomnipotence armée d'un conquérant ne seraient pas pe:
 
-éternels et immobiles comme ces fleuves et ces mon-
-
-tagnes que la nature a donnés pour traités non écrits
+éternels et immobiles comme ces fleuves et ces montagnes que la nature a donnés pour traités non écrits
 
 entre les peuples ». (3) Il reconnaissait pour la France
 la nécessité de s'étendre jusqu'au Rhin. Mais il refuse.
-de faire la guerre. Il ne veut pas qu'on lance la Révolu-
-tion de Juillet hors de son lit pour mettre en question
+de faire la guerre. Il ne veut pas qu'on lance la Révolution de Juillet hors de son lit pour mettre en question
 (2) Lettre de Lamartine à madame de Girardin du 17 mai 1841.
 Correspondance de Lamartine, publiée par madame Valentine de Le
 
@@ -1102,8 +1058,7 @@ toute l'Europe. (1) IL vote contre le projet de fortifica-
 quelque temps substituer dans l'esprit de la nation à la
 religion sérieuse de la liberté. Je ne crois pas qu'il soït
 bon de déifier ainsi sans cesse la guerre, de surexciter
-: ces bouillonnements déjà trop impétueux du sang fran-
-çais qu'on nous représente comme impatient de couler
+: ces bouillonnements déjà trop impétueux du sang français qu'on nous représente comme impatient de couler
 après une trêve de vingt-cinq ans, comme si la paix qui
 est le bonheur et la gloire de notre monde pouvait être
 la honte des nations. » (2) Il affirme la supériorité de la
@@ -1122,29 +1077,22 @@ exprimé son horreur de la guerre. Il dit dans,la Lettre-Préface: « IL
 s'agit de savoir... si on effacera peu à peu du code des nations ce
 meurtre en masse qu'on appelle la guerre; si les hommes se gouverneront enfin comme des familles, au lieu de se parquer comme
 des troupeaux. » (Premier décembre 1838). Cf. certaines poésies
-Utopie (août 1837) et surtout une poésie qui fut une déclaration politique: Toast porté dans un banquet national des Gallois et des Bre-
-
-nationalisme et l'immense intérêt du genre humain,
+Utopie (août 1837) et surtout une poésie qui fut une déclaration politique: Toast porté dans un banquet national des Gallois et des Brenationalisme et l'immense intérêt du genre humain,
 je dirais, comme Barnave: « Périsse ma nation pourvu
 que l'humanité triomphe! » (1) Au-dessus des intérêts
 matériels, en effet, il importe de considérer les idées et
-les grands hommes, qui doivent leur force à la Provi-
-dence. Une union entre les idées, entre les grands APN à
+les grands hommes, qui doivent leur force à la Providence. Une union entre les idées, entre les grands APN à
 hommes est indestructible, « Quand les mêmes pensées de;
 se communiquent, se pénètrent ainsi à travers les langues, les intérêts, les distances; quand les âmes de
 deux grands peuples sont d'intelligence par l'élite de
 leurs citoyens, et commencent à comprendre la mission
-de liberté, de civilisation, de développement que la Pro-
-vidence leur assigne en commun; quand cette intelli-
-gence, cette harmonie, cet accord reposent sur la base
+de liberté, de civilisation, de développement que la Providence leur assigne en commun; quand cette intelligence, cette harmonie, cet accord reposent sur la base
 de principes éternels aussi hauts que Dieu quiles inspire,
 aussi impérissables que la nature, ces peuples échap- si
 pent, par la hauteur de leurs instincts, par l'énergie de
 leur attraction, aux dissidences qui voudraient en vain
 les désunir.…. Quand les esprits libéraux de l'Angle-:
-terre et de la France se tendirent la main, malgré Napo-
-léon et la coalition, c'était en vain que les armées com-
-baïtaient encore; les nations étaient réconciliées. Les )
+terre et de la France se tendirent la main, malgré Napoléon et la coalition, c'était en vain que les armées combaïtaient encore; les nations étaient réconciliées. Les )
 vrais plénipotentiaires des peuples ce sont leurs grands
 hommes, les vraies alliances ce sont leurs idées. Les
 intérêts ont une patrie, les idées n'en ont point! » (2) si
@@ -1178,9 +1126,7 @@ proposait une solution personnelle. Le dépérisse-
 
 4 tait le malaise où se débattait l'Europe, où s'agitait
 
-0 comme un cauchemar la France. « La France, disait-
-
-il, est une nation qui s'ennuie. » Et les progrès de
+0 comme un cauchemar la France. « La France, disaitil, est une nation qui s'ennuie. » Et les progrès de
 
 À l'instruction, les progrès de la civilisation, donnent à la -
 
@@ -1210,14 +1156,11 @@ ministère, dans le Journal de Saône-et-Loire (28 août 1840 et jours
 suivants) qui parurent en brochure avec une préface datée du 24septembre 1840.: À
 (2) Discours du 8 janvier 1844. Ulbach,
 
-chise la répartition des domaines turcs. « Vous parta-
-gerez en enfants prédestinés de la Providence le vaste
-et magnifique héritage que la mort naturelle de l'em-
-pire d'Orient ouvre pour les nations européennes; vous
+chise la répartition des domaines turcs. « Vous partagerez en enfants prédestinés de la Providence le vaste
+et magnifique héritage que la mort naturelle de l'empire d'Orient ouvre pour les nations européennes; vous
 asseoirez les nations rivales de l'Occident sur des
 bases plus larges, plus naturelles et par même plus
-solides; vous rallumerez le flambeau éteint de la civi-
-lisation aux lieux-mêmes d'où elle a découlé pour vous; En
+solides; vous rallumerez le flambeau éteint de la civilisation aux lieux-mêmes d'où elle a découlé pour vous; En
 vous sèmerez derrière vous, comme Deucalion, sur cette
 terre féconde et déserte de l'Asie, et vous préparerez à
 votre mémoire les bénédictions de deux continents. » (1)
@@ -1225,11 +1168,9 @@ C'est en partisan de la paix, et en partisan du par- GAS
 tage de l'Orient que Lamartine répondit à Becker. (2)
 Dans son numéro du premier juin 1841 la Revue des
 red) Discours du 4 janvier 1834. Ulbach, 7. Dans la suite, Lamar-;
-tine apprécie cette politique ainsi: « On agitait la question exté-
-rieure, Je venais de parcourir pendant deux ans le monde orien- à
+tine apprécie cette politique ainsi: « On agitait la question extérieure, Je venais de parcourir pendant deux ans le monde orien- à
 ; je devais être attendu, écouté, prépondérant dans une discussion me
-je songeai à paraître hardi et neuf, plus qu'à rester sincère et hon-
-nête, Je proclamai je ne sais quel prétendu droit de civilisation 1:10
+je songeai à paraître hardi et neuf, plus qu'à rester sincère et honnête, Je proclamai je ne sais quel prétendu droit de civilisation 1:10
 comme un droit absolu d'attenter aux nationalités établies, sans en ‘AR
 rendre compte ni à Dieu, ni aux hommes, en sorte qu'il suffirait à TU
 un peuple de se croire plus ou moins civilisé que ses voisins pour
@@ -1269,9 +1210,7 @@ Stuart (1850) et d'une Histoire de la liberté religieuse en France et de
 
 (2) Lamartine avait voulu envoyer la Marseillaise de la Paix à
 madame de Girardin, pour qu'elle la publiât dans la Presse. Mais il
-ne l'écrivit pas immédiatement. Le 28 mai, un ami le pria instam-
-
-ment de lui prêter 500 francs. Ne les possédant pas pour l'instant, il
+ne l'écrivit pas immédiatement. Le 28 mai, un ami le pria instamment de lui prêter 500 francs. Ne les possédant pas pour l'instant, il
 
 adressa sa poésie à Buloz, le fondateur de la Revue des Deux Mondes,
 
@@ -1451,7 +1390,7 @@ Il est concitoyen de l'empire de Dieu! A.
 1] Les murs des nations s'écroulent en poussières,
 Les langues de Babel retrouvent l'unité,
 L'Évangile refait avec toutes ses pierres
-4 Cf. madame de Staël. — De l'Allemagne, 2: « cette éminente
+Cf. madame de Staël. — De l'Allemagne, 2: « cette éminente
 À faculté de penser, qui s'élève et se perd dans le vague, pénètre et À
 de disparaît dans la profondeur ».;
 Dans les éditions de Lamartine, la Marseillaise de la
@@ -1475,7 +1414,7 @@ pour les distribuer gratuitement: la Marseillaise de la Paix, par
 M. de Lamartine, en réponse au Chant du Rhin; un fragment du
 discours de M. Victor Hugo [discours de réception à l'Académie,
 fragment où il parle du rôle social du poète] et les lignes éloquentes
-à, et prophétiques sorties de la plume de M. Michel Chevalier [profes-:
+et prophétiques sorties de la plume de M. Michel Chevalier [profes-:
 ou seur d'économie politique au collège de France] le lendemain de #4
 ; Révolution de juillet, alors que bourgeois et prolétaires, au signal
 du prince lui-même, entonnaient à l'unisson le chant français d'un À
@@ -1583,9 +1522,7 @@ Où le digne Hollandais s'engraisse de Harengs, (1) À À
 
 Les Allemands font remarquer avec stupéfaction que le Rhin
 
-ne se jette pas dans la mer Baltique et que les Hollandais ne s'en-
-
-graissent pas exclusivement de harengs.:
+ne se jette pas dans la mer Baltique et que les Hollandais ne s'engraissent pas exclusivement de harengs.:
 
 ne Gaston Raphaël ON
 Soit vers les bords français, ou le sol helvétique
@@ -1766,11 +1703,9 @@ On ne se contenta point de répondre à Lamartine.
 On fit de vives ripostes au Rheinlied. On atteignait
 d'un coup Becker et Lamartine.
 Le Charivari publia la sienne le 11 juin: SE
-— Nous en rirons longtemps de tes vers, de tes vers alle-
-mands, quoiqu'ils nous assourdissent les oreilles comme
+— Nous en rirons longtemps de tes vers, de tes vers allemands, quoiqu'ils nous assourdissent les oreilles comme
 les cris de mille corbeaux.: a
-— Nous en rirons longtemps de tes vers allemands, tri-
-viale parodie d'un chant qui fit trembler, jusque dans leurs l'AS
+— Nous en rirons longtemps de tes vers allemands, triviale parodie d'un chant qui fit trembler, jusque dans leurs l'AS
 fondements, les vieilles cathédrales occupées à se mirer
 dans ton Rhin, à Becker!
 — Nous en rirons tant que la mémoire de nos enfants Du
@@ -1793,8 +1728,7 @@ blondes compatriotes à un grenadier de Kléber. 5-41
 point à cause de tes menaces, mais parce que tu nous as
 valu une pièce de vers de Lamartine, la Marseillaise de
 l''Ennui, parce que de tous côtés les poètes taillent leur RE.
-plume, parce que nous allons avoir une foule de Marseil-
-laises en réponse à ta ballade de professeur. à De
+plume, parce que nous allons avoir une foule de Marseillaises en réponse à ta ballade de professeur. à De
 
 Car tu dois être professeur dans quelque gymnase,
 À Becker, ou docteur en théologie. Pour récompenser ton
@@ -1805,11 +1739,10 @@ MUR patriotisme de rhétorique, le roi de Bavière te nommera
 Koerner, elle obéissait à une inspiration nationale, mais
 aujourd'hui, c'est au nom des royautés menteuses de ton
 si pays que tu prends la défense du Rhin, et personne ne;.
-à répète ta chanson si ce n'est la presse française qui t'ac-
-corde généreusement l'hospitalité qu'elle donne dans ses
+à répète ta chanson si ce n'est la presse française qui t'accorde généreusement l'hospitalité qu'elle donne dans ses
 É colonnes aux suicides, aux assassinats et aux accidents de
 chemins de fer.
-— Becker, il faut enfin vous le dire, vous êtes ennuyeux à?
+— Becker, il faut enfin vous le dire, vous êtes ennuyeux
 comme toute la littérature allemande; vous êtes comme
 bi. chantre populaire de la force de monsieur Casimir DelaWe vigne; vous venez de résoudre un grand problème en,
 2 inventant quelque chose de plus niais que la Parisienne.
@@ -1883,7 +1816,7 @@ Du Rhin uniront les rivages. à
 a Oui nous l'aurons, ce Rhin, malgré vos cris sauvages;
 y Alors vous tremblerez comme ses flots émus...
 te Car la France enfin libre, il ne le sera plus!!!
-À: Les hardis jeunes gens couchés dans la poussière,
+Les hardis jeunes gens couchés dans la poussière,
 
 NE Ou courbés sous le poids d'un pardon généreux,
 Nous légueront leurs droits sur la blonde aux yeux bleus
@@ -1900,7 +1833,7 @@ Réunis par la main d'un maître.
 Nous t'aurons, Rhin si fier ou qui veux le paraître;
 à A nous tes vins fameux, à nous tes vins émus...
 É La France libre enfin, tu ne le seras plus!!!
-4 A défaut de Béranger, un poète français connu, Alfred
+A défaut de Béranger, un poète français connu, Alfred
 ï de Musset, répondit à Becker. On n'attendait pas un
 pareil acte de lui, qui s'intéressait peu à la vie
 blique. Ce fut un hasard, semble-t-il, qui provoqua sa
@@ -1909,13 +1842,10 @@ réponse. Elle s'adressait elle aussi à Lamartine et à
 Becker. Dans la chronique parisienne de la Presse du
 
 juin, le vicomte de Launay (1) raconte ainsi l'origine ni
-de la poésie de Musset: « L'autre soir nous étions plu-
-sieurs ouvriers en poésie réunis chez madame de G.[irar-
-din] et nous nous disputions ces vers [Marseillaise:
+de la poésie de Musset: « L'autre soir nous étions plusieurs ouvriers en poésie réunis chez madame de G.[irardin] et nous nous disputions ces vers [Marseillaise:
 de la paix] comme des confrères avides, soit, mais “st
 non pas comme des corbeaux. Et chacun vantait la Font +43
-strophe qu'il préférait. Voilà ma strophe, disait Théo-
-phile Gautier; voilà la mienne, disait M. de Balzac; EN
+strophe qu'il préférait. Voilà ma strophe, disait Théophile Gautier; voilà la mienne, disait M. de Balzac; EN
 ces vers-là sont bien beaux, reprenait M. Ménecuchet, et
 il lisait admirablement, comme vous savez. M. Alfred de à
 Musset était assis dans un coin du salon. Moi, ditil, “4
@@ -1947,7 +1877,7 @@ Jetons les blonds essaims des familles humaines pie
 Autour des nœuds du cèdre et du tronc des palmiers! à
 
 Allons, comme Joseph, comme ses onze frères,
-7 Vers les limons du Nil que labouraït Apis, à
+Vers les limons du Nil que labouraït Apis, à
 Trouvant de leurs sillons les moissons trop légères, “1
 La S'en allèrent jadis aux terres étrangères
 Et revinrent courbés d'épis!
@@ -1961,7 +1891,7 @@ Le Sans vendre à l'oppresseur un peuple gémissant,
 
 Sans montrer au retour au Dieu du patriarche, À
 7; Au lieu d'un fils qu'il aime, une robe de sang!
-28 Rapportons-en le blé, l'or, la laine et la soie,
+Rapportons-en le blé, l'or, la laine et la soie,
 put Avec la liberté, fruit qui germe en tout lieu! “1:10
 ; Et tissons de repos, d'alliance et de joie
 L'étendard sympathique où le monde déploie 1224
@@ -1984,8 +1914,7 @@ vindicatives, passionnées, jalouses; c'est notre seul
 professe un égoïsme national féroce, j'en conviens:
 
 pondre à cet Allemand en vers cruels. — Moi aussi,
-s'écria Alfred de Musset. — Faites-les donc vite, repri-
-rent en chœur tous les assistants. Venez sur la terrasse,
+s'écria Alfred de Musset. — Faites-les donc vite, reprirent en chœur tous les assistants. Venez sur la terrasse,
 nous allons vous enfermer dans le jardin; nous vous TANT
 donnons un quart d'heure. — On ferma la porte du:
 salon derrière lui et le jeune poète alla se promener 4; 1470
@@ -2027,8 +1956,7 @@ AN Ne réveillent les morts de leur repos sanglant. (1)
 : - (1) Cette chronique est reproduite, datée du 6 juin 1841, dans les à
 se A Lettres parisiennes (Œuvres complètes de madame Emile de
 à Girardin, tome pages 170 à 174). Madame de Girardin, dans une
-ji. lettre à Lamartine, datée du 2 juin 1841, a donné une version difré-
-rente de l'origine de la poésie de Musset: « Je ne comprends pas que
+ji. lettre à Lamartine, datée du 2 juin 1841, a donné une version difrérente de l'origine de la poésie de Musset: « Je ne comprends pas que
 (18 si malade et désolé vous ayez encore des inspirations si admirabless"
 Mont ces vers qui me désolent sont bien beaux. Je les ai relus ce matin
 FRE avec Théophile Gautier. Il en était enchanté, et ce soir j'ai Alfred A
@@ -2072,8 +2000,7 @@ par quelques signes de ponctuation.
 
 Traduction identique à celle de la Revue des Deux Mondes.
 
-(3) La date de février, que l'on trouve dans la plupart des édi-
-tions de Musset, provient peut-être d'une appréciation de Lamartine,
+(3) La date de février, que l'on trouve dans la plupart des éditions de Musset, provient peut-être d'une appréciation de Lamartine,
 qui ferait croire que la poésie de Musset précéda la sienne:
 « Musset répondit à ces strophes brüûlantes et fières par des strophes
 railleuses et prosaïques, auxquelles l'esprit national (dirai-je esprit,
@@ -2101,8 +2028,7 @@ Elles nous ont versé votre petit vin blanc, etc...
 sur le peuple allemand. Mais elle répondait au chauviF nisme de la majorité des Français. Elle était « une
 réponse faite au nom de l'orgueil national ». (1) Elle
 devint populaire. Elle fut mise en musique. (2) Elle fut
-chantée dans les concerts. En 1870 les régiments qui « partaient pour la frontière chantaient ce Rhin alle-
-mand. (3) C'est depuis peu d'années qu'on oublie de le
+chantée dans les concerts. En 1870 les régiments qui « partaient pour la frontière chantaient ce Rhin allemand. (3) C'est depuis peu d'années qu'on oublie de le
 chanter dans les écoles primaires. “.
 Il de soi que la poésie de Musset mit les âmes
 allemandes en fureur. Les journalistes l'invectivèrent à
@@ -2162,8 +2088,7 @@ es européennes. Son prestige en Orient déclina. Lime
 En Allemagne le désir de la paix l'emportait aussi. “4
 Mais l'animosité agressive des uns, l'enthousiasme
 2 défensif et belliqueux du plus grand nombre furent
-entièrement sincères. Surtout, le mouvement fut natio-
-nal. La Prusse ne fit pas de gain en Orient. Mais l'idée
+entièrement sincères. Surtout, le mouvement fut national. La Prusse ne fit pas de gain en Orient. Mais l'idée
 de l'unité allemande profita grandement de la crise de
 1840. Un historien allemand a dit de ces jours qu'ils
 « furent les jours de la conception pour l'Allemagne ». (1)
@@ -2194,8 +2119,7 @@ quelques corps d'armée de plus sur le Rhin que nous (tes
 . Les réponses de Lamartine et de Musset furent faites ne
 huit mois après. La paix était presque signée, l'apaise-:.
 ment à peu près complet. Elles ne pouvaient plus pré- “20
-tendre à grande influence sur la politique. Elles n'agi-
-tèrent plus guère que des souvenirs de passions. Elles LPS
+tendre à grande influence sur la politique. Elles n'agitèrent plus guère que des souvenirs de passions. Elles LPS
 furent des événements littéraires. Dans les salons on 5 bé.
 les discutait. On prenait parti pour Musset ou pour
 Lamartine. La riposte directe, cinglante, de Musset eut

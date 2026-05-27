@@ -49,9 +49,7 @@ même emporter à la semelle de nos souliers un peu de
 cette terre de France vendue par nous à l'étranger.
 
 peur de trop de gloire. Et il se dérobe avec une modestie
-incomparable au formidable triomphe de rire et de moque-
-
-rie, à l'incroyable apothéose de quolibets et de huées que
+incomparable au formidable triomphe de rire et de moquerie, à l'incroyable apothéose de quolibets et de huées que
 l'univers lui préparait. Voltaire disait: « Ces Parisiens me
 feront mourir de plaisir M. Rochefort a peur de
 mourir étouffé sous les manifestations joyeuses et tendres
@@ -116,8 +114,7 @@ réduits à des conjectures sur la date où les bandits ont
 fabriqué cette pièce extraordinaire, sur le rôle précis qu'ils
 lui destinaient, sur l'usage qu'ils en ont fait. C'est probablement la visite faite par M. de Munster à M. Casimir-,
 
-Perier qui a suggéré à Henry et à ses acolytes l'idée d'élaborer ce document. Du moment que l'ambassadeur d'Alle-
-magne, averti que le bordereau avait été saisi à son a.
+Perier qui a suggéré à Henry et à ses acolytes l'idée d'élaborer ce document. Du moment que l'ambassadeur d'Allemagne, averti que le bordereau avait été saisi à son a.
 ambassade, était venu se plaindre au Président de la Répu- à
 blique et demander qu'officiellement aucune allusion ne
 fût faite aux conditions dans lesquelles la pièce avait été!
@@ -129,21 +126,17 @@ avait désarmer M. de Munster par la substitution au
 bordereau authentique d'un décalque où les mots écrits
 par l'empereur ne paraissaient plus. Les scélérats ont compté
 sur le mystère diplomatique pour risquer cette légende
-Bien entendu, ils ne destinaient pas la pièce à la publi-
-cité, pas plus d'ailleurs qu'ils n'y destinaient le faux Henry
-lui-même. Elle devait être montrée sous le manteau, épou-
-vanter les ministres en qui des doutes s'éveilleraient, confirmer dans le haut personnel militaire lui-même les convictions chancelantes. Il est infiniment probable qu'elle
+Bien entendu, ils ne destinaient pas la pièce à la publicité, pas plus d'ailleurs qu'ils n'y destinaient le faux Henry
+lui-même. Elle devait être montrée sous le manteau, épouvanter les ministres en qui des doutes s'éveilleraient, confirmer dans le haut personnel militaire lui-même les convictions chancelantes. Il est infiniment probable qu'elle
 fut fabriquée après les premières découvertes du colonel
 Picquart, et je suis tenté de croire qu'au moment précis où
 on la fabriqua, on était convaincu que l'identité de l'écriture
 d'Esterhazy avec l'écriture du bordereau, sur lequel fut
-condamné Dreyfus, éclaterait à tous les yeux. On se pré-
-parait donc, par un changement très hardi de système, à
+condamné Dreyfus, éclaterait à tous les yeux. On se préparait donc, par un changement très hardi de système, à
 dire mystérieusement, comme un terrible secret d'État, que
 le bordereau soumis aux juges de 189%, et où l'on retrouvait
 l'écriture d'Esterhazy, n'était pas le vrai bordereau; qu'il y
-en avait un autre formidable, impossible à produire publi-
-quement, parce que Guillaume lui-même l'avait annoté.
+en avait un autre formidable, impossible à produire publiquement, parce que Guillaume lui-même l'avait annoté.
 Ayant besoin de substituer au bordereau sur lequel éclatait l'écriture d''Esterhazy, un autre bordereau, il fallait bien,
 pourexpliquer qu'on n'eùt montrer à personne, même aux
 juges, ce bordereau occulte, créer une circonstance extraordinaire. De vint naturellement aux faussaires l'idée de
@@ -186,8 +179,7 @@ faussaires avaient fabriqué une autre pièce, moins difficile
 à manier, moins explosive, le faux Henry, quin'engageait
 plus directement un empereur, mais seulement des attachés
 militaires. 11 est possible qu'Henry, à la découverte d'un de
-ses faux, ait pensé que les autres, y compris la lettre impé-
-riale et le bordereau annoté, seraient aussi percés à jour;
+ses faux, ait pensé que les autres, y compris la lettre impériale et le bordereau annoté, seraient aussi percés à jour;
 la situation lui a paru désespérée, et il s'est suicidé, autant
 par la crainte des aveux qui lui restaient à faire que dans
 l'accablement des aveux qu'il avait déjà faits.
@@ -216,12 +208,10 @@ bouton sur le nez de Rochefort.
 
 Aussitôt, tous les patriotes effarés se sont empressés autour de l'innocent polémiste: « Cachez, lui ont-ils dit, ce
 méchant bobo qui ferait jaser. »
-Et c'est pourquoi, ni au procès Cuignet ni ailleurs, Roche-
-fort ne montrera le bout de son nez qu'il relevait l'autre
+Et c'est pourquoi, ni au procès Cuignet ni ailleurs, Rochefort ne montrera le bout de son nez qu'il relevait l'autre
 jour d'un air de défi.
 
-Le capitaine Alfred Dreyfus avait écrit le mercredi 26 décembre au président du conseil une re-
-quête que nous lisons dans Petite République du
+Le capitaine Alfred Dreyfus avait écrit le mercredi 26 décembre au président du conseil une requête que nous lisons dans Petite République du
 Monsieur le président du conseil,
 
 Je suis accusé, par certaine presse, d'avoir
@@ -267,8 +257,7 @@ paraîtra sans doute, comme à bien d'autres, lever de
 Il s'agit du faux Guillaume, c'est-à-dire d'un bordereau sur papier fort, avec une annotation autographe
 de l'empereur d'Allemagne, où cette canaille de Dreyfus
 est nommée. Rochefort l'a et a failli le montrer par
-patriotisme. C'est encore un fait constant que le géné-
-ral Mercier en possède l'original ou un fac-similé, qu'il
+patriotisme. C'est encore un fait constant que le général Mercier en possède l'original ou un fac-similé, qu'il
 en fait état auprès de ses amis et qu'il y ajoute la plus
 
 Jaurès, l'autre matin, dans son dernier article de
@@ -279,8 +268,7 @@ faux Henry et pour convaincre le général Billot, Rochefortet la princesse Math
 inadmissible. Les faussaires ne pouvaient avoir l'idée
 de ce faux et de ce roman rétrospectifs qui devaient
 infailliblement dévoiler leur crime. Le général Billot
-de 94, à M. Hanotaux par exemple, et ceux-ci lui révé-
-ler la supercherie. — Il est également impossible que
+de 94, à M. Hanotaux par exemple, et ceux-ci lui révéler la supercherie. — Il est également impossible que
 le général Mercier fasse usage d'une pièce qu'il sait
 fausse puisqu'il connaît son inexistence en 94. Il ne
 peut pousser l'impudence et l'audace au point de voir
@@ -296,8 +284,7 @@ Cette pièce est introduite en 94, nous rechercherons
 
 sont dupes. — De leur émoi bien connu. De leur
 terreur de l'ambassade d'Allemagne et la fameuse nuit
-historique, jusqu'ici mal expliquée. Ils craignaient, ont-
-ils dit, la colère de l'ambassadeur, menacé par la presse
+historique, jusqu'ici mal expliquée. Ils craignaient, ontils dit, la colère de l'ambassadeur, menacé par la presse
 de voir son attaché militaire mis en cause! En réalité,
 dans cette mystérieuse insomnie, ils craignaïent la
 colère de l'empereur, qui allait se voir personnellement mis en cause. Îls y ont cru. De le mot de
@@ -310,9 +297,7 @@ ne vous parle pas parce qu'ils n'ont pas été imprimés
 en des documents officiels.
 
 Ils y ont cru, ils ont peur. Mais le général Mercier,
-en présence de cette aventure inouïe d'un service impé-
-rial de trahison installé dans ses bureaux, n'a pas hé-
-sité à marcher. Il y a peut-être, dans son cas, du courage patriotique.
+en présence de cette aventure inouïe d'un service impérial de trahison installé dans ses bureaux, n'a pas hésité à marcher. Il y a peut-être, dans son cas, du courage patriotique.
 
 Cependant Esterhazy a gardé un fac-similé de ce
 document, et c'est la garde IMPÉRIALE (je souligne à dessein le mot). C'est encore la pièce libératrice qu'il a apportée au ministère de la guerre aprèsla
@@ -328,9 +313,7 @@ gravement soupçonné le général de Boisdeffre, c'est
 bien plus aisément à l'empereur. — M.Rambaud a également déclaré à des amis que de la mise en lumière de
 tous les documents sortirait la guerre!
 
-Je pourrais continuer ainsi longtemps, mais je pré-
-
-fère vous laisser continuer tout seul. Ce qui précède
+Je pourrais continuer ainsi longtemps, mais je préfère vous laisser continuer tout seul. Ce qui précède
 suflit à vous montrer combien de faits, jusqu'ici non
 expliqués, sont expliqués par cette hypothèse nécessaire.
 

@@ -19,8 +19,7 @@ Hamadryade. Sa mère et ses sœurs étaient allées à
 Genève; son père se reposait à la Colonie de Condé.
 Paul M. à sa sœur Louise
 
-è Je suis allé chez M. Gleyre et je l'attends demain. Peut-
-être l'attendrai-je longtemps. Je lui ai fait une longue visite
+è Je suis allé chez M. Gleyre et je l'attends demain. Peutêtre l'attendrai-je longtemps. Je lui ai fait une longue visite
 et j'avais grand plaisir à l'entendre parler d'art. Mais il est
 très spirituel, très moqueur, et moi je suis tellement intimidé que je dois lui paraître bête comme une oie.
 
@@ -49,8 +48,7 @@ ne l'attends qu'en tremblant. La malade conserve encore sue
 des traces de son 1orticolis et j'ai affaire à un terrible
 médecin. S'il allait lui couper bras ou jambes, s'il allait lui
 couper la tête! J'en frémis. — Je compte passer l'hiver pro- MURS
-chain en Italie; si mon tableau n'est pas prêt, eh bien, l'expo-
-sition de 1869 devra se résigner à s'en passer. M. Gleyre A
+chain en Italie; si mon tableau n'est pas prêt, eh bien, l'exposition de 1869 devra se résigner à s'en passer. M. Gleyre A
 m'approuve. Chaque année, après le Salon, un bon bain
 d'Italie pour se laver les idées, cela doit être très sain. de
 Paul à sa jeune sœur à
@@ -100,10 +98,10 @@ EUR Creuse droit ton sillon et tâche à le parfaire.
 A Du fumier surgira le lis pur et l'enfant.
 Mit Ne t'abandonne pas au rêve inconsistant
 ai) L'art ressemble au Géant, puissant fils de la Terre;
-7 S'il cesse de puiser dans le sein de sa mère
+S'il cesse de puiser dans le sein de sa mère
 Une force nouvelle, il succombe à l'instant.
 “Cp 5 Sois simple et ne mens pas. Tout est vrai dans Homère;
-4 Imite le héros qui tua la Chimére,
+Imite le héros qui tua la Chimére,
 1 79 RAT Nourris-toi de science et de réalité.
 Te L'art grec transfigura les laideurs du vieux monde:
 FAN Pégase sort du sang de la Gorgone immonde,
@@ -194,8 +192,7 @@ ment il n'a pas échappé à l'influence de Léonard, —
 comment se soustraire à la domination d'un tel génie? —
 Il lui a souvent emprunté quelques traits de son idéal
 de beauté: les types de ses jeunes femmes et de ses
-adolescents sont exquis de délitatesse; mais les diffé-
-rences sautent aux yeux, et je m'étonne que des
+adolescents sont exquis de délitatesse; mais les différences sautent aux yeux, et je m'étonne que des
 à certaines œuvres de Luini, comme la Modestie et la
 Vanité, par exemple.
 Léonard c'est le désir inassouvi, l'esprit inquiet que
@@ -298,8 +295,7 @@ est un langage qui manque parfois de précision. Un apôtre,
 par exemple, — le second à la droite du spectateur, — À
 semble plutôt troublé qu'indigné; son regard oblique, dont À
 la direction est contraire au mouvement de la tête, suggère
-l'idée de l'hypocrisie, et plus d'un spectateur a pris ce per-
-sonnage pour Judas. Cependant le véritable traître tient.
+l'idée de l'hypocrisie, et plus d'un spectateur a pris ce personnage pour Judas. Cependant le véritable traître tient.
 une bourse, prix de sa trahison. Tu le vois, cet attribut “4
 n'était pas inutile, malgré ce qu'il a de conventionnel et
 d'un peu naïf. Judas est un criminel endurci, son visage
@@ -308,16 +304,12 @@ plus accentués, ni plus tourmentés que ceux des autres
 apôtres, qui presque tous ont les grands nez aquilins
 d'une des races de la nation juive.; 1}
 Léonard de Vinci, voulant donner à chacune des têtes un
-caractère très individuel, a dessiné dans ce but de nom-
-
-breuses études qui sont admirables. Quant à la tête idéale
+caractère très individuel, a dessiné dans ce but de nombreuses études qui sont admirables. Quant à la tête idéale
 du Christ, il faut en voir le merveilleux crayon. C'est, je
 crois, la plus belle tête de Christ qui soit au monde, c'est. …
-du moins la plus émouvante, la plus profondément pathé-
-tique. Une majesté simple, une douceur divine, une ineffable t'a
+du moins la plus émouvante, la plus profondément pathétique. Une majesté simple, une douceur divine, une ineffable t'a
 résignation se lisent sur ce noble visage douloureux.
-Jamais Rembrandt lui-même n'a créé une image plus sincè-
-rement émue, et ce chef-d'œuvre est la meilleure réponse à;;
+Jamais Rembrandt lui-même n'a créé une image plus sincèrement émue, et ce chef-d'œuvre est la meilleure réponse à;;
 ceux qui ne veulent voir en Léonard qu'un artiste d'une. …
 A côté de ces qualités supérieures du sentiment et de...
 . l'expression, j'ai encore admiré dans le Cenacolo l'art de la EN
@@ -362,9 +354,7 @@ y introduisant des détails de costumes empruntés à la
 
 vie contemporaine; mais c'est par ignorance que les
 
-primitifs ont cette hardiesse; aujourd'hui ces ana-
-
-chronismes nous choquent comme une fausse naïveté; "#i
+primitifs ont cette hardiesse; aujourd'hui ces anachronismes nous choquent comme une fausse naïveté; "#i
 ils sont en contradiction avec ce que tout le monde
 Les fresques ont beaucoup pâli. Les draperies avaient
 peut-être autrefois des couleurs plus vives; le temps et …
@@ -480,8 +470,7 @@ His onze ans, joli visage, beaux yeux sans expression. —
 Marguerite, petite figure fine, trouvant toujours une
 réponse drôle à faire; ses bons mots font la joie de la
 Colonie, chacun les répète. — Enfin, deux petites poupées,
-Du côté des garçons: Jules, poseur et blagueur, fort mathé-
-matieien. — Paulo, petit espiègle malin et futé. — Alfred,
+Du côté des garçons: Jules, poseur et blagueur, fort mathématieien. — Paulo, petit espiègle malin et futé. — Alfred,
 k. bon garcon, pas bête. — Pierre Nus, moyens médiocres,
 y ayant le jugement assez juste, travailleur et bon garçon.
 [1 Nous nous balançons très souvent, et, les cordes de
@@ -554,7 +543,7 @@ ils sont matérialistes, excepté M. Nus, et ils disent de ces
 choses! dans le genre du père Chassevant. Il n'y a pas de
 danger que je sois jamais de leur avis!
 
-0 Paul à sa sœur Louise
+Paul à sa sœur Louise
 
 J'ai l'intention d'aller passer quelques jours à Padoue.
 C'est qu'autrefois un nommé Giotto reçut la visite d'un
@@ -658,7 +647,7 @@ souvent: « On fait toujours les reflets trop clairs et les
 … demi-teintes trop foncées aussi c'était très lumineux
 Nii'et il n'y avait pas le moindre petit blanc dans mes
 ombres. (1) Je regrette que tu ne laies pas vu.
-1 C'est vraiment dommage de l'avoir donné à des perDors qui n'y connaissent rien.
+C'est vraiment dommage de l'avoir donné à des perDors qui n'y connaissent rien.
 J'ai passé une partie de la journée chez elles. Nous
 avons joué des comédies, entre autres la Mort de Socrate.
 C'était moi Socrate; je m'étais fait une grande barbe
@@ -796,7 +785,7 @@ Quant à la difficulté de transporter à Paris ces légères
 . murailles de briques avec leur précieux enduit, je ne crois
 …__. pas qu'elle soit pour effrayer des spécialistes; chaque
 composition, entourée d'une bande d'ornements, pourrait
-4 La Commune de Padoue est en pourparlers pour acheter
+La Commune de Padoue est en pourparlers pour acheter
 … l'église; on parle de cent mille francs offerts. Rien n'est
 … encore conclu. Ce serait une chose unique et grandiose que
 de prendre cette église dans votre main, pour en doter le
@@ -944,8 +933,7 @@ les festons irréguliers s'allongent en arrière en queue d'oiei seau, et laisse
 couronnée de plumes à la façon des sauvages; l'œil est
 4 ége ré, hébété. La pose mal équilibrée est une trouvaille: Je
 11 m'étonne que tu t'en moques, tu n'as pas compris. Le geste
-semble provoquer un ennemi, mais la démarche est indé-
-cise, lexpression du visage irrésolue, et la massue, que la
+semble provoquer un ennemi, mais la démarche est indécise, lexpression du visage irrésolue, et la massue, que la
 …Sottise tient mollement à la main, sera pour elle une arme
 nutile. Elle n'a ni l'énergie ni le sang-froid qui donnent la
 AL, La Justice, aux traits sévères, est noblement assise de
@@ -1054,8 +1042,7 @@ paroles. A la fin de la lecon, on est tout abasourdie.
 Louise M. à son frère:
 M. Carré n'a plus mal aux dents, mais il a un rhumatisme dans l'œil, et sa femme a reçu un tuyau de poële dans
 la joue; ces gens-là ont toujours quelque chose. Pour le
-grec (le Dialogue des Morts) il me l'avait expliqué, se ser-
-vant de grands mots que lui comprend, mais moi pas toujours; me demandant pardon pour les expressions peu
+grec (le Dialogue des Morts) il me l'avait expliqué, se servant de grands mots que lui comprend, mais moi pas toujours; me demandant pardon pour les expressions peu
 choisies dont se sert Crésus en parlant de « ce chien de
 Ménippe ». Il corrige mon cahier; cela me sert en même
 temps de leçon de style et d'orthographe, parce que mon bon
@@ -1199,9 +1186,7 @@ merveilleuse enveloppe de l'aimosphère.
 ; Malades sont ces architectes, qui savent pourtant
 
 inventer encore pour leurs colonnes des chapiteaux
-délicatement et ingénieusement ornés, mais qui dédou-
-
-blent et superposent sans raison ces chapiteaux, comme
+délicatement et ingénieusement ornés, mais qui dédoublent et superposent sans raison ces chapiteaux, comme
 dans la vision d'un homme ivre.
 
 Partout l'étude vivifiante des choses réelles a fait
@@ -1308,9 +1293,7 @@ controverses théologiques qui passionnaient alors le peuple
 tout entier: Peut-on gagner le ciel en s'en tenant aux
 
 anciens dogmes de l'Eglise, ou bien faut-il se soumettre
-respectueusement aux dogmes récents? Cela ne te tour55
-
-mente pas outre mesure, mais c'est le dernier avis que
+respectueusement aux dogmes récents? Cela ne te tourmente pas outre mesure, mais c'est le dernier avis que
 soutenait l'Inquisition par les moyens persuasifs que tu
 connais. — Des brebis couchées aux pieds du pape Benoït
 figurent les croyants. Ces chiens tachetés de blanc et de
@@ -1335,9 +1318,7 @@ ne valent pas la claire simplicité des fresques de Padoue.
 
 La richesse exubérante de l'invention caractérise, il est:
 vrai, l'art de la Renaissance où la vie déborde, mais le
-génie de Giotto, comme celui des Grecs, consiste à simpli-
-
-fier, à dire ce qui est nécessaire, rien de plus. C'est un art
+génie de Giotto, comme celui des Grecs, consiste à simplifier, à dire ce qui est nécessaire, rien de plus. C'est un art
 
 que je ne possède pas encore et cette lettre t'en donne la
 
@@ -1352,8 +1333,7 @@ de losanges quadrilobés, il a raconté la vie de saint Jean. (r)
 
 (1) 1 y travailla 9 années et la termina en 1330.
 
-Les fonds sont d'ordinaire tout unis, c'est alors la suppression de l'idée de lieu; ailleurs quelques détails d'architec-
-ture ou de paysage sont indiqués, mais avec une concision
+Les fonds sont d'ordinaire tout unis, c'est alors la suppression de l'idée de lieu; ailleurs quelques détails d'architecture ou de paysage sont indiqués, mais avec une concision
 vraiment sculpturale, selon les véritables lois du bas-relief.
 Les sujets choisis par Andrea ont été mille fois traités
 depuis; jamais avec une pareille puissance.
@@ -1546,9 +1526,7 @@ Un second reproche a été adressé à Ghiberti: Certaines figures, presque en r
 qu'elles devraient décorer. Il faut du moins remarquer
 avec quel art les saillies ont été ménagées selon l'éloignement des figures. On trouve aussi ces bas-reliefs
 
-é trop pittoresques, et nos pédants historiens ont la pré-
-
-tention d'enseigner au maître ce qu'il aurait faire.
+é trop pittoresques, et nos pédants historiens ont la prétention d'enseigner au maître ce qu'il aurait faire.
 
 Pour moi, les portes du Baptistère étant ainsi, je les
 
@@ -1558,23 +1536,16 @@ moins. Si, voyant un lévrier, vous trouvez qu'il a les
 
 : jambes trop longues, et voyant un chien basset, vous
 
-dites qu'il a les jambes trop courtes, cela prouve sim-
-
-plemeni que vous ne comprenez pas ce que c'est que le
+dites qu'il a les jambes trop courtes, cela prouve simplemeni que vous ne comprenez pas ce que c'est que le
 caractère. Ne songez pas à des corrections impossibles!
 
-Cet aspect nécessaire, inchangeable, est celui des véri-
+Cet aspect nécessaire, inchangeable, est celui des véritables créations artistiques. L'œuvre s'impose; ses
 
-tables créations artistiques. L'œuvre s'impose; ses
-
-défauts, si elle en font si bien partie intégrante d'elle-
-
-même, qu'on ne peut les corriger sans qu'elle cesse
+défauts, si elle en font si bien partie intégrante d'ellemême, qu'on ne peut les corriger sans qu'elle cesse
 
 Nos modernes réalistes me semblent avoir aussi une
 horreur excessive de la tournure renaissance. Ils ont
-raison, lorsque c'est une formule apprise, un manié-
-risme, mais le rythme des lignes a pourtant son charme.
+raison, lorsque c'est une formule apprise, un maniérisme, mais le rythme des lignes a pourtant son charme.
 L'interdire absolument serait se tromper, comme ceux
 qui reprochent aux poètes de parler en vers.
 
@@ -1659,8 +1630,7 @@ style. Ce qui est peut-être un peu trop moderne, c'est
 une sorte de fièvre qui agite tous ses personnages. Chez
 lui, c'est bien la vie qui déborde; cette fierté d'allure,
 cette furie d'exécution dont Donatello et Michel-Ange
-ne sont pas toujours maîtres, c'est le fond de leur tempé-
-rament, la nature même de leur génie. Cela n'a rien de
+ne sont pas toujours maîtres, c'est le fond de leur tempérament, la nature même de leur génie. Cela n'a rien de
 commun avec la fausse fougue et la fausse fièvre de
 certains modernes, (tels que notre romantique Car-
 
@@ -1683,9 +1653,7 @@ semble que l'artiste vieillissant fasse effort pour étonner
 outrés, ces expressions théâtrales me laissent froid, et
 
 je songe alors aux gestes contenus, sobres et comme
-inconscients, qu'Andrea Pisano a trouvés dans l'obser-
-
-vation sincère de la vie et dans le sentiment profond
+inconscients, qu'Andrea Pisano a trouvés dans l'observation sincère de la vie et dans le sentiment profond
 de son cœur.
 Paul à sa sœur Louise
 
@@ -1810,9 +1778,7 @@ Ghirlandajo est le véritable héritier de l'art de Masaccio.
 Dans ses belles fresques de Sainte-Marie-Nouvelle, il a
 peint des sujets religieux et les a traités d'une manière
 admirable, mais ce qui n'est pas moins intéressant pour
-nous, ce sont les groupes de nombreux personnages con-
-
-temporains qu'il a y introduire. Voilà des portraits!
+nous, ce sont les groupes de nombreux personnages contemporains qu'il a y introduire. Voilà des portraits!
 C'est vraiment toute une époque qui ressuscite. Ces gens-là
 ont une telle intensité de vie qu'on croit les avoir rencontrés dans la rue, on les connaît, on leur adresser la
 parole. Le dessin de Ghirlandajo est du plus grand style;
@@ -1872,8 +1838,7 @@ Louise M. à son frère
 crois que, si j'y étais restée quelques jours de plus, j'aurais
 fini par adopter l'accent et les manières de parler de ces
 braves gens, ce qui choquerait fort M. Carré.
-Figure-toi qu'il me demandait si j'avais Tacite. Maintenant qu'il connaît son Tacite à fond, il ne lit plus les jour-
-naux; tous les actes politiques qu'on peut imaginer sont
+Figure-toi qu'il me demandait si j'avais Tacite. Maintenant qu'il connaît son Tacite à fond, il ne lit plus les journaux; tous les actes politiques qu'on peut imaginer sont
 là-dedans. (1) — Il m'a proposé de faire un ouvrage sur la
 relation des monnaies grecques et de leur valeur; surtout il
 ne faut pas que je parle de cette idée, on me la volerait.
@@ -2025,12 +1990,10 @@ le fils rebelle contre la colère de son père.
 
 Je ne sais pas s'il est très sage de proposer à l'admiration de la jeunesse des actes semblables, qui révèlent
 un état maladif et contagieux. Mais d'autre part les
-doctrines de saint François étaient une religion vrai-
-ment nouvelle, religion sans haïne, toute de tolérance « et de bonté. Assurément son amour pour la nature
+doctrines de saint François étaient une religion vraiment nouvelle, religion sans haïne, toute de tolérance « et de bonté. Assurément son amour pour la nature
 contribua à donner aux arts une direction très heureuse.
 Il étendait sa sympathie à tous les êtres, aux animaux,
-aux plantes, au Soleil, à la Terre notre mère. On se «. mit à contempler avec émotion ces merveilles, dédai-
-gnées depuis de longs siècles et mal remplacées par
+aux plantes, au Soleil, à la Terre notre mère. On se «. mit à contempler avec émotion ces merveilles, dédaignées depuis de longs siècles et mal remplacées par
 des symboles abstraits. Les yeux allaient enfin s'ouvrir «
 sur le monde réel.
 
@@ -2095,8 +2058,7 @@ de roses, et dont les jambes se terminent en griffes d'oiseau
 de proie. Un moine également ailé le frappe des lanières de
 son fouet. À ses pieds, tombée à la renverse, s'étale l'Impureté, monstre aux jambes velues et à tête de porc. Au « fond, dans l'ombre, la Mort apparaît, horrible, brandissant
 sa faux contre un satyre qui personnifie les désirs sensuels.
-Tout cela ne te semble-t-il pas trop ingénieux, terri-
-blement compliqué, obseur, subtil? La modération et la
+Tout cela ne te semble-t-il pas trop ingénieux, terriblement compliqué, obseur, subtil? La modération et la
 gravité des gestes conservent, il est vrai, quelque chose
 d'imposant, mais la science du dessin est encore en enfance,
 et les fresques de Padoue, postérieures seulement de
@@ -2118,9 +2080,7 @@ troupeaux de bœufs et de cochons. Il était tard quand nous
 sommes entrés à Rome. Aussitôt, je consigne ma malle à
 la gare, et me voilà parti à la recherche d'un logement,
 m'orientant dans la Ville Éternelle, comme quelqu'un qui
-la connaît un peu déjà. J'entrai d'abord au fameux restau-
-
-rant Lepri (c'est-à-dire du Lièvre) et soupai avec appétit.
+la connaît un peu déjà. J'entrai d'abord au fameux restaurant Lepri (c'est-à-dire du Lièvre) et soupai avec appétit.
 On me regardait. J'avais, paraît-il, une singulière tournure,
 avec mon pardessus poussiéreux et débraillé, aux poches
 bourrées d'un tas de choses, et mon vieux chapeau de paille
@@ -2447,10 +2407,8 @@ de Bertall, point de Gustave Doré, point non plus de vos à
 petites gravures allemandes. Même dans les meilleures, le
 dessin est dur, lourd et sec. Les sujets gracieux y sont exploi-
 à tés systématiquement, trop de petites fleurs, petits oiseaux,
-. naïfs qu'ils n'en ont l'air, trop de banalités d'une poésie senti-
-mentale, mesquine et bourgeoise. Point de Gavarni, point
-(1) La mosaique de Sainte-Pudentienne a subi quelques restaurations au huitième puis au seizième siècle, mais la composi-
-tion, qui date probablement du quatrième siècle, a été respectée.
+. naïfs qu'ils n'en ont l'air, trop de banalités d'une poésie sentimentale, mesquine et bourgeoise. Point de Gavarni, point
+(1) La mosaique de Sainte-Pudentienne a subi quelques restaurations au huitième puis au seizième siècle, mais la composition, qui date probablement du quatrième siècle, a été respectée.
 Une faible reproduction en chromo-lithographie se trouve dans;
 Labarte, Histoire des Arts industriels, tome II, planche
 
@@ -2547,8 +2505,7 @@ idiot s'il ne les avait pas appréciées, cela avait glissé sur
 elle; tandis que l'attention avec laquelle M. Gleyre s'est
 occupé d'elle, l'a beaucoup flattée.
 Je t'étonnerai peut-être, mais je suis un peu de l'avis de
-ta maîtresse d'école. IL n'est pas bon d'avoir des idées au-
-dessus de son âge. Cette maxime n'est pas aussi absurde
+ta maîtresse d'école. IL n'est pas bon d'avoir des idées audessus de son âge. Cette maxime n'est pas aussi absurde
 que tu le penses. J'aime d'ailleurs ton indignation. Tu
 trouves qu'il n'y a rien de trop haut pour toi, et c'est une
 chose excellente que de chercher à s'élever l'esprit; mais il
@@ -2596,11 +2553,9 @@ savais bien au fond que mes idées n'étaient pas bien magnifiques, ni mon style
 chose de drôle qui plaît, mais ce n'est qu'un vernis.
 
 Tu trouves plus utile de commencer par apprendre ce que
-tout le monde sait, arithmétique, grammaire, etc. Certai-
-nement c'est utile; mais c'est cela qui vous blase, et vous
+tout le monde sait, arithmétique, grammaire, etc. Certainement c'est utile; mais c'est cela qui vous blase, et vous
 dégoüte, et vous assomme! Tandis que, si l'on a un peu de
-philosophie, on apprend à supporter les choses désa-
-gréables, on aime la vertu, le devoir, et par conséquent
+philosophie, on apprend à supporter les choses désagréables, on aime la vertu, le devoir, et par conséquent
 l'étude. On fait une chose qui ennuie, parce que c'est son,
 devoir de la faire. La vie est assez courte, il ne faut pas la
 perdre en vaines futilités. Pour rendre un jour à Dieu notre
@@ -2614,8 +2569,7 @@ Il faut que je tâche de m'élever l'esprit et de comprendre.
 
 En grandissant on fait des progrès. Quand je compare
 mes compositions dessinées de maintenant avec celles
-d'autrefois, il y a une grande différence. Plus tard, je trou-
-verai celles que je fais maintenant détestables.
+d'autrefois, il y a une grande différence. Plus tard, je trouverai celles que je fais maintenant détestables.
 
 Nous avons été voir jouer Phèdre et les Plaideurs pour
 l'anniversaire de Racine. J'ai été bien contente de ma
@@ -2688,8 +2642,7 @@ lui, je n'aurais pas quitté la Chapelle Sixtine.
 L'imagination est comme une source, elle a besoin calme
 pour déposer et devenir pure.;
 J'ai mille beaux projets, il vaudrait mieux une seule idée, à
-fixe, immuable, nettement gravée dans la cervelle; l'exécu-
-tion ne serait qu'un jeu. Mais rien de plus délicat, de plus À
+fixe, immuable, nettement gravée dans la cervelle; l'exécution ne serait qu'un jeu. Mais rien de plus délicat, de plus À
 fragile que ces idées changeantes; un souflle, un mot, même
 bienveillant, suflit pour les modifier, et parfois pour les
 faire évanouir. Qu''y faire? Peut-être les maîtres eux-mêmes À
@@ -2816,8 +2769,7 @@ symboliquement par les replis sinueux des bannières et
 des longues banderoles qui flottent, attachées aux trom-. (
 pettes du Jugement dernier. — A cet appel, voici que les
 morts s''éveillent et commencent à sortir du sol, dont ils se
-dégagent avec effort. Les uns sont encore à l'état de sque-
-lettes, ou bien à demi enfouis sous la terre; les autres,
+dégagent avec effort. Les uns sont encore à l'état de squelettes, ou bien à demi enfouis sous la terre; les autres,
 déjà revêtus de chair, remercient le ciel avec effusion. Il y
 en a qui sautent de joie. Quelques amis qui se retrouvent
 après une longue séparation, se tiennent fraternellement
@@ -2964,8 +2916,7 @@ d'œuvre à la fois de sentiment tendre et d'exacte observation; l'attitude aban
 avec un empressement charitable deux de ses compagnes,
 la pâleur subite de son visage d'où le sang se retire, ces
 
-yeux qui se ferment languissamment, les genoux quiflé-
-chissent, tous les symptômes de la syncope sont rendus
+yeux qui se ferment languissamment, les genoux quifléchissent, tous les symptômes de la syncope sont rendus
 avec une vérité pour ainsi dire médicale et pourtant pleine
 
 Paul M. à sa mère
@@ -3011,8 +2962,7 @@ montre en Signorelli un digne élève de Piero della Francesca.
 
 Traité par une autre main, un pareil programme serait
 devenu le prétexte d'un piquant tableau de genre, mais la
-fresque conserve au style sa dignité et son élévation. L'exé-
-cution reste sérieuse et large; ce réalisme-là est excellent,
+fresque conserve au style sa dignité et son élévation. L'exécution reste sérieuse et large; ce réalisme-là est excellent,
 
 tout nourri d'observations pénétrantes prises sur le vif, spirituel, mais sans le savoir, sans la moindre prétention à
 l'esprit, sans la moindre trace de satire caricaturale.
@@ -3063,8 +3013,7 @@ de la science. Dans la cathédrale de Parme, l'Assomption de la Vierge est déj�
 figures qui s'envolent. Les raccourcis sont violents, les
 genoux semblent toucher les mentons; on ne distingue
 guère que les pieds et les jambes des beaux adolescents
-aus qui emportent la Vierge dans un tourbillon triom-
-phal. Cela forme un fouillis tellement inextricable qu'on
+aus qui emportent la Vierge dans un tourbillon triomphal. Cela forme un fouillis tellement inextricable qu'on
 la comparé irrévérencieusement à un plat de gre
 
 J'ai fait de grands efforts pour comprendre cette
@@ -3102,10 +3051,8 @@ pendant qu'un critique moqueur ricane et dénigre avec
 esprit, je me dis toujours que celui qui admire le plus est
 celui des deux qui a le mieux compris. Souvent les défauts
 sont réels, et il n'est pas inutile de les reconnaître, mais il
-faut surtout savoir les oublier. Admirer les qualités supé-
-rieures, s'incliner avec respect devant le génie, c'est une
-grande joie. Rien en ce monde n'est parfait, les maîtres euxmêmes sont des hommes. Plaignons ceux qui ne s'aper-
-çoivent pas que les grands hommes sont grands.
+faut surtout savoir les oublier. Admirer les qualités supérieures, s'incliner avec respect devant le génie, c'est une
+grande joie. Rien en ce monde n'est parfait, les maîtres euxmêmes sont des hommes. Plaignons ceux qui ne s'aperçoivent pas que les grands hommes sont grands.
 
 1869-1870
 
@@ -3175,9 +3122,7 @@ bribes de son superflu; lui qui ne sort de Paris que pour
 
 vivre à Rome et qui est continuellement dans une atmosphère saturée d'idéal..
 
-.… Tu me demandes si le mouvement politique m'inté-
-
-resse. Il faudrait être bien égoïste pour y demeurer complè-
+.… Tu me demandes si le mouvement politique m'intéresse. Il faudrait être bien égoïste pour y demeurer complè-
 j'ai l'honneur d'être bousculé par les sergents de ville;
 j'ai entendu des discours furibonds, où Jules Favre était
 accablé d'injures; on lui reprochait surtout de n'être pas
@@ -3219,12 +3164,10 @@ puis consulter ensuite pour faire la part de l'éloge et du
 blâme, mais il m'est impossible d'admirer et de juger à la
 
 .… Tu me parles de Rome, mais de la Rome antique, de
-sa force, de ses conquêtes, de sa civilisation si peu difré-
-rente de la nôtre; mais dans la Rome des Papes il ne reste.
+sa force, de ses conquêtes, de sa civilisation si peu difrérente de la nôtre; mais dans la Rome des Papes il ne reste.
 
 rien de cela. J'ai été véritablement attristé, et, sans les
-chefs-d'œuvre qui font oublier tout le reste, on se dégoüte-
-rait vite de cette sale ville et de son sale peuple. Je ne
+chefs-d'œuvre qui font oublier tout le reste, on se dégoüterait vite de cette sale ville et de son sale peuple. Je ne
 
 À suis pas encore arrivé à comprendre la beauté des tas
 
@@ -3255,8 +3198,7 @@ les tentures d'un autel qu'on a l'heureuse idée de plaquer
 
 (2) N'est-ce pas exagéré? me demande J. Nicole. — Je réponds
 
-sur le groupe central du Jugement dernier. Et cette céré-
-monie se renouvelle à chaque fête! Que deviendrait la
+sur le groupe central du Jugement dernier. Et cette cérémonie se renouvelle à chaque fête! Que deviendrait la
 religion si la Chapelle Sixtine n'était pas tendue de blanc
 le jour de l'Immaculée Conception?
 
@@ -3271,8 +3213,7 @@ La querelle des Classiques et des Romantiques semblait terminée, mais les survi
 avaient conservé des convictions passionnées et exclusives dont la violence nous étonne aujourd'hui.
 
 M. Perrin vient de me faire une scène dont j'ai été
-profondément troublé. Tu t'en souviens, l'ami d'Orsel pré-
-tend mettre la peinture au service de la religion et de la
+profondément troublé. Tu t'en souviens, l'ami d'Orsel prétend mettre la peinture au service de la religion et de la
 morale. Il n'admet rien en dehors des Primitifs. Raphaël
 et Michel-Ange sont pour lui déjà dans la décadence.
 — Je trouve ces idées exagérées; pourtant avec une petite
@@ -3298,8 +3239,7 @@ sa présence cet autodafé solennel. Puis, voyant que je
 navais pas assez d'héroïisme pour sacrifier mes chers
 souvenirs, il me conseilla den faire un paquet et d'y
 mettre les scellés, pour ne l'ouvrir qu'au jour où je serais
-de force à résister aux mauvais exemples. — Je m'atten-
-dais à quelque conseil du même genre. Ce fut bien pis!
+de force à résister aux mauvais exemples. — Je m'attendais à quelque conseil du même genre. Ce fut bien pis!
 
 — « Vos parents ont-ils de la fortune? continua
 M. Perrin. — Monsieur, répondis-je très troublé, mes;
@@ -3314,7 +3254,7 @@ des barbouillages romantiques, c'est-à-dire sans conscience. »
 
 Et, après quelques épithètes injurieuses, il termina
 par celle-ci qu'il lança avec une expression de dégoût
-et de profond mépris: « C'est du Corrège!!! »;
+et de profond mépris: « C'est du Corrège!!!
 
 Après quoi, il s'est radouci. Pendant plus de deux
 
@@ -3387,8 +3327,7 @@ séjour ici, et mes chers auteurs anciens. Je suis le programme de la licence-è
 connaissances. J'aurai passablement à relire, ce qui est
 ennuyeux, lorsqu'il y a tant de choses qu'on n'a pas lues.
 En tête des auteurs grecs se trouve Sophocle pour le
-Philoctète, que j'ai déjà traduit avec délices. Quelle perfec-
-tion, dans quelle simplicité!…
+Philoctète, que j'ai déjà traduit avec délices. Quelle perfection, dans quelle simplicité!…
 
 (Suit une analyse enthousiaste du chef-d'œuvre).
 
@@ -3400,8 +3339,7 @@ vraies dissertations aux endroits les plus pathétiques. On
 dirait du Voltaire, traduit mille ans d'avance. Les chœurs
 ne sont qu'un remplissage harmonieux. A cette harmonie
 près, c'est la musique d'entr'acte de la Comédie-Française;
-aucun rapport avec les épisodes. De temps en temps quel-
-ques vers admirables viennent vous rappeler que c'est
+aucun rapport avec les épisodes. De temps en temps quelques vers admirables viennent vous rappeler que c'est
 pourtant à Athènes qu'Euripide écrivait. J'espère pour lui
 et pour moi qu'Hippolyte est sa plus mauvaise pièce.
 Dans ta prochaine lettre je te prie de me copier la tra- -
@@ -3442,8 +3380,7 @@ automne; je ne sais pas s'il reverdir au printemps.
 
 .… Je suis bien loin de partager ton dédain pour Euripide
 
-- et en particulier pour l'Hippolyte que l'on s'accorde géné-
-ralement à regarder comme l'une de ses meilleures pièces.
+- et en particulier pour l'Hippolyte que l'on s'accorde généralement à regarder comme l'une de ses meilleures pièces.
 Schlegel a écrit en français un opuscule pour démontrer la
 supériorité de la pièce grecque sur la Phèdre de Racine. Je
 ne veux pas dire qu'il n'y ait pas des changements heureux
@@ -3476,8 +3413,7 @@ d'aussi beaux que dans l'Hippolyte. C'est une de mes pièces
 de prédilection. Assurément ce ‘n'est pas d'un art aussi
 grand ni aussi pur que celui de Sophocle, mais quelle mise
 en scène admirable! Dès le début, ces jeunes gens qui
-reviennent de la chasse; Hippolyte passant dédaigneuse-
-ment devant la statue de Vénus pour aller offrir à Diane
+reviennent de la chasse; Hippolyte passant dédaigneusement devant la statue de Vénus pour aller offrir à Diane
 une couronne. — Que de fois, quand je me promenais seul
 dans la forêt en écoutant le bruit des feuilles, ai-je songé
 à ces mystiques entretiens de Diane. — Encore un tableau
@@ -3515,7 +3451,7 @@ chaque mot de Strepsiade venait réveiller les souvenirs des
 temps heureux. Je te voyais assis à côté de moi, en face de
 
 - Bétant qui faisait le paysan: « Viens ici pour que tu
-pleures. » Et « croquer le marmot »! Et « empompadourer »!
+pleures. » Et « croquer le marmot Et « empompadourer
 S'il y a un paradis et que nous y allions, je suis bien sùr
 que nous y recommencerons les Nuées.
 

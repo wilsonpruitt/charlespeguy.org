@@ -40,8 +40,7 @@ Ce volume est en vente à la librairie des cahiers.
 
 Il est, au Museo Nazionale de Florence, une statue de
 . marbre, que Michel-Ange appelait le Vainqueur.
-C'est un jeune homme nu, au beau corps, les che-
-veux bouclés sur le front bas. Debout et droit, il
+C'est un jeune homme nu, au beau corps, les cheveux bouclés sur le front bas. Debout et droit, il
 pose son genou sur le dos d'un prisonnier barbu,
 qui ploie, et tend sa tête en avant, comme un bœuf.
 Mais le vainqueur ne le regarde pas. Au moment
@@ -50,8 +49,7 @@ ses yeux indécis. Son bras se replie vers son épaule. Il
 se rejette en arrière; il ne veut plus de la victoire, elle
 … le dégoûte. Il a vaincu. Il est vaincu.
 Cette image du Doute héroïque, cette Victoire aux
-ailes brisées, qui, seule de toutes les œuvres de MichelAnge, resta jusqu'à sa mort dans son atelier de Florence, et dont Daniel de Volterre, confident de ses pen-
-sées, voulait orner son catafalque, — c'est Michel-Ange
+ailes brisées, qui, seule de toutes les œuvres de MichelAnge, resta jusqu'à sa mort dans son atelier de Florence, et dont Daniel de Volterre, confident de ses pensées, voulait orner son catafalque, — c'est Michel-Ange
 lui-même, et le symbole de toute sa vie.
 La souffrance est infinie, elle prend toutes les formes.
 Tantôt elle est causée par la tyrannie aveugle des
@@ -103,13 +101,11 @@ mélés, enfants, à ces angoisses, — qui avons ou
 dont la gorge connaît l'odeur âcre et enivrante du pessimisme chrétien, — nous à qui il a fallu faire, certains
 jours, un effort pour ne pas céder, comme d'autres,
 dans les moments de doute, au vertige du Néant
-À Dieu! Vie éternelle! Refuge de ceux qui ne réus-
-sissent point à vivre ici-bas! Foi, qui n'es bien souvent
+À Dieu! Vie éternelle! Refuge de ceux qui ne réussissent point à vivre ici-bas! Foi, qui n'es bien souvent
 qu'un manque de foi dans la vie, un manque de foi dans
 l'avenir, un manque de foi en soi-même, un manque de
 
-courage et un manque de joie! Nous savons sur com-
-bien de défaites est bâtie votre douloureuse victoire!.….
+courage et un manque de joie! Nous savons sur combien de défaites est bâtie votre douloureuse victoire!.….
 Et c'est pour cela que je vous aime, chrétiens, car je
 vous plains. Je vous plains et j'admire votre mélancolie. si
 Vous attristez le monde, mais vous l'embellissez. Le
@@ -187,8 +183,7 @@ antique, presque barbare. Il lui sacrifiait tout et voulait
 que les autres fissent de même. Il se serait, comme il
 disait, « vendu pour elle comme esclave ». (3) L'affection
 à entrait pour peu de chose. méprisait ses frères, qui
-le méritaient bien. Il méprisait son neveu, — son héri-
-tier. Mais en lui, en eux, il respectait les représentants
+le méritaient bien. Il méprisait son neveu, — son héritier. Mais en lui, en eux, il respectait les représentants
 l'a de sa race. Sans cesse, ce mot revient dans ses lettres:
 « … Notre race... la nostra gente... soutenir notre
 ï race... que notre race ne meure pas... »
@@ -204,7 +199,7 @@ paysan. — En 1520, le comte Alessandro de Canossa lui écrivit
 ; En 1515, à l'occasion de la venue de Léon à Florence, Buonark roto, frère de Michel-Ange, fut nommé comes palatinus, et les
 Buonarroti reçurent le droit de mettre dans leurs armes la palla
 14 des Médicis, avec trois lis, et le chiffre du pape.
-À? Je n'ai jamais été, continue-t-il, un peintre ni un sculpteur, qui
+Je n'ai jamais été, continue-t-il, un peintre ni un sculpteur, qui
 fait commerce de l'art. Je m'en suis toujours gardé pour lhonneur
 de ma race. » (Lettre à Lionardo, 2 mai 1548):
 (3) Lettre à son père, du 19 août 1497. — Il ne fut « émancipé »
@@ -230,9 +225,7 @@ cet excès de force dont il était comme gonflé l'obligeait
 « Je m'épuise de travail, comme jamais homme n'a
 fait, écrivait-il, je ne pense à rien autre qu'à travailler
 4 nuit et jour. »
-Ce besoin d'activité maladif ne lui faisait pas seule-
-ment accumuler les tâches et accepter plus de com-
-mandes qu'il n'en pouvait exécuter: cela dégénérait en
+Ce besoin d'activité maladif ne lui faisait pas seulement accumuler les tâches et accepter plus de commandes qu'il n'en pouvait exécuter: cela dégénérait en
 manie. Il voulait sculpter des montagnes. S'il avait un!
 monument à bâtir, ilperdait des années dans les carrières
 à faire choix de ses blocs, à construire des routes pour
@@ -287,8 +280,7 @@ dans ses lettres les traces de quatorze ou quinze maladies graves. (3) Il avait 
 (1) Suivent quelques conseils d'hygiène, qui montrent la barbarie
 du temps: Avant tout, soigne ta tête, tiens-toi modérément
 chaud, et ne te lave jamais: fais-toi nettoyer, et ne te lave jamais. » CA:
-du Christ de la Minerve, il est « malade, à la mort ». En sep-
-tembre 1518, aux carrières de Seravezza, il tombe malade de sur-:
+du Christ de la Minerve, il est « malade, à la mort ». En septembre 1518, aux carrières de Seravezza, il tombe malade de sur-:
 menage et d'ennuis. Nouvelle maladie, en 1520, à l'époque de la:
 mort de Raphaël. A la fin de 1521, un ami, Lionardo sellajo, le
 félicite « d'être guéri d'une maladie, dont peu réchappent ». En
@@ -306,23 +298,20 @@ la pierre et de douleurs de toute sorte; il est très affaibli. En
 : août 1561, il a une attaque; « il tombe sans conscience, avec des
 
 d'une fois près de la mort. Il souffrait des yeux, des
-dents, de la tête, du cœur. (1) Il était rongé de névral-
-gies, surtout quand il dormait; le sommeil lui était une
+dents, de la tête, du cœur. (1) Il était rongé de névralgies, surtout quand il dormait; le sommeil lui était une
 souffrance. Il fut vieux de bonne heure. A quarante-deux
 4 ans, il avait le sentiment de sa décrépitude. (2) A
 quarante-huit ans, il écrit que s'il travaille un jour, il
 1 doit se reposer quatre. (3) Il refusait obstinément de se
 À laisser soigner par aucun médecin.
-Plus encore que son corps, son esprit subit les consé-
-quences de cette vie de travail forcené. Le pessimisme
+Plus encore que son corps, son esprit subit les conséquences de cette vie de travail forcené. Le pessimisme
 le minaït. C'était chez lui un mal héréditaire. Jeune, il
 s'épuisait à rassurer son père, qui semble avoir eu, par
 moments, des accès de délire de la persécution. (4)Michel-:
 Ange était plus atteint lui-même que celui qu'il soignait.
 Cette activité sans relâche, cette fatigue écrasante,
 È dont il n'arrivait jamais à se reposer, le livraient sans
-défense à toutes les aberrations de son esprit qui trem-
-blait de soupçons. Il se défiait de ses ennemis. Il se
+défense à toutes les aberrations de son esprit qui tremblait de soupçons. Il se défiait de ses ennemis. Il se
 défiait de ses amis. (5) Il se défiait de ses parents, de
 (2) Juillet 1517. Lettre écrite de Carrare à Domenico Buoninsegni.
 A (4) A tout instant, dans ses lettres à son père: « vous tourFi mentez pas. » (Printemps 1509) — « Cela me fait de La peine que
@@ -357,8 +346,7 @@ qui vous devriez le moins croire... »
 personne, dormez les yeux ouverts. » )
 (2) Lettres de septembre et octobre 1515 à son frère Buonarroto:
 « … Ne te moque pas de ce que je técris. On ne doit se moquer
-de personne; et, dans ces temps, vivre dans crainte et l'inquié-
-tude pour son âme et pour son corps ne peut nuire... En tout temps,
+de personne; et, dans ces temps, vivre dans crainte et l'inquiétude pour son âme et pour son corps ne peut nuire... En tout temps,
 il est bon de s'inquiéter... »
 6) Souvent, dans ses lettres, il s'appelle « mélancolique et fou
 — « vieux et fou — « fou et méchant ». — Ailleurs, il se défend
@@ -438,7 +426,7 @@ homme, que Jules appelait « le terrible « terri-
 4 ceux qui étaient faibles avec, les princes, — « les ânes
 de bât des princes ainsi qu'il les nommaïit? (4) — Il
 À voulait fuir les papes; et il restait, et il obéissait. (5)
-Il tolérait des lettres injurieuses de ses maîtres, et il y:
+Il tolérait des lettres injurieuses de ses maîtres, et il
 É répondait humblement. (6) Par moments, il se révoltait,
 il parlait fièrement, — mais il cédait toujours. Jusqu'à
 sa mort, ilse débattit, sans force pour lutter. Clément VII,
@@ -488,8 +476,7 @@ faire mourir son ami, le noble Battista della Palla. Hélas!
 Il jusqu'à renier ses amis, les bannis florentins. (3)
 ses tourments. Il publie un bref, en 1531, pour le défendre contre les
 importunités de ceux qui abusaient de sa complaisance.
-(1) Comparer lhumble lettre de Michel-Ange à Febo,en dé-
-cembre 1533, à la réponse de Febo, en janvier 1534, quémandeuse
+(1) Comparer lhumble lettre de Michel-Ange à Febo,en décembre 1533, à la réponse de Febo, en janvier 1534, quémandeuse
 et vulgaire.
 (2) « … Si je ne possède pas l'art de naviguer sur la mer de votre
 puissant génie, celui-ci m'exceusera et ne me méprisera pas,
@@ -527,8 +514,7 @@ les Strozzi:: de
 4 « Quant au reproche qu'on me fait d'avoir été reçu et soigné,
 pendant ma maladie, dans la maison des Strozzi, je considère que
 — je n'étais pas dans leur maison, mais dans la chambre de Luigi a
-del Riccio, qui m'était très attaché. » (Luigi del Riccio était au ser-
-vice des Strozzi.) — Il y avait si peu de doute que Michel-Ange eût a
+del Riccio, qui m'était très attaché. » (Luigi del Riccio était au service des Strozzi.) — Il y avait si peu de doute que Michel-Ange eût a
 … été l'hôte des Strozzi, et non de Riccio, que lui-même, deux ans
 auparavant, avait envoyé Les Deux Esclaves (maintenant au Louvre),;
 à Roberto Strozzi, pour le remercier de son hospitalité.
@@ -558,8 +544,7 @@ De, fate, c'a me Stesso piu non torni! (2)
 J'entends ce cri tragique sortir de la face douloureuse,
 dont les yeux inquiets nous regardent encore, au musée!
 
-Il était de grandeur moyenne, large d'épaules, forte-
-ment charpenté et musclé. Le corps déformé par le travail, il marchait, la tête levée, le dos creusé et le ventre
+Il était de grandeur moyenne, large d'épaules, fortement charpenté et musclé. Le corps déformé par le travail, il marchait, la tête levée, le dos creusé et le ventre
 
 Ne tem' piu cangiar vita ne voglia,;
 
@@ -587,13 +572,12 @@ frisottant un peu. Les yeux, petits, (2) tristes et forts,
 étaient couleur de corne, changeants et mouchetés de
 taches jaunâtres et bleuâtres. Le nez, large et droit, avec
 une petite bosse au milieu, avait été écrasé par le coup
-de poing de Torrigiani. (3) Des plis profonds se creu-
-saient, de narine au coin des lèvres. La bouche était
+de poing de Torrigiani. (3) Des plis profonds se creusaient, de narine au coin des lèvres. La bouche était
 NT. fine; la lèvre inférieure avançait un peu. De maigres
 favoris, une barbe de faune, fourchue, peu épaisse, et
 longue de quatre à cinq pouces, encadraient les joues
 Dans l'ensemble de la physionomie, la tristesse, l'in-
-;; certitude domine. C'est bien une figure du temps de
+certitude domine. C'est bien une figure du temps de
 Tasse, anxieuse, rongée de doutes. Ses yeux poignanits
 inspirent, appellent la compassion.
 Ne la lui marchandons pas. Donnons-lui cet amour,
@@ -641,8 +625,7 @@ de Jules I), — furent détruits de son vivant; les
 . autres, — (le tombeau de Jules II, la chapelle des
 Médicis), — avortèrent piteusement: caricatures de
 sa pensée.
-Le Le sculpteur Ghiberti raconte, dans ses Commen-
-taires, l'histoire d'un pauvre orfèvre allemand du duc
+Le Le sculpteur Ghiberti raconte, dans ses Commentaires, l'histoire d'un pauvre orfèvre allemand du duc
 d'Anjou, « qui était l'égal des statuaires antiques de la
 Grèce et qui, à la fin de sa vie, vit détruire l'œuvre à
 laquelle il avait consacré sa vie. — « Il vit alors que
@@ -663,9 +646,7 @@ arrivé à la fin de sa vie, contempla amèrement sa vie
 
 vécue en vain, ses efforts inutiles, ses œuvres inachevées,
 
-Alors, il abdiqua. L'orgueil de la Renaissance, le ma-
-
-gnifique orgueil de l'âme libre et souveraine de l'uni-
+Alors, il abdiqua. L'orgueil de la Renaissance, le magnifique orgueil de l'âme libre et souveraine de l'uni-
 
 - vers, se renia avec lui « dans cet amour divin, qui,
 
@@ -689,8 +670,7 @@ du Capitole, Rome
 
 Il naquit, le 6 mars 1475, à Caprese, en Casentin.
 Apre pays, « air fin (2) rochers et bois de hêtres, que
-domine l'échine de l'Apennin osseux. Non loin, Fran-
-çois d'Assise vit sur le Mont Alvernia paraître le Crucifié.
+domine l'échine de l'Apennin osseux. Non loin, François d'Assise vit sur le Mont Alvernia paraître le Crucifié.
 
 Le père (3) était podestat de Caprese et Chiusi. C'était
 un homme violent, inquiet, « craignant Dieu ». La
@@ -715,8 +695,7 @@ Michel-Ange devint laîné, le chef de famille.
 
 la vie de Michel-Ange Ée.
 Il fut mis en nourrice chez la femme d'un tailleur de
-pierres de Settignano. Plus tard, en plaisantant, ilattri-
-buait à ce lait sa vocation de sculpteur. On l'envoya à
+pierres de Settignano. Plus tard, en plaisantant, ilattribuait à ce lait sa vocation de sculpteur. On l'envoya à
 l'école: il ne s'y occupa que de dessin. « Pour
 cela, il fut mal et souvent cruellement frappé par
 son père et les frères de son père, qui avaient de la
@@ -725,8 +704,7 @@ une honte d'avoir un artiste dans leur maison. » (1)
 Ainsi, il apprit à connaître tout enfant la brutalité de la
 vie et la solitude de l'esprit.
 Son obstination l''emporta sur celle de son père. A treize
-ans, il entra, comme apprenti, dans l'atelier de Dome-
-nico Ghirlandajo, — le plus grand, le plus sain des
+ans, il entra, comme apprenti, dans l'atelier de Domenico Ghirlandajo, — le plus grand, le plus sain des
 peintres florentins. Ses premiers travaux eurent tant de:
 succès, que le maître, dit-on, fut jaloux de l'élève. (2) Ils
 Il avait pris le dégoût de la peinture. Il aspiraït à un
@@ -817,8 +795,7 @@ Bibbiena, lui dit: « Tu es un fou. Qui crois-tu que Laurent aime le mieux, de s
 houspillé et bafoué, revint à Florence; il apprit à
 Michel-Ange l'insuccès de sa démarche, et il le convain1 quit si bien des malheurs qui allaient fondre sur Flo-
 —. rence, que Michel-Ange, deux jours après, s'enfuit. (1)
-Ce fut le premier accès de ces terreurs supersti-
-tieuses qui se reproduisirent plus d'une fois dans la
+Ce fut le premier accès de ces terreurs superstitieuses qui se reproduisirent plus d'une fois dans la
 suite de sa vie, et qui le terrassaient, quelque honte
 Il fuit jusqu'à Venise.
 A peine sorti de la fournaise de Florence, sa surexci-
@@ -838,25 +815,22 @@ enragées des partis. Mais il est si détaché maintenant
 des passions qui se dévorent autour de lui, que, par une
 sorte de défi contre le fanatisme des Savonarolistes,
 il sculpte son fameux Cupidon endormi, que ses
-contemporains prirent pour un antique. Il ne reste d'ail-
-leurs que quelques mois à Florence; il à Rome, et,
+contemporains prirent pour un antique. Il ne reste d'ailleurs que quelques mois à Florence; il à Rome, et,
 
 . jusqu'à la mort de Savonarole, il est le plus païen des
 
 artistes. Il sculpte Bacchus ivre, Adonis mourant, et le!
 grand Cupidon, VYannée même où Savonarole fait
-brûler « les Vanités et les Anathèmes »: livres,:
+brûler « les Vanités et les Anathèmes livres,:
 parures, œuvres d'art. (2) Son frère, le moine Lionardo,
 est poursuivi, pour sa foi dans le prophète. Les
 dangers s'accumulent sur la tête de Savonarole:
-Michel-Ange ne revient pas à Florence, pour le dé-
-fendre. Savonarole est brûlé: (3) Michel-Ange se tait.
+Michel-Ange ne revient pas à Florence, pour le défendre. Savonarole est brûlé: (3) Michel-Ange se tait.
 Nulle trace de cet événement dans aucune de ses
 
 (1) Il y était l'hôte du noble Giovanni Francesco Aldovrandi, qui
 lui vint en aide, à l'occasion de certains démêlés avec la police de
-Bologne. Il travailla alors à la statue de San Petronio, et à une sta-
-tuette d'ange pour tabernacle (Arca) de San Domenico. Mais ces
+Bologne. Il travailla alors à la statue de San Petronio, et à une statuette d'ange pour tabernacle (Arca) de San Domenico. Mais ces
 œuvres n'ont aucunement le caractère religieux. C'est toujours
 la force orgueilleuse.!
 
@@ -910,9 +884,7 @@ France, à Saint-Pierre. (Contrat du 27 août 1498) — Michel-Ange y
 une pensée de mysticisme chevaleresque la jeunesse de la Vierge, Ne
 si différente des Mater Dolorosa sauvages, flétries, convulsées par!
 
-….… douleur, de Donatello, de Signorelli, de Mantegna, et de Botti-
-
-la vie de Michel-Ange « vail, commencçaient à la ruiner. Il souffrait de la tête, et
+….… douleur, de Donatello, de Signorelli, de Mantegna, et de Bottila vie de Michel-Ange « vail, commencçaient à la ruiner. Il souffrait de la tête, et
 il avait un côté enflé. (1) Son père lui reprochaït sa à
 façon de vivre: il ne se disait pas qu'il en était responsable.
 
@@ -923,8 +895,7 @@ façon de vivre: il ne se disait pas qu'il en était responsable.
 Au printemps de 1501, il revint à Florence.
 
 Un bloc de marbre gigantesque avait été confié,
-quarante ans auparavant, par l'Œuvre de la cathé-
-drale (Opera del Duomo) à Agostino Duccio pour
+quarante ans auparavant, par l'Œuvre de la cathédrale (Opera del Duomo) à Agostino Duccio pour
 y tailler la figure d'un prophète. L'œuvre à peme
 ébauchée était restée interrompue. Personne n'osait la
 reprendre. Michel-Ange s'en chargea, (4) et, de ce roc
@@ -1014,9 +985,7 @@ commune eût les rapprocher. Mais s'ils se sentaient
 l'un de l'autre. Le plus isolé des deux était Léonard. Il;
 avait cinquante-deux ans, — vingt ans de plus que
 Michel-Ange. — Depuis l'âge de trente ans, il avait
-quitté Florence, dont l'âäpreté de passions était intolé-
-rable à sa nature délicate, un peu timide, et à son intel-
-ligence sereine et sceptique, ouverte à tout, comprenant
+quitté Florence, dont l'âäpreté de passions était intolérable à sa nature délicate, un peu timide, et à son intelligence sereine et sceptique, ouverte à tout, comprenant
 tout. Ce grand dilettante, cet homme absolument libre
 
 (1) Relation contemporaine, et Histoires Florentines de Pietro
@@ -1025,7 +994,7 @@ tout. Ce grand dilettante, cet homme absolument libre
 Florence. L'Arétin, reprochant à Michel-Ange l'indécence de son
 Jugement Dernier, lui écrivit en 1545: « Imitez la modestie des
 Florentins, qui cachent sous des feuilles d'or les parties honteuses
-de leur beau Colosse. »:
+de leur beau Colosse.
 
 absolument seul, était si détaché de la patrie, de la
 religion, du monde entier, qu'il ne se trouvait bien
@@ -1048,8 +1017,7 @@ dans les rues de Florence. Il était vêtu d'une tunique Hvi
 … rose, tombant jusqu'aux genoux; sur sa poitrine Me.
 flottait sa barbe bien bouclée et arrangée avec art.
 Auprès de Santa Trinità, quelques bourgeois causaient:
-ES ils discutaient ensemble un passage de Dante. Ils appe-
-lèrent Léonard, et le prièrent de leur en éclaircir le
+ES ils discutaient ensemble un passage de Dante. Ils appelèrent Léonard, et le prièrent de leur en éclaircir le
 — sens. À ce moment, Michel-Ange passait. Léonard
 dit « Michel-Ange vous expliquera les vers dont vous
 parlez. » Michel-Ange, croyant qu'il voulait le railler,
@@ -1105,8 +1073,7 @@ visible de loin aux navigateurs. Il l'eût fait, s'il en avait
 le temps, et si on le lui avait permis. » (1)
 En décembre 1505, il revint à Rome, où commencèrent
 à arriver par mer les blocs de marbre qu'il avait
-choisis. On les transporta sur la place Saint-Pierre, der-
-rière Santa-Caterina, où Michel-Ange habitait. « La
+choisis. On les transporta sur la place Saint-Pierre, derrière Santa-Caterina, où Michel-Ange habitait. « La
 masse des pierres était si grande, qu'elle excitait la stupeur des gens et la joie du pape. » Michel-Ange se
 mit au travail. Le pape, dans son impatience, venait
 sans cesse le voir, « et s'entretenait avec lui, aussi
@@ -1150,8 +1117,7 @@ du jugement de Michel-Ange, qui découvrait ses fautes. Bramante,
 comme chacun sait, était adonné au plaisir et grand dissipateur.;
 Le traitement qu'il recevait du pape, si élevé qu'il fût, ne lui suffi-
 
-: Il lui enleva la faveur du pape. Il joua de la supersti-
-tion de Jules Il; il lui rappela la croyance populaire, 4).
+: Il lui enleva la faveur du pape. Il joua de la superstition de Jules Il; il lui rappela la croyance populaire, 4).
 suivant laquelle il était de mauvais présage de se faire
 bâtir son tombeau de son vivant. Il réussit à le déta-
 : 2 cher des projets de son rival, et il y substitua les
@@ -1176,7 +1142,7 @@ peut le constater dans ses constructions de Saint-Pierre, du corridor
 du Belvédère, du cloître de Santo Pietro Vincula, etc., qu'il a
 été nécessaire de soutenir récemment par des crampons et des
 contreboutants, parce qu'elles tombèrent, ou seraient tombées:
-;. en peu de temps. »:
+;. en peu de temps.
 . (1) « Lorsque le pape changea de fantaisie, et que les barques
 arrivèrent avec des marbres de Carrare, je dus payer moi-même
 le fret. Dans ce même temps des tailleurs de pierres, que
@@ -1320,7 +1286,7 @@ prétexte qu'il les avait volés.
 la vie de Michel-Ange
 Puis, ce fut le fondeur, dont l'incapacité se révéla.
 « J'aurais cru que maître Bernardino était capable de
-fondre, même sans feu, tant j'avais foi en lui. »;
+fondre, même sans feu, tant j'avais foi en lui.
 En juin 1507, la fonte rata. La figure ne sortit que
 jusqu'à la ceinture. Tout fut à recommencer. MichelAnge resta occupé à cette œuvre jusqu'en février 1508.;
 Il faillit y perdre la santé.
@@ -1332,8 +1298,7 @@ et j'en endure de telles, que je crois que si j'avais la
 statue à faire encore une fois, ma vie n'y suffirait pas:
 ç'a été un travail de géant. » (1)
 Pour de telles fatigues, le résultat fut misérable. La
-statue de Jules IL, élevée en février 1508 devant la fa-
-çade de San Petronio, n'y resta que quatre ans. En
+statue de Jules IL, élevée en février 1508 devant la façade de San Petronio, n'y resta que quatre ans. En
 décembre 1511, elle fut détruite par le parti des Bentivogli, ennemis de Jules Il; et Alphonse d'Este en acheta
 les débris, pour s'en faire un canon.
 Michel-Ange revint à Rome. Jules lui imposait une
@@ -1371,8 +1336,7 @@ dite de La Signature. (Ecole d'Athènes et Dispute du Saint-Sacrement);
 la vie de Michel-Ange En
 Michel-Ange resta seul, avec quelques manœuvres; (1)
 et, loin que la difficulté plus grande rent sa hardiesse,. De:
-il agrandit son plan et décida de peindre, non seule-
-ment la voûte, comme ïil en était d'abord question,
+il agrandit son plan et décida de peindre, non seulement la voûte, comme ïil en était d'abord question,
 mais les murailles. [RE
 Le travail gigantesque commença, le 10 mai 1508. En
 Sombres années, —les plus sombres et les plus sublimes
@@ -1381,8 +1345,7 @@ daire, le héros de la Sixtine, celui dont la grandiose
 image est et doit rester gravée dans la mémoire de
 l'humanité.;
 Il souffrit terriblement. Ses lettres d'alors témoignent
-d'un découragement passionné, qui ne pouvait se satis-
-faire de ses divines pensées: )
+d'un découragement passionné, qui ne pouvait se satisfaire de ses divines pensées: )
 « Je suis dans un grand abattement d'esprit:
 maintenant un an que je n'ai pas reçu un gros du pape;
 je ne lui demande rien, parce que mon œuvre n'avance;
@@ -1414,8 +1377,7 @@ Quand bien même tout ce que vous avez au monde vous.
 : lor du monde et que vous soyez mort, Si vous ne si
 pouvez pas, comme d'autres, avoir les honneurs de ce Ai
 monde, qu'il vous sulfise d'avoir votre pain; et vivez avec
-Christ, bon et pauvre, comme je fais ici; car je suis misé-
-rable, et je ne me tourmente ni pour la vie, ni pour l'hon-: 1008
+Christ, bon et pauvre, comme je fais ici; car je suis misérable, et je ne me tourmente ni pour la vie, ni pour l'hon-: 1008
 ; neur, c'est-à-dire pour le monde; et je vis dans de très
 grandes peines et dans une défiance infinie. Depuis quinze
 ans, je n'ai pas une bonne heure; j'ai tout fait pour
@@ -1430,14 +1392,11 @@ ils venaient se faire héberger chez lui à Rome; ils se À
 faisaient acheter, Buonarroto et Giovan Simone, un
 me fonds de commerce, Gismondo, des terres près de Flo- À
 ù rence. Et ils ne lui en savaient aucun gré: il semblait
-È que cela leur füt dû. Michel-Ange savait qu'ils l'exploi-
-taient; maisil était trop orgueilleux pour ne pas les laisser:
+È que cela leur füt dû. Michel-Ange savait qu'ils l'exploitaient; maisil était trop orgueilleux pour ne pas les laisser:
 
 la vie de Michel-Ange
 
-faire. Les drôles ne s'en tenaient point là. Ils se condui-
-
-saient mal, et maltraitaient le père, en l'absence de
+faire. Les drôles ne s'en tenaient point là. Ils se conduisaient mal, et maltraitaient le père, en l'absence de
 
 Michel-Ange. Alors celui-ci éclatait en menaces fu-:
 
@@ -1508,8 +1467,7 @@ Noter que Giovan Simone était alors un homme de trente ans.
 LA Michel-Ange n'avait que quatre ans de plus que lui.
 
 la vie de Michel-Ange
-avances d'argent que lui a faites Michel-Ange, le har-
-cèle impudemment et se vante d'avoir plus dépensé
+avances d'argent que lui a faites Michel-Ange, le harcèle impudemment et se vante d'avoir plus dépensé
 pour lui qu'il n'en a reçu::
 è Je voudrais bien savoir de ton ingratitude, lui écrit
 Michel-Ange, d'où tu tiens ton argent; je voudrais bien
@@ -1518,8 +1476,7 @@ pris à la banque de Santa Maria Nuova, et de bien
 d'autres centaines de ducats que j'ai envoyées à la mai
 son, et des peines et des soucis que j'ai eus pour vous
 entretenir. Je voudrais bien savoir si tu tiens compte de
-tout cela! — Si tu avais assez d'intelligence pour recon-
-naître la vérité, tu ne dirais pas: J'ai dépensé tant du
+tout cela! — Si tu avais assez d'intelligence pour reconnaître la vérité, tu ne dirais pas: J'ai dépensé tant du
 mien et tu ne serais pas venu me relancer ici, pour me
 tourmenter de tes affaires, sans te souvenir de toute ma
 conduite passée, à votre égard. Tu aurais dit: « Michel-
@@ -1560,7 +1517,7 @@ Michel-Ange dut céder; il fit enlever l'échafaudage, et Ne
 La fête éclatante et sombre, qui reçoit les reflets
 funèbres de la Fête des Morts, convenait bien à l'inau-
 3 guration de cette œuvre terrible, pleine de l'Esprit du
-8 Dieu qui crée et qui tue, — Dieu NE où se rue, à
+Dieu qui crée et qui tue, — Dieu NE où se rue, à
 gr. comme un ouragan, toute la force de vivre. (1)
 (1) J'ai analysé l'œuvre dans le Michel-Ange, de la collection: Les
 Maîtres de l'Art. Je n'y reviens pas ici.
@@ -1635,8 +1592,7 @@ La plus ancienne poésie semble avoir été écrite à
 É Comme je vivais heureux, tant qu'il m'était accordé,
 Amour, de résister victorieusement à ta rage! Maintenant,
 hélas! je baigne ma poitrine de larmes, j'ai éprouvé ta
-Deux madrigaux, écrits entre 1504 et 1511, et probable-
-ment adressés à la même femme, ont une expression
+Deux madrigaux, écrits entre 1504 et 1511, et probablement adressés à la même femme, ont une expression
 Qui est celui qui par force me mène à toi... hélas! hélas!
 4 hélas!.… étroitement enchaîné? Et je suis libre pourtant!..
 Legato strecto, son libero sciolto? (4)
@@ -1739,8 +1695,7 @@ synonymes, à l'extase voluptueuse des sonnets juvéniles et gauches
 de Raphaël, écrits sur le revers des dessins pour la Dispute du
 (2) Jules mourut, le 21 février 1513, trois mois et demi après
 l'inauguration des fresques de la Sixtine.
-(3) Contrat du 6 mars 1513. — Le nouveau projet, plus consi-
-dérable que le projet primitif, comprenait 32 grandes statues.
+(3) Contrat du 6 mars 1513. — Le nouveau projet, plus considérable que le projet primitif, comprenait 32 grandes statues.
 Michel-Ange semble n'avoir accepté, pendant ce temps,
 ; qu'une seule commande: le Christ de la Minerve.
 (5) Le Moïse devait être une des six figures colossales, couronnant l'étage supérieur du monument de Jules II. Michel-Ange ne;
@@ -1787,8 +1742,7 @@ surintendant de la construction de Saint-Pierre.
 la vie de Michel-Ange
 
 du gros du travail sur un aide et n'exécuter lui-même
-que les statues principales. Mais, suivant son habi-
-tude, il se grisa peu à peu de son projet, et bientôt il ne
+que les statues principales. Mais, suivant son habitude, il se grisa peu à peu de son projet, et bientôt il ne
 put plus souffrir d'en partager l'honneur avec un autre.
 Bien plus, il tremblait que le pape ne voulût le lui
 retirer; il supplia Léon de le lier à cette chaîne À
@@ -1816,15 +1770,12 @@ me ferait la plus grande des joies. » Domenico Buoninsegni,
 Le traité fut signé avec Léon le 19 janvier 1518. Michel-Ange
 s'engageait à élever la façade en huit ans.
 
-(2) Lettre du cardinal Jules de Médicis à Michel-Ange, 2 fé-
-vrier 1518: Quelque soupçon a été éveillé en nous que vous ne
+(2) Lettre du cardinal Jules de Médicis à Michel-Ange, 2 février 1518: Quelque soupçon a été éveillé en nous que vous ne
 soyiez du parti des Carrarais par intérêt personnel que vous
 ne veuillez déprécier les carrières de Pietrasanta... Nous vous faisons savoir, sans entrer en d'autres explications, que Sa Sainteté
 veut que tout le travail entrepris soit exécuté avec les blocs de
 
-pour avoir obéir aux ordres du pape, il fut persé-
-cuté par les Carrarais, qui s'entendirent avec les mari-
-niers ligures: il ne trouva plus une seule barque, de
+pour avoir obéir aux ordres du pape, il fut persécuté par les Carrarais, qui s'entendirent avec les mariniers ligures: il ne trouva plus une seule barque, de
 Gênes à Pise, pour transporter ses marbres. (1) Il lui À
 fallut construire une route, en partie sur pilotis, à
 travers les montagnes et les plaines marécageuses. Les
@@ -1847,8 +1798,7 @@ Bannissez donc cet entêtement de votre esprit. »
 (1) « Pai été jusqu'à Gênes pour chercher des barques. Les Carrarais ont acheté tous les patrons de bateaux... Je dois aller à
 Pise. » (Lettre de Michel-Ange à Urbano, 2 avril 1518) — « Les
 barques que j'avais louées à Pise ne sont jamais venues. Je crois
-qu'on ma joué: c'est mon lot en toutes choses! O mille fois mau-
-dits le jour et l'heure où j'ai quitté Carrare! C'est la cause de ma
+qu'on ma joué: c'est mon lot en toutes choses! O mille fois maudits le jour et l'heure où j'ai quitté Carrare! C'est la cause de ma
 Lettre du 18 avril 1518. — Et, quelques mois plus tard: « La
 É carrière est très escarpée, et les gens sont tout à fait ignorants
 patience! il faut dompter les montagnes et instruire les hommes... »
@@ -1928,9 +1878,7 @@ del Piombo à Michel-Ange, 6 septembre 1521) Le sculpteur Frizzi,
 
 À Tous ces déboires n'empêchaient pas Michel-Ange de chercher
 
-de nouvelles tâches à ajouter à celles qui l'écrasaient, Le 20 oc-
-
-tobre 1519, il signa la requête des Académiciens de Florence à
+de nouvelles tâches à ajouter à celles qui l'écrasaient, Le 20 octobre 1519, il signa la requête des Académiciens de Florence à
 
 la vie de Michel-Ange
 
@@ -2014,8 +1962,7 @@ de Clément VII. (3) Il traversait une nouvelle crise de
 découragement. Les héritiers de Jules ne lui pardonnaient pas d'avoir abandonné l'œuvre entreprise;
 ils le menaçaient de poursuites, ils mettaient en cause
 è sa loyauté. Michel-Ange s'affolait à l'idée d'un procès;
-sa conscience donnait raison à ses adversaires et Pac-
-cusait d'avoir failli à ses engagements: il lui semblait
+sa conscience donnait raison à ses adversaires et Paccusait d'avoir failli à ses engagements: il lui semblait
 impossible d'accepter de l'argent de Clément VII, tant
 qu'il n'aurait pas restitué celui qu'il avait reçu de
 (1) Les travaux furent commencés dès mars 1521, mais ne furent:
@@ -2093,12 +2040,10 @@ On voulut lui donner une leçon: on fit la sourde
 È oreille. Deux mois plus tard, il n'avait encore rien reçu.
 
 Il fut forcé de réclamer la pension plus d'une fois, dans à
-la suite. «._ Il travaillait, tout en se tourmentant; il se plai-
-gnait que ces soucis fussent des entraves à son ima_ gination:
+la suite. «._ Il travaillait, tout en se tourmentant; il se plaignait que ces soucis fussent des entraves à son ima_ gination:
 .. Les ennuis peuvent beaucoup sur moi... On ne peut pas:
 travailler des mains à une chose, et de la tête à une autre,
-surtout en sculpture. On dit que tout cela sert à m'aiguil-
-lonner; mais je dis que ce sont de mauvais aiguillons, qui à
+surtout en sculpture. On dit que tout cela sert à m'aiguillonner; mais je dis que ce sont de mauvais aiguillons, qui à
 disposent à retourner en arrière. Il y a déjà plus d'un an que
 je n'ai recu de pension, et je lutte avec la misère: je suis A
 très seul, au milieu de mes peines; et j'en ai tant, qu'elles
@@ -2106,8 +2051,7 @@ m'occupent plus que l'art: je n'ai pas les moyens d'avoir (3
 quelqu'un qui me serve. (2) À
 Clément VII se montrait parfois touché de ses
 souffrances. Il lui faisait exprimer affectueusement
-sa sympathie. Il l'assurait de sa faveur, « aussi long-
-temps qu'il vivrait ». (3) Mais l'incurable frivolité des
+sa sympathie. Il l'assurait de sa faveur, « aussi longtemps qu'il vivrait ». (3) Mais l'incurable frivolité des
 Médicis prenait le dessus; et, au lieu de le décharger
 d'une partie de ses travaux, il lui faisait de nouvelles
 commandes: entre autres, celle d'un absurde Colosse,
@@ -2136,8 +2080,7 @@ déplût; toutes les peines que j'ai supportées, je les ai
 toujours supportées par amour de vous... J'ai toujours pris
 votre parti... Il y a peu de jours encore, je vous disais et je
 vous promettais de vous consacrer toutes mes forces, aussi
-longtemps que je vivrais; et je vous le promets de nou-
-veau. Je suis stupéfait que vous ayez si vite oublié tout a
+longtemps que je vivrais; et je vous le promets de nouveau. Je suis stupéfait que vous ayez si vite oublié tout a
 cela. Depuis trente ans, vous m'avez éprouvé, vous et vos
 fils, vous savez que j'ai toujours été bon pour vous, autant « que je le pouvais, en pensée et en action. Comment pouvez-
 : vous aller répéter partout que je vous ai chassé? Ne voyezvous pas quelle réputation vous me faites? Il ne me manque
@@ -2160,14 +2103,12 @@ pardonnez-moi comme à un misérable que je suis; mais ne
 me donnez pas cette réputation que je vous aurais chassé;
 car ma réputation m'importe plus que vous ne croyez:
 malgré tout, je suis pourtant votre fils!
-Tant d'amour et d'humilité ne désarmait qu'un in-
-stant lesprit aigri du vieillard. Quelque temps après, »4
+Tant d'amour et d'humilité ne désarmait qu'un instant lesprit aigri du vieillard. Quelque temps après, »4
 il accusaït son fils de le voler. Michel-Ange, poussé
 à bout, lui écrivit: (1) CEE)
 Je sais plus ce que vous voulez de moi. S'il vous est à
 charge que je vive, vous avez trouvé le bon moyen pour 450)
-vous débarrasser de moi, et vous rentrerez bientôt en pos-
-session des clefs du trésor que vous prétendez que je garde.
+vous débarrasser de moi, et vous rentrerez bientôt en possession des clefs du trésor que vous prétendez que je garde.
 Et vous ferez bien; car chacun sait à Florence que vous
 2 étiez un homme immensément riche, que je vous ai toujours
 volé et que je mérite d'être châtié: vous serez hautement
@@ -2250,12 +2191,9 @@ de ces accès humiliants, à contraindre son corps et sa
 
 pensée malades à subir le danger, que son premier -
 mouvement avait été de fuir. D'ailleurs il avait plus de
-raisons de craindre qu'un autre, car il était plus intel-
-ligent, et son pessimisme ne prévoyait que trop claire-
-ment les malheurs de l'Italie, — Mais, pour qu'avec sa
+raisons de craindre qu'un autre, car il était plus intelligent, et son pessimisme ne prévoyait que trop clairement les malheurs de l'Italie, — Mais, pour qu'avec sa
 
-; timidité naturelle il se laissât entraîner dans la révo-
-lution florentine, il fallait qu'il fût dans une exaltation de désespoir, qui lui fit dévoiler le fond de son
+; timidité naturelle il se laissât entraîner dans la révolution florentine, il fallait qu'il fût dans une exaltation de désespoir, qui lui fit dévoiler le fond de son
 
 Cette âme, si craintivement repliée sur elle-même,
 
@@ -2280,13 +2218,11 @@ des tyrans, et qu'il a de quels châtiments ils méritaient
 d'être frappés par Dieu et par les hommes. Il les place
 parmi les « violents contre le prochain qu'il fait punir +1
 dans le septième Cercle, en les plongeant dans le sang;
-bouillonnant.. Puisque Dante a reconnu cela, il est impos-
-sible d'admettre qu'il n'ait pas reconnu que César a été
+bouillonnant.. Puisque Dante a reconnu cela, il est impossible d'admettre qu'il n'ait pas reconnu que César a été
 le tyran de sa patrie et que Brutus et Cassius l'ont massacré
 ; avec justice; car celui qui tue un tyran ne tue pas un an
 hômme, mais une bête à figure humaine. Tous les tyrans
-sont dénués de l'amour que chacun doit ressentir naturelle-
-ment pour son prochain, ils sont privés des inelinations
+sont dénués de l'amour que chacun doit ressentir naturellement pour son prochain, ils sont privés des inelinations
 humaines: ce ne sont donc plus des hommes, mais des;
 bêtes. Qu'ils n'aient aucun amour pour le prochain, c'est À
 (2) Cest pour Donato Giannotti que Michel-Ange fit le buste de ù 1%
@@ -2294,12 +2230,9 @@ Brutus. Quelques années avant le Dialogue, en 1536, Alexandre de
 - Médicis venait d'être assassiné par Lorenzino, qui fut célébré,
 comme un autre Brutus. À
 (3) De' giorni che Dante consumô nel cercare l'Inferno Purga-
-À torio. — La question que discutent les amis est celle de savoir com-
-bien de jours Dante a passés en Enfer: est-ce du vendredi soir à
+À torio. — La question que discutent les amis est celle de savoir combien de jours Dante a passés en Enfer: est-ce du vendredi soir à
 au samedi soir, ou du jeudi soir au dimanche matin? On a recours
-à Michel-Ange, qui connaissait l'œuvre de Dante mieux que per-
-
-la vie de Michel-Ange TRE à
+à Michel-Ange, qui connaissait l'œuvre de Dante mieux que perla vie de Michel-Ange TRE à
 l'évidence même: autrement, ils n'auraient pas pris ce qui
 appartient aux autres, ne seraient pas devenus tyrans en
 foulant aux pieds les autres... Il est donc clair que qui tue
@@ -2340,13 +2273,11 @@ il décida d'assurer cette position par des bastions. Mais,
 gonfalonier Capponi, qui chercha à l'éloigner de Florence. (1) Michel-Ange, soupçonnant Capponi et le
 parti des Médicis de vouloir se débarrasser de lui,
 pour empêcher la défense de la ville, s'installa à San
-Miniato et n'en bougea plus. Mais sa défiance mala-
-dive accueillait tous les bruits de trahison qui circulent
+Miniato et n'en bougea plus. Mais sa défiance maladive accueillait tous les bruits de trahison qui circulent
 toujours dans une ville assiégée, et qui, cette fois,
 n'étaient que trop fondés. Capponi, suspect, avait été
 remplacé comme gonfalonier par Francesco Carducci;
-mais on avait nommé condottiere et gouverneur géné-
-ral des troupes florentines l'inquiétant Malatesta Baglioni, qui devait plus tard livrer la ville au pape.
+mais on avait nommé condottiere et gouverneur général des troupes florentines l'inquiétant Malatesta Baglioni, qui devait plus tard livrer la ville au pape.
 Michel-Ange pressentait le crime. Il fit part de ses
 craintes à la Seigneurie. « Le gonfalonier Carducci, au
 lieu de le remercier, le réprimanda injurieusement'; il lui
@@ -2375,8 +2306,7 @@ et son élève Antonio Mini ».;
 « Si c'était Dieu ou le diable qui me poussait, je ne;
 sais pas écrit Michel-Ange, quelques jours après.
 C'était son démon habituel de terreur démente. Dans
-quel effroi devait-il être, s'il est vrai, comme on le rap-
-porte, que sur le chemin, à Castelnuovo, s'arrêtant chez
+quel effroi devait-il être, s'il est vrai, comme on le rapporte, que sur le chemin, à Castelnuovo, s'arrêtant chez
 l'ancien gonfalonier Capponi, il lui communiqua par ses
 récits un tel saisissement, que le vieillard en mourut
 Le 23 septembre, Michel-Ange était à Ferrare. Dans
@@ -2386,8 +2316,7 @@ sa fièvre, il refusa l'hospitalité que le duc lui offrait au
 À château, et continua sa fuite. Il arriva, le 25 septembre, A.
 à Venise. La Seigneurie, en ayant avis, lui envoya:
 deux gentilshommes, pour mettre à sa disposition tout.
-- ce dont il pouvait avoir besoin; mais honteux et sau-
-vage, il refusa, et se retira à l'écart, à la Giudecca. Il #34
+- ce dont il pouvait avoir besoin; mais honteux et sauvage, il refusa, et se retira à l'écart, à la Giudecca. Il #34
 ne se croyait pas encore assez loin. Il voulait fuir en
 France. Le jour même de son arrivée à Venise, il
 adresse une lettre anxieuse et trépidante à Battista à
@@ -2396,20 +2325,17 @@ des œuvres d'art:
 Battista, très cher ami, j'ai quitté Florence pour aller en
 France; et, arrivé à Venise, je me suis informé du chemin:
 on m'a dit que, pour y aller, il fallait passer par les pays de
-allemands, ce qui est dangereux et pénible pour moi. Avez-
-vous encore l'intention d'y aller?.. Je vous en prie, informez-
+allemands, ce qui est dangereux et pénible pour moi. Avezvous encore l'intention d'y aller?.. Je vous en prie, informez-
 m'en, et dites-moi où vous voulez que je vous attende
 nous irons ensemble... Je vous en prie, répondez-moi, au
 , reçu de cette lettre, et aussi vite que vous pourrez; car je me
 consume du désir d'y aller. Et si vous n'avez plus envie d'y
 aller, faites-le moi savoir, afin que je me décide, coûte que
 L'ambassadeur de France à Venise, Lazare de Baïf,;
-se hâta d'écrire à François et au connétable de Mont-
-morency; il les pressait de profiter de l'occasion pour
+se hâta d'écrire à François et au connétable de Montmorency; il les pressait de profiter de l'occasion pour
 attacher Michel-Ange à la cour de France. Le roi fit
 offrir aussitôt à Michel-Ange une pension et une maison. )
-Mais cet échange de lettres prit naturellement un cer-
-tain temps; et quand arriva l'offre de François Ie,
+Mais cet échange de lettres prit naturellement un certain temps; et quand arriva l'offre de François Ie,
 Michel-Ange était déjà retourné à Florence.
 Sa fièvre était tombée. Dans le silence de la Giudecca,
 (1) Lettre de Michel-Ange à Battista della Palla. (25 septembre
@@ -2423,8 +2349,7 @@ bannis, comme rebelles, s'ils ne rentraient pas avant le
 rebelles, et leurs biens confisqués. Cependant, le nom de
 Michel-Ange ne figurait pas encore sur la liste; la Sei- (
 gneurie lui laissait un dernier délai, et l'ambassadeur à
-. Florentin à Ferrare, Galeotto Giugni, avertit la Répu-
-blique que Michel-Ange avait trop tard connaissance
+. Florentin à Ferrare, Galeotto Giugni, avertit la République que Michel-Ange avait trop tard connaissance
 
 du décret, et qu'il était prêt à revenir, si on lui faisait:
 grâce. La Seigneurie promit son pardon à Michel-
@@ -2436,8 +2361,7 @@ Battista della Palla lui adressait un appel plein d'amour
 
 Tous vos amis, sans distinction d'opinion, sans hésiter,
 d'une seule voix, vous exhortent à revenir, pour conserver
-votre vie, votre patrie, vos amis, vos biens et votre hon-
-neur, et jouir des temps nouveaux, que vous avez de.
+votre vie, votre patrie, vos amis, vos biens et votre honneur, et jouir des temps nouveaux, que vous avez de.
 ardemment désirés et espérés.
 
 Il croyait que l'âge d'or était revenu pour Florence, et
@@ -2446,13 +2370,11 @@ il ne doutait point du triomphe de la bonne cause. — Le
 malheureux devait être une des premières victimes de
 
 la réaction, après le retour des Médicis.
-Ses paroles décidèrent Michel-Ange. Il revint, — len-
-tement; car Battista della Palla, qui alla au-devant de
+Ses paroles décidèrent Michel-Ange. Il revint, — lentement; car Battista della Palla, qui alla au-devant de
 
 Jui à Lucques, l'attendit, de longs jours, et il commen-
 Çait à désespérer. (1) Enfin, le 20 novembre, Michel- à
-Ange rentra à Florence. (2) Le 23, sa sentence de ban-
-nissement fut levée par la Seigneurie; mais il fut décidé
+Ange rentra à Florence. (2) Le 23, sa sentence de bannissement fut levée par la Seigneurie; mais il fut décidé
 - que le grand Conseil lui resterait fermé, trois ans. (3)
 Dès lors, Michel-Ange fit bravement son devoir
 jusqu'au bout. Il reprit sa place à San Miniato, que les
@@ -2463,8 +2385,7 @@ de laine et de matelas suspendus à des cordes. (4) La
 dernière trace que l'on ait de son activité pendant
 le siège est une nouvelle du 22 février 1530, qui le
 montre grimpant sur le dôme de la cathédrale, pour ous
-surveiller les mouvements de l'ennemi, ou pour inspec-
-ter l'état de la coupole.
+surveiller les mouvements de l'ennemi, ou pour inspecter l'état de la coupole.
 Cependant, le malheur prévu s'accomplit. Le 2 août
 1530, Malatesta Baglioni trahit. Le 12, Florence capitula,
 (1) lui écrivit de nouvelles lettres, le conjurant de revenir.
@@ -2473,14 +2394,11 @@ cret de la Seigneurie.
 (3) D'après une lettre de Michel-Ange à Sébastien del Piombo, il
 aurait aussi payer à la Commune une amende de 1.500 ducats.:
 (4) « Lorsque le pape Clément et les Espagnols vinrent mettre le
-siège devant Florence, raconte Michel-Ange à François de Hol-
-lande, les ennemis furent longtemps arrêtés par les machines que
-j'avais fait élever sur les tours. Une nuit, je-faisais couvrir l'exté-
-rieur des murs de sacs de laine; une autre, je faisais creuser des 3}
+siège devant Florence, raconte Michel-Ange à François de Hollande, les ennemis furent longtemps arrêtés par les machines que
+j'avais fait élever sur les tours. Une nuit, je-faisais couvrir l'extérieur des murs de sacs de laine; une autre, je faisais creuser des 3}
 fossés, que je remplissais de poudre, pour brüler les Castillans;
 je faisais sauter dans l'air leurs membres déchirés… Voilà à quoi pe,
-sert la peinture! Elle sert pour les machines et pour les instru-
-ments de guerre; elle sert pour donner une forme convenable
+sert la peinture! Elle sert pour les machines et pour les instruments de guerre; elle sert pour donner une forme convenable
 aux bombardes et aux arquebuses; elle sert pour jeter des ponts te.
 et confectionner des échelles; elle sert surtout pour les plans et
 les proportions des forteresses, des bastions, des fossés, des mines
@@ -2515,31 +2433,21 @@ bannis florentins. (4) Lamentable faiblesse d'un grand;
 Lettre de Sébastien del Piombo à Michel-Ange. (29 avril 1531)
 (2) Condivi. — Dès le 11 décembre 1530, la pension de Michel-
 Ange fut rétablie par le pape.
-(3) Automne 1530. — Le statue est au. Museo Nazionale de Flo-
-
-homme, réduit à défendre par des lâchetés la vie de ses À
+(3) Automne 1530. — Le statue est au. Museo Nazionale de Flohomme, réduit à défendre par des lâchetés la vie de ses À
 rêves artistiques contre la brutalité meurtrière de la
 force matérielle, qui pouvait à son gré l'étouffer! Ce À
 m'est pas sans raison qu'il devait consacrer toute la fin
-de sa vie à élever à l'apôtre Pierre un monument sur-
-humain: plus d'une fois, comme lui, il dut pleurer, en
+de sa vie à élever à l'apôtre Pierre un monument surhumain: plus d'une fois, comme lui, il dut pleurer, en
 entendant le coq chanter. 1:40
-Obligé au mensonge, réduit à flatter un Valori, à célé-
-
-brer un Laurent, duc d'Urbin, il éclatait de douleur et
+Obligé au mensonge, réduit à flatter un Valori, à célébrer un Laurent, duc d'Urbin, il éclatait de douleur et
 
 de honte. Il se jeta dans le travail, il y mit toute sa
 rage de néant. (1) Il ne sculpta point les Médicis, il;
-sculpta les statues de son désespoir. Quand on lui fai-
-
-sait remarquer le manque de ressemblance de ses por-
-
-traits de Julien et de Laurent de Médicis, il répondait
+sculpta les statues de son désespoir. Quand on lui faisait remarquer le manque de ressemblance de ses portraits de Julien et de Laurent de Médicis, il répondait
 
 superbement: « Qui le verra dans dix siècles? » De
 
-l'un, il fit l'Action; de l'autre, la Pensée; et les sta-
-tues du socle, qui les commentent, — le Jour et la Nuit,
+l'un, il fit l'Action; de l'autre, la Pensée; et les statues du socle, qui les commentent, — le Jour et la Nuit,
 l'Aurore et le Crépuscule, — disent toutes la souffrance
 épuisante de vivre et le mépris de ce qui est. Ces
 immortels symboles de la douleur humaine furent
@@ -2551,13 +2459,11 @@ paganisme audacieux, comme la Léda caressée par le Cygne (1529- “4
 1530), qui, peinte pour le duc de Ferrare, puis donnée par MichelAnge à son élève Antonio Mini, fut portée par ce dernier en France,
 où elle fut détruite, dit-on, vers 1643, par Sublet des Noyers, pour
 
-sa lasciveté. Un peu plus tard, Michel-Ange peignit pour Barto-
-lommeo Bettini un carton de Vénus caressée par l'Amour, dont:
+sa lasciveté. Un peu plus tard, Michel-Ange peignit pour Bartolommeo Bettini un carton de Vénus caressée par l'Amour, dont:
 Pontormo fit un tableau qui est aux Uffizi. D'autres dessins, d'une:
 
 impudeur grandiose et sévère, sont probablement de la même
-époque. Charles Blanc décrit un d'eux, « où l'on voit les trans-
-ports d'une femme violée, qui se débat robuste contre un ravisseur De:
+époque. Charles Blanc décrit un d'eux, « où l'on voit les transports d'une femme violée, qui se débat robuste contre un ravisseur De:
 
 plus robuste, mais non sans exprimer un involontaire sentiment
 
@@ -2578,8 +2484,7 @@ m'éveille pas, ah! parle bas!
 Caro è sonno et piu l'esser sasso,
 Mentre che danno et la vergogna dura.
 
-On dort donc dans le ciel, s'écriait-il dans une autre poé-
-sie, puisqu'un seul s'approprie ce qui était le bien de tant
+On dort donc dans le ciel, s'écriait-il dans une autre poésie, puisqu'un seul s'approprie ce qui était le bien de tant
 
 Et Florence asservie répond à ses gémissements: (4)
 
@@ -2668,14 +2573,12 @@ Marzi à Michel-Ange, 20 juin 1531) — Cf. lettre de Sébastien del
 sauteraient comme des serpents. » (Saltariano come serpenti.)
 
 ï et Michel-Ange, au sujet du tombeau: Michel-Ange (38
-promettait de faire un nouveau modèle du monu-
-ment, très réduit, (1) de le terminer en trois ans, et
+promettait de faire un nouveau modèle du monument, très réduit, (1) de le terminer en trois ans, et
 de payer tous les frais, ainsi que 2.000 ducats, pour
 ; tout ce qu'il avait reçu déjà de Jules et de ses héri- LE
 tiers. « Il suffit qu'on trouve dans l'œuvre, écrivait Sé-
 bastien del Piombo à Michel-Ange, un peu de votre
-. odeur » (un poco del vostro odore). (2) — Tristes condi-
-tions, puisque c'était la faillite de son grand projet, que
+. odeur » (un poco del vostro odore). (2) — Tristes conditions, puisque c'était la faillite de son grand projet, que
 Michel-Ange signait là, et qu'il lui fallut encore payer
 pour cela! Mais d'année en année, c'était en vérité la T'(1eR
 faillite de sa vie, la faillite de la Vie, que Michel-Ange
@@ -2691,8 +2594,7 @@ accrue, depuis que Michel-Ange avait refusé de contri- A
 buer à l'asservissement de Florence en élevant une for- 0)
 teresse pour dominer la ville: — trait de courage, qui
 montre assez, chez cet homme craintif, la grandeur
-(1) ne s'agissait plus que de livrer pour le tombeau, qui de-
-vait être élevé à San Pietro Vincoli, six statues commencées et
+(1) ne s'agissait plus que de livrer pour le tombeau, qui devait être élevé à San Pietro Vincoli, six statues commencées et
 à non finies. (Sans doute, Moïse, la Victoire, les Esclaves, et les figures
 de la grotte Boboli) Ne:
 (2) Lettre de Sébastien del Piombo à Michel-Ange. (6 avril 1532)
@@ -2792,7 +2694,7 @@ Etsije ne me trompe, — (oh! Dieu veuille que je me trompe
 — je vois, Seigneur, je vois le châtiment éternel, pour le
 mal que j'ai fait en connaissant le bien. Et je ne sais plus
 
-;: Poésies, XLIX. Voir aux Annexes,
+Poésies, XLIX. Voir aux Annexes,
 
 Il a été tiré de ce cahier treize exemplaires sur
 whatman ainsi distribués:
@@ -2852,8 +2754,7 @@ demander un abonnement recommandé; fous les cahiers
 de l'abonnement recommandé sont empaquetés à part et tu
 recommandés à la poste: la recommandation postale,
 comportant une transmission de signature, garantit le
-destinataire contre certains abus; pour cette recom-
-mandation, pour tous pays, en sus, cinq francs. à
+destinataire contre certains abus; pour cette recommandation, pour tous pays, en sus, cinq francs. à
 Automatiquement et sans augmentation de prix les
 exemplaires sur whatman sont tous recommandés et
 envoyés aux souscripteurs dans des enveloppes-sacs.
@@ -2868,6 +2769,4 @@ A partir du premier janvier qui suit l'achèvement
 
 d'une série, le prix de cette série est porté au moins
 
-au total des prix marqués; ainsi à dater du pre-
-
-mier janvier 1906 la sixième série complète se vend
+au total des prix marqués; ainsi à dater du premier janvier 1906 la sixième série complète se vend

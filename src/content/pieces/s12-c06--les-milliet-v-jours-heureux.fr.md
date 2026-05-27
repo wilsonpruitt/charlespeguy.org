@@ -82,9 +82,7 @@ botte.…., qu'est-ce que c'est que tout auprès
 de clouer sur un lit un être tremblant nu,
 d'enserrer ses mouvements, de lui imposer
 
-son haleïne, de s'installer en lui, de s'y mou-
-
-voir, de le souiller par la rieuse expansion A
+son haleïne, de s'installer en lui, de s'y mouvoir, de le souiller par la rieuse expansion A
 
 de sa joie la plus basse? La femme qui hors ES
 
@@ -114,7 +112,7 @@ méprisait.. Il résolut de penser que bien LA
 des maîtresses aussi se donnent par devoir.
 Et il cherchaït à discerner d'autres idées
 ; encore, créatrices de joies d'amour:
-3 Il y a l'idée du plaisir que l'on cause. Je:
+Il y a l'idée du plaisir que l'on cause. Je:
 Ê dis que l'on cause. Le plaisir de l'autre ne me
 3 réjouit que parce que je le cause... Quand les
 É femmes viennent nous dire que le plaisir de
@@ -142,8 +140,7 @@ immédiatement dans l'exécution d'un acte
 Et encore cette idée que — toujours
 cause de vous — une grande personne devient
 une enfant; que celle qui, ce matin encore,
-était une « dame qui « dirigeait » un inté-
-rieur enseignait des enfants, est maintenant
+était une « dame qui « dirigeait » un intérieur enseignait des enfants, est maintenant
 elle-même une enfant, qui court après une joie
 
 de son corps aussi rageusement qu'une petite
@@ -198,15 +195,13 @@ Tristan. Il mène directement à la mort its
 KEn Pardon. A l'Éternité. AI.
 — Au regard des individus, c'est exacte-
 é ment la même chose.
-Ah ça! est-ce que par hasard vous dé-
-laissez l'Éternité! ‘1:14
+Ah ça! est-ce que par hasard vous délaissez l'Éternité! ‘1:14
 Je délaisse tout ce qui n'est pas à saplace.
 
 Et l'Éternité n'est pas à sa place dans les
 ; affaires humaines. Et vous le savez comme
 nous; vous le dites; c'est bien la plus
-cynique des contradictions que votre perpé-
-tuelle prétention de nous induire en Éternité. jE
+cynique des contradictions que votre perpétuelle prétention de nous induire en Éternité. jE
 Car vous êtes tous les mêmes. Vous com_ mencez par vous retirer sur la montagne,
 vous n'avez pas assez de formules pour nous
 faire savoir qu'entre vous les nôtres iln'y:
@@ -252,7 +247,7 @@ la chose « en puissance Ceux-ci (7) se tuent
 à chercher comment le Genre pourrait bien,
 tout en restant un lieu d'indiscernables, devenir cette chose-là, que je tiens, que je suis!
 définir un Dieu tel que, sans qu'il cessât d'être
-éternel — c'est-à-dire qui ne choït pas —, sa
+éternel — c'est-à-dire qui ne choït pas sa
 chute fît cependant partie de sa définition!
 Celui-ci (9), qu'on disait mort au monde sensible dont l'Infini semblait honnête, ne vaut
 pas mieux que les autres: le Fini le tourmente,
@@ -285,20 +280,16 @@ cœur s'émeut toujours du sort des malheureux
 qui sentent qui agissent; ce que vous leur:
 reprochez, au fond c'est leur grandeur... Le
 — C'est peut-être leur grandeur, maïs c'est
-sûrement notre malheur... Car avec eux s'in-
-stallent au gouvernement des choses terrestres à
+sûrement notre malheur... Car avec eux s'installent au gouvernement des choses terrestres à
 avec quel prestige!) des valeurs qui, de
-leur propre aveu, ont été faites hors de l''hu-
-manité; en rupture d'elles; bien mieux, sont 3%
+leur propre aveu, ont été faites hors de l''humanité; en rupture d'elles; bien mieux, sont 3%
 proprement des fruits d'anesthésie humaine...
 Naturellement, toute la fonction humaine en
 , devient empêchée... Et les hommés consternés
 s'entre-regardent se disent: « Quel est donc;
 aux sources de vie ce poison qui depuis:
-(13) On sait que cette intention de faire servir la Méta-
-physique à la solution de problèmes pratiques fait le fond
-de l'œuvre de M. Bergson. A cette œuvre Eleuthère pro-
-posait comme sous-titre: Cours de Métaphysique appliquée. il
+(13) On sait que cette intention de faire servir la Métaphysique à la solution de problèmes pratiques fait le fond
+de l'œuvre de M. Bergson. A cette œuvre Eleuthère proposait comme sous-titre: Cours de Métaphysique appliquée. il
 
 deux mille ans pacifie nos orgueils, adoucit
 . nos ardeurs, sublime nos volontés...? » Et ils
@@ -324,7 +315,7 @@ votre passé que vous reniez.…. CEE LE
 qu'une horrible mer morte s'il n'y avait au
 monde que des conciliateurs bénins des
 
-0 LEUTHÈRE alla voir le comte qui lui
+LEUTHÈRE alla voir le comte qui lui
 avait écrit qu'il était souffrant. C'était un
 homme d'une cinquantaine d'années qui, élevé
 Rae dans la religion des lettres des formes, puis mur
@@ -351,12 +342,8 @@ paraître plus riches qu'ils ne sont (pour
 (pour ne pas faire ce qu'ils doivent). Ceux qui
 consentent à paraître ce qu'ils sont, qu'estce que peut leur faire qu'on sache leur
 situation!... En somme, la liberté ici atteinte,
-c'est la liberté de mentir... Or, cette liberté-
-paraît que le commerce ne peut pas s'en pas-
-ser), rien de mieux; qu'on la réclame même
-au nom d'un certain bluff nécessaire aux fonc-
-
-tions mondaïines, mieux encore; mais qu'on
+c'est la liberté de mentir... Or, cette libertéparaît que le commerce ne peut pas s'en passer), rien de mieux; qu'on la réclame même
+au nom d'un certain bluff nécessaire aux fonctions mondaïines, mieux encore; mais qu'on
 la réclame au nom de la « morale c'est plutôt
 
 (Cependant la présidente relevait ses jupes
@@ -384,8 +371,7 @@ est que votre éducation sociale est toute
 qui l'oppose le plus nettement à la vie sauvage — n'est pas qu'on s'y mêle constamment
 de nos affaires? Et qu'est-ce que le sentiment:
 social, si ce n'est l'acceptation indolore —
-presque réflexe — de cette continuelle intru-
-sion?... Tenez, c'est ce que les Juifs ont à un
+presque réflexe — de cette continuelle intrusion?... Tenez, c'est ce que les Juifs ont à un
 haut degré... vous, vous en êtes toujours,
 au fond, à l'idéal du château-fort, où l'on naïssait, où l'on se mariait, où l'on mourait, où
 l'on jugeait, où l'on héritait..., sans qu'en effet
@@ -394,14 +380,13 @@ aujourd'hui contre une déclaration de votre à
 fortune, comme vous le faites contre une dé- #4
 claration d'association, comme vous le faites:
 contre une feuille de recensement, comme vos
-à: aïeux ont le faire contre la déclaration À
+aïeux ont le faire contre la déclaration À
 de la naissance de leur fils, du mariage de.
 leur fille, de la mort de leur père... Car ils
 ont en faire une vie, vos aïeux, quand on: à
 leur demanda ces choses qui vous semblent à
 maintenant toutes naturelles! C'est ce qui.
-fait penser que vous vous ferez aussi à celle-
-là... Mais, croyez-moi, hâtez-vous de vous faire se
+fait penser que vous vous ferez aussi à cellelà... Mais, croyez-moi, hâtez-vous de vous faire se
 une raison: car la vie sociale deviendra de à
 plus en plus intense, on se mélera de plus À
 en plus de vos affaires...
@@ -424,7 +409,7 @@ on n'en devait pas attendre... Il y a une » liberté qui consiste à poser sa v
 
 en dehors de lui, proprement à faire « ce
 
-qu'on veut »: cette liberté-là, il est clair que
+qu'on veut cette liberté-là, il est clair que
 
 2- la République ne la donnerait pas, qu'elle
 
@@ -444,9 +429,7 @@ droit, elle est un sentiment...
 
 4 — Cela revient à dire, dit le comte, que ce -
 
-que tout le monde appelle liberté, la Républi-
-
-que ne le donnera pas; mais qu'en revanche
+que tout le monde appelle liberté, la République ne le donnera pas; mais qu'en revanche
 elle donnera — elle suggérera! — quelque
 chose qui n'est pas du tout la liberté,
 mais qu'il vous plaît d'appeler ainsi. Car
@@ -497,9 +480,7 @@ compare pas. Mais nous, ne pourrons-nous
 pas — évoquant l'homme des divers âges
 célébrant sa propre attitude — comparer les
 : divers tons dont il le fit? Et n'y a-t-il pas lieu
-de sourire si l'on voit avec quel fracas la pré-
-
-sente humanité célèbre une attitude dont le
+de sourire si l'on voit avec quel fracas la présente humanité célèbre une attitude dont le
 trait principal est que, sous un ciel gris, mille
 . formes quelconques grouillent de cabarets en
 cabarets, si l'on songe d'ailleurs avec quelle
@@ -512,7 +493,7 @@ en franchissant les Propylées?
 — Pour beaucoup d'hommes, en effet, il y
 aurait lieu de sourire. IL est en effet des
 hommes qui ne sauraient déclarer beau que
-ce qui ressemble à un « phénomène »: c'est-
+ce qui ressemble à un « phénomène c'est-
 à-dire ce qui, se détachant sur un fond mono-;
 tone indéterminé — l'espace, le temps, le.
 silence — y produit l'effet d'une rupture
@@ -522,23 +503,19 @@ pittoresque à l'homogène, la surprise à la
 félicité. Pour ceux-là, naturellement, cette:
 seule société peut être déclarée belle dans En.
 
-laquelle un groupe, par son élévation au-
-
-dessus d'une immensité de misère, apparaît
+laquelle un groupe, par son élévation audessus d'une immensité de misère, apparaît
 
 comme une éclatante saillie, tandis qu'elle
 
 manque à toutes les conditions du beau
-. cette actuelle société dont le propre est préci-
-sément de naître d'heure en heure à plus
+. cette actuelle société dont le propre est précisément de naître d'heure en heure à plus
 Il est d'autres hommes qui ont du beau un
 autre sentiment: qui sont surtout sensibles, AS
 4 devant le monde extérieur, à l'idée de l'énergie ira
 
 incolore qu'il exprime, qui demandent
 
-- leurs émotions à ce qui leur signifie l'imma-
-nence d'une puissance continue la promesse
+- leurs émotions à ce qui leur signifie l'immanence d'une puissance continue la promesse
 d'une transformation sans limite. Ceux-là sont
 
 moins émus par plus brillant soliste que
@@ -552,9 +529,7 @@ par la vue de la démocratie monotone
 
 De ces deux sortes d'hommes, les premiers,
 
-Le: exclusivement sensibles à ce qui leur res-
-
-semble, ne considèrent du monde que la
+Le: exclusivement sensibles à ce qui leur ressemble, ne considèrent du monde que la
 matière vivante: la vie leur semblant donc
 une chose commune — commune à tout ce
 qu'ils voient ce n'est qu'à une qualité de
@@ -644,8 +619,7 @@ ment au-delà de ses rapports avec mon
 agrément; je me trouverais un assez pauvre Ta
 De cœur si, percevant alors le sens de ce mouve
 44 ment qui est un soulèvement vers un peu plus
-- sentais soudain toutes les survies de mon édu-
-se cation académique sombrer dans l'émotion de
+- sentais soudain toutes les survies de mon éduse cation académique sombrer dans l'émotion de
 SEE la sympathie sociale. STE
 ne nee Eleuthère: — LRO
 
@@ -703,7 +677,7 @@ Par une flatterie qu'il comprit, mais qu'il,
 trouva un peu grosse, elle lui demanda alors
 (1) Toutefois il ne méconnaissait pas l'espèce de lien
 étrange qu'il y a entre la spéculation vraiment philoso-
-,; phique une certaine austérité de vie. Partout l'étude de
+phique une certaine austérité de vie. Partout l'étude de
 Péternel, disait-il, semble avoir comporté une certaine
 à excision de la jouissance temporelle. Des philosophes
 fortunés comme Schopenhauer ou Stuart Mill semblent
@@ -740,9 +714,7 @@ Vainement. Elle résolut alors de le croire
 É soucier de son attention. Elle n'y réussit pas.;
 Au fond, elle sentait l'homme habitué aux
 faveurs dites précieuses pour qui le dévoilement d'une femme comme elle ne serait
-5 point une étonnante nouvelle. (De tels anté-
-
-cédents chez un philosophe! c'était déloyal.)
+5 point une étonnante nouvelle. (De tels antécédents chez un philosophe! c'était déloyal.)
 — Elle sentait aussi qu'une longue tranf
 
 à quille possession de femmes avait ruiné en lui
@@ -793,13 +765,9 @@ ici certains hommes dits « du jour »... Tout au plus ayonsnous fait comme Pier
 peintces hommes tels qu'ils devraient être, s'ils ressemblaient
 à l'image que se font d'eux ceux qui ne les connaissent pas. Le
 
-A? nil y avait Paul Lenfant, homme d'esprit
+nil y avait Paul Lenfant, homme d'esprit
 
-honoraire. — Condamné à la plume, il véné-
-
-rait l'épée. IL appelait le Roi: les républi-
-
-cains, toujours naïfs, disaient qu'il ne pensait
+honoraire. — Condamné à la plume, il vénérait l'épée. IL appelait le Roi: les républicains, toujours naïfs, disaient qu'il ne pensait
 
 pas les sottises qu'il écrivait.
 
@@ -813,11 +781,7 @@ orgueil était sans joie sa haine sans chaleur. Sa face tout son être disaient 
 
 vénérait que l'énergie.
 
-M. Il y avait Lyonnel de Pinto-Leide, drama-
-
-turge « amour ». — C'était un grand clas-
-
-sique: il avait observé l'unité d'intérêt, non
+M. Il y avait Lyonnel de Pinto-Leide, dramaturge « amour ». — C'était un grand classique: il avait observé l'unité d'intérêt, non
 
 3 seulement dans chaque pièce, mais même
 
@@ -838,8 +802,7 @@ porter ombrage par aucune personnalité.
 C'était une ombre cultivée.:
 : Puis des littérateurs de moindre importance,
 dont les œuvres toutefois étaient dans les
-Enfin des nécessités de table: des académi-
-ciens des épaules de femmes.:
+Enfin des nécessités de table: des académiciens des épaules de femmes.:
 Tous ces gens avaient à l'égard d'Eleuthère
 de l'étonnement qu'un étranger pénétrât dans
 leur cercle, en même temps de la considération pour l'honneur qu'il en avait. Surtout ils
@@ -853,8 +816,7 @@ disaient: l'entr'acte du « deux le soir de la
 Eleuthère trouvait cela tout simple: après “3
 
 tout, pensait-il, les serruriers aussi ont leur
-vocabulaire ils en sont fiers... Ce qui l'inté-
-ressait davantage, c'était les prétentions
+vocabulaire ils en sont fiers... Ce qui l'intéressait davantage, c'était les prétentions
 .scienti-philosophiques de ceslittérateurs. Faire
 giques (Quinton Le Dantec servaient 3 coup) — était visiblement un de leurs soucis:
 es: on voulait faire rentrer tel mouvement de
@@ -891,8 +853,7 @@ esprit s'arrête si tôt: comme ils savent donner
 sont sujets à prendre ces autres formes d'une
 
 : même idée pour d'autres idées.
-Ce que le monde appelle un homme intelli-
-gent, c'est un homme qui a beaucoup de
+Ce que le monde appelle un homme intelligent, c'est un homme qui a beaucoup de
 formes de rechange pour peu d'idées. À
 Une chose encore le frappait, c'est que ces
 gens, si clairement condamnés aux livres, à la
@@ -922,8 +883,7 @@ hôtels? N'était-ce pas aussi le sentiment que
 Loin du public, deux écrivains ne sauraient
 se regarder que comme deux augures.
 D'ailleurs ils louaient peu. Gens d'affaires
-littéraires, il semblait que le Beau ne les regar-
-dât point... De temps en temps, toutefois, ils
+littéraires, il semblait que le Beau ne les regardât point... De temps en temps, toutefois, ils
 
 se donnaient les airs d'une grande puissance
 
@@ -934,8 +894,7 @@ A La conversation dévia vers la politique. es.
 Marcel Leleude méprisa lentement des;
 à ouvriers qui avaient dans la journée fait une
 a manifestation antipatriotique... Il parlait à
-, distance, tolérant tout au plus les approba-
-tions. Visiblement il agissait par influence Le.
+, distance, tolérant tout au plus les approbations. Visiblement il agissait par influence Le.
 
 : non par sympathie.
 Eleuthère sentit qu'une partie de l'assistance
@@ -957,8 +916,7 @@ sentation obligé à vaincre... Trouverait-il
 
 est empereur avant d'être allemand. Son 2 à
 
-peuple s'en ‘plaint assez. Les rois, par-
-dessus les frontières, sont l'un pour l'autre
+peuple s'en ‘plaint assez. Les rois, pardessus les frontières, sont l'un pour l'autre
 
 des rois avant d'être des étrangers. Ils se
 
@@ -969,8 +927,7 @@ HER d'Angleterre... Un roi vainqueur d'un roi
 son peuple qu'à sauvegarder la dignité de sa
 classe. Il dit au roi battu: « Mon cousin, vous
 RU: êtes mon hôte... » (3)
-Maintenant la « gauche » était lâchée. Est-
-ce qu'en effet la manière dont on vit, dont on
+Maintenant la « gauche » était lâchée. Estce qu'en effet la manière dont on vit, dont on
 se loge, dont on se nourrit, dont on s'habille,
 : ne vous définit pas d'autrement près que le sol
 À jeune femme déclara qu'elle se sentait bien plus
@@ -995,13 +952,11 @@ de la classe ouvrière, non sans leur faire sentir
 quelle capitulation c'était pour eux de glorifier
 les sentiments complexes — c'est-à-dire intellectualisés — surtout d'y ranger le sentiment de patrie.
 Ils s'écrièrent alors qu'on les trahissait;
-qu'on savait très bien que, pour eux, « senti-
-ment complexe » voulait dire sentiment d'un;
+qu'on savait très bien que, pour eux, « sentiment complexe » voulait dire sentiment d'un;
 moi plus malaisé à percevoir, plus entortillé
 dans les racines de l'être, plus fondamental,
 plus « inconscient »... quoi on eût leur FaeE
-répondre que le sentiment d'un moi plus fon-
-damental n'a rien à voir avec l'élévation
+répondre que le sentiment d'un moi plus fondamental n'a rien à voir avec l'élévation
 morale, mais tout au plus avec une meilleure
 connaissance de soi-même). Et ils récitaient: ET
 - la classe vous définit dans le Conscient, la à
@@ -1043,8 +998,7 @@ du général de L** frappé pour communication
 parce que les généraux étaient pour les soldats
 comptait pas) qu'il importait pour la discipline que la tête de l'armée apparût intan-;
 gible. Un fougueux césarien, Raoul Léon, en. À
-profita pour développer ce thème que la pos-
-sibilité de frapper des généraux coupables
+profita pour développer ce thème que la possibilité de frapper des généraux coupables
 sans préjudice pour la discipline n'existait à
 : que sous un régime autocratique, parce
 - qu'alors les généraux cessaient d'être la tête
@@ -1058,7 +1012,7 @@ Eleuthère sentit le coup la nécessité d'y pe:
 aux généraux bien mieux sous une République
 que sous une Monarchie militaire. C'est ce
 
-2 Dudvait admirabl des ofli
+Dudvait admirabl des ofli
 avait admirablement compris un des ofl-.
 FASS ciers les plus intelligents de ces dernières
 Sa années. « Jamais, disait-il en parlant de grands
@@ -1067,7 +1021,7 @@ chefs qu'il croyait fautifs, jamais aucun ré-
 SES la République! Ils sont étonnants! Sous un
 souverain militaire, ils seraient cuisiniers en
 second dans les pompiers de Fouilly-lesFPS Oies… » A
-— Quel est cet officier « intelligent »? deie manda Léon sévèrement.:
+— Quel est cet officier « intelligent deie manda Léon sévèrement.:
 — Le commandant Esterhazy, dans sa dé-
 3 position devant le consul de Londres.
 Léon allait bondir. Un regard de la pré-
@@ -1093,8 +1047,7 @@ monde parlait à la fois.
 Profitant d'une accalmie,
 — Je crois, dit Eleuthère, qu'en précisant -
 un peu nous serons tous d'accord...
-Cette prétention la perspective d'une en-
-tente indisposèrent tout le monde.
+Cette prétention la perspective d'une entente indisposèrent tout le monde.
 — Nous confondons nous comparons;
 pêle-mêle deux ordres de choses absolument
 distincts: d'une part les œuvres, les compositions (de peinture ou de musique), d'autre
@@ -1147,7 +1100,7 @@ de ce que sont les choses, il s'agit de l'effet
 qu'elles nous font. Le
 Quelqu'un dit encore
 — Un son est une chose qui se prolonge, il à
-ï: nous donne une sensation qui s'accumule,
+nous donne une sensation qui s'accumule,
 qui se multiplie par elle-même à partir de son à
 commencement; tandis qu'une couleur épuise
 dans son apparition, dans la surprise qu'elle:
@@ -1178,8 +1131,7 @@ bien plus que d'aucun besoin d'émotion d'art.
 Ici tout le monde s'insurgea. Qu'est-ce que:
 ; c'était que cette distinction entre la sensation l'émotion d'art? Est-ce que la sensation n'était pas la base même de l'émotion
 d'art? (Louis Bloch expliqua l'origine du mot:
-Es « esthétique ».) Bien mieux! est-ce que la sen-
-sation n'était pas l'art lui-même? Celui-là, dit
+Es « esthétique ».) Bien mieux! est-ce que la sensation n'était pas l'art lui-même? Celui-là, dit
 ; Pinto-Leide, qui sait conduire rafliner sa
 . sensation est un artiste au même titre qu'un
 
@@ -1209,8 +1161,7 @@ Part qu'elle implique c'est presque tout le monde), ceuxlà ont une émotion qui
 de s'émouvoir de n'importe quelle malheureuse qu'on trouvera dans la rue: ils ont une émotion, ils n'ont à aucun
 degré une émotion esthétique.
 
-puissance sur les nerfs, peut très bien empé-
-cher la formation de toute idée, on peut très
+puissance sur les nerfs, peut très bien empécher la formation de toute idée, on peut très
 bien de ce point de vue y voir un art inférieur.
 — Et un Wagner alors, qui confisque tout
 notre jugement avec sa chromatique, serait le
@@ -1240,8 +1191,7 @@ pas la nature, qu'elle n'en veut rien savoir. à
 — Elle donnera, dit Felizay, l'idée d'une
 chose sortie toute entière du cerveau de …
 l'homme. LE
-— ne lui est pas particulier, dit Eleu-
-thère: celui qui fait un temple ou un sphinx
+— ne lui est pas particulier, dit Eleuthère: celui qui fait un temple ou un sphinx
 donne aussi cette idée.:
 — Elle donne l'idée d'un mouvement. Une:
 phrase musicale est une chose qui se déroule,
@@ -1252,11 +1202,9 @@ Eleuthère. Une pièce de théâtre, un roman
 sont aussi des choses qui se déroulent devant. à
 nous. Non, l'idée propre à la musique, celle
 : qu'elle donne que les autres arts ne sau-:
-raient donner, c'est l'idée d'existences « méta-
-physiques »... D'abord, une phrase musicale
+raient donner, c'est l'idée d'existences « métaphysiques »... D'abord, une phrase musicale
 3 semble un être métaphysique, je veux dire "1
-exempt des principales conditions de l'exis-
-tence matérielle: elle semble n'être pas dans
+exempt des principales conditions de l'existence matérielle: elle semble n'être pas dans
 l'espace, elle semble n'être pas — ou presque pas — extérieure à la conscience où elle:
 apparaît, mais venir comme du fond même de
 cette conscience. En somme, elle offre cette
@@ -1318,7 +1266,7 @@ musique avec paroles aura toujours les préférences de
 ceux qui au fond n'aiment pas la musique (presque tout le
 5 monde): les paroles les soulagent un peu de cette absence
 d'objet où les force la musique.— Mêmes réflexions pour la
-musique « à solistes »: ici c'est la forme extérieure du
+musique « à solistes ici c'est la forme extérieure du
 pianiste, du chanteur, surtout de la chanteuse, qui apporte
 la notion d'objet aide tant de gens à supporter la musique.
 (10) Moins vrai depuis certaine musique moderne, qui dit:
@@ -1361,7 +1309,7 @@ trouvera les points fixes. RIT
 
 — Il le dit, mais il ne le fait pas... Une fois
 qu'il a saisi le mouvement — le mouvement …
-de la « vie par exemple, « élan vital » —;
+de la « vie par exemple, « élan vital »
 ce n'est pas du tout par une « diminution » ou;
 
 par une modification quelconque de ce mouvement qu'il trouve les formes vivantes, mais
@@ -1431,9 +1379,7 @@ De son côté, il faisait des concessions.
 comprenait que pour ces gens-là le monde
 extérieur existait, il leur épargnait les idées.
 
-D'ailleurs les voir de temps en temps l'amu-
-
-sait. — bien, pensait-il, la croyance un
+D'ailleurs les voir de temps en temps l'amusait. — bien, pensait-il, la croyance un
 peu agaçante qu'ils ont d'être supérieurs.
 , Mais, en somme elle s'explique: ils sont très
 supérieurs à leur public; tandis que tous ceux
@@ -1444,7 +1390,7 @@ Il en était flatté. IL s'avouait d'en être flatté.
 cette faiblesse, il en était affranchi.
 Et les femmes lui faisaient fête.
 Elles l'interrogeaient sur l'amour ses
-Un jour, c'était sur l'amitié d'homme à,
+Un jour, c'était sur l'amitié d'homme
 femme. — Il la croyait impossible. À cause
 ; principalement du refus de la femme d'abdi-
 à quer la conscience de son pouvoir. Une;
@@ -1455,18 +1401,14 @@ Se qu'un homme soit près d'elle sans désir;
 voulait... Elles protestaient: c'était si bon
 4 cette certitude de n'être point désirée! c'était
 
-si reposant! Mais il posait la question cru-
-ciale: une femme admettra-t-elle qu'un homme
+si reposant! Mais il posait la question cruciale: une femme admettra-t-elle qu'un homme
 soit assez son « ami » pour qu'elle tolère
-l'idée qu'il la yît se dévêtir sans en être trou-
-
-blé? Elles sursautaient. Naturellementnon.…
+l'idée qu'il la yît se dévêtir sans en être troublé? Elles sursautaient. Naturellementnon.…
 Alors? Qu'est-ce qu'une amitié où l'un se dit
 que l'autre le considère toujours comme un
-En somme, disait-il, l'amitié d'homme à;
+En somme, disait-il, l'amitié d'homme
 femme exige deux conditions:
-La première c'est que l'homme soit affranchi du désir de la femme. C'est rare. Pour-
-tant, un homme un peu dégénéré a des types
+La première c'est que l'homme soit affranchi du désir de la femme. C'est rare. Pourtant, un homme un peu dégénéré a des types
 à de femmes qui ne l'excitent pas.
 Mais la seconde condition est bien autrement rare. C'est que la femme accepte cet
 D'ailleurs, remarquait-il, les femmes sont
@@ -1480,7 +1422,7 @@ clairement l'intérêt de votre sexe que nous pas-
 ( sions pour constamment épris!.… D'ailleurs,
 Mere c'est drôle: on se sent comme des devoirs
 5 envers une femme qu'on passe pour aimer.
-À; Puis, disait-il encore, rester « l'ami » d'une
+Puis, disait-il encore, rester « l'ami » d'une
 femme, c'est lui supprimer l'occasion de se
 Fe. refuser. Et les femmes n'aiment pas ça... Il
 ; faire souffrir. IL y a la joie d'affirmer son
@@ -1491,8 +1433,7 @@ son droit sur une chose en la refusant qu'en
 à femme sollicitée, füt-ce la plus amoureuse,
 c'est de se refuser; il comprenait que, pour
 4 se goûter cette joie, certaines aient manqué les
-plus belles situations. Les femmes écou-
-taient, indulgentes, ces incursions dans leur
+plus belles situations. Les femmes écoutaient, indulgentes, ces incursions dans leur
 a âme, non sans laisser entendre qu'elles
 étaient bien plus compliquées que ça.
 À son tour, il consultait certains penseurs
@@ -1606,8 +1547,7 @@ D'ailleurs il déclarait ne demander au
 théâtre que des émotions très simples, les )
 demander bien plus aux comédiens qu'aux
 auteurs... Une pièce, disait-il(loin des auteurs),
-c'est surtout une occasion de gestes. Le crité-
-rium de sa valeur en tant que pièce c'est
+c'est surtout une occasion de gestes. Le critérium de sa valeur en tant que pièce c'est
 qu'elle donne son maximum d'effet par le fait
 qu'elle est jouée. Il faisait remarquer qu'une
 des scènes les plus réputées du théâtre contemporain, c'était dans Amants la scène de la
@@ -1651,8 +1591,7 @@ l'amour, du mouvement, du concept...; mais
 : on le trouvait tout à fait inférieur dans le:
 sentiment de « effet littéraire ».
 Les haïines aussi se précisaient.
-- On le haïssait de la vérité de son dilettan-
-tisme: car tous ces « dilettantes » n'arrêtaient
+- On le haïssait de la vérité de son dilettantisme: car tous ces « dilettantes » n'arrêtaient
 pas de s'efforcer.
 On le haïssait de ses aveux d'ignorance. À
 maintes questions — sur le péril chinois, sur
@@ -1710,9 +1649,7 @@ s'y renversent! Division des fonctions à
 cacha le portrait de madame Camignani, non
 ce sans en vouloir à celle qui l'y obligeait.
 Puis il se regarda dans la glace. Il arrangea
-sa coiffure. Hélas! le moindre baiser déran-
-
-gerait tout ça... Comme la coiffure des femmes
+sa coiffure. Hélas! le moindre baiser dérangerait tout ça... Comme la coiffure des femmes
 
 tient mieux dans l'amour! Quelle injustice!
 
@@ -1739,9 +1676,7 @@ susceptibilités?... C'est bien tout cela. C'est a
 Dee aussi le vague sentiment qu'il n'y a pas à “4
 RTE. avoir de ménagements avec les hommes. Ils Die
 sont les privilégiés!.…; HAS
-5 On sonna. Il sentit qu'il eût préféré pour-
-
-suivre cette analyse. Il alla ouvrir. Il fit bonne:
+On sonna. Il sentit qu'il eût préféré poursuivre cette analyse. Il alla ouvrir. Il fit bonne:
 contenante. Il se réjouit qu'elle eût venir.
 Tant d'empêchements eussent surgir! Il
 
@@ -1768,9 +1703,7 @@ Ils prirent du thé. Ils causèrent des journaux du matin. Ils feuilletèrent de
 Il était plus de cinq heures. La présidente
 décida qu'elle n'était pas venue pour cela...
 
-Elle ôta son chapeau, puis sa broche. Il s'ap-
-
-procha d'elle... Comme il l'embrassait depuis
+Elle ôta son chapeau, puis sa broche. Il s'approcha d'elle... Comme il l'embrassait depuis
 
 un temps, il sentit que les baisers qu'elle lui
 
@@ -1788,14 +1721,10 @@ ne le lâchait plus: « une femme petite n'est
 jamais belle! » Alors il s'appliqua à penser
 combien elle était désirée, honorée, combien
 d'hommes voudraient être à sa place, &c.…
-Enfin, l'obscurité aidant surtout l'obstina-
-
-tion qu'il mit à ne pas regarder le visage de
+Enfin, l'obscurité aidant surtout l'obstination qu'il mit à ne pas regarder le visage de
 
 2 partner à s'enivrer des caractères les
-plus généraux de l'anatomie féminine, il réus-
-
-sit à se croire avec sa belle Italienne.
+plus généraux de l'anatomie féminine, il réussit à se croire avec sa belle Italienne.
 
 Et la présidente se sentit aimée.
 
@@ -1819,7 +1748,7 @@ ne — Et cette autre? (Il en fit une plus petite
 notre grandeur sera « déterminée c'est-à- ES
 DE à dire telle que toute grandeur plus petite
 à elle sera en même temps autre qu'elle.
-PARA Elle ne répondait plus. Elle commençait à:
+PARA Elle ne répondait plus. Elle commençait
 ne — Et qu'alors nous n'aurons la grandeur
 ; « la plus petite possible » — l'infiniment
 SE petite — qu'en infirmant cette notion de
@@ -1908,8 +1837,7 @@ FER Elle prenait pour elle. Elle buvait ses
 FETE — Mais d'autres sont plus grands. C'est de:
 54 ceux qui, par-dessus ce naufrage voulu des PRES
 formes, font des formes nouvelles... Trois nee:
-Ria grades dans Le connaître: tout en bas, le crou-
-se pissement dans les catégories héritées — c'est
+Ria grades dans Le connaître: tout en bas, le crouse pissement dans les catégories héritées — c'est
 AS la mort; plus haut, le retour aux choses ellesRARE mêmes — c'est la passion; plus haut encore,
 l'invention de catégories — c'est l'action... RES
 ‘is Elle goûtait moins ces dernières réflexions.
@@ -1938,8 +1866,7 @@ pensais, où j'aimais... pendant que, vous pa.
 autres, vous faisiez des livres. LASER
 Puis, laissant son cas:
 
-qui, pendant des années, amassent des émo-
-tions sans songer à en rien faire qui un jour
+qui, pendant des années, amassent des émotions sans songer à en rien faire qui un jour
 — souvent par hasard, parce qu'il faisait trop
 mauvais pour sortir, — en font quelque chose.
 Ils s'appellent Lamartine, Rousseau, Des-?
@@ -1967,7 +1894,7 @@ Et, à son tour, elle lui apprenait bien des
 Il fustigeait aussi son besoin de succès. Il la
 voyait heureuse du moindre article aimable,
 malheureuse du moindre « éreintement ».. Et
-voilà, disait-il, ce qu'ils croient une « orgueilleuse »!
+voilà, disait-il, ce qu'ils croient une « orgueilleuse
 Parfois elle se vengeait…
 Un jour elle lui dit:.
 Sais-tu ce qu'ils disent chez moi? Ils
@@ -2012,7 +1939,7 @@ cette religion du « mouvement »... Encore des PUS
 histoires de femmes, qui ne savent que
 
 l'émotion... Est-ce que La Bruyère a du
-« mouvement »? Est-ce que Flaubert a
+« mouvement Est-ce que Flaubert a
 à du « mouvement Est-ce que l'art, au
 fond, n'est pas le contraire du mouvement?
 Est-ce qu'il ne consiste pas à rendre le sens
@@ -2046,8 +1973,7 @@ son aristocratisme: sa furie d'étonner, son
 impolitesse, l'exploitation de l'impunité assurée à son sexe, son impudeur romantique,
 ses dons inorganisés, l'inorganisation montée
 
-en esthétique. Dans l'amour, elle l'exas-
-pérait: ses gaucheries, ses eries, ARE
+en esthétique. Dans l'amour, elle l'exaspérait: ses gaucheries, ses eries, ARE
 a CAC, ses minauderies, ses
 _. manières de « petite fille » qu'il eût trouvées …
 charmantes chez d'autres, Jui semblaient ne
@@ -2058,8 +1984,7 @@ Elle s'imposait. Il ne lui demandait même LE
 - fallait-il donc pour qu'elle comprit quonne à
 -l'aimait pas? Enfin, il se fatiguait avec elle
 a sans plaisir. ENTER
-jour-là, il lui en voulait plus que d'ha-
-bitude. (Il avait dû, pour elle, contremandee
+jour-là, il lui en voulait plus que d'habitude. (Il avait dû, pour elle, contremandee
 
 où il la savait sensible. Pourquoi, l'autre
 - jour, était-elle venue diner à neuf heures, ne
@@ -2083,8 +2008,7 @@ pendant qu'ils étaient tous émus devant ces
 dessins de Rembrandt, préparer le truisme
 fleuri qu'elle leur avait servi?.. Était-elle a
 : Elle était à bout:
-— Tu m'embêtes à la fin, avec ta « simpli-
-cité ».. Ce n'est pas ma partie. Là. Tu devrais:
+— Tu m'embêtes à la fin, avec ta « simplicité ».. Ce n'est pas ma partie. Là. Tu devrais:
 pourtant comprendre ça... Est-ce qu'on est
 simple quand on convie le monde entier à
 venir vous voir sentir? Et puis tu parles
@@ -2214,8 +2138,7 @@ répondre à ce drôle?
 — Je sais que les vôtres ne changeraient
 - Les deux jeunes gens protestaient. Les
 leurs aussi ne changeraient pas. Ils l'adjuce raient de le croire... Il les remerciait du
-regard, les savait sincères dans leur incon-
-naissance d'eux-mêmes.
+regard, les savait sincères dans leur inconnaissance d'eux-mêmes.
 Ils se mirent à flétrir l'immoralité d'une
 De: issue fatale... Ce serait trop immoral » s'il
 tombait, brutalement, à son âge, en pleine
@@ -2226,9 +2149,7 @@ le. naissance d'un Newton ou que l'apparition de
 à n'est pas moins immoral qu'un accident mal
 heureux... C'est l'accident qui est immoral.
 te Ils passèrent au « courage » des provoca- CE,
-2 teurs. Le cas de Déroulède provoquant Clemen-
-de ceau qu'il savait redoutable leur parut singu-
-lier. Par contre le cas de don Annibal qui se …
+2 teurs. Le cas de Déroulède provoquant Clemende ceau qu'il savait redoutable leur parut singulier. Par contre le cas de don Annibal qui se …
 CES défile dès qu'il sait Y qui il avoir affaire
 leur parut symbolique... Ils remarquèrent …
 qu'en italien « brave » veut dire « adroit ».… à
@@ -2287,8 +2208,7 @@ faut, » dit-il doucement. (3)
 — Mais sait-on toujours quand il le faut?
 Ne risque-t-on pas de croire qu'il ne le faut
 pas, alors qu'il le faut?... Le plus prudent,
-n'est-ce pas encore de consentir à être coura-
-geux sans être tout à fait sûr qu'il le faut?...
+n'est-ce pas encore de consentir à être courageux sans être tout à fait sûr qu'il le faut?...
 Et puis, dit-il tout bas, c'est peut-être une
 « valeur » encore pour autre chose: c'est une.
 victoire sur soi-même...
@@ -2367,12 +2287,11 @@ Il leur dit encore:
 
 la tête s'élève au-dessus de l'entourage, les
 
-membres se raidissent, les muscles se con-
-tractent, tout l'être prétend à se créer une
+membres se raidissent, les muscles se contractent, tout l'être prétend à se créer une
 différence avec l'extérieur... C'est clair, la;
 ù fierté c'est la volonté d'être différent... Or,
 É cette volonté-là, c'est elle qui fait les chauvins
-a: les snobs, c'est entendu, mais c'est par elle
+les snobs, c'est entendu, mais c'est par elle
 Le - aussi que quelque chose un jour se mit à difL. 149 Eleuthère.
 
 férer du monde inanimé. C'est elle quifaitla
@@ -2395,7 +2314,7 @@ s'élance indigné!.. Il a complètement oublié
 que c'est lui qui a commencé... C'est comme …
 
 cette Chimène! Qu'est-ce qu'elle nous veut à
-réclamer « justice »? Son père n'avait qu'à ne
+réclamer « justice Son père n'avait qu'à ne
 pas gifler don Diègue. Et ces filles du Rhin!
 Qu'est-ce qu'elles ont à traiter Alberich de
 voleur? Il était convenu que celui qui maudirait l'amour aurait l'Or... Suis-je assez platement juste? Suis-je assez enjuivé?..
@@ -2420,8 +2339,7 @@ chiens n'offense les humains...
 IL s'attristait encore d'avoir été toujours
 ; heureux de ne savoir point haïr..
 
-… Enfin il se sentait humain pour l'adver-
-saire.. Comme tous les grands vaincus.
+… Enfin il se sentait humain pour l'adversaire.. Comme tous les grands vaincus.
 Comme Hector. Comme Curiace…
 
 Le jour naïissaïit, très pur... Tout ce que les
@@ -2441,8 +2359,7 @@ Des hommes marcheraient auprès des jeunes
 
 6) Souvenir d'un grand poète qu'il eût aimé connaître.
 
-Un moment il se crut redevenu un philo-
-sophe: il chérissait l'idée de la mort... C'était,
+Un moment il se crut redevenu un philosophe: il chérissait l'idée de la mort... C'était,
 tout humainement, — amenée par l'idée de
 : jeune fille d'amour — l'idée d'échapper à la
 Il songeait à la fin de Socrate, au milieu
@@ -2456,8 +2373,7 @@ voulu que d'autres fussent comme lui: il avait
 Il songeait à ceux qui avaient laissé un nom,
 une œuvre... Qu'il doive être consolant de
 penser qu'on vivra dans la mémoire des
-hommes, il le trouvait vrai... Il pensait main-
-tenant que tout ce que les hommes ont dit
+hommes, il le trouvait vrai... Il pensait maintenant que tout ce que les hommes ont dit
 : unanimément toujours était vrai, seul vrai,
 seul profondément vrai... Mais ceux-là dont
 "4 l'œuvre reste touche les autres hommes, ils
@@ -2616,7 +2532,7 @@ Qu'il appelle sa chambre, et moi, son cabanon.
 
 Adieu, séjour vanté! Sans peine on te délaisse;
 Ton hôtel-hôpital suinte la tristesse;:
-On y respire un air plein de fades sueurs. -;
+On y respire un air plein de fades sueurs.
 La femme y jette en vain les parfums de sa grâce,
 : Cet arome divin, blanc nuage, s'efface
 Et se perd, englobé dans d'immondes vapeurs.
@@ -2629,8 +2545,7 @@ prendre un miroir pendant que nous chantions, afin de
 voir quand nous n'ouvrons pas la bouche suffisamment. -
 Ensuite, comme ma langue se retroussait toujours, il me la
 fait renfoncer avec une petite cuillère. Il regardait dans ma:
-bouche pour voir la manière dont je plaçais cette malheu-
-reuse langue, quand tout à coup je vois Suzanne étouffer de
+bouche pour voir la manière dont je plaçais cette malheureuse langue, quand tout à coup je vois Suzanne étouffer de
 rire. C'est que nous venions de sucer un bâton de réglisse
 et que j'avais la langue toute noire. IL a croire que
 j'avais Le choléra. Selon mon professeur, j'ai de l'oreille et
@@ -2639,8 +2554,7 @@ chanter dans un salon. Ce M. Servais enseigne très bien, il,
 y met du feu et donne des leçons d'une demi-heure plus
 longues qu'il ne le doit. Il bégaye, mais cela ne s'aperçoit à
 pas quand il chante. à
-Maman fait (pour mon trousseau) des emplettes magni-
-fiques; tu auras beaucoup de choses à voir à ton retour. Je
+Maman fait (pour mon trousseau) des emplettes magnifiques; tu auras beaucoup de choses à voir à ton retour. Je
 souhaite que ce soit bientôt, car, moi qui vais te quitter, je
 voudrais ne perdre mon père chéri que le moins possible
 : jusque là. Comme tu ne t'amuses guère, je suis bien sûre
@@ -2827,9 +2741,7 @@ doigt; j'en ai les oreilles cramoisies pendant le reste de
 
 ne sommes pas trop mécontents pour linstant. Henri
 
-travaille toujours au fameux cadre en filigrane pour l'expo-
-
-sition de Londres.
+travaille toujours au fameux cadre en filigrane pour l'exposition de Londres.
 
 Madame Milliet à sa fille sie
 
@@ -2896,8 +2808,7 @@ chère Société de Belles-Lettres marche à merveille. Nous
 - espérons que tu nous feras bâtir un local somptueux sur
 tes économies. Samedi dernier, nous avons donné notre
 grand repas de l'Escalade. Jamais il n'avait été si nombreux,
-ni si beau; nous étions plus de cent personnes; les Bellé-
-triens de Lausanne et de Neufchâtel étaient venus en très
+ni si beau; nous étions plus de cent personnes; les Bellétriens de Lausanne et de Neufchâtel étaient venus en très
 - grand nombre; les professeurs et les honoraires invités:
 sont venus aussi presque tous, au grand détriment de notre
 caisse. Discours, toasts, chansons, chœurs de la section de
@@ -2965,8 +2876,7 @@ en comble! Il faudra faire une contribution forcée.
 à moi, je crois bien que je n'ouplierai jamais les bons
 moments que j'ai passés dans cette Société.
 - - Je viens d'être nommé correspondant de Neufchâtel, moi:
-qui aime si peu à écrire. Heureusement notre correspon-
-darice n'est pas très active. Ce n'est pas comme la tienne;
+qui aime si peu à écrire. Heureusement notre correspondarice n'est pas très active. Ce n'est pas comme la tienne;
 - dans tes lettres de commerce il ne s'agit plus de faire des
 phrases. Il me semble que tu arriverais bien plus facile- Es
 ment à composer des dessins de bijoux, c'est la hardiesse:
@@ -3019,11 +2929,7 @@ que c'est que l'absence, il faut l'avoir éprouvé. Pourquoi
 
 avez-vous toujours été si bons, si indulgents? Je vous
 
-regretterais moins. Si je n'ai pas toujours vous expri-
-
-mer toute mon affection, vous savez bien que c'est mala-
-
-dresse ou timidité seulement. Enfin, nous allons passer le
+regretterais moins. Si je n'ai pas toujours vous exprimer toute mon affection, vous savez bien que c'est maladresse ou timidité seulement. Enfin, nous allons passer le
 
 jour de l'an avec Henri bien gentiment, j'en suis sûre. Il
 
@@ -3033,11 +2939,7 @@ bonheur, après une pareille séparation! Moi qui n'ai
 
 jamais souhaité vieillir, je voudrais bien maintenant avoir
 
-trois mois de plus. Quand je me rappelle la manière char-
-
-mante dont nous fêtions le nouvel an, je me prends à dési-
-
-rer, comme Henri, une famille de douze enfants. Hélas,
+trois mois de plus. Quand je me rappelle la manière charmante dont nous fêtions le nouvel an, je me prends à désirer, comme Henri, une famille de douze enfants. Hélas,
 quand cela viendra-t-il?
 
 Adieu, je me sens triste de vous quitter déjà; pensez
@@ -3055,16 +2957,13 @@ C'est la première fois que nous nous trouverons séparées.
 le premier jour de l'an, aussi je ne le vois pas venir sans
 un certain serrement de cœur. Ah, si je pouvais avoir mes
 cinq enfants autour de moi, ce serait un bien beau jour!
-C'est égal, je suis moins triste que tu ne le penses peut-
-être, chère enfant; je te sais, je te sens heureuse et aimée,
+C'est égal, je suis moins triste que tu ne le penses peutêtre, chère enfant; je te sais, je te sens heureuse et aimée,
 cela ne doit-il pas me suflire, ou du moins compenser un
 peu ma privation? Puis enfin nous avons l'avenir devant
 nous, et j'espère un jour réunir autour de nous tous nos
 
 enfants, sans compter les petits enfants que vous nous
-Ce que je vous souhaite, chers enfants, c'est d'être tou-
-
-jours l'un pour l'autre ce que vous avez été jusqu'à présent.
+Ce que je vous souhaite, chers enfants, c'est d'être toujours l'un pour l'autre ce que vous avez été jusqu'à présent.
 Aimez-vous et soyez toujours bien unis, c'est le meilleur
 moyen d'être heureux, et de supporter l'adversité quand
 elle vient.
@@ -3082,8 +2981,7 @@ dire: Mais ces enfants font des folies! Ton dessin nous
 prouve que tu n'as rien oublié, mon père le montrera à
 M. Lugardon, qui ce matin encore me parlait de toi. Le
 pauvre homme est bien malade et garde le lit. Il te chargera
-d'aller de sa part chez M. Ingres, ce qui ne sera pas désa-
-gréable pour toi, et de lui demander une esquisse dont
+d'aller de sa part chez M. Ingres, ce qui ne sera pas désagréable pour toi, et de lui demander une esquisse dont
 
 - M. Lugardon lui a fait autrefois cadeau, et qu'il voudrait
 
@@ -3432,8 +3330,7 @@ contre elle, en est bien revenu, et la vie qu'on y mène lui
 semble fort agréable. Quant à moi, je voudrais bien pouvoir y passer une semaine entière.
 Alix à sa mère
 .… Henri vous a trouvé un appartement tout près de la
-Sorbonne. M. Fleury veut persuader à Paul de ne se pré-
-senter à l'examen qu'après les vacances. Je ne crois pas que
+Sorbonne. M. Fleury veut persuader à Paul de ne se présenter à l'examen qu'après les vacances. Je ne crois pas que
 cela soit nécessaire. Paul est décidé à se risquer. Le pauvre
 garçon doit être bien inquiet, bien tourmenté, et papa et
 : toi aussi. Je souhaite qu'il soit débarrassé une bonne fois
@@ -3448,8 +3345,7 @@ Ta lettre nous est arrivée drolement, chez maître Plouse
 jamais en repos, toujours à plier les jarrets, à faire de
 petits entrechats ou battre des ailes de pigeon, et tout cela
 sans quitter sa boîte à violon. — Mardi, comme nous nous
-promenions avec maman auprès de la ferme, maître Bon-
-temps arriva tout sautillant. Il nous dit qu'il y avait une
+promenions avec maman auprès de la ferme, maître Bontemps arriva tout sautillant. Il nous dit qu'il y avait une
 lettre pour nous, mais le facteur n'ayant pas le temps de
 l'apporter, l'avait chargé de nous la remettre; si bien
 qu'entre deux entrechats il la sortit de sa boîte à violon...
@@ -3459,9 +3355,7 @@ est expressément défendu de faire la moindre allusion aux à
 
 Misérables. Tous les Charivaris et journaux pour rire font
 
-des caricatures sur.cette défense, de sorte qu'il n'est ques-
-
-tion que de cela.
+des caricatures sur.cette défense, de sorte qu'il n'est question que de cela.
 Henri vous embrasse tous, c'est toujours le plus gentil
 
 des maris.;:
@@ -3573,8 +3467,7 @@ fenêtres. Une chose m'a beaucoup plu, c'est un bataillon de
 vieux soldats du premier Empire. Tu penses qu'il n'est pas
 nombreux. C'était vraiment touchant de voir toutes ces
 vieilles têtes blanches. Chaque soldat portait son ancien
-uniforme et il n'y en avait pas deux pareils. Ce qui n'em-
-me suis demandé si je ne m'étais pas trompé dans mon jugement.
+uniforme et il n'y en avait pas deux pareils. Ce qui n'emme suis demandé si je ne m'étais pas trompé dans mon jugement.
 J'ai relu le drame, et il m'a paru démodé; mais ce n'est peut-être
 qu'une impression personnelle.
 (x) Voir annexe du présent chapitre.
@@ -3663,8 +3556,7 @@ cœur, notre sang, etc.….; Vâme à la bonne heure, elle lui
 : ressemble; mais le corps? Enfin, peut-être nous fait-il
 fabriquer par les anges. Car pour le chêne il y a le
 gland, pour les plantes, la graine... » Je n'en finirais pas si à
-je te racontais toutes ses questions, mais remarque la jus-
-tesse de son sentiment: elle voit bien que l'esprit ne peut
+je te racontais toutes ses questions, mais remarque la justesse de son sentiment: elle voit bien que l'esprit ne peut
 pas créer la matière.;
 Ton père m'a fait cadeau de la Sorcière de Michelet. Jen
 ai déjà dévoré la moitié. Comme iltape bien sur le catholicisme!
@@ -3829,8 +3721,7 @@ la foi. Il a fait beaucoup de bien à Genève. On peut dire en
 passant qu'il a un grand talent: sa prédication est vive,
 pressante et n'a rien d'empesé. A Genève, beaucoup, presque
 tous ne peuvent croire que leurs petites œuvres ne font
-rien et que le salut est un don purement gratuit. On s'ima-
-gine qu'il faut des efforts, des œuvres, pour obtenir son
+rien et que le salut est un don purement gratuit. On s'imagine qu'il faut des efforts, des œuvres, pour obtenir son
 pardon. Voici comme Radcliffe répondait: « Si j'allais vers
 un condamné à mort lui porter la lettre de grâce, et s'il me
 . répondait: « j'essayerai ne le trouveriez-vous pas un
@@ -3840,8 +3731,7 @@ positivisme. Tout ce que je peux faire pour conserver mon
 individualité, c'est de ne jamais fixer le prix d'avance et
 de ne point compter le nombre des cachets. Je te prie,
 envoie-moi du courage. Tu sais qu'on gagne vite des idées
-fixes, et qu'à force de trouver qu'on baisse, qu'on se maté-
-rialise, on finit par n'avoir plus un instant de poésie. Dès
+fixes, et qu'à force de trouver qu'on baisse, qu'on se matérialise, on finit par n'avoir plus un instant de poésie. Dès
 
 que je suis devant une belle vue, avant d'avoir le temps de
 ladmirer, mon inquiétude est là, elle dit: « Qu'est-ce que
@@ -3911,8 +3801,7 @@ une figure maigre que mon nez accentue très fortement.
 Je te remercie des réflexions philosophiques que tu m'as
 communiquées; mais ce n'est pas la raison qui chez moi
 détruit le sentiment, en voulant s'en rendre compte. Je
-crois à un abaissement insensible de mon sentiment poé-
-tique; je le crois et, comme ce n'est pas une conviction très
+crois à un abaissement insensible de mon sentiment poétique; je le crois et, comme ce n'est pas une conviction très
 agréable, je me débats de toutes mes forces contre cette
 idée. Je m'observe, et quand je suis devant un beau tableau,
 une belle poésie, ou à écouter de la musique, s'il m'arrive
@@ -3944,8 +3833,7 @@ de ce trajet est pour lui plein de douceur: il ne sent plus ni
 la pluie ni l'orage, mais cet instant est rapide. L'oiseau a
 Jui en un clin d'œil, et de l'hiver il repasse dans l'hiver. Telle
 . me semble la vie des hommes sur cette terre et son cours
-d'un moment comparé à la longueur du temps qui la pré-
-cède et qui la suit. Ce temps est ténébreux et incommode
+d'un moment comparé à la longueur du temps qui la précède et qui la suit. Ce temps est ténébreux et incommode
 pour nous; il nous tourmente par l'impossibilité de le connaître; si donc la nouvelle doctrine peut nous apprendre
 quelque chose d'un peu certain, elle mérite que nous la
 N'estu pas converti? (1)
@@ -3960,8 +3848,7 @@ sans intérêt de trouver ici les impressions d'un jeune
 
 à protestant qui, pour la première fois, se risque à lire
 
-Vif sentiment des beautés poétiques, franchise, sincé-
-rité enjouée, liberté d'esprit qui jusqu'au doute sur
+Vif sentiment des beautés poétiques, franchise, sincérité enjouée, liberté d'esprit qui jusqu'au doute sur
 l'existence de l'âme, pureté naturelle et simple de la
 pensée, tout cela est bien loin du ton de fausse humi-
 
@@ -4007,9 +3894,7 @@ a ses plaines, à la condition de marquer moi-même la mesure,
 3 de hâter ou retarder le pas à mon gré.:
 
 Cet Alfred de Musset est un drôle de corps. Il est curieux
-d'entendre ce pauvre homme, au beau milieu de ses débauches, soupirer après la pureté. On voit qu'il aime l'inno-
-
-cence, il est à même d'en comprendre le prix. L'on s'étonne
+d'entendre ce pauvre homme, au beau milieu de ses débauches, soupirer après la pureté. On voit qu'il aime l'innocence, il est à même d'en comprendre le prix. L'on s'étonne
 que ce contraste ne l'amène pas plus souvent au désespoir.
 Connais-tu la Coupe et les lèvres? (1) Il y a un nommé
 Franck, mauvais sujet, dont le bon cœur perce parfois, et
@@ -4087,8 +3972,7 @@ ou amis qui attendaient avec anxiété le résultat de chaque
 avoir cinq boules blanches sans aucune noire. Le dernier
 candidat a hésité sur quelques points, pourtant il a été
 admis, et personne n'a retenir un soupir de soulagement.
-Je me représentais la joie de l'heureux jeune homme; j'au-
-rais bien voulu être à sa place.
+Je me représentais la joie de l'heureux jeune homme; j'aurais bien voulu être à sa place.
 Les examinateurs ne s'en tiennent pas du tout au programme; ils ne cherchent qu'une chose: faire de l'esprit,
 ? souvent aux dépens de leur victime. Autre désavantage
 ; pour moi: À Genève, j'avais presque de l'aplomb, par
@@ -4133,8 +4017,7 @@ d'être appelé sur un beau sujet: les relations de Riche-
 
 . lieu et de Gustave-Adolphe.
 
-Il faut dire que M. Bétant, conservateur de la biblio-
-thèque du Gymnase, m'avait conseillé de lire l'Histoire
+Il faut dire que M. Bétant, conservateur de la bibliothèque du Gymnase, m'avait conseillé de lire l'Histoire
 de France de Michelet. J'en avais copié quelques passages, dont la forme imprévue et saisissante m'avait
 séduit, et je les avais même appris par cœur. La philosophie de l'histoire était alors à la mode, j'essayai donc
 de montrer que des plus petites causes peuvent sortir
@@ -4223,9 +4106,7 @@ que ce sera possible. à
 
 Je reviens à notre voyage, car ce n'est pas à proprement
 parler une expédition: nous n'avions pas d'ennemis à
-combattre, nous allions seulement faire voir aux popula-
-
-tions des plaines une force suffisante pour les contenir, si
+combattre, nous allions seulement faire voir aux populations des plaines une force suffisante pour les contenir, si
 elles s'avisaient de se joindre aux Kabyles.
 Nous avons traversé des plaines immenses, de quinze à
 trente lieues de long et d'une dizaine en largeur. Je ne croyais
@@ -4286,8 +4167,7 @@ par les crins noirs qui flottaient en désordre. Le cheval
 syrien que montait le colonel du Barail était blanc à reflets.
 argentés, il marchait d'un pas calme et léger, la tête haute,
 les oreilles en avant, ses naseaux roses dilatés, son grand
-œil noir bien ouvert. Chevaux et chefs excitaient l'admira-
-tion générale, et sans nous vanter, nous pouvons dire que
+œil noir bien ouvert. Chevaux et chefs excitaient l'admiration générale, et sans nous vanter, nous pouvons dire que
 les chasseurs d'Afrique sont aussi une troupe d'élite. MUR
 M. de Tucé à madame Milliet
 J'ai reçu ta dépêche (x) trop tard pour faire comprendre
@@ -4359,15 +4239,12 @@ cieusement, en me faisant du mauvais Sang, s'ils ont tourné
 
 . la poignée au lieu de le prendre à la capucine, ete... Tous
 les jours tu dines bien, tu es bien couché et ne t'inquiètes
-nullement des besoins matériels de la vie; — moi au con-
-
-traire, je mange avec cinq autres, dans la même gamelle en
+nullement des besoins matériels de la vie; — moi au contraire, je mange avec cinq autres, dans la même gamelle en
 fer, une soupe souvent peu appétissante, et mon grand
 régal est d'aller manger une portion de six sous avec un;
 camarade en buvant un litre; je couche les trois quarts du
 temps sur la dure, et malgré cela je me plais dans cette
-vie-là,*qui te semblerait si pénible, Cela vient de la difré-
-rence de nos caractères.
+vie-là,*qui te semblerait si pénible, Cela vient de la difrérence de nos caractères.
 Le jour de mon départ pour Saumur n'est Pas encore fixé.
 Je te serre la main et l'embrasse de tout cœur.
 Ton frère et ami.
@@ -4499,7 +4376,7 @@ Assurément, l'outrecuidance et l'esprit de contradiction ont leurs dangers; ce 
 une abominable dissertation contre la vieillesse, en
 réponse au de Senectuie de Cicéron qu'on nous faisait
 
-: ‘traduire. J'avais pris pour épigraphe ce mot de Toussenel: « Le vieux est l'ennemi du bien. »:
+: ‘traduire. J'avais pris pour épigraphe ce mot de Toussenel: « Le vieux est l'ennemi du bien.
 
 A la façon des Précieuses, nous nous amusions
 souvent à écrire les portraits des personnes de notre
@@ -4507,9 +4384,7 @@ souvent à écrire les portraits des personnes de notre
 . connaissance. Alix excellait dans ce genre, mais chez
 elle la ressemblance réaliste tournait aisément à la
 caricature. Je subissais sans doute son influence,
-lorsque je fis le portrait-charge d'un sénateur réaction-
-
-naire que nous avions rencontré chez des amis, et qui
+lorsque je fis le portrait-charge d'un sénateur réactionnaire que nous avions rencontré chez des amis, et qui
 nous avait amusés, tant par la solennité prétentieuse
 de ses manières que par le caractère antédiluvien de
 ses doctrines.
@@ -4538,9 +4413,7 @@ toujours est-il que, poète romantique, il eut alors du!lvague
 « guenille ». Il porte lunettes, il a loreille dure et la
 - mâchoire dégarnie. Il marche le dos voûté, et l'appui d'une
 - canne est devenu nécessaire à ses pas chancelants. En vain
-il essaie de se redresser; il ne fait plus illusion qu'à lui-
-
-même. Persuadé que « le cœur n'a pas de rides et
+il essaie de se redresser; il ne fait plus illusion qu'à luimême. Persuadé que « le cœur n'a pas de rides et
 À croyant toujours avoir vingt ans, il ne saurait entrevoir
 une jolie femme, sans en tomber sur le champ éperdument
 amoureux: Fleurs, quatrains, madrigaux et acrostiches
@@ -4549,8 +4422,7 @@ surannées d'une flamme éteinte et de transports ralentis.
 Ses soupirs cherchent vainement à adoucir les rigueurs de
 INR la belle qui lui rit au nez. Son intelligence, active et lucide
 ; autrefois, s'est obseurcie; rien ne l'intéresse plus, si ce
-n'est cette contrefaçon de l'amour. Par une habitude invé-
-térée, sa main continue de retracer sur le vélin les tendres
+n'est cette contrefaçon de l'amour. Par une habitude invétérée, sa main continue de retracer sur le vélin les tendres
 formules qui étaient à la mode à l'époque lointaine de sa
 jeunesse. Ses rêves passionnés et ses désirs chimériques
 4 flottent au hasard et se posent n'importe où: respectable
@@ -4574,8 +4446,7 @@ Ce que je tiens à indiquer ici par quelques exemples,
 c'est l'utilité des libres discussions dans des réunions
 de jeunes gens studieux. Il est bon de remuer les idées,
 
-pour accélérer le mouvement de l'intelligence, et d'insti-
-tuer une recherche personnelle de la vérité.
+pour accélérer le mouvement de l'intelligence, et d'instituer une recherche personnelle de la vérité.
 Remettre hardiment en question toutes les opinions
 reçues, toutes les notions imposées par l'autorité des
 parents et des maîtres, cela peut conduire, il est vrai,
@@ -4610,8 +4481,7 @@ après sa mort que fut publié le beau livre qu'il a écrit.
 De son vivant il fut méconnu, et je dois avouer que son
 cours me parut médiocre. Les conférences qu'il offrait
 gracieusement à quelques étudiants de bonne volonté,
-valaient beaucoup mieux. Je me souviens de ses excel-
-lents conseils sur l'art de discuter. Il insistait sur la
+valaient beaucoup mieux. Je me souviens de ses excellents conseils sur l'art de discuter. Il insistait sur la
 nécessité de s'entendre tout d'abord sur le sens des
 mots, et surtout d'entreprendre la recherche sincère de
 la vérité, en disant bien qu'on ne la connaît pas
@@ -4646,8 +4516,7 @@ les vérités (2?) révélées par la religion, mais aussi les
 vérités morales, utiles à la pratique de la vie. Pourquoi
 ces restrictions? La logique nous oblige à faire table
 rase, aussi bien des préjugés religieux reçus dans notre
-enfance, que de la morale conventionnelle, On s'aper-
-çoit alors que cette morale a évolué au cours des
+enfance, que de la morale conventionnelle, On s'aperçoit alors que cette morale a évolué au cours des
 siècles, et qu'elle continue de se transformer tous les
 jours. Descartes se souvenait de la condamnation de
 Galilée, qui fit sur lui une vive impression, mais nous,
@@ -4657,8 +4526,7 @@ penser qui nous est accordée?
 
 Déjà ma raison inclinait vers le scepticisme: j'écrivais:
 
-Lorsque Descartes prend l'évidence pour base de la cer-
-titude, il a soin d'ajouter que cette certitude restera toujours imparfaite, comme la raison humaine. Nous pouvons
+Lorsque Descartes prend l'évidence pour base de la certitude, il a soin d'ajouter que cette certitude restera toujours imparfaite, comme la raison humaine. Nous pouvons
 croire à nos idées, mais seulement dans ce qu'elles ont de
 clair et de distinct. Qui donc déterminera le degré de clarté
 nécessaire? Tous ceux qui se sont trompés ont une idée
@@ -4715,14 +4583,10 @@ parmi ceux qui hantent la cour qui, reconnaissant assez
 combien ces humeurs contredisantes sont incommodes
 et désagréables, prennent une route toute contraire, qui
 est de ne rien contredire, mais de louer et d'approuver
-tout indifféremment; et c'est ce qu'on appelle complai-
-
-sance, qui est une humeur plus commode pour la for:
+tout indifféremment; et c'est ce qu'on appelle complaisance, qui est une humeur plus commode pour la for:
 tune, mais aussi désavantageuse pour le jugement
 car, comme les contredisants prennent pour vrai le contraire de ce qu'on leur dit, les complaisants semblent
-prendre pour vrai tout ce qu'on leur dit; et cette accou-
-
-tumance corrompt premièrement leur discours, et
+prendre pour vrai tout ce qu'on leur dit; et cette accoutumance corrompt premièrement leur discours, et
 
 ensuite leur esprit. (Chapitre xIx)
 
@@ -4772,7 +4636,7 @@ Justice ne peut aussi être en Dieu, puisqu'elle ne regarde
 que la société des hommes; ni la tempérance, parce qu'il
 n'a point de voluptés à modérer; ni la force, parce qu'il
 n'est exposé à aucun péril. Comment donc pourrait être
-Dieu, ce qui n'aurait ni intelligence ni vertu? »;
+Dieu, ce qui n'aurait ni intelligence ni vertu?
 
 Les auteurs de la Logique se fâchent et voici leur
 
@@ -4790,9 +4654,7 @@ ne peut rien, parce qu'il peut tout; qu'il ne jouit d'aucun
 bien, parce qu'il possède tous les biens. »
 
 Malgré l'éclat de ces dernières formules, le reproche
-d'anthropomorphisme subsiste; nous ne pouvons attribuer ni la vue, ni l'action, ni la jouissance à l'Inconnais-
-
-sable. Supprimez dans l'idée de Dieu tous les attributs
+d'anthropomorphisme subsiste; nous ne pouvons attribuer ni la vue, ni l'action, ni la jouissance à l'Inconnaissable. Supprimez dans l'idée de Dieu tous les attributs
 . humains de grandeur, de puissance, de justice, etc.…,
 À que reste-t-il?
 ; Cependant, par une bizarre contradiction, j'avais
@@ -4810,11 +4672,9 @@ comme par une sorte de dangereux vertige, et j'essayais
 Je crois voir dans un cirque un de ces jeunes gymnastes
 dont les belles proportions rappellent celles des statues
 grecques. Il est à la fois souple et nerveux, svelte et
-robuste; ses mouvements les plus rapides, les plus impré-
-vus, conservent quelque chose d'harmonieux et de rythmé:
+robuste; ses mouvements les plus rapides, les plus imprévus, conservent quelque chose d'harmonieux et de rythmé:
 Un murmure de sympathie accueille son entrée. C'est
-merveille, en effet, de le voir marcher, courir si légère-
-ment qu'il semble voler, puis danser, se coucher à terre
+merveille, en effet, de le voir marcher, courir si légèrement qu'il semble voler, puis danser, se coucher à terre
 et se relever tout d'une pièce. Il pirouette, tourbillonne
 avec une rapidité vertigineuse, fait la roue, bondit, et » se retrouve, on ne sait comment, sur ses pieds. Chacune
 de ses attitudes, chacun de ses mouvements prouve avec
@@ -4857,8 +4717,7 @@ et son école dans cette voie funeste qui mène tout droit
 de la peinture crut pouvoir remplacer par la science
 anatomique l'étude de la nature vivante.
 
-La contemplation du monde suprasensible s'est tour-
-née en mysticisme. Les esprits purs ont dédaigné les -
+La contemplation du monde suprasensible s'est tournée en mysticisme. Les esprits purs ont dédaigné les -
 corps et le monde réel. Kant s'est égaré au pays des
 Nuées et des Noumènes, pays séduisant mais dangereux
 
@@ -4970,11 +4829,9 @@ ne les haïssons point.
 la basse jalousie, injuste, souillée de haine, et d'autre part,
 
 le sentiment très légitime que nous éprouvons en présence
-de ce qui est beau et bien. Cette envie-là, toute mêlée d'ad-
-miration enthousiaste, de respect et de sympathie, est une
+de ce qui est beau et bien. Cette envie-là, toute mêlée d'admiration enthousiaste, de respect et de sympathie, est une
 envie joyeuse qui rend meilleur. Tout au plus laisse-t-elle
-au fond du cœur un vague regret de ne pas posséder soi-
-même des qualités si précieuses.
+au fond du cœur un vague regret de ne pas posséder soimême des qualités si précieuses.
 
 — Quand on est toujours mécontent des autres, c'est À
 qu'on n'a pas sujet d'être bien content de soi-même.
@@ -5078,8 +4935,7 @@ put — Le progrès pacifique n'est pas impossible, Il suffit que
 4 le peuple sache bien ce qu'il veut, et qu'il ne veuille que ce
 ï. qui est légitime. Alors sa voix ne sera pas celle d'un briy gand révolté, ce sera la voix de la Justice elle-même; qui
 criera aux riches: La bourse ou la vie! » Malheur aux
-aveugles qui ne voient pas à l'horizon ce grand cata-
-clysme et qui semblent prendre plaisir à l'attirer sur
+aveugles qui ne voient pas à l'horizon ce grand cataclysme et qui semblent prendre plaisir à l'attirer sur
 ! notre pays!
 Et je citais la terrible prophétie de saint Matthieu:
 « La cognée est déjà mise à la racine des arbres.
@@ -5180,7 +5036,7 @@ D'un vain rêve, enfant, tu te leurres;
 Insensé, profite des heures,
 Cherche enfin la réalité.
 Ne songe plus qu'à la matière;
-4 L'idéal n'est qu'une chimère,
+L'idéal n'est qu'une chimère,
 Du corps seul vient la volupté.
 à N'as-tu pas des bras pour étreindre?
 : à Crois-moi l'amour seul peut éteindre
@@ -5189,7 +5045,7 @@ port; Cette ardeur qui vient tembraser.
 a Hâte-toi, la Mort est avide,
 ; Bientôt de sa lèvre livide
 Tu sentiras le froid baiser:
-5 Assez de profanes paroles!
+Assez de profanes paroles!
 Pere Il faut, enfant, que tu t'envoles
 LA Dans l'éther, bien loin du réel.
 ï Ne songe plus à la matière,
@@ -5257,7 +5113,7 @@ Soudain, en écartant un rideau de verdure,
 Il aperçoit la source au fond des bois déserts;
 : Il s'arrête, il se tait. L'onde s'étale, pure,
 Et les cris des oiseaux peuplent les chênes verts.
-À; Par ici, par ici, vite!
+Par ici, par ici, vite!
 Le voici près du ruisseau,
 A chanter tout nous invite,
 Oh! le soleil est si beau!
@@ -5324,7 +5180,7 @@ Je puis, d'une molle étreinte,
 Enlacer tes flancs nerveux.
 
 à Lorsque tu parais sans voiles,
-«, Bel enfant, j'aime à te voir,;
+Bel enfant, j'aime à te voir,;
 
 Aussi pur que les étoiles
 
@@ -5341,15 +5197,15 @@ Pie Dans l'onde il regardait l'image renversée
 
 7! Il admirait la branche à la branche eniacée
 
-14 Et les bourgeons, naissant des antiques rameaux...
+Et les bourgeons, naissant des antiques rameaux...
 
 Soudain, il voit frémir l'écorce du vieux rouvre.
 
-#4 Ses yeux restent fixés au sein du flot vermeil.
+4 Ses yeux restent fixés au sein du flot vermeil.
 Le: L'arbre, sans bruit, tressaille et lentement s'entr'ouvre,
 
 Et deux petites mains paraissent au soleil.
-10 La fissure grandit, deux bras sortent de l'arbre,
+La fissure grandit, deux bras sortent de l'arbre,
 
 Et puis un front serein baigné de blonds cheveux,
 : 102 Et puis un corps, plus pur et plus blanc que le marbre.
@@ -5361,18 +5217,18 @@ Et lui, brûlant d'amour, penché sur la fontaine,
 111% Sent bouillonner son sang et palpiter son cœur.
 11 avait dépouillé sa légère tunique,
 ne Mais il ne rougit point de voir sa nudité;
-3 Rougir! N'était-il pas comme le marbre antique,
+Rougir! N'était-il pas comme le marbre antique,
 
 à Le bonheur sur son front formait une auréole.
 Adieu la tristesse et l'ennui!
 Sa bouche restait sans parole,
-1 Mais son âme chantait en lui:
+Mais son âme chantait en lui:
 Amour, tu me noies
 D'un rayon vermeil!
 À C'est toi! Tu m'entraînes,
 , Ton feu, dans mes veines, ce
 
-7 Le voilà l'idéal, le voilà le doux rêve!
+Le voilà l'idéal, le voilà le doux rêve!
 Oh! dis-moi que jamais tu ne m'échapperas.
 Viens à moi, viens à moi, que mon bonheur s'achève!
 Dans mes bras, dans mes bras!
@@ -5400,7 +5256,7 @@ Tandis que la grenouille, au fond de son marais,;
 
 Ne me fuis pas, jeune grec!
 
-4 C'est pour toi que je gazouille
+C'est pour toi que je gazouille
 
 Crois-moi, laisse la sagesse,
 Profite de ta jeunesse!
@@ -5482,8 +5338,7 @@ voir:
 est même défendu, à peine de ridicule, de se mettre à
 
 (x) Sans le savoir, j'exposais une des thèses de la philosophie
-romantique allemande: la supériorité de l'intuition sur lintelli-
-gence et la raison. Cette thèse, reprise avec un merveilleux talent
+romantique allemande: la supériorité de l'intuition sur lintelligence et la raison. Cette thèse, reprise avec un merveilleux talent
 par M. Bergson, me semble pouvoir être admise, mais pour Part
 seulement. Je ne la crois plus vraie, lorsqu'il s'agit des grandes
 
@@ -5500,28 +5355,20 @@ esprits faibles, jusqu'à la suppléer. » (1)
 Avec une audace à laquelle mon jeune âge servira
 peut-être un peu d'excuse, (2) je présentai à la Société
 
-de Belles-Lettres un travail d'une rare insolence inti-
-
-tulé: Quelques petites absurdités des mathématiques.
+de Belles-Lettres un travail d'une rare insolence intitulé: Quelques petites absurdités des mathématiques.
 
 Il faut dire, comme circonstance atténuante, que notre
 professeur, excellent homme d'ailleurs, avait fait une
 guerre acharnée à notre chère Société. Par suite de ses
 conseils, quelques-uns de nos camarades les plus intel-
-. ligents s'étaient refuser par leurs parents l'autorisa-
-
-tion de se joindre à nous. Ce que les parents redou-
-
-taient n'était vraiment pas bien redoutable: A nos
+. ligents s'étaient refuser par leurs parents l'autorisation de se joindre à nous. Ce que les parents redoutaient n'était vraiment pas bien redoutable: A nos
 séances littéraires succédait ce que nous appelions le
 
 second acte, (ce que les Allemands nomment la thune),
 - où l'on chantait gaîment en buvant quelques chopes de
 
 bière. J'avais le tort de tous les gens passionnés, quand
-je rendais les mathématiques responsables de la rigi-
-
-dité puritaine de notre brave professeur. Cependant,
+je rendais les mathématiques responsables de la rigidité puritaine de notre brave professeur. Cependant,
 . sans connaître encore la critique profonde de Renou-:
 è vier, j'avais deviné quelques-unes des objections très
 sérieuses que des gens. plus autorisés que moi ont
@@ -5530,8 +5377,7 @@ sérieuses que des gens. plus autorisés que moi ont
 ES présentées, non pas à la science elle-même, maïs à ses
 formules et à la théorie de l'Infini.
 FULE C'est avec l'aplomb des demi-savants que je soulevai
-; quelques graves problèmes. Je n'ai nullement la préten-
-tion de les avoir résolus.
+; quelques graves problèmes. Je n'ai nullement la prétention de les avoir résolus.
 disais-je,
 ayant des”limites, ne saurait
 4 atteindre l''Absolu. Les mathématiques elles-mêmes, malgré
@@ -5589,8 +5435,7 @@ cest le pays de la contradiction, de l'absurde et de limposs
 sible. Admettons, si vous y tenez, que ce soit bien
 .. lInfini; mais alors reprenons nos prémisses: ce qui est
 absurde n'existe pas.
-à La conception mathématique des limites est un arti-
-fice de langage, qui cache mal une incapacité de notre
+à La conception mathématique des limites est un artifice de langage, qui cache mal une incapacité de notre
 intelligence, celle d'arriver à une idée claire de l'infini.
 Autre contradiction: Lorsque Démocrite et Épicure ont
 proposé l'hypothèse des atomes, ils ont donné à la science
@@ -5645,14 +5490,12 @@ et latine, en compagnie de mon ami Nicole, qui les
 comprenait déjà beaucoup mieux que moi, et tous deux
 nous les admirions avec ferveur. C'est pour notre
 plaisir qu'en dehors des classes nous passions de
-longues heures délicieuses devant ces textes véné-
-rables, qui ont conservé dans toute leur fraîcheur
+longues heures délicieuses devant ces textes vénérables, qui ont conservé dans toute leur fraîcheur
 quelques-unes des fleurs les plus brillantes et les plus
 ‘parfumées qu'ait jamais produites le génie humain.
 Chez les jeunes gens, l'admiration ne guère sans
 fanatisme. Mon ambition aurait été d'imiter le style
-des auteurs grecs. Mes compositions littéraires m'au-
-raient semblé parfaites, si on avait les prendre pour
+des auteurs grecs. Mes compositions littéraires m'auraient semblé parfaites, si on avait les prendre pour
 des traductions. Cette tendance, que j'ai conservée
 longtemps en peinture, est une marque évidente de la
 . faiblesse de mon tempérament.
@@ -5702,12 +5545,10 @@ hommes et des dieux; et chaque matin Zeus était assis à ETS
 côté de la statue ébauchée, encore informe,
 À Chose merveilleuse, à mesure que l'œuvre avançait,
 
-forme impalpable du dieu se rapprochait de la statue d'ar-
-gile et commençait à la pénétrer. Ainsi, lorsque nous
+forme impalpable du dieu se rapprochait de la statue d'argile et commençait à la pénétrer. Ainsi, lorsque nous
 pressons un œil de côté, au lieu de voir un seul objet, …
 nous en voyons deux images semblables, qui tendenta se
-rejoindre en une seule. — Mais chaque soir Zeus disparais-
-sait comme une vaine fumée, et Phidias découragé restait
+rejoindre en une seule. — Mais chaque soir Zeus disparaissait comme une vaine fumée, et Phidias découragé restait
 seul en face de son œuvre, qui lui semblait froide et sans vie.
 … Cependant l'ouvrage approchait de sa fin. Phidias
 . redouble d'ardeur; un pieux respect le saisit en face de.
@@ -5757,9 +5598,7 @@ vêtement était rejeté dans les exercices de la palestre
 et dans les luttes des grands jeux publics, par exemple
 à Olympie et à Athènes.
 
-Cet usage fut une des causes principales de la supé-
-
-riorité des Grecs dans les arts plastiques. Pour ce
+Cet usage fut une des causes principales de la supériorité des Grecs dans les arts plastiques. Pour ce
 peuple d'artistes et de connaisseurs, comme Pour DOS
 grands statuaires et nos grands peintres, comme pour
 tous ceux qui ont quelque peu le sens de la forme et des
@@ -5775,8 +5614,7 @@ A Sparte, les filles, comme les garçons, le corps
 (1) et frotté d'huile, étaient exercées de par la loi à
 la gymnastique. Elles apprenaient à courir, à sauter,
 à lutter, à lancer le disque et le javelot. IL y avait des
-épreuves publiques, dans lesquelles les garçons assis-
-taient aux jeux des filles, et les filles à ceux des
+épreuves publiques, dans lesquelles les garçons assistaient aux jeux des filles, et les filles à ceux des
 garçons. On assure que, dans ces occasions, les éloges
 ou le blâme exprimés par les filles étaient pour l'autre
 sexe un aiguillon puissant. « Cependant, dit Schoemann,
@@ -5784,10 +5622,9 @@ nous ne voyons parmi les jeunes filles spartiates aucune
 trace de désordres qui, s'ils eussent été fréquents,
 p'auraient pas échappé à la malveillance des observateurs. »
 A Athènes, après la victoire de Salamine, une fête
-imposante célébra cet événement, le plus grand peut-
-être de l'histoire du monde, car il marque le triomphe
+imposante célébra cet événement, le plus grand peutêtre de l'histoire du monde, car il marque le triomphe
 . de la liberté sur le despotisme.
-Le jeune Sophocle (2) avait été choisi pour diriger le -;
+Le jeune Sophocle (2) avait été choisi pour diriger le
 chœur des éphèbes. Défilé inoubliable! On le vit s'avancer
 devant les trophées, tenant en main la grande lyre d'ivoire
 et d'or, noble et simple dans sa nudité héroïque, livrant
@@ -5826,8 +5663,7 @@ vous, ils vivent, éternellement jeunes, par la magie de
 est l'art; ils défilent encore, dans leur nudité.sereine, avec
 leurs chevaux pleins de feu, sur la frise de marbre du -
 L'absolue perfection des proportions et des formes
-AN constitue, il est vrai, pour la race grecque, une véri-
-table idéalisation, qui écarte toute idée d'inconvenance.
+AN constitue, il est vrai, pour la race grecque, une véritable idéalisation, qui écarte toute idée d'inconvenance.
 Mais comme tout cela est éloigné des préjugés
 Pour les peintres et les sculpteurs, qui admirent prin
 LES cipalement la beauté du corps humain, le costume ne
@@ -5875,15 +5711,12 @@ Dxrpuse et une belle chevelure noire, entre un ruban bleu
 pâle et des cheveux blonds ne sont pas choses indifférentes.
 Ces rapprochements, en exaltant l'éclat des tons, les nuanHE cent d'un charme imprévu, soit par la vigueur des contrastes,
 soit par des « harmonies d'analogue ».
-Les couleurs ont un symbolisme (r) et les tissus eux-
-mêmes en ont un. Il y a des mousselines aériennes, sub-
-tiles, éthérées, qui semblent faites pour les anges du ciel;
+Les couleurs ont un symbolisme (r) et les tissus euxmêmes en ont un. Il y a des mousselines aériennes, subtiles, éthérées, qui semblent faites pour les anges du ciel;
 ; il y a des velours somptueux, étalant une majesté souve-
 : raine, des satins frissonnants qui pétillent de lumière
 ; comme un trait d'esprit, des robes d'un drap tout uni, mat,
 solide et simple, qui ont l'air honnête, et dont la sobre gra-
-- vité inspire le respect. — Lorsqu'il y a accord entre la toilette et la personne, le costume devient un interprète révé-
-lateur de l'âme et du caractère. Si les femmes comprenaïent
+- vité inspire le respect. — Lorsqu'il y a accord entre la toilette et la personne, le costume devient un interprète révélateur de l'âme et du caractère. Si les femmes comprenaïent
 È mieux cette vérité, elles se défieraient de la mode uniforme
 et bête, qui n'exprime rien d'individuel,:
 Voici encore quelques-unes des opinions que j'exprimais à cette époque sur de graves questions d'esthé-
@@ -5927,8 +5760,7 @@ temps. Nous croyons nous accrocher au rivage; nous
 respirons, nous détournons un instant les yeux de l'irrésis-:
 tible nécessité qui charrie toutes choses et nous roule sans
 - relâche de lindividualité à la désagrégation. Salutaire
-. illusion. Le devoir est de vivre, de travailler pour soi-
-même et pour les autres; il faut aimer, telle est la
+. illusion. Le devoir est de vivre, de travailler pour soimême et pour les autres; il faut aimer, telle est la
 . xéritable loi morale. N'écoutez pas ceux qui vous disent:
 « Frère, il faut mourir. » Cette parole est impie. Rien n'est
 - plus déprimant, plus antisocial, plus immoral que ce rappel
@@ -5957,8 +5789,7 @@ se fleurs parfumées, sous les frais ombrages de grands laua riers toujours vert
 "res inflexible lui défend de s'arrêter jamais. Sans repos; il
 devra continuer sa route, et le paysage bientôt changer.
 PRTURE Au bout d'une région aride et désolée, s'ouvre un gouffre
-73 sombre, béant, devant lequel se dresse un spectre inexo-
-rable, toujours prêt à saisir sa proie. -
+73 sombre, béant, devant lequel se dresse un spectre inexorable, toujours prêt à saisir sa proie. -
 Mais non! non! Nous ne voulons pas savoir tout cela.
 LES L'art a pour divine mission de nous le cacher. Oublions!
 oublions! Non, les plus douces joies de notre vie, nos
@@ -6002,12 +5833,11 @@ Un jour peut-être quelques-uns d'entre vous viendront à
 "hf Paris; frappez alors à ma porte, un ami vous y attendra
 
 Ce titre, emprunté à Sextus Empiricus, n'indique
-nullement une injustifiable hostilité contre les mathé-
-matiques, encore moins contre la science en général;
+nullement une injustifiable hostilité contre les mathématiques, encore moins contre la science en général;
 c'est une critique de certaines formules vicieuses et des;
 prétentions de certains savants à une exactitude et à
 une certitude absolues que la pensée humaine n'atteindra jamais.
-« Sous la paille des mots cherchons le grain des choses. »;
+« Sous la paille des mots cherchons le grain des choses.
 Infini et indéfini. — « Nous ne nous embarrasserons jamais dans les disputes de l'infini, d'autant
 plus qu'il serait ridicule que nous, qui sommes finis,
 entreprissions d'en déterminer quelque chose, et par;.
@@ -6059,8 +5889,7 @@ Nous sommes obligés de reconnaître que le temps
 n'a pas de limites, et cette négation du commencement Ù à
 ‘et de la fin, nous l'exprimons par le mot Éternité. Mais
 l'esprit humain est ainsi fait, qu'il ne peut se passer de
-la notion du temps et que, lorsqu'il essaie de la sup-
-primer par abstraction, il tombe bientôt dans l'ab-
+la notion du temps et que, lorsqu'il essaie de la supprimer par abstraction, il tombe bientôt dans l'ab-
 Dans l'étude d'un théorème mathématique, nous à
 pouvons, il est vrai, faire un instant abstraction du À à
 temps et du lieu. Les vérités que nous démontrons PES
@@ -6070,11 +5899,9 @@ Journal de Psychologie. V. 2. — Mars 1908,
 médiunr et diseuses de bonne aventure voient
 d'avanc ements dits futurs, qui existent déjà. »
 Tout qu'une mauvaise plaisanterie; et il
-serait pour les aliénistes de suivre, à tra-
-vers l'I la philosophie, les formes diverses Li]
+serait pour les aliénistes de suivre, à travers l'I la philosophie, les formes diverses Li]
 prises iladie mentale chez les plus célèbres
-L'int négation de la durée, c'est la négation at, car tout changement de lieu impli-
-que suc
+L'int négation de la durée, c'est la négation at, car tout changement de lieu implique suc
 L'Éte idée négative, indistincte, Tout ce
 que nou ons clairement se meut; tout naît, vit,
 évolue se transforme. C'est seulement par L:|
@@ -6083,8 +5910,7 @@ pouvon repos, d'immobilité et de durée
 Spino es heures de mysticisme, était très il
 oceupé « do-concept. Il avait fini par y croire à à
 de la du monde, comme Platon croyait
-peut-êtr once réelle des Idées générales abs-
-traites. specie aeternitatis » devint le « tarte
+peut-êtr once réelle des Idées générales abstraites. specie aeternitatis » devint le « tarte
 à la inoza; comme cela ne signifie rien, he:
 Le fini. — « Le nombre, a dit Newton,
 est le ane grandeur, ou plutôt du rapport
@@ -6103,8 +5929,7 @@ détruire. La terre tourne, même pendant mon sommeil.
 Et si le temps n'est « qu'une forme pure de ma sensibilité ce qui est très contestable, encore faut-il convenir que l'esprit humain ne peut rien imaginer ni rien
 concevoir en dehors de cette forme, dans laquelle il est
 Les sensations ou événements psychologiques nous
-apparaissent et nous apparaîtront toujours comme suc-
-cessives. — Erreur! répondent des métaphysiciens
+apparaissent et nous apparaîtront toujours comme successives. — Erreur! répondent des métaphysiciens
 malades, et voici le petit conte fantastique qu'ils ont
 Vous êtes, disent-ils, perpétuellement victimes d'une
 illusion d'optique mentale: les événements, que vous je
@@ -6156,16 +5981,16 @@ l'unité de grandeur de son espèce). Il ne peut donc
 pair, il est faux qu'il soit impair..., cependant c'est un
 nombre, et tout nombre est pair ou impair: il est vrai
 ; Es que cela s'entend de tous les nombres finis. »
--; M. Cantor et M. Couturat s'empressent de saisir
+M. Cantor et M. Couturat s'empressent de saisir
 à cette distinction: « Il ne faut pas attribuer au nombre
 infini les propriétés des nombres finis. » Mais un bre qui n'aurait pas les propriétés des nombres, ne
 serait pas un nombre, à moins que nous ne changions
 la définition des mots. Il semble plus simple et plus:
 À vrai de reconnaître que les mots nombre et infini expri
-:; ment des idées contradictoires. (1)
+ment des idées contradictoires. (1)
 M. Couturat a vainement essayé de réfuter la belle
 démonstration donnée par Cauchy (2) qui lui-même
-A; Supposons donnée toute la suite des nombres entiers,
+Supposons donnée toute la suite des nombres entiers,
 à nous pourrons former une autre suite exclusivement
 : composée des carrés de la première. Ainsi, la seconde
 à suite aura un nombre de termes égal nombre des
@@ -6191,7 +6016,7 @@ des nombres comme actuellement donnée. RATE CE
 . Cest cependant ce que font les mathématiciens,,
 lorsqu'ils nous parlent d'un infini positif actuel et Eee
 M. Couturat cherche à nous faire avaler ce qu'il
-nomme lui-même « un merveilleux artifice »:
+nomme lui-même « un merveilleux artifice
 : On ne commet pas une erreur en considérant un cercle
 comme un polygone d'un nombre infini de côtés, mais au
 . contraire quand on le considère comme un polygone d'un Fe:
@@ -6216,19 +6041,17 @@ pas appliquer à la fiction de la continuité un raison ni
 une seconde, singulière méthode! LeRe
 Dans l'essai d'explication de M. Couturat, il faut SE
 … distinguer deux parties. La première est un aveu: @La
-“4 somme d'éléments finis, quel que soit leur nombre, ne …:
+“4 somme d'éléments finis, quel que soit leur nombre, ne
 
 53 donnera jamais qu'une valeur approchée, donc toujours
-TEA La seconde partie du raisonnement consiste à pré-
-tendre, ce qui est inadmissible, qu'un nombre croissant
+TEA La seconde partie du raisonnement consiste à prétendre, ce qui est inadmissible, qu'un nombre croissant
 indéfiniment deviendra infini; c'est dire que la négation
 deviendra affirmation, par quel miracle? Un nombre
 indéfini aura beau grandir indéfiniment, il restera toua jours indéfini et ne deviendra jamais infini. On joue
 Lea sur les deux sens du mot infini et l'on passe du premier
 ? sens au second, c'est de l'escamotage.
 M. G. Milhaud (r) a fait aussi observer que « une
-multitude infinie ne forme pas un tout, ni par consé-
-ne quent un nombre ».:
+multitude infinie ne forme pas un tout, ni par conséne quent un nombre ».:
 É Comment des savants qui ont la prétention d'avoir
 des idées claires et distinctes, qui cherchent un langage
 se précis, peuvent-ils accepter des manières de parler qui
@@ -6243,8 +6066,7 @@ féconds. Un esprit droit ne saurait accepter deux idées
 contradictoires, et ce serait le fausser que de l'habituer
 à s'y résigner. Les mathématiques perdraient en partie
 leur principale vertu éducative.
-« Un esprit de rectitude et de rigueur, un esprit vrai-
-ment analytique tend à s'établir dans l'enseignement;
+« Un esprit de rectitude et de rigueur, un esprit vraiment analytique tend à s'établir dans l'enseignement;
 
 encore un pas, et les professeurs qui rejettent la chimère de l'infini, rejetteront aussi les notions inexactes
 sous lesquelles elle se déguise: les incommensurables à
@@ -6298,10 +6120,7 @@ Se avec des formules algébriques, sans jamais substituer LE
 È au signe conventionnel la chose signifiée.;
 Nous devons nous défier beaucoup des expressions
 a l'Ensemble des êtres, le grand Tout, l'Univers, la Syn-
-: Ces expressions vicieuses portent en elles des contra-
-se dictions latentes qu'il faut dégager. La distinction car-
-
-de tésienne entre l''Infini et l'Indéfini peut seule nous;
+: Ces expressions vicieuses portent en elles des contrase dictions latentes qu'il faut dégager. La distinction carde tésienne entre l''Infini et l'Indéfini peut seule nous;
 è mettre en garde contre certains sophismes de la méta-
 En Le monde extérieur, le Non-moi, est indéfini, il n'a”
 
@@ -6348,7 +6167,7 @@ l'existence de Dieu: Infini — Zéro. Le Dieu des spiritualistes n'existe pas. 
 à aucunement contre le Dieu des panthéistes. Dieu, assis
 2 milé à l'Univers, est seulement indéfini.
 L'Infini mathématique est un mot commode pour.
-ES donner une apparence de réalité à ce qui n'est qu'un À:
+ES donner une apparence de réalité à ce qui n'est qu'un
 __artifice de langage.
 _L'Indéfini n'est ni unité ni totalité, il ne peut être
 À 4 conçu comme une personne. Il n'y a pas de grand Tout.
@@ -6357,8 +6176,7 @@ A finis, étroitement humains, ils conviennent aussi peu
 É à l'Indéfini qu'à l'infini dont ils sont les contradic…
 On a essayé de distinguer l'Infini mathématique de
 lInfini métaphysique ou théologique, mais ces deux
-È pseudo-concepts sont frères. Il est bien difficile de con-
-server le second, lorsque l'on rejette le premier, après sa
+È pseudo-concepts sont frères. Il est bien difficile de conserver le second, lorsque l'on rejette le premier, après sa
 avoir démontré qu'il est contradictoire, c'est-à-dire
 L'idole. — « Il faut lutter contre les ombres que la
 , philosophie a douées d'un corps, avant d'aborder au

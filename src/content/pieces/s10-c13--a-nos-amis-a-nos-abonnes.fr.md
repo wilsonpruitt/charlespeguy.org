@@ -8,7 +8,7 @@ isAvertissement: false
 wordCount: 45596
 ---
 La SATA contenues dans ces trois cahiers
-a, Les noms soulignés sont ceux des mem- Lun
+Les noms soulignés sont ceux des mem- Lun
 
 Re. 4 Toutes les fois que le nom et le prénom
 
@@ -77,9 +77,7 @@ D. — Les conditions de l'inscription pour un » exemplaire du Polyeucte ont é
 
 premier exemplaire de souche, exemplaire du gérant;
 
-deuxième exemplaire de souche, exemplaire de l'ad-
-
-troisième exemplaire de souche, exemplaire de limprimeur;
+deuxième exemplaire de souche, exemplaire de l'adtroisième exemplaire de souche, exemplaire de limprimeur;
 
 \. dix exemplaires d'abonnement, numérotés de à
 
@@ -101,9 +99,7 @@ sur whatman à cette dixième série est de deux cents
 
 Les Cahiers de la Quinzaine sont composés à la main,:
 
-. en caractères fin dix-huitième siècle (Didot) de la fon-
-
-derie Mayeur (Allainguillaume, J. Saling et compagnie
+. en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume, J. Saling et compagnie
 
 Es. « CE » successeurs), 21,rue du Montparnasse, à Paris, sixième
 
@@ -122,8 +118,7 @@ arrondissement. On recevra en spécimens six cahiers
 . cinq francs à M. André Bourgeois, même adresse: on
 recevra en retour le catalogue analytique sommaire,
 1900-1904, de nos cinq premières séries, premier cahier
-de la sixième série, un très fort cahier de XII+4c8
-pages très denses,in-18 grandjésus, marqué cinq francs.
+de la sixième série, un très fort cahier de XII+4cpages très denses,in-18 grandjésus, marqué cinq francs.
 
 Pour s'abonner à la dixième série des cahiers, qui
 
@@ -137,11 +132,7 @@ recevra les cahiers parus, et de quinzaine en quinzaine,
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 
-Nos Cahiers sont édités par des souscriptions men-
-
-suelles régulières et par des souscriptions extraordi-
-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
@@ -167,9 +158,7 @@ Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du
 
 - souscripteur; le tirage à part sur whatman a commencé
-de fonctionner au premier janvier 1906; les inscrip-
-
-tions pour cet abonnement particulier sont reçues en
+de fonctionner au premier janvier 1906; les inscriptions pour cet abonnement particulier sont reçues en
 tout temps et reçoivent un numéro d'ordre déterminé
 automatiquement par le rang même qu'elles occupent
 
@@ -213,17 +202,13 @@ cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 cinquième arrondissement, toute la correspondance;
 sans aucune exception. N'oublier pas d'indiquer dans la
 
-… correspondance le numéro de l'abonnement, comme il » est inscrit sur l'étiquette, avant le nom. Nous ne répon-
-
-dons pas des manuscrits qui nous sont envoyés; nous
+… correspondance le numéro de l'abonnement, comme il » est inscrit sur l'étiquette, avant le nom. Nous ne répondons pas des manuscrits qui nous sont envoyés; nous
 n'accordons aucun tour de faveur pour la lecture des
 
 ._ manuscrits; nous ne lisons les manuscrits qu'à mesure
 que nous en avons besoin; les œuvres que nous publions
 
-appartiennent aux cahiers, du seul fait de cette publi-
-
-cation, en toute propriété littéraire, sans aucune réserve,
+appartiennent aux cahiers, du seul fait de cette publication, en toute propriété littéraire, sans aucune réserve,
 
 - et sans autre signification ni contrat; les manuscrits
 
@@ -244,10 +229,10 @@ Nous avons donné le bon à tirer après corrections
 pour seize cents exemplaires de ce onsième cahier
 et pour vingt exemplaires sur whatman le mardi
 
-6 Ce cahier a été composé et tiré par des ouvriers syndiqués
+Ce cahier a été composé et tiré par des ouvriers syndiqués
 
 le travail du Zarathoustra
-à: paraissant le dimanche
+paraissant le dimanche
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Nous avons publié dans nos éditions antérieures et.
@@ -270,9 +255,7 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,;
 autant qu'il se pouvait, une image en bref, un raccourci, À
 
-une idée, abrégée, mais complète, de nos éditions anté-
-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
@@ -313,8 +296,7 @@ Louis Ménard, une étude préliminaire à la réim- A
 — — un épisode (IX-6, mardi 10 décembre 1907 ÉPUISÉ
 
 en vente à la librairie des cahiers
-DanrxeLzL HALÉvy. — Essai sur le mouvement ou-
-vrier en France. — Société Nouvelle de Librairie et
+DanrxeLzL HALÉvy. — Essai sur le mouvement ouvrier en France. — Société Nouvelle de Librairie et
 Wagner, un problème musical.......... deux francs
 d'après un travail inédit de madame Duclaux. Librairie
 à de Pages Libres. 1907............. cinquante centimes
@@ -345,8 +327,7 @@ le travail du Zorathoustra Mont
 livre, écrit-il à un ami, s'achève surun ou bien? » —
 l'aimait, mais n'était pas homme à s'attarder en elle. Il
 considérait Aurore comme l'exercice d'un convalescent
-qui s'amuse avec les désirs, les idées, et trouve en cha-
-cune son plaisir, plaisir de malice ou d'amour. avait
+qui s'amuse avec les désirs, les idées, et trouve en chacune son plaisir, plaisir de malice ou d'amour. avait
 été un jeu qui devait prendre fin. Je dois maintenant.
 choisir parmi ces idées entrevues, pensait-il; je dois en
 saisir une, l'exprimer dans sa force et clore mes années
@@ -366,21 +347,17 @@ rapide bonheur: Il monta vers elles et s'installa d'une
 
 . façon rustique dans l'Engadine alors solitaire, à SilsMaria. Il eut, pour un franc par jour, une chambre dans
 une maison paysanne; une auberge voisine lui fournit
-ses repas. De rares touristes passaient; aucun ne sé-
-journait, et Nietzsche, lorsqu'il se trouvait d'humeur
+ses repas. De rares touristes passaient; aucun ne séjournait, et Nietzsche, lorsqu'il se trouvait d'humeur
 causante, allait rendre visite à l'instituteur ou au curé:
 braves gens qui gardèrent le souvenir de ce professeur
 allemand si singulier, si instruit, modeste et bon.
 
-Il réfléchissait alors sur les problèmes de la philoso-
-
-phie naturaliste, Le système de Spencer était en vogue
+Il réfléchissait alors sur les problèmes de la philosophie naturaliste, Le système de Spencer était en vogue
 
 et nouveauté: Frédéric Nietzsche méprisait cette cosmo4 gonie qui prétend supplanter le christianisme et lui reste
 É. soumise. Spencer ignore la providence, mais croit au
 ; progrès. Il enseigne la réalité d'un concert entre les
-à mouvements des choses et les aspirations de l'humanité. Il conserve dans univers sans Dieu les harmo-
-nies chrétiennes. Frédéric Nietzsche a suivi des écoles
+à mouvements des choses et les aspirations de l'humanité. Il conserve dans univers sans Dieu les harmonies chrétiennes. Frédéric Nietzsche a suivi des écoles
 plus viriles: Empédocle, Héraclite, Spinoza, Goethe,
 sont des penseurs au regard calme qui savent étudier
 la nature sans chercher en elle quelque assentiment à
@@ -414,11 +391,9 @@ que toutes choses reviennent. Dans tel nombre de jours,
 imprévisible, immense mais limité, un homme, en tout
 semblable à moi, moi-même enfin, assis à l'ombre de ce )
 roc, retrouvera ici-même cette même idée. Et cette
-même idée sera par cet homme retrouvée non pas seu-
-lement une fois mais un nombre de fois infini, car ce
+même idée sera par cet homme retrouvée non pas seulement une fois mais un nombre de fois infini, car ce
 mouvement qui ramène les choses est infini. Donc
-nous devons écarter toute espérance et penser ferme-
-ment: nul monde céleste ne recevra les hommes, nul
+nous devons écarter toute espérance et penser fermement: nul monde céleste ne recevra les hommes, nul
 avenir meilleur ne les consolera. Nous sommes les à
 ombres d'une nature aveugle et monotone, les prison- de
 niers de chaque instant. Mais nous devons penser
@@ -431,9 +406,7 @@ L'émotion de la découverte fut si vive qu'il pleura et
 resta longtemps abîimé dans ses larmes. Il avaït donc
 réussi son effort. Sans faiblir devant la réalité, sans
 s'écarter du pessimisme; au contraire, en menant à
-(1) Cette formule est donnée dans Der Wille zur Macht, para-
-
-ses dernières conséquences l'idée pessimiste de la réa-
+(1) Cette formule est donnée dans Der Wille zur Macht, parases dernières conséquences l'idée pessimiste de la réa-
 . lité, il avait découvert cette doctrine du Retour qui,
 à conférant aux plus fugitives choses l'éternité, restaure
 en chacune d'elles la puissance lyrique, la valeur reli-
@@ -545,9 +518,7 @@ nous; mais il m'est insupportable de penser qu'en envoyant
 
 un livre à un ami, j'exerce sur lui une sorte de pression. VAN HAE
 
-Qu'importe un livre! Ce qui me reste à faire importe davan-
-
-tage — ou je ne saurais pourquoi vivre. L'instant est dur y …
+Qu'importe un livre! Ce qui me reste à faire importe davantage — ou je ne saurais pourquoi vivre. L'instant est dur y …
 pour moi, je souffre beaucoup. DRE
 Amicalement, ton de
 Erwin Rohde ne répond pas à cette lettre même.
@@ -559,8 +530,7 @@ douceur du temps qu'il peut se baigner dans la mer...
 « Je me sens si riche, si fier, écrit-il à Peter Gast, tout
 à fait principe Doria. Vous seul me manquez, cher ami,
 vous et votre musique! » HAE
-Depuis les représentations des Nibelungen à Bay-
-reuth — depuis plus de cinq ans — Frédéric Nietzsche
+Depuis les représentations des Nibelungen à Bayreuth — depuis plus de cinq ans — Frédéric Nietzsche
 s'était privé de musique. Cave musicam! écrivait-il. Il
 craignait, s'il s'abandonnaïit à la jouissance des sons,
 d'être repris par le magicien des sons, Richard Wagner.
@@ -693,16 +663,13 @@ ou de Kief, qui vient avec une impatience barbare
 s'initier à la culture et conquérir un foyer dans nos
 vieilles capitales. Celle-ci, assurément, était de qualité rare: sa mère la suivait à travers l'Europe, portant les manteaux et les châles.
 ; Mademoiselle de Meysenbug s'engoua d'elle et désira
-aussitôt que Nietzsche connût cette rare créature. D'ac-
-cord avec Paul Rée, qui la connaissait de plus longue
+aussitôt que Nietzsche connût cette rare créature. D'accord avec Paul Rée, qui la connaissait de plus longue
 date, semble-t-il, et l'appréciait aussi, elle écrivit sa
-; Frédéric Nietzsche arrive et entend l'éloge de made-
-moiselle Lou. Elle est fine, inspirée, vaïllante: intransigeante dans la recherche et l'affirmation; par tous les
+; Frédéric Nietzsche arrive et entend l'éloge de mademoiselle Lou. Elle est fine, inspirée, vaïllante: intransigeante dans la recherche et l'affirmation; par tous les
 traits de son enfance'une héroïne: c'est la promesse
 d'une grande vie. À l'église Saint-Pierre, un matin, la
 jeune fille et le philosophe sont présentés l'un à l'autre.
-Mademoiselle Lou Salomé discerna aussitôt la qua-
-lité singulière de l'homme qu'on lui amenaït. Frédéric
+Mademoiselle Lou Salomé discerna aussitôt la qualité singulière de l'homme qu'on lui amenaït. Frédéric
 ; Nietzsche avait désappris, durant ses longs mois de vie
 solitaire, le plaisir de causer et d'être écouté. « La jeune
 . russe » (c'est ainsi qu'il l'appelle en ses lettres) l'écouta;
@@ -749,9 +716,7 @@ Et il ajouta avec gravité:
 
 En mai il la quitta, non sans espoir de réunion prochaine. Lou Salomé allait à Bayreuth d'où Nietzsche
 voulait s'exclure. Elle promit de le rejoindre aussitôt
-après les fêtes: elle pourrait confronter ainsi la der-
-
-nière pensée du maître et celle du disciple affranchi.
+après les fêtes: elle pourrait confronter ainsi la dernière pensée du maître et celle du disciple affranchi.
 lui conseilla la lecture d'un de ses livres: Schopenhauer
 comme éducateur. Il avouait toujours cette œuvre de
 jeunesse, hymne à la bravoure d'un penseur, à la solitude volontaire.
@@ -761,8 +726,7 @@ jeunesse, hymne à la bravoure d'un penseur, à la solitude volontaire.
 Le huit mai, traversant Bâle, il vit les Overbeck et
 leur conta l'événement avec une exaltation étrange.
 Une femme était entrée dans sa vie: c'était un bonheur
-pour lui, un bienfait pour sa pensée; elle serait doré-
-navant plus vive, plus nuancée, plus riche, plus émouvante. Assurément il eût préféré ne pas épouser mademoiselle Salomé: il dédaignait tout lien de chair; mais
+pour lui, un bienfait pour sa pensée; elle serait dorénavant plus vive, plus nuancée, plus riche, plus émouvante. Assurément il eût préféré ne pas épouser mademoiselle Salomé: il dédaignait tout lien de chair; mais
 peut-être il serait obligé de lui donner son nom pour la
 préserver des bavardages; et de son union spirituelle
 
@@ -788,7 +752,7 @@ de Paul Rée, sans doute son disciple. Il n'aima point
 cela, partit sans retard et passa quelques semaines à
 Naumburg où il dicta le manuscrit de son prochain
 livre, La Gaya Scienza. Aux siens, semble-t-il, à sa mère?
-et à sa sœur, il parla discrètement de la nouvelle amie. -;
+et à sa sœur, il parla discrètement de la nouvelle amie.
 Le 27 juillet était la date fixée pour la représentation
 du Parsifal. Frédéric Nietzsche alla séjourner dans un
 village des forêts Thuringiennes, Tautenburg, peu
@@ -816,7 +780,7 @@ Il pensait beaucoup aux fêtes de Bayreuth: mais il
 dissimulait ou n'avouait qu'à demi ses regrets. « Je suis
 bien content de n'y pouvoir aller, écrit-il à Lou Salomé.. a
 
-5 Et pourtant si je pouvais être à côté de vous, en bonne
+Et pourtant si je pouvais être à côté de vous, en bonne
 humeur de causerie; si je pouvais vous dire à l'oreille
 ceci, cela, eh bien, je pourrais supporter la musique de
 Parsifal (autrement, je ne saurais). »
@@ -887,8 +851,7 @@ s'élève entre nous. Tout ce que je vous ai écrit sur elle est
 absurde, et non moins absurde, sans doute, ce que je vous
 
 Cette phrase un peu méfiante et réticente n'indique
-pas un cœur moins épris. Lou Salomé quitta Tauten-
-burg; Frédéric Nietzsche continua de lui écrire des
+pas un cœur moins épris. Lou Salomé quitta Tautenburg; Frédéric Nietzsche continua de lui écrire des
 lettres dont plusieurs nous sont connues. Il lui confie
 ses travaux, ses projets: il veut aller à Paris ou à
 Vienne étudier les sciences physiques pour approfondir
@@ -954,9 +917,7 @@ cation en est cause: tout homme doit avoir été élevé …
 . pour être, en quelque manière, un soldat. Et la femme,
 
 en quelque manière, la femme d'un soldat. »
-Nietzsche n'avait ni l'expérience ni la résolution néces-
-
-saires pour trancher une situation infiniment pénible.
+Nietzsche n'avait ni l'expérience ni la résolution nécessaires pour trancher une situation infiniment pénible.
 
 Sa sœur, qui voyait son désarroi et détestait mademoi-
 
@@ -1085,16 +1046,13 @@ de la confondre avec celles qui viendront ensuite: on
 sentira la sainteté, la fréquente suavité de l'accent.
 
 D'où vient l'abandon du Retour Éternel? Nietzsche
-n'écrit pas un mot qui éclaircisse ce mystère. Mademoi-
-
-selle Lou Salomé nous apprend qu'à Leipzig, durant
+n'écrit pas un mot qui éclaircisse ce mystère. Mademoiselle Lou Salomé nous apprend qu'à Leipzig, durant
 ses courtes études, il avait compris l'impossibilité de
 
 fonder en raison son hypothèse. Mais cela n'en diminuait pas la valeur lyrique dont il saura, un an plus
 tard, tirer parti; et cela ne saurait expliquer, en tous
 
-cas, l'apparition d'une idée contraire. Que penser? Peut-
-être son stoïcisme fut vaincu par la trahison de ses
+cas, l'apparition d'une idée contraire. Que penser? Peutêtre son stoïcisme fut vaincu par la trahison de ses
 deux amis. « Malgré tout — écrit-il le 3 décembre à
 Paul Gast, — je ne voudrais pas revivre ces derniérs
 mois. » Nous savons qu'il ne cessait d'éprouver en luimême l'efficacité de ses pensées. Incapable de supporter
@@ -1193,11 +1151,10 @@ partagent; au plus bas, la caste populaire, laissée à ses
 humbles croyances; au-dessus d'elle, la caste des chefs,
 
 organisateurs et guerriers; au-dessus des chefs mêmes,
-la caste sacrée, les poètes qui créent les illusions et dic-
-tent les valeurs. — Souvenons-nous de l'écrit de Richard Au
+la caste sacrée, les poètes qui créent les illusions et dictent les valeurs. — Souvenons-nous de l'écrit de Richard Au
 
 Wagner sur l'art, la religion et la politique admiré par
-Frédéric Nietzsche en 1869: une hiérarchie semblable y:
+Frédéric Nietzsche en 1869: une hiérarchie semblable
 était proposée.
 
 Dans son ensemble, l'œuvre est sereine. C'est la plus Hs)
@@ -1234,16 +1191,13 @@ et accessible à tous...
 . Il écrit à Peter Gast, à mademoiselle de Meysenbug:
 Cette année, dit-il, point de société. J'irai tout droit de
 Gênes à Sils! — Ainsi fit Zarathoustra qui laissa la
-grande ville et retourna vers la montagne. Mais Frédé-
-ric Nietzsche n'est pas Zarathoustra. Quelques semaines
+grande ville et retourna vers la montagne. Mais Frédéric Nietzsche n'est pas Zarathoustra. Quelques semaines
 passent. L'éditeur Schmeïtzner est lent: Nietzsche s'im-,
 patiente et modifie les projets de son été. Il désire entendre une parole humaine. Sa sœur, qui est à Rome
 auprès de mademoiselle de Meysenbug, le devinant las
 (1) Lettre inédite, communiquée par M. Romain Rolland.
 
-Let détendu, saisit l'instant pour essayer de le rappro-
-
-cher d'elle. Il ne se défend pas et promet sa venue, à
+Let détendu, saisit l'instant pour essayer de le rapprocher d'elle. Il ne se défend pas et promet sa venue, à
 
 Le voici à Rome: sa vieille amie l'introduit aussitôt
 
@@ -1330,9 +1284,7 @@ Ces deux femmes, chrétiennes de cœur, sont froissées.
 La chaleur dispersa cette société romaine. Frédéric
 Nietzsche ne sut où aller. Il avait espéré des jours si
 différents! Il avait été persuadé qu'il émouvrait l'Europe
-lettrée; qu'il s'attirerait enfin des lecteurs, ou (plus exac-
-
-tement peut-être), qu'il attirerait, non vers lui si faible, A
+lettrée; qu'il s'attirerait enfin des lecteurs, ou (plus exactement peut-être), qu'il attirerait, non vers lui si faible, A
 mais vers Zarathoustra si fort, des disciples et presque
 des fidèles. « Pour cet été, écrivait-il en mai à Peter
 Gast, j'ai un projet: choisir, dans quelque forêt, A
@@ -1358,15 +1310,11 @@ paroles de Zarathoustra. Saisi par les souvenirs, par la
 soudaine solitude, emporté par un prodigieux mouvement d'inspiration, il écrivit en dix jours la deuxième
 partie de son œuvre.
 
-Elle est amère. Frédéric Nietzsche ne sait plus répri-
-
-mer les rancunes dont il avait senti l'autre hiver la me-
+Elle est amère. Frédéric Nietzsche ne sait plus réprimer les rancunes dont il avait senti l'autre hiver la me-
 
 . nace; il ne sait plus unir la force à la douceur. « Je ne
 
-suis pas un chasseur de mouches disait jadis Zara-
-
-thoustra; et dédaignait ses adversaires. Il parlait en
+suis pas un chasseur de mouches disait jadis Zarathoustra; et dédaignait ses adversaires. Il parlait en
 
 bienfaiteur: on ne l'avait pas écouté. Nietzsche lui prête
 
@@ -1478,16 +1426,13 @@ dissentiments de l'été précédent. Au printemps, en se LA
 rapprochant d'elle, il lui avait dit, la sachant querel- A
 leuse: Promets-moi de ne jamais revenir sur les histoires
 de Lou Salomé et de Paul Rée. Pendant trois mois #4
-elle s'était contenue; puis elle se dédit et parla. Que dit-
-elle? Nous ne savons; nous sommes repris ici par les
+elle s'était contenue; puis elle se dédit et parla. Que ditelle? Nous ne savons; nous sommes repris ici par les
 obscurités de cette obscure histoire. « Lisbeth, écrit-il à
 madame Overbeck, veut absolument se venger sur la
 
 jeune russe. » Sans doute elle lui rapporta quelque
 
-à fait, quelque propos qu'il ignorait. Une irritation mala-
-
-dive le saisit, une fureur contre cette inintelligente et
+à fait, quelque propos qu'il ignorait. Une irritation maladive le saisit, une fureur contre cette inintelligente et
 
 basse humanité dont il est captif. Il écrit à Paul Rée,
 et voici cette lettre, dont un brouillon a été retrouvé
@@ -1499,16 +1444,12 @@ part vous avez prise à ce qui s'est passé, l'autre été: et mon
 âme n'a jamais été si comblée de dégoût qu'elle ne l'est
 présentement, à la pensée qu'un individu de votre sorte,
 insidieux, menteur et fourbe, a se dire, pendant des
-années, mon ami. C'est un crime à mon sens, et non seule-
-
-ment contre moi, mais tout d'abord et surtout contre
+années, mon ami. C'est un crime à mon sens, et non seulement contre moi, mais tout d'abord et surtout contre
 
 lFamitié, contre ce mot très creux, d'amitié.
 
 à Fi, monsieur! Donc, c'est vous, le calomniateur de mon
-caractère; et mademoiselle Salomé n'a été que le porte-
-
-parole, le très malpropre porte-parole, des jugements que
+caractère; et mademoiselle Salomé n'a été que le porteparole, le très malpropre porte-parole, des jugements que
 
 3 vous portiez sur moi? Donc, c'est vous, qui, moi absent,
 cela de soi, parliez de moi comme d'un vulgaire et bas
@@ -1521,9 +1462,7 @@ poursuivi les plus sales desseins sous un masque d'idéalité?
 Done, c'est vous qui avez osé dire de moi, que j'étais fou et
 
 ne savais ce que je voulais? Maintenant, assurément, je
-comprends mieux toute cette affaire qui m'a rendu étran-
-
-gers les hommes les plus vénérables et que j'estimais les
+comprends mieux toute cette affaire qui m'a rendu étrangers les hommes les plus vénérables et que j'estimais les
 plus proches de moi... Et je vous ai cru mon ami; et rien,
 peut-être, depuis sept ans, n'a contrarié mon succès davantage que la peine que je me suis donnée pour vous défendre.
 
@@ -1539,7 +1478,7 @@ morale pratique avec une paire de pistolets: je réussirais?
 
 le travail du Zaraihoustra APR
 peut-être, dans le cas le plus favorable, à interrompre une
-fois pour toutes vos travaux sur la morale —: il y faut
+fois pour toutes vos travaux sur la morale il y faut
 des mains propres, monsieur le docteur Paul Rée, et non
 des doigts souillés!
 
@@ -1548,8 +1487,7 @@ Frédéric Nietzsche l'écrivit dans un mouvement de
 
 colère, d'après des renseignements donnés par sa sœur,
 
-souvent plus passionnée que véridique: c'est un pré-
-cieux témoignage sur son impression; sur les données
+souvent plus passionnée que véridique: c'est un précieux témoignage sur son impression; sur les données
 mal connues de la cause, c'est un témoignage médiocre. …
 Quelle fut la conduite de Paul Rée? Quels furent ses
 torts, son droit? En avril 1883, six mois après les difficultés de Leipzig, il avait écrit à Nietzsche pour lui offrir -
@@ -1599,13 +1537,11 @@ saisit malaisément. Il aimait les siens parce qu'ils
 étaient siens, et parce qu'il était tendre, fidèle, infiniment sensible aux souvenirs. Mais chacune de ses idées,
 chacun de ses désirs l'éloignait d'eux et son esprit les
 ._. méprisait. Pourtant la vieille maison de Naumburg était
-le seul endroit au monde où subsistait pour lui, à con-
-dition d'y rester peu, quelque douceur de vie.
+le seul endroit au monde où subsistait pour lui, à condition d'y rester peu, quelque douceur de vie.
 
 Il trouva la mère et la fille en dispute. Lisbeth aimait
 un certain Fôrster, agitateur, idéologue germaniste et.
-antisémite qui organisait une entreprise de colonisa-
-tion au Paraguay; elle voulait le suivre, et la mère
+antisémite qui organisait une entreprise de colonisation au Paraguay; elle voulait le suivre, et la mère
 désespérée voulait la retenir. Elle accueillit son fils
 comme un sauveur et lui raconta les projets insensés
 que formait Lisbeth. Frédéric Nietzsche fut bouleversé:
@@ -1669,8 +1605,7 @@ plus noble que l'airain, voilà, dira Zarathoustra, la
 béatitude du créateur. » Vie »
 
 Quelles lois, quelles tables, Nietzsche voudra-t-il;
-dicter? Quelles valeurs choisira-t-il d'honorer ou dépré-
-cier? Et quel est son droit à choisir, à édifier un ordre
+dicter? Quelles valeurs choisira-t-il d'honorer ou déprécier? Et quel est son droit à choisir, à édifier un ordre
 dans désordre universel? — C'est le droit du poète,
 sans doute, dont le génie, créateur d'illusions, impose …
 à l'imagination des hommes tel amour, telle haïne, tel
@@ -1739,9 +1674,7 @@ Les disciples hésitent encore.
 les hommes, leur dit-il; frappez!
 
 Mais ils craignent le peuple et abandonnent leur
-maître. Alors Zarathoustra parle seul. La foule l'inter-
-
-rompt, l'insulte.
+maître. Alors Zarathoustra parle seul. La foule l'interrompt, l'insulte.
 
 Un homme en l'entendant, se tue; un autre devient fou.
 Un divin orgueil de poète l'anime: tout doit être mis en
@@ -1781,14 +1714,12 @@ Mais surtout il se heurte à une difficulté de fondque
 peut-être il ne conçoit pas très nettement: les deux.
 symboles sur lesquels il fait porter son poème, le Retour
 Eternel et le Surhomme, sont en désaccord. Le Retour
-Éternel est un exercice spirituel qui a pour fin la sup-
-pression de toute espérance — une âpre vérité. Le
+Éternel est un exercice spirituel qui a pour fin la suppression de toute espérance — une âpre vérité. Le
 Surhomme est une espérance — une illusion. De Pun À
 à l'autre, il n'y a nul passage: la contradiction est à
 
 RAS entire. Si Zarathoustra enseigne le Retour Éternel, il
-ne pourra pas susciter dans les âmes une croyance pas-
-sionnée en la surhumanité. Et s'il enseigne le Surhomme,
+ne pourra pas susciter dans les âmes une croyance passionnée en la surhumanité. Et s'il enseigne le Surhomme,
 . ilne pourra pas propager le terrorisme moral du Retour
 
 Éternel. Frédéric Nietzsche lui assigne pourtant ces deux
@@ -1806,9 +1737,7 @@ Il écrit un deuxième plan, qui ne laisse pas d'être
 
 habile: même décor, même cité accablée par la peste,
 
-consumée par les flammes; même supplique à Zara-
-
-thoustra, qui vient parmi ce peuple décimé. — Mais il
+consumée par les flammes; même supplique à Zarathoustra, qui vient parmi ce peuple décimé. — Mais il
 vient en bienfaiteur et se garde d'annoncer la terrible
 
 doctrine. D'abord il donne ses lois et les fait accepter.
@@ -1829,9 +1758,7 @@ méchants respectables en tant que destructeurs, car la destruction est nécessa
 
 Se laisser instruire par les méchants, ne pas leur interdire
 la concurrence. Utiliser les dégénérés. — Le châtiment est
-justifié, quand le criminel est utilisé, comme objet d'expé-
-
-le travail du Zarathoustra
+justifié, quand le criminel est utilisé, comme objet d'expéle travail du Zarathoustra
 
 rience (pour une alimentation nouvelle). Le châtiment est
 ainsi consacré... À
@@ -2006,8 +1933,7 @@ nouveau travail entreprendre et son ardeur sans but se
 convertit en ennui. Rédigera-t-il son système, quelque PEN
 « Philosophie de l'avenir Il y songe; maïs non: las de
 pensée et d'écriture, il voudrait se reposer au son d'une
-belle musique. Quelle musique? Hélas! Celle qu'il pour-
-rait aimer n'existe pas. L'italienne est molle; lallemande est sermonneuse; nulle n'est à son gré lyrique
+belle musique. Quelle musique? Hélas! Celle qu'il pourrait aimer n'existe pas. L'italienne est molle; lallemande est sermonneuse; nulle n'est à son gré lyrique
 et vive, grave et fine, rythmée, moqueuse et passionnée.
 Carmen lui plaît assez: pourtant il préfère à Carmen
 les compositions de son disciple Peter Gast. « Votre
@@ -2050,8 +1976,7 @@ l'occupent. Il pense très sérieusement à sa « philosophie
 - de l'avenir ». Il veut abandonner, tout au moins dif-
 … férer, son poème; s'astreindre à de longues études —
 « cinq, six années de méditation et de silence peut-être »
-— et formuler son système d'une manière précise et dé-
-finitive. Il se dirige vers la Suisse afin de lire des livres
+— et formuler son système d'une manière précise et définitive. Il se dirige vers la Suisse afin de lire des livres
 de science historique et naturelle dans les bibliothèques
 de Bâle. Mais c'est un séjour bref: la chaleur lourde
 loppresse, les amis Basi®s ne le satisfont pas. Ils n'ont
@@ -2119,11 +2044,8 @@ irréparables et sa toute dernière œuvre, la fin même du
 . Zarathoustra, d'un lyrisme très imprécis, n'interdisait
 pas l'espoir d'uné entente. Heïnrich von Stein avait cette
 impression. En mai 1884, il avait écrit à Nietzsche:
-Combien je désire que vous veniez cet été écouter Par-
-sifal à Bayreuth... Quand je pense à cette œuvre, j'imagine
-une forme de pure beauté, une aventure spirituelle pure-
-ment humaine, le développement d'un adolescent qui de-
-vient homme. Il n'y a pour moi, dans Parsifal, aucune sorte
+Combien je désire que vous veniez cet été écouter Parsifal à Bayreuth... Quand je pense à cette œuvre, j'imagine
+une forme de pure beauté, une aventure spirituelle purement humaine, le développement d'un adolescent qui devient homme. Il n'y a pour moi, dans Parsifal, aucune sorte
 de pseudo-christianisme et moins de tendances qu'en toute
 … autre œuvre de Wagner. Si je vous écris mon désir — avec.
 ; hardiesse et timidité tout à la fois — ce n'est pas parce que
@@ -2213,10 +2135,8 @@ comme dans les choses mauvaises, est lié à monsort. »
 Stein répondit: « Les jours de Sils sont pour moiun.
 grand souvenir, un grave et solennel instant de ma
 vie. »-Pourtant il n'écrit pas « Oui, je suis votre... » Il
-parle, non sans prudence, de ses travaux et de sa pro-
-fession qui l'obligent. “.
-Frédéric Nietzsche eut-il l'esprit assez libre pour per-
-cevoir cette réserve? Cela n'est point sûr. Il faisait de
+parle, non sans prudence, de ses travaux et de sa profession qui l'obligent. “.
+Frédéric Nietzsche eut-il l'esprit assez libre pour percevoir cette réserve? Cela n'est point sûr. Il faisait de
 merveilleux projets pour son hiver et rêvait à nouveau
 d'un « cloître idéal ». Il écrivait à mademoiselle de
 Meysenbug et proposait avec simplicité qu'elle vint
@@ -2225,8 +2145,7 @@ Il descend vers Bâle en septembre: un hasard nous
 
 y laisse découvrir les abîimes de son âme.
 Overbeck lui rendre visite à son hôtel: Nietzsche
-est au lit, souffrant d'une migraine, fort déprimé. Pour-
-tant il cause et inquiète son ami par le trouble de ses discours. Il veut l'initier au mystère du Retour Éternel. « Un
+est au lit, souffrant d'une migraine, fort déprimé. Pourtant il cause et inquiète son ami par le trouble de ses discours. Il veut l'initier au mystère du Retour Éternel. « Un
 
 jour nous nous retrouverons ici-même, moi de nouveau
 
@@ -2234,8 +2153,7 @@ malade comme je suis, vous de nouveau surpris par
 mes discours comme vous êtes. » Son visage est bou
 leversé, sa voix basse et tremblante: tel nous la
 
-toute discussion et se retire avec un mauvais pressen-
-timent. — Il ne devait plus revoir son ami avant la_ tragique rencontre de Turin, en janvier 1889.;
+toute discussion et se retire avec un mauvais pressentiment. — Il ne devait plus revoir son ami avant la_ tragique rencontre de Turin, en janvier 1889.;
 Frédéric Nietzsche ne faisait que traverser Bâle: sa
 sœur, qu'il n'avait pas revue depuis les disputes de:
 l'autre automne, lui demandait et fixait un rendez-vous
@@ -2282,8 +2200,7 @@ tête pleine des plus extravagants poèmes qui aient jamais
 - hanté le crâne d'un Iyrique. J'ai reçu une lettre de Stein.
 Cette année m'a donné beaucoup de bonnes choses; lun de
 ces précieux dons, c'est Stein: un nouvel, un sincère ami. à
-Bref, soyons plein d'espoir; ou, pour nous mieux expri-
-mer, disons avec le vieux Keller:
+Bref, soyons plein d'espoir; ou, pour nous mieux exprimer, disons avec le vieux Keller:
 Buvez, à mes yeux, ce que vos cils enclosent
 De l'excès doré du monde!
 « Le frère et la sœur quittent Zurich; l'un allant vers
@@ -2295,9 +2212,7 @@ personne ne me vienne rejoindre: j'ai besoin de cette
 
 Que fait-il? Se souvient-il du projet qu'il avait formé
 au commencement de l'été: Six ans de méditation et de
-silence? Non; la méditation longue et silencieuse sup-
-
-pose une force de volonté qu'il n'a pas. Ému par l'espé-;
+silence? Non; la méditation longue et silencieuse suppose une force de volonté qu'il n'a pas. Ému par l'espé-;
 rance d'un ami, par la perte d'une sœur, il ne peut
 contenir son impatience lyrique. Il cède à son instinct,
 il improvise des chants: lieds, stances brèves, épigrammes. Presque tous les poèmes que l'on rencontre
@@ -2337,8 +2252,7 @@ le prit par le bras, curieux d'examiner ce lecteur à
 de ses livres.
 — Voyons un peu comme vous êtes fait. Ne
 Et il fixa sur lui ces yeux qui avaient été beaux, qui
-par instants l'étaient encore, mais que voilaient un peu « les trop longues souffrances. Lanzky, venu rendre hom-
-mage à un redoutable prophète, était surpris de ren
+par instants l'étaient encore, mais que voilaient un peu « les trop longues souffrances. Lanzky, venu rendre hommage à un redoutable prophète, était surpris de ren
 contrer le plus affable, le plus simple, et, semblaït-il, le
 plus modeste des professeurs allemands.
 Les deux hommes sortirent ensemble. Lanzky avoua
@@ -2374,11 +2288,7 @@ tasse de thé qu'il préparait lui-même; vers huit heures,
 
 à matinée: il le rejoignait ensuite sur le bord de la mer
 
-ou respectait sa promenade solitaire. Tous deux déjeu-
-
-naiïent dans leur pension. Durant l'après-midi ils mar-
-
-chaïent ensemble. Le soir, à la lumière, Nietzsche écri-
+ou respectait sa promenade solitaire. Tous deux déjeunaiïent dans leur pension. Durant l'après-midi ils marchaïent ensemble. Le soir, à la lumière, Nietzsche écri-
 
 - vait ou Lanzky lui lisait à haute voix quelque livre,:
 souvent quelque livre français, les lettres de l'abbé Ga-
@@ -2416,8 +2326,7 @@ Mais il s'y refusait absolument et répétait à Lanzky:
 son explication:
 — Mes livres ne doivent pas être lus par les premiers
 — Maître, disait Lanzky, pourquoi les faites-vous
-A cette question trop sensée il semble qu'aucune ré-
-ponse satisfaisante ne fut donnée.:7%
+A cette question trop sensée il semble qu'aucune réponse satisfaisante ne fut donnée.:7%
 Mais Frédéric Nietzsche dissimulait avec Lanzky A
 même. — Il aimait à lui répéter, à développer devant
 lui son vieux rêve: la constitution d'une société d'amis,
@@ -2433,8 +2342,7 @@ Heinrich von Stein n'annonçait pas sa venue, nine
 donnait signe de vie. Quelles étaient ses dispositions?
 Il était monté à Sils-Maria pour concilier, s'il se pouvait, deux maîtres. L'un de ces maîtres lui avait dit:
 entre nous deux il faut choisir. Un instant peut-être il À
-avait été ébranlé. Mais il était retourné dans son Alle-
-magne; il avait revu Cosima Wagner; et puisque
+avait été ébranlé. Mais il était retourné dans son Allemagne; il avait revu Cosima Wagner; et puisque
 
 Nietzsche exigeait qu'il choisit, il restait fidèle à
 Frédéric Nietzsche pressentit un nouvel abandon. Il
@@ -2459,8 +2367,7 @@ je cause avec eux. Ces entretiens deviennent de plus en
 que vous auriez plaisir à ces entretiens. Et cette idée m'est
 ; venue: serait-il pas excellent que Nietzsche nous envoie,
 - de temps à autre, un texte pour nos entretiens? Voudriez-
-. vous ainsi communiquer avec nous? Une telle correspon-
-dance, ne voudriez-vous pas y voir une introduction, un
+. vous ainsi communiquer avec nous? Une telle correspondance, ne voudriez-vous pas y voir une introduction, un
 … acheminement à votre cloître idéal?
 
 Cest la lettre d'un bon élève. Heinrich vonStelnnom
@@ -2471,8 +2378,7 @@ de pensée, séducteur des jeunes hommes. Fôrster, qui
 lui prenait sa sœur, était un wagnérien; et Heinrich
 von Stein, à cause de Wagner, lui refusait son dévouement. Seul, au prix d'un combat dont il restait blessé,
 il avait conquérir une cruelle liberté, Il écrivit à sa
-poésie! Je suis bien péniblement affecté. Me voici de nou-
-veau malade. Je recours au vieux moyen, (1) — et tous les
+poésie! Je suis bien péniblement affecté. Me voici de nouveau malade. Je recours au vieux moyen, (1) — et tous les
 hommes que j'ai jamais connus, je les haïs, indiciblement,
 y compris moi-même. Je dors bien; mais j'éprouve au
 réveil de la misanthropie, des rancunes. Pourtant il existe à
@@ -2483,8 +2389,7 @@ il ne se laissa pourtant pas accabler et travailla avec
 énergie. Il se promena seul plus souvent qu'aux pre
 miers jours, et Lanzky le voyait aller d'un pas dansant
 sur la promenade des Anglais ou sur les routes de
-montagnes: il sautillait, bondissait, il gambadaït par-
-fois, puis soudain interrompait ses entrechats pour
+montagnes: il sautillait, bondissait, il gambadaït parfois, puis soudain interrompait ses entrechats pour
 crayonner quelques mots. Quel travail avait-il entre:
 pris? Lanzky l'ignorait.
 Un matin de mars comme il entrait, suivant sonhabitude, dans la petite chambre qu'occupait le philosophe,
@@ -2502,22 +2407,19 @@ dans la vie du héros; épisode étrange qui a déconcerté
 maint lecteur. Peut-être nous le comprendrons plus
 È aisément si nous pensons à la déception qui vient de
 … traverser la vie de Nietzsche.
-k. Les « hommes supérieurs » montent vers Zarathous-
-tra et le surprennent dans sa solitude montagnarde:
+k. Les « hommes supérieurs » montent vers Zarathoustra et le surprennent dans sa solitude montagnarde:
 un vieux pape, un vieil historien, un vieux roi, malheu-
 .. reux êtres qui souffrent de leur abaïissement et viennent
 demander secours au sage dont ils sentent la force. —
 
-Pensons à Stein, ce distingué jeune homme que Bay-
-reuth étiole: n'est-il pas aussi monté vers Nietzsche?
+Pensons à Stein, ce distingué jeune homme que Bayreuth étiole: n'est-il pas aussi monté vers Nietzsche?
 Zarathoustra admet auprès de lui Ces « hommes
 3 supérieurs il réprime pour eux son humeur sauvage;
 É il les fait asseoir dans sa grotte, prend en pitié leur
 …. inquiétude, les écoute et leur parle. — Pensons à
 Nietzsche: n'a-til pas ainsi reçu Heinrich von Stein?
 Zarathoustra, dont l'âme est au fond moins dure
-qu'il ne faudrait, se laisse séduire par le charme mor-
-bide, par la finesse des « hommes supérieurs il a pitié
+qu'il ne faudrait, se laisse séduire par le charme morbide, par la finesse des « hommes supérieurs il a pitié
 : d'eux, il oublie que leur misère est sans remède et cède
 au plaisir d'espérer: ces « hommes supérieurs » sont-
 Ê - ils enfin ces amis qu'il attend? — Pensons à Nietzsche:
@@ -2529,8 +2431,7 @@ dans la montagne. Il revient vers la grotte; que voit-1?
 Les « hommes supérieurs » tous agenouillés autour d'un
 âne qu'ils adorent et le vieux pape disant la messe
 devant la nouvelle idole. — Pensons à Stein: n'est-ce
-pas en telle posture que Nietzsche l'a surpris, interpré-
-tant avec deux amis une Bible wagnérienne?:
+pas en telle posture que Nietzsche l'a surpris, interprétant avec deux amis une Bible wagnérienne?:
 Zarathoustra chasse ses hôtes: il veut des ouvriers
 nouveaux pour un monde nouveau. Les trouvera-t-il
 jamais? Il les appelle
@@ -2547,8 +2448,7 @@ Porte-leur la bénédiction de mon bonheur, la bénédiction
 de cette couronne de roses heureuses! Laisse tomber ces
 roses sur leurs îles et qu'elles restent posées comme un à
 signe, qui interroge: « D'où peut venir un tel bonheur? »
-Enfin, ils demanderont: « Vit-il encore, notre père Zara-
-thoustra? Quoi, est-il vrai, notre père Zarathoustra vit
+Enfin, ils demanderont: « Vit-il encore, notre père Zarathoustra? Quoi, est-il vrai, notre père Zarathoustra vit
 encore? Notre vieux père Zarathoustra aime encore ses
 Le vent souflle, le vent souflle, la lune resplendit, — oh
 mes lointains, lointains enfants, que n'êtes-vous ici, auprès
@@ -2647,9 +2547,7 @@ recevra les cahiers parus, et à leur date les cahiers à
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
@@ -2718,12 +2616,10 @@ Nos séries commenceront désormais le premier;
 - l'année suivante. C'est d'ailleurs à ces deux dates que
 3 commençaient et finissaient déjà nos exercices budgé-
 
-_taires. Nos cahiers paraïîtront par quinzaines sensi-
-blement de la mi-novembre à la mi-mars, et toutes les
+_taires. Nos cahiers paraïîtront par quinzaines sensiblement de la mi-novembre à la mi-mars, et toutes les
 deux quinzaines sensiblement de la mi-mars à la minovembre.
 à nos amis. — Je ne puis taire, et nous ne pouvons pas
-cacher plus longtemps ce que savent depuis le commencement de cette série tous ceux de nos amis qui vien-
-nent quelquefois au bureau des cahiers: que jai été
+cacher plus longtemps ce que savent depuis le commencement de cette série tous ceux de nos amis qui viennent quelquefois au bureau des cahiers: que jai été
 très sérieusement malade et que cette maladie a mis
 - en danger l'existence même des cahiers. Je ne parle;
 pas seulement de la mienne.
@@ -2735,8 +2631,7 @@ presque brusquement, le 10 septembre. Je dus garderle …
 . lit pendant quatre semaines, et non guéri je dus sauter - à
 du lit et de la maison, car il était temps, pour affronter
 cette vague redoutable de la rentrée. Je me suis provi- à
-soirement et pour cette fois rétabli et guéri en travail-
-lant et à force de travail, mais il ne faut pas tenter la à
+soirement et pour cette fois rétabli et guéri en travaillant et à force de travail, mais il ne faut pas tenter la à
 Je dois dire encore, nous devons ajouter que pourtant
 cette maladie n'avait rien d'imprévu, qu'elle peut me
 reprendre demain, qu'elle était toute naturelle, si je
@@ -2790,9 +2685,7 @@ sommes à aucun degré ni en aucun sens des amateurs.
 
 Nous sommes dans le sens le plus rigoureux de ce mot,
 
-le pius beau de tous, des professionnels. Nous travail-
-
-lons d'un certain métier, d'un dur métier. Le peu que
+le pius beau de tous, des professionnels. Nous travaillons d'un certain métier, d'un dur métier. Le peu que
 
 nous faisons nous ne le faisons point par amusements
 
@@ -2815,8 +2708,7 @@ Nous vivons en un temps si barbare que l'on confond
 le luxe avec la propreté. Quand un ouvrier essaye de
 travailler proprement, on l'inculpe de luxe. Et comme
 dans le même temps et de l'autre part le luxe et la
-richesse travaille toujours salement, il n'y a plus litté-
-ralement aucun joint par où la culture puisse ni se
+richesse travaille toujours salement, il n'y a plus littéralement aucun joint par où la culture puisse ni se
 maintenir, ni essayer seulement de se réintroduire, ni à
 seulement se défendre. Par où elle puisse passer. à
 
@@ -2872,8 +2764,7 @@ chefs, propriétaires, directeurs des plus grandes maisons d'édition de Paris, 
 dans ces cahiers dans les remerciements que je leur ai
 faits, qui sont nos abonnés, qui nous lisent et nous À
 suivent de près, qui seuls peut-être nous mesurent à
-notre mesure, et le peuvent, qui dans la misère crois-
-sante de ce pays, dans le marasme croissant des
+notre mesure, et le peuvent, qui dans la misère croissante de ce pays, dans le marasme croissant des
 affaires, dans toutes ces crises des affaires, et plus que à
 toutes autres dans le marasme et dans l'effroyable:
 crise de la librairie, nous estiment à notre juste prix,
@@ -2889,8 +2780,7 @@ en calcul, que l'on ne se trompe pas en calcul. Que lon À
 
 ; ne s'abuse pas sur ce qui nous attend. Ni sur l'avenir
 prochain de nos cahiers, ni sur lavenir prochaïn de ce
-pays. Dans cette barbarie, dans cette inculture crois-
-sante, dans ce désarroi des esprits et des mœurs, dans à
+pays. Dans cette barbarie, dans cette inculture croissante, dans ce désarroi des esprits et des mœurs, dans à
 ; ce désastre de la culture, plus nos cahiers seront bons,
 
 moins ils auront accès auprès du grand public, auprès
@@ -2899,13 +2789,11 @@ De plus en plus, d'année en année, et pour de longues
 années peut-être, le grand public s'abandonne et on
 labandonne, le public est abandonné à toutes les
 bassesses: à la pornographie, et non pas seulement à
-la pornographie grossière, vulgaire, basse, à la porno-
-graphie du ruisseau, à la pornographie des foules et
+la pornographie grossière, vulgaire, basse, à la pornographie du ruisseau, à la pornographie des foules et
 des masses, à la pornographie populaire, à la pornographie de la plèbe, dont nos moralistes professionnels
 mènent tant de bruit, qui serait encore la moins dangereuse de toutes, et presque naturelle, en un certain
 sens, mais à la pornographie censément élégante et
-: sociable, à la pornographie mondaine, à la pornographie du salon, du coin de la cheminée, la plus per-
-nicieuse de toutes, à beaucoup près, et qui, à son tour
+: sociable, à la pornographie mondaine, à la pornographie du salon, du coin de la cheminée, la plus pernicieuse de toutes, à beaucoup près, et qui, à son tour
 et par un débordement prévu, par une imitation, par
 une contrefaçon, par une singerie prévue envahit le
 à peuple même; à la frivolité, à la fatuité mondaine, à la
@@ -2922,8 +2810,7 @@ mœurs et les lois, le sérieux et la sévérité, les principes
 et les idées, les réalités et le beau langage, la propreté,
 la probité de langage, la probité de pensée, la justice
 
-et l'harmonie, la justesse, une certaine tenue, l'intelli-
-gence et le bon français, la révolütion et notre ancien
+et l'harmonie, la justesse, une certaine tenue, l'intelligence et le bon français, la révolütion et notre ancien
 socialisme, la vérité, le droit, la simple entente, le bon
 travail, le bel ouvrage, tout ce que nous avons soutenu,
 
@@ -2945,8 +2832,7 @@ l'ennemi s'était mis par les champs. Y
 
 Nul aujourd'hui, nul homme vivant ne nie, nul ne:
 conteste, nul ne songe même à se dissimuler qu'il y a un
-désordre; un désordre croissant et extrêmement inquié-
-tant; non point en effet un désordre apparent, un trouble
+désordre; un désordre croissant et extrêmement inquiétant; non point en effet un désordre apparent, un trouble
 de fécondité, qui recouvre un ordre à venir, mais un
 réel désordre d'impuissance et de stérilité; nul ne nie;
 plus ce désordre, le désarroi des esprits et des cœurs, la
@@ -3003,9 +2889,7 @@ Nous nous sommes permis quelquefois de communi-
 
 : quer la liste de nos abonnés, non point publiquement
 
-certes, mais nous avons cru pouvoir et devoir la com-
-
-muniquer, montrer nos fiches et nos étiquettes d'envoi
+certes, mais nous avons cru pouvoir et devoir la communiquer, montrer nos fiches et nos étiquettes d'envoi
 seulement à ceux de nos collaborateurs qui nous
 demandaient, qui voulaient savoir, comme ils en avaient
 le droit, et même le devoir, à qui nommément ils
@@ -3073,9 +2957,8 @@ Deuxièmement nous avons obtenu ce résultat que sans
 exercer rien qui ressemblât à une pression, d'aucune
 LA sorte, sans exercer ni demander aucun entraînement, …
 sans rien demander à personne, sans rien exercer ni de- {4
-mander qui ressemblât à une adhésion, à une sollicita-
-tion, à un engagement, à une aliénation quelconque
-nous avons par cette longue patience, par un recrutement longuement patiemment poursuivi, par un filtrage, …:
+mander qui ressemblât à une adhésion, à une sollicitation, à un engagement, à une aliénation quelconque
+nous avons par cette longue patience, par un recrutement longuement patiemment poursuivi, par un filtrage,
 par une épuration, par un épurage si je puis dire encore
 plus longuement patiemment poursuivi, constitué peu à Ne
 peu, sans engager personne, une société d'un mode à
@@ -3088,8 +2971,7 @@ dans le monde: une amitié; et une cité. À À
 ‘or Techniquement, expressément ce que Michelet nom- 51)
 mait une amitié. RULES
 Et naturellement et pour cette raison cette amitié, de
-notre abonnement, dispersée, serait encore plus impos-
-sible à reconstituer que le premier groupement de nos
+notre abonnement, dispersée, serait encore plus impossible à reconstituer que le premier groupement de nos
 : collaborateurs. Que le groupement du premier degré.
 C'est à nos amis de décider à présent s'ils veulent ou. à
 s'ils ne veulent pas que tant d'efforts mis dans
@@ -3156,8 +3038,7 @@ J'ai appris aussi, je sais ce que c'est que l'amitié, cette
 puissance économique. J'ai connu d'une connäissance,
 d'une épreuve, d'une expérience unique, non interchan-
 
-à geable, ce que c'est que la fidélité, et l'infidélité au con-
-traire, j'ai connu la constance et j'ai connu l'inconstance. J'ai beaucoup connu l'ingratitude. Jai connu la
+à geable, ce que c'est que la fidélité, et l'infidélité au contraire, j'ai connu la constance et j'ai connu l'inconstance. J'ai beaucoup connu l'ingratitude. Jai connu la
 camaraderie, cette pire de toutes les misères. Et comme.
 javais appris la nourriture et le rendement d'une
 œuvre, j'ai appris aussi la nourriture d'un sentiment.
@@ -3189,8 +3070,7 @@ donner d'achèvement. Dans la thèse complémentaire je
 me suis proposé de mettre autant que je le pourrai ce
 que j'ai acquis d'expérience dans les arts et métiers de
 la typographie. Dans la thèse principale je me suis
-proposé de mettre un peu de ce que j'ai acquis d'expé-
-rience dans la connaissance que nous pouvons obtenir
+proposé de mettre un peu de ce que j'ai acquis d'expérience dans la connaissance que nous pouvons obtenir
 par l'histoire des réalités mêmes de l'action publique
 et privée; politique, sociale, religieuse; économique,
 militaire et toutes autres; notamment intellectuelle et
@@ -3217,21 +3097,16 @@ de ton voisin. Tu ne convoiteras pas la charnelle soli-
 
 - métier. Il faut dire que la philosophie est le plus beau
 
-des métiers en un temps où plus que toutes les disci-
-
-plines, avant toutes les disciplines, elle est exposée aux
+des métiers en un temps où plus que toutes les disciplines, avant toutes les disciplines, elle est exposée aux
 dérisions, aux lacérations du primaire, mon cher Halévy,
 Ce n'était pas seulement la tentation du travail.
 C'était aussi, c'était peut-être autant, il faut l'avouer,
 une tentation, une réalité de lassitude. Un grand épuisement de force et de santé, peut-être. Mais surtout un
 grand épuisement d'espérance, de la force la première
 de toutes, la plus forte de toutes, peut-être la seule
-forte, de la force de l'espérance. Ce n'est pas impuné-
-ment qu'une génération comme la nôtre subit tant de
-déceptions. Non pas même tant de déceptions. Fragmen-
-taires. Discontinues. Discriminées. Distinguées. Et dont
-on peut dire l'une après l'autre que ce sont des décep-
-tions, telle et telle déception. Mais une seule déception.
+forte, de la force de l'espérance. Ce n'est pas impunément qu'une génération comme la nôtre subit tant de
+déceptions. Non pas même tant de déceptions. Fragmentaires. Discontinues. Discriminées. Distinguées. Et dont
+on peut dire l'une après l'autre que ce sont des déceptions, telle et telle déception. Mais une seule déception.
 Indistinguée intérieurement. Étalée sur dix et quinze
 ans. Un désabusement perpétuel, commencé il y dix
 ans par un coup d'éclat, continué incessamment depuis!
@@ -3239,13 +3114,11 @@ par une accélération, par une aggravation perpétuelle. …
 Un de nos abonnés, M. Salomon Reïinach, me disait
 un jour dans son cabinet: l'Affaire Dreyfus est la plus
 grande escroquerie du siècle. Sans doute il n'y voyait
-pas, il n'entendait pas par cette phrase, par ce mot ter-
-rible, il n'y voulait pas dire tout ce que nous y mettons
+pas, il n'entendait pas par cette phrase, par ce mot terrible, il n'y voulait pas dire tout ce que nous y mettons
 aujourd'hui; autrement il eût été un peu prophète, ce
 qui, je crois, n'entre pas dans son système de l'histoire
 des religions; et je ne veux pas surtout lui faire dire ce
-qu'il ne voulait pas dire; mon intention n'est naturelle-
-ment pas de le compromettre ni même de le citer comme
+qu'il ne voulait pas dire; mon intention n'est naturellement pas de le compromettre ni même de le citer comme
 témoin. Le temps des témoignages n'est pas encore À
 
 venu. C'était le temps où Bernard-Lazare mourait. La
@@ -3253,8 +3126,7 @@ banqueroute frauduleuse de l'affaire Dreyfus dans la
 fourberie politicienne mettait une amertume sans fond
 au cœur des véritables dreyfusistes. On voit qu'il y a
 déjà de cela beaucoup d'années. Pour qu'on puisse
-même parler de véritables dreyfusistes. On ne pou-
-wait pas prévoir alors, même dans ce flot d'amertume, même dans ce coup d'éclat de la désillusion,
+même parler de véritables dreyfusistes. On ne pouwait pas prévoir alors, même dans ce flot d'amertume, même dans ce coup d'éclat de la désillusion,
 jusqu'où irait cette déchéance, ni surtout qu'elle irait
 sans fin. Comme une mécanique affolée qu'elle ne
 s'arrêterait pas. J'étais allé le voir ce jour-là uniquement pour lui donner et lui demander des nouvelles
@@ -3289,12 +3161,10 @@ témoignages n'est point encore venu. Il viendra. Le
 temps des confessions n'est point encore venu. Ce sont
 des témoignages terribles. Ce prophète, prophète du.
 malheur, au moins du malheur temporel, comme tous
-les véritables prophètes, eut l''amertume infinie, au mo-
-ment même et dans les antécédences de la mort, de
+les véritables prophètes, eut l''amertume infinie, au moment même et dans les antécédences de la mort, de
 mesurer du regard, de ce regard d'une infinie bonté, »
 d'une infinie douceur, mais d'une sûreté totale; d'une …
-gaieté infinie, infiniment et amèrement amusé du scan-
-dale même, mais d'une clairvoyance de sang-froïd ter-w
+gaieté infinie, infiniment et amèrement amusé du scandale même, mais d'une clairvoyance de sang-froïd ter-w
 riblement infinie: cette abhorreur, cet abîme debarbarie
 et de lassitude, de corruption publique et politique où
 depuis nous descendons infatigablement, où nous roulons de cercle en cercle. ES:
@@ -3313,8 +3183,7 @@ notre fortune, tout notre événement. On peut aller jus-
 -qu'à se demander si elle ne commandera point toute
 notre destinée. D'elle vient, d'elle date toute notre
 misère. C'est une grande pitié pour une génération, c'est
-une grande peine, c'est une grande misère, une dé-
-chéance infatigable que d'avoir débuté dans la vie par
+une grande peine, c'est une grande misère, une déchéance infatigable que d'avoir débuté dans la vie par
 une aussi retentissante déception, par un aussi brutal,
 aussi brute désenchantement. Une génération peut ne
 pas s'en relever. Cette capitulation initiale, post-initiale
@@ -3339,14 +3208,12 @@ Nous sommes une génération sacrifiée. Nous ne
 sommes pas seulement des vaincus, une génération.
 vaincue. Cela ne serait rien. Cela n'est rien. Il y a des
 défaites glorieuses, des désastres rétentissants, plus
-assis, qui fixent mieux la gloire, plus beaux, plus ad-
-mis, plus commémorés que n'importe quel triomphe. …
+assis, qui fixent mieux la gloire, plus beaux, plus admis, plus commémorés que n'importe quel triomphe. …
 Maïs notre défaite est la pire de toutes, une défaite:
 obscure, et nous ne serons pas même méprisés: nous À
 serons ignorés; tout au plus nous serons peut-être grotesques. Il y a des défaites, Waterloo morne plaine, qui
 plus que des victoires, plus avantageusement, se fixent
-dans les mémoires des hommes, dans la commune mé-
-moire de l'humanité. Nous serons mesquins, nous serons
+dans les mémoires des hommes, dans la commune mémoire de l'humanité. Nous serons mesquins, nous serons
 petits, nous serons ordinaires, nous serons MmOYEns, OU À
 plutôt nous ne serons pas du tout. On ne s'occupera pas à
 de nous. Nous passerons inaperçus. Une défaite sans
@@ -3392,12 +3259,7 @@ Dans cette rareté, dans ce resserrement du marché
 de l'histoire c'est une singulière destinée; et ce serait
 un malheur irrévocable, une infortune infinie que la
 nôtre, pour qui mettrait son espérance, le sot, dans les
-jugements et dans les connaissances de l'histoire tem-
-
-porelle. Pour qui mettrait, pour qui placerait son espé-
-rance, temporelle, dans aucunes sortes de commémora-
-
-tions, temporelles. Nous pouvons nous rendre aujour-
+jugements et dans les connaissances de l'histoire temporelle. Pour qui mettrait, pour qui placerait son espérance, temporelle, dans aucunes sortes de commémorations, temporelles. Nous pouvons nous rendre aujour-
 
 d'hui ce témoignage, nous pouvons l'introduire,
 
@@ -3446,8 +3308,7 @@ encore nous retrouvons, nous recoupons ici cette importance capitale du mécanis
 mettre du grand. A l'entrée. Il n'en pouvait rien sortir,.
 il n'en est rien sorti que de petit. A la sortie, au
 débouché, à la maison de vente; au magasin. Nous
-fournissions du grand à cet appareil. Mais historiquement comment le savoir, comment le prouver? Auto-
-matiquemenit il n'a jamais rendu, il ne nous a jamais
+fournissions du grand à cet appareil. Mais historiquement comment le savoir, comment le prouver? Automatiquemenit il n'a jamais rendu, il ne nous a jamais
 rendu et fourni, il n'a jamais rendu et fourni au monde
 et mis dans le commerce que du petit. Nous avons été
 grands, dans la réalité; mais nous ne l'avons été que
@@ -3458,9 +3319,7 @@ parlons comme des imbéciles. Nous apparaissons
 comme des imbéciles. Nous avons l'air d'être des
 imbéciles. Et nous le sommes; puisque nous faisons
 figure d'imbéciles. Qu'importe que nous ayons été
-grands en réalité? L'histoire ne s'occupe pas des réa-
-
-lités. Elle n'a que faire de la réalité. Elle s'occupe de ce
+grands en réalité? L'histoire ne s'occupe pas des réalités. Elle n'a que faire de la réalité. Elle s'occupe de ce
 
 qui fait figure. Elle s'occupe des figures ainsi faites,
 
@@ -3482,9 +3341,7 @@ du tout au tout. Mais elle y est accoutumée.
 : Contre ce verdict où serait d'ailleurs l'appel tem- Les
 Nous paraïîtrions les mains vides. Mais nous ne pa-
 
-. raîtrons même pas. Nous n'irons jamais jusqu'à l'au-
-
-dience, et à la présentation à cette reine des temps
+. raîtrons même pas. Nous n'irons jamais jusqu'à l'audience, et à la présentation à cette reine des temps
 
 - modernes, souveraine incontestée des temps futurs.
 
@@ -3547,14 +3404,10 @@ qui m'importe le moins. Pourvu qu'il y ait des barri-
 
 batailles de plaines? Les chaudes batailles dans les
 
-… blés brûlés. Wagram. Ce brûlant soleil. Cette pous-
-
-sière. Et cette brûlante journée de juin où il y avait
+… blés brûlés. Wagram. Ce brûlant soleil. Cette poussière. Et cette brûlante journée de juin où il y avait
 
 1. un orage la veille. Vous vous rappelez. Et alors
-… les terres étaient détrempées, comme disent nos histo-
-
-riens. Vous comprenez ce que veut dire. veut
+… les terres étaient détrempées, comme disent nos historiens. Vous comprenez ce que veut dire. veut
 … dire qu'il y avait de la boue. La sale boue (noire
 4. et) liquide des plaines belges. Boueuse. Pleine de boue.
 La terre pleine de terre et d'eau. Alors on n'en sortait
@@ -3575,8 +3428,7 @@ jusqu'aux essieux. Seulement ce jour-là elle a compté,
 la boue. Vous vous rappelez. Tout le monde se rappelle. a
 Hyena souvent, de la boue. Tout le temps elle embête,
 les charretiers. Seulement, ce jour-là, un jour élu, elle
-a embèêté les charretiers de canons. Où sont vos mar-
-tyrs? Où sont vos héros? Où sont seulement vos victimes? Vous savez que je vous ai dit que pour moi
+a embèêté les charretiers de canons. Où sont vos martyrs? Où sont vos héros? Où sont seulement vos victimes? Vous savez que je vous ai dit que pour moi
 
 revient au même. Les centaines et les milliers et les
 
@@ -3587,9 +3439,7 @@ tombant de la même mort, éternellement impérissables
 pour moi, les centaines et les milliers et les centaines
 de milliers d'hommes courant au même assaut, pliant.
 de la même défaite, battant du même cœur, courant du
-même pied, soufilant, chantant du même souffle, char-
-riés du même élan, éclatants de la même victoire, mar-
-chant du même pas, chargeant de ce même pas de
+même pied, soufilant, chantant du même souffle, charriés du même élan, éclatants de la même victoire, marchant du même pas, chargeant de ce même pas de
 charge, chancelants, rompus de la même débâcle,
 oscillants de la même détresse, crevés du même
 désastre, éclatants, rompus du même triomphe; les à
@@ -3597,11 +3447,9 @@ formidables et irréguliers alignements; ces centaines;
 et ces milliers d'hommes, et ces centaines de milliers
 d'hommes penchés de la même pente, le corps tendu en:
 avant, penché de la même pente, incliné en avant de la
-même inclinaison, innombrables corps obliques parallè-
-se mouvant et müûs, innombrables corps mortels, im-.
+même inclinaison, innombrables corps obliques parallèse mouvant et müûs, innombrables corps mortels, im-.
 périssables pour moi, innombrables corps obliques
-nés vers le destin de l'assaut. Où sont vos Marseil-
-laises? Et les clameurs innombrables dans les plaines?
+nés vers le destin de l'assaut. Où sont vos Marseillaises? Et les clameurs innombrables dans les plaines?
 Les clameurs immenses, les montées des clameurs, les
 clameurs grandissantes, les clameurs assourdissantes;;
 . les stations et les prolongements et les profilements
@@ -3641,8 +3489,7 @@ pointés comme eux, culbutés comme eux, à la face du
 ciel, terrassés comme eux, vaincus comme eux, — se
 relevant comme eux. Où sont vos batailles de pleine
 plaine, et la section défendant le village, et sous l'ardent soleil, et les hommes dans le fossé, et la célèbre
-défense au coin d'un bois, du célèbre bois; et le mame-
-lon, Derrière un mamelon; et le moulin sur la butte,
+défense au coin d'un bois, du célèbre bois; et le mamelon, Derrière un mamelon; et le moulin sur la butte,
 l'irrécusable moulin; et le général, et l'État-Major
 
 avec ses lorgnettes; le même État-Major bien entendu A
@@ -3674,8 +3521,7 @@ pas. Alors de quoi parlez-vous? Apportez-moi donc À
 seulement vos morts. Voyons, comptons-les.
 Où est votre semaine. Quelle sera votre féte? Quel
 voire anniversaire? Quel jour sera le jour de votre
-commémoration? Quel jour les petits arrivistes ulté-
-rieurs célébreront-ils, organiseront-ils votre glorieux.
+commémoration? Quel jour les petits arrivistes ultérieurs célébreront-ils, organiseront-ils votre glorieux.
 cinquantenaire, votre centenaire, votre bi-, votre cing-
 
 49 centenaire. Il faut tout cela pour l'histoire. Où est votre
@@ -3683,9 +3529,7 @@ cette semaine tragique, la plus belle peut-être de toutes,
 . ‘semaine de mai, de qui mai est taché pour son éternité
 temporelle, semaine tragique, grande comme l'antique,
 . plus grande, si puissamment, si grandement tragique,
-4 si douce à moi cruelle. Tant de grandeur, tant de bas-
-trente mille meurtres; trente mille crimes. Des dévoue-
-ments sans nom. Trente mille sacrifices; trente mille
+4 si douce à moi cruelle. Tant de grandeur, tant de bastrente mille meurtres; trente mille crimes. Des dévouements sans nom. Trente mille sacrifices; trente mille
 folies. La terreur et le meurtre. Et dans tout ça, mélées,
 des histoires de concierge. L'assouvissement des haïnes.
 - La luxure du meurtre et du sang. Un orgueil fou. Une
@@ -3694,8 +3538,7 @@ des histoires de concierge. L'assouvissement des haïnes.
 4 héroïques. Un exercice de trahison comme aux temps
 . les plus bas des abjections romaines; un jeu de délations plus qu'impériales, plus que triumvirales; et un
 exercice, un jeu de fidélités plus quantiques, une célé-
-… bration d'hospitalité plus qu'antique, plus qu'hellé-
-nique, plus qu'odysséenne, et plus que Priam aux pieds
+… bration d'hospitalité plus qu'antique, plus qu'hellénique, plus qu'odysséenne, et plus que Priam aux pieds
 d'Achille. Et tant de haine et tant de charité qu'en plein
 treizième siècle. Une sorte de reéclatement à distance,
 À à quelle distance, un éclat soudainement éclaté, à vingt
@@ -3704,12 +3547,10 @@ tout le chrétien. Tant d'infamie, tant d'ignominie, tañt
 d'ignobiliesse. Et tant d'espièglerie héroïque. Vous me
 È parlez, mon ami, de maladie et de fatigue. Vous allez
 me parler de potion. Oui, vous prenez de l'euonymine.
-Thibault, sans doute, peut-être de l'aloïne, dernier perfectionnement. Vous comprenez combien je méprise » toutes ces drogues. Et qu'il faut que vous soyez vrai-
-ment bien goujat pour oser parler ainsi en public, (même
+Thibault, sans doute, peut-être de l'aloïne, dernier perfectionnement. Vous comprenez combien je méprise » toutes ces drogues. Et qu'il faut que vous soyez vraiment bien goujat pour oser parler ainsi en public, (même
 
 en privé), de toutes ces questions de drogue. Vousme
-parleriez d'ipéca. Cela sent, mon ami, l'infirmerie régi-
-mentaire. Vous me parleriez de pilules, de médecins et
+parleriez d'ipéca. Cela sent, mon ami, l'infirmerie régimentaire. Vous me parleriez de pilules, de médecins et
 de pharmaciens. Laissons tous ces herboristes. Les
 chambres de malade ne sont pas mon affaire. Et les:
 liniments. Et les flacons. Et les potions. Et les tisanes,
@@ -3769,8 +3610,7 @@ sur la trajectoire de ce boulet de faible calibre. Car il
 
 candidat à devenir de la matière d'hôpital. était parle
 chemin de ce village allemand. Ilavait à
-le maréchal Bessières, ou plutôt sur le maré Bes-
-sières. Une route vers Essling, une route vers Aspern.Ces
+le maréchal Bessières, ou plutôt sur le maré Bessières. Une route vers Essling, une route vers Aspern.Ces
 journées du Danube et de Vienne qui tiraient déjà, qui
 montraient déjà la corde, qui sentaient, quiannonçaient
 les difficultuosités des difficultés ultérieures, les lointaines À
@@ -3793,8 +3633,7 @@ nube, c'était grave. Le moins grave est qu'il y faillit
 réussir. Le Danube aussi eut l'idée de déborder. Etpuis
 à force de se battre on perdait du monde. On s'usait.
 On perdit Saint-Hilaire. On perdit notamment Lannes,
-Jean Lannes. Les ambulances. La destruction de lar-
-mée française? On perdit Pouzet. Une centaine de 27°
+Jean Lannes. Les ambulances. La destruction de larmée française? On perdit Pouzet. Une centaine de 27°
 pas dans la direction de Stadt-Enzersdorf. Assis au
 bord d'un autre fossé. Quelques sombres réflexions au +00
 bord d'un fossé, la main sur les yeux, et les jambes
@@ -3808,8 +3647,7 @@ cette crue du fleuve. La situation du maréchal fut aussi
 bonne que possible pendant les quatre premiers jours
 ._ qui suivirent sa blessure... Mais les fortes chaleurs qui
 nous accablaient depuis quelque temps redoublèrent
-d'intensité, et leur effet produisit un bien fâcheux ré-
-sultat sur le blessé. C'est ce que nous nommoss la pour_ riture d'hôpital. Une fièvre ardente s'empara de lui, et
+d'intensité, et leur effet produisit un bien fâcheux résultat sur le blessé. C'est ce que nous nommoss la pour_ riture d'hôpital. Une fièvre ardente s'empara de lui, et
 bientôt survint un délire affreux. Le maréchal, toujours
 préoccupé de la situation critique dans laquelle il avait laissé l'armée, se croyait encore sur le champ de bataille; il appelait à haute voix ses aides decamp,ordon
 nant à l'un de faire charger les cuirassiers, à l'autre de
@@ -3820,8 +3658,7 @@ croissant; il ne reconnaissait même plus l'Empereur!.… Cet état dura plusieu
 maréchal dormît un seul instant, ou cessât de combattre
 imaginairement!.… Enfin, dans la nuit du 29 au 30, il
 s'abstint de donner des ordres de combat; un grand
-affaissement succéda au délire; il reprit toutes ses Jfa-
-cultés mentales, me reconnut, me serra la main, parla
+affaissement succéda au délire; il reprit toutes ses Jfacultés mentales, me reconnut, me serra la main, parla
 . de sa femme et de ses cinq enfants, de son père... et,
 comme j'étais très près de son chevet, il appuya sa tête
 sur mon épaule, parut sommeiller, et rendit le dernier
@@ -3830,9 +3667,7 @@ Peu d'instants après ce fatal événement, l'Empereur
 
 arrivait pour sa visite du matin, je crus devoir aller au
 devant de Sa Majesté, pour lui annoncer la malheureuse NEA
-catastrophe, et l'engager à ne pas entrer dans l'appar-
-
-tement infecté de miasmes putrides; …
+catastrophe, et l'engager à ne pas entrer dans l'appartement infecté de miasmes putrides; …
 Vous voyez que j'avais bien raison de vous dire qu'il
 y avait déjà plusieurs jours que ce malheureux ne m'ap-
 . partenait plus, qu'il était hors de mes frontières, qu'il À
@@ -3857,8 +3692,7 @@ putrides, qu'une chaleur de 30 degrés rendait encore
 plus dangereuses, le forcèrent à garder le lit, et je fus
 obligé de faire venir un infirmier militaire, homme
 rempli de bonne volonté, mais dont la figure inconnue,
-et surtout le costume, paraissaient déplaire au maré-
-chal, qui ne voulait rien prendre que de ma main. Je le
+et surtout le costume, paraissaient déplaire au maréchal, qui ne voulait rien prendre que de ma main. Je le
 veillai donc jour et nuit; …
 D'ailleurs, il avait trop traîné, ce maréchal. Il avaït
 
@@ -3887,14 +3721,12 @@ qu'à se laisser faire, pour prendre la Bastille. Il n'y
 . avait qu'à se baisser pour la prendre. C'était de ne pas
 prendre la Bastille, qui aurait été dificile. Tout vient
 place où on tombe. Toutes les petites blanchisseuses
-de Paris étaient amoureuses de tous les garde fran-
-çaise. C'est connu. Nous avons tous appris dans
+de Paris étaient amoureuses de tous les garde française. C'est connu. Nous avons tous appris dans
 madame Sans-Géne. Seulement, voilà, c'était la Bastille. Il y avait dix siècles de monarchie derrière.
 Il y avait la fête nationale devant. Cinq siècles selon
 les historiens; mais au moins dix siècles en comptant
 
-comme Victor Hugo. C'était le seuil d'un grand événement. Et ces pierres, qu'on a foutues (1) par terre, sur-
-tout le lendemain, n'étaient pas des pierres comme …
+comme Victor Hugo. C'était le seuil d'un grand événement. Et ces pierres, qu'on a foutues (1) par terre, surtout le lendemain, n'étaient pas des pierres comme …
 tout le monde. Vous autres vous êtes mal placés.
 Vous n'êtes même pas placés du tout.:
 C'est ainsi que par la sa voix triste et superbe. Triviale à
@@ -3912,8 +3744,7 @@ pas être, aucunement, il s'en faut de tout, un regard de
 réalité, et surtout un regard d'épuisement de la réalité. À
 Il n'est à aucun degré un regard total, un regard de la
 totalité. Nourris dans d'autres philosophies, d'autres
-philosophies nous ont enseigné, une philosophie notam-
-ment nous a révélé que la réalité a un tout autre prix,
+philosophies nous ont enseigné, une philosophie notamment nous a révélé que la réalité a un tout autre prix,
 qu'elle a une valeur intrinsèque infiniment autre, infini-
 (1) Fou.ues était là, comme on s'en doute, uniquement pour la
 couleur locale, et parce que l'histoire voulait se mettre au ton de “0
@@ -3927,8 +3758,7 @@ qu'elle nous fait faire de tout autres comptes, et que nous
 n'en avons jamais fini. Nous savons, nous connaissons
 de toute certitude, nous avons appris, nous avons connu
 que le regard temporel de l'histoire n'est ni le regard
-: total, ni le regard définitif, que les réalités de la con-
-science ne se réduisent aucunement, et qu'il s'en faut au
+: total, ni le regard définitif, que les réalités de la conscience ne se réduisent aucunement, et qu'il s'en faut au
 moins d'une infinité, au regard temporel de l'histoire, à
 un regard de perspective, temporelle. Quand même le
 regard de l'histoire ne serait point ce qu'il est, quand
@@ -4027,9 +3857,7 @@ si je n'en ferai pas faire une thèse par un de mes jeunes
 Au fond je suis partagée (c'est ce que j'aime). Ce
 Victor Hugo est mon plus grand ami, vous le savez. Il
 avait une telle affection secrète, une telle affinité profonde, une telle complicité avec moi pour les grandeurs
-de l'ordre que j'excelle à mesurer. C'est un vieux com-
-
-plice à moi. S'il a volé ce Béranger, c'est bien fait. Et
+de l'ordre que j'excelle à mesurer. C'est un vieux complice à moi. S'il a volé ce Béranger, c'est bien fait. Et
 6 il en avait cent fois le droit. C'est royal. Un homme
 . comme lui prend son bien partout. Mais j'aime bien
 aussi ce Béranger, parce que ce que j'aime par dessus
@@ -4052,9 +3880,7 @@ le creux de la main. Sovet saeclum favilla. — Solvit;
 solvitur; solutum est. Le siècle temporel n'attendra point
 le règne éternel pour se résoudre en cendre. Tous les
 jours du temps dans le présent nous le voyons qui s'y
-résout. À mesure même qu'il passe. Dans tout l'immense passé, dans tout le présent, à mesure que l'évé-
-
-nement réel passe, nous avons vu, nous connaissons, À
+résout. À mesure même qu'il passe. Dans tout l'immense passé, dans tout le présent, à mesure que l'événement réel passe, nous avons vu, nous connaissons, À
 tout le monde a vu, sous nos yeux nous voyons tous les
 jours que par même et automatiquement devenant
 
@@ -4064,9 +3890,7 @@ venait d'être, qu'il était à l'instant, événement historique: moins que rie
 réel. Une cendre temporelle. Un chien vivant vaut mieux
 qu'un lion mort. Le siècle temporel ne laissera, déjà ne
 laisse qu'une poignée; moins qu'une poignée; moins
-qu'une pincée de cendres: une (vague) traînée de cen-
-
-dres temporelles. Et non seulement des cendres; maïs
+qu'une pincée de cendres: une (vague) traînée de cendres temporelles. Et non seulement des cendres; maïs
 des cendres disparates; et les plus inconsistantes du
 monde. Des traces de cendres, ce que nous lisons dans
 les analyses (chimiques) d'eaux minérales, sur les étiquettes collées sur les bouteilles. Non seulement le
@@ -4076,16 +3900,11 @@ C'est une cendre infiniment incomplète. Une poussière
 de cendres. Et d'autre part déjà nous voyons qu'il y
 retourne tous les jours. Et que tous les jours du temps
 il y est retourné. Memento, qu'il se rappelle: il n'a pas
-même à se rappeler. Car c'est tout de suite, c'est à pré-
-sent, c'est à chaque instant que s'accomplit sous nos
+même à se rappeler. Car c'est tout de suite, c'est à présent, c'est à chaque instant que s'accomplit sous nos
 yeux la tombée en cendre, la finale et irrévocable, la
 
 définitive, la déjà temporellement éternelle incinération
-et délitation cinéraire. Sous nos yeux le jugement tem-
-
-porel s'accomplit tous les jours, les siècles s'accom-
-
-plissent tous les temps. Sous nos yeux à mesure que
+et délitation cinéraire. Sous nos yeux le jugement temporel s'accomplit tous les jours, les siècles s'accomplissent tous les temps. Sous nos yeux à mesure que
 
 tout l'événement, sur un seul front, sur un immense
 
@@ -4099,7 +3918,7 @@ cette chute inépuisable d'un barrage latéral et ainsi
 perpendicuiaire le cours, le fleuve immense, temporellewent universel de l'événement, à mesure que sur ce
 front tout l'événement tombe, descend inépuisablement
 du présent dans le passé, de ce qui se fait à qui est
-…: fait, du discuté à l'acquis, de ce qui est en cause à ce
+fait, du discuté à l'acquis, de ce qui est en cause à ce
 qui est acquis; à cette mesure et sur tout ce front, par.
 même et en méme temps, en cela même et par la
 même aventure, du même mouvement, après la même
@@ -4111,8 +3930,7 @@ même événement, par la même histoire, par le même
 épisode constant, par la même partie de son histoire
 et de son propre événement l'événement, de présent
 devenant passé, tombant passé, aussitôt et aussi et en
-ceci même de réel devient historique, c'est-à-dire ciné-
-raire même, cendre d'événement; tombe historique,
+ceci même de réel devient historique, c'est-à-dire cinéraire même, cendre d'événement; tombe historique,
 et il ne remontera jamais cette pente; et il ne devient
 même historique qu'au sens et dans la mesure où il
 devient cinéraire. Et réciproquement. Car c'est tout un.
@@ -4133,10 +3951,8 @@ ni petite sœur des Pauvres, des petits Pauvres, ni sœur.
 de saint Vincent de Paul, ni ces sœurs qui soignent les
 malades dans cette maison de santé.
 
-‘Laissons dire Clio, fille de Mémoire. La mère a d'au-
-tres filles; la vieille mère, la première mère, la mère;
-commune. Laissons dire et parler celle qui fait pro-
-fession, qui fait métier de dire et de parler, mais qui
+‘Laissons dire Clio, fille de Mémoire. La mère a d'autres filles; la vieille mère, la première mère, la mère;
+commune. Laissons dire et parler celle qui fait profession, qui fait métier de dire et de parler, mais qui
 a reçu ce don de ne pouvoir dire et de ne pouvoir
 parler que par (des) échos. Laïssons retentir ces échos
 indéfiniment prolongés. Nourris dans d'autres diseiplines, non seulement nous savons le prix et la valeur
@@ -4184,8 +4000,7 @@ qu'elle est ce qu'elle est, non ce qu'elle apparaît; qu'elle
 vaut ce qu'elle vaut, non ce qu'elle se mesure; qu'il
 faut la saisir ce qu'elle est, tant que nous le pouvons,
 
-nullement l'effleurer toujours de ces regards circonfé-
-rentiels. De ces effleurements, qui ne touchent que des
+nullement l'effleurer toujours de ces regards circonférentiels. De ces effleurements, qui ne touchent que des
 affleurements. Que la réalité est ce qu'elle est, non,
 nullement ce qu'elle rend à l'enregistrement, ce qu'elle
 laisse aux mains des méthodes résiduelles; qu'elle est
@@ -4197,8 +4012,7 @@ qu'elle vaut, nullement ce qu'elle est rapportée, ce
 qu'elle est contée, ce qu'elle est même vue, ce qu'elle
 
 est estimée, ce qu'elle est honorée, ce qu'elle est considérée, ce qu'elle est glorifiée, ce qu'elle est commémorée,
-remémorée, ce qu'elle est regardée de ce regard perpé-
-tuellement tangentiel. Gette histoire ne nous fait jamais:
+remémorée, ce qu'elle est regardée de ce regard perpétuellement tangentiel. Gette histoire ne nous fait jamais:
 voir que des soleils couchés. Ces soleils qu'on attend
 sont des soleils couchés. Et elle veut nous faire croire
 au moins que ce sont des soleils couchants; pour qu'il

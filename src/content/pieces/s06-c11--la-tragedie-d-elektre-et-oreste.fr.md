@@ -48,8 +48,7 @@ beau dire à Périer!
 
 il me semble que la voilà! Je pense bien que, malgré; ".
 tout, vous êtes anticlérical, vous? es
-— Je ne suis anti-rien du tout, répliqua Yves en sou-
-riant. À moins que ce ne soit anti-anti, si je puis dire;
+— Je ne suis anti-rien du tout, répliqua Yves en souriant. À moins que ce ne soit anti-anti, si je puis dire;
 non pas même anti-alcoolique! Hein? vous épate?
 Boulon rit en toussant, dans la fumée de sa pipe:
 — Eh bien, alors, cher monsieur, je ne vous com- “#4
@@ -58,8 +57,7 @@ dans un pays comme celui-ci par exemple, où le petit
 bourgeois et le paysan ne vivent que de la vigneetde
 l'alcool, faut pas venir chanter trop fort, ils n'écouteraient personne! Mais, bon Dieu! si vous n'êtes pas
 anticlérical!.. Nous sommes pourris de la peste noire;
-et n'est pas trop tôt que le gouvernement s'en aper-
-çoive. Moi je crois au contraire, voyez-vous, que l'Église
+et n'est pas trop tôt que le gouvernement s'en aperçoive. Moi je crois au contraire, voyez-vous, que l'Église
 est le premier mal dont il faut se guérir. Suppression
 des congrégations d'abord, et puis abrogation de la loi”
 Falloux! Après ça, on respirera un peu! -
@@ -71,8 +69,7 @@ voyons! Est-ce que je vous appelle monsieur Périer,
 Périer eut un rire embarrassé:
 — Eh bien, je croirais assez comme Boulon!
 Une mélancolie s'empara de Yves. Les deux femmes
-écoutaient, bien que madame Boulon parût surtout ab-
-sorbée par la dégustation de son thé, et l'examen d'un
+écoutaient, bien que madame Boulon parût surtout absorbée par la dégustation de son thé, et l'examen d'un
 écheveau de laine noire qu'elle trouva pendu à sa
 chaise derrière elle:
 
@@ -189,8 +186,7 @@ comprenez il n'y a pas moyen de rien faire dans ces
 conditions-là. Pour moi, je vois dans la Ligue un bon
 moyen de se connaître entre Libres-Penseurs, de faire
 marcher la propagande anticléricale, et d'obliger le À
-— Parfait, conclut Yves; c'est bien ce que je con-
-state. Si c'est ça, je n'y resterai pas longtemps. Au fond, À
+— Parfait, conclut Yves; c'est bien ce que je constate. Si c'est ça, je n'y resterai pas longtemps. Au fond, À
 — Anticléricalisme! Si seulement tous ces gens-là ne se
 mariaient pas à l'église! Enfin! J'y entre cependant,
 parce que, pour moi, c'est un moyen en eflet de connaître, de rencontrer des ouvriers, et de voir si, avec
@@ -221,9 +217,7 @@ Les deux femmes causaient à mi-voix, chaleureusement, devant les assiettes et l
 - je devrais être commissionné. De plus, j'ai, comme je
 - vous ai expliqué, quelques petites inventions, ou perfectionnements qui sont à l'essai, sous le nom de m'sieur:
 
-l'ingénieur bien sûr. (C'est sûr que Périer, simple ajus-
-teur, c'est pas un nom et pourtant pas un sou d'aug-
-mentation depuis, ni même de commissionnement!
+l'ingénieur bien sûr. (C'est sûr que Périer, simple ajusteur, c'est pas un nom et pourtant pas un sou d'augmentation depuis, ni même de commissionnement!
 Est-ce que c'est pas ignoble? 2}
 Et Périer s'animait; ses bons yeux deyenaient rouges
 et noirs, et ses pommettes pâles de fin artisan se colo
@@ -232,8 +226,7 @@ raient un peu. Le
 — J'attendais quelque chose au premier de l'an, continua Périer, après une lettre, que j'ai écrite y a deux
 mois au directeur pour lui rappeler mon nom et mes
 . services. Mais v'là que les commissionnements sont
-faits, et j'ai encore rien pour ct'année... Ce qui m'dé-
-goûte, c'est que je vois Tourbillot, — qu'est un réactionnaire fini, qui rate pas la messe tous les dimanches,
+faits, et j'ai encore rien pour ct'année... Ce qui m'dégoûte, c'est que je vois Tourbillot, — qu'est un réactionnaire fini, qui rate pas la messe tous les dimanches,
 qu'envoie ses filles chez les sœurs! Il n'a rien fait ct'animal-là, que pelotter tout le monde! Il lèche les pieds
 du patron tout le temps! Il n'a pas autant de service
 que moi et le v'là commissionné!.. Maintenant, c'est du
@@ -348,8 +341,7 @@ faits, comme impatients d'être formulés, criés sur les
 toits, s'étaient imposés à son attention. Le moment lui
 
 parut venu de les accueillir enfin, le jour où, ayant reçu
-la visite du père d'un de ses élèves, il se sentit boule-
-versé et indigné des reproches qui lui furent faits.
+la visite du père d'un de ses élèves, il se sentit bouleversé et indigné des reproches qui lui furent faits.
 Le père Pigeoire était un vigneron, fermier à la fois,
 plus paysan que bourgeois, assez cossu, conseiller municipal, dans un bourg des environs. Il avait profité
 d'un jour de foire pour faire visite à Monsieur le Principal et au professeur d'allemand de son gamin. Le
@@ -383,15 +375,13 @@ de lier connaissance avec les éducateurs naturels et
 familiers de l'enfant. D'eux seuls il pouvait recevoir “SE
 certaines indications sur le caractère, le tempérament,
 les dispositions mentales, affectives ou volitives, de l'en-;
-fant; et ces indications lui semblaient de toute néces-
-sité, inappréciables, pour conduire intelligemment, avec
+fant; et ces indications lui semblaient de toute nécessité, inappréciables, pour conduire intelligemment, avec
 toute la délicatesse souhaitable, l'œuvre éducative.
 Enfin il s'agissait non seulement de l'enfant, maïs des
 parents eux-mêmes. Ses souvenirs du répétitorat lui:
 disaient assez que trop souvent les parents, loin d'être
 des auxiliaires précieux, avaient endommagé, gâté la
-plupart des facultés de leur enfant, et, soit par leur in-
-différence, soit par leur défaut absolu d'éducation personnelle, rendu la tâche plus ardue encore. Agir; mieux:
+plupart des facultés de leur enfant, et, soit par leur indifférence, soit par leur défaut absolu d'éducation personnelle, rendu la tâche plus ardue encore. Agir; mieux:
 agir avec l'aide des parents sur la nature de l'enfant, et
 par l'enfant même, ou par des rapports directs avec les
 parents, agir sur les parents eux-mêmes, c'était un
@@ -403,8 +393,7 @@ toile bleue ballonnée, flambant neuf, ouverte sur un
 veston de drap; grosse patte dure, gros yeux malins.
 Sans détour, le père Pigeoire déclara:
 
-— J'viens voir quand c'est que vous aurez fini d'abru-
-tir mon gosse avec vot'sacré allemand!;
+— J'viens voir quand c'est que vous aurez fini d'abrutir mon gosse avec vot'sacré allemand!;
 
 A ce coup, Madec, étourdi, eut un éclair de colère et
 faillit le flanquer à la porte. Mais il se calma à la vue
@@ -469,9 +458,7 @@ parisiennes qui chantent à l'apéritif-concert en face! »
 Quelques jours après Yves écrivit à un de ses anciens
 maîtres de la Sorbonne la lettre suivante.
 « … On jurerait que ministres, députés, membres du
-Conseil supérieur de l'Instruction publique, se sont in-
-géniés à trouver les méthodes les plus sûres pour com-
-primer tous les élans naturels de l'enfance, pour étouffer
+Conseil supérieur de l'Instruction publique, se sont ingéniés à trouver les méthodes les plus sûres pour comprimer tous les élans naturels de l'enfance, pour étouffer
 
 toutes les aspirations juvéniles, et pour contrarier toutes
 les initiatives chez ceux mêmes qui sont chargés
@@ -501,8 +488,7 @@ Vabrutissement certain derrière. La brute galonnée ici
 . c'est le répétiteur, le professeur, ou tel officier d'administration: surveillant général, censeur, proviseur, ete.,
 . etc. Sans doute ici, comme là, il y a des progrès:
 
-plus de torture physique, plus de mise aux fers; c'està-
-dire, plus de séquestre ou de cellule; plus de coups,
+plus de torture physique, plus de mise aux fers; c'estàdire, plus de séquestre ou de cellule; plus de coups,
 plus même de piquets (au moins officiellement). Mais le FER
 principe, l'esprit est resté le même: « Punir priver de
 récréation (retenue) ou de promenade (consigne); « pen- Br:
@@ -511,8 +497,7 @@ galonnés sont les premiers à les subir, à en souffrir;
 mais doivent, sous peine d'être notés comme « mauvais
 esprits « mauvaises têtes servir d'instruments à ces
 lois draconiennes. D'ailleurs le mécanisme entier les y
-oblige. L'éducateur qui entre dans de pareilles institu-
-tions a vite le sentiment qu'il n'est plus rien qu'une
+oblige. L'éducateur qui entre dans de pareilles institutions a vite le sentiment qu'il n'est plus rien qu'une
 pièce de machine, qui doit docilement s'adapter au jeu
 des autres, sous peine d'être brisée, en enrayant le mé- « canisme tout entier. D'avance tout est prévu, toutes
 heures sont réglées de sa vie, et de la vie des enfants;
@@ -574,8 +559,7 @@ doivent un jour ou l'autre vivifier leurs cerveaux.
 ou de trente enfants, trois ou quatre seulement rendent
 à peu près régulièrement ce qu'on leur inculque. Mais
 les quinze, vingt autres sont à jamais perdus. Que de- à
-viennent-ils? la proie de l'ennui, du dégoût, des rete-
-nues, des consignes, sans compter les vices. Ils
+viennent-ils? la proie de l'ennui, du dégoût, des retenues, des consignes, sans compter les vices. Ils
 s'aigrissent, s'irritent, s'abêtissent. Leur intelligence,
 leur énergie s'atrophie pour toujours. Ils ne vivront;
 désormais qu'une vie confuse, somnolente, inconsciente.
@@ -631,8 +615,7 @@ maître, les masses écolières des Universités. Je ne
 parle pas des rares qui veulent et qui pensent! Ilyena,;
 Dieu merci, quelque un sur cent, sur dix si vous voulez.
 Mais le reste! Fouillez les Écoles de Médecine, Phar- à
-macie, Droit, surtout. Est-ce que tout est sensible-
-autre tas qu'on peut rêver de pauvresbougresquisavent
+macie, Droit, surtout. Est-ce que tout est sensibleautre tas qu'on peut rêver de pauvresbougresquisavent
 à peine lire, écrire, compter... et nager? qui n'ont pas
 usé dix ans, quinze ans de culottes sur les bancs des
 Bazars? Voyez Paris; qui braïlle et qui se soûle le
@@ -668,7 +651,7 @@ heures de classes d'une heure sont suffisantes par jour,
 à sur trois Le De MER qui reprises
 le lendemain et qui sont séparées par des intervalles
 à de jeux, d'exercices physiques, ou de travaux manuels.
-7 À partir de treize, quatorze et quinze ans, on peut
+À partir de treize, quatorze et quinze ans, on peut
 … doubler sans danger le nombre des élèves d'une même
 … classe, et augmenter d'une ou deux unités la quantité
 matières à enseigner. Enfin quand l'enfant atteint
@@ -716,8 +699,7 @@ contrarié dans cette recherche par des accidents insurmontables, revient sur lu
 
 « Qui niera que les vérités les plus ardues soient;
 susceptibles des formes les plus attrayantes? Je sais
-des enfants qui ont été à tout jamais fermés aux mathé-
-matiques parce qu'elles leur avaient été d'abord ensei-
+des enfants qui ont été à tout jamais fermés aux mathématiques parce qu'elles leur avaient été d'abord ensei-
 à gnées par des brutes; j'en sais d'autres qui, y mon-
 … trant fort peu de dispositions naturelles, les ont ensuite
 - aimées par dessus tout, parce qu'ils y furent instruits
@@ -735,9 +717,7 @@ ce qui ne déplaît que parce qu'il est impuissant à le
 « — Mais, me direz-vous, à la réflexion, votre « re-
 — mède » suppose, implique un bouleversement complet
 du système actuel d'enseignement, et vous ne semblez
-à pas vous en douter! A la place de la Règle, une, uni-
-verselle, absolue, vous mettez l'Éducateur. A cet Édu-
-cateur, il faut toute liberté. Évidemment vous rejetez
+à pas vous en douter! A la place de la Règle, une, universelle, absolue, vous mettez l'Éducateur. A cet Éducateur, il faut toute liberté. Évidemment vous rejetez
 À À PInternat, qui est comme la griffe d'acier qui tient
 … toutes ces choses ensemble. Enfin vous demandez qu'on
 — augmente indéfiniment le nombre des professeurs, puisL: qu'il en faut un par cinq élèves! etc., eic... Chimère,
@@ -748,8 +728,7 @@ pour apprendre aux hommes à tuer des hommes, de
 peur d'être tués; et vous ne savez pas trouver de quoi
 s'aider, à s'aimer? — Ne me parlez donc plus d'Éducation! De tous les mots menteurs, perfides, fourbes,
 monstrueux, je n'en connais pas de pire! Car tout est À
-dans l'Éducation, tout, absolument tout! Et vous souil-
-lez tout, si vous souillez l'éducation. Tout le reste
+dans l'Éducation, tout, absolument tout! Et vous souillez tout, si vous souillez l'éducation. Tout le reste
 n'est que singerie, momerie, charlatanisme ignoble!
 « Élever des Hommes! voilà à quoi tout au monde,;
 tout l'or du monde, devrait être consacré! Car les
@@ -781,8 +760,7 @@ d'un éclair rapide, l'avait toisé des pieds à la tête.
 
 L'Affaire avait ouvert bien des esprits obstinément
 clos jusqu'alors. Le docteur Piault, qui avait aupara- à
-vant combattu le socialisme autant que les partis mo-
-narchistes et césariens, avait tout à coup compris qu'il ne
+vant combattu le socialisme autant que les partis monarchistes et césariens, avait tout à coup compris qu'il ne
 devrait qu'à l'aide des révolutionnaires de ressaisir son
 ancienne puissance. Le docteur Piault avait été maire de;
 Villetaupier au temps du triomphe radical, et sa seule
@@ -824,12 +802,10 @@ a - cependant le seul homme de son parti un peu informé
 : - qui se donnait d'habitude pour « radical jouait sur-
 - tout au sceptique; qu'il n'était venu à la Ligue que pour
 faire nombre et par amitié pour les différents membres
-… de son cercle qu'il trouvait là. Il n'ignorait pas davan-
-tage que Mauriet, le notaire « radical » encore, était
+… de son cercle qu'il trouvait là. Il n'ignorait pas davantage que Mauriet, le notaire « radical » encore, était
 . préoccupé surtout du bon état de ses mollets pour la
 - bicyclette; que Bizon, un autre « radical commis des
-. contributions indirectes, était le froussard par excel-
-lence, n'entendant d'ailleurs rien à tout ce qui n'était pas
+. contributions indirectes, était le froussard par excellence, n'entendant d'ailleurs rien à tout ce qui n'était pas
 4 croustillant et paillard; que le père Varot, « radical
 … gros bonnetier enrichi, était à moitié fou de spiritisme;
 qu'enfin Rolland, « radical le directeur de l'école com-
@@ -911,7 +887,7 @@ pris comme en un tout où sa volonté propre allait se
 Le docteur parlait de nouveau. Il exprimait nettement
 le but de la Ligue; il exposait son programme d'action.
 mettait en lumière le terrain d'entente des « différents
-partis de gauche »:
+partis de gauche
 
 « Pour agir, et l'action est plus nécessaire que jamais
 car l'ennemi ne chôme pas, il faut que chacun de nous
@@ -929,11 +905,7 @@ entreprenons, en bon, en vrai républicain, qui se souvient seulement de la devi
 — « Gros malin! » murmura Arverne. Et Yves ne dit
 rien, mais il n'en pensait pas moins. Si ces mots pourtant étaient autre chose que des mots! Si ces hommes
 
-s'unissaient vraiment contre la tyrannie, contre le des-
-
-potisme, contre la violence, pour la liberté, pour la rai-
-
-son, pour la justice... Maïs en fait ne s'unissaient-ils
+s'unissaient vraiment contre la tyrannie, contre le despotisme, contre la violence, pour la liberté, pour la raison, pour la justice... Maïs en fait ne s'unissaient-ils
 pas en excluant violemment, en dénonçant violemment?
 Ne s'unissaient-ils pas contre une forme de la violence
 pour une autre forme de la violence?
@@ -964,8 +936,7 @@ soit fait, pendant nos séances, consommation de vin ou
 
 d'alcool! Nous nous réunissons pour des œuvres graves.
 et hautes,Nous nous réunissons pour un petit nombre
-d'heures, deux, trois peut-être au maximum. Je pré-
-tends que le livre et la parole sont seuls nécessaires,
+d'heures, deux, trois peut-être au maximum. Je prétends que le livre et la parole sont seuls nécessaires,
 non le verre de vin, ou d'alcool sous aucune formel »
 On adopta avec grand élan, tandis qu'Yves, un peu
 confus de son ton de violence, se rasseyait déjà en rou- « gissant, et que Charbonnard, encore debout, marmot-
@@ -1099,16 +1070,14 @@ Un grand brouhaha s'éleva bientôt des discussions qui
 éclatèrent à propos de la question en litige. On causaïit
 par groupes. Boulon vint à Madec et lui dit:
 
-— Maïs, mon cher, vous ne voulez pas seulement pé-
-cher une U. P. dans la Section, vous voulez transformer
+— Maïs, mon cher, vous ne voulez pas seulement pécher une U. P. dans la Section, vous voulez transformer
 
 d'études, mais en U. P. d'action! Je ne comprends pas:
 la Ligue autrement!
 
 Périer était venu s'asseoir à côté de Boulon et de
 
-— Je crois, argua-t-il, presque à voix basse, en s'adres-
-sant à Madec, que vous avez tort de lancer tout
+— Je crois, argua-t-il, presque à voix basse, en s'adressant à Madec, que vous avez tort de lancer tout
 de suite. Vous auriez attendre. Faut pas essayer
 deux choses à la fois ici, surtout dans c'genre-là. Si on
 
@@ -1120,8 +1089,7 @@ paysans de Saint-Jacut qui trempaient leurs doigts dans
 le sable pour se compter!
 
 — C'est vrai, convint Périer. Maïs on ne vous suivra
-pas, si vous voulez aller trop vite. J'connais les cama-
-rades du chemin de fer. C'est d'hons types, assez intelligents. Mais ils sont éreintés, et, sauf peut-être ceux
+pas, si vous voulez aller trop vite. J'connais les camarades du chemin de fer. C'est d'hons types, assez intelligents. Mais ils sont éreintés, et, sauf peut-être ceux
 qui sont ici, ils s'en fichent ou ils ont la frousse, et ne
 marchent pas, malgré leurs idées. Beaucoup aussi sont
 trop rosses, et s'ront jamais sérieux. Ils gueulent, mais
@@ -1133,7 +1101,7 @@ mêmes, les citoyens de la République Française!
 
 .
 
-—! reprit Périer. Si vous saviez comme j'ai à lutter, et comme ils se fichent de moi, au dépôt! Vous
+reprit Périer. Si vous saviez comme j'ai à lutter, et comme ils se fichent de moi, au dépôt! Vous
 parlez de causeries amicales, scientifiques, etc...! Mais
 ils aiment mieux licherun verre, voyons! C'qu'ilslisent?.…
 Les feuilletons du Petit Journal, du Petit Parisien, le
@@ -1253,8 +1221,7 @@ Yves se rassit, résigné et peureux.
 É — Comptez-vous rester vieux garçon? Vous voilà
 maintenant avec une situation, une...
 1. d'appointements. Madame! Pourquoi me faites-vous
-penser à cela! Pensez que l'Université a été assez mal-
-propre pour proposer le honteux marché que j'ai
+penser à cela! Pensez que l'Université a été assez malpropre pour proposer le honteux marché que j'ai
 - accepter! J'avais deux mille cinq cents francs comme
 -. répétiteur licencié, avec une promotion, — pour cou-
 - cher au dortoir tous les soirs. Il m'a fallu payer six
@@ -1306,13 +1273,11 @@ quelques femmes ainsi. Mais il faut croire que je ne les
 mérite pas. Tant pis! je resterai seul.
 Il parlait comme un homme qui converse avec soimême.
 — Maïs je ne vous comprends pas du tout, monsieur
-Il tressaillit, secoua cette ombre de rêve, et, repre-
-nant la posture accoudée de tout à l'heure:.
+Il tressaillit, secoua cette ombre de rêve, et, reprenant la posture accoudée de tout à l'heure:.
 — Eh bien voilà... Je rêve une femme qui veuille
 “n'être heureuse que d'actes de justice et de vérité... qui
 ait la religion, le culte de la simplicité; la religion, le
-à culte de sa conscience, et qui jette précisément par-
-dessus bord tout préjugé bourgeois, tout ce qu'on a cou-
+à culte de sa conscience, et qui jette précisément pardessus bord tout préjugé bourgeois, tout ce qu'on a cou-
 ._ tume d'appeler « les convenances ». Je veux une femme
 qui d'abord ne croie à aucune religion positive, qui
 É ait l'audace de se passer du prêtre à notre mariage, —
@@ -1325,8 +1290,7 @@ monde qui ouvre sa maison à qui en aura besoin,
 . surtout à de sales pauvres bougres qui n'en auraient
 +. point; une femme dont le cœur et la bourse soient
 - toujours ouverts, et enfin dont la présence ne soit
-, surtout pas un affaiblissement, pour moi, un alour-
-dissement, mais comme un souffle d'audace et de vie,
+, surtout pas un affaiblissement, pour moi, un alourdissement, mais comme un souffle d'audace et de vie,
 au contraire, — et qui soit joyeuse, si jamais l'Univer_ sité me flanque à la porte, de la parole de liberté qui
 sera mon crime, et nous mettra sur la paille pour un
 À temps!
@@ -1374,8 +1338,7 @@ jamais j'aimais mademoiselle V... et qu'elle m'aimât,
 il faudrait qu'elle commençât par verser ses quinze
 mille francs à une caisse d'œuvre sociale, ou qu'elle
 commençât par contribuer avec eux à une fondation
-d'œuvre sociale. Nous ne devons avoir que le nécessaire quand tant de gens crèvent de faim ou d'igno-
-rance, et nous n'avons pas à faire la charité, Nous
+d'œuvre sociale. Nous ne devons avoir que le nécessaire quand tant de gens crèvent de faim ou d'ignorance, et nous n'avons pas à faire la charité, Nous
 … devons, dans une vie très humble, avec nos seules forces,
 donner l'exemple de notre liberté intérieure à ceux que
 nous voulons éduquer en liberté. comment espérer
@@ -1396,8 +1359,7 @@ jamais le bonheur!:
 — Le bonheur est un mot, madame. Il ne devient une
 réalité que dans l'accomplissement journalier d'un peu «
 de justice. Je ne veux pas d'autre bonheur que de vivre
-librement la vie que je rêve; et ce serait la pire cata-
-strophe pour moi, que d'épouser une femme quinevou- -
+librement la vie que je rêve; et ce serait la pire catastrophe pour moi, que d'épouser une femme quinevou- -
 drait pas avec joie la même vie que moi.
 — Alors vous m'autorisez à dire à madame T... ce
 que vous venez de me dire.
@@ -1436,8 +1398,7 @@ femme très pâle, et qu'on voyait rarement dans les pro-
 à lègue des propos insignifiants, où il avait surtout été
 question de leurs élèves communs. Pillard était un grand
 4 garçon mince, très barbu, à l'œil noir et vif, au teint brun,
-qui marchait toujours d'un pas rapide et élastique, ma-
-niant de la main droite une canne noire, à la façon d'une
+qui marchait toujours d'un pas rapide et élastique, maniant de la main droite une canne noire, à la façon d'une
 épée. Il avait en effet quelque chose de militaire, de
 
 martial, de très décidé dans l'allure, qui attirait les
@@ -1459,8 +1420,7 @@ dans les mœurs et dans les lois. L'œuvre des U. P. de-;
 vait avoir ses racines dans celles des coopératives de
 consommation. Celles-ci commençaient l'émancipation
 économique des individus qui s'achèverait dans les
-coopératives de production, tandis que les U. P. entre-
-prenaient l'émancipation intellectuelle et morale.
+coopératives de production, tandis que les U. P. entreprenaient l'émancipation intellectuelle et morale.
 C'est à peu près en ces termes qu'il parla à Pillard,
 en l'accompagnant jusque chez lui. Cordialement
 Pillard le fit entrer dans une maisonnette isolée, entre
@@ -1531,9 +1491,7 @@ que vous dites là... et je crois qu'on peut faire beaucoup
 de bien. Je ne suis pas socialiste ni réactionnaire, et
 d'ailleurs que chacun garde ses idées, je ne dérange
 Il recommençait sa ritournelle. IL parlait si vite
-qu'Yves ne pouvait l'interrompre. Il finit par déses140
-
-pérer et le laisser débiter son répertoire. Il lui posa
+qu'Yves ne pouvait l'interrompre. Il finit par désespérer et le laisser débiter son répertoire. Il lui posa
 cependant nettement la question:
 — Eh bien, en définitive, le cas échéant, et si je trouvais les éléments matériels nécessaires pour fonder au
 moins une bibliothèque populaire, pour ouvrir au moins
@@ -1550,9 +1508,7 @@ lirai les brochures que vous me promettez.….
 Quand il sortit de chez Pillard, Yves était un peu
 étourdi, et mal à l'aise. Il avait trouvé peu de substance
 dans ce ruissellement de mots, presque sans suite, dont
-l'avait accablé son collègue. Il s'inquiétait qu'un pro-
-fesseur de philosophie qui depuis quatre ans se présen-
-tait à l'agrégation pût bourdonner avec une telle opiniâtreté, et fit mine de se dérober aux nécessités évidentes d'une éducation populaire. Le bon Madec
+l'avait accablé son collègue. Il s'inquiétait qu'un professeur de philosophie qui depuis quatre ans se présentait à l'agrégation pût bourdonner avec une telle opiniâtreté, et fit mine de se dérober aux nécessités évidentes d'une éducation populaire. Le bon Madec
 . s'avoua tout haut cette réflexion:
 « Je ne vois pas de différence entre ce philosophe et le
 - plus raseur des commis-voyageurs. Mais je n'ai rien
@@ -1569,8 +1525,7 @@ Ligue, afin qu'on l'eût étudiée, et qu'elle eût déjà des
 partisans. Il entra donc à ce propos en relations plus
 étroites avec ses collègues, chez la plupart desquels il
 ne s'était point présenté encore, son état de célibataire
-ne l'obligeant point à des visites. « Cette tournée apo-
-stolique comme il l'appela, lui fut d'un enseignement
+ne l'obligeant point à des visites. « Cette tournée apostolique comme il l'appela, lui fut d'un enseignement
 Il y apprit que non seulement la plupart d'entre eux
 avaient sur les grandes questions qui lui étaient tout
 l'intérêt de la vie, des informations trop vagues, des
@@ -1630,9 +1585,7 @@ pour la musique. Elle donnait dans la ville des leçons
 de piano qui complétaient à peu près les nécessités de
 la vie du ménage sans enfant.
 
-Le professeur de physique, chimie, histoire natu-
-
-la peau blanche comme une femme, à la démarche « molle et à la voix flûtée, vivait seul avec sa vieille
+Le professeur de physique, chimie, histoire natula peau blanche comme une femme, à la démarche « molle et à la voix flûtée, vivait seul avec sa vieille
 
 3 mère, dans une grande maison à une extrémité de la
 
@@ -1662,11 +1615,9 @@ la porte d'entrée, ornée d'une large plaque de cuivre à
 À arabesques qu'il vous dénonçait comme une œuvre de
 jeunesse, la maison du petit père Chamain était étrange.
 Le corridor rappelait ces ouvertures de cavernes de
-voleurs des contes fantastiques, où l'on voyait des che-
-velures de sauvages, des chauve-souris, des squelettes
+voleurs des contes fantastiques, où l'on voyait des chevelures de sauvages, des chauve-souris, des squelettes
 de tous animaux, des masques japonais ou iroquois,
-etc., etc. Les chambres étaient encombrées de bous-
-soles, d'hygromètres, de thermomètres, de baromètres,
+etc., etc. Les chambres étaient encombrées de boussoles, d'hygromètres, de thermomètres, de baromètres,
 … de piles électriques, d'épreuves et de plaques photo_… graphiques. Mille fois les yeux de Yves s'étaient arrêtés
 . sur les « systèmes Chamaiïn — il en avait le vertige.
 . La bonne vieille madame Chamain reprisait des bas;
@@ -1697,12 +1648,9 @@ franc sans doute, et le second professeur de mathéma- 5%
 Parfois, sous l'influence occulte de leurs femmes,
 leurs dissensions croissaient. Les uns se jalousaient
 pour une palme académique, une admissibilité à l'agré-: à
-gation; un licencié méprisait la fréquentation d'un ex-
-instituteur. D'autres gardaient rancune pour une invitation chez le principal, pour une simple poignée de
-mains, un salut du recteur ou de l'inspecteur d'Acadé-
-mie. Toutefois Yves, ayant pris contact avec chacun en
-particulier, se plaisait à reconnaître leur foncière hon-
-nêteté, leur réelle bonne volonté. Pillard Têtu, cha
+gation; un licencié méprisait la fréquentation d'un exinstituteur. D'autres gardaient rancune pour une invitation chez le principal, pour une simple poignée de
+mains, un salut du recteur ou de l'inspecteur d'Académie. Toutefois Yves, ayant pris contact avec chacun en
+particulier, se plaisait à reconnaître leur foncière honnêteté, leur réelle bonne volonté. Pillard Têtu, cha
 cun de son côté, promettaient de se tendre la main
 pour une œuvre d'U. P.— Pris à part, aucun n'était
 méchant, ni lâche; chacun était sincère, et songeait à
@@ -1719,8 +1667,7 @@ des officiers. Ils croyaient naïvement, innocemment,
 
 avoir accompli leur devoir quand ils avaient préparé
 leurs élèves, distribué bonnes ou mauvaises notes, corrigé leurs copies; quand ils avaient « aboyé » pendant À
-quatre ou cinq heures de leur journée au collège, et dé-
-chiffré chez eux une ou deux heures en sus quelques
+quatre ou cinq heures de leur journée au collège, et déchiffré chez eux une ou deux heures en sus quelques
 de. pages d'un livre pour leurs classes, ou quelques
 tâches d'élèves. Mais nulle préoccupation du carac-
 ._ tère moral de l'enseignement.
@@ -1734,8 +1681,7 @@ banque, ou des savetiers qui leur ressemblassent, afin
 avaient reçue de leurs maîtres dans le passé, et dont
 ï 48 leur vie présente était faite.
 2. Ces éducateurs n'avaient aucun souci de leur éduca-
-ï tion personnelle. S'ils se savaient des vices, des dé-
-fauts, des manques, l'idée ne leur venait pas de leur
+ï tion personnelle. S'ils se savaient des vices, des défauts, des manques, l'idée ne leur venait pas de leur
 livrer bataille en eux-mêmes. Tout comme des gens
 qu'aucune éducation ne toucha jamais, ils les avouaient
 cyniquement pour en rire, ou bien ils les voilaient
@@ -1772,8 +1718,7 @@ d'étonnant pour lui?
 
 Parlant à eux, à des professeurs de l'enseignement
 
-secondaire, de l'œuvre des U. P., souvent il avait con-
-science d'avoir parlé de sons à des sourds, de couleurs
+secondaire, de l'œuvre des U. P., souvent il avait conscience d'avoir parlé de sons à des sourds, de couleurs
 à des aveugles. Ceux qui avaient entendu ou quelque
 chose dans ses beaux discours lui avaient répondu que
 des « cours d'adultes » existaient déjà dans la ville;
@@ -1816,12 +1761,10 @@ les unes avec les autres, et elles les remplissent de leur
 encre noire. En sorte qu'un professeur, en général, ne
 sait pas plus le sens, la valeur, la portée de telle idée
 qu'il porte en sa mémoire et qu'il enseigne à ses élèves,
-qu'un bottier, par exemple, ne connaît la structure in-
-terne, la qualité des tissus des pieds que chausseront
+qu'un bottier, par exemple, ne connaît la structure interne, la qualité des tissus des pieds que chausseront
 ses bottes, ou la direction des chemins que prendront
 ces pieds chaussés en sortant de chez lui. Neuf sur dix
-des professeurs sont professeurs par hasard. Iis au-
-raient aussi bien être n'importe quoi autre, et ils
+des professeurs sont professeurs par hasard. Iis auraient aussi bien être n'importe quoi autre, et ils
 ont vécu parmi les idées comme ils auraient vécu parmi
 n'importe quoi autre: ils ont traité les idées comme ils
 auraient traité n'importe quoi autre. Comment les idées
@@ -1831,8 +1774,7 @@ comme des âmes. Autrement comment expliquer que
 tant de lettrés aient connu tant d'œuvres de science et
 de sagesse et les aient enseignées, sans que pour cela,
 non seulement les générations instruites soient moralement et intellectuellement supérieures aux autres,
-mais que les maîtres eux-mêmes montrent communé-
-ment une mentalité ou une moralité plus élevées?
+mais que les maîtres eux-mêmes montrent communément une mentalité ou une moralité plus élevées?
 A qui la faute? Non pas toujours aux intéressés.
 Sauf exceptions, ils éduquent dans la mesure où ils ont
 été eux-mêmes éduqués; c'est-à-dire pas du tout. Car
@@ -1854,8 +1796,7 @@ et de gros bourgeois vont à Saint-Cyr par vocation mi_ litaire…. A peu près 
 4 conque, les adolescents se destinent à toutes carrières
 ï. libérales en cette société. Faire de son fils un profes4 seur est une noble ambition. On lui dit: « Tu seras
 4 professeur! » et le gamin « travaille pour être profes-
-… seur ». Le plus grand nombre n'a pas les moyens ma-
-tériels ou intellectuels d'arriver à « Normale le Saint-
+… seur ». Le plus grand nombre n'a pas les moyens matériels ou intellectuels d'arriver à « Normale le Saint-
 À Cyr, ou Grand Séminaire de ces Élus; et ce ne sont
 - point pour cela les pires éducateurs. Ils végètent alors
 des années dans les marécages du répétitorat, ou des
@@ -1866,9 +1807,7 @@ Cependant ils se sont éduqués, en effet, hors des livres
 
 en même temps qu'avec eux. Mais l'aide des livres, et
 les maximes qu'ils y peuvent méditer, ne sont d'usage
-que pour satisfaire aux insidieuses questions des examinateurs. Les ouvrages des penseurs ne valent qu'au-
-tant et dans la mesure où ils sont inscrits aux « pro-
-grammes ». Toutes les idées des maîtres, pleines d'âme À
+que pour satisfaire aux insidieuses questions des examinateurs. Les ouvrages des penseurs ne valent qu'autant et dans la mesure où ils sont inscrits aux « programmes ». Toutes les idées des maîtres, pleines d'âme À
 et de vie, n'ont qu'une valeur littéraire, philologique,
 formelle, abstraite. Il ne s'agit point de les vivre, vrai- À
 ment, mais plutôt d'en vivre: c'est-à-dire d'en faire:
@@ -1887,8 +1826,7 @@ carrière de l'enseignement exige de celui qui y entre un
 plus haut caractère moral que le commun des autres
 métiers. Nulle part, rien n'avertit qu'il y faut une vocation
 spéciale. Au contraire, partout et de toutes parts, —
-sauf exceptions aussi rares que possible, — des supé-
-rieurs et des égaux s'offrent d'innombrables témoi-.
+sauf exceptions aussi rares que possible, — des supérieurs et des égaux s'offrent d'innombrables témoi-.
 gnages que dans cette fonction comme dans les autres,
 les mots ne sont que des mots, les principes des phrases,
 — et que les affaires sont les affaires. Nulle part le jeune
@@ -1901,8 +1839,7 @@ l'heure. Nulle part ces maisons d'éducation ne lui offrent
 d'exemples supérieurs à ceux de la plus vulgaire honnêteté, réalisée en l'observance ponctuelle, minutieuse,
 scrupuleuse de la lettre. En effet, proviseurs, censeurs,
 principaux, professeurs, répétiteurs font leur devoir,
-strictement, et ceux pour qui un rappel à l'ordre est né-
-cessaire sont évidemment la très grande exception. La
+strictement, et ceux pour qui un rappel à l'ordre est nécessaire sont évidemment la très grande exception. La
 sans heurt, et tout y est bien, dans le meilleur des
 mondes. Mais le proviseur, le principal ne sont point
 ces patriarches doux et fermes qu'espérerait un naïf, à
@@ -1911,16 +1848,14 @@ se préfigure la grande famille sociale. Proviseurs et
 Principaux sont des policiers au service du Pouvoir, qui
 veillent à ce que parmi les professeurs, répétiteurs ou
 écoliers ne s'élève aucune « mauvaise tête ». Proviseurs
-et principaux sont des officiers du Gouvernement, char-
-gés par lui de la garde du complexe instrument de
+et principaux sont des officiers du Gouvernement, chargés par lui de la garde du complexe instrument de
 domination qui leur est confié, et qui est l'École qu'ils
 Qui jamais vit un proviseur, un principal, — barrica-
 è dés avec leur famille dans une aïle du grand bâtiment,
 — convier à quelque repas amical ses répétiteurs? Qui
 à jamais les vit fraterniser avec eux? Qui jamais les vit
 offrir à ces exilés du monde vivant, à ces prisonniers À
-À des lycées et collèges, des distractions familiales, inté-
-rieures? Proviseurs et principaux ont des jardins atte-
+À des lycées et collèges, des distractions familiales, intérieures? Proviseurs et principaux ont des jardins atte-
 ( nants aux lycées et collèges, dont ils s'attribuent clusive jouissance. Qui jamais les vit offrir seulement
 une allée, une charmille, un carré, à leurs répétiteurs,
 
@@ -1928,10 +1863,8 @@ pour que ces dépossédés y aient un endroit où se pro=
 
 Loin de là! Tous se fuient les uns les autres, et mont
 d'autres rapports que les rapports inévitables du service.
-Il semble même qu'on ait veillé, qu'on veille incessam-
-ment à ce que les fonctionnaires aient le moins d'occa- À
-sions possible de se rencontrer, de conférer, de se con-
-naître. Le nombre est très minime, en province du
+Il semble même qu'on ait veillé, qu'on veille incessamment à ce que les fonctionnaires aient le moins d'occa- À
+sions possible de se rencontrer, de conférer, de se connaître. Le nombre est très minime, en province du
 moins, des lycées et collèges où l'on puisse trouver une
 salle de réunion, même une bibliothèque, ou une salle
 de lecture, un lieu enfin où, entre deux classes, pendant
@@ -1952,8 +1885,7 @@ alternent dans le service, et c'est tout. Au sortir de
 leurs classes, les professeurs se hâtent de fuir une maison où rien d'agréable ne les retient, et où ils ne trouvent
 souci d'aucun intérêt supérieur. Ils rentrent chez eux
 pour vaquer aux soins de leurs affaires personnelles. Au
-sortir de leurs études, dortoirs, surveillance, les répé-
-titeurs se hâtent de perdre de vue l'établissement d'éducation qui ne leur est qu'une geôle. Entre les uns et les
+sortir de leurs études, dortoirs, surveillance, les répétiteurs se hâtent de perdre de vue l'établissement d'éducation qui ne leur est qu'une geôle. Entre les uns et les
 autres qui n'ont affaire ensemble qu'en prenant ou en
 
 quittant le service, et qui ne savent où se retrouver hors
@@ -1962,8 +1894,7 @@ du service, de mesquins malentendus naissent bientôt,.
 qui ne font que croître et s'aggraver. Une atmosphère
 d'indifférence générale, et de scepticisme, de « j'menfi-
 : chisme de mutuelle défiance et de suspicion mutuelle
-se forme vite, où les sentiments, les volontés, les carac-
-tères ne tardent point à se pervertir.
+se forme vite, où les sentiments, les volontés, les caractères ne tardent point à se pervertir.
 à Qui en pâtit? L'écolier à coup sûr, bien qu'il soit le
 dernier à s'en douter. Il respire cet air, il y grandit. Les
 … plus délicats peut-être éprouvent vaguement qu'ils sont
@@ -1997,8 +1928,7 @@ qu'une existence livresque; ainsi s'en désintéressent-ils
 peu à peu, bâillent-ils à leur fréquentation, et ne les
 entassent-ils en leur mémoire frivole ou utilitaire, qu'autant qu'elles leur serviront à « se faire une position à
 « gagner de l'argent ». Aïnsi la vie recommence-t-elle
-perpétuellement, ou plutôt continue-t-elle d'une géné-
-ration à l'autre, dans la même monotonie, et avec la
+perpétuellement, ou plutôt continue-t-elle d'une génération à l'autre, dans la même monotonie, et avec la
 même félonie, quels que soient d'ailleurs les progrès des
 méthodes d'enseignement, des lumières, de la science,
 et de ce qu'on est convenu d'appeler la civilisation.
@@ -2010,8 +1940,7 @@ lendemain jeudi à la Sous-Préfecture, où ils souhaiteraient en corps la bienv
 Le lendemain à dix heures, en redingote, chapeau de
 soie et pantalon clair, Yves entrait dans le vestibule de
 la Sous-Préfecture bourré de redingotes, de chapeaux
-de soie, d'habits aussi, et de casquettes ou képis galon-
-nés. Il se fraya un chemin pesamment parmi quelques
+de soie, d'habits aussi, et de casquettes ou képis galonnés. Il se fraya un chemin pesamment parmi quelques
 poignées de main, saluts de tête. Il rejoignit Arverne
 qui l'avait précédé de quelques instants, et qui, en
 : homme du monde, déjà bien connu du Tout Villetaupier,
@@ -2019,9 +1948,7 @@ qui l'avait précédé de quelques instants, et qui, en
 : présenta le nouveau professeur. Ces messieurs étaient le
 petit père André, président du tribunal, Guillot, le procureur, et enfin cet exquis de Passagne, le jeune jugesuppléant, commensal de Arverne et de Madec à l'Hôtel
 des Blés, ou plus proprement à « Hôtel ». De Passagne
-; était très sympathique à Yves, malgré ses façons aristocratiques, à cause de sa simplicité de cœur, de sa déli157
-
-catesse d'esprit. De Passagne connaissait les idées
+; était très sympathique à Yves, malgré ses façons aristocratiques, à cause de sa simplicité de cœur, de sa délicatesse d'esprit. De Passagne connaissait les idées
 Yves. Il les partageait en homme que toutes sincères
 aspirations intéressent, car de Passagne était. artiste;
 mais il était trop timide de caractère, surtout trop bien
@@ -2030,8 +1957,7 @@ mais il était trop timide de caractère, surtout trop bien
 vouloir les prendre trop au sérieux et s'en faire l'apôtre.
 C'est pourquoi, plaisantant à la table d'hôte, Yves le
 blaguaït parfois, tantôt le traitant de « Monseigneur
-et tantôt de « froussard! » A quoi de Passagne ne man-
-quait pas de rire d'avoir, lui, magistrat, un ami qui, au
+et tantôt de « froussard! » A quoi de Passagne ne manquait pas de rire d'avoir, lui, magistrat, un ami qui, au
 fond, était un émule de Ravachol!
 
 De Passagne s'amusa à désigner à Yves qui, vivant
@@ -2065,9 +1991,7 @@ autres qui venaient derrière vers Théodore...
 
 Mais déjà Arverne le tirait par la manche. De Passagne avait disparu, et il se trouva à la grande porte à
 deux battants du fond de l'antichambré, aux côtés du
-père Binelle, en habit, gras et rond, dont le vaste plastron de chemise était barré d'une grande cassure au-
-
-dessus du gilet. Têtu, le père Fusain, Chamaiïn, Pillard
+père Binelle, en habit, gras et rond, dont le vaste plastron de chemise était barré d'une grande cassure audessus du gilet. Têtu, le père Fusain, Chamaiïn, Pillard
 etc, elc., tous étaient là. Comme ils avançaiïent en
 1 groupe serré sur un mol tapis, Yves aperçut dans le
 grand salon carré où ils entraient, dans les longues
@@ -2105,8 +2029,7 @@ et répondit à son discours par un autre discours. Yves
 y prêta l'oreille. Monsieur le sous-préfet était d'autant
 plus heureux et confiant, en entendant les bonnes
 paroles de M. le Principal, qu'étant lui-même un ancien
-élève d'un collège de la République, il savait par expé-
-rience combien MM. les fonctionnaires de l'Université
+élève d'un collège de la République, il savait par expérience combien MM. les fonctionnaires de l'Université
 étaient fidèles et dévoués aux institutions républicaines. En outre, il avait un frère, professeur dans un;
 collège du Nord. Nul n'était plus à même que lui
 d'apprécier la haute sincérité des paroles, qu'au nom
@@ -2125,8 +2048,7 @@ nous sommes les fiers soldats, et les serviteurs
 M. le Sous-Préfet sourit alors avec condescendance et:
 commençant par la gauche, il vint sur le front en demicercle, serrer les mains des professeurs. Yves s'étonna
 que sa main se tendit, reçût la poignée de main officielle, sans crispation. Il éprouva de l'humeur contre
-soi, d'avoir ainsi faire ce geste d'amitié et de confiance, alors que dans son cœur, il n'avait qu'indifié-
-rence ou dégoût d'une telle mascarade... Car, que
+soi, d'avoir ainsi faire ce geste d'amitié et de confiance, alors que dans son cœur, il n'avait qu'indifiérence ou dégoût d'une telle mascarade... Car, que
 signifiait tout cela!
 
 Le groupe des professeurs s'était reformé. La grasse
@@ -2210,8 +2132,7 @@ d'honneur, il pensait flatter l'orgueil des pensionnaires
 de l'hôtel en leur lisant, en manuscrit, des odes d'une
 de ses tantes Çau grand ami Nicolas que publiait
 en première page, ornementées d'un liseron, la Gazette
-Libre, et que sa tante faisait signer « Jehanne la Fran-
-çaise ». Yves en avait des nausées; penser que de telles
+Libre, et que sa tante faisait signer « Jehanne la Française ». Yves en avait des nausées; penser que de telles
 feuilles, de tels journaux tiraient à huit cents exemplaires! étaient lus par au moins huit cents honnêtes
 gens! commentés par eux, et vraiment exprimaient
 l'âme de leur âme! et cela plus d'un siècle après la
@@ -2244,8 +2165,7 @@ avez franchi la route des Piliers à bicyclette ce matin...
 « J'en augure que cette croisade vous a donné de l'appé-
 « it, et jen induis que ma route est lisse comme une
 à table de billard.
-Yves admirait le galantin, parfait chevalier teuil: trente-six ans, face replète, blanchâtre, profil ro-
-main, « napoléonien aimait-il à dire; nez légèrement
+Yves admirait le galantin, parfait chevalier teuil: trente-six ans, face replète, blanchâtre, profil romain, « napoléonien aimait-il à dire; nez légèrement
 busqué, menton de galoche, cheveux plats, noir luisant, clairsemés: « cou court veston éternellement
 orné d'une fleur à la boutonnière, sans un pli, tendu
 par les épaules américaines et le plastron de la
@@ -2271,16 +2191,12 @@ exigeait d'eux qu'ils lui parlassent le chapeau à la
 
 main (alors qu'il gardait le sien sur la tête), à une
 
-En quittant l'hôtel, au regret d'Arverne et de de Pas-
-
-sagne, qui déploraient la « lubie » de leur ami, Madec
+En quittant l'hôtel, au regret d'Arverne et de de Passagne, qui déploraient la « lubie » de leur ami, Madec
 
 se détourna de telles scènes, pour d'autres qui ne le
 
 réjouirent pas davantage. Tables de restaurants, ou
-tables de réfectoires, étudiants, clercs d'huissiers, com-
-
-mis-voyageurs, conducteurs de ponts et chaussées,
+tables de réfectoires, étudiants, clercs d'huissiers, commis-voyageurs, conducteurs de ponts et chaussées,
 
 notaires, ou bien professeurs, instituteurs, répétiteurs,
 
@@ -2288,9 +2204,7 @@ comme convives, c'était, pensait Madec, éternellement
 
 la même veulerie de l'intelligence, les mêmes stupides
 
-plaisanteries, les mêmes cochonneries idiotes. Au mi-
-
-lieu des mets, sur les assiettes, au potage, au rôti, au
+plaisanteries, les mêmes cochonneries idiotes. Au milieu des mets, sur les assiettes, au potage, au rôti, au
 
 dessert, ils étalaient leurs ragoûtantes réflexions, leurs
 cyniques allusions, leurs grossières joies favorites. Ils
@@ -2307,8 +2221,7 @@ la Gironde, se redressait, faisait la roue, risquant de la
 du bras, à lui saisir brusquement la poitrine, quand
 elle avait les bras chargés. La fille riait jaune quelquefois, mais le plus souvent éclatait de bon cœur quand
 même, trouvait des mots câlins, des sourires charmés,
-… Ici, à l'« auberge c'était mam'zelle Nicole qui serM vait; une grande fille brune, qui avait passé la tren-
-taine. Elle était pâle, lasse de deux accouchements
+… Ici, à l'« auberge c'était mam'zelle Nicole qui serM vait; une grande fille brune, qui avait passé la trentaine. Elle était pâle, lasse de deux accouchements
 clandestins, d'amours malheureuses, et son corsage de
 — coton rose ou mauve, si bien chiffonné qu'il fat autour
 du corset, ne réussissait pas à rajeunir, à raffermir les
@@ -2327,14 +2240,13 @@ l'autre côté de la table, le gamin à grande blouse, le
 commis quincaillier, à la lèvre pure, aux yeux de fillette
 joueuse, lui criait:
 
-—! pince-lui donc le haut de cuisse,! sale
+pince-lui donc le haut de cuisse,! sale
 
 On l'appelait juif, ce bon Gustave, on ne savait trop
 pourquoi; peut-être à cause de son teint basané et de
 son nez busqué.
 
-Bernard, le commis aux écritures de la Société Géné-
-rale, grand beau jeune homme à la belle barbe noire, à
+Bernard, le commis aux écritures de la Société Générale, grand beau jeune homme à la belle barbe noire, à
 la longue et droite moustache noire, le « béguin de
 Nicole à en croire les pensionnaires, affectait de traiter la pauvre fille en esclave. Il la rudoyaït, sacrait
 comme un charretier, à chaque fois qu'elle passait der-
@@ -2356,9 +2268,7 @@ son couteau, ou tapait la table d'un grand coup de
 
 — Quelle rosse, elle ne peut pas me servir à l'heure!
 
-Le plus terrible était peut-être le jeune commis quin-
-
-caillier, assis auprès de Yves, éternellement riant, pouffant dans son assiette, pour la moindre mouche posée
+Le plus terrible était peut-être le jeune commis quincaillier, assis auprès de Yves, éternellement riant, pouffant dans son assiette, pour la moindre mouche posée
 sur quelque nez, et sans cesse en quête d'allusions
 
 obscènes dans tout ce qui se disait autour de lui. On
@@ -2433,8 +2343,7 @@ Madec avait passé à tant de tables d'étudiants, de
 
 répétiteurs, que maintenant il se résignait. Il connaissait d'avance l'expérience prochaine. C'était en effet la
 même histoire partout. Durant les premiers repas, aux
-premiers jours, quand il jetait tout à coup quelque ré-
-flexion hardie sur tel état des choses qui l'avait frappé,
+premiers jours, quand il jetait tout à coup quelque réflexion hardie sur tel état des choses qui l'avait frappé,
 et qui était un mal commun, un silence l'accueillait, une
 sorte d'étonnement, dont on avait quelque temps à se
 remettre; puis arrivaient des réponses le plus souvent
@@ -2448,8 +2357,7 @@ discussion même se glissait d'ici, de là, quelque joviale
 … insinuation. Petit à petit tout se défaisait. Alors pris de
 découragement, il cessait de lutter, essayait de sourire,
 … pourse faire tolérer. La souplesse de sa nature le ser-
-—. vait, servait aux idées qu'il exprimait. On ne lui en vou-
-lait qu'à demi de gêner, de tyranniser par de grandes
+—. vait, servait aux idées qu'il exprimait. On ne lui en voulait qu'à demi de gêner, de tyranniser par de grandes
 préoccupations, puisqu'il riait des grosses farces. Il
 riait en effet, et parfois, aussi rarement qu'il pouvait,
 il plaisantait lui-même, grivoisement. Alors on recher-
@@ -2503,8 +2411,7 @@ arrière d'arbustes de lilas, maintenant près d'éclater.
 Les arbustes écartés se rangeaient à quelque distance,
 et s'ouvraient autour d'un éventail de lumière et de ciel,
 par où Yves, assis au pied de l'arbre, découvrait les
-menues ondulations du pays. Sur les flancs de ces coteaux en miniatures, des poiriers, des pommiers se dres-
-saient en leurs robes blanches printanières, tandis que
+menues ondulations du pays. Sur les flancs de ces coteaux en miniatures, des poiriers, des pommiers se dressaient en leurs robes blanches printanières, tandis que
 
 sur leurs fronts, en rudes silhouettes, des charrues, des À
 paysans passaient dans le ciel bleu.
@@ -2549,8 +2456,7 @@ mystiques en son cœur? N'éveillaient-ils point plutôt des
 avaient, pour qu'ils pussent troubler encore son âme où
 tant de fortes assises d'une foi critique, d'une science
 rationaliste, d'une volonté libre, étaient posées, et ronnées déjà d'œuvres de pensée et d'action. Comment
-ceux qui furent élevés dans ces chants, dans ces litur-
-gies où les âmes communient en l'extase sensuelle, » peuvent-ils jamais, de leurs propres forces, briser de
+ceux qui furent élevés dans ces chants, dans ces liturgies où les âmes communient en l'extase sensuelle, » peuvent-ils jamais, de leurs propres forces, briser de
 tels magiques enchantements! Comme il faut que la rai-
 . son soit puissante!
 Pourquoi ne chante-t-on point dans les collèges, dans
@@ -2638,8 +2544,7 @@ froyable caserne de Bourdes, où ses grands élèves se
 blottissaient autour de lui, le suppliant de leur trouver.
 une besogne, une course à faire, par quoi ils pussent
 
-1 échapper au proviseur, au censeur, à Bufflard, qui, nou-
-veaux pourvoyeurs de Notre Seigneur, voulaient les
+1 échapper au proviseur, au censeur, à Bufflard, qui, nouveaux pourvoyeurs de Notre Seigneur, voulaient les
 traîner au pied des autels. Les lycées, collèges, — sauf
 exceptions si rares qu'il est permis de croire qu'elles:
 sont des omissions étranges, sont des établissements
@@ -2651,8 +2556,7 @@ Enseigne-t-on quelque morale « neutre » aux lycéens, « aux collégiens? La m
 est enseignée par les aumôniers. Ceux-ci n'ont point « une chaire, ils ont toutes les chaires. A eux sont
 ouvertes les études, toutes les études, Ils y viennent, et
 les répétiteurs doivent leur céder la place, et les « répétiteurs en profitent pour aller se promener une
-demi-heure, une heure de plus, ou, quand M. l'aumô-
-nier n'est pas capable d'autorité évangélique et divine,
+demi-heure, une heure de plus, ou, quand M. l'aumônier n'est pas capable d'autorité évangélique et divine,
 les répétiteurs doivent demeurer, et suppléer à ses
 défaillances par l'appui des sanctions policières et …
 temporelles. L'Église ici encore a recours au bras sé-
@@ -2756,8 +2660,7 @@ tant de constance et d'énergie, celle de fonder un enseignement vraiment libre,
 Yves se plaisait à évoquer la beauté, la joie d'une
 œuvre d'émancipation vraie des intelligences et des
 énergies. D'abord l'abolition de la distinction inique et
-traîtresse d'un enseignement primaire et d'un autre se-
-condaire; l'érection de grands édifices, d'ateliers, de
+traîtresse d'un enseignement primaire et d'un autre secondaire; l'érection de grands édifices, d'ateliers, de
 bibliothèques, de musées, de laboratoires, au milieudes
 champs, des jardins, de la campagne, où l'instruction
 scientifique, sous toutes ses formes manuelles et intel
@@ -2770,8 +2673,7 @@ Plus d'internat, plus de dortoirs! Chaque semaine, à
 tous, selon les âges, l'enseignement éthique, sous toutes
 ses formes, des plus concrètes aux plus abstraites;
 depuis celle du culte des grands hommes etdes grandes
-actions, des héros de l'humanité, jusqu'à celles qui dérivent de l'histoire des religions, de la critique exégé-
-tique, et des métaphysiques. L'éducation par l'exemple,
+actions, des héros de l'humanité, jusqu'à celles qui dérivent de l'histoire des religions, de la critique exégétique, et des métaphysiques. L'éducation par l'exemple,
 par le fait, dans tous les actes de la vie ordinaire, quotidienne; c'est-à-dire la Liberté, à la base de tout, la
 liberté physique, la liberté morale, la liberté intellec-;
 tuelle; et par là, la sincérité, la franchise, l'audace,
@@ -2791,8 +2693,7 @@ Voilà assurément ce que saurait réaliser un peuple
 libre, une démocratie loyale, soucieuse d'élever des
 hommes. En dix ans, rêvait Yves, en vingt ans au plus,
 . si de tels établissements existaientjamais, siune œuvre
-… d'éducation vraie était entreprise, les « boîtes congré-
-ganistes » n'auraient plus personne. Il leur resterait
+… d'éducation vraie était entreprise, les « boîtes congréganistes » n'auraient plus personne. Il leur resterait
 às'écrouler sur leur vide, et la question du « monopole »
 paraîtrait ce qu'elle est au fond, une ridicule mesure.
 d'impuissance et de tyrannie...
@@ -2891,9 +2792,7 @@ Allez donc faire vos devoirs! Allez! laissez ces
 
 —…. Yves était outré de penser que c'était là, dans ces
 “rues, devant ces affiches, bien plus qu'au collège, plus
-qu'à ses lectures, qu'à ses leçons, que se faisait l'édu-
-
-cation des futurs citoyens. Ils voyaient s'étaler là, flam-
+qu'à ses lectures, qu'à ses leçons, que se faisait l'éducation des futurs citoyens. Ils voyaient s'étaler là, flam-
 
 “boyantes et glorieuses, les mêmes paroles qu'ils enten-
 .—daient crier passionnément dans les querelles politiques
@@ -2924,8 +2823,7 @@ Je sais bien qu'il ne passera pas... C'est un guesdiste...
 Mais pour qui voulez-vous voter? C'est une bande de
 rastas, tout ça! Quel pays de moules, nom de Dieu.
 Le bon Périer, les mains dans les poches, en costume
-de dimanche, si joli garçon avec son col blanc, sa cra-
-vate noire mal nouée, son chapeau de feutre mou, …
+de dimanche, si joli garçon avec son col blanc, sa cravate noire mal nouée, son chapeau de feutre mou, …
 comme un monsieur, se laissait aller, lui aussi, à son
 sentiment profond de dégoût.
 — Mais, reprenait Yves, et ce Miraire, guesdiste, es
@@ -3032,8 +2930,7 @@ après avoir chargé lui-même l'Ours du pavé, et du soin
 de lui casser la tête avec pour chasser les mouches! —
 
 Et avec tout ça, croyez-vous que l'individu puisse dormir en paix, qu'il s'est réellement déchargé du souci de …
-soi? Allons donc! Rien n'y peut rien! ni dieux, ni dé-
-putés! L'individu reste à sa charge! Ilne peut pas juger,
+soi? Allons donc! Rien n'y peut rien! ni dieux, ni députés! L'individu reste à sa charge! Ilne peut pas juger,
 il ne peut pas ne pas agir tout de même, et il faut bien,
 : en définitive, que ce soit lui qui juge les dieux et les
 députés, qui escalade le ciel et envahisse les Chambres,
@@ -3064,8 +2961,7 @@ que ces puissances supérieures étaient seules capables de
 “4 réaliser pour lui le rêve étrange dont il était tourmenté.
 En un mot je consens que les premiers hommes, ignok: rants, aient foi en des dieux, et qu'ils leur aient fait
 - des invocations et des sacrifices. Même aujourd'hui,
-je comprendrais que les individus reconnussent la supé-
-riorité morale de quelques-uns d'entre eux, leur dissent:
+je comprendrais que les individus reconnussent la supériorité morale de quelques-uns d'entre eux, leur dissent:
 ; « Vous êtes meilleurs que nous; vous êtes plus-forts
 contre le mal; prenez soin de nous qui sommes plus
 à faibles; gardez-nous des mauvais; » — et les enragés
@@ -3082,9 +2978,8 @@ des boniments de charlatans, des plus honteuses et
 cyniques compromissions de consciences; c'est à ceuxDs qui ont toutes chances d'être les pires parmi les
 —. pires, que les individus confient en aveugles leurs tinées, leur conscience du juste et de l'injuste, leur inalié-
 NE nable droit d'être libres, d'agir en hommes! C'est fan_ tastique! C'en est sublime à force d'être idiot!.….
-4 Périer gravement regardait fuir un frisson de lumière
-4 blonde et verdâtre le long des frêles peupliers qui bor-
-daient la ligne de chemin de fer, à droite, dans la plaine
+Périer gravement regardait fuir un frisson de lumière
+4 blonde et verdâtre le long des frêles peupliers qui bordaient la ligne de chemin de fer, à droite, dans la plaine
 ? — Ah bien sûr! dit-il enfin, si tout le monde s'enten74 dait!.…
 — Tout le monde, reprit Yves! Mais qu'est-ce que
 
@@ -3132,9 +3027,7 @@ qu'il avait souffert, et parce qu'il savait que l'amour
 
 - attenterait encore à sa liberté de penser et d'agir. Il
 
-- désirait plus qu'alors, car il reconnaissait son impuis-
-
-sance dans la solitude à vivre la vie dans toute sa
+- désirait plus qu'alors, car il reconnaissait son impuissance dans la solitude à vivre la vie dans toute sa
 
 plénitude et dans toute sa beauté.
 
@@ -3147,8 +3040,7 @@ celle qu'on voit vivre autour de soi?
 ï fille très sérieuse, une bonne petite ménagère, et qui a
 ses idées à elle: elle n'aime pas le monde... — mais
 enfin. je crois qu'elle tient à certaines choses... Savezvous la réflexion qu'elle a faite, et qui pour moi
-résume bien la situation? Voici exactement ses pa-
-roles: « C'est encore un franc-maçon celui-là! Pour » rien au monde je ne veux d'un franc-maçon! »
+résume bien la situation? Voici exactement ses paroles: « C'est encore un franc-maçon celui-là! Pour » rien au monde je ne veux d'un franc-maçon! »
 Madec éclata de rire:
 — Bien mauvais signe, madame, cette haine préconçue
 de la franc-maçonnerie! Il faut être bien « catholique »
@@ -3223,8 +3115,7 @@ ou non être celle d'une épouse, je vous avoue que c'est
 tout à fait secondaire pour moi. Mais je me soucie
 beaucoup du salut d'une âme, de celle de n'importe qui.
 
-J'ai un désir profond d'amener cette jeune fille à réflé-
-chir sur la vie, et à nourrir son esprit d'idées saines.
+J'ai un désir profond d'amener cette jeune fille à réfléchir sur la vie, et à nourrir son esprit d'idées saines.
 La lecture des quelques articles que j'ai écrits dans
 l''Idée Nouvelle peut déjà quelque chose. Mais elle ne me
 prend pas, je le vois, très au sérieux. Alors je songe à
@@ -3237,8 +3128,7 @@ Madec se leva pour sortir, et madame Binelle se:
 leva aussitôt, Mais d'un air câlin et apitoyé, elle prononça:
 — Ah! monsieur Madec! Comme vous êtes absolu,
 3 exigeant, et comme vous connaissez mal les femmes!
-. Mariez-vous donc d'abord; et puis ensuite, vous amè-
-nerez votre femme à penser comme vous!
+. Mariez-vous donc d'abord; et puis ensuite, vous amènerez votre femme à penser comme vous!
 £. Madec eut un soubresaut etrépondit ardemment:
 _._ — Ah, mais non! voilà précisément ce dont je ne
 2. veux à aucun prix! Je vous ai dit que je voulais épouser
@@ -3265,8 +3155,7 @@ heure en tête à tête avec elle. Je suis convaincue que
 à l'autre... La présence matérielle est aussi quelque
 Madec eut un léger haut-le-cœur, en entendant ces:
 mots qu'accompagnait un petit rire sensuel. Il
-regarda la grosse madame Binelle appuyée au cham-
-branle de la porte: ses yeux brillaient. Il la salua très
+regarda la grosse madame Binelle appuyée au chambranle de la porte: ses yeux brillaient. Il la salua très
 bas et partit.
 Il s''épancha dans sa solitude accoutumée. Les lilas
 étaient défleuris déjà. Il se promenait parmi les allées
@@ -3327,8 +3216,7 @@ comptez pas sur moi pour une U. P.!...
 mais, écoutez. Je crois que vous êtes de bonne foi...
 Cependant prenez garde... Je causais dernièrement de. à
 ce mouvement des P., avec deux personnes très à
-graves, très instruites, et en qui j'ai la plus grande con-
-fiance, et. elles m'ont affirmé que, fatalement, les
+graves, très instruites, et en qui j'ai la plus grande confiance, et. elles m'ont affirmé que, fatalement, les
 U. P. versent à la politique, et deviennent des instru-;
 6 ments de jacobinisme!... à
 Pillard, sa serviette sous le bras gauche, la canne
@@ -3381,8 +3269,7 @@ Mais Charbonnard, l'ivrogne, manquaitrarement. C'était …
 à chaque réunion l'occasion pour lui d'une soirée libre à
 et d'une grande soûlerie.
 D''habitude la séance s'ouvrait à neufheures, ets'ache
-vait un peu après dix heures. Têtu y recueillait le mon-
-tant des cotisations, des noms de nouveaux adhérents,
+vait un peu après dix heures. Têtu y recueillait le montant des cotisations, des noms de nouveaux adhérents,
 : et donnait lecture de quelques circulaires émanées du;
 Comité central. Après quoi Madec apportait le plus
 souvent un sujet de discussion, ou quelques pages, qu'il
@@ -3433,8 +3320,7 @@ Piriou paraissait à la section pour la première fois.
 - C'était un grand et fort gaillard, très rouge, d'aspect
 - rude et violent. Il dit tout de suite:
 - Eh ben, camarades, j'ai deux choses à vous dire.
-… Primo, la femme de Périer est au lit pour le bébé an-
-ces quat' matins. Mais du coup Périer n'peut pas venir
+… Primo, la femme de Périer est au lit pour le bébé ances quat' matins. Mais du coup Périer n'peut pas venir
 … ce soir, m'a donc prié de l'excuser près d'vous.
 - Deuxiémo, j'suis pus au chemin de fer: j'leur z'ai fichu
 ma démission au nez!
@@ -3459,12 +3345,10 @@ au nez. Comme jme foutais de leur galette, puisque
 j'n'acceptais pas le déplacement, et que je n'tenais qu'à
 une chose, qu'on m'donne l'explication du déplacement,
 ! j'leur refuse leur galette. J'la renvoie avec un'nouvelle
-d'mande d'explication. Et comme c'thistoire commen-
-çait à m'dégoûter, qu'on m'traite comme quéqu'un qu'a
+d'mande d'explication. Et comme c'thistoire commençait à m'dégoûter, qu'on m'traite comme quéqu'un qu'a
 mérité un blâme, ou qui n'a pas fait son service comme
 il devait à un poste où il était, j'ajoute qu'étant blessé
-dans ma dignité, si on m'refusait de m'donner les rai-
-sons d'mon déplacement, démissionnerai!.. Savez-vous
+dans ma dignité, si on m'refusait de m'donner les raisons d'mon déplacement, démissionnerai!.. Savez-vous
 c'qui m'fichent en réponse 2. Une révocation!
 On s'exclama de nouveau.
 — Qu'allez-vous faire maintenant? lui cria-t-on de à
@@ -3475,9 +3359,7 @@ et j'vas leur demander non pas d'me faire réintégrer, à
 
 comme j'pourrai, avec ma femme et les micches; mais
 j'veux qu'ils m'enlèvent cette révocation! On n'a pas le
-droit d'me révoquer! C'était une malpropreté d'me dé-
-
-placer sans m'dire les raisons. C'en est une aütre d'me
+droit d'me révoquer! C'était une malpropreté d'me déplacer sans m'dire les raisons. C'en est une aütre d'me
 
 révoquer, parce que je demande si on a des raisons!
 
@@ -3530,10 +3412,8 @@ touche, marcheraïit autrement qu'ça marche, et on
 f'rait caler les gros bonnets plus vite que ça! Et je n'dis
 pas qui faille pour tant d'histoire qu'on en fait.
 
-; a qu'une seule chose à faire, c'est à être propre, à vou-
-loir être propre, et à obliger ces messieurs à respecter
-vol propreté. — J'faisais mon service à hauteur, ja-
-mais demandais de permission, jamais j'demandais
+; a qu'une seule chose à faire, c'est à être propre, à vouloir être propre, et à obliger ces messieurs à respecter
+vol propreté. — J'faisais mon service à hauteur, jamais demandais de permission, jamais j'demandais
 d'augmentation. J'demandais rien. Pourquoi qui sont LA
 
 venus m'embêter? S'figuraient comme qui z'avaient
@@ -3553,8 +3433,7 @@ d'augmentation par mois, c'est tout c'que t'en auras. Et
 c'est pas qu'nous voulons! C'est pas d'l'argent! C'est
 qu'on nous traite en hommes et en citoyens! Mais pour EL.
 faut qu'on s'conduise soi-même en homme! Faut pas
-avoir peur d'crever de faim. Faut s'foute de tout, et sa-
-voir cracher son mépris à leur gueule. J'vous l'dis,
+avoir peur d'crever de faim. Faut s'foute de tout, et savoir cracher son mépris à leur gueule. J'vous l'dis,
 j'aime mieux crever de faim, et qu'ma femme et mes
 gosses crèvent de faim, mais on n'fra pas d'moiun pied
 plat, ou un' païllasse sur qui tout l'monde danse!:
@@ -3635,9 +3514,7 @@ se l'avouaient d'ailleurs franchement, du moins avaientils l'un pour l'autre la 
 - comme ces professeurs de la Sorbonne et de l'Institut,
 qui n'ont pas hésité, depuis l'Affaire, à se ranger du
 parti du Peuple, soient des ambitieux, ou des naïfs?
-— Je ne dis pas cela, protesta Arverne. Vous me par-
-
-lez de gens que je respecte infiniment. Je ne crois pas
+— Je ne dis pas cela, protesta Arverne. Vous me parlez de gens que je respecte infiniment. Je ne crois pas
 qu'aucun d'eux ait aucun profit personnel à tirer de
 leurs courageuses aventures, si ce n'est peut-être
 quelque popularité pour leur nom, et j'accorde que, à
@@ -3681,10 +3558,8 @@ cessant reproche qu'il se faisait, d'être lâche, d'être en:
 tout comme le vulgaire, de dire et de ne point faire!
 Serait-il jamais capable d'un acte comme celui de:
 
-Il se confessa à Arverne. Il lui étala sa misère inté-
-rieure, sa faiblesse d'âme
-— Est-ce que moi, qui suis conscient de tous les men-
-songes au milieu desquels nous vivons, au collège, dans
+Il se confessa à Arverne. Il lui étala sa misère intérieure, sa faiblesse d'âme
+— Est-ce que moi, qui suis conscient de tous les mensonges au milieu desquels nous vivons, au collège, dans
 l'Université, est-ce que je devrais souffrir d'y rester?
 
 - Est-ce que je ne devrais pas les crier sur les toits? Non,
@@ -3694,8 +3569,7 @@ par illusion que j'y combats quand même pour un peu
 plus de vérité!
 
 Les deux amis sortaient de la ville, prolongeaient leur
-promenade autour des boulevards sombres, sans réver-
-bères, avec, au-dessus de leurs têtes, les crinières noires à
+promenade autour des boulevards sombres, sans réverbères, avec, au-dessus de leurs têtes, les crinières noires à
 des marronniers, où scintillaient les étoiles.
 
 Arverne sentait une émotion fraternelle le gagner, à
@@ -3705,9 +3579,7 @@ casmes, et sa voix s'adoucit:
 — Non, mon cher ami, ce n'est pas une illusion. Vous
 voyez comme j'avais raison: Vous vous poussez au;
 martyre; vous vous excitez à la folie de la croix. Vous
-voyez trop de crimes. Vous voulez trop de vertus. L'Uni-
-
-versité a besoin de gens comme vous, pourvu qu'ils ne
+voyez trop de crimes. Vous voulez trop de vertus. L'Université a besoin de gens comme vous, pourvu qu'ils ne
 fassent point d'eux-mêmes des martyrs. Le temps
 des supplices est passé, celui aussi des martyrs. C'est;
 
@@ -3722,9 +3594,7 @@ sont pas plus naïfs que moi. Ils croient peu, je pense,
 que leurs plus belles paroles, que leurs plus beaux actes:
 changent grand chose dans le monde. Cependant ils
 
-préfèrent de belles paroles, de belles actions, à des pa-
-
-roles et à des actes vils. Inutile de se flageller. C'est
+préfèrent de belles paroles, de belles actions, à des paroles et à des actes vils. Inutile de se flageller. C'est
 
 . la grande leçon qu'ils nous donnent. Vous voyez, avec
 
@@ -3742,17 +3612,13 @@ année, je ne crois pas. Mais contentez-vous d'avoir
 
 semé quelques graines de cette Idée. Elles germeront,
 
-. dans un an, dans dix ans; peu importe. Elles reparai-
-
-tront ici ou là, sous une forme que. vous n'aviez pas
+. dans un an, dans dix ans; peu importe. Elles reparaitront ici ou là, sous une forme que. vous n'aviez pas
 
 prédéterminée. Et si elles ne germent point? Bah!
 
 Ù mon cher ami, soyez joyeux d'avoir semé!
 
-Ils causèrent encore, longuement, Yves écoutait sur-
-
-tout. Il s'apaisait à ces paroles calmes, confiantes, prononcées d'une voix sereine. Il était conscient qu'un ami
+Ils causèrent encore, longuement, Yves écoutait surtout. Il s'apaisait à ces paroles calmes, confiantes, prononcées d'une voix sereine. Il était conscient qu'un ami
 
 1 lui était venu, tout à coup, qu'il n'était plus aussi seul.
 
@@ -3762,19 +3628,15 @@ Less de
 
 È Cependant on était aux plus beaux jours de juin, et
 Yves n'allait plus au collège qu'avec ennui. Il s'étonnait:
-ù de sentir une telle torpeur l'envahir au bout de la première demi-heure de classe. Aucune classe ne l'intéres-
-sait plus; ni les petits comme autrefois par leur turbulence perpétuelle, où il avait l'impatience de l'être
+ù de sentir une telle torpeur l'envahir au bout de la première demi-heure de classe. Aucune classe ne l'intéressait plus; ni les petits comme autrefois par leur turbulence perpétuelle, où il avait l'impatience de l'être
 jeune à accueillir toutes impressions et à y répondre;
 ni les moyens ou les grands, dont les langueurs ou les
 gamineries lui montraient l'adolescent déjà affec
-secrètement des puissants instincts qu'atrophie ou dé-
-nature l'atroce discipline.
-Il avait cesser de jouer avec les gamins, de santer avec les aînés, car il ne pouvait, dans cette pri-
-son, être leur camarade à une heure moins cinq, pour
+secrètement des puissants instincts qu'atrophie ou dénature l'atroce discipline.
+Il avait cesser de jouer avec les gamins, de santer avec les aînés, car il ne pouvait, dans cette prison, être leur camarade à une heure moins cinq, pour
 devenir leur ennemi à une heure sonnant. Il traversait
 donc leurs groupes sans plus répondre à leurs enfantines
-interpellations. Il entrait en classe en sabreur. A l'anglais il trouvait encore sa vie supportable: quelques-
-uns commençaient à bavarder pas trop maladroitement,
+interpellations. Il entrait en classe en sabreur. A l'anglais il trouvait encore sa vie supportable: quelquesuns commençaient à bavarder pas trop maladroitement,
 
 et puis ses classes d'anglais étaient à peine des « classes ».
 On y contait des histoires; on y jouait à maints jeux de
@@ -3794,8 +3656,7 @@ sur la table, de grands silences où, terrorisée, la classe
 ne bougeait plus. Et ils ânonnaïent platemeni l'un après
 l'autre les stupides sentences: « Le jardin — der Garten:
 de mon oncle — meines Onkels ». Et cela aurait une
-heure, puis une autre heure... Les mêmes petites inep-
-ties revenaient éternellement, et éternellement les
+heure, puis une autre heure... Les mêmes petites inepties revenaient éternellement, et éternellement les
 mêmes voix se buttaient aux mêmes fautes: « Vous
 rejet, s'il vous plait! » C'était tellement la même
 chose qu'il entendait et répondait, et parlait presque
@@ -3813,7 +3674,7 @@ MALI se jurait cependant de lutter jusqu'au bout. L'an
 . prochain, il s'y prendrait autrement. Il s'épuisait à
 chercher de nouvelles méthodes, rêvant de ne pas faire
 tant de fois la même chose.
-D'abord il ne pactiserait plus avec l'administration »: paterne et bête. Il imposerait une méthode strictement
+D'abord il ne pactiserait plus avec l'administration paterne et bête. Il imposerait une méthode strictement
 - autoritaire, puisqu'il ne pouvait songer à la liberté dé-
 a sirable. Du moins il l'exercerait avec le plus grand
 . discernement et la plus absolue fermeté. Durant le
@@ -3829,17 +3690,14 @@ parce qu'au fait il aurait jugé que de telles natures
 . étaient essentiellement réfractaires, et que c'était risLe uer de les ruiner pour jamais que de les obliger à
 . quoi que ce fût.
 Ilsé réservait d'être sévère avec les médiocres sur-
-… tout. Quand l'un d'eux serait en défaut, il lui marque-
-rait une punition légère d'abord, aussi rationnelle que
+… tout. Quand l'un d'eux serait en défaut, il lui marquerait une punition légère d'abord, aussi rationnelle que
 4 possible. Il lui donnerait par exemple un supplément
-_de devoir ou de leçon. Si l'élève s'y refusait, il augmen-
-te ait la longueur du devoir ou de la leçon supplémen-
+_de devoir ou de leçon. Si l'élève s'y refusait, il augmente ait la longueur du devoir ou de la leçon supplémen-
 … taire. Enfin il en arriverait à la retenue, qu'il viendrait
 faire faire lui-même, et qui ne serait autre qu'une classe
 plémentaire. En cas très grave, il infligerait une
 
-grande retenue de trois heures, qu'il surveillerait lui-
-même au collège. Surtout il voulait que les élèves
+grande retenue de trois heures, qu'il surveillerait luimême au collège. Surtout il voulait que les élèves
 s'habituassent à écouter ses paroles, à savoir qu'elles
 avaient un sens réel, une valeur pratique immédiate, et
 indiscutable. A ces énergies molles, relâchées, il fallait,
@@ -3850,8 +3708,7 @@ Quant aux bons, il les laisserait agir absolument à
 leur guise, leur passant même toutes sortes de manquements. Ils pourraient aller et venir, causer en classe,
 “omettre un devoir, une leçon, sans qu'il en tint
 Puis il songeait: rêve, que tout cela! En fait, il y
-rarement un seul élève bon, un seul nul, tout est mé-
-diocre.. Agir comme j'imagine, sans intervention de
+rarement un seul élève bon, un seul nul, tout est médiocre.. Agir comme j'imagine, sans intervention de
 l'administration, c'est volontairement aller contre elle,
 qui veut le relâchement, la lâcheté, la veulerie!
 Il souffrit de connaître ces enfants qui étalaient cyniquement devant lui toutes les plaies de l'âme. Il croyait
@@ -3886,8 +3743,7 @@ cessaient point de tricher, il le constatait à la différence
 les copies de façon que chaque élève eût à marquernon
 plus ses fautes, mais celles de son camarade. Le résulRe tat fut fantastique. L'esprit de malice les tenait et ils se
 … marquaient un plus grand nombre de fautes qu'une
-copie n'en pouvait loger... Quand il proclamait les ré-
-sultats, des disputes éclataient en classe. Il renonça à
+copie n'en pouvait loger... Quand il proclamait les résultats, des disputes éclataient en classe. Il renonça à
 - ce moyen, en adopta un autre, puis un autre, et cela
 à - Un jour monsieur le Principal entra dans la classe et
 . s'effaça pour laisser passer monsieur le Sous-Préfet. Yves
@@ -3944,17 +3800,14 @@ En revenant à sa chaire Yves fut accueilli par vingt
 - — M'sieur, plus de d'voirs supplémentaires. M'sieur,
 … pas de thème à refaire?..
 …._ Yves frappa sa table d'un livre pour rétablir le
-— Non, mes amis, non! Je n'enlèverai pas mes puni-
-tions. Monsieur le sous-préfet peut lever celles qui
+— Non, mes amis, non! Je n'enlèverai pas mes punitions. Monsieur le sous-préfet peut lever celles qui
 … regardent l'administration, retenues et consignes, si
 —. l'administration y consent. Mais, dites-moi, est-ce que
 monsieur le sous-préfet peut faire qu'une leçon non sue
 ! _soit sue tout à coup, qu'un devoir non fait se trouve
 fait, par la vertu de sa visite ici! Nilui, ni moi, ni per-
-. sonne au monde, réfléchissez-y, n'a le droit, ni le pou-
-voir d'effacer une faute, sauf celui qui l'a commise, et
-à en la réparant. Chitaud, vous ne saviez pas le cas pos-
-sessif? Je vous l'avais donné à apprendre en plus de
+. sonne au monde, réfléchissez-y, n'a le droit, ni le pouvoir d'effacer une faute, sauf celui qui l'a commise, et
+à en la réparant. Chitaud, vous ne saviez pas le cas possessif? Je vous l'avais donné à apprendre en plus de
 … votre leçon de la semaine. Est-ce que vous le savez
 aintenant parce que monsieur le sous-préfet vous à
 
@@ -4012,9 +3865,7 @@ cours de physique et chimie, et quelques cours de
 descriptive et la trigonométrie. C'est trop dur, et ils
 . n'en voient pas l'utilité;
 « Enfin un autre s'est payé un mois et demi de va_ cances à Pâques et suit les cours en amateur.
-« Restent donc dans cette classe deux élèves (bour-
-
-siers), suivant tous mes cours. sont d'ailleurs d'excellents potaches.
+« Restent donc dans cette classe deux élèves (boursiers), suivant tous mes cours. sont d'ailleurs d'excellents potaches.
 
 « Mais quel plaisir et quel courage peut avoir un professeur dans de pareilles conditions!
 
@@ -4048,8 +3899,7 @@ ne et lui contait l'affaire suivante qui venait de se passer
 dans son collège.
 : « … Il y a déjà une quinzaine de jours les potaches
 étaient sortis furieux du réfectoire, en braïllant dans la
-. cour: À bouffer! à bouffer! » De tout temps j'avais entendu les doléances des miens à propos de la nourri-
-ture. Mais tu sais que si on écoutait tout ce que disent
+. cour: À bouffer! à bouffer! » De tout temps j'avais entendu les doléances des miens à propos de la nourriture. Mais tu sais que si on écoutait tout ce que disent
 les potaches, il n'y aurait qu'à flanquer le feu dans
 54 toutes les boîtes. Cependant voilà que vendredi dernier,
 au dîner du soir, dans le grand réfectoire, où
@@ -4057,8 +3907,7 @@ au dîner du soir, dans le grand réfectoire, où
 ne surveillant général, dans le potin des assiettes, des cou114 … yerts, des voix, la porte s'ouvre, et. l'inspecteur d'aca-
 —…._._ démie paraît! Il s'amuse à goûter le vin, les plats. Il y
 Et avait ce soir-là de la morue et des haricots. L'inspecteur
-ï fait une grimace en goûtant les haricots, deux en goû-
-tant la morue, trois en goûtant le vin. Il interroge des
+ï fait une grimace en goûtant les haricots, deux en goûtant la morue, trois en goûtant le vin. Il interroge des
 potaches ici etl à. Ils déclarent qu'ils avaient tous refusé
 … La morue. L'inspecteur leur demande si on changeait les à
 … assiettes Cette question les ahurit; jamais ils _raient pensé que pouvait se faire! Pendant ce temps,
@@ -4069,8 +3918,7 @@ régnait dans le réfectoire, et on l'aurait dit vide. Enfin
 … l'inspecteur a demandé à haute voix aux élèves de dési-
 … gner trois d'entre eux pour l'accompagner dans le reau de M. le principal. Ce fut fait sans bruit, en un
 … clin d'œil. Trois potaches, trois grands, un littéraire, un
-}. scientifique, un commercial, se levèrent. Dans le cabi-
-nét du principal, où l'inspecteur était étalé dans le teuil du principal, et le principal debout, en rang avec
+}. scientifique, un commercial, se levèrent. Dans le cabinét du principal, où l'inspecteur était étalé dans le teuil du principal, et le principal debout, en rang avec
 
 les trois potaches, on vit se précipiter la mère Poupoule. te
 « — M'sieur l'inspecteur! Il faut chasser ces élèves!
@@ -4092,9 +3940,7 @@ réfectoire, au repas et au jour qu'il choisirait. Chose
 extraordinaire, rien n'avait transpiré! Ils avaient
 soin de ne rien dire aux petits. Je te laisse à juger, mon
 cher Madec, de ce que des histoires pareilles ont de
-hautement éducatif! Vois-tu ce principal, mis en accu-
-sation par ses élèves, pris en flagrant délit d'escamo-
-tage, et du reste, par eux? Quelle autorité morale
+hautement éducatif! Vois-tu ce principal, mis en accusation par ses élèves, pris en flagrant délit d'escamotage, et du reste, par eux? Quelle autorité morale
 penses-tu qu'il puisse avoir sur son armée de bi-
 
 Nouvelles et dernières scènes d'intérieur
@@ -4109,15 +3955,13 @@ des pentes arides et desséchées, dévorées de soleil. Il
 fallait dès le matin se cloîtrer dans la chambre et clore
 … d'épaisses tentures sur les jalousies fermées, demeurer
 dans l'obscurité. Une telle température, à quoi n'était
-point accoutumé ce Breton des rivages brumeux, éner-
-vait son courage. Il s'y alanguissait. Son cerveau même
+point accoutumé ce Breton des rivages brumeux, énervait son courage. Il s'y alanguissait. Son cerveau même
 était las, surtout aux jours de classes. Il lui semblait
 alors que tout métier était plus clément que le sien, et
 . il allait jusqu'à envier les cantonniers de Choute, quine
 ._ chômaient point cependant sur les routes blanches de
 —. poussière. « Il est moins dur de briser des pierres, que
-— de faire pénétrer quelque chose dans des têtes d'en-
-fants! »murmurait-il. Ilrentrait de classela poitrinemeur-
+— de faire pénétrer quelque chose dans des têtes d'enfants! »murmurait-il. Ilrentrait de classela poitrinemeur-
 : … trie d'avoir parlé, le cerveau douloureux, le cœur plein
 de lassitude. « On a tout contre soi! La bêtise de
 
@@ -4126,9 +3970,7 @@ haut, on ne sait où. La veulerie des parents, qui se
 fichent pas mal de leurs rejetons. L'inertie des élèves...
 Quand je suis pris de colère pour une leçon non sue,un (
 devoir mal fait, je m'arrête devant l'élève, je sens que
-c'est pitié. Quoi faire? Qu'est-ce qu'une heure de rete-
-nue contre cette écrasante et anonyme masse de culpa-
-bilités qui se pressent et s'entassent derrière lui? »
+c'est pitié. Quoi faire? Qu'est-ce qu'une heure de retenue contre cette écrasante et anonyme masse de culpabilités qui se pressent et s'entassent derrière lui? »
 
 Une très triste nouvelle l'acheva. Le bon Périer »
 venait de perdre sa femme. Elle était morte quelques
@@ -4151,11 +3993,8 @@ midi. Il avait toute la nuit médité tant d'actes de bonté,
 d'héroïsme chez les pauvres gens qu'il avait affairés
 autour du lit de la malheureuse accouchée. Sa petite à
 avait été recueillie aussitôt par des sabotiers qui:
-vivaient dans une hutte prochaine. Des voisins de pau-
-vreté sordide, d'aspect minable: depuis le vieil homme, à
-charretier de son métier, qui, à soixante-dix ans, tra-
-
-vaillait chaque jour, hiver ou été, sur les grands routes
+vivaient dans une hutte prochaine. Des voisins de pauvreté sordide, d'aspect minable: depuis le vieil homme, à
+charretier de son métier, qui, à soixante-dix ans, travaillait chaque jour, hiver ou été, sur les grands routes
 et dans les champs; — et sa femme, femme de peine,
 . vêtue de méprisables haïllons; jusqu'à leur grande fille
 ; de seize ans, couturière, qui déjà se parait de rubans
@@ -4202,11 +4041,9 @@ frères qui habitait à quelques lieues de Villetaupier. En
 rentrant chez lui, Madec se laissa choir sur son fauteuil
 de cuir, devant sa table. Il éprouvait une faiblesse
 inouie. La petite bonne entra.
-Depuis longtemps il vivait familièrement, fraternelle-
-ment avec elle, bien qu'elle eût cessé, depuis des mois,
+Depuis longtemps il vivait familièrement, fraternellement avec elle, bien qu'elle eût cessé, depuis des mois,
 de faire dictées ou narrations. Lina était paresseuse,
-insouciante, bavarde, romanesque. Intelligente pour-
-tant, elle posait sans cesse mille questions à Yves. Elle
+insouciante, bavarde, romanesque. Intelligente pourtant, elle posait sans cesse mille questions à Yves. Elle
 lui avait conté tous ses doutes de jeune esprit féminin,
 toutes ses impressions de petite paysanne que séduit le
 luxe des grandes villes, et qu'amoindrit la domesticité.
@@ -4247,11 +4084,8 @@ y prenait appui secrètement pour se révolter contre la
 - condition. Elle était digne d'un autre rang social. Elle
 rêvait d'amours qui la libéreraient. Cependant elle
 demeurait effrayée et probe devant les actes qui la
-; Avec crainte Yves se demandait si, au lieu de la sau233
-
-ver, il ne l'avait pas plutôt pervertie. De nouveau un
-grande défiance naïssait en lui de ses plus chères pen-
-sées, de ses meilleurs efforts.
+; Avec crainte Yves se demandait si, au lieu de la sauver, il ne l'avait pas plutôt pervertie. De nouveau un
+grande défiance naïssait en lui de ses plus chères pensées, de ses meilleurs efforts.
 Lina le trouva affalé dans son fauteuil.
 — Eh bien? Quoi donc? Fatigué?.. Et puis c'est si
 triste, ce pauvre M. Périer!
@@ -4302,9 +4136,7 @@ tout un rêve de beauté et de bonheur s'évoquait là.
 
 … Lina prit la carte, la regarda longuement, soupira:
 
-— Comme on doit être heureux!.. Je ne connaïi-
-
-trai jamais ces endroits-là!.…
+— Comme on doit être heureux!.. Je ne connaïitrai jamais ces endroits-là!.…
 
 … Madec, gêné d'une pitié qui montait en lui, voulut
 — Moi non plus, allez! Jamais je n'irai à Nice! J'ai
@@ -4328,8 +4160,7 @@ des souliers, à marmitonner des plats, entre l'évier
 le fourneau, à balayer, épousseter, cirer. jusqu'aux.
 épousailles d'un quelconque du troupeau, pour qui elle …
 recommencerait la tâche jamais finie de cirer, épous-
-Pourquoi n'ont-ils pas de vacances, eux aussi, domes-
-tiques, ouvriers, tous ceux à qui les autres doivent leur
+Pourquoi n'ont-ils pas de vacances, eux aussi, domestiques, ouvriers, tous ceux à qui les autres doivent leur
 loisir, leur bien-être?
 Que pouvait-il, lui, pour elle? Il la regardait. Blanche
 et rose, toujours elle considérait ce coin de paradis sur
@@ -4383,8 +4214,7 @@ n'y a pas de précédent...
 voudra demander l'autorisation à l'inspecteur primaire.
 l'inspecteur primaire est un chic garçon, pas banal
 même, et qui ne manque pas d'initiative. Mais tout de
-même il n'ira pas jusque-là, sans en prévenir le Rec-
-teur. qui aura peut-être à en aviser le ministre. et
+même il n'ira pas jusque-là, sans en prévenir le Recteur. qui aura peut-être à en aviser le ministre. et
 je ne dis pas que n'amènerait pas une interpellation
 à la Chambre! En tout cas, vous voyez que demandera du temps. Clavaud aura le temps de mouxir et de
 — Je comprends, poursuivit Yves, qu'on ne puisse
@@ -4398,13 +4228,11 @@ cement de quelques jours seulement, pour alléger une
 . besogne toute matérielle, pourquoi s'embarrasser de
 tant de démarches quand on peut si aisément faire les À
 — Ah! mon cher, dit Boulon, vous êtes curieux, vous!
-Vous figurez-vous que ce soit une question de compé-
-tence, proprement, qui puisse justifier ces démarches?
+Vous figurez-vous que ce soit une question de compétence, proprement, qui puisse justifier ces démarches?
 La vérité est qu'il faut s'appeler Madec, et être le sale
 anarchiste que vous êtes, pour vouloir ainsi tout mêler
 et tout confondre! La vraie raison, la voici: « Jamais
-un professeur de l'enseignement secondaire ne daïigne-
-rait faire, pour un jour même, dans une école commu-
+un professeur de l'enseignement secondaire ne daïignerait faire, pour un jour même, dans une école commu-
 a nale, le service d'un instituteur. C'est un fait, une
 vérité psychologique, comme vous l'appelleriez, je crois;
 : ceci est garanti, approuvé, consacré par l'autorité
@@ -4471,8 +4299,7 @@ enfantine, comme il lui arrivait, par explosion. Il lui
 … tendit les deux mains:
 4 — Je vous demande pardon de vous avoir fait de-
 . mander, monsieur Madec, mais tenez, venez donc! J'ai
-. votre discours qui m'est revenu de chez M. le Rec-
-teur, avec quelques observations.
+. votre discours qui m'est revenu de chez M. le Recteur, avec quelques observations.
 Il y avait deux mois environ que Madec avait été
 … prévenu qu'étant le dernier arrivé au collège, l'honneur
 … grand lui était réservé de faire le discours de distribu-
@@ -4490,13 +4317,11 @@ liant qu'il lui fût, à son âge, et dans sa situation, interdit d'être le ma�
 donnerait, comme un écolier qui ne saurait parler,
 écrire, penser, sans la permission, les corrections de
 son maître. Le sens de cette « formalité » qui ne l'était
-point, n'échappait pas à Madec. C'était une manifesta-
-tion nouvelle de la grande « âme policière ». Il lui était
+point, n'échappait pas à Madec. C'était une manifestation nouvelle de la grande « âme policière ». Il lui était
 réellement interdit de penser selon la logique de son
 esprit, et de parler sa pensée. Il se souvenait des
 démêlés qu'avaient eus maints collègues de lycées ou de À
-collèges avec leurs recteurs, pour des passages de dis-
-cours qu'il leur avait bien fallu supprimer, n'étant pas
+collèges avec leurs recteurs, pour des passages de discours qu'il leur avait bien fallu supprimer, n'étant pas
 les plus forts. Une fois de plus, à cette occasion, Yves
 avait vérifié l'exactitude des observations qu'il avait
 faites à d'autres sujets, que le professeur, qui, en tant
@@ -4510,11 +4335,7 @@ depuis le premier jour, il reçut son manuscrit. Il avait
 choisi comme sujet: « Les langues étrangères et les
 étrangers ». Il avait développé cette pensée de Ruskin: -
 ce n'est pas tant la différence des langues ou des
-mœurs qui sépare les peuples, que certains vices hu-
-
-mains, tels que l'égoïsme, l'ambition, l'ignorance. Par-
-
-lant à des enfants, il s'était exprimé avec autant de
+mœurs qui sépare les peuples, que certains vices humains, tels que l'égoïsme, l'ambition, l'ignorance. Parlant à des enfants, il s'était exprimé avec autant de
 
 hardiesse qu'il était possible. Mais, refroidi par le
 . souci d'être par un administrateur qui sans doute
@@ -4529,19 +4350,16 @@ son discours, le bonhomme soupirait. Le recteur trou_ ait que ce discours n'éta
 . bution des prix. Il citait quelques expressions impropres
 ou même incorrectes. Il terminait en traitant le tout
 É dédaigneusement de « pathos mystique ». Yves fut sou-
-à: lagé de voir que le recteur ne lui demandait pas de le
+lagé de voir que le recteur ne lui demandait pas de le
 
 Il parcourait des yeux, rêveusement, les bouquins
 
-scolaires étalés sur le bureau du principal, quand celui-
-
-cise tournant vers lui:
+scolaires étalés sur le bureau du principal, quand celuicise tournant vers lui:
 
 — Tenez, monsieur Madec. Voyez donc cette pape-
 - rasse-là; et dites-moi ce que vous en pensez?
 
-Il lui tendait une feuille, ornée au coin d'un « im-
-primé »: « Université de France — Académie de... —
+Il lui tendait une feuille, ornée au coin d'un « imprimé « Université de France — Académie de... —
 
 — C'est ce rapport officiel que vous voulez dire?
 
@@ -4572,8 +4390,7 @@ Pesamment il reconduisait Madec. Il soupirait encore, à
 sa large face plus blanche et plus flasque que jamais: À
 
 — Allons! vlà l'heure du diner. Faut que j'sonne
-ma cloche... Tiens! j'avais quelque chose à vous mon-
-irer. vous aurait donné du courage, à vous qui
+ma cloche... Tiens! j'avais quelque chose à vous monirer. vous aurait donné du courage, à vous qui
 venez leur lire des belles choses le jeudi, à ces chenapans-là.. Ah! je ne sais pas ce que j'en ai fait. Figurez-vous que j'ai confisqué dans la deuxième étude: Fin
 de Siècle, le Colonel Ronchonnot…. et le Dernier des
 
@@ -4586,9 +4403,7 @@ qui allait le quitter, et, à voix presque basse:
 femme d'ouvrier..… Vous y avez assisté, avec Têtu,
 Arverne, etc... Je sais bien que vous connaissiez cet
 ouvrier. Mais, dites donc, savez-vous que fait déjà
-du bruit? — Vous m'entendez bien. C'est un enterre-
-
-ment Crviz? Si arrive aux oreilles du recteur,
+du bruit? — Vous m'entendez bien. C'est un enterrement Crviz? Si arrive aux oreilles du recteur,
 demande si il n'va pas voir comme une manifestation?.… Je suis très embêté, vous entendez bien? très
 embêté!.… Est-ce que vous êtes parent de cet ouvrier?
 Il y a beaucoup de personnes qui vous ont par le
@@ -4616,7 +4431,7 @@ cause de la présence de Jean-Pierre qu'Yves cherchait
 à faire bavarder en anglais, et de celle de madame
 Têtu, qui allait, venait, plaisantait.
 — À quand le mariage? fit-elle soudain.;
-—? exclama Yves. Est-ce à moi, s'il vous plaît?.…
+exclama Yves. Est-ce à moi, s'il vous plaît?.…
 Cette madame Têtu savait donc tout? Qui diable À
 avait lui conter l'histoire qu'il avait eue avec ma-:
 
@@ -4646,9 +4461,7 @@ ferez rien avec vos idées, si vous n'êtes pas marié!
 
 Vous vivez trop seul; vous vous exaltez. Vous êtes
 
-. triste, vous vous découragez. Un intérieur, un peu d'af-
-
-fection chez soi, vous retrempe, pas, mon vieux?
+. triste, vous vous découragez. Un intérieur, un peu d'affection chez soi, vous retrempe, pas, mon vieux?
 
 : Elle eut un geste caressant pour Têtu, qui dodelina
 
@@ -4711,9 +4524,7 @@ le bonhomme enseigne fort honnêtement le dessin au
 collège. Il touchait 1.600 jusqu'ici, et on lui prélevait la
 taxe légale et proportionnelle sur 1.600 pour sa retraite.
 
-L'Université, en récompense de ses bons et loyaux ser-
-
-vices, ne le paiera plus maintenant que 1.400; et, pour
+L'Université, en récompense de ses bons et loyaux services, ne le paiera plus maintenant que 1.400; et, pour
 
 - la retraite, il ne touchera que sur le traitement de 1.400!
 
@@ -4758,14 +4569,12 @@ quatre cents d'heures supplémentaires! On prétend
 qu'en France il y aura ainsi plus de cent professeurs
 sur le carreau!.. En revanche on aura ici un professeur
 d'agriculture. Puis, j'oubliais. une autre chaire de
-langues! Mon cher Madec on vous déchargera de lalle-
-mand, ne pleurez plus. Pour vous dédommager, on
+langues! Mon cher Madec on vous déchargera de lallemand, ne pleurez plus. Pour vous dédommager, on
 vous donnera, en outre de l'anglais, du français, du grec,
 et du latin. On ne veut plus de bilingues, mais on tient
 à des quadrilingues!
 
-Ceci finit par amuser Arverne et Madec. Quelle bouil-
-labaisse! Est-ce qu'on se moquait d'eux? Qui diable
+Ceci finit par amuser Arverne et Madec. Quelle bouillabaisse! Est-ce qu'on se moquait d'eux? Qui diable
 
 avait manigancé un tel attrape-nigaud? Têtu était-il
 sérieux! Mais Têtu était incapable d'une plaisanterie
@@ -4786,8 +4595,7 @@ encore, Dieu sait!
 là-dedans? Comment tout cela s'est-il fait sans que,
 nous autres, professeurs, nous en ayons jamais entendu
 à parler? Il me semble qu'on aurait au moins nous
-4 consulter? Qui peut savoir mieux que nous nos Compé-
-tences, et les mesures à prendre pour certaines modifications à apporter dans l'ordre de l'enseignement et
+4 consulter? Qui peut savoir mieux que nous nos Compétences, et les mesures à prendre pour certaines modifications à apporter dans l'ordre de l'enseignement et
 dans celui de l'éducation?
 — Ah, mon pauvre Madec, s'écria soudain Arverne,
 . d'un ton furieux, rageur, comme quand un sarcasme
@@ -4863,27 +4671,20 @@ le recteur, comme on a voulu le lui faire croire, l'ombre
 votre discours. Il m'a paru être d'un philosophe et d'un
 qualités rares que je n'en avais aperçues à l'entendre.
 Monsieur le recteur n'avait aucune raison de penser que
-je me permettais de manifester publiquement mon mé-
-pris pour les idées que vous y formuliez, et qui sont
+je me permettais de manifester publiquement mon mépris pour les idées que vous y formuliez, et qui sont
 miennes, auxquelles il avait donné son approbation. -
 Mais j'avoue que, pendant un court moment, quelqu'un
 qui se trouvait sur l'estrade derrière moi, et qui sans …
-doute n'écoutait pas, me désigna une personne de l'audi-
-toire dans la salle, et me fit, à son propos, une réflexion
+doute n'écoutait pas, me désigna une personne de l'auditoire dans la salle, et me fit, à son propos, une réflexion
 qui provoqua chez moi le rire, et sans doute ce haussement d'épaules involontaire, purement réflexe. Je ne
 vois pas d'autre fondement au blâme durecteur.Je vous:
 demande pardon d'ailleurs de cette distraction dont je
 « Mais ce n'est pas tout. Mon pauvre ami! Quand je
 vous parlais des honteux cancans des petites villes! Le
 recteur me blâäme encore pour avoir osé assister à la « distribution solennelle des prix (où il n'était point; ila « donc encore fallu qu'on le lui racontât), avec un pantalon
-gris, et des souliers jaunes, sous ma robe de licen-
+gris, et des souliers jaunes, sous ma robe de licenrez-de-chaussée, Paris, cinquième arrondissement.
 
-rez-de-chaussée, Paris, cinquième arrondissement.
-
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi-
-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
@@ -4932,8 +4733,7 @@ manquants, mandats, indication de nouveaux abonnés.
 numéro de l'abonnement, comme il est inscrit sur
 l'étiquette, avant le nom.
 … Adresser à M. Charles Péguy, gérant des cahiers,
-8, rue de la Sorbonne, rez-de-chaussée, Paris, cin-
-quième arrondissement, la correspondance de rédaction
+8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement, la correspondance de rédaction
 … et d'institution; toute correspondance d'administration
 adressée à M. Péguy peut entraîner pour la réponse
 un retard considérable; nous ne répondons pas des
@@ -4971,8 +4771,7 @@ de beaucoup ma pensée. Vous avez raison de penser que
 je n'en aurais jamais autorisé la reproduction. En les
 reproduisant, vous m'avez fait commettre, malgré moi, une?
 
-Je compte sur votre loyauté pour publier cette protesta-
-tion dans votre plus prochain Cahier, et je vous prie de
+Je compte sur votre loyauté pour publier cette protestation dans votre plus prochain Cahier, et je vous prie de
 croire à mes sentiments dévoués. à
 
 Bravo pour le dernier Cahier — et pour tous les autres.
@@ -4982,8 +4781,7 @@ sur « la Délation aux Droits de l'Homme — copie dema
 lettre de démission de la Ligue, adressée à M. de Pressensé
 après l'apparition du Bulletin du 15 décembre, c'est-à-dire
 vers le 20 décembre. Que cette protestation s'ajoute aux
-autres dans votre dossier, pour y subir le même sort: iné-
-dite sans que mon amour-propre en souffre! — ou publiée
+autres dans votre dossier, pour y subir le même sort: inédite sans que mon amour-propre en souffre! — ou publiée
 avec signature et adresse.
 
 vers le 20 décembre 1904
@@ -5008,11 +4806,9 @@ qui placent l'idéal plus haut que le souci des combinaisons
 .. ministérielles. Il s'agissait, quelles que fussent les conditions
 .” suspectes (2) dans lesquelles se présentaient les dénoncia__ tions à la Chambre, de proclamer hautement et à l'avance
 que, si elles étaient prouvées, la réprobation contre la délax tion jésuitique atteindrait également les jésuites rouges, et
-avec plus de force encore, car ils sont inexcusables d'em-
-prunter à leurs ennemis de telles armes. Et dire que « sous
+avec plus de force encore, car ils sont inexcusables d'emprunter à leurs ennemis de telles armes. Et dire que « sous
 prétexte de demeurer purs entre les purs des républi-
-._ cains ont fait, « consciemment ou non le jeu des préto-
-siens, c'est émettre une insimuation infamante que beau_ coup, je l'espère, ne toléreront pas. Les seuls qui font le jeu
+._ cains ont fait, « consciemment ou non le jeu des prétosiens, c'est émettre une insimuation infamante que beau_ coup, je l'espère, ne toléreront pas. Les seuls qui font le jeu
 ; des prétoriens et des cléricaux, ce sont ceux qui font passer
 4 au-dessus de tout la raison d'État et qui emploient, pour le
 salut public, des moyens cléricaux; ce sont ceux-là, et leurs
@@ -5021,8 +4817,7 @@ défenseurs. Dussions-nous être vaincus, si nous n'avons
 Membre de la Ligue presque dès les premiers mois d'exis__ tence, je lui ai recruté à Crest, aux Ollières, à Privas, à
 Loches, à Laval, à Montbrison, des membres qui en ont
 amené d'autres; j'ai distribué abondamment des brochures,
-4 3 des appels, des déclarations, — non sans risques quelque-
-fois, comme à Laval. J'ai contribué directement à la création
+4 3 des appels, des déclarations, — non sans risques quelquefois, comme à Laval. J'ai contribué directement à la création
 des sections des Ollières, de Privas, de Montbrison; les
 deux premières aujourd'hui désorganisées par les politicailleries locales. — Mais depuis déjà quelque temps je n'ose:
 — plus parler de la Ligue. Et comme je n'ai pas, por rester
@@ -5039,8 +4834,7 @@ souhaits de réveil à l'admirable Pressensé de 1897-99. à
 Cahiers de la Quinzaine, 8, rue de la Sorbonne, rez-de-chaussée,
 Monsieur le Secrétaire général de la Ligue française pour
 la défense des Droits de l'Homme et du Citoyen, 1, rue
-Sauf avis contraire de votre part et pour la bonne admi-
-nistration de nos abonnements, nous vous ferons présenter;
+Sauf avis contraire de votre part et pour la bonne administration de nos abonnements, nous vous ferons présenter;
 le lundi 6 février prochain un mandat de vingt francs À
 soixante pour votre abonnement à la sixième série de nos
 cahiers, — octobre 190% — juillet 1905, — et pour les frais
@@ -5091,8 +4885,7 @@ Michaud, j'ai cru devoir la soumettre au Comité de nos sec
 tions dans sa réunion du 12 courant. Le
 Le Comité reconnaissait la justesse de cette déclaration et
 son bien fondé; peut-être vous eüt-il demandé d'en modifier LE
-la rédaction si l'ordre du jour pur et simple, ayant la prio-
-rité, n'avait été demandé et voté.
+la rédaction si l'ordre du jour pur et simple, ayant la priorité, n'avait été demandé et voté.
 Je m'empresse de porter ce que nous avons fait à votre
 connaissance et vous prie, mon cher Collègue, d'agréer l'as-
 
@@ -5116,8 +4909,7 @@ tome III, pages 547 à 549), je raconte la fondation de la Ligue:
 : « Les républicains parlementaires, attentifs à mesure que
 se rapprochait l'échéance électorale, à ce qui se passait à
 dans leurs circonscriptions, y constataient un mouvement
-inusité. Toutefois, et pour effrayés qu'ils fussent, ils se tai-
-saient encore de leur peur. Convenir de l'audace croissante à
+inusité. Toutefois, et pour effrayés qu'ils fussent, ils se taisaient encore de leur peur. Convenir de l'audace croissante à
 
 de la contre-Révolution, autant avouer que c'était le contre-
 à coup du crime judiciaire impuni.
@@ -5153,12 +4945,9 @@ dixième cahier de la sixième série
 « Viollet fut désigné pour rédiger, avec Trarieux, les …
 statuts de la nouvelle association.
 « Ce grand savant, qui avait fouillé si profondément aux
-ruines du vieux droit français et en avait dégagé les Pro-
-pylées, les Établissements de saint Louis, était, je l'ai dit, En
-profondément catholique. Rien qu'à son maintien, on recon-
-naissait en lui l'un de ces « Port-Royalistes attardés pour
-qui « le nom de janséniste était moins le signe d'une dissi-
-dence dogmatique que l'indice d'une profession de gravité à
+ruines du vieux droit français et en avait dégagé les Propylées, les Établissements de saint Louis, était, je l'ai dit, En
+profondément catholique. Rien qu'à son maintien, on reconnaissait en lui l'un de ces « Port-Royalistes attardés pour
+qui « le nom de janséniste était moins le signe d'une dissidence dogmatique que l'indice d'une profession de gravité à
 et de religion austère ». (1) Ce sérieux du janséniste, triste,
 mais fortifiant, ne pas sans une haute moralité, qui est
 elle-même inséparable du courage. Viollet convenait qu'il. sx)
@@ -5175,12 +4964,10 @@ propos d'une réunion chez Scheurer-Kestner où j'assistai
 avec Ludovic Trarieux et Yves Guyot. (3) 1]
 Je connaissais Ludovic Trarieux de longue date; notre
 amitié date de l'Affaire; elle ne fit que croître jusqu'à ses
-derniers jours, ou je pus lui témoigner encore mon doulou-
-reux dévouement; il n'eùt pas confondu l'histoire avec le
+derniers jours, ou je pus lui témoigner encore mon douloureux dévouement; il n'eùt pas confondu l'histoire avec le
 panégyrique; et je puis dire que l'amitié et l'histoire ne se
 sont jamais trouvées en conflit, dans mon livre, à son
-Agréez, Monsieur le Directeur, l'assurance de mes senti-
-ments les plus distingués. ‘al
+Agréez, Monsieur le Directeur, l'assurance de mes sentiments les plus distingués. ‘al
 (1) Sainte-Beuve, Port-Royal, 593; Renan, Essais de morale et
 (2) Courrier du Pas-de-Calais du 29 avril 1898. Es
 (3) Dans cette même note, il faut lire 20 au lieu de 24 février,
@@ -5202,8 +4989,7 @@ Je suis l'auteur de la lettre qui figure à la page 92 du
 …. à ce sujet qu'en vous communiquant ma lettre, il a cru
 devoir, par convenance, vous prier de ne pas donner mon
 nom sans m'avoir consulté. Jamais personne, ni M. Charles
-É Rist ni vous, ne m'a dit que ma lettre avait été communi-
-quée aux Cahiers pour être imprimée dans les Textes for-
+É Rist ni vous, ne m'a dit que ma lettre avait été communiquée aux Cahiers pour être imprimée dans les Textes for-
 - rfant dossier, Si l'on m'avait denrandé mon avis, j'aurais
 
 dixième cahier de la sixième série
@@ -5213,7 +4999,7 @@ Croyez, je vous prie, à mes meilleurs sentiments.
 J'ai passé tout à l'heure pour vous dire ceci personnel-;
 lement. Ne vous ayant pas trouvé, je vous l'écris sans
 L'Est républicain, « seul organe du Parti républicain ES
-radical et radical socialiste de la Banlieue Est de Paris »: »
+radical et radical socialiste de la Banlieue Est de Paris »
 Lettre ouverte à M. Cholet, membre de la Ligue
 des Droits de l'Homme
 J'ai avec beaucoup d'intérêt l'article que vous avez envoyé à l'Est Républicain et que ce journal a inséré dans son
@@ -5246,8 +5032,7 @@ préoccupation son souci passionné des idées éternelles de
 1 vérité, de liberté et de justice.
 La Ligue, vous le savez bien, n'est pas un Comité poli-
 à tique. Elle est une association morale de bonnes volontés
-4 qui se sont unies pour défendre, contre les doctrines hos-
-tiles ou les attaques sournoises ou les calomnies intéressées
+4 qui se sont unies pour défendre, contre les doctrines hostiles ou les attaques sournoises ou les calomnies intéressées
 les principes qui sont à la base du régime moderne. Et
 à cela entraîne pour elle le devoir de faire respecter l'invioFe labilité de ces principes dans la personne de tous les çais, en assurant son concours aux victimes, quelles qu'elles
 4 soient, de l'intolérance et de l'arbitraire.
@@ -5272,24 +5057,18 @@ dixième cahier de la sixième série
 que les procédés qui servirent à les former ne sont pas
 « inadmissibles ainsi que les a qualifiés à la Chambre le
 parti républicain tout entier?
-La Ligue a toujours protesté, au nom des droits de l'in-
-dividu, contre l'arbitraire des notes secrètes non communi-
-cables à l'intéressé et qui détermine à son insu son avan-
-cement comme sa disgrâce. Le Congrès de 1904 en avait DE
+La Ligue a toujours protesté, au nom des droits de l'individu, contre l'arbitraire des notes secrètes non communicables à l'intéressé et qui détermine à son insu son avancement comme sa disgrâce. Le Congrès de 1904 en avait DE
 voté la suppression à l'unanimité. Pourquoi, fort de cette
 décision, le Comité central n'a-t-il pas saisi l'occasion qui
-s'offrait à lui pour renouveler sa protestation par une déli-
-bération formelle, et avec une énergie et une autorité qui
+s'offrait à lui pour renouveler sa protestation par une délibération formelle, et avec une énergie et une autorité qui
 auraient été de mise? La Ligue, mon cher collègue, ne
 saurait avoir deux poids et deux mesures. Elle n'a pas
-deux morales. Et ce qu'elle a condamné chez ses adver-
-saires, elle doit savoir le condamner même, et surtout,
+deux morales. Et ce qu'elle a condamné chez ses adversaires, elle doit savoir le condamner même, et surtout,
 chez ses amis.,
 Je ne trouve pas non plus — je le dis en passant — qu'il
 : soit d'un gouvernement régulier de communiquer directement avec une association philosophique pour la fourniture
 de renseignements sur les sentiments politiques d'une cer-;
-taine catégorie de fonctionnaires. C'est donner à cette association un rôle qui ne lui revenait pas d'une manière parti-
-culière, que je ne souhaitais pas pour elle, et dont je crois
+taine catégorie de fonctionnaires. C'est donner à cette association un rôle qui ne lui revenait pas d'une manière particulière, que je ne souhaitais pas pour elle, et dont je crois
 qu'elle se serait fort bien passée.
 Je ne considère pas non plus, et ici c'est plus grave, qu'il
 “convienne à la dignité humaine et à la nature des relations
@@ -5303,8 +5082,7 @@ Voilà pourquoi je regrette que le Comité central n'ait pas "4
 cru devoir blämer ces moyens. À
 Et, en les condamnant, il n'aurait pas fait, comme vous
 le dites, « le jeu des adversaires de la République » parce
-qu'à mon avis on ne fait pas le jeu de la République en re-
-courant, pour la défendre, à des procédés que la conscience
+qu'à mon avis on ne fait pas le jeu de la République en recourant, pour la défendre, à des procédés que la conscience
 réprouve. Si la République n'est pas un idéal, elle n'est rien
 
 pour moi; et toute atteinte à cet idéal me paraît une dimi_ nution de la République.
@@ -5321,8 +5099,7 @@ gardent dans l'adversité assez de courage et de constance
 -. fend pas toujours leurs intérêts comme il le faudrait. Vous
 me semblez encore vous tromper lorsque vous paraissez
 F. croire qu'en gardant le silence, qu'en essayant de faire l'ou-
-“4 bli, le Comité central n'a pas voulu faire accroître et prolon-
-ger une agitation pénible. J'estime au contraire — je vous le
+“4 bli, le Comité central n'a pas voulu faire accroître et prolonger une agitation pénible. J'estime au contraire — je vous le
 +. dis en toute sincérité — que prendre une telle décision-(où
 .…. l'on ne retrouve guère l'audace héroïque de la Ligue des pre-
 à miers jours), c'est contribuer, sans le savoir, à perpétuer ce
@@ -5330,14 +5107,11 @@ malaise que sentent beaucoup d'esprits et qui tôt ou tard se
 1 résoudra à notre détriment si nous n'y prenons garde, car!
 ïilne disparaîtra que le jour où nos sentiments de justice auc. ront reçu satisfaction.
 Que voulez-vous, mon cher collègue, je suis resté un
-ligueur d'autrefois, je crois encore à la puissance très effL cace des idées morales sur la conscience de nos contempo-
-rains, je crois encore qu'aller à l'encontre de ces idées, c'est
+ligueur d'autrefois, je crois encore à la puissance très effL cace des idées morales sur la conscience de nos contemporains, je crois encore qu'aller à l'encontre de ces idées, c'est
 - folie, et que les servir, c'est en même temps que se contenter
-soi-même, travailler pour son pays, et par delà nos fron-
-tières, pour l'humanité. Et ce qui esten jeu dans la question
+soi-même, travailler pour son pays, et par delà nos frontières, pour l'humanité. Et ce qui esten jeu dans la question
 1 qui nous préoccupe, ce n'est pas tant des intérêts indivi-
-. duels ou des intérêts de groupe, c'est, avant tout un patri-
-moine moral, que nous devons sauvegarder à tout prix; car
+. duels ou des intérêts de groupe, c'est, avant tout un patrimoine moral, que nous devons sauvegarder à tout prix; car
 …. iln'y a rien de supérieur à lui surtout dans une démocratie,
 et particulièrement dans la France de 1789.
 Non, ne passons jamais l'éponge où la conscience morale
@@ -5362,16 +5136,12 @@ dixième cahier de la sixième série
 — XXII. — Nouvelles et dernières scènes d'in-
 Cahiers de la Quinzaine. — La Délation aux Droits
 Commentaires; une lettre de M. Gabriel Monod,
-Paris, le premier février 1905, monsieur le di-
-recteur des Cahiers; Privas, 3 février 1905, cher
+Paris, le premier février 1905, monsieur le directeur des Cahiers; Privas, 3 février 1905, cher
 monsieur, une lettre de M. Elie Reynier, profes-
-d'une lettre du même, adressée, vers le 20 dé-
-cembre 1904, à monsieur de Pressensé, mon-
-sieur; Cahiers de la Quinzaine, 8, rue de la
+d'une lettre du même, adressée, vers le 20 décembre 1904, à monsieur de Pressensé, monsieur; Cahiers de la Quinzaine, 8, rue de la
 Sorbonne, Paris, cinquième arrondissement, une
 lettre de M. Bourgeois, administrateur, vendredi
-20 janvier 1905, à monsieur le Secrétaire géné-
-ral de la Ligue française pour la défense des
+20 janvier 1905, à monsieur le Secrétaire général de la Ligue française pour la défense des
 Droits de l'Homme et du Citoyen, 1, rue Jacob, à
 Paris, sixième, monsieur; Ligue française pour
 la défense des Droits de l'Homme et du Citoyen,
@@ -5381,8 +5151,7 @@ le 2% janvier 1905, monsieur, une réponse de
 Quinzaine, 8, rue de la Sorbonne, à Paris; une
 É lettre de Beaulavon, Caen, 13 janvier 1905;
 Jules Cabouat, professeur de l'Université de
-Santé, Paris, le 15 janvier 1905, mon cher Collègue, le Président, Jean Mascart; Paris, le 5 fé-
-orier 1905, monsieur le Directeur, une lettre de
+Santé, Paris, le 15 janvier 1905, mon cher Collègue, le Président, Jean Mascart; Paris, le 5 féorier 1905, monsieur le Directeur, une lettre de
 M. Joseph Reinach, portant citation de son livre,
 É Histoire de l'Affaire Dreyfus, tome II, pages
 3 à 549; une liste de signataires, tous appartenant
@@ -5399,8 +5168,7 @@ Nous avons donné le bon à tirer après corrections
 ! pour trois mille exemplaires de ce dixième cahier le
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-es Il est impossible de suivre honnêtement le mouve-
-ment littéraire, le mouvement d'art, le mouvement
+es Il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement
 politique et social si l'on n'est pas abonné aux Gahiers
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,: à
@@ -5452,8 +5220,7 @@ arrondissement: on recevra en retour le catalogue
 analytique sommaire, 1900-1904, de nos cinq pre-.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il sufjit de le lire pour trouver, à leur
 place, les références demandées. #4
 Ce catalogue, grand jésus, forme un cahie
@@ -5584,7 +5351,7 @@ Est ouverte à tout mal, pourvu seulement qu'il soit fort. À
 ne Jupiter! Jupiter!.…
 Retirons-nous.
 Amis, ces jours du cuisant été, le chien Sirius
-A la rage: mordu aux oreilles, le meurtre alors À;
+A la rage: mordu aux oreilles, le meurtre alors
 Aboie, errant dans la ville des hommes.
 
 Comme le feu
@@ -5672,7 +5439,7 @@ jrs Elle s'élance et appelle:
 Folle! Veux-tu le perdre, misérable? et le livrer?
 N'est-il pas déjà mort pour ceux qui sont ici?
 +12 S'ils savaient, les tyrans, que le fils dort là, au pied
-14 Du tombeau paternel, sous nos yeux ils nous le tueraient.
+Du tombeau paternel, sous nos yeux ils nous le tueraient.
 Ne me maltraite pas. La joie égare mon vieux cœur.
 « 5. « Elektre et Oreste Bee
 Pleure done, si tu veux;,regarde-le en joignant les mains; de
@@ -5692,7 +5459,7 @@ Mais pas un mot: craignez jusques au son de votre voix.
 Ne sois pas irritée.. Oreste, mon nourrisson, mon fils.
 Pourquoi me serres-tu la main, Elektre, à la briser?: LL:
 
-4 Nourrice chère nourrice, il est là! Lui! Oreste.
+Nourrice chère nourrice, il est là! Lui! Oreste.
 Tu pleures aussi, ma fille...
 
 mou La joie, à dieux, la joie.
@@ -5739,7 +5506,7 @@ Au poing je lui mettrai les armes.
 ELEKTRE, avec mépris
 . Heureux plutôt d'être homme, et de revendiquer son droit.
 ï Qu'allez-vous faire, cependant? Mille morts nous menacent...
-4 ELEKTRE, l'embrasse
+ELEKTRE, l'embrasse
 ._ Tu mourras avec nous, s'il le faut?
 Avec mon Oreste?
 Avec mon fils? Ah! tu n'en doutes pas: j'ai de mon sang
@@ -5786,9 +5553,9 @@ Outoi, pour le cacher, pour le défendre, pour l'aider.
 Puis. C'est à faire au Destin.
 Oui... Hélas, ma fille,
 . Cesse de gémir.
-Ê, ê Toutes deux vont peu à peu près du tombeau.
+ê Toutes deux vont peu à peu près du tombeau.
 :. Dieux bons, que va-t-il se passer?
-0 Non; mais alors!
+Non; mais alors!
 Cesse de gémir.;
 
 Elektre et Oreste. on.
@@ -5918,9 +5685,9 @@ Ta sœur royale te l'a dit: J'ai l'âge de ton père.
 ŒNOPS, plus bas
 Oui, les maudits l'ont tué
 Est une nef sans mât, sans gouvernail, sans voile,
-13 Dont se joue la tempête sur une mer fangeuse
+Dont se joue la tempête sur une mer fangeuse
 à De forfaits et de maux: plus qu'un écueil et c'est l'abîme.
-4 Un à un entrent les hommes du Chœur: d'abord un vieux, puis
+Un à un entrent les hommes du Chœur: d'abord un vieux, puis
 Fer tous les autres, hommes d'âge. Elektre les rassemble. Elle s'adresse
 4 +4 à tous, puis aux vieillards; par moments, ils parlent bas comme si
 tout d'un coup on les rappelait au silence.
@@ -5947,7 +5714,6 @@ J'ai peur de me trahir; je veux crier ton nom: je n'ose.
 Silence, toi. Craignez les tyrans, mes amis.
 Mais est-ce lui, vraiment?
 En vérité, c'est lui! n'est-ce pas tout son père?
-3008
 … C'est lui-même, c'est lui! Que les dieux soient bénis!
 lis se font donc connaitre, à la fin.:
 Leur heure, leur heure vient.;
@@ -6123,7 +5889,6 @@ Brülâl jusqu'à la tige
 
 A tout ce qui arrive.; À
 Il n'est pas de puissance,
-Il nest félicité,
 Il n'est rien de vivant qui puisse se soustraire
 A l'aiguillon percant du laboureur Destin, À
 tout porte le joug
@@ -6136,9 +5901,9 @@ Ha, je te plains! Je plains ton sort et ta jeunesse, À
 Je plains les heureux jours
 Que tu n'as pas vécus.
 
-13 Comme tu as naitre,
+Comme tu as naitre,
 à Croyais-lu vivre dans la joie?
-4 Que si le dieu cruel veut que tu la connaisses.
+Que si le dieu cruel veut que tu la connaisses.
 Vois la plaine:
 Tout l'espoir de l'hiver
 . Y:dort à la merci d'une heure.
@@ -6202,18 +5967,18 @@ Tu la haïs donc?
 Pour le père assassiné,
 . Qu'il t'en souvienne, à mon frère, — et pour toi.
 Pour toi, sa fille, n'a-telle pas été bonne mère?
-5 Bonne mère? Oui, comme elle fat
+Bonne mère? Oui, comme elle fat
 Bonne épouse. Oui. Bonne comme le tranchant
 Du couteau sur le col de la poule; bonne, bonne
 - En vérité, comme la pierre que lance la fronde,
 . Et qui frappe au milieu du front.
-1 Même rire, plus bas.
+Même rire, plus bas.
 ; À Bonne? tu ignores
 Le démon de l'impudicité dans la femme altière.
 Depuis qu'elle a trahi, depuis qu'elle a souillé la couche
 Conjugale, elle nous exècre tous; elle n'aime que lui,
 Le complice de sa volupté: mais c'est moi,
-3 Qu'entre tous, entends-tu, sa méchanceté traque.
+Qu'entre tous, entends-tu, sa méchanceté traque.
 Jour et nuit, nuit et jour, jour et jour, et les ans
 Sur les mois, et les mois sur les ans, elle m'a blessée,
 Insultée, avilie, elle m'a —
@@ -6239,7 +6004,7 @@ Glaïa, je te défends.. Ha, j'ai frémi de rage.
 ME Qu'a-t-elle fait encore?
 Non, rien. tu ne sais pas, Oreste, ce que c'est
 Qu'une mère haineuse pour une fille qui grandit,
-4 Qui souffre — et qui la haït.
+Qui souffre — et qui la haït.
 ? Court silence, puis avec explosion.
 Jamais, jamais, je ne pardonnerai, ma mère!
 
@@ -6295,7 +6060,7 @@ J'ai cédé à la chaleur, au soleil.
 
 ÉE: Je l'avais dit!
 Mais tu es fort.
-3 Je suis fort. Tu baises mes mains, Glaïa?
+Je suis fort. Tu baises mes mains, Glaïa?
 Elles sont si froides!
 ELEKTRE, avec joie
 ne: Il les plonger dans le feu.
@@ -6542,17 +6307,17 @@ Faisant offrande de ma vie en dédicace
 Elle a les mains en sang; tout est impur en elle, tout.
 … Elle est l'affront vivant de la piété, un soufflet
 Sur la joue de la justice qui frappe et qui absout,
-5 Jei foulée aux pieds. L'ineffaçable vin du meurtre,
+Jei foulée aux pieds. L'ineffaçable vin du meurtre,
 Elle l'a dans les yeux, elle l'a sur les lèvres.
 Mais moi, je porte la rougeur d'une autre pourpre.
 Je suis vêtue d'un incendie, je suis ceinte du feu
-3 De la vengeance qui me brüle: depuis sept ans,
+De la vengeance qui me brüle: depuis sept ans,
 … Le soleil de l'affreux jour ne s'est pas couché pour moi.
 
 Et comme eux dans le trésor de leur abomination,
-4 Je vis dans le reflet sanglant qu'il fait à ma misère.
+Je vis dans le reflet sanglant qu'il fait à ma misère.
 … passé, passé!.. Une heure, une heure inexpiable,
-14 Une heure inexpiée, — une heure! Et c'en est pour jamais.
+Une heure inexpiée, — une heure! Et c'en est pour jamais.
 É Elektre se jette à ses genoux et l'embrasse étroitement.
 
 Elektre et Oreste
@@ -6595,7 +6360,7 @@ Douceur de vivre, aurore! Enfant, je n'y songeais pas.
 Puis un jour s'est levé, où mon nom a sonné
 Dans mon âme, comme une pierre contre un bouclier.
 Un cri de fureur a retenti, qui m'a réveillé.
-Mon nom, ton nom aussi, Elektre, et celui —:
+Mon nom, ton nom aussi, Elektre, et celui
 Celui? Je ne t'entends pas.!
 Celui du père.
 Et depuis, tout a été dit.
@@ -6655,12 +6420,12 @@ Empoisonne mon cœur, à froment de forfaits.::
 Taris en moi la source de l'humanité; dessèche
 . Dans mes la moelle de la pitié; tourne en venin
 ._ Jusqu'à mes bonnes larmes, jusqu'à la palpitation
-7 De mes paupières sur mes yeux: car je suis né, hélas,
+De mes paupières sur mes yeux: car je suis né, hélas,
 Pour des crimes sans nom et pour que je les venge.
 À Œnops entre. Il accourt avec une partie du chœur.
-1 Elektre, et toi aussi, prenez garde: le roi Ægisthe
+Elektre, et toi aussi, prenez garde: le roi Ægisthe
 À sortir du palais. Viens avec nous, Oreste:
-;: Confondu dans nos rangs, on ne pourra te reconnaître.
+Confondu dans nos rangs, on ne pourra te reconnaître.
 . Jai compris la terre fatale, et le roc de Mycènes
 … Semblable à la face des dieux:l'Acropole de sang
 Aussi est Destinée, et le meurtre un Destin
@@ -7024,14 +6789,14 @@ Charme si frais, délassement de la journée brûlante.
 4%; ÆGISTHE, de mauvaise grâce
 Soit. — Je t'y attends? Tu détournes les yeux?
 J'ai donné l'ordre à ton esclave préférée,
-1 Phænissa la Troienne, celle qui réjouit ta vue...
+Phænissa la Troienne, celle qui réjouit ta vue...
 
 Elektre et Oreste
 Klytemnestre le suit des yeux. Elle parle lentement, d'un ton morne,
 en montant les degrés.
 Tu y cours! Silence. ne
 Il court à son esclave, il a de plaisir.
-Soudain, je suis lasse; je suis brisée. Je m'abandonne. à;
+Soudain, je suis lasse; je suis brisée. Je m'abandonne.
 Je l'aime, et je lui pèse. Ha, pourvu que je l'aie,
 Ægisthe, pourvu que jamais je ne cesse de l'avoir,
 J'accepte le combat. Ma main sait manier la hache... À
@@ -7130,13 +6895,13 @@ Je mourrais, misérable nourrice. O esclave!
 Mon amant! n'as-tu pas de cœur? n'as-tu que du lait?
 Es-tu pareille à la vache dans la prairie?
 Et toi, reine, n'as-tu pas de mamelles?
-1 Oun'ya-t-ilque du sang danstes seins, commedanston ventre
+Oun'ya-t-ilque du sang danstes seins, commedanston ventre
 Au retour de la lune? Es-tu une louve, enfin?
 Mon amant, mon amant! O misérable vieille,
 Après un fils, un fils, et un autre. quoi,
 
 … Nai-je pas assez d'une fille? Mais mon amant,
-1 Ma vie, celui qui m'aime, l'homme que j'aime,
+Ma vie, celui qui m'aime, l'homme que j'aime,
 
 … Que serais-je sans lui? Et comment vivre? Loi aussi,
 …. Tu médites sa mort?.. Cette journée
@@ -7198,7 +6963,7 @@ Jupiter, toi qui venges, Jupiter, ciel profond,
 Œil de la nuit, regard du châtiment qui veille,
 Jupiter, vois notre misère!
 ORESTE, comme malgré lui
-4 Vois ma misère,
+Vois ma misère,
 
 Elektre et Oreste
 
@@ -7224,7 +6989,7 @@ Me 53: Il faut que la justice règne.:
 Inattendu, surgis! Et surgisse avec toi
 Le voyageur nocturne, impatient du gîte, à
 DAS La mort qui entre au cœur.
-147 La mort, qui frappe au cœur.
+La mort, qui frappe au cœur.
 Ne È. Surgis du fond des ténèbres, où l'âme se tourmente.
 Lève-oi, jour rouge, —
 Le glaive, soleil de la nuit.
@@ -7339,7 +7104,7 @@ Hélène, tombeau des armées, Hélène, fleur de l'aube,
 Hélène, chant de la mort qui ravit l'âme, sirène!
 Et l'autre Klytemnestre, source des attentats.
 
-4 Vous fîtes bien, mes filles, beautés royalement cruelles;
+Vous fîtes bien, mes filles, beautés royalement cruelles;
 Et quel dieu, quelle déesse, fit plus de mal que vous?
 . O beauté, fleur qui tue et y a droit.
 vieux lion, mais toujours il montre les dents.:
@@ -7735,7 +7500,7 @@ Venge-moi, venge-moi. Il faut que tu me venges.,
 Prends le couteau contre eux, comme ils l'ont pris.
 
 Elektre et Oreste
-Elle aussi? Ma …?
+Elle aussi? Ma
 Sois un juge sévère, mon fils: tue-la. Tue la femme
 Qui a tué ton père. Mais sois un juge intègre:
 Aie pitié en tuant, aie pitié de la mère
@@ -7901,7 +7666,7 @@ ELEKTRE, lui baise la main
 0.......
 Frère! Roi! Divin! dans la main je baise aussi l'arme.
 Si cependant l'un d'eux le suivait jusqu'ici,
-1 Je saurai lui barrer la route et le réduire
+Je saurai lui barrer la route et le réduire
 
 Elektre et Oreste
 Au silence, jusqu'à ce que vous en ayez fini
@@ -8022,7 +7787,7 @@ As-tu peur de deux femmes?
 J'ai peur de toi, Elektre.:
 J'ai peur de t'aimer. Tu ris?
 Le, ELEKTRE, léger rire, réprimé 15608
-5 Pourquoi pas?
+Pourquoi pas?
 Crains pourtant d'être entendu de Klytemnestre.
 La reine s'inquiète de ton retard, à roi.
 Dans la salle, tout est prêt pour le festin.
@@ -8054,7 +7819,7 @@ Loin de la demeure conjugale, souillée par toi.
 Bouc impur, adultère pourceau, cuve le vin sanglant
 Cette fois, il est mort. LA
 Le plus fort reste à faire.
-4 Bruit derrière la porte. La voix de Klytemnestre se fait entendre.
+Bruit derrière la porte. La voix de Klytemnestre se fait entendre.
 
 KLYTEMNESTRE, du dedans
 Glaïa! Nourrice! ni
@@ -8234,7 +7999,7 @@ Je te tiens, tu n'échapperas pas!,
 Ha, si c'était la, si c'était tout! Ne fuis pas.:
 Vipère, plût aux dieux que je t'eusse écrasée,
 Quand il était encore temps.
-4 ORESTE, la traînant
+ORESTE, la traînant
 …. Malheureuse, je la suis. Malheureuse, je l'ai été,
 O malheureuse, malheureuse! Lui seul, lui seul,
 Il m'a aimée, celui que vous m'avez tué. à
@@ -8264,7 +8029,7 @@ o Maudit, maudit comme elle, et maudit comme toi.
 
 Tais-toi. -
 
-4 Ha, il fallait les étouffer tous trois ensemble!
+Ha, il fallait les étouffer tous trois ensemble!
 BO, quel démon l'a ramené? pourquoi l'ai-je revu?
 Ris; ORESTE, toujours immobile
 Les épées se croisent comme les routes, et les meurtres
@@ -8313,7 +8078,7 @@ Oreste la traîne par les cheveux sur les degrés.
 KLYTEMNESTRE, avec force
 C'est bien, maudits! Cri. Tu me fais mal.
 Va. Ne regarde pas: j'éteins la lampe. “4
-Elle souffle la lampe. à;
+Elle souffle la lampe.
 Que ma mort soit le tombeau de ta vie!.
 Ces entrailles, qui t'ont conçu dans la douleur,
 Tu les a déchirées.. La marque du lien,
@@ -8378,16 +8143,16 @@ Le sang coule: que de sang!.. Elle voulait vivre.
 Klytemnestre morte est tombée sur le côté; sa tête touche à celle
 d'Ægisthe. Elle est couchée en travers sur les plus hautes
 marches. — Oreste lui jette un regard et frémil.
-3 Elle est grande, elle est très grande... et d'un poids accablant.
+Elle est grande, elle est très grande... et d'un poids accablant.
 Elle m'entrainait; je lui ai dit: Läche-moi!..
-6 Voilà, c'est fait. Elektre prend son voile, et veut aller aux morts. Oreste
+Voilà, c'est fait. Elektre prend son voile, et veut aller aux morts. Oreste
 E. la retient près de lui.
 Ê Elektre, reste près de moi.
 —…._ Tes pieds sont pleins de sang, tu les y as trempés, là-bas;
 Ettes pas sont pesants. Reste avec moi.
 À. ELEKTRE, voix ferme et douce
 . Pourquoi, mon frère?
-3 Le crime est expié; ils ont soldé la dette.
+Le crime est expié; ils ont soldé la dette.
 Et toi, ma mère, maintenant, je veux cacher ton corps
 Sous mon voile de vierge. A présent l'ombre te possède.
 =. Demeures-y en paix; ne nous tourmente plus.
@@ -8462,7 +8227,7 @@ a Repose-toi, du moins; tu trembles de fatigue. Viens. Han à
 À Elle monte quelqués degrés avec lui
 Ha, que de sang! Je glisse.:
 Êres Oreste pousse un sanglot sec et tombe assis sur les degrés. -
-à: C'est moi.
+C'est moi.
 11 pleure comme celui dont le cœur se brise
 Quand, tombé sous la roue d'une charrette, elle le broie
 L'un sur l'autre, voilà les deux morts; et c'est moi! à
@@ -8560,7 +8325,7 @@ C'est. bien, c'est —
 
 Cest le même...
 4 à Ne crie pas.
-4 EN C'est lui qui crie.
+EN C'est lui qui crie.
 La vue de ce feu mort me brûle: il fume dans la nuit.
 Oh, elle était jeune encore, elle aurait vécu dix ans.
 Il regarde fixement devant lui et frémit.
@@ -8698,16 +8463,16 @@ Et sous l'äpre aiguillon, la même chute au même tas.
 Mon frère, ma douleur! J'apprends une angoisse nouvelle,
 (C'est toi qui me l'enseignes: te voir dans cette mort, hélas!
 O destin, c'en est trop, et je m'y perds enfin.;
-1 Ce n'était pas assez de tant de mal, sans doute;
+Ce n'était pas assez de tant de mal, sans doute;
 ù Ce n'était pas assez des tortures souffertes,
 de Du crime et des injures, il y avait place encore
 Au désespoir suprême et qui survit à tout:
 À Au mal que l'on nous fit, le mal que tu te fais s'ajoute;
 À À Et j'y dois assister impuissante, moi, moi!;
 Qui ai tout mis en toi, moi! qui pour ton bonheur,
-É; Eusse donné avec joie jusqu'à dix fois ma vie.
+Eusse donné avec joie jusqu'à dix fois ma vie.
 Tu brises mon courage: à ton tour, aie pitié de moi,
-1 Oreste; je ne te comprends pas, aie pitié cependant,
+Oreste; je ne te comprends pas, aie pitié cependant,
 Épargne-moi, épargne mon espoir, je te supplie.
 Si cette œuvre terrible, ordonnée par les dieux,
 
@@ -8717,9 +8482,7 @@ Ne fait que ton malheur, et consomme ta ruine,
 
 ; Alors qu'Elektre meure: car certes, elle ne veut plus vivre.
 fe. è Entre Tantale, une torche à la main. Il s'arrête, d'abord, au plus
-à: à haut de la place. Il a jusqu'à la fin le ton d'une ironie, d'une invec-
-
-tive et d'une joie sauvages.
+à haut de la place. Il a jusqu'à la fin le ton d'une ironie, d'une invective et d'une joie sauvages.
 À TANTALE, il crie
 L:. Sur le fait, sur le fait! Pris sur le fait de mort
 
@@ -8790,7 +8553,7 @@ Où vais-je, si je vis, cacher ma honte et mes remords?
 He: - Attends d'avoir blanchi dans les délices: il sera temps,
 Alors, de te repentir, lorsque tu seras sans forces.
 Peut-être même, à ce moment, suscité par les dieux,
-:; Contre toi, un nouveau crime effacera le tien.
+Contre toi, un nouveau crime effacera le tien.
 Va, pour être innocent, c'est bien assez d'être victime.
 Je suis roi de la peur, désormais.
 
@@ -8836,7 +8599,7 @@ Je ne te quitterai: je parlerai pour toi
 Pourquoi n'est-ce pas moi? Non, tu n'étais pas fait
 … Pour cette œuvre de fer, hélas! mais au surplus,
 ; Tu ne pouvais t'y dérober.,
-3 C'est que je suis maudit.:
+C'est que je suis maudit.:
 Toi-même, Elektre, voici que tu doutes de ton droit,
 
 Elektre et Oreste
@@ -9010,7 +8773,7 @@ Bientôt paraître l'innocente lumière,
 Qui rend la vie au cœur. Bientôt, à malheureux,
 Bientôt l'aurore! Bientôt!
 La mort, la mort!
-#1 Il s'élance. Entre Jupiter.
+1 Il s'élance. Entre Jupiter.
 
 porte un bâton d'or que termine une main. Il passe entre
 TanraLe et OREsT£. Il fait reculer OREsTE devant lui.
@@ -9032,7 +8795,7 @@ Qu'elle périsse, à Jupiter, à ta face qu'elle périssel
 
 Et puisqu'il faut que je demeure,
 Puissé-je vivre pour la voir périr totalement.
-1 Roi d'Athènes, faut-il laisser ainsi à ses blasphèmes
+Roi d'Athènes, faut-il laisser ainsi à ses blasphèmes
 
 (1 Il faut l'y laisser.
 
@@ -9353,9 +9116,7 @@ Une lecture attentive n'a me faire découvrir dans les
 ï notamment une provocation à des représailles contre des
 citoyens qui n'ont fait en somme que répondre, avec un zèle
 parfois intempérant, à des sollicitations venues de haut.
-On avait tout bonnement exprimé le désir que la direc-
-
-tion de la Ligue marquât nettement sa désapprobation à
+On avait tout bonnement exprimé le désir que la direction de la Ligue marquât nettement sa désapprobation à
 
 l'égard d'un système d'informations incompatible avec les
 principes et les allures de notre association et en opposi-
@@ -9400,9 +9161,7 @@ discours non encore prononcé.
 
 En prenant en mains la cause d'un adversaire, en soi fort
 peu sympathique, la Ligue eût prouvé sans conteste qu'elle
-a uniquement en vue la défense des principes et qu'elle pour-
-
-suit l'arbitraire partout où il se manifeste. Je sais bien
+a uniquement en vue la défense des principes et qu'elle poursuit l'arbitraire partout où il se manifeste. Je sais bien
 qu'un vœu, provoqué sans doute par cet incident, a été for-
 à mulé au congrès de 1904; mais cette protestation tardive
 sous cette forme générale est peut-être insuflisante pour
@@ -9415,8 +9174,7 @@ la méthode adoptée par la direction de notre association et
 de vous exprimer quelques regrets.
 La Ligue, dites-vous, lutte sans relâche « pour faire
 4 passer dans la législation les principes de la Déclaration ».
-À Certes tous nous applaudirions de grand cœur à son ingé-
-rence dans une politique de réformes ayant pour objectif
+À Certes tous nous applaudirions de grand cœur à son ingérence dans une politique de réformes ayant pour objectif
 14 plus de justice, plus de liberté, Pouvons-nous vraiment
 dire que nous avons fait dans cet ordre d'idées tout ce que
 nous aurions pu.et faire? Je ne le pense pas. En dehors
@@ -9444,8 +9202,7 @@ la délation aux Droits de l'Homme
 ‘projet de loi tout prêt à être mis en délibération. Qu'en
 a-t-on fait? Il est allé échouer dans la masse des vœux trop
 souvent insignifiants qui encombrent le bulletin.
-N'est-ce pas nous qui aurions depuis longtemps pré-
-senter le projet de loi dont l'honorable sénateur Clemenceau
+N'est-ce pas nous qui aurions depuis longtemps présenter le projet de loi dont l'honorable sénateur Clemenceau
 a pris l'initiative. C'était d'autant plus facile que le comité
 juridique auquel viens de faire allusion, s'était occupé de
 la question il y a plus de quatre ans, mais devant l'insuccès de ses tentatives précédentes, il s'est dit à quoi bon!
@@ -9476,8 +9233,7 @@ des principes de la déclaration, et pour nous efforcer
 
 ; comme vous le dites « à les faire passer dans la législation » et j'ajouterai « dans les mœurs ».
 C'est en se tenant constamment bien au-dessus de la poF: ltique courante, dans la région sereine de la morale et du
-droit, que notre Ligue pourra acquérir une autorité incon-
-testée et s'imposera au respect même de adversaires.
+droit, que notre Ligue pourra acquérir une autorité incontestée et s'imposera au respect même de adversaires.
 Notre ami Pierre Deloire nous écrit pour nous deman3 der comment il se fait que la Ligue ait besoin de faire
 des économies, — particulièrement sur le dos des pé-
 4 riodiques, — et comme par hasard en se désabonnant
@@ -9492,8 +9248,7 @@ qu'il ne soit pas vrai qu'elle ait besoïn de faire des
 avancé par la Ligue pour se désabonner des cahiers ne
 serait-il pas un de ces bons prétextes politiques officiels
 ou officieux comme nous sommes habitués d'en trouver
-dans les manifestations ministérielles gouvernemen-
-pense; ou devons-nous croire, me dit-il, que la Ligue
+dans les manifestations ministérielles gouvernemenpense; ou devons-nous croire, me dit-il, que la Ligue
 eût sous le précédent ministère des ressources qu'elle
 n'aurait plus sous le ministère nouveau.
 J'en pense que j'admire l'incroyable naïveté de notre
@@ -9516,8 +9271,7 @@ Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce onzième cahier le
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-Il est impossible de suivre honnêtement le mouve-
-ment littéraire, le mouvement d'art, le mouvement LE
+Il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement LE
 politique et social si l'on n'est pas abonné aux Cahiers "4
 de la Quinzaine.
 
@@ -9569,8 +9323,7 @@ analytique sommaire, 1900-1904, de nos cinq pre-\
 
 Ce catalogue a été justement établi pour donner, « autant qu'il se pouvait, une image en bref, un raccourci,
 
-. une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+. une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur « place, les références demandées.
 
 Ce catalogue, grand jésus, forme un cahier
@@ -9640,8 +9393,7 @@ elle, aux corbeaux, un morceau de cadavre qu'elle
 n'arrive pas à cuire dans sa marmite.
 - Morceau de cadavre toi-même, imposteur, avec
 tes fausses blessures... Ce n'est pas plus dans mes
-caveaux que dans le boudin de Lutatia, que ta car-
-casse trouvera jamais un asile!
+caveaux que dans le boudin de Lutatia, que ta carcasse trouvera jamais un asile!
 Par Pluton! veux-tu que, pour commencer, je!
 fasse quatre ou cinq morceaux de la tienne? Si
 japplique mon poing sur tes crocs -de vieux chacal...
@@ -9695,7 +9447,7 @@ Mais quand on a porté la guerre dans son propre
 
 la bien compris, puisqu'on l'a seulement obligé à
 
-servir comme gladiateur. à;
+servir comme gladiateur.
 
 3% Un soldat ne connaît que son enseigne, et son
 
@@ -9703,17 +9455,13 @@ servir comme gladiateur. à;
 
 - père bien qu'il aura son compte aujourd'hui.
 
-Tu aurais bien te charger de le lui régler toi-
-
-même, son compte. Tu ne connais pas le gaillard,
+Tu aurais bien te charger de le lui régler toimême, son compte. Tu ne connais pas le gaillard,
 
 . mon camarade. Il est entré quarante-sept fois dans
 
 É. un cirque, depuis qu'on l'a condamné à tuer pour
 
-n'être pas tué. Il en est sorti presque sans égrati-
-
-gnure. Tous ceux qu'on lui a opposés sont morts.
+n'être pas tué. Il en est sorti presque sans égratignure. Tous ceux qu'on lui a opposés sont morts.
 Donne-lui une bonne épée avec un bouclier, ou
 mets-lui, sans bouclier, un glaive espagnol dans
 
@@ -9737,8 +9485,7 @@ Autrement, Accianus ne se serait pas décidé à
 laisser combattre Spartacus, qui lui a coûté, lui
 seul, 20.000 sesterces. IL aimait mieux le garder
 pour son école, qui n'a jamais un maître pareil.
-Quel génie divin, que le génie de Sylla! Mainte-
-nant qu'il a renoncé à la dictature, il est encore le
+Quel génie divin, que le génie de Sylla! Maintenant qu'il a renoncé à la dictature, il est encore le
 maître de Rome et du monde. Cent mille citoyens
 l'acclament d'une seule voix.
 
@@ -9769,12 +9516,11 @@ consulaires, les sénateurs, les Pères du Peuple!
 À Se Les sénateurs, rien. Mais Lucius Sergius Catilina
 l'a regardé dans les yeux en murmurant: « Un
 tyran, les lâches le souffriront, les braves le suppri-
-0 Sylla s'est contenté de hausser les épaules.
+Sylla s'est contenté de hausser les épaules.
 . Il a peut-être bien fait. Avec un lascar tel que
 Catilina, on a plus vite attrapé un coup de poignard
 
-qu'un coup d'encensoir. S'il y avait quelques plé-
-béiens comme ce patricien-là, le peuple romain sortirait de son bourbier. +4
+qu'un coup d'encensoir. S'il y avait quelques plébéiens comme ce patricien-là, le peuple romain sortirait de son bourbier. +4
 Possible. Mais si l'on brave Sylla parce qu'ila
 renoncé à la dictature, le premier quis'emparera du
 pouvoir suprême n'y renoncera jamais. Il vous faut
@@ -9789,13 +9535,10 @@ a Hé! vieille Sibylle! fille de Cerbère, Lutatia, ma
 sur le Mirmillon: c'était joué,!
 
 a fait une belle défense; mais il était de l'école
-de Modène; et le Mirmillon a travaillé chez Accia-
-
-nus; il était entraîné par Spartacus. C'était gagné
+de Modène; et le Mirmillon a travaillé chez Accianus; il était entraîné par Spartacus. C'était gagné
 
 Non pas. Nous avons tous baissé le pouce avec
-ensemble. Croiriez-vous que ce coquin a saisi ui-
-même Fépée de son adversaire à deux mains, et se,
+ensemble. Croiriez-vous que ce coquin a saisi uimême Fépée de son adversaire à deux mains, et se,
 l'est enfoncée dans la poitrine en hurlant: « Ro-
 mains, peuple de bourreaux, soyez maudits! »
 Oui; c'était un Espagnol; sa voix stridente a
@@ -9901,14 +9644,12 @@ Spartacus. Une immense clameur s'éleva quand les
 deux Thraces, en tombant, découvrirent les épaules
 et les flancs de leur chef... Avant que le cri eût à
 expiré sur nos lèvres, il n'y avait plus debout que
-cinq Samnites. Mais ils étaient tous blessés; Spar-
-tacus, intact... Alors, évoquant le souvenir et l'âme
+cinq Samnites. Mais ils étaient tous blessés; Spartacus, intact... Alors, évoquant le souvenir et l'âme
 ; de notre Horace, il rompt, il s'esquive, il fuit. Les
 Samnites le poursuivent, se disjoignent, s'écartent.…
 Il se retourne soudain: c'est la foudre qui passe!.…
 Un crâne fendu, un poignet abattu d'un coup de
-revers... Le troisième assommé d'un coup de bou-
-clier.. Le glaive dans la gorge du quatrième jusqu'à la garde... Et le voilà, sans armes, tordant les.
+revers... Le troisième assommé d'un coup de bouclier.. Le glaive dans la gorge du quatrième jusqu'à la garde... Et le voilà, sans armes, tordant les.
 bras du dernier, le précipitant — brisé — sur Le sol,
 appuyant son pied sur la nuque du vaincu, et jetant
 un regard de lion sur la tribune du Sénat... Ah!cent
@@ -9937,7 +9678,7 @@ a Tout le cabaret est en -émoi. Agitation fiévreuse autour du
 -. O Spartacus, je t'aime!.. Nous t'aimons toutes;
 nous sommes à toi... à toi, le plus fort et le plus
 4 brave, à toi l'invincible. Tu es libre et nous
-sommes tes esclaves …;
+sommes tes esclaves
 
 ; SPARTACUS l'écarte et la regarde avec tristesse.
 Je ne veux pas d'esclaves.
@@ -10027,13 +9768,11 @@ gladiateurs parmi les patriciens.. Nous avons les
 mêmes ennemis que vous: combattons ensemble.
 Lutatia leur apporte du vin. +4
 TREBONIUS, entre les deux salles
-Eh! divine hôtesse, as-tu déterré l'amphore pré-
-cieuse qui convient à ce grand jour? car tune
+Eh! divine hôtesse, as-tu déterré l'amphore précieuse qui convient à ce grand jour? car tune
 verras pas souvent, dans ton antre, un demi-dieu
 comme Spartacus assis en face d'un illustre patricien comme Catilina. nn.
 Quand ce serait Jupiter lui-même assis en face de
-Pluton, son Ganymède ne lui verserait pas d'am-
-broisie pareille à celle-ci. Un falerne que mon
+Pluton, son Ganymède ne lui verserait pas d'ambroisie pareille à celle-ci. Un falerne que mon
 pauvre mari a mis en cruches l'année même où fut
 Assassiné traîtreusement, devant sa propre
 
@@ -10056,8 +9795,7 @@ Il faut en avoir, une fortune, pour trouver 500.000
 sesterces de crédit!
 Et quand on a des fortunes pareilles, qu'est-ce
 qu'on vient faire au cabaret de Venus funèbre, chez
-Lutatia la sorcière, parmi les gladiateurs, les men-
-diants, les esclaves? à
+Lutatia la sorcière, parmi les gladiateurs, les mendiants, les esclaves? à
 Bafouer notre misère. à
 Est-ce qu'ils jouiraient pleinement de leur or, s'ils
 ne jouissaient en même temps de nos souffrances?
@@ -10074,7 +9812,7 @@ Entrent Mirza (Rodopea) et une autre fille.
 Elles tournent un peu dans la grande salle.
 On les appelle dans le coin à droite: « — Hé! là,
 Rodopea! Syria! » Elles y vont et s'asseyent.
-4 Tandis que sa compagne bavarde et rit, Mirza reste
+Tandis que sa compagne bavarde et rit, Mirza reste
 muette et désolée.
 TREBONIUS, dans la grande salle
 ; Prenez garde à votre peau. Le patricien a de
@@ -10103,8 +9841,7 @@ Soit. Nous irons.:
 Nous sommes la canaille plébéienne! au Palatin,
 la canaïlle patricienne!
 a. J'allais sortir. Mais si vousle prenez ainsi, je veux
-que vous sortiez d'abord. Entendez-vous, misé-
-rables ivrognes! Est-ce ainsi que vous connaissez
+que vous sortiez d'abord. Entendez-vous, misérables ivrognes! Est-ce ainsi que vous connaissez
 vos amis? Vous léchez le pied qui vous écrase, et
 vous mordez la main qui vous relève... On n'aura
 plus la peine de vous affranchir, s'il faut d'abord
@@ -10189,8 +9926,7 @@ connu; libre, maintenant, protégé des grands,
 
 idole de la populace... Et moi... moi! Rome nous
 
-appartiendrait.. Plus sûrement que par ces conspi-
-rations d'esclaves, déjà voués aux trahisons, aux
+appartiendrait.. Plus sûrement que par ces conspirations d'esclaves, déjà voués aux trahisons, aux
 
 massacres... Mon Spartacus, grand lion des montagnes, sublime et simple... Si, pourtant, la souffrance l'avait instruit, s'il voulait comprendre la
 vie, s'il voulait me comprendre! Oh! je veux que
@@ -10313,8 +10049,7 @@ Dam! une vierge de Vesta!
 Et il ose, à moi...
 
 à Tu vois, mon enfant, que les sacrés mystères ont
-du bon. Si tu étais vestale, ou si tu respectais seu-
-lement les Augures.….
+du bon. Si tu étais vestale, ou si tu respectais seulement les Augures.….
 -..,.
 Deux cent mille sesterces! il n'en faudrait pas
 plus pour me remettre à flot.
@@ -10450,8 +10185,7 @@ traces. Je t'ai crue morte. Lorsque j'ai su, à Rome,
 que tu avais conservé la vie, j'ai du même coup
 l'usage que tu en faisais. La femme que j'avais
 aimée est morte.
-J'étais esclave, comme toi-même. Ceux qui t'obli-
-geaient à tuer tes compagnons m'obligeaient à
+J'étais esclave, comme toi-même. Ceux qui t'obligeaient à tuer tes compagnons m'obligeaient à
 sacrifier ma pudeur. Je suis affranchie et libre,
 comme tu es affranchi et libre. Nous avons souffert
 des mêmes fatalités; le destin féroce nous a broyés;
@@ -10562,8 +10296,7 @@ Tu veux en savoir beaucoup.
 tiens, nous devons connaître ton apport. Si nous ne
 
 pouvons nous entendre, notre intérêt te garantit
-notre discrétion. La seule révélation de nos délibé-
-rations communes suflirait à nous perdre: car le
+notre discrétion. La seule révélation de nos délibérations communes suflirait à nous perdre: car le
 
 Sénat serait trop heureux de nous traiter comme tes
 
@@ -10585,8 +10318,7 @@ Et qu'apportez-vous?
 
 - Nos personnes, et nos noms.
 Nous sommes vingt mille aujourd'hui. Nous se-
-… rons cinquante mille en armes après une escar-
-mouche heureuse, cent mille après une victoire. Et
+… rons cinquante mille en armes après une escarmouche heureuse, cent mille après une victoire. Et
 Nous sommes mille: et les plus pauvres de Rome,
 - sous nos toges de patriciens. Mais nous portons les
 plus vieux, les plus beaux noms de la République.
@@ -10605,9 +10337,7 @@ Ne sais-tu pas la valeur des mots? la puissance:
 
 encore, dans le Cirque.
 
-s'y est montré digne des plus grands Romains. « n'est pas le nom de Romain qui manque à Spar-
-
-tacus, mais Spartacus qui manque à la gloire de
+s'y est montré digne des plus grands Romains. « n'est pas le nom de Romain qui manque à Spartacus, mais Spartacus qui manque à la gloire de
 
 notre race... Ami, comprends bien la pensée de « Bestia …
 
@@ -10661,8 +10391,7 @@ Les débiteurs y seront protégés contre la rigueur
 des créanciers.
 Les fils auront un droit d'hommes et de citoyens,
 devant la tyrannie du père de famille.
-Nous brisons la loi des Douze Tables, nous abat-
-tons l'insolence du Sénat, nous faisons rendre gorge:
+Nous brisons la loi des Douze Tables, nous abattons l'insolence du Sénat, nous faisons rendre gorge:
 
 aux financiers, nous abolissons pour jamais la
 Mais. les esclaves?
@@ -10717,8 +10446,7 @@ Tu nous perds avec toi. J'avais presque ta parole.
 C'est une désertion.. La deuxième fois qu'il
 Il est vrai, j'ai déserté vos légions victorieuses
 pour me jeter dans les rangs des vaincus, mes
-frères. Et si je vous suivais aujourd'hui, je déserte-
-rais la cause des opprimés pour servir celle des
+frères. Et si je vous suivais aujourd'hui, je déserterais la cause des opprimés pour servir celle des
 oppresseurs. Car je vous reconnais, maintenant!
 Vous êtes bien Romains. Vous êtes de la race des
 égorgeurs de peuples. Vous ne voulez pas de maîtres,
@@ -10735,9 +10463,9 @@ peuvent. ne
 Ù Siles dieux ne sont pas un mythe, que leur foudre à
 
 J'admire ta politique!
-11 Je n'ai qu'une politique: garder pure la cause
+Je n'ai qu'une politique: garder pure la cause
 queje sers. Sa pureté fait sa grandeur et sa force.
-4 Tant qu'elle sera pure, elle vivra. Elle est perdue,
+Tant qu'elle sera pure, elle vivra. Elle est perdue,
 “2 si jamais de basses compromissions la souillent. La
 défaite ou la victoire d'un jour ne sont rien; lhonRL
 16 neur sans tache: tout est là.
@@ -10858,8 +10586,7 @@ qu'on aille chercher Spartacus.
 Il est donc chez toi, cet invincible?
 Je l'ai pris pour exercer mes gladiateurs. Il me
 doit bien ses services... Aux esclaves qui vont emporter les.
-cadavres. Laissez deux épées. Aux trois gladiateurs, mon-
-trant la porte de droite. Vous, restez là. À
+cadavres. Laissez deux épées. Aux trois gladiateurs, montrant la porte de droite. Vous, restez là. À
 Les esclaves emportent les trois corps, et laissent deux
 épées dans le coin à gauche.
 Les trois gladiateurs se rangent, visière baissée, près de
@@ -10993,9 +10720,7 @@ Je ne suis plus gladiateur. Je suis libre. Je suis « l'affranchi du Peuple roma
 SYLLA, pouffant de rire
 Libre!.. Vous l'entendez?... Ce garçon est impayable. Libre où tu voudras; libre parmi la tourbe
 qui t'applaudissait hier. Maïs quand je commande,
-tu n'es pas assez stupide pour prendre au sérieux « ta liberté. Si j'ai permis à la canaille de vaffran-
-
-chir, je reste ton maître, moi qui suis le maître de
+tu n'es pas assez stupide pour prendre au sérieux « ta liberté. Si j'ai permis à la canaille de vaffranchir, je reste ton maître, moi qui suis le maître de
 tous. Et je te dis que tu vas te battre.
 
 Je ne suis plus gladiateur. Je suis libre.
@@ -11086,8 +10811,7 @@ ma puissance,
 
 En attendant, chasse ces baladins, chasse ces
 parasites, chasse cette prostituée de ma demeure...
-Songe que tu tiens à la vie, et que tes excès imbé-
-ciles avancent l'heure de ta mort.:
+Songe que tu tiens à la vie, et que tes excès imbéciles avancent l'heure de ta mort.:
 Non. Je ne veux pas mourir. Je ne mourrai pas.;
 Mais toi. à
 Allons! Ne sens-tu pas ton mal? et les flammes )
@@ -11162,7 +10886,7 @@ Tues la femme de Sylla.
 Renierais-tu le monstre?
 À Je viens de lui parler devant toi.
 La jalousie... le dépit. ta dignité de femme
-te Non. Tes compagnons, ton ami, toi-même à;
+te Non. Tes compagnons, ton ami, toi-même
 Allons donc! Ton orgueil, je t'en avertis,
 fondre sous mes paroles comme la neige aux rayons
 du soleil. Je sais par quel défaut de ta cuirasse
@@ -11175,8 +10899,7 @@ Tu l'as cachée dans la maison de Trebonius... As-tu
 supposé que Trebonius, par intérêt pour toi seul,
 s'exposerait à la rigueur des lois, comme receleur
 d'une esclave fugitive? Non. Trebonius est à mon
-È service; il a ma confiance; il m'a raconté l'événe-
-ment. Ce matin même, il était chez le maître de ta
+È service; il a ma confiance; il m'a raconté l'événement. Ce matin même, il était chez le maître de ta
 ; sœur, avec le prix de sa rançon... Mirza m'appar-
 -tient; elle est ici, dans ma maison. Quand mes
 soins auront effacé de son souvenir l'horrible cauchemar, quand elle aura repris goût à la vie, je
@@ -11198,8 +10921,7 @@ comment n'y aurait-il pas des imprudents et des
 traîtres? Sylla n'ignore rien. Tout à l'heure,
 il se jouait de toi, comme le tigre joue avec sa.
 proie avant de la déchirer. Il compte ajouter;
-un dernier exploit à ses forfaits. Mais ses in-
-stants sont mesurés. La maladie implacable, les
+un dernier exploit à ses forfaits. Mais ses instants sont mesurés. La maladie implacable, les
 haines furieuses, l'insomnie, la débauche, l'ont
 usé. Demain, cette nuit peut-être, il aura vécu...
 Catilina et ses gens se taisent, parce qu'ils espèrent
@@ -11377,8 +11099,7 @@ Entre, et repose-toi quelques heures.
 : Mirza l''embrasse et se retire.
 Artorix se place devant la porte de la tente.
 à Spartacus, un peu en avant..
-Ocnomao arrive à pas pressés, suivi d'un officier (Euti-
-bide) enveloppé de son manteau et masqué de sa
+Ocnomao arrive à pas pressés, suivi d'un officier (Eutibide) enveloppé de son manteau et masqué de sa
 L'officier reste au fond, à gauche, comme par discrétion,
 .: et se dissimule dans un coin.
 ,.
@@ -11419,12 +11140,11 @@ vous m'avez confirmé dans le commandement. Vous
 en êtes-vous mal trouvés jusqu'ici?
 Je ne dis pas cela. Maïs nous ne sommes pas des
 Romains, pour que tu nous condamnes, comme leurs
-légionnaires, à ces manœuvres, à ces exercices, à!
+légionnaires, à ces manœuvres, à ces exercices,
 ces besognes de terrassiers.
 Nous ne vaincrons les Romains qu'en égalant
 leur discipline et leur endurance. Pourrais-tu mener
-au- combat ces troupeaux de fugitifs qui nous ar-
-rivent, sans les avoir transformés en soldats? Non;
+au- combat ces troupeaux de fugitifs qui nous arrivent, sans les avoir transformés en soldats? Non;
 
 3 point de labeur méprisable, quand il est accompli
 librement et pour la liberté.
@@ -11452,8 +11172,7 @@ Viens. L'armée s'assemble tout entière hors « camp. A et:
 Ocnomao reste penaud, tournant le dos à son officier,
 qui s'avance alors et le iouche du doigt.
 
-C'est pour le serrer dans tes bras que tu accou-
-rais ici, et que tu m'entraînais sur tes pas?
+C'est pour le serrer dans tes bras que tu accourais ici, et que tu m'entraînais sur tes pas?
 Mais il te mène comme il mène son cheval. Il n'a
 qu'à te faire sentir la bride pour t'avoir en main,
 souple, docile, bien dressé.
@@ -11476,8 +11195,7 @@ ma viè désormais, et que je suis ta chose. Mais...
 
 Mais tu te défies de moi. À
 Pourquoi m'obliges-tu à lui chercher des querelles
-qui sont injustes, puisque je ne peux pas les soute-
-nir? Il n'a pas commencé de parler qu'il m'a déjà
+qui sont injustes, puisque je ne peux pas les soutenir? Il n'a pas commencé de parler qu'il m'a déjà
 convaincu de mes torts.
 
 Il se joue de toi; il vous trahit.
@@ -11511,8 +11229,7 @@ de gloire et de puissance... Tu méprises mon jugement et mon instinct de femme.
 Non pas; j'en atteste les dieux immortels! Jete
 
 vénère comme une créature céleste, descendue sur.
-la terre pour me combler d'orgueil et de joie. J'ad-
-mire souvent clairvoyance et la sagesse de tes
+la terre pour me combler d'orgueil et de joie. J'admire souvent clairvoyance et la sagesse de tes
 
 avis. Je ne demande qu'à t''écouter, qu'à tecroire...
 
@@ -11559,8 +11276,7 @@ déclaré aussitôt, de lui-même, après avoir rejeté
 avec indignation ces offres outrageantes.
 Parce qu'il ne les trouvait pas assez avantageuses.
 Un de ces jours, demain peut-être, un ambassadeur
-viendra de Rome lui apporter de meilleures condi-
-tions. Ils s'entretiendront tête à tête, secrètement.
+viendra de Rome lui apporter de meilleures conditions. Ils s'entretiendront tête à tête, secrètement.
 
 Après, ton héros vous racontera ce qu'il voudra...
 De surenchère en surenchère, quand il aura son
@@ -11583,9 +11299,7 @@ Oh! oui. par une femme!
 
 Tu commences à voir clair. C'est par une femme À
 
-qu'ils le prendront... Il y a des hommes qui domi-
-
-nent les femmes, parce qu'ils sont nés réellement
+qu'ils le prendront... Il y a des hommes qui dominent les femmes, parce qu'ils sont nés réellement
 
 pour la domination; ce sont des maîtres. Devant. (
 toi, Ô mon guerrier aimé, je ne suis rien... rien
@@ -11594,9 +11308,7 @@ qu'une esclave qui bénit son esclavage... Mais lui,
 
 c'est un homme à grands sentiments, un faible, au
 
-fond. Même si son caractère est honnête, ils l'atta-
-
-queront au cœur. La femme sera l'appät pour
+fond. Même si son caractère est honnête, ils l'attaqueront au cœur. La femme sera l'appät pour
 
 l'attirer dans leurs filets. Si tu ne l'arrêtes pas par
 
@@ -11655,8 +11367,7 @@ Nouvelle sonnerie. — Un officier accourt. — La foule
 Un parlementaire s'est présenté aux avant-postes;
 on l'a conduit à la porte du camp. Il se dit préteur,
 envoyé du Sénat vers toi.
-Il arrivera juste pour voir les licteurs de son con-
-sul porter les faisceaux devant notre Imperator.
+Il arrivera juste pour voir les licteurs de son consul porter les faisceaux devant notre Imperator.
 à Les licteurs! les licteurs!
 
 de Les soldats poussent sur la scène, en les bousculant,
@@ -11711,14 +11422,11 @@ pas non plus nés pour l'esclavage. Cependant, vous
 en avez fait des esclaves.
 
 11 y aura toujours des esclaves. Si ce n'était pas
-eux, ce serait nous. Peux-tu nous en vouloir de pré-
-férer que ce soit eux?
-Est-ce pour développer des sophismes que t'a en-
-voyé le Sénat?
+eux, ce serait nous. Peux-tu nous en vouloir de préférer que ce soit eux?
+Est-ce pour développer des sophismes que t'a envoyé le Sénat?
 Pas précisément. Je dois te proposer... hésite.
 
-D'abord, de fixer la rançon des quatre mille pri-
-sonniers que tu retiens dans ton camp... Quelle
+D'abord, de fixer la rançon des quatre mille prisonniers que tu retiens dans ton camp... Quelle
 . somme exiges-tu?
 Quelle somme? dix mille armures: boucliers, de
 casques, cuirasses, épées, sortant de vos arse-
@@ -11767,8 +11475,7 @@ La clémence du Sénat me touche.
 
 Que vous êtes magnanimes!.. Je vais dire à mes
 camarades, à mes amis: « Vous vous êtes affranchis
-le glaive au poing, vous avez lutté, vous avez souf-
-fert, vous avez tomber vos frères par milliers,;
+le glaive au poing, vous avez lutté, vous avez souffert, vous avez tomber vos frères par milliers,;
 vous avez vaincu trois fois les consuls et les légions A
 de Rome... Et Rome vous fait une grâce, une grâce
 inouie: elle vous convie à reprendre vos chaînes
@@ -11804,8 +11511,7 @@ Que fais-tu? prends garde!
 L'officier qui avait amené Crassus reparaît.
 Artorix, Crissus, Ocnomao, Brexovir et d'autres chefs
 Ne tremble pas. Tu diras de ma part au Sénat;
-qu'il dépasse en abjection son peuple de ban-
-dits. Et tu lui transmettras ma décision pour les
+qu'il dépasse en abjection son peuple de bandits. Et tu lui transmettras ma décision pour les
 prisonniers: avant la fin de la deuxième semaine, À
 dix mille armures ou quatre mille pendus... Recon.
 duisez-le.
@@ -11861,8 +11567,7 @@ Rome, pour en jouir avec lui dans la débauche.
 Pendant qu'il hurle ces paroles, Spartacus tire son épée
 et se précipite vers lui.
 Ocnomao essaie de tirer la sienne; il est retenu par
-Brexovir et Crissus, tandis qu'Artorix se jette, sup-
-pliant, au-devant de Spartacus.:
+Brexovir et Crissus, tandis qu'Artorix se jette, suppliant, au-devant de Spartacus.:
 Spartacus se reprend, remet son épée au fourreau, hausse
 les épaules et regarde Ocnomao avec un mépris mêlé
 C'est toi qui es vendu à Rome, pour semer parmi À
@@ -11895,17 +11600,14 @@ ne pas marcher sur Rome?
 O mes amis!.. douterez-vous à votre tour?... Le
 doute est contagieux... Mais il faudrait donc que ma
 haïne contre notre ennemi ne fût pas égale à la
-vôtre? Prendre Rome! l'abattre au ras du sol, puri-
-
-fier par le fer et par le feu ce cloaque d'immondices,
+vôtre? Prendre Rome! l'abattre au ras du sol, purifier par le fer et par le feu ce cloaque d'immondices,
 anéantir ce foyer de souffrance, de vice et de servi-.
 tude, rappeler à la vie humaine cinq cent mille de
 nos frères qui gémissent dans les fers et dans les
 tortures!.… croyez-vous qu'un tel rêve ne hante pas
 mes jours et mes nuits? Quelle fin plus triomphante
 assigner à notre œuvre, à notre justice, à nos ambi-
--. tions?.. Être plus grands que les plus grands, réa-
-liser ce qu'essayèrent en vain Brennus, Pyrrhus,
+-. tions?.. Être plus grands que les plus grands, réaliser ce qu'essayèrent en vain Brennus, Pyrrhus,
 Annibal: quelle immensité de gloire! Mais d'insurmontables obstacles se dressent entre la ville
 monstrueuse et notre haine. Elle nous engloutirait
 comme un gouffre. Elle nous écraserait de ses
@@ -11959,8 +11661,7 @@ Insensés!.. Quel besoin avaient-ils de liberté?
 quel besoin de se perdre pour affranchir d'autres
 misérables qui ne sauront jamais notre sacrifice?
 Est-ce qu'il n'y aura pas toujours des maîtres et des
-. esclaves? Chez le patricien à qui nous apparte-
-nions, nous avions le nécessaire. Le maître pourvoyait à tout. Ce n'était pas quelque mot un peu
+. esclaves? Chez le patricien à qui nous appartenions, nous avions le nécessaire. Le maître pourvoyait à tout. Ce n'était pas quelque mot un peu
 rude ou quelque châtiment vite oublié qui pouvait
 gâter l'existence. Maintenant, mes fils ont péri. Je
 
@@ -11974,8 +11675,7 @@ letta; le préteur Aufidius, arrivant de Siponte, le
 joindra cette nuit même avec quatre légions. Porte
 à Crassus la nouvelle que l'armée des gladiateurs
 est coupée en deux. Il faut qu'il accoure sans perdre
-une heure: car les Germains pourraient com-
-prendre leur faute et rentrer au camp. Hâte-toi. À
+une heure: car les Germains pourraient comprendre leur faute et rentrer au camp. Hâte-toi. À
 Les vingt mille hommes qui s'éloignent en ce
 moment sont les plus exercés, les plus braves. Ceux
 qui restent seront ébranlés, démoralisés par une
@@ -12042,11 +11742,9 @@ des millions d'esclaves qui sont morts aussi à la vie
 humaine, morts au bonheur... Mais le châtiment
 vient. Le souflle de cet homme-ci a passé sur la
 terre. Et la liberté renaîtra, la douleur sera
-vengée... Romains, ces Barbares que vous oppri-
-mez, que vous torturez, que vous dépouillez, ils ont À
+vengée... Romains, ces Barbares que vous opprimez, que vous torturez, que vous dépouillez, ils ont À
 des frères! Au delà des limites de l'empire, s'agitent
-des centaines de peuples et des hommes innom-
-brables qui vous demanderont compte, un jour, de
+des centaines de peuples et des hommes innombrables qui vous demanderont compte, un jour, de
 tant de forfaits. Alors, par-dessus les camps
 et les forteresses de vos frontières bondira
 le torrent dévastateur.. Du nord, du midi, de
@@ -12086,9 +11784,7 @@ heure, les siècles t'appartiennent.
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions men
-suelles régulières et par des souscriptions extraordi-
-
-naires; la souscription ne confère aucune autorité sur
+suelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 
 la rédaction ni sur l'administration; ces fonctions
 

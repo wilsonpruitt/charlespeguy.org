@@ -61,15 +61,12 @@ un libre accès à la philosophie, à la science et à l'art.
 est vrai que déjà nous avions abandonné (les
 abstractions vaines et les disputes vaines. Jamais nous
 n'avons entendu abandonner par rien de ce qui fut la
-passion ou le travail de l'ancienne humanité. Personnellement je déplore que plusieurs de nos anciens cama-
-
-rades n'aient fait que substituer des vanités nouvelles
+passion ou le travail de l'ancienne humanité. Personnellement je déplore que plusieurs de nos anciens camarades n'aient fait que substituer des vanités nouvelles
 à de vieilles vanités, donnant une importance qu'elles
 n'ont pas, en premier lieu à la spéculation sociologique,
 en second lieu à l'action politique parlementaire inaugurée parmi les socialistes français.
 
-Enfin nous n'avons jamais pensé que nous apporterions au peuple aucune intelligence et volonté géné-
-reuse. Nés du peuple et peuple nous-mêmes, pauvres et
+Enfin nous n'avons jamais pensé que nous apporterions au peuple aucune intelligence et volonté généreuse. Nés du peuple et peuple nous-mêmes, pauvres et
 pour la plupart fils de pauvres, nous n'avons jamais
 à nous transporter auprès du peuple. Cette volonté que
 nous avons eue, que nous avons, que nous aurons
@@ -95,7 +92,7 @@ pas non plus d'un jeune professeur de philosophie du Midi, dont le
 nom commencerait par un Met finirait par une. Ils sont dunde.
 mes anciens camarades, ancien élève de l'École Normale, agrégé de
 à philosophie, dont je ne donnerai pas les initiales, en congé à Paris,
-4 Bien qu'il ait deux promotions de plus que moi et qu'il soit monté
+Bien qu'il ait deux promotions de plus que moi et qu'il soit monté
 d'un degré plus haut en grade, il ne m'a jamais méprisé, il ne me
 
 premier cahier de la deuxtème série

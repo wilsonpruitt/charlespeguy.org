@@ -32,8 +32,7 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 Ce catalogue, grand jésus, forme un cahier
@@ -64,8 +63,7 @@ défaut, la date du cahier même;
 le prix actuel;
 
 quand il y a lieu, c'est-à-dire pour nos
-éditions antérieures et pour nos cinq pre-
-mières séries, la page du catalogue analytique sommaire où ce cahier se trouve
+éditions antérieures et pour nos cinq premières séries, la page du catalogue analytique sommaire où ce cahier se trouve
 
 Romain Rolland, — Aërt, — trois actes, — premier août
 

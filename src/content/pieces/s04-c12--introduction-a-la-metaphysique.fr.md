@@ -126,9 +126,7 @@ instantanées sur la mobilité indivisée du réel. IL
 obtient ainsi des sensations et des idées. Par là, il
 substitue au continu le discontinu, à la mobilité la
 stabilité, à la tendance en voie de changement les
-points fixes qui marquent une direction du change-
-
-ment et de la tendance. Cette substitution est
+points fixes qui marquent une direction du changement et de la tendance. Cette substitution est
 nécessaire au sens commun, au langage, à la vie
 pratique, et même, dans une certaine mesure que
 nous tâcherons de déterminer, à la science positive.
@@ -277,9 +275,7 @@ qui s'installe dans le mouvant et adopte la vie même
 des choses. Cette intuition atteint l'absolu.
 
 La science et la métaphysique se rejoignent donc
-dans l'intuition. Une philosophie véritablement in-
-
-tuitive réaliserait l'union tant désirée de la métaphysique et de la science. En même temps qu'elle
+dans l'intuition. Une philosophie véritablement intuitive réaliserait l'union tant désirée de la métaphysique et de la science. En même temps qu'elle
 constituerait la métaphysique en science positive,
 — je veux dire progressive et indéfiniment perfectible, — elle amènerait les sciences positives
 proprement dites à prendre conscience de leur
@@ -398,15 +394,12 @@ elle un pont élégant, mais que le fleuve mouvant
 des choses passe entre ces deux travaux d'art sans
 les toucher.
 
-Un des principaux artifices de la critique kan-
-tienne a consisté à prendre au mot le métaphysicien
+Un des principaux artifices de la critique kantienne a consisté à prendre au mot le métaphysicien
 et le savant, à pousser la métaphysique et la science
 jusqu'à la limite extrême du symbolisme où elles
 pourraient aller, et où d'ailleurs elles s'acheminent
 d'elles-mêmes dès que l'entendement revendique
-une indépendance pleine de périls. Une fois mécon-
-
-nues les attaches de la science et de la métaphysique
+une indépendance pleine de périls. Une fois méconnues les attaches de la science et de la métaphysique
 avec l'intuition intellectuelle, Kant n'a pas de peine
 à montrer que notre science est toute relative et
 notre métaphysique tout artificielle. Comme il a
@@ -416,8 +409,7 @@ qui les lestait intérieurement, la science ne lui
 présente plus, avec ses relations, qu'une pellicule
 de forme, et la métaphysique, avec ses choses,
 qu'une pellicule de matière. Est-il étonnant que la
-première ne lui montre alors que des cadres emboi-
-tés dans des cadres, et la seconde des fantômes qui
+première ne lui montre alors que des cadres emboités dans des cadres, et la seconde des fantômes qui
 courent après des fantômes?
 Il a porté à notre science et à notre métaphysique
 des coups si rudes qu'elles ne sont pas encore tout à
@@ -524,9 +516,7 @@ s'insérer avec précision les uns dans les autres.
 Les idées vraies et fécondes sont autant de prises
 de contact avec des courants de réalité qui ne convergent pas nécessairement sur un même point. Il
 est vrai que les concepts où elles se logent arrivent
-toujours, en arrondissant leurs angles par un frot21
-
-tement réciproque, à s'arranger tant bien que mal
+toujours, en arrondissant leurs angles par un frottement réciproque, à s'arranger tant bien que mal
 entre eux.
 
 D'autre part, la métaphysique des modernes n'est
@@ -551,9 +541,7 @@ pourvu qu'on ne prenne pas la métaphysique figée
 et morte dans des thèses, mais vivante chez des
 philosophes. Gertes, les divergences sont frappantes entre les écoles, c'est-à-dire, en somme,
 entre les groupes de disciples qui se sont formés
-autour de quelques grands maîtres. Mais les trouverait-on aussi tranchées entre les maîtres eux-
-
-mêmes? Quelque chose domine ici la diversité des
+autour de quelques grands maîtres. Mais les trouverait-on aussi tranchées entre les maîtres euxmêmes? Quelque chose domine ici la diversité des
 systèmes, quelque chose, nous le répétons, de
 simple et de net comme un coup de sonde dont on
 sent qu'il est allé toucher plus ou moins bas le fond
@@ -601,9 +589,7 @@ simplement de s'assimiler les faits marquants: ilen
 faut accumuler et fondre ensemble une si énorme
 masse qu'on soit assuré, dans cette fusion, de neutraliser les unes par les autres toutes les idées
 préconçues et prématurées que les observateurs
-ont déposer, à leur insu, au fond de leurs obser24
-
-vations. Ainsi seulement se dégage la matérialité
+ont déposer, à leur insu, au fond de leurs observations. Ainsi seulement se dégage la matérialité
 brute des faits connus. Même dans le cas simple et
 privilégié qui nous a servi d'exemple, même pour
 le contact direct du moi avec le moi, l'effort définitif
@@ -624,8 +610,7 @@ de ces-connaissances. Elle s'en distingue, nous le
 répétons, comme l'impulsion motrice se distingue
 du chemin parcouru par le mobile, comme la tension du ressort se distingue des mouvements
 visibles dans la pendule. En ce sens, la métaphysique n'a rien de commun avec une généralisation
-de l'expérience, et néanmoins elle pourrait se dé-
-finir l'expérience intégrale.
+de l'expérience, et néanmoins elle pourrait se définir l'expérience intégrale.
 
 Revue de Métaphysique
 H. Berason. Introduction à la métaphysique.. 1-36
@@ -809,9 +794,7 @@ comprendre réellement le caractère de l'action sociale, il
 qui les mettent en œuvre, et des conditions sociales et
 politiques où leurs volontés se forment et se manifestent.
 C'est seulement ainsi comprise que l'étude des méthodes
-politiques aura, en même temps qu'une portée philoso32
-
-phique, une véritable portée pratique. C'est une étude des
+politiques aura, en même temps qu'une portée philosophique, une véritable portée pratique. C'est une étude des
 méthodes du gouvernement démocratique conçue dans cet
 esprit, étude de psychologie sociale et politique, fondée sur
 l'observation, que j'ai voulu entreprendre, et c'est elle qui
@@ -826,8 +809,7 @@ cru le trouver dans la vie des partis politiques organisés.
 J'entends les partis organisés non seulement dans l'enceinte
 du Parlement, qui n'est désormais que la grande scène où
 se dénoue l'action préparée ailleurs, mais organisés dans
-le pays même, sur une base plus ou moins large et compré-
-hensive. où cette vie des partis est développée, elle
+le pays même, sur une base plus ou moins large et compréhensive. où cette vie des partis est développée, elle
 canalise les sentiments politiques et les volontés agissantes
 des citoyens; elle est par définition l'application continue
 des méthodes d'action de la société politique. L'organisation
@@ -867,8 +849,7 @@ rigueur la doctrine d'Auguste Comte, selon laquelle à
 chaque moment de l'histoire, le peuple dont l'évolution est
 la plus avancée représente l'humanité entière. La variété
 des caractères nationaux et des antécédents historiques ne
-doit pas être méconnue, mais les traits communs à diflé-
-rents pays prédominent dans la civilisation actuelle, où les
+doit pas être méconnue, mais les traits communs à diflérents pays prédominent dans la civilisation actuelle, où les
 institutions politiques sont taillées sur le même patron, où
 les conditions sociales amenées par l'évolution économique
 se ressemblent, et où par conséquent les hommes subissent
@@ -945,12 +926,10 @@ citer mes auteurs dans la partie contemporaine de mon
 les impressions qui m'ont été communiquées n'ont élé
 acceptées par moi que sous bénéfice d'inventaire; j'en faisais
 l'usage qui me paraissait le plus convenable, en toute
-- liberté et j'ose dire en toute honnêteté. Je suis seul respon-
-sable de toutes les appréciations des faits que j'ai présentées et souvent de l'authenticité des faits eux-mêmes, car.
+- liberté et j'ose dire en toute honnêteté. Je suis seul responsable de toutes les appréciations des faits que j'ai présentées et souvent de l'authenticité des faits eux-mêmes, car.
 j'apparais à mon tour comme un témoin devant le public.
 Je reconnais la responsabilité qui m'incombe et je l'assume
-pleine et entière. Ce que je viens de dire se rapporte natu-
-rellement aussi à la partie américaine de mon enquête, que
+pleine et entière. Ce que je viens de dire se rapporte naturellement aussi à la partie américaine de mon enquête, que
 j'ai entreprise après avoir épuisé mon sujet en Angleterre.
 Maître de la méthode que j'avais éprouvée au cours de mes
 investigations anglaises, j'ai repris sur nouveaux frais
@@ -1124,8 +1103,7 @@ une représentation réelle aux divers éléments du
 parti, et se montra capable de servir d'interprète
 fidèle et indépendant à l'opinion. Comment le Caucus
 tantôt forçait l'allure du parti, tantôt l''empêéchait
-d'évoluer librement. Comment il maintenait la cohé-
-sion dans les rangs du parti moins par sa vertu
+d'évoluer librement. Comment il maintenait la cohésion dans les rangs du parti moins par sa vertu
 propre que par la qualité de porte-drapeau du parti
 qu'il avait assumée. Toutefois il augmentait les contingents du parti en y attirant les blanks par la
 vertu de son Organisation qui vulgarisait la raison
@@ -1144,8 +1122,7 @@ encore accru les maux en conférant des titres légaux
 candidatures et en s'arrogeant le monopole de l'orthodoxie pour en tirer à l'égard des fidèles du parti
 un pouvoir de coercilion morale. Point de refuge
 contre l'orthodoxie inexorable de parti, sauf dans le
-schisme; point de place pour les organisations indé-
-pendantes ou d'esprit libre.
+schisme; point de place pour les organisations indépendantes ou d'esprit libre.
 VI. Le Caucus n'a pas servi davantage au bon fonctionnement du gouvernement parlementaire, au contraire;
 il a contribué à en fausser le principe représentatif,
 à troubler l'équilibre dans les rapports des chefs
@@ -1185,9 +1162,7 @@ compté avec les forces vives de la société. D'un autre
 
 de ses ressources matérielles et par les défaillances
 
-aussi bien que par les qualités de son propre per-
-
-sonnel. En somme, le Caucus est encore loin de
+aussi bien que par les qualités de son propre personnel. En somme, le Caucus est encore loin de
 
 « régner en souverain sur les ruines de la Constitution
 
@@ -1288,8 +1263,7 @@ faire les élections, en vue des dépouilles, sans se
 maintenir au Congrès. Les partis qu'il formait ne
 constituaient que des agglomérations réunies mécaniquement, dont les éléments disparates, abandonnés
 à eux-mêmes à la Chambre, ne cherchaient qu'à y
-faire prévaloir les intérêts particuliers qu'ils repré-
-sentaient. En l'absence de principes communs ou de
+faire prévaloir les intérêts particuliers qu'ils représentaient. En l'absence de principes communs ou de
 divergences d'idées, l'entente entre ces intérêts se fait
 au moyen de marchandages; le Congrès est enveloppé dans une atmosphère de compromis opportunistes; point d'opposition régulière pour faire
 contrepoids au parti prédominant. Le jeu de bascule
@@ -1311,9 +1285,7 @@ par les conditions sociales américaines. Comment
 ceux qui y entrent se dérobent à la responsabilité;
 manque de courage civique chez les hommes publics;
 ce ne sont plus des conducteurs d'hommes; le leadership est exercé par d'autres qu'eux, d'une manière
-irrégulière et spasmodique. Comment la responsa-
-
-bilité des hommes publics est d'autant moins réelle
+irrégulière et spasmodique. Comment la responsabilité des hommes publics est d'autant moins réelle
 que la sanction d'un contrôle lui fait défaut; indifférence du public; le mérite n'est pas plus remarqué
 que le démérite. Comment l'action des hommes
 publics n'a pas non plus le bénéfice de la continuité,
@@ -1366,8 +1338,7 @@ celle-ci et a contribué à avilir le gouvernement
 
 VII. Comment expliquer le fait que le peuple américain
 laissa échapper de ses mains le gouvernement? Il
-s'absorba tout entier dans les préoccupations maté-
-rielles. Le fonctionnement politique subordonné
+s'absorba tout entier dans les préoccupations matérielles. Le fonctionnement politique subordonné
 à la production des richesses; les désordres de la
 vie publique tolérés tant qu'ils n'occasionnaient
 pas de trop grandes pertes d'argent; de minimis
@@ -1387,9 +1358,7 @@ Comment l'idée de l'Union, du territoire national,
 subjugua son âme. Comment la grandeur de la
 nature du continent et des efforts de l'homme qui le
 mettait en valeur nourrissaient sa sensibilité patriotique. Comment le troisième facteur dont fut créé le
-nouveau monde, la liberté, qui s'y manifesta « mys-
-
-tique etindéfinie devint aussi un élément du culte
+nouveau monde, la liberté, qui s'y manifesta « mystique etindéfinie devint aussi un élément du culte
 patriotique et consacra l'orgueil national qu'inspiraient les succès matériels. Comment l'adoration de
 la patrie /our country, right wrong}, et le patriotisme de deuxième degré, non moins fétichiste, celui
 du parti, tinrent lieu de conscience civique au citoyen
@@ -1400,8 +1369,7 @@ IX. Comment le culte du parti, qui convenait à la piété
 civique de l'Américain affairé, répondait aussi
 aux tendances intimes de son âme, formée par
 l'esprit puritain à l'union jalouse dans la foi, et
-d'autre part tourmentée par le besoin que l'Amé-
-ricain éprouve de s'associer avec ses semblables
+d'autre part tourmentée par le besoin que l'Américain éprouve de s'associer avec ses semblables
 pour suppléer à son isolement moral dans cette
 société du nouveau monde, nivelée, dispersée et
 dépourvue de cadres fixes qui fournissent un appui
@@ -1441,8 +1409,7 @@ complexité croissante de la vie sociale et des fonctions
 du gouvernement; nécessité d'une réglementation
 plus étroite et diminution de la force médicatrice de
 la liberté; baisse de la personnalité sous l'influence
-des nouveaux facteurs économiques qui sapent l'indé-
-pendance économique du citoyen aussi bien que
+des nouveaux facteurs économiques qui sapent l'indépendance économique du citoyen aussi bien que
 sous celle du scepticisme religieux et du scepticisme
 politique qui envahissent son âme. L'œuvre destructive du Caucus ne pourra plus être tenue en échec
 par le jeu spontané des forces naturelles; il faudra
@@ -1466,13 +1433,11 @@ politique et l'avenir de la démocratie.
 d'abord que confusion et contradiction: le triomphe
 de l'individu autonome, victorieux sur toute la ligne
 de la vie politique, aboutit à faire de sa souveraineté un vain simulacre et de la chose politique la
-proie des intérêts particuliers, au milieu de l'indiffé-
-rence de la grande masse de la société. Comment ce
+proie des intérêts particuliers, au milieu de l'indifférence de la grande masse de la société. Comment ce
 but manqué ne signifie pas encore la condamnation
 irrévocable de la démocratie. Relevé des voies par
 lesquelles la nouvelle société s'est dirigée vers son
-but. Conception étroitement individualiste qui a pré-
-sidé à sa naissance. Préjugé créé en faveur du
+but. Conception étroitement individualiste qui a présidé à sa naissance. Préjugé créé en faveur du
 système électif. Effets produits par le régime électif
 à outrance. Enseignements qu'il fournit sur la valeur
 et les limites du principe électif dans les gouvernements libres.
@@ -1485,8 +1450,7 @@ résulta pour la chose publique. Intervention tardive
 et incomplète de l'État. Droit et devoir qui incombent
 à l'État de prendre sous sa sauvegarde exclusive la
 procédure électorale préliminaire, Son action ne
-saurait toutefois aller au delà des opérations pure-
-ment formelles de l'œuvre électorale préalable. Mais
+saurait toutefois aller au delà des opérations purement formelles de l'œuvre électorale préalable. Mais
 l'inadvertance de l'État qui a laissé entrer dans la
 place les organisations extra-légales leur a permis
 d'assumer également, en dehors de ces opérations, la
@@ -1528,9 +1492,7 @@ retournée contre eux par le loyalisme de parti. En
 lout cas, l'opinion, même soulevée, n'aflirmait son
 pouvoir que par intervalles et d'une manière répressive, son pouvoir préventif restait en souffrance.
 Comment d'autre part la notion conventionnelle de
-parti a accentué la faiblesse que le pouvoir d''intimi-
-
-dation sociale recèle, en laissant la pression brutale
+parti a accentué la faiblesse que le pouvoir d''intimidation sociale recèle, en laissant la pression brutale
 de l'opinion s'appesantir sur tout le monde. Comment
 la pression morale de la multitude, partout et de
 tout temps considérable dans la vie sociale, s'étant
@@ -1555,15 +1517,12 @@ tempère le despotisme du gouvernement de l'opinion
 et tient en respect les majorités. Comment le conformisme de parti mettait des obstacles à l'évolution
 des idées, et tendait à abaisser l'idéal dans la société.
 
-VII. Comment le formalisme politique, en ruinant l'in-
-
-fluence exercée par la supériorité des lumières et
+VII. Comment le formalisme politique, en ruinant l'influence exercée par la supériorité des lumières et
 du caractère, a résolu à rebours le problème du
 leadership d'une élite naturelle dont une démocratie
 a besoin. Comment la personnalité évincée de la vie
 publique a été suppléée par la machinerie de l'État
-ou l'automatisme des notions conventionnelles. Com-
-ment tous les modes de gouvernement se réduisent
+ou l'automatisme des notions conventionnelles. Comment tous les modes de gouvernement se réduisent
 à deux types: gouvernement personnel et respon-:
 sable et gouvernement mécanique, et comment le
 système de partis tendait à développer le second aux
@@ -1608,8 +1567,7 @@ poursuivant son œuvre d'affranchissement moral,
 opérera la décentralisation du pouvoir absolu de
 l'opinion, assurera aux problèmes politiques leur
 autonomie, qui leur permettra de se poser devant
-l'opinion et de se développer librement et spontané-
-ment, changera les modes de propagande politique,
+l'opinion et de se développer librement et spontanément, changera les modes de propagande politique,
 rendra possible l'éducation politique des masses et
 fera du gouvernement démocratique un vrai gouvernement de discussion. Comment la nouvelle méthode
 imposera aux politiciens une attitude nette et franche
@@ -1629,8 +1587,7 @@ des faits, constitue la nouvelle synthèse sociale et
 comment la démocratie lui assure les conditions les
 plus favorables à sa réalisation. Comment ce principe de la libre union des volontés fournit aussi au à
 gouvernement moderne son fondement théorique.
-Comment il redresse les doctrines de la souverai-
-neté du peuple, du contrat social, de la volonté
+Comment il redresse les doctrines de la souveraineté du peuple, du contrat social, de la volonté
 générale, conçues par les hommes du dix-huitième
 siècle sous la forme métaphysique de l'unité, et
 comment il annule les inconséquences auxquelles
@@ -1669,8 +1626,7 @@ serait vaine si elle ne s'appuyait pas sur le système
 des « ligues ». Comment, grâce à leur action combinée, le suffrage universel cessera de ressembler à
 une synthèse sans analyse préalable.
 
-XV. Tentatives déjà faites pour résoudre le problème électoral au moyen des réformes du système de la repré-
-sentation. La « théorie organique » et la représentation des intérêts. Comment ce mode de représentation serait aussi malfaisant dans ses conséquences
+XV. Tentatives déjà faites pour résoudre le problème électoral au moyen des réformes du système de la représentation. La « théorie organique » et la représentation des intérêts. Comment ce mode de représentation serait aussi malfaisant dans ses conséquences
 qu'il est erroné dans sa conception. Pour autant que
 le manque aux Chambres des porte-parole autorisés des « intérêts » est réel, on pourrait y remédier
 
@@ -1682,9 +1638,7 @@ davantage de résoudre le problème entier de l'organisation du sufirage univers
 cette réforme promet sont importants, mais elle ne
 touche qu'à la phase finale du fonctionnement électoral. Le système de Hare et le « système des listes ».
 Ce n'est que combinée avec le système des ligues et
-des votations préalables que la représentation pro-
-
-portionnelle acquiert son prix. Combinaison bienfaisante de ce système avec le vote préférentiel. Valeur
+des votations préalables que la représentation proportionnelle acquiert son prix. Combinaison bienfaisante de ce système avec le vote préférentiel. Valeur
 nulle du mode des élections à deux degrés comme
 
 : moyen d'organisation du suffrage universel. La complication des opérations électorales à la suite de l'introduction des votations préalables serait compensée
@@ -1715,8 +1669,7 @@ la stabilité dans le gouvernement et la responsabi-
 ! lité réelle des gouvernants, permettra un meilleur
 recrutement des ministres, et, tout en assurant aux
 ministres et aux députés leur indépendance, rendra
-leur collaboration plus utile. Changements qu'amè-
-nera la suppression du système de cabinet dans la
+leur collaboration plus utile. Changements qu'amènera la suppression du système de cabinet dans la
 nature des relations des ministres avec le Parlement,
 dans les attributions ministérielles, dans l'organisation de l'œuvre parlementaire et dans les rapports
 des ministres entre eux. Comment la Chambre verra
@@ -1740,37 +1693,23 @@ déjà réalisée et à la liberté morale qu'il reste à conquérir. Comment le
 
 3 l'esprit et de la conscience civiques doit avoir pour
 complément le changement des méthodes politiques
-dans le sens de l'action libre, fondée sur la respon-
+dans le sens de l'action libre, fondée sur la responsabilité individuelle. Comment ces trois facteurs individualistes de la rénovation politique se présentent
 
-sabilité individuelle. Comment ces trois facteurs individualistes de la rénovation politique se présentent
-
-aussi sous un aspect social, au point de vue de l'insuffisance flagrante de l'éducation politique non seu-
-
-lement des masses mais aussi de la bourgeoisie, de
+aussi sous un aspect social, au point de vue de l'insuffisance flagrante de l'éducation politique non seulement des masses mais aussi de la bourgeoisie, de
 l'indifférentisme civique et de l'égoisme de celle-ci,
 
 et de la séparation des classes qui rend impossible
 
-la coopération libre, et empêche l'esprit social, l'ac-
+la coopération libre, et empêche l'esprit social, l'action de l'homme sur l'homme, et le leadership moral
 
-tion de l'homme sur l'homme, et le leadership moral
+de se constituer et de s'affirmer. Comment la rénovation politique se trouve ainsi liée à la rénovation sociale, et comment l'une et l'autre dépendent
 
-de se constituer et de s'affirmer. Comment la rénova-
-
-tion politique se trouve ainsi liée à la rénova-
-
-tion sociale, et comment l'une et l'autre dépendent
-
-du développement de l'individu-conscience. — Réser-
-
-ves générales sous lesquelles la victoire sur le formalisme est possible; il ne s'agit pas d'un triomphe
+du développement de l'individu-conscience. — Réserves générales sous lesquelles la victoire sur le formalisme est possible; il ne s'agit pas d'un triomphe
 complet, mais seulement d'une nouvelle orientation
 politique. Conditions où celle-ci pourra se réaliser;
 dépendance de ce problème du problème général de
 
-la crise morale actuelle; la crise de la morale poli-
-
-tique en particulier et les chances de la surmonter;
+la crise morale actuelle; la crise de la morale politique en particulier et les chances de la surmonter;
 hypothèse d'une issue fatale. Ce qu'il faut penser à
 
 ce sujet de l'avenir de la démocratie, et quelle doit
@@ -1815,8 +1754,7 @@ sagesse aux fureurs et aux insanités.
 Mais dans cette mémorable séance du 10 février et
 dans les séances des jours suivants, pour la première
 fois les députés d'arrondissement ont parlé, agi, voté
-formellement au nom de l'arrondissement qu'ils repré-
-sentaient; pour la première fois les députés d'arrondissement ont ouvertement, formellement, publiquement,
+formellement au nom de l'arrondissement qu'ils représentaient; pour la première fois les députés d'arrondissement ont ouvertement, formellement, publiquement,
 officiellement sacrifié les intérêts généraux aux intérêts
 individuels et particuliers, les intérêts du pays aux
 intérêts de leur circonscription, les intérêts de la France
@@ -1865,9 +1803,7 @@ Ainsi dans le pays nous luttons. Nous luttons et les
 
 empoisonneurs n'auront pas la bataille aussi aisée qu'ils
 Dans le pays nous simples citoyens nous luttons pour
-et contre l'envahissement et le maintien de l'empoison63
-
-douzième cahier de la quatrième série
+et contre l'envahissement et le maintien de l'empoisondouzième cahier de la quatrième série
 nement alcoolique; nous en sommes au régime de la
 bataille; et les empoisonneurs sont loin d'avoir, comme
 ils s'en flattent, le dernier mot.
@@ -1919,8 +1855,7 @@ pour amuser le peuple, brusquement tous les partis
 politiques furent brisés. Sous la soudaine poussée des
 plus bas intérêts économiques locaux, rien n'exista
 plus. On ne connaissait plus les chefs ni le drapeau. Il
-n'y avait plus ni socialistes révolutionnaires, ni socia-
-listes évolutionnaires, ni radicaux socialistes, ni radicaux de gouvernement, ni anticléricaux, ni gauche radicale, ni progressistes, ni mélinistes, ni réactionnaires,
+n'y avait plus ni socialistes révolutionnaires, ni socialistes évolutionnaires, ni radicaux socialistes, ni radicaux de gouvernement, ni anticléricaux, ni gauche radicale, ni progressistes, ni mélinistes, ni réactionnaires,
 ni nationalistes, ni cléricaux, ni conservateurs, ni
 monarchistes, royalistes, bonapartistes, orléanistes ou
 légitimistes: il n'y eut plus que des bouilleurs et des
@@ -1953,8 +1888,7 @@ troisième, qui fut l'espoir des honnêtes gens, faisait
 récemment une démarche en commun avec M. Godefroy
 Cavaignac auprès de M. le général André, pour cette
 seule raison que M. Godefroy Cavaignac et lui sont
-Être ancien élève de l'École Polytechnique, être bouil-
-leur ou anti-bouilleur, cela compte plus, cela compte
+Être ancien élève de l'École Polytechnique, être bouilleur ou anti-bouilleur, cela compte plus, cela compte
 seul dans la réalité des relations parlementaires; dès
 
 que le débat fut ouvert sur le meilleur moyen d'empoisonner, rien ne fut; tous les partis brisés; le socialiste
@@ -2147,8 +2081,7 @@ Je veux noter encore en bref un exemple éclatant
 de la distinction que je reconnais entre l'État et nous
 le peuple, nous la nation, nous le pays.
 
-Dans le pays, nous nous battons pour et contre l'en-
-vahissement et le maintien de l'empoisonnement alcoolique; et nous voyons dans cet empoisonnement un
+Dans le pays, nous nous battons pour et contre l'envahissement et le maintien de l'empoisonnement alcoolique; et nous voyons dans cet empoisonnement un
 vraiment capital. Nous considérons cet énorme événement avec effroi, avec du courage, avec résolution.
 L'État, lui, se demande combien que lui rapporte.
 Où nous voyons effroyablement en jeu la vie ou la
@@ -2230,9 +2163,7 @@ contre leurs intérêts, donner un coup de pied dans la
 
 table, pour que vous fassiez un beau coup parlementaire.
 
-Il est devenu évident que les hommes qui nous van-
-
-douzième cahier de la quatrième série
+Il est devenu évident que les hommes qui nous vandouzième cahier de la quatrième série
 
 tent le monopole de l'État, oubliant toute la critique
 
@@ -2242,11 +2173,7 @@ mot un sens proprement merveilleux, miraculeux; nous
 
 examinerons quand il en sera temps si ce monopole
 
-nous donnerait, dans l'enseignement, les miracles for-
-
-mellement promis; je ne crois pas que dans l'empoi-
-
-sonnement il nous donnerait des miracles non plus. Les
+nous donnerait, dans l'enseignement, les miracles formellement promis; je ne crois pas que dans l'empoisonnement il nous donnerait des miracles non plus. Les
 
 étatistes monopoleurs parlent littéralement comme si
 
@@ -2268,20 +2195,12 @@ au monopole comme ils s'opposent aujourd'hui à leurs
 
 concurrents les grands distillateurs. Le monopole
 
-d'État, aussitôt qu'il se présentera comme' une éven-
+d'État, aussitôt qu'il se présentera comme' une éventualité réelle, fera contre soi une coalition des concurrences économiques, et non pas pour soi une coalition
 
-tualité réelle, fera contre soi une coalition des concur-
-
-rences économiques, et non pas pour soi une coalition
-
-des rancunes psychologiques. Et si les intérêts capi-
-
-tulent, c'est qu'on les aura payés au moins leur prix.
+des rancunes psychologiques. Et si les intérêts capitulent, c'est qu'on les aura payés au moins leur prix.
 
 Où est l'avantage?
-Nous avons avec toute l'attention qu'elles méri-
-
-taient les études, si poussées dans le détail, que
+Nous avons avec toute l'attention qu'elles méritaient les études, si poussées dans le détail, que
 
 M. Léon Blum a publiées dans la Petite République. Je
 
@@ -2295,9 +2214,7 @@ Zévaès. Les articles de M. Blum roulaient aussi sur les
 
 monopoles avantageux. Les étatistes sont si pénétrés à
 
-de l'État qu'ils en sont à le sous-entendre dans leur dis-
-
-cours même; quand ils ne parlent de rien, c'est de
+de l'État qu'ils en sont à le sous-entendre dans leur discours même; quand ils ne parlent de rien, c'est de
 VÉtat qu'ils parlent; quand ils ne parlent de personne,
 c'est de l'État qu'ils parlent; ils disent un monopole
 avantageux, #out court; ils ne se demandent pas avantageux pour qui; avantageux pour l'État. Je le demande:
@@ -2305,8 +2222,7 @@ Qu'est-ce que cela peut vouloir dire, un monopole
 d'État avantageux, sinon une opération industrielle
 où, toutes choses égales d'ailleurs, à chaque instant
 l'État intercale entre le prix de revient, quel qu'il soit,
-et le prix de vente, comme on le fait, un impôt considé-
-rable. Tous ces monopoles avantageux ne sont que des
+et le prix de vente, comme on le fait, un impôt considérable. Tous ces monopoles avantageux ne sont que des
 moyens de faire payer beaucoup d'impôts sans qu'on
 s'en aperçoive. Mais l'impôt inutile ignoré pèse autant
 sur le travail utile que l'impôt flagrant. Et n'oublions
@@ -2328,9 +2244,7 @@ libertés. Parlons infatigablement à la seule raison;
 
 publions infatigablement la vérité que nous savons de
 
-;. l'empoisonnement alcoolique; adressons-nous raisonna-
-
-blement et rationnellement à la raison; éliminons le
+;. l'empoisonnement alcoolique; adressons-nous raisonnablement et rationnellement à la raison; éliminons le
 
 poison par les moyens rationnels; exterminons de la
 
@@ -2349,17 +2263,14 @@ rente; nous serons les ennemis de l'État; l'État nous
 traitera-t-il en ennemis? Malheur à l'État qui traîte en
 ennemis les meilleurs citoyens. Et l'État lui-même, comment se conduira-t-il envers sa propre marchandise?
 Comment l'État enseignant, comment l'État policier,
-comment l'État judiciaire traitera-t-il cet État empoi-
-sonneur? Comment les instituteurs d'État parleront-ils à
+comment l'État judiciaire traitera-t-il cet État empoisonneur? Comment les instituteurs d'État parleront-ils à
 aux enfants des distilleries nationales?
-En d'autres termes, est-ce pour exterminer l'alcoo-
-lisme, ou est-ce au contraire pour l'exploiter que vous
+En d'autres termes, est-ce pour exterminer l'alcoolisme, ou est-ce au contraire pour l'exploiter que vous
 établirez le monopole de l'État? Si c'est pour extermi- À
 ner l'alcoolisme, ne nous dites pas que vous fondez À
 sérieusement un budget sur des ressources. dont;
 vous voulez anéantir la source même. Si au contraire
-c'est pour exploiter l'alcoolisme, vous êtes des finan-
-ciers sérieux, mais ne nous dites pas que vous êtes
+c'est pour exploiter l'alcoolisme, vous êtes des financiers sérieux, mais ne nous dites pas que vous êtes
 antialcoolistes, et ne nous parlez pas de morale. Et ne
 nous parlant pas de morale, ne nous parlez pas de justice. Et ne nous parlant pas de justice, ne nous parlez
 
@@ -2400,12 +2311,10 @@ demandées de chimie industrielle.
 Notons aussi qu'on ne repousse les bouilleurs qu'en
 s'appuyant sur les zoniers; ainsi on contrarie les uns
 aux autres les mauvais intérêts, au lieu de les subordonner tous aux bons intérêts, et aux droits.
-Les annonces des cahiers sont gratuites. Nous annon-
-çons à nos abonnés les articles de journaux et de revues
+Les annonces des cahiers sont gratuites. Nous annonçons à nos abonnés les articles de journaux et de revues
 et les volumes qui peuvent devenir pour eux, ou pour
 certains d'entre eux, des moyens de travail et de culture, sans demander aux éditeurs ni leur avis, ni leur
 — Sur les annonces des cahiers publiées dans les trois;
 premières séries des cahiers, se référer au
 Sixième cahier de la quatrième série, cahier de
-courrier, inventaire des cahiers, en forme de cata-
-logue, un cahier de 72 pages, un franc
+courrier, inventaire des cahiers, en forme de catalogue, un cahier de 72 pages, un franc

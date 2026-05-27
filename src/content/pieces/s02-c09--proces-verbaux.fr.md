@@ -13,10 +13,8 @@ pour subvenir aux besoins des cahiers, je reçus la convocation suivante:
 Téléphone 801-04 extraordinaire le dimanche
 février à 10 heures à la librairie.
 Le dimanche 17 février, au commencement de la
-séance, un ami que j'avais dans la Société remit au pré-
-sident de séance une lettre que je reproduis de mé-
-Monsieur le président de séance de l'Assemblée géné-
-rale de la Société Nouvelle de librairie et d'édition,
+séance, un ami que j'avais dans la Société remit au président de séance une lettre que je reproduis de mé-
+Monsieur le président de séance de l'Assemblée générale de la Société Nouvelle de librairie et d'édition,
 ne Puisque vous êtes assemblés pour traiter de l'incident
 . Péguy, permettez-moi de rappeler, une fois encore, aux (
 neuvième cahier de la deuxième série
@@ -38,8 +36,7 @@ de publier toutes les rectifications qui nous parviendraient régulièrement des
 
 Je demande pardon au lecteur si ce texte n'est pas
 rigoureusement littéral. Mais accablé de travail alors
-je n'éprouvai pas le besoin de le faire en double expé-
-dition. Je garantis le sens de ma reproduction.
+je n'éprouvai pas le besoin de le faire en double expédition. Je garantis le sens de ma reproduction.
 
 La séance du 17 février fut pénible et longue. Le
 conseil d'administration avait préparé un rapport d'une
@@ -67,9 +64,7 @@ ciété Nouvelle, tenue les
 
 Téléphone 801-04 17 et 24 février, a voté une
 
-résolution dont je te fais par-
-
-venir le texte, comme j'en ai reçu mission en ma qualité de
+résolution dont je te fais parvenir le texte, comme j'en ai reçu mission en ma qualité de
 
 président de l'Assemblée.
 
@@ -79,8 +74,7 @@ Bien à toi. Paul Fauconnet
 
 Nouvelle de librairie et d'édition, réunis extraordinaire-
 
-à ment les 17 et 24 février 1901, après avoir pris connais-
-sance du Cahier de la Quinzaine cinquième de la
+à ment les 17 et 24 février 1901, après avoir pris connaissance du Cahier de la Quinzaine cinquième de la
 seconde série, entendu le rapport que lui a présenté
 ce sujet le Conseil d'administration, et reçu l'avis de la
 commission spéciale instituée pour examen de linci-
@@ -90,9 +84,7 @@ commission spéciale instituée pour examen de linci-
 Approuve le Conseil d'administration de s'être
 hi, nhsténu pouce les fégARRE de Péguy, qui,
 
-LE 4 depuis treize mois, visent la maison et ceux qui y don-
-
-ment leur peine;
+LE 4 depuis treize mois, visent la maison et ceux qui y donment leur peine;
 
 neuvième cahier de la deuxième série
 
@@ -120,8 +112,7 @@ obtiendra. au 28 janvier il y avait douze jours que,
 usant de l'autorisation que l'assemblée du 10 lui avait
 donnée, Péguy avait copie prise de ce rapport: aucun
 post-scriptum n'indique que sur ce point son incertitude
-a cessé. D'autre part, dans le récit qu'il donne du diffé-
-rend dont la publication des Cahiers de la Quinzaine a
+a cessé. D'autre part, dans le récit qu'il donne du différend dont la publication des Cahiers de la Quinzaine a
 été l'objet entre le Conseil d'administration et lui,
 Péguy omet de rappeler des faits antérieurs dont le
 rapport montrait le lien et l'importance et, en ce qui
@@ -141,9 +132,8 @@ son avoir, qu'un capital restant, égal aux trois cinquièmes, avait été engag
 était, pour une cause laissée obscure, rendu indisponible pour un long délai. Un rapport, à l'assemblée
 du 10 janvier dernier, a rappelé, Péguy présent et sans
 observation contraire, que les actions de Péguy et de
-son prête-nom Bellais lui ont été reconnues « en repré-
-sentation d'apport » — et non contre versement de
-capital effectif —; que « ces apports ont été établis dans
+son prête-nom Bellais lui ont été reconnues « en représentation d'apport » — et non contre versement de
+capital effectif que « ces apports ont été établis dans
 des circonstances très particulières qu' « ils ont été
 fixés à la somme que Péguy, d'après sa déclaration (en
 juillet 1899), avait dépensée dans la librairie avant la
@@ -176,25 +166,17 @@ par le Conseil d'administration.
 Comité général (l'ancien, qui acceptait nos offres pour
 la sténographie et l'impression du Congrès national)
 nous demanda spontanément si nous ne serions pas
-disposés à organiser, aux mêmes conditions, la sténo-
-graphie et la publication du Congrès international. Nous
+disposés à organiser, aux mêmes conditions, la sténographie et la publication du Congrès international. Nous
 reconnûmes, après examen, qu'une sténographie proprement dite, — c'est-à-dire une sténographie complète,
-en trois langues, de tous les discours prononcés en fran-
-çais, en allemand et en anglais, — entraïnerait nécessairement des frais énormes, en nous obligeant à constituer une équipe spéciale de sténographes pour cha
+en trois langues, de tous les discours prononcés en français, en allemand et en anglais, — entraïnerait nécessairement des frais énormes, en nous obligeant à constituer une équipe spéciale de sténographes pour cha
 cune des trois langues; que, d'autre part, une sténographie uniquement française, qui ne sténographierait que
 les paroles dites en français, ne serait, à proprement
 parler, une sténographie complète qu'en ce qui concerne
-les discours des orateurs français et aurait nécessairement le caractère d'un compte rendu sténographique-
+les discours des orateurs français et aurait nécessairement le caractère d'un compte rendu sténographiquement analytique pour les discours d'orateurs étrangers,
 
-ment analytique pour les discours d'orateurs étrangers,
+à qui ne pourraient, en ce cas, être notés que d'après la traduction forcément abrégée et analytique des interprètes.
 
-à qui ne pourraient, en ce cas, être notés que d'après la tra-
-
-duction forcément abrégée et analytique des interprètes.
-
-Nous répondimes donc au Comité général que l'orga-
-
-nisation d'une sténographie véritable nous paraissait,
+Nous répondimes donc au Comité général que l'organisation d'une sténographie véritable nous paraissait,
 
 sinon impossible, du moins extrêmement coûteuse, et
 
@@ -290,8 +272,7 @@ faire un périodique d'information qui donnerait, sous la
 forme authentique du document, les faits politiques
 essentiels de la quinzaine: que le besoïn d'un périodique
 de ce genre était urgent; que lui-même d'autre part
-avait hâte de pouvoir dire enfin ce qu'il pensait et pu-
-blier ce qu'il écrirait, sans avoir à craindre les refus
+avait hâte de pouvoir dire enfin ce qu'il pensait et publier ce qu'il écrirait, sans avoir à craindre les refus
 ou les demandes d'atténuations et de coupures de rédactions trop prudentes; qu'il s'était tu perdant la durée
 du congrès, qu'il avait hâte de parler librement et de se
 révolter; qu'il ne voulait pas des contraintes hypocrites
@@ -315,8 +296,7 @@ porterait sur tout ce qui divise, sur tout ce qui irrite;
 que cette ligne de conduite était en contradiction ouverte
 . avec celle sur laquelle nous étions d'accord lorsque
 nous étions unis; que nous avions soutenu, dans la mesure où nous soutenons quelque chose, la politique
-d'accord et d'union à tout prix; que la discipline accep-
-tée comme nécessaire n'est ni de l'obéissance ni de la
+d'accord et d'union à tout prix; que la discipline acceptée comme nécessaire n'est ni de l'obéissance ni de la
 contrainte; qu'il entreprenait avec des intentions pures
 une œuvre qui aurait pour effet de jeter les hommes
 moins purs ou moins solides à l'anarchie violente; que
@@ -365,8 +345,7 @@ je suis responsable et comptable, je prie le public de
 vouloir bien noter que cette résolution est scrupuleusement anonyme. La signature de M. Mario Roques au
 
 bas de la convocation officielle n'implique pas ofliciellement que M. Roques a voté l'approbation du rapport.
-La signature de M. Paul Fauconnet au bas de la com-
-munication officielle et courtoise n'implique pas non
+La signature de M. Paul Fauconnet au bas de la communication officielle et courtoise n'implique pas non
 plus officiellement que M. Fauconnet a voté l'approbation du rapport. Ni le secrétaire du conseil d'administration ni le président de séance de l'assemblée
 générale ne sont tenus de voter comme la majorité du
 
@@ -387,8 +366,7 @@ Mais il est quelqu'un que je défendrai tout de suite.
 Mon préte-nom Bellais était mon ami quand je fondai
 2) la librairie. Comme j'étais alors boursier d'études en
 A Sorbonne, je ne pouvais pas fonder la maison sous mon
-à? nom. La plupart de mes amis étaient aussi des univer-
-sitaires. Mon ami Georges Bellais me donna tout ce
+nom. La plupart de mes amis étaient aussi des universitaires. Mon ami Georges Bellais me donna tout ce
 Le qu'il avait, son nom, beaucoup de son temps, beaucoup
 po) de pas et démarches. Il signa des baux et tout ce que
 je voulus. Quand il fut le maître dans ma maïson, il

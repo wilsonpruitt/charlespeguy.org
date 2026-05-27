@@ -504,7 +504,7 @@ Alors, dans la solennité du silence de la
 
 nuit, le sens de son histoire lui apparut, très simple:
 
-Madeleine, ce n'était plus cette pauvre petite blonde, qui dînait tristement derrière ces volets clos entre un mari brutal un enfant indifférent...; c'était toutes les femmes, les plus élevées comme les plus humbles, toutes les créatures de faiblesse de servage. Et ce qu'elle avait fait, c'est ce qu'elles eussent toutes fait, ce qu'elles feraient toujours. Toujours elles l'enlaceraient de leur plus folle étreinte celui qui, libre fort, seul d'entre les hommes, les regarderait autrement qu'un gibier, avec un peu de douceur, avec un peu d'amour. Et toujours en même temps, par un secret instinct, elles travailleraient dans l'ombre à abolir en lui les ressorts de la force de la liberté — la religion de l'Idée, le goût des choses sociales —, à faire éclore en lui la religion du cœur, à y faire épanouir les puissances de faiblesse de vassalité... Et toujours l'être heureux commencerait par subir, sans méfiance, sans défense; bien mieux! il commencerait par s'employer lui-même à détruire sa force, à construire sa faiblesse,
+Madeleine, ce n'était plus cette pauvre petite blonde, qui dînait tristement derrière ces volets clos entre un mari brutal un enfant indifférent...; c'était toutes les femmes, les plus élevées comme les plus humbles, toutes les créatures de faiblesse de servage. Et ce qu'elle avait fait, c'est ce qu'elles eussent toutes fait, ce qu'elles feraient toujours. Toujours elles l'enlaceraient de leur plus folle étreinte celui qui, libre fort, seul d'entre les hommes, les regarderait autrement qu'un gibier, avec un peu de douceur, avec un peu d'amour. Et toujours en même temps, par un secret instinct, elles travailleraient dans l'ombre à abolir en lui les ressorts de la force de la liberté — la religion de l'Idée, le goût des choses sociales à faire éclore en lui la religion du cœur, à y faire épanouir les puissances de faiblesse de vassalité... Et toujours l'être heureux commencerait par subir, sans méfiance, sans défense; bien mieux! il commencerait par s'employer lui-même à détruire sa force, à construire sa faiblesse,
 
 parce qu'il était — lui fort — parce qu'il était — lui libre — élevé dans l'esthétique du faible du servile; parce qu'il n'y a pas d'autre esthétique... Et toujours l'être heureux risquerait d'en mourir, parce qu'il avait puisé dans la jouissance des biens l'infinie sensibilité; parce qu'il venait pleurer avec les malheureux alors qu'il n'avait pas leur habitude des pleurs; parce que enfin il sentirait la pitié...
 
@@ -520,8 +520,7 @@ Alors... il serait dur... Ces drames, ces détresses, ces êtres murés vifs à 
 
 [TEXT TRUNCATED — leaf 0448 p. 91 the last available scan; sentence continues on p. 92 which not present. colophon reached. next-cahier content encountered.]
 
-qu'il est dur! quelle vilaine nature!... — Il laisse-
-rait dire croire. Il passerait sans un mot, il
+qu'il est dur! quelle vilaine nature!... — Il laisserait dire croire. Il passerait sans un mot, il
 passerait sans un regard... Et il irait vers les
 forts, vers les hommes, vers ceux qui pensent,
 vers ceux qui créent, vers ceux qui ne vous
@@ -538,8 +537,7 @@ Mais du moins sa dureté était une chose
 achetée, payée de la douleur d'une pitié
 malheureuse... C'était une dureté triste,
 silencieuse, résignée... Il voulait en souffrir,
-comme par respect pour ceux qu'il ne secour-
-rait pas. Et de son calvaire il criait aux
+comme par respect pour ceux qu'il ne secourrait pas. Et de son calvaire il criait aux
 apôtres de la dureté heureuse: « Honte,
 mille fois honte à ceux qui sont durs joyeuse-
 
@@ -555,13 +553,11 @@ lui parut presque semblable aux autres... Et
 la petite maison lui parut moins distincte...
 Alors il comprit que pendant cette nuit le
 contour de son amour s'était évanoui en des
-lignes éternelles. Alors il défaillit, déses-
-pérément, il étendit les bras comme s'il
+lignes éternelles. Alors il défaillit, désespérément, il étendit les bras comme s'il
 voulait retenir entre ses mains tremblantes
 ces contingences chéries qui avaient été sa
 vie, ses larmes, sa jeunesse... Et ses bras
-retombèrent... Et ce fut la dernière convul-
-sion d'un amour expirant... Il quitta son
+retombèrent... Et ce fut la dernière convulsion d'un amour expirant... Il quitta son
 
 *Nous avons donné le bon à tirer après corrections*
 *pour deux mille exemplaires de ce neuvième cahier*

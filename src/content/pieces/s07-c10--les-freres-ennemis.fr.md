@@ -24,7 +24,7 @@ Indianistes et indo-germanistes....................
 Deuxième section. — Les Facultés des Sciences Rs.
 5 françaiseset les Philosophische Fakultaeten d'Alle- TÉREATE
 
-42 Landwirthschaft et Économie agraire..............\ 56 à
+Landwirthschaft et Économie agraire..............\ 56 à
 Doubles emplois à Paris, et assimilations............ 56, 20%
 Allemagne 1904. — Tableau statistique. — Facultés et
 
@@ -57,8 +57,7 @@ séries des cahiers, 1900-1904, envoyer un mandat de
 cinq francs à M. André Bourgeois, méme adresse; on à
 recevra en retour le catalogue analytique sommaire,.
 1900-1904, de nos cinq premières séries, premier cahier
-de la sixième série, un très fort cahier de XI1+40o8
-pages très denses, grand jésus,marqué cinq francs.
+de la sixième série, un très fort cahier de XI1+40opages très denses, grand jésus,marqué cinq francs.
 
 Pour s'abonner à la septième série des cahiers, qui
 est la série en cours, envoyer en un mandat à M. André
@@ -94,8 +93,7 @@ et de philosophie étaient si considérables que nous ne #4
 pouvons pas songer à en donner ici l'énoncé même le. À
 plus succinct; pour savoir ce qui a paru dans les cinq
 
-: premières séries des cahiers, il suffit d'envoyer un man-
-dat de cinq francs à M. André Bourgeois, administraæ ta
+: premières séries des cahiers, il suffit d'envoyer un mandat de cinq francs à M. André Bourgeois, administraæ ta
 , teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, VAS
 
 Paris, cinquième arrondissement; on recevra en retour
@@ -104,8 +102,7 @@ le catalogue analytique sommaire, 1900-1904, de nos
 Ce catalogue a été justement établi pour donner,
 
 2 autant qu'il se pouvait, une image en bref, un raccourci,; #4
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 
 dans l'ordre; il suffit de le lire pour trouver, à leur
 
@@ -246,8 +243,7 @@ Le banquier lui prit les mains et répondit, du ton
 dont il discutait avec les marchands:;
 — Laissez ces cris, ma bonne. J'ai tenu plus que;
 mon serment. J'avais promis de vous ramener un
-enfant. Je vous en ramène deux. De quoi vous plai-
-gnez-vous?
+enfant. Je vous en ramène deux. De quoi vous plaignez-vous?
 
 UELQUE temps, Barbe Moroni espéra que la
 O voix du sang lui crierait celui qui était la
@@ -322,8 +318,7 @@ a vous ne la connaissez pas.
 4 qu'en lui dérobant, un temps, sa tendresse, elle
 redoutait de s'être volée. Cependant, en dépit de
 à l'équité des baisers maternels les enfants conti-
-4 nuèrent de se détester et, à mésure qu'ils gran-
-ta de raisons précises de haine. te
+4 nuèrent de se détester et, à mésure qu'ils granta de raisons précises de haine. te
 
 vivaient librement dans les rues d'une Genève
 
@@ -336,8 +331,7 @@ fidèles de ce Froment qui avait jeté cet appel sur
 
 les murs de Genève:
 
-« Il est venu homme en cette ville, qui veut ensei-
-gner à lire en français, dans un mois, à tous ceux et
+« Il est venu homme en cette ville, qui veut enseigner à lire en français, dans un mois, à tous ceux et
 celles qui voudront venir, petits et grands, hommes
 et femmes, même à ceux qui jamais ne furent en
 école; et si, dans le dit mois ne savent lire et écrire,
@@ -346,8 +340,7 @@ en la grande salle de Boyttet, près du Molard, à
 
 Jérôme et Jean Tharaud
 maladies pour rien. »
-Affections de l'âme et non du corps, que guéris-
-sait Froment, avec le seul baume du pur Évangile.
+Affections de l'âme et non du corps, que guérissait Froment, avec le seul baume du pur Évangile.
 Et n'ouvrait d'autre livre que le livre de son cœur.
 Homme brave et bon compagnon, prêcheur clandestin qu'abrita longtemps la discrétion des foyers
 domestiques! Prêcheur de cheminée! Un jour vint
@@ -359,8 +352,7 @@ contre le prêcheur d'idées nouvelles: « Au Rhône!
 Au Rhône! Tue! Tue! » Fuite des Luthériens entre
 les échoppes où les chanoines vendaient des indulk gences et logeaient leurs mules; abri précaire du
 ghetto! Triste hospitalité du quartier des belles
-filles, — asile peu sûr, car des Madeleines impé-
-nitentes y retenaient toujours dans leurs bras quelques chanoines si blessés de Vénus qu'ils semblaient
+filles, — asile peu sûr, car des Madeleines impénitentes y retenaient toujours dans leurs bras quelques chanoines si blessés de Vénus qu'ils semblaient
 proprement revenus de la guerre. Courses nocturnes
 sur le lac! Rude accueil des montagnes!
 Ami, tantôt faisait le guet, tantôt servait de gaide,;
@@ -379,8 +371,7 @@ pan triste inspirait un étonnement mêlé de crainte. ire
 Barbe Moroni leur partageait son cœur.
 
 les gens de Genève inclinaient chaque jour
-plus à l'Évangile et, cette année-là, on proclama à son de trompe une grande dispute théo-
-logique, devant la Seigneurie, entre Papistes et
+plus à l'Évangile et, cette année-là, on proclama à son de trompe une grande dispute théologique, devant la Seigneurie, entre Papistes et
 Luthériens. Au cœur même de la Cathédrale, les
 prédicants soutinrent que la messe ne servait pas
 au salut, que c'était idolâtrie d'adorer les images et
@@ -412,7 +403,7 @@ volaille du pauvre homme!
 Les prêtres restèrent confondus. Les enfants euxmêmes les huaient! Ami menait le branle. Ce fut
 un beau massacre. On déniche les Christs, les
 Vierges et les Saints. N'est-il pas écrit dans la Loi:
-« Tu mettras bas les idoles par toute la terre »! Mille
+« Tu mettras bas les idoles par toute la terre Mille
 supercheries papistes imaginées depuis des siècles
 furentdévoilées en une heure. Le crâne de saint Pierre
 n'était qu'une pierre ponce; la voix de saint Pantaléon, un courant d'air dans un tuyau de grès; on
@@ -433,7 +424,7 @@ On remit les églises aux prêcheurs. Les offices de
 Es Rome ne se déroulèrent plus dans leur pompe
 
 PUS dorée. Des murs nus, une grande ombre, une
-à foule en deuil, quelques flambeaux, un homme dans à:
+à foule en deuil, quelques flambeaux, un homme dans
 54 une chaire. Ce fut l'Eglise réformée. PLATS
 Les prêtres et les moines furent chassés de
 la ville; les nonnes les suivirent, accompagnées
@@ -444,11 +435,9 @@ gneurs qui les menèrent à leur bras, comme des
 EULE, de toutes les religieuses de Genève,
 Marion de Penneroz, fille d'un petit seigneur:
 savoisien, voulut demeurer dans la ville. On la crut
-conquise au culte nouveau; mais les pieuses per-
-sonnes qui s'intéressaient à son âme furent bientôt a
+conquise au culte nouveau; mais les pieuses personnes qui s'intéressaient à son âme furent bientôt a
 désabusées. Ayant été trois mois la maîtresse du +00
-Prince-Evèque, elle était initiée à toutes les déli-
-catesses de la volupté. Pourtant elle n'avait encore
+Prince-Evèque, elle était initiée à toutes les délicatesses de la volupté. Pourtant elle n'avait encore
 jamais aimé. Quand la destinée fit passer Ami sur APE
 1 son chemin, elle frémissait comme une fleur qui,
 guette le pollen dans le vent. Il la rencontra dans
@@ -527,7 +516,7 @@ Vers toi, Marion, mon cœur monte!
 en dérision du psaume de Marot:
 “4 Vers toi, mon Dieu, mon cœur monte!. “4
 
-4 Sa mère redoutait pour lui les châtiments que
+Sa mère redoutait pour lui les châtiments que
 à la Seigneurie réservait aux libertins.
 à Le conseiller Pierre Ameau avait faire amende à
 À honorable devant la maison de ville, à genoux, tête
@@ -535,8 +524,7 @@ en dérision du psaume de Marot:
 À et haute voix que, contre Dieu, vérité et raison,
 à il avait soutenu que maître Jean Calvin, ministre
 : ‘Re de l'Église de Genève, annonçait une fausse doc-
-; trine en la dite ville, qu'il en criait merci à messei-
-gneurs de la justice, de même qu'au dit sieur Calvin.
+; trine en la dite ville, qu'il en criait merci à messeigneurs de la justice, de même qu'au dit sieur Calvin.
 à Un autre familier d'Ami, accusé d'avoir écrit un
 livre plein d'exécrable malice où il traitait Moïse de
 sorcier, David, les Prophètes et les Apôtres de
@@ -612,7 +600,7 @@ Il n'en dit pas plus long. Son frère, d'un coup
 d'épée dans la gorge, l'étendit sur les dalles. 2%
 Dans la nuit, le meurtrier frappait à la porte de
 Dei) Calvin. Le maître et le disciple se regardèrent longY: temps en silence.
-À: — Où vas-tu? demanda Calvin.
+— Où vas-tu? demanda Calvin.
 Jean-Baptiste cita les champs les plus féconds de "4
 martyrs: la France, la Hollande, l'Écosse. Calvin
 À attira la tête de son disciple sur sa houppelande
@@ -632,8 +620,7 @@ Mais lorsque le Padouan voulut lui révéler son
 secret, elle refusa de l'entendre, disant
 0 — Je veux bien pleurer, mais je ne veux pas ES
 
-EAN-BAPrisTE fut l'apôtre des Cévennes déso-
-lées. La prière qui monta vers Dieu des landes
+EAN-BAPrisTE fut l'apôtre des Cévennes désolées. La prière qui monta vers Dieu des landes
 cévenoles et des bois de châtaigniers, les psaumes;
 de Marot furent appris sur ses lèvres. Il était le
 sel, l'esprit vivifiant de cette terre, le feu qui court,
@@ -785,8 +772,7 @@ est inscrit sur l'étiquette, avant le nom. Nous ne répondons pas des manuscrit
 n'accordons aucun tour de faveur pour la lecture des
 manuscrits; nous ne lisons les manuscrits qu'à mesure
 que nous en avons besoin; les œuvres que nous publions
-appartiennent aux cahiers, du seul fait de cette publi-
-cation, en toute propriété littéraire, sans aucune réserve,
+appartiennent aux cahiers, du seul fait de cette publication, en toute propriété littéraire, sans aucune réserve,
 ; et sans autre signification ni contrat; les manuscrits
 ; non insérés ne sont pas rendus.
 
@@ -794,8 +780,7 @@ Si j'avais quelque souci de ma réputation littéraire, je à
 me garderais de mettre de ma prose après un conte des
 Tharaud. Mais je n'ai aucun souci de ma réputation
 Il faut d'ailleurs que je me dévoue. Les contes et velles ont toujours, par leur nature même, une certaine
-incompatibilité de voisinage. Mais les contes et les nou-
-velles de Tharaud ont une sorte de force brève et de
+incompatibilité de voisinage. Mais les contes et les nouvelles de Tharaud ont une sorte de force brève et de
 , - brièveté forte telle qu'elle ne supporte absolument plus
 : aucun voisinage. Ou plutôt c'est le voisinage qui ne la
 4 supporte pas. Parce qu'elle est mortelle pour ce voisinage. Toute prose paraît faible et plate ou plutôt
@@ -877,16 +862,14 @@ publications non périodiques et une correspondance
 régulière imprimée. J'en suis très heureux et ne m'en
 effraye aucunement. On n'a jamais ici, on n'a jamais be:
 dans ces cahiers Fidée mesquine de quelque concur-
-D'une manière générale on se réjouira que nos rela-
-tions confraternelles avec tous nos confrères soient
+D'une manière générale on se réjouira que nos relations confraternelles avec tous nos confrères soient
 aussi excellentes. On y verra une preuve que nous
 n'avons jamais été, comme un certain nombre de nos
 anciens camarades, normaliens politiques et politiciens
 parlementaires, voulaient le faire croire, un être inso- à
 ciable et une institution condamnée.
 Nous recommencerons cet échange d'abonnements
-aussi souvent qu'il se présentera des occasions hon-
-nêtes; nous demandons à nos abonnés de donner
+aussi souvent qu'il se présentera des occasions honnêtes; nous demandons à nos abonnés de donner
 audience, de vouloir bien faire le meilleur accueil à
 ces sortes de communications.
 Romain Rolland. — Jean-Christophe. — Notre vieil:
@@ -909,8 +892,7 @@ M. Gabriel Monod, dont je m'honore d'être un ancien
 de ces anciens abonnés qui se sont un peu demandé
 quelquefois si j'avais bien les qualités requises d'un
 : administrateur; l'événement les a rassurés; ma réponse
-aujourd'hui achèvera de le rassurer. Je serais un mauvais gérant, je conduirais mal cette gérance et la gestion de ces cahiers dont j'ai la charge et la responsabi-
-litési je négligeais pour eux cette plus-value commerciale
+aujourd'hui achèvera de le rassurer. Je serais un mauvais gérant, je conduirais mal cette gérance et la gestion de ces cahiers dont j'ai la charge et la responsabilitési je négligeais pour eux cette plus-value commerciale
 régulière que donne en matière d'édition l'épuisement
 même ou la simple menace de l'épuisement. Tout ce que
 l'on peut nous demander et tout ce que nous rendons en
@@ -926,8 +908,7 @@ alors nous maintenons à la même somme de cent francs
 le prix d'épuisement de cette série, nous n'élevons
 jamais au-dessus de cette somme ce prix d'épuisement,
 qui devient ainsi comme un prix maximum et un prix
-fixe d'épuisement; nous ne profitons jamais des circon-
-stances d'épuisement pour spéculer, pour jouer avec les
+fixe d'épuisement; nous ne profitons jamais des circonstances d'épuisement pour spéculer, pour jouer avec les
 prix, sur les prix de nos séries. Nous ne jouons pas
 davantage avec les prix de nos exemplaires. Pareillement en effet nous n'avons jamais élevé au delà de
 douze, de huit, de seize, et peut-être de vingt francs, le:
@@ -945,12 +926,7 @@ avec ses principes, avec ses méthodes, — sous cette
 
 seule réserve que nous ne faisons jamais de spéculations
 
-sur les prix d'épuisement des cahierset des séries quivien-
-draient à épuisement, sous cette seule réserve je main-
-
-tiens qu'il est évident que je serais un mauvais manda-
-
-taire, un mauvais administrateur, un mauvais gérant,;
+sur les prix d'épuisement des cahierset des séries quiviendraient à épuisement, sous cette seule réserve je maintiens qu'il est évident que je serais un mauvais mandataire, un mauvais administrateur, un mauvais gérant,;
 
 que je trahirais administrativement ces cahiers et que
 
@@ -966,17 +942,13 @@ vieillissement, la rareté, la menace de l'épuisement,
 
 l'épuisement.
 
-J'ai dit une fois pour toutes, et j'ai commencé d'expli-
-
-quer un peu, mais je me réserve d'expliquer aussitôt
+J'ai dit une fois pour toutes, et j'ai commencé d'expliquer un peu, mais je me réserve d'expliquer aussitôt
 que je le pourrai aussi profondément que je le pourrai
 
 que nous ne pouvons pas, que nulle entreprise, que
 
 nulle institution communiste ne peut être forcée de se
-tenir au moins au niveau des prix courants par l'extré-
-
-mité où elle donne, où elle paie, et se forcer à se tenir
+tenir au moins au niveau des prix courants par l'extrémité où elle donne, où elle paie, et se forcer à se tenir
 
 au-dessous des prix courants par l'extrémité où elle
 
@@ -1008,8 +980,7 @@ sont en réalité ceux qui préliminairement, en principe,
 et par définition, ceux qui y sont le plus irrévocablement
 
 Et ce sont aussi ceux qui plus ou moins délibérément
-rejettent sur les épaules des autres leur part indivi-
-duelle, leur part d'homme du commun fardeau.
+rejettent sur les épaules des autres leur part individuelle, leur part d'homme du commun fardeau.
 Comme je regrette, moi le premier, comme je regrette
 que tant de manifestations, que tant d'agitations tumultueuses nous détournent sans cesse de commencer tant
 d'importantes et même de capitales études. Pour moi je
@@ -1024,13 +995,11 @@ connue, familiale et familière, analysé sincèrement,
 entièrement, sans aucun masque et sans aucune cache,,
 ni aucun détournement et sans aucun mensonge et sans
 . Le jour où l'on voudra obtenir quelque éclaircisse
-; ment de réalité dans les inextricables matières politi-
-ques, économiques et sociales, ce n'est point en manipulant fiévreusement et sans fin des statistiques frelatées,
+; ment de réalité dans les inextricables matières politiques, économiques et sociales, ce n'est point en manipulant fiévreusement et sans fin des statistiques frelatées,
 fausses, officielles, inépuisables, que l'on aboutira
 jamais à quelque aboutissement, mais c'est en prenant
 à quelques faits très simples, comme d'acheter deux sous
-de pommes de terre frites, et en essayant de les péné-
-trer d'intuitions de plus en plus profondes.
+de pommes de terre frites, et en essayant de les pénétrer d'intuitions de plus en plus profondes.
 
 Je suis assuré qu'en prenant comme exemple, comme
 exemplaire et comme point de départ une opération;
@@ -1089,20 +1058,18 @@ disposé de capitaux relativement formidables, — étant A
 donné ceux dont il avait besoin, — ne peut pas faire.
 vivre un petit quotidien ordinaire.!;
 : Pour moi, si tant d'agitations tumultueuses voulaient
-nous laisser quelque répit, si tant de démagogies con-
-courantes consentaient à nous laisser quelque respiration, c'est à de telles études que je me mettrais en:
+nous laisser quelque répit, si tant de démagogies concourantes consentaient à nous laisser quelque respiration, c'est à de telles études que je me mettrais en:
 devoir de me précipiter immédiatement, parce que la
 vie est brève. Et sans être plus malin qu'un autre je me
 fais fort, par la seule valeur, par la seule vertu de ces
-principes et des méthodes je m'assure que je mettrais à:
+principes et des méthodes je m'assure que je mettrais
 jour quelques résultats qui ne seraient pas négligeables.
 
 Je n'irais point manipuler des statistiques étrangères,
 frelatées, inconnues, inintelligibles. Mais c'est en pre- à
 nant tout bonnement l'exemple de ces cahiers que je me
 charge de mettre au jour de ces résultats. Parler de ce
-que l'on a fait et que l'on connaît, de sa propre expé-
-rience, de cette expérience personnelle en un sens
+que l'on a fait et que l'on connaît, de sa propre expérience, de cette expérience personnelle en un sens
 geable, au lieu d'aller quémander pitoyable des exemples
 étrangers, inconnus, ce n'est pas seulement la grande
 règle de modestie, c'est encore, et bien plus essentielle-;
@@ -1154,14 +1121,11 @@ expérience personnelle, on s'imaginerait en vair que l'on
 
 peut commencer même à se reconnaître et à tâcher de
 
-se diriger dans tant d'inextricables et jusqu'ici nulle-
-
-ment reconnus encore problèmes politiques, économiques;
+se diriger dans tant d'inextricables et jusqu'ici nullement reconnus encore problèmes politiques, économiques;
 
 et sociaux. Ces pénétrations de cas simples sont préli- à
 minaires; elles sont au commencement de tout; elles À
-sont avant le commencement de tout; elles sont inévita-
-bles; elles sont indispensables; elles sont au seuil, et au à
+sont avant le commencement de tout; elles sont inévitables; elles sont indispensables; elles sont au seuil, et au à
 commencement du seuil, et sur la première marche du (
 seuil, et avant le seuil, comme ce tapis de pourpre sur
 
@@ -1175,15 +1139,11 @@ gies présentes, ce qui résulte pour moi d'une expérience
 personnelle déjà longue, c'est que la première décou- à
 verte que l'on ferait serait sans aucun doute qu'en
 - matière économique il n'y a aucun miracle.
-Aucun miracle économique: ce résultat paraît déri-
-
-soire et tout le monde vous dira qu'on le sait bien;
+Aucun miracle économique: ce résultat paraît dérisoire et tout le monde vous dira qu'on le sait bien;
 d'avance et qu'il n'était pas nécessaire de parler si à
 longtemps et de faire tant de circonlocutions et qu'il ne
 
-serait pas nécessaire de procéder même à une seule ana-
-
-lyse ni à une seule intuition pour en arriver seulement
+serait pas nécessaire de procéder même à une seule analyse ni à une seule intuition pour en arriver seulement
 
 là. Il n'en était pas besoin, dites-vous. S'il n'en était
 
@@ -1200,8 +1160,7 @@ fait-il que presque tous les discours politiques parlementaires, presque sans au
 et plus que tous autres et ceux-ci sans aucune exception
 les discours des congrès socialistes nationaux, locaux,
 et internationaux et tous les discours électoraux et tous
-les discours des meetings et des assemblées, qui revien-
-nent au même, qui sont eux-mêmes des discours électoraux, et tous les discours des grèves, qui reviennent au
+les discours des meetings et des assemblées, qui reviennent au même, qui sont eux-mêmes des discours électoraux, et tous les discours des grèves, qui reviennent au
 même, qui sont eux-mêmes des discours électoraux,
 comment se fait-il enfin que tous les articles de tous les
 
@@ -1213,13 +1172,9 @@ ensemble et indivisément ceux du Mouvement Socia-
 
 É liste et ceux de l'Humanité, qui se rejoignent ici et
 
-coïncident, indivisément reposent sur ce postulat uni-
+coïncident, indivisément reposent sur ce postulat universel inavoué: que perpétuellement il y a un perpétuel
 
-versel inavoué: que perpétuellement il y a un perpétuel
-
-temps de le leur dire, ce temps que je vole à nos déma-
-
-gogies bimensuelles, — d'une expérience personnelle
+temps de le leur dire, ce temps que je vole à nos démagogies bimensuelles, — d'une expérience personnelle
 
 déjà longue, il résulte jusqu'à l'évidence qu'il n'y a aucun
 
@@ -1233,8 +1188,7 @@ Un député peut demander à la fois qu'on accroisse les
 un conseiller municipal peut demander à la fois qu'on
 accroisse les charges du budget de la ville et qu'on
 diminue les impôts; nous sommes ici en plein miracle:
-économique politique parlementaire; Lagardelle et Jau-
-rès, qui se rejoignent ici, ici coïncidants, peuvent
+économique politique parlementaire; Lagardelle et Jaurès, qui se rejoignent ici, ici coïncidants, peuvent
 demander à la fois que la production industrielle diminue et que la condition des travailleurs soit améliorée,
 sans toutefois que les intérêts du consommateur aient à
 en souffrir ou soient lésés aucunement; nous sommes ici
@@ -1259,9 +1213,7 @@ exploitation de l'idée du miracle. Un démagogue se
 reconnaît essentiellement et se distingue à ceci: qu'il
 exploite l'idée du miracle, une croyance plus ou moins
 consciente en quelque miracle plus ou moins inavoué.
-Tous ces politiciens parlementaires démagogues ex-
-
-ploitent plus ou moins confusément le postulat plus ou
+Tous ces politiciens parlementaires démagogues exploitent plus ou moins confusément le postulat plus ou
 moins inavoué, — inavouable, — de quelque miracle
 temps de le leur dire, il n'y a pas d'exemple que l'on ait
 un miracle économique; c'est peut-être la seule
@@ -1277,8 +1229,7 @@ quelque forme qu'il se manifeste, entraîne une perte
 nécessaire, comporte une déperdition, inévitable, qui
 - correspond assez en économique à ce qu'est le frottement dans la science et dans les arts et dans les métiers
 de la mécanique.
-Il est assez fréquent, — ou plutôt il était assez fré-
-quent, — car une certaine éducation commence à se
+Il est assez fréquent, — ou plutôt il était assez fréquent, — car une certaine éducation commence à se
 faire, même dans le public, venue justement de notre
 public, — il était assez fréquent que ce fussent les mêmes
 personnes qui d'une part me demandaient chaleureusement si j'étais un bon administrateur et qui d'autre
@@ -1308,8 +1259,7 @@ le congrès de Lunité sur Meurthe-et-Moselle, je puis
 vous assurer que ce n'était pas de la petite bière.
 Le rêve de tous ces socialistes forcenés, qui nous;
 saturent de raisonnements et d'enseignements impérieux
-sur le fonctionnement de l'économique, était, particuliè-
-rement pour nous, mais généralement pour tout, de ne
+sur le fonctionnement de l'économique, était, particulièrement pour nous, mais généralement pour tout, de ne
 pas payer leur abonnement, c'est-à-dire de recevoir un;
 objet fabriqué, de toucher de la valeur, ayant elle-;
 même incorporé un certain nombre de valeurs, et de ne 1148
@@ -1400,8 +1350,7 @@ plaise. Mais le résultat n'est pas et ne peut pas être le
 pillage, ce sont les autres circonscriptions, c'est le pays
 tout entier; il a de la marge, parce que le pays a montré,
 après tant de pillages de tous les régimes, qu'il avait la vie
-dure, Tandis que le coopérateur, lui, il n'a que sa coopé-
-rative, il n'a à tirer que sur sa propre coopérative, il ne
+dure, Tandis que le coopérateur, lui, il n'a que sa coopérative, il n'a à tirer que sur sa propre coopérative, il ne
 peut mettre au pillage que sa propre coopérative. Et naturellement ce sont des organismes beaucoup plus frêles.
 Je suis devenu, je suis un bon administrateur parce
 que j'ai patiemment éliminé de ces cahiers jusqu'au
@@ -1417,14 +1366,10 @@ trateur au commencement de cette septième série quand
 
 de ma blanche main je rayai définitivement: rayer,
 
-radier pour les scientifiques, — plus de cent quatre-
-
-vingts de ces infatigables, onéreux; et comme il est
+radier pour les scientifiques, — plus de cent quatrevingts de ces infatigables, onéreux; et comme il est
 quelquefois bon d'émonder un arbre vigoureux, et de:
 
-couper les gourmands, cette opération a été immédia-
-
-tement récompensée, puisque Bourgeois nous rend à
+couper les gourmands, cette opération a été immédiatement récompensée, puisque Bourgeois nous rend à
 
 , compte que du premier octobre au 31 décembre du
 commencement de cette septième série il est entré aux:
@@ -1436,16 +1381,12 @@ douze ou quinze pendant les seulesvacances dunouvelan. à
 ï Dans le cas particulier de l'épuisement, de librairie et.
 d'édition, il est évident que je ne puis sans dépouiller
 littéralement les cahiers les déposséder de cette valeur
-économique et sociale croissante qui leur vient naturel-
-
-lement de leur graduel épuisement. J'ajoute que cet
+économique et sociale croissante qui leur vient naturellement de leur graduel épuisement. J'ajoute que cet
 accroissement graduel de valeur est légitime économiquement, dans la théorie économique la plus stricte, la
 plus industrielle, au moins pour une certaine part,
 
 assez considérable, parce que ces exemplaires d'ancienne
-installation incorporent peu à peu des frais régulière-
-
-ment tombants de magasinage, de loyer, d'impôt, de
+installation incorporent peu à peu des frais régulièrement tombants de magasinage, de loyer, d'impôt, de
 toute administration.
 Particulièrement pour les quelques exemplaires du;
 Jean-Christophe qui nous restent, il nous devenait
@@ -1470,10 +1411,9 @@ de se recompléter avant l'instant fatal. A partir du
 moment où nos exemplaires seront annoncés, dénoncés,
 déclarés, proclamés en voie d'épuisement, nous ne FER
 mettrons plus en vente que les exemplaires des éditions
-Ollendorff. Mais ces exemplaires des éditions Ollen-
-dorff continueront de figurer à nos catalogues et index,
+Ollendorff. Mais ces exemplaires des éditions Ollendorff continueront de figurer à nos catalogues et index,
 à la suite et pour ainsi dire en remplacement de nos
-propres éditions; et nous continuerons de demander à,
+propres éditions; et nous continuerons de demander
 nos abonnés de vouloir bien les commander à M. André
 Bourgeois. D'une manière générale, adresser toute commande de librairie à M. André Bourgeois, administra-!
 teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,;
@@ -1502,8 +1442,7 @@ nous rend justement compte qu'il a récemment, par
 
 le complément de quelques rentrées individuelles,
 
-É reconstituer une première série complète. Conformé-
-ment à ce que j'écrivais ci-dessus, nous mettons en
+É reconstituer une première série complète. Conformément à ce que j'écrivais ci-dessus, nous mettons en
 vente cette première série complète au prix de cent
 francs, qui est le prix fixe de l'épuisement pour les
 
@@ -1520,16 +1459,13 @@ mettre en vente une collection des cahiers absolument
 complète, aux prix du catalogue, — sans nous interdire
 cependant de mettre en vente les séries séparément, à
 ces mêmes prix du catalogue.
-Ainsi, de même que je n'avais pas pu, dans un précé-
-
-dent cahier, qui est je crois l'avant-dernier, donner
+Ainsi, de même que je n'avais pas pu, dans un précédent cahier, qui est je crois l'avant-dernier, donner
 quelques détails de fabrication industrielle à propos
 d'une vraie coquille sans glisser malgré moi à toute une
 théorie, à tout un commencement d'analyse de la production, du travail et de la fabrication industrielle, de
 même aujourd'hui, ayant à répondre à notre maître
 M. Gabriel Monod et à lui donner un simple renseignement de l'administration de ces cahiers, je n'ai le
-faire, je n'ai lui donner un commencement de rensei-
-gnement sans glisser malgré moi à toute une théorie, à
+faire, je n'ai lui donner un commencement de renseignement sans glisser malgré moi à toute une théorie, à
 tout un commencement d'analyse de la consommation,
 communication, de la relation économique. C'est que
 
@@ -1563,8 +1499,7 @@ M. Gabriel Monod, je me rappelle à présent que je suis
 resté sous le coup d'une rectification assez dure que
 M. Gabriel Monod m''envoya au cours de la série précé-,
 dente et que je me suis hâté de publier aussitôt que je
-l'eus reçue, dans le dixième cahier de cette même pré-
-cédente sixième série. Naturellement ïil ne s'agissait
+l'eus reçue, dans le dixième cahier de cette même précédente sixième série. Naturellement ïil ne s'agissait
 point d'une rectification à ce que j'avais dit, mais, si je
 : puis dire, d'une rectification au fait que j'avais publié
 une lettre de M. Gabriel Monod à M. Bouglé dans le
@@ -1590,9 +1525,7 @@ de janvier, et qu'il avait fort à faire de circuler entre À
 Toulouse et Paris, et retour, et de circuler dans Paris
 même. J'eus le tort, beaucoup plus grave, de lui dire,
 comme gérant, que je ferais le cahier à sa place. En fait
-ce cahier fut improvisé, comme le demandait l'immi-
-nence du danger que la délation gouvernementale fai-
-sait courir à la République. Sans parler, naturellement,
+ce cahier fut improvisé, comme le demandait l'imminence du danger que la délation gouvernementale faisait courir à la République. Sans parler, naturellement,
 du danger civique et moral, du danger de scandale et
 de démoralisation dans les âmes des simples citoyens.
 
@@ -1669,8 +1602,7 @@ y a de toute antiquité mentale une distinction parfaitement valable, parfaiteme
 entre le public'et le privé. Mais ce que je nie absolument, c'est que premièrement le personnel coïncide
 exactement avec le privé, deuxièmement que en oppo-
 - sition ou en résidu l'inpersonnel coïncide exactement
-avec le public, troisièmement, et en forme de consé-
-quence et de conclusion, que la distinction du public
+avec le public, troisièmement, et en forme de conséquence et de conclusion, que la distinction du public
 d'avec le privé coïncide exactement avec une distinction
 de l'impersonnel d'avec le personnel.
 Quand vous écrivez à votre ami pour lui demander
@@ -1733,14 +1665,13 @@ seulement, ce qui pour eux est infiniment plus, grand
 savant, mais le savant limite, le savant modèle, étant
 Fe. celui qui au suprême degré avez atteint à cet imperER sonnalisme objectiviste que l'on s'obstine, je ne sais
 23 pourquoi, sinon par je ne sais quelle indécente plaisan4 terie, que l'on s'obstine à confondre avec le non moins
-à: pur objectivisme impersonnaliste. Le
+pur objectivisme impersonnaliste. Le
 Voilà ce que c'est que la personnalité.
 Br; Mais si vous êtes membre ou fondateur d'un comité
 2" de la Ligue française pour la défense des Droits de
 Homme et du Citoyen et que vous écriviez à un délégué 8}
 président de section, à Toulouse, et, ce qui est plus
-important, à un délégué moral important et respon-
-sable, qui répond pour vous, garantie et autorité,
+important, à un délégué moral important et responsable, qui répond pour vous, garantie et autorité,
 grande autorité morale, comme vous un des véritables:
 me, fondateurs de la Ligue à Paris et dans les départements,
 ; sur la question de savoir quelle sera l'attitude et quelle 3 à
@@ -1895,10 +1826,8 @@ tion, puisqu'il n'est pas, puisqu'il ne joue pas dans la
 définition; puisqu'il n'entre pas dans la définition,
 de comment sauriez-vous s'il est content d'elle; puisqu'il à
 ne joue pas en elle, puisqu'il n'a aucune relation avec:
-ne. elle. Dans les exemples que j'ai donnés, ce qui impor-
-tait, ce qui faisait la définition, la distinction, c'était ces Le
-mots et ces considérations de matière et de destina-
-tion, de forme, d'auteur. Dès que ces mots étaient
+ne. elle. Dans les exemples que j'ai donnés, ce qui importait, ce qui faisait la définition, la distinction, c'était ces Le
+mots et ces considérations de matière et de destination, de forme, d'auteur. Dès que ces mots étaient
 donnés, et ces considérations, la définition était faite, la
 distinction acquise, il n'importait pas que les mots à ne
 4 définir fussent dans la définition, dans la distinction, ou “4
@@ -1920,8 +1849,7 @@ teur de cette opération n'est pas une personne; Si Vous.
 pourrez pas acheter une carte postale de deux sous
 3 sans que votre opération soit personnelle; si vous n'êtes Le
 pas une personne, vous pouvez tout faire, vous pouvez se
-écrire un discours sur l'histoire universelle: votre opé-
-ration ne sera personnelle jamais.;
+écrire un discours sur l'histoire universelle: votre opération ne sera personnelle jamais.;
 La considération d'oficialité est une considérationde
 ; forme; personnelle ou impersonnelle, publique ou “4
 privée, une opération est officielle quand l'auteur de
@@ -1930,13 +1858,12 @@ quand l'auteur de cette opération n'agit pas en son
 : office; elle est seulement officieuse quand l'auteurestun:
 personnage officiel, mais qui n'agit pas en son office.
 La considération de publicité est une considération de
-è matière et de destination; personnelle ou imperson-
-nelle, officielle, officieuse ou non-officielle, une opération
+è matière et de destination; personnelle ou impersonnelle, officielle, officieuse ou non-officielle, une opération
 est publique au sens et dans la mesure où la matière de
 cette opération est publique, et où cette opération
 s'adresse au public; elle est privée au sens et dans la
 5 mesure où la matière de cette opération est privée, et
-où cette opération s'adresse au privé. à:
+où cette opération s'adresse au privé.
 Cela étant, il suffit de faire jouer les vieux mécanismes “4
 : de l'ancienne logique formelle, ou, comme on dit …
 ; aujourd'hui prétentieusement, les — prétendus now
@@ -1948,12 +1875,8 @@ nombre cherché des combinaisons possibles, — ou à
 existantes, — enfin mettons des combinaisons logiques,:
 — pour ces gens-là il n'y a aucune différence entre le
 
-logique et le réel, et d'ailleurs, s'il y avait quelque diffé-
-rence, entre les deux, ce serait le réel qui aurait tort, et,
-le logique, raison, — le nombre donné des considéra-
-
-tions élémentaires initiales, et 2 le nombre donné uniforme des parties élémentaires contradictoires complé-
-mentaires entre elles en lesquelles se divise chacune de
+logique et le réel, et d'ailleurs, s'il y avait quelque différence, entre les deux, ce serait le réel qui aurait tort, et,
+le logique, raison, — le nombre donné des considérations élémentaires initiales, et 2 le nombre donné uniforme des parties élémentaires contradictoires complémentaires entre elles en lesquelles se divise chacune de
 
 ces considérations.:
 
@@ -2028,24 +1951,18 @@ ou quatrième combinaison élémentaire: opération
 famille, qui est une personne, donne à son fils des con-; à
 seils ou des renseignements sans aucune intervention
 formelle de la paternelle autorité; Ù “4
-2 ou combinaison subsidiaire à la quatrième combi-
-cieuse: quand un père de famille, qui est une personne,
-engage avec son fils une conversation de forme off-
-ou cinquième combinaison élémentaire: opération
-impersonnelle publique officielle: un chef de gouverne-
-ment, qui n'existe pas, accomplit, en son office, en sa
+2 ou combinaison subsidiaire à la quatrième combicieuse: quand un père de famille, qui est une personne,
+engage avec son fils une conversation de forme offou cinquième combinaison élémentaire: opération
+impersonnelle publique officielle: un chef de gouvernement, qui n'existe pas, accomplit, en son office, en sa
 3 qualité officielle, un acte de son gouvernement; plus
 ne simplement un électeur, qui est une bête, — il y en — à
 - ou sixième combinaison élémentaire: opération
 4 impersonnelle publique non-officielle: un chef de gou- PS"
 : vernement, qui n'existe pas, accomplit, en matière
-publique, un acte non-officiel, par exemple un acte in-
-avouable; simplement un électeur, qui est une bête, — il
+publique, un acte non-officiel, par exemple un acte inavouable; simplement un électeur, qui est une bête, — il
 : y en a encore, — entreprend de convertir à ses idées
 son voisin de campagne;
-es ou combinaison subsidiaire à la sixième combi-
-
-officieuse: un chef de gouvernement, qui n'existe pas,
+es ou combinaison subsidiaire à la sixième combiofficieuse: un chef de gouvernement, qui n'existe pas,
 exerce, en matière publique, et à destination du public, de
 une action officieuse; plus simplement un électeur, qui
 
@@ -2123,8 +2040,7 @@ bandes perpendiculaires, horizontales et verticales;
 notre tableau eût ressemblé à une table de Pythagore; SFR
 et en effet il eût représenté et entraîné une simple multiplication; aussitôt qu'on attaque la troisième paire, on
 peut plus procéder que par accolades et répétitions;
-notons seulement que les trois paires jouant séparé-
-ment, selon que l'on commence et que l'on continue par
+notons seulement que les trois paires jouant séparément, selon que l'on commence et que l'on continue par
 telle ou telle paire, et selon qu'on place les hypothèses
 dans les accolades, on peut établir à volonté, par application d'une autre formule, en tout (1X2X3)
 tableaux de procédure différente qui reviennent exacte-:
@@ -2135,8 +2051,7 @@ DE compliquée que la plupart de nos abonnés établiront
 sans peine; j'avoue que je n'ai pas y parvenir; j'ai
 même quelque inquiétude pour ma précédente formule SAS
 et je serais heureux que quelqu'un de compétent me
-rassurât; il est vrai que je ne me suis pas chargé pen-
-dant un interim d'enseigner la logique mathématique
+rassurât; il est vrai que je ne me suis pas chargé pendant un interim d'enseigner la logique mathématique
 aux auditeurs du Collège de France.
 Ces définitions étant faites, ou plutôt ces distinctions
 étant acquises, ou plus simplement ces distinctions
@@ -2155,8 +2070,7 @@ encore que le reste de la lettre, puisqu'il y s'agissait
 d'une candidature que l'on posait de M. C. Bouglé à ne
 une chaire de Sorbonne, je crois, une chaire existante,
 ou une chaire qui était à créer, je ne me rappelle plus.
-: nous sommes dans une situation d'esprit malheu-
-reusement à laquelle je me conforme par faiblesse, mais
+: nous sommes dans une situation d'esprit malheureusement à laquelle je me conforme par faiblesse, mais
 à laquelle je ne souscris pas dans le fond de ma
 conscience, par laquelle nous sommes de plus en plus
 tentés de considérer l'attribution des charges publiques
@@ -2175,8 +2089,7 @@ moral de la délation gouvernementale organisée, ce que
 je nie absolument, c'est que d'un citoyen à un citoyen,
 
 - d'un simple citoyen même à même un simple citoyen, il
-puisse y avoir une seule communication, une seule opé-
-ration qui ne soit pas une opération publique, de quelque
+puisse y avoir une seule communication, une seule opération qui ne soit pas une opération publique, de quelque
 manière qui soit une opération privée. Nous l'avons dit
 assez souvent pendant l'affaire, et si je me permets ici
 de me référer à cet illustre précédent, c'est que sur ce
@@ -2216,8 +2129,7 @@ Nul n'est tenu, — pratiquement, — d'être prophète
 en son pays; mais une fois que l'on s'est plus ou moins
 consciemment conféré ou fait conférer cette sorte
 de magistère oflicieux, on ne peut plus, jamais, sous
-. aucune forme, démissionner. Le président de la République peut démissionner. M. Gabriel Monod ne démis-
-sionnera jamais d'avoir été, d'être Gabriel Monod.:
+. aucune forme, démissionner. Le président de la République peut démissionner. M. Gabriel Monod ne démissionnera jamais d'avoir été, d'être Gabriel Monod.:
 ; On peut entrer ou n'entrer pas dans la vie publique,
 attirer sur soi l'attention du public, s'imposer à l'atten- …
 tion du public; — je dis qu'on peut entrer ou n'entrer
@@ -2236,8 +2148,7 @@ quand il ne parle pas, son silence publiquement parle …
 pour lui. Combien de fois ne nous avait-on pas dit,
 
 combien de gens ne nous avaient-ils pas dit: La preuve A
-qu'il n'y a rien de répréhensible dans la délation gou-
-vernementale organisée, c'est que Gabriel Monod n'a
+qu'il n'y a rien de répréhensible dans la délation gouvernementale organisée, c'est que Gabriel Monod n'a
 rien dit. Ainsi quand ces grands témoins ne veulent pas
 témoigner, quand il refusent ou quand ils récusent leur
 propre témoignage, leur silence même est interprété et Ta
@@ -2272,11 +2183,9 @@ sa situation locale dans la section de Versailles. Comk
 Ligue n'est point sortie de ses lignes et ne manque pas
 à sa mission, la preuve que le Comité central a raison,
 Le c'est que Monod n'a pas démissionné.
-Lez. Sur le fond même je ne vois pas ce qui rendait incom-
-municable, au public, impubliable, cette lettre person
+Lez. Sur le fond même je ne vois pas ce qui rendait incommunicable, au public, impubliable, cette lettre person
 pelle publique non-officielle. Je ne fais point à M. Monod à
-l'injure de lui attribuer cette grossière distinction vul-
-gaire, pratique, mais populacière, que les lettres confusé- à
+l'injure de lui attribuer cette grossière distinction vulgaire, pratique, mais populacière, que les lettres confusé- à
 ment personnelles, privées, non-oflicielles, — car ces
 trois caractères ne se distingueraient pas, — seraient
 des lettres où on dirait sa pensée et que les lettres
@@ -2362,8 +2271,7 @@ XIE vingt-cinq ans, nous brisions avec une sorte d'ivresse
 farouche, d'amertume âpre, comme nous nous fussions
 rompu le bras droit: Si ta main te scandalise, coupe- 208 je
 A la. Nous nous fussions arraché un frère.
-De Cependant nos bons collègues des différentes Acadé-
-mies trouvaient le moyen de ne point couper ou plus
+De Cependant nos bons collègues des différentes Académies trouvaient le moyen de ne point couper ou plus
 tard de rétablir le lien académique et mondain
 unissait entre elles leurs précieuses personnes.
 Le père n'était plus rien pour le fils; le fils n'était
@@ -2383,10 +2291,9 @@ Or/lesrens de (fenêpé:s 12 20 AR:
 
 dixième cahier de la septième série
 
-2 Saint-Germain, Paris, vient de paraître: Jérôme
+Saint-Germain, Paris, vient de paraître: Jérôme
 7 et Jean Tharaud, l'ami de l'ordre, épisode de la
 ne Chez le même, Almanach du Bibliophile et Biblio-
-18 thèque sociale et philosophique à soïxante cen-
-es Vannonce de l'Union pour la vérité; M. Paul Des-
+18 thèque sociale et philosophique à soïxante cenes Vannonce de l'Union pour la vérité; M. Paul Des-
 RER jardins; l'ancienne Union pour l'action morale;:
 : Une rectification de M. Gabriel Monod............

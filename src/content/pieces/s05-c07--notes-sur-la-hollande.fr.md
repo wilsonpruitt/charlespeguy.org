@@ -47,14 +47,11 @@ premier cahier supplémentaire de la quatrième série,
 2 de — notre nouveau collaborateur M. Henri Michel,
 conservateur de la bibliothèque d'Amiens:
 
-Le goût de l'aventure et celui de l'intimité sont peut-
-être les deux sentiments primitifs dont les alternances
+Le goût de l'aventure et celui de l'intimité sont peutêtre les deux sentiments primitifs dont les alternances
 et les conflits expliqueraient le mieux le rythme de la
 sensibilité humaine. Vivre en soi et sortir de soi, c'est
 toujours l'un ou l'autre de ces vœux qui préside à
-toutes les démarches des âmes. Aucune passion profonde qui ne soit faite de connu et d'inconnu, de sécurité et de risque, d'intimité qui en est la force et la dou-
-
-ceur et de quelque aventure qui en est le mystère,
+toutes les démarches des âmes. Aucune passion profonde qui ne soit faite de connu et d'inconnu, de sécurité et de risque, d'intimité qui en est la force et la douceur et de quelque aventure qui en est le mystère,
 l'audace, le mouvement. La conciliation de ces contradictoires est la pierre d'achoppement du bonheur ou le
 miracle de l'amour. Nos désirs et nos regrets sont faits
 de leur antinomie, et n'est-ce point là, transportée à la
@@ -69,8 +66,7 @@ toute préoccupation d'affaires ou d'étude, je m'y suis
 
 je Henri Michel
 6 simplement mêlé dans les villes à la vie des rues,
-autant qu'on le peut en des courses hâtives; ai par-
-couru, comme il convient, les musées admirables de
+autant qu'on le peut en des courses hâtives; ai parcouru, comme il convient, les musées admirables de
 la Haye et d'Amsterdam. Mais je m'étais promis à
 À l'avance de ne pas tenter de tout voir. La curiosité du
 détail, ne rien laisser derrière soi qu'on n'y ait un
@@ -92,8 +88,7 @@ Conquis sur la mer, il faut sans relâche le défendre
 contre elle, et cette patrie que l'homme dut en quelque
 À sorte créer de proche en proche par ses efforts et par
 son industrie, dont la conservation lui coûte tant de
-3 soucis et tant de labeurs, en est d'autant plus jalouse-
-ment sienne. Avec son ciel voilé de nuages, ses eaux
+3 soucis et tant de labeurs, en est d'autant plus jalousement sienne. Avec son ciel voilé de nuages, ses eaux
 À tranquilles, ses basses prairies semées de troupeaux,
 ÿ. ses moulins qui tournent, ses barques qui glissent, ses
 horizons fermés au loin par la blonde ondulation des
@@ -117,9 +112,7 @@ yeux et réfléchie par une pensée. C'est un pays fidèle
 fait pour y méditer ou pour y aimer longuenient.
 
 « Si, passant de Belgique en Hollande, dit Michelet
-dans ses notes de voyage, vous voulez avoir du pre-
-
-mier regard une impression vraie des Pays-Bas, prenez-:
+dans ses notes de voyage, vous voulez avoir du premier regard une impression vraie des Pays-Bas, prenez-:
 les par leur côté le plus aquatique, par Bréda, Rotterdam. » Le conseil est judicieux; c'est celui d'un
 grand devin qui ne se trompa guère en ces choses. Je
 fis mieux que de le suivre; je pris par un côté encore
@@ -137,8 +130,7 @@ pâture de nuages.
 
 La traversée d'Anvers à Rotterdam dure une douzaine
 
-È d'heures. C'est une journée presque entière de naviga-
-tion où l'on n'a guère autre chose à faire qu'à regarder
+È d'heures. C'est une journée presque entière de navigation où l'on n'a guère autre chose à faire qu'à regarder
 passer le paysage, un paysage monotone et cependant
 
 toujours changeant; mais les changements n'y sont que
@@ -148,27 +140,17 @@ brouillent et s'y déforment incessamment sans qu'on
 
 puisse bien saisir comment ni à quel moment précis
 
-s'est faite la déformation. C'est ici le contraire des sur-
-
-prises et des soudaines visions que nous ménagent les
-pays de montagnes. Tout se lie, se pénètre, s'entre-
-
-suit. La petite ville, Zype ou Stavenisse, dont on aper-
-
-çoit le clocher tout au loin devant soi, semble tourner
+s'est faite la déformation. C'est ici le contraire des surprises et des soudaines visions que nous ménagent les
+pays de montagnes. Tout se lie, se pénètre, s'entresuit. La petite ville, Zype ou Stavenisse, dont on aperçoit le clocher tout au loin devant soi, semble tourner
 
 lentement à l'horizon. Elle est dépassée sans qu'on y ait
 
-pris garde. Mais en voici une autre, Tholen ou Zierik-
-
-zee, qui s'élève de la ligne des prairies ou des eaux,
+pris garde. Mais en voici une autre, Tholen ou Zierikzee, qui s'élève de la ligne des prairies ou des eaux,
 
 sur le même ciel blanc, dans la même lumière, toute
 pareille à celle qui vient de fuir et déjà fuyante à son
 
-: tour. Cette continuité du paysage fait songer invinci-
-
-blement à celle d'une existence humaine où les jours se
+: tour. Cette continuité du paysage fait songer invinciblement à celle d'une existence humaine où les jours se
 lient aux jours, apportant de semblables pensées et
 prolongeant les mêmes soucis; d'une existence non pas
 inerte et vainement immobile, mais que remplit toute
@@ -188,8 +170,7 @@ et dans l'ingéniosité de ses horticulteurs. Ce n'est pas
 à Constantinople que Candide aurait cultiver son
 jardin, mais plutôt au pays des tulipes, à l'entour
 de quelque basse maison peinte de Dordrecht, de
-Haarlem ou de Middelbourg. C'est que la vie exté-
-rieure imite le mieux la vie intérieure et que tout semble
+Haarlem ou de Middelbourg. C'est que la vie extérieure imite le mieux la vie intérieure et que tout semble
 incliner l'homme à cette sagesse qui ne veut chercher
 dans le monde que le prolongement de la pensée.
 Tandis que le petit vapeur suivait paisiblement sa
@@ -218,8 +199,7 @@ Meuse pour s'engager dans quelqu'un des canaux
 étroits qui les joignent. Il suffit alors de monter sur la
 É passerelle pour avoir, par-dessus la digue toujours
 ? assez basse, une vue prochaine du pays. A l'écluse du
-canal de Zuid-Beveland c'est toute une scène mouvementée, un de ces (paysages à figures » comme en pei-
-gnirent van Ostade, Wynants, Wouwerman. Dans la -
+canal de Zuid-Beveland c'est toute une scène mouvementée, un de ces (paysages à figures » comme en peignirent van Ostade, Wynants, Wouwerman. Dans la -
 chambre d'écluse, autour de notre vapeur, se pressent
 bord à bord une dizaine de barquettes aux voiles
 è brunes ou bises et une grande péniche peinte de luisantes couleurs rouge et vert clair, dont une robuste
@@ -254,13 +234,9 @@ reposées. Les confortables petites femmes s'arrêtèrent,
 pour nous voir partir, sur la passerelle de l'écluse,
 toutes deux une main sur la hanche, d'un geste
 arrondi de leur bras nu, et je me retournai pour voir
-de loin sur le ciel très doux leur double silhouette gra-
-
-fleuve, jusque-là plutôt vides et solitaires, prennent un
+de loin sur le ciel très doux leur double silhouette grafleuve, jusque-là plutôt vides et solitaires, prennent un
 caractère de vie et d'animation. Le Dordsche-Kil,
-petit bras très étroit de la Meuse, est tout encom-
-
-bré d'embarcations. Comme la direction du vent les
+petit bras très étroit de la Meuse, est tout encombré d'embarcations. Comme la direction du vent les
 contraint à louvoyer, elles se croisent en tous sens,
 changent à tout instant d'aspect, leur image doublée
 
@@ -372,9 +348,7 @@ de la tranquillité pour les résoudre et beaucoup de
 
 charme autour de moi pour les calmer, je ferais
 
-comme l'Europe après ses orages, c'est ici que j'établi-
-
-rais mon congrès. »
+comme l'Europe après ses orages, c'est ici que j'établirais mon congrès. »
 
 J'arrivai à la Haye à la nuit close et, me trouvant
 
@@ -457,8 +431,7 @@ choses à la fois belles et familières, façonnées par l'usage
 aux doigts qui les manient, plaisir des yeux et de l'esprit, prolongement de nous-mêmes dans les objets qui
 nous entourent. Il est bon que ces choses soient belles,
 mais la beauté n'y suffit pas; une maison n'est pas un
-musée, et les collections les plus rares deviennent aisé-
-ment fastidieuses à qui n'en est que le gardien. Il est
+musée, et les collections les plus rares deviennent aisément fastidieuses à qui n'en est que le gardien. Il est
 bon qu'elles soient utiles et commodes, mais la commodité n'y suffit pas non plus; les ascenseurs et les installations électriques ne font pas l'existence meilleure et
 r'enrichissent pas le bonheur. Ce qu'ilfaut, c'est qu'étant,
 s'il se peut, belles et utiles, elles soient avant tout
@@ -476,14 +449,11 @@ pelouses vallonnées, d'un vert si profond qu'il étonne et
 retient les yeux, imposent aux allées, depuis la grille
 jusqu'au perron, une courbe avenante qu'il y aurait
 plaisir à suivre. Sur les balcons, des faïences et des
-fleurs; des fleurs encore derrière les vitres des véran-
-das; et, parfois, par une fenêtre entr'ouverte, un pli de
+fleurs; des fleurs encore derrière les vitres des vérandas; et, parfois, par une fenêtre entr'ouverte, un pli de
 tenture, l'angle d'un haut buffet ou, dans l'ombre, le
 cuivre luisant d'un lustre. Sans doute il n'y a rien de
 bien rare, et ce sont choses que l'on peut voir partout.
-Mais il en est des images de la vie comme des chefsd'œuvre de l'art; leur valeur expressive tient à d'im-
-
-que l'analyse ne peut atteindre et que l'à peu près du
+Mais il en est des images de la vie comme des chefsd'œuvre de l'art; leur valeur expressive tient à d'imque l'analyse ne peut atteindre et que l'à peu près du
 langage est impuissant à exprimer. Je me souviens, à
 l'angle de deux canaux, d'une maison d'apparence
 plutôt modeste, tout enveloppée de feuillage, la pierre
@@ -529,8 +499,7 @@ mâts et de petits ormes chétifs. Pourtant si l'on jette
 les yeux sur un plan de la ville ou si, du haut
 de la vieille tour du Palais, on l'embrasse d'un
 regard dans son étendue, on s'aperçoit que cette
-confusion est ordonnée suivant une étrange symé-
-trie qui fait ressembler Amsterdam à quelque grande
+confusion est ordonnée suivant une étrange symétrie qui fait ressembler Amsterdam à quelque grande
 toile d'araignée tendue en demi-rosace sur les bords de
 l'Ij. Les canaux concentriques, en lignes parallèles et
 brisées, les rues qui les coupent dans le sens des
@@ -541,9 +510,7 @@ centre; et ce centre lui-même, le cœur de toute la
 figure, c'est la place du Dam, entre la Bourse et le
 Palais, où la vie de la cité bat son plein.
 
-Cette forme extérieure de la ville n'est pas indiffé-
-
-rente. Elle symbolise à souhaït l'ordre intérieur de la
+Cette forme extérieure de la ville n'est pas indifférente. Elle symbolise à souhaït l'ordre intérieur de la
 cité, la vocation et le caractère moral de son peuple.
 La comparaison qu'elle suggère est mieux qu'un jeu de
 l'imagination; elle donne un sens à des impressions
@@ -570,8 +537,7 @@ idées de retour plus que de départ. Les vieilles barques
 
 avec leurs voiles affaissées, le long des quais trempés
 par la brume, y sont revenues vers les vieilles maisons
-qui les regardent de leurs innombrables petites fené-
-tres. N'ont-elles pas avec celles-ci comme un air de
+qui les regardent de leurs innombrables petites fenétres. N'ont-elles pas avec celles-ci comme un air de
 parenté, la même architecture en hautes lignes verticales, la même couleur, la même odeur de bois mouillé?
 Elles ne sont pas ici comme des étrangères; elles ont
 regagné le port d'attache; elles font partie de la ville,
@@ -617,8 +583,7 @@ musée et non plus, comme en certaines chambres de
 Cluny, le fin parfum du passé restitué. C'est plutôt un
 butin précieux, le chatoiement d'un trésor dans sa
 cache, et l'on ne serait point trop surpris de découvrir
-dans une arrière-salle, parmi les émaux et les orfè-
-vreries, la lampe merveilleuse d'Aladin.
+dans une arrière-salle, parmi les émaux et les orfèvreries, la lampe merveilleuse d'Aladin.
 
 Ces amas de richesses, cette lueur d'or dans la nuit
 est le luxe d'Amsterdam. Mais si la ville, par là, tient
@@ -651,16 +616,13 @@ Yâme collective d'un peuple demeure confuse et inconnue à elle-même, tant qu'
 point dégagé le sens éternel et doublé l'histoire réelle
 d'une histoire idéale qui l'explique et qui l'accomplit.
 Deux hommes ici achèvent de nous faire comprendre
-la ville. L'un, parmi les tracas d'une vie souvent misé-
-rable qui devait finir dans la solitude et dans l'oubli,
+la ville. L'un, parmi les tracas d'une vie souvent misérable qui devait finir dans la solitude et dans l'oubli,
 sut fixer comme un magique la lumière des choses
 visibles. Il y mêla d'autres clartés qui semblent issues
 du fond le plus secret de la conscience et de l'émotion
 humaines. Il ne voulut peindre des êtres que le reflet
 de leur vie intérieure. Il ne chercha dans les formes et
-dans les couleurs que leur essence lumineuse et l'enve23
-
-loppa dans l'ombre pour la concentrer et la posséder
+dans les couleurs que leur essence lumineuse et l'enveloppa dans l'ombre pour la concentrer et la posséder
 mieux, comme un avare qui cache un trésor. — L'autre,
 ; du seuil de l'existence la plus humble et la plus fer-
 : mée, eut la vision de l'univers infini. Mais, par une con-
@@ -726,8 +688,7 @@ dunes. La mer est plus redoutable, et l'on a dû, de ce
 côté, élever contre elle la plus robuste digue des PaysBas. Dunes et digues encerclent l'ile tout entière et la
 séparent des autres terres. Une haute clôture barre
 partout l'horizon comme les bords d'une large coupe.
-L'intérieur, avec sa petite ville centrale de Middel-
-bourg, ses villages tranquilles, ses routes étroites, ses
+L'intérieur, avec sa petite ville centrale de Middelbourg, ses villages tranquilles, ses routes étroites, ses
 à grands moulins qui tournent sans bruit, forme bien le
 petit monde le plus clos et le plus abrité qu'on puisse
 voir sous le libre ciel. Les nuages qui s'en vont avec
@@ -754,9 +715,7 @@ rais de lumière blanche perçaient à travers la pluie.
 : Une clarté d'argent brillait à l'horizon sur les dunes,
 puis, furtivement, se glissait dans les labours et dans
 les pâtures, parmi les ombres des nuages. Il y avait
-alors comme un rapide scintillement aux menus dé-
-
-tails du paysage, et ces frissons de la lumière, qui
+alors comme un rapide scintillement aux menus détails du paysage, et ces frissons de la lumière, qui
 semblaient élargir la plaine, y rendaient tout plus vif et
 plus léger, y faisaient saillir mille traits délicats qu'on:
 n'avait point aperçus, comme des hachures dans une
@@ -817,9 +776,7 @@ d'inconnu, quelque chose qui nous résiste ou nous
 échappe, on pense n'avoir rien fait encore. Ce que l'on
 poursuit, c'est l'assimilation parfaite; ce que l'on veut,
 
-(1) Dans la cité idéale l'amour justifie l'appropriation indivi-
-
-duelle, et la limite. -
+(1) Dans la cité idéale l'amour justifie l'appropriation individuelle, et la limite. -
 
 c'est d'avoir si bien ramené cet autre à soi qu'on se:
 reconnaisse en lui tout entier et qu'il n'ait plus rien de
@@ -875,27 +832,23 @@ Dans un salon, près d'une fenêtre, une femme est
 debout devant elle, tient un cerceau. A gauche, une
 table carrée, une chaise; contre le mur, une vieille pein-
 : ture mythologique un peu effacée par le temps et à
-demi noyée dans l'ombre. La porte ouverte laisse aper-
-cevoir un arbuste dans une cour, et plus loin, sous un
+demi noyée dans l'ombre. La porte ouverte laisse apercevoir un arbuste dans une cour, et plus loin, sous un
 ‘he porche, un coin de rue et un cavalier qui s'éloigne. Cela
 est peu de chose à dire; mais ce qu'on ne peut dire, c'est
 à l'ndéfinissable quiétude répandue partout dans le petit
 tableau lumineux; c'est la transparence et la circulation
 
-perspective; le sentiment de calme et de paix qui enve-
-loppe tout d'une discrète magie. Comme on sent que
+perspective; le sentiment de calme et de paix qui enveloppe tout d'une discrète magie. Comme on sent que
 rien, dans la maison silencieuse, n'est indifférent à ceux
 qui l'habitent! Cette peinture contre le mur, cette délivrance d'Andromède, quel thème merveilleux elle a
 fournir aux étonnements de l'enfant! Les losanges
 blancs et noirs du carrelage, si fidèlement dessinés
-qu'on en peut compter le nombre, la jeune femme, assu-
-rément, les a plus d'une fois comptés, dans le désœuvrement des dimanches, au moment où la nuit tombante
+qu'on en peut compter le nombre, la jeune femme, assurément, les a plus d'une fois comptés, dans le désœuvrement des dimanches, au moment où la nuit tombante
 interromptsa lecture et qu'elle a posé son livre sur l'ap-;
 pui de la fenêtre. Les personnages tiennent peu de place
 dans l'étroit tableau; ils pourraient en tenir moins
 encore, ils en pourraient être absents tout à fait sans
-cesser d'en demeurer le centre. La demeure est impré-
-gnée de leur présence. Ils y ont si longtemps recueilli
+cesser d'en demeurer le centre. La demeure est imprégnée de leur présence. Ils y ont si longtemps recueilli
 le rayonnement et l'haleine de leur vie qu'elle est devenue peu à peu quelque chose d'eux-mêmes et que ses
 meubles et ses murs sont tout pénétrés de leur âme.
 
@@ -933,9 +886,7 @@ rien de nouveau?.. Il a fait grand vent, le vent n'a donc
 rien détruit? La foudre a grondé, la foudre n'a donc
 rien frappé, ni vos champs, ni vos bêtes, ni vos tures, ni vos travailleurs? Les enfants meurent, il
 a donc pas de deuils? On ne pleure donc jamais chez
-vous? Vous avez tous été amoureux, comment le saïiton? » C'est que l'écueil, c'est que le mensonge de l'inti32
-
-mité est précisément sa réussite même. Croire toucher
+vous? Vous avez tous été amoureux, comment le saïiton? » C'est que l'écueil, c'est que le mensonge de l'intimité est précisément sa réussite même. Croire toucher
 le terme, c'est ne pas comprendre qu'il n'y a pas de;
 terme; penser tenir le bonheur, c'est en méconnaître
 l'énigme. Le rythme de nos désirs est plus compliqué,
@@ -973,8 +924,7 @@ il l'aveu de leur médiocrité, faudra-t-il, par une incon-
 : stance non moins puérile et médiocre, promener son
 inquiétude sur tous les chemins et ne lui apprêter que:
 des lits d'auberge? Plutôt la fidélité hollandaise et la
-4 naïveté du simple bonheur que cet idéalisme bohé-
-mien, sans tendresse ni profondeur, qui se lasse de
+4 naïveté du simple bonheur que cet idéalisme bohémien, sans tendresse ni profondeur, qui se lasse de
 tout avant d'avoir rien possédé.
 Mais la synthèse n'est pas impossible entre les contradictoires apparents de l'aventure et de l'intimité. IL
 est, au contraire, aisé de comprendre que l'impuissance
@@ -1036,8 +986,7 @@ cœurs simples, il vient d'être donné de comprendre et
 de nous faire comprendre le secret dernier de l'amour:
 ils possèdent ce qui leur échappe, et dans le simple
 compagnon de route qu'ils ont séparer de tous et
-garder, ce soir, pour eux seuls, ils adorent l'incommu-
-nicable vie dont il est la forme et le vêtement.
+garder, ce soir, pour eux seuls, ils adorent l'incommunicable vie dont il est la forme et le vêtement.
 Quand j'arrivai à Dombourg, l'averse qui menaçait
 depuis le matin survint brusquement. La plage était
 solitaire. Dans une cabine de planches, quelques enfants s'étaient réfugiés, heureux et riant de leur aven-
@@ -1050,8 +999,7 @@ délaissé toute la partie du ciel au-dessus de l'île. D'un
 côté, on ne voyait devant soi que le sable désert, la
 mer toute sombre et sans une voile, rudement fouettée
 
-par le vent, et des nuages confus et rapides qui s'en-
-gorgeaient à l'horizon. De l'autre, c'était le contraste
+par le vent, et des nuages confus et rapides qui s'engorgeaient à l'horizon. De l'autre, c'était le contraste
 de la campagne scintillante et rafraîchie, avec ses
 détails de vie champêtre, et, tout au loin, sur l'azur du
 ciel, le clocher, à peine visible, de Middelbourg. L'herbe
@@ -1079,7 +1027,7 @@ d'après le Bulletin de l'Office du travail de novembre
 compte rendu de la, grève générale des mineurs; ce
 compte rendu nous avait été envoyé par notre collabo-
 ; rateur Jean le Clerc; ainsi que nous le lui avons alors
-demandé, notre collaborateur a continué depuis à:
+demandé, notre collaborateur a continué depuis
 dépouiller pour nous le Bulletin de l'Office du travail;
 il nous a indiqué récemment ce nouveau compte rendu.
 Le rédacteur en chef du bulletin, gérant, est M. Charles
@@ -1161,8 +1109,7 @@ d'Armentières dut prendre seul la direction du mouvement.
 
 La grève se localisa alors dans la vallée de la Lys:
 dans les centres textiles où les ouvriers avaient cessé
-le travail soit pour appuyer les revendications des gré-
-vistes d'Armentières, soit en formulant eux-mêmes des
+le travail soit pour appuyer les revendications des grévistes d'Armentières, soit en formulant eux-mêmes des
 revendications, des négociations s'engagèrent. À Hazebrouck, les tissages rallumèrent leurs feux, le 12 octobre,
 après que les patrons eurent accordé, avec la réduction
 immédiate de la durée du travail à 10 heures, une
@@ -1187,16 +1134,14 @@ grévistes, eut un entretien avec le président du syndicat patronal, qui ajourn
 la foule des grévistes manifesta son mécontentement.
 Des désordres se produisirent à Armentières. Nombre
 d'individus étrangers à la grève profitèrent du conflit
-pour commettre des actes de pillage qui furent immé-
-diatement blâmés et désavoués par les maires d'Armentières et d'Houplines, au nom des grévistes euxmêmes.
+pour commettre des actes de pillage qui furent immédiatement blâmés et désavoués par les maires d'Armentières et d'Houplines, au nom des grévistes euxmêmes.
 
 Le préfet proposa alors aux patrons, en vue de mettre
 fin au conflit, la constitution d'une commission mixte
 chargée d'étudier les questions du relèvement des tarifs
 et de l'adaptation des salaires à la réduction de la
 durée du travail. Les patrons mirent comme condition
-à leur acceptation la reprise du travail par les gré-
-vistes, avant tous pourparlers, « aux conditions du tarif
+à leur acceptation la reprise du travail par les grévistes, avant tous pourparlers, « aux conditions du tarif
 de 1889, intégralement et loyalement appliqué dans
 
 toutes les usines ». Le préfet organisa un referendum
@@ -1246,15 +1191,12 @@ préfet les amena à revenir sur cette décision. Une commission mixte tint séa
 ; L'accord s'établit sur tous les points; seule, demeurait
 en suspens la question de savoir à quelle époque serait
 applicable l'augmentation du tarif de 1889, promise par
-les patrons pour le premier avril 1904, réclamée immé-
-diatement par les ouvriers.
+les patrons pour le premier avril 1904, réclamée immédiatement par les ouvriers.
 
 Le préfet, par lettre adressée aux deux parties, proposa de recourir à un arbitrage.
 
 Les deux parties ont admis ensemble, et à l'unanimité, que
-les ouvriers devaient recevoir une augmentation corres-
-
-pondant au préjudice à eux causé par la réduction des
+les ouvriers devaient recevoir une augmentation correspondant au préjudice à eux causé par la réduction des
 heures de travail, et que le taux de ce préjudice devait être
 étudié et fixé par une commission.,
 
@@ -1282,8 +1224,7 @@ admis, quel doit en être le quantum par rapport à l'augmentation totale à fix
 Cette proposition, acceptée par les ouvriers, fut à
 repoussée par les patrons. Après la publication du
 procès-verbal, le 4 novembre, les délégués patronaux
-adressèrent au préfet une lettre par laquelle ils ajou-
-taient à la promesse d'augmentation faite au cours de
+adressèrent au préfet une lettre par laquelle ils ajoutaient à la promesse d'augmentation faite au cours de
 la conférence une clause restrictive, subordonnant
 loctroi d'un relèvement du tarif de 1889 à l'adoption
 d'un tarif égal par les patrons des autres centres textiles
@@ -1293,8 +1234,7 @@ A la séance de la Chambre du 7 novembre, sur interpellation de M. Jaurès, dép
 jour suivant, déposé par l'interpellateur et accepté par;
 le Gouvernement, fut adopté à l'unanimité de 5o2votants:
 
-La Chambre compte sur le Gouvernement pour renou-
-veler, auprès des parties en lutte dans la grève de la vallée
+La Chambre compte sur le Gouvernement pour renouveler, auprès des parties en lutte dans la grève de la vallée
 de la Lys, la proposition d'arbitrage; — Elle décide d'instituer, dans les formes déjà adoptées pour les mines, une
 enquête parlementaire sur l'état de l'industrie textile et la Le
 condition des ouvriers tisseurs.
@@ -1375,8 +1315,7 @@ ouvriers comprendront certainement que, l'existence de
 notre place se trouvant par compromise, il deviendrait
 nécessaire, dans l'intérêt commun, de rétablir une certaine
 
-uniformité dans les tarifs. Commission mixte aura à pré-
-voir les moyens propres à parer à cette éventualité.
+uniformité dans les tarifs. Commission mixte aura à prévoir les moyens propres à parer à cette éventualité.
 
 4. — La proposition du payement d'une semaine de travail le samedi qui suivra la cessation de la grève a été mal
 interprétée. Certains y ont l'offre d'une aumône, alors
@@ -1435,8 +1374,7 @@ Nos Cahiers sont édités par des souscriptions men-
 La rédaction ni sur l'administration: ces fonctions
 
 Ce sont vraiment ces souscriptions qui ont fait et qui
-font les éditions des cahiers; éditions des cahiers anté-
-rieures à la fondation des cahiers; quatre premières
+font les éditions des cahiers; éditions des cahiers antérieures à la fondation des cahiers; quatre premières
 - séries des cahiers, achevées aujourd'hui; cinquième
 série, en cours; ce sont ces souscriptions qui ont con-
 -. stitué le soubassement économique indispensable de
@@ -1450,9 +1388,7 @@ premier ordre d'opérations, à qui nous devons laisser
 . donnent leurs souscriptions aux cahiers depuis la fon-
 .- dation des cahiers, ils ont donné leurs souscriptions
 -. aux cahiers dès avant la fondation des cahiers sans
-« aucun esprit de retour; les souscriptions sont exacte-
-
-septième cahier de la cinquième série
+« aucun esprit de retour; les souscriptions sont exacteseptième cahier de la cinquième série
 sens où donner et retenir ne vaut; ainsi nos souscripteurs sont littéralement avec nous les auteurs, les
 nourriciers et les fondateurs de nos cahiers; ils en sont
 les auteurs économiques ainsi que nos collaborateurs
@@ -1467,8 +1403,7 @@ abonnés ont des budgets pauvres; il est notoire que les
 budgets mensuels etpauvres fournissent plus facilement,
 pour une même somme, des mensualités modestes
 régulières, des douzièmes, que des annuités; et même il
-est notoire que des budgets mensuels et pauvres fournissent plus facilement, pour une somme plus considé-
-rable, des mensualités régulières que des annuités
+est notoire que des budgets mensuels et pauvres fournissent plus facilement, pour une somme plus considérable, des mensualités régulières que des annuités
 sommairement plus faibles. Nous ne saurions donc trop
 demander à nos amis de nous envoyer, autant qu'ils
 peuvent, des souscriptions mensuelles régulières.
@@ -1478,17 +1413,13 @@ car nous ne voulons pas condamner l'avenir; nous
 recevons de nos amis tant d'autres preuves de dévouement efficace et d'amitié que nous sommes obligés de
 croire que si les souscriptions mensuelles régulières que
 nous recevons sont aussi peu nombreuses encore au
-commencement de cette cinquième série, c'est unique-
-
-ment parce que l'attention de nos amis ne s'est pas
+commencement de cette cinquième série, c'est uniquement parce que l'attention de nos amis ne s'est pas
 4 portée assez fermement sur ce moyen et sur son eflica-
 … cité. Nous ne saurions donc trop demander à nos amis
 à d'y penser, efficacement. Et l'on me permettra d'insister
 sur la valeur morale de cette contribution, permanente,
-à. régulière, constante; connaissons la vanité des mani-
-festations et des emballements politiques parlementaires; connaissons la vanité des enthousiasmes laires mêmes; connaissons la fermeté, l'efficacité, la
-solidité du travail constant; nos cahiers, si considé-
-rables qu'ils soient, paraissent régulièrement par quin-
+à. régulière, constante; connaissons la vanité des manifestations et des emballements politiques parlementaires; connaissons la vanité des enthousiasmes laires mêmes; connaissons la fermeté, l'efficacité, la
+solidité du travail constant; nos cahiers, si considérables qu'ils soient, paraissent régulièrement par quin-
 …._ zaine; à cette production régulière il est juste, il est
 harmonieux, il est normal qu'une alimentation réponde
 Souscriptions extraordinaires. Nous avons été puis-
@@ -1505,8 +1436,7 @@ de toutes ces souscriptions extraordinaires, la plupart
 tel ou tel service des cahiers, ou à tel cahier même, soit
 que le souscripteur contribue à la fabrication même
 du cahier, soit qu'il nous en achète un certain nombre
-à. Emprunt des cahiers. Nous avons nous-mêmes orga-
-nisé, au cours de notre troisième série, une opération
+à. Emprunt des cahiers. Nous avons nous-mêmes organisé, au cours de notre troisième série, une opération
 
 septième cahier de la cinquième série
 financière qui n'était pas une souscription extraordinaire collective, mais que nous avons nommée emprunt
@@ -1532,9 +1462,7 @@ qui ne rapporte aucun intérêt, qui n'est pas remboursable, n'en représente pa
 francs engagé dans les cahiers par l'auteur de la
 souscription et maintenu par nous; nos souscriptions
 
-À mensuelles régulières et nos souscriptions extraordi-
-
-naires peuvent disparaître aussitôt données; elles
+À mensuelles régulières et nos souscriptions extraordinaires peuvent disparaître aussitôt données; elles
 peuvent ne pas se représenter en valeurs espèces
 ni en valeurs marchandises dans nos inventaires; par
 exemple une souscription extraordinaire affectée par-
@@ -1573,8 +1501,7 @@ septième cahier de la cinquième série
 de leurs parts; et allant au-devant de leur demande
 nous nous réservons le droit de proposer nous-mêmes
 remboursement; et, à la rigueur, nous nous réservons
-de l'effectuer d'office; dans la première partie de l'opé-
-ration même, et avant d'avoir obtenu sur son accomplissement des indications suffisantes, nous avons de
+de l'effectuer d'office; dans la première partie de l'opération même, et avant d'avoir obtenu sur son accomplissement des indications suffisantes, nous avons de
 nous-mêmes remboursé quatre parts imprudemment
 
 Quand nous avons annoncé dans les cahiers cette
@@ -1600,8 +1527,7 @@ de travailler; mais c'est malheureusement un fait
 
 d'expérience aujourd'hui acquis que non seulement les
 sociétés de librairie et d'édition, que dans tous les
-; ordres du travail et de la production la plupart des en-
-treprises prétendues socialistes fondées ces dernières
+; ordres du travail et de la production la plupart des entreprises prétendues socialistes fondées ces dernières
 années à grand renfort d'inaugurations et de statuts se
 reconnaissent à ce qu'elles surajoutent aux vices des
 mauvaises administrations bourgeoises les vices du
@@ -1629,9 +1555,7 @@ résultats d'un essai aussi rare; nous nous devons à
 
 nous-mêmes, nous devons au public, nous devons à nos
 
-souscripteurs, et à tous nos abonnés, de leur commu119
-
-septième cahier de la cinquième série
+souscripteurs, et à tous nos abonnés, de leur commuseptième cahier de la cinquième série
 niquer ici les résultats de cette opération; c'est un
 compte que nous rendons, que nous devons rendre;
 dans cette opération même, et à ne considérer qu'elle,
@@ -1689,12 +1613,8 @@ assumées; l'extrême embarras que j'éprouve toujours
 j'avais pensé que les parts seraient souscrites par des
 gens que cette souscription n'incommoderait pas, par
 ces demi-bourgeois demi-capitalistes qui au lendemain
-d'une affaire inquiétante, aujourd'hui totalement ou-
-
-bliée, dépensèrent assez d'argent dans les entreprises
-de rénovation, de moralisation, quelquefois de révolu121
-
-septième cahier de la cinquième série
+d'une affaire inquiétante, aujourd'hui totalement oubliée, dépensèrent assez d'argent dans les entreprises
+de rénovation, de moralisation, quelquefois de révoluseptième cahier de la cinquième série
 tion; je m'étais trompé presque totalement; sauf de
 - rares et d'honorables exceptions, les demi-bourgeois
 demi-capitalistes sur qui j'avais compté ne rendirent
@@ -1726,8 +1646,7 @@ un gouvernement de demi-bourgeoïis demi-capitalistes,
 À est aussi, de tous les gouvernements, le gouvernement
 le plus éloigné d'un gouvernement populaire.
 Quand vous allez trouver un capitaliste entrepreneur
-et que vous lui parlez d'entreprise, de fonds de roule-
-ment, de mouvement de fonds, de lancement, de mise en
+et que vous lui parlez d'entreprise, de fonds de roulement, de mouvement de fonds, de lancement, de mise en
 train, de période de lancement, de publicité, de public,
 de clientèle, d'habitude, de frais généraux, de rendes ment, de travail, de capital, de risque, de mise, de
 ? placement, de rapport, il vous entend, car il a les
@@ -1751,9 +1670,7 @@ pauvre ou un misérable, qui sait donner; elle éloignera presque infailliblemen
 septième cahier de la cinquième série
 parlementaires, qui veulent tout tourner en intérêts
 électoraux; elle éloignera presque infailliblement un
-de ces radicaux, et surtout un de ces radicaux-
-
-socialistes qui en toute matière, en matière politique
+de ces radicaux, et surtout un de ces radicauxsocialistes qui en toute matière, en matière politique
 et surtout en matière sociale, veulent donner et retenir; elle éloignera presque infailliblement un de ces
 demi-bourgeois demi-capitalistes qui ne savent ni
 donner ni prêter, car ils prêtent ce qu'ils croient donner,
@@ -1843,8 +1760,7 @@ parler de cet emprunt, c'est que presque toutes les
 autres parts souscrites, plus des deux tiers des parts
 souscrites, enfin presque toutes les parts qui n'avaient
 pas été souscrites par des capitalistes, furent souscrites
-par des pauvres, quelques-unes peut-être par des misé-
-rables, par des hommes que cette souscription gênait,
+par des pauvres, quelques-unes peut-être par des misérables, par des hommes que cette souscription gênait,
 
 ou dont je suis assuré qu'elle dérangeait le modeste, le
 pauvre, le misérable budget; je nai m'habituer
@@ -1880,8 +1796,7 @@ années j'avais de mes maîtres, et de mes entraîneurs,
 
 septième cahier de la cinquième série
 idée d'ailleurs qui ne n'était pas venue toute seule,,
-mais que l'on avait, qu'ils avaient eux-mêmes fortement contribué à me donner, par des moyens communé-
-ment honnêtes, si je savais qu'il y eût un seul homme
+mais que l'on avait, qu'ils avaient eux-mêmes fortement contribué à me donner, par des moyens communément honnêtes, si je savais qu'il y eût un seul homme
 de vingt et quelques années qui eût de moi l'idée qu'à
 vingt et quelques années j'avais de Herr ou de Andler,
 et presque aussitôt l'idée que j'eus du grand Jaurès,
@@ -1919,8 +1834,7 @@ est un peu forte.
 Je n'ai jamais parlé, je ne parlerai jamais qu'avec un
 extrême respect de M. Lucien Herr; mais ceux de nos
 anciens camarades communs qui ont quelque peu
-connu et connaissent encore la réalité de certains évé-
-nements, anciens et nouveaux, savent aussi pourquoi
+connu et connaissent encore la réalité de certains événements, anciens et nouveaux, savent aussi pourquoi
 il m'est extrêmement désagréable que mon nom paraisse
 accolé à celui de M. Simiand.
 
@@ -1965,11 +1879,7 @@ non; elle n'est pas venue aux maîtres de l'enseignement
 qui enseignent, aux universitaires pauvres, pratiquement, péniblement socialistes; et quand même le
 respect de la justice ne garderait pas les universitaires
 
-pauvres contre de tels errements autoritaires, la réa-
-
-lité de leur vie économique, politique et sociale, suffi-
-
-rait à les garder; une telle idée vient à ceux qui
+pauvres contre de tels errements autoritaires, la réalité de leur vie économique, politique et sociale, suffirait à les garder; une telle idée vient à ceux qui
 
 touchent au pouvoir, aux tentations autoritaires du
 gouvernement parlementaire et politique; mais celui
@@ -1988,8 +1898,7 @@ qui ont appris la politique, serons-nous contraints de
 
 Que si l'effrayant danger d'une usurpation, d'un
 envahissement de la vie vivante par la vie scolaire a
-été constamment dénoncé quelque part, c'est assuré-
-ment dans Pages libres et dans ces Cahiers de la
+été constamment dénoncé quelque part, c'est assurément dans Pages libres et dans ces Cahiers de la
 
 Sur le collectivisme normalien, je sais parfaitement
 ce que c'est, mais on sait parfaitement aussi que je
@@ -2001,9 +1910,7 @@ caractère, je n'aime pas réussir.
 
 - Par collectivisme normalien si l'on entend les personnes, je n'en suis absolument pas; et non seulement
 je n'en suis pas, mais le collectivisme normalien n'a
-pas cessé de poursuivre ces cahiers d'une haine impla-
-
-septième cahier de la cinquième série
+pas cessé de poursuivre ces cahiers d'une haine implaseptième cahier de la cinquième série
 cable, d'un boycottage économique total, de machinations économiques attentives. Du moins il en était
 encore ainsi, à ma connaissance, au premier janvier 1904, après la rentrée effectuée de la cinquième
 
@@ -2044,8 +1951,7 @@ l'amour de la patrie; il y avait dans l'ancienne École
 normale, celle à qui désormais nous serons contraints
 de nous vanter d'avoir appartenu, trois institutions distinctes et qui fonctionnaient assez librement côte à
 côte: premièrement, et normalement, un séminaire,
-une pépinière de jeunes gèns qui se destinaient sincè-
-rement à l'enseignement secondaire des jeunes gens,
+une pépinière de jeunes gèns qui se destinaient sincèrement à l'enseignement secondaire des jeunes gens,
 qui ayant à leur entrée à l'École ou n'ayant pas leur
 licence, ne préparaient pas ou préparaient cette licence
 et qui ensuite régulièrement préparaient tous leur
@@ -2053,10 +1959,8 @@ agrégation de l'enseignement secondaire, qui ensuite,
 après trois années d'un travail modeste, honnête, partaient à leur tour de liste pour les provinces lointaines,
 où ils enseignaient, du mieux qu'ils pouvaient, de véritables lettres, de véritables sciences, de véritable philosophie à quelques jeunes gens de la bourgeoisie,
 bons élèves, à quelques jeunes gens du peuple, boursiers, bons élèves, qui enfin donnaient cet enseignement, de liberté somme toute, malgré lécrasement
-bourgeois de la petite bourgeoisie provinciale; deuxiè-
-mement dans cette École ancienne il y avait un laboratoire d'enseignement supérieur, un des plus modestes
-et des plus sérieux laboratoires d'enseignement supé-
-rieur que nous connussions en France; troisièmement
+bourgeois de la petite bourgeoisie provinciale; deuxièmement dans cette École ancienne il y avait un laboratoire d'enseignement supérieur, un des plus modestes
+et des plus sérieux laboratoires d'enseignement supérieur que nous connussions en France; troisièmement
 un petit contingent d'arrivistes, fermement résolus à se
 pousser dans le monde, quelques-uns par la voie de
 l'enseignement secondaire, devenant de la haute administration, ou, pour parler justement, du haut gouvernement universitaire; quelques-uns par la voie de l'enseignement supérieur, postulant les chaiïres brillantes
@@ -2108,8 +2012,7 @@ République, contre ce principe vivant éminemment
 républicain sans qui la République nominale ne serait
 plus qu'une loque informe de gouvernement et d'arbitraire.]
 
-Le monde est plein d'hommes qui pratiquent l'entrai-
-nement; il est encore plus plein d'hommes qui le
+Le monde est plein d'hommes qui pratiquent l'entrainement; il est encore plus plein d'hommes qui le
 subissent; dans la mentalité, dans la sentimentalité de
 
 ceux qui le subissent il y a des vertus et des vices, des
@@ -2130,8 +2033,7 @@ je les vois prendre le train, arriver sur un champ de
 grève, parler, faire appel au dévouement de la classe
 ouvrière, à l'esprit de sacrifice, à tous les sentiments
 de la solidarité; quand je les vois faire appel aux souscriptions, aux contributions, aux subventions, aux
-gros sous des pauvres et des misérables, aux misé-
-rables souscriptions de plus pauvres qu'eux; je me
+gros sous des pauvres et des misérables, aux misérables souscriptions de plus pauvres qu'eux; je me
 demande comment la parole ne leur manque pas, je
 me demande où ils trouvent le courage, j'entends le
 courage physique, épidermique, de pérorer, de haranguer ces foules miséreuses, ce peuple d'hommes hâves,
@@ -2163,14 +2065,11 @@ la nature, qui ne se représente pas la réalité, réellement,
 des livres et des souvenirs livresques, un homme qui
 ne sent pas, physiquement, l'horreur de la juxtaposition, de la comparaison fatale, la profonde incompatibilité, la physique, la naturelle contrariété de son
 discours et de son auditoire, de son discours palais et
-de son auditoire usine; je sais qu'il y a tout un endur-
-cissement professionnel, et qu'un orateur en vient à
+de son auditoire usine; je sais qu'il y a tout un endurcissement professionnel, et qu'un orateur en vient à
 faire son discours aussi indifféremment qu'un mauvais
-prêtre célèbre le saint sacrifice de la messe; mais justement cet endurcissement professionnel n'est que l'endur-
-cissement de l'inconscience et de la dureté; comme
+prêtre célèbre le saint sacrifice de la messe; mais justement cet endurcissement professionnel n'est que l'endurcissement de l'inconscience et de la dureté; comme
 l'accueil enthousiaste fait aux entraînements par les
-entraînés ne justifie pas les entraînements des entrai-
-neurs, non plus l'endurcissement des entraîneurs ne les
+entraînés ne justifie pas les entraînements des entraineurs, non plus l'endurcissement des entraîneurs ne les
 justifie pas; car si un acte est délictueux ou criminel
 en lui-même, par ses caractères intrinsèques, le bon
 , accueil qu'il reçoit des innombrables dupes et des
@@ -2227,8 +2126,7 @@ centimes, quatre timbres de quinze centimes.
 À L'abonnement de propagande cesse de fonctionner
 pour chaque série à l'achèvement de cette série; la
 quatrième série normale ayant fini fin juin 1903, on
-. pouvait jusqu'au 30 juin 1903 avoir au prix de pro-
-pagande les vingt premiers cahiers de cette série.
+. pouvait jusqu'au 30 juin 1903 avoir au prix de propagande les vingt premiers cahiers de cette série.
 L'abonnement ordinaire cesse de fonctionner pour
 - chaque série au plus tard le décembre qui suit
 … l'achèvement de cette série; ainsi du premier juillet au

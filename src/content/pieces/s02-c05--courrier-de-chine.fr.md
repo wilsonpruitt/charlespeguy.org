@@ -130,17 +130,14 @@ M. Favier était resté à son poste au Peh-Tang. Il
 eut le tort, sinon de faire arroser de pétrole et
 incendier en partie le palais du prince Li, ce dont
 on l'accuse, du moins d'acheter aux pillards, contre
-chèques payables en France, les objets les plus pré-
-cieux, qu'il a mis en vente, assez cher d'ailleurs,
+chèques payables en France, les objets les plus précieux, qu'il a mis en vente, assez cher d'ailleurs,
 car il est connaisseur. Il pourra s'expliquer là-
 
 Les religieuses se firent donner des corvées d'infirmiers, qu'elles menaient aux bons endroits; elles
 ont retrouvé sous les ruines des objets de haute
 
 valeur, fourrures, meubles, etc. D'ailleurs elles n'en
-tiennent pas boutique et en font bénéficier libéra-
-lement les malades; inutile de dire que les infir-
-miers ne se sont pas oubliés.
+tiennent pas boutique et en font bénéficier libéralement les malades; inutile de dire que les infirmiers ne se sont pas oubliés.
 On discute sur le nombre de caisses emportées
 par un officier très haut placé. Les uns disent deux
 cents, d'autres deux mille. Un officier a la caisse
@@ -155,8 +152,7 @@ veux pas, je le répète, formuler ici des accusations,
 mais constater un état d'esprit et des tendances. Un
 médecin de la marine, plus habile, expédie des
 caisses une à une par divers convois. Au départ, il
-s'en ira, tel Hippocrates, avec les cantines régle-
-mentaires. Il y a enfin des histoires étranges et
+s'en ira, tel Hippocrates, avec les cantines réglementaires. Il y a enfin des histoires étranges et
 louches de parts de prise: j'ai vu, cela est certain,
 des officiers protester hautement contre la destinée
 parce que leur part n'était que de 1.500 francs.
@@ -196,8 +192,7 @@ ce n'est pas la peine d'installer un fourneau; vous
 prendrez le fourneau des Chinois, ces gens-là n'ont
 pas besoin de manger. »
 D'une façon générale les officiers sont indignés et
-navrés par l'excès même et l'inutilité de ces dévas-
-tations. J'ai vu, je le répète, de vieux coloniaux,
+navrés par l'excès même et l'inutilité de ces dévastations. J'ai vu, je le répète, de vieux coloniaux,
 revenus du Soudan et de Madagascar. C'est la mission Voulet-Chanoine sur dix mille kilomètres
 carrés, avec un million de victimes. Des oftciers énergiques essaient de rétablir l'ordre; il y a
 des éléments déplorables; la moitié de l'infanterie
@@ -296,13 +291,11 @@ tiennent, par exemple le capitaine D****à T°******),
 nos troupes sont encore celles qui ont le moins
 pillé. J'ai rencontré ces officiers allemands si chics
 qui redescendent de Pékin en étalant des fourrures
-qui ne leur ont pas coûté cher. En fait, tel lieute-
-nant allemand a six mille francs d'économies; nous
+qui ne leur ont pas coûté cher. En fait, tel lieutenant allemand a six mille francs d'économies; nous
 n'en avons pas encore. »
 « Le général Baïlloud s'est honoré et nous a hono-
 « Militairement parlant, les seules forces sérieuses
-ici sont les forces françaises, allemandes et japo-
-naises. Les Américains sont une jolie bande d'aven-
+ici sont les forces françaises, allemandes et japonaises. Les Américains sont une jolie bande d'aven-
 è turiers, fort beaux hommes et bien équipés. Les
 Indous sont de beaux brigands d'opéra. Les Russes
 sont ignobles. Ils n'ont rien fait pour nous, ont
@@ -322,8 +315,7 @@ D'ailleurs on parlera de tout cela en France, et il
 y aura des gens pour attacher des grelots. Vous avez
 ici des impressions sincères, aussi exactes que possible, et dépouillées d'esprit de parti.
 
-Il y a beaucoup à dire sur la question des missionnaires. J'ai recueilli sur leur compte énormé-
-ment d'impressions défavorables, mais je me dois
+Il y a beaucoup à dire sur la question des missionnaires. J'ai recueilli sur leur compte énormément d'impressions défavorables, mais je me dois
 moi-même de les discuter et de les contrôler.
 
 Ces notes ont été écrites en hâte et je n'ai pas le

@@ -257,8 +257,7 @@ Il faut croire en lui, qui est d'espérer.
 Il faut avoir confiance en Dieu, il a bien confiance en
 Il faut faire confiance à Dieu, il nous a bien fait confiance
 nous. à
-…._ Il faut faire espérance à Dieu, il nous a bien fait espé-
-rance à nous.
+…._ Il faut faire espérance à Dieu, il nous a bien fait espérance à nous.
 Il faut faire crédit à Dieu, il nous a bien fait crédit à
 Tous les crédits..
 Le 11 faut faire foi à Dieu, il nous a bien fait foi à nous.
@@ -344,8 +343,7 @@ Et il leur fit cette parabole, disant: RENE
 à Quel homme de vous, qui a cent brebis; A. és.
 (Ceci est selon saint Luc); HSE
 …._ Bis'il en perd une, SE.
-Estce qu'il ne renvoie pas, (ne laisse pas), les quatre-
-vingi-dix-neuf dans le désert, 4 ASE
+Estce qu'il ne renvoie pas, (ne laisse pas), les quatrevingi-dix-neuf dans le désert, 4 ASE
 Quae perierat, qui était périe, qui avait péri, FÉES
 - C'était fait.: ES
 … Il la place sur ses épaules se réjouissant; TRES
@@ -439,8 +437,7 @@ donnant les autres.
 
 Enfin je veux dire (seulement) les laissant pendant ce
 A temps à elles-mêmes.
-La pénitence, nous le savons, n'est déjà pas si bril-
-lant que ça.
+La pénitence, nous le savons, n'est déjà pas si brillant que ça.
 LE n'est pas si reluisant,.;
 à (Il est vrai que Dieu ne quitte jamais personne).,
 C'est un sentiment honteux, je veux dire un sentiment
@@ -523,13 +520,12 @@ de promesse qui source au cœur de l'espérance
 Et qui rejaillit dans la pénitence même,
 Dans la basse pénitence.
 Telle la force unique de sève au cœur d'un chêne.
-Nous sommes tous enfants de Dieu, mon enfant, égale-
-ment; sur le même pied.
+Nous sommes tous enfants de Dieu, mon enfant, également; sur le même pied.
 Il faut tout entendre au pied de la lettre, mon enfant, «
 
 a littéralement cette âme qui a fait jouer l'espérance de
 Dieu, qui a couronné l'espérance de Dieu.
-4 Comme Jésus morte (plus morte que Jésus) de sa propre
+Comme Jésus morte (plus morte que Jésus) de sa propre
 : mort est ressuscitée d'entre les mortes.
 BE: (Plus morte que Jésus, infiniment plus morte, éternelleF4 ment plus morte, car elle était morte de la mort
 Comme Jésus elle est ressuscitée d'entre les morts.
@@ -641,8 +637,7 @@ Pour faire le jeu de l'espérance,
 S'est laissé mettre
 En face du pécheur.
 ; Il craint de lui, puisqu'il craint pour lui.
-ee: Tu comprends, je dis: Dieu craint du pécheur, puis-
-qu'il craint pour le pécheur.
+ee: Tu comprends, je dis: Dieu craint du pécheur, puisqu'il craint pour le pécheur.
 Quand on craint pour quelqu'un, on craint de ce quel-
 C'est à cette loi commune que Dieu s'est laissé mettre. À
 A ce niveau commun.;
@@ -701,8 +696,7 @@ Le plus infime des pécheurs peut découronner, peut
 Une espérance de Dieu.
 
 - Et c'est de nous que Dieu attend
-Le couronnement ou le découronnement d'une espé-
-rance de lui.
+Le couronnement ou le découronnement d'une espérance de lui.
 Le Créateur a besoin de sa créature, s'est mis à avoir
 besoin de sa créature.
 Il ne peut rien faire sans elle.
@@ -732,7 +726,7 @@ Par nous peuvent ne pas tomber juste, à à
 La sagesse de Dieu par nous peut défaillir.
 rev Effrayante liberté de l'homme. "5
 per Nous pouvons faire tout manquer. SE
-8 à: Nous pouvons être absents. à
+8 Nous pouvons être absents. à
 (4 Ne pas être le jour qu'on nous appelle.:
 Nous pouvons ne pas répondre à l'appel
 (Excepté dans la vallée du Jugement) a
@@ -1050,7 +1044,7 @@ paraboles sont grandes.
 Et notamment les trois paraboles de l'espérance.
 Et toutes les trois paraboles de l'espérance en outre;
 sont jeunes, mon enfant.
-. Mais sur celle-ci des centaines et des milliers d'hommes «: ont pleuré.
+. Mais sur celle-ci des centaines et des milliers d'hommes ont pleuré.
 Des centaines de milliers d'hommes.
 Battus des mêmes sanglots pleuré les mêmes larmes.
 ; Se recommençant les uns les autres.
@@ -1104,7 +1098,7 @@ Et il est comme les autres, il a pleuré aussi.;
 Il est un trésor de Dieu, quand le pécheur s'éloigne
 Dans les ténèbres grandissantes.
 Quand des ténèbres
-:: Voilent ses yeux il est un trésor de Dieu qu'ilnejettera
+Voilent ses yeux il est un trésor de Dieu qu'ilnejettera
 1 point aux ronces de la route
 Car c'est un mystère qui suit, c'est une parole qui suit …
 Dans les plus grands à
@@ -1199,8 +1193,7 @@ le ‘porche Tree
 Sera, fera une bonne journée. - FER
 Depuis tant de temps qu'il y a des jours. Hat
 Et que recommence.:
-Que tous les démentis ne comptent pas, tant de dé-
-mentis qu'ils reçoivent précisément tous les jours.
+Que tous les démentis ne comptent pas, tant de démentis qu'ils reçoivent précisément tous les jours.
 ? Que les démentis ne soient comme rien, ne les arrêtent
 pas, que les démentis de tous les jours,;
 Innombrables comme les jours,.
@@ -1277,7 +1270,7 @@ Et il faut que ma grâce soit tellement grande.
 Les jours mauvais pleuvent; sans se presser; sans se
 à lasser; l'heure après l'heure, le jour après le jour.
 Les jours mauvais pleuvent.
-1 Et de toute cette eau qui glisse inlassable du ciel, (d'un
+Et de toute cette eau qui glisse inlassable du ciel, (d'un
 ciel qu'ils pourraient dire mauvais),
 ? De toute cette eau qui glisse par terre, de toute cette
 3 (D'autres en feraient des marais et des marécages
@@ -1324,14 +1317,14 @@ Envaseraient d'un limon crasseux la terre végétale,
 . Noïieraient toute pousse et bourgeonnement
 4: Sous les varechs et les vers de vase.
 a Tous ces jours mauvais qui pleuvent et pleuvent
-4 Partout ailleurs inonderaient, noieraient, de souillures,
+Partout ailleurs inonderaient, noieraient, de souillures,
 à de bavures,
 La bonne terre végétale,
 : Enliseraient, couvriraient de pestilences à
 a Toute ma création.
 Mais ici, dit Dieu, dans cette douce France, ma plus
 Dans cette saine Lorraine,
-3 Ici ils sont bons jardiniers.
+Ici ils sont bons jardiniers.
 : C'est des vieux jardiniers finis, des fins jardiniers depuis
 Es. quatorze siècles qu'ils suivent les leçons de mon Füs.
 Ils ont tout canalisé, tout ameubli dans les jardins de
@@ -1362,8 +1355,7 @@ Et tes secrètes sources dans tes mystérieux.
 Dans tes merveilleux, dans tes douloureux jardins.
 Toujours une eau courante, une eau saine arrosera tes
 Toujours une eau saine montera dans ton Blé.
-Toujours une eau saine, rare, abondante, une eau pré-
-cieuse, toujours une eau saine montera dans ta Vigne.
+Toujours une eau saine, rare, abondante, une eau précieuse, toujours une eau saine montera dans ta Vigne.
 Peuple qui fais le Pain, peuple qui fais le Vin.:
 O ma terre lorraine, Ô ma terre française,
 Peuple qui suis le mieux, qui as le mieux pris les leçons À
@@ -1479,8 +1471,7 @@ Les autres ne font que des horreurs.
 Vous êtes celui qui dessine le jardin du Roi.
 Aussi je vous le dis en vérité c'est vous qui serez mes
 C'est vous qui dessinerez mes jardins de Paradis.
-Il a y avoir quelque chose, dit Dieu, entre nos Fran-
-çais et cette petite Espérance.:.
+Il a y avoir quelque chose, dit Dieu, entre nos Français et cette petite Espérance.:.
 
 Peuple laborieux, peuple du plus profond labeur.
 è Ce n'est pas lui qui stagne-et croupit dans les marais
@@ -1557,9 +1548,7 @@ Les eaux mauvaises ne les empoisonnent jamais.
 
 Ils boivent impunément de tout.
 
-Par cette accointance qu'ils ont avec cette petite Espé-
-
-le porche
+Par cette accointance qu'ils ont avec cette petite Espéle porche
 On se demande, on dit: Mais comment que se fait
 Que cette fontaine Espérance éternellement coule;
 Qu'elle jaillit éternellement, qu'elle source éternellement,
@@ -1674,7 +1663,7 @@ peuple, peuple jardinier, qui pour les processions
 Fais pousser les roses de France.
 Jardinier du roi, jardinier de fleurs et de fruits, jardinier
 
-4 Peuple tu es mon jardinier.
+Peuple tu es mon jardinier.
 Jardinier dans le verger, jardinier dans le potager, jardi3 nier dans le jardin.
 ; Jardinier dans le champ même.
 Tes forêts sont plus propres que le parc même du
@@ -1781,8 +1770,7 @@ Peuple patient, qui as la patience (et le goût) de
 Peuple qui ne cesses point de désherber. Plus vite et
 plus constant et plus infatigable que la nature même.
 : Plus penché sur la terre, plus courbé, plus penché à
-désherber, toi qui vas plus vite et qui est plus con-
-stant et plus infatigable à désherber
+désherber, toi qui vas plus vite et qui est plus constant et plus infatigable à désherber
 Que la mauvaise herbe à pousser (et ce n'est pas peu
 dire)
 Que la mauvaise nature même à faire pousser la mau-
@@ -2067,7 +2055,7 @@ Au trésor éternel des mérites.
 Sur terre tout se recommence. Dans la même matière.
 Mais au ciel tout compte
 Et tout s'additionne. La grâce de chaque jour
-(Quand même elle recommencerait la grâce de la veille) A »!
+(Quand même elle recommencerait la grâce de la veille) A
 
 ; 2 Au trésor éternel des grâces. Et c'est pour cela que la
 È Seule ne ménage rien. Quand Jésus travaillait chez son
@@ -2338,7 +2326,7 @@ Est celui qui est le plus agréable à Dieu.
 Celui qui dort comme un enfant
 Est aussi celui qui dort comme ma chère Espérance.
 
-4 Et moi je vous dis Remettez à demain
+Et moi je vous dis Remettez à demain
 Ces soucis et ces peines qui aujourd'hui vous rongent
 
 3% Et aujourd'hui pourraient vous dévorer.
@@ -2495,8 +2483,7 @@ Mais ils ne sont point égaux, ils n'ont point la même
 dignité dans cette chaîne.
 C'est la nuit qui est continue. C'est la nuit qui est le
 Du temps, la réserve d'être
-Et le jour n'ouvre dessus que par de méchantes fené-
-tres et des poternes.
+Et le jour n'ouvre dessus que par de méchantes fenétres et des poternes.
 C'est le jour qui rompt et le jour n'ouvre dessus
 Que par de pauvres jours
 ; De souffrance. C'est le jour qui crève et les jours sont;
@@ -2524,8 +2511,7 @@ O nuit, ma plus belle invention, ma création auguste
 entre toutes.
 Ma plus belle créature. Créature de la plus grande
 Qui donnes le plus de matière à l'Espérance.
-. Qui es l'instrument, qui es la matière même et la rési-
-dence de l'Espérance.
+. Qui es l'instrument, qui es la matière même et la résidence de l'Espérance.
 Et aussi, (et ainsi), au fond eréature de la plus grande
 Car c'est toi qui berces toute la Création
 … Dans un Sommeil réparateur.

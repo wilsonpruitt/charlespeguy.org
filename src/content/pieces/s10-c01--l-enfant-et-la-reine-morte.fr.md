@@ -15,11 +15,9 @@ paraissant seize fois par an
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
-grand nombre de documents, de textes formant dos-
-si grand nombre de cahiers de lettres, — nouvelles, «
+grand nombre de documents, de textes formant dossi grand nombre de cahiers de lettres, — nouvelles, «
 romans, drames, dialogues, poèmes et contes: — un VAN)
-si grand nombre de cahiers d'histoire et de philo-
-sophie; et ces documents, renseignements, textes,
+si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes,
 dossiers et commentaires, ces cahiers de lettres,
 d'histoire et de philosophie étaient si considérables « que nous ne pouvons pas songer en donner ici
 l'énoncé même le plus succinct; pour savoir ce qui a
@@ -75,9 +73,7 @@ qui commence, pendant toute la suivante onzième série
 nous nous consacrerons tout entiers à l'exécution, au
 À parfait achèvement je ne dis pas seulement de la plus
 grande entreprise que nous ayons jamais faile, je dis
-de la première grande entreprise que nous ayons con-
-çue, dont nous ayons formé le plan depuis le commen-
-cement de notre existence.
+de la première grande entreprise que nous ayons conçue, dont nous ayons formé le plan depuis le commencement de notre existence.
 On trouvera ci-après le dessein, les principes, les
 bases, le détail de cette opération; notre collaborateur
 Pierre Mille nous a fait en effet l'amitié de nous permettre de présenter cette annonce en tête d'un cahier
@@ -85,10 +81,8 @@ qui lui revenait tout entier.
 Je remets en toute confiance aux mains de nos amis,
 aux mains de nos abonnés, aux mains du public même
 le sort de cette opération; sans aucune hésitation et
-sans aucun doute je fais appel au dévouement, à la fidé-
-lité, à l'amitié des uns; au dévouement, à la fidélité des
-autres; à l'amitié de tous; à la justice de tous; notam-
-ment à la justice du grand public; je compte même et
+sans aucun doute je fais appel au dévouement, à la fidélité, à l'amitié des uns; au dévouement, à la fidélité des
+autres; à l'amitié de tous; à la justice de tous; notamment à la justice du grand public; je compte même et
 Je sais par des précédents nombreux que je puis compter
 sur la bienveillance et la bonne camaraderie de la plupart de nos confrères.
 Pour la première fois de notre vie nous faisons une
@@ -126,8 +120,7 @@ QuINZAINE publieront par souscription une
 édition commémorative de POLYEUCTE.
 Cette édition portera le nom de: Édition
 de la Décennale des Cahiers de Quinzaine; ou, plus brièvement: édition de la
-La véritable beauté d'un livre doit s'en-
-tendre de la beauté de l'œuvre écrite; de
+La véritable beauté d'un livre doit s'entendre de la beauté de l'œuvre écrite; de
 l'absence de l'illustration; de la beauté de?
 l'absence de polychromie; de la beauté du
 ( papier; du nombre limité des exemplaires.
@@ -151,8 +144,7 @@ de l'impression, il aura naturellement
 pas une ligne dans le livre, pas un mot du
 licre, pas une virgule qui ne soit de Corneille, du texte de Corneille; on n'attend
 pas de nous que-nous soyons assez barbares
-pour aller alourdir, altérer un texte, — sur-
-tout et infiniment moins un tel texte, — le
+pour aller alourdir, altérer un texte, — surtout et infiniment moins un tel texte, — le
 « déshonorer de nos misérables commentaires.
 
 Pareillement, — et parallèlement, — je
@@ -171,8 +163,7 @@ entièrement à nous; il ne s'agit, il ne peut
 s'agir aucunement de faire une édition d'imitation, une édition de pièces et de morceaux empruntés, imilés des éditions du
 
 Le texte sera établi par M. Péguy, ancien
-élève de lancienne École Normale Supé-
-rieure, sur les éditions publiées du vivant
+élève de lancienne École Normale Supérieure, sur les éditions publiées du vivant
 
 de Corneille.
 
@@ -197,8 +188,7 @@ que lui ont acquise trente ans d'exercice
 En outre et particulièrement la mise en
 pages sera faile page par page Sur La copie
 et dessinée page par page sur les épreuves
-à en premières par M. Péguy, fondateurgérant des Cahiers de la Quinzaine et secré-
-taire de la rédaction.
+à en premières par M. Péguy, fondateurgérant des Cahiers de la Quinzaine et secrétaire de la rédaction.
 È En outre la lecture typographique et
 textuelle des épreuves sera faite et assurée,
 en outre des imprimeurs, par M. Péguy; par
@@ -214,8 +204,7 @@ n'auront qu'à nous en donner l'ordr? en
 nous envoyant leur inscription. Ces exemplaires seront livrés en feuilles collationnées, à plat, non pliées non couverts, les
 deux couvertures à part, dans un grand
 cartonnage lui-même enveloppé dans un
-emballage protecteur. Cette solution pré-
-sente, on le sai® wmé avantage considérable
+emballage protecteur. Cette solution présente, on le sai® wmé avantage considérable
 que la situation resw ainsi entière pour le
 relieur. Et il ne faut jamais empêcher quelqu'un de faire monter, s'il en a le bon goût,
 les beaux papiers en onglet comme un
@@ -239,8 +228,7 @@ un seul exemplaire..
 La rareté d'une édition peut s'entendre en )
 Premièrement et en ce premier sens que
 l'édition dont il s'agit est rare elle-même À
-parmi les éditions, qu'il y a très peu d'édi-
-tions de la même sorte, de la même famille,
+parmi les éditions, qu'il y a très peu d'éditions de la même sorte, de la même famille,
 sorties de la même maison, fabriquées par À
 les mêmes imprimeurs pour le même
 Deuxièmement et en ce deuxième sens
@@ -259,17 +247,14 @@ Elle aura donc un caractère de sorte, de »
 famille, et de date rigoureusement unique.
 
 Outre que le texte lui-même apporte un
-caractère unique indiscutable et qu'on trou-
-
-verait malaisément un deuxième texle
+caractère unique indiscutable et qu'on trouverait malaisément un deuxième texle
 comme Polyeucte.
 Deuxièmement la rareté de l'édition en-
 : tendue au deuxième sens de ce mot rareté,
 non plus au sens extérieur, mais au.sens
 intérieur, comme la rareté des exemplaires
 dans l'édition, ne sera pas non plus maxima À
-seulement. Elle ne sera pas moins égale-
-ment TOTALE. Car il ne sera pas mis dans
+seulement. Elle ne sera pas moins également TOTALE. Car il ne sera pas mis dans
 le commerce un seul exemplaire. Mis dans
 le commerce, c'est-à-dire vendu à tout venant après la fabrication achevée. IL;
 aura, il n'existera jamais que des exem-?
@@ -293,16 +278,14 @@ Premièrement sans aucune exception
 
 Deuxièmement et d'ensemble le lendemain
 du jour où l'inscription aura été close il sera à
-établi par M. André Bourgeois, administra-
-teur des cahiers, sous la forme d'un acte
+établi par M. André Bourgeois, administrateur des cahiers, sous la forme d'un acte
 authentique, un bordereau récapitulatif,
 numérique et nominatif, des inscriptions.
 Ainsi ces deux moyens se contrôleront et
 se confirmeront eux-mêmes entre eux.
 Ce bordereau fera lui-même automati- (
 quement le livre d'or de la décennale des
-Le format adopté est le in-folio grand-
-jésus. C'est le plus grand des formats typographiques. C'est le seul aussi où les
+Le format adopté est le in-folio grandjésus. C'est le plus grand des formats typographiques. C'est le seul aussi où les
 grands papiers puissent développer leur
 Les papiers seront gradués, et proportionnellement les prix seront eux-mêmes
 éghelonnés sur dix degrés: À
@@ -338,8 +321,7 @@ posé; l'exemplaire.......... 5.000 francs tort
 Ces soins et ces conditions feront de cette
 . édition un monument unique.
 Cette édition sera une édition classique;
-dans toute la force du terme; essentielle-
-ment et très purement classique; très pure; 1}
+dans toute la force du terme; essentiellement et très purement classique; très pure; 1}
 l'édition (la plus) classique d'une œwre
 classique; sans romantisme, sans (aucune)
 barbarie, et aussi sans (aucun) byzanti-
@@ -347,8 +329,7 @@ barbarie, et aussi sans (aucun) byzanti-
 La fabrication aussi soignée d'un ouvrage À À
 aussi considérable devant nous demander un
 très long temps et beaucoup de travail, nous
-prions les personnes qui voudront bien s'in-
-scrire pour un {ou plusieurs) exemplaire{s)
+prions les personnes qui voudront bien s'inscrire pour un {ou plusieurs) exemplaire{s)
 , de vouloir bien envoyer leur inscription dans
 le plus bref délai à M. André Bourgeois,;
 administrateur des cahiers, 8, rue de la
@@ -369,8 +350,7 @@ Enfin les personnes qui voudraient se faire
 imprimer pour leur exemplaire ou pour À À
 d'autres exemplaires qu'elles souscriraient
 des attributions d'une forme, d'une rédaction
-particulière, par exemple pour une biblio-
-thèque, un musée, une institution; pour un
+particulière, par exemple pour une bibliothèque, un musée, une institution; pour un
 souvenir ou pour un cadeau; pour un ami;
 “sont priées de nous en adresser, en même
 temps que l'inscription correspondante, le
@@ -394,8 +374,7 @@ faut, la date du fini d'imprimer, ou, à son à
 è défaut, la date du cahier même; DE
 quand il y a lieu, c'est-à-dire pour nos LAN Le
 éditions antérieures et pour nos cinq pre- LA à
-) mières séries, la page du catalogue ana-
-lytique sommaire où ce cahier se trouve
+) mières séries, la page du catalogue analytique sommaire où ce cahier se trouve
 Pierre Mille, — l'enfer du Congo léopoldien (VII-6, mardi
 — — les deux Congos devant la Belgique et devant la À
 France; le Congo léopoldien devant la Chambre belge
@@ -405,22 +384,19 @@ TOP SNL....L 0: trois francs cinquante
 nie que
 
 en vente à la librairie des cahiers
-Prerre Mie. — De Thessalie en Crète, — impres-
-sions de campagne Avril-Mai 1897; — avec 16 gra- à
+Prerre Mie. — De Thessalie en Crète, — impressions de campagne Avril-Mai 1897; — avec 16 gra- à
 vures hors texte, — Berger-Levrault et Cie éditeurs,
 1898; En Thessalie; de Nisch à Pharsale; de Pharsale
 à Domokos; le soldat turc; En Grèce et en Crète: à
 Athènes; l'Hétairie ethnique; en Crète; les événements;
 les insurgés; les insurgés et les puissances............
 Prerre Mizce. — Au Congo belge, — avec des notes à
-et des documents récents relatifs au Congo français; —;
+et des documents récents relatifs au Congo français;
 Armand Colin et Ci° éditeurs, 1899; caractéristiques du
 Congo Belge; le bas fleuve; de Matadi au Stanley-
 Pool; le chemin de fer; le système d'exploitation; l'État
 et son souverain; le Congo français; les sociétés dans
-les deux Congos; les points faibles du Congo léopol-
-
-en vente à la librairie des cahiers
+les deux Congos; les points faibles du Congo léopolen vente à la librairie des cahiers
 
 Prerre Mie. — Sur La Vaste Terre; — Calmann-
 Lévy éditeurs, 1906; — Ramary et Kétaka; Barnavaux, 2]
@@ -430,16 +406,14 @@ Murray; les\Chinois: l'aveugle 552 CES
 
 … Perre Mise. — Barnavaux et quelques femmes;
 
-l'Ile aux Lépreux; Barnavaux vainqueur: le Roman-
-cero; la Nef morte; l'Homme qui a les sirènes: a
+l'Ile aux Lépreux; Barnavaux vainqueur: le Romancero; la Nef morte; l'Homme qui a les sirènes: a
 l'Attaque; le Japonais; la Justice; l'Aventure de Sara;
 Au delà du bien et du mal; les Pigeons; la Victoire
 
 aux Cahiers de la Quinzaine!
 
 Prerre Mure. — quand Panurge ressuscita:
-six contes: le Miracle; la Centenaire; quand ils sou-
-levèrent la Russie; la véridique histoire de Bellamano;!
+six contes: le Miracle; la Centenaire; quand ils soulevèrent la Russie; la véridique histoire de Bellamano;!
 l'amant discret; l'inventaire;
 quand Panurge ressuscita: où Panurge causa de la
 loi de séparation entre l'Église et l'État; où Panurge 1}
@@ -450,8 +424,7 @@ Bosphore; derviches tourneurs et derviches hurleurs; a
 Brousse; le maître d'Yildiz;
 presque de la critique: le ménage Chimène-Rodrigue;
 un moraliste surfait; Cagayous; pour servir, sous toutes à
-réserves, à l'histoire de Galilée; jeux de page; littéra-
-ture policière; romans à lire et romans à proscrire; %.
+réserves, à l'histoire de Galilée; jeux de page; littérature policière; romans à lire et romans à proscrire; %.
 seisième cahier de la neuvième série; un cahier blanc
 de 216 pages; grand jésus.. trois francs cinquante,
 
@@ -477,8 +450,7 @@ sans m'imaginer qu'il s'envoler, qu'il s'envole déjà,
 pour que fasse de jolis plis, droits sur le haut du
 corps, courbes et tendrement ondulés plus bas que ses
 petits pieds, sous un vent très doux, au milieu d'un ciel
-Il m''embrassa. Il met, à embrasser, une condescen-
-dance délicieuse. Il sent qu'il fait plaïsir, et il en est
+Il m''embrassa. Il met, à embrasser, une condescendance délicieuse. Il sent qu'il fait plaïsir, et il en est
 heureux de tout son cœur magnifique. Il embrasse
 
 comme les chiens, les chats, les chevaux — des
@@ -489,8 +461,7 @@ Et, après tout cela, si c'est vous tout de même qu'il
 embrasse, vous êtes séduit, conquis, honoré. C'est
 
 Quand il eut senti que, le cou dans ses bras ronds,
-la tête sous ses cheveux clairs, j'étais devenu sa pro-
-priété bénévole, il me dit tout tranquillement:
+la tête sous ses cheveux clairs, j'étais devenu sa propriété bénévole, il me dit tout tranquillement:
 
 — Sais-tu où tu me mèneras demain?
 
@@ -508,9 +479,7 @@ nous. Alors il faisait aboyer Médor, en lui serrant les;
 coins de la gueule, il lui mettait la langue contre les
 dents, la langue sur le voile du palais, la langue en bas,
 la langue en haut; et Médor, là-dessus, prononçait des
-mots très difficiles, comme « apocalypse « diction-
-naire » et « caramel ». C'était très curieux, mais insufli-
-sant pour monsieur Pierre, qui espérait toujours que,,
+mots très difficiles, comme « apocalypse « dictionnaire » et « caramel ». C'était très curieux, mais insuflisant pour monsieur Pierre, qui espérait toujours que,,
 sachant parler, ce chien en profiterait pour raconter
 des histoires de chien. Une autre fois il a fallu, sans
 répit, courir avec lui au château de Versailles, « où il y
@@ -526,7 +495,7 @@ billée, dans le plus amusant et le plus puéril des bassins,
 celui où il y a de si grosses grenouilles de bronze, qui
 crachent de l'eau. Et après ça, devenus mari et femme,
 tout vêtus d'or rose pour des noces innocentes, ils sont
-arrivés, par la grande galerie de glaces, qui n'en finit à!
+arrivés, par la grande galerie de glaces, qui n'en finit
 pas, dans la chambre royale, où les fauteuils sont en:
 or, le lit en or, les murs en or. Peau-d'Ane, quoi!-c'est 5 à
 Peau-d'Ane: une princesse merveilleuse parmi des mou- au
@@ -539,13 +508,10 @@ ces cheveux tombent sur un manteau bleu de ciel, étoilé
 Je crois aussi que l'intérêt particulier que monsieur AUS
 Pierre prend à Louis XIV vient de ce qu'on l'appelle
 toujours, lui, « le petit prince ». Et pour les enfants les A
-mots sont sorciers, ils créent les choses. Alors, pour-
-quoi ne deviendrait-il pas roi plus tard? Il est naturel, À
+mots sont sorciers, ils créent les choses. Alors, pourquoi ne deviendrait-il pas roi plus tard? Il est naturel, À
 en grandissant, de monter en grade. Et puis ses parents
-sont des personnes très bien pensantes, puisqu'ils appar-
-tiennent à notre meilleure bourgeoisie, celle qui est
-riche, très riche, et qui peut remonter à deux généra-
-tions d'aïeux, presque à 1789, la nuit des temps! On
+sont des personnes très bien pensantes, puisqu'ils appartiennent à notre meilleure bourgeoisie, celle qui est
+riche, très riche, et qui peut remonter à deux générations d'aïeux, presque à 1789, la nuit des temps! On
 parle beaucoup chez eux des choses dont il est séant
 de parler, et par conséquent des rois, du respect qu'on
 
@@ -574,8 +540,7 @@ qu'il veut, parce que je comprends pourquoi il le veut,;
 en vertu d'un miracle dont je bénis le ciel. Parfois, nous
 plantons, devant nous, dans nos longues causeries, des,
 mots solitaires et magiques, comme lion, navire, ca- À
-verne, serpent, hache, couronne, et nous nous commu-
-niquons ce que fait naître en nous leur féconde lumière:
+verne, serpent, hache, couronne, et nous nous communiquons ce que fait naître en nous leur féconde lumière:
 des choses dont vous n'avez pas idée, vous autres,
 
 Ah tristes gens sérieux, mais qui sont secrètes, très secrètes,
@@ -587,16 +552,13 @@ reine. Sa mère, qui avait été, comme tout Paris, visiter
 la chapelle érdente, avait dit, fort imprudemment, « que
 ce n'était pas effrayant ». Il avait donc décidé qu'il
 irait, imposé sa volonté.
-Et le lendemain, nous partimes pour l'hôtel de Cas-
-tille, avenue Kléber. M. Pierre était tout ému. Non
+Et le lendemain, nous partimes pour l'hôtel de Castille, avenue Kléber. M. Pierre était tout ému. Non
 point qu'il éprouvât quelque anxiété de voir, pour la
 première fois, une forme humaine à jamais immobile.
 Les enfants sont comme les dieux immortels: ils ne
-savent point ce que c'est que la mort. Mais l'enchante-
-ment des grandeurs royales était sur lui. Il avait voulu
+savent point ce que c'est que la mort. Mais l'enchantement des grandeurs royales était sur lui. Il avait voulu
 qu'on de fit très beau et craignait de n'être pas encore.
-assez beau. S'il ignorait des mots d'étiquette et de pro-
-tocole, la chose le préoccupait. Nous arrivämes devant LE
+assez beau. S'il ignorait des mots d'étiquette et de protocole, la chose le préoccupait. Nous arrivämes devant LE
 la demeure de la souveraine.
 — C'est ici, dis-je.
 M. Pierre eut un frisson de respect, avant de lever
@@ -652,10 +614,8 @@ décu, il était tombé d'un rêve.
 vêétir les cuirasses, qui ne font rien dans cet escalier,
 pas plus que dans le nôtre. Il n'y avait pas de parc,!
 pas de statues, pas de seigneurs, pas d'or comme à
-Versailles. Les salons sont comme chez nous, les meu-
-bles sont comme chez nous, il y a des photographies
-comme chez nous; c'est peut-être les mêmes photogra-
-phies. Ce n'est pas ce que je croyais. Tout est comme
+Versailles. Les salons sont comme chez nous, les meubles sont comme chez nous, il y a des photographies
+comme chez nous; c'est peut-être les mêmes photographies. Ce n'est pas ce que je croyais. Tout est comme
 à la maison.
 Vers l'avenue Hoche, pourtant, il se rasséréna. Insen- pue
 siblement, les comparaisons qu'il avait faites l'avaient
@@ -713,8 +673,7 @@ paraissait assez ridicule, mais il n'admettait pas la plai- » santerie. En somm
 petite société assez tranquille, et nul ne s'étonnera si
 j'ajoute qu'elle était très fermée.
 Un beau jour, tout cela fut changé; des hommes il
-vinrent, armés de pelles et de pioches, qui boulever-
-sèrent notre petit ermitage. J'avais pris l'habitude du
+vinrent, armés de pelles et de pioches, qui bouleversèrent notre petit ermitage. J'avais pris l'habitude du
 repos; leur agitation me parut à la fois troublante et
 grossière. Cependant, je me sentis intérieurement flatté, 1]
 quand je compris que c'était moi qu'ils cherchaïient.
@@ -729,11 +688,8 @@ la sobriété. » Peu de temps après, on me présenta au
 préfet de la Seine. Ce haut magistrat s'écria fort
 — Il faut le faire partir tout de suite, avant qu'il soit
 réclamé par mon collègue préfet de police!
-J'avais bien quelques petites peccadilles à me repro-
-cher, mais elles dataient du temps où j'étais corsaire,
-et j'ose affirmer que depuis très longtemps, ma con-
-
-duite est restée au-dessus de toute critique. Je crus:
+J'avais bien quelques petites peccadilles à me reprocher, mais elles dataient du temps où j'étais corsaire,
+et j'ose affirmer que depuis très longtemps, ma conduite est restée au-dessus de toute critique. Je crus:
 donc devoir protester. 1 FAT
 — On craint sans doute, dis-je, que je ne cause du.
 : désordre, comme jadis quand je ravageai les côtes à
@@ -744,16 +700,14 @@ M. le préfet de la Seine me répondit courtoisement:
 arrêter. Mais les personnes qui trouvent dans votre
 : situation sont soumises, en vertu des règlements, à la
 surveillance de la police, et il leur est interdit de sortir
-sans son autorisation, qu'elle n'accorde en général qu'après une instance de plusieurs mois. Or, Son Excel-
-lence l'ambassadeur des États-Unis, M. Mac Cormick,
+sans son autorisation, qu'elle n'accorde en général qu'après une instance de plusieurs mois. Or, Son Excellence l'ambassadeur des États-Unis, M. Mac Cormick,
 désire vous voir immédiatement pour affaires pressantes. J'ai promis de vous conduire chez lui de ce
 Je hâtai mes préparatifs de départ. L'ambassadeur
 des États-Unis! J'étais fier que ma première visite fût à
 pour un personnage de cette importance! Cependant,
 on ne nous permit pas de quitter la place avant que
 j'eusse subi la visite d'un certain docteur qui se livra
-À sur ma personne à l'examen le plus blessant. Il com-
-mença par déclarer que j'avais à l'oreïlle droite le
+À sur ma personne à l'examen le plus blessant. Il commença par déclarer que j'avais à l'oreïlle droite le
 même défaut que sur le buste qu'a fait de moi le
 sculpteur Houdon. Naturellement! Je ne pouvais pas
 me changer pour lui faire plaisir. Après quoi il tira un
@@ -762,12 +716,10 @@ Ne mètre de sa poche, me mesura comme un stère de bois,
 “ee C'est peut-être un usurpateur!
 
 Je n'ai jamais été patient. Si j'avais ramasser un
-moellon, je le lui aurais jeté à la figure. Franklin n'au-
-rait pas fait tant d'histoires, et pourtant c'était un
+moellon, je le lui aurais jeté à la figure. Franklin n'aurait pas fait tant d'histoires, et pourtant c'était un
 grand homme: il a inventé les paratonnerres. Mais je
 me contins, et parvins à faire comprendre à ce savant
-qu'au bout de cent treize années de retraite et de posi-
-tion horizontale, il n'y avait rien d'extraordinaire à ce
+qu'au bout de cent treize années de retraite et de position horizontale, il n'y avait rien d'extraordinaire à ce
 que j'eusse grandi d'un centimètre. Il finit par se laisser
 Je dois avouer que cette petite altercation m'avait à
 mis d'assez méchante humeur. Nous traversâmes Paris
@@ -778,8 +730,7 @@ Je n'avais plus l'habitude du grand air, et la voiture me
 secoua tellement que je n'avais pas repris mon sang- DE
 froid, et me sentais au contraire tout trépidant, quand
 nous arrivâmes chez M. Mac Cormick. LA
-Ce gentleman est d'ailleurs assez bien élevé; il m'ac-
-cueillit avec de grandes démonstrations de plaisir et de
+Ce gentleman est d'ailleurs assez bien élevé; il m'accueillit avec de grandes démonstrations de plaisir et de
 déférence. Mais retrouvant toute ma franchise de À.
 marin, je lui dis très rudement que si c'était pour À à
 me faire rouler dans des fourgons mal suspendus, et
@@ -798,8 +749,7 @@ expérience, faite par la Russie dans la mer Noire, avait
 démontré que les bateaux manœuvraïent beaucoup
 mieux quand il n'y avait plus personne pour les diriger;
 mais qu'on avait besoin aux États-Unis de mon retour,
-qui ne manquerait pas d'exciter le plus vif enthou-
-siasme, pour induire le Congrès à voter de nouveaux
+qui ne manquerait pas d'exciter le plus vif enthousiasme, pour induire le Congrès à voter de nouveaux
 crédits pour la marine; et qu'à parler franchement,
 c'était pour cela qu'il avait pris la liberté de troubler
 mon repos.
@@ -813,8 +763,7 @@ Par accoutumance professionnelle, j'aurais voulu voir
 
 ; un enterrement. Comme il en avait pas pour le
 moment, on me conduisit à la garden-party de l'ambas- À
-l'ancien Palais-Royal, mais — je ne sais pas si ma nou-
-velle situation y est pour quelque chose — les femmes
+l'ancien Palais-Royal, mais — je ne sais pas si ma nouvelle situation y est pour quelque chose — les femmes
 du vingtième siècle me laissent assez froid. Je regrette
 Théroïgne de Méricourt qui m'a laissé un excellent
 souvenir: les Parisiennes de la troisième République,
@@ -837,9 +786,7 @@ expliqué que les ministres des colonies ne s'occupent
 alors, à quoi servent-ils? Je n'en ai pas moins présenté il
 mes excuses, de bonne grâce, et M. Clémentel, qui est! (1
 
-un homme très spirituel, n'a pas l'air de m'en vou-
-
-loir. Nous sommes même devenus très bons amis, et il
+un homme très spirituel, n'a pas l'air de m'en vouloir. Nous sommes même devenus très bons amis, et il
 
 a mené jusqu'en Auvergne voir une course de ces
 
@@ -874,8 +821,7 @@ n'aurez pas votre nouveau home. » Mais je ne suis plus
 habitué à être logé si grandement. Je me trouve tout
 désorienté. Aussi M. Mac Cormick, ainsi que le général
 
-; Horace Porter, se sont-ils mis aimablement à ma dispo-
-sition pour choisir avec moi mon installation définitive.
+; Horace Porter, se sont-ils mis aimablement à ma disposition pour choisir avec moi mon installation définitive.
 Je penchais pour le modern style, mais le général
 Horace Porter s'est écrié:
 
@@ -889,8 +835,7 @@ m'appartiens pas!
 
 ï journal d'un condamné à mort
 Ne On vient encore une fois de
-prendre un saule pleureur aux pé-
-sur la tombe d'Alfred de Musset. UNE,
+prendre un saule pleureur aux pésur la tombe d'Alfred de Musset. UNE,
 Le sol du Père-Lachaise ne con- a MSA
 vient pas à ce végétal, qui dépérit AAA?
 rapidement et ne tarde pas à expi- Abe
@@ -948,8 +893,7 @@ il y a très longtemps, au bord des quais de Babylone.
 Mais intimement, nous sommes assez gais. Nous aimons;
 les reflets du ciel dans les mares poissonneuses, les:
 grands roseaux dont les hampes de graines paraissent À
-tout velours pourpre, comme la poignée des halle-
-bardes que les suisses portent dans les églises, le vol
+tout velours pourpre, comme la poignée des hallebardes que les suisses portent dans les églises, le vol
 diapré des martins-pêcheurs, l'aile verte des sarcelles
 criardes. Nous sommes les bons gardiens tranquilles de
 la fécondité pullulante des eaux. Enfin, d'habitude, nous
@@ -965,12 +909,10 @@ voudrez, ce n'est pas juste.
 Tous mes camarades ont de bonnes carrières. Il y NE:
 en a qu'on a mis chez des conseillers municipaux, qui (il
 ont des jardins sentimentaux et des femmes à l'anglaise.
-Il en est qu'on a plantés dans des parcs, tout simple-
-ment pour qu'il y ait quelque chose d'hypocritement
+Il en est qu'on a plantés dans des parcs, tout simplement pour qu'il y ait quelque chose d'hypocritement
 funéraire dans les endroits où les gens viennent faire la
 fête; et ceux-là ne s'ennuient pas: ils voient tous les ne
-dimanches des choses à faire rougir les érables négun-
-dos, les seuls qui soient blancs. Il en est un autre qui a
+dimanches des choses à faire rougir les érables négundos, les seuls qui soient blancs. Il en est un autre qui a
 une position de tout repos, à Ermenonwville, au-dessus
 de Jean-Jacques Rousseau. Le cénotaphe de ce grand
 homme est orné d'un bas-relief en marbre blanc, où FAR
@@ -997,10 +939,8 @@ même une fois pensé à donner à un seul ‘d'entre nous
 les palmes académiques. Cet affreux régime a com- à
 mencé, pour les saules pleureurs, sous le règne du
 à tyran Napoléon III, mais il n'y a rien de changé sous à
-côté d'un grand bureau d'omnibus, boulevard Males-
-herbes, pour Louis XVI et Marie-Antoinette; une
-colonne, avec un ange dessus, tout en or, pour les mar-
-tyrs des journées de Juillet; des pensions pour les vic-
+côté d'un grand bureau d'omnibus, boulevard Malesherbes, pour Louis XVI et Marie-Antoinette; une
+colonne, avec un ange dessus, tout en or, pour les martyrs des journées de Juillet; des pensions pour les vic-
 : times du 2 Décembre. Et on n'a jamais rien fait pour
 nous, victimes du romantisme!
 ; Je réclame une réunion expiatoire au Grand Orient,
@@ -1053,8 +993,7 @@ train pour aller n'importe où. À peine s'était-il ébranlé
 que je mis ma tête à la portière. C'est peut-être là!:
 Faut-il aller si loin, alors que j'ai tant de choses qui
 . toutes font croire que la nature est si belle aux environs
-‘de Paris? Madame Roland, dans sa jeunesse, ne dépas-
-sait point Meudon; elle l'appelait « l'aimable Meudon
+‘de Paris? Madame Roland, dans sa jeunesse, ne dépassait point Meudon; elle l'appelait « l'aimable Meudon
 elle y allait « en habit frais et léger, avec un voile de
 gaze et quelques fleurs elle y voyait passer des biches,;
 et contemplant la majesté des boïs silencieux « rêvait,
@@ -1108,8 +1047,7 @@ je levai les yeux, candide, enfin rassuré. Une montagne!
 
 comme sa paroi était blanche, raclée, nettoyée! Depuis
 le haut jusqu'en bas, en lettres de' pourpre et d'or,
-larges. comme un boulevard, hautes comme les pyra-
-mides, elle annonçait ceci: Les meilleures saucisses:
+larges. comme un boulevard, hautes comme les pyramides, elle annonçait ceci: Les meilleures saucisses:
 sont les saucisses Schweitzer! Le soir, ces paroles ma-!
 giques étaient éclairées à lumière électrique. Tel est
 Toutes les grottes, depuis les funestes publications de tie
@@ -1118,8 +1056,7 @@ M. Martel, ayant été également éclairées à la lumière
 et par conséquent tapissées d'annonces, je ne songeai
 même pas à m'y réfugier. Épuisé de fatigue et de dou-!
 leurs, je tombai sur un banc. Mais est-il, hélas! utile de AAA:
-le dire, le dossier en portait ces mots, gravés au ther-
-mocautère: Mallez frères, meubles de jardin, pièges à DRE
+le dire, le dossier en portait ces mots, gravés au thermocautère: Mallez frères, meubles de jardin, pièges à DRE
 loups. Je fondis en larmes. Alors, plein de pitié, le cha- an
 mois se rapprocha. Sur ses deux flancs, savamment
 tracée à la tondeuse, apparut une inscription. Je lus: (4
@@ -1141,8 +1078,7 @@ pneumatiques antidérapants. Mais j'ai encore une place
 à louer: c'est entre Véga de la Lyre, les Trois Mages,
 et le Chasseur Orion: la voulez-vous, pour réclamer un
 PIN bon roman pornographique, ou bien le à travers
-Paris, photographies d'après nature? Bon titre, mon-
-sieur, bon titre! DE
+Paris, photographies d'après nature? Bon titre, monsieur, bon titre! DE
 — Je suis directeur du trust mondial de la publicité
 par affiches. Il n'y a plus un pouce Sur la terre quine
 soit à nous. Et dans huit jours, vous verrez le ciel! Ou
@@ -1158,8 +1094,7 @@ pour la publicité, et je suis stupéfait — stupéfait et heureux, tout à la 
 douté. Nos statuts sont déposés, nos actions vont être
 émises, et je ne vous dis pas cela pour vous en placer
 un paquet, tout est pris; le syndicat des grandes
-banques parisiennes ne les lâchera plus que bien audessus du pair. En même temps, quelles splendeurs dé-
-fileront par les rues! Imaginez quelle pompe auront les
+banques parisiennes ne les lâchera plus que bien audessus du pair. En même temps, quelles splendeurs défileront par les rues! Imaginez quelle pompe auront les
 funérailles, qui pourtant seront toutes gratuites, dès
 qu'on voudra bien s'adresser à nous! Oui, plus il y aura
 de chars empanachés, d'ordonnateurs, de couronnes,
@@ -1177,10 +1112,8 @@ la construction à nos frais. « Si son automobile avait
 les pneumatiques Clou d'Or, il n'aurait pas fait
 pänache! » Voilà ce qu'on pourra lire dans nos
 nécropoles, illustré par des monuments dus à des
-prix de Rome, autant que possible, à cause de la sou-
-plesse démocratique de leur talent.
-— Hélas! lui dis-je, et moi qui ne voulais que possé-
-der un beau jardin et vivre à l'orée d'un bois...
+prix de Rome, autant que possible, à cause de la souplesse démocratique de leur talent.
+— Hélas! lui dis-je, et moi qui ne voulais que posséder un beau jardin et vivre à l'orée d'un bois...
 — Un jardin, répondit-il, pourquoi pas? Dans un!
 jardin, il y a des fleurs. Avec des fleurs on peut tracer
 des caractères. Les caractères, cela ne peut servir qu'à
@@ -1227,8 +1160,7 @@ si ici quelques mots d'une interview remarquablement
 brillante, qu'il a bien voulu accorder à lun de mes
 — Permettez, a dit notre distingué préfet de police, que je
 garde pour moi seul un renseignement: de cette importance.
-Où, j'ai trouvé un endroit aussi discret que la rue Mes-
-sier à laquelle j'ai été jadis obligé de renoncer. Il y à
+Où, j'ai trouvé un endroit aussi discret que la rue Messier à laquelle j'ai été jadis obligé de renoncer. Il y à
 Paris, une rue déserte, une place, un carrefour — employez
 le mot que vous voudrez — qui est « idéal » pour le travail
 de Deibler: et si vous vous donniez la peine d'étudier le
@@ -1247,8 +1179,7 @@ chercher au public, dans les Champs Élysées, à Saint- à
 Cloud, jusque sous les ombrages de la forêt de SaintGermain, des rouleaux d'or cachés dans des pots de,
 fleurs, des tuyaux d'arrosage ou des boîtes de sardines,
 ils lui ont fait compter trois milliards de grains de blé:
-dans un bocal, ils lui ont fait parcourir, en canots auto-
-mobiles, vingt mille lieues sous les mers — car nul À
+dans un bocal, ils lui ont fait parcourir, en canots automobiles, vingt mille lieues sous les mers — car nul À
 n'oserait maintenant affirmer que c'était dessus — et ils à
 n'ont pas seulement songé à promettre cinquante
 pauvres louis au mortel qui découvrirait « la place, rue
@@ -1282,9 +1213,7 @@ Ainsi, fidèle aux enseignements de mes illustres maîtres
 5 en littérature criminelle, Gaboriau, Edgar Poe et Conan
 Doyle, j'arrivai à restreindre le champ de mes investigations.
 Et je découvris d'abord la cour de l'Institut. On eût
-dit d'une prairie, et la plus champêtre. Une herbe abon-
-
-dante y croissait, drue mais courte. Je soupçonne que
+dit d'une prairie, et la plus champêtre. Une herbe abondante y croissait, drue mais courte. Je soupçonne que
 
 le concierge de ce petit parc désert la coupe, à des
 intervalles réguliers, pour donner à manger à ses lapins.
@@ -1292,8 +1221,7 @@ Cette herbe exceptée, rien dans cette cour, absolument
 rien! Ni homme ni bête. De trois vases très laïids,
 évidemment funéraires, jaillissaient des flammes pétrifiées. Du ventre d'une Minerve, dans le fond, sortait un
 robinet. C'était tout. Un grand silence tombait des
-murailles sombres. Et je pensai que ces murailles, per-
-cées de beaucoup de fenêtres — dont quelques-unes à
+murailles sombres. Et je pensai que ces murailles, percées de beaucoup de fenêtres — dont quelques-unes à
 guillotine— appartenaient à l'État. Et qui donc exécute?
 L'État. Il m'apparut qu'il serait chez lui, que personne
 n'aurait rien à lui dire. Était-ce donc à la cour de l'In-
@@ -1318,8 +1246,7 @@ que nous avons déjà la Minerve-au-Robinet. Cela
 
 — Mais enfin, continuai-je, vous n'avez pas été ofliciellement prévenus?
 
-— Officieusement, me répondit M. Pingard avec dis-
-crétion, officieusement peut-être avons-nous été pres-! à
+— Officieusement, me répondit M. Pingard avec discrétion, officieusement peut-être avons-nous été pres-! à
 sentis. Maïs nous ne sorymes pas les seuls. Ignorez-vous
 à que tout près de nous, de l'autre côté de la Seine... À
 — N'ajoutez rien, fis-je, j'ai compris: vous faites « aïilusion au square de la cour du Louvre! J'aurais dûy « penser plus tôt. Ne vous formalisez pas si je vous quitte
@@ -1352,8 +1279,7 @@ faire assister quelquefois encore aux spectacles dont je;
 fus si souvent témoin, à l'époque la plus intéressante
 . de ma vie. Cette place est d'ailleurs vaste, bien aérée,
 et, comme à l'Institut, l'État est ici chez lui. Mais je
-crains bien qu'on ne me laisse à ma solitaire décrépi-
-tude: à quelques pas, hélas! quand vous aurez franchi fie
+crains bien qu'on ne me laisse à ma solitaire décrépitude: à quelques pas, hélas! quand vous aurez franchi fie
 les étroïts guichets qui me séparent de la rue de Rivoli,
 vous rencontrerez un autre désert plus vaste et qui,
 depuis bien des années. demande avec insistance qu'on
@@ -1369,8 +1295,7 @@ M. Jules Claretie a publié quelque part une anecdote
 . dont la lecture fit sur moi une impression profonde. Il
 s'agit du dictionnaire de l'Académie.
 
-Lorsqu'on achevait l'édition de 1876, écrit M. Jules Cla-
-relie, on en était au mot vache, quand un académicien nouvellement élu prit pour la première fois séance, et il se
+Lorsqu'on achevait l'édition de 1876, écrit M. Jules Clarelie, on en était au mot vache, quand un académicien nouvellement élu prit pour la première fois séance, et il se
 rappelle la stupéfaction et le courroux d'Octave Feuillet
 lorsque l'aimable Camille Doucet, secrétaire perpétuel, lut
 
@@ -1413,10 +1338,8 @@ unique, mais en vérité bien déraisonnable!
 Afin de m'en assurer, je rouvris le volume à l'article
 grue et j'appris que la grue pouvait être, soit un oiseau,
 soit également « une personne fort sotte et fort niaise ».
-Comme l'oie! Je fus d'autant plus étonné que, connais-
-sant bien des sens au mot grue, j'ignorais celui-là. Jen!
-conclus que, pour des motifs restés obscurs, l'Acadé-
-mie française en voulait aux oiseaux. Mais des recherches, entreprises avec la plus grande impartialité,
+Comme l'oie! Je fus d'autant plus étonné que, connaissant bien des sens au mot grue, j'ignorais celui-là. Jen!
+conclus que, pour des motifs restés obscurs, l'Académie française en voulait aux oiseaux. Mais des recherches, entreprises avec la plus grande impartialité,
 me révélèrent que l'Académie en voulait également à
 un poisson de mer, qu'elle diffame je ne sais pourquoi,
 ainsi qu'à un mammifère très fréquent à la campagne,
@@ -1429,14 +1352,12 @@ meux, pourquoi l'illustre compagnie exclut-elle de ce
 service d'autres animaux qui ne sont ni plus ni moins
 respectables? Si elle constate que parfois on traite
 d'oïes ou de grues des personnes des deux sexes, quel.!
-mal voit-elle à reconnaître qu'il arrive aussi à ces per-
-sonnes d'être traitées de vaches?,
+mal voit-elle à reconnaître qu'il arrive aussi à ces personnes d'être traitées de vaches?,
 Je résolus, pour éclaircir ce problème, d'aller consulter quelques académiciens. Leurs concierges me
 répondirent qu'ils étaient en villégiature. Mais, grâceà
 des procédés télépathiques de mon invention, et qui,
 j'ose le dire, me créent dans le journalisme parisien une
-situation exceptionnelle, j'obtins trois ou quaire inter-
-views bien précieuses. 2.50
+situation exceptionnelle, j'obtins trois ou quaire interviews bien précieuses. 2.50
 . 1 — Maïtre, demandai-je un peu brusquement à
 M. Gréard, pourquoi l'Académie, qui enregistre « faire
 du froufrou dans le sens de faire des embarras, n'enregistre-t-elle pas « faire du chichi;
@@ -1465,10 +1386,8 @@ mon exposition, il dit: à
 
 — …Croyez que je vais vous donner raison? Parce SAUCES
 
-que j'écris pas comme Feuillet, croyez que je vais mar-
-cher, chiner l'Académie? Nor, vous les broutez, les (ee
-pâturages de l'erreur! Le contraire, je ferai. A l'Aca-
-démie, veillerai avec soin sur la pureté de la langue.
+que j'écris pas comme Feuillet, croyez que je vais marcher, chiner l'Académie? Nor, vous les broutez, les (ee
+pâturages de l'erreur! Le contraire, je ferai. A l'Académie, veillerai avec soin sur la pureté de la langue.
 Ferai rayer du dictionnaire tous les mots d'argot. Feraï
 rayer bûche, pelle, tourte, fourneau, la peau, concombre,
 — Marcheur aussi, suggérai-je, illuminé.
@@ -1486,9 +1405,7 @@ aller trouver M. Bergeret, son ami et son meilleur lui
 
 même. Et le chien de M. Bergeret vint vers moi en À
 
-— Ne vous offusquez point, me dit l'ancien profes-
-
-seur, de ces démonstrations. Cette petite bête innocente;
+— Ne vous offusquez point, me dit l'ancien professeur, de ces démonstrations. Cette petite bête innocente;
 agit seulement d'instinct comme ses ancêtres, autour
 des huttes silvestros qu'habitèrent les premiers hommes,
 
@@ -1514,8 +1431,7 @@ lostracisme de M. Octave Feuillet. Vous connaissez
 toute l'horreur que j'ai pour les façons de parler violentes et grossières. J'évite de les employer, parce
 qu'elles affaiblissent la pensée. Mais, malgré mes répugnances personnelles, j'aurais été, je crois, obligé de
 
-faire observer à l'Académie que l'énumération des diffé-
-rents sens du mot vache me paraissait indispensable au
+faire observer à l'Académie que l'énumération des différents sens du mot vache me paraissait indispensable au
 salut de la société. a
 — Ceci, murmurai-je, est un aspect de la question (4
 que je n'aperçois pas encore.:
@@ -1524,8 +1440,7 @@ inconvénients que peut avoir le silence du dictionnaire.
 Il m'est revenu que des personnes malveillantes, et
 appartenant aux classes réputées Les plus turbulentes
 de la société, sont dans la coutume de crier: « A bas
-les vaches! » dans l'intention de faire injure aux repré-
-sentants de la force et de la justice publique, et même
+les vaches! » dans l'intention de faire injure aux représentants de la force et de la justice publique, et même
 d'ajouter des allusions désobligeantes à la mort possible
 de ces représentants. Le dictionnaire de l'Académie,
 comme on l'a défini avec raison, est le dictionnaire de
@@ -1534,18 +1449,16 @@ inconvenante. Voyez alors ce qui pourrait se passer:
 inculpé devant un tribunal, le fauteur de cette injure
 pourrait répondre: « Ce que j'ai dit ne signifie rien.
 Consultez l'Académie; elle est muette. » Et vous LE
-avouerez, monsieur, qu'il serait naturel que le diction-
-naiïire rédigé par l'Académie, corps officiellement
+avouerez, monsieur, qu'il serait naturel que le dictionnaiïire rédigé par l'Académie, corps officiellement
 reconnu, fit seul autorité devant les délégués officiels du
 de Littré? A celui de Larousse? Ces deux philologues
-et polygraphes ont des opinions politiques et reli-
-gieuses bien dangereusement avancées!
+et polygraphes ont des opinions politiques et religieuses bien dangereusement avancées!
 J'avoue que le raisonnement de M. Bergeret m'avait
 paru fort. Cependant, au lieu de m'en tenir là, je décidai
 d'aller consulter la vache elle-même. On le sait, depuis
 que le jeune hindou Mowgli a fait ses confidences à
 
-! Rudyard Kipling, il n'est plus permis d'ignorer lelangage (:
+! Rudyard Kipling, il n'est plus permis d'ignorer lelangage
 des bêtes. La vache me reçut fort bien. Du plus loin
 qu'elle m'aperçut elle s'écria:
 ; — Tiens, c'est toi! Comment vas-tu?
@@ -1598,8 +1511,7 @@ naït de la retrouver! Tout arrive, et il ne faut jamais
 s'étonner de rien; m'efforçant de conserver l'air le plus:
 
 paturellement affable, je me contentai de demander à À
-cette casserole par quel heureux concours de circon-
-stances j'avais le plaisir de la rencontrer sur le boule-
+cette casserole par quel heureux concours de circonstances j'avais le plaisir de la rencontrer sur le boule-
 è vard Saint-Germain. Elle me répondit, d'une voix
 cuivrée, mais maussade:
 — Je m'en vais! C'est facile à voir, que je m'en vais!
@@ -1639,18 +1551,15 @@ Vendée était, paraît-il, de me porter à M. Combes, à
 titre d'attribut compromettant, et par une assimilation
 déshonorante pour moi.
 — Hélas! fis-je, cela est vrai.!
-— Cest stupide! Que ferait l'humanité, sans casse-
-roles? Nous ne rendons que des services. Nos mœurs;
+— Cest stupide! Que ferait l'humanité, sans casseroles? Nous ne rendons que des services. Nos mœurs;
 sont pures. Assises au-dessus des foyers ardents, nous
 contenons le bouillonnement des sauces et la danse ni
 sacrée des viandes destinées aux nourritures. Ou bien, )
-rangées en files éclatantes et harmonieuses le long des «: À
+rangées en files éclatantes et harmonieuses le long des À
 murailles, soigneusement récurées, si belles que les À
-peintres nous aiment, nous sommes l'orgueil des cuisi-
-nières. Quel crime avons-nous jamais commis?
+peintres nous aiment, nous sommes l'orgueil des cuisinières. Quel crime avons-nous jamais commis?
 — On donne, répondis-je un peu honteux, on donne
-le même nom que vous à quelques-uns de nos congé-
-nères qui ont la mauvaise habitude d'aller raconter,:
+le même nom que vous à quelques-uns de nos congénères qui ont la mauvaise habitude d'aller raconter,:
 dans une intention désobligeante, et même de noter sur
 de petits morceaux de papier, nommés fiches, les ac- NE:
 tions des autres hommes, en attribuant à celles-ci les
@@ -1677,8 +1586,7 @@ ustensile paraissait douter, de la façon la plus injurieuse, que je prisse la p
 qu'il avait peut-être raison.
 ù — Si cela continue, poursuivit cette casserole exaspérée, nous nous mettrons tous en grève.
 — Qui, tous? interrogeai-je, plein d'inquiétude.
-— Les objets inanimés et les pauvres animaux, fati-
-gués d'être en butte à vos comparaisons diffamatoires.:
+— Les objets inanimés et les pauvres animaux, fatigués d'être en butte à vos comparaisons diffamatoires.:
 A l'usage que vous faites de la langue française vous
 êtes indignes des services que nous vous rendons.
 Vous n'avez pas le droit d'appeler les imbéciles des
@@ -1691,8 +1599,7 @@ qualités sublimes qui définissent pour vous l'être que
 
 ï yous appelez un homme, au lieu de dire: « C'estun
 . Homme vous nous l'envoyez. Merci bien! A la fin, si
-vous persistez à encombrer le français de ces méta-
-phôres saugrenues, personne ne saura plus que par- è “4
+vous persistez à encombrer le français de ces métaphôres saugrenues, personne ne saura plus que par- è “4
 ler veut dire. Vous vous promènerez, sans vous y
 reconnaitre, dans une halle aux poissons, un potager, Et à
 et une boutique de bric-à-brac. Ce sera, et je m'en
@@ -1730,8 +1637,7 @@ je suis accroupi: donc semblable au Sphinx. Enfin, je
 a suis terrible. Quand j'arrive sur une table, il n'est plus
 d'espoir pour les convives. Car je suis le canardf
 
-dilemme, une bête que Jean de Pathmos, homme cepen-
-dant plein d'imagination, n'avait pas songé à inventer.
+dilemme, une bête que Jean de Pathmos, homme cependant plein d'imagination, n'avait pas songé à inventer.
 Si les convives ne me mangent pas, ils meurent de
 faim. S'ils me mangent, ils meurent empoisonnés. Et,,
 quand ils sont morts et qu'on commence à me maudire, À
@@ -1760,8 +1666,7 @@ devoir paternel et leur métier, ce sont eux qui m'ont
 faite. Et après m'avoir faite, ils m'ont obligée à traîner
 des choses immorales: des wagons-bars, par exemple,
 
-ou des wagons-suicides, avec plateformes pour décapi-
-tation dans les tunnels; et des gens très lourds ettrès
+ou des wagons-suicides, avec plateformes pour décapitation dans les tunnels; et des gens très lourds ettrès
 exigeants, qui ne daignent même pas payer leurs
 
 places: des ministres, des députés, des journalistes. IL
@@ -1790,9 +1695,7 @@ contre mes calomniateurs a mis le comble à mon écœu-
 
 ; rement, Au fond, elle ne pensait qu'une chose, ma
 
-Compagnie: « Pourquoi cette brute de locomotive n'estelle pas allée faire aïlleurs, à Rouen, si elle le vou-
-
-lait, ou à Beuzevilie, ou au Havre? On n'en aurait jamais
+Compagnie: « Pourquoi cette brute de locomotive n'estelle pas allée faire aïlleurs, à Rouen, si elle le voulait, ou à Beuzevilie, ou au Havre? On n'en aurait jamais
 « rien su. Mais elle éclate à Paris: Paris n'est pas Port-
 
 Artbur, les torpilleurs n'y arrivent pas. Cette machine-:
@@ -1816,13 +1719,11 @@ encore des malheurs à prévoir.;
 L'X des Chartreux n'avait pas encore ouvert la
 bouche. Il contemplait toujours, avec mépris, le Sphinx (
 — Ce.qu'il y a d'étonnant, c'est que les générations FOR
-précédentes aient accordé quelque attention à ces ani-
-maux méprisables. Je n'ai jamais de Chimère si
+précédentes aient accordé quelque attention à ces animaux méprisables. Je n'ai jamais de Chimère si
 sotte. En quoi est-elle chimérique, cette Chimère, et
 qu'est-ce qu'elle a fait? Et ce Sphinx! sa réputation est:
 usurpée. Les énigmes qu'il posait à Œdipe eussent été )
-résolues par un petit enfant. Tandis que moi, consi-
-dérez ma redoutable nature: je n'existe pas, c'est une À
+résolues par un petit enfant. Tandis que moi, considérez ma redoutable nature: je n'existe pas, c'est une À
 commission parlementaire qui l'a dit. Et cependant,:
 ayant fait revenir M. Lagrave d'Amérique, je l'ai
 dévoré. Je suis à la fois sphinx et chimère, et bien
@@ -1908,14 +1809,12 @@ l'ignorent. Si l'on avait voulu que le tigre fût brave et
 
 moi peureux, on n'avait qu'à donner la petite fête la
 nuit. Mais ce qu'on n'aurait jamais voir, en aucun
-cas, c'est un vrai combat. Il n'y a jamais de vrais com-
-bats dans la nature: c'est toujours le plus fort qui
+cas, c'est un vrai combat. Il n'y a jamais de vrais combats dans la nature: c'est toujours le plus fort qui
 
 attaque le plus faible, et quand deux animaux sont
 également forts, ils s'en vont chacun de leur côté.
 Ce taureau avait l'air sûr de son affaire et, de plus, de
-son tempérament me parut irritable. J'évitai prudem-
-ment de le contredire. Il put donc continuer à monolo-
+son tempérament me parut irritable. J'évitai prudemment de le contredire. Il put donc continuer à monolo-
 — Tu ne te figures pas, dit-il, et moi-même je ne
 . m'imagiuais point avec quelle rapidité tes congénères
 passent de la cruauté la plus inutile aux terreurs les
@@ -1924,9 +1823,7 @@ bons coups de corne. Il ne remuaïit plus. Je jugeais par à
 conséquent de ma dignité de le laisser dans son coin.
 nus lui battre les flancs avec des cannes et des om-: ni
 brelles. Ils traitaient de lâche cette vieille bête de tigre,
-ils lui lançaient des pétards dans les jambes. Ce spec-
-tacle me dégoûta profondément. C'est pourquoi, ingé-
-nieusement, j'appuyai mes deux cornes contre la grille.
+ils lui lançaient des pétards dans les jambes. Ce spectacle me dégoûta profondément. C'est pourquoi, ingénieusement, j'appuyai mes deux cornes contre la grille.
 
 Je la défohçai ainsi d'un seul effort, comme j'aurais
 faire de ta maigre et laide poitrine, La grille céda. Et
@@ -1975,8 +1872,7 @@ persuadé que c'est le contraire, et que ces soldats dont
 indignation, supprimer les spectateurs les moins braves, La
 et par conséquent les moins intéressants, ont tué le ANT
 tigre par inadvertance. J'espère que, la prochaine fois, AN
-le spectacle sera mieux réglé, et que les animaux, aux-
-quels il est évidemment. dédié, recevront des places LAN
+le spectacle sera mieux réglé, et que les animaux, auxquels il est évidemment. dédié, recevront des places LAN
 d'honneur, d'où ils pourront contempler, sans risques AA,
 inutiles, une petite représentation, meurtrière et bien HQE jou
 organisée, dont vous ferez seuls les frais, ainsi que VAN TAN
@@ -2009,8 +1905,7 @@ près de ces oubliettes qui jadis auraient étouffé ma
 voix et ma vie? Ils ont Bosquiaux des Armagnacs,
 Rieux le coupeur de bourses, Villeneuve le Malcontent,
 un empereur, une impératrice, un enfant, passer, rire,;
-passer encore, s'en aller... Ah! misère de moi, où sont-
-ils allés! Je suis républicaine, puisque je suis Séverine;
+passer encore, s'en aller... Ah! misère de moi, où sontils allés! Je suis républicaine, puisque je suis Séverine;
 que dis-je, je suis la République elle-même et la Révo-
 Iution, je suis une tricoteuse qui crie: Mort à l'échafaud!
 Telle est ma nature, délicieusement contradictoire: j'ai
@@ -2041,11 +1936,7 @@ des imbéciles pour les défendre d'autres imbéciles. On
 
 se figure que je suis féministe, socialiste, nihiliste. Où
 
-donc a-t-on été chercher que j'ai une opinion, et com-
-
-ment en aurais-je, si je suis Séverine? J'ai des senti-
-
-ments, ce qui est juste le contraire. Un jour je m'aperçus
+donc a-t-on été chercher que j'ai une opinion, et comment en aurais-je, si je suis Séverine? J'ai des sentiments, ce qui est juste le contraire. Un jour je m'aperçus
 
 que je ne comprenais absolument rien ni aux lois, ni au.
 
@@ -2059,18 +1950,12 @@ les romances de Loïsa Puget. Le succès vint comme la
 
 foudre. Pauvre Vallès! c'était son instrument qui était
 
-bon, mais moi qui avais raison. J'ai l'art de com-
-
-prendre ce grand fait historique: quand les portes de
+bon, mais moi qui avais raison. J'ai l'art de comprendre ce grand fait historique: quand les portes de
 
 Jéricho tombèrent, au son des cornes de bélier, c'est que
-les gonds n'en tenaient plus. Ainsi je ressemble beau-
+les gonds n'en tenaient plus. Ainsi je ressemble beaucoup à Pindare. Il y a de la sagesse dans mon délire:
 
-coup à Pindare. Il y a de la sagesse dans mon délire:
-
-« Avec quelle vibrante émotion, quelle joie mélanco-
-
-lique je vous considère tous en ce moment, vous tous,
+« Avec quelle vibrante émotion, quelle joie mélancolique je vous considère tous en ce moment, vous tous,
 petits garçons et petites filles, et vous, excellents instituteurs et institutrices, et vous, monsieur le percepteur,
 et vous-même, monsieur le sous-préfet! Vous êtes mes
 
@@ -2101,16 +1986,14 @@ cœur frôid, le jour où il faudrait pour de bon y aller de
 son voyage. La petite fleur bleue, des brutes est celle
 qu'il faut arroser le plus souvent, puisqu'elle est celle
 qui sèche le plus vite. Et par le mot de brutes j'entends
-bien ne froisser personne individuellement: je fais allu-
-sion à toute l'humanité.
+bien ne froisser personne individuellement: je fais allusion à toute l'humanité.
 « Cest en effet ma conviction que personne n'aurait
 pitié de personne, si je n'étais au monde. J'écrirai tou- ne
 jours. Les sujets de pitié sont innombrables: il y a les
 pauvres cochers et les pauvres chevaux, les nègres,
 les modistes, les journalistes, les chiens, toute la terre,
 et la lune, qui a l'air si triste. »:'1
-Madame Séverine termina ce discours dans un san-
-glot. Tout le monde pleurait. Par un de ces phénomènes
+Madame Séverine termina ce discours dans un sanglot. Tout le monde pleurait. Par un de ces phénomènes
 
 un usage, consacré Fée
 qui ne pensent
@@ -2146,11 +2029,9 @@ Chérissons surtout ses larmes;
 Y a pas mieux dans les journaux!
 
 C'est un usage, consacré par le temps, et surtout la
-nécessité d'évincer des places les plus modestes les can-
-didats qui ne pensent pas comme le gouvernement, À
+nécessité d'évincer des places les plus modestes les candidats qui ne pensent pas comme le gouvernement, À
 d'imposer à ces candidats une composition de style. En
-Août 1905, ceux qui concouraient pour le surnumé-
-rariat des douanes ont à développer le sujet suivant:
+Août 1905, ceux qui concouraient pour le surnumérariat des douanes ont à développer le sujet suivant:
 « Tout homme doit passer la première partie de son;
 existence avec les morts; la seconde avec les vivants;
 la troisième avec lui-même. » L'auteur s'est efforcé de
@@ -2364,8 +2245,7 @@ transporté cinq cent millions de
 : les journaux, 1905
 Ce matin, quand je suis descendu dans ma cour,
 ai trouvé un omnibus de Batignolles-Clichy-Odéon, et à
-un bateau-mouche. J'ai du sang-froid, beaucoup de sang-
-froid. Cependant je ne pus réprimer un geste d'étonnement. Il est déjà peu commun de rencontrer un
+un bateau-mouche. J'ai du sang-froid, beaucoup de sangfroid. Cependant je ne pus réprimer un geste d'étonnement. Il est déjà peu commun de rencontrer un
 nibus de Batignolles-Clichy-Odéon — ou même des …
 chars appartenant à une autre ligne — hors de leur
 trajet: c'est comme si l'on voyait les astres s'écarter
@@ -2416,9 +2296,7 @@ seulement les choses qui n'avaient pas encore commencé À
 à marcher, ou qui n'avaient encore servi à rien, ou qui
 
 ne serviraient jamais à rien, comme par exemple les
-statues, ou le Petit-Palais. Mais du moment qu'on pro-
-
-cède à cette solennité pour le Métropolitain, qui a.
+statues, ou le Petit-Palais. Mais du moment qu'on procède à cette solennité pour le Métropolitain, qui a.
 à déjà transporté cinq cent millions de voyageurs, nous
 sommes, croyons-nous, en posture d'exiger qu'on en
 fasse autant pour nous. "0
@@ -2490,8 +2368,7 @@ tumé en garde national, je revins du bal Gavarni, de
 trouver un fantôme assis dans l'unique fauteuil de ma
 : Je vis d'un coup d'œil que c'était un fantôme, et non
 une autre espèce d'imbécile: car sur le mur, derrière À
-sa tête, et non dedans, j'aperçus une araignée. Par con-
-séquent, il était transparent; par conséquent, il était
+sa tête, et non dedans, j'aperçus une araignée. Par conséquent, il était transparent; par conséquent, il était
 fantôme. J'ai toujours été très fort sur la logique, même:
 à quatre heures du matin.
 Je dis tout de suite à cet intrus, avec une légitime
@@ -2535,9 +2412,8 @@ contre le gouvernement, malgré ce qu'on croit à tort
 à dans le public, et que le ministère n'a aucun motif,
 en raison de notre attitude, de nous être agréable.
 ù Mais justement, si continue — et c'est ce que ce haut
-: fonctionnaire ne veut pas comprendre —nous ne deman-
-dons qu'à ne pas voter!; De:
-à? — Tout le monde, répliquai-je avec austérité, doit
+: fonctionnaire ne veut pas comprendre —nous ne demandons qu'à ne pas voter!; De:
+— Tout le monde, répliquai-je avec austérité, doit
 remplir ses devoirs de citoyen! à
 — Alors nous demandons à les remplir de la même
 manière que tout le monde. ne
@@ -2552,8 +2428,7 @@ cisément, le bulletin de vote pour soutenir vos reven-
 — C'est qu'est le plus grand abus! Nous ne pouvons;
 à voter que par procuration; on s'empare de nos cartes,
 et on aux urnes pour nous. C'est défendu par les
-lois, mais on le fait tout même, et comme l'entre-
-prise est risquée, elle n'est tentée que par des citoyens
+lois, mais on le fait tout même, et comme l'entreprise est risquée, elle n'est tentée que par des citoyens
 bardis, appartenant aux partis violents, et de connivence
 avèc les scrutateurs. Vous n'imaginez pas combien ces
 errements sont pénibles pour notre corporation: nos
@@ -2624,8 +2499,7 @@ dire dans les jambes mêmes de son cheval. Il n'y a rien
 de malsain comme le voisinage d'une plantation de
 cannes à sucre. C'est une culture fiévreuse et le fouillis
 des cannes, hautes et droites comme des bambous, À
-feuillues comme des tiges de maïs, offre un abri com-
-mode aux personnes malveillantes qui n'aiment pas à
+feuillues comme des tiges de maïs, offre un abri commode aux personnes malveillantes qui n'aiment pas à
 perdre leur poudre en tirant de trop loin. On devrait
 toujours faire fouiller ces plantations par des éclaireurs.
 
@@ -2664,8 +2538,7 @@ apporter les journaux de Colon. Le Tiempo, en général
 Le général Alvaro, toujours prudent, proposa qu'on à
 s'en allât attendre les nouvelles en terrain découvert,
 et Carvajal accepta; n'ayant avec lui qu'un petit
-nombre d'hommes, il n'avait voulu tenter qu'une sur-
-prise, et d'ailleurs, il espérait bien débaucher quelques
+nombre d'hommes, il n'avait voulu tenter qu'une surprise, et d'ailleurs, il espérait bien débaucher quelques
 cavaliers au général. On avança donc jusqu'au milieu
 d'un espace nu, ou plutôt planté seulement de jeunes Are
 poivriers. Alors les deux troupes s'arrêtèrent, mais en À
@@ -2678,8 +2551,7 @@ vrant le sac aux dépèches, il en jeta le contenu sur le
 sol, et chacun prit ce qui lui appartenait, ou ce qu'il
 Le colonel Carvajal Ceron rompit la bande du Tiempo GUN
 et parcourut rapidement le journal. Non, les relations
-n'étaient pas rompues entre le Venezuela et la Colom-
-bie; du moins, rien ne semblait le faire supposer.
+n'étaient pas rompues entre le Venezuela et la Colombie; du moins, rien ne semblait le faire supposer.
 S'il en est ainsi, proposa le général Alvaro avec
 un certain empressement, nous n'avons plus qu'à nous
 Mais don Francisco Carvajal dit tout à coup:
@@ -2701,8 +2573,7 @@ Les fariniers sont tous blancs,
 Les charbonniers sont tous noirs,
 quaud tout à coup le praticable, qui avait été mal éta-
 — Il est extraordinaire, interrompit l'un des frères
-Martinez, qui avait des dispositions pour la philosophie, « qu'il arrive des choses si extraordinaires juste au mo-
-ment où l'on chante des choses si ordinaires!;
+Martinez, qui avait des dispositions pour la philosophie, « qu'il arrive des choses si extraordinaires juste au moment où l'on chante des choses si ordinaires!;
 On lui imposa silence.
 —.… « Mademoiselle Aimée Ziska a une foulure à la
 jambe gauche et le genou un peu abiîmé.… Mademoiselle Aimée Ziska est une jolie blonde, véritable pastel
@@ -2808,8 +2679,7 @@ la Fourrière.
 des hommes très sérieux, vêtus de noir. Puis des fiacres
 arrivèrent, en retard sur l'automobile, et dégorgèrent
 d'autres hommes graves. On les entendit causer avec
-les gardiens de cette geôle de bêtes innocentes, et ceux-
-ouvrirent les cages des trois chiens, comme au hasard. RES
+les gardiens de cette geôle de bêtes innocentes, et ceuxouvrirent les cages des trois chiens, comme au hasard. RES
 « Prenez ceux-là dirent-ils. Lizzie sortit par grands
 bonds légers, encensa l'air de sa tête brillante et de ses
 longues oreilles, puis alla frotter son échine amoureuse
@@ -2854,14 +2724,11 @@ seulement autant de cervelle qu'un chien de tourne- …
 broche, ils comprendraient que leur expérience est
 idiote. Celui de gauche, sur le siège d'arrière, qui est
 un chimiste, vient de dire que nos globules sanguins
-ne sont pas faits comme les leurs, et que, par consé-
-quent, l'oxyde de carbone doit agir différemment sur
+ne sont pas faits comme les leurs, et que, par conséquent, l'oxyde de carbone doit agir différemment sur
 
-eux et sur nous. Maïs ne croyez pas que cela les em-
-pêche de nous assassiner!
+eux et sur nous. Maïs ne croyez pas que cela les empêche de nous assassiner!
 Tout à coup, il ricana plus fort.:
-._ — sont en train de s'étonner, dit-il, qu'un jour-
-naliste, croyant faire un paradoxe, ait fort approché de
+._ — sont en train de s'étonner, dit-il, qu'un journaliste, croyant faire un paradoxe, ait fort approché de
 la vérité en disant que c'était Bidegain qui avait tué ce
 Syveton: ce qui n'est pas éloigné d'être exact, s'il est
 possible, comme on le dit maintenant, que c'est pour
@@ -2873,9 +2740,7 @@ plus absurde pour approcher du plus vrai.
 Cependant l'automobile avait dépassé l'Arc-deTriomphe et la Porte-Maillot. Elle s'arrêta dans une
 avenue très large, et qui pourtant sentait la province:
 c'était que venait de se passer un drame bien pari-:
-sien. Jusque-là, sur leur passage, les hommes à redin-
-gote noire avaient entendu dire: « Ce sont des congré-
-ganistes sécularisés. » Mais quand on les vit entrer
+sien. Jusque-là, sur leur passage, les hommes à redingote noire avaient entendu dire: « Ce sont des congréganistes sécularisés. » Mais quand on les vit entrer
 dans une maison que tout le quartier contemplait,
 depuis quinze jours, avec un petit frémissement de
 terreur et de curiosité, la foule changea d'opinion.
@@ -2936,8 +2801,7 @@ sant devant la loge de son concierge, il en ouvrit dis- es
 crètement la porte et déposa un louis d'or tout neuf sue
 petite crédence qui se trouvait, juste à portée de sa
 ._ main, au-dessous des casiers destinés à recevoir les À
-lettres des locataires. Il exprima en même temps quel-
-ques vœux courtois. Mais il les exprima en bredouillant ARTE
+lettres des locataires. Il exprima en même temps quelques vœux courtois. Mais il les exprima en bredouillant ARTE
 . et les yeux baissés: timide et sincère, il ne savait pas Ne
 dire avec cordialité les choses qu'il ne pensait point. SAS
 Autant dire qu'il manquait d'usage. Le concierge lui:
@@ -2954,9 +2818,7 @@ un homme simple et bon. Cependant il fit la grimace.
 étrennes au nouveau concierge, si je veux qu'il me.
 
 monte mes lettres! C'est une bien mauvaise plaisan- à
-Cette petite mésaventure faillit lui donner de l'hu-
-
-meur, Il était sorti pour déposer queiques cartes. Il hâta
+Cette petite mésaventure faillit lui donner de l'humeur, Il était sorti pour déposer queiques cartes. Il hâta
 
 le pas. Sur les dalles sèches des trottoirs, des passants
 
@@ -2976,8 +2838,7 @@ point, il le pardonnaïit encore moins aux femmes. #2
 
 avait infiniment exagéré la fréquence des passions de
 
-lamour. Auteur, à vingt-deux ans, d'une thèse remar-
-quée sur la Superfétation dans l'Histoire, il avait plus à
+lamour. Auteur, à vingt-deux ans, d'une thèse remarquée sur la Superfétation dans l'Histoire, il avait plus à
 tard conquis une juste notoriété en appliquant à cette
 
 science une méthode mathématique. « Lorsqu'il n'existe,
@@ -2998,8 +2859,7 @@ les programmes en seront heureusement allégés. »
 PRE Or, une opération d'esprit assez semblable le portait
 
 soupçonner que les hommes capables de se précipiter
-. d'eux-mêmes dans les orages de la passion sont infini-
-ment rares. « Le mariage, songeait-il, a été institué par A
+. d'eux-mêmes dans les orages de la passion sont infiniment rares. « Le mariage, songeait-il, a été institué par A
 les sociétés justement parce que, si par malheur on
 laissait les deux sexes à eux-mêmes, ils demeureraient
 chacun de leur côté, sans se réunir. Comment admettre, À
@@ -3066,8 +2926,7 @@ forme extérieure, et tous les traits, d'une jeune personne
 âgée de trois lustres, en jupe presque courte et chapeau
 à la six-quatre-deux. Elle fit un bond jusque dans la
 loge, jeta une lettre sur les genoux de M. Costepierre,
-et s'enfuit. L'honnête académicien savait lire. Il éprou-
-vait de plus, par routine, comme beaucoup de gens qui
+et s'enfuit. L'honnête académicien savait lire. Il éprouvait de plus, par routine, comme beaucoup de gens qui
 ont passé leur vie à cet exercice, l'irrésistible besoin de
 lire tout ce qui lui tombait sous la main. Il parcourut
 donc la lettre, presque involontairement. Elle commen-:
@@ -3099,8 +2958,7 @@ TER Cest pourquoi, à mon grand regret, j'ai envoye MA
 
 la vérité sur l'Agrach et l'Agrachien
 à La police a arrêté, aux environs; de
-du Mont-Valérien, un étrange va-
-gahond qui parle une langue que SE
+du Mont-Valérien, un étrange vagahond qui parle une langue que SE
 donne le nom d'agrach. Aucun
 des philologues qui jusqu'à pré-: DES
 sent l'ont interrogé n'a com- es
@@ -3193,8 +3051,7 @@ ne l'esquimau. Qui diable peut parler cette langue en
 ; — Nansen, probablement, répondit le greffier. Mais
 il est impossible de le faire venir à Paris en ce mo-"
 
-È ment: il est fort occupé à rendre tout à fait indépen-
-dante la Norvège, sa patrie, qui même a mobilisé son"
+È ment: il est fort occupé à rendre tout à fait indépendante la Norvège, sa patrie, qui même a mobilisé son"
 » innombrable armée. Peut-être est-il en train de chercher:
 
 Se L'inconnu parut visiblement troublé par ces mots de
@@ -3217,7 +3074,7 @@ faut tout de suite rédiger une note pour les journaux du
 
 soir, et principalement pour le Temps. à
 ( - (x) Les aventures coloniales, audacieusement et presque cynique-
-;: ment ouvertes, fourniront une diversion au problème social et un
+ment ouvertes, fourniront une diversion au problème social et un
 
 : prétexte à un nationalisme tapageur. Eh.
 
@@ -3317,36 +3174,30 @@ de terre, subirait des assauts.:
 Il ne se trompait pas. On apprit bientôt qu'une
 puissance, demeurée monarchique, s'inquiétait déjà, et.
 
-peut-être à juste titre, de la formidable force d'expan-
-sion — et d'explosion — qu'allait posséder ce peuple de
+peut-être à juste titre, de la formidable force d'expansion — et d'explosion — qu'allait posséder ce peuple de
 comme certaines sociétés d'insectes, avec ses travail-:
 leurs spécialisés et heureux, producteurs de nourriture,
 ment aveugles, comme ils le sont physiquement chez les à
 termites, mais intrépides; tous animés enfin de l'esprit
-de la ruche ou de la termitière! On les entendait bour-
-donner; et dans ce bourdonnement confus, l'Allemagne:
+de la ruche ou de la termitière! On les entendait bourdonner; et dans ce bourdonnement confus, l'Allemagne:
 crut distinguer qu'il était question des Borusses qui #4
 sont des Russes, comme leur nom l'indique, et qu'il Sd:
 fallait par conséquent aller joindre, pour faire entrer
 leurs œufs dans le nid commun et terminer l'œuvre
 géante. Il était sage de tout prévoir: l'Allemagne mobi-
 È En France — et voilà ce qui d'abord est l'essentiel:
-- chez nous — la lecture des journaux devint très intéres-
-sante, Après quoi il y eut, suivant l'usage, une grande à
+- chez nous — la lecture des journaux devint très intéressante, Après quoi il y eut, suivant l'usage, une grande à
 séance à la Chambre.
 M. Jaurès devait interpeller, sur les événements de
 Russie, le ministre des affaires étrangères. On attendait CRE
 son discours avec curiosité, avec impatience, avec à
 inquiétude. Car, enfin, la situation était grave, même
 au point de vue de la politique intérieure. Déjà les
-ligues nationalistes et réactionnaires de Paris et du ter-
-ritoire entier s'agitaient. Dans les rues elles faisaient de:
+ligues nationalistes et réactionnaires de Paris et du territoire entier s'agitaient. Dans les rues elles faisaient de:
 crier: « À bas l'alliance! A bas la Russie! » Elles se;
 plaignaient que les chefs du mouvement en Russie Et
 eussent, non pas emprisonné — ils avaient supprimé la à
-prison — mais « mis hors d'état de nuire dans une en-
-
-ceinte fortifiée un assez bon homme, bien que d'idées
+prison — mais « mis hors d'état de nuire dans une enceinte fortifiée un assez bon homme, bien que d'idées
 un peu arrêtées, M. Pobiedonostzef, ancien président du
 Saint-Synode. Par des listes couvertes de signatures,
 elles exigeaient qu'il fût immédiatement relâché, au
@@ -3385,11 +3236,9 @@ il comptait exercer la « pratique active » de l'alliance:
 Une indicible émotion secouait la Chambre. L'extrême
 gauche applaudissait à la fois son leader et ses frères,
 d'Orient. Les nationalistes chantaient un hymne écla- EN
-tant au drapeau enfin déployé. Le général Jacquey ver-
-sait des larmes. Se penchant, M. Millevoye embrassa;
+tant au drapeau enfin déployé. Le général Jacquey versait des larmes. Se penchant, M. Millevoye embrassa;
 M. Jaurès. Le ministre des affaires étrangères répondit
-qu'en effet l'alliance russe demeurait la base inébranlable de notre politique. Le ministre de la guerre, inter-
-rogé, fit savoir que la nouvelle loi, fixant à trois;
+qu'en effet l'alliance russe demeurait la base inébranlable de notre politique. Le ministre de la guerre, interrogé, fit savoir que la nouvelle loi, fixant à trois;
 semaines le service militaire pour les simples ouvriers, [53
 à six ans pour les fils de rentiers et d'industriels, et à
 vingt-sept ans et neuf jours pour les congréganistes,
@@ -3399,8 +3248,7 @@ avions encore une armée.
 M. Jaurès, de retour à son banc, avait été l'objet
 d'une ovation. Cependant quelqu'un lui fit remarquer
 doucement que si, en janvier 1905, il était parvenu
-à faire dénoncer l'alliance russe, il n'eût pas au-
-jourd'hui l'occasion d'un si beau et si heureux succès.
+à faire dénoncer l'alliance russe, il n'eût pas aujourd'hui l'occasion d'un si beau et si heureux succès.
 — Mais, répondit-il avec simplicité, il ne s'agissait
 . alors que de donner des difficultés à un ministère que
 nous n'approuvions point!
@@ -3434,14 +3282,12 @@ se a déjà fait pour ses admirateurs de Belfort, en disant: «
 ceinte d'une couronne: en vérité cela ne m'étonnerait 3 de
 point. Quand j'aurai religieusement placé cette médaille: 1}
 sur mon cœur, M. Déroulède me fera également l'octroi,
-suivant son usage, de quelques cartes postales repré-
-sentant ses traits augustes. Mais il est vraisemblable CHER
+suivant son usage, de quelques cartes postales représentant ses traits augustes. Mais il est vraisemblable CHER
 qu'il ne songera seulement pas à y joindre ces mots
 « Elles sont ma carte de visite en carton ce qui pour- à
 tant me paraît découler comme de source de la première ne
 proposition. Quand ces diverses et attendrissantes céré- à à
-monies auront été célébrées, je pourrai poser des ques-
-tions. Sur quoi vais-je poser des questions? Belle
+monies auront été célébrées, je pourrai poser des questions. Sur quoi vais-je poser des questions? Belle
 demande: sur l'avenir de la patrie. Et certes je pourrai
 noter quelques magnifiques coups de clairon.
 
@@ -3499,8 +3345,7 @@ pas de réagir contre un autre: celui qui depuis trente
 
 ans nous a valu, et à valu à l'Europe d'être où nous en
 sommes et où elle en est! (1):
-— Ah!s'écria M. Léger, que votre retour était néces-
-saire! Nul, depuis bien longtemps, n'avait prononcé
+— Ah!s'écria M. Léger, que votre retour était nécessaire! Nul, depuis bien longtemps, n'avait prononcé
 des paroles si braves et si chaleureuses. On ne nous
 avait pas trompés en nous disant que quelque chose en
 France serait changé avec votre retour, et que nos
@@ -3514,12 +3359,10 @@ bataillon de marche, à mes côtés, courant à la frontière.
 Cette ardeur est presque dangereuse. Nous n'en sommes
 pas encore là, et dans mon for intérieur, je suis d'avis
 que ce ne serait pas à faire, »
-Il continua donc, un peu hypocritement, pour se ras-
-surer lui-même, et se prouver qu'une conflagration
+Il continua donc, un peu hypocritement, pour se rassurer lui-même, et se prouver qu'une conflagration
 européenne n'était pas rendue absolument imminente
 par un déchaïînement d'enthousiasme révolutionnaire:
-— Tout le monde, hélas! montrerait-il votre coura-
-geuse abnégation? Il me semble que dans les ports.
+— Tout le monde, hélas! montrerait-il votre courageuse abnégation? Il me semble que dans les ports.
 — Il est vrai, dit l'homme. Après avoir prêté l'oreille EN
 aux déclamations les plus basses, une populace effrénée
 s'y livre aux plus déplorables excès. Maïs ces gens-là,
@@ -3537,7 +3380,7 @@ TAN scandale ait lieu, ni à Brest, ni à Toulon. 10%
 — Qui vous parle de Brest ou de Toulon, fit le voyaete geur d'un air impatient. Cela s'est passé il y a deux,
 jours, dans une de nos villes de Russie, j'en suis sûr.
 nie — En Russie! cria stupéfait M. Léger. Mais vous.
-eee n'êtes donc pas M. Paul Déroulède? à: #4
+eee n'êtes donc pas M. Paul Déroulède? #4
 FORME — Moi? dit-il. Je ne connais pas la personne dont”
 vous parlez, même de nom. Je n'appelle Pierre Kropot-
 HER kine. Et je suis un homme très doux. 5100
@@ -3557,14 +3400,13 @@ est-elle, l'École du Plein-Air? L'École d'Élée était à En
 de Salerne à Salerne. Et quant à l'École d'Athènes, à A
 celle de Rome, à l'École Polytechnique, à l'École de
 Saint-Cyr, nous savons où c'est. Seule l'École du Plein-:
-Air n'avait pas d'adresse: il appartenait à notre légis-
-lature finissante de réparer une si cruelle injustice. Je Le:
+Air n'avait pas d'adresse: il appartenait à notre législature finissante de réparer une si cruelle injustice. Je Le:
 tiens d'ailleurs de source sûre que le gouvernement ne LA
 compte pas s'arrêter à cette unique innovation: bientôt A
 il demandera au budget les sommes indispensables
 pour aménager le domaine de nos connaissances, et
 même élargir le terrain de la discussion. Toutes dé- SE
-penses dont le besoin se faisait sentir. »!
+penses dont le besoin se faisait sentir.
 Quoi qu'il en soit, nous pouvons dès maintenant aflir-:
 
 : mer que toutes les mesures ont été prises pour que
@@ -3609,8 +3451,7 @@ représenter au naturel l''Angelus de Millet, lequel devra
 
 exception, à moins qu'ils ne montrent un certificat sur
 papier timbré, signé et légalisé par le maire ou le commissaire de police de leur commune, comme quoi cet
-exercice est contraire à leurs convictions antireli-
-gieuses. Auquel cas ils devront imiter, toujours d'après:
+exercice est contraire à leurs convictions antireligieuses. Auquel cas ils devront imiter, toujours d'après:
 des figurants bien choisis, les Bœufs de Rosa Bonheur.
 
 trois heures, la musique jouera l'air de Pierre Du- à
@@ -3685,8 +3526,7 @@ d'après les cours de leurs professeurs, puis en se ser- ne
 vant de photographies instantanées, puis avec un téles- pue UN
 cope, puis avec des verres grossissants, puis à travers A du
 des cristaux de couleur, puis au bout de sept ans, à SE
-Vœil nu, quelquefois. Pour sortir, ils devront de pré-
-férence prendre le Métropolitain, afin de ne pas gâtee
+Vœil nu, quelquefois. Pour sortir, ils devront de préférence prendre le Métropolitain, afin de ne pas gâtee
 leur éducation visuelle.
 Au bout de deux années révolues, les élèves les plus RARE
 méritants recevront un diplôme de peintre de plein-air,
@@ -3726,9 +3566,7 @@ fût, sans perdre une minute, envoyé dans la région « d'Étampes. Ce jeune ho
 rompu à tous les sports, devra nous rendre compte,
 sans jamais omettre un seul détail, des événements sin
 guliers dont cet arrondissement est le théâtre depuis la
-disparition de l'abbé Delarue. Avant toutes choses, estil besoin de le dire, il lui a été recommandé de s'atta162
-
-cher aux pas de l'hyène qu'un de nos confrères vient
+disparition de l'abbé Delarue. Avant toutes choses, estil besoin de le dire, il lui a été recommandé de s'attacher aux pas de l'hyène qu'un de nos confrères vient
 d'engager comme collaborateur, de ne la quitter ni jour
 ni nuit, et de tenir un registre exact et complet de ses
 
@@ -3769,12 +3607,11 @@ laisse elle conduit à
 Remarde. Rencontrant le «
 traversée sans hésitation. À 4 y
 marande, elle a escalac Mais
-dompteur est resté en 1 a:
+dompteur est resté en
 est dompteur et non refusant
 dedescendre, on a télég Brétigny
 pourqueles pompiers vie
 mue j'attendais, en:ai l'Étampes, les à
-PPT. Mirain spécial, j'ai
 qu'une hyène
 te chacals ont été
 
@@ -3808,7 +3645,7 @@ exil. Il est guidé dans ses recherches par le grand
 serpent sacré d'Abomey, magnifique boa qu'il tient par
 . la queue. Tous les quarts d'heure il s'arrête pour danser RER
 la danse du vaudou. Nous prenons tous des notes, et on ES
-le photographie au magnésium. »;
+le photographie au magnésium.
 « Nous avons tous cru un instant à la solution du
 mystère. L'hyène, dans sa course rapide, prenait des ie.
 allures de plus en plus décidées. Il devenait évident >.
@@ -3825,8 +3662,7 @@ sans insister davantage, est rentré dans la cour de
 l'hôtel du Grand-Monarque, où il s'est mis à se repaître
 tranquillement de son butin. » à
 « Seconde alerte: un des condors, après avoir tracé
-de larges cercles dans les hautes régions de l'atmo-
-sphère, a foncé subitement vers un objet que nous ne: sr)
+de larges cercles dans les hautes régions de l'atmosphère, a foncé subitement vers un objet que nous ne: sr)
 pouvions apercevoir parce qu'il se trouvait dans un mn?
 jardin privé, clos de murailles. Bondir par-dessus ees
 murailles n'a été qu'un jeu pour moi et mes confrères. Me
@@ -3849,8 +3685,7 @@ s'attaquer jamais à une proie vivante. Nous avons donc"
 été demander une consultation au Muséum. On nous y.
 a répondu: « Un tel événement est par malheur "4
 ‘possible. Il y a au moins deux variétés d'hyène. La
-variété striata, la plus commune, est en effet relative-
-ment inoffensive. Mais celle dont vous nous parlez
+variété striata, la plus commune, est en effet relativement inoffensive. Mais celle dont vous nous parlez
 appartient évidemment à la variété crocuta, qui a
 conservé les habitudes et les traditions de son terrible
 ancêtre des cavernes, et que le savant Schweïinfurth a À
@@ -3884,8 +3719,7 @@ les journaux, août 1905
 Avertissement de la direction du Temps. — Nous sommes
 malheureusement obligés de prévenir notre public que
 l'En Passant qu'on lire n'est pas de M. Pierre Mille, bien
-que, d'une manière, hélas, tout à fait directe, il y soit ques-
-tion de lui. Nous ne savons même pas si ce collaborateur,
+que, d'une manière, hélas, tout à fait directe, il y soit question de lui. Nous ne savons même pas si ce collaborateur,
 qui jusqu'à présent nous avait paru si accommodant, voudra
 continuer d'écrire dans ce journal. Il se targue, en effet, de A
 son nouveau titre pour exiger de notre caissier des sommes
@@ -3918,8 +3752,7 @@ depuis hier j'ai annexé à cet empire le Baghirmi, “#4
 l'Adrar, et d'autres pays dont j'ai déjà oublié les roms. Een.
 Mais ils existent, soyez-en sûr, ils sont sur la carte. Et; Ta à
 cela les distingue du château de Marcotte. LE
-— Vous n'aviez pas parlé d'abord de l'Adrar, obser-
-vâmes-nous timidement.
+— Vous n'aviez pas parlé d'abord de l'Adrar, observâmes-nous timidement.
 — Je n'en avais pas parlé? fit le souverain — et son
 œil jeta un éclair impérieux qui nous fit comprendre le de
 en parle. J'ai annexé l'Adrar, tenez-vous-le pour dit.
@@ -3979,24 +3812,20 @@ tirera lui-même des mines. Et puisqu'on brûle du
 charbon de terre dans les locomotives, il est évident
 que les chemins de fer doivent également appartenir à
 l'Empire.
-ARTICLE 3. — Nous voulons que l'Empire soit pro-
-spère au dedans, fort et respecté au dehors. En vertu
+ARTICLE 3. — Nous voulons que l'Empire soit prospère au dedans, fort et respecté au dehors. En vertu
 de ce principe nous décidons qu'il ne sera constitué?
 aucune espèce d'armée permanente, mais seulement des
-milices. Chaque citoyen sera tenu d'accomplir un ser-
-vice de trois semaines tous les sept ans. Les citoyens ou
+milices. Chaque citoyen sera tenu d'accomplir un service de trois semaines tous les sept ans. Les citoyens ou
 recommandés par leurs députés seront tous exemptés, #4
 cela de soi.
 Le port d'armes est supprimé.:
-Le demi-tour par principes est supprimé. On fera demi-
-tour comme on voudra.
+Le demi-tour par principes est supprimé. On fera demitour comme on voudra.
 Les officiers sont supprimés. RER
 L'uniforme est supprimé.
 En temps de guerre, à l'arrivée de l'ennemi, les troupes
 exécuteront la consigne en cas d'alerte, qui est de s'es- À
 ARTICLE 4. — La liberté de la presse est absolue.
-Mais le gouvernement se réserve le droit de subven-
-tionner, sur ses fonds secrets, une presse d'opposition,
+Mais le gouvernement se réserve le droit de subventionner, sur ses fonds secrets, une presse d'opposition,
 chargée de l'accuser, en termes injurieux, de crimes AUS
 tellement idiots qu'il pourra perpétrer ensuite toutes les.
 Msottises qu'il voudra, sans que personne s'en aperçoive
@@ -4009,8 +3838,7 @@ est ile
 se L'objet principal du régime parlementaire étant de faire
 è Por 4 contrôler les dépenses de l'État par les contribuabl
 te ai les députés s'efforceront d'augmenter, chaque année, les
-charges du pays. Ceux qui auront le mieux réuss pas-
-seront ministres. J'TE
+charges du pays. Ceux qui auront le mieux réuss passeront ministres. J'TE
 AnTicce 6.— Tous les citoyens du Touât devront êlre
 fonctionnaires, afin que le gouvernement puisse être
 : assuré de leur fidélité au régime.
@@ -4092,8 +3920,7 @@ pas, doivent se prosterner sur mon passage. Or, non
 seulement les blancs s'abstenaient de se prosterner,
 mais ils ne me saluaient même pas. J'en étais quitte, À
 lorsque je rencontrais, dans les rues de Pnom-Penh, un a
-ferblantier européen, pour détourner les yeux, et affec-
-ter de ne l'avoir pas vu. Mais quand je serai en France,!
+ferblantier européen, pour détourner les yeux, et affecter de ne l'avoir pas vu. Mais quand je serai en France,!
 où je suppose qu'il y a beaucoup plus de ferblantiers,
 pourrai-je continuer à les ignorer?
 — Sire, répondit le blanc-qui-savait, cela s'arran-
@@ -4163,8 +3990,7 @@ Jaissait mener au hasard, comme une chatte affamée
 - suit le boucher dans la rue. Un Arabe en serrait une de Hi:
 autre dans les plis de son burnous sale, et il disait: RAT
 . Taïba! » d'un air concupiscent. Enfin, Mahmadou
-promenait fièrement un harem de trois femmes blan-
-ches, qui était bien à lui, et qu'il n'avait point payé.
+promenait fièrement un harem de trois femmes blanches, qui était bien à lui, et qu'il n'avait point payé.
 Le soir, on conduisit le roi Sisowath au théâtre, pour NPA
 
 un gala. Chacun s'inclinait fort bas devant lui. Mais on
@@ -4207,11 +4033,8 @@ ordres; car je persiste à l'empêcher de percevoir luimême, et de garder pour 
 montant des impôts; de vendre celles de ses femmes
 qui ont cessé de lui plaire, et de rendre la justice à sa
 
-« Je dois de plus vous signaler, monsieur le gouver-
-neur général, que les indigènes revenus de l'Exposition
-; de Marseille sont ici une cause de trouble et de démo-
-
-ralisation. Ils racontent sur les dames européennes, À
+« Je dois de plus vous signaler, monsieur le gouverneur général, que les indigènes revenus de l'Exposition
+; de Marseille sont ici une cause de trouble et de démoralisation. Ils racontent sur les dames européennes, À
 a dont ils n'ont pas des échantillons avantageux, des.
 histoires qui sont de nature à compromettre le bon
 renom de la race supérieure, et affirment de plus NÉE
@@ -4339,14 +4162,13 @@ moi. — Contribution aux Preuves. — Lionel Landry.
 — Charles Péguy. — Procès-verbaux; commen-:
 lectuels et socialisme. — André Bourgeois. — quatre FRE
 
-— Charles Péguy. — Compte rendu de man-
-dat, trois exemplaires sans couverture, prix actuel.. 12 »
+— Charles Péguy. — Compte rendu de mandat, trois exemplaires sans couverture, prix actuel.. 12 »
 
 l'instituteur de village.................... prix actuel 12 »
 
 — Charles Péguy. — Librairie des cahiers. —
 
-Georges Sorel. — quelques mots sur Proudhon...... 1 »;
+Georges Sorel. — quelques mots sur Proudhon......
 
 1-14. — Expulsion de Nicolas Paouli. — Léon
 Deshairs. — Hoecklin chez les Français. — Louise
@@ -4451,9 +4273,8 @@ cinquième série énoncés ci-dessus. Pour tous renseignements les plus complet
 … scolaire 1904-1905, nos cahiers ont publié:
 VI-r. — CnaRLes PéGuyx. — Texte sans commentaires. — Catalogue analytique sommaire, — 19001904, — de nos cinq premières séries................ 5 »
 — ALexis BERTRAND. — L'égalité devant l'instruction, — crise de l'enseignement................. 2 »
-— Raou ALLIER. — L'enseignement pri-
-maire des indigènes à Madagasoar...............
-VIS. — Roma RozcanD. — Jean-Christophe. —;
+— Raou ALLIER. — L'enseignement primaire des indigènes à Madagasoar...............
+VIS. — Roma RozcanD. — Jean-Christophe.
 la seule édition complète. — III. — L'adolescent...
 — Textes formant dossier. — La délation aux:
 VI-10. — BRENN. — Yves Madec professeur de colRe sans nee ne aigle ain o das ete 2 RON
@@ -4478,7 +4299,7 @@ analytique très sommaire de la sixième série....... 1 »
 VIi-2. — Cnarres Ricaer. — La paix et la guerre 1 »
 — CHarLes PÉGuy. — notre patrie.......... 1 »
 VII-7. — CHaRLes PÉGUY. — les suppliants parallèles. — FRANÇoIs PorcHé. — les suppliants......... 2 ».
-l'enseignement supérieur en France. —1......... 2 »:
+l'enseignement supérieur en France. —1.........
 à l'enseignement supérieur en France. —Il...... 3 »
 VII-15. — les cahiers d'Arnold Scherer......... 2 »
 VII-16. — Prgrre Mizce, FÉLICIEN CHALLAYE. — les
@@ -4500,14 +4321,13 @@ Vlll-r. — petit index alphabétique de nos éditions
 illustres. — la vie de Michel-Ange.—II.— l'abdication 3 »
 . l'histoireetàlasociologie danslestemps modernes 2 »
 VIII-4. — Romain RoLLAND.— Jean-Christophe, — » la seule édition complète. — IV. — la révolte. — 1.;
-au parti intellectuel dans le monde moderne... 2 »:
+au parti intellectuel dans le monde moderne...
 VULI-6. — Romain RoLLanD. — Jean-Christophe. —
 la seule édition complète. — IV. — la révolte.
 Shakespeare, — essai d'une interprétation en vers
 VILI-8. — JEAN BONNEROT. — le livre des livres, —
 la seule édition complète. — IV. — la révolte.
-VIll-10. — Enmonp BERNUS. — Polonais et Prus-
-siens, — de la résistance du peuple polonais aux:
+VIll-10. — Enmonp BERNUS. — Polonais et Prussiens, — de la résistance du peuple polonais aux:
 exactions de la germanisation prussienne. — I...... 2 »
 Vili-12. — Epmonp BERNUS. — Polonais et Prussiens, — de la résistance du peuple polonais aux
 . exactions de la germanisation prussienne. — IL.... 2 »
@@ -4528,7 +4348,7 @@ VIlI-r. — petit index alphabé [ue de nos éditions
 antérieures et de nos sept pre 1 séries /1900-1906),
 —table analytique très somme de notre septième
 Vilt-2. — Roman RoLLa Vies des hommes
-illustres. —la vie de Michel-Ang —Il.— labdication 3 »:
+illustres. —la vie de Michel-Ang —Il.— labdication
 VILL-3. — Cirances Péauy. — de à situation faite à
 Y'histoire et à la sociologie stemps modernes 2 »
 la seule édition complète. - la révolte.
@@ -4583,8 +4403,7 @@ commence avec le présent cahier, envoyer en un mandat
 quinzaine, à leur date, les cahiers à paraître de cette
 
 re-de-chaussée, Paris, cinquième arrondissement.
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordiFa naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordiFa naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration: ces fonctions
 Nos Cahiers paraissent par séries; une série paraît.
 :4 dans le temps d'une année scolaire, d'une année

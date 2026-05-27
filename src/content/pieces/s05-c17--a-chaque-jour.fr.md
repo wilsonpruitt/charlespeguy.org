@@ -15,17 +15,10 @@ série, paraissant le dimanche 2 loctobre prochain, sera
 le catalogue analytique sommaire de nos cinq premières
 
 séries; nous demandons à nos abonnés, de même que
-nous pensons dès aujourd'hui à préparer l'établisse-
-
-ment de ce catalogue, de penser, pour leur part,äenpré-
-parer la distribution utile; c'est-à-dire que nous leur
+nous pensons dès aujourd'hui à préparer l'établissement de ce catalogue, de penser, pour leur part,äenpréparer la distribution utile; c'est-à-dire que nous leur
 demandons, pendant l'achèvement de cette cinquième
 
-série, de chercher et de nous indiquer à qui nous pour-
-
-rons utilement envoyer ce catalogue analytique som-
-
-maire, comme nous envoyons nos vient de paraître; pour
+série, de chercher et de nous indiquer à qui nous pourrons utilement envoyer ce catalogue analytique sommaire, comme nous envoyons nos vient de paraître; pour
 
 ! savoir ce qui aura paru dans les cinq premières séries
 des cahiers, il suffit d'envoyer dès aujourd'hui son nom

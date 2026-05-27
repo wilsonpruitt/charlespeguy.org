@@ -40,8 +40,7 @@ méthodes se présentaient: la méthode petite-bourgeoïse,
 et la méthode révolutionnaire. Sur les quatre cents
 abonnés fermes que nous avions alors, nous étions
 assurés que plus de la moitié nous resteraient fidèles.
-Nous pensions aussi que près de la moitié ne deman-
-daient qu'à nous quitter. Je ne veux pas faire incidem- À
+Nous pensions aussi que près de la moitié ne demandaient qu'à nous quitter. Je ne veux pas faire incidem- À
 ment l'histoire de nos cahiers. Il y faudra tout un cahier.
 Cette histoire sera une sérieuse contribution à l'histoire
 de l'action et de la pensée contemporaine. Je ne puis
@@ -81,8 +80,7 @@ par de sérieuses références. La plupart de nos abonnés
 gratuits nous assurent que nos cahiers sont beaucoup
 lus autour d'eux et voyagent en pays abandonnés.
 Sur demandes fortement motivées, nous avons gardé
-Décidés que nous sommes à garder toutes nos char-
-ges, nous demandons que nos abonnés nous procurent
+Décidés que nous sommes à garder toutes nos charges, nous demandons que nos abonnés nous procurent
 les moyens d'équilibrer nos budgets.
 Plusieurs de nos abonnés gratuits ont d'eux-mêmes
 souscrit des abonnements de propagande. Nous nous
@@ -103,8 +101,7 @@ peuvent ou s'ils ne peuvent pas devenir pour vingt
 Cependant nous attirons l'attention de tous nos amis
 sur l'avantage que nous avons à ce que de nouveaux
 abonnements de propagande soient souscrits.Sans doute
-le prix de l'abonnement de propagande est très sensiblement inférieur au prix de revient, mais, les frais gé-
-néraux, la composition, la correction, la mise en pages,
+le prix de l'abonnement de propagande est très sensiblement inférieur au prix de revient, mais, les frais généraux, la composition, la correction, la mise en pages,
 la mise en train demeurant les mêmes, l'introduction de
 tout nouvel abonnement fait baisser le prix de revient
 pour chaque exemplaire. Tout industriel et tout commerçant me comprendra. Nous avons donc intérêt financier à ce que nos anciens abonnés nous fassent des
@@ -126,16 +123,13 @@ de propagande veut dire abonnement pour la propagande, et nous croyons que la pr
 le plus utilement parmi ceux qui ne sont pas convertis.
 
 septième cahier de la deuxième série
-Nos abonnés ordinaires n'ont pas tous payé leur abon-
-nement à la deuxième série. Nous prions ceux qui sont
+Nos abonnés ordinaires n'ont pas tous payé leur abonnement à la deuxième série. Nous prions ceux qui sont
 en retard de vouloir bien s'acquitter.
 Nous avons quelques abonnés de souscription à la
 première série. Nous espérons qu'ils nous continueront
-leur abonnement. Nous avons peu de ces grands abonne-
-ments. Depuis que nous sommes institués nous n'avons
+leur abonnement. Nous avons peu de ces grands abonnements. Depuis que nous sommes institués nous n'avons
 pas reçu un sou des républicains honnêtes qui subven-.
-tionnent les autres institutions de propagande républicaine. Je ne ferai pas de démarches. Mais je me per-
-mets d'attirer sur cette situation l'attention des intéressés, de ceux qui les approchent.
+tionnent les autres institutions de propagande républicaine. Je ne ferai pas de démarches. Mais je me permets d'attirer sur cette situation l'attention des intéressés, de ceux qui les approchent.
 
 Je répète que je n'admets pas que l'on ne soit pas
 abonné aux cahiers, quand on le peut. Non pas que j'en
@@ -240,9 +234,7 @@ le nombre des abonnements.
 
 partir du 10 mars nous ferons présenter des reçus
 par la poste à ceux de nos abonnés qui ne nous auront
-pas manifesté leurs intentions. Nos reçus sont en géné-
-
-septième cahier de la deuxième série
+pas manifesté leurs intentions. Nos reçus sont en généseptième cahier de la deuxième série
 ral calculés de manière que nos abonnés de propagande
 paient leur abonnement en trois ou quatre mensualités
 de deux ou trois francs, et que nos abonnés ordinaires

@@ -12,11 +12,9 @@ paraissant seize fois par an
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
-- grand nombre de documents, de textes formant dos-
-si grand nombre de cahiers de lettres, — nouvelles,
+- grand nombre de documents, de textes formant dossi grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un
-si grand nombre de cahiers d'histoire et de philo-
-sophie; et ces documents, renseignements, textes,;
+si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes,;
 25 dossiers et commentaires, ces cahiers de lettres,
 d'histoire et de philosophie étaient si considérables
 que nous ne pouvons pas songer à en donner ici
@@ -29,9 +27,7 @@ sommaire, 1900-1904, de nos cinq premières à
 ner Ce catalogue a été justement établi pour donner, “4
 autant qu'il se pouvait, une image en bref, un raccou di.
 
-. ane idée, abrégée, mais complète, de nos éditions anté-
-
-rieures de nos cinq premières séries; tout y est classé
+. ane idée, abrégée, mais complète, de nos éditions antérieures de nos cinq premières séries; tout y est classé
 
 dans l'ordre; il suffit de le lire pour trouver, à leur
 
@@ -48,9 +44,7 @@ très épais de XI14/08 pages très denses, marqué cinq
 
 … série; toute personne qui jusqu'au 31 décembre 1905
 
-… s'abonnait rétrospectivement à la sixième série le rece-
-
-vait, par le fait même de son abonnement, en tête de la
+… s'abonnait rétrospectivement à la sixième série le recevait, par le fait même de son abonnement, en tête de la
 
 « série; nous l'envoyons contre un mandat de cinq francs
 
@@ -147,8 +141,7 @@ trois francs, ce cahier se vend aujourd'hui trois francs.
 Ainsi publié en six cahiers pour les quatre livres, le
 - Jean-Christophe est un ouvrage complet. Nous rappelons
 que cette édition du Jean-Christophe dans les cahiers
-en est la première édition; qu'elle en est l'édition Com-
-plète; qu'elle en est la seule édition complète: quelle a
+en est la première édition; qu'elle en est l'édition Complète; qu'elle en est la seule édition complète: quelle a
 été tirée à un petit nombre d'exemplaires; qu'elle ne
 sera pas réimprimée. Je crois devoir ajouter qu'il ne.
 nous en reste aujourd'hui qu'un très petit nombre
@@ -161,8 +154,7 @@ volume à trois francs cinquante; LES
 : Troisième volume, le troisième livre, l'adolescent,
 ; Quatrième volume, et dernier, le quatrième livre, et"
 dernier, la révolte, un volume à trois francs cinquante En
-Non seulement ces quatre volumes de l'édition len-
-dorff sont en vente à la librairie des cahiers; mais ous -
+Non seulement ces quatre volumes de l'édition lendorff sont en vente à la librairie des cahiers; mais ous -
 
 4 demandons naturellement à nos amis et à nos abonnés rue
 , de continuer à se pourvoir de ces volumes, autant gui Ne
@@ -199,9 +191,7 @@ Jean-Christophe à Paris
 PREMIER LIVRE. — la Foire sur la Place;
 DEUXIÈME LIVRE. — Dans la Maison.
 
-Les Jeannin étaient une de ces vieilles familles fran-
-
-çaises, qui, depuis des siècles, restent fixées au même!
+Les Jeannin étaient une de ces vieilles familles françaises, qui, depuis des siècles, restent fixées au même!
 
 coin de province, et pures de tout alliage étranger. Il y
 
@@ -211,9 +201,7 @@ changements survenus dans la société; il faut un
 bouleversement bien fort pour les arracher au sol où
 
 elles tiennent par de profonds liens, qu'elles ignorent
-elles-mêmes. La raison n'est pour rien dans leur attachement, et l'intérêt pour peu; quant au sentimenta-
-
-lisme érudit des souvenirs historiques, il ne compte que
+elles-mêmes. La raison n'est pour rien dans leur attachement, et l'intérêt pour peu; quant au sentimentalisme érudit des souvenirs historiques, il ne compte que
 
 ; pour quelques littérateurs. Ce qui lie d'une étreinte
 invincible, c'est l'obscure et puissante sensation, com-
@@ -226,9 +214,7 @@ depuis des siècles un morceau de cette terre, de vivre
 
 cœur contre le sien, comme deux êtres couchés dans le
 
-même lit, côte à côte, de saisir ses frissons impercep-
-
-tibles, les mille nuances des heures, des saisons, des:
+même lit, côte à côte, de saisir ses frissons imperceptibles, les mille nuances des heures, des saisons, des:
 
 jours clairs ou voilés, la voix et le silence des choses. À
 
@@ -250,8 +236,7 @@ les Jeannin. Pays plat et humide, vieille petite ville
 d'un canal immobils; autour, champs monotones, terres …
 venir, Rien n'est fait pour attirer. Tout est fait pour
 retenir. Il y a dans cette torpeur et cet engourdissement
-une force secrète. L'esprit qui les goûte pour la pre-
-mière fois en souffre et se révolte. Mais celui qui, depuis
+une force secrète. L'esprit qui les goûte pour la première fois en souffre et se révolte. Mais celui qui, depuis
 
 des générations, en a subi l'empreinte, ne saurait plus
 s'en déprendre; il en est pénétré jusqu'aux moelles;
@@ -266,8 +251,7 @@ Les Jeannin avaient toujours vécu là. On pouvait
 suivre les traces de la famille jusqu'au seizième siècle,
 dans la ville et aux environs: car il y avait naturel-
 - lement un grand-oncle, qui avait consacré sa vie à
-… dresser la généalogie de cette lignée d'obscures et labo-
-rieuses petites gens: paysans, fermiers, artisans de village, puis clercs, notaires de campagne, venus enfin
+… dresser la généalogie de cette lignée d'obscures et laborieuses petites gens: paysans, fermiers, artisans de village, puis clercs, notaires de campagne, venus enfin
 s'installer dans la sous-préfecture de l'arrondissement,
 où Augustin Jeannin, le père du Jeannin- actuel, avait
 fort adroitement fait ses affaires, comme banquier:
@@ -291,8 +275,7 @@ de rire. Les convulsions de cette gaieté gagnaient les
 x. domestiques dans la cuisine, et les voisins dans la rue.
 
 Jean-Christophe à Paris FES
-Puis, le vieux Augustin avait pris une fluxion de poi-
-trine, un jour d'été très chaud qu'il s'était avisé de
+Puis, le vieux Augustin avait pris une fluxion de poitrine, un jour d'été très chaud qu'il s'était avisé de
 7% descendre dans sa cave, en bras de chemise, pour
 . mettre son vin en bouteilles. En vingt-quatre heures, il
 était parti pour l'autre monde, auquel il ne croyait
@@ -308,8 +291,7 @@ pitée et bredouillante, — qui faisait beaucoup de bruit,
 et s'agitait avec de petits gestes vifs et courts. Il n'avait Si
 : pas l'intelligence financière du père; mais il était assez!
 4 bon administrateur. Il n'avait qu'à continuer tranquille-"
-mentles entreprises commencées,qui allaient en s'agran-
-dissant, chaque jour, par le seul fait de leur durée.
+mentles entreprises commencées,qui allaient en s'agrandissant, chaque jour, par le seul fait de leur durée.
 bénéficiait dans le pays d'une réputation d'affaires,
 bien qu'il fût pour peu de choses dans leur succès; il
 4 reste, il était parfaitement honorable et inspirait pare:
@@ -337,7 +319,7 @@ effet que cet anticléricalisme des petites villes françaises
 la guërre des ménages, une forme détournée de cette He.
 lutte éternelle entre maris et femmes, qui se retrouve
 3 dans presque toutes les maisons.?:34
-0 Antoine Jeannin avait aussi des prétentions litté
+Antoine Jeannin avait aussi des prétentions litté
 raires. Comme les gens de province de sa génération, il
 était nourri de classiques latins, dont il savait par cœur SD:
 leau, (le Boileau de l'Art Poétique et surtout du Lutrin),
@@ -345,13 +327,11 @@ I. de l'auteur de la Pucelle, et des poetae minores du dix
 3 huitième siècle français, dans le goût desquels il s'effor- Ge:
 Le _gait de rimer quelques pièces. Il n'était pas le seul, dans
 … son cercle de connaissances, qui eût cette manie; et elle
-+4 _ajoutait à sa réputation. On se répétait de lui des facé-
-ties en vers, des quatrains, des bouts-rimés, des acro- à
++4 _ajoutait à sa réputation. On se répétait de lui des facéties en vers, des quatrains, des bouts-rimés, des acro- à
 - stiches, des épigrammes et des chansons, parfois assez
 FLE k. isquées, qui ne manquaient pas d'un certain esprit, bien
 en chair. Les mystères de la digestion n'y étaient pas
-LE - oubliés: la Muse des pays de la Loire embouche volon-
-tiers sa trompette, à la façon du diable fameux de
+LE - oubliés: la Muse des pays de la Loire embouche volontiers sa trompette, à la façon du diable fameux de
 Rs.. «... egli avea del cul fatto trombetta. »
 
 des Jean-Ghristophe à Paris
@@ -389,12 +369,10 @@ Ke” elle ne s'y intéressait point.) A
 
 FE. Ils avaient deux enfants: une fille, Antoinette, qui
 … était l'aînée de cinq ans, et un garçon, Olivier.
-Antoinette était une jolie brunette, qui avait une gra-
-cieuse et honnête petite figure à la française, ronde,
+Antoinette était une jolie brunette, qui avait une gracieuse et honnête petite figure à la française, ronde,
 avec des yeux vifs, le front bombé, le menton fin, un
 petit nez droit, — « un de ces nez fins et nobles au plus
-…. joly (comme dit gentiment un vieux portraitiste fran-
-çais), « et dans lequel il se passoit certain petit jeu
+…. joly (comme dit gentiment un vieux portraitiste français), « et dans lequel il se passoit certain petit jeu
 imperceptible qui animoit la physionomie et indiquoit
 finesse des mouvemens qui se fesoient au dedans
 d'elle, à mesure qu'elle parloit ou qu'elle écoutoit ». Elle
@@ -482,8 +460,7 @@ canal miroitant et mort, des deux côtés duquel les
 4 peupliers alignés frissonnaient. Et puis, c'étaient les
 grands diners de province, les mangeries interminables,
 où l'on parlait de mangeaille, avec science et volupté: À
-car il n'y avait que des connaisseurs; et la gourman-
-dise est, en province, la grande occupation, l'Art par =.
+car il n'y avait que des connaisseurs; et la gourmandise est, en province, la grande occupation, l'Art par =.
 excellence. Et l'on parlait aussi d'affaires, et de gauloi- À
 series, et, et là, de maladies, avec des détails sans
 fin. — Et le petit garçon, assis dans son coin, ne faisait
@@ -503,8 +480,7 @@ a souris, la terreur des vies monstrueuses, que l'on savait pe.
 5 grouiller dans les entrailles de la vieille maison: les
 je gros rats, les araignées énormes et velues; la prière au "4
 pied du lit, où l'on ne savait guère ce que l'on disait; à
-si la petite cloche saccadée de l'hospice voisin, qui son-
-res naît le coucher des religieuses; — le lit, l'île des rêves...
+si la petite cloche saccadée de l'hospice voisin, qui sonres naît le coucher des religieuses; — le lit, l'île des rêves...
 Les meilleurs moments de l'année étaient ceux qu'on
 passait, au printemps et à l'automne, dans une pro
 priété de famille, à quelques lieues de la ville. Là, on
@@ -578,8 +554,7 @@ Jean-Christophe à Paris
 ennemi. Il tressaillait, comme un levraut, au bruit due:
 pomme de pin qui tombait, ou d'une branche sèche qui
 se cassait.. Il se rassuraïit, en entendant, à l'autre bout
-du jardin, tinter les anneaux de la balançoire, où Antoi-
-nette se berçait, avec rage. ACT
+du jardin, tinter les anneaux de la balançoire, où Antoinette se berçait, avec rage. ACT
 Elle révait aussi; mais c'était à sa façon. Elle passait … à
 la journée à fureter dans le jardin, gourmande, curieuse,
 et rieuse, picorant les raisins des vignes, comme une
@@ -588,14 +563,12 @@ grimpant sur un prunier, ou lui donnant en passant de
 petites tapes sournoises, pour faire tomber la pluie dés
 mirabelles d'or, qui fondent dans la bouche comme un
 miel parfumé. Ou elle cueillait des fleurs, bien que ce
-fût défendu: vite, elle arrachaït une rose qu'elle con-
-voitait depuis le matin, et elle se sauvait avec, dans la ME
+fût défendu: vite, elle arrachaït une rose qu'elle convoitait depuis le matin, et elle se sauvait avec, dans la ME
 charmille au fond du jardin. Alors, elle enfouissait son
 petit nez voluptueusement dans la fleur enivrante, elle,
 la baïsaït, la mordait, la suçait; et puis, elle cachait
 son larcin, elle l'enfonçait dans son cou, contre sa gorge,
-3 sur sa peau, entre ses deux petits seins, qu'elle regar-
-dait curieusement se gonfler sous sa chemisette entre
+3 sur sa peau, entre ses deux petits seins, qu'elle regardait curieusement se gonfler sous sa chemisette entre
 bâillée.. Une volupté aussi, exquise et défendue, était
 d'enlever ses chaussures et ses bas, et de s'en aller
 pieds nus sur le sablon frais et fin des allées, et sur
@@ -654,8 +627,7 @@ bouche, il protestait avec indignation, tandis qu'elle se …
 75 -sauvait à toutes jambes, en riant. “4
 Elle riait toujours. La nuit, dans son sommeil, elle
 riait encore. Olivier, couché dans la chambre voisine,
-RER, et qui ne dormait point, sursautait au milieu des his-
-toires qu'il se contait, en entendant ces fous rires ét.
+RER, et qui ne dormait point, sursautait au milieu des histoires qu'il se contait, en entendant ces fous rires ét.
 - les paroles entrecoupées qu'elle disait dans le silence
 de la nuit. Dehors, les arbres craquaient sous le souffle DES
 du vent, une chouette pleurait, les chiens hurlaïent NE.
@@ -719,15 +691,12 @@ Haroun-al-Raschid. Quand il était petit, il ne doutait
 pas plus de la vérité des unes que des autres. Et, de
 même qu'il n'était pas sûr de ne pas connaître Schay
 cabac aux lèvres fendues, et le barbier babillard, et le.
-, petit bossu de Casgar, de même que, lorsqu'il se pro-
-menait, il cherchait des yeux dans la campagne le pic «
-; noir qui porte dans son bec la racine magique du cher-
-cheur de trésors, Chanaan et la Terre Promise deve- «
+, petit bossu de Casgar, de même que, lorsqu'il se promenait, il cherchait des yeux dans la campagne le pic «
+; noir qui porte dans son bec la racine magique du chercheur de trésors, Chanaan et la Terre Promise deve- «
 naient, par la vertu de son imagination d'enfant, des »
 localités bourguignonnes ou berrichonnes. Une colline À
 du pays, toute ronde, avec un petit arbre au sommet,
-comme un vieux plumet défraîchi, lui semblait la mon-
-tagne où Abraham avait élevé son bûcher. Et un gros
+comme un vieux plumet défraîchi, lui semblait la montagne où Abraham avait élevé son bûcher. Et un gros
 buisson mort, à la lisière des chaumes, était le Buisson. A
 ardent, que les siècles avaient éteint. Même quand il
 - ne fut plus tout petit, et quand son sens critique com
@@ -827,8 +796,7 @@ noire, dans le corridor, et jusqu'au grenier, malgré sa
 eur horrible des araignées. Sa résistance rendait les Le
 insis lances plus vives et plus narquoises; les objurga- EPA LE
 ôns des parents s'y mélaient, agrémentées de quelques
-laques, quand l'esprit de révolte soufllait trop imperti-
-ne mme nt. Et il devait toujours finir par jouer, — natu- À ne
+laques, quand l'esprit de révolte soufllait trop impertine mme nt. Et il devait toujours finir par jouer, — natu- À ne
 lement en dépit du bon sens. Ensuite, il souffrait, la
 
 Jean-Christophe à Paris
@@ -846,8 +814,7 @@ aussi Piccinni. » — Peut-être aimait-il mieux Piccinni.
 En tout cas, les airs italiens l'emportaient de beaucoup
 en nombre, dans la collection du grand-oncle. Ils avaient
 été le pain musical du petit Olivier. Nourriture peu
-substantielle, et un peu analogue aux sucreries de pro-
-vince, dont on bourre les enfants: elles affadissent le …
+substantielle, et un peu analogue aux sucreries de province, dont on bourre les enfants: elles affadissent le …
 goût, démolissent l'estomac, et risquent d'enlever pour. À
 toujours l'appétit pour des aliments plus sérieux. Mais
 la gourmandise d'Olivier ne pouvait être mise en cause.
@@ -878,12 +845,10 @@ de ne trouver aucune difficulté qu'il ne soit suffisant à PRE
 résoudre; elle n'est pas éloignée de considérer les
 hommes de science comme des espèces d'artistes, plus
 utiles que les autres, mais moins relevés, parce que
-du moins les artistes ne servent à rien; et cette fainéan-
-tise ne manque pas de distinction. — (D'ailleurs, chaque
+du moins les artistes ne servent à rien; et cette fainéantise ne manque pas de distinction. — (D'ailleurs, chaque
 4 pgeois se flatte qu'il eût été artiste, s'il avait voulue)
 .._— Au lieu que les savants sont presque ouvriers A
-manuels, — (ce qui est déshonorant,) — des contre-
-maîtres plus instruits et un peu toqués; ils sont très à
+manuels, — (ce qui est déshonorant,) — des contremaîtres plus instruits et un peu toqués; ils sont très à
 forts sur le papier; mais, sortis de leur usine à chiffres, PPS
 plus personne! Ils n'iraient pas loin, s'il n'y avait, pour
 les diriger, les gens de bon sens, qui ont l'expérience de A RUE
@@ -908,17 +873,14 @@ naturelles. Il aimait à dire qu'il suffisait d'être honnête,
 appliqué, et d'avoir du bon sens; et il pensait trans-w
 2 mettre sa charge à son fils, sans plus s'inquiéter des …
 goûts de celui-ci, que son père n'avait fait pour luiBE même. Il ne l'y préparait point. Il laissait ses enfants
-FES pousser à leur gré, pourvu qu'ils fussent de braves en-
-fants, et surtout qu'ils fussent heureux: car il les ado-
-raît. Aussi, les deux petits étaient-ils aussi mal préparés
+FES pousser à leur gré, pourvu qu'ils fussent de braves enfants, et surtout qu'ils fussent heureux: car il les adoraît. Aussi, les deux petits étaient-ils aussi mal préparés
 que possible à la lutte pour la vie: c'étaient des fleurs
 de serre. Mais ne devaient-ils pas toujours vivre ainsi?
 PRE Dans leur molle province, dans leur famille riche,
 considérée, avec un père aimable, gai, cordial, entouré À » d'amis, jouissant d'une des premières situations du
 pays, la vie était si facile et si riante!
 
-Antoinette avait seize ans. Olivier allait faire sa première communion. s'engourdissait dans le bourdon-
-nement de ses rèves mystiques. Antoinette écoutait
+Antoinette avait seize ans. Olivier allait faire sa première communion. s'engourdissait dans le bourdonnement de ses rèves mystiques. Antoinette écoutait
 chanter le voluptueux ramage l'espérance enivrée,
 Wu. qui, comme le rossignol en avril, remplit les cœurs prin- RER
 taniers. Elle jouissait de sentir son corps et son âme
@@ -964,8 +926,7 @@ un simple poisson d'avril; car la fine Antoinette ne
 - perdait rien de leurs manèges, et elle s'en amusait: elle
 voulait bien se faire prendre; mais elle ne voulait pas
 qu'on la prit. Dans sa petite tête, elle avait déjà décidé « qui elle épouserait. À
-qu'une par pays: elle se prétend issue des anciens sei-
-gneurs de la province; et elle descend, le plus souvent,
+qu'une par pays: elle se prétend issue des anciens seigneurs de la province; et elle descend, le plus souvent,
 3 de quelque acheteur des biens nationaux, intendant du
 , dix-huitième siècle, ou fournisseur des armées de Napoléon) — les Bonnivet, qui avaient, à deux lieues de la
 ville, un château, avec des tours pointues aux ardoises
@@ -973,8 +934,7 @@ ville, un château, avec des tours pointues aux ardoises
 poissonneux, faisaient eux-mêmes des avances aux
 
 inin. Le jeune Bonnivet était très empressé auprès SCT
-d'A ntoinette. Il était beau garçon, assez fort et corpu-
-ler pour son âge, ne faisant toute sa sainte journée que FRE
+d'A ntoinette. Il était beau garçon, assez fort et corpuler pour son âge, ne faisant toute sa sainte journée que FRE
 asser, manger, boire, et dormir; il montait à cheval,
 
 savait danser, avait d'assez bonnes manières, et n'était Set
@@ -992,8 +952,7 @@ charmant. Son orgueil et son cœur étaient délicieu- Es
 “sement caressés. Elle s'abandonnait à ces premières LAC
 - heures si douces d'amour enfantin. — Olivier détestait Un
 le hobereau, parce qu'il était fort, lourd, brutal, qu'il
-riait d'un rire bruyant, qu'il avait des mains qui ser-
-raient comme des étaux, et une façon dédaigneuse de à
+riait d'un rire bruyant, qu'il avait des mains qui serraient comme des étaux, et une façon dédaigneuse de à
 l'appeler toujours: « Petit... en lui pinçant la joue. Il FENG
 le détestait surtout, — sans le savoir, — parce que cet CERROA
 “étranger aimait sa sœur: … sa sœur, son bien à lui, à. RES.
@@ -1015,7 +974,7 @@ l'arbre.
 PAS Le banquier Jeannin était bon, faible, confiant, un
 peu vaniteux. Il aimait jeter de la poudre aux yeux, et …
 confondait volontiers « être » avec « paraître ». Il dépenLÉ” sait beaucoup, à tort et à travers, — sans que ces gaspil-?
-lages, il est vrai, que les habitudes d'économie séculaire «; venaient modérer, par accès de remords, — (il dépe
+lages, il est vrai, que les habitudes d'économie séculaire venaient modérer, par accès de remords, — (il dépe
 sait un stère de bois, et lésinait sur une allumette)
 Le vinssent sérieusement entamer son avoir. Il n'était pas
 . non plus très prudent dans ses affaires. Il ne refusait
@@ -1024,15 +983,11 @@ FPS jamais de prêter de l'argent à des amis; et ce n'était
 Me. pas toujours la peine de se faire donner un reçu;l
 . tenait un compte négligent de tout ce qu'on lui devait,
 
-comptait sur la bonne foi des autres, comme il enten-
-
-dait qu'on comptât sur la sienne. Il était d'ailleurs plus
+comptait sur la bonne foi des autres, comme il entendait qu'on comptât sur la sienne. Il était d'ailleurs plus
 
 timide que ne l'eussent laissé croire ses manières toutes
 
-rondes. Jamais il n'eût osé éconduire certains quéman-
-
-deurs indiscrets, ni manifester des craintes au sujet de
+rondes. Jamais il n'eût osé éconduire certains quémandeurs indiscrets, ni manifester des craintes au sujet de
 leur solvabilité. Il ne voulait froisser personne, et il
 
 La craignait un affront. Alors, il cédait toujours. Et pour se
@@ -1043,9 +998,7 @@ optimisme lui persuadaient aisément que toute affaire
 qu'il faisait était une bonne affaire.
 Ke] Ces façons d'agir n'étaient pas pour lui aliéner les
 …. sympathies des emprunteurs; il était adoré des petites
-“gens, qui savaient qu'ils pouvaient toujours avoir re-
-
-cours à son obligeance, et qui ne s'en faisaient point
+“gens, qui savaient qu'ils pouvaient toujours avoir recours à son obligeance, et qui ne s'en faisaient point
 faute. Mais la reconnaissance des gens — voire des
 — meilleurs — est un fruit qu'il faut cueillir à temps. Si
 on le laisse vieillir sur l'arbre, il ne tarde pas à moisir,
@@ -1053,8 +1006,7 @@ Quand quelques mois étaient passés, les obligés de
 mopsieur Jeannin s'habituaient à penser que ce service
 leur était; et même, ils avaient un penchant à croire:
 “que, pour que monsieur Jeannin eût manifesté tant de
-À “plaisir à les aider, il fallait qu'il y eût trouvé son inté-
-rêt. Les plus délicats se croyaient quittes — sinon de
+À “plaisir à les aider, il fallait qu'il y eût trouvé son intérêt. Les plus délicats se croyaient quittes — sinon de
 leur dette, au moins de leur reconnaissance, — avec un
 ? lièvre qu'ils avaient tué, ou avec un panier d'œufs de
 … leur poulailler.
@@ -1154,8 +1106,7 @@ il se surveillait moins; et ils avaient remarqué tout de
 suite qu'il cachait quelque chose de grave. Il n'était
 plus reconnaissable. Parfois, il faisait irruption dans
 une chambre, et il fouillait un meuble, jetant tous les
-papiers sens dessus dessous sur le parquet, et se met-
-tant dans des rages folles, parce qu'il ne trouvait rien,
+papiers sens dessus dessous sur le parquet, et se mettant dans des rages folles, parce qu'il ne trouvait rien,
 ou qu'on voulait l'aider. Puis, il restait perdu au milieu A
 de ce désordre; et, quand on lui demandait ce qu'il cher::
 chaït, il ne le savait plus lui-même. Il ne paraissait plus
@@ -1167,14 +1118,11 @@ part aux affaires de son mari, elle n'y comprenait rien.
 Elle l'interrogea: il la repoussa brutalement; et elle,
 froissée dans son orgueil, n'insista plus. Mais elle trem=.
 blaïit, sans savoir pourquoi.
-Les enfants ne pouvaient se douter du danger, Antoi-
-
-nette, sans doute, était trop intelligente pour ne pas
+Les enfants ne pouvaient se douter du danger, Antoinette, sans doute, était trop intelligente pour ne pas
 — avoir, comme sa mère, le pressentiment de quelque
 malheur; mais elle était toute au plaisir de son amour
 
-naissant: elle ne voulait pas penser aux choses inquié-
-tantes; elle se persuadait que les nuages se dissiperaiïent
+naissant: elle ne voulait pas penser aux choses inquiétantes; elle se persuadait que les nuages se dissiperaiïent
 d'eux-mêmes, — ou qu'il serait bien assez temps pour
 
 . les voir, quand on ne pourrait plus faire autrement. me;
@@ -1207,10 +1155,7 @@ Jeannin se sentit perdu, il se défendit en désespéré,
 jouant de l'indignation, se plaignant avec hauteur, avec
 amertume, qu'on se défiât de lui; il alla jusqu'à faire à À
 d'anciens clients des scènes violentes, qui le coulèrent
-définitivement dans l'opinion. Les demandes de rem-
-
-boursement affluèrent. Acculé, aux abois, il perdit com-
-plètement la tête. Il fit un court voyage, alla jouer
+définitivement dans l'opinion. Les demandes de remboursement affluèrent. Acculé, aux abois, il perdit complètement la tête. Il fit un court voyage, alla jouer
 ses derniers billets de banque dans une ville d'eaux
 voisine, se fit tout rafler en un quart d'heure, et
 
@@ -1247,12 +1192,10 @@ compte de l'agitation de sa femme, accourue auprès
 de lui, en l'entendant rentrer, et qui lui racontait avec SRI
 une volubilité confuse ce qui s'était passé pendant son ESS
 absence. Elle tâchait de lire sur ses traits s'il avait Eee
-réussi à détourner le danger inconnu; elle ne lui de-
-ma nda pourtant rien, par orgueil: elle attendait qu'il rat
+réussi à détourner le danger inconnu; elle ne lui dema nda pourtant rien, par orgueil: elle attendait qu'il rat
 lui en parlât le premier. Mais il ne dit pas un mot de. REA
 ce qui les tourmentait tous deux. Il écarta silencieu- C'ER
-; _sem ent le désir qu'elle avait de se confier à lui et d'at-
-mit à table, comme à l'ordinaire,
+; _sem ent le désir qu'elle avait de se confier à lui et d'atmit à table, comme à l'ordinaire,
 Il causait peu, las, absorbé, le front plissé; il tapotait
 k. des doigts sur la nappe; il s'eflorçait de manger, se SKS
 sachant observé, et regardait avec des yeux vagues et
@@ -1337,18 +1280,15 @@ presque tous les bourgeois de province, n'en connaissait
 - n'ignore; mais il feignit de croire que c'était de celles-là
 que l'enfant s'informait; et il les lui nomma. Olivier ne
 réclama point: il avait toujours plaisir à les entendre
-nommer, et à répéter à mi-voix leurs beaux noms mysté-
-rieux. D'ailleurs, il cherchait moins à savoir qu'à se
+nommer, et à répéter à mi-voix leurs beaux noms mystérieux. D'ailleurs, il cherchait moins à savoir qu'à se
 rapprocher instinctivement de son père. Ils se turent.
 Olivier, la tête appuyée au dossier du bane, la bouche …
 ouverte, regardait les étoiles; et il s'engourdissait: la
-tiédeur de la main de son père le pénétrait. Brusque-
-ment, cette main se mit à trembler. Olivier trouva cela
+tiédeur de la main de son père le pénétrait. Brusquement, cette main se mit à trembler. Olivier trouva cela
 drôle, et dit, d'une voix riante et ensommeillée:
 — Oh! comme ta main tremble, papa!
 Monsieur Jeannin retira sa main.
-Après un moment, Olivier, dont la petite tête conti-
-nuait à travailler toute seule, dit: à
+Après un moment, Olivier, dont la petite tête continuait à travailler toute seule, dit: à
 — Est-ce que tu es fatigué, aussi, papa? "2
 — Oui, mon petit.
 La voix affectueuse de l'enfant reprit:.
@@ -1366,14 +1306,12 @@ capable de lui en faire sacrifier une minute.
 de long en large, sur la terrasse obscure. Puis il rentra,
 Dans la chambre, autour de la lampe, les enfants et
 la mère étaient réunis. Antoinette cousait un ruban àun
-corsage, sans cesser un instant de parler ou de chan-
-tonner, au grand mécontentement d'Olivier, qui, assis
+corsage, sans cesser un instant de parler ou de chantonner, au grand mécontentement d'Olivier, qui, assis
 . devant son livre, les sourcils froncés et les coudes sur
 table, s'enfonçait les poings dans les oreilles pour ne:
 — rien entendre. Madame Jeannin ravaudait des bas, et
 _causait avec la vieille bonne, qui, debout à côté d'elle, a
-Le lui faisait le compte des dépenses de la journée, et pro-
-fitait de l'occasion pour bavarder un peu; elle avait
+Le lui faisait le compte des dépenses de la journée, et profitait de l'occasion pour bavarder un peu; elle avait
 ‘toujours des histoires amusantes à raconter, dans un TA
 argot impayable, qui les faisait éclater de rire, et qu'An- EN
 é toinette s'efforçait d'imiter. Monsieur Jeannin les regarda
@@ -1395,8 +1333,7 @@ partie, pour ranger des draps dans une armoire. Elle fit
 PAS Jean-Christophe à Paris
 : semblant de ne pas le voir. Il hésita, puis vint à elle,
 lui dit: LE
-— Je demande pardon. Je t'ai parlé an peu brus-
-quement, tout à l'heure. si
+— Je demande pardon. Je t'ai parlé an peu brusquement, tout à l'heure. si
 Elle avait envie de lui dire
 — Mon pauvre homme, je ne t'en veux pas; mais.
 qu'est-ce que tu as donc? Dis-moi donc ce qui te fait …
@@ -1430,8 +1367,7 @@ x. contigu à la maison; et là, dans le cabinet de monsieur
 —._ table de travail, au milieu de son sang, qui gouttait
 encore sur le plancher. Elle poussa un cri perçant,.
 ._ laissa tomber la bougie qu'elle tenait, et perdit connaissance. De la maison, on l'entendit. Les domestiques
-…. accoururent, la relevèrent, prirent soin d'elle, et portè-
-rent le corps de monsieur Jeannin sur un lit. La chambre
+…. accoururent, la relevèrent, prirent soin d'elle, et portèrent le corps de monsieur Jeannin sur un lit. La chambre
 des enfants était fermée. Antoinette dormait comme une
 bienheureuse. Olivier entendit un bruit de voix et de
 pas: il eût voulu savoir; mais il craignit de réveiller sa
@@ -1448,18 +1384,15 @@ présence de la mort. Dans ces premiers moments, leur
 épouvante était encore plus forte que leur douleur. Au
 reste, on ne leur laissa point le temps de pleurer en
 paix. Dès le matin, commencèrent les cruelles formalités
-judiciaires. Antoinette, réfugiée dans sa chambre, ten-
-dait toutes les forces de son égoïsme juvénile vers une
+judiciaires. Antoinette, réfugiée dans sa chambre, tendait toutes les forces de son égoïsme juvénile vers une
 pensée unique, seule capable de l'aider à repousser
 l'horreur de la réalité qui la suffoquait: la pensée de
 son ami; elle attendait sa visite, d'heure ‘en heure.
 Jamais il n'avait été plus empressé pour elle que la der:
-nière fois qu'elle l'avait: elle ne doutait pas qu'aus-
-sitôt qu'il apprendrait la catastrophe, il n'accourût,
+nière fois qu'elle l'avait: elle ne doutait pas qu'aussitôt qu'il apprendrait la catastrophe, il n'accourût,
 pour prendre part à son chagrin. — Mais personne
 ne vint. Ni aucun mot de personne. Aucune marque
-de sympathie. En revanche, dès la première nou-
-velle du suicide, des gens, qui avaient confié leur
+de sympathie. En revanche, dès la première nouvelle du suicide, des gens, qui avaient confié leur
 argent au banquier, se précipitèrent chez les Jeannin,
 forcèrent la porte, et, avec une férocité impitoyable, à
 firent des scènes furieuses à la femme et aux enfants.
@@ -1485,18 +1418,15 @@ Ctre jeune, confiant, heureux, aimant vivre, qui se voit
 sans fond, ou à cette mort qui lui fait horreur. Et
 Antoinette découvrit d'un seul coup la laïideur du
 « monde. Ses yeux s'ouvrirent: elle vit la vie, les den
-4 hommes; elle jugea son père, sa mère, son frère. Tan-
-dis qu'Olivier et madame Jeannin pleuraient ensemble,
-elle s'isolait dans sa douleur. Sa petite cervelle déses-
-pérée réfléchissait sur le passé, le présent, l'avenir; et
+4 hommes; elle jugea son père, sa mère, son frère. Tandis qu'Olivier et madame Jeannin pleuraient ensemble,
+elle s'isolait dans sa douleur. Sa petite cervelle désespérée réfléchissait sur le passé, le présent, l'avenir; et
 — elle vit qu'il n'y avait plus rien pour elle, aucun espoir,
 . aucun appui: elle n'avait plus à compter sur personne.
 L'enterrement eut lieu, lugubre, honteux. L'église
 avait refusé de recevoir le corps du suicidé. La veuve Te
 … et les orphelins furent laissés seuls par la lâcheté de SAT
 leurs anciens amis. À peine deux ou trois se mOn
-trèrent, un moment; et leur attitude gênée fut plus pé-
-nib encore que l'absence des autres. Ils semblaient
+trèrent, un moment; et leur attitude gênée fut plus pénib encore que l'absence des autres. Ils semblaient
 faire une grâce en venant, et leur silence était gros de;
 blâmes et de pitié méprisante. Le suicide du banquier,
 loin d'assourdir les rancunes, semblait à peine moins »
@@ -1521,8 +1451,7 @@ pas: car ils savaient que c'était injuste. Mais ils ne »
 Ven faisaient pas moins: car il leur fallait une victime.
 
 Madame Jeannin, qui ne semblait plus bonne à rien
-qu'à gémir, retrouvait toute son énergie, quand on atta-
-quait son mari. Elle découvrait maintenant combien
+qu'à gémir, retrouvait toute son énergie, quand on attaquait son mari. Elle découvrait maintenant combien
 elle l'avait aimé; et ces trois êtres, qui n'avaient au-.
 cune idée de ce qu'ils pourraient devenir le lendemain,
 furent entièrement d'accord pour renoncer à la dot dem
@@ -1535,8 +1464,7 @@ Le départ fut comme une fuite. SES =.
 La veille au soir, — (un triste soir de la fin de sep
 . tembre: les champs disparaissaient sous le voile des
 . grands brouillards blancs, d'où surgissaient, des deux
-de la route, à mesure qu'on avançait, les sque-
-lettes des buissons grelottants et ruisselants, comme DE
+de la route, à mesure qu'on avançait, les squelettes des buissons grelottants et ruisselants, comme DE
 des plantes d'aquarium), — ils allèrent ensemble dire À
 adieu au cimetière. Ils s'agenouillèrent tous trois
 oite margelle de pierre, qui entourait la fosse ne
@@ -1575,8 +1503,7 @@ premier train du lendemain, avant que les boutiques
 des voisins fussent ouvertes: ils voulaient éviter leur
 curiosité et leurs commentaires malveillants. — Ils
 avaient besoin de se serrer l'un contre l'autre; et pourtant, chacun alla d'instinct dans sa chambre et
-4 attarda: ils se tenaient debout, sans bouger, ne pen-
-sant même pas à ôter leur chapeau et leur manteau, touchant les murs, les meubles, tout ce qu'ils
+4 attarda: ils se tenaient debout, sans bouger, ne pensant même pas à ôter leur chapeau et leur manteau, touchant les murs, les meubles, tout ce qu'ils
 allaient quitter, appuyant leur front contre les vitres,
 essayant de prendre et de garder en eux le contact des
 choses aimées. Enfin, ils firent effort pour s'arracher,
@@ -1608,8 +1535,7 @@ les paquets. Autour de la maison, planait le grand si-
 … tiède sommeil. Antoinette claquait des dents: son cœur
 et son corps étaient glacés.
 …_. La porte d'entrée résonna dans l'air gelé. La vieille
-bonne, qui avait la clef de la maison, venait une der-
-nière fois servir ses maîtres. Petite et grosse, le souflle
+bonne, qui avait la clef de la maison, venait une dernière fois servir ses maîtres. Petite et grosse, le souflle
 urt, et gênée par son embonpoint, mais singulière
 ment leste pour son âge, elle se montra, avec sa bonne
 figure emmitouflée, le nez rouge et les yeux larmoyants. A a
@@ -1634,8 +1560,7 @@ voleurs. Chacun d'eux avait des paquets à la main. La,
 vieille bonne les précédait, roulant leur malle sur une
 brouette. Ils laissaient presque tout ce qu'ils avaient;
 ils n'emportaient, pour ainsi dire, que ce qu'ils avaient
-sur le corps et quelques vêtements. De'pauvres sou-
-venirs devaient leur être expédiés plus tard, par la
+sur le corps et quelques vêtements. De'pauvres souvenirs devaient leur être expédiés plus tard, par la
 petite vitesse: quelques livres, des portraits, l'antique
 pendule, dont le battement leur semblait le battement
 même de leur vie. — L'air était aigre. Personne n'était
@@ -1652,8 +1577,7 @@ avec les petits. Cachés derrière les rideaux, ils tremblaient de voir apparaî
 Mais personne ne se montra: la ville s'éveillait à peine,
 à l'heure où ils partaient; le train était désert; il
 avait que trois ou quatre paysans, et des bœufs, qui, la;
-tête passée par-dessus la barrière du wagon, mugis-
-saient avec mélancolie. Après une longue attente, la Rlocomotive siffla longuement, et le train s'ébranla dans
+tête passée par-dessus la barrière du wagon, mugissaient avec mélancolie. Après une longue attente, la Rlocomotive siffla longuement, et le train s'ébranla dans
 le brouillard. Les trois émigrants écartèrent les rideaux,
 et, le visage collé contre la vitre, regardèrent une dernière fois la petite ville, dont les vieux toits se voyaient …
 
@@ -1683,13 +1607,11 @@ magistrat; — quelques hommes politiques, le député et le
 Jeannin n'avait pas nui: elle comptait sur leur aide. Elle
 2 était convaincue d'ailleurs que ses enfants, avec l'éduca-
 è - tion qu'ils avaient reçue, et leurs dons naturels, sur
-lesquels elle se trompait, comme toutes les mères, n'au-
-raient point de peine à gagner honorablement leur vie.
+lesquels elle se trompait, comme toutes les mères, n'auraient point de peine à gagner honorablement leur vie.
 
 L'impression d'arrivée fut sinistre, Dès la gare, ils.
 furent consternés par la bousculade des gens dans la …
-1 salle des bagages et le tumulte des voitures enchevêé-
-trées devant la sortie. Il pleuvait. On ne pouvait trouver
+1 salle des bagages et le tumulte des voitures enchevêétrées devant la sortie. Il pleuvait. On ne pouvait trouver
 de fiacre. Il fallut courir loin, les bras cassés par les …
 paquets trop lourds, qui les forçaient à s'arrêter, au mi:
 lieu de la rue, au risque d'être écrasés ou éclaboussés
@@ -1753,15 +1675,12 @@ Jean-Christophe à Paris
 avaient faite. Cela avait suffi à changer radicalement »
 
 leurs sentiments à l'égard des Jeannin. Ils ne se génaient
-pas pour traiter entre eux l'acte de Jeannin d'escroque-
-rie. Surtout ils ne lui pardonnaient pas — (sans se
+pas pour traiter entre eux l'acte de Jeannin d'escroquerie. Surtout ils ne lui pardonnaient pas — (sans se
 l'avouer) — de ne pas les avoir avertis, au moment où
 il allait sauter. Ils lui en voulaient aussi de sa parenté
 avec eux. Poyet-Delorme craignait qu'on ne la lui jetât
 ; à la tête, et que cela ne nuisit à son avancement; et …
-madame Poyet-Delorme, à qui son mari l'avait repro-
-chée, à la suite d'une discussion, était encore plus indi-
-gnée que lui contre les Jeannin. Ils trouvèrent de la der-"
+madame Poyet-Delorme, à qui son mari l'avait reprochée, à la suite d'une discussion, était encore plus indignée que lui contre les Jeannin. Ils trouvèrent de la der-"
 nière indécence que la famille ruinée vint s'accrocher à
 eux et les compromettre encore plus. Madame Poyet-
 Delorme reçut donc sa cousine avec une froideur glaciale. Madame Jeannin en fut saisie; elle se força à.
@@ -1777,8 +1696,7 @@ impressions au sujet de cette première visite. À
 Ils passèrent les jours suivants à errer dans Paris,
 cherchant un appartement, harassés de monter les
 étages, écœurés de voir ces casernes où s'entassent les
-corps, ces escaliers malpropres, ces chambres sans lu-
-mière, si tristes après la grande maison de province.
+corps, ces escaliers malpropres, ces chambres sans lumière, si tristes après la grande maison de province.
 
 Ils étaient de plus en plus oppressés. Et c'était toujours «
 
@@ -1794,11 +1712,9 @@ tout ce qu'ils touchaient: seulement, cet or, c'était eux
 —. maginable, sans force pour se défendre.
 Si peu qu'il lui restât d'espérances du côté des Poÿet-
 Delorme, madame Jeannin se forgeait encore des illu-
-— sions sur le diner, où iis étaient invités. Ils s'y prépa-
-rèrent, avec des battements de cœur. Ils furent reçus en
+— sions sur le diner, où iis étaient invités. Ils s'y préparèrent, avec des battements de cœur. Ils furent reçus en
 à P. invités, et non pas en amis, — sans qu'on eût fait
-— d'ailleurs d'autres frais pour le diner que ce ton céré-
-monieux. Olivier et Antoinette se trouvèrent avec
+— d'ailleurs d'autres frais pour le diner que ce ton cérémonieux. Olivier et Antoinette se trouvèrent avec
 — les deux enfants des Poyet, à peu près de leur âge.
 — La fillette, très élégante et très coquette, leur parlait,
 en zézayant, d'un air de supériorité polie, avec des
@@ -1813,8 +1729,7 @@ semblait toujours, même quand elle offrait un plat,
 de ce qu'on mange, par crainte de tout sujet intime et
 dangereux. Madame Jeannin fit un effort pour amener
 … l'entretien sur ce qui lui tenait à cœur: madame
-Poyet-Delorme l'interrompit net, par une parole insi-
-guifiante. Elle n'eut plus le courage de recommencer.
+Poyet-Delorme l'interrompit net, par une parole insiguifiante. Elle n'eut plus le courage de recommencer.
 De. Après diner, elle obligea sa fille à jouer un morceau
 — de piano, pour montrer son talent. La petite, gênée,
 mécontente, joua horriblement. Les Poyet, ennuyés,
@@ -1826,8 +1741,7 @@ la musique durait trop, elle se remit à causer de choses.
 indifférentes avec madame Jeannin. Enfin, Antoinette,
 qui avait complètement perdu pied dans son morceau, …
 et qui s'apercevait avec terreur qu'à un certain passage,
-au lieu de continuer, elle avait repris au commence-
-ment, et qu'il n'y avait pas de raison pour qu'elle En
+au lieu de continuer, elle avait repris au commencement, et qu'il n'y avait pas de raison pour qu'elle En
 sortit jamais, coupa court, et termina par deux accords a.
 qui n'étaient pas justes, et un troisième qui était faux.
 Monsieur Poyet dit
@@ -1840,8 +1754,7 @@ des bibelots du salon et des toilettes des dames Poyet.
 Madame Jeannin se répétait
 — C'est le moment de parler, il faut que je parle...
 Et elle se crispait. Comme elle faisait un grand effort
-et allait enfin se décider, madame Poyet glissa incidem-
-ment, d'un ton qui ne cherchait pas à s'excuser, qu'ils
+et allait enfin se décider, madame Poyet glissa incidemment, d'un ton qui ne cherchait pas à s'excuser, qu'ils
 étaient bien fâchés, mais qu'ils devaient sortir vers neuf
 heures et demie: ils avaient une soirée, qu'ils n'avaient
 ; remettre. Les Jeannin, froissés, se levèrent aussitôt
@@ -1981,8 +1894,7 @@ d'entrer comme lectrice chez une vieille dame,
 
 passai Yhiver dans le Midi. Pour Antoinette, on lui 70202
 trouvait un poste d'institutrice chez une famille de
-. l'Ouest de la France, qui vivait toute l'année à la cam-
-pagne. Les conditions n'étaient pas trop mauvaises; St.
+. l'Ouest de la France, qui vivait toute l'année à la campagne. Les conditions n'étaient pas trop mauvaises; St.
 . mais madame Jeannin refusa. Plus encore qu'à l'humi- Es
 - liation de servir elle-même, elle s'opposait à ce que sa
 fille y fût réduite, et surtout à ce qu'Antoinette fût
@@ -2004,8 +1916,7 @@ service. Partout elle se heurta à l'ingratitude et à
 … l'égoïsme. Le député ne répondit même pas aux lettres, Che
 et, quand elle vint sonner à sa porte, fit dire qu'il Lors
 était sorti. Le sénateur lui parla avec une commiséra- SNS
-tio grossière de sa situation qu'il imputa à ce « misé-
-rable Jeannin dont il flétrit durement le suicide. nee
+tio grossière de sa situation qu'il imputa à ce « misérable Jeannin dont il flétrit durement le suicide. nee
 Madame Jeannin prit la défense de son mari. Le SRE
 sénateur dit qu'il savait bien que ce n'était pas par;:
 mal honnêteté, mais par bêtise que le banquier avait HAE à
@@ -2026,8 +1937,7 @@ se flattait d'être seulement un homme sain — (5, mn}
 — un homme sain, sensé, et raisonnable, — lui
 n'avait aucun motif pour pardonner: l'individu qui
 se suicidait en pareil cas était un misérable. La seule
-circonstance atténuante qu'on pût plaider pour Jean-
-nin, c'était qu'il n'était pas tout à fait responsable.
+circonstance atténuante qu'on pût plaider pour Jeannin, c'était qu'il n'était pas tout à fait responsable.
 Là-dessus, il s'excusa auprès de madame Jeannin de
 s'être °xprimé d'une façon un peu vive sur le compte
 de son mari: il en donna pour cause la sympathie
@@ -2067,8 +1977,7 @@ la laisser travailler à sa place. Mais madame Jeannin,
 mettait les derniers restes de son orgueil à ce qu'au
 moi sa fille ne connût point les humiliations dont »
 elle avait à souflrir. LES
-Elle avait beau s'épuiser et réduire encore leurs dé-
-penses: ce qu'elle gagnait ne suffisait pas à les faire Ne
+Elle avait beau s'épuiser et réduire encore leurs dépenses: ce qu'elle gagnait ne suffisait pas à les faire Ne
 vre. Il fallut vendre les quelques bijoux qu'on avait
 conservés. Et le pire fut que cet argent, dont on avait à
 tant besoin, fut volé à madame Jeannin, le jour même Et
@@ -2175,16 +2084,13 @@ Devant la fosse nue, ils prièrent, la main dans la
 
 main. Ils se raidissaient dans une intransigeance et un
 
-… orgueil désespérés, qui leur faisaient préférer cette soli-
-
-tude même à la présence de parents indifférents et
+… orgueil désespérés, qui leur faisaient préférer cette solitude même à la présence de parents indifférents et
 
 Jean-Christophe à Paris
 hypocrites. — Ils revinrent à pied au milieu de cette
 foule étrangère à leur deuil, étrangère à leurs pensées,
 étrangère à tout leur être, et qui n'avait de com mun
-avec eux que la langue qu'ils parlaient. Antoinette don-
-nait le bras à Olivier.
+avec eux que la langue qu'ils parlaient. Antoinette donnait le bras à Olivier.
 Ils prirent dans la même maison, au dernier éta ge,
 un tout petit appartement, — deux chambres mansardées, une antichambre minuscule qui devait leur
 servir de salle à manger, et une cuisine grande comme.
@@ -2202,8 +2108,7 @@ les programmes, elle s'était informée, elle avait tâché …
 d'avoir aussi l'avis d'Olivier; — mais il n'en avaitpoint:
 elle avait choisi pour lui. Une fois à l'École Normale,
 il serait sûr de son pain, pour le reste de sa vie, et
-maître de son avenir. Il fallait qu'il y arrivât, il fal-
-lait vivre à tout prix jusque-là. C'étaient cinq à six
+maître de son avenir. Il fallait qu'il y arrivât, il fallait vivre à tout prix jusque-là. C'étaient cinq à six
 années terribles: on en viendrait à bout. Cette idée
 prit chez Antoinette une force singulière, elle finit par
 la remplir tout entière. La vie de solitude et de misère,
@@ -2232,8 +2137,7 @@ pour lui. Il le lui disait. Elle répondait:
 1 — Ah! mon pauvre petit! Mais tu ne vois donc pas
 1 que c'est cela qui me fait vivre! Sans cette peine que
 À tu me donnes, quelle autre raison aurais-je?
-+. 11 le comprenait bien. Lui aussi, à la place d'Antoi-
-nette, il eût été jaloux de cette chère peine. Mais être
++. 11 le comprenait bien. Lui aussi, à la place d'Antoinette, il eût été jaloux de cette chère peine. Mais être
 la cause de cette peine!.… Son orgueil et son cœur
 en souffraient, Et quel poids écrasant pour un être
 faible comme lui, que la responsabilité dont on le char-
@@ -2242,8 +2146,7 @@ faible comme lui, que la responsabilité dont on le char-
 à Jean-Christophe à Paris DO.
 sur cette carte sa vie entière comme enjeu! Une telle
 pensée lui était insupportable, et, loin de redoubler ses
-forces, l'accahlait par moments. Cependant, elle l'obli-
-geait malgré tout à résister, à travailler, à vivre: ce
+forces, l'accahlait par moments. Cependant, elle l'obligeait malgré tout à résister, à travailler, à vivre: ce
 ; dont il n'eût pas été capable, sans cette contrainte.
 avait une prédisposition à la défaite, — au suicide
 peut-être: — peut-être y eût-il sombré, si sa sœur
@@ -2284,8 +2187,7 @@ petits plats qui lui plussent; et la pauvre Antoinette
 n'éta pas une fameuse cuisinière. Après qu'elle s'était
 lonné beaucoup de peine, elle avait la mortification de
 lui entendre déclarer que sa cuisine était immangeable. A
-nue fut qu'après bien des désespoirs devant son four-
-eau de cuisine, — de ces désespoirs silencieux, que A:
+nue fut qu'après bien des désespoirs devant son foureau de cuisine, — de ces désespoirs silencieux, que
 connaissent les jeunes ménagères maladroites, et qui STORE
 empoisonnent leur vie et leur sommeil parfois, sans que
 
@@ -2340,18 +2242,14 @@ qu'elle leur avait emprunté; et, déposant sur la table
 KR: les cinq billets de banque, elle demanda quittance.
 - changèrent aussitôt de manières, et feignirent de ne pas ps.
 
-- vouloir accepter: ils éprouvaient pour elle cette affec-
-
-tion subite, que ressent le créancier pour le débiteurqui
+- vouloir accepter: ils éprouvaient pour elle cette affection subite, que ressent le créancier pour le débiteurqui
 Jui rapporte, après des années, l'argent d'une créance
 
 . sur laquelle il ne comptait plus. Ils cherchèrent à savoir
 
 À où elle habitait avec son frère, et comment ils vivaient.
 
-. Elle évita de répondre, demanda de nouveau la quit-
-
-tance, dit qu'elle était pressée, salua froidement, et
+. Elle évita de répondre, demanda de nouveau la quittance, dit qu'elle était pressée, salua froidement, et
 
 —._ partit. Les Poyet furent indignés contre l'ingratitude de
 cette fille.
@@ -2381,8 +2279,7 @@ du spectacle: son bonheur était gâté. — Un dimanche
 qu'elle l'avait envoyé au concert du Châtelet, il revint,
 _au bout d'une demi-heure, disant à Antoinette qu'arrivé Ke.
 au pont Saint-Michel, il n'avait pas le courage d'aller
-plus loin: le concert ne l'intéressait plus; cela lui fai-
-sait trop de peine d'avoir du plaisir sans elle. Rien ne ee,
+plus loin: le concert ne l'intéressait plus; cela lui faisait trop de peine d'avoir du plaisir sans elle. Rien ne ee,
 fut plus doux à Antoinette, malgré le chagrin qu'elle eut
 que son frère se fût privé, à cause d'elle, de sa distrac
 tion du dimanche. Mais Olivier ne pensait pas à le
@@ -2476,8 +2373,7 @@ A misère de sa vie, elle ne pouvait s'empêcher de croire à
 l'amour de l'Ami divin, qui souffre avec vous, et qui,
 un jour, vous consolera. Plus encore qu'avec Dieu, elle …
 était en communion intime avec ses morts, et elle les
-associait à toutes ses épreuves. Mais elle était indé-
-pendante d'esprit, et de ferme raison; elle restait à
+associait à toutes ses épreuves. Mais elle était indépendante d'esprit, et de ferme raison; elle restait à
 part des autres catholiques, et n'était pas très bien vue
 - d'eux: ils trouvaient en elle un mauvais esprit; ils
 n'étaient pas loin de la regarder comme une libre- à
@@ -2617,8 +2513,7 @@ confier, et ils avaient moins de peine à parler. Olivier
 avait des pensées tristes; et il fallait toujours que
 cet être faible se déchargeât de ses tourments, en les
 versant dans le sein d'un autre. Il était rongé par les
-doutes. Antoinette devait lui rendre courage, le dé-
-fendre contre lui-même: c'était une lutte incessante, "4
+doutes. Antoinette devait lui rendre courage, le défendre contre lui-même: c'était une lutte incessante, "4
 qui recommençait, chaque jour. Olivier disait des
 choses amères et lugubres; et, quand il les avait dites,
 il était soulagé; mais il ne s'inquiétait pas de savoir si.
@@ -2626,8 +2521,7 @@ A maintenant elles n'accablaient pas sa sœur. Il s'aperçut «
 bien tard combien il l'épuisait: il lui prenait sa "4
 
 PAP iltrait en elle ses propres doutes. Antoinette m'en
-ontrait rien. Vaillante et gaie de nature, elle s'obli-
-eait à rester gaie en apparence, alors que sa gaieté
+ontrait rien. Vaillante et gaie de nature, elle s'oblieait à rester gaie en apparence, alors que sa gaieté
 était depuis longtemps perdue. Elle avait des moments
 . de lassitude profonde, de révolte contre la vie de per-
 - pétuel sacrifice, à laquelle elle s'était vouée. Mais elle AN
@@ -2643,8 +2537,7 @@ gner, ou se renfermer dans sa chambre; et elle nere- à
 paraissait que quand la crise était passée; alors, elle
 était souriante, endolorie, plus tendre qu'avant: elle
 É comme le remords d'avoir souffert.
-Leu chambres se touchaient. Leurs lits étaient ap-
-pli des deux côtés du même mur: ils pouvaient ne
+Leu chambres se touchaient. Leurs lits étaient appli des deux côtés du même mur: ils pouvaient ne
 pres que se parler à mi-voix au travers; et, quand ils “ei
 avaient des insomnies, de petits coups frappés tout te
 : Dors-tu? Je ne dors pas.
@@ -2662,7 +2555,7 @@ Jean-Christophe à Paris
 moindre rhume chez lui risquait de dégénérer en bronchite; il prit la scarlatine, et faillit en mourir; même
 sans être malade, il présentait de bizarres symptômes"
 de maladies graves, qui heureusement n'éclataient pas"
--: il avait des points douloureux au poumon, ou au cœur.
+il avait des points douloureux au poumon, ou au cœur.
 Un jour, le médecin qui l'auscultait diagnostiqua une
 péricardite, ou une péripneumonie; et le grand médecin
 spécialiste, que l'on consulta ensuite, confirma ces
@@ -2698,8 +2591,7 @@ a à cette heure; mais au dernier moment, elle avait QURes
 'eçu un mot de son élève, l'avertissant qu'on se passe »
 rait d'elle aujourd'hui. Elle en avait un secret plaisir,
 bien que ce fussent quelques francs supprimés de son
-gre budget; mais elle était très lasse, et elle s'éten-
-dit sur son lit: elle jouissait de pouvoir se reposer un #4
+gre budget; mais elle était très lasse, et elle s'étendit sur son lit: elle jouissait de pouvoir se reposer un #4
 jou sans remords. Olivier rentra du lycée; un camarade Et
 ccompagnait. Ils s'installèrent dans la chambre à
 bte, et se mirent à causer. On entendait tout ce qu'ils
@@ -2715,11 +2607,9 @@ et de ses lèvres, qu'elle croyait innocentes, sortaient
 d'obscènes paroles, qui la glaçaient d'horreur. Une
 douleur aiguë la perçait jusqu'au fond de son être. Cela
 dura longtemps: ils ne pouvaient se lasser de parler,
-: et elle ne pouvait s'empêcher d'écouter. Enfin, ils sor-
-tirent; et Antoinette resta seule. Alors, elle pleura:
+: et elle ne pouvait s'empêcher d'écouter. Enfin, ils sortirent; et Antoinette resta seule. Alors, elle pleura:
 quelque chose était mort en elle; l'image idéale qu'elle
-É se faisait de son frère, — de son enfant, — était souil-
-lée: c'était pour elle une souffrance mortelle. Elle ne
+É se faisait de son frère, — de son enfant, — était souillée: c'était pour elle une souffrance mortelle. Elle ne
 lui en dit rien, quand ils se retrouvèrent, le soir. Il vit
 1 qu'elle avait pleuré, et il ne put savoir pourquoi. Il ne
 à comprit pas pourquoi elle avait changé de manières
@@ -2746,8 +2636,7 @@ lui disait rien, mais qu'elle semblait accablée, et que,
 tout son être était un reproche vivant, il n'y résista
 pas: il se jeta à ses genoux, il se cacha la tête dans sa
 robe, et ils pleurèrent tous deux. Il était honteux de
-- lui, dégoûté de la nuit qu'il venait de passer; il se sen-
-tait avili. Il voulut parler: elle l'empêcha de parler, lui
+- lui, dégoûté de la nuit qu'il venait de passer; il se sentait avili. Il voulut parler: elle l'empêcha de parler, lui
 mettant la main sur la bouche; et il baisa cette main.
 Jis ne dirent rien de plus: ils se comprenaient. Olivier
 se jura de ne plus faire souffrir Antoinette, et d'être ce TES
@@ -2764,8 +2653,7 @@ Quand elle rentrait, le soir, à la nuit tombante, quand
 surtout il lui fallait sortir après diner pour chercher où
 rapporter quelque travail de copie, ce lui était une À
 . angoisse insupportable que cette crainte d'être accostée,
-suivie, comme il lui arrivait, et d'entendre des proposi-
-tions grossières. Toutes les fois qu'elle pouvait emme- …
+suivie, comme il lui arrivait, et d'entendre des propositions grossières. Toutes les fois qu'elle pouvait emme- …
 ner son frère avec elle, elle le faisait, sous prétexte
 : volontiers, et elle n'osait insister; elle ne voulait pas
 troubler son travail. Son âme virginale et provinciale
@@ -2774,8 +2662,7 @@ ne pouvait faire à ces mœurs. Paris, la nuit, était
 pour elle une forêt obscure, où elle se sentait traquée “MR
 par des bêtes immondes; et elle tremblait de sortir du
 gîte. Cependant, il fallait sortir. Elle fut longtemps
-avant d'en prendre son parti; et elle en souffrit tou-
-jours. Et quand elle pensait que son petit Olivier serait
+avant d'en prendre son parti; et elle en souffrit toujours. Et quand elle pensait que son petit Olivier serait
 
 ! — était peut-être — comme un de ces hommes qui lni
 faisaient la chasse, elle avait peine, en rentrant, à lui
@@ -2905,12 +2792,10 @@ il verrait qu'il y avait du danger pour lui.
 Il venait de lui envoyer une sorte d'ultimatum, lui.
 enjoignant de se trouver, le lendemain, au musée du
 Luxembourg. Elle y alla. — A force de se torturer l'es=w
-prit, elle était arrivée à se convaincre que son persé-
-cuteur avait la rencontrer chez madame Nathan:
+prit, elle était arrivée à se convaincre que son persécuteur avait la rencontrer chez madame Nathan:
 certains mots d'une des lettres faisaient allusion à un
 fait, qui n'avait se passer que là. Elle pria madame
-Nathan de lui rendre un grand service, de l'accom-
-pagner en voiture jusqu'à la porte du musée, et de
+Nathan de lui rendre un grand service, de l'accompagner en voiture jusqu'à la porte du musée, et de
 l'attendre, un moment. Elle entra. Devant le tableau
 convenu, le maître-chanteur l'aborda. triomphant, et se
 mit à lui parler, avec une courtoisie affectée. Elle le
@@ -2921,9 +2806,7 @@ demanda en plaisantant pourquoi elle le regardait ainsi.
 devenir familier. Elle dit:
 — Vous avez voulu me menacer d'un scandale. Je
 \. viens vous l'offrir, ce scandale. Le voulez-vous?.
-Elle était toute frémissante, parlait haut, et se mon-
-trait prête à attirer l'attention sur eux. On les regar-
-dait. Il sentit qu'elle ne reculerait devant rien. Il baissa
+Elle était toute frémissante, parlait haut, et se montrait prête à attirer l'attention sur eux. On les regardait. Il sentit qu'elle ne reculerait devant rien. Il baissa
 le ton. Elle lui lança, une dernière fois:
 — Vous êtes un lâche!
 à et lui tourna le dos.
@@ -2988,8 +2871,7 @@ l'in elligence. Mais chez le bourgeois français, catho- à
 lique et provincial, presque toujours le sac cherche le
 sac. Et pourquoi faire, les malheureux? Ils n'ont que
 des besoins médiocres; ils ne savent que manger,
-ai er, dormir, — économiser. Antoinette les connais-
-ait. Elle les avait vus, depuis l'enfance. Elle les avait à
+ai er, dormir, — économiser. Antoinette les connaisait. Elle les avait vus, depuis l'enfance. Elle les avait à
 vu: avec les lunettes de la richesse, et avec celles de la
 pauvreté. Elle n'avait plus d'illusions sur eux, ni sur ce
 elle en pouvait attendre. Aussi, la démarche de
@@ -3018,8 +2900,7 @@ dévouer à son frère; et elle s'y absorba de plus en plus.
 Elle se retira tout à fait du monde. Elle avait même
 cessé d'aller chez les Nathan, qui étaient un peu en
 froid avec elle, depuis qu'elle avait refusé le parti qu'ils
-lui offraient: eux non plus n'avaient pas admis ses rai-
-sons. Madame Nathan, qui avait décrété d'avance que …
+lui offraient: eux non plus n'avaient pas admis ses raisons. Madame Nathan, qui avait décrété d'avance que …
 ce mariage se ferait et qu'il serait parfait, avait été
 froissée dans son amour-propre qu'il ne se fit pas par la
 faute d'Antoinette. Elle trouvait ses scrupules fort estimables, assurément, mais d'une sentimentalité exagérée;
@@ -3037,8 +2918,7 @@ passaient dans le cœur de sa sœur. C'était un garçon « sentimental et lége
 était bien aléatoire de rien fonder sur lui, malgré son
 esprit vif et charmant, et son cœur qui était un trésor]
 de tendresse, comme celui d'Antoinette. Constamment,
-il compromettait des mois efforts par des incon-
-séquences, des découragements, des flaneries, des
+il compromettait des mois efforts par des inconséquences, des découragements, des flaneries, des
 amours de tête, où il perdait son temps et ses forces. IL
 s'éprenait de jolies figures entrevues, de petites filles
 
@@ -3055,8 +2935,7 @@ manque d'équilibre, cette trépidation inquiète, que l'on
 édecin n'avait pas caché le danger à Antoinette. Cette
 plante déjà maladive, transplantée de province à Paris, 4°
 “aurait besoin de bon air et de lumière. Antoinette À
-une pouvait les lui donner. Ils n'avaient pas assez d'ar-
-gent pour s'éloigner de Paris, pendant les vacances.;
+une pouvait les lui donner. Ils n'avaient pas assez d'argent pour s'éloigner de Paris, pendant les vacances.;
 Le reste de l'année, ils étaient pris toute la semaine
 “par leur tâche; et, le dimanche, ils étaient si fatigués
 “qu'ils n'avaient pas envie de sortir, sinon pour aller Ne.
@@ -3094,9 +2973,7 @@ intelligence, à part une indiscipline d'esprit, qui lui ren-
 “dait difficile de se plier à quelque plan que ce fût. Mais à
 
 a responsabilité qui pesait sur Olivier l'accablait telle- SE
-ment qu'il en perdait ses moyens, à mesure qu'il appro-
-
-chait de l'examen. Une extrême fatigue, la crainte LEA
+ment qu'il en perdait ses moyens, à mesure qu'il approchait de l'examen. Une extrême fatigue, la crainte LEA
 
 . d'échouer, et une timidité maladive le paralysaient
 d'a vance. Il tremblait à la pensée de paraître en public
@@ -3107,18 +2984,14 @@ dité: en classe, il rougissait, il avait la gorge serrée, SANTE
 juand il lui fallait parler; c'était tout au plus si, dans
 
 les premiers temps, il pouvait répondre à l'appel de son
-om. Encore lui était-il beaucoup plus facile de répon-
-
-dre à l'improviste que lorsqu'il savait qu'on allait l''in- PAR
+om. Encore lui était-il beaucoup plus facile de répondre à l'improviste que lorsqu'il savait qu'on allait l''in- PAR
 
 terro ger: alors il en était malade, sa tête ne cessait de
 
 wavailler, lui représentant tous les détails de ce qui à
 
 illait se passer; et plus il avait à attendre, plus il en SA
-était obsédé. On pouvait dire qu'il n'y avait pas d'exa-
-
-de n'eût passé ‘au moins deux fois: car il le pas- A
+était obsédé. On pouvait dire qu'il n'y avait pas d'exade n'eût passé ‘au moins deux fois: car il le pas- A
 
 ait é rêve, dans les nuits qui précédaient, et il y dé-. ne:
 ensai toute son énergie: aussi, ne lui en restait-il
@@ -3136,20 +3009,16 @@ C'était comme un mur noir, contre lequel il venait se -
 briser. Puis, une heure avant la fin de la composition,
 le mur se fendit, et quelques rayons de lumière jaillirent
 à travers les fentes. Alors, il écrivit quelques lignes
-excellentes, mais insuffisantes à le faire classer. A lac-
-cablement où il était, au sortir de cette épreuve, Antoi-
-nette prévit l'échec inévitable, et elle en fut aussi
+excellentes, mais insuffisantes à le faire classer. A laccablement où il était, au sortir de cette épreuve, Antoinette prévit l'échec inévitable, et elle en fut aussi
 accablée que lui; mais elle ne le montra pas. Elle avait
 d'ailleurs, même dans les situations le plus désespérées,!
 un pouvoir inlassable d'espérer.
-Olivier fut refusé. Il était atterré. Antoinette fei-
-gnait de sourire, comme si ce n'était rien de grave;
+Olivier fut refusé. Il était atterré. Antoinette feignait de sourire, comme si ce n'était rien de grave;
 mais ses lèvres tremblaient. Elle consola son frère, elle
 Rat lui dit que c'était une malechance facilement réparable,. à
 qu'il serait sûrement reçu, l'an prochain, et dans un «
 meilleur rang. Elle ne lui dit pas combien il eût fallu À
-pour elle qu'il réussit, cette année, combien elle se sentait usée de corps et d'âme, combien elle avait d'inquié-
-tudes de ne pouvoir refaire encore une année comme À
+pour elle qu'il réussit, cette année, combien elle se sentait usée de corps et d'âme, combien elle avait d'inquiétudes de ne pouvoir refaire encore une année comme À
 celle-là. Cependant, il le fallait. Si elle disparaissait …
 avant qu'Olivier fût reçu, jamais il n'aurait le courage,
 seul, de continuer la lutte: il serait dévoré par la vie.
@@ -3184,8 +3053,7 @@ S'il lui avait dit:
 - elle ne serait pas partie, bien qu'il fallût partir. Jus-
 u'à la dernière heure, dans le fiacre qui les emportait;
 tou deux à la gare de l'Est, elle fut près de renoncer à
-sa résolution: elle ne se sentait plus la force de l'ac-
-complir. Un mot de lui, un mot! Mais il ne le dit pas.
+sa résolution: elle ne se sentait plus la force de l'accomplir. Un mot de lui, un mot! Mais il ne le dit pas.
 se raidissait comme elle. — Elle lui fit promettre
 qu'il lui écrirait tous les jours, qu'il ne lui cacherait
 rie: a et qu'à la moindre alerte, il la ferait revenir.
@@ -3193,9 +3061,7 @@ rie: a et qu'à la moindre alerte, il la ferait revenir.
 Elle partit. Tandis qu'Olivier rentrait, le cœur glacé, « au dortoir du lycée, où il avait accepté d'être mis en
 pension, le train emportait Antoinette douloureuse
 
-transie. Les yeux ouverts dans la nuit, tous deux sen-
-
-taient chaque minute les éloigner davantage l'un de
+transie. Les yeux ouverts dans la nuit, tous deux sentaient chaque minute les éloigner davantage l'un de
 
 ; J'autre, et ils s'appelaient tout bas.
 
@@ -3251,8 +3117,7 @@ chambre, on l'interrogeait sur ce qu'elle écrivait. Quand LA
 4 elle lisait une lettre, on lui demandait ce qu'il y'avait
 . dedans; avec une familiarité goguenarde, on s'informait
 . du « petit frère ». Il lui fallait se cacher. On rougirait
-de raconter à quels expédients elle était contrainte par-
-lois, et dans quels réduits elle devait s'enfermer pour
+de raconter à quels expédients elle était contrainte parlois, et dans quels réduits elle devait s'enfermer pour
 sans être vue les lettres d'Olivier. Si elle laissait
 4 une lettre traîner dans sa chambre, elle était sûre qu'on pus
 la lisait; et, comme elle n'avait, en dehors de sa malle, se
@@ -3278,12 +3143,12 @@ d'Antoinette à s'y dérober: « C'était leur devoir, pen-
 était logée chez eux, qui faisait partie de leur maison,
 et à qui ils avaient confié l'éducation de leurs enfants:?
 ils en étaient responsables. » — (C'est ce que disent de
-leurs domestiques tant de maîtresses de maison, dont «; la « responsabilité » ne pas jusqu'à épargner à ces
+leurs domestiques tant de maîtresses de maison, dont la « responsabilité » ne pas jusqu'à épargner à ces
 malheureuses une seule fatigue et un seul dégoût, mais
 se borne à leur interdire toute espèce de plaisir.) —
 « Pour qu'Antoinette se refusât à reconnaître ce devoir
 de conscience, il fallait, concluaient-ils, qu'elle ne se
-sentit pas complètement sans reproches: une fille hon=. « nête n'a rien à cacher. »: à
+sentit pas complètement sans reproches: une fille hon=. « nête n'a rien à cacher. à
 Ainsi s'établissait autour d'Antoinette une petite pers
 sécution de tous les instants, contre laquelle elle se.
 tenait constamment en défense, et qui la faisait paraître
@@ -3323,7 +3188,7 @@ jamais voyagé. Son imagination travaillait: « Dieu! si
 . elle tombait malade! Elle aurait le temps de mourir,
 À avant qu'il ne pût la revoir. Pourquoi ne lui avait-elle
 . écrit que quelques lignes, la veille 2... Si elle était,
-malade?.. Oui, elle était malade... » Il suffoquait. —:
+malade?.. Oui, elle était malade... » Il suffoquait.
 ._ Plus souvent encore, il avait l''épouvante de mourir loin À
 
 Jean-Christophe à Paris
@@ -3344,8 +3209,7 @@ j'aime tant ». C'étaient de vraies lettres d'amour.
 Elles baïignaient de leur tendresse Antoinette; elles
 étaient tout l'air respirable de ses journées. Quand elles
 n'arrivaient pas, le matin, à l'heure attendue, elle était
-malheureuse. Il advint que, deux ou trois fois, les Grü-
-nebaum, par indifférence, ou — qui sait? — par une
+malheureuse. Il advint que, deux ou trois fois, les Grünebaum, par indifférence, ou — qui sait? — par une
 sorte de taquinerie méchante, oublièrent de les lui
 remettre jusqu'au soir, une fois même jusqu'au lendemain matin: elle en eut la fièvre. — Pour le jour de
 l'an, les deux enfants eurent la même idée, sans s'être
@@ -3356,14 +3220,12 @@ ses travaux et sur ses doutes: Antoinette le conseillait,
 le soutenait, lui soufflait sa force.
 ; Elle n'en avait pourtant pas trop pour elle-même.
 
-Elle étouffait dans ce pays étranger, où elle ne connais-
-sait personne, où personne ne s'intéressait à elle, à
+Elle étouffait dans ce pays étranger, où elle ne connaissait personne, où personne ne s'intéressait à elle, à
 
 part la femme d'un professeur, madame Kæchert, qui « était venue s'installer depuis peu dans la ville, et qui
 
 s'y trouvait dépaysée, elle aussi. La brave femme était
-maternelle, et compatissait à la peine des deux en-
-fants qui s'aimaient et qui étaient séparés — (carelle
+maternelle, et compatissait à la peine des deux enfants qui s'aimaient et qui étaient séparés — (carelle
 avait arraché à Antoinette une partie de son histoire);
 — mais elle était si bruyante, si commune, elle man-
 ù quait à un tel point — quoique bien innocemment —de
@@ -3372,8 +3234,7 @@ d'Antoinette se repliait, effarouchée. Ne pouvant se.
 confier à personne, elle amassait en elle tous ses soucis:
 c'était un poids bien lourd; par moments, elle croyait
 …. qu'elle allait tomber; mais elle serrait les lèvres et se
-remettait en marche. Sa santé était atteinte: elle mai-
-grissait beaucoup. Les lettres de son frère se faisaient.
+remettait en marche. Sa santé était atteinte: elle maigrissait beaucoup. Les lettres de son frère se faisaient.
 de plus en plus découragées. Dans une crise d'abatte-
 ._ ment, il écrivit:
 Mais la lettre n'était pas partie, qu'il en avait honte;
@@ -3395,25 +3256,20 @@ qu'approchait l'ombre du soir, sa force défaillait; elle
 
 Jean-Christophe à Paris
 pensait à fuir. Elle avait le mal du pays, — de ce pays
-qui avait été bien dur pour elle, mais où étaient ense-
-velies toutes les reliques de son passé, — elle avait la Fe. BE,
+qui avait été bien dur pour elle, mais où étaient ensevelies toutes les reliques de son passé, — elle avait la Fe. BE,
 nostalgie de cette langue que parlait son frère, et dans a
 laquelle s'exprimait son amour pour lui.
 
 Ce fut alors qu'une troupe de comédiens français
 passa par la petite ville allemande. Antoinette, qui
 allait bien rarement au théâtre — (elle n'en avait ni le
-temps, ni le goût) — fut prise, cette fois, du besoin irré-
-sistible d'entendre parler sa langue, de se réfugier en “1
+temps, ni le goût) — fut prise, cette fois, du besoin irrésistible d'entendre parler sa langue, de se réfugier en “1
 France. On sait le reste. Il n'y avait plus de places au
-théâtre; elle rencontra Jean-Christophe, qu'elle ne con-
-naissait pas, mais qui, voyant son désappointement,
+théâtre; elle rencontra Jean-Christophe, qu'elle ne connaissait pas, mais qui, voyant son désappointement,
 lui offrit de partager une loge dont il disposait: elle
 accepta, étourdiment. Sa présence avec Christophe fit
-jaser la petite ville; et ces bruits malveillants arrivè-
-rent aussitôt aux oreilles des Grünebaum, qui, déjà
-disposés à admettre toutes les suppositions désobli-
-geantes sur le compte de la jeune Française, et exaspérés
+jaser la petite ville; et ces bruits malveillants arrivèrent aussitôt aux oreilles des Grünebaum, qui, déjà
+disposés à admettre toutes les suppositions désobligeantes sur le compte de la jeune Française, et exaspérés
 contre Christophe, à la suite de certaines circonstances
 qu'il est inutile de rappeler, donnèrent brutalement
 
@@ -3421,8 +3277,7 @@ Cette âme chaste et rougissante, que son amour
 fraternel avait tout entière enveloppée, sauvée de toute
 souillure de pensée, crut mourir de honte, quand elle
 comprit ce dont on l'accusait. Pas un instant, elle n'en
-voulut à Christophe. Elle savait qu'il était aussi inno-
-cent qu'elle, et que s'il lui avait fait du mal, c'était en
+voulut à Christophe. Elle savait qu'il était aussi innocent qu'elle, et que s'il lui avait fait du mal, c'était en
 voulant lui faire du bien: elle lui était reconnaissante. à
 Elle ne savait rien de lui, sinon qu'il était musicien, et
 qu'on en disait beaucoup de mal; mais dans son igno-; À
@@ -3434,8 +3289,7 @@ mal élevé, un peu fou, une candeur égale à la sienne,
 … et une virile bonté, dont le seul souvenir lui était bien.
 faisant. Le mal qu'elle avait entendu dire de lui n'attei_ gnaitpointla confiance que Christophe lui avait inspirée.
 À Victime elle-même, elle ne doutait pas qu'il ne fût une;
-1 autre victime, souffrant comme elle, et depuis plus long-
-temps, de la méchanceté de ces gens qui l'outrageaient.
+1 autre victime, souffrant comme elle, et depuis plus longtemps, de la méchanceté de ces gens qui l'outrageaient.
 Et comme elle avait pris l'habitude de s'oublier pour
 penser aux autres, l'idée de ce que Christophe avait
 souffrir la distrayait un peu de son propre chagrin.
@@ -3490,8 +3344,7 @@ mit à pleurer. Il ne savait faire que cela:ilétaittou
 jours resté « le petit serin » qu'il était, enfant. Il la ser
 . rait contre lui, de peur qu'elle ne lui échappât de nou
 3 veau. Comme ils étaient changés tous deux! Quelle
-triste mine ils avaient! N'importe! ils s'étaient re-
-trouvés: tout redevenait lumineux, l'infirmerie, le lycée,
+triste mine ils avaient! N'importe! ils s'étaient retrouvés: tout redevenait lumineux, l'infirmerie, le lycée,
 le jour sombre; ils se tenaient l'un l'autre, ils ne se lâche
 raïent plus. Avant qu'elle lui eût rien dit, il luifitjuree
 qu'elle ne partirait plus. Il n'avait pas besoin de le lui es
@@ -3518,8 +3371,7 @@ temps; et tout irait bien, pourvu qu''Olivier fût reçu, à
 la fin de l'année. — Mais s'il ne l'était pas? «
 L'obsession de l'examen les reprit, aussitôt qu'ils furent
 A réhabitués à la douceur d'être ensemble. Ils évitaient
-de s'en parler; mais ils avaient beau faire: ils y reve-
-naient toujours. L'idée fixe les poursuivait partout,
+de s'en parler; mais ils avaient beau faire: ils y revenaient toujours. L'idée fixe les poursuivait partout,
 même quand ils essayaient de se distraire: au concert,
 elle surgissait brusquement, au milieu d'un morceau; la à
 nuit, quand ils s'éveillaient, elle s'ouvrait en eux, À
@@ -3593,8 +3445,7 @@ un instant, elle lui serra la main, et dit:
 
 — Ce n'est rien, mon petit, continuons. ES
 Ils ne trouvèrent pas tout de suite la liste, Ils en
-Jurent plusieurs, où le nom de Jeannin n'était pas. Lors-
-qu'ils le virent enfin, ils ne comprirent pas d'abord, ils
+Jurent plusieurs, où le nom de Jeannin n'était pas. Lorsqu'ils le virent enfin, ils ne comprirent pas d'abord, ils
 … relurent plusieurs fois, ils ne pouvaient y croire. Puis,:
 À quand ils furent bien sûrs que c'était vrai, que Jeannin, Le
 M. c'était lui, que Jeannin était reçu, ils ne dirent pasum

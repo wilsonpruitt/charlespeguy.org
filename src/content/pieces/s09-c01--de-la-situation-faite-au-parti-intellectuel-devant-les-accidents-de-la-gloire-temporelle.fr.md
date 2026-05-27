@@ -33,8 +33,7 @@ Me: l'énoncé même le plus succinct; pour savoir ce qui a
 paru dans les cinq premières séries des cahiers,
 ne: 4 suffit d'envoyer un mandat de cinq francs à M. André
 Bourgeois, administrateur des cahiers, 8, rue dela Sor- Re:
-bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-ment; on recevra en retour le catalogue analytique
+bonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
 
 .__ sommaire, 1900-1904, de nos cinq premières séries.
 
@@ -159,8 +158,7 @@ les vieilles rhétoriques de province, dès les plus inno- "FA
 4 centes et jeunes basses classes, dès les sixièmes les RE.
 plus jeunes et les plus fraîches, avec l'histoire des
 anciens Égyptiens et des Assyriens cruels, dès les plus »
-anciennes et les plus jeunes promenades et les plus vio-
-lents jeux de barre sous les marronniers lourds, dès
+anciennes et les plus jeunes promenades et les plus violents jeux de barre sous les marronniers lourds, dès
 ; “4 peut-être avant, tout cela était joué. Dès les plus an- ME
 ciennes parties de barre, et au-dessous, au-dedans,
 À cette partie-là était jouée. il
@@ -168,8 +166,7 @@ Sur les arrivismes temporels, de part et d'autre les
 jeux sont faits. Les âmes turpides vont aux turpitudes
 les âmes serviles vont aux servitudes. 1 à
 Les imbéciles vont à l'honnêteté.
-Et ce qu'il y a de plus fort, c'est qu'ils en ont telle-
-ment le goût, les imbéciles, de l'honnêteté, de la vieille ne
+Et ce qu'il y a de plus fort, c'est qu'ils en ont tellement le goût, les imbéciles, de l'honnêteté, de la vieille ne
 probité, qu'ils y restent.
 
 Il est quelquefois difficile à l'arriviste d'arriver, parce
@@ -211,7 +208,7 @@ comme de sales métiers. Il sait pertinemment que toute
 sa. vie on lui fera éreinter les yeux à corriger des copies
 et des compositions ou de la copie et des épreuves
 Dans les honneurs obscurs de quelque légion.
-7 Mais il aime cela, cet homme. Il est si bête qu'il ne
+Mais il aime cela, cet homme. Il est si bête qu'il ne
 pense même pas à nommer cela probité, honnêteté,
 goût et passion de la liberté. Il exècre le mot même de
 ; pureté. Parce que de tous les sépulcres les sépulcres
@@ -219,9 +216,7 @@ blanchis sont encore ceux qui lui paraissent le plus LA
 cimetières. C'est nous, les cuistres, qui nous amusons à
 4 donner à tout cela des noms de vertus. Avec notre
 manie de faire des catalogues et des index. Il ma
-24 besoin ni de nos classements, ni de nos encourage-
-ments, ni de nos conseils. Tout ce qu'il sait, cet igno-
-rant, c'est qu'il y a des démarches que les autres font
+24 besoin ni de nos classements, ni de nos encouragements, ni de nos conseils. Tout ce qu'il sait, cet ignorant, c'est qu'il y a des démarches que les autres font
 ; tout le temps et qu'il ne fera jamais, pas même une
 fois, pas même un seul quart d'heure. Parce que ce
 ï quart d'heure lui resterait sur l'estomac, lui serait im-
@@ -231,10 +226,8 @@ sa vie sera telle, toute entière, et que telle sera sa
 ! mort, qui est pour lui comme une sorte de fin de
 "41; Car pour cette sorte de gens, de petites gens, elle
 
-n'est pas, elle me paraît pas beaucoup le commence-
-ment de leur éternité. A
-Infiniment plus dangereuse que la tentation du gou-
-vernement temporel, parce qu'elle ne s'attaque plus
+n'est pas, elle me paraît pas beaucoup le commencement de leur éternité. A
+Infiniment plus dangereuse que la tentation du gouvernement temporel, parce qu'elle ne s'attaque plus
 seulement aux âmes de servitude, infiniment plus je
 intéressante parce qu'elle s'attaque aussi aux âmes de
 commandement, et même à quelques bons esprits,
@@ -244,8 +237,7 @@ haute tentation, une tentation supérieure, parce que
 l'autre n'est que basse et que celle-ci est supérieure: la
 4 tentation de la gloire, sous toutes ses formes, sous toutes
 les formes de cette véritable affection.
-L'expérience a malheureusement démontré que la ten-
-tation de la gloire produit les formes d'une affection:
+L'expérience a malheureusement démontré que la tentation de la gloire produit les formes d'une affection:
 véritable, qu'il y a des hommes qui ne trahiraient point
 : leurs amis pour le gouvernement général de Madagas-;
 car, — et dépendances, — et dont le cœur chancelle et
@@ -264,11 +256,11 @@ linéaire, dans le ruban de l'évolution littéraire, dans le TEA
 3 ruban scientifique d'une évolution littéraire linéaire, —
 simplement pour entrer dans un feuilleton du Temps; à
 à — beaucoup plus scientifiquement pour être mis dans.
-1 42 un chapitre nouveau de notre maître M. Lanson; —: à
+1 42 un chapitre nouveau de notre maître M. Lanson; à
 10 beaucoup plus scientifiquement encore, — carilyades
 degrés dans la science et dans la magistrature, — pour En
 ‘al entrer dans le cosmos de la pensée de notre maître
-M. Andler, même non exprimée, même non écrite,; a:
+M. Andler, même non exprimée, même non écrite,;
 même non imprimée, comme un chaînon de la chaîne,
 4 comme un échelon de l'échelle, comme un élément,
 3 indispensable, — un élément d'évolution étant toujours À
@@ -315,8 +307,7 @@ sinon pour toujours. Ce que je dis, c'est que, parmi les
 É âmes supérieures, parmi les âmes hautes, parmi les De
 quelques Français qui osent affronter cette idée: ne pas
 être reçus à un examen ou à un concours de l'enseigne- “40
-ment de l'État, parmi ces âmes éminentes et singulière-
-ment rares il se produit un nouveau ravage, par cela
+ment de l'État, parmi ces âmes éminentes et singulièrement rares il se produit un nouveau ravage, par cela
 A même infiniment plus dangereux, puisqu'il tombe juste-
 : ment, comme par hasard, sur les quelques-uns qui A
 avaient échappé aux premiers, aux anciens communs
@@ -338,8 +329,7 @@ atteint, qui entame justement les âmes élevées, d'ailleurs
 4 le monde moderne, une tentation de domination tempo-
 à relle, d'autant plus pernicieuse qu'elle est plus insidieuse,
 3 d'autant plus redoutable qu'elle ëst plus insinuante et
-À qu'elle se glisse à des âmes plus précieuses ayant elle-
-même revêtu les aspects presque d'une vertu, presque
+À qu'elle se glisse à des âmes plus précieuses ayant ellemême revêtu les aspects presque d'une vertu, presque
 n. d'un devoir, presque d'une obligation métaphysique et
 à De bons esprits s'aperçoivent aisément, de naissance,
 ; de race, et sans qu'il soit besoin de les tirer par la
@@ -363,13 +353,11 @@ monde moderne simplement une forme, et même assez
 à grossière, de domination temporelle, je me vois contraint
 ; de faire appel à moi-même, ce qui n'est pas convenable,
 . à mon propre témoignage. Mais tous nos abonnés ne
-sont peut-être pas éditeurs. Et quelques-uns certaine-
-ment ne sont pas journalistes. Il faut avoir conduit
+sont peut-être pas éditeurs. Et quelques-uns certainement ne sont pas journalistes. Il faut avoir conduit
 depuis plus de dix ans, il faut avoir la charge et la “#1
 responsabilité de conduire depuis au moins dix ans la À
 seule entreprise qui, sans aucunes ressources capita- Det
-listes, ait jamais été faite pour lutter contre les puis-
-sances d'argent dans l'ordre de l'édition, qui seule ait
+listes, ait jamais été faite pour lutter contre les puissances d'argent dans l'ordre de l'édition, qui seule ait
 constamment et sans aucune faiblesse refusé de plier
 devant les puissances d'argent, pour pouvoir apporter
 1 le, témoignage que j'apporte ici, pour pouvoir certifier,
@@ -380,9 +368,7 @@ comme une puissance à peu près uniquement spirituelle
 est devenue, par un effet de l'incrustation capitaliste
 moderne, sur ses vieux jours uniquement une puissance En.
 temporelle, et la plus dégradée des puissances tempo- DU:
-a [Je dis: la seule entreprise qui, dans l'ordre de l'édi-
-tion; je ne dis pas la seule entreprise absolument par-
-lant, Nous sommes quelques-unes, heureusement. Mais
+a [Je dis: la seule entreprise qui, dans l'ordre de l'édition; je ne dis pas la seule entreprise absolument parlant, Nous sommes quelques-unes, heureusement. Mais
 “1% les autres entreprises ne sont pas proprement de l'ordre
 
 Le: de l'édition. Je sais autant que personne, pour prendre Se #4 à
@@ -456,16 +442,14 @@ monde, qui a toujours ce mot d'expérience à la bouche, Le
 entendue dans le sens de la technique scientifique, au Es
 
 4172 sens d'expérience de laboratoire: faire une expérience,
-:: installer une expérience, monter une expérience, réus-
+installer une expérience, monter une expérience, réus-
 1 sir, ne pas réussir une expérience, NOUS Savons par
 3 expérience (qu'il faut prononcer sérieusement, sévère- He:
 à.ment, en baissant les yeux et en fermant à demi la
 4. bouche, plissant un peu les lèvres) est aussi le premier,
 est aussi le seul qui ait méprisé à ce point la propre
-expérience, l'expérience proprement dite, cet accrois-
-sement incalculable et constant, qui est dela vie même, A
-; cette entrée perpétuelle de l'événement total dans l'évé-
-nement de la vie propre. Nous reviendrons certai-
+expérience, l'expérience proprement dite, cet accroissement incalculable et constant, qui est dela vie même, A
+; cette entrée perpétuelle de l'événement total dans l'événement de la vie propre. Nous reviendrons certai-
 Je n'apporte donc mon témoignage que pour avoir la
 ‘ti conscience tranquille, et parce qu'il ne faut rien oublier.
 À J'ai Dieu merci non seulement un grand nombre de
@@ -476,8 +460,7 @@ fait toujours beaucoup de plaisir, aux vacances, ou
 ; ceux de Paris après la classe, entre deux classes, nous
 4 causons quelquefois. Une statistique sévèrement assise
 et tenue à jour a permis de calculer que je ne parle
-ne: jamais depuis quinze minutes, et, dans les treize dix-
-septièmes des cas, depuis treize minutes et vingt-sept se-
+ne: jamais depuis quinze minutes, et, dans les treize dixseptièmes des cas, depuis treize minutes et vingt-sept se-
 ; condes et cent vingt-et-un deux cent cinquante-septièmes
 RE) de seconde sans faire intervenir dans mes propos une
 ni certaine opposition que j'ai fait déjà un certain nombre #3
@@ -493,14 +476,12 @@ grands génies, contemporains, des ressources infinies. AN
 Paris est plein de gens qui savent toujours écrire du La
 nouveau, et dire autre chose. Admirons ces gens de
 : Paris. Pour moi, l'inépuisable fécondité d'un Léon Blum
-et de ce nombre inépuisable de nos salonniers m'a tou-
-jours plongé non pas tant dans un rêve que dans une
+et de ce nombre inépuisable de nos salonniers m'a toujours plongé non pas tant dans un rêve que dans une
 espèce d'hébétude. J'admire, et ne peux point imiter, à a
 : ma grande honte, j'admire tous ces grands hommes,
 nos contemporains chez eux, qui ont un nombre indéfini
 4 d'écritures, et un nombre non moins indéfini de propos, a
-gréable, c'est que le propos est tout le même que l'écri-
-ture. Je dis ce que j'écris. J'écris ce que je dis. Je disais
+gréable, c'est que le propos est tout le même que l'écriture. Je dis ce que j'écris. J'écris ce que je dis. Je disais
 . donc à l'instant que lorsqu'un de mes plusieurs amis
 universitaires veut bien venir me voir, et que nous
 minutes que j'ai déjà oublié, mais qui est mis quelque
@@ -510,12 +491,10 @@ connue, par exemple entre universitaire et industriel. En
 . quoi je ne fais que suivre un des exemples de notre bon À
 maître M. Sorel. Si obtus que je sois venu au monde
 : moi-même, et que je sois demeuré, je n'ai pas été sans de;
-4 remarquer comment tournent, généralement à ce mo-
-ment-là, ces entretiens. C'est à ce point en effet que
+4 remarquer comment tournent, généralement à ce moment-là, ces entretiens. C'est à ce point en effet que
 mes amis universitaires me serrent généralement la ne
 
-+148 main, avec une affectueuse, bien-affectueuse, toute-
-affectueuse commisération, que quelques-uns dissimu- ja.
++148 main, avec une affectueuse, bien-affectueuse, touteaffectueuse commisération, que quelques-uns dissimu- ja.
 lent à peine. On citerait même quelques exemples, —
 ne. car s'il est étonnant à quel point nous sommes un objet!
 d'amitiés, — et d'inimitiés, — il est plus étonnant encore
@@ -551,8 +530,7 @@ ces traites? — un homme qui n'a point à établir un
 LE budget et qui n'a point incessamment à recommencer,
 un homme qui n'a point entièrement un budget de droit
 Ù commun, un budget privé, un budget particulier, entiè- où
-rement nourri de recettes privées, commerciales, elles-
-mêmes de droit commun, sinon entièrement dépensé en ne
+rement nourri de recettes privées, commerciales, ellesmêmes de droit commun, sinon entièrement dépensé en ne
 dépenses privées, il faut avoir été serré au larynx et
 avoir la colique dans le ventre par cette anxiété a
 atroce des échéances, il faut avoir été roulé soi-même et
@@ -598,10 +576,8 @@ malheureusement plus guère aujourd'hui que des arti- »
 cles de journaux, que dans les livres, hélas, dont, à part
 trois ou quatre, il vaut mieux ne point parler. Mais
 outre l'un et l'autre, outre ces antagonisme et solidarité,
-il y a une certaine parenté profonde, il y a entre l'ou-
-vrier et le patron une certaine parenté profonde, une
-certaine consonance profonde, que je nommerais indus-
-trielle, au sens que nous avons attribué à ce mot, une
+il y a une certaine parenté profonde, il y a entre l'ouvrier et le patron une certaine parenté profonde, une
+certaine consonance profonde, que je nommerais industrielle, au sens que nous avons attribué à ce mot, une
 certaine parenté profonde industrielle, une certaine
 consonance profonde industrielle, qui est un sentiment,
 une situation, un phénomène d'une importance capitale,
@@ -625,15 +601,10 @@ ne homme qui a du journaliste ce don de faire un sort à
 certains mots, bons ou mauvais, justes ou impropres,
 qu'il invente, ou qu'il emprunte, un homme qui a notam-
 . ment fait un certain sort au mot bloc, M. Georges
-Clemenceau a fait aussi un certain sort au mot barri-
-cade, un sort nouveau, en parlant de ceux qui sont de
+Clemenceau a fait aussi un certain sort au mot barricade, un sort nouveau, en parlant de ceux qui sont de
 de lunet de l'autre côté, qui ne sont pas du même côté de
-la barricade. Ce n'était malheureusement qu'une bou-
-tade de journaliste, Et peut-être un souvenir de roman-
-tique. La barricade n'est plus aujourd'hui le grand
-4 instrument social et politique, le grand appareil de gou-
-vernement ou de révolution, le grand appareil de discer-
-nement. Ce n'est plus la barricade aujourd'hui qui
+la barricade. Ce n'était malheureusement qu'une boutade de journaliste, Et peut-être un souvenir de romantique. La barricade n'est plus aujourd'hui le grand
+4 instrument social et politique, le grand appareil de gouvernement ou de révolution, le grand appareil de discernement. Ce n'est plus la barricade aujourd'hui qui
 discerne, qui sépare en deux le bon peuple de France,
 . les populations du royaume. C'est un beaucoup plus fe:
 petit appareil, mais infiniment plus répandu, surtout
@@ -669,8 +640,7 @@ Y discriminante. Nous avons le guichet discriminant. y +3
 “2 devant. Celui qui est, assis, derrière, et ceux qui sont “4
 4 debout devant, ceux qui défilent, devant, comme à la
 
-parade, en on ne sait quelle grotesque parade de servi-
-tude librement consentie. est la grande, la vraie
+parade, en on ne sait quelle grotesque parade de servitude librement consentie. est la grande, la vraie
 A séparation du peuple de France. Et c'est pour cela que
 les grands débats politiques de ces dernières années et
 de cette présente ne parviennent point à me passionner.
@@ -686,8 +656,7 @@ certain air, on s'y tromperait, un air de fanfare etde
 
 triomphe, avec des trompettes, qui est bien agréable.
 Autant qu'ils passionnent le peuple français. Tous ces
-hommes, tous ces partis qui se battent ou qui font sem-
-blant de se battre, je les reconnais aisément pour ce
+hommes, tous ces partis qui se battent ou qui font semblant de se battre, je les reconnais aisément pour ce
 qu'ils sont, je les connais depuis longtemps pour un
 0 grand, pour un immense, pour un seul parti. Tous ils “0
 appartiennent au même grand et unique parti, qui est
@@ -703,15 +672,12 @@ venir. Bureaucrates, tous, et ayant du monde et de +010
 É la vie, notamment de la vie politique et sociale, une "140
 ni représentation de bureaucrates. Bureaucrates tous, ni
 mêmeet surtout celui qui est un orateur, même et aussi:
-. celui qui‘est un journaliste. Bureaucrate Jaurès, bureau-
-crate Clemenceau, — c'est pour cela que leurs duels ‘#4
+. celui qui‘est un journaliste. Bureaucrate Jaurès, bureaucrate Clemenceau, — c'est pour cela que leurs duels ‘#4
 oratoires sont purement fictifs, — et ne parviennent
 3 point à m'émouvoir et que c'est à peine si je les suis:
 NE je sens trop le battage, l'entente secrète, que ce sont
 
-les (deux) mêmes hommes au fond, qu'ils sont compa-
-
-gnons et compères, les hommes du même monde, ne
+les (deux) mêmes hommes au fond, qu'ils sont compagnons et compères, les hommes du même monde, ne
 
 du même système, qui est le système bureaucra-
 
@@ -721,9 +687,7 @@ les antiministres, — les ministres, — de la Confé-
 
 ‘#4 dération Générale du Travail. Bureaucrates sur et
 
-contre quiconque est de la menue populace: élec-
-
-teurs, ou simplement inscrits, dans l'ordre politique, #4
+contre quiconque est de la menue populace: électeurs, ou simplement inscrits, dans l'ordre politique, #4
 
 et, dans l'ordre économique, imposés, nommés contri-
 
@@ -743,8 +707,7 @@ honnête, parce qu'à l'intérieur de la boîte on n'a jamais
 parce qu'ils ont de l'amitié pour nous, très volontiers
 24 ils nous font l'amitié de le croire, ou beaucoup plus
 : exactement, et simplement, de nous croire, où plutôt
-ils croient le croire, mais ils ne font que de le sah voir. Un philosophe sur son lit de mort disait récem-
-ment au plus fidèle de ses disciples, qui à recueilli pour
+ils croient le croire, mais ils ne font que de le sah voir. Un philosophe sur son lit de mort disait récemment au plus fidèle de ses disciples, qui à recueilli pour
 Ï nous ce propos; parvenu à un âge avancé, quelques
 4 instants avant l'instant de sa mort ce philosophe disait
 à sensiblement: Je sais que je vais mourir, mais je ne le
@@ -752,11 +715,9 @@ crois pas. Il entendait sans doute par ces mots, autant
 que l'on peut expliquer, par l'analyse, des paroles aussi
 ï profondes, et aussi justes, il entendait sans doute par
 
-ces mots qu'il connaissait, qu'il prévoyait, qu'il précon-
-naissäit sa prochaine mort d'une pleine connaissance
+ces mots qu'il connaissait, qu'il prévoyait, qu'il préconnaissäit sa prochaine mort d'une pleine connaissance
 intellectuelle, historique et scientifique, impliquant une
-: certitude historique et scientifique indiscutablé, inéviX table, mais qu'il ne la préconnaissait pas, qu'il ne pres-
-sentait pas sa propre prochaine mort d'une connaissance
+: certitude historique et scientifique indiscutablé, inéviX table, mais qu'il ne la préconnaissait pas, qu'il ne pressentait pas sa propre prochaine mort d'une connaissance
 organique intérieure. On sait sa mort, on ne la croit pas,
 ou on n'y croit pas. C'est je crois l'un des mots les plus
 A profonds que l'on ait prononcé depuis qu'il y a la mort.
@@ -803,8 +764,7 @@ pas à nous occuper de lui. Nous n'avons rien à lui dire.
 
 Il est marqué. Il n'est pas admissible. À à
 À Nous ne pouvons nous occuper ici que de ce qui se
-Fe: passe après l'admissibilité, de ce qui est entre l'admis-
-sibilité et l'admission; nous ne travaillons, nous ne
+Fe: passe après l'admissibilité, de ce qui est entre l'admissibilité et l'admission; nous ne travaillons, nous ne
 pouvons travailler que l'oral. faut se réduire et.nous Nc:
 
 4 nous sommes réservé les sommités (nous l'avons dit
@@ -824,17 +784,14 @@ Telles sont sensiblement les relations, les superposi-
 13 tions et imbrications de ces trois degrés.
 Un deuxième degré est la tentation, intermédiaire et
 transitoire, composite, mêlée de l'un et de l'autre
-ni porel dans les puissances intellectuelles: chaires, exa-
-mens, concours, places et décorations. Et argent et na,
+ni porel dans les puissances intellectuelles: chaires, examens, concours, places et décorations. Et argent et na,
 considération là-dedans. Cette tentation est encore plus Se:
 à grossière, plus vile et plus basse que la première. Celui Le:
 qui s'attarde à cette tentation est encore plus jugé que (‘8
 l'autre, que le premier. Encore moins admissible. Nous
 ne nous y attarderons donc pas.
 É Ily a en effet dans ce cas, dans ce deuxième cas, une;
-espèce de contamination, une sorte d'intoxication parti-
-culière très particulièrement désagréable. Nous regar-
-dons, nous considérons d'un tout autre regard l'ambi- dE:
+espèce de contamination, une sorte d'intoxication particulière très particulièrement désagréable. Nous regardons, nous considérons d'un tout autre regard l'ambi- dE:
 tieux pur et simple, l'ambitieux propre, celui que nous
 … Mavons nommé l'ambitieux du premier degré, l'homme te
 temporel, enfin l'ambitieux temporel qui n'a que des
@@ -848,8 +805,7 @@ par comparaison avec le second. Nous aimons mieux,
 nous aimons presque le premier, en comparaison du
 
 premier. Nous aimons infiniment mieux celui qui fait
-à son métier, ou qui a l'air de faire son métier, Pambi-
-tieux qui exerce (l'ambition) (temporelle) comme une à
+à son métier, ou qui a l'air de faire son métier, Pambitieux qui exerce (l'ambition) (temporelle) comme une à
 7 profession reconnue. Nous haïssons l'autre. Dans le
 : passé nous regardons, nous considérons d'un tout
 4 autre regard les ambitions temporelles des barons,
@@ -888,11 +844,9 @@ particulière, et considérant presque malgré nous les À À
 intellectuels comme des sortes de successeurs (indignes)
 des spirituels, nous ne sommes pas gênés quand les ME
 ambitieux pour ainsi dire qualifiés, quand un ambitieux
-avoué, quand des ambitieux pour ainsi dire profession-
-nels, c'est-à-dire, exactement et en définitive, en exacte
+avoué, quand des ambitieux pour ainsi dire professionnels, c'est-à-dire, exactement et en définitive, en exacte
 définitive, quand un temporel ambitieux temporel,
-quand un ministre, quand un député, quand un politi-
-cien, quand un parlementaire, quand un professionnel
+quand un ministre, quand un député, quand un politicien, quand un parlementaire, quand un professionnel
 enfin, quand un journaliste convoite, poursuit un
 accroissement temporel, une charge, une grandeur, une à
 grosseur temporelle, même quand il veut avoir, acqué-;
@@ -918,8 +872,7 @@ intemporel, quand c'est un professeur, quand c'est un
 +480 rades qui ont des ambitions temporelles (où l'on peut
 mettre comme un cas particulier, exceptionnel, comme
 0 un Cas désintéressé la très légitime ambition de rendre
-4 des services publics par et dans l'administration tempo-
-relle, par et dans le gouvernement temporel) nous
+4 des services publics par et dans l'administration temporelle, par et dans le gouvernement temporel) nous
 aimons infiniment mieux qu'ils poursuivent leurs fins
 14! par les moyens temporels dans les situations temporelles
 Rae que de rester dans nos jambes à se mettre dans noS
@@ -929,8 +882,7 @@ la rigueur, comme un cas particulier, exceptionnel,
 bi: comme un cas désintéressé, mais très réel, et très réel
 2 lement réalisable, on peut concevoir, on peut se repré-
 En: senter, on peut admettre par exemple qu'un professeur
-bg. se propose de devenir successivement conseiller munihs 1 cipal d'une petite commune, conseiller général, séna-
-teur, ministre afin de rendre dans ces successives situa- à
+bg. se propose de devenir successivement conseiller munihs 1 cipal d'une petite commune, conseiller général, sénateur, ministre afin de rendre dans ces successives situa- à
 10 tions temporelles et par ces moyens temporels autant de à
 (50 services qu'il en pourra rendre au public; il peut aïnsi à
 lui rendre, il peut rendre ainsi beaucoup de services
@@ -948,11 +900,9 @@ pas faire beaucoup de mal. Même ceux qui seraient mal
 4 qu'ils ne fassent jouer que des ressorts temporels. Parce
 quedans le temporel, dans la politique (temporelle), nous
 sommes avertis, nous ne sommes pas désarmés, nous “Yi
-sommes gardés, nous sommes vaccinés, nous commen-
-çons malheureusement à être vaccinés contre les agisse- à
+sommes gardés, nous sommes vaccinés, nous commençons malheureusement à être vaccinés contre les agisse- à
 ments des politiciens, nous sommes habitués, contre la
-politique et le temporel, contre tout ce qui est de la poli-
-tique. Dans la politique nous ne redoutons donc pas au- A à
+politique et le temporel, contre tout ce qui est de la politique. Dans la politique nous ne redoutons donc pas au- A à
 ._ tantla politique. Dans le temporel nous ne redoutons pas Me
 autant le temporel. En fait ceux de nos camarades qui
 4 sont devenus, qui se sont faits résolument politiciens, par-
@@ -967,13 +917,10 @@ atteint aujourd'hui (et malheureusement aussi hélas) à
 qui sont redoutables, ceux qui sont notre ennemi, parce Ai
 qu'iciincontestablement notre ennemi c'est notre maître,
 ce sont ceux qui font de la politique dans l'impolitique,
-A dans ce qui devait demeurer impolitique; du parlemen-
-taire dans l'imparlementaire, dans ce qui devait de- Le
+A dans ce qui devait demeurer impolitique; du parlementaire dans l'imparlementaire, dans ce qui devait de- Le
 meurer imparlementaire; généralement du temporel an
-dans l'intemporel, dans ce qui devait demeurer intem-
-porel. Parce qu'alors et on ne se méfie pas. Ceux qui
-sont infiniment dangereux, ce sont ceux qui sont tyran-
-niques, ce sont ceux qui par des moyens temporels dans
+dans l'intemporel, dans ce qui devait demeurer intemporel. Parce qu'alors et on ne se méfie pas. Ceux qui
+sont infiniment dangereux, ce sont ceux qui sont tyranniques, ce sont ceux qui par des moyens temporels dans
 … des situations intellectuelles veulent introduire, veulent
 établir un gouvernement (absolu, tyrannique) des esprits, "40
 … ce sont ceux qui veulent enrégimenter les jeunes gens,
@@ -987,8 +934,7 @@ sont ces hommes, ces professeurs qui se conduisent
 À Sorbonne, à l'École Normale (dans la nouvelle École
 Normale), au Musée Pédagogique, dans toute Univer-
 10 sité, dans tout l'enseignement, sous prétexte, sous le;
-nom de pédagogie, sociologie (que nous nommerons dé-
-ni. sormais, je vous préviens, sociagogie, parce que c'est
+nom de pédagogie, sociologie (que nous nommerons déni. sormais, je vous préviens, sociagogie, parce que c'est
 de: beaucoup mieux), démagogie et toutes autres agogies,
 qui ont entrepris d'exercer, qui exercent littéralement
 ne... une tyrannie mentale, intellectuelle, morale, civique
@@ -1005,16 +951,13 @@ Que instrument, de règne, de gouvernement des esprits, qui
 ne supporterons pas, où nous ne supporterons jamais À
 4 qu'une tyrannie se fonde et règne et vive en paix, des
 1 hommes enfin comme les honorables MM. Aulard et
-Charles Cinq Langlois, pour ne citer que ces deux his-
-toriens, pour ne citer que des historiens. Car les socio À
+Charles Cinq Langlois, pour ne citer que ces deux historiens, pour ne citer que des historiens. Car les socio À
 logues, il faudrait tous les citer. LIN
-2 C'est qu'est le danger, la tyrannie insupportable;
+C'est qu'est le danger, la tyrannie insupportable;
 6 c'est qu'est le danger, l'inendurable audace de la
 5 tyrannie; la menace qüe nul ne supportera; c'est là,
 
-c'est alors que se produit cette espèce de contamina-
-
-tion, cette sorte d'intoxication, cette quelque simonie à
+c'est alors que se produit cette espèce de contamination, cette sorte d'intoxication, cette quelque simonie à
 dont nous parlions tout au commencement de cette #4)
 brève interruption. Parce que là, parce qu'alors nous A
 
@@ -1023,7 +966,7 @@ parce qu'ici nous serions désarmés. Parce qu'ils sont
 politiques, parlementaires, politiciens, policiers même, À
 généralement temporels où il ne faut pas, absolument a
 
-. pas être tout cela. Ils font de l'hétérogène, confondent les À?
+. pas être tout cela. Ils font de l'hétérogène, confondent les
 
 ordres, mettent ensemble deux ordres qu'il ne faut
 jamais mettre ensemble. Cela sent la mixture, le bocal
@@ -1058,7 +1001,7 @@ ment anticatholiques, insoucieux de la contradiction,
 politique parlementaire économique bourgeois et. taliste. Il n'est donc pas étonnant que par un effet de l'in- À
 4 crustation capitaliste moderne la gloire elle-même soit
 à À devenue finalement une puissance temporelle.
-3 Sous les anciens régimes, la gloire était une puissance
+Sous les anciens régimes, la gloire était une puissance
 2 presque uniquement spirituelle. Sous les anciens régimes,
 4 assez de puissances contre-balançaient les puissances;
 d'argent, — puissances de force, autres puissances de À
@@ -1093,13 +1036,11 @@ cette puissance de force qu'est l'argent et les puissances
 d'esprit. Etil y en avait assez, parce que le monde était
 riche de puissances. Puissances d'armes et surtout puis- À
 sances de race; puissance du poing, puissance du
-À gantelet, puissance de la dague, puissance de la tradi-
-tion, elle-même demi-intellectuelle ou spirituelle, puis-
+À gantelet, puissance de la dague, puissance de la tradition, elle-même demi-intellectuelle ou spirituelle, puis-
 14 sance de tant de rythmes qui battaient tant de cœurs,:
 Ne: puissances de tant de vies qui battaient leur mesure,
 . puissances de tani de corps qui n'étaient point asservis, Et
-De puissances de la hiérarchie, elles-mêmes demi-intellec-
-tuelles ou demi-spirituelles, puissances de la cité, puis-
+De puissances de la hiérarchie, elles-mêmes demi-intellectuelles ou demi-spirituelles, puissances de la cité, puis-
 … sances de la commune, puissances civiques, puissances 121008
 de la communauté, demi temporelles et demi d'esprit,
 14 puissance nautique (Athènes) ou puissance de chevale-;
@@ -1108,12 +1049,10 @@ rie, et sur tout puissances de la race, alors les plus fortes
 dynastiques, dynasties des rois, dynasties des grands,
 dynasties des gueux, toutes également dynastiques,
 h. tout le monde alors était dynastes, une infinité de belles ce:
-et fortes puissances de force, à la limite toutes tempo-
-relles et de indéfiniment dégradées en puissances
+et fortes puissances de force, à la limite toutes temporelles et de indéfiniment dégradées en puissances
 - qui devenaient en une indéfinité de graduations spiri- BA:
 tualisées, une indéfinité de puissances de force ou de Au:
-demi-force à la fois luttaient ou pactisaient et se com-
-attaient entre elles, et ainsi doublement se balançaient,
+demi-force à la fois luttaient ou pactisaient et se comattaient entre elles, et ainsi doublement se balançaient,
 
 et à la fois tantôt luttaient contre les puissances d'esprit,
 ou pactisaient et se mariaient plus ou moins avec elles,
@@ -1129,8 +1068,7 @@ durables, des équilibres véritablement stables, équi-
 44 équilibres passionnés du peuple d'Israël, équilibres des
 cités helléniques, équilibre de la paix romaine, — où
 7 pourtant les puissances d'argent commirent un premier
-essai de leur domination, et qui restera le plus dégoû-
-tant des anciens équilibres, parce que c'est celui qui
+essai de leur domination, et qui restera le plus dégoûtant des anciens équilibres, parce que c'est celui qui
 2 ressemble le plus à notre équilibre moderne de mort, à
 ce point qu'il en est comme une tentative, comme une
 tentation, un essai, une, première, maquette, une image
@@ -1142,29 +1080,21 @@ Et ces équilibres eux-mêmes étaient ce que nous ayons
 dit, répondaient aux conditions générales que nous à
 avons dites. C'est-à-dire qu'assez de puissances de
 À force et d'esprit s'y combinaient et s'y balançaïent pour À
-7 que les puissances d'esprit n'y fussent point infaillible-
-ment soumises, qui pour elles est autant dire mortes,
+7 que les puissances d'esprit n'y fussent point infailliblement soumises, qui pour elles est autant dire mortes,
 4 pour que chaque puissance d'esprit en particulier y fût si
 en définitive ou y devint libre et survivante, Autant
-É qu'elle voulait. C'est-à-dire autant qu'elle avait -en elle-
-
-même de force, et ainsi de raison d'être et de justifi-
-cation. De quelques déséquilibres, de quelques troubles Re:
+É qu'elle voulait. C'est-à-dire autant qu'elle avait -en ellemême de force, et ainsi de raison d'être et de justification. De quelques déséquilibres, de quelques troubles Re:
 3 et de quelques désordres que ces équilibres, ensuite,
-fussent coupés successivement, comme ces déséqui-
-libres avaient, au fond, exactement le même principe
+fussent coupés successivement, comme ces déséquilibres avaient, au fond, exactement le même principe
 et le même habitus et la même attitude que leurs a
 frères ces équilibres, également dans les équilibres,
 également et même au moins autant dans les déséqui- À
-libres, dans les inéquilibres et dans les remises en équi-
-libre intercalées, si longues fussent-elles, persistait ce
+libres, dans les inéquilibres et dans les remises en équilibre intercalées, si longues fussent-elles, persistait ce
 caractère commun à toutes les anciennes humanités,
-( lasromaine impériale, comme je l'ai dit, peut-être par-
-tiellement exceptée, — que la puissance d'argent était +1
+( lasromaine impériale, comme je l'ai dit, peut-être partiellement exceptée, — que la puissance d'argent était +1
 fort loin d'y être la seule puissance de force, et qu'un “3
 tel débat et de telles alliances et de telles collisions et
-: collusions de toutes sortes s'y poursuivaient infatigable-
-ment entre toutes ces puissances temporelles et de toutes
+: collusions de toutes sortes s'y poursuivaient infatigablement entre toutes ces puissances temporelles et de toutes
 ces puissances ensemble et séparément aux puissances;
 d'esprit ensemble ou séparément, de tels combais et de
 4 telles alliances que dans tout cet ordre et dans tout ce
@@ -1174,27 +1104,23 @@ d'esprit ensemble ou séparément, de tels combais et de
 à recherchées, menacées, poursuivies, pour le bon ou pour
 le mauvais motif, pour l'ignominie ou pour la gloire,
 ; pour la défaite ou pour la victoire, pour la bataille même
-ou pour la plane paix, pour l'alliance ou pour la persé-
-cution, dans ce fatras mystérieux de grandeurs et de
+ou pour la plane paix, pour l'alliance ou pour la persécution, dans ce fatras mystérieux de grandeurs et de
 .…. misères temporelles qui fait toute la trame, qui fait tout.
 le tissu des histoires des successives humanités, dans ce
-. fatras vivant d'équilibres et de déséquilibres les puis-
-sances d'esprit vivaient. Elles aussi elles avaient leurs
+. fatras vivant d'équilibres et de déséquilibres les puissances d'esprit vivaient. Elles aussi elles avaient leurs
 
 grandeurs et leurs misères. Elles aussi elles vivaient
 ne 34 Et c'est même pour cela, parce qu'elles vivaient, qu'elles -
 de avaient leurs grandeurs et leurs misères. Elles parta-
-215 geaient les grandeurs communes et les communes mi-
-sères des puissances temporelles où elles étaient enche;
+215 geaient les grandeurs communes et les communes misères des puissances temporelles où elles étaient enche;
 :#à vêtrées, elles y participaient, et en outre elles avaient
-A: leurs grandeurs et leurs misères propres. Peut-être assez
+leurs grandeurs et leurs misères propres. Peut-être assez
 d'honneurs environnaient sa vie. Dans tout cela, dans
 +4 tout ce fatras et dans ce commun enchevêtrement, et
 Es. grâce précisément au jeu que donnaient tant de puis-
 Li; sances, temporelles, beaucoup de puissances d'esprit
 4 jouaient, donc vivaient. Elles finissaient, elles aussi,
-il par s'organiser pour des équilibres plus où moins pré-
-caires, par des inéquilibres elles-mêmes plus ou moins
+il par s'organiser pour des équilibres plus où moins précaires, par des inéquilibres elles-mêmes plus ou moins
 prolongés. Vivant parmi des organismes et des organi-
 ; ni sations, à travers beaucoup de risques et des périls sans
 nombre elles pouvaient tout de même s'organiser. Elles
@@ -1243,13 +1169,12 @@ même de la liberté, quand on ne l'a pas soi-même, et
 
 À qu'un fatras vivant vaut mieux qu'un ordre mort.
 
-1 Avec un fatras, avec un désordre vivant, il y a
+Avec un fatras, avec un désordre vivant, il y a
 
 aucun espoir avec un ordre mort.
 Dans tous les anciens mondes, sous tous les anciens il
 régimes il y avait de la vie partout: les humanités
-suintaient la vie. Alors toute vie pouvait toujours s'ar-
-ranger, et faire sa naissance, toute petite, et son ali- Rd:
+suintaient la vie. Alors toute vie pouvait toujours s'arranger, et faire sa naissance, toute petite, et son ali- Rd:
 
 mentation, et sa vie, et sa place. Toute vie obtenait sa
 De croissance. Dans de la vie, dans un univers de vie, de a la vie aussi pouvait venir, toute vie pouvait et devait
@@ -1257,7 +1182,7 @@ De croissance. Dans de la vie, dans un univers de vie, de a la vie aussi pouvait
 si A et spirituelle. Dans de la vie de la vie naturellement
 venait. Homogène ou antagoniste, la nature même
 
-;; demandait qu'elle vint. Ainsi tant de puissances d'esprit
+demandait qu'elle vint. Ainsi tant de puissances d'esprit
 É sont venues au monde et ont vécu. Et la stérilité n'avait
 point obtenu le gouvernement des peuples. Il fallait
 parvenir jusqu'à l'avènement du monde moderne pour
@@ -1271,9 +1196,7 @@ Ni. sances temporelles qui vivaient, organisées, et ces
 
 entreelles et avec les puissances d'esprit qu'on s'arran-
 
-7 geait toujours. Les puissances d'esprit pouvaient tou-
-
-jouer de quelque manière, improviser, inventer, pousser,
+7 geait toujours. Les puissances d'esprit pouvaient toujouer de quelque manière, improviser, inventer, pousser,
 comme un pied de violettes de chien, dans quelque
 joint de quelque pierre de quelque mur, et, parties de
 
@@ -1303,24 +1226,18 @@ toutes. On peut dire que toutes les anciennes puissances De
 temporelles, toutes les puissances temporelles des
 anciens temps et des anciens régimes, forces d'armes, (4
 forces de dynasties, forces de tradition, puissances de
-civisme ou de chevalerie, forces religieuses, en un cer-
-
-tain sens, et pour une part, étiquettes mêmes et rites, dut
+civisme ou de chevalerie, forces religieuses, en un certain sens, et pour une part, étiquettes mêmes et rites, dut
 forces de hiérarchie, et par-dessus tout forces de race,
 étaient plus ou moins profondément comme pénétrées,
 comme armées intérieurement d'une substance, d'une à
 instance, comme d'une moelle de spirituel. Toutes, sauf
-une seule, qui est précisément la seule aussi qui ait sur-
-vécu à l'avènement du monde moderne, qui par cet
+une seule, qui est précisément la seule aussi qui ait survécu à l'avènement du monde moderne, qui par cet
 avènement ait été faite autocrate, et qui est la puis-
 ï sance de l'argent. à
-Quand le parti intellectuel assez récemment agglo-
-méré dans ce monde moderne veut défendre cette
+Quand le parti intellectuel assez récemment aggloméré dans ce monde moderne veut défendre cette
 grasse prébende d'argent que ce monde moderne est
 3 devenu pour lui, généralement il use d'un stratagème à
-astucieux qui ferait un curieux déplacement des respon-
-
-sabilités. Il feint d'ignorer qu'il y a déjà un bout de hi:
+astucieux qui ferait un curieux déplacement des responsabilités. Il feint d'ignorer qu'il y a déjà un bout de hi:
 ! temps que l'humanité dure, et il ne connaît, ne veut
 …. connaître, ne fait semblant de connaître, pour l'opposer:ra
 
@@ -1340,8 +1257,7 @@ d'inventer un certain ancien régime qui fût, pour lui, de
 40 tout repos. On sait comme il a procédé. Il fallait faire
 un certain ancien régime, qui naturellement ne fût pas
 0108 le vrai, c'était la première condition, un ancien régime
-1 inoffensif, j'entends pour les temps modernes par com-
-paraison, un régime ancien qui fût sans nocuité. On
+1 inoffensif, j'entends pour les temps modernes par comparaison, un régime ancien qui fût sans nocuité. On
 10 sait assez comment le parti a procédé. Taiïne était là,
 de pour un coup. Pour constituer cet ancien régime non
 11 pre innocent, qui PRDOSE par la voie de la compa-
@@ -1360,11 +1276,9 @@ de toute attente, tout particulièrement dans le monde À
 1 on l'oublie trop, nous subimes ou nous reçûmes cet
 Din enseignement des mains d'excellents maîtres, qui eux-
 Le mêmes l'avaient docilement, pieusement reçu des mains À
-10 de notre grand-maître M. Ferdinand Buisson. M. Ferdi-
-ne nand Buisson n'était point, alors, le grand-maître de
+10 de notre grand-maître M. Ferdinand Buisson. M. Ferdine nand Buisson n'était point, alors, le grand-maître de
 l'Université. C'étaient les ministres qui étaient les
-1 grands-maîtres de l'Université. Directeur de l'enseigne-
-ment primaire pendant on ne sait combien d'années, et
+1 grands-maîtres de l'Université. Directeur de l'enseignement primaire pendant on ne sait combien d'années, et
 
 lui-même ne le sait plus, M. Ferdinand Buisson était, ce ne
 qui est autrement capital, en France, le grand-maîtré
@@ -1391,8 +1305,7 @@ bout quelques anecdotes plus ou moins controuvées que
 l'on avait demandées au règne de Louis XV, quelques
 racontars empruntés au règne de Louis XVI; et pour 4 à
 qu'il ne fût point dit que l'on n'était pas remonté assez
-haut, assez aux sources, quelques ragots venus, des-
-cendus jusque du règne de Louis XIV. Peut-être même
+haut, assez aux sources, quelques ragots venus, descendus jusque du règne de Louis XIV. Peut-être même
 le régime de Louis était-il mis à contribution. Mais
 ; je ne sais pourquoi, on se gardait comme du feu de LT.
 mettre à contribution le régime et le règne de Louis
@@ -1418,7 +1331,7 @@ A le moins cher. Qui n'a point aujourd'hui son (petit) vête- CMS.
 système. Un système aurait l'air d'aller, de marcher
 (13 tout dans le monde s'il n'avait point passé son petit
 ‘#0 vêtement scientifique. On l'enfermerait certainement
-…: comme fou. Et on le doucherait. Il fallait trouver à À
+comme fou. Et on le doucherait. Il fallait trouver à À
 cette opération un vêtement scientifique. Taïne était là.
 Taine ancien régime. Taine devint ainsi le fournisseur,
 __attitré, mais Le fournisseur de confections, toutes faites, À
@@ -1428,8 +1341,7 @@ qui plissent, qui bâillent, l'Aristide Boucicaut de ce Bon
 Marché (exceptionnel), (un un peu moinsigrand peut-être
 . Aristide Boucicaut, parce que le mouvement des sy- À
 . stèmes sera toujours moins grand que le mouvement des
-étoffes, heureusement, et de tout ce que l'autre a ima-
-giné et réalisé de vendre ensemble, et que l'autre a
+étoffes, heureusement, et de tout ce que l'autre a imaginé et réalisé de vendre ensemble, et que l'autre a
 de bien autres chefs de rayon, mais un au moins aussi À
 De grand Bon Marché, un peut-être encore plus grand Bon
 Marché, car s'il fait beaucoup moins d'affaires à Paris,
@@ -1440,12 +1352,10 @@ de tous les arrondissements de tous les départements À
 français, en Algérie, en Tunisie, dans les colonies et
 les pays de protectorat, et qu'il a même commencé
 d'exporter beaucoup à l'étranger, ce que l'autre ne fait
-à beaucoup près pas autant, il rattrape par et sur l'uni-
-régularité de ce commerce gouvernemental off-:
+à beaucoup près pas autant, il rattrape par et sur l'unirégularité de ce commerce gouvernemental off-:
 ciel ce qu'il perd, ce qui lui manque, ce qu'il manque à
 gagner, ce qu'il a de moins par l'insuffisance comparée
-de son commerce parisien.) Nous dirons donc le peut-
-être un peu moins grand Boucicaut de cet assurément
+de son commerce parisien.) Nous dirons donc le peutêtre un peu moins grand Boucicaut de cet assurément
 au moins aussi grand Bon Marché, de ce très grand
 … Bon Marché qu'est devenu le grand marché intellectuel:
 du monde moderne et c'est toute la science moderne
@@ -1456,8 +1366,7 @@ systèmes qui en ont besoin, et Dieu sait s'il y en
 notamment aux systèmes politiques parlementaires. Qui
 sont ceux qui lui en demandent le plus. C'est d'ailleurs
 et généralement un rayon très demandé; et il s'en fait
-un grand commerce. Et il est singulier, il est intéres-
-sant, mais il n'est nullement étonnant que nous retrou-
+un grand commerce. Et il est singulier, il est intéressant, mais il n'est nullement étonnant que nous retrou-
 - vions justement ici le nom et l'homme à qui nous nous
 sommes heurtés tout au commencement de ces études,
 Cen'est point au hasard que nous nous sommes heurtés
@@ -1488,15 +1397,13 @@ France, comme s'il s'agît d'un peuple ou d'une patrie,
 tête de tout le monde, avant tout le monde, en avance
 à sur tout le monde; et il ne faut pas dire contemporaine;
 “1 contemporaine se meut avec nous, contemporaine est
-Fe. d'un temps qui se meut avec nous, avec le nôtre; con-
-ne, poraine varie; on se sert de contemporaine au cours
+Fe. d'un temps qui se meut avec nous, avec le nôtre; conne, poraine varie; on se sert de contemporaine au cours
 he: d'une phrase, pour marquer un temps comme en pas- À
 Mn, sant, au cours d'une phrase, un temps par comparaison,;
 he: à nous, à notre temps, un temps par voie de relation, À
 par la voie de la relation qu'il a à nous, à notre temps, À
 d'être du même ou le même (temps) que nous, que ce
-à même (notre) temps; mais contemporaine, qui est fugi-
-tif, qui est léger, volage, qui se meut, qui s'enfuit, À
+à même (notre) temps; mais contemporaine, qui est fugitif, qui est léger, volage, qui se meut, qui s'enfuit, À
 à exactement avec la même vitesse que nous, que notre
 
 temps, puisqu'il est du même ou le même, ne suflit pas, )
@@ -1531,19 +1438,13 @@ une idée, sur un système, sur une caste, sur une école,
 secte, que cette classe, que ce parti s'est lui-même
 arrogé, s'est intérieurement choisi, qu'il revendique et:
 s'est alloué, qu'il a personnellement assumé, le nom
-qui intérieurement, personnellement a jailli de.son or-
-
-gueil ou de sa révolte. Ou qui a coulé de son insufli- AE.
+qui intérieurement, personnellement a jailli de.son orgueil ou de sa révolte. Ou qui a coulé de son insufli- AE.
 - sance ou de son imbécillité. Cette bonne, cette très
 bonne, cette excellente méthode intérieure et person-
 . nelle est exactement et symétriquement la contre- à
 
-7:10 4 méthode, fait exactement et symétriquement la contre-
-
-partie comme complémentaire de cette autre, de cette,
-apparemment contraire (au fond c'est la même) mé-
-
-thode, si connue, devenue classique, par laquelle,
+7:10 4 méthode, fait exactement et symétriquement la contrepartie comme complémentaire de cette autre, de cette,
+apparemment contraire (au fond c'est la même) méthode, si connue, devenue classique, par laquelle,
 À qui consiste à ce qu'un parti (politique, national,
 
 religieux, intellectuel, un parti de toute sorte) prenne, )
@@ -1553,8 +1454,7 @@ s'en flatte, un nom qui lui avait été jeté comme dans la
 à cédé, la méthode par laquelle on nous a raconté dans
 tous nos cours d'histoire que les Gueux de Hollande
 
-Ve: avaient enfin pris ce nom, par laquelle, sans en cher-
-dei cher si long, et sans aller, sans chercher si loïng, nous
+Ve: avaient enfin pris ce nom, par laquelle, sans en cherdei cher si long, et sans aller, sans chercher si loïng, nous
 avons nous-mêmes bel et bien pris ce nom de dreyfu-
 16 sards. Sans être hollandais. Maïs je me trompe. C'est au )
 ne moins aussi loin que la Hollande, à présent. Ces deux
@@ -1570,8 +1470,7 @@ Ki: la même tête que l'objet nommé, parce qu'il vient du
 ne dedans, parce qu'il sort de l'intérieur de l'objet nommé, )
 ou, dans le cas des ennemis, d'un extérieur qui est un!
 ; à (autre) intérieur, étant une réplique, voulant atteindre
-l'intérieur, qui est en un sens le même, qui a une pré-
-tention, une pénétration, une atteinte intérieure, qui
+l'intérieur, qui est en un sens le même, qui a une prétention, une pénétration, une atteinte intérieure, qui
 É par la haine vaut un intérieur, Quand deuxièmement À
 
 en outre nous disons moderne, ainsi nous nommons un
@@ -1579,8 +1478,7 @@ temps très déterminé, avec un commencement (une
 époque) et une période, ayant un commencement, une
 époque et une période, un temps très déterminé dont:
 nous connaissons très bien, dont très nettement je vois
-le commencement, dont nous avons le commence-
-ment, dont nous voyons peut-être en ce moment-ci:
+le commencement, dont nous avons le commencement, dont nous voyons peut-être en ce moment-ci:
 même le milieu, (mais est-ce au juste le commencement -
 du milieu, ou le milieu du milieu, ou la fin‘du milieu,
 et le commencement de sa décadence temporelle, voilà
@@ -1592,15 +1490,13 @@ nous-mêmes, que nous n'avons peut-être encore pas
 
 mérité, que nous n'avons sans doute pas obtenu. Quand
 done deuxièmement nous disons moderne, nous em- à
-ployons, nous introduisons un mot technique, un mot À;
+ployons, nous introduisons un mot technique, un mot
 très technique, et non point, et non plus un mot de
 littérature et d'épithète. Moderne est fixe. Moderne
 est daté, enregistré, paraphé. Moderne pourrait se
-mettre sur un timbre à date, sur un dateur automa-
-tique. Moderne est connu. Moderne est déterminé.
+mettre sur un timbre à date, sur un dateur automatique. Moderne est connu. Moderne est déterminé.
 … Moderne ne bouge plus. Moderne est une période,
-… parfaitement déterminée. Moderne a (eu) un commen-
-une fin. Moderne a des limites, il a des frontières indé
+… parfaitement déterminée. Moderne a (eu) un commenune fin. Moderne a des limites, il a des frontières indé
 plaçables. Il en a heureusement, et qui sont indé-
 ; plaçables, heureusement, dans le passé. Il en aura,;
 - heureusement, et qui, une fois obtenues, seront ainsi
@@ -1632,8 +1528,7 @@ par la voie de l'étymologie) un soupçon de confiserie À
 "qui a pris aujourd'hui un certain goût de salon, de thé
 de cinq heures et quart, et de petits gâteaux. Pour tout
 A dire, d'un mot, c'est un mot qui est un peu trop dans le
-: ton et dans le goût de la vie et des opinions de M. Fré-
-déric-Thomas Graindorge, douzième édition, un volume.
+: ton et dans le goût de la vie et des opinions de M. Frédéric-Thomas Graindorge, douzième édition, un volume.
 
 Moderne au moins, dans toute sa cuistrerie, est resté
 un mot dur, un mot rude, un mot d'école et de bataille. ne.
@@ -1672,8 +1567,7 @@ le premier janvier dix-sept cent quatre-vingt-neuf, à
 minuit zéro minute zéro seconde un dixième de seconde,
 
 — et encore les vrais savants ne s'arrêtent pas au
-dixième de seconde, — tout le monde a été créé splen-
-dide, tout le monde, excepté, bien entendu, les réaction-
+dixième de seconde, — tout le monde a été créé splendide, tout le monde, excepté, bien entendu, les réaction-
 à 4 naires. Trente et quarante générations de Français
 aujourd'hui croient cela dur comme fer. Des indéfinités « È de générations de Français le croiront toujours. Caréé
 
@@ -1702,20 +1596,17 @@ faire à son image et à sa ressemblance, majoritaires di.
 comme lui et de la même majorité, c'est, c'est le cas de
 le dire, un cercle vicieux, et automatiquement, mécani- (il
 quement, non seulement il n'y a pas de raison pour que
-sortes, ou plutôt il y en a une totale, largement sufi-
-se Sante, pour qu'en effet ne puisse pas et que
+sortes, ou plutôt il y en a une totale, largement sufise Sante, pour qu'en effet ne puisse pas et que
 ne cesse pas de croître et d'embellir. On n'a pas (EEE
 mesuré encore, il s'en faut, tout l'effet de cette croyance.
 On a noté, un peu dans tous les journaux, on a fait
 remarquer, au moment des dernières élections législa- RU:
 tives, que l'entrée en ligne, que le débouché au feu des
-batailles électorales des premières classes de ce contin-
-gent avait sans doute une répercussion importante ‘ti
+batailles électorales des premières classes de ce contingent avait sans doute une répercussion importante ‘ti
 sur les résultats des élections auxquelles nous devons
 la belle Chambre que nous avons. C'était une remarque
 fort juste. Mais l'on n'a pas fini d'en voir ces réper- a
-Ces répercussions sont sans fin. Mécaniquement, au-
-tomatiquement, extérieurement elles sont sans fin. Pour “1
+Ces répercussions sont sans fin. Mécaniquement, automatiquement, extérieurement elles sont sans fin. Pour “1
 qué cela casse, il faut que casse en dedans, comme
 cela paraît bien en train de commencer à se produire,: Le.
 il faut que les répercussions automatiques, mécaniques, (8
@@ -1731,8 +1622,7 @@ Comment ces pauvres petits garçons s'apercevraient-ils +0
 traditionnellement les fonds de leurs culottes sur les
 1 bancs de nos écoles, combien peut-il y en avoir qui
 208 s'apercevront un jour que de bons maîtres leur ont fait
-ne d'excellents contes. Il faudrait pour cela ou qu'eux-
-mêmes un jour fissent des lectures. Mais Dieu merci il
+ne d'excellents contes. Il faudrait pour cela ou qu'euxmêmes un jour fissent des lectures. Mais Dieu merci il
 
 3 n'y a pas un Français sur un million, qui de lui-même
 et sans aucun enseignement puisse avoir l'idée de recou-
@@ -1765,8 +1655,7 @@ point pour la formation de la personne, ce n'est point
 
 pour les dangers de la culture et les dangers de la
 liberté, ce n'est point pour l'enseignement du secondaire
-ou l'enseignement du supérieur que des armées d'insti-
-tuteurs enseignent à un peuple d'écoliers tout ce que À
+ou l'enseignement du supérieur que des armées d'instituteurs enseignent à un peuple d'écoliers tout ce que À
 À nous ne savons pas. C'est pour qu'à treize ans, et même
 
 , avant; ils puissent lire en connaissance de lettres les LEE
@@ -1804,8 +1693,7 @@ Quand tout le monde entier était un immense, était
 
 un total organisme, quand das cet organisme total,
 
-. formant, organisant cet organisme total tant d'orga-
-nismes de toutes sortes jouaient, vivaient, organismes LES
+. formant, organisant cet organisme total tant d'organismes de toutes sortes jouaient, vivaient, organismes LES
 
 temporels et organismes de toutes sortes, organismes
 
@@ -1821,8 +1709,7 @@ Ni contraintes. Autrement elles étaient peu à peu, elles
 “110 étaient enfin finalement éliminées, comme une substance
 Fe. morte d'un corps vivant, de tout corps vivant, comme
 une esquille ou un croûton de cicatrice. Dans un orga-
-114 nisme bien vivant, c'est-à-dire bien organisé, bien orga-
-nisme, une tare morte, un résidu mort ne reste point,
+114 nisme bien vivant, c'est-à-dire bien organisé, bien organisme, une tare morte, un résidu mort ne reste point,
 tranquille. Dans un organisme total, général, bien
 4 vivant, des organismes particuliers, bien vivants, ne;
 souflrent point qu'un voisin mort, qu'un cadavre de
@@ -1832,8 +1719,7 @@ qu'un organisme ami pour aimer et soutenir.
 C'est depuis ce temps, et c'est pour cette raison, entre
 beaucoup d'autres, mais c'est beaucoup pour cette raiD). son que l'enseignement secondaire, et, naturellement,
 encore plus l'enseignement supériéur sont devenus à ce
-22 point suspects à la démocratie, et qu'on les a tant mal-
-traités, et que l'on a fait tout ce que l'on a pour les.
+22 point suspects à la démocratie, et qu'on les a tant maltraités, et que l'on a fait tout ce que l'on a pour les.
 M. démolir, sans toujours en avoir l'air. Il y a tant de
 ne moyens, doucereux ou aïgres, sournois ou violents, de
 Hi. démolir un enseignement qui à cessé de plaire, un
@@ -1842,12 +1728,10 @@ Hi. démolir un enseignement qui à cessé de plaire, un
 savamment dosé, savamment administré, Il y a un heu- es
 reux choix des titulaires, une conduite particulière de
 y a l'avilissement calculé du Collège de France, par le TER
-double jeu, par le jeu des chaïires et par le jeu des titu-
-laires, la diminution concertée, longuement conduite, et #4
+double jeu, par le jeu des chaïires et par le jeu des titulaires, la diminution concertée, longuement conduite, et #4
 savamment, de cette maison considérée, non sans -
 quelque apparence, comme la plus dangereuse de toutes,
-ayant été fondée pour être l'asile de la liberté intellec-
-tuelle et ayant malheareusement commis la faute;
+ayant été fondée pour être l'asile de la liberté intellectuelle et ayant malheareusement commis la faute;
 impardonnable de demeurer assez fidèle à son pro- À
 gramme, au statut de son institution. Une maison qui Me
 non seulement n'a pas de dortoirs, mais qui sous la DE:
@@ -1874,10 +1758,8 @@ aussi complètement, anéantir (ce qui ne reviendra peut- +14
 . être pas complètement au même), le christianisme, la ‘fi
 culture chrétienne (et ce qui ne se passera peut-être pas
 
-È tout à fait de même), qui étaient, à des titres fort diffé-
-ne. rents, les deux seuls morceaux d'humanité que l'on
-avait, l'un essentiellement éternel, mais l'autre si res-
-pectable, en tant de sens, que l'on pouvait espérer que
+È tout à fait de même), qui étaient, à des titres fort difféne. rents, les deux seuls morceaux d'humanité que l'on
+avait, l'un essentiellement éternel, mais l'autre si respectable, en tant de sens, que l'on pouvait espérer que
 ce respect au moins, à défaut d'une puissance et même
 a d'une résidence temporelle présente, le ferait au moins -
 he. comme temporellement éternel, et peut-être plus.
@@ -1891,8 +1773,7 @@ D. peuple grossier ne demande qu'à ne pas voir, clair, et à
 ne s'occuper de rien. Et qu'on lui fiche la paix. Les
 Nu. intéressés ne donnent que trop souvent le spectacle de
 40 trahir leurs devoirs, et même leurs intérêts, profes-
-7 sionnels, ‘techniques, les plus simples, les plus élémen-
-taires. Et eux aussi, hélas, qu'on leur fiche la paix.
+7 sionnels, ‘techniques, les plus simples, les plus élémentaires. Et eux aussi, hélas, qu'on leur fiche la paix.
 A Pourvu donc, pourvu que l'on prenne certaines précau-
 4 tions, que l'on garde certaines apparences, qui perEL. mettent aux hypocrisies de se couvrir, aux paresses de
 plaider, aux lâchetés de se justifier, un État peut ne pas
@@ -1903,9 +1784,7 @@ plaider, aux lâchetés de se justifier, un État peut ne pas
 d'heureux remanièments incessants un avilissement
 : incessant des programmes. En éliminer savamment, en
 chasser brutalement tout ce qui est culture et tout ce
-; qui est liberté. Opérer par d'heureux choix un avilisse-
-
-ment incessant du personnel, par le népotisme de
+; qui est liberté. Opérer par d'heureux choix un avilissement incessant du personnel, par le népotisme de
 ! famille et par le népotisme de clan, par le plus honteux
 favoritisme de dynastie et de parti, éliminer sournoiïse- ni
 ment, refouler brutalement et incéssamment aux places il
@@ -1913,26 +1792,19 @@ sés, — aux postes et aux places qui seules sont de AU
 véritable honneur, aujourd'hui, — tout ce qui est faible, à
 — socialement, — tout ce qui est pauvre, tout ce qui est (2
 cultivé, tout ce qui est libre. Opérer un envahissement,
-brutal ou sournois, mais toujours complet, de la poli-
-tique dans les fonctions de l'enseignement. Protester de
+brutal ou sournois, mais toujours complet, de la politique dans les fonctions de l'enseignement. Protester de
 ; loin en loin contre cette invasion, et ne l'en poursuivre ce
-que plus constamment. Donner à des politiciens, politi-
-ciens parlementaires ou politiciens universitaires, politi-
-ciens parlementaires et ensemble politiciens universi-
-taires, tout ce qui est postes et places de choix, places
+que plus constamment. Donner à des politiciens, politiciens parlementaires ou politiciens universitaires, politiciens parlementaires et ensemble politiciens universitaires, tout ce qui est postes et places de choix, places
 et postes en vue, et par conséquent postes et places
 de conduite, d'influence, de quelque commandement.
-Avilissement calculé des programmes. Et par le favori-
-tisme avilissement calculé des personnes. En outre et
+Avilissement calculé des programmes. Et par le favoritisme avilissement calculé des personnes. En outre et
 ensemble, refuser les crédits les plus indispensables,
 - que l'on gaspille partout ailleurs. Avilir, affamer. De
 toutes mains diminuer, affaiblir. Voilà quelques-uns
 seulement des traitements que l'on fait voir à l'intérieur à
-de la baraque, voilà quelques-uns seulement des traite-
-ments que l'on y montre et que l'on y exhibe, voilà 4%
+de la baraque, voilà quelques-uns seulement des traitements que l'on y montre et que l'on y exhibe, voilà 4%
 quelques-uns seulement des traitements que l'État fait de
-subir à l'Université, qu'il peut lui faire subir impuné-
-ment, depuis que l'ancienne Université impériale est la
+subir à l'Université, qu'il peut lui faire subir impunément, depuis que l'ancienne Université impériale est la
 femme de l'État français, ménage uni, parce que les HN:
 . deux conjoints qui forment ce drôle de ménage ne vivent
 malheureusement pas sous le régime de la séparation
@@ -1947,9 +1819,7 @@ qu'il ait) cette sûreté d'atteinte de l'envieux, du médiocre
 
 contre tout ce qui est culture.
 
-; Voilà les traitements que l'État peut faire, impuné-
-
-ment, subir à l'Université, parce que l'Université n'est
+; Voilà les traitements que l'État peut faire, impunément, subir à l'Université, parce que l'Université n'est
 
 ) pas séparée de l'État.
 
@@ -1980,9 +1850,7 @@ dE le contraire. Ou tout au moins ce sont deux mouvements:
 D'un côté l'État peut ainsi caser ses créatures. Et cela
 
 naturellement lui est très agréable et c'est toujours.
-autant de gagné. Mais des créatures il y en aura tou-
-
-jours, les bonnes électrices en feront toujours. C'est
+autant de gagné. Mais des créatures il y en aura toujours, les bonnes électrices en feront toujours. C'est
 
 même singulier comme ce pays, qui manque de progé-
 
@@ -2000,11 +1868,9 @@ poursuit, l'État obtient un autre, un deuxième résultat,
 qui en opération est rigoureusement complémentaire du 4) Et
 premier, qui au fond lui est beaucoup plus cher encore,
 à lui État, beaucoup plus précieux, lui étant beaucoup
-plus essentiel: car par cette partie deuxième de l'opé-
-ration, il avilit l'enseignement, il avilit l'Université.
+plus essentiel: car par cette partie deuxième de l'opération, il avilit l'enseignement, il avilit l'Université.
 On pourrait presque dire que au fond, et malgré les
-apparences, l'État se plaît encore plus à avilir l'ensei-
-gnement qu'à caser ses créatures; il se réjouit, il jouit #4
+apparences, l'État se plaît encore plus à avilir l'enseignement qu'à caser ses créatures; il se réjouit, il jouit #4
 plus profondément, dans le secret de sa bassesse, dans Di.
 son instinct de jalousie envieuse, comme sentant plus
 profondément encore engagé dans son sens et dans sa À 15%
@@ -2033,11 +1899,9 @@ Caser des créatures est bien. C'est un des rouages les à
 4 plus importants du mécanisme gouvernemental moSu derne. On le sait de reste et je n'y insiste pas. C'en est
 il aussi un des rouages les plus apparents. Mais les
 9 rouages apparents ne sont pas tout le mécanisme et ce
-placement ne fait qu'une première partie de cette opé-
-ration. Un rouage plus profond du mécanisme, moins
+placement ne fait qu'une première partie de cette opération. Un rouage plus profond du mécanisme, moins
 apparent mais d'autant plus profond, une deuxième
-; partie de l'opération, beaucoup plus profonde, étroite-
-ment ajustée d'ailleurs, imbriquée dans la première,
+; partie de l'opération, beaucoup plus profonde, étroitement ajustée d'ailleurs, imbriquée dans la première,
 étroitement Complémentaire de la première, beaucoup
 plus importante, beaucoup plus dans le cœur, est
 d'avilir. ce
@@ -2071,16 +1935,13 @@ Berthelot je rencontrais au débouché de la gare de
 Sceaux l'un de nos plus dévoués collaborateurs, un de
 ces — dignes — héritiers de ces grandes familles et de
 
-ces grands noms des Berthelot, des Halévy, de plu-
-sieurs de ces grandes familles républicaines ou libérales
+ces grands noms des Berthelot, des Halévy, de plusieurs de ces grandes familles républicaines ou libérales
 qui étaient et qui sont demeurées apparentées et comme;
 
 tissues ensemble comme les grandes et ensemble les Wii
 hautes dynasties de la science et des lettres et du
 monde moderne. Après quelques propos demi-tristes et Ne
-qui, de sa part, voulaient être optimistes, comme tou-
-
-jours: Tiens, me dit-il tout à coup, j'ai pensé à vous
+qui, de sa part, voulaient être optimistes, comme toujours: Tiens, me dit-il tout à coup, j'ai pensé à vous
 
 l'autre jour. (C'était un de ces rappels soudains de mé-
 
@@ -2130,17 +1991,13 @@ viennent s'asseoir sur le seuil attiédi; pour qui a gardé
 {4 quelque sens du très vieux et très vénérable respect.
 He. Notre collaborateur avait reçu, étant de la famille, une
 108 carte d'entrée. La cérémonie, à l'intérieur du Panthéon,
-ù c'est-à-dire la cérémonie la plus oflicielle, la plus somp-
-tueusement et splendidement officielle et gouvernemen-
-
-tale, cette cérémonie laïque voulue, mijotée comme une à
+ù c'est-à-dire la cérémonie la plus oflicielle, la plus somptueusement et splendidement officielle et gouvernementale, cette cérémonie laïque voulue, mijotée comme une à
 apothéose du monde moderne, imaginée comme une
 apothéose personnelle, fabriquée comme une apothéose Re.
 du monde moderne en la personne et sur le corps de
 . l'un de ses représentants les plus éminents (car ils sont ne
 poursuivis dans leurs imitations par l'idée du corps et
-défaut de l'autre, de la présence au moins de ce misé-
-rable corps charnel, mortel, déjà mort, périssable), dans #8
+défaut de l'autre, de la présence au moins de ce misérable corps charnel, mortel, déjà mort, périssable), dans #8
 toute cette cérémonie apothéotique il n'y eut pas un
 geste qui ne fût une offense au respectable respect. On
 était debout, assis. Penché, tendu. On n'était pas couché.
@@ -2158,8 +2015,7 @@ qui bavaïent, dans ce brouhaha de place publique
 - transportée à l'intérieur d'un temple, dans ces potins, #1
 1 dans ces murmures, dans ces vanités, dans ces fatuités, Fr.
 … dans ces curiosités malsaines un huissier mal élevé, un
-huissier sans tenue, un huissier sans style criant à tra-
-vers tout cela au chef de la musique: Allons! hop! “4
+huissier sans tenue, un huissier sans style criant à travers tout cela au chef de la musique: Allons! hop! “4
 là-bas! la musique. V'là le président. Vot' Marseillaise.
 Vous autes. « Huissiers de la République, appariteurs de ces nou- A
 
@@ -2188,9 +2044,7 @@ pour les cérémonies, officielles, des enterrements gou-
 
 7 vernementaux, il y a un abus qui vient d'une insincérité
 : propre, d'un malentendu plus ou moins conscient, plus
-4 ou moins volontaire. Qu'il y a une duplicité, l'exploi-
-
-tation d'un double entendu. Cette très bonne musique
+4 ou moins volontaire. Qu'il y a une duplicité, l'exploitation d'un double entendu. Cette très bonne musique
 4 en effet que l'on nous fait faire dans les cérémonies
 58 funèbres par de très bons musiciens, ou bien elleest
 128 mauvaise, et alors elle est proprement moderne, et
@@ -2218,8 +2072,7 @@ Panthéon désaffecté? non point pour y être un ment, plus ou moins superflu, 
 supplémentaire, mais, tout le monde le sent bien, pour ES
 en faire le cœur même et la substance de la cérémonie.
 : Pour être tout ce qui compte dans la cérémonie.
-È après (ou avant), le lendemain (ou la veille), on ren-
-contre des gens qui vous disent: J'ai été (ou j'irai) à tel Re.
+È après (ou avant), le lendemain (ou la veille), on rencontre des gens qui vous disent: J'ai été (ou j'irai) à tel Re.
 de la bien belle musique. Je ne sais pas comment cela à
 se fait, je n'ai peut-être pas l'âme assez moderne, mais
 je suis choqué par de tels propos. Il me semble qu'au-!
@@ -2275,8 +2128,7 @@ ni difficiles. A déterminer. Il faudrait d'abord bien faire
 attention à ceci. Il faudrait d'abord, et avant tout,
 
 4 comme règle de méthode générale, et préliminaire, bien
-de discerner, bien départir et bien répartir, faire une redis-
-tribution, bien distribuer quel serait le sens des difté- » (1 rentes valeurs, et avant tout ne pas se tromper de
+de discerner, bien départir et bien répartir, faire une redistribution, bien distribuer quel serait le sens des difté- » (1 rentes valeurs, et avant tout ne pas se tromper de
 
 signe. Je prends cette expression dans le sens le plus
 
@@ -2284,13 +2136,11 @@ te rigoureux des mathématiciens: ne pas mettre le signe "1:
 par erreur aujlieu du signe ni le signe — par erreur
 ; au lieu du signe. Le monde moderne essaie plus ou
 moins inconsciemment de donner le change, (c'est-à-dire,:
-très précisément, de faire tromper de signe) — et peut-
-être est-il en cela plus ou moins confusément sincère,
+très précisément, de faire tromper de signe) — et peutêtre est-il en cela plus ou moins confusément sincère,
 — sur le tien et le mien, sur ce qui est de lui et sur ce;
 qui n'est pas de lui. Sur ce qui donc est du plus, et sur
 ce qui est du moins. Ou du zéro, dans les inventaires. En,
-4 réalité, avec un aplomb imperturbable, et qui est peut-
-être sa seule invention et tout ce qu'il y a de lui dans
+4 réalité, avec un aplomb imperturbable, et qui est peutêtre sa seule invention et tout ce qu'il y a de lui dans
 ; l'ensemble du mouvement, il vit presque entièrement sur
 les humanités passées, qu'il méprise, et feint d'ignorer,
 dontil'ignore très réellement les réalités essentielles, dont DEN
@@ -2327,9 +2177,7 @@ Il chevauche les vieux chevaux avec une impudence a
 : 188 même, aux cérémonies, officielles. Et en effet c'est en,
 “4 ‘un certain sens qu'il doit s'apercevoir le plus. Les
 4 cérémonies, officielles, sont en effet des manifestations;
-2# volontairement culminantes; elles ont un sens volontai-
-
-rement marqué; c'est bien que tout un monde, repré-;
+2# volontairement culminantes; elles ont un sens volontairement marqué; c'est bien que tout un monde, repré-;
 senté par son gouvernement, officiellement, veut faire;
 ï aboutir et culminer tout ce qu'il pense qu'il a en soi:
 
@@ -2339,7 +2187,7 @@ senté par son gouvernement, officiellement, veut faire;
 
 tout ce qu'il peut sortir. Une cérémonie est voulue, pro-
 ; duite, calculée. C'est vraiment un acte officiel de repré-:
-À: sentation, une manifestation officielle, où le monde
+sentation, une manifestation officielle, où le monde
 
 gouvernemental, agissant pour tout le monde qu'ilgou-
 
@@ -2361,17 +2209,14 @@ internationale, est souvent et même généralement
 réussie. Et quelquefois même très réussie. La Répu- À.
 blique sait très parfaitement recevoir les rois. Elle
 . reçoit aussi bien tout ce que l'on veut, les peuples, ou
-simplement les chambres de commerce et les municipa-
-lités. Mais, ensuite et alors, comment voyons-nous De
+simplement les chambres de commerce et les municipalités. Mais, ensuite et alors, comment voyons-nous De
 qu'elle s'y prend pour effectuer, ordonner une de ces
-cérémonies. Oh alors nous voyonsiiqu'il n'est plus ques-
-tion que le monde est venu au monde ce trente-et-un et
+cérémonies. Oh alors nous voyonsiiqu'il n'est plus question que le monde est venu au monde ce trente-et-un et
 à décembre à minuit. Avec une libéralité, avec une lar-
 a geur d'esprit dont il faut d'autant plus lui savoir gré,
 à. avec une véritabl&largesse, dont nous devons d'autant;
 À plus la louer qu'elle est sans doute à demi inconsciente, Rae
-la bonne République de ce peuple moderne, sans ran-
-cune aucune, emprunte de toutes mains à ces mondes
+la bonne République de ce peuple moderne, sans rancune aucune, emprunte de toutes mains à ces mondes
 passés, qui tout à l'heure n'existaient point.
 É Nous recevons très parfaitement bien les peuples et
 4 les rois. D'ailleurs nous en avons à présent J'habitude.
@@ -2408,7 +2253,7 @@ jamais, au moins on en est sûr, puisque c'est du;
 passé, lui aient fait et laissé Notre-Dame et la
 Sainte-Chapelle, lui aient fait les admirables Invalides
 et l'Arc de Triomphe, lui aient fait, mon Dieu, ce Pan-
-): théon même, et ce monument unique au monde: Paris.;
+théon même, et ce monument unique au monde: Paris.;
 "4 Le très parfait, très horizontal et très vertical, très
 4 parfaitement, le très romain et très autre; très impérial
 et très classique Arc de Triomphe,
@@ -2425,16 +2270,13 @@ Et puis il y sur votre côté, sur votre droite, cette
 Marseillaise de Rude, cette Marseillaise de pierre, qui
 
 le officiellement est un Chant du Départ, ou un Départ
-des Volontaires, ou un Chant du Départ des Volon-
-je Qu'on lui ait fait Paris, monument de monuments,
+des Volontaires, ou un Chant du Départ des Volonje Qu'on lui ait fait Paris, monument de monuments,
 monument des monuments, monument capital de tant
 - de monuments élémentaires, ville monument, capitale 1 1]
-monument, ce peuple de maisons, de rues et de monu-
-ments, ce peuple de pignons et de toits, qui tous encore
+monument, ce peuple de maisons, de rues et de monuments, ce peuple de pignons et de toits, qui tous encore
 
 4 ne sont point modernes, et ainsi ne sont point tous 1108
-laids, la ville aux trois collines, équidistantes, équilaté-
-rales, équitables, et à ce cercle de collines, à ce cirque,
+laids, la ville aux trois collines, équidistantes, équilatérales, équitables, et à ce cercle de collines, à ce cirque,
 plus ou moins extérieures aujourd'hui, circonféren-
 è tielles, qui toutes seront graduellement mangées, et
 ainsi deviendront intérieures, savamment, sagement,
@@ -2492,8 +2334,7 @@ plus travaillé, qui a le plus prié pour un salut qui
 “4 dépasse infiniment le salut temporel; cette première
 
 |. ville du monde; capitale du royaume; ville unique du 2114
-monde; la plus intellectuelle, hélas, pour les intellec-
-ni tuels; et au contraire la plus voluptueuse pour les
+monde; la plus intellectuelle, hélas, pour les intellecni tuels; et au contraire la plus voluptueuse pour les
 voluptueux, la plus charnelle pour les charnels; et aussi
 
 pour les mystiques la plus mystique; en ce moment:
@@ -2565,9 +2406,7 @@ LA opinion, à cette situation. La ville aînée ne pouvait pas
 
 À Pour des républicains ville du monde la plus républi-
 4 caine, S'il y en avait. Et pour des réactionnaires ville
-1 aussi la plus réactionnaire du à Pour les conser-
-
-vateurs ville la plus conservatoire, la plus et la mieux
+1 aussi la plus réactionnaire du à Pour les conservateurs ville la plus conservatoire, la plus et la mieux
 conservée, Pour des révolutionnaires non pas seulement,
 
 À non plus seulement ville la plus révolutionnaire, mais;
@@ -2599,8 +2438,7 @@ Ville du plus grand peuplement, du plus de surpopu-?
 
 . lation. Ville aussi du plus de solitude, de la plus grande,
 À de la plus auguste, de la plus royale solitude. Ville du
-plus de fréquence et de fréquentation, du plus de bavar-
-dage (cette impiété), (perpétuelle), du plus de relations,
+plus de fréquence et de fréquentation, du plus de bavardage (cette impiété), (perpétuelle), du plus de relations,
 du plus de salon, de monde, de mondain, de mondanité. De
 
 Ville la plus sérieuse, ville la plus frivole. Toute pleine à
@@ -2613,15 +2451,12 @@ h__ plus de papoterie, de conciergerie, de calomnie, de
 médisance, de petitesse, de grandeur. Ville du plus de
 papotage, de temps perdu, de temps gagné. De temps
 ni. employé. De temps occupé. Sérieusement. Temporelle-
-LE ment. Et même éternellement. Ville du plus de journa-
-
-ne Charles Peur NAN
+LE ment. Et même éternellement. Ville du plus de journane Charles Peur NAN
 3 lisme, de cabotinage, de littérature, de théâtre (presque de
 toujours infâmes). Et ville aussi, ville dans le même
 : À temps de la plus grande solitude, d'un entier, d'un total
 isolement. Ville de la retraite. Ville du travail. Villede
-10 la rue et en même temps presque trop ville de biblio-
-de: thèques. Et de musées. Ville de la dispersion et presque
+10 la rue et en même temps presque trop ville de bibliode: thèques. Et de musées. Ville de la dispersion et presque
 trop ville de la concentration. Intérieure. Ville du corps
 et ville de l'esprit. Ville des jambes et ville du cerveau.
 Ville du commerce, d'exercer la marchandise, et poële “2
@@ -2633,14 +2468,12 @@ de faux et du plus de vrai, du plus de snob et du plus
 534 de sincère, du plus de cabotinage et du plus d'art, de
 1 philosophie, de sciences, de lettres. Sincères. Vraies. À
 1712 Ville du plus de culture..
-Ville odieuse du plus de pépiaillerie, et ville respec-
-table, ville respectueuse, ville quand on veut du plus;
+Ville odieuse du plus de pépiaillerie, et ville respectable, ville respectueuse, ville quand on veut du plus;
 ; total silence, du plus infini, du plus éternel, du plus
 Du plus grand des biens: le silence. Du silence qui (
 ; est presque aussi cher que la conversation d'un ami,
 plus éternel, presque aussi cher que l'interruption que
-lui fait une voix amie; la plus grande peut-être des pré-
-ni figurations terrestres.
+lui fait une voix amie; la plus grande peut-être des préni figurations terrestres.
 à Une ville où en août et en septembre, quand vous.
 4 êtes seul à Paris, vous avez un Luxembourg, un jardin,
 A devant la porte de votre gare, les plus belles fleurs du
@@ -2664,8 +2497,7 @@ vous tout seul. Et vous êtes encore un très grand nombre
 qui l'avez ainsi à vous tout seuls. Et en septembre le
 soleil a un goût si fin, si ambré, si reposoir, d'une Ne
 lumière si rare, après la légère, après la transparente De
-buée de septembre du matin, si reposée, avant la ren-
-trée, avant les travaux, avant les grands troubles du;
+buée de septembre du matin, si reposée, avant la rentrée, avant les travaux, avant les grands troubles du;
 dernier automne, du deuxième automne, d'une clarté si
 pure et si arrêtée, d'une admirable tiédeur d'adieu,
 calme, d'une odeur de fruit, d'une senteur de rose d'au
@@ -2680,8 +2512,7 @@ Les fièvres sont passées, définitivement pour un
 an, les ardeurs, les insolations. Les autres fièvres,:
 
 +4 les viles fièvres d'hommes, ne sont point encore com-
-Ville du silence où ce silence total, ce silence univer-
-sel, on peut presque se le faire presque toute l'année, avec
+Ville du silence où ce silence total, ce silence universel, on peut presque se le faire presque toute l'année, avec
 ni un peu de bonne volonté, avec un peu plus: avec un peu À
 Ér- de volonté, même en voyant beaucoup de monde, en
 2 continuant à voir autant de monde, parce qu'il y a des
@@ -2696,8 +2527,7 @@ Ville au long de ce fleuve de ces admirables quais, À
 bilatéraux, longitudinaires, profilés; insulaires, dans
 ee. les deux (ou trois îles); ces quais des boîtes de livres;
 N. et sur ce fleuve de tous ces ponts de tous les âges, et,
-38 suivant leur âge, de tous les styles et de toutes les fac-
-er. tures, tous pour ainsi dire également beaux, tous À
+38 suivant leur âge, de tous les styles et de toutes les facer. tures, tous pour ainsi dire également beaux, tous À
 presque également parisiens, excepté toutefois ce pont
 Alexandre III, encore très beau, mais, comme pont
 1 métallique, beaucoup moins beau que le pont Mirabeau,
@@ -2725,8 +2555,7 @@ beautés, toute la beauté de l'arc, métallique, toute la
 voussure de l'arche, et ensemble, intimement pénétrées,
 par*un miracle de géométrie, toute la beauté de la
 droite; une courbe, par ce miracle, presque droite (je ne
-dis le pont Mirabeau, je parle toujours du pont Mira-
-beau); à peine appuyée; sans aucune lourdeur; sans un
+dis le pont Mirabeau, je parle toujours du pont Mirabeau); à peine appuyée; sans aucune lourdeur; sans un
 soupçon; de lourdeur; indiquée seulement; presque à la pue
 pointe sèche; mettons dessinée au Faber; et la clef du
 pont Mirabeau (je n'ose pas dire la clef de voûte, tant
@@ -2783,10 +2612,7 @@ celui qui passe ou passer dessus il fait une fort belle,
 
 : elle vient; d'où elle amène, d'où elle apporte, assuré-
 4 ment non tout à fait indigne du très admirable et très
-Et: parfait monument classique où elle mène, où elle con-
-duit, où elle-même elle se rend; dont elle ouvre l'espla-
-
-nade; c'est un bon point pour l'avenue de ce pont qu'elle
+Et: parfait monument classique où elle mène, où elle conduit, où elle-même elle se rend; dont elle ouvre l'esplanade; c'est un bon point pour l'avenue de ce pont qu'elle
 ne soit aucunement indigne de ces deux palais dernes d'où elle vient, le grand et le petit, dont je sais
 4 très bien qu'il faut dire, sous peine de passer à Paris
 
@@ -2866,8 +2692,7 @@ Me. ainsi, dans ce raccourci linéaire, toute la beauté de À
 
 cette ville où tant de beautés de tant d'âges se marient
 à directement entre elles, s'accordent, s'entendent mutuel-
-À lement et directement entre elles, toutes ensemble s'ac-
-cordent, s'entendent avec la beauté de la ville, avec la
+À lement et directement entre elles, toutes ensemble s'accordent, s'entendent avec la beauté de la ville, avec la
 à beauté totale, avec la beauté du terrain; et d'ailleurs,
 et aussi, de tout autre part, de tout autre ailleurs, du
 haut de ces trois collines équivalentes, excellemment
@@ -2916,8 +2741,7 @@ grand ordre, du seul qui soit véritablement, réel; appaG 1 remment du plus gra
 grand désordre, du seul fécond.
 Ville de l'inquiétudé, d'une inquiétude incurable, et
 4 des vicissitudes, des perpétuelles tribulations, des essen4 tielles, de la tribulation essentielle.
-‘#4 Ville la plus païenne. La plus chrétienne. Certaine-
-ment la plus catholique.
+‘#4 Ville la plus païenne. La plus chrétienne. Certainement la plus catholique.
 s. Ville apparemment la plus suiveuse, où toutes les
 3% folies, où toutes les facéties, où toutes les sottises, où
 "4 toutes les insanités, où toutes les bêtises, où toutes les
@@ -2935,9 +2759,7 @@ de la gourme, de l'écume de tout engouement. "5
 Ville la plus immobile. Et qui suit le moins. Qui ne Dr:
 suit jamais. 1 à
 Ville qui reçoit de toutes mains, qui tous les matins; dE.
-vous fait du (nouveau) snobisme, tous les jours du nou-
-veau, de l'italianisme, de l'espagnolanialisme, de l'amé-
-ricanisme, de l'orientalisme, de l'occidentalisme, de
+vous fait du (nouveau) snobisme, tous les jours du nouveau, de l'italianisme, de l'espagnolanialisme, de l'américanisme, de l'orientalisme, de l'occidentalisme, de
 langlaisianisme, du septentrinalisme, hier du gor- De.
 kisme, aujourd'hui quoi? du confucianianisme, ou du AL:
 4 confusionisme (Jaurès), tous ces bons garçons doivent es:
@@ -2945,17 +2767,12 @@ croire que c'est la même chose, du méridionalisme, et
 de tous les points collatéraux ianismes que vous vou- À
 drez, de l'océanienianisme, du germanisme, du 5 %o-
 nisme, du sinisme, du suissisme, du belgisme, du TA
-hollandianisme, du prussisme, du puffisme, du bluf-
-fisme, du maritimisme, du montagnisme, du parisia-
-nisme, du malaisianisme, du scandinavisme, du danoi- FE.
+hollandianisme, du prussisme, du puffisme, du bluffisme, du maritimisme, du montagnisme, du parisianisme, du malaisianisme, du scandinavisme, du danoi- FE.
 sianisme, du suédoisianisme, du norvégienianisme, du De
-slavisme, du petit et grand russisme, du polonaisia-
-nisme (sans compter tous les provincialismes français
+slavisme, du petit et grand russisme, du polonaisianisme (sans compter tous les provincialismes français
 Fun après l'autre); de tous les autres et qui le lendemain, il se
 
-matin, tous les lendemains, sans aucune faute, se ressai-
-
-sit, qui se débarrasse, qui se débarbouille, qui se lave
+matin, tous les lendemains, sans aucune faute, se ressaisit, qui se débarrasse, qui se débarbouille, qui se lave
 
 et se débarbouille la face, afin de: recommencer. De
 
@@ -3007,8 +2824,7 @@ ne Ville de toute charité, dans tous les sens de ce mot,
 d'orgueil et d'humilité, de modestie toujours. Capitale
 sommation de la pensée.
 Ville du monde les arrivistes temporels arrivent
-Je plus, le plus vite, le plus infailliblement, le plus auto-
-matiquement. Et tous les snobs temporels. Ville aussi
+Je plus, le plus vite, le plus infailliblement, le plus automatiquement. Et tous les snobs temporels. Ville aussi
 qui use le plus infailliblement, le plus accélérément
 les arrivistes temporels, et comme automatiquement, et à À
 qui presque tout de suite leur casse les reins, afin que
@@ -3045,7 +2861,7 @@ capitale sans doute des inventions temporelles: la
 “4 hélicoïdale et toujours labourante charrue.
 ne: Inventions temporelles, inventions spirituelles qui
 toutes à leur début ne furent point automobiles.
-;: Et non seulement ‘Paris, mais autour même de Paris,
+Et non seulement ‘Paris, mais autour même de Paris,
 4 entour les environs, qu'on lui ait fait Versailles et
 ie: même Saint-Germain,
 Je donnerais Versailles, Paris et Saint-Denis;
@@ -3057,8 +2873,7 @@ ait donné Versailles, et Fontainebleau, et même Ram-
 {'4 bouillet, demeures; ou comme on dit, résidences royales;
 qu'on lui ait fait et qu'on lui ait donné le clocher de
 4 mon pays, c'est-à-dire, car je le connais, le clocher de
-4 mon pays, qu'on lui ait fait et donné tant d'admi-
-rables cathédrales françaises, les deux jambages midables, les deux jambes énormes, si normales, si
+4 mon pays, qu'on lui ait fait et donné tant d'admirables cathédrales françaises, les deux jambages midables, les deux jambes énormes, si normales, si
 
 carrées, si puissantes, si classiques, les deux poussées,.
 
@@ -3072,10 +2887,7 @@ pourquoi détailler, pourquoi démembrer, qu'on lui aït Re:
 fait et qu'on lui ait donné tant d'admirables cathédrales
 françaises tout entières, Notre-Dame toute entière,
 Amiens tout entière, Chartres tout entière, toutes les
-autres tout entières, et combien, les autres, tant d'ad-
-
-mirables, tant d'infinies forêts extérieures, tant d'admi-
-rables, tant d'infinis vaisseaux intérieurs; tant de
+autres tout entières, et combien, les autres, tant d'admirables, tant d'infinies forêts extérieures, tant d'admirables, tant d'infinis vaisseaux intérieurs; tant de
 1 simples admirables églises paroissiales, tant d'admi- ne:
 rables châteaux de la Renaissance française et autres he:
 temps, tant d'admirables villages et villes, tant de ces À
@@ -3130,16 +2942,13 @@ linéaires et parfaitement dessinés; parfaitement longs,
 
 tudes infinies et assises des bâtiments; toits penchés 10 "3
 
-obliques régulièrement; toits penchés obliquement, na-
-turellement de la même obliquité, de la même pente
+obliques régulièrement; toits penchés obliquement, naturellement de la même obliquité, de la même pente
 … qu'une très forte pluie moyenne oblique; angles à
-quarante-cinq degrés; courtes largeurs dans les ar-
-bres; brèves latitudes; murs des jardins, murs des
+quarante-cinq degrés; courtes largeurs dans les arbres; brèves latitudes; murs des jardins, murs des
 maisons; murs des treilles murs des espaliers; toits
 4 bleus et toits bruns; toits rouge vieilli; vigueur et sang à Te:
 on des toits bruns; sévérités des toits bleus; vigueurs des il En
-tuiles; duretés des ardoises; tous moites et tous égale-
-ment abriteux. je
+tuiles; duretés des ardoises; tous moites et tous également abriteux. je
 Profilement parfait du village français.
 Qu'on lui ait fait et qu'on lui ait gardé pour les lui
 - donner tous ces admirables et parfaits vallonnements
@@ -3148,9 +2957,7 @@ de l'Ile de France, le très parfait Soissonnais; non pas
 2 pays aux lignes admirables, où des étangs et des marais
 ! savent être plus parfaitement beaux que des lacs, le pays
 aux plans parfaits, aux courbes et ondulations parfaites, ù Le
-rables, aux descentes presque sans montées, aux des-
-
-centes qui sont des descensions, aux lignes de repos et
+rables, aux descentes presque sans montées, aux descentes qui sont des descensions, aux lignes de repos et
 4 d'action, aux lignes de beauté, aux lignes parfaitement ne
 nobles, le pays de Racine et de La Fontaine. ES
 … Pays des vallonnements et des toisonnements et des
@@ -3167,11 +2974,10 @@ commettre ce monument unique au monde: la France.
 Qu'on lui ait fait et gardé cette immense Beauce,
 Fe: grande comme la mer, immense et infinie comme la
 4 mer, triste autant et aussi profonde comme la mer; cet
-“4 océan de blés; non pas un de ces parfaits vallonne-
-ments d'avant et d'après; mais un tableau d'un tout
+“4 océan de blés; non pas un de ces parfaits vallonnements d'avant et d'après; mais un tableau d'un tout
 11 autre ordre, d'un ordre infiniment plus grave; ou plutôt
 À un pays qui dépasse tout art, toute interprétation, tout
-à; dessin; mais un plateau parfait, sans un accroc, sans
+dessin; mais un plateau parfait, sans un accroc, sans
 4 un amusement, sans un seul pittoresque, säns une friHe. volité, sans un impair, sans une vanité; sans une fri- À
 mousse, sans une friperie, sans une fripure, sans donc
 8 aucune fripouillerie; sans rien que ces quelques plis à
@@ -3193,8 +2999,7 @@ une petitesse; le pays des véritables couchers de soleil; Je
 car le soleil couchant ne s'y couche point pour teloutel
 point, pour tels ou tels coins de la terre en particulier;
 il ne s'y couche point successivement et en plusieurs
-fois; en plusieurs voyages; il n'y fait point le roman-
-tique; il n'y accroche point plus ou moins désespérément
+fois; en plusieurs voyages; il n'y fait point le romantique; il n'y accroche point plus ou moins désespérément
 des derniers rayons, des rayons extrêmes, des rayons
 suprêmes, plus ou moins successifs, plus ou moins défi- 1%
 nitifs, à quelques sommets; à quelques cimes, à quelques
@@ -3212,8 +3017,7 @@ et sereine égalité, sans un caprice d'adieu pour tel ou
 1 seul coup pour le monde, en une seule fois pour tout le
 monde, sans un regret, perdu, pour un détail de la
 ù terre, sans une amitié particulière terrestre, sans égarer
-un rayon, sans un de ces rayons de brocanteur qui s'ac-
-crochent aux détails temporels comme quelqu'une de
+un rayon, sans un de ces rayons de brocanteur qui s'accrochent aux détails temporels comme quelqu'une de
 ces odieuses couronnes d'immortelles qui lugubrement à
 s'accrochent aux piquants en bronze véreux des grilles (4
 des tombeaux des cimetières.
@@ -3251,8 +3055,7 @@ De: de Toury.
 
 Plaine, océan de blé, blés mouvants, vagues vivantes, À
 et non plus comme l'était celle des anciens Hellènes, inla-!
-bourable et rebelle à la charrue; mais également invin-
-cible, et également inépuisable; terre essentielle du midi,
+bourable et rebelle à la charrue; mais également invincible, et également inépuisable; terre essentielle du midi,
 roi des étés; ondulations inépuisables des épis; océan de
 vert, océan de jaune et de blond et de doré; froissements à
 lents et sûrs, froissements indéfiniment renaissants, et
@@ -3272,9 +3075,7 @@ plus vieilles des formés, indiquée d'elle-même, inévi-
 . tableet d'autant plus belle, d'autant plus parfaite, étant
 plus parfaitement accommodée, la vieille ogive, aux
 . courbes parfaites de toutes parts, à l'angle courbe ter- LA
-minal parfait, terminaison douce lente et pointe ogi-
-vale; innocentes courbes et formes, dites-vous; inno-
-très habiles, d'une patiente et invincible habileté
+minal parfait, terminaison douce lente et pointe ogivale; innocentes courbes et formes, dites-vous; innotrès habiles, d'une patiente et invincible habileté
 paysanne, invinciblement astucieuses contre la pluie
 oblique et le vent démolisseur,
 Lie Formes qui donnez le moins, — ou plus, — de Le
@@ -3295,8 +3096,7 @@ longues marches, très
 poussées, très soutent surtout
 que l'on avait affaire a
 sec d'une route, bien dire d'une LA ON
-étions (en ce temps- demé en-
-nous étions, et que marchant HAE
+étions (en ce temps- demé ennous étions, et que marchant HAE
 sur de la vraie terre ann 1 ne [Ie
 valait deux bons sabot de hêtre à se
 mettre dedans les pieds dedans RAR
@@ -3365,8 +3165,7 @@ plateau plat comme la main, dites-vous; sans une re- ie.
 traite, sans un recreux, sans une discrétion: toujours
 la même astuce paysanne: plateau où vous cacheriez, Brie
 Halévy, vingt divisions; là, devant vous; comme dans à
-le creux de la main. Il faut avoir fait des grandes ma-
-nœuvres Beauce. 1900. Quelques plis, des ondulations si
+le creux de la main. Il faut avoir fait des grandes manœuvres Beauce. 1900. Quelques plis, des ondulations si
 qui ne sont rien. Non elles ne sont rien dans l'immensité 1 PL:
 À de cet univers d'horizontal, un rien, des ondulations
 innocentes: où vous cacheriez la Grande Armée. Vous?
@@ -3391,9 +3190,7 @@ quelquefois marché côte à côte, un pays que nous avons
 où nous avons quelques rares fois fait cette alliance,
 
 à que je marchais comme vous, avec vous, sans beaucoup:
-causer (le silence est si bon), de votre pas, qui est sen-
-
-siblement plus fort que le mien, plus voulu, plus robuste,
+causer (le silence est si bon), de votre pas, qui est sensiblement plus fort que le mien, plus voulu, plus robuste,
 
 plus territorial, mais peut-être un tout petit peu plus
 
@@ -3449,19 +3246,13 @@ n'est aussi bon qu'une bonne paire de sabots, pour les
 
 ; poussées, très soutenues, très patientes, aussitôt surtout
 
-que l'on avait affaire aux terres molles, ou mollies, no-
-
-tamment aux terres labourées; que le soulier ne repre-
-
-nait ses avantages, et ses droits, que sur le sol ferme et;
+que l'on avait affaire aux terres molles, ou mollies, notamment aux terres labourées; que le soulier ne reprenait ses avantages, et ses droits, que sur le sol ferme et;
 
 À sec d'une route, bien entretenue, pour ainsi dire d'une
 
 route théorique en été; que pour les paysans que nous
 
-étions (en ce temps-là), au point de l'être demeuré en-
-
-core à présent en ce temps-ci, que pour les paysans que.
+étions (en ce temps-là), au point de l'être demeuré encore à présent en ce temps-ci, que pour les paysans que.
 
 ï nous étions, et que je me rappelle très bien, marchant
 
@@ -3481,9 +3272,7 @@ que donc tous ces gars-là n'étaient pas aussi malheureux
 
 m'était pas en effet des sabots de littérature, c'était des
 
-- bons sabots de bois; et quand leurs sabots les embar-
-
-rassaient, quand leurs sabots les embêtaient, quand
+- bons sabots de bois; et quand leurs sabots les embarrassaient, quand leurs sabots les embêtaient, quand
 
 leurs sabots les gênaient, quand ils n'en avaient plus:
 
@@ -3534,8 +3323,7 @@ rence la fin des hostilités.
 C'était un sac ami. Leur sac n'était point, est-il besoin è 48)
 : de le dire, un sac moderne et automatique, imbécile et {0
 scientifique, établi scientifiquement par des commissions dE
-de vieux généraux qui se le mettent sur le dos trois mi-
-nutes et quart pour voir comme fait, pour enquêter, ù Me
+de vieux généraux qui se le mettent sur le dos trois minutes et quart pour voir comme fait, pour enquêter, ù Me
 pour constater scientifiquement comme fait. C'était
 comme c'était. Un sac. Enfin vous savez ce que c'est de
 qu'un sac. Tout le monde saurait ce que, c'est qu'un sac y
@@ -3545,17 +3333,14 @@ c'était. Comme se trouvait. Un sac nom commun. Pas À ns:;
 un Sac. Généralement un sac en peau, avec des poils
 dessus, fauve. Et ce sac, figurez-vous, savez-vous ce ne
 qu'il était: il était portatif. On n'a pas idée de ça. Si
-nous n'avions pas les textes, les monuments, les témoi-
-gnages les plus authentiques. C'est incroyable. Un sac, y Ni
+nous n'avions pas les textes, les monuments, les témoignages les plus authentiques. C'est incroyable. Un sac, y Ni
 
 qui est fait pour être porté, eh bien il était portatif. Il
 aurait être n'importe quoi, ce sac, notez bien: il ai)
 3 pouvait être géométrique, administratif, immobilier: il
 
 aimait mieux, il préférait être portatif: alors les hommes Ê le
-le portaient. Il n'était pas lourd par un décret du Prési-
-
-dent de la République. Lourd ou léger, suivant l'occa-
+le portaient. Il n'était pas lourd par un décret du Président de la République. Lourd ou léger, suivant l'occa-
 
 14 sion, suivant l'événement, suivant la fortune. Du jour.
 Quand il était léger, c'était bien, parce qu'il n'était pas
@@ -3566,8 +3351,7 @@ quantités incroyables de tripoli calculées scientifiquede ment. Par additions,
 jours et d'hommes. Maïs il était lourd de ce qu'on avait
 envie et besoin d'y mettre. Et ce qu'ils avaient
 envie et besoin d'y mettre, vous le savez aussi bien que
-5: moi, Halévy, puisque vous vous êtes fait un si bon mar-
-cheur: c'était à boire et à manger; allons donc; parce
+5: moi, Halévy, puisque vous vous êtes fait un si bon marcheur: c'était à boire et à manger; allons donc; parce
 que, n'est-ce pas, il ne faut pas nous conter des « ‘oires, et vouloir nous faire croire que tous ces gens-là
 0 ont conquis le monde, traversé l'Europe vingi fois, sans
 310 compter les batailles, sans mânger et sans boire un seul
@@ -3577,7 +3361,7 @@ un sac, eux-mêmes l'administraient.;
 Le boire et le manger, sans quoi l'homme n'a jamais
 114 rien fait dans le monde. Le
 “4 C'étaient des hommes, de pauvres hommes comme.
-4 Quand donc ils portaient leur sac, ils en étaient heu-
+Quand donc ils portaient leur sac, ils en étaient heu-
 4 reux, de leur sac. Et de le porter. C'était un ami. Ce
 n'était pas Le sac, c'était leur sac. C'était leur affaire à
 Ê eux. Ils y mettaient leurs affaires. Quand ils portaient;
@@ -3586,13 +3370,11 @@ n'était pas Le sac, c'était leur sac. C'était leur affaire à
 
 leur propre corps. Ils ne portaient point un objet de Qi:
 revues, de misères, d'inspections de toutes sortes, d'em- à
-béêtements. Ils travaillaient pour eux enfin, ils ne tra-
-vaillaient pas pour le gouvernement. Ils ne travaillaient
+béêtements. Ils travaillaient pour eux enfin, ils ne travaillaient pas pour le gouvernement. Ils ne travaillaient
 pas officiellement, ils travaillaient réellement. Ils ne 4 À
 travaillaient pas adminisirativement, ils marchaïent MS.
 comme des bons enfants, comme des bons garçons. Ils À
-ne travaillaient pas arbitrairement, ils travaillaient li-
-brement. Ils ne travaillaient pas gouvernementalement, À
+ne travaillaient pas arbitrairement, ils travaillaient librement. Ils ne travaillaient pas gouvernementalement, À
 ils travaillaient naturellement. Ils ne travaillaient pas
 scientifiquement. Ils travaillaient, ils allaient, ils vi-
 : Portant ce sac ami, portant leur ami leur sac, leur seul “1
@@ -3602,8 +3384,7 @@ dit: un sac de peau de bête, fauve, avec le poil; mais Re.
 n'étaient-ils pas tout cela et n'allaient-ils pas le devenir y
 tout à faiten grand; des bergers, des bouviers de quels Lu.
 à un sac de trimardeurs, mais n'étaient-ils point essentiel- 3 54 à
-; lement des trimardeurs, et n'ont-ils point été essentielle-
-ment des grands compagnons, des compagnons du tour #3
+; lement des trimardeurs, et n'ont-ils point été essentiellement des grands compagnons, des compagnons du tour #3
 d'Europe comme il y a pendant des siècles tant de
 - être encore aujourd'hui quelques-uns; et les guerres de
 … la Révolution et de l'Empire n'est-ce pas cela; ne sont- nu.
@@ -3684,7 +3465,7 @@ er” Paris ville de la révolte. Ville de la soumission. Ville
 
 beau jour. De tant de platitudes. D'une telle fierté.
 
-3 Parisiens du cœur de Paris, et du Paris d'alors, du cœur
+Parisiens du cœur de Paris, et du Paris d'alors, du cœur
 
 12 des vieux faubourgs, du faubourg Marceau, du faubourg
 
@@ -3723,16 +3504,13 @@ He. rope ce soil le monde. Ce qu'elle était d'ailleurs en ce
 temps-là. Presque. En tout cas beaucoup plus qu'à pré- à à
 sent. Et je ne parle pas senlement de l'Égypte et de l'Asie
 plus ou moins Mineure, de la plus antique Egypte et des Meter,
-pestes de Jaffa et de Saïnt-Jean-d'Acre. Ils n'ont pas seu-
-lement fait une partie de l'ancien continent, désiré l'Inde
-et le plus grand Orient (Bonaparte). Ils n'ont pas seule-
-ment épuisé presque le monde méditerranéen, de l'Es-
+pestes de Jaffa et de Saïnt-Jean-d'Acre. Ils n'ont pas seulement fait une partie de l'ancien continent, désiré l'Inde
+et le plus grand Orient (Bonaparte). Ils n'ont pas seulement épuisé presque le monde méditerranéen, de l'Es-
 pagne au Caire, et aux Pyramides. Ils avaient commencé
 par l'autre continent. Ils avaient commencé par la fin,
 parle (petit) dernier. Ce qui ne pouvait qu'entrer joyeu Le
 sement dans leur méthode générale. Ils avaient com- Le À
-mencé, ils avaient pris soin de commencer par le Nou-
-veau Continent, par le jeune Continent qu'était alors le
+mencé, ils avaient pris soin de commencer par le Nouveau Continent, par le jeune Continent qu'était alors le
 Nouveau Continent. Par la libre Amérique ils avaient:
 commencé. Car, n'est-ce pas, toute cette sacrée histoire Ne:
 de la Fayette et de Rochambeau, dont on nous fait à
@@ -3748,10 +3526,8 @@ de la Révolution française et de l'Empire; une espèce
 de grande fête; militaire; toute une race, tout un peuple
 devenant maboule à la fois, toute une nation, et se met-
 . tant à s'occuper de tout ce qui ne la regardait pas. *.;
-Une autre définition de l'épopée: Se méler (frénéti-
-er. quement) de tout ce qui ne vous regarde pas. Si
-. Notamment, pour un peuple, se mêler du monde; assu-
-mér la conduite temporelle du monde; régenter l'histoire. #2
+Une autre définition de l'épopée: Se méler (frénétier. quement) de tout ce qui ne vous regarde pas. Si
+. Notamment, pour un peuple, se mêler du monde; assumér la conduite temporelle du monde; régenter l'histoire. #2
 
 Louis XVI, ainsi, a fomenté le commencement dela
 Révolution et de l'Empire. C'est bien fait pour lui. Etàa
@@ -3768,7 +3544,7 @@ se plus difficile à faire au monde, un calendrier. Ils ont fait
 7, réussir un calendrier nouveau. Non point réussir à ce que
 à l'on s'en serve. A le faire prendre. Ça, serait trop;
 4 beau, et c'est devenu sans doute littéralement impossible.
-#1] On n'ouvre plus-une ère.'H y en a une qui a été ouverte,
+1] On n'ouvre plus-une ère.'H y en a une qui a été ouverte,
 ‘4% sans doute pour la bonne fois. Mais réussir à ce qu'on
 34 ne l'oublie plus. Réussir au point qu'on ne l'oublie pas
 FN. désormais, au point de ne plus le laisser oublier, de le
@@ -3795,8 +3571,7 @@ de ce Fabre d'Églantine lui-même. Eux, ils ont sauvé
 de l'oubli, ils ont sauvé pour la mémoire un nom même ne
 d'année. Une date d'année. Quatre-vingt-treize est très sil
 beau, dans notre calendrier. Quatre-vingt-quatorze
-n'existe pas. Excepté pour les savants, pour les histo-
-riens. Par eux, et aussi par Hugo, mais enfin c'est légi- à
+n'existe pas. Excepté pour les savants, pour les historiens. Par eux, et aussi par Hugo, mais enfin c'est légi- à
 time, et d'ailleurs revient au même, cette simple
 date, l'an deux, ce simple nom de date, cet adjectif
 numéral cardinal pour ordinal, ainsi placé, restera
@@ -3814,8 +3589,7 @@ notre race, quel que soit en nous cet amour, et quel
 à nos pas s'y effacent à peine que nous soyons passés;
 d'autres pas innombrables les effacent, aussi tempo- de
 É raires, aussi précaires que les nôtres, aussi éphémères,
-aussi temporaires, aussi précaires que nous, les innom-
-brables pas d'hommes innombrables aussi petits, aussi
+aussi temporaires, aussi précaires que nous, les innombrables pas d'hommes innombrables aussi petits, aussi
 5 misérables, aussi insignifiants, aussi transitoires que
 117 monde moderne. — 7.:
 
@@ -3828,9 +3602,7 @@ pour y faire de l'entraînement; pour combattre nos graines; pour nous détendre
 cela c'est de la marche, ou de la promenade, en quelque
 sens pharmaceutique; le mieux que nous puissions faire,
 
-c'est que ce soit pour nous maintenir mobilisables jus-
-
-qu'à l'âge de quarante-cinq ans; c'est tout ce que nous
+c'est que ce soit pour nous maintenir mobilisables jusqu'à l'âge de quarante-cinq ans; c'est tout ce que nous
 avons, tout ce que nous pouvons avoir de militaire; et
 - tout ce qui nous sauve un peu, c'est cet amour de la
 nature, que nous avons, qui nous reprend aussitôt que
@@ -3844,8 +3616,7 @@ poussière, la pluie en fait de la boue. Sur le macadam
 traces de nos pas ne comptent pas plus, ne demeurent
 pas plus que toutes ces traces de grosses roues d'autos,
 les traces de nos pas sont aussi fugitives, aussi mobiles
-que toutes ces traces de ces énormes roues d''automo-
-biles qui vont s'effaçant l'une l'autre,
+que toutes ces traces de ces énormes roues d''automobiles qui vont s'effaçant l'une l'autre,
 - sont-allés sur les routes; ils allaient, ils marchaïent
 ; pourtant comme nous: ni le soleil n'a jamais mis en
 poussière, ni l'eau ne mettra jamais en boue, ni aucune
@@ -3865,15 +3636,11 @@ généralement point de prendre pour une éternité éter- à Di:
 Quand un peuple, quand une nation; quand des
 hommes, quand une race obtient de quelque manière,
 sous quelque forme une consécration temporelle, quand
-elle obtient une éternité temporelle, cette éternité tem-
-porelle, enfin l'éternité temporelle (de cette terre), la
-seule qui présentement, actuellement soit à noire dispo-
-sition, généralement se sait, se sent (je dis géné-
-ralement parce qu'on pourrait peut-être imaginer, à la
+elle obtient une éternité temporelle, cette éternité temporelle, enfin l'éternité temporelle (de cette terre), la
+seule qui présentement, actuellement soit à noire disposition, généralement se sait, se sent (je dis généralement parce qu'on pourrait peut-être imaginer, à la
 rigueur, des cas où cette connaissance instantanée ne se
 produirait peut-être pas); et généralement le déposi- fes
-taire, le titulaire en est le premier averti (je dis généra-
-lement, parce qu'à la rigueur peut-être on pourrait
+taire, le titulaire en est le premier averti (je dis généralement, parce qu'à la rigueur peut-être on pourrait
 imaginer des cas, non pas des cas de peuples, de
 nations, ni de races, mais des cas d'hommes, isolés, de Di:
 , penis parues, norels sxmemee ne connai-
@@ -3886,12 +3653,10 @@ on Charles Péguy UMA LUE
 (temporelle). Pour cela, il faudrait pour cela supposer
 un cas qui me paraît bien extraordinaire, une puissance “4
 1 temporelle qui attendrait pour se révéler, une désigna-;
-tion, une attribution, une élection temporelle qui n'écla-
-terait pas; qui se dissimulérait un temps, une explosion!
+tion, une attribution, une élection temporelle qui n'éclaterait pas; qui se dissimulérait un temps, une explosion!
 1 temporelle qui ferait long feu, qui attendrait, sous
 quelle cendre, pour éclater, la mort du titulaire même.
-Une sorte de secret de puissance temporelle qui atten-
-drait pour plus tard, qui se garderait. C'est bien impro-;
+Une sorte de secret de puissance temporelle qui attendrait pour plus tard, qui se garderait. C'est bien impro-;
 bable. Autant une telle démarche est naturelle et
 fréquente pour une puissance spirituelle, autant nous
 en connaïssons d'exemples, pour une désignation, pour;
@@ -3924,8 +3689,7 @@ même qu'ils posaient leur pied dans la poussière ou
 dans la boue des routes, que nulle poussière jamais DU:
 n'effacerait, que nulle boue jamais ne détremperait, que ‘#8
 nul autre souvenir, que nulle autre trace jamais n'aboli- Ne À
-rait la trace de leur pas, qu'ils créaient une trace indé-
-lébile, que le bruit de leurs pas s'entendrait toujours +4
+rait la trace de leur pas, qu'ils créaient une trace indélébile, que le bruit de leurs pas s'entendrait toujours +4
 dans lhistoire des bruits de l'histoire, que le tracé se y
 ; lirait toujours, que la trace de leurs pas se verrait tem- Ha.
 porellement toujours dans la mémoire du monde.
@@ -3934,9 +3698,7 @@ bien qu'elle faisait la Révolution.
 Tout un peuple le sentait. Le savait.
 Quand des armées, quand une (seule) armée, quand.
 des hommes, quand tout un peuple, une nation, quand «
-toute une race, quand un homme obtient ainsi de frap-
-per un événement temporel, généralement il s'en aper-
-çoit, il en est saisi, en connaissance de cause, instanta-
+toute une race, quand un homme obtient ainsi de frapper un événement temporel, généralement il s'en aperçoit, il en est saisi, en connaissance de cause, instanta-
 1 nément, historiquement instantanément. Tous ces gars- Mir
 savaient très bien ce qu'ils faisaient. Je veux dire +4
 avec une instantanéité historique, dans une instantanéité #4
@@ -3948,7 +3710,7 @@ pénétrer, historiquement, tout un (tel) peuple.:
 Seulement ils étaient heureux, mais ils savaient qu'ils Me
 étaient heureux. Non seulement ils avaient obtenu, ils
 
-É; obtenaient de frapper un événement, une puissance
+obtenaient de frapper un événement, une puissance
 
 ni éternellement temporelle, une singulière puissance éter-
 
@@ -3968,7 +3730,7 @@ eux. Ne geignons point, pour eux, sur eux. Ce serait
 
 : bien la plus mauvaise manière de nous rappeler à leur
 
-;: bon souvenir. Aimons les héros comme ils s'aimaient,.
+bon souvenir. Aimons les héros comme ils s'aimaient,.
 
 Aimons, rappelons-nous, rappelons au monde les héros,
 
@@ -4019,8 +3781,7 @@ Hugo déjà l'entendait
 Eux, dans l'emportement de leurs luttes épiques.
 
 Ainsi quand il nous a échappé de dire qu'ils étaient
-des héros, j'entendais naturellement par là, très propre-
-ment, très techniquement, qu'ils faisaient de l'héroïsme. A per
+des héros, j'entendais naturellement par là, très proprement, très techniquement, qu'ils faisaient de l'héroïsme. A per
 C'est d'ailleurs ainsi aussi que nous devons entendre
 
 que Hugo tout aussitôt l'entendait: Fac
@@ -4046,8 +3807,7 @@ le mode ïil n'a aucun sentiment, aucun soupçon de
 peiner d'aucune sorte. Il ne geint pas parce que dans
 l'événement il n'a aucun sentiment, aucun soupçon de
 À tenir à l'événement, à l'issue, au résultat, à la réussite
-au point de geindre et de se plaindre d'un autre événe-
-ment. Mauvais joueur qui veut gagner. Mauvais joueur
+au point de geindre et de se plaindre d'un autre événement. Mauvais joueur qui veut gagner. Mauvais joueur
 à temporel. Ce qu'il faut à ces grands joueurs, c'est de
 jouer. Cest d'abord, c'est uniquement de jouer.
 Le jeu seul est essentiel à ces grands joueurs. Le
@@ -4064,8 +3824,7 @@ homme, dans le temporel, n'exprime pas autant, ne
 Un homme, quoi qu'il y paraisse, rend moins, rend à
 toujours moins qu'un peuple, que son peuple.
 La vie d'héroïsme, pour qui n'emploie pas ce mot
-dans un vague sens de littérature, est ‘infiniment, (tem-
-porellement) infiniment une opération de joié. Ne les
+dans un vague sens de littérature, est ‘infiniment, (temporellement) infiniment une opération de joié. Ne les
 plaignons donc pas. Envions-les plutôt. Quand ils ne se
 ? plaignaient pas, ne les plaignons pas, pour eux, ne leur
 faisons pas l'injure de les plaindre, pour eux, Quand
@@ -4111,8 +3870,7 @@ artificieuse de les ramener à nous, de les réduire à.
 nous, de les rabaisser à nous.
 Le héros, le vrai héros, doit puiser dans la force de
 ) sa race comme dans une source inépuisable. Il n'a qu'à À
-k. se baisser pour en prendre. Et il y puise inépuisable-
-ment une force inépuisable de joie.
+k. se baisser pour en prendre. Et il y puise inépuisablement une force inépuisable de joie.
 Ê (Si tel est le héros, si telle une vie d'héroïsme, que ne
 14 sera-ce point quand nous parlerons du saint et d'une
 Le vie de sainteté. Comme le héros temporel puise dans la
@@ -4121,13 +3879,11 @@ force de sa race une force inépuisable de joie, ainsi,
 5. le saint, le vrai saint puise dans l'opération de la grâce,
 À dans la force de l'opération de la grâce, une force iné-
 ; puisable de joie. Il n'y a pas plus de saints grognons
-a qu'il n'y a de héros grognons. Le mode, le ton est iden-
-tiquement même. Chacun dans son ordre, naturelle-
+a qu'il n'y a de héros grognons. Le mode, le ton est identiquement même. Chacun dans son ordre, naturelle-
 À ment. Au contraire de la fin qui dans ces deux ordres,
 ; dans l'ordre temporel et dans l'ordre éternel, dans lun
 et dans l'autre, dans l'un par opposition, par contrariété
-4 à l'autre, est, devient diamétralement opposée, diamé-
-tralement contraire. Le héros temporel en effet joue
+4 à l'autre, est, devient diamétralement opposée, diamétralement contraire. Le héros temporel en effet joue
 ni pour jouer, pour être, pour être (un) héros (temporel),
 « non pour gagner. Il aime infiniment mieux jouer sans
 gagner, que de gagner sans jouer. Il aime jouer Sans
@@ -4135,8 +3891,7 @@ gagner, que de gagner sans jouer. Il aime jouer Sans
 gagner. IL n'aime pas, il n'aimerait pas gagner sans VON
 jouer. Un saint au contraire qui s'amuserait à jouer
 
-{son salut), qui aimerait à (le) jouer, qui ne se propose-
-rait pas uniquement, dans cet ordre, de gagner (le ciel),
+{son salut), qui aimerait à (le) jouer, qui ne se proposerait pas uniquement, dans cet ordre, de gagner (le ciel),
 commettrait perpétuellement, et pour ainsi dire au. DU
 maximum, à l'infini, à la limite, à l'éternel, celui de
 
@@ -4155,20 +3910,14 @@ Ainsi apparaît tout à coup, ainsi naît sous la plume,
 
 au moment qu'elle s'y attendait le moins, ainsi se
 révèle, ainsi éclate, ainsi crève inopinément, ainsi
-jaillit sous la plume au moment que l'on ne s'y atten-
-
-dait pas, ainsi naturellement vous échappe au moment
-même que l'on s'y attendait le moins une de ces opposi-
-
-tions fondamentales, une de ces contrariétés invincibles, À!
+jaillit sous la plume au moment que l'on ne s'y attendait pas, ainsi naturellement vous échappe au moment
+même que l'on s'y attendait le moins une de ces oppositions fondamentales, une de ces contrariétés invincibles,
 
 un de ces éloignements, une de ces disparates, un de ces
 discords, sourds, brusquement éclatants, une de ces
 différences, une de ces distances, un de ces impairs, à
 
-une de ces inégalités qui marquent d'une marque indé-
-
-lébile, une de ces oppositions irréductibles, une de ces
+une de ces inégalités qui marquent d'une marque indélébile, une de ces oppositions irréductibles, une de ces
 
 ,
 
@@ -4176,10 +3925,7 @@ contrariétés infinies qui trahissent, qui représentent,
 
 qui manifestent, inéluctablement qui sortent cet écart,
 cette irréduction, cette distance, cette irréductibilité h:.
-absolue, cette opposition, cette contrariété, cette incom-
-pétence et cette incompatibilité absolue, infinie, elle-
-
-même éternelle, de l'éternel au temporel. Celui qui est
+absolue, cette opposition, cette contrariété, cette incompétence et cette incompatibilité absolue, infinie, ellemême éternelle, de l'éternel au temporel. Celui qui est
 du temps, le héros qui est du temps aime infiniment
 
 jouer (sôn temps); il aime infiniment mieux jouer sans
@@ -4188,7 +3934,7 @@ jouer, même sans gagner; il n'aimerait pas gagner sans
 12 jouer. Celui qui est de l'éternité, le saint qui est de
 1.10 l'éternité, on ne se représente pas même comment il
 AA. aimerait jouer son éternité.
-4 Ainsi c'est le mécanisme même de la relation de la
+Ainsi c'est le mécanisme même de la relation de la
 “LE fin aux moyens et des moyens à la fin qui est contre-
 ; indiqué, contre-lancé, contre-jeté dans les deux cas;
 contre dans l'un que dans l'autre; on a renversé la vapeur;;

@@ -26,15 +26,12 @@ que nous ne pouvons pas songer à en donner ici
 l'énoncé même le plus succinct; pour savoir ce qui un
 paru dans les cinq premières séries des cuhiers, il
 suffit d'envoyer un mandat de cinq francs à M. André
-Bourgeois, administrateur des cahiers, 8, rue de la Sor-
-bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-ment: on recevra en retour le catalogue analytique
+Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement: on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour ce
 autant qu'il se pouvait, une image en bref, un raccourcis)
 
-une idée, rég'ée, mais complète, de nos éditions anté-
-rieures de nos cinq premières séries; tout y'est classé
+une idée, rég'ée, mais complète, de nos éditions antérieures de nos cinq premières séries; tout y'est classé
 dans ordre; il suffit de le lire pour trouver, à leur à
 place, les références demandées. CNE
 Ce catalogue, grand jésus, forme un cahier
@@ -43,8 +40,7 @@ francs; ce cahier comptait comme premier cahier de la
 sixième série et nos abonnés l'ont recu à sa date, le [HÉSES
 20 tobre 1904, comme premier cahier de la sixième UHR
 série; toute personne qui jusqu'au 31 décembre 1905 si
-s'abonnait rétrospectivement à la sixième série le rece-
-kit, par le fait même de son abonnement, en tête de la
+s'abonnait rétrospectivement à la sixième série le recekit, par le fait même de son abonnement, en tête de la
 série; nous l'envoyons contre un mandat de cinq francs
 à tout personne qui nous en fait la demande. ES
 
@@ -60,8 +56,7 @@ y déterminée, en chiffres arabes, de sorte
 Lea PAU faut, la date du fini d'imprimer, ou, à son
 : care quand il y a lieu, c'est-à-dire pour nos pes
 LEE à éditions antérieures et pour nos cinq pre- Vars
-CAN mières séries, la page du catalogue ana-
-uit LCI lytique sommaire où ce cahier se trouve
+CAN mières séries, la page du catalogue anauit LCI lytique sommaire où ce cahier se trouve
 DACE ierre Hamp; — dix contes écrits dans le Nord; un brave à À
 homme; Follette; eoqueleux; un bon ouvrier; l'estaminet TA
 a Coq à Trois Pattes; une bonne âme; Buvons la bière du
@@ -88,8 +83,7 @@ Ce Crissot, vins et spiritueux en gros, jouissait dela
 … faveur des fonctionnaires et des gens établis. La Saiïnte- Le
 Église le jugeait détestable et les ouvriers se méfiaient
 de ce bourgeois anticlérical. Il se tenait très droit, la
-TA ête haute; la maturité de son ventre indiquait quarante-
-gen ans et convenait à ses fonctions. Vêtu de flanelle …
+TA ête haute; la maturité de son ventre indiquait quarantegen ans et convenait à ses fonctions. Vêtu de flanelle …
 anche à raies bleues, le panama en bataille, il allait
 etits pas marqués du talon, le pied fier de ses sou-
 …liers aussi jaunes que des pattes d'oie. A
@@ -124,8 +118,7 @@ des aloyaux à la graisse jaune, du porc à la graisse
 poids de cuivre et les plateaux de balance luisaient
 sur le marbre blanc. 1: 5454
 Une automobile montant la côte donnait de la trompe. EN
-M. Brizet, directeur de la verrerie d''Hornis, la condui-
-sait. Il salua le maire et M. Abellé-Dusart qui parlèrent
+M. Brizet, directeur de la verrerie d''Hornis, la conduisait. Il salua le maire et M. Abellé-Dusart qui parlèrent
 
 de ses affai es. Ils changèrent de conversation au pas
 sage de M. Flapont, notaire, principal actionnaire de jf;
@@ -164,8 +157,7 @@ parmi les plantes aux couleurs disparues.
 
 Les clairons des pompiers, s'entraînant pour le
 14 juillet, émiettèrent brusquement le silence; puis on à
-entendit, comme tous les soirs, le piano de made-
-moiselle Crissot. La musique, folle aux passages faciles,
+entendit, comme tous les soirs, le piano de mademoiselle Crissot. La musique, folle aux passages faciles,
 s'arrêtait court devant les notes gênantes. Elle tâtonnait à un doigt et repartait.
 
 A dix heures plus un bruit. La petite ville dormait
@@ -176,8 +168,7 @@ au pied des maisons. Au-dessus des fermes souillées à
 par le fumier des bêtes et des hommes jouait le souffle à
 profond des bois antiques. Encensoir de l'infini, la terre
 répandait ses parfums d'une étoile à l'autre. Il passait
-dans le vent des baumes inconnus, suaves, venus peut-
-être des autres mondes.
+dans le vent des baumes inconnus, suaves, venus peutêtre des autres mondes.
 
 Un conducteur de train rentrait du service, lanterne.
 allumée; le balancement de son bras éclipsait tantôt le d'A
@@ -249,8 +240,7 @@ De la viande au même point — « à point » — serait
 A six mètres du four, au bord de la « place » tra
 vaillent les deux autres hommes de l'équipe: le souf
 fleur et son aide, le « grand garçon ». L'espace réduit "4
-rend dangereux l'un pour l'autre ces trois ouvriers por-
-tant du feu. Le cueïlleur tient haute sa canne pour ôter ES.
+rend dangereux l'un pour l'autre ces trois ouvriers portant du feu. Le cueïlleur tient haute sa canne pour ôter ES.
 la charge de flamme de la proximité des gestes voisins.
 Il la guide afin d'éviter aux autres et à lui, tous presque
 nus, le danger des bolides précipités de l'étoile qu'il
@@ -321,8 +311,7 @@ La Direction donne une prime d'assiduité de vingt À
 francs pour vingt-neuf jours de présence, de dix francs
 pour vingt-huit jours.
 
-Devant l'incandescence du four durait toujours lapo-
-théose des trente-six hommes en lutte contre le feu
+Devant l'incandescence du four durait toujours lapothéose des trente-six hommes en lutte contre le feu
 effrayant, ouvrant sur eux ses douze gueules de
 flamme. Les claires-voies levées autour du chantier
 invitaient la caresse de l'air sur les verriers brûlés.
@@ -336,8 +325,7 @@ Bourru soufflait à la place numéro quatre. Un tricot
 a eu, sans manche, déteint par l'usure des lavages au:
 ù savon vert, le décolletait aussi bas qu'une dame du;
 . monde bien faite.
-“La peau des joues, gonflée à craquer depuis les pau-
-ères jusqu'au menton, doublait la grosseur de la tête
+“La peau des joues, gonflée à craquer depuis les pauères jusqu'au menton, doublait la grosseur de la tête
 aux cheveux ras. Dans la face pourpre les yeux noirs
 - luisaient, enflammés par l'effort. Du corps de l'homme À
 _naissait un ruisseau de sueur qui mouillait le sol.
@@ -363,7 +351,7 @@ lessivé de sueur et, par cela, de sentir mauvais. Les
 
 jours de paye, le caissier, peu accoutumé aux relents de
 
-« toute cette chair humaine cuite, recuite et brûlée —:
+« toute cette chair humaine cuite, recuite et brûlée
 
 la peine des hommes
 peau de sueur, peau de senteur — reniflait son approche
@@ -394,10 +382,9 @@ perdait pour son métier un temps qu'il ne rattraperait
 : plus. On ne devenait pas verrier si on commençait
 après neuf ans.
 Processionnant comme des fourmis depuis la place #4
-des souflleurs jusqu'aux fours à recuire, ils battaient la …;
+des souflleurs jusqu'aux fours à recuire, ils battaient la
 terre de leurs pieds nus, rapides. #4
-Sur leur front plissé pat la résistance contre le som-
-meil siégeait une gravité d'ancêtres.
+Sur leur front plissé pat la résistance contre le sommeil siégeait une gravité d'ancêtres.
 
 Enfants bien bordés, enfants bercés, enfants qui
 avez: le « Notre-Père dormez, beaux enfants, dor- ‘se
@@ -440,8 +427,7 @@ dures le mirent debout: « En route! »
 Les trente-six hommes retournèrent à la flamme. Les
 joues rouges de force. Et les petits va-nu-pieds reprirent
 le pas de charge vers le fournier qui montait sur la
-braise rouge ses piles de bouteilles chaudes. Le char-
-bon de bois, planchéiant le four à recuire, clignaït brun
+braise rouge ses piles de bouteilles chaudes. Le charbon de bois, planchéiant le four à recuire, clignaït brun
 sur rouge. La bouche, voisine du sol, obligeait les enfants à se baisser pour entrer leurs bouteilles. Le fournier accroupi les alignait, mettant un genou à terre
 quand il allongeaïit le bras pour atteindre le fond du
 four sans cheminée dont il aspiraït, huit heures, le refoulement d'acide carbonique. Beau gars, les muscles
@@ -455,8 +441,7 @@ cette heure sans mouches, elles tenaient leurs vastes
 yeux calmes vers le tumulte des hommes privés à
 jamais de leur paix parfaite.
 
-La limpidité du matin faisait paraître noirs les peupliers en pèlerinage sur la route de Charleville où grin-
-çait la ferraille rouillée des instruments aratoires. Des
+La limpidité du matin faisait paraître noirs les peupliers en pèlerinage sur la route de Charleville où grinçait la ferraille rouillée des instruments aratoires. Des
 femmes dépeignées par le sommeil venaient sur les
 portes montrer les horribles figures de l'humanité qui
 saute du lit.
@@ -481,8 +466,7 @@ NS: … chasse en haut du perron de quatre marches. Les embalDe leurs le saluèr
 30 - directeur: M. Tavaux, ingénieur civil, vêtu sans linge
 . apparent, un foulard au cou et des pinces de bicycliste
 Si, au bas du pantalon. Il était d'une activité bien récom-
-à pensée par M. Brizet qui, se réservant la partie commer-
-ciale, quittait souvent la verrerie, au grand bénéfice
+à pensée par M. Brizet qui, se réservant la partie commerciale, quittait souvent la verrerie, au grand bénéfice
 4 augmenter la clientèle. M. Tavaux parla d'embaucher
 des relais. La forte chaleur abatiait les équipes de jour:
 à la veille, la coupe de plein soleil, décimée, avaït laissé
@@ -498,14 +482,12 @@ ne — « Qu'est-ce que vous savez'faire? » à EURE
 a plus d'ouvrage. Li, c'est mon grand garcon. V'Ià les. Pau
 Pal M. TavaËx tenait sur les deux hommes son regard las
 méfiant de fils de paysan. L'orgueil de l'instruction
-reçue chez Les frères de la doctrine chrétienne ennoblis-
-sait son visage au menton épais. 3: PAC
-Les deux nomades, dominés par son silence, détour-
-nèrent leur figure blémie au grand feu et regardèrent
+reçue chez Les frères de la doctrine chrétienne ennoblissait son visage au menton épais. 3: PAC
+Les deux nomades, dominés par son silence, détournèrent leur figure blémie au grand feu et regardèrent
 À longtemps la chaîne de montre de M. Brizet ornée d'une. a
 — €On vous prend, dit M. Tavaux, comme relais;? Se
 
-:. c'est quarante sous par jour et le logement. »; #1
+:. c'est quarante sous par jour et le logement. #1
 UN M. Berteaux, chef de cour, conduisit Lecat souffleur de
 Quiquengrogne aux corons où la verrerie logeait ses
 ouvriers. Par une brèche maconnée dans le mur d'en- A
@@ -519,9 +501,7 @@ de durs enfants lanceurs de cailloux qui cassaient
 La trépidation des trains secouait les murs minces
 cassait les assiettes à deux sous dans les buffets de bois
 È blanc. Sur les dents de scie de la clôture en traverses A
-du chemin de fer égouttaient des pots blancs, des mar-
-
-mites bleues. Des maillots de verriers séchaient surdes
+du chemin de fer égouttaient des pots blancs, des marmites bleues. Des maillots de verriers séchaient surdes
 
 fils de fer.; à
 
@@ -572,8 +552,7 @@ les brancards et respira, grandie par la pose du fardeau.
 Les femmes des verriers se parlaient à voix basse ou
 souhaitaient le bonjour aux arrivants.
 — Et d'à que vous venez? »
-— « C'est vos meubles? » dit M. Berteaux, mar-
-quant sa supériorité d'homme muni d'armoires dont
+— « C'est vos meubles? » dit M. Berteaux, marquant sa supériorité d'homme muni d'armoires dont
 une à glace.
 La coutume des verreries crée l'incurie du ménage.
 Elles garnissent le logement de l'ouvrier. Il vient les
@@ -581,8 +560,7 @@ Il fallait tout renouveler, l'ancien locataire laissait la
 maison dévastée comme le jardin.
 — « Verat! dit Lecat, en ouvrant le buffet de la cuisine; il se chauffait au bois. »
 La cendre des étagères emplissait le foyer.
-La toile des draps de lits neufs, découpés en « chaus-
-settes russes pourrissait dans les coins. Il avait tout
+La toile des draps de lits neufs, découpés en « chaussettes russes pourrissait dans les coins. Il avait tout
 vidé, sauf la fosse. Elle débordait. On devait lui retenir
 deux francs de vidange, mais il ne les possédait pas.
 IL vivait d'acomptes, donnant chaque quinzaine un
@@ -608,7 +586,7 @@ Certaines verreries renoncent à loger les ouvriers;
 “où aller. L'inertie est la puissance des faibles. Que ta
 « faire contre l'homme qui se couche par terre et ne
 bouge plus? à
-— « Maintenant, dit M. Berteaux, vous avez droit à?
+— « Maintenant, dit M. Berteaux, vous avez droit
 5. deux brouettées de charbon par mois, trois en hiver, à
 vingt sous l'hectolitre. Si vous en prenez plus, c'est au 1534
 —.… prix de revient: trente-cinq francs la tonne. Vous en
@@ -630,14 +608,12 @@ leur vie du bout de leurs doigts écorchés.:
 Le chef de cour passa par la chaufferie où il salua
 
 la peine des hommes A
-M. Brizet en conversation avec le receveur de lenregis-
-trement. Ce fonctionnaire, venu pour une réclamation
+M. Brizet en conversation avec le receveur de lenregistrement. Ce fonctionnaire, venu pour une réclamation
 du directeur, était curieux de voir la maison.
-— « Nous fabriquons le gaz pour notre four à réver-
-bère, disait M. Brizet, avec de houille de Chocques,
+— « Nous fabriquons le gaz pour notre four à réverbère, disait M. Brizet, avec de houille de Chocques,
 ; de Nœux, d'Hénin mélangée à du charbon belge de A
 Flénu ou de Mons. Nous brüûlons cinq cents tonnes par ne
-mois. Voilà nos six foyers. »? A
+mois. Voilà nos six foyers. A
 Des ouvriers à quatre francs par jour, fardés de « poussier, piquaient le mâchefer des grilles avec de Es,
 longs ringards qu'ils retiraient rouges. La flamme
 foulée venait à eux avec une fureur d'amoureuse. te)
@@ -645,8 +621,7 @@ ce M. Brizet mena son visiteur voir fondre le sable. La “4
 chaleur promise aux damnés régnait devant la paroi
 blanche où la porte de l'arrière-four ouvrait son grand
 œil. Deux maçons, les mains couvertes de moufles en à
-foin, replaçaient les briques descellées tombées du bat-
-tant de fer. Le premier, pliant le bras gauche devant sa
+foin, replaçaient les briques descellées tombées du battant de fer. Le premier, pliant le bras gauche devant sa
 figure, posait sa truellée de ciment et se sauvaït les cils …
 grillés; l'autre grillait les siens en posant la brique. Au
 souffle qui lançait la flamme par les joints de la
@@ -662,9 +637,7 @@ une bassine de fer. Tournant l'appareil sur un pivot, il
 le chavira au milieu du four. à
 
 — Voyez, disait M. Brizet, la réverbération du gaz
-au-dessus de la masse en fusion est établie pour obte-
-
-nir quatorz cents degrés au milieu du four et douze
+au-dessus de la masse en fusion est établie pour obtenir quatorz cents degrés au milieu du four et douze
 cents aux bouches de travail. Le four mesure seize
 à mètres de long, neuf de large et deux mètres cinquante À
 de profondeur. Il contient deux cents tonnes de verre. »
@@ -680,8 +653,7 @@ fournier, venue lui apporter son diner et de la boisson je
 a raîche. Vieille et souillée de charbon, elle quittait le tas +5
 d'escarbilles et allaït y retourner. 1 118)
 Matton, dit « Le Muet enfournait le sable depuis
-- onze ans. Il en avait quarante sur ses papiers, beau-
-oup plus sur sa mine d'homme au métier terrible. Ces
+- onze ans. Il en avait quarante sur ses papiers, beauoup plus sur sa mine d'homme au métier terrible. Ces
 messieurs le gênant pour pelleter du côté du mur, il se jui De
 . de dos au feu; ses guenilles roussies fumaient. Il 5% a.
 gagnait six francs par jour. PAS
@@ -715,8 +687,7 @@ Un relais prenait la place de Ronsin. La nécessité de
 ces ouvriers de réserve prouve la grande dureté du
 métier. Malgré l'entraînement, les hommes tombent.
 
-Les relais doivent pour deux francs par jour la pré-
-sence au logis pendant la durée de travail de leur
+Les relais doivent pour deux francs par jour la présence au logis pendant la durée de travail de leur
 équipe. Ceux de la coupe minuit huit heures, dorment,
 
 À peu souvent requis et passent leur journée à la pêche.
@@ -750,8 +721,7 @@ es gentilshommes verriers qui l'exerçaient sans déroger #7
 ne se brûlaient pas à leur braise. Les ducs de Guise
 ont jamais soufilé de bouteilles... et je n'aurais pas
 alu travailler chez eux. On fondait dans des fours à
-oufles que nos très vieux ouvriers ont connus. On appe-
-les hommes dès la fusion prête et ils souflaient tant
+oufles que nos très vieux ouvriers ont connus. On appeles hommes dès la fusion prête et ils souflaient tant
 “qu'il restait du verre dans les pots. Cela pouvait durer
 à ouze heures. quinze heures. Il fallait marcher. On ne
 …_sait pas trop ce qui se passait. Quand les soufileurs
@@ -759,8 +729,7 @@ finissaient, les fourniers revenaient et recommençaient
 1 « Encore, il y a trente ans, on réveillait aussi bien les;:
 ouvriers à dix heures du soir qu'à trois heures du matin.
 L'homme venait prendre la canne pour un temps dont
-. il ignoraïit la durée précise; elle dépendait de la quan-
-de verre, du nombre des soufileurs, de leur activité. à
+. il ignoraïit la durée précise; elle dépendait de la quande verre, du nombre des soufileurs, de leur activité. à
 — « Le four à réverbère, permettant une liquéfaction Me
 
 la peine des hommes DEN 1108
@@ -805,8 +774,7 @@ ven aient la vider dans trois autres bouteilles. C'était
 … Les pieds souffraient sur les dalles chaudes où chaque "ol
 homme marquait sa place par la sueur tombée de son A
 cor ps: Les cannes changeaient de bouche, sucées par à «
-le souffleur, par le grand garçon, par le relais.Laconta-
-gion des maladies est assurée. Aucun examen médical ne
+le souffleur, par le grand garçon, par le relais.Lacontagion des maladies est assurée. Aucun examen médical ne
 des ouvriers.
 Les anciens demandent simplement au nouveau:: Be.
 CUT'as pas la vérole au moins? »
@@ -830,8 +798,7 @@ midi, il prit ses vingt minutes de repos. Des ouvriers:
 la peine des hommes
 entraient à l'estaminet du Bout du Monde tenu en
 face l'entrée de la Verrerie par Charlier qui vendait de
-la bière d'Armentières amère et de la bière de Charle-
-ville plus douce, au goût des gens du Nord ou de l'Est.
+la bière d'Armentières amère et de la bière de Charleville plus douce, au goût des gens du Nord ou de l'Est.
 Les verriers blémis tenaient dans leurs mains rudes
 les grosses chopes de verre blanc pleines de bière sans À
 mousse. Las, ils s''appuyaient des deux coudes sur les
@@ -858,14 +825,13 @@ mise en train de la coupe fraîche. Il alluma sa cigarette
 à une bouteille chaude et fit le tour du chantier, souf-;
 flant sa fumée à grosses joues par habitude de verrier.
 
-4 Vieux routier habile, plein d'expérience directe, il
+Vieux routier habile, plein d'expérience directe, il
 con naissait l'augmentation de force des hommes qui ES
 —. sympathisent et composait les équipes de caractères à
 assortis. Il n'assemblaït jamais à un souffleur le fils de
 - son voisin, car de porte en porte les femmes aiment il
 - nourrir des querelles que parfois les hommes sou-
-IL entretint M. Brizet et M. Tavaux de la répa-
-ration annuelle du four, arrêtant huit jours la fabri_ cation.:
+IL entretint M. Brizet et M. Tavaux de la réparation annuelle du four, arrêtant huit jours la fabri_ cation.:
 Le moment est bon. Le travail ne rend pas. Il FER
 _fa trop chaud et il ne fera pas plus chaud; nous avons
 quarante-deux au soleil, la température maxima de
@@ -873,8 +839,7 @@ quarante-deux au soleil, la température maxima de
 ne Un ouvrier le cherchaït pour ouvrir un four à recuire.
 les fermait au cadenas, une aération maladroite ou
 a malveillante avant les sept jours de recuisson perdant la
-“ES Chauffés à neuf cents degrés, leur température éga-
-lait celle de la bouteille apportée du soufllage et cueillie
+“ES Chauffés à neuf cents degrés, leur température égalait celle de la bouteille apportée du soufllage et cueillie
 à douze cents degrés. Il reste trois cents degrés dans
 . les manipulations. ete
 nm. Une équipe vidait un four refroidi. Les bouteilles en SE
@@ -891,8 +856,7 @@ l'air empoisonné.:
 à la peine des hommes Mes
 Hors du four, un homme prenant les boutitiée
 dues les mettait en brouettes roulées au magasin où
-a M. Rambaud vérifiait le poids et la contenance: trente-
-deux onces pour quatre-vingt-deux centilitres.
+a M. Rambaud vérifiait le poids et la contenance: trentedeux onces pour quatre-vingt-deux centilitres.
 Des ouvriers les miraient, mettant au premier choix:
 trente-six francs le cent, celles sans bulles ni plis; les
 francs, selon l'importance des défauts. a
@@ -902,9 +866,7 @@ se aux grandes marques de champagne, très sévères sur ÉS:
 l'achat de leur verrerie. es.
 M. Brizet y excellait. De janvier à mars, mois précé-
 - dant la mise en bouteilles de printemps, il expédiait
-quarante mille champenoises par jour à Reims et Éper-
-nay où il se rendait deux fois par semaine placer lui-
-même la marchandise. =*à
+quarante mille champenoises par jour à Reims et Épernay où il se rendait deux fois par semaine placer luimême la marchandise. =*à
 Après preuve sur échantillons de sa résistance à
 presse hydraulique, la fournée alla au stock empilé tout
 autour de la verrerie sous des hangars de briques dont
@@ -949,8 +911,7 @@ choir. La lampe, épuisée, s'éteignit. Ne pouvant plus (re
 jouer, ils se couchèrent. AU
 
 ES Trois autres vinrent de Sougland par le train de neuf
-heures. Génés pour poser leurs affaires, ils deman-
-ces — « Qui c'est le vérat qu'a éteint l'électricité? »
+heures. Génés pour poser leurs affaires, ils demances — « Qui c'est le vérat qu'a éteint l'électricité? »
 es A onze heures, le concierge Paillier mettait tout ce
 CAES monde debout, en le tirant par les pieds. Les enfants
 
@@ -979,22 +940,18 @@ L'ouvrage fait se voyait derrière eux à la couleur du
 - feuillage vert-de-gris sur l'espace sulfaté. Ils marchaient
 “dans le vert frais des plants sans cuivre, devant eux.
 
-Des taches de rouille plumetaient les endroïts où le-
-mildiou ne lächait plus. Minouflet claquaïit sa langue en
+Des taches de rouille plumetaient les endroïts où lemildiou ne lächait plus. Minouflet claquaïit sa langue en
 clignant de l'œïl, car moins de feuilles grillées marquaient SAT
 son bien et il n'aimait pas Posier, un républicain. 5502
 Minouflet, son réservoir vide, gagnait le chemin où,
-sur sa charrette à deux roues, chauffait au soleil le ton-
-neau de bouillie fabriquée avec trois livres de sulfate,
+sur sa charrette à deux roues, chauffait au soleil le tonneau de bouillie fabriquée avec trois livres de sulfate,
 une livre ‘et demie de chaux grasse et cent litres d'éau. FLE
 
 Maïs il mit bas le vaporisateur harnaché à ses épaules
 
 - et s'assit. Sa femme apportailt la croûte de quatre heures.
 
-ne Elle posa du pain, du salé, un barillet de vin rose etten-
-
-dit son tablier de jute à Minouflet qui torcha ses mains
+ne Elle posa du pain, du salé, un barillet de vin rose ettendit son tablier de jute à Minouflet qui torcha ses mains
 fes verdies de cuivre, puis trancha de son couteau pointu
 le pain de deux livres cuit en croissant.
 
@@ -1005,17 +962,13 @@ chaïit sa petite tête ronde aux joues hâlées; lui allongeait
 
 les siennes dans le chemin de craie creusé de deux or- Eu.
 
-nières blanches. Il élargissait le bâillement de sa che-
-mise ouverte comme une vallée sur une forêt de poils.
-Un chemineau venait, ceinturé de rouge. Par une bre-
-
-telle de cuir tenait à son épaule un carnier de chasse, LE
+nières blanches. Il élargissait le bâillement de sa chemise ouverte comme une vallée sur une forêt de poils.
+Un chemineau venait, ceinturé de rouge. Par une bretelle de cuir tenait à son épaule un carnier de chasse, LE
 2 dont la frange de ficelle essuyait ses houseaux terreux.
 Il portait sous le bras gauche un parapluie de coton bleu À
 et, à la main droite, une trique. Un canotier de paille:
 abritait mal sa figure obstinée, forgée au soleil. Il dit ee.
-me — « Bonjour, les gens; c'est par les vignes de Hart-
-manon et celles de Moët? »
+me — « Bonjour, les gens; c'est par les vignes de Hartmanon et celles de Moët? »
 Il pointa sa trique vers le haut de la côte où travaillait
 un moulin à six ailes. Te
 LE — « Si on veut, dit Minouflet:; Moët a des vignes par
@@ -1023,7 +976,7 @@ haut, il en a sur Villers, il en a sur Rilly.
 Celles de Hartmann sont plus près, sur Berny.
 dépend où vous allez, » a
 
-— « Je vais où on embauche. »;
+— « Je vais où on embauche.
 
 : — « D'où venez-vous? » demanda la femme...
 
@@ -1062,16 +1015,12 @@ les pluies d'orage. Maintenant, la chaleur humide cou-
 
 la peine des hommes LES
 
-— quarante mille à l'hectare — forçait le développe-
-
-ment du champignon ravageur qui attaquaït la grappe,
+— quarante mille à l'hectare — forçait le développement du champignon ravageur qui attaquaït la grappe,
 la tachant de gris, puis de brun, et les grains tombaient.
 Grande perte pour le pays, planté de fin cépage
 pineau noir dont la culture soignée coûtait de deux;
 
-mille à trois mille francs l'hectare pour quarante hecto-
-
-litres de vin dans les bonnes années.
+mille à trois mille francs l'hectare pour quarante hectolitres de vin dans les bonnes années.
 
 - On entendait de bien loin dans l'air calme le cri d'un
 vigneron guidant entre les ceps son cheval de labour.
@@ -1122,7 +1071,7 @@ Des hommes sortant d'un domaine grillagé emplis-:
 saient leurs pulvérisateurs à la fontaine d'un tonneau
 de sulfate porté par une charrette barrant la route. FRS
 
-2 Le cheval, agacé par les mouches, dressait en cornes Sir
+Le cheval, agacé par les mouches, dressait en cornes Sir
 de colimaçon ses oreilles aux pointes mouchetées par DE
 … les pompons rouges d'un capuchon. à
 Le chef de culture de M. Hartmann, manquant de Ne
@@ -1139,7 +1088,7 @@ Après la journée trop chaude, une barre de nuages
 noirs tachait l'horizon proche, fermé par les collines
 hoisées de la forêt de Reims.
 É 54 — « C'est dur, une journée entière à pomper, dit De
-— Minoufet; et pour rien, si l'eau tombe. »;
+— Minoufet; et pour rien, si l'eau tombe.
 À la nuit elle tomba, lavant les feuilles.
 Sulfater coûtait à Minouflet cinq francs l'arpent; il
 perdait dix francs et sa peine.
@@ -1150,8 +1099,7 @@ uvigneaut qui prenaient de l''absinthe gommée, lui un de
 
 la peine des hommes
 Le chemineau tenait sous ses coudes les gravures du
-supplément illustré du Petit Journal. Posier les regardait par dessus son épaule. Ces vives images les pas-
-sionnaient. Maréchal, l''aubergiste, en affichait aux
+supplément illustré du Petit Journal. Posier les regardait par dessus son épaule. Ces vives images les passionnaient. Maréchal, l''aubergiste, en affichait aux
 — « Vous n'êtes pas de par ici? » dit Posier. à
 — « De Maucourt, en Lorraine. Je m'appelle Picart.
 ; On m'a embauché ce soir pour suifater dans les vignes
@@ -1159,15 +1107,14 @@ sionnaient. Maréchal, l''aubergiste, en affichait aux
 — « Une récolte qui venait si bien, dit Posier. On n'a 4]
 : rien épargné pour la soigner, tant elle était belle. En-
 grais, sulfate, travail, tout perdu; faute à ce cochon “4
-de bon Dieu. »: )
+de bon Dieu. )
 — « Cochon de bon Dieu! » répéta le Lorrain. Heu
 reux de leur opinion commune, les deux « rouges » se
 fêtèrent par une absinthe au sucre.
 A la table des « blancs Neveux gagnaït la partie.
 Ses deux arpents vendus à Hartmann, il travaillait en?
 journée chez son acheteur et narguaït le mildiou.
-Se Minouflet buvait sans rien dire. Il songeait à un char-
-roi de pierres pour l'église qui le sauverait de sa mau
+Se Minouflet buvait sans rien dire. Il songeait à un charroi de pierres pour l'église qui le sauverait de sa mau
 3 vaise année.;
 Tain et Moreau entrèrent ensemble, lavés et changés,
 sauf de leurs gros souliers, verdegrisés encore malgré
@@ -1201,8 +1148,7 @@ jamais cheux nous. Nous ons bien du mal à croire tout
 …pellerineurs partis d'ici autour, sont revenus tertous
 
 4 avec leurs infirmités. Mè, j'aurons point confiance dans
-: les vobiscum pour leur y donner ma femme à mener là-
-bas. En revenant, a serait aussi bête qu'avant de partir
+: les vobiscum pour leur y donner ma femme à mener làbas. En revenant, a serait aussi bête qu'avant de partir
 
 et si avait eune bosse sur le dos, a serait point
 passée, mais en aurait peut-êt' ben eune autre sur le
@@ -1225,8 +1171,7 @@ la peine des hommes AS
 
 — « On sauvera peut-être ce qui reste, dit Maréchal,
 
-On en sauva peu. L'humidité chaude des orages con-
-tinua l'œuvre des midis torrides et des minuits glacés.
+On en sauva peu. L'humidité chaude des orages continua l'œuvre des midis torrides et des minuits glacés.
 Le cochylis aidait le mildiou. “0
 
 A la fin août, on ne plus dans les vignes, jusqu'aux:
@@ -1247,17 +1192,14 @@ Il vint des vignerons de toute la montagne de Reims.
 Le maire présidant la réunion proposa comme assesseurs
 Minouflet et Neveux, mais les gens de Berny crièrent:
 
-La foule des hommes tranquilles et curieux regar-
-daient l'estrade où le député remuait des papiers. Il
+La foule des hommes tranquilles et curieux regardaient l'estrade où le député remuait des papiers. Il
 parla: « la délimitation avait été retardée par les récla-
 
 . mations des vignerons de l'Aube demandant à y être
-compris. Malgré les démarches des délégués de la Fédé-
-ration des Syndicats de la Marne, le Conseil d'État se
+compris. Malgré les démarches des délégués de la Fédération des Syndicats de la Marne, le Conseil d'État se
 
 « La Commission enfin réunie à Châlons le 12 mai à
-repoussait les vignerons de l'Aube et bornaït la délimi-
-tation au département de la Marne, plus le canton de
+repoussait les vignerons de l'Aube et bornaït la délimitation au département de la Marne, plus le canton de
 Condé-en-Brie et quelques communes du canton de À
 
 . Après transmission du rapport au Conseil d'État,
@@ -1270,7 +1212,7 @@ trente mille füts vides en Touraine. Ils reviendront pleins
 « Nous les f... à la Marne. A bas les fraudeurs! »
 Les hommes entraînés répétaient leurs vociférations.
 Le vieux Moreau dit
-C'est biau de jacasser si longtemps. è a,
+C'est biau de jacasser si longtemps.
 « On peut s'égayer à parler quand on a quinze mille
 francs tout venus. je
 - « Je ferons t'-ypasmieux de les donner au pauv' vigne- A.
@@ -1299,8 +1241,7 @@ vous, petits, et des gros qui vous mangent, en serezj vous moins exploités?:
 è sa vigne: Négociant, représentant, commissionnaire. … à
 ; « C'est contre ces phylloxeras qu'il vous faut lutter.”
 . Et pour cela syndiquez-vous! » RES
-: Posier, sur l'estrade, applaudissait, à côté de Minou-
-flet, tranquille, les doigts noués sur le ventre.
+: Posier, sur l'estrade, applaudissait, à côté de Minouflet, tranquille, les doigts noués sur le ventre.
 Les gens de Berny les apostrophaient: Hé! Minou-.
 flet! vas donc point aux vêpres? » ras
 Ils traitaient Posier de: cul-terreux. Il se leva: RAR
@@ -1354,17 +1295,16 @@ Les « blancs » ne se compromettaient pas à écouter. pas a
 
 .. — « Tiens ta langue, dit le vieux Moreau, tu vendras
 
-point ton vin. Te faudra le boire, mon gars! »:
+point ton vin. Te faudra le boire, mon gars!
 « Je le boiraï, dit Posier, j'aurai point le gosier sec
 
 de trop dire ce que je pense. Etsitoutle monde pensait "Se
-com me moi, on serait tous plus riches. »; …
+com me moi, on serait tous plus riches. …
 
 ; la peine des hommes MGR
 Échauffé, il passa son grand mouchoir sur la coiffe.
 humide de son chapeau des dimanches.
-« Faut pas avoir de cœur de voter contre la Répu-
-blique, parce que le gros négociant vient vous voir en
+« Faut pas avoir de cœur de voter contre la République, parce que le gros négociant vient vous voir en
 ; automobile et qu'on a peur qu'aux vendanges son
 commissionnaire vous tienne en quarantaine. »
 Cette évocation des puissances redoutées de tous
@@ -1375,8 +1315,7 @@ De loin, des hommes à l'âme basse injuriaient le
 L'heure de l'apéritif réjouissait l'âme simple des
 aubergistes, heureux de l'entrée de tout ce monde.
 Chez Maréchal, Tain mouillait lentement son absinthe
-et en offrait une au trimardeur, car ils s'étaient recon-
-nus anciens soldats du même régiment, et cela les liait..
+et en offrait une au trimardeur, car ils s'étaient reconnus anciens soldats du même régiment, et cela les liait..
 — Faut tout dire, expliquait Tain; dans les temps,
 nous, vignerons, nous avions belle vie. En 89, le comte À
 d'Épernay tira de son vignoble douze mille hectolitres £.
@@ -1395,14 +1334,12 @@ l'achète. Quand nous serons tous devenus ouvriers chez À
 eux, ce sera encore une fois notre tour de mettre les
 
 2 poids dans la balance. Gare la grève. Mais maintenant:
-il n'y a pas de solidarité entre nous, à cause des satis-
-
-faits qui flattent le négociant pour se faire acheter leur
+il n'y a pas de solidarité entre nous, à cause des satisfaits qui flattent le négociant pour se faire acheter leur
 
 « Les ouvriers, dit le Lorrain, sont partout les
 mêmes; ils se mangent la laine sur le dos. »
 
-ù: Cependant, par suite de la propagande de la Fédéra- -
+Cependant, par suite de la propagande de la Fédéra- -
 tion des Syndicats de la Marne, des essais de libération Es
 furent tentés dans plusieurs communes jusque-là sou-
 
@@ -1444,12 +1381,11 @@ priétaire n'y mette assez de soin et fraude sur les con
 ditions exigées pour les cuvées: pressurage de quatre …
 cents kilogrammes de raisin trié par pièce de deux
 À cents litres; les tailles issues de la seconde foulée
-Les pressoirs employés tiennent quatre mille kilo-
-grammes de raisin. Les quinze mille petits vignerons “1
+Les pressoirs employés tiennent quatre mille kilogrammes de raisin. Les quinze mille petits vignerons “1
 ; de Champagne possédant entre un et trois arpents
 peu (trois arpents champenois font un hectare), ne peuvent
 ne 6 entretenir ces grandes machines pour leur petite
-:! récolte. Acheter des tonneaux, construire pour les
+récolte. Acheter des tonneaux, construire pour les
 loger, travailler les moûts, coûte cher.
 à Le pressoir et le cellier en commun libéreraient les
 Ils préfèrent se débarrasser du raisin même en n'y
@@ -1506,10 +1442,8 @@ d'hommes en bras de chemise, remplaçaient la foule de
 l'année d'avant.;
 — « C'est malheureux, disait Posier, de ne pas avoir à
 ce beau temps pour comméncer. Il y a quatre grains “4
-et ils sont pourris. On a pourtant fait tout ce qu'il fal-
-lait. On n'a pas de récompense. »
-Minouflet, sa femme et son fils, retardant la ven-
-dange de leurs trois arpents, cueillaient chez Hartmann
+et ils sont pourris. On a pourtant fait tout ce qu'il fallait. On n'a pas de récompense. »
+Minouflet, sa femme et son fils, retardant la vendange de leurs trois arpents, cueillaient chez Hartmann
 avec le Lorrain revenu de lier des tonneaux à Reims,
 Neveu, Moreau, leurs femmes et leurs enfants.
 Un garçon de dix-huit ans les aidaïit. La plaque d'un
@@ -1694,8 +1628,7 @@ Sa commission variait entre cing et dix francs par
 Les vignerons le redoutaient, mais lui devaient bonne
 mine cer, à ne pas lui plaire, on risquait de mourir de del
 Grâce à lui, le vin des républicains, répudié par les
-négociants, partait par trains complets pour l'Alle-
-magne. Il plaçait, dans les années heureuses, deux
+négociants, partait par trains complets pour l'Allemagne. Il plaçait, dans les années heureuses, deux
 mille pièces aux maisons du Rhin. 4 de
 On lui demandait tellement de vin de Berny qu'il
 ; était obligé, pour satisfaire ses clients, de recevoir à
@@ -1807,16 +1740,14 @@ hommes durs à l'ouvrage, disciplinés par l'habitude du
 Après le dernier soutirage, « sur colle M. Neumann, -
 chimiste œnologue appointé huit mille francs par an,
 vérifia combien le vin gardait de sucre, calcul capital:
-une trop grande quantité créant un excès d'acide car-
-bonique supérieur à la résistance des bouteilles.:
+une trop grande quantité créant un excès d'acide carbonique supérieur à la résistance des bouteilles.:
 Ces recherches précédaient l'assemblage des crus:
 donne la force, Cramant la mousse, Verzenay le à
 M. P.K. Hartmann recoupait pour sa clientèle anglaise
 des vins parfaits. La dégustation décidaiït du mélange. …
 En cela, M. Pérignon, chef de cave, passait M. Neumann
 dont il méprisait les méthodes. de:
-Le chimiste allemand tripotait des liquides en pen-
-chant sur des instruments compliqués sa tête semblable
+Le chimiste allemand tripotait des liquides en penchant sur des instruments compliqués sa tête semblable
 à une forcerie de poils. Il devait écarter du crin pour
 placer ses lunettes à verres de télescope. à
 — « Pour faire une bonne bouteille, disait M. Péri-
@@ -1827,7 +1758,7 @@ yeux clairs se troublaient vite, car il était 4 » facile à la colère. M. P. 
 ent. Le vieux praticien ignorait l'analyse mais possé- +5
 dait la mémoire du goût. Il disait: 3 à
 langé avec du Cramant de 1900. a donné une cuvée fran -
-bien fruitée. »:;
+bien fruitée.
 Il connaissait le vin comme un vieil ami. ir.
 ES. Fournir un produit homogène établit le renom d'une br:
 maison. Chaque marque soigne sa saveur particulière SAN
@@ -1841,8 +1772,7 @@ par les réserves. M. Hartmann possédait en cave du se
 “l'année précédente. Si un cru évoluait, il passait la
 nain à Pérignon. C'était le cas. Le vieux praticien dit
 à voix rude et lente qu'en ajoutant au Berny de l'année,
-… titrant douze degrés, un tiers de vin d'Ay et de Verze-
-may vieux de trois ans, on obtiendrait un excellent
+… titrant douze degrés, un tiers de vin d'Ay et de Verzemay vieux de trois ans, on obtiendrait un excellent
 M. Neumann l'expérimenta dans une éprouvette gra- te
 Le mélange se faisait dans un foudre de quatre-vingts Se
 … héctolitres, placé au fond de la Rincerie, un grand hall
@@ -1895,8 +1825,7 @@ fontaine du grand foudre.
 È. En trois heures les quatre-vingts hectolitres de la cuvée
 - passaient sous verre. Les remplisseurs présentaient les
 goulots aux tubes argentés d'où coulait, mesurée par un
-… flotteur automatique, la quantité nécessaire pour rem-
-plir la champenoise jusqu'à quatre centimètres de la
+… flotteur automatique, la quantité nécessaire pour remplir la champenoise jusqu'à quatre centimètres de la
 bague. Cette chambre, cachée au consommateur par la
 feuille d'étain, sert à loger entre le liquide et le bouchon
 le dégagement explosif d'acide carbonique.
@@ -1906,8 +1835,7 @@ Rostchild, embauché, éprouvait des convoitises ter-
 On l'employait à porter les paniers pour lui éviter la;
 k. peine de se sucer les doigts. Il lui restait la consolation
 des deux litres de rebèche distribués par la maison à ne
-Auprès de chaque remplisseur, un boucheur manœu-
-vraît la machine à mouton dont la broche appuyée:
+Auprès de chaque remplisseur, un boucheur manœuvraît la machine à mouton dont la broche appuyée:
 descente d'un poids de neuf kilogrammes enfonçait
 dans le goulot de seize millimètres de diamètre, un
 bouchon de irente-deux millimètres valant cinquante
@@ -2029,8 +1957,7 @@ L'alignement des füts s'éloignait dans la nuit des à
 ‘galeries de cinq cents mètres.:
 A côté d'Ay et de Cramant tenaient quatre récoltes
 de Berny. Les commerçants dépourvus d'avance livrent À
-le vin de l'année, trop jeune, qui mousse jusqu'au pla-
-fond et manque de velours. M. Hartmann relevait les DER
+le vin de l'année, trop jeune, qui mousse jusqu'au plafond et manque de velours. M. Hartmann relevait les DER
 cuvées pauvres par son trésor, de crus des grandes
 Le grattement de l'enfant dans le foudre vide cessa; À
 le petit, incommodé par l'acide carbonique, se reposait.
@@ -2045,9 +1972,7 @@ pas bon passer là.
 La fermentation finie, on déplace le tas pour l'épurer
 des brisées ou des « recouleuses » dont le bouchon vi-;
 cieux a laissé fuir le vin forcené On le reconstruit dans
-une galerie plus froide en portant les bouteilles cou-
-
-la peine des hommes
+une galerie plus froide en portant les bouteilles coula peine des hommes
 chées sur le même côté, afin de ne pas remêler au
 le résidu de fermentation descendu sur la paroi basse.
 Les ouvriers les manient par la bague pour éviter des
@@ -2067,16 +1992,13 @@ Certains vins se remuent tous les jours, d'autres tous
 l'ouvrier s'instruit sans cesse; des cuvées lui apprennent
 des difficultés qu'il ne connaissait pas après dix ans de
 pratique. Le remueur ne mène pas le vin, le vin le
-Sur dix hommes cinq renoncent au métier, leurs poignets surmenés enflent; des contractions nerveuses dé-
-truisent la régularité nécessaire. On les emploie à
+Sur dix hommes cinq renoncent au métier, leurs poignets surmenés enflent; des contractions nerveuses détruisent la régularité nécessaire. On les emploie à
 d'autres besognes. Le remueur touche la plus haute
 paie: six francs, et travaille sans surveillance constante.
 Il vit comme un rat dans les galeries désertes où rien
 ne s'entend que le bruit des bouteilles secouées par le
 
-. mouvement d'horlogerie de ses poignets. La chan74
-
-delle éclaire sa figure grave d'homme qui vit dans le
+. mouvement d'horlogerie de ses poignets. La chandelle éclaire sa figure grave d'homme qui vit dans le
 
 Toujours sur pied, il se fatigue plus que les bou-
 
@@ -2086,11 +2008,7 @@ dernier rang, à dix centimètres de terre, jusqu'aux
 
 à bouteilles du sommet, à niveau d'épaule. à
 
-Il en remue seize à dix-huit mille par jour, les redres-
-
-sant chaque fois un peu jusqu'à les placer verticale-
-
-ment, quand tout le dépôt touche le bouchon.
+Il en remue seize à dix-huit mille par jour, les redressant chaque fois un peu jusqu'à les placer verticalement, quand tout le dépôt touche le bouchon.
 
 “il rencontre des besognes difficiles; les vins riches,
 
@@ -2160,9 +2078,7 @@ L'obligation votée, elles ne donnèrent plus à leurs
 ouvriers, lésés par le gouvernement, qu'un jour par
 « Ma maison, affirma un grand patron, ne sera pas
 Ce négoce n'aime pas la République. Cela s'explique
-par les sentiments naturels aux ducs, comtes et mar-
-quis, possesseurs des marques françaises; par l'habi-
-tude de P. K. Hartmann sujet d'empereur, et aussi par
+par les sentiments naturels aux ducs, comtes et marquis, possesseurs des marques françaises; par l'habitude de P. K. Hartmann sujet d'empereur, et aussi par
 La Cour, lieu de gala et de magnificence, entretient
 le goût des produits de luxe. Le champagne est boisson
 
@@ -2175,8 +2091,7 @@ trois cent mille bouteilles et les revendait par l'inter- ai
 médiaire de sous-agents dans toutes les parties du
 - Il vint, en décembre, déguster les cuvées « goût
 Le cabinet de M. Hartmann contenait trop de
-bronzes: des chevaux cabrés, des guerriers brandis-
-sant leur glaive, des femmes sérieuses, nues. Devant
+bronzes: des chevaux cabrés, des guerriers brandissant leur glaive, des femmes sérieuses, nues. Devant
 … une tenture de gros velours rouge luisait le buste du
 On appréciait la discrétion de ce culte du Fétiche à
 à après avoir vu, dans Reims, un monstrueux aigle impé- si
@@ -2197,14 +2112,12 @@ marque une consécration qui vaut cher. »
 .. la peine des hommes
 
 Affirmant son idée par un balancement continu de sa:
-grosse tête à cheveux ras, il fixait sur W. N. Bal-
-combe ses yeux bleus largement cernés de bistre par
+grosse tête à cheveux ras, il fixait sur W. N. Balcombe ses yeux bleus largement cernés de bistre par
 un trouble fonctionnel, car il atteignait soixante ans et
 sentait la fatigue de sa vie laborieuse.
 
 « Qui boira ce vin à quinze shillings la douzaine?...
-Les Français de Londres? L'Angleterre est le pre-
-mier pays du monde pour apprécier le bon champagne: À
+Les Français de Londres? L'Angleterre est le premier pays du monde pour apprécier le bon champagne: À
 On ne vous fera pas avaler de la limonade comme
 aux Français, qui aiment nos rinçures de füts, bien
 sucrées. Je revends les miennes aux maisons qui
@@ -2212,8 +2125,7 @@ livrent franco gare Paris à un franc vingt-cinq la bou-
 
 La figure de W. N. Balcombe marquait cinquante
 
-ans. L'habitude de garder les dents serrées faisait pa-
-raître plus maigres ses joues tendues par la saillie des
+ans. L'habitude de garder les dents serrées faisait paraître plus maigres ses joues tendues par la saillie des
 maxillaires. Il secoua la tête à contre-sens de M. Hart-;
 
 à mann et le pria de lui faire goûter les cuvées.
@@ -2223,8 +2135,7 @@ incrustation de la marque Hartmann: une banderole à
 la devise de Champagne « Passe avant meillor ».
 
 Il posa des verres en cristal à pied court, plus étroits
-de bord que de fond, et déboucha les échantillons frap-
-pés dans deux seaux d'argent. Un parchemin agrafé
+de bord que de fond, et déboucha les échantillons frappés dans deux seaux d'argent. Un parchemin agrafé
 au goulot portait le détail des cuvées. La mousse du
 Berny, assagie par quatre ans de cave, sortait sans
 violence, abondante et fine. W. N. Baicombe mira le
@@ -2249,13 +2160,11 @@ Jes douceurs, mais au commencement du repas. Son
 palais, reposé, ne se trompe pas. Il lui faut un bon vin. »
 M. Hartmann, trop âgé pour marcher longtemps, ils
 prirent l'ascenseur pour jouir de la vue sur la terrasse.
-Un parc isolait le palais blanc, puis commençait l'ali-
-gnement des bâtiments de travail; les celliers aux longs
+Un parc isolait le palais blanc, puis commençait l'alignement des bâtiments de travail; les celliers aux longs
 toits clôturaient les cours vastes où les cavistes en ta-
 . bliers blancs roulaient des tonneaux. Des capots vitrés;
 couvraient l'orifice ancien des crayères humides occu- » pées par trois cents hommes au travail sur le vin du
-maître. Les toits jumelés des hangars à bouteilles sui-
-vaient ceux des écuries pour quarante chevaux. Le
+maître. Les toits jumelés des hangars à bouteilles suivaient ceux des écuries pour quarante chevaux. Le
 bruit des maïllets assénés montait de l'atelier des tra-
 L'été, les amoureux gravaient leurs prénoms au canif
 sur le long mur en moellons de craie qui fermait le domaine sur la route de Châlons, puis tournait pour dé-
@@ -2266,8 +2175,7 @@ Une cavalcade du 16° dragons longeait la clôture, au
 ù la peine des hommes De.
 trot vers les casernes proches d'où venait la musique ni
 félée des trompettes. Des casques de soldats rentrant
-au quartier pailletaient le boulevard Pommery; les pan-
-talons écarlates se voyaient de loin. « tie
+au quartier pailletaient le boulevard Pommery; les pantalons écarlates se voyaient de loin. « tie
 Les routes blanches de la Marne crayeuse divisaïent
 
 la campagne grise égayée par le disque rouge de lan
@@ -2275,9 +2183,7 @@ ligne de Mourmelon. Vers Reims, le vaisseau de la ca- à
 
 thédrale dominaït la mer des maisons. s..
 
-Mr. W. N. Balcombe repartit pour Londres le lende-
-
-main et écrivit, de quinzaine en quinzaine, pour l'envoi. À
+Mr. W. N. Balcombe repartit pour Londres le lendemain et écrivit, de quinzaine en quinzaine, pour l'envoi. À
 
 de fractions de ses cuvées réservées.
 
@@ -2324,8 +2230,7 @@ du vin. Au dégorgement frigorifique, la perte en liquide
 A côté d'un vieux dégorgeur maître de son tour de AN
 _maïn, un débutant clignait des yeux à l'explosion et À
 tn: “éloignait la bouteille, accélérant par la secousse la
-. vidange, et la perte du gaz. Le vieux, poussant le bou-
-chon à fleur de goulot, le retenait du pouce pour le
+. vidange, et la perte du gaz. Le vieux, poussant le bouchon à fleur de goulot, le retenait du pouce pour le
 lâcher d'un seul coup, de manière que l'explosion vive de
 
 rejette entier Le dépôt. Si le vin fuse et gicle, la bouteille!
@@ -2344,8 +2249,7 @@ Un peu de mousse suit le glaçon; il l'égoutte sur un
 ionneau où se recueille tout le déchet. Les grandes
 
 la peine des hommes he:
-maisons se défendent de l'utiliser dans les cuvées nou-
-velles. Elles disent le céder aux marchands de tisane.
+maisons se défendent de l'utiliser dans les cuvées nouvelles. Elles disent le céder aux marchands de tisane.
 L'ouvrier flaire le vin. La prime est de cinquante centimes par bouteille sentie mauvaise: rinçage manqué
 ou bouchon vicieux.
 La champenoise passe fermée au « doseur » qui la
@@ -2356,13 +2260,11 @@ fermentation a converti sucre du vin en alcool; ilest
 Ai demande huit pour cent de liqueur; l'allemand, dix. Les À
 Russes, aimant la sucrerie comme des ours, vont
 jusqu'à vingt pour cent. Il faut aux Anglais un vin sans
-défaut, qui se suflise avec ses qualités propres, déve-
-loppées par les années de cave, le sucre n'intervenant
+défaut, qui se suflise avec ses qualités propres, développées par les années de cave, le sucre n'intervenant
 pas pour en masquer les vices.
 
 Des machines en métal argenté permettent le dosage
-de automatique de la liqueur par les apprentis. On addi-
-tionne à la main les très petites mesures, comme dans
+de automatique de la liqueur par les apprentis. On additionne à la main les très petites mesures, comme dans
 la cuvée W. N. Balcombe titrée à un demi pour cent. a
 Des garçonnets versaient le sirop blond avec une
 louche d'argent de quatre dixièmes de centilitre. À
@@ -2372,8 +2274,7 @@ trente centimes pièce, enfoncés d'un tiers pour le conti
 nent, plus profondément pour l'exportation. La solidité À
 de la fermeture prévoit les tribulations de la bou-
 Les bouchons marqués au feu Hartmann et Compagnie à
-entraient en trois coups de broche, de leur demi-lon-
-gueur dans les goulots de la cuvée W. N. Balcombe. Un
+entraient en trois coups de broche, de leur demi-longueur dans les goulots de la cuvée W. N. Balcombe. Un
 ficeleur les ployait sous la croix de deux brins de corde
 
 (il blanche qu'il nouaïit de ses mains rapides. Sa machine:
@@ -2423,8 +2324,7 @@ Mr. W. N. Baicombe demanda au mois de juin dix à
 
 mille Berny. Droites dans les paniers à six cases, elles
 arrivaient au jour, salies par cinq ans de ténèbres.
-Deux femmes les appropriaient à l'éponge. Les « babil-
-vis, la colle et les feuilles d'étain à trente-deux francs
+Deux femmes les appropriaient à l'éponge. Les « babilvis, la colle et les feuilles d'étain à trente-deux francs
 
 le mille posées entre elles.
 
@@ -2432,18 +2332,14 @@ Elles paraient la champenoise, lissant des deux mains
 
 À l'étain sur le goulot, en appuyant le fond sur leur ventre
 protégé par un coussinet de jute.
-Elles rendent quinze cents bouteilles par jour, pres-
-
-sant autant de fois sur leur sexe. Il leur est dangereux
+Elles rendent quinze cents bouteilles par jour, pressant autant de fois sur leur sexe. Il leur est dangereux
 
 de devenir enceinte. Aussi, les jeunes filles seules tra-
 
 ; vaillent ainsi posées; plus âgées, elles passent s'asseoir
 à la fabrication des muselets ou au marquage au feu
 des bouchons.
-La première plaçant le capuchon, une autre l'éti-
-
-quette, la dernière la collerette, elles alignaient les
+La première plaçant le capuchon, une autre l'étiquette, la dernière la collerette, elles alignaient les
 
 bouteilles coiffées d'or, d'argent, d'ébène, ou encore de
 
@@ -2458,7 +2354,7 @@ imitateurs. de
 Un négociant avisé s'associa un commis nommé Hart
 man pour user de son nom sur des bouteilles achetées
 ou franc cinquante à des chimistes d'Épernay qui ha-
-… billaient leurs produits à la marque de leurs clients. A;
+… billaient leurs produits à la marque de leurs clients.
 Quelques centaines de petits négociants exploitent A
 
 ainsi en chambre une raison sociale déposée qui n'existe
@@ -2468,9 +2364,7 @@ dait deux syllabes sur du papier doré. À
 à Hartmann, avec deux plaida, perdit. Hartman,un NE
 
 in, plaçait à Paris où le vin cher se vend peu. FAT
-Des établissements de nuit subventionnent les cour-
-
-tisanes racoleuses du client amateur de grand cru.
+Des établissements de nuit subventionnent les courtisanes racoleuses du client amateur de grand cru.
 
 Mais on gagne plus à majorer la tisane. Une bouteille
 de Hartmann achetée neuf francs et revendue vingt,
@@ -2486,8 +2380,7 @@ times sous la capsule et de confier le secret aux gar- |..
 pre M. P.-K. Hartmann conduisait plus sérieusement sa
 
 la peine des hommes SCI
-publicité. IL approvisionnaït ses vendeurs à la commis-
-sion en France et ses agents en gros à l'étranger, de
+publicité. IL approvisionnaït ses vendeurs à la commission en France et ses agents en gros à l'étranger, de
 couteaux de poche, de seaux à glace en simili-argent, À
 de tableaux-réclame sur carton glacé. À
 Leur exposition rétrospective ornait le mur au pied
@@ -2506,8 +2399,7 @@ M. Erwing, employé à deux mille francs par an,
 contrôlait le départ de l'envoi Balcombe. Des ouvriers
 aux manches retroussées posaient les caisses, adresse
 en dessus, par cinq de hauteur, sur les camions à deux
-Les lourdes voitures, sortant par la porte monumen-
-tale, gagnaïent au trot de leur fort attelage, la gare
+Les lourdes voitures, sortant par la porte monumentale, gagnaïent au trot de leur fort attelage, la gare
 petite vitesse où la marchandise prenait le rail, par À
 Calais, pour Mr. W. N. Balcombe, 10, Saint Edwards
 
@@ -2554,8 +2446,7 @@ sac, des grains; des balles de foin dans le panneau
 d'arrière et de la paille pressée sur le pont. Deux
 vapeurs amarrés poupe à proue, signalés suédois par
 la croix jaune sur leurs cheminées éteintes, déposaient
-leurs chargements de bois blanc. Les passerelles tou-
-chaïent terre entre les raïls de la voie de l'eau où le.
+leurs chargements de bois blanc. Les passerelles touchaïent terre entre les raïls de la voie de l'eau où le.
 surveillant Martin engageait les wagons à rouler en
 face du bateau de M. Merlin. no)
 Les déchargeurs, payés à forfait, ne se dérangeaient uw)
@@ -2593,8 +2484,7 @@ times sans rugir contre la Compagnie dont il fut
 
 la peine des hommes ANS
 Il confondait les gens du chemin de fer par sa grande
-connaissance des tarifs. M. Bélard subissait ses apo-
-strophes avec la résignation d'un homme qui les saït
+connaissance des tarifs. M. Bélard subissait ses apostrophes avec la résignation d'un homme qui les saït
 Son caractère, affaibli par dix-sept ans de discipline
 administrative, ne lui permettait pas la réplique vigou-
 -reuse. Maïs, aussitôt M. Desvides parti, il se soulageait
@@ -2647,9 +2537,7 @@ et deux francs quarante de connaissement par envoi.
 
 -Ces chiffres officiels ne supportant pas la majoration,
 
-Desvides gagnaïit sa vie sur les « soins d'embarque-
-
-ment »: trente-cinq centimes les cent kilogrammes.
+Desvides gagnaïit sa vie sur les « soins d'embarquement trente-cinq centimes les cent kilogrammes.
 
 La Société des Rouleurs de Calais le déchargeait de
 
@@ -2695,8 +2583,7 @@ charger les paniers. »
 Il montrait sur le quai, l'entassement des emballages
 retour d'Angleterre, à renvoyer aux expéditeurs de
 fruits sur les réseaux du P.-L.-M. ou de l'Orléans.
-— « Et les laines, dit encore Lambert. Quand char-
-gerons-nous les laines? On n'a ni wagons ni bâches. »
+— « Et les laines, dit encore Lambert. Quand chargerons-nous les laines? On n'a ni wagons ni bâches. »
 Petit et gros, il rougissait en parlant, car tout effort
 le congestionnait.
 — « Chacun son tour dit Martin. à
@@ -2710,8 +2597,7 @@ vite ses bras courts, signe d'une détermination farouche,
 mai rien qu'en apparence, car il était brave homme, Mit À
 toujours de bonne volonté au coup de main. a
 entra dans les bureaux du « South Eastern and
-par M. Jim Batter, capitaine, qui recevait par câble l'an-
-nonce du départ de Douvres du cargo de sa compagnie. Ne
+par M. Jim Batter, capitaine, qui recevait par câble l'annonce du départ de Douvres du cargo de sa compagnie. Ne
 .— « Voilà la dépêche, dit-il, le « Maidstone » être
 à. « Elle » est partie depuis deux heures. » "PATES
 
@@ -2725,8 +2611,7 @@ Cet homme immobile accomplissait de rares gestes a
 dont le principal était d'allumer sa pipe.,
 Une moustache grise fermait hermétiquement sa au
 ‘bouche. Il ne connaissait pas assez de français pour Ne
-prononcer des mois inutiles. Sa grande taille et l'habi-
-tude de passer à côté des gens sans rien leur dire
+prononcer des mois inutiles. Sa grande taille et l'habitude de passer à côté des gens sans rien leur dire
 ‘augmentait à son égard le respect et un peu l'inquiétude
 esprits simples. Homme de la plus haute « respec- je à
 1 souleva son long bras pour prendre la main de É de
@@ -2765,8 +2650,7 @@ Les trois captains goûtèrent encore un moment la À
 forte joie de se regarder sans rien dire, puis Mr. Harry
 Pimple et son secrétaire continuèrent leur route vers le:
 bout de la jetée d'où ils pêchaïent leur repas dans le. A
-Un chien aurait sauté sous leur bras arrondi en cer-
-ceau, car ils marchaient à la manière « smart » de
+Un chien aurait sauté sous leur bras arrondi en cerceau, car ils marchaient à la manière « smart » de
 
 Londres, semblant porter sous chaque aisselle un très
 … Le jeune Stieven s'écartant de l'axe du captain
@@ -2810,8 +2694,7 @@ comptait, pour la statistique, les colis embarqués.
 
 Le réceveur de douane tenait ce manquement aux. À
 
-formalités pour une sorte de sacrilège laïque. Le transi-
-taire lui tendit soixante centimes. M. Labarre ait:
+formalités pour une sorte de sacrilège laïque. Le transitaire lui tendit soixante centimes. M. Labarre ait:
 
 : « Non. Je ne régularise pas... Procès-verbal! »
 
@@ -2820,9 +2703,7 @@ M. Darraïdou dut débarquer les caisses, acquitter le »
 permis pour leur embarquement et on les remit à bord.
 
 La figure de M. Labarre prit un éclat magnifique.
-Ces prouesses le grandissaient. Il pouvait tout: appré-
-
-hender les gens, les interroger, les déshabiller, après la.
+Ces prouesses le grandissaient. Il pouvait tout: appréhender les gens, les interroger, les déshabiller, après la.
 
 « Vous n'avez rien à déclarer? »
 
@@ -2844,9 +2725,7 @@ mune était révoqué par l'assemblée de ses camarades.
 
 {ls formaient une aristocratie du coltinage très fermée.
 
-On n'y entrait qu'en déposant mille francs. On leur con-
-
-fiait la manutention précieuse des caisses d'or envoyées
+On n'y entrait qu'en déposant mille francs. On leur confiait la manutention précieuse des caisses d'or envoyées
 
 . par les banques de Londres à celles de Paris et dessacs
 postaux de la malle des indes.
@@ -2856,13 +2735,11 @@ dur de bras et fort de tête. Peu sont capables de gâcher
 
 le mortier d'intérêt qui unit aussi fortement les hommes.
 
-La prob é de leur main-d'œuvre profitait aux transi-
-taires qui gagnaient leur vie à ne même pas regarder
+La prob é de leur main-d'œuvre profitait aux transitaires qui gagnaient leur vie à ne même pas regarder
 6 mettre à bord la marchandise. Ce travail consciencieux
 . n'appelait pas leur surveillance. Won
 Onze heures, la marée montait, sans vagues, comme. 1%
-sile vase du monde contenant la mer penchait lente-
-ment du côté du port.!
+sile vase du monde contenant la mer penchait lentement du côté du port.!
 … Les mouettes flottaient en bouchons sur l'eau unie du
 1 bassin Carnot dont les grues tendaient leurs longs bras
 8 sur les vapeurs norvégiens chargés de poteaux de sapins 1]
@@ -2885,16 +2762,14 @@ marchait selon les méthodes de Saint-Guy, paraissant
 toujours pousser du pied une balle invisible.
 Rice messieurs discutèrent les moyens de canaliser
 QUE Calais le transit des champagnes attiré par Boulogne. à
-Lévêque tira de sa serviette des fiches de statisti-
-que honnêtement établies. Ingénieur des Arts et Manu-
+Lévêque tira de sa serviette des fiches de statistique honnêtement établies. Ingénieur des Arts et Manu-
 Diftiures, il ne plaisantait pas avec la science en papier.
 
 a la peine des hommes RER
 ... « Nous avons transité en mars 9.567 caisses prove- "si
 fait donc 15.326 caisses, soit 494 virgule 39 par jour,
 chiffre minime auprès de ceux de Boulogne. Or... »
-Il prit une attitude démonstrative, les sourcils écar-
-quillés et l'index droit levé à hauteur de tempe:; il
+Il prit une attitude démonstrative, les sourcils écarquillés et l'index droit levé à hauteur de tempe:; il
 n'aidait ses raisonnements que de la gesticulation d'un
 seul bras; l'autre tenait toujours, outre la serviette, un
 parapluie de silésienne; infraction étonnante chez cet
@@ -2921,8 +2796,7 @@ le besoin de signaler sa présence à l'aide de paroles
 inutiles. Nouveau venu dans le métier, il n'y connaissait
 rien et brûlait de se distinguer sans fatigue.
 
-bits M. Lévêque raidit son index droit sur sa tempe éclair-
-cie ‘et continua l'enchaînement des raisons devant
+bits M. Lévêque raidit son index droit sur sa tempe éclaircie ‘et continua l'enchaînement des raisons devant
 aboutir au soulagement du port de Boulogne.
 visionnaire bavard, détaché de l'existence immé-
 … diate par vingt irréparables années d'école, ne voyait
@@ -2973,8 +2847,7 @@ Sirop tenait à ce que rien ne change, et il disait la vanité
 de prétendre dévier les transports de Boulogne encom- …
 brée, au lieu d'y augmenter la superficie des voies. ne
 
-M. Blanc souriait, non par gaieté, mais maladi-
-vement. Sa mâchoire inférieure pendaït, lui ouvrant la
+M. Blanc souriait, non par gaieté, mais maladivement. Sa mâchoire inférieure pendaït, lui ouvrant la
 
 bouche, comme à un mort. L'affaissement perpétuel de hi]
 sa triste figure allait bien avec sa petite taille et son
@@ -2984,8 +2857,7 @@ pas s'y fier. Le personnel redoutait les taquineries de
 
 ce mal-venu. M. Alphonse Sirop le surnommait le Péril
 
-Jaune à cause de son beau teint citron et de la sournoï-
-serie de ses approches. M. Lévèque, moins venimeux,
+Jaune à cause de son beau teint citron et de la sournoïserie de ses approches. M. Lévèque, moins venimeux,
 exaspérait ses subalternes sans méchante intention.
 Encombrant leur travail, il les talounaïit pour des choses
 mesquines. Son bourdonnement donnait envie de l'écra-,
@@ -3027,19 +2899,16 @@ au port de Boulogne, mais ils passaient le temps, si long
 
 la peine des hommes 17 1 TNA
 M. Blanc les quitta pour diriger le service des vieux
-bateaux à roues de la Compagnie du Nord. La surveil-
-lance de ces deux épaves convenait à ce déchet
+bateaux à roues de la Compagnie du Nord. La surveillance de ces deux épaves convenait à ce déchet
 4. d'homme, amiral verdâtre d'une flotte pourrie. Il prenait;
 mollement sa fonction à midi et la quittait vivement à
 quatre heures. On disait que le ramollissement de cet
 extasié venait de ce qu'il fumait l'opium.
 Des vagues mignonnes léchaïient le brise-lames du
 Risban patiné de mousse marine. Légère sur l'eau
-calme, la malle anglaise entrait, silencieuse, ses ma-
-chines stoppées, poussée par son élan sur le flux propice.
+calme, la malle anglaise entrait, silencieuse, ses machines stoppées, poussée par son élan sur le flux propice.
 Le captain Jim Batter avisa le captain Palmer du
-« Maïdstone de la fin du chargement. Le bateau empor-
-tait mille caisses de champagne, du vin en fûts, des
+« Maïdstone de la fin du chargement. Le bateau emportait mille caisses de champagne, du vin en fûts, des
 bouchons, du beurre, des œufs, de la viande de lapin et
 des châssis d'automobile. "1
 Le pavillon du poste des pilotes interdisait la sortie.
@@ -3085,7 +2954,7 @@ bordait de dentelle mousseuse l'éventail du sillage.
 et l'eau bleue, variait les dessins de son ombre sur la
 mer ensoleillée, où l'écume laissait une grande route:
 
-2 Quittant le relent âcre du port vaseux, on aspirait,
+Quittant le relent âcre du port vaseux, on aspirait,
 ne: hors de l'étreinte des jetées, l'haleine pure de la mer
 fraîche. L'homme de quart retiraità l'avant le bastingage
 de toile qui abrite, par gros temps, des paquets de mer. Aer
@@ -3109,11 +2978,9 @@ noires du Minck. On l'enduisait, chaque année, au beau;
 temps, de couleur fraîche. La jeunesse de sa teinte
 accusait la noirceur des autres ‘édifices dominant à
 la ville: l'ancien phare et le beffroi bâti en pelote
-Le cou des canons, tendu sur le talus vert des batte-
-ries de la côte, visait la mer. À
+Le cou des canons, tendu sur le talus vert des batteries de la côte, visait la mer. À
 Entre l'eau et les cabines de la plage, l'éparpillement
-des baigneurs dégradait la blancheur du sable. des-
-cendaient de la morne rangée des boîtes à guignol. À
+des baigneurs dégradait la blancheur du sable. descendaient de la morne rangée des boîtes à guignol. À
 jusqu'à la vague insultée par leurs ébats sans grâce.
 Le Casino achevaïit la laideur du tableau.
 ; Dans le sillage du « Maidstone » passa un quatre-mâts À
@@ -3123,8 +2990,7 @@ laient. Sur la couleur grise du bordage de fer éclataient
 . les cicatrices rouges des retouches au minium.
 Deux poules d'eau semblaient des perles noïres sur
 le satin bleu de Feau calme qu'elles trouèrent en plon-
-Les navires, nombreux à ce carrefour d'océans, des-
-sinaient sur l'horizon la géométrie de leurs voilures ou
+Les navires, nombreux à ce carrefour d'océans, dessinaient sur l'horizon la géométrie de leurs voilures ou
 leur paraphe de fumée.
 
 le front des hommes tranquillisés de voir loin. Rang
@@ -3194,8 +3060,7 @@ cheveux. Les mains aux poches, elle de son manteau,
 lui de sa culotte, ils entrèrent sans rien se dire dans le;
 Un grand policeman vêtu de bleu sombre, rôdait
 silencieux sur ses semelles de caoutchouc. Il passait
-par-dessus le rideau des devantures sa bonne tête cas-
-quée de noir et enviait l'intérieur des bars où les matelots des malles belges, anglaises et françaises utilisaient 4]
+par-dessus le rideau des devantures sa bonne tête casquée de noir et enviait l'intérieur des bars où les matelots des malles belges, anglaises et françaises utilisaient 4]
 les pourboires de la traversée. Ses boutons de métal
 Par le bâillement de la porte sortit un pot bien plein.
 Très vite l'homme le rendit vide et, grandi de bien- à
@@ -3208,9 +3073,7 @@ Vins et Spiritueux en gros, 10, Saint-Edward's
 — Jane London (E. C.), prirent le lendemain samedi, aux;
 - bureaux du S. E. C. R., livraison des wagons de cham-
 — pagne. Trois voitures menèrent, en deux voyages, la
-marchandise aux caves de Dumpling Street. Tom She-
-
-pérd, ayant chargé quarante caisses pour SaintEdwards lane, roula dans le Strand (W.) à huit heures
+marchandise aux caves de Dumpling Street. Tom Shepérd, ayant chargé quarante caisses pour SaintEdwards lane, roula dans le Strand (W.) à huit heures
 
 … dumatin. Sans uniforme de métier, il portait un chapeau
 
@@ -3221,19 +3084,13 @@ pérd, ayant chargé quarante caisses pour SaintEdwards lane, roula dans le Stra
 — rouges, jaunes et vertes, pour des savons, des pâtes à
 « polir et des farines lactées.
 
-… Le conducteur, intéressé à la recette, glapissait l'iti-
-
-néraire et racolait le passant.
-Les porteurs de journaux criaient « Papers! » Le tra-
-
-fic ordonné roulait sourdement sur le pavé de bois. Au
+… Le conducteur, intéressé à la recette, glapissait l'itinéraire et racolait le passant.
+Les porteurs de journaux criaient « Papers! » Le trafic ordonné roulait sourdement sur le pavé de bois. Au
 
 long des trottoirs, la foule des gens attendus à l'heure
 allait vite, devant les rangées de boutiques déjà parées:
 dans les vitrines des « tobacconists » montaient des
-architectures de cigares et de tabac blond; aux devan-
-
-tures pleines de « cakes » des « Tea-Rooms les rai-
+architectures de cigares et de tabac blond; aux devantures pleines de « cakes » des « Tea-Rooms les rai-
 
 Y sins de Corinthe noirs piquaient de mouches la blan-
 
@@ -3248,18 +3105,16 @@ Sur les bancs d'impériale des omnibus placés face ala
 Porter du linge et ne pas manquer de tabac distinguait “4
 . du besogneux en redingote et chapeau melon, mais un.
 foulard au cou et rien aux lèvres. À
-Tom Sheperd guida son cheval luisant vers un abreu-
-voir de pierre au bord du trottoir. Le respect des bêtes
+Tom Sheperd guida son cheval luisant vers un abreuvoir de pierre au bord du trottoir. Le respect des bêtes
 témoignait de la haute moralité du peuple.
 Une femme saoule s'accrocha aux roues de l'échelle
 de sauvetage rouge, en station au milieu de Fleet
 Street. Un policeman vint lui tenir le bras. Le peu qu'il
-en resta dans l'étau de son poing fermé trahit la maï-
-greur de la pauvre fille. Le teint terni par sa nuit de À
+en resta dans l'étau de son poing fermé trahit la maïgreur de la pauvre fille. Le teint terni par sa nuit de À
 rôdeuse, elle bavait des explications: « Sick. Very!
 Oh! Sir! Very sick... » Sa jupe frangée battait ses
 souliers sans talons. Le « constable » la guidait avec
-un respect d'époux. On croyait voir passer un couple «;
+un respect d'époux. On croyait voir passer un couple
 de mariés pour la cathédrale de Saint-Paul, toute
 proche. Mais le chapeau à plumes de la « lady »ne
 laissait aucune illusion; il ne tenait plus à elle que par À
@@ -3271,12 +3126,9 @@ Les petits ramasseurs de crottin, en veste blanche
 marquée au col des initiales L. C. (London City), …
 raflaient de leur pelle de bois ies ordures fumantes
 sur le pavé sec. Parmi les cabs vernis et les camions
-de transport passait une voiture postale aux armoi-
-
-ries du « Royal Mail E. R. » peintes en jaune sur fond
+de transport passait une voiture postale aux armoiries du « Royal Mail E. R. » peintes en jaune sur fond
 Une musique de fifres siffla dans East Cheap et un
-policeman déblayeur parut, précédant la garde mon-
-tante de la tour de Londres.
+policeman déblayeur parut, précédant la garde montante de la tour de Londres.
 Le tambour-major rouge écaillé d'or balançait sa
 ettrois rangs de fifres jouant la marche des « Coldstream
 — Guards » en tuniques écarlates. Le bonnet à poil, noir,
@@ -3333,7 +3185,7 @@ colonies britanniques et l'entreposage aux docks. Les
 
 ai: contena ent que des échantillons dédouanés servant de
 … cote pour les opérations de bureau. DNS »
-4 Les luxueuses réclames des boissons célèbres ornaient rip à
+Les luxueuses réclames des boissons célèbres ornaient rip à
 les murs dans le bureau du « clerk » réceptionnant le
 - chargement de Tom Sheperd: les Maraschino de Zara,
 “les Schiedam, les. Portos, les cognacs aux étiquettes
@@ -3367,11 +3219,9 @@ Un racoleur de grill-room invitait les passants à
 manger de la viande:
 Des concombres vert poli et des tomates luisantes
 séparaient dans la vitrine les tranches suifeuses de selle
-de mouton et les coupes de bœuf rouges sur une den-
-telle de persil. ne
+de mouton et les coupes de bœuf rouges sur une dentelle de persil. ne
 Derrière le comptoir de bois verni où l'on s'accoudait
-sans se baisser, évoluaient deux garçons pâles, la che-
-velure huilée fendue par une raie parfaite, à gauche.
+sans se baisser, évoluaient deux garçons pâles, la chevelure huilée fendue par une raie parfaite, à gauche.
 Dans l'échancrure de leur smoking blanc luisait la
 glace du plastron de chemise. Ils maniaient de leur;
 poigne brusque la batterie des quatre leviers de pompe
@@ -3380,8 +3230,7 @@ barman mêla un jet de bière douce à un jet de bière.
 . amère et posa devant le livreur la chope de nickel où
 la mousse bombaiït, puis il asséna la monnaie à rendre « d'un coup de plat de main comme s'il tuait une
 Des tonnelets en verre tendaient leurs robinets d'étain
-où il tira du « scotch whisky » pour deux femmes his-
-sées sur le perchoir des tabourets..
+où il tira du « scotch whisky » pour deux femmes hissées sur le perchoir des tabourets..
 Un portier de banque, raide encore de ses années de
 loyal service, entra, dit: « Bitter paya, but d'une
 seule haleine et partit, le torse bombé, en torchant du
@@ -3403,8 +3252,7 @@ F. - Le bureau de « Dumpling Street » occupait le coin de à
 « Crow Passage » en voûte sous le viaduc dus.
 La porte des caves de W. N. Balcombe and Company
 ouvrait dans ce tunnel de soixante mètres où six vaga-
-à … bonds habillés d'aumônes mangeaient des ordures men-
-diées aux cuisines proches du restaurant Gatti.
+à … bonds habillés d'aumônes mangeaient des ordures mendiées aux cuisines proches du restaurant Gatti.
 …. Ils se portaient de préférence au bout du souterrain
 “vers « Crow Street » à cause des onze marches où l'on
 
@@ -3413,8 +3261,7 @@ Un homme à longue barbe grise vêtu d'une redingote
 recousue à la ficelle, paraissait craindre le froid aux
 cheveux: son chapeau melon lui venait aux oreilles. Il
 serrait une rognure de jambon entre deux croûtes de
-« pain de mie. Son voisin, la figure rouge et ronde en fro-
-mage de Hollande, portait des oreilles fendues d'ancien
+« pain de mie. Son voisin, la figure rouge et ronde en fromage de Hollande, portait des oreilles fendues d'ancien
 boxeur. Il commençait le repas sur une tête de poisson
 . dont l'homme à barbe grise regardait les yeux blancs. AS
 Le Un chien affamé flaira les nourritures. Les six misé-
@@ -3428,22 +3275,18 @@ noirs dans la tête de cabillaud. Le rougeaud ramena
 la bête tenue par le lacet de sa chaussure retrouvée:
 Un chien vaut toujours six pence.
 Une théorie d'hommes-sandwich descendit les onze
-marches du tunnel. Leur corps, maigre en viande, gar-
-nissait peu les deux tartines leur serrant le ventre et le:
+marches du tunnel. Leur corps, maigre en viande, garnissait peu les deux tartines leur serrant le ventre et le:
 dos. La charge posée découvrit leur pantalon usé aux
 genoux par le frottement de la marche sur la pancarte #1
 de face. a
-haut de l'escalier. Ils reprenaient quartier dans cet en-
-droit connu, pendant la morte-saison de leur vilain mé-
-tier. La nuit, ils revenaient se mettre à l'abri de la
+haut de l'escalier. Ils reprenaient quartier dans cet endroit connu, pendant la morte-saison de leur vilain métier. La nuit, ils revenaient se mettre à l'abri de la
 pluie, ce qui est le commencement du bien-être, et tenir
 chaud aux vagabonds gardiens du lieu familier. il
 Tapis contre les caves pleines de bonnes choses bien
 gardées pour les gens heureux, ils ne réclamaient rien
 que la suppression des rondes de policemen dont les
 lanternes démasquées troublaient leur sommeil.
-Les « sandwichmen » endossaient les planches obli-
-ques, en pente de toit, où leur tête posait une cheminée.
+Les « sandwichmen » endossaient les planches obliques, en pente de toit, où leur tête posait une cheminée.
 Leur procession de misère remonta vers le Strand.
 Tom Sheperd chargea vingt caisses de G. H. Mumm A
 1900 et fut en dix minutes au London Club dont les
@@ -3456,12 +3299,10 @@ d'une lèpre noire.
 les soupiraux des sous-sols, on voyait les vestes
 bla açhes des cuisiniers intercepter le flamboiïement des ni À
 fourneaux. Un volant de machine électrique décrivait 1 pue
-son geste formidable derrière les vitres sales du pre-
-er. Un mécanicien aux mains huileuses pencha sur Le
+son geste formidable derrière les vitres sales du preer. Un mécanicien aux mains huileuses pencha sur Le
 1 la rue sa tête aux cheveux ras.
 La puanteur des cuissons rencontrait le relent des nur.
-Ce « côté service » des grands hôtels-usines nourris-
-sait le « côté client » sur Parliament Avenue (W.). VAT
+Ce « côté service » des grands hôtels-usines nourrissait le « côté client » sur Parliament Avenue (W.). VAT
 Entre les deux grands Gordon's Limited la façade
 “de pierre grise du London Club s'égayait de rangées
 de fleurs, sous les glaces des bow-windows. Des bords Ne
@@ -3518,9 +3359,7 @@ semblait essayer de happer au vol les mouches attirées
 par la lumière.
 . Assuré de la solide position de son morceau de verre,
 
-“. il partit, à pied, dans la nuit de juin très belle et mar-
-
-cha dans Piccadilly, le bras droit arrondi en anse de,
+“. il partit, à pied, dans la nuit de juin très belle et marcha dans Piccadilly, le bras droit arrondi en anse de,
 
 “. cruche. Du bras gauche également fléchi, il tenait par
 
@@ -3537,12 +3376,9 @@ ne donnait pas son âge, mais cette apparence de fa-
 
 Il aimait parcourir lentement le marché aux femmes
 
-de Piccadilly, une des plus grandes foires de la prosti-
-
-la peine des hommes
+de Piccadilly, une des plus grandes foires de la prostila peine des hommes
 Aucune formalité ne filtrant l'admission des étrangers
-dans la libre Angleterre, les filles inquiétées par la po-
-lice de leur pays passaient la mer. Elles venaient de
+dans la libre Angleterre, les filles inquiétées par la police de leur pays passaient la mer. Elles venaient de
 Belgique, du Luxembourg, de France, d'Allemagne, car
 l'Anglais, disent-elles, paie bien. À
 Leur concurrence animait cet endroit de Londres. À
@@ -3558,9 +3394,7 @@ puis Regent Street et encore Piccadilly; car maintenant
 son cœur, si l'on peut dire, s'agitait pour une barmaid
 Une énorme dame, très bien vêtue de noir, promenait
 avec assurance le teint passé de ses quaranie ans, de
-vant les sourires cruels de ses jeunes rivales. Les Fran-
-çaises balançaïient leur petit sac et prenaient l'air dé-
-daigneux de fuir ce qu'elles cherchent.
+vant les sourires cruels de ses jeunes rivales. Les Françaises balançaïient leur petit sac et prenaient l'air dédaigneux de fuir ce qu'elles cherchent.
 La lourdeur des parures, les ceintures métalliques, Il
 indiquaient les grasses Allemandes.
 À Une Jrlandaise à peau rose montrait ses bas verts,:
@@ -3621,8 +3455,7 @@ colère de Dieu:;
 relèverai tes pans sur ton visage... Je montrerai ta
 nudité aux nations. et ta honte aux royaumes! »
 Mabel causait à deux jeunes gens qui biberonnaient
-les païlles d'un « lemon squash ». Un col garçon pré-
-sentait le visage frais de cette fine anglaise souriante,
+les païlles d'un « lemon squash ». Un col garçon présentait le visage frais de cette fine anglaise souriante,
 vêtue de noir. à
 
 Ni pas un cheveu fou ne rompait la discipline de sa
@@ -3705,9 +3538,7 @@ des tonnelets à robinet d'argent, des liqueurs, des
 les Anglais sur la nationalité de la Champagne. Ils la
 croyaient annexée en 1870 à l'empire allemand: G.-H.
 Un Moët et Chandon surprenait.
-La cloison de glace multipliait la lumière des appli-
-
-ques. Lord Pimkins approcha du visage frais de Miss
+La cloison de glace multipliait la lumière des appliques. Lord Pimkins approcha du visage frais de Miss
 … Mabel sa figure un peu tirée.
 AU — « Quand viendrez-vous, douce fille? » Il la tenait
 “d'un doigt croché dans la gourmette de son bras
@@ -3791,8 +3622,7 @@ grand ouvert par terre et suivit Lord Pimkins dans le MI}
 était creux de poitrine et long de figure.
 ! Les sermons aux multitudes et les cantiques à la
 louange du Seigneur avaient agrandi sa bouche aux (0
-lèvres blanches, entr'ouvertes dans la figure rasée, creu-
-sée, par deux traces profondes tirées des ailes du nez.
+lèvres blanches, entr'ouvertes dans la figure rasée, creusée, par deux traces profondes tirées des ailes du nez.
 au coin des lèvres.
 11 fixa les pieds de Lord Pimkins puis remonta lente.
 ment vers lui ses yeux tristes et le regarda de travers"
@@ -3802,8 +3632,7 @@ un sourire de ballerine: Ne
 Derrière un grand paravent à six panneaux de soie
 blanche brodés chacun d'un chrysanthème jaune, ce.
 gentleman buvaït du porto rouge. Il tenait son verre à
-sous sa moustache rousse quand Lord Pimkins lui ten-
-dit la main. Brusquement levé, il raidit sa haute taille
+sous sa moustache rousse quand Lord Pimkins lui tendit la main. Brusquement levé, il raidit sa haute taille
 À « Je suis très joyeux de vous voir. » A
 À Le révérend Humdrum avançant doucement le bras
 comme pour voler quelque chose, laissa fondre ses
@@ -3844,8 +3673,7 @@ cristal ornées en taille de croix et d'olives. Le maître
 l'hôtel tira de son gousset un couteau gravé en rouge AEY
 “sur nacre « Hartmann et Compagnie » et fabriqué à (1
 
-des grands hôtels et des clubs cet objet de poche alleLe brin de ficelle claqua sous la lame forte qui péné-
-tra un peu dans le liège coiffé d'or. Aidant du pouce le
+des grands hôtels et des clubs cet objet de poche alleLe brin de ficelle claqua sous la lame forte qui pénétra un peu dans le liège coiffé d'or. Aidant du pouce le
 
 la peine des hommes 0 (1
 bouchon libéré, le maître d'hôtel en pointa le tir vers
@@ -3928,7 +3756,7 @@ AS Galles, puis une couronne comme celle de la reine d'An:
 noue — « J'espère que vous êtes tout à fait heureuse, il
 « Elle pleura et dit:
 — « Non. Je voudrais vendre mes bijoux et sauver
-des âmes comme la maréchale Booth. »:
+des âmes comme la maréchale Booth.
 « Quand elle eut bien sauvé des âmes, il lui de-
 — « Maintenant, chérie, votre bonheur est complet? »
 — « Hélas! Je regrette la bague comme avait mon
@@ -3940,7 +3768,7 @@ femme perdit l'homme... car elle lui fit manger le fruit à
 de l'arbre qui est au milieu du jardin. »
 Leur pied balancé semblait faire aux deux autres
 semelles des civilités.
-a: Redressés sur leurs sièges, ils se saluèrent de
+Redressés sur leurs sièges, ils se saluèrent de
 coupe, burent, et se remirent à s'encenser du soulier.
 Tirant aussi un couteau de Solingen offert par Hart
 mann, Karl Becker démuselait la seconde bouteilles
@@ -3963,13 +3791,11 @@ aussi dans les Indes. »
 qu'une pantoufle. » ART
 “Angelo Bozzoni renouvelait les bouteilles. La légère
 torsion de sa bouche inquiétante, aux lèvres épaisses,
-paraissait bien dans sa figure rasée. Rien ne le dis-
-tingu ait d'un clubman que la flexibilité de son échine
+paraissait bien dans sa figure rasée. Rien ne le distingu ait d'un clubman que la flexibilité de son échine
 “Il gagnait deux livres par semaine. Ses pourboires
 
 dépassaient, en saison, cinquante francs par jour.
-arié à une Anglaise, il possédait une maison à Ham-
-mersmith. Vingt-cinq garçons de salle, dont dix-neuf SUR:
+arié à une Anglaise, il possédait une maison à Hammersmith. Vingt-cinq garçons de salle, dont dix-neuf SUR:
 allemands, cinq anglais marchaient sous ses ordres. Un LE
 
 Ital en faisait sa police et convoitait sa place. Angelo
@@ -3998,13 +3824,12 @@ de Londres, pour le pied de luxe. Essayez-le. Mais jene
 voyage qu'avec les chaussures de Howk. dure le
 tour du monde. » Dei
 Le révérend Humdrum joignit ses mains sur son
-genou et ouvrit grande sa bouche noire habituée à pré-
-cher les foules.
+genou et ouvrit grande sa bouche noire habituée à précher les foules.
 « Tant vaut la chaussure, tant vaut l'homme. »
 — « Que penseriez-vous de toasts aux anchoïs? »
 Présenter parmi les bouteilles pleines, une bouteille
 payée et inachevée à une autre table, n'intimidait pas «
-Angelo Bozzoni. Ici, il jouait franc jeu, ces messieurs À:
+Angelo Bozzoni. Ici, il jouait franc jeu, ces messieurs
 connaissant bien leur capacité d'estomac.
 Avec deux nouvelles « Hartmann il servit des filets A
 d'anchois rouges d'épices, sur des croûtes grillées. “4
@@ -4047,8 +3872,7 @@ francs pour tous pays.
 
 1 … Les Cahiers de la Quinzaine sont composés à la main.
 en caractères fin dix-huitième siècle (Didot) de la fonRE.
-derie Mayeur (Allainguillaume et compagnie succes-
-seurs), 21, rue du Montparnasse, à Paris, sixième
+derie Mayeur (Allainguillaume et compagnie successeurs), 21, rue du Montparnasse, à Paris, sixième
 
 Pou savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
@@ -4068,8 +3892,7 @@ de la sixième série, un très fort cahier de XI1+-/08
 pag es très denses,in-1S grand jésus,marqué cinq francs.
 … Pour s'abonner à la neuvième série des cahiers, qui
 nest la dernière série, envoyer en un mandai à de
-MuuM. André Bourgeois, même adresse, le prix de l'abon-
-nement; on recevra en retour les onze cahiers non
+MuuM. André Bourgeois, même adresse, le prix de l'abonnement; on recevra en retour les onze cahiers non
 épuisés de cette neuvième série.
 
 Pour s'abonner à la dixième série des cahiers, qui
@@ -4080,20 +3903,18 @@ recevra les cahiers parus, et de quinzaine en quinzaine,
 Muuà leur date, les cahiers à paraître de cette dixième
 
 rez de-cl aussée, Paris, cinquième arrondissement. IRON
-“Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi- La
+“Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi- La
 “naires; la souscription confère aucune autorité sur Fit
 la rédaction ni sur l'administration; ces fonctions #4 LCA
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année An
-ouvrière, d'octobre-novembre à juin-juillet: l'abonne-
-men se prend pour une série.
+ouvrière, d'octobre-novembre à juin-juillet: l'abonnemen se prend pour une série.
 si On peut souscrire cet abonnement à tout moment de Der
 l'année, mais l'abonnement ainsi souscrit est, de droit, tal
 LA valable pour la série en cours. À
 Prix de l'abonnement, pour chaque série annuelle
 pendant le cours de cette série:
-0 Paris, départements, Alsace-Lorraine,
+Paris, départements, Alsace-Lorraine,
 dinaire nesses Autres pays de l'Union postale uni- - À
 “JR verselle........ vingt-cinq francs
 Abonnement sur whatman........... deux cents francs
@@ -4142,13 +3963,12 @@ lesi inscrit sur l'étiquette, avant le nom. Nous ne réponA dons pas des manusc
 n'accordons aucun tour de faveur pour la lecture des
 manuscrits; nous ne lisons les manuscrits qu'à mesure
 “que nous en avons besoin; les œuvres que nous publions
-appe iennent aux cahiers, du seul fait de cette publi-
-ation, en toute propriété littéraire, sans aucune réserve,
+appe iennent aux cahiers, du seul fait de cette publiation, en toute propriété littéraire, sans aucune réserve,
 et sans autre signification ni contrat; les manuscrits
 non insérés ne sont pas rendus.
 
 Notre catalogue analytique sommaire............
 
-10 I. — A sept heures du soir, en juillet.......
+I. — A sept heures du soir, en juillet.......
 
 A huït heures et demie du soir.......

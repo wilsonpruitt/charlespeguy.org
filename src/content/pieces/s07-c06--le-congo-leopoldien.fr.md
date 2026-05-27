@@ -13,8 +13,7 @@ wordCount: 58378
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un si À
-grand nombre de documents, de textes formant dos-
-si grand nombre de cahiers de lettres, — nouvelles, À
+grand nombre de documents, de textes formant dossi grand nombre de cahiers de lettres, — nouvelles, À
 
 e. romans, drames, dialogues, poèmes et contes; — un a.
 si grand nombre de cahiers d'histoire et de philoso-.
@@ -24,14 +23,12 @@ et de philosophie étaient si considérables que nous ne
 pouvons pas songer à en donner ici l'énoncé même le
 plus succinct; pour savoir ce qui a paru dans les cinq
 premières séries des cahiers, il suffit d'envoyer un man- à
-dat de cinq francs à M. André Bourgeois, administra-
-teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, à
+dat de cinq francs à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, à
 Paris, cinquième arrondissement; on recevra en retour LE
 le catalogue analytique sommaire, 1900-1904, de nos
 Ce catalogue a été justement établi pour donner,
 ; autant qu'il se pouvait, une imag'e en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries; tout y est classé
+une idée, abrégée, mais complète, de nos éditions antérieures et de nos cinq premières séries; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 
@@ -79,8 +76,7 @@ s. a pas que lle Monga à
 Simple extrait de ce premier petit index alphabétique:
 ; Bernard-Lazare, — l'oppression des Juifs dans l'Eu
 rope orientale, — les Juifs en Roumanie, deux francs TA A
-— — une lettre adressée à monsieur Th. Del-
-cassé, ministre des affaires étrangères, — de Buda- Me
+— — une lettre adressée à monsieur Th. Delcassé, ministre des affaires étrangères, — de Buda- Me
 — Juifs de Roumanie, —une lettre à mon- ne
 sieur Anatole Leroy-Beaulieu...............un franc °3%0
 Edmond Bernus, — la Russie vue de la Vistule, — his …
@@ -145,7 +141,7 @@ morales du mouvement révolutionnaire parmi les Juifs
 russes; le mouvement ouvrier juif avant la création du
 « Bund le « Bund » et son activité, ses rapports avec le
 Re. parti Social-Démocratique russe; le Sionisme; conclusion;
-5 VzapimIR KoroLENKo.— La maison numéro 13; — traduit
+VzapimIR KoroLENKo.— La maison numéro 13; — traduit
 Ft: par Elie Éberlin; Elie Éberlin, Vladimir Korolenko;
 Treisième cahier de la sixième série, un cahier jaune de
 EE. 72 pages, grand jésus, bon à tirer du mardi 21 mars 1905
@@ -206,8 +202,7 @@ Ce sixième cahier de cette septième série paraît à
 huitaine et non pas à quinzaine. Les auteurs de ce
 cahier, les éditeurs des documents qui y voient pour la
 première fois le jour, me demandaient de n'en point
-retarder plus longtemps la publication. Ils avaient raiï-
-son. De telles révélations n'attendent pas. Les régularités administratives doivent céder devant de telles
+retarder plus longtemps la publication. Ils avaient raiïson. De telles révélations n'attendent pas. Les régularités administratives doivent céder devant de telles
 exigences. Songeons qu'il y a ici des voix qui portent
 témoignage et qu'un système tyrannique avait voulu
 étouffer dans un définitif silence.
@@ -243,14 +238,11 @@ le régime institué, dans l'Afrique centrale, par le
 4 souverain de l'État du Congo, et appliqué par ses agents
 4 ouses associés; et il faut enfin que je le dise: à l'amer_ tume que j'éprouve du torrent d'injures déversé contre
 moi par les bureaux de l'administration centrale de ce
-F. singulier État, se mêle un étrange sentiment de recon_ naissance. Non seulement ces calomnies, qui outra-
-geaient parfois la décence la plus élémentaire, n'ont pas
+F. singulier État, se mêle un étrange sentiment de recon_ naissance. Non seulement ces calomnies, qui outrageaient parfois la décence la plus élémentaire, n'ont pas
 À le résultat cherché par leurs auteurs, mais par leur
 exagération même elles m'ont attiré de précieuses sym-
-… pathies, où je n'en attendais guère. Dans la con-
-fiance de mes amis connus et inconnus, j'ai puisé des
-. forces nouvelles. Je ne puis que leur exprimer chaleu-
-reusement ma gratitude.
+… pathies, où je n'en attendais guère. Dans la confiance de mes amis connus et inconnus, j'ai puisé des
+. forces nouvelles. Je ne puis que leur exprimer chaleureusement ma gratitude.
 Vous êtes un de ceux qui n'ont jamais douté de la
 4 4 sincérité de mes motifs, et, dans les moments d'abatte_ ments vous avez trouver des paroles généreuses,
 …._ quoique vous hésitassiez, je pense, dans les premiers
@@ -269,8 +261,7 @@ que ces abus sont commis (comme, en somme, ils doi-
 à vent bien l'être) par des individus, blancs ou noirs. Ce
 qu'il faut démontrer, c'est que ces abus résultent fata-.
 lement de l'exercice des obligations auxquelles sont
-assujettis les indigènes. Les pages qui suivent con-
-tiennent de nombreux et navrants exemples de crimes,
+assujettis les indigènes. Les pages qui suivent contiennent de nombreux et navrants exemples de crimes,
 systématiquement commis, et dont le régime en vigueur
 est cause. Certes, pour fixer en premier lieu l'attention
 d'hommes sensibles aux sentiments de justice et d'humanité sur les conséquences de tel ou tel régime, il est
@@ -292,8 +283,7 @@ en son temps et constitue une accumulation de charges
 terribles telles qu'aucun gouvernement, sauf peut-être la
 Turquie (et encore!) n'en a jamais dresser contre lui.
 . Si l'on s'en est ému d'abord et principalement en Angleterre, cela provient de plusieurs circonstances » bien naturelles. Le public anglais suit les questions
-coloniales avec une attention toute particulière; l'in-
-fluence philanthropique et l'influence commerciale en
+coloniales avec une attention toute particulière; l'influence philanthropique et l'influence commerciale en
 . Angleterre ont contribué puissamment en 1884-1885 à
 - vaincre l'opposition que le gouvernement anglais de
 cette époque faisait au roi Léopold. Une place, dès ce
@@ -319,8 +309,7 @@ D. en 1903 et 1904; les jugements des tribunaux de Boma dans les
 et ainsi de suite.
 
 questions congolaises. La Société Anglaise pour la pro-:
-tection des indigènes possède, heureusement, un secré-
-taire dévoué et zélé dans la personne de mon ami
+tection des indigènes possède, heureusement, un secrétaire dévoué et zélé dans la personne de mon ami
 M. H.-R. Foxe-Bourne; enfin, et c'est à l'honneur de
 l'Angleterre, il s'est trouvé parmi nous des hommes
 politiques et des gens de lettres qui ont travaillé et
@@ -339,16 +328,14 @@ même ceux qui affectent de n'y voir qu'une hypocrisie
 s'émut d'abord contre le maintien du commerce des
 esclaves. C'est chez nous que la conscience publique
 s'émeut de plus en plus aujourd'hui contre la réapparition de ce commerce sous d'autres formes, avec des formules différentes et des étiquettes propres au temps où
-nous vivons, telles que « régénération morale et maté-
-rielle « exploitation rationnelle « fainéantise de
+nous vivons, telles que « régénération morale et matérielle « exploitation rationnelle « fainéantise de
 l'Africain etc.
 D'ailleurs, ce n'est pas seulement chez nous que les
 événements du Congo ont suscité des protestations. A
 deux reprises, récemment, le Sénat des États-Unis
 d'Amérique a été saisi de pétitions signées par un grand
 
-nombre d'Américains bien connus, pétitions où le gou-
-vernement américain (le premier à reconnaître, jadis, le
+nombre d'Américains bien connus, pétitions où le gouvernement américain (le premier à reconnaître, jadis, le
 
 drapeau de l'Association Internationale, qui devint
 ensuite l'État libre du Congo) est prié de s'intéresser
@@ -377,17 +364,14 @@ En Italie, le débat récent à la Chambre italienne, les
 : 10 (1) Que l'on s'imagine au commencement du vingtième siècle de
 Père chrétienne le premier ministre d'un pays civilisé déclarer que
 les indigènes « n'ont droit à rien; ce qu'on leur donne est une
-2 véritable gratification »: M. de Smet de Naeyer, dans les débats
+2 véritable gratification M. de Smet de Naeyer, dans les débats
 
-rapport du docteur Baccari, le refus du gouvernementita-
-lien de permettre de nouveaux engagements pour la force
+rapport du docteur Baccari, le refus du gouvernementitalien de permettre de nouveaux engagements pour la force
 publique de l'État du Congo, etc., prouvent que, malgré
 tous les efforts du souverain de cet État, on commence,
 en Italie aussi, à se rendre compte de ce qu'est, en
 vérité, la nature de ce soi-disant État.
-Autant saute-t-il aux yeux que les atrocités congo-
-laises, par leur nombre, leur existence à l'état endé-
-mique, la ressemblance des circonstances dans lesquelles à
+Autant saute-t-il aux yeux que les atrocités congolaises, par leur nombre, leur existence à l'état endémique, la ressemblance des circonstances dans lesquelles à
 elles se commettent, ne peuvent être causées que par un
 vice fondamental de régime; autant doit-il apparaître à
 tout homme de bon sens qu'il n'est vraiment pas intelligent de chercher à expliquer un mouvement qui, chézUue
@@ -409,18 +393,14 @@ anglaises n'aient pas combattu avec plus d'opinià-
 (1) Hambourg et Brême.
 
 A treté l'interprétation léopoldienne de l'Acte de Berlin.;
-. Elles se sont contentées en fait d'une simple protesta-
-tion, et il est vraiment risible de lire ce que les journaux:
+. Elles se sont contentées en fait d'une simple protestation, et il est vraiment risible de lire ce que les journaux:
 … belges, obéissant il faut bien le croire à un mot d'ordre,
 
 ont publié à ce sujet... surtout quand on songe que le;
 président de la Chambre de commerce de Liverpool est
 à la fois le consul de l'État du Congo en cette ville,
-larmateur dont les vaisseaux (sous le nom de Compa-
-
-gnie belge maritime du Congo) sont employés par
-. l'État pour le transport de ses passagers et de ses marchandises, et l'unique défenseur en Angleterre, possé-
-dant quelque influence, de la politique de l'État, ce qui
+larmateur dont les vaisseaux (sous le nom de Compagnie belge maritime du Congo) sont employés par
+. l'État pour le transport de ses passagers et de ses marchandises, et l'unique défenseur en Angleterre, possédant quelque influence, de la politique de l'État, ce qui
 4 d'ailleurs se comprend, étant donné les circonstances.
 
 En ce qui concerne les soi-disantes visées politiques de
@@ -461,8 +441,7 @@ Sud au seizième siècle? Il s'agit d'abord de convaincre
 l'opinion publique, dans tous les pays dont les gouvernements participèrent à la création de l'État du Congo,
 de la réalité de ces horreurs. J'espère que ce Cahier
 saura porter la conviction en France partout où il sera
-lu, et s'il en est ainsi je suis persuadé que l'âme géné-
-reuse de la France se révoltera contre de pareilles abominations, qu'il surgira des hommes animés de sentiments humains pour développer et étendre cette
+lu, et s'il en est ainsi je suis persuadé que l'âme généreuse de la France se révoltera contre de pareilles abominations, qu'il surgira des hommes animés de sentiments humains pour développer et étendre cette
 
 ! première tentative dont l'honneur vous revient, et
 à laquelle vous voulez bien me permettre de participer.
@@ -521,16 +500,14 @@ et la race autochtone, rend précisément dans la pratique ces lois inapplicable
 lesquels elles ont été ostensiblement créées; alors que
 la nature des devoirs qu'impose le système à ses serviteurs est en contradiction formelle avec l'esprit aussi
 bien que la lettre de ces lois; alors que, — conséquence
-inévitable d'une telle contradiction, — ces lois, impuné-
-ment violées par ces dirigeants supérieurs, ne sont invoquées que contre les agents subalternes, et ne le sont
+inévitable d'une telle contradiction, — ces lois, impunément violées par ces dirigeants supérieurs, ne sont invoquées que contre les agents subalternes, et ne le sont
 pour ainsi dire jamais sans une pression externe; alors
 enfin que les peines prononcées contre certains de ces
 agents subalternes ne sont jamais subies.
 Toute la politique de l'État du Congo est basée sur
 l'exploitation du sol pour le compte, soit du roi souverain dans la région dite « Domaine de la Couronne (x)
 soit de l'Administration elle-même dans la région dite
-« Domaine Privé (2) soit des soi-disantes « Sociétés com-
-merciales » dans les concessions octroyées par l'État, et
+« Domaine Privé (2) soit des soi-disantes « Sociétés commerciales » dans les concessions octroyées par l'État, et
 (1) Dont les revenus ne sont pas versés au Budget.
 (2) Dont les revenus ne sont publiés qu'en forme d'évaluation
 hypothétique. C'est ainsi, par exemple, qu'en 1899, alors que la
@@ -568,12 +545,8 @@ du Il ne m'est possible ici que d'indiquer brièvement le
 à Patne cHproNidne den opposée à celle qui
 avait prévalu jusqu'alors ».
 
-Une nation, si elle tient à faire œuvre utile et perma-
-nente, n'a qu'une politique à suivre dans l'Afrique tropi-
-cale pour s'acquérir les richesses de ce pays, et créer
-en même temps un courant d'affaires favorable aux in-
-dustriels de la mère-patrie. C'est une politique écono-
-mique commerciale. Une politique économique commerciale ne veut pas dire nécessairement une politique de
+Une nation, si elle tient à faire œuvre utile et permanente, n'a qu'une politique à suivre dans l'Afrique tropicale pour s'acquérir les richesses de ce pays, et créer
+en même temps un courant d'affaires favorable aux industriels de la mère-patrie. C'est une politique économique commerciale. Une politique économique commerciale ne veut pas dire nécessairement une politique de
 libre échange. Le libre échange et la protection sont;
 nés de divergences de vues entre économistes. Dans
 l'Afrique tropicale la question se résout à ceci, — savoir
@@ -609,8 +582,7 @@ de s'attarder à l'exposition d'un fait aussi vulgaire.
 
 La politique léopoldienne est l'antithèse de l'autre.
 Elle a été poursuivie avec ténacité, et elle a apporté
-aux dirigeants de cette politique des revenus colos-
-saux, que le système de développement commercial,
+aux dirigeants de cette politique des revenus colossaux, que le système de développement commercial,
 EL: où l''indigène se trouve être l'associé de l'Européen,
 : ne donnera et ne pourra jamais donner. Mais ces revenus colossaux ne sont acquis qu'à force d'outrages et
 de violences sans fin, et leur acquisition est la ruine
@@ -629,16 +601,13 @@ soit pour ce mystérieux « État soit pour les disantes « Sociétés » placé
 les lianes de caoutchouc et qu'habitent les indigènes qui en
 récoltent le latex.
 
-toise, car, en vérité, appliquée avec zèle, rendue pos-
-sible pratiquement par une armée indigène très nom-
-breuse, elle aboutit à l'assujettissement de toute une
+toise, car, en vérité, appliquée avec zèle, rendue possible pratiquement par une armée indigène très nombreuse, elle aboutit à l'assujettissement de toute une
 race au plus dur esclavage, à un régime sous lequel,
 comme l'a dit, sans une nuance même d'exagération, un
 des orateurs de la Chambre belge, « toute la population
 est organisée en vastes troupeaux d'esclaves travaillant
-sous l'empire de la menace et de la contrainte »: régime (4
-sous lequel la population disparaît. Comment en serait-
-il autrement?;
+sous l'empire de la menace et de la contrainte régime (4
+sous lequel la population disparaît. Comment en seraitil autrement?;
 
 « Le droit d'imposer des contributions est un droit
 dont disposent les États chantent en chœur les défenseurs du régime léopoldien. Qui le conteste? Mais où
@@ -675,8 +644,7 @@ a écrits, cependant si abondants sur cette question, une À
 qu'il y a des Belges qui ont assassiné, et torturé, au
 Congo; les tribunaux de Boma le constatent. J'ai dit
 que les hommes d'État belges qui accusent d'antipatriotisme ceux de leurs compatriotes qui ont cherché
-à faire la lumière sur le régime congolais, et dé-
-clarent en même temps que l'État du Congo, auquel
+à faire la lumière sur le régime congolais, et déclarent en même temps que l'État du Congo, auquel
 la Belgique a prêté ses millions, est « un état étranger
 4 — font preuve de piètre courage ou de piètre logique.
 J'ai dit que les paroles telles que « les indigènes n'ont
@@ -686,12 +654,9 @@ droït à rien » (1) et bien d'autres encore sont compa1 rables à celles dont 
 
 loin, Cette nation a un bandeau posé étroitement sur
 les yeux. Il tombera un jour sans doute. Je pense qu'il
-en résultera des conséquences dynastiques et écono-
-
-miques d'une portée considérable. Économiquement,
+en résultera des conséquences dynastiques et économiques d'une portée considérable. Économiquement,
 l'État du Congo, dont on vante à un peuple qui ignore À )
-les choses d'Afrique presque complètement, « le magni-
-fique essor économique marche droit à la ruine. On y
+les choses d'Afrique presque complètement, « le magnifique essor économique marche droit à la ruine. On y
 tue la poule aux œufs d'or, et, — comme le dit Mark
 Twain, — en la tuant, on tue les œufs qu'elle aurait ‘fi
 pondus si on ne l'avait pas tuée! Loin de désirer pour
@@ -753,11 +718,9 @@ Il admet que le système de travail forcé adopté
 jusqu'ici a donné lieu à des abus formidables. À
 Il admet l'existence d'innombrables atrocités.
 Il admet que l'indigène, — forcé à la récolte du À
-caoutchouc, passe ses jours dans une « existence misé-
-rable dans les conditions où on l'y oblige.
+caoutchouc, passe ses jours dans une « existence misérable dans les conditions où on l'y oblige.
 Il admet que le système des camps d'ôtage, créés
-pour forcer les populations à produire, est de règle ordi-
-naire, et que les indigènes dans ces prisons sont mal;
+pour forcer les populations à produire, est de règle ordinaire, et que les indigènes dans ces prisons sont mal;
 nourris, souvent mal traités, et meurent.
 Il admet que de graves abus ont été commis dans
 VAdministration de la Justice.:
@@ -800,12 +763,10 @@ l'Administration de la justice, le rapport omet d'en
 omet d'expliquer comment le lieutenant Mazy, auteur
 À des massacres dénoncés à la Commission par le sionnaire Weeks (dénonciation prouvée exacte par
 1 l'enquête Grenade) a s'embarquer pour l'Europe par
-ordre supérieur. Il omet d'expliquer comment le com-
-missaire général Mardulier, dont la responsabilité
+ordre supérieur. Il omet d'expliquer comment le commissaire général Mardulier, dont la responsabilité
 morale était engagée dans cette affaire, a en faire
 +4 autant. Il omet d'expliquer comment la Commission a
-1 laissé partir pour l'Europe M. Albert Longtain, direc-
-teur de l'A. B. I. R. en Afrique, alors que des atrocités
+1 laissé partir pour l'Europe M. Albert Longtain, directeur de l'A. B. I. R. en Afrique, alors que des atrocités
 sans nom ont été commises par ses agents blancs ou
 4 noirs contre les indigènes. Il omet de dire comment la
 Commission a laissé partir pour l'Europe M. Spéllier,
@@ -845,15 +806,13 @@ politique du roi, et cette politique, — la politique de confs. trainte, — es
 l'Afrique centrale sans des abus incessants. Fermer les
 yeux devant l'évidence est faire œuvre de théoriciens.
 À Le colonel Thys vient de se déclarer nettement contre
-- cette politique à laquelle il a été forcé depuis l'inaugu-
-ration du régime Léopoldien 1891-1892. Je ne puis'
+- cette politique à laquelle il a été forcé depuis l'inauguration du régime Léopoldien 1891-1892. Je ne puis'
 É malheureusement, avec les connaissances que j'ai,
 déclarer droits et justes, les procédés employés par la
 É Société anonyme belge dans la haute Bousira et ailleurs
 4 pendant ces dernières années. Quoiqu''ils n'aient jamais
 il l'Anversoise; mais en se déclarant pour la politique
-économique commerciale, contre la politique écono-
-mique de contrainte, le colonel Thys a cent fois raison.
+économique commerciale, contre la politique économique de contrainte, le colonel Thys a cent fois raison.
 É Finalement, le rapport néglige entièrement le côté
 financier de la question. En parlant des résultats acquis,
 — 80 steamers, belles stations aménagées, bureaux
@@ -907,8 +866,7 @@ mettre notre confiance dans la conduite future d'un
 Gouvernement, dont la politique, dans les treize dernières années, est mise à même par la Commission
 qu'il a nommée, et dont le dirigeant suprême, en
 Afrique actuellement, a lui-même violé la loi en autorisant une société, soi-disant commerciale, à faire des
-otages. Après toutes les dénégations des années écou-
-lées, après toutes ces promesses de réformes, qui n'ont
+otages. Après toutes les dénégations des années écoulées, après toutes ces promesses de réformes, qui n'ont
 
 jamais été tenues, après toute cette hécatombe de vies,
 sciemment sacrifiées au Moloch de la cupidité cynique,
@@ -916,14 +874,11 @@ sciemment sacrifiées au Moloch de la cupidité cynique,
 blanche sans contrôle aucun aux coupables eux_ mêmes! à
 Pour ma part, je refuse d'admettre une telle argumen-
 
-( Il ne faut pas que le Congo fran-
-çais devienne une nouvelle galla. ai
+( Il ne faut pas que le Congo français devienne une nouvelle galla. ai
 
-(Dernières paroles de Savor-
-gnan de Brazza, rapportées y
+(Dernières paroles de Savorgnan de Brazza, rapportées y
 4 par Félicien Challaye, 25 sep-
-Avant d'expliquer le sens et la valeur des témoi-
-gnages que nous publions, il est indispensable que je
+Avant d'expliquer le sens et la valeur des témoignages que nous publions, il est indispensable que je
 dise, en quelques mots, dans quel esprit est rédigé ce
 : Il n'y a guère, en France, que deux façons d'envisager
 ce qu'on est convenu, dans les discours parlementaires,
@@ -950,8 +905,7 @@ hasard il en est qui ne sont ni des saints, ni des héros,
 eh bien, nous ne voulons pas qu'on le dise!
 Nous connaissons très bien les pauvres gens qui
 ; tiennent ce langage. Ce sont les mêmes qui crurent que
-c'était compromettre l'honneur de toute l'armée fran-
-çaise, que de laisser supposer un instant qu'un conseil
+c'était compromettre l'honneur de toute l'armée française, que de laisser supposer un instant qu'un conseil
 de guerre avait de fort bonne foi se tromper. Hor-
 ï rible danger des généralisations à la française! Pour
 s'être refusés à une enquête rapide et impartiale sur un
@@ -963,27 +917,21 @@ s'avère aux colonies, il en de même: ils laissent les
 colonies livrées aux lâches et aux bêtes.
 En face de ces nationalistes coloniaux se dressent les
 socialistes. Leur opinion est aussi simpliste, aussi
-fausse, aussi insoutenable. Ils ne veulent pas decoloni-
-sation. Leur raison profonde, je crois, en est que « qui
-terre guerre a » surtout quand ces terres sont loin-
-taines, peuplées par des races difficiles à gouverner, de
+fausse, aussi insoutenable. Ils ne veulent pas decolonisation. Leur raison profonde, je crois, en est que « qui
+terre guerre a » surtout quand ces terres sont lointaines, peuplées par des races difficiles à gouverner, de
 civilisation élevée, mais différente; ou qui, vivant de la
 guerre, soit pour faire des esclaves, soit pour manger
 ; leurs semblables, — c'est le cas au Congo, — se révolk
 tent contre une règle qui gêne ces habitudes; ou quand
 
-on se trouve en compétition avec un autre État qui dé-
-sire également ces terres. la guerre extérieure, colo-
-ù niale ou non, absorbant les forces de la nation, réveil-
-lant son patriotisme, — écrivons, si vous voulez, « une
+on se trouve en compétition avec un autre État qui désire également ces terres. la guerre extérieure, colo-
+ù niale ou non, absorbant les forces de la nation, réveillant son patriotisme, — écrivons, si vous voulez, « une
 
 à vieille forme de patriotisme — l'empêche de penser
 
 aux problèmes de politique sociale. Quelques-uns diront
 même: à la guerre civile, considérée comme nécessaire
-pour abattre la société capitaliste. Ajoutez qu'à exploi-
-
-ter dés terres ou des races neuves, une nation gagne
+pour abattre la société capitaliste. Ajoutez qu'à exploiter dés terres ou des races neuves, une nation gagne
 
 de l'argent, et alors se soucie assez peu de changer
 d'organisation politique ou sociale; et c'est peut-être
@@ -1019,18 +967,13 @@ On a toujours « colonisé » depuis l'âge de la pierre,
 
 ne s'en trouve guère, par bateau à vapeur, à plus de
 
-trente-cinq jours, qu'on empêchera les hommes de Mar-
-
-seille d'aller visiter les hommes de cet autre point du
+trente-cinq jours, qu'on empêchera les hommes de Marseille d'aller visiter les hommes de cet autre point du
 globe, et de s'établir chez eux, si cela leur plaît! Et du
 moment qu'on ne peut les empêcher de s'y établir, il;
 faut qu'ils y puissent vivre en tranquillité et en prospé-
 : rité. Il faut qu'ils soient garantis, eux et leurs biens, À
-contre l'assassinat ou le vol. Nous trouverions mons-
-trueux que l'État français refusât ces garanties à l'Alle-
-mand qui vient résider sur notre territoire, ou seulement y commercer. Il serait également monstrueux À
-qu'un noir ou un jaune nous les refusât. Et il est natu-
-rel que nous cherchions à nous procurer, chez ce noir
+contre l'assassinat ou le vol. Nous trouverions monstrueux que l'État français refusât ces garanties à l'Allemand qui vient résider sur notre territoire, ou seulement y commercer. Il serait également monstrueux À
+qu'un noir ou un jaune nous les refusât. Et il est naturel que nous cherchions à nous procurer, chez ce noir
 ou ce jaune, en payant un juste prix, les objets.
 qu'exigent nos besoins, différents des leurs, ou plus
 nombreux. Et même, parlant aux collectivistes, il est 7 …
@@ -1044,7 +987,7 @@ pour leurs transactions, et il est nécessaire que l'État à
 dont ils sont citoyens crée cette sécurité si elle fait
 défaut. Voilà pourquoi la colonisation, et même la
 colonisation administrative, est un phénomène naturel!
-Je regrette d'avoir à l'expliquer; mais il paraît, à!
+Je regrette d'avoir à l'expliquer; mais il paraît,
 lire certains écrits, que cela n'était pas inutile.
 Comme tous les phénomènes naturels, la colonisation
 produit de bons et de mauvais effets. C'est un phéno- À
@@ -1122,9 +1065,7 @@ individus isolés ou affolés, et qui finissent toujours par.
 . ( Au point de vue des rapports entre les deux races en pré-
 ? sence. Au point de vue financier, le travail forcé, c'est-à-dire le
 
-à rétablissement de l'esclavage, a donné, momentanément, des résul-
-
-être châtiés, plus ou moins sévèrement, mais de cen
+à rétablissement de l'esclavage, a donné, momentanément, des résulêtre châtiés, plus ou moins sévèrement, mais de cen
 taines d'agents qui ne peuvent pas faire autrement, qui à
 sont automatiquement forcés à l'assassinat par le
 régime commercial et administratif même dont ils sont
@@ -1155,7 +1096,7 @@ a l'Afrique équatoriale. Or, le premier chapitre de l''Acte
 4 de Berlin consacre le principe de la liberté commerciale
 es dans le bassin du Congo. Il disait formellement: « Il
 ne pourra être concédé ni monopole, ni privilège d'auLA cune espèce en matière commerciale. »
-1 De plus, l'article 9 stipule expressément:
+De plus, l'article 9 stipule expressément:
 à Les puissances qui exercent des droits souverains ou une
 influence dans le territoire formant le bassin conventionnel
 15 du Congo déclarent que ce territoire ne doit servir ni de
@@ -1172,8 +1113,7 @@ ne Un autre article interdit de vendre des armes à feu
 sont déclarés « domaine privé » ou « domaine de la coude ronne » de cet État qui s'arroge seul le droit d'en ré-
 ; colter tous les produits, soit par lui-même, soit par
 . l'intermédiaire de sociétés dans lesquelles il a de puis-
-À sants intérêts. Voilà ce qu'est devenue la liberté com-
-merciale. Mais de cela, je ne parlerais même pas, si à
+À sants intérêts. Voilà ce qu'est devenue la liberté commerciale. Mais de cela, je ne parlerais même pas, si à
 Or, de juillet à décembre 1903, dans une seule factorerie de
 VAbir, on a compté 10.900 cartouches d'Albini, 18.000 charges de
 ! fusil à capsule, 128 fusils à capsule, et 8 Albinis.
@@ -1208,9 +1148,7 @@ paix, non pas en état de guerre, plusieurs milliers de
 
 noirs, on en met en prison d'autres milliers; des régions
 
-entières sont désertées, les habitants de nombreux vil-
-
-lages fuient dans la forêt, où ils meurent de faim, — ce
+entières sont désertées, les habitants de nombreux villages fuient dans la forêt, où ils meurent de faim, — ce
 
 n'est pas une figure: ils meurent, — etles femmes ne font
 
@@ -1268,8 +1206,7 @@ faut même ajouter une chose: le système d'exploitation
 inventé par le roi Léopold est meurtrier pour l'indigène
 et contraire à l'humanité, mais il est admirablement
 conçu; il donne provisoirement le maximum de rendement, en et en morts. Le Congo léopoldien est plus
-qu'un grand crime, c'est une immense et affreuse tragé-
-die. Mais la façon dont la France s'est reprise, après 1850,
+qu'un grand crime, c'est une immense et affreuse tragédie. Mais la façon dont la France s'est reprise, après 1850,
 l'esprit de suite qu'elle a montré dans son œuvre de
 réparation militaire, sont également dignes d'être admirés, et sans qu'il faille faire les mêmes restrictions: il
 n'en est pas moins vrai que les patriotes fort sincères,
@@ -1278,8 +1215,7 @@ n'en est pas moins vrai que les patriotes fort sincères,
 à commirent une lourde faute. Et on l'a bien vu! De
 ; même quand les Belges ne veulent pas reconnaître, par
 É un patriotisme mal placé, que le roi des Belges, ses fonc-
-; tionnaires, et les agents de certaines compagnies privi-
-légiées, ont laissé commettre et fait commettre, dans
+; tionnaires, et les agents de certaines compagnies privilégiées, ont laissé commettre et fait commettre, dans
 
 un délire de lucre, des crimes qui révoltent l'humanité,
 
@@ -1299,9 +1235,7 @@ affreux de la politique commerciale de l'État Indépen-
 
 2 dant. Les défenseurs de l'État en ont pris raison pour
 
-!. prétendre que l'Angleterre versait des larmes de cro-
-
-ce codile, que les négociants de Liverpool n'avaient
+!. prétendre que l'Angleterre versait des larmes de croce codile, que les négociants de Liverpool n'avaient
 
 d'autre objet que de faire supprimer par une nouvelle
 
@@ -1380,8 +1314,7 @@ caoutchouc; et l'on dit qu'il tint parole!
 des faits aussi graves, et cette fois celui qui parlait était un
 missionnaire baptiste, d'origine norvégienne, dont il n'y a
 aucune raison de soupçonner la véracité. Il avait, disait-il,
-traversé quarante-cinq villages incendiés, vingt-huit aban-
-donnés, il avait des cadavres flottant au fil de l'eau, ou
+traversé quarante-cinq villages incendiés, vingt-huit abandonnés, il avait des cadavres flottant au fil de l'eau, ou
 gisant au bord des chemins, la main droite coupée. C'étaient
 
 les victimes de la levée de l'impôt. En février 1895, tandis
@@ -1402,13 +1335,9 @@ coupa, pourtant, on la fuma, et elle fut placée sur un trone
 
 d'arbre, avec quatre autres, pour servir d'avertissement aux se
 
-indigènes. Parfois, dans le village de la mission, des émis-
+indigènes. Parfois, dans le village de la mission, des émissaires passaient, avec des mains boucanées, qui étaient
 
-saires passaient, avec des mains boucanées, qui étaient
-
-présentées au commissaire, avec le caoutchouc. Le 14 décem-
-
-bre 1895, une sentinelle amena une femme qui avait été
+présentées au commissaire, avec le caoutchouc. Le 14 décembre 1895, une sentinelle amena une femme qui avait été
 
 capturée, et forcée de porter dans un panier dix-huit mains +0
 
@@ -1438,9 +1367,7 @@ la mémoire de ces premiers crimes. Il y a trop d'horreurs! VAS
 
 Mais il faut d'abord comprendre l'économie, si:
 
-l'on peut ainsi parler, du régime commercial et admi-
-
-nistratif du Haut-Congo, se rendre compte que dans
+l'on peut ainsi parler, du régime commercial et administratif du Haut-Congo, se rendre compte que dans
 
 cette région, grande comme trois ou quatre fois la
 
@@ -1453,10 +1380,9 @@ qu'on leur donne doit être considéré comme un don
 gratuit. Tous ces territoires sont considérés comme
 1; terres vacantes, — les indigènes ne pouvant réclamer
 que le sol occupé par leurs villages et leurs cul-
-à; tures. (1) Tout le reste, c'est-à-dire en pratique la tota-
-lité, est traité en tant que terre vacante, res nullius,
+tures. (1) Tout le reste, c'est-à-dire en pratique la totalité, est traité en tant que terre vacante, res nullius,
 comme appartenant, à l'État, c'est-à-dire au roi. Cela
-à, constitue soit le Domaine privé, soit le Domaine de la
+constitue soit le Domaine privé, soit le Domaine de la
 . Couronne. Il en administre une partie directement, et
 À a concédé le reste à des sociétés dont il est le principal.
 1 actionnaire. Il possède la moitié des actions de l'Abir,
@@ -1471,15 +1397,13 @@ de caoutchouc par tête d'adulte. Et pour que les indigènes accomplissent cette
 le droit d'entretenir un très grand nombre de soldats,
 ï appelés gardes forestiers, armés de fusils, recrutés
 parmi les races les plus sauvages du Congo, et souvent À
-anthropophages. Ce régime, qui accorde à une Compa-
-gnie privée le droit d'avoir une armée, droit qui ne À
+anthropophages. Ce régime, qui accorde à une Compagnie privée le droit d'avoir une armée, droit qui ne À
 devrait appartenir qu'à l'Etat, entraîne les plus mons-;
 Quelques-uns sont avoués par des circulaires même
 des directeurs de la Société. Le premier soin de ces
 (1) Et cela seulement en théorie, trop souvent: les villages de
 Barengo et de Loungounda ont été détruits pour y planter des KL:
-lianes à caoutchouc. Les terres du village d'Irébou ont été confis-
-quées pour y créer un camp militaire, etc.
+lianes à caoutchouc. Les terres du village d'Irébou ont été confisquées pour y créer un camp militaire, etc.
 
 soldats est de se procurer des femmes. Voilà ce
 qu'avoue une circulaire:
@@ -1490,13 +1414,11 @@ rentrer chez eux avec plusieurs femmes; on m'en signale "4
 même qui en ont emmené cinq et six. Il y a des abus qui;
 doivent cesser de suite.;
 En effet, il est hors de doute qu'un garde ne peut gagner
-en un an de quoi acheter cinq femmes. Donc ils se les pro-
-curent par le vol ou la menace, et certains agents ont la
+en un an de quoi acheter cinq femmes. Donc ils se les procurent par le vol ou la menace, et certains agents ont la
 faiblesse de légitimer la possession de ces malheureuses en DRE
 donnant aux coupables des feuilles de route régulières.
 Je prie donc messieurs les Agents de s'opposer dorénavant
-à ce que les noirs à leur service achètent des femmes pen-
-dant la durée de leur engagement.
+à ce que les noirs à leur service achètent des femmes pendant la durée de leur engagement.
 Il sera fait mention au verso de l'engagement du nombre
 de femmes que possède l'engagé à son entrée au service du
 blanc et l'on tiendra la main à ce qu'il n'y ait plus fraude.
@@ -1521,13 +1443,11 @@ férable que les blancs, au Congo, possédassent des
 à cinquante ans les planteurs d'Amérique. Ces esclaves
 avaient une valeur marchande, comme un bœuf ou un
 âne, on avait des raisons pour ne pas les molester qu'à la mort. Ici, il y a plus.
-à Le roi Léopold et les sociétés dont il est le princi-
-pal actionnaire possèdent le sol, les produits de ce sol,
+à Le roi Léopold et les sociétés dont il est le principal actionnaire possèdent le sol, les produits de ce sol,
 : et par conséquent les indigènes qui vivent sur le sol.
 C'est toute la population qui est esclave! Ils n'ont même À
 à pas payé pour l'avoir; ils ont purement et simplement
-à décidé qu'elle était à eux, ils l'ont prise: elle doit tra-
-vailler pour eux. Dans certains cas, il faut dix ou douze
+à décidé qu'elle était à eux, ils l'ont prise: elle doit travailler pour eux. Dans certains cas, il faut dix ou douze
 : jours à chaque indigène pour recueillir les deux ou;
 é trois kilogrammes exigés de lui chaque quinzaine. Il
 doit de plus approvisionner le poste européen et les
@@ -1584,8 +1504,7 @@ seulement les femmes. Vous ne tuez pas les hommes.
 à IL faut prouver que vous tuez les hommes. Alors,
 ; les soldats nous ont tués, et (ici le noir hésita, puis mon-
 ; trant les parties sexuelles du chien de M. Casement pour-
-) suivit ils ont coupé ces choses aux morts, et les ont por-
-tées aux blancs, qui dirent: « Oui, c'est vrai, vous avez tué
+) suivit ils ont coupé ces choses aux morts, et les ont portées aux blancs, qui dirent: « Oui, c'est vrai, vous avez tué
 aussi des hommes. »
 Demande.— Voulez-vous dire que des blancs ont ordonné
 ces mutilations?
@@ -1596,15 +1515,12 @@ ainsi mutilés après leur mort?
 lisez, lisez les témoignages que nous publions. Vous y
 verrez comment, après avoir tué sept hommes, dont un
 chef, un agent blanc vendit le corps de ce chef à un
-parent qui venait le réclamer pour lui faire des funé-
-railles. Vous y verrez comment on tue trente personnes
+parent qui venait le réclamer pour lui faire des funérailles. Vous y verrez comment on tue trente personnes
 dans un seul village sans défense parce qu'il n'a fourni
 que 140 paniers de caoutchouc. Vous y verrez comment
 dans une autre expédition, les cannibalès, soldats au
 service d'un blanc, mangèrent les morts, et « parèrent »
-les cases avec des diaphragmes et des intestins hu-
-
-mains, comme on fait chez les bouchers. Vous y verrez
+les cases avec des diaphragmes et des intestins humains, comme on fait chez les bouchers. Vous y verrez
 comment on tue des femmes en leur enfonçant un épieu
 
 dans le ventre à travers les parties sexuelles. Lisez
@@ -1616,11 +1532,9 @@ On demandera dans quels bagnes, ou dans quelle
 école de garde-chiourmes, l'État indépendant du Congo:
 recrute ses agents. Il y a en France un cliché qui sert à
 tout expliquer, précisément parce que, les trois quarts
-du temps, il ne signifie rien: c'est un cas de folie spé-
-ciale africaine, dans l'espèce, de « congolite dit-on.
+du temps, il ne signifie rien: c'est un cas de folie spéciale africaine, dans l'espèce, de « congolite dit-on.
 C'est une erreur. Les agents de l'État sont des Belges,
-des Français, des Allemands, des Norvégiens, des Sué-
-dois, des Anglais, des Italiens; et une fois revenus en
+des Français, des Allemands, des Norvégiens, des Suédois, des Anglais, des Italiens; et une fois revenus en
 Europe ce seront de très braves gens, et d'excellents
 pères de famille. Et si dans quelques années vous leur
 parlez de ces horreurs, ils vous répondront, étonnés:
@@ -1635,9 +1549,7 @@ M. Vandervelde en Belgique, le nom fallacieux de prime
 pour le développement économique de leurs régions.
 Ils tuent donc pour vivre, et assurer leur aisance future.
 J'ajoute que ces faits se passent partout dans le Congo
-où il y a du caoutchouc, dans le domaine privé du roi-
-
-souverain comme dans le domaine de la Couronne, où
+où il y a du caoutchouc, dans le domaine privé du roisouverain comme dans le domaine de la Couronne, où
 se trouvent les grandes compagnies derrière lesquelles À
 ; se dissimule la personnalité financière de Léopold II.
 L'opinion anglaise finit par s'émouvoir. Les partisans À
@@ -1654,14 +1566,12 @@ ne guerre du Transvaal. Mais la question n'est pas de sa- à
 voir si l'Angleterre en a fait autant, la question est de
 savoir si oui ou non, il s'est commis, sur le territoire de À
 l'État indépendant, les actes qu'on dénonce.
-A l'unanimité la Chambre des Communes d'Angle-
-terre vota une motion signalant ces faits à l'attention
+A l'unanimité la Chambre des Communes d'Angleterre vota une motion signalant ces faits à l'attention
 du ministre du Foreign Office, le marquis de Lansdowne. Une série de notes furent alors échangées entre
 celui-ci ou ses agents, et le gouvernement de l'État In- À
 dépendant. Le Foreign Office insista sur ce point:
 « qu'une enquête absolument impartiale et minutieuse
-füt faite sur l'état actuel des affaires dans les terri-
-toires du Congo ».
+füt faite sur l'état actuel des affaires dans les territoires du Congo ».
 Dans une communication postérieure adressée parlui
 qu'un grand service à rendre à la cause de l'humanité à
 
@@ -1693,14 +1603,11 @@ Article 2, — Sont nommés pour faire partie de cette com-
 Il sera pourvu par notre Secrétaire d'État à la nomination
 du secrétaire de la commission..
 Article 3. — Il est conféré par la présente disposition, aux
-membres de la commission, agissant collectivement ou in-
-dividuellement, les pouvoirs attribués par la loi aux offi62:
+membres de la commission, agissant collectivement ou individuellement, les pouvoirs attribués par la loi aux offi62:
 
-ciers du Ministère public, à l'effet d'entendre tous les témoi-
-gnages utiles à la manifestation de la vérité, dresser …
+ciers du Ministère public, à l'effet d'entendre tous les témoignages utiles à la manifestation de la vérité, dresser …
 procès-verbaux des dépositions et saisir, le cas échéant, les
-tribunaux des faits délictueux qui seraient relevés par l'en-
-quête. La commission prendra, conformément aux lois, les:
+tribunaux des faits délictueux qui seraient relevés par l'enquête. La commission prendra, conformément aux lois, les:
 mesures qu'elle jugera nécessaires pour que les témoignages
 se produisent en toute liberté et déférera aux tribunaux
 tout acte ou tentative de subornation de témoin, ou toute
@@ -1710,15 +1617,13 @@ documents administratifs ou judiciaires se rapportant à
 l'objet de sa mission et qu'elle jugerait utiles à ses investi-
 Article 4. — En cas d'empêchement de l'un des membres,
 l'enquête se continuera valablement par les deux autrés
-: Article 5. — Il sera fait par la Commission à Notre Secré-
-taire d'Etat rapport sur ses opérations et les résultats deses »
+: Article 5. — Il sera fait par la Commission à Notre Secrétaire d'Etat rapport sur ses opérations et les résultats deses »
 travaux, en signalant éventuellement les améliorations
 utiles, et en formulant, au cas où l'enquête aurait constaté …
 des abus, les propositions sur les meilleurs modes
 mettre fin, en vue du bon gouvernement des territoires et
 du bien-être de leurs habitants.
-Article 6. — Notre Secrétaire d'État est chargé de l'exécu-
-tion du présent décret.:
+Article 6. — Notre Secrétaire d'État est chargé de l'exécution du présent décret.:
 Donné à Bruxelles, le 23 juillet 1904.
 Les membres de la commission portaient des noms les
 plus honorables. C'étaient le baron Nisco, haut fonc-w
@@ -1728,15 +1633,12 @@ suisse très distingué. Mais on avait essayé de restreindre de telle sorte les
 fat sans danger. L'enquête « devait être dirigée conformément aux instructions du secrétaire d'État ». Celui-ci
 
 pouvait donc la limiter. De plus « les pouvoirs de la
-commission étaient ceux conférés par la loi au minis-
-tère public ». Or, d'après la loi belge du 27 avril 1889, le
-ministère public exerce sa mission sous la haute sur-
-veillance du directeur de la justice, et il ne connaît que
+commission étaient ceux conférés par la loi au ministère public ». Or, d'après la loi belge du 27 avril 1889, le
+ministère public exerce sa mission sous la haute surveillance du directeur de la justice, et il ne connaît que
 des faits délictueux. L'instruction est secrète et non à
 Il résultait de ce second paragraphe que l'enquête
 porterait sur les faits délictueux qu'on ferait (peut-être)
-connaître aux commissaires, mais non pas sur les mé-
-thodes administratives dont ces faits délictueux étaient
+connaître aux commissaires, mais non pas sur les méthodes administratives dont ces faits délictueux étaient
 la conséquence. Et l'on ne promettait même pas la
 publication de l'enquête!
 Un honnête homme s'émut en Belgique, M. A.-J. Wauters, directeur du Mouvement géographique. Il avait
@@ -1771,13 +1673,11 @@ avons publiées dans notre numéro du 24 juillet. Or, il saute
 aux yeux, à la simple lecture de ce décret, qu'il organise
 1 lenquête dans des conditions différant sensiblement de
 celles que nous avons d'abord indiquées, d'après des ren
-seignements pourtant autorisés. L'explication de cette diver-
-gence est fort simple. Le gouvernement du Congo paraît-
+seignements pourtant autorisés. L'explication de cette divergence est fort simple. Le gouvernement du Congo paraît-
 ; il, jusqu'au dernier moment, hésité entre deux partis à
 Deux projets avaient été préparés. L'un organisait une
 enquête large, publique, contradictoire et définitive, des-
-4 tinée à établir aux yeux du monde la fausseté des accusa-
-tions portées contre l'administration congolaise. L'autre ne
+4 tinée à établir aux yeux du monde la fausseté des accusations portées contre l'administration congolaise. L'autre ne
 prévoyait qu'une enquête plus restreinte et tout autre dans
 son but. Les préférences ont finalement été à ce dernier
 Le projet d'enquête à l'usage externe a été écarté. Le décret
@@ -1790,8 +1690,7 @@ Les pouvoirs conférés à la commission sont ceux
 qui sont attribués par la loi aux officiers du ministère
 
 Le premier principe a été inscrit au décret pour marquer,
-en termes nets, la dépendance de la commission, sa subor-
-dination au pouvoir exécutif. Le gouvernement a visible-
+en termes nets, la dépendance de la commission, sa subordination au pouvoir exécutif. Le gouvernement a visible-
 ; ment voulu écarter toute équivoque à ce point de vue. La
 commission n'est point autonome. Sa compétence, le cercle
 de son activité, l'ordre et la nature de ses opérations, la
@@ -1826,8 +1725,7 @@ Le cadre de l'activité de la commission, tel qu'il vient
 à La commission fera rapport au secrétaire d'Etat sur ses
 
 opérations. La publication complète des procès-verbaux de
-la commission n'est pas ordonnée. La publication du rapport de la commission n'est même pas certaine. Le secré-
-taire d'État appréciera librement s'il conviendra de le publier
+la commission n'est pas ordonnée. La publication du rapport de la commission n'est même pas certaine. Le secrétaire d'État appréciera librement s'il conviendra de le publier
 Les observations que nous venons de faire montrent
 clairement que l'enquête sur la situation des indigènes, à
 décrétée par l'État du Congo, n'est pas destinée à apaiser
@@ -1877,13 +1775,11 @@ deux le corps d'un petit enfant et empalé les deux
 1 anglaise a empêché les journaux et les brochures d'en
 - parler autrement qu'avec mystère. J'ai écrit à M. Morel
 - pour lui dire qu'en France nous pourrions être moins
-"3 réservés. Voici ce qu'il m'a répondu, — et peut-être est-
-il bon de citer ce passage de sa lettre. Il est d'un tel
+"3 réservés. Voici ce qu'il m'a répondu, — et peut-être estil bon de citer ce passage de sa lettre. Il est d'un tel
 à ton, d'un tel élan qu'il est difficile de croire, après
 lavoir entendu, qu'on puisse s'abuser sur la sincérité
 … d'un tel homme:
-Vous avez parfaitement raison, — nous sommes des hypo-
-crites, dans ce pays. Moi il me plairait de lire à une audience
+Vous avez parfaitement raison, — nous sommes des hypocrites, dans ce pays. Moi il me plairait de lire à une audience
 …. de mille femmes, rien que des femmes, les pires horreurs
 
 ne Pierre Mille
@@ -1896,7 +1792,7 @@ Ces faits, qu'on n'ose pas citer en anglais, les voici:
 La communication en est due à M. Padfield:
 On a inventé, ici, comme dans d'autres villes, pour …
 amuser des gardes-forestiers dont j'ai les noms, ona.
-; inventé de donner l'inceste en spectacle. Lokougiavecsa «; sœur Lokomo; Lokila avec sa fille Egiré.;
+; inventé de donner l'inceste en spectacle. Lokougiavecsa sœur Lokomo; Lokila avec sa fille Egiré.;
 Imenenga, une jeune femme, a été liée à un arbre
 fourchu, et coupée en deux, à petits coups de hachetté,
 depuis l'épaule gauche jusqu'à la poitrine et au ventre. « Elle n'avait pas voulu se livrer aux gardes. Une autre
@@ -1914,10 +1810,7 @@ l'agent européen leur donna ordre de se mettre nues et
 choisit celle qu'il préférait. Elle est maintenant atteinte
 d'une maladie qu'il lui a donnée.
 Des femmes, à Mampoko, foulaient de l'argile pour
-faire des briques. En présence de l'Européen, les gardes-
-forestiers les mirent nues, puis leur emplirent les par-
-
-ties sexuelles avec l'argile qu'elles avaient battue.
+faire des briques. En présence de l'Européen, les gardesforestiers les mirent nues, puis leur emplirent les parties sexuelles avec l'argile qu'elles avaient battue.
 
 Elles allèrent se plaindre au blanc. Il n'en fit que rire
 
@@ -1947,9 +1840,7 @@ compte du régime commercial et administratif imposé
 … fait autant. Ce n'est pas vrai, parce que c'est impos-
 
 - sible! Et quand ce serait vrai, ce ne serait pas une
-excuse. On cite, dans ce sens, les rapports de « voya-
-
-geurs impartiaux. » Qu'ont ces voyageurs, qui n'ont » fait que passer? Ils n'ont voir que ce qu'on leur
+excuse. On cite, dans ce sens, les rapports de « voyageurs impartiaux. » Qu'ont ces voyageurs, qui n'ont » fait que passer? Ils n'ont voir que ce qu'on leur
 
 3% montrait. Que vaut, après tout, leur témoignage, en
 
@@ -1969,20 +1860,16 @@ que ce qui se passe partout, dans toutes les colonies;
 quant à la lettre de M. Harris, ajoute-t-il avec mépris,
 il n'y faut attacher aucune importance, car elle est
 Il n'y a qu'un malheur, c'est que le docteur Polidori
-n'a visité que le Katanga et qu'il n'y a guère de caout-
-chouc dans le Katanga, partant pas d'exploitation de
+n'a visité que le Katanga et qu'il n'y a guère de caoutchouc dans le Katanga, partant pas d'exploitation de
 ï lindigène pour recueillir du caoutchouc. Quant aux
 « termes vagues » de la lettre Harris, il s'agit de la
 lettre qui rapporte ce qui s'est passé à l'audience où
 à plusieurs chefs noirs étalèrent devant la commission
 À des baguettes et des feuilles, représentant chacune un
-homme, une femme, un enfant massacré, dont ils don-
-nèrent les noms. Si ce sont des termes vagues, je
+homme, une femme, un enfant massacré, dont ils donnèrent les noms. Si ce sont des termes vagues, je
 demande ce qu'on appelle précision!
 Il faut résumer et conclure. Si ces faits sont rares,
-insignifiants, excusables, si l'administration commer-
-
-ciale du Congo,même en dehors des territoires concédés
+insignifiants, excusables, si l'administration commerciale du Congo,même en dehors des territoires concédés
 aux sociétés, est sans reproche, alors qu'on réponde
 aux questions suivantes:
 plus de trente agents incarcérés dans les prisons de
@@ -2016,7 +1903,7 @@ pi, sions. Mais les dépositions? On les a supprimées.
 à En attendant que le gouvernement du Congo léopolRech dien avoue, — il n'a pas autre chose à faire, — je vais
 répondre à presque toutes ces questions:
 
-0 On a incarcéré ces agents parce qu'ils étaient cou-
+On a incarcéré ces agents parce qu'ils étaient cou-
 ‘8% pables, et on a laissé fuir la plupart parce qu'ils ont
 prouvé qu'ils avaient agi par ordre.
 
@@ -2036,7 +1923,7 @@ publie ce Cahier!
 
 Je n'ai plus que quelques mots à ajouter. Il faut tirer
 le bassin conventionnel du Congo, — le Congo belge et
-À! le Congo français, — de cette abominable situation.
+le Congo français, — de cette abominable situation.
 ; Je ne parle même pas d'humanité. Mais on les ruine!
 Quand il n'y aura plus dans ces immenses territoires, ni
 un homme, ni une liane à caoutchouc, qu'en fera-t-on?
@@ -2052,7 +1939,7 @@ France, sila Belgique, après le roi Léopold, renonçait À
 à garder le Congo. Préemption veut dire obligation de
 4 payer. La France n'a ni l'argent ni le désir qu'il faudrait.
 
-4 Je ne parle pas non plus d'un partage entre la France,
+Je ne parle pas non plus d'un partage entre la France,
 
 8 l'Angleterre, le Portugal et l'Allemagne. Au point de
 
@@ -2084,9 +1971,7 @@ Mais pour l'instant, tout ce qui n'a pas été concédé,
 
 4 c'est-à-dire le domaine du roi-souverain, doit être rendu
 
-:8 à la libre concurrence commerciale. Ce qui à été con-
-
-cédé doit être restitué à la liberté commerciale à l'expi-
+:8 à la libre concurrence commerciale. Ce qui à été concédé doit être restitué à la liberté commerciale à l'expi-
 
 0 ration des concessions. Les concessionnaires et les à
 
@@ -2108,7 +1993,7 @@ M. « vacantes ». On n'aura pas le droit de les forcer à les
 ; recueillir. Ils ne devront qu'un impôt en argent, impôt
 À minimum, ne dépassant pas deux francs par tête, et par
 an, comme dans notre Afrique Occidentale française.
-:; Les sociétés concessionnaires conserveront, jusqu'à
+Les sociétés concessionnaires conserveront, jusqu'à
 l'expiration de leur contrat, le monopole d'acheter ce
 : que les indigènes auront récolté, non pas celui de leur
 : vendre seules des marchandises, qu'elles s'arrogent
@@ -2152,12 +2037,10 @@ M.Grenfell, qui a souvent été cité comme étant en faveur
 du régime actuel, supposition basée probablement sur des
 
 1 le Congo léopoldien
-BEL assertions qu'il fit il y a plusieurs années, avant de con-
-
-naître personnellement l'état de choses dans le Haut-Congo,
+BEL assertions qu'il fit il y a plusieurs années, avant de connaître personnellement l'état de choses dans le Haut-Congo,
 AS dit aux commissaires qu'il était fort désappointé de ce
 . que le gouvernement congolais eût manqué aux promesses
-à: par lesquelles il avait inauguré sa carrière. Il déclara qu'il
+par lesquelles il avait inauguré sa carrière. Il déclara qu'il
 A ne pouvait plus porter la décoration que le souverain du
 Congo lui avait remise. Selon son opinion, les malheurs
 "Fes accablant la contrée étaient causés par la hâte que certaines
@@ -2178,8 +2061,7 @@ emporté par la Commission. M. Scrivener présenta nombre
 es de témoins indigènes pour prouver ses assertions.
 Quelques-uns de ces témoins avaient déjà comparu devant
 (1) Les dépositions hoc de M. Harris, à Baringa (concession
-B. I. R.), et de M. Scrivener, ont été publiées. Les témoins pré-
-sentés par M. Scrivener au procès du lieutenant Massard furent
+B. I. R.), et de M. Scrivener, ont été publiées. Les témoins présentés par M. Scrivener au procès du lieutenant Massard furent
 envoyés à Boma en décembre 1904. Le 10 mai 1905, ils métaient pas
 44 encore rentrés dans leurs foyers. Des témoins envoyés de Boma à
 Baringa, — à un millier de milles de distance, — en août 1904, ne
@@ -2189,8 +2071,7 @@ Baringa, — à un millier de milles de distance, — en août 1904, ne
 plutôt devoir contrecarrer que d'aider le fonctionnement de la
 4 (2) Par E. D. Morel. W. Heinemann, éditeur, 20, Bedford Street,
 
-un officier judiciaire envoyé à Bolobo par suite des révéla-
-tions de la West African Mail. “CARE
+un officier judiciaire envoyé à Bolobo par suite des révélations de la West African Mail. “CARE
 Getofficier prit note des dépositions de M. Scrivener (voir
 pour la première fois. Le lieutenant Massard, un des
 à employés du Domaine de la Couronne, impliqué dans cette de!
@@ -2308,8 +2189,7 @@ Stanley Pool et du district du Lac Léopold fàt en harmoIR nie avec les divisio
 On éviterait ainsi certaines particularités qui paraissent
 des anomalies. On voit certains villages de Mpama obligés
 de porter du caoutchouc à Mbongo tandis que les autres
-villages de la même tribu doivent porter les vivres à Louko-
-lela; il en est quelques-uns (ceux qui sont aux environs de
+villages de la même tribu doivent porter les vivres à Loukolela; il en est quelques-uns (ceux qui sont aux environs de
 DUT Mbondo et de Bonginda) qui sont obligés de fournir à la
 fois et des vivres à Loukolela et du caoutchouc à Mbongo.
 La raison de ce fait est, je crois, que les territoires de
@@ -2351,8 +2231,7 @@ ordres, des indigènes qu'il tuait au moment où ils appor-:
 taient le caoutchouc, ou qu'il faisait placer à la file les uns
 des autres pour les tuer d'un coup de fusil.
 Dooms était aimé, et venant après Massard, il était
-considéré comme très bon. Il était cependant extrême-
-mentstrict, on peut même dire méticuleux; il avait beau_ coup d'ordre et de ponctualité et il en exigeait autant des
+considéré comme très bon. Il était cependant extrêmementstrict, on peut même dire méticuleux; il avait beau_ coup d'ordre et de ponctualité et il en exigeait autant des
 Grâce a sa manière d'agir, il en était arrivé à recueillir
 . une quantité de caoutchouc supérieure à celle de Massard,
 et le caoutchouc était de meilleure qualité. Il savait encou-
@@ -2374,9 +2253,7 @@ d'hui on leur demande moins de travail et qu'on les paie
 Fe! Après lecture, le témoin ajoute: « J'ai manifesté ma surEL À prise à M. Dooms de ce qu'il n'avait pas révélé à la justice
 les faits dont il m'avait entretenu. Il m'a répondu qu'il n'y
 
-avait aucune utilité à le faire maintenant et qu'il dénonce-
-
-rait les faits quand il rentrerait en Belgique. Il m'a aussi
+avait aucune utilité à le faire maintenant et qu'il dénoncerait les faits quand il rentrerait en Belgique. Il m'a aussi
 
 fait part de son désir de quitter le service de l'État pour
 
@@ -2405,7 +2282,7 @@ ne Nkouabalé a faire la guerre à cause du caoutchouc,
 au étant exposés sur des cordes. à
 Ni Wengé, divers massacres, etc., à Ngongo.
 
-4 C'est-à-dire depuis les révélations de M. Scrivener et leur
+C'est-à-dire depuis les révélations de M. Scrivener et leur
 publication dans la West African Mail.
 
 Nkoi, divers massacres, etc., à Ngongo. NAT
@@ -2440,9 +2317,7 @@ directeur en Afrique de cette compagnie a été prié de se À
 . mettre à la disposition des autorités judiciaires à Boma. (1)
 La région Ikélemba semble avoir été, à certains endroits,
 … exploitée par l'État, ainsi que par diverses Sociétés. M. Ca-
-sement a décrit, dans son rapport, les conditions exis-
-
-tantes sur le territoire de la Société de la Loulanga.
+sement a décrit, dans son rapport, les conditions existantes sur le territoire de la Société de la Loulanga.
 Gi-dessous une partie de la déposition de M. Gilchrist:
 
 … On me demanda de dire tout ce que je savais au sujet de
@@ -2492,8 +2367,7 @@ Réponse. — 1) La maladie du sommeil. Ce n'est pas une
 ; épidémie dans notre district. Il n'y a que des cas isolés.
 À 2) La petite vérole. Très peu en sont morts.
 3) La position peu assurée des indigènes. Les vieillards
-n'ont pas assez de confiance pour bâtir leurs maisons solide-
-ment. S'ils soupçonnent l'arrivée d'un canot ou d'un steamer
+n'ont pas assez de confiance pour bâtir leurs maisons solidement. S'ils soupçonnent l'arrivée d'un canot ou d'un steamer
 4 contenant des soldats, ils s'enfuient.
 4 4) Les maladies de poitrine, pneumonie, ete, qui en
 4 emportent beaucoup. Les indigènes se réfugient dans les
@@ -2512,8 +2386,7 @@ perception des impôts de l'Etat, après quoi il ne restait aux
 À indigènes que des feuilles à manger.
 D. — Est-ce que le manioc n'est pas suffisant pour les
 R. — Non, à lui seul, il est insuffisant.
-adressée aux autorités à Boma, et demanda si les représen1 tations qui y étaient faites se rapportaient à des cas excep-
-tionnels ou à toute la région.)
+adressée aux autorités à Boma, et demanda si les représen1 tations qui y étaient faites se rapportaient à des cas exceptionnels ou à toute la région.)
 R. — A toute la région.
 D. — Est-ce que les impôts sont trop lourds?
 
@@ -2556,8 +2429,7 @@ ce qui par cela même augmentait la population?
 . R. — Il faut vous souvenir que s'ils achetaient des
 4 esclaves, ils en vendaient aussi, ce qui égalisait les choses.: ce
 Quant à Ouala, la peuplade allait autrefois à la chasse, She
-maintenant il lui fauts'occuper des impôts. A cette époque-
-là, ils avaient de la chair d'éléphant à manger et à vendre. Y
+maintenant il lui fauts'occuper des impôts. A cette époquelà, ils avaient de la chair d'éléphant à manger et à vendre. Y
 Une autre chose qui peut causer ou expliquer la dépo__ pulation, cest que l'impôt est perpétuel. Cela aigrit le À
 peuple. La population se sent privée de tout intérêt per-;
 D. — Y a-t-il des villages ou des villes qui soient exemptés:
@@ -2599,7 +2471,7 @@ R. — Une amende de 40.000 mitakos, dont Ouala dut payer
 D. — Avez-vous le rapport de M. Casement?
 D.— Vous confirmez ce rapport en tant qu'il traite de
 Ouala et des environs?
-1 D. — Avez-vous quelque chose à suggérer?
+D. — Avez-vous quelque chose à suggérer?
 R. — Le système est encore en force dans les plantations
 '. de café, On laisse les graines tomber à terre, ce qui rend le «
 A labeur des indigènes inutile. À
@@ -2634,8 +2506,7 @@ visité la scène de ces atrocités.
 S'avoue incapable de confirmer les lettres de M. Bond
 qui parurent dans la West African Mail, se rapportant aux
 atrocités commises sur le haut-fleuve, n'ayant pas accompagné M. Bond à cette occasion. Il dit avoir fréquemment
-entendu les indigènes en parler et cita les noms des vil-
-lages et offrit d'envoyer chercher des témoins pour dé-
+entendu les indigènes en parler et cita les noms des villages et offrit d'envoyer chercher des témoins pour dé-
 Territoire: Concession de la Société A.B.LR. (1)
 ; Comme introduction aux témoignages de MM. Harris et
 À Stannard, le lecteur fera bien de se rappeler les faits sui-;
@@ -2650,32 +2521,27 @@ Congo a exercé une juridiction sur la Société A.B.ILR. Le
 Gouvernement pendant tout ce temps, été porteur de la
 moitié des actions de la Société. Le Gouvernement au
 ; bescin, mis à la disposition de l'A.B.I.R. ses troupes sta-
-Pendant toutes ces années, le Gouvernement a con-
-naissance du fait que l'A.B.LR. a fait la traite, autrement
+Pendant toutes ces années, le Gouvernement a connaissance du fait que l'A.B.LR. a fait la traite, autrement
 dit, a forcé les indigènes, — l'A.B.LR. est, de nom, une;
 société commerciale, — à apporter des quantités fixes de
 À caoutchouc, sous peine d'incarcération comme ôtages. Le;
 1 gouverneur-général a autorisé la « prise d'ôtages » par la
-À Société A.B.LR., afin d'augmenter le rendement du caout-
-chouc, coutume qui a été, — et il en est de même aujourd'hui,
+À Société A.B.LR., afin d'augmenter le rendement du caoutchouc, coutume qui a été, — et il en est de même aujourd'hui,
 À Le Gouvernement a été pendant toutes ces années en
 : possession de renseignements complets sur la vaste quantité
 : de cartouches et de munitions importées par la Société, et À
 qui ont été transportées par les steamers de l'État.
 Le Gouvernement pendant toutes ces années, pleine
 : connaissance du nombre de fusils Albini et de fusils à
-capsules, possédés par la Société, pour lesquels le Gouver-
-nement du Congo exige un permis. À
+capsules, possédés par la Société, pour lesquels le Gouvernement du Congo exige un permis. À
 Le Gouvernement, ayant alloué une concession à la
-Société, lui a permis, de plus, d'exploiter certains terri-
-toires du Domaine Privé, situés en dehors de la dite con-;
+Société, lui a permis, de plus, d'exploiter certains territoires du Domaine Privé, situés en dehors de la dite con-;
 Le Comité d'administration de la Société A.B.LR. com-
 A prend les personnages suivants: président, M. A. Van den
 Nest, Sénateur; conseil, M. le comte Jean d'Oultremont,
 : Grand Maréchal de la Cour de Belgique; M. le baron Dhanis,!
 (1) Voir les révélations au cours du procès de M. Van Caelcken, à
-6 en décembre 1904; les témoignages devant la Commission den-
-quête; les témoignages de M. Ruskin devant le substitut Rossi
+6 en décembre 1904; les témoignages devant la Commission denquête; les témoignages de M. Ruskin devant le substitut Rossi
 en 1902, dont le rapport ne fut pas publié par l'Etat; les circulaires
 
 ex-Gouverneur Général de l'État du Congo; M. Edmond Si
@@ -2688,8 +2554,7 @@ enfants, après quoi je fis remarquer à la Commission la
 destruction du village de Baringa et la famine partielle qui
 en fut la conséquence. Nous mentionnämes que des hommes,
 3 des femmes et des enfants avaient été emprisonnés pour les
-forcer à créer une plantation de caoutchouc sur l'emplace-
-ment de leur ancien village, et que deux hommes avaient
+forcer à créer une plantation de caoutchouc sur l'emplacement de leur ancien village, et que deux hommes avaient
 4 été tués durant le travail. Puis vinrent les irrégularités de
 1903, l'expédition menée par un agent de l'A.B.IR. contre
 : Samb'ékota et l'armement continuel des sentinelles de;
@@ -2700,7 +2565,7 @@ d'Isékéfasou, le principal chef de Bolima, dont les soldats ont
 É enfants, décorant ensuite sa maison avec les intestins,
 ne le foie et le cœur de quelques-uns de ces derniers, selon
 4 le récit de « Veritas » dans la West African Mail.
-Je confirmai en général la lettre publiée par « Veritas »:
+Je confirmai en général la lettre publiée par « Veritas
 4 dans la West African Mail.
 “4 Ensuite, j'en arrivai aux temps de M. Tegner et déclarai
 qu'aucun village du district n'avait échappé aux assassinats,
@@ -2712,8 +2577,7 @@ y exemples spécifiques, les fustigations publiques que subis-
 exemple, avoir de mes propres yeux six hommes de
 Ngombé recevoir cent coups de chicotte, chaque coup appli-
 …._ qué simultanément par deux sentinelles.
-- ù De plus, la condition normale a toujours été l'emprison-
-nement des hommes, femmes et enfants, tous parqués
+- ù De plus, la condition normale a toujours été l'emprisonnement des hommes, femmes et enfants, tous parqués
 
 Dis le Congo léopoldien
 10 ensemble dans un hangar, sans aucun égard pour les
@@ -2732,8 +2596,7 @@ et la perception des impôts. Nous leur avons aussi fait
 remarquer que-les meurtres et le cannibalisme des gardes-
 : forestiers n'étaient après tout qu'une exagération de leur
 ! Il fut ensuite question du transport de prisonniers, de ceux
-qui ne pouvaient ou ne voulaient pas travailler le caout-
-chouc, d'une région à l'autre de la concession de l'A. B.I.R.
+qui ne pouvaient ou ne voulaient pas travailler le caoutchouc, d'une région à l'autre de la concession de l'A. B.I.R.
 Puis, de la mutilation de la femme Baoji, parce qu'elle
 À voulait rester fidèle à son mari, et refusait de se soumettre
 aux passions des gardes-forestiers. Le pied coupé et la her-
@@ -2743,8 +2606,7 @@ récit. Elle comparut par-devant la Commission etle médecin. à
 avoir rendu visite à leurs parents et amis dans d'autres
 villages, (1) et le refus de permettre aux canots indigènes
 . de remonter ou descendre le fleuve sans un permis signé
-par l'agent de l'A. B. R.; remarquant que même les mis-
-sionnaires sont sujets à ces règlements et sont insultés À
+par l'agent de l'A. B. R.; remarquant que même les missionnaires sont sujets à ces règlements et sont insultés À
 publiquement, d'une manière impossible à exprimer, quand
 ; ils n'y font pas attention.
 J'établis ensuite la responsabilité et soutins que LE sx-
@@ -2771,8 +2633,7 @@ Après cela, nous parlâmes des difficultés rencontrées par
 comble lorsque madame Harris et moi courûmes le risque
 de perdre la vie pour avoir osé nous opposer aux massacres
 commis par Van Caelcken.
-Il fut aussi déclaré qu'il était impossible de séparer l'atti-
-tude de l'État, nous refusant de nouveaux emplacements,
+Il fut aussi déclaré qu'il était impossible de séparer l'attitude de l'État, nous refusant de nouveaux emplacements,
 de notre action condamnant l'administration. Je dis ensuite
 4 que le caoutchouc était épuisé dans les forêts, et que dans
 une tournée de cinq jours dans les forêts, je ne vis pas une
@@ -2807,7 +2668,7 @@ calomnies contre le Congo belge! À
 dont chacune représentait une vie sacrifiée pour le caout-;
 6 chouc. « Voici des baguettes de chefs, voilà des baguettes
 d'hommes: celles-ci, plus courtes, sont des baguettes de
-: femmes; et les toutes petites sont des baguettes d'enfants. »;
+: femmes; et les toutes petites sont des baguettes d'enfants.
 : donne les noms par vingtaines, mais demande la permis- À
 sion d'appeler son fils pour aider sa mémoire. Cependant
 : les Commissaires sont satisfaits de lui, de ce qu'il dit la!
@@ -2820,8 +2681,7 @@ une autre ville. Comme on lui demandait s'il n'avait pas tué
 , gens avaient percé de lances trois esclaves d'une sentinelle.
 Il raconte comment le Blanc lui a fait la guerre, et après la
 bataille, lui avait montré les cadavres de ses hommes en
-disant: « Maintenant tu vas apporter du caoutchouc, n'est-
-ce pas? » A quoi il répondit, « Oui. » Les cadavres furent
+disant: « Maintenant tu vas apporter du caoutchouc, n'estce pas? » A quoi il répondit, « Oui. » Les cadavres furent
 À découpés et mangés par les combattants de M. Forcie. IL
 dit aussi qu'il avait reçu la chicotte et avait été emprisonné pot
 
@@ -2885,8 +2745,7 @@ trict pour le caoutchouc, et que je puis le prouver par des
 multitudes de témoins. » Et quel spectacle pour madame
 
 PEL French-Sheldon, Sir Alfred Jones, Lord Mountmorres, Ni
-M. Head, etleurs adhérents qui nous ont traités de « men-
-teurs et qualifiés de tous les adjectifs qu'ils pouvaient
+M. Head, etleurs adhérents qui nous ont traités de « menteurs et qualifiés de tous les adjectifs qu'ils pouvaient
 
 Témoignage de M. Stannard À
 
@@ -2896,9 +2755,7 @@ y furent présents. Nous eùmes toute facilité de témoigner,
 
 de poser des questions, et de faire comparaître des témoins.
 
-est vrai qu'on n'examina qu'un petit nombre de ces der-
-
-niers, simplement parce que la Commission trouva que les
+est vrai qu'on n'examina qu'un petit nombre de ces derniers, simplement parce que la Commission trouva que les
 
 accusations contre l'A. B. I. R. étaient entièrement fondées.
 
@@ -2950,15 +2807,13 @@ Je parlerai de la manière dont. les gardes-forestiers à
 RATE recrutent les indigènes chargés d'aller à la cueillette du
 caoutchouc, surtout dans la tribu de Nsoungamboiza, mais
 4 en notant que ceci s'appliquait aussi aux tribus des autres
-districts. Tous les quinze jours on les amenaït de leurs vil-
-lages, situés à trente ou quarante milles de la station de
+districts. Tous les quinze jours on les amenaït de leurs villages, situés à trente ou quarante milles de la station de
 nie PA.B.LR. à Bongandanga. En route ils passaient devant la
 : station de la Mission. Ils étaient précédés de cinq ou six
 . gardes, marchant au pas militaire, le fusil en bandoulière.
 Puis venaient de nombreux prisonniers attachés par le cou,
 puis les porteurs de caoutchouc, jeunes et vieux, encadrés
-par des soldats, puis enfin une arrière-garde de soldats pres-
-sant les retardataires. Il y avait en moyenne 250 porteurs nul
+par des soldats, puis enfin une arrière-garde de soldats pressant les retardataires. Il y avait en moyenne 250 porteurs nul
 de caoutchouc venant de ces villages, ressemblant à
 méprendre à une chaîne de prisonniers. Entre la Mission et
 VA.B.IR. le sentier est large, et c'est que les hommes
@@ -2975,16 +2830,13 @@ chez moi. Je demandai chaque fois aux indigènes quelle en
 était la cause, et la réponse fut: le caoutchouc.
 C'est l'État qui a donné à l'A.B.LR. le pouvoir qui rend
 possible cet état de choses. À
-. Je parlai des rares visites d'un oflicier judiciaire au ter-
-
-ritoire de l'A.B.LR. Les seules dont je puisse me souvenir
+. Je parlai des rares visites d'un oflicier judiciaire au territoire de l'A.B.LR. Les seules dont je puisse me souvenir
 furent celles du juge Rossi, vers le commencement de 1902,
 et les visites récentes du juge Bosco. (1)
 Quand un officier de police vient à la Concession, c'est.:
 généralement à la requête de l'A.B.L.R., pour régler quelque
 palabre, et naturellement on ne lui laisse voir que ce que!
-lon veut. En général c'est parce que les indigènes n'apportent pas assez de caoutchouc, ou bien parce qu'un garde-
-forestier a été tué. On ne lui dit rien des difficultés qu'ont
+lon veut. En général c'est parce que les indigènes n'apportent pas assez de caoutchouc, ou bien parce qu'un gardeforestier a été tué. On ne lui dit rien des difficultés qu'ont
 les indigènes pour récolter le caoutchouc; des mauvais traitements dont ils sont l'objet, et du fait probable que la sentinelle a sans doute tué nombre de gens. Personne ne prend
 leur parti, à eux. Quand l'officier de police arrive avec ses
 soldats, le peuple croit que c'est pour combattre contre eux,
@@ -3014,18 +2866,14 @@ A.B.IR. sous la loi congolaise en 1898, et aucun de ces juges
 : FRA le Congo léopoldien
 Dia 4) Que les indigènes devraient travailler surtout dans
 leur propre intérêt, tout en payant leurs impôts.
-Quant aux dépositions des indigènes devant la Commis-
-rar ï sion il est impossible d'en donner plus de deux ou trois #4
+Quant aux dépositions des indigènes devant la Commisrar ï sion il est impossible d'en donner plus de deux ou trois #4
 exemples; mais, en tant qu'elles prouvaient les accusa-
-DEL tions portées contre l'État, elles étaient absolument acca-
-blantes, soit par le nombre des témoins, soit pour ce que
+DEL tions portées contre l'État, elles étaient absolument accablantes, soit par le nombre des témoins, soit pour ce que
 Si ceux-ci rapportaient. Ces témoins, venant de tous côtés,
 en étaient si nombreux que les Commissaires trouvèrent la
 
-1 tàche de les écouter trop lourde, et, de plus, inutile, puis-
-qu'ils considéraient les accusations comme archi-prouvées.
-4: M. Longtain, directeur de l''A.B.L.R., qui était présent, inter-
-rogé sur ce qu'il avait à dire, fut obligé de s'avouer inca-
+1 tàche de les écouter trop lourde, et, de plus, inutile, puisqu'ils considéraient les accusations comme archi-prouvées.
+4: M. Longtain, directeur de l''A.B.L.R., qui était présent, interrogé sur ce qu'il avait à dire, fut obligé de s'avouer inca-
 à pable de réfuter les témoignages. (1)
 en « Les témoins d'Esanga racontèrent qu'une fois, ayant
 apporté quarante-neuf corbeïlles de caoutchouc, au lieu de
@@ -3056,8 +2904,7 @@ continuellement emprisonnés, beaucoup de gens mourant,
 
 Pendant que les hommes étaient dans la forêt récoltant le
 caoutchouc, leurs femmes étaient outragées, maltraitées ou
-enlevées par les sentinelles. D'habitude les sentinelles atta-
-quaient un village, soit la nuit, soit de grand matin, et
+enlevées par les sentinelles. D'habitude les sentinelles attaquaient un village, soit la nuit, soit de grand matin, et
 tuaient de sang-froid tous ces malheureux qui ne pouvaient
 leur résister. Leurs terreurs et leurs supplices n'ont guère (148
 être surpassés par les horreurs des incursions des
@@ -3073,8 +2920,7 @@ cent dix baguettes, chacune représentant une vie sacrifiée
 - au caoutchouc. Ces baguettes étaient de longueur différente:
 . et représentaient chefs, hommes, femmes et enfants, suivant
 la grandeur. Ce fut une histoire horrible qu'il avait à nous
-dire: massacre, mutilation, cannibalisme, et c'était claire-
-ment la vérité. Il avait du reste l'appui d'autres témoins
+dire: massacre, mutilation, cannibalisme, et c'était clairement la vérité. Il avait du reste l'appui d'autres témoins
 … oculaires. Ces crimes furent commis par ceux qui agissaient
 - sous les ordres et par la connaissance de blanes. Une fois
 . on donna de la chicotte aux gardes pour n'avoir pas tué
@@ -3082,14 +2928,10 @@ ment la vérité. Il avait du reste l'appui d'autres témoins
 assez de monde. Une autre fois, après qu'ils en eurent tué
 un grand nombre, y compris Isékéfasou, le chef suprême,
 
-. ses femmes et ses enfants, les cadavres, sauf celui d'Iséké-
-
-fasou, furent coupés en morceaux et les soldats cannibales au
+. ses femmes et ses enfants, les cadavres, sauf celui d'Isékéfasou, furent coupés en morceaux et les soldats cannibales au
 
 service de l'A.B.LR. reçurent comme rations la chair ainsi -
-4 obtenue. On suspendit les intestins à l'extérieur et à l'inté-
-
-rieur de la maison, et les tronçons d'un petit enfant qui avait
+4 obtenue. On suspendit les intestins à l'extérieur et à l'intérieur de la maison, et les tronçons d'un petit enfant qui avait
 
 . été coupé en deux furent plantés sur une pique. Après une:
 
@@ -3119,9 +2961,7 @@ A protestation contre le régime inique du caoutchouc. Voulant
 
 : récolter du caoutchouc, et refusant de subir les outrages
 0 d'une brute de sentinelle nommée Ekolonda, ce dernier Jui
-Er. tira un coup de fusil dans le ventre, ce qui lui fit une bles-
-
-sure horrible; les intestins sortaient en partie et c'est par
+Er. tira un coup de fusil dans le ventre, ce qui lui fit une blessure horrible; les intestins sortaient en partie et c'est par
 
 miracle qu'elle survécut. Les cicatrices sont très visibles et
 es la blessure a encore l'apparence d'une énorme tumeur. Elle
@@ -3160,7 +3000,7 @@ furent battus avec la chicotte, étendus sur le sol. Lui-même
 Je pourrais ajouter bien des faits, mais il me semble que
 les cas que j'ai cités sufliront à démontrer la nature des
 témoignages des indigènes et les souffrances indescriptibles
-qu'ils ont subies, depuis la fondation de l'A.B.LR. );
+qu'ils ont subies, depuis la fondation de l'A.B.LR.
 Territoire: Régions contrôlées par la Société A. B. IL.
 La Commission d'enquête arriva à Bongandanga le 17 dé-
 Témoignage de M. Ruskin
@@ -3194,8 +3034,7 @@ dont les enfants étaient nés en prison. Quelques-uns étaient
 transporter chez eux. Il y en a qui moururent en route.
 À Prisonniers mis en liberté au son de la sirène, (x) le
 À 26 septembre 1904. — J'ai neuf femmes détenues à Ba- À
-vaka pour le caoutchouc. Elles furent mises en liberté aus-
-sitôt que l'agent en fut informé. Je ne crois pas que l'agent
+vaka pour le caoutchouc. Elles furent mises en liberté aussitôt que l'agent en fut informé. Je ne crois pas que l'agent
 ait ordonné la détention de ces femmes.
 ; 1895. — J'ai visité la rivière Bolombo avant que l'A. B.I.R.
 4 ait commencé ses opérations, et y ai trouvé des villes floPs rissantes, un peuple heureux, quantité de vivres, de vo-
@@ -3204,8 +3043,7 @@ ait ordonné la détention de ces femmes.
 était fort remarquable. Les indigènes étaient terrorisés par
 les sentinelles, et dans leur frayeur perpétuelle, étaient con- À
 traints de vivre dans la forêt. À Bosinga et Eala, autrefois
-villes florissantes, je n'y pus voir une seule hutte; les ha-
-bitants étaient tous dans la forêt.
+villes florissantes, je n'y pus voir une seule hutte; les habitants étaient tous dans la forêt.
 auxquels quatre hommes avaient été attachés, nus, la tête
 rasée, pendant un jour et une nuit sans nourriture et sans
 eau. Le matin, les yeux leur sortaient de la tête, ils avaient
@@ -3235,14 +3073,11 @@ singa et huit à Eala. Comme il souffrait de la fièvre, M. Rus-;
 kin dut s'abstenir de parler sur beaucoup d'autres sujets, got
 comme il en avait l'intention. Voici la fin de sa déposition:
 « Quant au système, je n'hésite pas à le dire, il est inique
-au dernier degré, et s'il continue, il finira par dépeupler en-
-tièrement le pays. L'administration du système varie selon
+au dernier degré, et s'il continue, il finira par dépeupler entièrement le pays. L'administration du système varie selon
 ; lagent, suivant qu'il est bon ou mauvais, mais le système
 lui-même reste. D'après mes observations personnelles, je
-4 puis dire que la sentinelle peut être un homme de basse in-
-telligence et moralement corrompu; mais s'il est fort de
-À corps, réputé bravache, et propre à malmener ses sem-
-blables, il sera probablement choisi pour forcer les indi_ gènes à fournir le caoutchouc. » -
+4 puis dire que la sentinelle peut être un homme de basse intelligence et moralement corrompu; mais s'il est fort de
+À corps, réputé bravache, et propre à malmener ses semblables, il sera probablement choisi pour forcer les indi_ gènes à fournir le caoutchouc. » -
 Témoignage de M. Gamman
 4 « Après avoir prêté serment je dis que je regrettais que
 … les Commissaires ne fussent pas arrivés quelques heures
@@ -3253,7 +3088,7 @@ J'ajouti que les gens des villes éloignées étaient venus À
 ï le Congo léopoldien
 la veille, et quoique d'habitude quelques-uns passassent la
 à nuit dans un village voisin pour continuer leur chemin A
-à! le lendemain, aussitôt qu'on eut connaissance de l'approche À
+le lendemain, aussitôt qu'on eut connaissance de l'approche À
 ï de la Commission, les gardes coururent au village et for-
 ; cèrent ces gens à rentrer immédiatement chez eux. Ilen
 4 6 résulta que, lorsque j'eus appris que la Commission était
@@ -3266,10 +3101,8 @@ brousse, bien qu'ils eussent coutume de rester dans ces
 le caoutchouc. (Ces villes étant à quatre ou cinq milles.)
 À Les Commissaires me demandèrent alors si je pouvais
 4 assigner une raison à ces faits. Je répondis, qu'à mon
-1 avis, certaines personnes semblaient fort pressées de se dé-
-barrasser des témoins, et que ceux qui restaient dans le
-14 voisinage seraient intimidés et empêchés de déposer. J'ex-
-pliquai aussi que quelques-uns de nos principaux témoins
+1 avis, certaines personnes semblaient fort pressées de se débarrasser des témoins, et que ceux qui restaient dans le
+14 voisinage seraient intimidés et empêchés de déposer. J'expliquai aussi que quelques-uns de nos principaux témoins
 4 avaient été expédiés de droite et de gauche de façon à ce à
 qu'ils ne fussent pas présents; l'un d'eux ayantété appelé à
 Coquilhatville à propos d'un palabre datant d'il y a six
@@ -3280,34 +3113,27 @@ On me demanda alors s'il y avait des troubles les six
 il derniers mois, et si nous avions à nous plaindre de l'agent
 actuel, M. Delvin. Je pus dire avec plaisir qu'autant que le
 système le lui permettait, M. Delvin avait tâché d'être juste
-dans toutes ses transactions avec les indigènes. Les senti-
-nelles commettaient encore de graves abus, surtout dans
+dans toutes ses transactions avec les indigènes. Les sentinelles commettaient encore de graves abus, surtout dans
 les villes situées loin de la factorerie. Il m'avait été impos-
 . sible de me procurer des témoins des villes éloignées pour
 les raisons données ci-dessus, et il faudrait quatre jours
 pour les faire venir.
 ; Les sentinelles gardaient encore des femmes enchaînées
 2 et en prison jusqu'à ce qu'une demande exorbitante eût été
-accordée. M. Ruskin pourrait leur parler de plusieurs « A femmes ainsi liées à Bavaka, et à mon arrivée à Nsoungam-
-
-milles) quatre femmes étaient attachées pour la même rai-
-son. Lorsque je m'approchai, on les relächa, mais je vis HAE
+accordée. M. Ruskin pourrait leur parler de plusieurs « A femmes ainsi liées à Bavaka, et à mon arrivée à Nsoungammilles) quatre femmes étaient attachées pour la même raison. Lorsque je m'approchai, on les relächa, mais je vis HAE
 l'emplacement où elles avaient été liées, ainsi que la corde
 employée à cet effet. La sentinelle se nommaït Mbongedza.
 consul Casement et ce que j'en pensais. J'expliquai que
 j'étais chez moi en congé lors de la visite de M. Casement,
-mais je décrivis l'état de choses déplorable que nous trou-
-vàmes à notre retour en novembre 1903.
+mais je décrivis l'état de choses déplorable que nous trouvàmes à notre retour en novembre 1903.
 J'expliquai pourquoi nous ne pouvions plus recevoir nos:
-nous avions pris cette décision huit jours après notre arri-
-vée, c'est-à-dire vers le 20 novembre 1903. (1) Je citai la A
+nous avions pris cette décision huit jours après notre arrivée, c'est-à-dire vers le 20 novembre 1903. (1) Je citai la A
 ville de Dilangé, comme exemple de l'état de toutes les
 villes: l'impôt que les indigènes ne pouvaient payer, les
 femmes garrottées, les chèvres et les poules confisquées, le
 ; peuple terrifié, et tout cela par les ordres d'un agent de
 VA. B. IL R., M. Lejeune. Je fis comparaître comme témoins
-de ces faits Ikamba, chef de Basékoiya; Iyoké, chef de Bosi-
-léla; Iséilolé, chef de Bavaka. J'avais d'autres témoins,
+de ces faits Ikamba, chef de Basékoiya; Iyoké, chef de Bosiléla; Iséilolé, chef de Bavaka. J'avais d'autres témoins,
 mais les commissaires déposèrent qu'ils en avaient entendu A
 Ces témoins déposèrent clairement; ils furent honorablement traités, et les Commissaires nous donnèrent leur as- À
 surance, qu'en cas de persécutions à cause de ce témoignage les coupables seraient rigoureusement punis.
@@ -3325,8 +3151,7 @@ M. Casement et adressée au Gouverneur-Général. La lettre du
 1 consul est publiée dans « King Leopold's Rule Africa ».
 
 le Congo léopoldien À
-bués aux sentinelles sans que les porteurs fussent accom-
-pagnés d'un blanc. À
+bués aux sentinelles sans que les porteurs fussent accompagnés d'un blanc. À
 Je citai comme exemple le cas de M. Baelde qui envoya
 huit fusils au Ngombé, selon le rapport déjà paru.
 Je leur démontrai ensuite que le système de l'A.
@@ -3334,28 +3159,22 @@ ne reconnaissait pas les chefs indigènes. De fait, nombre de
 ces chefs sont morts, soit tués par les gardes, soit en prison.
 Je dis: « Les chefs sont privés de tout leur pouvoir, qui est
 transmis aux sentinelles armées de fusils, et malgré cela, le
-chef est responsable, et c'est lui qui est le premier à souf-
-frir si la quantité de caoutchouc est insuffisante, ou la qua-
-lité inférieure. » Je donnai des détails sur la mort de trois
+chef est responsable, et c'est lui qui est le premier à souffrir si la quantité de caoutchouc est insuffisante, ou la qualité inférieure. » Je donnai des détails sur la mort de trois
 Un enfant fut saisi par M. Lejeune, contre son gré, pour
 tigé à diverses reprises, et s'échappa. Il fut repris, attaché
-un poteau, les mains étendues au-dessus de la tête, au so-
-leil pendant un jour entier. Quelque temps après, il à
+un poteau, les mains étendues au-dessus de la tête, au soleil pendant un jour entier. Quelque temps après, il à
 s'échappa de nouveau, et cette fois se cacha si bien qu'on
 ne put le trouver. On envoya des sentinelles au village, qui
 saisirent trois femmes parentes du jeunehomme, nommées
 Boyounga, Bokokoua et Botenjou. On s'empara aussi de
 son oncle,nommé Ingolou. Ils furent amenés à la factorerie
 et emprisonnés.
-Quelques jours après, le village était en retard pour l'ac-
-quittement de ses « impôts »: — ce village devait fournir 5}
+Quelques jours après, le village était en retard pour l'acquittement de ses « impôts — ce village devait fournir 5}
 et du caoutchouc et des vivres. On saisit alors le chef,
 Nkoimpéci, qui fut mis en prison. Il tomba malade, mais
 M. Lejeune ne voulut pas le relàcher. Enfin on trouva le
-jeune garçon, et Nkoimpéci et les femmes furent mis en li-
-berté, mais Nkoimpéci mourut le même jour. Deux autres
-chefs, nommés Iséoleki et Iséotomba, de Boséki, furent re-
-lâchés en même temps. Iséoleki mourut le jour même,et
+jeune garçon, et Nkoimpéci et les femmes furent mis en liberté, mais Nkoimpéci mourut le même jour. Deux autres
+chefs, nommés Iséoleki et Iséotomba, de Boséki, furent relâchés en même temps. Iséoleki mourut le jour même,et
 Iséotomba le lendemain matin. Ils avaient tous deux été à
 emprisonnés pour cause d'insuffisance de caoutchouc.
 M. Lejeune fit alors savoir à Iyalika, père de l'enfant, qu'il
@@ -3373,8 +3192,7 @@ nourriture qui leur était donnée, et par dessus tout, la dou-
 Iyalika (père du jeune garçon) témoigna à ce sujet, et,
 quoique d'autres témoins fussent prêts à faire leur déposition, la Commission déclara que ce n'était pas nécessaire.
 Je citai ensuite un meurtre commis par les sentinelles, au
-temps de l'agent M. Baelde. A Boséki, deux sentinelles nom-
-mées Boloungia et Iséoouangala avaient lié à un arbre un
+temps de l'agent M. Baelde. A Boséki, deux sentinelles nommées Boloungia et Iséoouangala avaient lié à un arbre un
 homme nommé Iseokoko et lui avaient commandé de fournir mille mitakos. Il n'en put fournir que trois cents, ainsi
 qu'un ou deux chiens. Cela fut déclaré insuffisant, et comme
 le restant n'arrivait pas, Boloungia le tua d'un coup de fusil.
@@ -3407,8 +3225,7 @@ il fallût moins de dix jours sur quinze pour satisfaire aux
 n'étaient jamais punies, même pour les crimes les plus
 horribles. Tant que je sache, aucun garde n'a été puni;
 pour ses viles pratiques et ses abus de pouvoir, ses vols
-. de femmes et de biens, ou même ses meurtres, même prou-
-vés sans l'ombre d'un doute. En réponse à une question
+. de femmes et de biens, ou même ses meurtres, même prouvés sans l'ombre d'un doute. En réponse à une question
 du président, je dis qu'à mon avis, il était impossible de À
 ) récolter la même quantité de caoutchouc sans employer les
 gardes-forestiers, parce que cette quantité était excessive,
@@ -3453,18 +3270,15 @@ la liste. Deux autres chefs témoignèrent aussi, venant de
 villes éloignées, — Iséalelo, de Ngandou; Lokoua, de Baolongo.
 Voilà le rapport fidèle et complet de l'enquête tenue ici. « M. et madame Lower (Congo Balolo Mission) à Ikaou.
 Territoire: Régions contrôlées par la Société A.
-La Commission commença ses travaux à Ikau le 22 dé-
-cembre, et ses séances prirent fin le
+La Commission commença ses travaux à Ikau le 22 décembre, et ses séances prirent fin le
 Témoignage de M. Lower
 QIl s'agit d'abord de cas d'intimidation. Il fut prouvé
 qu'un nombre d'indigènes, désirant témoigner, avaient été
 menacés, cruellement traités, et dans certains cas empêchés
-par les gardes d'aller à Ikaou. Plus tard, au cours de l'en-
-quête, il fut aussi déclaré qu'on avait essayé de corrompre
+par les gardes d'aller à Ikaou. Plus tard, au cours de l'enquête, il fut aussi déclaré qu'on avait essayé de corrompre
 ces gens pour les empêcher de raconter les torts qu'ils
 avaient subis.
-M. Lower fut le témoin principal, et remit la liste sui-
-vante des assassinats commis dans la concession, faisant
+M. Lower fut le témoin principal, et remit la liste suivante des assassinats commis dans la concession, faisant
 comparaître de nombreux témoins indigènes pour prouver
 … les faits.
 
@@ -3480,8 +3294,7 @@ Peuavant la visite Bofungi, Mère du témoin Efufola
 , Boo fin de 1903 Nsongo
 idem idem Personne de tué, Lokilo
 mais femme du me
-née par senti-
-agent Nina, qui
+née par sentiagent Nina, qui
 cohabita avec
 elle pendant
 trois ou quatre
@@ -3585,8 +3398,7 @@ Refusa de donner des bananes aux sentinelles de en
 réclamaient, fut menacé par Bôngwalanga, et fusillé
 ngo Sentinelles envoyées par Nina au village, les habila tants s'enfuirent, laissant un garçon, Mpota, malade
 (sa femme) dans une hutte. Sentinelles le découvrirent, le jetèrent dans le feu et l'y laissérent périr.
-Caoutchouc à Bassankusu; sept hommes emRE pendant environ trois semaines.*Le dé-
-unt fut battu par les sentinelles, et après avoir été
+Caoutchouc à Bassankusu; sept hommes emRE pendant environ trois semaines.*Le déunt fut battu par les sentinelles, et après avoir été
 libéré, mourut le jour de son arrivée au village.
 (sœur) Deux hommes emprisonnés par Nina, — le défunt et
 un autre nommé Lôla. — Ce dernier s'échappa et
@@ -3656,8 +3468,7 @@ Soldats conduits dans le district par M. Hagstrom (1) TON
 de Bassankusu. Les trois adultes furent fusillés et à 2: CIRE
 1 les trois enfants écrasés.
 Lokomba Agents à Bokokata menèrent combattre les sentinelles.
-Bongena débarqua à Bokohato et pénétra dans l'inté-
-rieur avec ses soldats. Les défunts adultes eurent
+Bongena débarqua à Bokohato et pénétra dans l'intérieur avec ses soldats. Les défunts adultes eurent
 la gorge coupée, été placés en travers d'un
 tronc de bananier. deux enfants furent écrasés. L'HTER à
 
@@ -3682,8 +3493,7 @@ leur retour ils rencontrèrent le blanc à Wambala, et celui-ci « les envoya à
 Quand ils arrivèrent à ce dernier village, il ne s'y trouvait À
 pas assez de caoutchouc, et l'on y saisit deux otages. L'un
 2 de ces derniers possédait 200 mitakos (monnaie courante du
-pays) dont les sentinelles s'emparèrent, mais un des ra-
-meurs (5) essaya de rendre les mitakos à leur propriétaire.;
+pays) dont les sentinelles s'emparèrent, mais un des rameurs (5) essaya de rendre les mitakos à leur propriétaire.;
 (4) Bolinda et Loleki.
 
 Les sentinelles lui ordonnèrent de cesser et le battirent sé- HEAR
@@ -3700,20 +3510,15 @@ avril, un autre agent européen de la Société, à Boyeka
 les gens du village de Bokenysla d'apporter « ékékélé »
 c'est-à-dire de la corde employée dans la construction des:
 maisons, etc. Tous les hommes du village obéirent à cet
-ordre, à l'exception de trois, deux vieillards et le chef re-
-connu de la communauté. Plus tard, dans la même jour-
-née, la sentinelle Ebolo arriva au village et voyant un des:
+ordre, à l'exception de trois, deux vieillards et le chef reconnu de la communauté. Plus tard, dans la même journée, la sentinelle Ebolo arriva au village et voyant un des:
 vieillards, (x) lui demanda pourquoi il n'était pas venu. Il le Mer
 battit ensuite avec la chicotte, et lamena à l'agent européen ne
 à Boyeka. Celui-ci le fit mettre en prison, où il mourut AP)
 deux jours plus tard. à
-Mdwabenga, chef du village, accompagné du fils du vieil-
-lard, Bofoké, vint trouver l'agent et essaya de lui par-
-ler, mais comme il ne voulait pas les écouter, Bofoké, qui
+Mdwabenga, chef du village, accompagné du fils du vieillard, Bofoké, vint trouver l'agent et essaya de lui parler, mais comme il ne voulait pas les écouter, Bofoké, qui
 savait que le Commissaire du district, M. de Bauw, était
 attendu, dit qu'il lui rapporterait l'outrage. Là-dessus,
-l'agent européen ordonna au chef de garder Bofoké au vil-
-lage, ajoutant, que s'il lui était pernris de faire son rapport au Commissaire du district, lui (l'agent) tuerait le
+l'agent européen ordonna au chef de garder Bofoké au village, ajoutant, que s'il lui était pernris de faire son rapport au Commissaire du district, lui (l'agent) tuerait le
 chef. L'agent donna aussi à Bofoké 800 mitakos pour qu'il
 ne dît rien de la mort de son père.
 Le 4 décembre 1904, lorsque la Commission d'enquête
@@ -3726,14 +3531,8 @@ le Congo léopoldien #0
 inviter des indigènes (1) du village d'Ingando à la station
 
 pour y chercher 100 couvertures, mais les gens du village,
-sachant bien que la Commission d'enquête allait venir, re-
-fusèrent d'aller chercher les couvertures.
-Le même jour, les agents européens envoyèrent des senti-
-
-nelles au village de Nkoli, inviter les chefs (2) à la facto-
-rerie pour y chercher des couvertures, mais, eux aussi, re-
-
-fusèrent. On agit de même dans les villages de Boyeka et
+sachant bien que la Commission d'enquête allait venir, refusèrent d'aller chercher les couvertures.
+Le même jour, les agents européens envoyèrent des sentinelles au village de Nkoli, inviter les chefs (2) à la factorerie pour y chercher des couvertures, mais, eux aussi, refusèrent. On agit de même dans les villages de Boyeka et
 de Bokenyola, et comme les chefs ne voulaient rien écouter,
 on offrit de faire des largesses au peuple, qui les refusa.
 à Les agents européens donnèrent alors des cadeaux aux Ca-
@@ -3754,12 +3553,10 @@ En août ou septembre 1904, les agents européens de
 Boyeka (noms indigènes Etokolongo et Nkoi) envoyèrent
 une sentinelle au village de Nkoli chercher le caoutchouc.
 
-Comme plusieurs hommes robustes étaient morts, cer-
-taines gens du village allèrent trouver l'agent européen pour
+Comme plusieurs hommes robustes étaient morts, certaines gens du village allèrent trouver l'agent européen pour
 le prier de réduire le nombre de corbeilles de quarante à
 trente. (3) Il refusa, et envoya la sentinelle Ekolelo punir le il
-peuple, si la quantité de caoutchouc récolté était insufli-
-sante. Les indigènes ne purent apporter la quantité voulue,
+peuple, si la quantité de caoutchouc récolté était insuflisante. Les indigènes ne purent apporter la quantité voulue,
 et là-dessus, la sentinelle tua le chef Bombambo, la balle
 pénétrant dans l'abdomen du côté droit et ressortant par le
 
@@ -3814,7 +3611,7 @@ A chicotter en sa présence. La victime de cette brutalité fut
 à Lis ensuite conduite à Bassankusu (quartier-général de la Société
 A. B. R.) où elle fut détenue cinq jours, après quoi elle
 Le fut ramenée à Boyeka, de nouveau chicottée sur l'ordre de À
-0 Yagent et renvoyée chez elle. Elle avait le corps si horrible-
+Yagent et renvoyée chez elle. Elle avait le corps si horrible-
 é ment déchiré qu'elle en mourut deux jours plus tard. Les
 à gens du village, précédés de leur chef, Lofali, portèrent le
 cadavre à l'agent blanc, qui se contenta d'ordonner à une » sentinelle (1) de fustiger Lofali avec la chicotte; il en porte
@@ -3867,8 +3664,7 @@ Les indigènes apportèrent un des cadavres ainsi que le UNE
 blessé à M. Spelier, (4) directeur de cette Société. Il les traita
 de menteurs, et leur dit de rentrer chez eux.
 Les gens de Bolongo furent forcés d'acheter du caoutchoue
-à une autre tribu, les Ngombe, au prix de 50 mitakos la cor-
-beïlle, et durent porter à la factorerie quarante corbeilles RAT
+à une autre tribu, les Ngombe, au prix de 50 mitakos la corbeïlle, et durent porter à la factorerie quarante corbeilles RAT
 qui ne leur furent pas payées.
 En septembre 1904, les gens de Bojinga allèrent demander
 Moniongo, Ngombele et Eloko.
@@ -3952,8 +3748,7 @@ FANS La troisième fois qu'ils apportèrent le caoutchouc après
 Le:: le meurtre rapporté ci-dessus, les agents blancs donnèrent
 ÉNTES aux indigènes un petit miroir. Ceux-ci demandèrent des
 1 mitakos. La réponse des agents fut de saisir l'homme Bore kéétu, et de le battre si vigoureusement avec la chicotte,
-. Afin de pouvoir apprécier pleinement la gravité du témoi-
-gnage de M. Weeks, et l'acceptation de ce témoignage par
+. Afin de pouvoir apprécier pleinement la gravité du témoignage de M. Weeks, et l'acceptation de ce témoignage par
 la Commission d'enquête, il serait désirable de reproduire
 Au ici les lettres adressées par M. Weeks à M. Morel et aux
 Sat; autorités du Congo en 1903 et 1904, lettres qui ont paru dans
@@ -3975,8 +3770,7 @@ officier de rentrer en Belgique, bien qu'à ce moment les
 accusations de M. Weeks fussent entre les mains des auto- ni
 rités à Boma. La première enquête, qui suivit la publica- MATE
 tion de la lettre de M. Weeks dans la West African Mail, à
-et qui fut menée par M. Grenade, officier judiciaire, démon-
-tra pleinement l'exactitude des assertions de M. Weeks, la A
+et qui fut menée par M. Grenade, officier judiciaire, démontra pleinement l'exactitude des assertions de M. Weeks, la A
 culpabilité du lieutenant Mazy, et au moins la grave res- MEN
 ponsabilité morale du Commissaire général, M. Mardulier.
 Cependant tous deux sont rentrés en Europe sans être HUE
@@ -4001,8 +3795,7 @@ résultat de l'agitation actuelle en Angleterre, puisque le an
 6 novembre 1897, (1) j'avais envoyé au Commissaire du dis- WUTS
 trict des Bangalla un appel vigoureux, demandant une
 réduction des impôts, qui étaient intolérables; les indigènes
-Cette lettre, dont je possède la copie et qui parut dans la Me » West African Mail, de juillet 1905, montre que, huit ans aupara-
-vant, M. Weeks se plaignait amèrement aux autorités des lourds ATEN
+Cette lettre, dont je possède la copie et qui parut dans la Me » West African Mail, de juillet 1905, montre que, huit ans auparavant, M. Weeks se plaignait amèrement aux autorités des lourds ATEN
 fardeaux imposés aux indigènes. NE
 
 ï le Congo léopoldien
@@ -4023,8 +3816,7 @@ de l'arrivée au Congo de la lettre publiée (11 décembre 1905)
 et la date de la réduction des impôts (janvier 1904). Je leur
 donnai une liste de l'ancienne taxe, donnant comme
 exemple le cas de soixante-sept hommes, femmes et enfants
-dans les villes de la Crique, qui payaient autrefois 4.000 mi-
-takos tous les quinze jours et qui n'en paient plus que
+dans les villes de la Crique, qui payaient autrefois 4.000 mitakos tous les quinze jours et qui n'en paient plus que
 Ils trouvèrent que mon action était pleinement justifiée par
 le résultat, et que si mes lettres n'avaient pas été publiées,
 il n'y aurait pas de réduction. Le président fit remarquer
@@ -4074,10 +3866,8 @@ lors les décès ont augmenté à cause du manque de nourriture et de la façon 
 Pourquoi, alors, M. Mazy se trouve-t-il en villégiature en
 
 “SE a le Congo léopoldien
-leur dis aussi que l'éternel impôt bi-mensuel était un véri-
-table cauchemar écrasant le peuple, qui devenait la proie « de toutes les maladies.
-: 4 Il y avait autrefois des épidémies de maladie du som-
-meil, dont le peuple s'était guéri, et comme preuve je citai
+leur dis aussi que l'éternel impôt bi-mensuel était un véritable cauchemar écrasant le peuple, qui devenait la proie « de toutes les maladies.
+: 4 Il y avait autrefois des épidémies de maladie du sommeil, dont le peuple s'était guéri, et comme preuve je citai
 : les deux mots voulant dire « maladie du sommeil » en 1892
 (luwa, makwata); les indigènes n'auraient pas connu ces!
 mots si l'épidémie de 1892 avait été la première. Je parlai il
@@ -4088,12 +3878,10 @@ seule, la cause du décroissement inquiétant de la popu-
 Nous arrivâmes alors à la question du travail. Je fis
 observer qu'il y avait ici des gens comparativement riches
 qui n'avaient pas plus besoin de travailler que les gens « riches d'Europe; que d'autres allaient à la pêche, fabriquaient
-des canots, allaient dresser des trappes, faisaient le com-
-merce des huiles, etc.; qu'ils allaient dans les îles, ou faire »
+des canots, allaient dresser des trappes, faisaient le commerce des huiles, etc.; qu'ils allaient dans les îles, ou faire »
 le commerce au loin, pendant tout un mois, puis revenaient Y
 se reposer chez eux, et que les gens qui n'avaient pas con- À
-naissance de leur dur labeur du mois précédent, s'imagi-
-naient, à les voir étendus et là, qu'ils étaient paresseux.
+naissance de leur dur labeur du mois précédent, s'imaginaient, à les voir étendus et là, qu'ils étaient paresseux.
 Le président fit observer qu'il avait récemment vu, à une “4
 station de bois, les femmes porter le bois au steamer
 ê tandis que les hommes étaient assis de droite et de gauche. « Je répondis que ces femmes n'avaient pas de maisons à
@@ -4124,9 +3912,7 @@ qu'ils aient la certitude de ne pas être volés, ils travailleront
 sans y être forcés.;
 La Commission fit alors des observations sur le petit
 nombre des naissances, et me demanda si j'en connaissais
-la cause. Je parlai de nouveau de l'anxiété terrible et conti-
-nuelle causée par l'impôt bi-mensuel; les femmes ne vou-
-laient pas d'enfants, dans de telles circonstances, le recru- N'ARTES
+la cause. Je parlai de nouveau de l'anxiété terrible et continuelle causée par l'impôt bi-mensuel; les femmes ne voulaient pas d'enfants, dans de telles circonstances, le recru- N'ARTES
 tement forcé de soldats et d'ouvriers ayant privé les villes des JE
 forces viriles nécessaires à maintenir la population; ces recru- TT)
 tements avaient lieu à des époques irrégulières et n'avaient CAE
@@ -4154,8 +3940,7 @@ même de le faire.
 et eux seuls devraient avoir le droit de juger les causes.
 Ces juges devraient faire des visites périodiques dans les
 sections ou districts soumis à leur contrôle. Il ne devrait
-plus être permis aux officiers militaires, aux commis-
-saires, etc., de prononcer des jugements arbitraires contre le
+plus être permis aux officiers militaires, aux commissaires, etc., de prononcer des jugements arbitraires contre le
 peuple. Je citai, comme exemple de jugement capricieux, le
 ï cas de Nangumbé, rapporté dans le Congo Supplement de
 juillet de la West African Mail. J'allais citer beaucoup
@@ -4167,8 +3952,7 @@ vie, au lieu de ne rien faire dans les postes de l'État; cela”
 aiderait à diminuer les fardeaux du peuple. Les indigènes
 travaillent actuellement pour fournir de la nourriture aux
 soldats et à leurs femmes, qui les volent, les attaquent et
-les maltraitent chaque fois qu'ils en ont l'occasion. Je parlai des razzias et des mauvais traitements que j'avais moi-
-même observés; je m'étais adressé à l'État et n'en avais
+les maltraitent chaque fois qu'ils en ont l'occasion. Je parlai des razzias et des mauvais traitements que j'avais moimême observés; je m'étais adressé à l'État et n'en avais
 reçu aucun secours pour les indigènes; aussi avais-je agi
 ; de ma propre initiative et forcé les soldats à restituer le
 produit de leurs vols. La Commission approuva mon action.
@@ -4232,16 +4016,14 @@ RS,. était la damnation du pays et la ruine des indigènes. L'avan- 2"
 Prat cement des officiers dépendait largement de la quantité de
 SRE caoutchouc ou d'autres produits récoltés dans leurs di-
 à stricts: aussi comment pouvaient-ils administrer le paystout
-0 en faisant le commerce? Sans le commerce, on pourrait ré-
-te duire le nombre des officiers militaires et des soldats, et im-
+0 en faisant le commerce? Sans le commerce, on pourrait réte duire le nombre des officiers militaires et des soldats, et im-
 : poser des droits d'exportation et d'importation pour couvrir
 les frais.
 7) Les instituteurs des missions devraient être reconnus
 par l'État et recevoir un certificat constatant leur position,
 Ô de manière que les employés de l'État ne pussent pas leur
 ; porter atteinte. Exemple: Moiïla, notre instituteur à LiRe binza.
-ne La Commission me demanda si je trouvais la taxe exces-
-sive et s'il y avait des razzias. Réponse: comparées aux
+ne La Commission me demanda si je trouvais la taxe excessive et s'il y avait des razzias. Réponse: comparées aux
 É taxes d'autrefois, les taxes actuelles sont légères, et autant "4
 que je sache elles ne sont pas oppressives; je n'ai pas entendu parler de razzias dernièrement.
 Je donnai alors à la Commission une copie de la lettre au
@@ -4256,15 +4038,13 @@ et deux garçons d'Ikakata, avaient la main coupée par de
 des soldats de l'État. Je montrai à la Commission une copie
 de l'original, et après lecture, les Commissaires désirèrent
 la garder, car les employés de l'État ne la leur avaient pas
-Moins de trente heures après la séance, on dressa un ré-
-sumé de ma déposition devant la Commission. Sans vouloir
+Moins de trente heures après la séance, on dressa un résumé de ma déposition devant la Commission. Sans vouloir
 garantir l'exactitude textuelle de ces paragraphes, je crois
 pouvoir dire que ce sommaire représente ce qui se passa
 pendant l'interrogatoire. EN
 Opinion de M. Weeks sur le rôle qu'ont joué.
 les missionnaires
-Je trouve bon de faire suivre la publication du témoi-
-gnage de M. Weeks de la déclaration claire et incisive ciaprès, qu'il fit à l'égard de l'attitude des missionnaires, —!
+Je trouve bon de faire suivre la publication du témoignage de M. Weeks de la déclaration claire et incisive ciaprès, qu'il fit à l'égard de l'attitude des missionnaires,
 déclaration qui devra convaincre toute personne impar- (5)
 Monsembé, Haut-Congo, le 14 mars 1905
 Mon cher monsieur Morel,
@@ -4280,8 +4060,7 @@ chose. On peut dire qu'il en est de même dans le cas de
 M. Scrivener et d'autres, dans leurs domaines relatifs. De
 sorte que les quinze ou vingt missionnaires qui se sont
 plaints en représentent en réalité le triple.
-De plus, il est dit que nous accusons le peuple belge lui-
-même. Cela est faux, car au service de l'État se trouvent
+De plus, il est dit que nous accusons le peuple belge luimême. Cela est faux, car au service de l'État se trouvent
 -133
 
 le Congo léopoldien
@@ -4305,14 +4084,12 @@ agents de l'État du Congo, appartiennent à presque toutes
 les nationalités. Nous en prenons-nous donc à toutes les:
 puissances que ces messieurs représentent? Je ne le crois
 pas. L'État du Congo est unique en son genre. Lorsquenous
-arrivons dans le pays, il faut que nous nous fassions imma-
-triculer, ce qui, je suppose, nous rend plus ou moins
+arrivons dans le pays, il faut que nous nous fassions immatriculer, ce qui, je suppose, nous rend plus ou moins
 citoyens de l'État libre du Congo, et, comme tels, nous avons
 le droit d'en appeler à notre Gouvernement; s'iln'en résulte
 ni réparation ni investigation, à mon avis, nous avons le
 droit d'en appeler au seul pouvoir qui reste, c'est-à-dire à
-la Presse. Pendant son séjour ici, le Président de la Com-
-mission d'enquête a dit que j'avais raison de faire de
+la Presse. Pendant son séjour ici, le Président de la Commission d'enquête a dit que j'avais raison de faire de
 la publicité, et que les résultats, — la réduction des impôts,
 — avaient pleinement justifié mon action.
 
@@ -4353,8 +4130,7 @@ pas fondées, nous ne nous serions jamais adressés à la
 
 Témoignages non communiques à la Commission
 : pendant les séances
-; Les communications suivantes sont intéressantes, démon-
-tu trant abondamment les atrocités commises dans le voisi-!
+; Les communications suivantes sont intéressantes, démontu trant abondamment les atrocités commises dans le voisi-!
 nage de Baringa, seul, et que la Commission aurait pucon-
 1} stater si sont séjour avait plus de durée.
 
@@ -4396,8 +4172,7 @@ Ses gens furent soit pendus, soit égorgés, soit tués à
 coups de lance, mais surtout à coups de fusil. Quelquesunes des femmes furent suppliciées en leur perçant l'utérus;
 au moyen d'un pieu enfoncé dans le vagin. J'avais connaissance de cas pareils, mais afin de l'éprouver, je lui demandai de citer un exemple: « Ils ont tué ma fille Nsinga de
 cette manière; j'ai trouvé le pieu enfoncé dans son corps. »
-Il cita beaucoup d'autres cas de terrible brutalité, de tor-
-ture et de meurtre, que je ne veux pas répéter, non par
+Il cita beaucoup d'autres cas de terrible brutalité, de torture et de meurtre, que je ne veux pas répéter, non par
 manque de preuves (il n'y en a que trop) mais parce queles
 Européens refuseraient absolument de croire à des actes si
 Les autres détails des tortures infligées aux indigènes sont:
@@ -4421,21 +4196,18 @@ Commission d'enquête, instituée par décret du
 Nous avons trouvé hier votre lettre, datée du 5 janvier 1905, au poste situé près de la station missionnaire
 Lolanga. La Commission vous remercie des nouvellesinformations que vous lui donnez. Votre lettre adressée au pré
 sident est maintenant incorporée dans le dossier, comme
-incluse à votre déposition. Par suite des nombreuses irré-
-gularités découvertes par la Commission au cours de
+incluse à votre déposition. Par suite des nombreuses irrégularités découvertes par la Commission au cours de
 son enquête dans la région de l'A. B. I. R., le Gouvernement du District a immédiatement décidé de créer un
 nouveau district judiciaire, formé par le bassin des rivières Lopori et Maringa. Le substitut sera domicilié à
 Bassankusu. Le docteur Vogt, un Norvégien, actuellement
 à Nouvelle Anvers, a été nommé (par télégraphe) premier
-informations, etilne partira pas immédiatement pour Bassankusu. En attendant, le nouveau substitut d'ici, M. Tessa-
-roli, visitera la région de Baringa; la Commission vous
+informations, etilne partira pas immédiatement pour Bassankusu. En attendant, le nouveau substitut d'ici, M. Tessaroli, visitera la région de Baringa; la Commission vous
 prie de lui rapporter tous les cas de cruauté, d'oppression, etc., dont vous avez connaissance.
 Quant à la déclaration publiée dans le Times, et se rap
 portant aux « missionnaires commercants je dois avouer
 ne rien avoir de semblable dans un journal anglais.
 D'après certains journaux belges, c'est M. Malfeyt, le Haut
-Commissaire, qui est censé avoir découvert que les mission-
-naires « font le commerce ». Naturellement cecin'estqu'une
+Commissaire, qui est censé avoir découvert que les missionnaires « font le commerce ». Naturellement cecin'estqu'une
 rumeur ridicule; selon les lois de l'État, « le commerce est
 libre ». De plus, à notre avis, vous avez prouvé que vous ne
 faites pas le commerce.
@@ -4477,13 +4249,10 @@ marche, précédés de nos hommes criant que nous ne ve-
 : nions pas combattre, je trouvai le vieux chef entouré de
 quelques-uns de ses jeunes gens; un peu plus tard lamère
 de notre employé sortit de la forêt. C'est alors, Excellence,
-qu'eut lieu un spectacle qui nous remplit d'émotion; l'em-
-ployé, un homme mür, se mit à sangloter; nous nous atten-
-dions naturellement à le voir heureux de retrouver sa mère.
+qu'eut lieu un spectacle qui nous remplit d'émotion; l'employé, un homme mür, se mit à sangloter; nous nous attendions naturellement à le voir heureux de retrouver sa mère.
 Je lui demandai pourquoi il pleurait. « Oh, Bondélé, (1)
 comment puis-je être heureux? Mes parents ont tous été
-massacrés pour le caoutchouc; mes amis n'ont plusnimai-
-sons ni nourriture; ma sœur a le pied gauche etla
+massacrés pour le caoutchouc; mes amis n'ont plusnimaisons ni nourriture; ma sœur a le pied gauche etla
 main droite coupés. » Ceci était amplement prouvé; ilnese
 ! trouvait pas une seule maison pour nous donner refuge, et
 . même en offrant un prix fabuleux, il me fut impossible d'obtenir une poignée de manioc pour mes hommes; les gens
@@ -4495,8 +4264,7 @@ plus grande sûreté. Le vieux chef dit: « Homme blane, j'ai
 honte; je ne puis te donner une seule poule à manger, ni
 du manioc pour tes hommes; je suis ruiné. » Ils avaient
 cessé de récolter le caoutchouc, parce que, d'après eux, ils
-n'en pouvaient plus -trouver; et même quand ils en four-
-nissaient un peu, les blancs les fouettaient; ils attendaient
+n'en pouvaient plus -trouver; et même quand ils en fournissaient un peu, les blancs les fouettaient; ils attendaient
 donc de jour en jour que les blancs vinssent les tuer. Leur à
 misère abjecte et leur abandon complet sont positivement
 : indescriptibles; bien que je connaisse beaucoup de villages;
@@ -4534,13 +4302,11 @@ Après avoir passé quelque temps avec les gens, écouté
 leur histoire navrante et de mes propres yeux bien des
 preuves, je me mis en route, mais avant mon départ un
 jeune chef s'avança et me dit: « Dis-leur (aux agents de la
-Société) que nous ne pouvons et par conséquent ne vou-
-lons pas trouver le caoutchouc; nous voulons bien utiliser
+Société) que nous ne pouvons et par conséquent ne voulons pas trouver le caoutchouc; nous voulons bien utiliser
 nos forces à n'importe quel travail, maïs le caoutchouc est À
 épuisé. On a tué nos mères, nos pères, nos sœurs, nos frères,
 par vingtaines pour le caoutchouc; on nous a volé tout ce
-qui avait de la valeur, des lances, des couteaux, des brace-
-lets, des poules, des chiens, ete.; et maintenant nous
+qui avait de la valeur, des lances, des couteaux, des bracelets, des poules, des chiens, ete.; et maintenant nous
 
 le Congo léopoldien Le
 : sommes ruinés; s'il nous faut être massacrés ou apporter.
@@ -4598,9 +4364,9 @@ Bokeku (femme)......... Loma
 Elanga (femme).......... Bompengu RENE!
 Eleka (femme)........... Inconnue a
 
-É A; Ekonga (femme)......... Wuti nc.
+É Ekonga (femme)......... Wuti nc.
 
-Es a: Mposo (femme).......... Inconnue (
+Es Mposo (femme).......... Inconnue (
 Hdi Bongenga (femme)....... Icoli
 
 TMS Isekayoko (homme)...... Inconnue
@@ -4622,9 +4388,7 @@ Isekasumbu (enfant)..... Inconnue.
 
 : 1 Ces noms me furent donnés sans hésitation et avec toute;
 
-À apparence de vérité par les indigènes. D'après mon expé-
-
-rience, il me semble que ce village n'a pas autant de tués
+À apparence de vérité par les indigènes. D'après mon expérience, il me semble que ce village n'a pas autant de tués
 que d'autres dans la région.:
 
 Je désire faire valoir à Votre Excellence l'importance,
@@ -4658,8 +4422,7 @@ Le 16 mars 1905, M. Malfeyt, Haut Commissaire Royal,
 ne arriva à Baringa. Le Gouvernement britannique avait reçu
 l'assurance, l'année dernière, que la visite de ce haut fonc-
 ï tionnaire serait de nature à effectuer toutes les réformes
-pire nécessaires. Avant l'arrivée de M. Malfeyt, les Commis-
-saires enquêteurs, émus par les terribles témoignages de
+pire nécessaires. Avant l'arrivée de M. Malfeyt, les Commissaires enquêteurs, émus par les terribles témoignages de
 À MM. Harris, Stannard et d'autres missionnaires dans la À
 Concession, établirent l'interprétation suivante de la « loi »
 ; Avant de fixer un impôt, il sera fait un recensement du
@@ -4693,8 +4456,7 @@ de Baringa, les informations suivantes nous donneront une
 Extrait d'une lettre de M. Stannard à M. Morel, à la date
 du 4 avril, décrivant une entrevue avec M. Delvaux, Direc-
 « IL parla avec mépris de la Commission d'enquête, et se Mes
-montra fort contrarié de ce que nous avions dit à la Com-
-mission. Il déclara que l'A. B. I.R. avait l'autorité et le pou- À
+montra fort contrarié de ce que nous avions dit à la Commission. Il déclara que l'A. B. I.R. avait l'autorité et le pou- À
 voir d'envoyer des sentinelles armées, de forcer le peuple à
 fournir du caoutchouc et de mettre en prison les récalci- -
 trants. Il y a quelque temps, les indigènes d'une ville appor- et
@@ -4706,8 +4468,7 @@ quantité insuffisante. Les Commissaires avaient déclaré que
 armés dans les villes pour y fouetter les gens et les chasser AS
 
 le Congo léopoldien;
-; dans la forêt à la recherche du caoutchouc; c'étaient sim-
-plement des « gardes forestiers » et rien de plus. Quand
+; dans la forêt à la recherche du caoutchouc; c'étaient simplement des « gardes forestiers » et rien de plus. Quand
 nous attiràmes l'attention de M. Delvaux sur ce fait, il s'en
 . moqua et dit que le nom ne voulait rien dire; qu'on pouvait
 appeler les gardes par un nom ou par un autre. Nous fimes
@@ -4729,9 +4490,7 @@ A. — Lettre de M. Harris au Commissaire de district,
 La situation actuelle dans ce district me force à vous soumettre ce qui suit: Pendant la visite de la Commission
 d'enquête les affaires de cette localité furent examinées si
 minutieusement et condamnées avec si peu d'hésitation que
-nous espérâmes, avec une certaine confiance, qu'il en résulterait une amélioration dans l'état des indigènes. Malheu148
-
-reusement cet espoir n'a pas été justifié. Depuis lors, jusqu'à
+nous espérâmes, avec une certaine confiance, qu'il en résulterait une amélioration dans l'état des indigènes. Malheureusement cet espoir n'a pas été justifié. Depuis lors, jusqu'à
 la visite de M. Delvaux, accompagné du Haut Commissaire
 Royal, une tranquillité relative, ou tout au moins expectative, a régné. Nous regrettons fort de dire que Y'A.
 est en train d'en revenir à ses anciens procédés. Bien qu'à
@@ -4783,10 +4542,8 @@ commettaient si souyent que nous eommencions à eroire
 que la loi de l'État ne s'appliquait pas à l'A. B. LR. Vous
 pouvez juger du résultat grave qu'a pour nous cette razzia.
 On a dit une fois pour toutes aux indigènes qu'on les a tués et [1
-ï; qu'on les tuera pour avoir vendu de la viande aux mission-
-paires et aux employés de la mission. Cela veut dire qu'en
-achetant aux indigènes la nourriture qui nous est néces-
-saire, nous leur faisons courir le risque d'être tués ou
+qu'on les tuera pour avoir vendu de la viande aux missionpaires et aux employés de la mission. Cela veut dire qu'en
+achetant aux indigènes la nourriture qui nous est nécessaire, nous leur faisons courir le risque d'être tués ou
 emprisonnés. Nous maintenons que cette position est intolérable, autant pour nous que pour les indigènes, aussi
 nous avons déclaré que dès ce jour, nous ne pouvons pas
 acheter de viande avant d'avoir une garantie effective qu'ils
@@ -4805,15 +4562,13 @@ seule interprétation de la loi de quarante heures était 4 kilos SIMS
 de caoutchouc « sec » ou 8 kilos de caoutchouc « frais »
 par homme. (1)
 Quant à la razzia du village d'Esanga, nous désirons faire
-remarquer que pendant le séjour de la Commission d'en-
-quête parmi nous, une des sentinelles le plus souvent
+remarquer que pendant le séjour de la Commission d'enquête parmi nous, une des sentinelles le plus souvent
 accusée de graves irrégularités était justement ce Bom- VIE
 pasu, le Capita de M. Tegner lui-même, un des blanes
 les plus barbares du district. Quelque temps avant la visite
 des Commissaires, Bompasu avait été relevé de ses fonctions à cause de ses excès. Il nous paraît fort étrange
 qu'après l'enquête de la Commission, de tels hommes soient à
-réintégrés avec le résultat ci-dessus. Personne ne connais-
-sait mieux que le chef de factorerie le caractère de cet
+réintégrés avec le résultat ci-dessus. Personne ne connaissait mieux que le chef de factorerie le caractère de cet
 homme, car le chef avait été agent avec M. Tegner à
 Baringa. Il paraît que Bompasu fut légèrement blessé à
 Esanga. Nous faisons appel à vous-même, comme représen- ce
@@ -4834,7 +4589,7 @@ une copie de notre lettre pour votre édification.; -
 la Commission d'enquête dans une lettre datée du 11 avril 1905.
 
 à le Congo léopoldier
-,: L'œuvre diabolique a de nouveau libre carrière. L'A.
+L'œuvre diabolique a de nouveau libre carrière. L'A.
 ; I. R. s'est décidée à récolter son caoutchouc dans ce district
 à n'importe quel prix de sang et de souffrances humaines.
 Puis vient un récit plus détaillé de la razzia d'Elengwa,
@@ -4905,9 +4660,7 @@ dans la prison de l'A. B. I. R. C'était le redoutable Bompasu,
 
 le Congo léopoldien
 
-a armé comme un véritable brigand, — fusil Albini et cartou-
-
-chière en bandoulière, revolver et couteau à la ceinture, —
+a armé comme un véritable brigand, — fusil Albini et cartouchière en bandoulière, revolver et couteau à la ceinture, —
 
 à commandant une vingtaine de gardes de PA. B.L
 
@@ -4920,9 +4673,7 @@ teaux; ils étaient accompagnés d'une compagnie de
 es. Naturellement les gens du marché ne purent résister à une
 
 troupe si formidable; on croit que quelques-uns se sont
-+7 échappés, mais presque tous furent faits prisonniers; lindi-
-
-gène Lokanonga se meurt dans la brousse, le corps percé.
++7 échappés, mais presque tous furent faits prisonniers; lindigène Lokanonga se meurt dans la brousse, le corps percé.
 Isekolima est aussi blessé, dans la forêt, mais on espère le
 “44 sauver. On envoya cette première bande de prisonniers à
 Aïp l'agent, et l'expédition continua à marcher sur le village
@@ -4933,8 +4684,7 @@ que ce ne soit pour quantité insuffisante de caoutchouc:
 pourtant Mpombo semble avoir fait tout son possible, et
 même plus, pour forcer ses sujets à la récolte. Enfin Bompasu arriva et saisit beaucoup de monde; on ne sait pas
 encore combien, parce que le plus grand nombre se cache
-encore dans la brousse; mais il est certain que les per-
-sonnes suivantes sont actuellement en prison à Bamo,
+encore dans la brousse; mais il est certain que les personnes suivantes sont actuellement en prison à Bamo,
 outre les captifs pris au marché indigène:
 Hommes: Nsala, Lofiko, Elisi, Esengi, Bompendu,:
 Femmes et filles: Inungo, Longundo, Bokeni, Bompenju,
@@ -4945,22 +4695,17 @@ ce que sa mère puisse venir le nourrir à sa sortie de
 que quatre chiens, pour nourrir la suite de Bompasu, et on
 démolit complètement la maison du chef pour en faire du bois à
 à brûler. Tous les « objets de valeur » furent saisis, y com-
-; pris les filets de chasse valant de 200 à 250 francs que Bom-
-pasu et ses hommes emportèrent. Cela fut d'autant plus
-dur, que juste avant l'arrivée et après le départ de la Com-
-
-mission d'enquête, on avait un peu modéré le rigoureux
+; pris les filets de chasse valant de 200 à 250 francs que Bompasu et ses hommes emportèrent. Cela fut d'autant plus
+dur, que juste avant l'arrivée et après le départ de la Commission d'enquête, on avait un peu modéré le rigoureux
 traitement infligé par MM. Pilaet et Van Caelcken, ce qui
 avait permis aux indigènes de rassembler quelques objets.
 Afin de montrer qu'on surveille peu les munitions, je vous
 ferai remarquer qu'en entrant dans le village les sentinelles
-firent feu dans toutes les directions, afin d'effrayer les habi-
-tants. On ramassa une cartouche neuve dans la maison où
+firent feu dans toutes les directions, afin d'effrayer les habitants. On ramassa une cartouche neuve dans la maison où
 je dormis (je lai donnée à un officier de police). J'ai aussi y
 un chien qui avait reçu deux balles d'Albini.
 
-J'ai la femme Loko qui, étant boiteuse, refusa de mar-
-cher à la prison de Bamo. Boni lui fit des entailles au bras!
+J'ai la femme Loko qui, étant boiteuse, refusa de marcher à la prison de Bamo. Boni lui fit des entailles au bras!
 et à la cuisse comme punition, puis la relàâcha; ces entailles
 ont trois ou quatre pouces de long, celle du bras est très 4 LEA
 
@@ -4981,8 +4726,7 @@ retour il lui faudrait mener une autre expédition contre
 Nsongo. Aujourd'hui, on m'a dit que la section Ikelemba
 d'Esanga avait été attaquée hier par une troupe d'hommes A
 armés sous les ordres de Bompasu, mais je n'ai pas encore ET
-de détails. Nous croyons à bon droit que le chef de facto-
-rerie actuel a demandé d'être transféré dans un district où ses
+de détails. Nous croyons à bon droit que le chef de factorerie actuel a demandé d'être transféré dans un district où ses
 actes ne seraient connus que des indigènes. D'ordinaire,
 
 (r) Des massacres semblables ont lieu au mois de mai. de
@@ -4993,8 +4737,7 @@ mais bien que cela soit tout à l'avantage de l'A. B. R.,ce
 n'est guère bon pour les indigènes et peu honorable pour
 l'État. Je saisis cette occasion d'attirer votre attention sur;
 le traitement des pagayeurs, dans la certitude que vous
-lignorez. L'A. B. I. R. semble croire que, malgré les mau-
-vais traitements qu'elle leur inflige, les pagayeurs devraient
+lignorez. L'A. B. I. R. semble croire que, malgré les mauvais traitements qu'elle leur inflige, les pagayeurs devraient
 toujours se présenter en grand nombre afin de ramer
 : dans les canots de la Société. Il y a près de trois semaines,
 30 ou 40 rameurs conduisirent un agent d'ici à Bamo, et
@@ -5056,18 +4799,14 @@ la Commission, on verra l'effet de ces pratiques sur les indi- A
 Ces pratiques continuent, même dans le voisinage des sta-?;
 tions missionnaires, — et l'on peut juger jusqu'à quel point Dre.
 dans les endroits éloignés, à l'abri des regards curieux,
-comme le prouve le récit de la razzia du village de Bolum-
-boloko en avril 1905, par les soldats de VPA.B.LR., agissant À
+comme le prouve le récit de la razzia du village de Bolumboloko en avril 1905, par les soldats de VPA.B.LR., agissant À
 sous les ordres du représentant de la Société à Boma. De À
-plus, il paraît que, quoique des agents inférieurs soient fré-
-quemment poursuivis et condamnés à des punitions lé-
-gères lorsque les circonstances de cas déterminés sont
+plus, il paraît que, quoique des agents inférieurs soient fréquemment poursuivis et condamnés à des punitions légères lorsque les circonstances de cas déterminés sont
 mises entre les mains des autorités judiciaires, les cireulaires du Gouverneur général et du Commissaire général
 . n'ont pas été annulées.
 Sous ce rapport, M. Harris, dans une lettre à M. Morel
 « Un des traits les plus étranges de l'administration du
-Congo consiste dans les relations qui existent entre les off-
-ciers judiciaires et le Pouvoir Exécutif. Par exemple, un
+Congo consiste dans les relations qui existent entre les offciers judiciaires et le Pouvoir Exécutif. Par exemple, un
 officier judiciaire déclare que telle action est absolument
 illégale, mais cela ne fait aucune différence en pratique.
 On continue comme si le jugement n'avait pas été rendu.
@@ -5080,8 +4819,7 @@ en citant leurs noms, à forcer les indigènes à payer un impôt
 . de caoutchouc et, en cas de refus, à les mettre en prison.:
 
 le Congo léopoldien
-Cela fut fait sans aucune forme de procès. Le document por-
-tait date du 1° décembre 1904 et était signé par le Gouverneur Costermans. » ne
+Cela fut fait sans aucune forme de procès. Le document portait date du 1° décembre 1904 et était signé par le Gouverneur Costermans. » ne
 De nombreux documents prouvent l'universalité de ces
 pratiques dans tout le Congo. Ces documents datent de plusieurs années, entre autres les révélations de Mongalla
 en 1901 et le jugement des Tribunaux de Boma; le jugement
@@ -5097,8 +4835,7 @@ production forcée de vastes quantités de caoutchouc. C'est
 une pratique que l'on ne semble en aucune façon désirer de
 faire disparaître, puisque le Gouverneur général de l'État
 du Congo actuel, le baron Wahis, qui a été réintégré dans
-ses fonctions et possède le pouvoir exécutif suprême, a luimême autorisé par écrit (1) des pratiques déclarées « illé-
-gales » et parfois même punies de court emprisonnement,
+ses fonctions et possède le pouvoir exécutif suprême, a luimême autorisé par écrit (1) des pratiques déclarées « illégales » et parfois même punies de court emprisonnement,
 dans le cas de fonctionnaires subalternes, mais autorisées
 et encouragées par le Pouvoir Exécutif lui-même.
 Voici d'ailleurs d'autres documents qui jettent une lumière.
@@ -5110,8 +4847,7 @@ quand, par exemple,on redoutait les enquêtes de quelque
 Consul ou voyageur étranger, la curiosité embarrassante
 à de quelque missionnaire. Il est également de toute évidence,
 pour ceux qui ont étudié dans toutes leurs phases le mélange
-de tyrannie, de coercition impitoyable, d'hypocrisie pré-
-voyante qui caractérisent le régime de l'État du hauten
+de tyrannie, de coercition impitoyable, d'hypocrisie prévoyante qui caractérisent le régime de l'État du hauten
 ,
 
 bas, que ces circulaires constituent un effort assez habile
@@ -5120,9 +4856,7 @@ révélations, on invoquerait ces documents afin de mettre
 à couvert les véritables responsabilités.
 
 « Vous voyez, dirait-on, nous faisons notre possible pour
-éviter les abus: S'il s'en produit, cela s'explique par la bruta-
-lité d'agents individuels. » ces malheureux agents sub-
-alternes, victimes eux aussi d'un système sans pitié pour les
+éviter les abus: S'il s'en produit, cela s'explique par la brutalité d'agents individuels. » ces malheureux agents subalternes, victimes eux aussi d'un système sans pitié pour les
 noirs ou pour les blancs de rang inférieur, on les aiguille
 dans un sens tout contraire. D'une part, tracasseries interminables, gros mots, blâmes, si le caoutchouc ne vient pas
 en quantités suflisantes; d'autre part, pourcentages proportionnels au rendement, paroles flatteuses, et, glissés à
@@ -5162,8 +4896,7 @@ on arrive au résultat que voici: "4
 soumis à la contrainte
 Soit 43.500 indigènes hommes et femmes! — assujettis à
 un esclavage féroce.
-millions environ. Dans les cinq années 1898-1903 les béné-
-fices nets de la Société se sont élevés à 15.078.505 francs!
+millions environ. Dans les cinq années 1898-1903 les bénéfices nets de la Société se sont élevés à 15.078.505 francs!
 Combien de vies humaines ont été immolées dans la pro- »
 duction de ces bénéfices colossaux?
 Voici les documents dont il a été fait mention plus haut.
@@ -5196,15 +4929,13 @@ dans beaucoup de postes on ne tient aucun compte des
 prescriptions relatives à la contrainte par corps.
 Je vous confirme les circulaires numéros 93 et 98 et vous
 prévient que tout agent qui à l'avenir ne tiendra pas çconvenablement ses pièces sera révoqué.
-A chacune de mes visites, les Agents auront à me pré-
-sentier un cahier de la contrainte par corps. NE
+A chacune de mes visites, les Agents auront à me présentier un cahier de la contrainte par corps. NE
 o Pour les faits, voyez témoignage de la Commission d'ente.
 
 le Congo léopoldien
 Contrainte par corps à
 J'ai l'honneur de rappeler aux agents de la Société que la
-contrainte par corps ne peut s'exercer que pour le recouvre-
-ment des impositions en caoutchouc. il
+contrainte par corps ne peut s'exercer que pour le recouvrement des impositions en caoutchouc. il
 Toute contrainte par corps exercée pour un motif autre …
 que la non remise des impositions dues serait considérée
 comme une atteinte à la liberté individuelle.
@@ -5227,11 +4958,9 @@ de faire des « impositions » en caoutchouc! "4
 : Extrait de la Circulaire numéro
 intitulée « Manquants de caoutchouc »
 Le caoutchouc manquant sera porté au compte personnel à
-de l'agent responsable, au prix d'achat en Afrique aug-
-menté du bénéfice net réalisable sur les marchés d'Europe.;
+de l'agent responsable, au prix d'achat en Afrique augmenté du bénéfice net réalisable sur les marchés d'Europe.;
 bassankusu, le 26 janvier 1902
-Nous sommes très heureux de vous annoncer l'acquitte-
-ment pur et simple par la Cour d'Appel de Boma, de notre
+Nous sommes très heureux de vous annoncer l'acquittement pur et simple par la Cour d'Appel de Boma, de notre
 agent M. Lejeune, qui avait été condamné à 6 mois de prison
 et à 1.000 francs d'amende par jugement du tribunal territorial de Coquilhatville en date du 14 novembre 1901. (1)
 (1) Extrait d'une lettre personnelle expliquant cette circulaire:
@@ -5260,8 +4989,7 @@ exercent beaucoup trop peu de surveillance sur leurs gardes-
 sont pas dignes. Prenez note que sous aucun prétexte (sauf
 pour transporter un courrier) des capitas ou des gardesforestiers ne peuvent passer d'un secteur dans un autre. Le
 motif invoqué est toujours d'aller à la recherche des récolk- …
-teurs fuyards, tandis que le motif réel est le volet la ra-
-pine. Je prie MM. les chefs de factorerie et chefs de poste =.“
+teurs fuyards, tandis que le motif réel est le volet la rapine. Je prie MM. les chefs de factorerie et chefs de poste =.“
 d'exercer la plus grande surveillance à ce sujet et de mettre
 à ma disposition tout garde-forestier d'un secteur étranger
 pris chez eux. Dès qu'un chef de factorerie ou chef de poste
@@ -5283,13 +5011,11 @@ forestiers; presque partout j'ai constaté des abus. Si les
 ces abus ne se produiraient plus. »
 15° Je vous communique en entier un exemplaire d'une une à
 lettre de la direction d'Europe. Je termine le présent PR:
-courrier en vous priant de faire connaître à notre person-
-nel qu'il y a lieu pour celui-ci de reprendre le courage que
+courrier en vous priant de faire connaître à notre personnel qu'il y a lieu pour celui-ci de reprendre le courage que
 certains parmi eux ont perdu; nous avons tous souffert
 d'une situation critique, mais nous avons le ferme espoir À
 que tous, nous aurons l'occasion de vite l'oublier; mais il
-faut que chacun y mette du sien. La Société a du reste tou-
-jours, dans la limite de ses moyens, reconnaître le mérite a
+faut que chacun y mette du sien. La Société a du reste toujours, dans la limite de ses moyens, reconnaître le mérite a
 à chacun, surtout si la bonne volonté n'a pas manqué.
 16° J'espère, messieurs, que vous vous conformerez tous
 aux instructions que je vous donne et que bientôt, grâce à
@@ -5298,9 +5024,7 @@ enviable du passé. 1740
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 
-Nos Cahiers sont édités par des souscriptions men-
-suelles régulières et par des souscriptions extraordi-
-naires; la souscription ne confère aucune autorité sur
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
