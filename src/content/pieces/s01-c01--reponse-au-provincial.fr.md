@@ -5,323 +5,48 @@ lang: fr
 title: Réponse au Provincial
 author: charles-peguy
 isAvertissement: false
-wordCount: 3077
+wordCount: 3195
 ---
-Pendant un an, et à titre d'essai, je ferai tout ce que je
-pourrai pour t'envoyer ces cahiers de renseignement.
-Le premier cahier partira le 5 janvier prochain. Je t'enverrai le 20 de chaque mois le cahier de la première quinzaine et le 5 le cahier de la seconde quinzaine du mois pré-
-Je tiens dès à présent à te rassurer sur ce Triomphe de
-la République. Autant que l'on peut nombrer une aussi
-au moins défilèrent. On peut évaluer à un nombre égal au
-moins les citoyens qui acclamèrent le défilé, qui acclamèrent le socialisme. Ainsi la Petite République et l'Aurore
-avaient également raison. Toujours faut-il que l'on s'entende.
-De cette fête j'avais préparé un compte rendu, non pas
-pour toi, mais pour une revue amie. Je t''enverrai, par
-exception, ce compte rendu dans mon premier cahier. J'y
-ajouterai les principaux documents de l'affaire Liebknecht,
-et quelques notes sur les derniers événements de décembre
+Paris, lundi 25 décembre 1899, Mon cher ami, Pendant un an, et à titre d'essai, je ferai tout ce que je pourrai pour t'envoyer ces cahiers de renseignement.
 
-La République avait triomphé le 11 novembre par la
-décision de la Haute Cour: 153 juges contre 91 avaient
-ce jour-là repoussé les conclusions de la défense, présentées et défendues la veille par Devin, tendant
-faire déclarer l'incompétence. Puis la République avait
-triomphé le jeudi 16 par le vote de la Chambre: 317 députés contre 212 avaient voté l'ordre du jour, présenté
-par les Gauches, « approuvant les actes de défense
-républicaine du Gouvernement les mots de défense
-républicaine avaient été proposés par M. Vaillant et
-plusieurs socialistes, et acceptés d'eux par le Président
-du Conseil.
+Le premier cahier partira le 5 janvier prochain. Je t'enverrai le 20 de chaque mois le cahier de la première quinzaine et le 5 le cahier de la seconde quinzaine du mois précédent.
 
-Enfin la République triompha dans la rue par la procession du peuple parisien le dimanche 19, le grand
+Je tiens dès à présent à te rassurer sur ce Triomphe de la République. Autant que l'on peut nombrer une aussi grandiose manifestation, deux cent cinquante mille citoyens au moins défilèrent. On peut évaluer à un nombre égal au moins les citoyens qui acclamèrent le défilé, qui acclamèrent le socialisme. Ainsi la Petite République et l'Aurore avaient également raison. Toujours faut-il que l'on s'entende.
 
-Comme les prêtres catholiques réconcilient ou purilient par des cérémonies expiatoires les églises polluées par l'effusion du sang ou par le crime honteux,
-comme ils ont récemment fait une réparation pour
-l'église Saint-Joseph, ainsi trois cent mille républicains
-allèrent en cortège réconcilier la place de la Nation.
+De cette fête j'avais préparé un compte rendu, non pas pour toi, mais pour une revue amie. Je t'enverrai, par exception, ce compte rendu dans mon premier caliier. J'y ajouterai les principaux documents de l'affaire Liebknecht, et quelques notes sur les derniers événements de décembre
 
-La Petite République et Gérault-Richard avaient
-l'initiative de cette manifestation, comme ils avaient eu,
-avec toute l'opinion publique, l'initiative, en des temps
-plus difliciles, d'aller à Longchamp. Nous rendrons
-cette justice aux adversaires de la République de
-constater que cette fois-ci encore ils firent tout ce qu'ils
+La République avait triomphé le ii novembre par la décision de la Haute Cour : i5" juges contre 91 avaient ce jour-là repoussé les conclusions de la défense, présentées et défendues la veille par M' Devin, tendant à faire déclarer rincompétencc. Puis la République avait triomphé le jeudi 16 par le vote de la Chambre : 'ii~ députés contre 212 avaient voté Tordre du jour, présenté par les Gauches, « approuvant les actes de défense républicaine du Gouvernement » ; les mots de défense républicaine avaient été proposés par M. Vaillant et plusieurs socialistes, et acceptés d'eux par le Président du Conseil.
 
-pouvaient pour que la manifestation fût grandiose.
-M. Paulin Méry fit coller sur les murs de grandes
-affiches rouges, émanant d'un Comité d'action socialiste
-et patriotique dont il s'intitulait, bien entendu, le délégué général. Le bureau du Conseil Municipal fit donc
-apposer des proclamations officieuses. La Commission
-exécutive de l'Agglomération parisienne du Parti
-ouvrier français avait fait poser des affiches beaucoup
-plus modestes, un quart ou un demi-quart de colombier, car officiellement les guesdistes n'ont pas d'argent;
-ces affiches d'un rouge modeste, au nom de je ne sais
-plus combien de groupements parisiens, avertissaient
-le lecteur que,le gouvernement et M. Bellan ayant interdit le drapeau rouge, les vrais socialistes et les vrais
-révolutionnaires étaient par là-même exclus de la manifestation. Le parti guesdiste s'est apparemment donné
-la tâche glorieuse de sauver le drapeau rouge des subornations de M. Waldeck-Rousseau. Les guesdistes
-n'ont jamais mis leur drapeau dans leur poche: demandez plutôt à M. Alexandre Zévaès des nouvelles de son
-élection. Les guesdistes n'ont pas beaucoup défendu le
-drapeau rouge contre les brutalités de M. Dupuy ni
-contre les férocités sournoises de M. Méline. Cela était
-plus difficile. Enfin ils firent défense à la population parisienne d'aller fêter le Triomphe de la République,
-puisque cette République de Dalou (1) n'était pas la
-République sociale, mais, remarquez-le bien, la capitaliste. Les guesdistes mirent en interdit la manifesta-
-(x) Sur Dalou, son œuvre, et en particulier le Triomphe
-de la République, je renvoie à l'excellent article, si nourri,
-du citoyen Deshairs, paru dans le Mouvement du 1” octobre.
-tion. Immédiatement cette population parisienne s'enfla
-comme un beau fleuve et par toutes les voies se dirigea
-vers la place dela Nation.
+Enfin la République triompha dans la rue par la procession du peuple parisien le dimanche 19, le grand dimanche.
 
-La Petite République avait annoncé, en grosses italiques fortes et bien situées, que sa rédaction et son
-administration partiraient à midi. Le Treizième, comme
-on le nomme amicalement, c'est-à-dire les groupes si
-puissants et si cordiaux du treizième arrondissement,
-socialistes et révolutionnaires, le groupe les Étudiants
-Collectivistes de Paris (non adhérent au Parti ouvrier
-français), les organisations syndicales et les cinq coopératives du treizième, renforcés du citoyen Coutant
-et des manifestants de sa circonscription électorale,
-devaient se réunir place d'Italie à partir de dix heures
-et demie du matin. Tout le treizième, comme on disait,
-renforcé de tout Ivry, devait partir en temps utile,
-suivre l'avenue des Gobelins, la rue Monge, la ruc
+Comme les prêtres catholiques réconcilient ou purifient par des cérémonies expiatoires les églises polluées par l'effusion du sang ou par le crime honteux, comme ils ont récemment fait une réparation poiul'église Saint-Joseph, ainsi trois cent mille républicains allèrent en cortège réconcilier la place de la Nation.
 
-Montmartre, et prendre en passant la Petite République.
+La Petite République et Gérault-Richard avaient eu l'initiative de cette manifestation, comme ils avaient eu, avec toute l'opinion publique, l'initiative, en des temps plus difficiles, d'aller à Longchamp. Nous rendrons cette justice aux adversaires de la République de constater que cette fois-ci encore ils lircnt tout ce qu"iU
 
-Midi sonnaient quand nous arrivâämes au coin de la
-rue Réaumur. Deux ou trois cents personnes attendaient
-joyeusement au clair soleil sur les trottoirs. Leur disposition même rappelait invinciblement à la mémoire la
-disposition pareille des militants rangés au bord des
-trottoirs un peu vides en un jour sérieux de l'année
-précédente. C'était le jour de la rentrée des Chambres.
+pouvaient pour que la manifestation fût grandiose. M. Paulin Méry fit coller sur les murs de grandes affiches rouges, émanant d"un Comité d'action socialiste et patriotique dont il s'intitulait, bien entendu, le délégué général. Le bureau du Conseil Municipal fit donc apposer des proclamations officieuses. La Commission executive de l'Agglomération parisienne du Parti ouvrier français avait fait poser des affiches beaucoup plus modestes, un quart ou un demi-quart de colombier, car officiellement les guesdistes n'ont pas d'argent; ces affiches d'un rouge modeste, au nom de je ne sais plus combien de groupements parisiens, avertissaient le lecteur que, le gouvernement et M. Bellan ayant interdit le di-apeau rouge, les ^Tais socialistes et les XTais révolutionnaires étaient par là-même exclus de la manifestation. Le parti guesdiste s'est apparemment donné la tâche glorieuse de sauver le drapeau rouge des subornations de M. Waldeck-Rousseau. Les guesdistes n'ont jamais mis leur drapeau dans leur* poche : demandez plutôt à M. Alexandre Zévaès des nouvelles de son élection. Les guesdistes n'ont pas beaucoup défendu le drapeau rouge contre les brutalités de M. Dupuy ni contre les férocités sournoises de M. Méline. Cela était plus difficile. Enfin ils firent défense à la population parisienne d'aller fêter le Triomphe de la République, puisque cette République de Dalou (i) n'était pas la République sociale, mais, remarquez-le bien, la capitaliste. Les ffuesdistes mirent en interdit la manifesta(i) Sur Dalou, son œuvre, et en particulier le Triomphe de la République, je renvoie à l'excellent article, si nourri, du citoyen Deshairs,paru dans le Mouvement du i "octobre.
 
-Dans la seconde moitié de la journée nous attendions
+lion. Immédiatement cette population parisienne s'enfla comme un beau fleuve et par toutes les voies se dirigea vers la place de la Nation.
 
-au même endroit, pareillement disposés, un peu moins
+La Petite République avait annoncé, en grosses italiques fortes et bien situées, que sa rédaction et son ;idministration partiraient à midi. Le Treizième, comme on le nomme amicalement, c'est-à-dire les groupes si puissants et si cordiaux du treizième arrondissement, socialistes cl révolutionnaires, le groupe les Etudiants Collectivistes de Paris (non adhérent au Parti ouvrier Irançais), les organisations syndicales et les cinq coopératives du treizième, renforcés du citoyen Coulant et des manifestants de sa circonscription électorale, devaient se réunir place d'Italie à partir de dix heures et demie du matin. Tout le treizième, comme on disail, renforcé de tout Ivry, devait partir en temps utile, suivre l'avenue des Gobelins, la rue Plonge, la rue Montmartre, et prendre en passant la Petite République.
 
-nombreux, sans doute un tout petit peu parce qu'on
+Midi sonnaient quand nous arrivâmes au coin de la rue Réaumur. Deux ou trois cents persomies attendaient joyeusement au clair soleil sur les trottoirs. Leur disposition même rappelait invinciblement à la mémoire la disposition pareille des militants rangés au bord des trottoirs un peu vides en un jour sérieux de Tannée précédente. C'était le jour de la rentrée des Chambres. Dans la seconde moitié de la journée nous attendions au même endroit, pareillement disposés, un peu moins nombreux, sans doute un tout petit peu parce qu'on pouvait se battre sérieusement, mais surtout et beaucoup parce que c'était en semaine et que les ouvriers travaillaient, parce que ce n'était pas jour de fête, parce qu'il ne faisait pas ce soleil admirable, et parce qu'en ce temps-là le peuple ne savait pas encore. Les églantincs rouges ne fleurissaient pas alors les boutonnières des vestes, des par-dessus et des capuchons, mais à une marque discrète chacun reconnaissait mystérieusement les siens.
 
-pouvait se battre sérieusement, mais surtout et beaucoup parce que c'était en semaine et que les ouvriers
+L'image de ce jour devenu si lointain par le nombre et l'importance des événements intercalaires, de ce jour déjà devenu comme étranger parce que la situation s'est retournée dans l'intervalle, eut tout le loisir de fréquenter notre mémoire, car le cortège ne partit nullement à midi. Evidemment le service d'Etat-Major était assez mal organisé. On devisait donc entre amis et camarades. On allait admirer dans la vitrine du journal un bel étendard, un drapeau rouge, mais avec la hampe au milieu, et ces mots brodés en trois lignes transverses : La — Petite République — socialiste, et les deux cartouches bleus aux inscriptions dorées: Xi Dieu Jii Maître; Prolétaires de tous les pays, unissez-vous. L'attente se prolongeait. On remarqua que le mot pays sur le deuxième cartouche était mis en surcharge. On achetait des églantines rouges au l:)ureau du journal, au magasin plutôt. Ces églantines ont été perlectioimées depuis Longcharap. Alors on les donnait, à présent on les vend : un sou l'exemplaire, trois francs le cent, ^ângt-sept francs le mille ; à présent on la nomme églantine rouge double. Elle est plus grande, plus grosse; elle a en effet deux l'angées de iictales, une à l'extérieur, plus grande et large, une à l'intérieur, plus petite. Naguère les pétales simples étaient fixés sous une petite boule jaune, parfois surmontée de deux ou trois petits fils jaunes, qui figurait, grossièrement et naïvement, les étamincs et le pistil. Aujourd'hui la boule centrale est plus grosse et toute rouge. Naguère on mettait potu* la plupart une seule fleurette à la boutonnière, comme une marque. Aujourd'hui, dans lui besoin d'expansion, d'exubérance et de floraison, on met, à toutes enseignes, des bouquets entiers. L'églantine est plus rouge, toute rouge, plus symbolique, mais elle est moins églantine, moins fleur. C'est une flemsans pollen: lequel vaut mieux ? On discute sagement là-dessus. Les partisans du progrès préfèrent la nouvelle églantine; les horticulteurs — on nomme ainsi les hommes qui cultivent leur jardin — aimaient mieux la petite fleur.
 
-travaillaient, parce que ce n'était pas jour de fête, parce
+Attendant encore on vit passer plusieurs délégations qui n'étaient pas en retard : quelques hommes à la fois, avec ou sans insignes, dont l'un portait quelque bannière, ou fièrement brandie, ou familièrement sous le bras ; les uns marchaient au milieu de la route, et c'était un amusant défilé de quatre hommes, sérieux cependant; quelques-uns s'en allaient plus civilement sur les trottoirs. Déjà en venant nous avions rencontré, aux environs de l'Hôtel de Ville, plusieurs francs-maçons, portant librement leurs insignes étonnés do prendre l'air.
 
-qu'il ne faisait pas ce soleil admirable, et parce qu'en
+Attendant toujours on apprit que Jaurès ne serait pas là, retenu dans l'Ain et dans le Jiu-a par les soins de la propagande. On regretta son absence, non pas seulement parce que ses camarades l'aiment familièrement, mais aussi parce qu'il manquait vraiment à cette fête, qui lui ressemblait, énormément puissante, et débordante.
 
-ce temps-là le peuple ne savait pas encore. Les églantines rouges ne fleurissaient pas alors les boutonnières
-des vestes, des pardessus et des capuchons, mais
-une marque discrète chacun reconnaissait mystérieusement les siens.
+Il était midi et demie environ quand Gérault arriva, toujours cordial, et gai comme le beau temps. 11 venait de qvdtter le treizième, qui était en retard, et qui rega- gnait directement par le pont d'Austerlitz. Au treizième, disait-on, ils sont au moins dix mille. — Partons.
 
-L'image de ce jour devenu si lointain par le nombre
-et l'importance des événements intercalaires, de ce jour
-déjà devenu comme étranger parce que la situation
-s'est retournée dans l'intervalle, eut tout le loisir de
-fréquenter notre mémoire, car le cortège ne partit nullement à midi. Évidemment le service d'État-Major était
-assez mal organisé. On devisait donc entre amis et camarades. On allait admirer dans la vitrine du journal
-un bel étendard, un drapeau rouge, mais avec la hampe
-au milieu, et ces mots brodés en trois lignes transverses: La — Petite République — socialiste, et les deux
-cartouches bleus aux inscriptions dorées: Ni Dieu ni
-Maître; Prolétaires de tous les pays, unissez-vous. L'attente se prolongeait. On remarqua que le mot pays sur
-le deuxième cartouche était mis en surcharge.
-achetait des églantines rouges au bureau du journal, au
-magasin plutôt. Ces églantines ont été perfectionnées
-depuis Longchamp. Alors on les donnait, à présent
-on les vend: un sou l'exemplaire, trois francs le cent,
-vingt-sept francs le mille; à présent on la nomme églan-
+Il était midi et demie passé quand on forma le cortège. Quelques vieux militaires âgés de vingt-deux ans, récemment échappés de la caserne, chantonnèrent en riant la sonnerie : au drapeau ! quand on sortit du magasin le rouge étendard. L'idée que l'on allait marcher en rangs, au pas, au milieu de la rue, éveillait chez beaucoup d'assistants d'agréables souvenirs militah^es, car invinciblement une foule qui marche en rangées au pas tend à devenir luie armée, comme une armée en campagne tend à marcher comme une foule. Et ce qui est mauvais dans le service militaire, c'est le service, la servitude, l'obéissance passive, le surmenage physique, et non pas les grandes marches au grand soleil des routes. On se forma. Quelques-ims commandèrent en riant : En aidant ! Le premier rang était formé de porteurs de la Petite République. Ils avaient leur casquette galonnée, l'inscription en lettres d'argent. Trois d'entre eux portaient l'étendard et les deux cartouches. Quand on aura socialisé même les fêtes socialistes, les militants porteront eux-mêmes leur drapeau. Je ne désespère pas de voir Jaurès porter un drapeau rouge de ses puissantes mains.
 
-- tine rouge double. Elle est plus grande, plus grosse;
-elle a en effet deux rangées de pétales, une à l'extérieur, plus grande et large, une à l'intérieur, plus petite.
-Naguère les pétales simples étaient fixés sous une petite
-boule jaune, parfois surmontée de deux ou trois petits
-fils jaunes, qui figurait, grossièrement et naïvement,
-les étamines et le pistil. Aujourd'hui la boule centrale
+Nous partîmes cinq cents par la rue Réaumur, mais nous fûmes un prompt renfort pour l'Avenir de Plaisance, la puissante société coopérative de consommation , avec laquelle nous confluâmes au coin de la rue Turbigo, et qui avait une musique, ce qui accroissait l'impression de marche mihtaire. Place de la République, c'était déjà la fête. Quelques gardes républicains à cheval ne nuisaient nullement au service d'ordre. Au large de la place, des files de bannières luisaient et brillaient. Un peuple iuuncnsc et g-ai. Nous allâmes nous ranger boulevard Richard-Lenoir, je crois. Il y avait tant de monde que l'on ne reconnaissait plus les rues, les larges avenues de ces quartiers. Nous étions auprès de la statue du sergent Bobillot. Un porteur de la Petite République explique à son voisin pourquoi il préfère un homme comme Bobillot à un homme comme Marchand. Nous attendons là longtemps, insérés dans les groupes ouvriers en costume de travail. C'est nouveau. Près de nous le vaste et muable moutonnement des chapeaux de feutre enfarinés aux larges bords : ce sont les forts de la Halle (i), coltineurs non débiles, qui stationnent pesamment, puissamment. Nous sommes directement sous la protection de Lépine, qui est là tout près, au sergent Bobillot, disent quelques-uns. Grâce à la protection de Lépine, continuent-ils en riant, nous allons défiler en bonne place dans le cortège. Tout cela n'empêche pas que si on refait la Commune on le fusillera tout de même, dit près de moi un vieux communard uniyersellement connu comme un brave homme. Je crois qu'il plaisante et veux continuer la plaisanterie. Avec quoi les fusillera-t-on ? — Avec des balles, comme les autres, me répond-il sérieusement. Je le regarde bien dans les yeux, pour voir, parce que sa parole sonne faux en cette fête. Il a toujours les mêmes yeux bleus calmes et la même parole calme. Ces vieux communards sont extraordinaires. On ne sait jamais s'ils parlent sérieusement ou par manière de plaisanter. Ils ont avec nous des mvstifications froides comme les (i) Ou plutôt les forts aux farines.
 
-est plus grosse et toute rouge. Naguère on mettait pour
-la plupart une seule fleurette à la boutonnière, comme
-une marque. Aujourd'hui, dans un besoin d'expansion,
-d'exubérance et de floraison, on met, à toutes enseignes, des bouquets entiers. L'églantine est plus rouge,
-toute rouge, plus symbolique, mais elle est moins églantine, moins fleur. C'est une fleur sans-pollen: lequel
-vaut mieux? On discute sagement là-dessus. Les partisans du progrès préfèrent la nouvelle églantine; les
-horticulteurs — on nomme ainsi les hommes qui cultivent leur jardin — aimaient mieux la petite fleur.
+vieux soldats du second Empire en avaient avec les recrues. Ils sont de la mémo génération. Ils ont, comme eux, fait la guerre. Et cela doit marquer lui homme. Deux hommes, adossés au mur d'une maison adjacente, pour se reposer de la longue station, disent gravement: C'est tout de même beau, une fête comme ça, c'est tout de même beau. Et ils répètent profondément sur un rythme las : C'est beau. C'est beau. Il passe des enfants, petits garçons et petites filles, délégations des écoles ou des patronages laïques. On leur fait place avec une sincère et universelle déférence. On pousse en leur honneur de jeunes vivats. Ils y répondent. Ils passent en criant de leurs voix gamines, comme des hommes : Conspuez Rochefort, conspuez. Cela est un peu vif, un peu violent, fait un peu mal.
 
-Attendant encore on vit passer plusieurs délégations
-qui n'étaient pas en retard: quelques hommes à la fois,
-avec ou sans insignes, dont l'un portait quelque bannière, ou fièrement brandie, ou familièrement sous le
-bras; les uns marchaïent au milieu de la route, et
-c'était un amusant défilé de quatre hommes, sérieux
-cependant; quelques-uns s'en allaient plus civilement
-sur les trottoirs. Déjà en venant nous avions rencontré,
-aux environs de l'Hôtel de Ville, plusieurs francsmaçons, portant librement leurs insignes étonnés de
-prendre l'air.
+Mais par-dessus toutes les conversations, pardessus tous les regards, par-dessus toute rumeur montaient les chants du peuple. Dès le départ, et sur tout le trajet, et pendant la station, et puis tout au long du cortège, le peuple chantait. Je ne connaissais pas les chants révolutionnaires, sauf la Carmagnole, dont le refrain est si bien fait pour plaire à tout bon artilleur, et que tout le monde chante. Je ne connaissais que de nom l'immense et grave Internationale. A présent je la connais assez pour accompagner le refrain en ronronnant, comme tout le monde. Mais le ronron d'un peuple est redoutable. Ceux qui savent les couplets de l'Internationale sont déjà des spécialistes. Aussi quand on veut lancer l'Internationale , comme en général celui qui veut la lancer ne la sait pas, on commence toujours par chanter le refrain. Alors le spécialiste se réveille et commence le premier couplet.
 
-Attendant toujours on apprit que Jaurès ne serait
-pas là, retenu dans l'Ain et dans le Jura par les soins
-de la propagande. On regretta son absence, non pas
-seulement parce que ses camarades l'aiment familièrement, mais aussi parce qu'il manquait vraiment à cette
-fête, qui lui ressemblait, énormément puissante, et
+Les chants révolutionnaires, chantés en salles closes, n'ont assurément pas moins de paroles déplaisantes que de paroles réconfortantes. Chantés dans la rue contre la police et contre la force armée, ils doivent être singulièrement et fiévreusement, rougement ardents. Chantés pour la première fois dans la rue avec l'assentiment d'un gouvernement bourgeois républicain, ils avaient un air jeune et bon garçon nullement provocant. Ces chansons brûlantes en devenaient fraîches. Mais plus volontiers que les chansons traditionnelles, plus fréquentes encore, les acclamations et les réprobations rythmées traditionnelles, moitié chant, moitié verbe et moitié tambour, les conspuez et les vive scandaient la marche du peuple. On redisait inlassablement les anciens rythmes, et, comme on était en un joiu* d'expansion, on improvisait de nouvelles paroles. Si les ennemis de M. le marquis de Rochefort — on m'assure qu'il en a gardé quelques-uns — s'imaginaient que sa popularité a diminué, ils auraient tort. Elle s'est retournée seulement. Je ne crois pas que jamais le peuple de Paris ait aussi tempétueusement crié ce nom de Rochefort. Il était beaucoup plus question d'un certain Boubou que d'un certam Barbapoux. La guerre inexpiable de la rime et de la raison se poursuivait parmi ce peuple en marche. Les rimes en on étaient particulièrement recherchées, parce que, sous une forme écourtée, elles introduisent le refrain populaire ton ton ton taine ton ton. Les rimes en on avaient l'avantage d'être particulièrement nombreuses. Mais elles avaient le désavantage de n'être pas toutes convenables. Comme on était dans la rue, et comme il y avait beaucoup de femmes et d'enfants dans le cortège, et dans la double haie des spectateurs, le peuple choisissait souvent celles des rimes en on qui étaient convenables. Ainsi le peuple chantait que Rochefort est un vieux barbon, que plus il devient vieux, plus il devient bon. Le compdiTatif meilleur était ainsi nég^ligé. Ce peuple n'avait aucune colère ni aucune pitié contre Déroulède, qu'il envoyait simplement et fréquemment à Charenton. Il n'avait même aucune réserve, aucune fausse honte, rien de ce sentiment qui nous retenait malgré nous envers rni prisonnier et un condamné de la veille. Nous aurions été gênés pour faire allusion à la petite condamnation de Déroulède. Le peuple, plus carrément, et peut-être plus sagement, ne se contentait pas d'envoyer Déroulède à Charenton. Les malins imaginaient des variantes et les lançaient : Ah ! Déroulède trois mois de prison; Ah ! Déroulède est au violon. Un nouveau chant parlé commençait à se répandre, plus volontaire, plus précis, plus redoutable, inventé sur le champ : au bagne, Mercier, au bagne. Le mot bagne, ainsi chanté, avec rage, résonne extraordinairement dans la mâchoire et dans les tempes. Un brave homme, petit et mince, entendant mal, criait avec acharnement : ad bal. Mercier. Quand il s'aperçut de son erreur, il m'expliqua que, dans sa pensée, il donnait au mot bal ce sens particulier qu'on lui donne au régiment, où, par manière de plaisanterie amêre, on désigne ainsi le peloton de pxmition.
 
-Il était midi et demie environ quand Gérault arriva,
-toujours cordial, et gai comme le beau temps. Il venait
-de quitter le treizième, qui était en retard, et qui regagnait directement par le pont d'Austerlitz. Au treizième,
-disait-on, ils sont au moins dix mille. — Partons.
-
-Il était midi et demie passé quand on forma le cortège. Quelques vieux militaires âgés de vingt-deux ans,
-récemment échappés de la caserne, chantonnèrent en
-riant la sonnerie: au drapeau! quand on sortit du magasin le rouge étendard. L'idée que l'on allait marcher
-en rangs, au pas, au milieu de la rue, éveillait chez
-car invinciblement une foule qui marche en rangées au
-pas tend à devenir une armée, comme une armée en
-campagne tend à marcher comme une foule. Et ce qui
-est mauvais dans le service militaire, c'est le service, la
-servitude, l'obéissance passive, le surmenage physique,
-et non pas les grandes marches au grand soleil des
-routes. On se forma. Quelques-uns commandèrent en
-riant: En avant! Le premier rang était formé de porteurs de la Petite République. avaient leur casquette galonnée, l'inscription en lettres d'argent. Trois
-d'entre eux portaient l'étendard et les deux cartouches.
-Quand on aura socialisé même les fêtes socialistes, les
-militants porteront eux-mêmes leur drapeau. Je ne désespère pas de voir Jaurès porter un drapeau rouge de
-ses puissantes mains.
-
-Nous partimes cinq cents par la rue Réaumur, mais
-nous fûmes un prompt renfort pour l'Avenir de Plaisance, la puissante société coopérative de consommation, avec laquelle nous confluâmes au coin de la rue
-Turbigo, et qui avait une musique, ce qui accroissait
-l'impression de marche militaire. Place de la République, c'était déjà la fête. Quelques gardes républicains à cheval ne nuisaient nullement au service
-
-d'ordre. Au large de la place, des files de bannières
-luisaient et brillaient. Un peuple immense et gai. Nous
-allâmes nous ranger boulevard Richard-Lenoir, je crois.
-Il y avait tant de monde que l'on ne reconnaissait plus
-les rues, les larges avenues de ces quartiers. Nous
-étions auprès de la statue du sergent Bobillot. Un porteur de la Petite République explique à son voisin pourquoi il préfère un homme comme Bobillot à un homme
-comme Marchand. Nous attendons longtemps, insérés dans les groupes ouvriers en costume de travail.
-C'est nouveau. Près de nous le vaste et muable moutonnement des chapeaux de feutre enfarinés aux larges
-bords: ce sont les forts de la Halle (1), coltineurs non
-débiles, qui stationnent pesamment, puissamment. Nous
-sommes directement sous la protection de Lépine, qui
-est tout près, au sergent Bobillot, disent quelques-uns.
-Grâce à la protection de Lépine, continuent-ils en riant,
-nous allons défiler en bonne place dans le cortège. Tout
-cela n'empêche pas que si on refait la Commune on le
-fusillera tout de même, dit près de moi un vieux communard universellement connu comme un brave homme.
-Je crois qu'il plaisante et veux continuer la plaisanterie. Avec quoi les fusillera-t-on? — Avec des balles,
-comme les autres, me répond-il sérieusement. Je le regarde bien dans les yeux, pour voir, parce que sa parole
-sonne faux en celte fête. IL a toujours les mêmes yeux
-bleus calmes et la même parole calme. Ces vieux communards sont extraordinaires. On ne sait jamais s'ils
-parlent sérieusement ou par manière de plaisanter. Ils
-ont avec nous des mystifications froides comme les
-
-(1) Ou plutôt les forts aux farines.
-
-vieux soldats du second Empire en avaient avec les recrues. Ils sont de la même génération. Ils ont, comme
-eux, fait la guerre. Et cela doit marquer un homme.
-Deux hommes, adossés au mur d'une maison adijacente,
-pour se reposer de la longue station, disent gravement:
-C'est tout de même beau, une fête comme ça, c'est tout
-de même beau. Et ils répètent profondément sur un
-rythme las: C'est beau. C'est beau. Il passe des enfants,
-petits garçons et petites filles, délégations des écoles
-ou des patronages laïques. On leur fait place avec une
-sincère et universelle déférence. On pousse en leur honneur de jeunes vivats. Ils y répondent. Ils passent en
-criant de leurs voix gamines, comme des hommes
-Conspuez Rochefort, conspuez. Cela est un peu vif, un
-peu violent, fait un peu mal.
-Mais par-dessus toutes les conversations, par-dessus
-tous les regards, par-dessus toute rumeur montaient
-les chants du peuple. Dès le départ, et sur tout le
-trajet, et pendant la station, et puis tout au long du
-cortège, le peuple chantait. Je ne connaissais pas les
-chants révolutionnaires, sauf la Carmagnole, dont le
-refrain est si bien fait pour plaire à tout bon artilleur,
-et que tout le monde chante. Je ne connaissais que de
-nom l'immense et grave Internationale. A présent je
-la connais assez pour accompagner le refrain en ronronnant, comme tout le monde. Mais le ronron d'un
-peuple est redoutable. Ceux qui savent les couplets de
-l'Internationale sont déjà des spécialistes. Aussi quand
-on veut lancer l'Internationale, comme en général celui
-qui veut la lancer ne la sait pas, on commence toujours
-par chanter le refrain. Alors le spécialiste se réveille
-et commence le premier couplet.
-
-Les chants révolutionnaires, chantés en salles closes,
-n'ont assurément pas moins de paroles déplaisantes que
-de paroles réconfortantes. Chantés dans la rue contre la
-police et contre la force armée, ils doivent être singulièrement et fiévreusement, rougement ardents. Chantés
-pour la première fois dans la rue avec l'assentiment
-d'un gouvernement bourgeois républicain, ils avaient un
-air jeune et bon garçon nullement provocant. Ces chansons brülantes en devenaient fraiches. Mais plus volontiers que les chansons traditionnelles, plus fréquentes
-encore, les acclamations et les réprobations rythmées
-traditionnelles, moitié chant, moitié verbe et moitié
-tambour, les conspuez et les eive scandaient la marche
-du peuple. On redisait inlassablement les anciens
-rythmes, et, comme on était en un jour d'expansion, on
-improvisait de nouvelles paroles. Si les ennemis de
-gardé quelques-uns — s'imaginaient que sa popularité
-a diminué, ils auraient tort. Elle s'est retournée seulement. Je ne crois pas que jamais le peuple de Paris ait
-aussi tempétueusement crié ce nom de Rochefort. Il
-était beaucoup plus question d'un certain Boubou
-que d'un certain Barbapoux. La guerre inexpiable de
-la rime et de la raison se poursuivait parmi ce peuple
-en marche. Les rimes en on étaient particulièrement
-recherchées, parce que, sous une forme écourtée, elles
-introduisent le refrain populaire {on ton ton taine ton
-ton. Les rimes en on avaient l'avantage d'être particulièrement nombreuses.Mais elles avaient le désavantage
-de n'être pas toutes convenables. Comme on était dans
-la rue, et comme il y avait beaucoup de femmes et
-d'enfants dans le cortège, et dans la double haïe des
-
-spectateurs, le peuple choisissait souvent celles des
-rimes en on qui étaient convenables. Ainsi le peuple
-chantait que Rochefort est un vieux barbon, que plus il
-devient vieux, plus il devient bon. Le comparatif meilleur
-était ainsi négligé. Ce peuple n'avait aucune colère ni
-aucune pitié contre Déroulède, qu'il envoyait simplement et fréquemment à Charenton. Il n'avait même
-aucune réserve, aucune fausse honte, rien de ce sentiment qui nous retenait malgré nous envers un prisonnier
-et un condamné de la veille. Nous aurions été gênés
-pour faire allusion à la petite condamnation de Déroulède. Le peuple, plus carrément, et peut-être plus sagement, ne se contentait pas d'envoyer Déroulède à Charenton. Les malins imaginaient des variantes et les
-lançaient: Ah! Déroulède trois mois de prison; Ah!
-Déroulède est au violon. Un nouveau chant parlé commençait à se répandre, plus volontaire, plus précis, plus
-redoutable, inventé sur le champ: au bagne, Mercier,
-au bagne. Le mot bagne, ainsi chanté, avec rage,
-résonne extraordinairement dans la mâchoire et dans
-les tempes. Un brave homme, petit et mince, entendant
-mal, criait avec acharnement: au bal, Mercier. Quand
-il s'aperçut de son erreur, il n'expliqua que, dans sa
-pensée, il donnait au mot bal ce sens particulier qu'on
-lui donne au régiment, où, par manière de plaisanterie
-
-amère, on désigne ainsi le peloton de punition.
-
-Cependant que la grave Internationale, largement,
-
-immensément chantée, s''épandait comme un flot formidable, cependant que le Mercier, au bagne, rythmé
-
-coléreusement, scandait la foule même et la déconcertait, le cortège longuement, lentement, indéfiniment, se
-
-déroulait tout au long du boulevard Voltaire, avec des
-
-pauses et des reprises. Arrivés au milieu, on ne voyait
-ni le commencement ni la fin. Au-dessus du cortège une
-longue, immense file de drapeaux rouges, de pancartes
-bleues, d'insignes et ornements triangulaires et variés,
-se défilait en avant et l'on se retournait pour la voir se
-défiler en arrière. Avec nous nos bons camarades, la
-Ligue démocratique des Écoles, portaient leur pancarte
-bleue aux lettres dorées. On ne pouvait lire les pancartes
-plus éloignées qui se perdaient au loin. Aussi je préfère
-emprunter à la Petite République les beaux noms de
-métier des ouvriers qui avaient promis leur concours
-la manifestation. Je lis dans la Petite République du
-matin même, datée du lundi, les convocations suivantes,
-à la file: Chambre syndicale des gargouilleurs; — Syndicat de la chèvre, mouton et maroquin; — Chambre
-syndicale des tailleurs et scieurs de pierre du départeKe ment de la Seine: — Chambre syndicale professionnelle
-des façonniers passementiers à la barre; — Fédération
-des syndicats de Boulogne-sur-Seine: — Chambre
-syndicale des corps réunis de Lorient, Morbihan; —
-Syndicats des bonnes, lingères, filles de salle, blanchisseuses; — Chambre syndicale des infirmiers etinfirmières; — Chambre syndicale des ouvriers balanciers
-du département de la Seine; — Chambre syndicale des
-ouvriers peintres de lettres et attributs. Comme ces
-noms de métier sont beaux, comme ils ont un sers, une
-réalité, une solidité, comparés aux noms des groupements
-‘politiques, tous plus ou moins républicains, socialistes,
-révolutionnaires, amicaux, indépendants, radicauxsocialistes, aux unions, aux associations, et aux cercles,
-et aux cercles d'études sociales, et aux partis. Loin de
-moi la pensée de calomnier les groupements politiques.
+Cependant que la grave Internationale, largement, inmiensément chantée, s'épandait comme un flot formidable, cependant que le Mercier, au bagne, rythmé coléreusement, scandait la foule même et la déconcertait, le cortège longuement, lentement, indéfiniment, se déroulait tout au long du boulevard Voltaire, avec des pauses et des reprises. Arrivés au milieu, on ne voyait ni le commencement ni la fin. Au-dessus du cortège une longue, immense file de drapeaux rouges, de pancartes hleues, d'insignes et oi'nements triangulaires et variés, se défilait en avant et l'on se retournait pour la voir se défiler en arrière. Avec nous nos bons camarades, la Ligue démocratique des Écoles, portaient leur pancarte bleue aux lettres dorées. On ne pouvait lire les pancartes plus éloignées qui se perdaient au loin. Aussi je préfère emprunter à la Petite République les beaux noms de métier des ouvriers qui avaient promis leur concours à la manifestation. Je lis dans la Petite République du matin même, datée du lundi, les convocations suivantes, à la file: Chambre.yndicale des g-argouilleurs; — Syndicat de la chèvre, mouton et maroquin; — Chambre syndicale des tailleurs et scieurs de pierre du département de la Seine; — Cliambre syndicale professionnelle des façonniet^s passementiers à la barre; — Fédération des syndicats de Boidogne-sur-Seine; — Chambre syndicale des corps réunis de Lorient, Morbihan; — Syndicats des bonnes, lin gères, filles de salle, blanchisseuses; — Chambre syndicale des infrmiers et infirmièi'es; — Chambre syndicale des ouvriers balanciers du département de la Seine; — Chambre syndicale des ouvriers peintres de lettres et attributs. Comme ces noms de métier sont beaux, comme ils ont un sens, une réalité, une solidité, comparés aux noms des groupements politiques, tous plus ou moins républicains, socialistes, révolutionnaires, amicaux, indépendants, radicaux-socialistes, aux unions, aux associations, et aux cercles, et aux cercles d'études sociales, et aux partis. Loin de moi la pensée de calomnier les groupements politiques.
