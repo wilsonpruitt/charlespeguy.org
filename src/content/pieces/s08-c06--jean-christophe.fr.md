@@ -5,1536 +5,943 @@ lang: fr
 title: Jean-Christophe. IV. La révolte. 2. L'enlisement
 author: romain-rolland
 isAvertissement: false
-wordCount: 18264
+wordCount: 31312
+sourceProvenance: "Wikisource (La Révolte (Jean-Christophe)/II L’Enlisement, status=validated); pulled 2026-06-19"
 ---
-paraissant seize fois par an
-8, rue de la Sorbonne, au rez-de-chaussée
-
-PA) Nous avons publié dans nos éditions antérieures et
-
-dans nos cinq premières séries, 1900-1904, un Si 18)
-
-grand nombre de documents, de textes formant dossi grand nombre de cahiers de lettres, — nouvelles,:
-a romans, drames, dialogues, poèmes et contes; — un
-4 si grand nombre de cahiers d'histoire et de philo- « sophie; et ces documents, renseignements, textes,
-dossiers et commentaires, ces cahiers de lettres,
-d'histoire et de philosophie étaient si considérables se à
-que nous ne pouvons pas songer à en donner ici
-l'énoncé même le plus succinct; pour savoir ce qui a “AT
-aru dans les. cinq premières séries des cahiers, il
-
-a suffit d'envoyer un mandat de cinq francs à M. André
-Bourgeois, administrateur des cahiers, 8, rue de la Sor- Hi.
-bonne, rez-de-chaussée, Paris, cinquième arrondisse-:
-ment; on recevra en retour le catalogue analytique
-sommaire, 1900-1904, de nos cinq premières séries.
-À Ce catalogue a été justement établi pour donner, CRE
-autant qu'il se pouvait, une image en bref, un raccourci,
-À une idée, abrégée, mais complète, de nos éditions anté-
-À rieures et de nos cinq premières séries; tout y est classé
-(le dans l'ordre; il suffit de le lire pour trouver, à leur. ATOS
-place, les références demandées. Ô QU,
-Ce catalogue, grand jésus, forme un cahier
-Et très épais de XI1+-408 pages très denses, marqué cinq
-
-francs; ce cahier comptait comme premier cahier de à
-4 sixième série et nos abonnés l'ont reçu à sa date, le
-2 octobre 1904, comme premier cahier de la sixième AN
-série; toute personne qui jusqu'au 31 décembre 1905 (FEU
-s'abonnait rétrospectivement à la sixième série le rece- AS
-vait, par le fait même de son abonnement, en tête de la É me
-1 série; nous l'envoyons contre un mandat de cinq francs
-._ à toute personne qui nous en fait la demande. AS:
-Pour la septième série, année ouvrière 1905-1906, et
-…. en attendant que paraiïsse le catalogue analytique som-
-É maire de nos deuxièmes cinq séries, 1904-1909, on #5 » peut consulter, — provisoirement, — la petite table a
-- analytique très sommaire que nous en avons établie et
-que nous avons publiée en fin du premier cahier de la
-Pour amorcer tout travail que l'on aurait à commencer 7202
-- dans notre premier catalogue analytique sommaire, con- ‘Aie
-4 sulter le petit index alphabétique provisoire que nous
-…. avons établi automatiquement de ce catalogue analy- mue
-tique sommaire dans l'index total de nos éditions anté-;
-3 rieures et de nos sept premières séries, même premier
-… cahier de la huitième série.
-
-AVR aux Cahiers de la Quinzaine LE
-4 à Le présent petit index donne automati-: NOR
-quement pour tout volume et pour tout ‘eu
-le numéro d'ordre de ce cahier dans Dan
-4 le classement général de nos collections
-complètes, le numéro d'ordre de la série À hi.
-he: capitales de romain et le numéro d'ordre
-Pare du cahier lui-même, dans la série ainsi Me:
-nur déterminée, en chiffres arabes, de sorte
-4 que par exemple doit évidemment se
-EU:* lire dix-septième cahier de la cinquième
-. UN faut, la date du fini d'imprimer, ou, à son
-4 défaut, la date du cahier même; 4:11
-Ne quand il y a lieu, c'est-à-dire pour nos
-; éditions antérieures et pour nos cinq pre- ME
-0 mières séries, la page du catalogue ana-
-10 lytique sommaire où ce cahier se trouve
-Romain Rolland, — Aërt, — trois actes, — premier août
-1898, un volume en voie d'épuisement.. sept francs
-tobre 1899, un volume en voie d'épuisement..............: Ce
-3 — — Danton, —trois actes, — Jeudi 7 février 1901, je ne
-ni: un cahier épuisé, n'est plus mis en vente que dans les col:
-Pig complètes de la deuxième série...............
-
-Le A Romain Rolland, — une introduction à une Lettre inédite
-a de Tolstoi, adressée à Romain Rolland (9, samedi
-à à — — Le 14 juillet, action populaire, — trois actes,
-15 — — Vies des hommes illustres, — Beethoven, avecle
-. en masque de Beethoven ([V-10, samedi 27 janvier 1903, un
-on cahier épuisé, n'est plus mis en vente que dans les collec A
-tions complètes de la quatrième série................
-— — Vies des hommes illustres, — Beethoven,
-4 deuxième édition, sans le masque (IV-10,, mardi 22 sep
-ni — — Le temps viendra, — trois actes (V-14, mardi À
-A — — le Théâtre du Peuple mardi 24 novembre
-rie. 1903, un cahier épuisé, n'est plus mis en vente que dans
-les collections complètes de la cinquième série..... 9277 #4
-À — — — — le même sous couverture Fischbacher, « quelques exemplaires.............. trois francs cinquante …
-— — Jean-Christophe. — X. — L'aube mardi 2 à
-je prier I904........sie.......:. trois francs Cinquante PSS
-.: — — Jean-Christophe. — I. — L'aube, — édition Ollendorff, en vente à la librairie des cahiers..:...............
-ï — — Jean-Christophe. — IL. — Le matin; la mort de.
-Jean-Michel; Otto; Minna (V-10, mardi 16 février 1904....
-Das — — Jean-Christophe. — I. — Le matin, — édition
-à Olleñdorff, en vente à la librairie des cahiers............
-la trois francs cinquante
-
-Romain Rolland, —Jean-Christophe. —TIL. — l'adolescent; es
-la maison Euler; Sabine; Ada (VI-8, mardi 10 janvier 1905, a ne
-AK” — — Jean-Christophe. — I. — l'adolescent, — édition Pur
-Ollendorff, en vente à la librairie des cahiers.............. MAR
-"1 — — Vies des hommes illustres, — la vie de Miche.
-— — Vies des hommes illustres, — la vie de Michel- En si
-Ange, — IL. — l'abdication (VIII-2, mardi 16 octobre 1906...
-‘ie — — Jean-Christophe. — IV. — la révolte. — 1 —
 
-Lee Il a été tiré de ce cahier treize exemplaires sur
-swhatman ainsi distribués:
-nee remier exemplaire de souche, exemplaire du gérant;
-deuxième exemplaire de souche, exemplaire de ladon ministrateur;
-4 troisième exemplaire de souche, exemplaire de limdix exemplaires d'abonnement, numérotés de 1 à
-Tous nos exemplaires sur whalman sont numérotés
-13 à la presse et imprimés au nom du souscripteur; nos
-(8 tirages d'exemplaires sur whatman sont rigoureuse- à
-! stant souscrits; nous ne vendons point d'exemplaires
+La Délivrance/III_La_D%C3%A9livrance "La Révolte (Jean-Christophe)/III La Délivrance")  ►
 
-sur whatman en dehors de l'abonnement: l'abonnement
-a sur whatman à cette huitième série est de Cent francs
-à pour tous pays.
+L'Enlisement
 
-; Les Cahiers de la Quinzaine sont composés à la main,;
-en caractères fin dix-huitième siècle (Didot) de la fon-
-+4 è derie Mayeur (Allainguillaume et compagnie successeurs) 21, rue du Montparnasse, à Paris, sixième
+###  II  L'ENLISEMENT
 
-Note du gérant. — De ce petit index il résulte que
-Jean-Christophe se compose présentement de quatre
+Christophe en était là de ses expériences maladroites pour réformer l'art allemand, quand vint à passer dans la ville une troupe de comédiens français. Il serait plus juste de dire : un troupeau ; car, suivant l'habitude, c'était un ramassis de pauvres diables, pêchés on ne savait où, et de jeunes acteurs inconnus, trop heureux de se laisser exploiter, pourvu qu'on les fît jouer. Tous ensemble étaient attelés au chariot d'une comédienne illustre et âgée, qui faisait une tournée en Allemagne, et, de passage dans la petite capitale, y venait donner trois représentations.
 
-Le premier livre, Yaube, formait le neuvième cahier
+À la Revue de Waldhaus, on en faisait grand bruit. Mannheim et ses amis étaient au courant de la vie littéraire et mondaine de Paris, ou ils prétendaient l'être ; ils s'en répétaient les potins, cueillis dans les journaux des boulevards, et plus ou moins bien compris : ils représentaient l'esprit français en Allemagne. C'était enlever à Christophe le désir de le connaître davantage. Mannheim l'assommait avec ses éloges de Paris. Il y avait été plusieurs fois ; il avait là une partie de sa famille : --- il avait de la famille dans tous les pays d'Europe ; et, partout, elle avait pris la nationalité et l'aspect du pays ; cette tribu d'Abraham comptait un baronnet anglais, un sénateur de Belgique, un ministre français, un député au Reichstag, et un comte du pape ; et tous, bien qu'unis et respectueux de la souche commune dont ils étaient sortis, étaient sincèrement Anglais, Belges, Français, Allemands, ou papalins : car leur orgueil ne doutait point que le pays qu'ils avaient adopté ne fût le premier de tous. Mannheim était le seul, par paradoxe, qui s'amusât à préférer tous les pays dont il n'était point. Il parlait donc souvent de Paris, et avec enthousiasme ; mais comme il n'en disait que des extravagances, et que, pour faire l'éloge des Parisiens, il les représentait comme des espèces de toqués, paillards et braillards, qui passaient leur temps à faire la noce et des révolutions, sans jamais se prendre au sérieux, Christophe était peu attiré par « la byzantine et décadente république d'outre-Vosges ». De bonne foi, il imaginait un peu Paris, comme le représentait une gravure naïve, qu'il avait vue en tête d'un livre récemment paru dans une collection d'art allemande : au premier plan, le Diable de Notre-Dame, accroupi au-dessus des toits de la ville, avec cette légende :
 
-de la cinquième série; marqué deux francs, ce cahier se
+« *Insatiable vampire l'éternelle Luxure*
+*Sur la grande Cité convoite sa pâture.* »
 
-Le deuxième livre, le matin, formait le dixième cahier
+En bon Allemand, il avait le mépris des Velches débauchés, et de leur littérature, dont il ne connaissait guère que quelques bouffonneries égrillardes, *l'Aiglon, Madame Sans-Gêne*, et des chansons de café-concert. Le snobisme de la petite ville, où les gens les plus notoirement incapables de s'intéresser à l'art s'empressèrent d'aller s'inscrire bruyamment au bureau de location, le jeta dans une affectation d'indifférence dédaigneuse pour la grande cabotine. Il protesta qu'il ne ferait pas un pas pour aller l'entendre. Il lui était d'autant plus facile de tenir sa promesse que les places étaient à un prix excessif, qu'il n'avait pas les moyens de donner.
 
-« 4 de la cinquième série; marqué deux francs, ce cahier se
+Le répertoire, que la troupe française transportait en Allemagne, comprenait deux ou trois pièces classiques ; mais il était composé, en majeure partie, de ces niaiseries, qui sont par excellence l'article parisien pour l'exportation : car il n'y a rien de plus international que la médiocrité. Christophe connaissait *la Tosca*, qui devait être le premier spectacle de la comédienne en tournées ; il l'avait entendue en traduction, parée de toutes les grâces légères que peut donner une troupe de petit théâtre rhénan à une œuvre française ; et il se disait bien aise, avec un rire goguenard, en voyant ses amis partir pour le théâtre, de n'être pas forcé d'aller la réentendre. Il n'en suivit pas moins d'une oreille attentive, sans avoir l'air d'écouter, les récits enthousiastes de la soirée qu'ils firent, le lendemain : il enrageait de s'être enlevé jusqu'au droit de contredire, en ayant refusé de voir ce dont tout le monde parlait.
 
-Le troisième livre, l'adolescent, formait le huitième
+Le second spectacle annoncé devait être une traduction française d'*Hamlet*. Christophe n'avait jamais laissé une occasion de voir une pièce de Shakespeare. Shakespeare était pour lui, au même titre que Beethoven, une source inépuisable de vie. *Hamlet* lui avait été particulièrement cher dans la période de troubles et de doutes tumultueux qu'il venait de traverser. Malgré la crainte qu'il avait de se revoir dans ce miroir magique, il était fasciné par lui ; et il tournait autour des affiches du théâtre, sans s'avouer qu'il brûlait d'envie d'aller prendre une place. Mais il était déjà si entêté, qu'après ce qu'il avait dit à ses amis, il n'en voulait pas démordre ; et il fût resté chez lui, ce soir-là, comme le précédent, si, au moment où il rentrait mélancoliquement, le hasard ne l'avait mis en présence de Mannheim.
 
-cahier de la sixième série; marqué trois francs cin-
+Mannheim l'attrapa par le bras, et lui raconta d'un air furieux, mais sans cesser de gouailler, qu'une vieille bête de parente, une sœur de son père, venait de tomber inopinément chez eux avec toute sa smala, et qu'ils étaient forcés de rester à la maison, pour les recevoir. Il avait essayé de s'esquiver ; mais son père n'entendait pas raillerie sur les questions d'étiquette familiale et d'égards que l'on doit aux ancêtres ; et comme il devait ménager son père, en ce moment, à cause d'une carotte qu'il se proposait de lui tirer, il avait fallu céder, et renoncer à la représentation.
 
-4 quante, ce cahier se vend aujourd'hui trois francs cin-
-
-Il ne nous reste aujourd'hui qu'un petit nombre de ces
+--- Vous aviez vos billets ? demanda Christophe.
 
-a trois cahiers et les personnes qui ne les ont pas feront
-
-bien de nous les demander immédiatement; ces trois
+--- Parbleu ! une loge excellente ; et, pour comble, il faut que je l'aille porter --- (et j'y vais, de ce pas) --- à ce crétin de Grünebaum, l'associé de papa, pour qu'il s'y pavane avec la femme Grünebaum et leur dinde de fille. C'est gai !... Je cherche au moins quelque chose à leur dire de très désagréable. Mais cela leur est bien égal, pourvu que je leur apporte des billets, --- quoiqu'ils aimeraient encore mieux que ces billets fussent de banque.
 
-3 cahiers ne seront pas réimprimés; aussitôt qu'ils seront
+Il s'arrêta brusquement, la bouche ouverte, regardant Christophe :
 
-64 venus en voie d'épuisement, ce qui ne saurait plus tarder, nous les porterons au prix de douze francs l'un
+--- Oh !... Mais voilà... Voilà ce qu'il me faut !...
 
-Le Jusqu'à leur entier épuisement: à dater du jour où ils
+Il gloussa :
 
-seront complètement épuisés, ils ne seront plus mis en
+--- Christophe, tu vas au théâtre ?
 
-4 vente que dans nos collections complètes de nos cinquième et sixième séries, jusqu'à ce que ces séries ellesni” mêmes viennent en voie d'épuisement puis soient complèss
-; tement épuisées. Alors ils ne seront forcément plus mis
+--- Non.
 
-en vente du tout.
+--- Si fait. Tu vas au théâtre. C'est un service que je te demande. Tu ne peux pas refuser.
 
-AU sixième cahier de la huitième série
+Christophe ne comprenait pas.
 
-A dater du jour'où ces trois cahiers seront portés aux
-prix d'épuisement, nous ne mettrons plus en vente pour BE.
-"4 l'usage courant que des exemplaires de l'édition Ollen
+--- Mais je n'ai pas de place.
 
-Le quatrième livre, la révolte, se compose de trois
+--- En voilà ! fit Mannheim, triomphant, en lui fourrant de force le billet dans la main.
 
-parties qui feront respectivement trois cahiers.
+--- Tu es fou, dit Christophe. Et la commission de ton père ?
 
-1. Première partie de ce quatrième livre: Sables mou-
-20 vanis; cette partie formait le quatrième cahier de la
-1 ï huitième série, un cahier blanc de 160 pages, marqué
-: À Deuxième partie de ce quatrième livre: l'enlisement; À
-c'est le présent cahier, sixième cahier de la huitième
-10 série, un cahier blanc d'environ 144 pages, marqué si
-pale Troisième partie de ce quatrième livre: la délivrance, se
-
-un cahier à paraître dans cette huitième série, qui sera. A
-SE Pour avoir les quatre premiers livres de Jean-Chrisdl tophe, il suffit d'envoyer un mandat de dix-neuf francs À
-1 cinquante à M. André Bourgeois, administrateur des
-: cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
-cinquième arrondissement. On recevra par le retour
-les quatre cahiers indiqués ci-dessus formant les trois
-
-premie livres et la première partie du quatrième.
-le présent cahier formant la deuxième partie du
-+24 et l'on recevra le jour même de sa publication:
-Le dernier cahier formant la troisième et dernière
-partie de ce quatrième livre.?
-He: le gérant ES
-sent cahier, deuxième partie du quatrième livre, fait Ste
-
-… suite à la pagination du cahier rappelé ci-dessus, pre-
-… mière partie de ce quatrième livre. Pages 57, 64, 140, a
-
-… quise trouvent par conséquent dans cette première
-… Hebbel, au lieu de Hebel. C'est le grand Hebbel qui est
-notre homme, Friedrich Hebbel, Yauteur de Judith et
-le plus puissant dramaturge allemand du dix-neuvième je
-Siècle, avec Henri de Kleist, et non l'autre, Johann
-je Peter Hebel, le poète dialectal bien connu des environs
-
-APASERS l'enlisemen
-
-Christophe en était de ses expériences un peu à
-désabusées sur l'Allemagne, quand vint à passer dans a
-
-; la ville une troupe de comédiens français. Il serait plus
-juste de dire: un troupeau; car, suivant l'habitude, je
-c'était un ramassis de pauvres diables, pêchés on ne
-. savait où, et de jeunes acteurs inconnus, trop heureux à
-de se laisser exploiter, pourvu qu'on les fit jouer.
-
-Tous ensemble étaient attelés au chariot d'une comédienne illustre et âgée, qui faisait une tournée en Alle- cu.
-
-magne, et, de passage dans la petite capitale, y venait;;
-A la Revue de Waldhaus, on en faisait grand bruit.
-É Mannheim et ses amis étaient au courant de la vie #4
-littéraire et mondaine de Paris, ou ils prétendaient
-À l'être; ils s'en répétaient les potins, cueillis dans les
-4 journaux des boulevards, et plus ou moins bien com As
-à pris: ils représentaient l'esprit français en Allemagne. à
-É C'était enlever à Christophe le désir de le connaître Rio
-ne davantage. Mannheim l'assommait avec ses éloges
-3 de Paris. Il y avait été plusieurs fois; il avait une 1}
-4 tous les pays d'Europe; et, partout, elle avait pris la Men
-nationalité et l'aspect du pays: cette tribu d'Abraham A
-comptait un baronnet anglais, un sénateur de Belgique,
-un ministre français, un député au Reichstag, et un val
-comte du pape; et tous, bien qu'unis et respectueux de
-
-la souche commune dont ils étaient sortis, étaient sincèrement Anglais, Belges, Français, Allemands, ou
-papalins: car leur orgueil ne doutait point que le pays
-qu'ils avaient adopté ne fût le premier de tous. Mannheim
-était le seul, par paradoxe, qui s'amusât à préférer tous
-les pays dont il n'était point. Il parlait donc souvent de
-Paris, et avec enthousiasme; mais comme il n'en disait à
-que des extravagances, et que, pour faire l'éloge des
-Parisiens, il les représentait comme des espèces de
-
-toqués, paillards et braiïllards, qui passaient leur temps
-à faire la noce et des révolutions, sans jamais se prendre
-au sérieux, Christophe était peu attiré par « la byzantine et décadente république d'outre-Vosges ». De bonne
-
-foi, il imaginait un peu Paris, comme le représentait une
-gravure naïve, qu'il avait vue en tête d'un livre récemment paru dans une collection d'art allemande: au pre- À
-
-mier plan, le Diable de Notre-Dame, accroupi au dessus À
-
-des toits de la ville, avec cette légende:
-« Insatiable vampire l'éternelle Luxure,
-
-Sur la grande Cité convoite sa pâture.
-
-En bon Allemand, il avait le mépris des Velches
-débauchés, et de leur littérature, dont il ne connaissait
-
-guère que quelques bouffonneries égrillardes, l'Aiglon,
-Madame Sans-Géne, et des chansons de café-concert.
-Le snobisme de la petite ville, où les gens les plus
-notoirement incapables de s'intéresser à l'art s'empressèrent d'aller s'inscrire bruyamment au bureau de
-location, le jeta dans une affectation d'indifférence,
-dédaigneuse pour la grande cabotine. Il protesta qu'il
-ne ferait pas un pas pour aller l'entendre. Il lui était
-d'autant plus facile de tenir sa promesse que les places
-
-étaient à un prix excessif, qu'il n'avait pas les moyens
-ï de donner.
-Le répertoire, que la troupe française transportait
-en Allemagne, comprenait deux ou trois pièces classiques; mais il était composé, en majeure partie, de
-ces niaiseries, qui sont par excellence l'article parisien pour l'exportation: car il n'y a rien de plus international que la médiocrité. Christophe connaissait la
-Tosca, qui devait être le premier spectacle de la comé-
-: dienne en tournées; il l'avait entendue en traduction,
-parée de toutes les grâces légères que peut donner une
-A troupe de petit théâtre rhénan à une œuvre française;
-; et il se disait bien aise, avec un rire goguenard, en
-voyant ses amis partir pour le théâtre, de n'être pas
-forcé d'aller la réentendre. Il n'en suivit pas moins
-d'une oreille attentive, sans avoir l'air d'écouter, les
-, récits enthousiastes de la soirée qu'ils firent, le lendemain: il enrageait de s'être enlevé jusqu'au droit de
-contredire, en ayant refusé de voir ce dont tout le
-monde parlait.
-Le second spectacle annoncé devait être une traduction française d'Hamlet. Christophe n'avait jamais
-laissé une occasion de voir une pièce de Shakespeare.
-Shakespeare était pour lui, au même titre que Beethoven, une source inépuisable de vie. Hamlet lui avait été a.
-particulièrement cher dans la période de troubles et de
-doutes tumultueux qu'il venait de traverser. Malgré la
-crainte qu'il avait de se revoir dans ce miroir magique,
-il était fasciné par lui; et il tournait autour des affiches
-4 du théâtre, sans s'avouer qu'il brûlait d'envie d'aller
-prendre une place. Mais il était si entêté, qu'après ce
-qu'il avait dit à ses amis, il n'en voulait pas démordre;;
-
-Jean-Christophe l'UE
-et il fût resté chez lui, ce soir-là, comme le précédent, si,.
-(de 4 ne l'avait mis en présence de Mannheim.
-! Mannheim l'attrapa par le bras, et lui raconta d'un
-air furieux, mais sans cesser de gouailler, qu'une vieille à
-se bête de parente, une sœur de son père, venait de tomber inopinément chez eux avec toute sa smala, et qu'ils
-3 étaient forcés de rester à la maison, pour les recevoir.
-
-È Il avait essayé de s'esquiver; mais son père n'entendait
-ni pas raillerie sur les questions d'étiquette familiale et!
-d'égards que l'on doit aux ancêtres; et comme il devait
-à À ménager son père, en ce moment, à cause d'une carotte
-0 qu'il se proposait de lui tirer, il avait fallu céder, et
-a renoncer à la représentation.
-1 — Vous aviez vos billets? demanda Christophe.
-Rate — Parbleu! une loge excellente; et, pour comble, il
-ni faut que je l'aille porter — (et j'y vais, de ce pas) — à
-A ce crétin de Grünebaum, l'associé de papa, pour qu'il
-si s'y pavane avec la femme Grünebaum et leur dinde de
-fille. C'est gai! Je cherche au moins quelque chose à de.
-leur dire de très désagréable. Mais cela leur est bien 3 à
-égal, pourvu que je leur apporte des billets, — quoiqu'ils aimeraient encore mieux que ces billets fussent
-1 s'arrêta brusquement, la bouche ouverte, regardant
-ù — Oh!... Mais voilà... Voilà ce qu'il me faut!
-4: — Christophe, tu vas au théâtre? À
-— Si fait, Tu vas au théâtre. C'est un service que je
-te demande. Tu ne peux pas refuser. à
-
-Christophe ne comprenait pas
-— En voilà! fit Mannheim, triomphant, en lui fourrant
-de force le billet dans la main. à
-— Tu es fou, dit Christophe. Et la commission de ton Au
-— Il sera dans une colère! fit-il.
-Il s'essuya les yeux, et conclut:
-ne — Je le taperai demain matin, au saut du lit, avant
-qu'il sache encore rien.
-— Je ne peux pas accepter, — dit Christophe, — sa-
-14 chant que cela lui serait désagréable.
-regarde pas.
-Ë. Christophe avait déplié le billet:
-; — Et que veux-tu que je fasse d'une loge de quatre À
-4.. — Tout ce que tu voudras. Tu dormiras au fond, tu
-danseras, si tu veux. Amènes-y des femmes. Tu en as à
-bien quelques-unes? Au besoin, on peut t'en prêter.
-Christophe tendit le billet à Mannheim: LUS
-à — Non, décidément. Reprends-le.
-— Jamais de la vie, fit Mannheim, en reculant de
-- quelques pas. Je ne peux pas te forcer à y aller, si cela
-jeter au feu, ou même, homme vertueux, de le porter
-aux Grünebaum. Cela ne me regarde plus. Bonsoir!
-de rue, son billet à la main.
-Christophe était assez embarrassé. Il se disait bien
-qu'il serait convenable de porter les places aux Grüne-;
-
-baum; mais cette idée ne l'enthousiasmait point. Il
-rentra, indécis; et, quand il s'avisa de regarder l'heure,
-il vit qu'il n'avait plus que le temps de s'habiller pour
-; aller au théâtre. Il eût été tout de même trop sot de
-laisser perdre le billet. Il proposa à sa mère de
-l'emmener. Mais Louisa déclara qu'elle aimait bien
-mieux aller se coucher. Il partit. Au fond, il avait un;
-plaisir d'enfant, à l'idée de sa soirée. Une seule chose
-l'ennuyait: c'était d'avoir ce plaisir, seul. Il n'avait
-aucun remords, à l'égard du père Mannheim, ou des
-Grünebaum, dont il prenaït la loge; mais il en avait;
-vis-à-vis de ceux qui auraient la partager avec lui.
-Il pensait combien cela auraït fait de joie à des jeunes À
-gens, comme lui; et il lui était pénible de ne pas la leur
-faire. Il cherchaït dans sa tête, et ne voyait pas à qui il
-pourrait offrir son billet. D'ailleurs, il était tard, il à
-Comme il entrait au théâtre, il passa près du guichet
-fermé, où un écriteau marquait qu'il ne restait plus une
-seule place au bureau. Parmi les gens qui s'en retournaient, dépités, il remarqua une jeune fille, qui ne pouvait se décider à sortir, et regardait ceux qui entraient,:
-d'un air d'envie. Elle était mise très simplement, en
-noir, pas très grande, la figure amincie, l'air délicat;!
-et, sur le moment, il ne remarqua pas si elle était laide
-ou jolie. Il avait passé devant elle; il s'arrêta un moment, se retourna, et, sans prendre le temps de réflé-
-— Vous n'avez pas trouvé de place, mademoiselle?
-demanda-t-il, à brûle-pourpoint.
-Elle rougit, et dit, avec un accent étranger:
-
-— J'ai une loge, dont je ne sais que faire. Voulez-
-54 vous en profiter avec moi? #8
-Elle rougit plus fort, et remercia, en s'excusant de ne #6
-1 pouvoir accepter. Christophe, gêné par son refus, A
-s'excusa de son côté, et essaya d'insister; mais il ne
-si réussit pas à la persuader, bien qu'il fût évident qu'elle il
-8 en mourait d'envie. Il était très perplexe. Il se décida
-— Écoutez, il y a un moyen de tout arranger, dit-il:
-à À prenez le billet. Moi, je n'y tiens pas, j'ai déjà cela. À
-18 — se vantait.) — Cela vous fera plus plaisir qu'à
-moi. Prenez, c'est de bon cœur, Bet.
-: 4 La jeune fille fut si touchée de l'offre, et de la façon à
-. cordiale dont elle était faite, que les larmes lui en TE
-2 montèrent presque aux yeux. Elle balbutia, avec recon- Un:
-naissance, que jamais elle ne voudrait l'en priver. Ne;
-b. — Eh bien, alors, venez, dit-il, en souriant. he.
-Il avait l'air si bon et si franc ‘elle se sentit
-honteuse de lui avoir refusé; et elle dit, un peu
-
-une Ils entrèrent. La loge des Mannheim était une loge de
-face, largement ouverte: impossible de s'y dissimuler,
-ne si on l'eût voulu. Il est inutile de dire que leur entrée ne; À
-passa pas inaperçue. Christophe fit placer la jeune fille
-à au premier rang, et resta un peu en arrière, pour ne pas
-JANTE la gêner. Elle se tenait droite, raide, n'osant pas tourner
-À la tête, horriblement intimidée; elle eût donné beaucoup +04
-pour ne pas avoir accepté. Afin de lui laisser le temps
-de se remettre, et ne sachant d'ailleurs de quoi causer ns.
-avec elle, Christophe affectait de regarder d'un autre
-côté. Où qu'il regardât, il lui était facile de constater
-que sa présence, avec celte compagne inconnue, au
-
-50 milieu de la brillante clientèle des loges, excitait la
-se curiosité et les commentaires de la petite ville. Il lança TION
-(10 des regards furieux à ceux qui le regardaient; il rageait
-qu'on s'obstinât à s'occuper de lui, quand il ne s'occu- se
-pait pas des autres. Il ne pensait pas que cette curio-?
-A sité indiscrète s'adressât à sa compagne, encore plus
-1 qu'à lui, et d'une façon plus blessante. Pour montrer sa
-à parfaite indifférence à tout ce qu'ils pourraient dire ou à
-enser, il se pencha vers sa voisine, et se mit à causer.
-; Elle eut l'air si effarouchée de ce qu'il lui parlât, et si
-a malheureuse d'avoir à lui répondre, elle eut tant de À
-peine à s'arracher un: oui, ou un: non, sans oser le
-(3 regarder, qu'il eut pitié de sa sauvagerie, et se renfonça dans son coin. Heureusement, le spectacle com- "30
-Christophe n'avait pas l'affiche, et il ne s'était
-4 guère soucié de savoir quel rôle jouait la grande de
-actrice: il était de ces naïfs, qui viennent au théâtre
-À pour voir la pièce, et non pas les acteurs. Il ne s'était
-pas demandé si l'illustre comédienne serait Ophélie,
-; ou la Reine; s'il se l'était demandé, il eût opiné pour la
-Reine, l'âge des deux matrones. Mais ce qui n'aurait pas
-à jamais lui venir à l'idée, c'est qu'elle pût jouer;
-Hamlet. Quand il le vit, quand il entendit ce timbre de
-! poupée mécanique, il fut un bon moment avant
-1 croire; il se demanda s'il rêvait.
-14 — Mais qui? Mais qui est-ce? se disait-il à mi-voix.
-Ce n'est pourtant pas.
-Et quand lui fallut constater que « c'était
-pourtant » Hamlet, il poussa un juron, qu'heureuse1 ment sa voisine ne comprit pas, parce qu'elle était
-étrangère, mais que l'on comprit parfaitement dans la
-un loge à côté; car il lui en vint sur-le-champ l'ordre indi-
-. gné de se taire. Il se retira au fond de la loge, pour
-“4 pester à son aise. Il ne décolérait pas. S'il eût été juste,:
-14 il eût rendu hommage à l'élégance du travesti et au tour
-: de force de la nature et de l'art, qui permettait à cette Ce
-14 femme sexagénaire de se montrer dans le costume d'un ‘te
-de adolescent, et même d'y paraître belle, — au moins à
-te des yeux complaisants. Mais il haïssait les tours de;
-force, et tout ce qui violente et fausse la nature. Il
-aimait qu'une femme fût une femme, et un homme un à
-DA: homme. — (La chose n'est pas commune, aujourd'hui.):
-NE — Le travesti enfantin et un peu ridicule de la Léonore
-de Beethoven ne lui était déjà pas agréable. Mais celui
-
-; d'Hamlet passait tout ce qu'on pouvait rêver, en fait #12
-d'absurdité. Faire de ce robuste Danois, gras et
-blême, colérique, rusé, raisonneur, halluciné, une femme,
-— pas même une femme; car une femme qui joue
-l'homme ne sera jamais qu'un monstre, — faire d'Hamlet
-un eunuque, ou un louche androgyne, — il fallait toute
-la veulerie du temps, toute niaiserie de la critique, À
-pour que cette dégoûtante sottise eût être tolérée, un
-seul jour, sans sifflets! — La voix de l'actrice achevaiït:
-ne de mettre Christophe hors de lui. Elle avaït cette diction chantante et martelée, cette mélopée monotone,
-qui, depuis la Champmeslé et l'Hôtel de Bourgogne,
-semble avoir toujours été chère au peuple le moins
-poétique du monde. Christophe en était si exaspéré,
-qu'il avait envie de marcher à quatre pattes. Il avait
-tourné le dos à la scène, et il faisait des grimaces de
-colère, le nez contre le mur de la loge, comme un enfant
-mis au piquet. Fort heureusement, sa compagne n'osait
-ê pas regarder de son côté; car si elle l'eût vu, elle l'eût
-pris pour un fou.
-; Soudain, les grimaces de Christophe s'arrêtèrent. Il À
-resta immobile, et se tut. Une belle voix musicale, une
-jeune voix féminine, grave et douce, venait de se faire
-entendre. Christophe dressa l'oreille. A mesure qu'elle À
-parlait, il se retournait, intrigué, sur sa chaise, pour;
-voir l'oiseau qui avait ce ramage. Il vit Ophélie. Certes,
-elle n'avait rien de l'Ophélie de Shakespeare. C'était À
-une belle fille, grande, robuste et élancée, comme une
-jeune statue grecque: Électre ou Cassandra. Elle
-débordaït de vie. Malgré tous ses efforts pour s'enfermer dans son rôle, la force de jeunesse et de joie qui;
-! était en elle rayonnait de sa chair, de ses mouvements,
-
-de ses gestes, de ses yeux bruns, qui riaient malgré
-elle. Tel est le pouvoir d'un beau corps, que Christophe,
-impitoyable l'instant d'avant pour l'interprétation
-d'Hamlet, ne songea pas un moment à regretter que
-l''Ophélie ne ressemblât guère à l'image qu'il s'en faisait;
-et il sacrifia sans remords celle-ci à celle-là. Avec
-linconsciente mauvaise foi des gens passionnés, il
-
-A trouva même une vérité profonde à cette ardeur juvénile qui brûlait au fond de ce cœur de vierge chaste et
-À trouble. Maïs ce qui achevait le charme, c'était la magie:
-de la voix, pure, chaude et veloutée: chaque mot son-
-; nait comme un bel accord; autour des syllabes dansait,
-très enveloppé, comme une odeur de thym ou de menthe
-sauvage, l'accent riant du Midi, aux rythmes rebondis-!
-sants. Étrange vision d'une Ophélie du pays d'Arles!
-ï Elle apportait avec elle un peu de son soleil d'or et.de
-son mistral fou.
-Oubliant sa voisine, Christophe s'était assis à côté
-d'elle, sur le devant de la loge; et il ne quittait pas des
-yeux la belle actrice, dont il ignorait le nom. Mais le
-
-1 public, qui ne venait point pour entendre une inconnue,
-
-k. ne lui prétait aucune attention; et il ne se décidait à
-
-5 applaudir, que quand l''Hamlet femelle parlait. Ce qui
-: faisait que Christophe grondaït, et les appelait:
-à « Anes! » — d'une voix basse qui s'entendait à dix pas.
-Ce ne fut que lorsque le rideau fut tombé pour:
-
-ï l'entr'acte, qu'il se rappela l'existence de sa compagne
-de loge; et, la voyant toujours aussi intimidée, il
-à songea en souriant combien il avait l'effarer par ses
-a extravagances. — Il ne se trompait pas: cette âme de
-jeune filie, que le hasard avait rapprochée de lui pour
-quelques heures, était d'une réserve presque malaje 163 Venlisement.
-
-1 dive: il avait fallu qu'elle fût dans un état d'exaltation È je À
-anormal pour qu'elle eût osé accepter l'invitation de
-À Christophe. A peine avait-elle accepté, qu'elle eût
-til souhaité, pour tout au monde, de pouvoir se dégager,
-trouver un prétexte, s'enfuir. Ç'avait été bien pis, quand
-elle s'était vue l'objet de la curiosité générale; et son
-DE malaise n'avait fait que croître jusqu'à la fin, à mesure
-"BiES qu'elle entendait derrière son dos — (elle n'osait pas se +308
-DE retourner) — les sourdes imprécations et les grogne- De.
-1 ments de son compagnon. Elle s'attendait à tout, de sa
-je part; et, quand il était venu s'asseoir à côté d'elle, elle
-ane avait été glacée d'effroi: quelle excentricité n'allait-il
-pas encore faire? Elle eût voulu être à cent pieds sous
-pa) terre. Elle se reculait instinctivement; elle avait peur
-Mais toutes ses craintes tombèrent, lorsque, l'entr'acte TA à
-nie venu, elle l'entendit lui dire avec bonhomie:
-4 — Je suis un voisin bien désagréable, n'est-ce pas?
-Je vous demande pardon.
-“dE Alors, elle le regarda, et elle lui vit son bon sourire,
-qui l'avait tout à l'heure décidée à venir.
-— Je ne sais pas cacher ce que je pense... Mais aussi, A
-; c'était trop fort! Cette femme, cette vieille femme!.… À
+Mannheim se tordait :
+
+--- Il sera dans une colère ! fit-il.
+
+Il s'essuya les yeux, et conclut :
+
+--- Je le taperai demain matin, au saut du lit, avant qu'il sache encore rien.
+
+--- Je ne peux pas accepter, --- dit Christophe, --- sachant que cela lui serait désagréable.
+
+--- Tu n'as rien à savoir, tu ne sais rien, cela ne te regarde pas.
+
+Christophe avait déplié le billet :
+
+--- Et que veux-tu que je fasse d'une loge de quatre places ?
+
+--- Tout ce que tu voudras. Tu dormiras au fond, tu danseras, si tu veux. Amènes-y des femmes. Tu en as bien quelques-unes ? Au besoin, on peut t'en prêter.
+
+Christophe tendit le billet à Mannheim :
+
+--- Non, décidément. Reprends-le.
+
+--- Jamais de la vie, fit Mannheim, en reculant de quelques pas. Je ne peux pas te forcer à y aller, si cela t'ennuie ; mais je ne le reprendrai pas. Tu es libre de le jeter au feu, ou même, homme vertueux, de le porter aux Grünebaum. Cela ne me regarde plus. Bonsoir !
+
+Il se sauva, plantant là Christophe, au milieu de la rue, son billet à la main.
+
+Christophe était assez embarrassé. Il se disait bien qu'il serait convenable de porter les places aux Grünebaum ; mais cette idée ne l'enthousiasmait point. Il rentra, indécis ; et, quand il s'avisa de regarder l'heure, il vit qu'il n'avait plus que le temps de s'habiller pour aller au théâtre. Il eût été tout de même trop sot de laisser perdre le billet. Il proposa à sa mère de l'emmener. Mais Louisa déclara qu'elle aimait bien mieux aller se coucher. Il partit. Au fond, il avait un plaisir d'enfant, à l'idée de sa soirée. Une seule chose l'ennuyait : c'était d'avoir ce plaisir, seul. Il n'avait aucun remords, à l'égard du père Mannheim, ou des Grünebaum, dont il prenait la loge ; mais il en avait vis-à-vis de ceux qui auraient pu la partager avec lui. Il pensait combien cela aurait fait de joie à des jeunes gens, comme lui ; et il lui était pénible de ne pas la leur faire. Il cherchait dans sa tête, et ne voyait pas à qui il pourrait offrir son billet. D'ailleurs, il était tard, il fallait se hâter.
+
+Comme il entrait au théâtre, il passa près du guichet fermé, où un écriteau marquait qu'il ne restait plus une seule place au bureau. Parmi les gens qui s'en retournaient, dépités, il remarqua une jeune fille, qui ne pouvait se décider à sortir, et regardait ceux qui entraient, d'un air d'envie. Elle était mise très simplement, en noir, pas très grande, la figure amincie, l'air délicat ; et, sur le moment, il ne remarqua pas si elle était laide ou jolie. Il avait passé devant elle ; il s'arrêta un moment, se retourna, et, sans prendre le temps de réfléchir :
+
+--- Vous n'avez pas trouvé de place, mademoiselle ? demanda-t-il, à brûle-pourpoint.
+
+Elle rougit, et dit, avec un accent étranger :
+
+--- Non, monsieur.
+
+--- J'ai une loge, dont je ne sais que faire. Voulez-vous en profiter avec moi ?
+
+Elle rougit plus fort, et remercia, en s'excusant de ne pouvoir accepter. Christophe, gêné par son refus, s'excusa de son côté, et essaya d'insister ; mais il ne réussit pas à la persuader, bien qu'il fût évident qu'elle en mourait d'envie. Il était très perplexe. Il se décida brusquement.
+
+--- Écoutez, il y a un moyen de tout arranger, dit-il : prenez le billet. Moi, je n'y tiens pas, j'ai déjà vu cela. --- (Il se vantait.) --- Cela vous fera plus plaisir qu'à moi. Prenez, c'est de bon cœur.
+
+La jeune fille fut si touchée de l'offre, et de la façon cordiale dont elle était faite, que les larmes lui en montèrent presque aux yeux. Elle balbutia, avec reconnaissance, que jamais elle ne voudrait l'en priver.
+
+--- Eh bien, alors, venez, dit-il, en souriant.
+
+Il avait l'air si bon et si franc, qu'elle se sentit honteuse de lui avoir refusé ; et elle dit, un peu confuse :
+
+--- Je viens... Merci.
+
+Ils entrèrent. La loge des Mannheim était une loge de face, largement ouverte : impossible de s'y dissimuler, si on l'eût voulu. Il est inutile de dire que leur entrée ne passa pas inaperçue. Christophe fit placer la jeune fille au premier rang, et resta un peu en arrière, pour ne pas la gêner. Elle se tenait droite, raide, n'osant pas tourner la tête, horriblement intimidée ; elle eût donné beaucoup pour ne pas avoir accepté. Afin de lui laisser le temps de se remettre, et ne sachant d'ailleurs de quoi causer avec elle, Christophe affectait de regarder d'un autre côté. Où qu'il regardât, il lui était facile de constater que sa présence, avec cette compagne inconnue, au milieu de la brillante clientèle des loges, excitait la curiosité et les commentaires de la petite ville. Il lança des regards furieux à ceux qui le regardaient ; il rageait qu'on s'obstinât à s'occuper de lui, quand il ne s'occupait pas des autres. Il ne pensait pas que cette curiosité indiscrète s'adressât à sa compagne, encore plus qu'à lui, et d'une façon plus blessante. Pour montrer sa parfaite indifférence à tout ce qu'ils pourraient dire ou penser, il se pencha vers sa voisine, et se mit à causer. Elle eut l'air si effarouchée de ce qu'il lui parlât, et si malheureuse d'avoir à lui répondre, elle eut tant de peine à s'arracher un : oui, ou un : non, sans oser le regarder, qu'il eut pitié de sa sauvagerie, et se renfonça dans son coin. Heureusement, le spectacle commençait.
+
+Christophe n'avait pas lu l'affiche, et il ne s'était guère soucié de savoir quel rôle jouait la grande actrice : il était de ces naïfs, qui viennent au théâtre pour voir la pièce, et non pas les acteurs. Il ne s'était pas demandé si l'illustre comédienne serait Ophélie, ou la Reine ; s'il se l'était demandé, il eût opiné pour la Reine, vu l'âge des deux matrones. Mais ce qui n'aurait jamais pu lui venir à l'idée, c'est qu'elle pût jouer Hamlet. Quand il le vit, quand il entendit ce timbre de poupée mécanique, il fut un bon moment avant d'y croire ; il se demanda s'il rêvait...
+
+--- Mais qui ? Mais qui est-ce ? se disait-il à mi-voix. Ce n'est pourtant pas...
+
+Et quand il lui fallut constater que « c'était pourtant » Hamlet, il poussa un juron, qu'heureusement sa voisine ne comprit pas, parce qu'elle était étrangère, mais que l'on comprit parfaitement dans la loge à côté ; car il lui en vint sur-le-champ l'ordre indigné de se taire. Il se retira au fond de la loge, pour pester à son aise. Il ne décolérait pas. S'il eût été juste, il eût rendu hommage à l'élégance du travesti et au tour de force de la nature et de l'art, qui permettait à cette femme sexagénaire de se montrer dans le costume d'un adolescent, et même d'y paraître belle, --- au moins à des yeux complaisants. Mais il haïssait les tours de force, et tout ce qui violente et fausse la nature. Il aimait qu'une femme fût une femme, et un homme un homme. --- (La chose n'est pas commune, aujourd'hui.) --- Le travesti enfantin et un peu ridicule de la Léonore de Beethoven ne lui était déjà pas agréable. Mais celui d'Hamlet passait tout ce qu'on pouvait rêver, en fait d'absurdité. Faire de ce robuste Danois, gras et blême, colérique, rusé, raisonneur, halluciné, une femme, --- pas même une femme ; car une femme qui joue l'homme ne sera jamais qu'un monstre, --- faire d'Hamlet un eunuque, ou un louche androgyne, --- il fallait toute la veulerie du temps, toute la niaiserie de la critique, pour que cette dégoûtante sottise eût pu être tolérée, un seul jour, sans sifflets ! --- La voix de l'actrice achevait de mettre Christophe hors de lui. Elle avait cette diction chantante et martelée, cette mélopée monotone, qui, depuis la Champmeslé et l'Hôtel de Bourgogne, semble avoir toujours été chère au peuple le moins poétique du monde. Christophe en était si exaspéré, qu'il avait envie de marcher à quatre pattes. Il avait tourné le dos à la scène, et il faisait des grimaces de colère, le nez contre le mur de la loge, comme un enfant mis au piquet. Fort heureusement, sa compagne n'osait pas regarder de son côté ; car si elle l'eût vu, elle l'eût pris pour un fou.
+
+Soudain, les grimaces de Christophe s'arrêtèrent. Il resta immobile, et se tut. Une belle voix musicale, une jeune voix féminine, grave et douce, venait de se faire entendre. Christophe dressa l'oreille. À mesure qu'elle parlait, il se retournait, intrigué, sur sa chaise, pour voir l'oiseau qui avait ce ramage. Il vit Ophélie. Certes, elle n'avait rien de l'Ophélie de Shakespeare. C'était une belle fille, grande, robuste et élancée, comme une jeune statue grecque : Électre ou Cassandra. Elle débordait de vie. Malgré tous ses efforts pour s'enfermer dans son rôle, la force de jeunesse et de joie qui était en elle rayonnait de sa chair, de ses mouvements, de ses gestes, de ses yeux bruns, qui riaient malgré elle. Tel est le pouvoir d'un beau corps, que Christophe, impitoyable l'instant d'avant pour l'interprétation d'Hamlet, ne songea pas un moment à regretter que l'Ophélie ne ressemblât guère à l'image qu'il s'en faisait ; et il sacrifia sans remords celle-ci à celle-là. Avec l'inconsciente mauvaise foi des gens passionnés, il trouva même une vérité profonde à cette ardeur juvénile qui brûlait au fond de ce cœur de vierge chaste et trouble. Mais ce qui achevait le charme, c'était la magie de la voix, pure, chaude et veloutée : chaque mot sonnait comme un bel accord ; autour des syllabes dansait, très enveloppé, comme une odeur de thym ou de menthe sauvage, l'accent riant du Midi, aux rythmes rebondissants. Étrange vision d'une Ophélie du pays d'Arles ! Elle apportait avec elle un peu de son soleil d'or et de son mistral fou.
+
+Oubliant sa voisine, Christophe s'était assis à côté d'elle, sur le devant de la loge ; et il ne quittait pas des yeux la belle actrice, dont il ignorait le nom. Mais le public, qui ne venait point pour entendre une inconnue, ne lui prêtait aucune attention ; et il ne se décidait à applaudir, que quand l'Hamlet femelle parlait. Ce qui faisait que Christophe grondait, et les appelait : « Ânes ! » --- d'une voix basse qui s'entendait à dix pas.
+
+Ce ne fut que lorsque le rideau fut tombé pour l'entr'acte, qu'il se rappela l'existence de sa compagne de loge ; et, la voyant toujours aussi intimidée, il songea en souriant combien il avait dû l'effarer par ses extravagances. --- Il ne se trompait pas : cette âme de jeune fille, que le hasard avait rapprochée de lui pour quelques heures, était d'une réserve presque maladive : il avait fallu qu'elle fût dans un état d'exaltation anormal pour qu'elle eût osé accepter l'invitation de Christophe. À peine avait-elle accepté, qu'elle eût souhaité, pour tout au monde, de pouvoir se dégager, trouver un prétexte, s'enfuir. Ç'avait bien été bien pis, quand elle s'était vue l'objet de la curiosité générale ; et son malaise n'avait fait que croître jusqu'à la fin, à mesure qu'elle entendait derrière son dos --- (elle n'osait pas se retourner) --- les sourdes imprécations et les grognements de son compagnon. Elle s'attendait à tout, de sa part ; et, quand il était venu s'asseoir à côté d'elle, elle avait été glacée d'effroi : quelle excentricité n'allait-il pas encore faire ? Elle eût voulu être à cent pieds sous terre. Elle se reculait instinctivement ; elle avait peur de l'effleurer.
+
+Mais toutes ses craintes tombèrent, lorsque, l'entr'acte venu, elle l'entendit lui dire avec bonhomie :
+
+--- Je suis un voisin bien désagréable, n'est-ce pas ? Je vous demande pardon.
+
+Alors, elle le regarda, et elle lui vit son bon sourire, qui l'avait tout à l'heure décidée à venir.
+
+Il continua :
+
+--- Je ne sais pas cacher ce que je pense... Mais aussi, c'était trop fort !... Cette femme, cette vieille femme !...
+
 Il fit de nouveau une grimace de dégoût.
-Elle sourit, et dit tout bas:
-— Malgré tout, c'est beau.;
-Il remarqua son accent, et demanda: À
-— Vous êtes étrangère?
-— Oui, fit-elle.
-Il regarda sa modeste petite robe
-— Institutrice? dit-il.
 
-LE Elle rougit, et dit
-À — Quel pays?
-Elle dit:;
-Il fit un geste d'étonnement: je
-ù — Française? Je ne l'aurais jamais cru. PAL
-— Pourquoi? demanda-t-elle timidement.
-— Vous êtes si... sérieuse! dit-il.
-4 (Elle pensa que ce n'était pas tout à fait un compli-:
-ment dans sa bouche.);
-— Il y en a aussi comme cela en France, dit-elle,
-1 toute confuse.
-À Il regardait son honnête petite figure, au front bombé,
-au pétit nez droit, au menton fin, ses joues maigres
-0 qu'encadraient ses cheveux châtains. Il ne la voyait
-pas: il pensait à la belle actrice. Il répéta
-— C'est curieux que vous soyez Française! Vrai-:
-10 ment, vous êtes du même pays qu'Ophélie? On ne le
-croirait jamais.
-Ro. Il ajouta, après un instant de silence:
-4 — Comme elle est belle!
-12 sans s'apercevoir qu'il avait l'air d'établir entre elle HA.
-et sa voisine une comparaison désobligeante pour celle-
-14 ci. Elle la sentit très bien; mais elle n'en voulut pas à je;
-Christophe: car elle pensait comme lui. Il essaya
-d'avoir d'elle quelques détails sur l'actrice; mais elle ne À
-à savait rien: on voyait qu'elle était très peu au courant
-des choses de théâtre.
-à — Cela doit vous faire plaisir d'entendre parler fran- Fes
-54 çais? demanda:t:il.
-dE Il croyait plaisanter: il avait touché juste.
+Elle sourit, et dit tout bas :
 
-— Ah! fitelle avec un accent de sincérité qui le
-frappa, cela me fait tant de bien! J'étouffe ici.
-Il regarda mieux, cette fois: elle crispait légère- À
-: ment les mains, et semblait oppressée. Mais aussitôt,,
-É elle songea à ce qu'il pouvait y avoir de blessant pour
-lui dans cette parole: ne
-— Oh! pardon, dit-elle, je ne sais pas ce que je dis. En
-— Ne vous excusez donc pas! Vous avez joliment raison. Il n'y a pas besoin d'être Français pour étouffer ici. À
-. Il leva les épaules, en aspirant l'air.
-Mais elle avait honte de s'être ainsi livrée, et elle se
-tut désormais. D'ailleurs, elle venait de s'apercevoir:
-; que, dans les loges voisines, on épiait leur conversation; et il le remarqua aussi avec colère. Ils s'interrompirent donc; et, en attendant la fin de l'entr'acte, il
-sortit dans le couloir du théâtre. Les paroles de la
-jeune fille résonnaient à son oreille; mais il était distrait: l'image d'Ophélie occupait sa pensée. Elle acheva a
-de s'emparer de lui, dans les actes suivants; et lorsque
-la belle actrice arriva à la scène de la folie et aux mélancoliques chansons d'amour et de mort, sa voix sut y
-trouver des accents si touchants, qu'il en fut bouleversé: il sentit qu'il allait se mettre à pleurer comme
-un veau. Furieux centre lui-même de ce qui lui semblait
-une marque de faiblesse — (car il n'admettait point à
-qu'un vrai artiste pleurât), — et ne voulant pas se
-donner en spectacle, il sortit brusquement de la loge.
-Les couloirs, le foyer, étaient vides. Dans son agitation,
-il descendit les escaliers du théâtre, et sortit, sans s'en
-apercevoir. Il avait besoin de respirer l'air froid de la
+--- Malgré tout, c'est beau.
 
-nuit, de marcher à grands pas dans les rues sombres
-à accoudé sur le parapet de la berge, et contemplant Her
-l'eau silencieuse, où dansaient dans l'ombre les reflets
-; des réverbères. Son âme était pareille: elle était obne scure et trépidante; il n'y pouvait rien voir qu'une
-grande joie qui dansait à la surface. Les horloges tin- de
-tèrent. Il lui eût été impossible de retourner au théâtre
-( et d'entendre la fin de la pièce. Voir le triomphe de TA
-Fortinbras? Non, cela ne le tentait pas. Beau
-triomphe! Qui pense à envier le vainqueur? Qui voudrait être lui, après qu'on a été gorgé de toutes les
-sauvageries de la vie féroce et ridicule? Toute l'œuvre +4
-est un réquisitoire formidable contre la vie. Mais une
-4 telle puissance de vie bout en elle, que la tristesse 1 » devient joie, et que l'amertume enivre.. Ne
-Christophe revint chez lui, sans plus se soucier de
-la jeune fille inconnue, qu'il avait laissée dans sa loge,
-. et dont il ne savait même pas le nom. A ai
+Il remarqua son accent, et demanda :
 
-Le lendemain matin, il alla voir l'actrice, dans le
-petit hôtel de troisième ordre où l'impresario l'avait
+--- Vous êtes étrangère ?
 
-reléguée avec ses camarades, tandis que la grande co-
+--- Oui, fit-elle.
 
-+7 148 médienne était descendue au premier hôtel de la ville. …
-On le fit entrer dans un petit salon mal tenu, où les LA
-restes du déjeûner traînaient sur un piano ouvert, avec
-ne des épingles à cheveux et des feuilles de musique dé-
-1 chirées et malpropres. Dans la chambre à côté, Ophélie
-Nuit chantait à tue-tête, comme un enfant, pour le plaisir de
-faire du bruit. Elle s'interrompit un instant, quand on
-à lui annonça la visite, pour demander, d'une voix à
-joyeuse qui ne prenait nul souci de n'être pas entendue
-14 de l'autre côté du mur: he.
-4 — Qu'est-ce qu'il veut, ce monsieur? Comment est-
-“1 ce qu'il se nomme?.. Christophe... Christophe quoi?..
-Christophe Krafft?.. Quel nom!
-(Elle le répéta deux ou trois fois, en faisant terrible …
-ment rouler les r.)
-— On dirait un juron..
-1 — Est-ce qu'il est jeune ou vieux? Gentil? — (11
-Eh C'est bon, j'y vais.
-Elle se remit à chanter:!
-— Rien n'est plus doux que mon amour.
-en furetant à travers la chambre, et pestant contre une à
-h. épingle d'écaille qui se faisait chercher au milieu du
+Il regarda sa modeste petite robe :
 
-fouillis. Elle s'impatienta, elle se mit à gronder, elle fit
-le lion. Bien qu'il ne la vit pas, Christophe suivait par à
-la pensée tous ses gestes derrière le mur, et il riait tout
-seul. Enfin, il entendit les pas se rapprocher, la porte
-; s'ouvrit impétueusement; et Ophélie parut.
+--- Institutrice ? dit-il.
 
-Elle était à demi vêtue, dans un peignoir qu'elle ail
-serrait autour de sa taille, les bras nus dans les larges (°e
+Elle rougit, et dit :
 
-manches, les cheveux mal peignés, des boucles tombant
-sur les yeux et les joues. Ses beaux yeux bruns riaient,
-4 sa bouche riait, ses joues riaient, une aimable fossette
-riait au milieu de son menton. De sa belle voix grave
-à et chantante, elle s'excusa à peine de se montrer ainsi.
-Elle savait qu'il n'y avait pas de quoi s'excuser, et qu'il
-… ne pouvait lui en être que très reconnaissant. Elle
-croyait qu'il était un journaliste, qui venait l'inter-
-1 viewer. Au lieu d'être déçue, quand il lui dit qu'il
-; venait uniquement pour son compte, et parce qu'il l'ad-
-; mirait, elle en fut ravie. Elle était bonne fille, affec- tri
-; tueuse, enchantée de plaire, et ne cherchant pas à le
-1 cacher: la visite de Christophe et son enthousiasme la [44
-rendaient tout heureuse: — (elle n'était pas encore “où
-gâtée par les compliments). — Elle était si naturelle a
+--- Oui.
 
-à dans tous ses mouvements et dans toutes ses façons,
+--- Quel pays ?
 
-- même dans ses petites vanités et dans le plaisir naïf
+Elle dit :
 
-qu'elle avait à plaire, qu'il n'éprouva pas le moindre fil
-instant de gêne. Ils furent tout de suite de vieux amis. 1%;
-baragouinait un peu.de français, elle baragouinait SE
+--- Je suis Française.
 
-… quelques mots d'allemand: au bout d'une heure, ils se
-4 racontaient tous leurs secrets. Elle ne pensait aucunement à le renvoyer. Cette Méridionale robuste et gaie, +0
-intelligeñte et expansive, qui eût crevé d'ennui, au LS,
-milieu de ses stupides compagnons et d'un pays dont
+Il fit un geste d'étonnement :
 
-; elle ne savait pas la langue, sans la joie naturelle qui
-était en elle, était heureuse de trouver à qui parler.
-Quant à Christophe, c'était un bien inexprimable pour
-lui de rencontrer, au milieu de ses petits bourgeois
-À étriqués et peu sincères, cette libre fille du Midi,
-ï pleine de sève populaire. Il ne savait pas encore le
-factice de ces natures, qui, à la différence de ses Alle
+--- Française ? Je ne l'aurais jamais cru.
 
-31 mands, n'ont rien de plus dans l'esprit et dans le
+--- Pourquoi ? demanda-t-elle timidement.
 
-cœur que ce qu'elles montrent, — et souvent, ne l'ont
-: même pas. Mais au moins, elle était jeune, elle vivait,
-elle disait franchement, crûment, ce qu'elle pensait;
-elle jugeait tout, librement, d'un regard frais et neuf
-on respirait en elle un peu de son mistral balayeur de
+--- Vous êtes si... sérieuse ! dit-il.
 
-brouillards. Elle était bien douée. Sans culture et sans
-réflexion, elle sentait sur-le-champ, et de tout son cœur,
-jusqu'à en être sincèrement émue, les choses qui étaient À
-(11ReR belles et bonnes; et puis, l'instant d'après, elle riait aux?
-Ù éclats. Certes, elle était coquette, elle jouait des prunelles; il ne lui déplaisait point de montrer ses bras et
-sa gorge nus, sous le peignoir entr'ouvert: elle eût aimé
-tourner la tête à Christophe; mais c'était pur instinct.
-Nul calcul de sa part; et elle aimait encore mieux
-sans gêne et sans façons. Elle lui raconta les dessous de
+(Elle pensa que ce n'était pas tout à fait un compliment dans sa bouche.)
 
-la vie de théâtre, ses petites misères, les susceptibilités à
-niaises de ses camarades, les tracasseries de Jézabel,
+--- Il y en a aussi comme cela en France, dit-elle, toute confuse.
 
-— (elle appelait ainsi la grande comédienne) — qui:
+Il regardait son honnête petite figure, au front bombé, au petit nez droit, au menton fin, ses joues maigres qu'encadraient ses cheveux châtains. Il ne la voyait pas : il pensait à la belle actrice. Il répéta :
 
-était attentive à ne pas la laisser briller. 11 lui confia ses
-doléances sur les Allemands: elle battit des mains et À
-fit chorus avec lui. Elle était bonne, d'ailleurs, et ne
-voulait dire du mal de personne; mais cela ne l'empêchait pas d'en dire; et, tout en s'accusant sincèrement A
+--- C'est curieux que vous soyez Française !... Vraiment, vous êtes du même pays qu'Ophélie ? On ne le croirait jamais.
 
-de malignité, quand elle plaisantait quelqu'un, elle
-; avait un fonds d'humeur railleuse et ce don d'observation réaliste et bouffonne, propre aux gens du Midi: elle
-à n'y pouvait résister, et faisait des portraits à l'emportepièce. Elle riait joyeusement de ses lèvres pâles, qui
-1 découvraient ses dents de jeune chien; et ses yeux
-cernés brillaient dans sa figure un peu blême, que le noi
-fard avait décolorée.
-ji, s'aperçurent tout à coup qu'il y avait plus d'une
-14 beure qu'ils causaient. Christophe proposa à Corinne — 1%
-4 (c'était son nom de théâtre) — de venir la reprendre dans
-4 l'après-midi, pour la piloter à travers la ville. Elle fut
-enchantée de l'idée; et ils se donnèrent rendez-vous,;
-aussitôt après le diner.
-A l'heure dite, il fut là. Corinne était assise dans le Nr,
-—. petit salon de l'hôtel, et tenait un cahier, qu'elle lisait
-tout haut. Elle l'accueillit avec ses yeux riants, sans
-4 s'interrompre de lire, jusqu'à ce qu'elle eut fini sa
-: phrase. Puis, elle lui fit signe de s'asseoir sur le canapé,
-1 auprès d'elle
-À — Mettez-vous là, et ne causez pas, dit-elle, je repasse À
-mon rôle. J'en ai pour un quart d'heure.
-Elle suivait sur le manuscrit, du bout de l'ongle, en
-lisant très vite et au hasard, comme une petite fille
-pressée. Il s'offrit à lui faire réciter sa leçon. Elle lui
-donna le cahier, et se leva pour répéter. Elle änonnait,
-“._ ou recommençait quatre fois une fin de phrase, avant
-… dese lancer dans la phrase suivante. Elle secouaït la
-tête en récitant son rôle; ses épingles à cheveux tom-
-… baient, tout le long de la chambre. Quand un mot
-obstiné refusait d'entrer dans sa mémoire, elle avait
-—_. des impatiencés d'enfant mal élevée: il lui échappait;
+Il ajouta, après un instant de silence :
 
-parfois un juron drôlatique, ou même d'assez gros mots,
-— un très gros et très court, dont elle s'apostrophaïit
-elle-même. — Christophe était surpris de son mélange ne
-: de talent et d'enfantillage. Elle trouvait des intonations
-justes et émouvantes; mais, au beau milieu de la A
-tirade où elle semblait mettre tout son cœur, il lui
-arrivait de dire des mots qui n'avaient aucun sens.
-Elle récitait sa leçon, comme un petit perroquet, sans
-beaucoup s'inquiéter de ce que cela signifiait: et
-c'étaient alors des coq-à-l'âne burlesques. Elle ne s'en
-affectait point; quand elle s'en apercevait, elle en riaït
-à se tordre. A la fin, elle dit: « Zut! elle lui arracha
-le cahier des mains, le lança à la volée dans un coin à
-— Vacances! L'heure est sonnée!.. Allons nous promener! En
-Un peu inquiet au sujet de son rôle, il demanda, par
-— Vous croyez que vous saurez?
-Elle répondit avec assurance:
-— Bien sûr. Et le souffleur, pour quoi est-ce qu'il
-serait fait alors?,
-Elle passa dans sa chambre, pour mettre son cha-,
-peau. Christophe, en l'attendant, s'assit devant le
-piano, et tapota quelques suites d'accords. De l'autre
-pièce, elle cria: À
-— Oh! qu'est-ce que c'est que cela? Jouez encore!
-Que c'est joli!
-Elle accourut, en se piquant son chapeau dans la
-tête. Il continua. Quand il eut fini, elle voulut qu'il
-continuât encore. Elle s'extasiait, avec ces petites exclamations mièvres et menues, dont les Françaises sont
+--- Comme elle est belle !
 
-coutumières, et qu'elles prodiguent aussi bien à propos
-de Tristan que d'une tasse de chocolat. Cela faisait
+sans s'apercevoir qu'il avait l'air d'établir entre elle et sa voisine une comparaison désobligeante pour celle-ci. Elle la sentit très bien ; mais elle n'en voulut pas à Christophe : car elle pensait comme lui. Il essaya d'avoir d'elle quelques détails sur l'actrice ; mais elle ne savait rien : on voyait qu'elle était très peu au courant des choses de théâtre.
 
-rire Christophe: cela le changeait des exclamations
-énormes, emphatiques et massives de ses Allemands; È » c'étaient deux exagérations contraires: l'une tendait à
-faire d'un bibelot une montagne, l'autre faisait d'une-
+--- Cela doit vous faire plaisir d'entendre parler français ? demanda-t-il.
 
-è montagne un bibelot; celle-ci n'était pas moins ridicule
-que celle-là; mais elle lui semblait, pour l'instant, plus
-aimable, parce qu'il aimait la bouche d'où elle sortait.
-— Corinne voulut savoir de qui était ce qu'il jouait; et
+Il croyait plaisanter : il avait touché juste.
 
-É quand elle sut que c'était de lui, elle poussa des cris. Il
+--- Ah ! fit-elle avec un accent de sincérité qui le frappa, cela me fait tant de bien ! J'étouffe ici.
 
-D. lui avait bien dit, dans leur conversation du matin,
+Il la regarda mieux, cette fois : elle crispait légèrement les mains, et semblait oppressée. Mais aussitôt, elle songea à ce qu'il pouvait y avoir de blessant pour lui dans cette parole :
 
-— qu'il était compositeur; mais elle n'y avait fait aucune
+--- Oh ! pardon, dit-elle, je ne sais pas ce que je dis.
 
-attention. Elle s'assit auprès de lui, et exigea qu'il jouât
+Il rit franchement :
 
-—._ tout ce qu'il avait composé. La promenade fut oubliée.
+--- Ne vous excusez donc pas ! Vous avez joliment raison. Il n'y a pas besoin d'être Français pour étouffer ici. Ouf !
 
-Ce n'était pas simple politesse de sa part: elle
+Il leva les épaules, en aspirant l'air.
 
-adorait la musique, et elle avait un instinct admirable, qui suppléait à l'insuffisance de son instruction.
+Mais elle avait honte de s'être ainsi livrée, et elle se tut désormais. D'ailleurs, elle venait de s'apercevoir que, des loges voisines, on épiait leur conversation ; et il le remarqua aussi avec colère. Ils s'interrompirent donc ; et, en attendant la fin de l'entr'acte, il sortit dans le couloir du théâtre. Les paroles de la jeune fille résonnaient à son oreille ; mais il était distrait : l'image d'Ophélie occupait sa pensée. Elle acheva de s'emparer de lui, dans les actes suivants ; et lorsque la belle actrice arriva à la scène de la folie et aux mélancoliques chansons d'amour et de mort, sa voix sut y trouver des accents si touchants, qu'il en fut bouleversé : il sentit qu'il allait se mettre à pleurer comme un veau. Furieux contre lui-même de ce qui lui semblait une marque de faiblesse --- (car il n'admettait point qu'un vrai artiste pleurât), --- et ne voulant pas se donner en spectacle, il sortit brusquement de la loge. Les couloirs, le foyer, étaient vides. Dans son agitation, il descendit les escaliers du théâtre, et sortit, sans s'en apercevoir. Il avait besoin de respirer l'air froid de la nuit, de marcher à grands pas dans les rues sombres et à demi désertes. Il se retrouva au bord d'un canal, accoudé sur le parapet de la berge, et contemplant l'eau silencieuse, où dansaient dans l'ombre les reflets des réverbères. Son âme était pareille : elle était obscure et trépidante ; il n'y pouvait rien voir qu'une grande joie qui dansait à la surface. Les horloges tintèrent. Il lui eût été impossible de retourner au théâtre et d'entendre la fin de la pièce. Voir le triomphe de Fortinbras ? Non, cela ne le tentait pas... Beau triomphe ! Qui pense à envier le vainqueur ? Qui voudrait être lui, après qu'on a été gorgé de toutes les sauvageries de la vie féroce et ridicule ? Toute l'œuvre est un réquisitoire formidable contre la vie. Mais une telle puissance de vie bout en elle, que la tristesse devient joie, et que l'amertume enivre...
 
-D'abord, il ne la prit pas au sérieux, et lui joua ses
+Christophe revint chez lui, sans plus se soucier de la jeune fille inconnue, qu'il avait laissée dans sa loge, et dont il ne savait même pas le nom.
 
-mélodies les plus faciles. Mais quand, par hasard,
+Le lendemain matin, il alla voir l'actrice, dans le petit hôtel de troisième ordre où l'impresario l'avait reléguée avec ses camarades, tandis que la grande comédienne était descendue au premier hôtel de la ville. On le fit entrer dans un petit salon mal tenu, où les restes du déjeuner traînaient, sur un piano ouvert, avec des épingles à cheveux et des feuilles de musique déchirées et malpropres. Dans la chambre à côté, Ophélie chantait à tue-tête, comme un enfant, pour le plaisir de faire du bruit. Elle s'interrompit un instant, quand on lui annonça la visite, pour demander, d'une voix joyeuse qui ne prenait nul souci de n'être pas entendue de l'autre côté du mur :
 
-3 ayant été amené à jouer une page à laquelle il tenait
+--- Qu'est-ce qu'il veut, ce monsieur ? Comment est-ce qu'il se nomme ?... Christophe... Christophe quoi ?... Christophe Krafft ?... Quel nom !
 
-davantage, il vit, sans qu'il lui en eût rien dit, que
+(Elle le répéta deux ou trois fois, en faisant terriblement rouler les *r*.)
 
-4 c'était celle aussi qu'elle préférait, il eut une joyeuse
+--- On dirait un juron...
 
-… surprise. Avec le naïf étonnement des Allemands, quand
+(Elle en dit un.)
 
-… ils rencontrent un Français quiest bon musicien, il lui dit
+--- Est-ce qu'il est jeune ou vieux ?... Gentil ?... --- C'est bon, j'y vais.
 
-—._ — C'est curieux. Comme vous avez le goût bon! Je
+Elle se remit à chanter :
 
-n'aurais jamais cru. es
+--- Rien n'est plus doux que mon amour...
+
+en furetant à travers la chambre, et pestant contre une épingle d'écaille qui se faisait chercher au milieu du fouillis. Elle s'impatienta, elle se mit à gronder, elle fit le lion. Bien qu'il ne la vît pas, Christophe suivait par la pensée tous ses gestes derrière le mur, et il riait tout seul. Enfin, il entendit les pas se rapprocher, la porte s'ouvrit impétueusement ; et Ophélie parut.
+
+Elle était à demi vêtue, dans un peignoir qu'elle serrait autour de sa taille, les bras nus dans les larges manches, les cheveux mal peignés, des boucles tombant sur les yeux et les joues. Ses beaux yeux bruns riaient, sa bouche riait, ses joues riaient, une aimable fossette riait au milieu de son menton. De sa belle voix grave et chantante, elle s'excusa à peine de se montrer ainsi. Elle savait qu'il n'y avait pas de quoi s'excuser, et qu'il ne pouvait lui en être que très reconnaissant. Elle croyait qu'il était un journaliste, qui venait l'interviewer. Au lieu d'être déçue, quand il lui dit qu'il venait uniquement pour son compte, et parce qu'il l'admirait, elle en fut ravie. Elle était bonne fille, affectueuse, enchantée de plaire, et ne cherchant pas à le cacher : la visite de Christophe et son enthousiasme la rendaient tout heureuse : --- (elle n'était pas encore gâtée par les compliments). --- Elle était si naturelle dans tous ses mouvements et dans toutes ses façons, même dans ses petites vanités et dans le plaisir naïf qu'elle avait à plaire, qu'il n'éprouva pas le moindre instant de gêne. Ils furent tout de suite de vieux amis. Il baragouinait un peu de français, elle baragouinait quelques mots d'allemand ; au bout d'une heure, ils se racontaient tous leurs secrets. Elle ne pensait aucunement à le renvoyer. Cette Méridionale robuste et gaie, intelligente et expansive, qui eût crevé d'ennui, au milieu de ses stupides compagnons et d'un pays dont elle ne savait pas la langue, sans la joie naturelle qui était en elle, était heureuse de trouver à qui parler. Quant à Christophe, c'était un bien inexprimable pour lui de rencontrer, au milieu de ses petits bourgeois étriqués et peu sincères, cette libre fille du Midi, pleine de sève populaire. Il ne savait pas encore le factice de ces natures, qui, à la différence de ses Allemands, n'ont rien de plus dans l'esprit et dans le cœur que ce qu'elles montrent, --- et souvent, ne l'ont même pas. Mais au moins, elle était jeune, elle vivait, elle disait franchement, crûment, ce qu'elle pensait ; elle jugeait tout, librement, d'un regard frais et neuf ; on respirait en elle un peu de son mistral balayeur de brouillards. Elle était bien douée. Sans culture et sans réflexion, elle sentait sur-le-champ, et de tout son cœur, jusqu'à en être sincèrement émue, les choses qui étaient belles et bonnes ; et puis, l'instant d'après, elle riait aux éclats. Certes, elle était coquette, elle jouait des prunelles ; il ne lui déplaisait point de montrer ses bras et sa gorge nus, sous le peignoir entr'ouvert : elle eût aimé tourner la tête à Christophe ; mais c'était pur instinct. Nul calcul de sa part ; et elle aimait encore mieux rire, causer gaiement, être bon garçon, bon camarade, sans gêne et sans façons. Elle lui raconta les dessous de la vie de théâtre, ses petites misères, les susceptibilités niaises de ses camarades, les tracasseries de Jézabel, --- (elle appelait ainsi la grande comédienne) --- qui était attentive à ne pas la laisser briller. Il lui confia ses doléances sur les Allemands : elle battit des mains et fit chorus avec lui. Elle était bonne, d'ailleurs, et ne voulait dire du mal de personne ; mais cela ne l'empêchait pas d'en dire ; et, tout en s'accusant sincèrement de malignité, quand elle plaisantait quelqu'un, elle avait un fonds d'humeur railleuse et ce don d'observation réaliste et bouffonne, propre aux gens du Midi : elle n'y pouvait résister, et faisait des portraits à l'emporte-pièce. Elle riait joyeusement de ses lèvres pâles, qui découvraient ses dents de jeune chien ; et ses yeux cernés brillaient dans sa figure un peu blême, que le fard avait décolorée.
+
+Ils s'aperçurent tout à coup qu'il y avait plus d'une heure qu'ils causaient. Christophe proposa à Corinne --- (c'était son nom de théâtre) --- de venir la reprendre dans l'après-midi, pour la piloter à travers la ville. Elle fut enchantée de l'idée ; et ils se donnèrent rendez-vous, aussitôt après le dîner.
+
+À l'heure dite, il fut là. Corinne était assise dans le petit salon de l'hôtel, et tenait un cahier, qu'elle lisait tout haut. Elle l'accueillit avec ses yeux riants, sans s'interrompre de lire, jusqu'à ce qu'elle eût fini sa phrase. Puis, elle lui fit signe de s'asseoir sur le canapé, auprès d'elle :
+
+--- Mettez-vous là, et ne causez pas, dit-elle, je repasse mon rôle. J'en ai pour un quart d'heure.
+
+Elle suivait sur le manuscrit, du bout de l'ongle, en lisant très vite et au hasard, comme une petite fille pressée. Il s'offrit à lui faire réciter sa leçon. Elle lui donna le cahier, et se leva pour répéter. Elle ânonnait, ou recommençait quatre fois une fin de phrase, avant de se lancer dans la phrase suivante. Elle secouait la tête en récitant son rôle ; ses épingles à cheveux tombaient, tout le long de la chambre. Quand un mot obstiné refusait d'entrer dans sa mémoire, elle avait des impatiences d'enfant mal élevée : il lui échappait parfois un juron drôlatique, ou même d'assez gros mots, --- un très gros et très court, dont elle s'apostrophait elle-même. --- Christophe était surpris de son mélange de talent et d'enfantillage. Elle trouvait des intonations justes et émouvantes ; mais, au beau milieu de la tirade où elle semblait mettre tout son cœur, il lui arrivait de dire des mots qui n'avaient aucun sens. Elle récitait sa leçon, comme un petit perroquet, sans beaucoup s'inquiéter de ce que cela signifiait : et c'étaient alors des coq-à-l'âne burlesques. Elle ne s'en affectait point ; quand elle s'en apercevait, elle en riait à se tordre. À la fin, elle dit : « Zut ! », elle lui arracha le cahier des mains, le lança à la volée dans un coin de la chambre, et dit :
+
+--- Vacances ! L'heure est sonnée !... Allons nous promener !
+
+Un peu inquiet au sujet de son rôle, il demanda, par scrupule :
+
+--- Vous croyez que vous saurez ?
+
+Elle répondit avec assurance :
+
+--- Bien sûr. Et le souffleur, pour quoi est-ce qu'il serait fait alors ?
+
+Elle passa dans sa chambre, pour mettre son chapeau. Christophe, en l'attendant, s'assit devant le piano, et tapota quelques suites d'accords. De l'autre pièce, elle cria :
+
+--- Oh ! qu'est-ce que c'est que cela ? Jouez encore ! Que c'est joli !
+
+Elle accourut, en se piquant son chapeau sur la tête. Il continua. Quand il eut fini, elle voulut qu'il continuât encore. Elle s'extasiait, avec ces petites exclamations mièvres et menues, dont les Françaises sont coutumières, et qu'elles prodiguent aussi bien à propos de *Tristan* que d'une tasse de chocolat. Cela faisait rire Christophe : cela le changeait des exclamations énormes, emphatiques et massives de ses Allemands ; c'étaient deux exagérations contraires : l'une tendait à faire d'un bibelot une montagne, l'autre faisait d'une montagne un bibelot ; celle-ci n'était pas moins ridicule que celle-là ; mais elle lui semblait, pour l'instant, plus aimable, parce qu'il aimait la bouche d'où elle sortait. --- Corinne voulut savoir de qui était ce qu'il jouait ; et quand elle sut que c'était de lui, elle poussa des cris. Il lui avait bien dit, dans leur conversation du matin, qu'il était compositeur ; mais elle n'y avait fait aucune attention. Elle s'assit auprès de lui, et exigea qu'il jouât tout ce qu'il avait composé. La promenade fut oubliée. Ce n'était pas simple politesse de sa part : elle adorait la musique, et elle avait un instinct admirable, qui suppléait à l'insuffisance de son instruction. D'abord, il ne la prit pas au sérieux, et lui joua ses mélodies les plus faciles. Mais quand, par hasard, ayant été amené à jouer une page à laquelle il tenait davantage, il vit, sans qu'il lui en eût rien dit, que c'était celle aussi qu'elle préférait, il eut une joyeuse surprise. Avec le naïf étonnement des Allemands, quand ils rencontrent un Français qui est bon musicien, il lui dit :
+
+--- C'est curieux. Comme vous avez le goût bon ! Je n'aurais jamais cru...
 
 Corinne lui rit au nez.
 
-1 s'amusa dès lors à faire choix d'œuvres de plus en
+Il s'amusa dès lors à faire choix d'œuvres de plus en plus difficiles à comprendre, pour voir jusqu'où elle le suivrait. Mais elle ne semblait pas déroutée par les hardiesses expressives ; et, après une mélodie particulièrement neuve, dont Christophe avait presque fini par douter, parce qu'il n'avait jamais réussi à la faire goûter en Allemagne, quel fut son étonnement, quand Corinne le supplia de recommencer, et, se levant, se mit à chanter les notes, de mémoire, sans presque se tromper ! Il se retourna vers elle, et lui saisit les mains, avec effusion :
 
-« 0 plus difficiles à comprendre, pour voir jusqu'où elle le
+--- Mais vous êtes musicienne ! cria-t-il.
 
-5 suivraît. Mais elle ne semblait pas déroutée par les
+Elle se mit à rire, et expliqua qu'elle avait débuté comme chanteuse dans un opéra de province, mais qu'un impresario en tournées avait reconnu ses dispositions pour le théâtre poétique et l'avait poussée de ce côté. Il s'exclamait :
 
-54 hardiesses expressives; et, après une mélodie particu-
+--- Quel dommage !
 
-5 lièrement neuve, dont Christophe avait presque fini par
-douter, parce qu'il n'avait jamais réussi à la faire goûter
-en Allemagne, quel fut son étonnement, quand Corinne le (xs
-4 supplia de recommencer, et, se levant, se mit à chanter
-les notes, de mémoire, sans presque se tromper! Il se à
-retourna vers elle, et lui saisit les mains, avec effusion
-— Mais vous êtes musicienne! cria-t-il.
-Elle se mit à rire, et expliqua qu'elle avait débuté
-comme chanteuse dans un opéra de province, maïs
-qu'un impresario en tournées avait reconnu ses disposi-
-À tions pour le théâtre poétique et l'avait poussée de ce
-, — Pourquoi? fit-elle. La poésie est aussi une musique.
-Elle se fit expliquer le sens de ses Lieder; il lui disait
-NE les mots allemands, et elle les répétait avec une facilité
-simiesque, copiant jusqu'aux plissements de sa bouche
-; et de ses yeux, en prononçant les mots. Quand il s'agissait ensuite de les chanter de mémoire, elle faisait des
-erreurs bouffonnes; et, quand elle ne savait plus, elle:
-inventait des mots, aux sonorités gutturales et barbares, qui les faisaient rire tous deux. Elle ne se lassait;
-pas de le faire jouer, ni lui de jouer pour elle et d'entendre sa jolie voix, qui ne connaissait point les roueries
-du métier et chantait un peu de la gorge, à la façon
-d'une petite fille, mais qui avait un je ne sais quoi de
-fragile et de touchant. Elle lui disait franchement ce
-À qu'elle pensait. Bien qu'elle ne sût pas expliquer
-pourquoi elle aimait ou n'aimait pas une chose, il y
-avait toujours dans ses jugements une raison cachée.
-Chose curieuse, c'était dans les pages les plus classiques
-_et les plus appréciées en Allemagne qu'elle se trouvait
+--- Pourquoi ? fit-elle. La poésie est aussi une musique.
 
-: le moins à l'aise: elle faisait quelques compliments, par
-. politesse; mais on voyait que cela ne lui disait rien.
-Comme elle n'avait pas de culture musicale, elle n'avait À
-pas non plus ce plaisir, que procure inconsciemment
-aux amateurs et même aux artistes le déjà entendu, et
-; qui leur fait souvent reproduire à leur insü, ou aimer
-dans une œuvre nouvelle, des formes ou des formules
-À qu'ils ont aimées déjà dans des œuvres anciennes. Elle
-n'avait pas non plus le goût allemand pour la sentimentalité mélodieuse; — (ou, du moins, sa sentimentalité
-était autre: il n'en connaissait pas encore les défauts) —
-elle ne s'extasiait point sur les passages d'une fadeur
-un peu molle, qu'on préférait en Allemagne; elle ne distingua point le plus médiocre de ses Lieder, — une
-mélodie qu'il eût voulu pouvoir détruire, parce que ses
-4 amis ne lui parlaient que d'elle, trop heureux de pouvoir
-le complimenter de quelque chose. L'instinct dramatique de Corinne lui faisait préférer les mélodies qui
-retraçaient avec franchise une passion précise: c'étaient:
-aussi celles auxquelles il attachait le plus de prix. Tou- a
-À tefois, elle ne laissait pas de manifester son peu de
-A sympathie pour certaines rudesses d'harmonies, qui;
-semblaient toutes naturelles à Christophe: elle éprouvait un heurt à les rencontrer; elle s'arrétait devant, et A
-…. demandait « si vraiment c'était comme ». Quand il:
-à … disait que oui, alors elle se décidait à sauter le pas difficile; mais ensuite, elle faisait une petite grimace de la
-. bouche qui n'échappait point à Christophe. Souvent
-à même, elle aimait mieux passer la mesure. Alors, il la
-1 — Vous n'aimez pas cela? demandait-il.
+Elle se fit expliquer le sens de ses *Lieder ;* il lui disait les mots allemands, et elle les répétait avec une facilité simiesque, copiant jusqu'aux plissements de sa bouche et de ses yeux, en prononçant les mots. Quand il s'agissait ensuite de les chanter de mémoire, elle faisait des erreurs bouffonnes ; et, quand elle ne savait plus, elle inventait des mots, aux sonorités gutturales et barbares, qui les faisaient rire tous deux. Elle ne se lassait pas de le faire jouer, ni lui de jouer pour elle et d'entendre sa jolie voix, qui ne connaissait point les roueries du métier et chantait un peu de la gorge, à la façon d'une petite fille, mais qui avait un je ne sais quoi de fragile et de touchant. Elle lui disait franchement ce qu'elle pensait. Bien qu'elle ne sût pas expliquer pourquoi elle aimait ou n'aimait pas une chose, il y avait toujours dans ses jugements une raison cachée. Chose curieuse, c'était dans les pages les plus classiques et les plus appréciées en Allemagne qu'elle se trouvait le moins à l'aise : elle faisait quelques compliments, par politesse ; mais on voyait que cela ne lui disait rien. Comme elle n'avait pas de culture musicale, elle n'avait pas non plus ce plaisir, que procure inconsciemment aux amateurs et même aux artistes le *déjà entendu*, et qui leur fait souvent reproduire à leur insu, ou aimer dans une œuvre nouvelle, des formes ou des formules qu'ils ont aimées déjà dans des œuvres anciennes. Elle n'avait pas non plus le goût allemand pour la sentimentalité mélodieuse ; --- (ou, du moins, sa sentimentalité était autre : il n'en connaissait pas encore les défauts) --- elle ne s'extasiait point sur les passages d'une fadeur un peu molle, qu'on préférait en Allemagne ; elle ne distingua point le plus médiocre de ses *Lieder*, --- une mélodie qu'il eût voulu pouvoir détruire, parce que ses amis ne lui parlaient que d'elle, trop heureux de pouvoir le complimenter de quelque chose. L'instinct dramatique de Corinne lui faisait préférer les mélodies qui retraçaient avec franchise une passion précise : c'étaient aussi celles auxquelles il attachait le plus de prix. Toutefois, elle ne laissait pas de manifester son peu de sympathie pour certaines rudesses d'harmonies, qui semblaient toutes naturelles à Christophe : elle éprouvait un heurt à les rencontrer ; elle s'arrêtait devant, et demandait « si vraiment c'était comme ça ». Quand il disait que oui, alors elle se décidait à sauter le pas difficile ; mais ensuite, elle faisait une petite grimace de la bouche qui n'échappait point à Christophe. Souvent même, elle aimait mieux passer la mesure. Alors, il la refaisait au piano.
+
+--- Vous n'aimez pas cela ? demandait-il.
+
 Elle fronçait le nez.
 
-— C'est faux, disait-elle.
-À. — Non pas, faisait-il en riant, c'est vrai. Réfléchissez
-à ce qu'il dit. Est-ce que ce n'est pas juste, ici? #3
-ne (1 montrait son cœur.)
-Mais elle secouait la tête:
-pin — Peut-être bien; mais c'est faux, là.
+--- C'est faux, disait-elle.
+
+--- Non pas, faisait-il en riant, c'est vrai. Réfléchissez à ce qu'il dit. Est-ce que ce n'est pas juste, ici ?
+
+(Il montrait son cœur.)
+
+Mais elle secouait la tête :
+
+--- Peut-être bien ; mais c'est faux, là.
+
 (Elle se tirait l'oreille.)
-Elle se montrait aussi un peu choquée par les grands
-) sauts de voix de la déclamation allemande:
-— Pourquoi est-ce qu'il parle si fort? demandait-elle.
 
-Il est tout seul. Est-ce que vous ne craignez pas que ses
-voisins ne l'entendent? Il a l'air. (Pardon! vous ne
-! vous fâcherez pas?) il a l'air de héler un bateau.
-Il ne se fâchait pas; il riait de bon cœur, et recon- À
-naissait qu'il y avait quelque chose de vrai. Ces;
-1408 observations l'amusaient; personne ne les lui avait
-; encore faites. Ils convinrent que la déclamation chantée
-déforme le plus souvent la parole naturelle, à la façon
+Elle se montrait aussi un peu choquée par les grands sauts de voix de la déclamation allemande :
 
-d'un verre grossissant. Corinne demanda à Christophe
+--- Pourquoi est-ce qu'il parle si fort ? demandait-elle. Il est tout seul. Est-ce que vous ne craignez pas que ses voisins ne l'entendent ? Il a l'air... (Pardon ! vous ne vous fâcherez pas ?)... il a l'air de héler un bateau.
 
-d'écrire pour elle la musique d'une pièce, où elle parlerait sur l'accompagnement de l'orchestre, avec quelques À
-phrases chantées de temps en temps. Il s'enflamma:
+Il ne se fâchait pas ; il riait de bon cœur, et reconnaissait qu'il y avait là quelque chose de vrai. Ces observations l'amusaient ; personne ne les lui avait encore faites. Ils convinrent que la déclamation chantée déforme le plus souvent la parole naturelle, à la façon d'un verre grossissant. Corinne demanda à Christophe d'écrire pour elle la musique d'une pièce, où elle parlerait sur l'accompagnement de l'orchestre, avec quelques phrases chantées de temps en temps. Il s'enflamma pour cette idée, malgré les difficultés de réalisation scénique, que la voix musicale de Corinne lui semblait propre à surmonter ; et ils firent des projets pour l'avenir.
 
-pour cette idée, malgré les difficultés de réalisation scénique, que la voix musicale de Corinne lui semblait
-propre à surmonter; et ils firent des projets pour l'avenir.
+Il n'était pas loin de cinq heures, quand ils pensèrent à sortir. À cette saison, la nuit tombait tôt. Il ne pouvait plus être question de se promener. Le soir, Corinne avait répétition au théâtre ; personne n'y pouvait assister. Elle lui fit promettre de revenir la prendre dans l'après-midi du lendemain, pour faire la promenade projetée.
 
-Il n'était pas loin de cinq heures, quand ils pensèrent
-à sortir. A cette saison, la nuit tombait tôt. Il ne pouvait plus être question de se promener. Le soir, Corinne À
+Le lendemain, la même scène faillit se renouveler. Il trouva Corinne devant son miroir, juchée sur un haut tabouret, les jambes pendantes : elle essayait une perruque. Il y avait là son habilleuse et un coiffeur de la ville, auquel elle faisait des recommandations au sujet d'une boucle qu'elle voulait plus relevée. Tout en se regardant dans la glace, elle y regardait Christophe, qui souriait derrière son dos : elle lui tira la langue. Le coiffeur partit avec la perruque, et elle se retourna gaiement vers Christophe :
 
-avait répétition au théâtre; personne n'y pouvait
+--- Bonjour, ami ! dit-elle.
 
-assister. Elle lui fit promettre de revenir la prendre
+Elle lui tendait la joue, pour qu'il l'embrassât. Il ne s'attendait pas à être si intime ; mais il n'eut garde de n'en pas profiter. Elle n'attachait pas tant d'importance à cette faveur : c'était pour elle un bonjour comme un autre.
 
-dans l'après-midi du lendemain, pour faire la prome- À
+--- Oh ! je suis contente ! dit-elle, ça ira bien, ce soir. --- (Elle parlait de sa perruque.) --- J'étais si désolée ! Si vous étiez venu, ce matin, vous m'auriez trouvée malheureuse comme les pierres.
 
-Le lendemain, la même scène faillit se renouveler. Il
-trouva Corinne devant son miroir, juchée sur un haut
-È tabouret, les jambes pendantes: elle essayait une per-
-4 ruque. Il y avait son habilleuse et un coiffeur de la
-È ville, auquel elle faisait des recommandations au sujet
-d'une boucle qu'elle voulait plus relevée. Tout en se
-regardant dans la glace, elle y regardait Christophe,
-4 qui souriait derrière son dos: elle lui tira la langue.
-Le coiffeur partit avec la perruque, et elle se retourna
-gaiement vers Christophe:
-1 — Bonjour, ami! dit-elle.
-Elle lui tendait la joue, pour qu'il l'embrassât. Il ne
-Ê …. s'attendait pas à être si intime; mais il n'eut garde de
-n'en pas profiter. Elle n'attachait pas tant d'importance
-4 à cette faveur: c'était pour elle un bonjour comme un
-de — Oh! je suis contente! dit-elle, ira bien ce soir.
-4 — (Elle parlait de la perruque.) — J'étais si désolée!
-Si vous étiez venu, ce matin, vous m'auriez trouvée
-4 malheureuse comme les pierres.:
-Me C'était parce que le coiffeur parisien s'était trompé
-dans ses emballages, et qu'il lui avait mis une perruque
-Le qui ne convenait pas au rôle:
-— Toute plate, disait-elle, et tombant tout droit, bêteha
+Il demanda pourquoi.
 
-ES ment. Quand j'ai cela, j'ai pleuré, pleuré comme une
-Madeleine. N'est-ce pas, madame Désirée?
-Elle s'adressait à l'habilleuse.) FRS
-— Quand je suis entrée, dit celle-ci, Madame m'a fait pee
-peur. Madame était toute blanche. Madame était comme
-Christophe rit. Corinne le vit dans la glace: À
+C'était parce que le coiffeur parisien s'était trompé dans ses emballages, et qu'il lui avait mis une perruque qui ne convenait pas au rôle.
 
-Htc — Cela vous fait rire, sans cœur? dit-elle, indignée.
+--- Toute plate, disait-elle, et tombant tout droit, bêtement. Quand j'ai vu cela, j'ai pleuré, pleuré comme une Madeleine. N'est-ce pas, madame Désirée ?
+
+--- Quand je suis entrée, dit celle-ci, Madame m'a fait peur. Madame était toute blanche. Madame était comme morte.
+
+Christophe rit. Corinne le vit dans la glace :
+
+--- Cela vous fait rire, sans cœur ? dit-elle, indignée.
+
 Elle se mit à rire aussi.
-Il lui demanda comment avait été la répétition dela
-veille. — Tout avait très bien marché. Elle eût voulu
-seulement qu'on fit plus de coupures dans les rôles des
-autres, et qu'on n'en fit pas dans le sien. Ils causèrent À
-1 si bien, qu'une partie de l'après-midi y passa. Elle s'ha- À
-À billa, longuement; elle s'amusait à demander l'avis de "1
-Christophe sur ses toilettes. Christophe loua son élégance, et lui dit naïvement, dans son jargon francoallemand, qu'il n'avait jamais personne d'aussi
-( « luxurieux ». — Elle le regarda d'abord, interloquée,
-puis poussa de grands éclats de rire.
 
-— Qu'est-ce que j'ai dit? demanda-t-il. Ce n'est pas à
-far comme cela qu'il faut dire? à
-— Si! Si! criait-elle, en se tordant de rire. C'est juste …
+Il lui demanda comment avait été la répétition de la veille. --- Tout avait très bien marché. Elle eût voulu seulement qu'on fît plus de coupures dans les rôles des autres, et qu'on n'en fît pas dans le sien. Ils causèrent si bien qu'une partie de l'après-midi y passa. Elle s'habilla, longuement ; elle s'amusait à demander l'avis de Christophe sur ses toilettes. Christophe loua son élégance, et lui dit naïvement, dans son jargon franco-allemand, qu'il n'avait jamais vu personne d'aussi « luxurieux ». --- Elle le regarda d'abord, interloquée, puis poussa de grands éclats de rire.
 
-Ils sortirent enfin. Sa toilette tapageuse et sa parole À
-exubérante attiraient l'attention. Elle regardait tout
+--- Qu'est-ce que j'ai dit ? demanda-t-il. Ce n'est pas comme cela qu'il faut dire ?
 
-avec ses yeux de Française railleuse, et ne se préoccu- à
+--- Si ! Si ! cria-t-elle, en se tordant de rire. C'est justement cela.
 
-pait pas de cacher ses impressions. Elle pouffait devant
-les étalages de modes, ou devant les magasins de
+Ils sortirent enfin. Sa toilette tapageuse et sa parole exubérante attiraient l'attention. Elle regardait tout avec ses yeux de Française railleuse, et ne se préoccupait pas de cacher ses impressions. Elle pouffait devant les étalages de modes, ou devant les magasins de cartes postales illustrées, où l'on voyait pêle-mêle des scènes sentimentales, des scènes bouffes et grivoises, les cocottes de la ville, la famille impériale, l'empereur en habit rouge, l'empereur en habit vert, l'empereur en loup de mer, tenant le gouvernail du navire *Germania* et défiant le ciel. Elle s'esclaffait devant un service de table orné de la tête revêche de Wagner, ou devant une devanture de coiffeur où trônait une tête d'homme en cire. Elle manifestait une hilarité peu décente devant le monument patriotique, qui représentait le vieil empereur, en pardessus de voyage et casque à pointe, en compagnie de la Prusse, des États allemands, et du génie de la Guerre tout nu. Elle happait au passage tout ce qui, dans la physionomie des gens, leur démarche, ou leur façon de parler, prêtait à la raillerie. Ses victimes ne pouvaient s'y tromper, au coup d'œil malicieux qui cueillait leurs ridicules. Son instinct simiesque lui faisait même parfois, sans qu'elle y réfléchît, imiter des lèvres et du nez leurs grimaces épanouies ou renfrognées ; et elle gonflait les joues pour répéter des fragments de phrases ou de mots, qu'elle avait saisis au vol, et dont la sonorité lui paraissait burlesque. Il en riait de tout son cœur, nullement gêné par ses impertinences ; car il ne se gênait pas davantage. Heureusement, sa réputation n'avait plus grand chose à perdre ; car une telle promenade était faite pour la couler à jamais.
 
-; cartes postales illustrées, où l'on voyait pêle-mêle des
-scènes sentimentales, des scènes bouffes et grivoises,
-les cocottes de la ville, la famille impériale, l'empereur
+Ils visitèrent la cathédrale. Corinne voulut grimper jusqu'au faîte de la flèche, malgré ses talons hauts et sa robe trop longue, qui balayait les marches et finit par se prendre à un angle de l'escalier ; elle ne s'en émut pas, tira bravement sur l'étoffe qui craqua, et continua de grimper, en se retroussant gaillardement. Peu s'en fallut qu'elle ne sonnât les cloches. Du haut des tours, elle déclama du Victor Hugo, auquel il ne comprit rien, et chanta une chanson populaire française. Après quoi, elle fit le muezzin. --- Le crépuscule tombait. Ils redescendirent dans l'église, d'où l'ombre épaisse montait le long des murs gigantesques, au front desquels luisaient les prunelles magiques des vitraux. Christophe vit, agenouillée dans une des chapelles latérales, la jeune fille qui avait été sa compagne de loge, à la représentation d'*Hamlet*. Elle était si absorbée dans sa prière qu'elle ne le vit point ; elle avait une expression douloureuse et tendue, qui le frappa. Il eût voulu lui dire quelques mots, la saluer au moins ; mais Corinne l'entraîna dans son tourbillon.
 
-en habit rouge, l'empereur en habit vert, l'empereur en
-loup de mer, tenant le gouvernail du navire Germania
-et défiant le ciel. Elle s'esclaffait devant un service de:
-table orné de la tête revêche de Wagner, ou devant une
-devanture de coiïffeur où trônait une tête d'homme
-en cire. Elle manifestait une hilarité peu décente;
-devant le monument patriotique, qui représentait le vieil
-empereur, en pardessus de voyage et casque à pointe,
-en compagnie de la Prusse, des États allemands, et du
-génie de la Guerre tout nu. Elle happait au passage
-tout ce qui, dans la physionomie des gens, leur
-démarche, ou leur façon de parler, prêtait à la
-4 raillerie. Ses victimes ne pouvaient s'y tromper, au
-5 coup d'œil malicieux qui cueillait leurs ridicules. Son
-à instinct simiesque lui faisait même parfois, sans:
-qu'elle y réfléchit, imiter des lèvres et du nez leurs
-À grimaces épanouies ou renfrognées; et elle gonflait
-les joues pour répéter des fragments de phrases ou
-À de mots, qu'elle avait saisis au vol, et dont la sonorité
-ï. lui paraissait burlesque. Il en riait de tout son cœur,
-nullement gêné par ses impertinences; car il ne se
-4 gênait pas davantage. Heureusement, sa réputation
-n'avait plus grand chose à perdre; car une telle prome-
-; nade était faite pour la couler à jamais.
-visitèrent la cathédrale. Corinne voulut grimper?
-É jusqu'au faîte de la flèche, malgré ses talons hauts et
-sa robe trop longue, qui balayait les marches et finit
-te par se prendre à un angle de l'escalier; elle ne s'en
-ma émut pas, tira bravement sur l'étoffe qui craqua, et
-! continua de grimper, en se retroussant gaillardement.
-Peu s'en fallut qu'elle ne sonnât les cloches. Du haut
-des tours, elle déclama du Victor Hugo, auquel il ne
+Ils se quittèrent peu après. Elle devait se préparer pour la représentation, qui commençait de bonne heure, suivant l'usage d'Allemagne. Il venait à peine de rentrer, qu'on sonnait à sa porte, pour lui remettre ce billet de Corinne :
 
-comprit rien, et chanta une chanson populaire française.
-Après quoi, elle fit le muezzin. — Le crépuscule tombaït. Ils redescendirent dans l'église, d'où l'ombre
-épaisse montait le long des murs gigantesques, au il
-front desquels luisaient les prunelles magiques des Es
-vitraux. Christophe vit, agenouillée dans une des cha- #1
-pelles latérales, la jeune fille qui avait été sa compagne
-de loge, à la représentation d'Hamlet. Elle était si
-absorbée dans sa prière qu'elle ne le vit point; elle
-avait une expression douloureuse et tendue, qui le
-frappa. Il eût voulu lui dire quelques mots, la saluer
-au moins; mais Corinne l'entraina dans son tourbillon.
-Ils se quittèrent peu après. Elle devait se préparer
-pour la représentation, qui commençait de bonne heure,
-suivant l'usage d'Allemagne. Il venait à peine de ren-
-: trer, qu'on sonnait à sa porte, pour lui remettre ce
-billet de Corinne:
-« Veine! Jézabel malade! Reläche! Vive la classe!.. à
-Ami! Venez! Ferons la dinette ensemble!
-« P. S. — Portez beaucoup de musique!.…. »
-Il eut quelque peine à comprendre. Quand il eut com- À
-pris, il fut aussi content que Corinne, et se rendit
-aussitôt à l'hôtel. Il craignait de trouver toute la troupe
-réunie au diner; mais il ne vit personne. Corinne même
-avait disparu. A la fin, il entendit sa voix bruyante )
-recherche, et parvint à la découvrir dans la cuisine.
-Elle s'était mis en tête d'exécuter un plat de sa façon,
-un de ces plats méridionaux, dont l'arome exubérant
+« Veine ! Jézabel malade ! Relâche ! Vive la classe !... Ami ! Venez ! Ferons la dînette ensemble !
 
-; remplit tout un quartier et réveillerait les pierres. Elle
-était au mieux avec la grosse patronne de l'hôtel, et
-elles baragouinaient ensemble un jargon effroyable, mêlé
-d'allemand, de français et de nègre, qui n'avait de nom
-- en aucune langue. Elles riaient aux éclats, en se faisant
-goûter mutuellement leurs œuvres. L'apparition de
-Christophe augmenta le tapage. On voulut le mettre à
-la porte; mais il se défendit, et il réussit à goûter aussi;
-du fameux plat. Il fit un peu la grimace: sur quoi
-elle le traita de barbare Teuton, et dit que ce n'était
-pas la peine de se donner du mal pour lui.
-Ils remontèrent ensemble au petit salon, où la table
-était prête: il n'y avait que son couvert et celui de
-Corinne. Il ne put s'empêcher de demander où étaient
-les camarades. Corinne eut un geste indifférent:
-— Je ne sais pas.
-— Vous ne soupez pas ensemble?
-: — Jamais! C'est déjà bien assez de se voir au
-ï théâtre! Ah bien! s'il fallait encore se retrouver à
-Cela était si différent des habitudes allemandes, qu'il
-en fut étonné — et charmé:
-— Je croyais, dit-il, que vous étiez un peuple so-
-; — Eh bien, fit-elle, est-ce que je ne suis pas sociable?
-; — Sociable, cela veut dire: vivre en société. Il faut;
-nous voir, nous autres! Hommes, femmes, enfants,
-chacun fait partie de sociétés, du jour de sa naissance
-jusqu'au jour de sa mort. Tout se fait en Société: on
-mange, on chante, on pense avec la Société. Quand la
-Société éternue, on éternue avec elle; on ne boit pas
-une chope, sans boire avec la Société.
+« Amie !
 
-Jean-Christophe ne
-— Ce doit être gai, dit-elle. Pourquoi pas dans le
-même verre?
-— N'est-ce pas fraternel?
-— Jut pour la fraternité! Je veux bien être « frère »
-de ceux qui me plaisent; je ne le suis pas des autres.
-Pouah! Ce n'est pas une société, cela, c'est une fourmi-
+« Corinette.
 
-— Jugez donc comme je dois être à mon aise ici, moi
+« *P. S.* --- Portez beaucoup de musique !... »
 
-qui pense comme vous!
-— Venez chez nous alors!
-. Il ne demandait pas mieux. Il l'interrogea sur Paris
-et sur les Français. Elle lui donna des renseignements, À
-qui n'étaient pas d'une exactitude parfaite. A sa hâblerie à
-Lis ï de Méridionale se joignait le désir instinctif d'éblouir
-À son interlocuteur: — A l'en croire, à Paris, tout le
-monde était libre; et comme tout le monde à Paris était
-intelligent, chacun usait de la liberté, personne n'en
+Il eut quelque peine à comprendre. Quand il eut compris, il fut aussi content que Corinne, et se rendit aussitôt à l'hôtel. Il craignait de trouver toute la troupe réunie au dîner ; mais il ne vit personne. Corinne même avait disparu. À la fin, il entendit sa voix bruyante et riante, tout au fond de la maison ; il se mit à sa recherche, et parvint à la découvrir dans la cuisine. Elle s'était mis en tête d'exécuter un plat de sa façon, un de ces plats méridionaux, dont l'arôme exubérant remplit tout un quartier et réveillerait les pierres. Elle était au mieux avec la grosse patronne de l'hôtel, et elles baragouinaient ensemble un jargon effroyable, mêlé d'allemand, de français et de nègre, qui n'avait de nom en aucune langue. Elles riaient aux éclats, en se faisant goûter mutuellement leurs œuvres. L'apparition de Christophe augmenta le tapage. On voulut le mettre à la porte ; mais il se défendit, et il réussit à goûter aussi du fameux plat. Il fit un peu la grimace : sur quoi elle le traita de barbare Teuton, et dit que ce n'était pas la peine de se donner du mal pour lui.
 
-abusait; chacun faisait ce qui lui plaisait, pensait,;
+Ils remontèrent ensemble au petit salon, où la table était prête : il n'y avait que son couvert et celui de Corinne. Il ne put s'empêcher de demander où étaient les camarades. Corinne eut un geste indifférent :
 
-croyait, aimait ou n'aimait point ce qu'il voulait:
+--- Je ne sais pas.
 
-personne n'y avait rien à redire. Ce n'était point
+--- Vous ne soupez pas ensemble ?
 
-qu'on pouvait voir les gens se mêler des croyances les
-uns des autres, espionner les consciences, régenter les À
-pensées. Ce n'était point que les hommes politiques
-s'immisçaient aux affaires des lettres et des arts, et distribuaient les croix, les places, et l'argent à leurs amis
-et à leurs clients. Ce n'était point que des cénacles
-disposaient de la réputation et du succès, que les journalistes s'achetaient, que les hommes de lettres se cassaient des encensoirs sur la tête quand ils ne pouvaient
-pas se casser la tête avec. Ce n'était point que la cri-
+--- Jamais ! C'est déjà bien assez de se voir au théâtre !... Ah bien ! s'il fallait encore se retrouver à table !...
 
-4 tique étouffait les talents inconnus, et s'épuisait en adulations devant les talents reconnus. Ce n'était point
+Cela était si différent des habitudes allemandes, qu'il en fut étonné et charmé :
 
-1 que le succès, le succès à tout prix justifiait tous les
-moyens et commandait l'adoration publique. Des mœurs
-4 douces, affectueuses, obligeantes. Nulle aigreur dans les
-rapports. Jamais de médisance. Chacun venait en aide
-‘aux autres. Tout nouveau venu de valeur était sûr de
-voir les mains tendues vers lui, la route aplanie sous
-ses pas. Le pur amour du beau remplissait ces âmes de
-Français chevaleresques et désintéressés; et leur seul
-ridicule était leur idéalisme, qui, malgré leur esprit
-bien connu, faisait d'eux la dupe des autres peuples.
-: Christophe écoutait, bouche bée; et il y avait bien de
-4 quoi s'émerveiller. Corinne s'émerveillait elle-même,
-en s'écoutant parler. Elle en avait oublié ce qu'elle
-avait dit à Christophe, le jour d'avant, sur les difficul-
-; tés de sa vie passée; et il n'y songeait pas plus qu'elle.
-Cependant, Corinne n'était pas uniquement préoccupée
-de faire aimer sa patrie aux Allemands: elle ne tenait
-à pas moins à se faire aimer elle-même. Toute une soirée
-À sans flirt lui eût paru austère et un peu ridicule. Elle
-ne. n'épargnait pas les agaceries à Christophe; mais c'était
-peine perdue: il ne s'en apercevait pas. Christophe ne
-savait pas ce que c'était que flirter. Il aimait, ou
-n'aimait point. Lorsqu'il n'aimait point, il était à mille
-; lieues de songer à l'amour. Il avait une vive amitié pour
-Corinne, il subissaït l'attrait de cette nature méridiox nale, si nouvelle pour lui, de sa bonne grâce, de sa belle
-humeur, de son intelligence vive et libre: c'étaient
-. sans doute plus de raisons qu'il n'en fallait pour aimer;
-à 1 mais « l'esprit souffle où il veut il ne soufflait pas là;
-Pau et, quant à jouer l'amour, en l'absence de l'amour,
-à c'était une idée qui ne lui serait jamais venue.
-Corinne s'amusait de sa froideur. Assise auprès de
+--- Je croyais, dit-il, que vous étiez un peuple sociable !
 
-Jui, devant le piano, tandis qu'il jouait les morceaux
-qu'il avait apportés, elle avait passé son bras autour À
-du cou de Christophe, et, pour suivre la musique, elle:
-se penchaït vers le clavier, appuyant presque sa joue
-contre celle de son ami. Il sentait le frôlement de ses
-cils, et voyait, tout contre lui, le coin de sa prunelle
-moqueuse, son aimable et vivant petit museau, et le
+--- Eh bien, fit-elle, est-ce que je ne suis pas sociable ?
 
-petit duvet de sa lèvre retroussée, qui, souriante, attendait. — Elle attendit. Christophe ne comprit pas l'invite; Corinne le gênait pour jouer: c'était tout ce qu'il
-pensait. Machinalement, il se dégagea et écarta sa "4
-chaise. Comme, un moment après, il se retournait vers
-Corinne pour lui parler, il vit qu'elle mourait d'envie de
-: rire; la fossette de sa joue riait; elle serrait les lèvres,
-et semblait se tenir à quatre pour ne pas éclater.
-— Qu'est-ce que vous avez? dit-il, étonné.
-Elle le regarda, et partit d'un bruyant éclat de rire. je
+--- Sociable, cela veut dire : vivre en société. Il faut nous voir, nous autres ! Hommes, femmes, enfants, chacun fait partie de sociétés, du jour de sa naissance jusqu'au jour de sa mort. Tout se fait en Société : on mange, on chante, on pense avec la Société. Quand la Société éternue, on éternue avec elle ; on ne boit pas une chope, sans boire avec la Société.
 
-— Pourquoi riez-vous? demandait-il, est-ce que j'ai
+--- Ce doit être gai, dit-elle. Pourquoi pas dans le même verre ?
 
-dit quelque chose de drôle?
-Plus il insistait, plus elle riait. Quand elle était près 1]
-de finir, il suffisait qu'elle jetât un regard sur son air
-ahuri, pour qu'elle repartit de plus belle. Elle se leva,
-courut vers le canapé à l'autre bout de la chambre, et
-s'enfonça la figure dans les coussins, pour rire tout à
+--- N'est-ce pas fraternel ?
 
-son aise; son corps riait tout entier. Il fut gagné par son
+--- Zut pour la fraternité ! Je veux bien être « frère » de ceux qui me plaisent ; je ne le suis pas des autres... Pouah ! Ce n'est pas une société, cela, c'est une fourmilière !
 
-rire, il vint vers elle, et lui donna de petites tapes dans
-le dos. Quand elle eut tout son soûl, elle releva la À
-tête, essuya ses yeux qui pleuraient, et lui tendit les
+--- Jugez donc comme je dois être à mon aise ici, moi qui pense comme vous !
 
-— Quel bon garçon vous faites! dit-elle. 4]
-— Pas plus mauvais qu'un autre.
+--- Venez chez nous alors !
 
-Elle continuait d'être secouée de petits accès de rire,
+Il ne demandait pas mieux. Il l'interrogea sur Paris et sur les Français. Elle lui donna des renseignements, qui n'étaient pas d'une exactitude parfaite. À sa hâblerie de Méridionale se joignait le désir instinctif d'éblouir son interlocuteur. --- À l'en croire, à Paris, tout le monde était libre ; et comme tout le monde, à Paris, était intelligent, chacun usait de la liberté, personne n'en abusait ; chacun faisait ce qui lui plaisait, pensait, croyait, aimait ou n'aimait point ce qu'il voulait : personne n'y avait rien à redire. Ce n'était point là qu'on pouvait voir les gens se mêler des croyances les uns des autres, espionner les consciences, régenter les pensées. Ce n'était point là que les hommes politiques s'immisçaient aux affaires des lettres et des arts, et distribuaient les croix, les places, et l'argent à leurs amis et à leurs clients. Ce n'était point là que des cénacles disposaient de la réputation et du succès, que les journalistes s'achetaient, que les hommes de lettres se cassaient des encensoirs sur la tête quand ils ne pouvaient pas se casser la tête avec. Ce n'était point là que la critique étouffait les talents inconnus, et s'épuisait en adulations devant les talents reconnus. Ce n'était point là que le succès, le succès à tout prix justifiait tous les moyens et commandait l'adoration publique. Des mœurs douces, affectueuses, obligeantes. Nulle aigreur dans les rapports. Jamais de médisance. Chacun venait en aide aux autres. Tout nouveau venu de valeur était sûr de voir les mains tendues vers lui, la route aplanie sous ses pas. Le pur amour du beau remplissait ces âmes de Français chevaleresques et désintéressés ; et leur seul ridicule était leur idéalisme, qui, malgré leur esprit bien connu, faisait d'eux la dupe des autres peuples.
 
-en lui tenant toujours les mains.
-; — Pas sérieuse, la Françoise? fit-elle.
+Christophe écoutait, bouche bée ; et il y avait bien de quoi s'émerveiller. Corinne s'émerveillait elle-même, en s'écoutant parler. Elle en avait oublié ce qu'elle avait dit à Christophe, le jour d'avant, sur les difficultés de sa vie passée ; et il n'y songeait pas plus qu'elle.
 
-(Elle prononçait: « Françouése ».)
+Cependant, Corinne n'était pas uniquement préoccupée de faire aimer sa patrie aux Allemands : elle ne tenait pas moins à se faire aimer elle-même. Toute une soirée sans flirt lui eût paru austère et un peu ridicule. Elle n'épargnait pas les agaceries à Christophe ; mais c'était peine perdue : il ne s'en apercevait pas. Christophe ne savait pas ce que c'était que flirter. Il aimait, ou n'aimait point. Lorsqu'il n'aimait point, il était à mille lieues de songer à l'amour. Il avait une vive amitié pour Corinne, il subissait l'attrait de cette nature méridionale, si nouvelle pour lui, de sa bonne grâce, de sa belle humeur, de son intelligence vive et libre : c'étaient là sans doute plus de raisons qu'il n'en fallait pour aimer ; mais « l'esprit souffle où il veut » : il ne soufflait pas là ; et, quant à jouer l'amour, en l'absence de l'amour, c'était là une idée qui ne lui serait jamais venue.
 
-— Vous vous moquez de moi, dit-il, avec bonne
+Corinne s'amusait de sa froideur. Assise auprès de lui, devant le piano, tandis qu'il jouait les morceaux qu'il avait apportés, elle avait passé son bras nu autour du cou de Christophe, et, pour suivre la musique, elle se penchait vers le clavier, appuyant presque sa joue contre celle de son ami. Il sentait le frôlement de ses cils, et voyait, tout contre lui, le coin de sa prunelle moqueuse, son aimable et vivant petit museau, et le petit duvet de sa lèvre retroussée, qui, souriante, attendait. --- Elle attendit. Christophe ne comprit pas l'invite ; Corinne le gênait pour jouer : c'était tout ce qu'il pensait. Machinalement, il se dégagea et écarta sa chaise. Comme, un moment après, il se retournait vers Corinne pour lui parler, il vit qu'elle mourait d'envie de rire ; la fossette de sa joue riait ; elle serrait les lèvres, et semblait se tenir à quatre pour ne pas éclater.
 
-Elle le regarda d'un air attendri, lui secoua vigoureusement les mains, et dit::
-— Amis! fit-il, en répondant à sa poignée de main.
+--- Qu'est-ce que vous avez ? dit-il, étonné.
 
-! — Il pensera à Corinnette, quand elle ne sera plus
+Elle le regarda, et partit d'un bruyant éclat de rire.
 
-là? Il n'en voudra pas à la Françoise de n'être pas
+Il n'y comprenait rien :
 
-— Et elle, elle n'en voudra pas au barbare Teuton
+--- Pourquoi riez-vous ? demandait-il, est-ce que j'ai dit quelque chose de drôle ?
 
-— C'est pour qu'on l'aime... Il viendra la voir à
+Plus il insistait, plus elle riait. Quand elle était près de finir, il suffisait qu'elle jetât un regard sur son air ahuri, pour qu'elle repartît de plus belle. Elle se leva, courut vers le canapé à l'autre bout de la chambre, et s'enfonça la figure dans les coussins, pour rire tout à son aise ; son corps riait tout entier. Il fut gagné par son rire, il vint vers elle, et lui donna de petites tapes dans le dos. Quand elle eut ri tout son soûl, elle releva la tête, essuya ses yeux qui pleuraient et lui tendit les deux mains :
 
-: — C'est promis... Et elle, elle m'écrira?
+--- Quel bon garçon vous faites ! dit-elle.
 
-1 — C'est juré... Dites aussi: Je le jure.
-; — Non, ce n'est pas comme cela. Il faut tendre la main.
-Elle imita le serment des Horaces. Elle lui fit promettre qu'il écrirait pour elle une pièce, un mélodrame,
+--- Pas plus mauvais qu'un autre.
 
-1 qu'on traduirait en français, et qu'elle jouerait à Paris.
+Elle continuait d'être secouée de petits accès de rire, en lui tenant toujours les mains.
 
-Elle partait, le lendemain, avec sa troupe. Il s'engagea
+--- Pas sérieuse, la *Françoise ?* fit-elle.
 
-4 à aller la retrouver, le surlendemain, à Francfort, où
+(Elle prononçait : « *Françouése* ».)
 
-"1. ils donnaient une représentation. Ils restèrent encore
+--- Vous vous moquez de moi, dit-il, avec bonne humeur.
 
-quelque temps à bavarder ensemble. Ellé donna à
+Elle le regarda d'un air attendri, lui secoua vigoureusement les mains, et dit :
 
-Christophe une photographie qui la représentait nue
+--- Amis ?
 
-“4 presque jusqu'à mi-corps, une simple draperie attachée
+--- Amis ! fit-il, en répondant à sa poignée de main.
 
-sous les bras. Ils se quittèrent gaiement, en s'embrassant
+--- Il pensera à Corinnette, quand elle ne sera plus là ? Il n'en voudra pas à la *Françoise* de n'être pas sérieuse ?
 
-comme frère et sœur. Et vraiment, depuis que Corinne
+--- Et elle, elle n'en voudra pas au barbare Teuton d'être si bête ?
 
-avait que Christophe l'aimait bien, mais que déci-
-LA dément il n'était pas amoureux d'elle, elle s'était mise à
-à l'aimer bien aussi, sans amour, comme une bonne
-Leur sommeil n'en fut pas troublé, ni à l'un, ni à
-l'autre. Il ne put lui dire au revoir, le lendemain; car il
-était pris à cette heure par une répétition. Mais, le jour
-suivant, il s'arrangea, comme il l'avait promis, pour
-aller à Francfort. C'était à deux ou trois heures de che- -
-min de fer. Corinne ne croyait guère à la promesse
-de Christophe; mais il l'avait prise très au sérieux; et,
-à l'heure de la représentation, il était là. Quand il vint,
-pendant l'entr'acte, frapper à la loge où elle s'habillait,!
-elle poussa des exclamations de joyeuse surprise, et se
-Ù jeta à son cou, avec son exubérance habituelle. Elle lui
-était sincèrement reconnaissante d'être venu. Malheureusement pour Christophe, elle était beaucoup plus
-entourée dans cette ville de Juifs riches et intelligents,
-qui savaient apprécier sa beauté présente et son succès
-futur. A tout instant, on heurtait à la porte de la loge;
-et la porte s'entrebâillait pour laisser passage à de
-lourdes figures aux yeux vifs, qui disaient des fadeurs
-avec un âpre accent. Corinne naturellement coquetait
-avec eux; et elle gardait ensuite le même ton affecté et
-provocant pour causer avec Christophe, qui en était
-; irrité. Il n'éprouvait d'ailleurs aucun plaisir de l'impudeur tranquille, avec laquelle elle procédait devant lui
-à sa toilette; et le fard et le gras, dont elle enduisait
-: ses bras, sa gorge et sa figure, lui inspiraient un profond
-dégoût. Il fut sur le point de partir sans la revoir, aussitôt après la représentation; mais, quand il lui dit
-adieu, en s'excusant de ne pouvoir assister au souper
+--- C'est pour ça qu'on l'aime... Il viendra la voir à Paris ?
 
-qui devait lui être offert au sortir du spectacle, elle
-manifesta une peine si gentiment affectueuse, que ses
-résolutions ne tinrent pas. Elle se fit apporter un:
-horaire des chemins de fer, pour lui prouver qu'il
-pouvait — qu'il devait rester encore une bonne heure
-avec elle. Il ne demandait qu'à être convaincu, et il fut
-au souper; il sut même ne pas trop montrer son ennui
-des niaiseries qu'on y débita, et son irritation des agaceries que Corinne prodiguait au premier singe venu.
-Impossible de lui en vouloir. C'était une brave fille,
-sans aucun principe moral, paresseuse, sensuelle,
-amoureuse du plaisir, d'une coquetterie enfantine, mais
-en même temps si loyale, si bonne, et dont tous les
-défauts étaient si spontanés et si sains, qu'on ne pouvait qu'en sourire, et presque les aimer. Assis en face
-d'elle, tandis qu'elle parlait, Christophe regardait son
-visage animé, sés beaux yeux rayonnants, sa mâchoire
-un peu empâtée, au sourire italien, — ce sourire où il y
-a de la bonté, de la finesse, une lourdeur gourmande:
-; il la voyait plus clairement qu'il n'avait fait jusque
-) là. Certains traits lui rappelaient Ada: certains gestes,
-certains regards, certaines roueries sensuelles, un peu
-grossières: — l'éternel féminin. Mais ce qu'il aimait en;
-4 elle, c'était la nature du Midi, la généreuse nature, qui
-! ne lésine point avec ses dons, qui ne s'amuse point à
-À fabriquer des beautés de salon et des intelligences de
-livres, mais des êtres harmonieux, dont le corps et
-y l'esprit sont faits pour s'épanouir à l'air et au soleil. —
-Quand il partit, elle quitta la table pour lui faire ses
-ê adieux, à part des autres. Ils s'embrassèrent encore et
-renouvelèrent leurs promesses de s'écrire et de se revoir.
-Il reprit le dernier train, pour rentrer chez lui. A une
+--- C'est promis... Et elle, elle m'écrira ?
 
-me station intermédiaire, le train qui venait en sens inverse +4
-attendait. Juste dans le wagon arrêté en face du sien,
-— dans un compartiment de troisième, Christophe vit;
-la jeune Française, qui avait été avec lui à la repré- à
-sentation d'Hamlet. Elle vit aussi Christophe, et elle:
-HORS le reconnut. Ils furent aussi saisis l'un que l'autre. Ils
-se saluèrent silencieusement, et restèrent immobiles,
-à n'osant plus se regarder. Cependant il avait d'un
-coup d'œil qu'elle avait une petite toque de voyage, et
-; une vieille valise auprès d'elle. L'idée ne lui vint pas
-qu'elle quittât le pays; il pensa qu'elle partait pour
-quelques jours. Il ne savait s'il devait lui parler: il À
-1] hésita, il prépara dans sa tête ce qu'il voulait lui dire,
-, et il allait baisser la glace du wagon, pour lui adresser
-ù quelques mots, quand on donna le signal du départ: il
-que le train ne bougeât. Ils se regardèrent en face.
-Seuls dans leur compartiment, le visage appuyé contre
-la vitre du wagon, à travers la nuit qui les entourait,
-ils plongeaient leurs regards dans les yeux l'un de
-l'autre. Une double fenêtre les séparait. S'ils avaient
-étendu le bras au dehors, leurs mains auraient se
-toucher. Si près. Si loin. Les wagons s'ébranlèrent À
-lourdement. Elle le regardait toujours, n'ayant plus de
-timidité, maintenant qu'ils se quittaient. Ils étaient si
-absorbés dans la contemplation l'un de l'autre, qu'ils
-ne pensèrent même plus à se saluer une dernière fois.
-Elle s'éloignait lentement: il la vit disparaître; et le
-train qui la portait s'enfonça dans la nuit. Comme deux
-mondes errants, ils étaient passés, un instant, l'un
-près de l'autre, dans l'espace infini, et ils s'éloignaient
-l'un de l'autre, pour l'éternité peut-être.
+--- C'est juré... Dites aussi : Je le jure.
 
-Quand elle eut disparu, il sentit le vide que ce regard
-à inconnu venait de creuser en lui; et il ne comprit pas te
-pourquoi: mais le vide était là. Les paupières à demi
-closes, somnolent, adossé à un angle du wagon, il sen
-tait sur ses yeux le contact de ces yeux; et toutes ses
-autres pensées se taisaient pour le mieux sentir..
-L'image de Corinne papillotait au dehors de son cœur,
-comme un insecte qui bat des aïles de l'autre côté des
-carreaux; mais il ne la laissait pas entrer.
-Il la retrouva, au sortir du wagon, à l'arrivée, quand
-Vair frais de la nuit et la marche dans les rues de la
-ville endormie eurent secoué sa torpeur. Il souriait au
-souvenir de la gentille actrice, avec un mélange de plaisir et d'irritation, selon qu'il se rappelait ses manières
-affectueuses ou ses coquetteries vulgaires.
-— Diable de Français! grommelait-il, en riant tout
-; bas, tandis qu'il se déshabillait sans bruit, pour ne pas
-réveiller sa mère, qui dormait à côté.
-Un mot qu'il avait entendu, l'autre soir, dans la loge,
-A lui revint à l'esprit
-A Dès sa première rencontre avec la France, elle lui
-: posait l'énigme de sa double nature. Mais, comme tous
-4 les Allemands, il ne s'inquiétait point de la résoudre;
-et il répétait tranquillement, en songeant à la jeune fille
-24 — Elle n'a pas l'air Française.
-du Comme s'il appartenait à un Allemand de dire ce qui
-à est Français et ce qui ne l'est point.
+--- Je le jure.
 
-ne Française ou non, elle le préoccupait; car, dans le
-milieu de la nuit, il se réveilla, avec un serrement de
-1 cœur: il venait de se rappeler la valise placée sur la
-14 banquette, auprès de la jeune fille; et brusquement,
-rats l'idée que la voyageuse était partie tout à fait lui avait
-traversé l'esprit. A vrai dire, cette idée aurait lui
-tal venir, dès le premier instant; mais il n'y avait pas
-4 songé. Il en ressentait une sourde tristesse. Il haussa
-ï les épaules, dans son lit: à
-— Qu'est-ce que cela peut bien me faire? se dit-il.
-Cela ne me regarde pas.
-A Mais, le lendemain, la première personne qu'il rencontra en sortant fut Mannheim, qui l'appela « Blücher
-et lui demanda s'il avait décidé de conquérir toute la
-France. Par cette gazette vivante, il apprit que l'histoire
-de la loge avait un succès qui dépassait tout ce que
-— Grâce à toi! Grâce à toi! criait Mannheim. Tu es
-un grand homme. Je ne suis rien auprès de toi.
-". — Qu'est-ce que j'ai fait? dit Christophe.
-— Tu es admirable! reprit Mannheim. Je suis jaloux
-de toi. Souffler la loge au nez des Grünebaum, et y à
-inviter leur institutrice française à leur place, — non,
-cela, c'est le bouquet, je n'aurais pas trouvé cela!
+--- Non, ce n'est pas comme cela. Il faut tendre la main.
 
-— C'était l'institutrice des Grünebaum? dit Christophe,
-— Oui, fais semblant de ne pas savoir, fais l'innocent,
-je te le conseille!.. Papa ne décolère plus. Les Grünebaum sont dans une rage'. Cela n'a pas été long: ils,
-ont flanqué la petite à la porte.;
-— Comment! cria Christophe, ils l'ont renvoyée 2... -
-Renvoyée à cause de moi?
-— Tu ne le savais pas? dit Mannheim. Elle ne te l'a
-pas dit?
-— Il ne faut pas te faire de bile, mon bon, dit
-Mannheim; cela n'a pas d'importance. Et puis, il fallait
-bien s'y attendre, le jour où les Grünebaum viendraient
-— Quoi? criait Christophe, apprendre quoi?
-; — Qu'elle était ta maîtresse, parbleu!
-; — Je ne la connais même pas, je ne sais pas qui elle;
-: Mannheim eut un sourire, qui voulait dire:
-É — Tu me crois trop bête.;
-À Christophe se fâcha, somma Mannheim de lui faire
-l'honneur de croire à ce qu'il affirmait. Mannheim dit:
-— Alors c'est encore plus drôle. fall
-Christophe s'agitait, parlait d'aller trouver les Grüne-
-4 baum, de leur dire leur fait, de justifier la jeune fille. fe.
-- Mannheim l'en dissuada
-4 — Mon cher, dit-il, tout ce que tu leur diras ne fera
-que les convaincre davantage du contraire. Et puis, il
-est trop tard. La fille est loin, maintenant.
-Christophe, la mort dans l'âme, tâcha de retrouver la à
-es piste de la jeune Française. Il voulait lui écrire, lui
+Elle imita le serment des Horaces. Elle lui fit promettre qu'il écrirait pour elle une pièce, un mélodrame, qu'on traduirait en français, et qu'elle jouerait à Paris. Elle partait, le lendemain, avec sa troupe. Il s'engagea à aller la retrouver, le surlendemain, à Francfort, où ils donnaient une représentation. Ils restèrent encore quelque temps à bavarder ensemble. Elle fit cadeau à Christophe d'une photographie qui la représentait nue presque jusqu'à mi-corps, une simple draperie attachée sous les bras. Ils se quittèrent gaiement, en s'embrassant comme frère et sœur. Et vraiment, depuis que Corinne avait vu que Christophe l'aimait bien, mais que décidément il n'était pas amoureux d'elle, elle s'était mise à l'aimer bien aussi, sans amour, comme une bonne camarade.
 
-demander pardon. Mais nul ne savait rien d'elle. Les
-Je ". Grünebaum, à qui il s'adressa, l'envoyèrent promener;
-ils ignoraient eux-mêmes où elle était allée, et ils ne
-. s'en inquiétaient pas. L'idée du mal qu'il avait fait, en À
-voulant faire du bien, torturait Christophe: c'était un
-4 remords continuel. Il s'y joignait une mystérieuse atti-
-: rance, qui, des yeux disparus, rayonnait silencieusement sur lui. Attirance et remords parurent s'effacer,
-recouverts par flot des jours et des pensées nouvelles;
-( mais ils persistèrent obscurément au fond. Christophe
-dE n'oubliait point celle qu'il appelait sa victime. Il s'était
-juré de la revoir. Il savait combien il avait peu de
-42 chances de la revoir; et il était sûr qu'il la reverrait.
-Quant à Corinne, jamais elle ne répondit aux lettres
-; qu'il lui écrivit. Mais, trois mois plus tard, quand ïil
-‘ke n'attendait plus rien, il reçut d'elle un télégramme de
-quarante mots, où elle bêtifiait à cœur-joie, lui donnait
-de petits noms familiers, et demandait « si on s'aimait
-toujours ». Puis, après un nouveau silence de près d'une à
-année, vint un bout de lettre griffonnée de son énorme
-4. écriture enfantine et zigzaguante, qui cherchait à paraître
-grande dame, — quelques mots affectueux et drôlatiques.
-— Et puis, elle en resta là. Elle ne l'oubliait pas; mais
-1% elle n'avait pas le temps de penser à lui.
+Leur sommeil n'en fut pas troublé, ni à l'un, ni à l'autre. Il ne put lui dire au revoir, le lendemain ; car il était pris à cette heure par une répétition. Mais, le jour suivant, il s'arrangea, comme il l'avait promis, pour aller à Francfort. C'était à deux ou trois heures de chemin de fer. Corinne ne croyait guère à la promesse de Christophe ; mais il l'avait prise très au sérieux ; et, à l'heure de la représentation, il était là. Quand il vint, pendant l'entr'acte, frapper à la loge où elle s'habillait, elle poussa des exclamations de joyeuse surprise, et se jeta à son cou, avec son exubérance habituelle. Elle lui était sincèrement reconnaissante d'être venu. Malheureusement pour Christophe, elle était beaucoup plus entourée dans cette ville de Juifs riches et intelligents, qui savaient apprécier sa beauté présente et son succès futur. À tout instant, on heurtait à la porte de la loge ; et la porte s'entrebâillait pour laisser passage à de lourdes figures aux yeux vifs, qui disaient des fadeurs avec un âpre accent. Corinne naturellement coquetait avec eux ; et elle gardait ensuite le même ton affecté et provocant pour causer avec Christophe, qui en était irrité. Il n'éprouvait d'ailleurs aucun plaisir de l'impudeur tranquille, avec laquelle elle procédait devant lui à sa toilette ; et le fard et le gras, dont elle enduisait ses bras, sa gorge et sa figure, lui inspiraient un profond dégoût. Il fut sur le point de partir sans la revoir, aussitôt après la représentation ; mais, quand il lui dit adieu, en s'excusant de ne pouvoir assister au souper qui devait lui être offert au sortir du spectacle, elle manifesta une peine si gentiment affectueuse, que ses résolutions ne tinrent pas. Elle se fit apporter un horaire des chemins de fer, pour lui prouver qu'il pouvait --- qu'il devait rester encore une bonne heure avec elle. Il ne demandait qu'à être convaincu, et il fut au souper ; il sut même ne pas trop montrer son ennui des niaiseries qu'on y débita, et son irritation des agaceries que Corinne prodiguait au premier singe venu. Impossible de lui en vouloir. C'était une brave fille, sans aucun principe moral, paresseuse, sensuelle, amoureuse du plaisir, d'une coquetterie enfantine, mais en même temps si loyale, si bonne, et dont tous les défauts étaient si spontanés et si sains, qu'on ne pouvait qu'en sourire, et presque les aimer. Assis en face d'elle, tandis qu'elle parlait, Christophe regardait son visage animé, ses beaux yeux rayonnants, sa mâchoire un peu empâtée, au sourire italien, --- ce sourire où il y a de la bonté, de la finesse, une lourdeur gourmande : il la voyait plus clairement qu'il n'avait fait jusque-là. Certains traits lui rappelaient Ada : certains gestes, certains regards, certaines roueries sensuelles, un peu grossières : --- l'éternel féminin. Mais ce qu'il aimait en elle, c'était la nature du Midi, la généreuse nature, qui ne lésine point avec ses dons, qui ne s'amuse point à fabriquer des beautés de salon et des intelligences de livres, mais des êtres harmonieux, dont le corps et l'esprit sont faits pour s'épanouir à l'air et au soleil. --- Quand il partit, elle quitta la table pour lui faire ses adieux, à part des autres. Ils s'embrassèrent encore et renouvelèrent leurs promesses de s'écrire et de se revoir.
 
-Encore sous le charme de Corinne, et tout plein des
-idées qu'ils avaient échangées sur l'art, Christophe rêva
-d'écrire de la musique pour une pièce où Corinne
-jouerait, et où elle chanterait quelques airs, —une sorte
-de mélodrame poétique. Ce genre d'art, jadis si en
-faveur en Allemagne, admiré passionnément par
-Mozart, pratiqué par Beethoven, par Weber, par Men-:
-delssohn, par Schumann, par tous les grands clas-
-à siques, était tombé en discrédit depuis le triomphe du
-à wagnérisme, qui prétendait avoir réalisé la formule
-À définitive du théâtre et de la musique. Les braves 7%
-pédants wagnériens, non contents de proscrire tout
-mélodrame nouveau, s'appliquaient à faire la toilette À
-à des mélodrames et des opéras anciens; ils effaçaient Le:
-4 avec soin toute trace des dialogues parlés, et écrivaient À
-pour Mozart, pour Beethoven, ou pour Weber, des récitatifs de leur façon; ils étaient convaincus de rendre
-ainsi service à la gloire des maîtres et de compléter
-leur pensée, en déposant pieusement sur les chefs- tu
-4 je Christophe, à qui les critiques de Corinne avaient
-LA rendu plus sensible la lourdeur et, souvent, la laideur de à
-la déclamation wagnérienne, se demandait depuis
-longtemps si ce n'était pas un non-sens, une œuvre
-contre nature, d'accoupler au théâtre et de ligoter
+Il reprit le dernier train, pour rentrer chez lui. À une station intermédiaire, le train qui venait en sens inverse attendait. Juste dans le wagon arrêté en face du sien, --- dans un compartiment de troisième, Christophe vit la jeune Française, qui avait été avec lui à la représentation d'*Hamlet*. Elle vit aussi Christophe, et elle le reconnut. Ils furent aussi saisis l'un que l'autre. Ils se saluèrent silencieusement, et restèrent immobiles, n'osant plus se regarder. Cependant il avait vu d'un coup d'œil qu'elle avait une petite toque de voyage, et une vieille valise auprès d'elle. L'idée ne lui vint pas qu'elle quittât le pays ; il pensa qu'elle partait pour quelques jours. Il ne savait s'il devait lui parler : il hésita, il prépara dans sa tête ce qu'il voulait lui dire, et il allait baisser la glace du wagon, pour lui adresser quelques mots, quand on donna le signal du départ : il renonça à parler. Quelques secondes se passèrent avant que le train ne bougeât. Ils se regardèrent en face. Seuls dans leur compartiment, le visage appuyé contre la vitre du wagon, à travers la nuit qui les entourait, ils plongeaient leurs regards dans les yeux l'un de l'autre. Une double fenêtre les séparait. S'ils avaient étendu le bras au dehors, leurs mains auraient pu se toucher. Si près. Si loin. Les wagons s'ébranlèrent lourdement. Elle le regardait toujours, n'ayant plus de timidité, maintenant qu'ils se quittaient. Ils étaient si absorbés dans la contemplation l'un de l'autre, qu'ils ne pensèrent même plus à se saluer une dernière fois. Elle s'éloignait lentement : il la vit disparaître ; et le train qui la portait s'enfonça dans la nuit. Comme deux mondes errants, ils étaient passés, un instant, l'un près de l'autre, dans l'espace infini, et ils s'éloignaient l'un de l'autre, pour l'éternité peut-être.
 
-ensemble dans le récitatif la parole et le chant: c'était
-comme si l'on voulait attacher au même char un cheval
-etun oiseau. La parole et le chant avaient chacun leurs
-rythmes. On pouvait comprendre, à la rigueur, qu'un
-artiste sacrifiât l'un des deux arts au triomphe de celui
-qu'il préférait. Mais chercher un compromis entre eux,
-c'était les sacrifier tous deux: c'était vouloir que la
-parole ne fût plus la parole, et que le chant ne fût plus
-le chant, que celui-ci laissât encaisser son large cours
-entre deux berges de canal monotones, — que celui-là
-chargeât ses beaux membres nus d'étoffes riches et
-lourdes, qui paralysaient ses gestes et ses pas.
-Pourquoi ne pas leur laisser à tous deux leur spontanéité et leurs libres mouvements? Telle, une belle
-fille, qui d'un pas heureux et souple le long d'un
-ruisseau, et qui rêve en marchant: le gai murmure
-de l'eau berce sa rêverie, et, sans qu'elle en ait
-conscience, elle rythme peu à peu ses pas et sa pensée
-sur le chant du ruisseau. Ainsi, libres toutes deux,?
-musique et poésie s'en iraient côte à côte en rêvant, et
-mélangeant leurs rêves. — Assurément, à cette union
-toute musique n'était point bonne, non plus que toute
-poésie. Les adversaires du mélodrame avaient beau jeu À
-contre la grossièreté des essais qui en avaient été faits,
-et de leurs interprètes. Longtemps, Christophe avait
-partagé leurs répugnances: la sottise des acteurs qui
-se chargeaient de ces récitations parlées sur un accompagnement instrumental, sans se soucier de l'accompagnement, sans chercher à y fondre leur voix, mais À
-en tâchant au contraire qu'on n'entendit rien qu'eux,
-avait de quoi révolter toute oreille musicale. Mais,
-depuis qu'il avait goûté l'harmonieuse voix de Corinne,
+Quand elle eut disparu, il sentit le vide que ce regard inconnu venait de creuser en lui ; et il ne comprit pas pourquoi : mais le vide était là. Les paupières à demi closes, somnolent, adossé à un angle du wagon, il sentait sur ses yeux le contact de ces yeux ; et toutes ses autres pensées se taisaient pour le mieux sentir. L'image de Corinne papillotait au dehors de son cœur, comme un insecte qui bat des ailes de l'autre côté des carreaux ; mais il ne la laissait pas entrer.
 
-— cette voix liquide et pure, qui se mouvait dans
-la musique, comme un rayon de lumière dans l'eau,
-qui épousait tous les contours d'une phrase mélodique, qui était comme un chant plus fluide et plus
-libre, — il avait entrevu la beauté d'un art nouveau.
-Peut-être avait-il raison; mais il était encore bien
-inexpérimenté pour se hasarder sans danger dans un
-genre, qui, — si l'on veut qu'il soit beau et vraiment
-artistique, — est le plus difficile de tous. Surtout, cet art
-réclame une condition essentielle: la parfaite harmonie
-des efforts combinés du poète, du musicien, et des interprètes. — Christophe ne s'en inquiétait point: il se lançait à l'étourdie dans un art inconnu, dont lui seul pressentait les lois.
-Sa première idée avait été de revêtir de musique une
-féerie de Shakespeare, ou un acte du Second Faust.;
-Mais les théâtres se montraient peu disposés à tenter
-l'expérience; elle devait être coûteuse et paraissait
-absurde. On admettait bien la compétence de Christophe en musique; mais qu'il se permit d'avoir des
-idées sur la poésie et sur le théâtre faisait sourire les
-4 musique et celui de la poésie semblaient deux États
-étrangers l'un à l'autre, et secrètement hostiles. Pour
-pénétrer dans l'État poétique, il fallut que Christophe
-. acceptât la collaboration d'un poète; et ce poète, il ne
-… lui fut pas permis de le choisir. Il ne se le fût pas
-: permis lui-même: il se défiait de son goût poétique; on
-lui avait persuadé qu'il n'entendait rien à la poésie; et,
-de fait, n'entendait rien aux poésies qu'on admiraïit
-autour de lui. Avec son honnêteté et son opiniâtreté
-ordinaires, il s'était donné bien du mal, parfois, pour
+Il la retrouva, au sortir du wagon, à l'arrivée, quand l'air frais de la nuit et la marche dans les rues de la ville endormie eurent secoué sa torpeur. Il souriait au souvenir de la gentille actrice, avec un mélange de plaisir et d'irritation, selon qu'il se rappelait ses manières affectueuses ou ses coquetteries vulgaires.
 
-) tâcher de sentir la beauté de telle ou telle d'entre elles;
-mais il était toujours sorti de bredouille, et un peu
-honteux de lui-même: non, décidément, il n'était pas
-poète. A la vérité, il aimait passionnément certains
-; poètes d'autrefois; et cela le consolait un peu. Mais
-sans doute ne les aimait-il pas comme il fallait les
-aimer. N'avait-il pas, une fois, exprimé l'idée saugrenue
-qu'il n'est de grands poètes que ceux qui restent grands,
-même traduits en prose, même traduits en une prose
-étrangère, et que les mots n'ont d'autre prix que celui
-de l'âme qu'ils expriment? Ses amis s'étaient moqués
-de lui. Mannheim l'avait traité d'épicier. Il n'avait pas:
-essayé de se défendre. Comme il voyait journellement,
-par l'exemple des littérateurs qui parlent de musique,
-le ridicule des artistes qui prétendent juger d'un autre À
-art que le leur, il se résignait, — quoiqu'un peu incrédule au fond, — à son incompétence poétique; et il
-acceptait, les yeux fermés, les jugements de ceux qu'il;
-croyait mieux informés sur la question. Aussi se laissat-il imposer par ses amis de la Revue un d'entre eux, un
-grand homme de cénacle décadent, Stephan von Hellmuth, qui lui apporta une /phig'énie de sa façon. C'était
-le temps alors où les poètes allemands — (comme leurs À
-confrères de France) — étaient en train de refaire toutes;
-les tragédies grecques. L'œuvre de Stephan von Hell- À
-muth était une de ces étonnantes pièces gréco-allemandes, où se mêlent Ibsen, Homère, et Oscar Wilde,
-— sans oublier, bien entendu, quelques manuels
-d'archéologie. Agamemnon était neurasthénique, et;
-Achille impuissant: ils se désolaient longuement de leur
-état; et naturellement, leurs plaintes n'y changeaïent
-rien. Toute l'énergie du drame était concentrée dans le
+--- Diables de Français ! grommelait-il, en riant tout bas, tandis qu'il se déshabillait sans bruit, pour ne pas réveiller sa mère, qui dormait à côté.
+
+Un mot qu'il avait entendu, l'autre soir, dans la loge, lui revint à l'esprit :
+
+--- Il y en a d'autres, aussi.
+
+Dès sa première rencontre avec la France, elle lui posait l'énigme de sa double nature. Mais, comme tous les Allemands, il ne s'inquiétait point de la résoudre ; et il répétait tranquillement, en songeant à la jeune fille du wagon :
+
+--- Elle n'a pas l'air Française.
+
+Comme s'il appartenait à un Allemand de dire ce qui est Français et ce qui ne l'est point.
+
+Française ou non, elle le préoccupait ; car, dans le milieu de la nuit, il se réveilla, avec un serrement de cœur : il venait de se rappeler la valise placée sur la banquette, auprès de la jeune fille ; et brusquement, l'idée que la voyageuse était partie tout à fait lui avait traversé l'esprit. À vrai dire, cette idée aurait dû lui venir, dès le premier instant ; mais il n'y avait pas songé. Il en ressentait une sourde tristesse. Il haussa les épaules, dans son lit :
+
+--- Qu'est-ce que cela peut bien me faire ? se dit-il. Cela ne me regarde pas.
+
+Il se rendormit.
+
+Mais, le lendemain, la première personne qu'il rencontra en sortant fut Mannheim, qui l'appela « Blücher », et lui demanda s'il avait décidé de conquérir toute la France. Par cette gazette vivante, il apprit que l'histoire de la loge avait eu un succès qui dépassait tout ce que Mannheim en attendait :
+
+--- Grâce à toi ! Grâce à toi ! criait Mannheim. Tu es un grand homme. Je ne suis rien auprès de toi.
+
+--- Qu'est-ce que j'ai fait ? dit Christophe.
+
+--- Tu es admirable ! reprit Mannheim. Je suis jaloux de toi. Souffler la loge au nez des Grünebaum, et y inviter leur institutrice française à leur place, --- non, cela, c'est le bouquet, je n'aurais pas trouvé cela !
+
+--- C'était l'institutrice des Grünebaum ? dit Christophe, stupéfait.
+
+--- Oui, fais semblant de ne pas savoir, fais l'innocent, je te le conseille !... Papa ne décolère plus. Les Grünebaum sont dans une rage !... Cela n'a pas été long : ils ont flanqué la petite à la porte.
+
+--- Comment ! cria Christophe, ils l'ont renvoyée ?... Renvoyée à cause de moi ?
+
+--- Tu ne le savais pas ? dit Mannheim. Elle ne te l'a pas dit ?
+
+Christophe se désolait.
+
+--- Il ne faut pas te faire de bile, mon bon, dit Mannheim, cela n'a pas d'importance. Et puis, il fallait bien s'y attendre le jour où les Grünebaum viendraient à apprendre...
+
+--- Quoi ? criait Christophe, apprendre quoi ?
+
+--- Qu'elle était ta maîtresse, parbleu !
+
+--- Je ne la connais même pas, je ne sais pas qui elle est.
+
+Mannheim eut un sourire, qui voulait dire :
+
+--- Tu me crois trop bête.
+
+Christophe se fâcha, somma Mannheim de lui faire l'honneur de croire à ce qu'il affirmait. Mannheim dit :
+
+--- Alors c'est encore plus drôle.
+
+Christophe s'agitait, parlait d'aller trouver les Grünebaum, de leur dire leur fait, de justifier la jeune fille. Mannheim l'en dissuada :
+
+--- Mon cher, dit-il, tout ce que tu leur diras ne fera que les convaincre davantage du contraire. Et puis, il est trop tard. La fille est loin, maintenant.
+
+Christophe, la mort dans l'âme, tâcha de retrouver la piste de la jeune Française. Il voulait lui écrire, lui demander pardon. Mais nul ne savait rien d'elle. Les Grünebaum, à qui il s'adressa, l'envoyèrent promener ; ils ignoraient eux-mêmes où elle était allée, et ils ne s'en inquiétaient pas. L'idée du mal qu'il avait fait, en voulant faire du bien, torturait Christophe : c'était un remords continuel. Il s'y joignait une mystérieuse attirance, qui, des yeux disparus, rayonnait silencieusement sur lui. Attirance et remords parurent s'effacer, recouverts par le flot des jours et des pensées nouvelles ; mais ils persistèrent obscurément au fond. Christophe n'oubliait point celle qu'il appelait sa victime. Il s'était juré de la revoir. Il savait combien il avait peu de chances de la revoir ; et il était sûr qu'il la reverrait.
+
+Quant à Corinne, jamais elle ne répondit aux lettres qu'il lui écrivit. Mais, trois mois plus tard, quand il n'attendait plus rien, il reçut d'elle un télégramme de quarante mots, où elle bêtifiait à cœur-joie, lui donnait de petits noms familiers, et demandait « si on s'aimait toujours ». Puis, après un nouveau silence de près d'une année, vint un bout de lettre griffonnée de son énorme écriture enfantine et zigzaguante, qui cherchait à paraître grande dame, --- quelques mots affectueux et drôlatiques. --- Et puis, elle en resta là. Elle ne l'oubliait pas ; mais elle n'avait pas le temps de penser à lui.
+
+Encore sous le charme de Corinne, et tout plein des idées qu'ils avaient échangées sur l'art, Christophe rêva d'écrire de la musique pour une pièce où Corinne jouerait, et où elle chanterait quelques airs, --- une sorte de mélodrame poétique. Ce genre d'art, jadis si en faveur en Allemagne, admiré passionnément par Mozart, pratiqué par Beethoven, par Weber, par Mendelssohn, par Schumann, par tous les grands classiques, était tombé en discrédit depuis le triomphe du wagnérisme, qui prétendait avoir réalisé la formule définitive du théâtre et de la musique. Les braves pédants wagnériens, non contents de proscrire tout mélodrame nouveau, s'appliquaient à faire la toilette des mélodrames et des opéras anciens ; ils effaçaient avec soin toute trace des dialogues parlés, et écrivaient pour Mozart, pour Beethoven, ou pour Weber, des récitatifs de leur façon ; ils étaient convaincus de rendre ainsi service à la gloire des maîtres et de compléter leur pensée, en déposant pieusement sur les chefs-d'œuvre leurs petites ordures.
+
+Christophe, à qui les critiques de Corinne avaient rendu plus sensible la lourdeur et, souvent, la laideur de la déclamation wagnérienne, se demandait depuis longtemps si ce n'était pas un non-sens, une œuvre contre nature, d'accoupler au théâtre et de ligoter ensemble dans le récitatif la parole et le chant : c'était comme si l'on voulait attacher au même char un cheval et un oiseau. La parole et le chant avaient chacun leurs rythmes. On pouvait comprendre, à la rigueur, qu'un artiste sacrifiât l'un des deux arts au triomphe de celui qu'il préférait. Mais chercher un compromis entre eux, c'était les sacrifier tous deux : c'était vouloir que la parole ne fût plus la parole, et que le chant ne fût plus le chant, que celui-ci laissât encaisser son large cours entre deux berges de canal monotones, --- que celui-là chargeât ses beaux membres nus d'étoffes riches et lourdes, qui paralysaient ses gestes et ses pas. Pourquoi ne pas leur laisser à tous deux leur spontanéité et leurs libres mouvements ? Telle, une belle fille, qui va d'un pas heureux et souple le long d'un ruisseau, et qui rêve en marchant : le gai murmure de l'eau berce sa rêverie, et, sans qu'elle en ait conscience, elle rythme peu à peu ses pas et sa pensée sur le chant du ruisseau. Ainsi, libres toutes deux, musique et poésie s'en iraient côte à côte en rêvant, et mélangeant leurs rêves. --- Assurément, à cette union toute musique n'était point bonne, non plus que toute poésie. Les adversaires du mélodrame avaient beau jeu contre la grossièreté des essais qui en avaient été faits, et de leurs interprètes. Longtemps, Christophe avait partagé leurs répugnances : la sottise des acteurs qui se chargeaient de ces récitations parlées sur un accompagnement instrumental, sans se soucier de l'accompagnement, sans chercher à y fondre leur voix, mais en tâchant au contraire qu'on n'entendît rien qu'eux, avait de quoi révolter toute oreille musicale. Mais, depuis qu'il avait goûté l'harmonieuse voix de Corinne, --- cette voix liquide et pure, qui se mouvait dans la musique, comme un rayon de lumière dans l'eau, qui épousait tous les contours d'une phrase mélodique, qui était comme un chant plus fluide et plus libre, --- il avait entrevu la beauté d'un art nouveau.
+
+Peut-être avait-il raison ; mais il était encore bien inexpérimenté pour se hasarder sans danger dans un genre, qui, --- si l'on veut qu'il soit beau et vraiment artistique, --- est le plus difficile de tous. Surtout, cet art réclame une condition essentielle : la parfaite harmonie des efforts combinés du poète, du musicien, et des interprètes. --- Christophe ne s'en inquiétait point : il se lançait à l'étourdie dans un art inconnu, dont lui seul pressentait les lois.
+
+Sa première idée avait été de revêtir de musique une féerie de Shakespeare, ou un acte du *Second Faust*. Mais les théâtres se montraient peu disposés à tenter l'expérience ; elle devait être coûteuse et paraissait absurde. On admettait bien la compétence de Christophe en musique ; mais qu'il se permît d'avoir des idées sur la poésie et sur le théâtre faisait sourire les gens : on ne le prenait pas au sérieux. Le monde de la musique et celui de la poésie semblaient deux États étrangers l'un à l'autre, et secrètement hostiles. Pour pénétrer dans l'État poétique, il fallut que Christophe acceptât la collaboration d'un poète ; et ce poète, il ne lui fut pas permis de le choisir. Il ne se le fût pas permis lui-même : il se défiait de son goût poétique ; on lui avait persuadé qu'il n'entendait rien à la poésie ; et, de fait, il n'entendait rien aux poésies qu'on admirait autour de lui. Avec son honnêteté et son opiniâtreté ordinaires, il s'était donné bien du mal, parfois, pour tâcher de sentir la beauté de telle ou telle d'entre elles ; mais il était toujours sorti de là bredouille, et un peu honteux de lui-même : non, décidément, il n'était pas poète. À la vérité, il aimait passionnément certains poètes d'autrefois ; et cela le consolait un peu. Mais sans doute ne les aimait-il pas comme il fallait les aimer. N'avait-il pas, une fois, exprimé l'idée saugrenue qu'il n'est de grands poètes que ceux qui restent grands, même traduits en prose, même traduits en une prose étrangère, et que les mots n'ont d'autre prix que celui de l'âme qu'ils expriment ? Ses amis s'étaient moqués de lui. Mannheim l'avait traité d'épicier. Il n'avait pas essayé de se défendre. Comme il voyait journellement, par l'exemple des littérateurs qui parlent de musique, le ridicule des artistes qui prétendent juger d'un autre art que le leur, il se résignait, --- quoiqu'un peu incrédule au fond, --- à son incompétence poétique ; et il acceptait, les yeux fermés, les jugements de ceux qu'il croyait mieux informés sur la question. Aussi se laissa-t-il imposer par ses amis de la Revue un d'entre eux, un grand homme de cénacle décadent, Stephan von Hellmuth, qui lui apporta une *Iphigénie* de sa façon. C'était le temps alors où les poètes allemands --- (comme leurs confrères de France) --- étaient en train de refaire toutes les tragédies grecques. L'œuvre de Stephan von Hellmuth était une de ces étonnantes pièces gréco-allemandes, où se mêlent Ibsen, Homère, et Oscar Wilde, --- sans oublier, bien entendu, quelques manuels d'archéologie. Agamemnon était neurasthénique, et Achille impuissant : ils se désolaient longuement de leur état ; et naturellement, leurs plaintes n'y changeaient rien. Toute l'énergie du drame était concentrée dans le rôle d'Iphigénie, --- une Iphigénie névrosée, hystérique, et pédante, qui faisait la leçon aux héros, déclamait furieusement, exposait au public son pessimisme Nietzschéen, et, ivre de mourir, s'égorgeait elle-même, avec des éclats de rire.
+
+Rien de plus contraire à l'esprit de Christophe que cette littérature prétentieuse d'Ostrogoth dégénéré, qui se costume à la grecque. Autour de lui, on criait au chef-d'œuvre. Il fut lâche, il se laissa persuader. À vrai dire, il crevait de musique, et il songeait bien plus à sa musique qu'au texte. Le texte lui était un lit où épancher le flot de ses passions. Il était aussi loin que possible de l'état d'abnégation et d'impersonnalité intelligente, qui convient au traducteur musical d'une œuvre poétique. Il ne pensait qu'à lui, et pas du tout à l'œuvre. Il se gardait bien d'en convenir. D'ailleurs, il se faisait illusion : il voyait dans le poème tout autre chose que ce qui s'y trouvait. Comme lorsqu'il était enfant, il était arrivé à se bâtir dans sa tête une pièce entièrement différente de celle qu'il avait sous les yeux.
+
+Ce ne fut qu'au cours des répétitions, qu'il aperçut l'œuvre réelle. Un jour qu'il écoutait une scène, elle lui parut si bête qu'il crut que les acteurs la défiguraient ; et il eut la prétention, non seulement de la leur expliquer, en présence du poète, mais de l'expliquer à celui-ci, qui prenait la défense de ses interprètes. L'auteur se rebiffa, et dit, d'un ton piqué, qu'il pensait savoir ce qu'il avait voulu écrire. Christophe n'en démordait point, et soutenait que Hellmuth n'y comprenait rien. L'hilarité générale l'avertit qu'il se rendait ridicule. Il se tut, convenant qu'après tout ce n'était pas lui qui avait écrit les vers. Alors il vit l'écrasante nullité de la pièce, et il en fut accablé ; il se demandait comment il avait pu s'y tromper. Il s'appelait : imbécile, et s'arrachait les cheveux. Il avait beau tâcher de se rassurer, en se répétant : « Tu n'y comprends rien : ce n'est pas ton affaire. Occupe-toi de ta musique ! » --- il se sentait si honteux de certaines niaiseries, du pathos prétentieux, de la fausseté criante des mots, des gestes, des attitudes, que par moments, tandis qu'il conduisait l'orchestre, il n'avait plus la force de lever son bâton : il avait envie d'aller se cacher dans le trou du souffleur. Il était trop franc et trop mauvais politique pour déguiser ce qu'il pensait. Chacun s'en apercevait : ses amis, les acteurs, et l'auteur. Hellmuth lui disait, avec un sourire pincé :
+
+--- Est-ce que ceci n'a pas encore l'heur de vous plaire ?
+
+Christophe répondait bravement :
+
+--- Pour dire la vérité, non. Je ne comprends pas.
+
+--- Vous ne l'aviez donc pas lu, pour faire votre musique ?
+
+--- Si, disait naïvement Christophe, mais je me trompais, je comprenais autre chose.
+
+--- C'est dommage alors que vous n'ayez pas écrit vous-même ce que vous compreniez.
+
+--- Ah ! si je l'avais pu ! disait Christophe.
+
+Le poète, vexé, critiquait, pour se venger, la musique. Il se plaignait qu'elle fût encombrante, et qu'elle empêchât d'entendre les vers.
+
+Si le poète ne comprenait pas le musicien, ni le musicien le poète, les acteurs ne comprenaient ni l'un ni l'autre, et ne s'en inquiétaient point. Ils cherchaient seulement dans leurs rôles des phrases, de place en place, où accrocher leurs effets habituels. Il n'était pas question d'adapter leur déclamation à la tonalité du morceau et au rythme musical : ils allaient d'un côté, et la musique de l'autre ; on eût dit qu'ils chantaient constamment hors du ton. Christophe en grinçait des dents, et s'épuisait à leur crier la note : ils le laissaient crier, et continuaient imperturbablement, ne comprenant même pas ce qu'il voulait d'eux.
+
+Christophe eût tout lâché, si les répétitions n'avaient été si avancées, et s'il n'eût été lié par la crainte d'un procès. Mannheim, à qui il fit part de son découragement, se moqua de lui :
+
+--- Qu'est-ce qu'il y a ? demanda-t-il. Tout va très bien, ainsi. Vous ne vous comprenez pas l'un l'autre ? Eh ! qu'est-ce que cela fait ? Qui a jamais compris son œuvre, en dehors de l'auteur ? Il a encore bien de la chance, quand il se comprend lui-même !
+
+Christophe se tourmentait de la niaiserie du poème, qui, disait-il, ferait tomber sa musique. Mannheim ne faisait pas de difficulté pour reconnaître que le poème n'avait pas le sens commun, et que Hellmuth était « un daim » ; mais il n'avait aucune inquiétude à son égard : Hellmuth donnait de bons dîners, et il avait une jolie femme : qu'est-ce qu'il faut de plus à la critique ? --- Christophe haussait les épaules, disant qu'il n'avait pas le temps d'écouter des balivernes.
+
+--- Mais ce ne sont pas des balivernes ! disait Mannheim, en riant. Voilà bien les gens graves ! Ils n'ont aucune idée de ce qui compte dans la vie.
+
+Et il conseillait à Christophe de ne pas tant se préoccuper des affaires de Hellmuth, et de songer aux siennes. Il l'engageait à faire un peu de réclame. Christophe refusait avec indignation. À un reporter, qui cherchait à l'interviewer sur sa vie, il répondait, furieux :
+
+--- Cela ne vous regarde pas !
+
+Et quand on lui demandait sa photographie pour une Revue, il sautait de colère, en criant qu'il n'était pas, Dieu merci ! un empereur pour étaler sa tête aux passants. --- Impossible de le mettre en relations avec les salons influents. Il ne répondait pas aux invitations ; et quand, par hasard, il avait été forcé d'accepter, il oubliait de s'y rendre, ou s'y rendait de si mauvaise grâce qu'il semblait avoir pris à tâche d'être désagréable à tout le monde.
+
+Mais le comble fut qu'il se brouilla avec sa Revue, deux jours avant la représentation.
+
+Ce qui devait arriver arriva. Manhneim avait continué sa revision des articles de Christophe ; et il ne se gênait plus pour biffer des lignes entières de critique, et les remplacer par des compliments.
+
+Un jour, dans un salon, Christophe se trouva en présence d'un virtuose, --- un pianiste bellâtre, qu'il avait éreinté, et qui vint le remercier, en souriant de toutes ses dents blanches. Il répondit brutalement qu'il n'y avait pas de quoi. L'autre insistait, se confondant en protestations de reconnaissance. Christophe y coupa court, en lui disant que s'il était satisfait de l'article, c'était son affaire, mais que l'article n'avait certainement pas été écrit pour le satisfaire. Et il lui tourna le dos. Le virtuose le prit pour un bourru bienfaisant, et s'en alla en riant. Mais Christophe, qui se souvint d'avoir reçu, quelque temps avant, une carte de remerciements d'une autre de ses victimes, fut brusquement traversé d'un soupçon. Il sortit, il alla acheter à un kiosque de journaux le dernier numéro de la Revue, il chercha son article, il lut... Sur le moment, il se demanda s'il devenait fou. Puis, il comprit ; et, dans une rage folle, il courut aux bureaux du *Dionysos*.
+
+Waldhaus et Mannheim s'y trouvaient, en conversation avec une actrice de leurs amies. Ils n'eurent pas besoin de demander à Christophe pourquoi il venait. Jetant le numéro de la Revue sur la table, Christophe, sans prendre le temps de respirer, les apostropha avec une violence inouïe, criant, les traitant de drôles, de gredins, de faussaires, et tapant le plancher à tour de bras avec une chaise. Mannheim essayait de rire. Christophe voulut lui flanquer son pied au derrière. Mannheim se réfugia derrière la table, en se tordant. Mais Waldhaus le prit de très haut. Digne et gourmé, il s'évertuait à faire entendre, au milieu du vacarme, qu'il ne permettrait pas qu'on lui parlât sur ce ton, que Christophe aurait de ses nouvelles ; et il lui tendait sa carte. Christophe la lui jeta au nez :
+
+--- Faiseur d'embarras !... Je n'ai pas besoin de votre carte pour savoir qui vous êtes... Vous êtes un polisson et un faussaire !... Et vous croyez que je vais me battre avec vous ?... Une correction, c'est tout ce que vous méritez !...
+
+De la rue, on entendait sa voix. Les gens s'arrêtaient pour écouter. Mannheim ferma les fenêtres. La visiteuse, effrayée, cherchait à s'enfuir ; mais Christophe bloquait la porte. Waldhaus blême et suffoqué, Mannheim bredouillant et ricanant, essayaient de répondre. Christophe ne les laissa point parler. Il déchargea sur eux tout ce qu'il put imaginer de plus blessant, et ne s'en alla que quand il fut à bout de souffle et d'injures. Waldhaus et Mannheim ne retrouvèrent la voix que quand il fut parti. Mannheim reprit vite son aplomb : les injures glissaient sur lui, comme l'eau sur les plumes d'un canard. Mais Waldhaus restait ulcéré : sa dignité avait été outragée ; et, ce qui rendait l'affront plus mortifiant encore, c'est qu'il avait eu des témoins : il ne pardonnerait jamais. Ses collègues firent chorus avec lui. De toute la Revue, Mannheim continua, seul, à n'en pas vouloir à Christophe : il s'était amusé de lui, tout son soûl ; il ne trouvait pas que ce fût payer trop cher, au prix de quelques gros mots, la pinte de bon sang qu'il s'était faite à ses dépens. Ç'avait été une bonne farce : s'il en avait été lui-même l'objet, il en eût ri tout le premier. Aussi, était-il prêt à serrer la main de Christophe, comme si rien ne s'était passé. Mais Christophe était plus rancunier, et repoussa toute avance. Mannheim ne s'en affecta point : Christophe était un jouet, dont il avait tiré tout l'amusement possible ; il commençait à s'enflammer pour un autre pantin. Du jour au lendemain, tout fut fini entre eux. Cela n'empêcha point Mannheim de continuer à dire, quand on parlait de Christophe devant lui, qu'ils étaient amis intimes. Et peut-être qu'il le croyait.
+
+Deux jours après la brouille, eut lieu la première d'*Iphigénie*. Ce fut un four complet. La Revue de Waldhaus loua le poème, et ne dit rien de la musique. Les autres journaux et Revues s'en donnèrent à cœur-joie. On rit et on siffla. La pièce fut retirée après la troisième représentation ; mais les railleries ne cessèrent point si vite. On était trop heureux de trouver cette occasion de dauber sur Christophe ; et l'*Iphigénie* resta, pendant plusieurs semaines, un sujet d'inépuisables plaisanteries. On savait que Christophe n'avait plus d'arme pour se défendre ; et l'on en profitait. La seule chose qui retînt encore un peu, c'était sa situation à la cour. Bien que ses rapports fussent devenus assez froids avec le grand-duc, qui lui avait fait, à maintes reprises, des observations dont il n'avait tenu aucun compte, il continuait de se rendre de temps en temps au château, et de bénéficier, dans l'esprit du public, d'une sorte de protection officielle, plus illusoire que réelle. --- Il se chargea de détruire lui-même ce dernier appui.
+
+Il souffrait des critiques. Elles ne s'adressaient pas seulement à sa musique, mais à son idée d'une forme d'art nouvelle, qu'on ne se donnait pas la peine de comprendre : il était bien plus facile de la travestir, pour la ridiculiser à son aise. Christophe n'avait pas encore la sagesse de se dire que la meilleure réponse qu'on puisse faire à des critiques de mauvaise foi, est de ne leur en faire aucune, et de continuer à créer. Il avait pris, depuis quelques mois, la mauvaise habitude de ne laisser passer aucune attaque injuste, sans y répondre. Il écrivit un article, où il n'épargnait point certains de ses adversaires. Les deux journaux bien pensants, auxquels il le porta, le lui rendirent, en s'excusant avec une politesse ironique de ne pouvoir le publier. Christophe s'entêta. Il se souvint du journal socialiste de la ville, qui lui avait fait quelques avances. Il connaissait un des rédacteurs ; ils causaient parfois ensemble. Christophe avait plaisir à trouver quelqu'un qui parlât librement du pouvoir, de l'armée, des préjugés oppressifs et archaïques. Mais la conversation ne pouvait aller bien loin ; car, avec le socialiste, elle tournait toujours autour de Karl Marx, qui était absolument indifférent à Christophe. D'ailleurs, Christophe retrouvait dans ces discours d'homme libre, --- en outre d'un matérialisme qui ne lui plaisait pas beaucoup, --- une rigueur pédante, et un despotisme de pensée, un culte secret de la force, un militarisme à rebours, qui ne sonnaient pas très différemment de ce qu'il entendait, chaque jour, en Allemagne.
+
+Néanmoins, ce fut à lui et à son journal qu'il pensa, quand il se vit fermer la porte des autres rédactions. Il se dit bien que sa démarche ferait scandale : le journal était violent, haineux, constamment condamné ; mais comme Christophe ne le lisait pas, il ne pensait qu'à la hardiesse des idées, qui ne l'effrayait point, et non à la bassesse du ton, qui lui eût répugné. Au reste, il était si enragé de voir l'entente sournoise des autres journaux afin de l'étouffer, que peut-être eût-il passé outre, même s'il avait été mieux averti. Il voulait montrer aux gens qu'on ne se débarrassait pas si facilement de lui. --- Il porta donc l'article à la rédaction socialiste, où il fut reçu à bras ouverts. Le lendemain, l'article parut ; et le journal annonçait, en termes emphatiques, qu'il s'était assuré le concours du jeune et talentueux maître, le citoyen Jean-Christophe Krafft, dont étaient bien connues les ardentes sympathies pour les revendications de la classe ouvrière.
+
+Christophe ne lut ni la note, ni l'article ; car, ce matin-là, qui était un dimanche, il était parti avant l'aube, pour une promenade à travers champs. Il était admirablement bien disposé. En voyant lever le soleil, il cria, rit, iodla, sauta et dansa. Plus de Revue, plus de critiques à faire ! C'était le printemps, et le retour de la musique du ciel et de la terre, la plus belle de toutes. Fini des sombres salles de concerts, étouffantes et puantes, des voisins désagréables, des virtuoses insipides ! On entendait s'élever la merveilleuse chanson des forêts murmurantes ; et sur les champs passaient, comme des vagues, les effluves enivrants de la Vie, qui brisait de toutes parts l'écorce de la terre, et sortait du tombeau.
+
+Il revenait de promenade, la tête bourdonnante de lumière et de musique, quand sa mère lui remit une lettre qu'on avait apportée du palais en son absence. La lettre, écrite sous une forme impersonnelle, avisait monsieur Krafft qu'il eût à se rendre, ce matin, au château. --- Le matin était passé : il était près d'une heure. Christophe ne s'en émut guère.
+
+--- Il est trop tard maintenant, dit-il. Ce sera pour demain.
+
+Mais sa mère s'inquiéta :
+
+--- Non, non, on ne pouvait pas remettre ainsi un rendez-vous de Son Altesse ; il fallait y aller, tout de suite. Peut-être s'agissait-il d'une affaire importante.
+
+Christophe haussa les épaules :
+
+--- Importante ? Comme si ces individus pouvaient avoir quelque chose d'important à vous dire !... Il va m'exposer ses idées sur la musique. Ce sera gai !... Pourvu qu'il ne lui ait pas pris fantaisie de rivaliser avec Siegfried Meyer, et qu'il n'ait pas, lui aussi, un *Hymne à Ægir* à montrer ! Je jure que je ne l'épargnerai pas. Je lui dirai : « Faites donc de la politique. Là, vous êtes le maître : vous aurez toujours raison. Mais dans l'art, prenez garde ! Dans l'art, on vous voit sans panache, sans casque, sans uniforme, sans argent, sans titres, sans aïeux, sans gendarmes ;... et dame ! pensez un peu : qu'est-ce qui restera de vous ?
+
+La bonne Louisa, qui prenait tout au sérieux, leva les bras au ciel :
+
+--- Tu ne diras pas cela !... Tu es fou ! Tu es fou !...
+
+Il s'amusait à l'inquiéter, en abusant de sa crédulité, jusqu'à ce que la dose de l'extravagance fût si forte que Louisa finît par comprendre qu'il se moquait d'elle. Elle haussait les épaules :
+
+--- Tu es trop bête, mon pauvre garçon !
+
+Il l'embrassa en riant. Il était de magnifique humeur : il avait trouvé, dans sa promenade, un beau thème musical ; et il le sentait s'ébattre en lui, comme un poisson dans l'eau. Il ne voulut point partir pour le château, avant d'avoir mangé : il avait un appétit d'ogre. Louisa veilla ensuite à sa toilette ; car il recommençait à la tourmenter : il prétendait qu'il était bien comme il était, avec ses vêtements usés et ses souliers poudreux. Cela ne l'empêcha point d'en changer, et de cirer lui-même ses chaussures, en sifflant comme un merle, et en imitant tous les instruments de l'orchestre. Quand il eut fini, sa mère passa l'inspection, et refit gravement son nœud de cravate. Il était très patient, par extraordinaire, parce qu'il était content de lui, --- ce qui n'était pas non plus très ordinaire. Il partit, en disant qu'il allait enlever la princesse Adélaïde, --- la fille du grand-duc, une assez jolie femme, mariée à un petit prince allemand, et qui était venue passer quelques semaines auprès de ses parents. Elle avait témoigné jadis quelque sympathie à Christophe, quand il était enfant ; et il avait un faible pour elle. Louisa prétendait qu'il en était amoureux ; et il feignait de l'être, pour s'amuser.
+
+Il ne se pressait pas d'arriver, flânant devant les boutiques, et s'arrêtant dans la rue, pour caresser un chien, de ses amis, qui flânait comme lui, étendu sur le flanc et bâillant au soleil. Il sauta les grilles inoffensives, qui ceignaient la place du château, --- un grand carré désert, entouré de maisons, avec deux jets d'eau assoupis, deux parterres symétriques et sans ombre, séparés, comme par une raie sur le front, par une allée sablée, ratissée avec soin, bordée d'orangers en caisse ; au milieu, la statue en bronze d'un grand-duc inconnu, costume Louis-Philippe, sur un socle décoré aux quatre angles par des allégories de Vertus. Sur un banc, un promeneur unique dormait sur son journal. À la grille du château, un poste de soldats inutiles dormait. Derrière les fossés pour rire de la terrasse du château, deux canons endormis bâillaient sur la ville endormie. Christophe leur rit au nez à tous.
+
+Il entra au château sans se préoccuper de prendre une attitude plus officielle : ce fut tout au plus s'il cessa de chantonner ; mais en lui-même, ses pensées continuaient de danser. Il jeta son chapeau sur la table du vestibule, en interpellant familièrement le vieil huissier, qu'il connaissait depuis l'enfance : --- (le bonhomme était déjà là, lors de la première visite que Christophe avait faite au château avec son grand-père, le soir où ils avaient vu Hassler) : --- mais le vieux, qui toujours répondait avec bonhomie aux boutades un peu irrespectueuses de Christophe, prit, cette fois, un air rogue. Christophe n'y fit pas attention. Un peu plus loin, dans l'antichambre, il rencontra un employé de la chancellerie, fort bavard et prodigue avec lui, d'ordinaire, en démonstrations d'amitié ; il fut surpris de la hâte que ce personnage mit à passer, en esquivant un entretien. Néanmoins, il ne s'arrêta pas à ces impressions, et, continuant son chemin, il demanda à être introduit.
+
+Il entra. Le dîner venait de finir. Son Altesse se tenait dans un des salons. Adossé à la cheminée, il fumait en causant avec ses hôtes, parmi lesquels Christophe distingua *sa* princesse, qui fumait aussi ; négligemment renversée dans un fauteuil, elle parlait très haut à quelques officiers, qui faisaient cercle autour d'elle. La réunion était animée. Tous étaient fort gais ; et Christophe, en entrant, entendit le rire épais du grand-duc. Mais ce rire s'arrêta net, quand le prince vit Christophe. Il poussa un grognement, et, fonçant droit sur lui :
+
+--- Ah ! vous voilà, vous ! cria-t-il. Vous daignez venir enfin ? Est-ce que vous croyez que vous allez vous moquer de moi plus longtemps ? Vous êtes un drôle, Monsieur !
+
+Christophe fut si stupéfait par ce boulet reçu en pleine poitrine, qu'il fut un moment avant de pouvoir articuler un mot. Il ne pensait qu'à son retard, qui ne pouvait légitimer une telle violence. Il balbutia :
+
+--- Altesse, qu'ai-je fait ?
+
+L'Altesse n'écoutait pas, et poursuivait avec emportement :
+
+--- Taisez-vous ! Je ne me laisserai pas insulter par un drôle.
+
+Christophe, blêmissant, luttait contre sa gorge contractée, qui refusait de parler. Il fit un effort, et cria :
+
+--- Altesse, vous n'avez pas le droit... vous n'avez pas le droit de m'insulter vous-même, sans me dire ce que j'ai fait.
+
+Le grand-duc se tourna vers son secrétaire, qui sortit un journal de sa poche, et qui le lui tendit. Il était dans un état d'exaspération, que son humeur colérique ne suffisait pas à expliquer : les fumées de vins trop généreux y avaient aussi leur part. Il vint se planter devant Christophe, et, comme un toréador avec sa cape, il lui agita furieusement devant la figure le journal déplié et froissé, en criant :
+
+--- Vos ordures, Monsieur !... Vous mériteriez qu'on vous y mît le nez !
+
+Christophe reconnut le journal socialiste :
+
+--- Je ne vois pas ce qu'il y a de mal, dit-il.
+
+--- Quoi ! quoi ! glapit le grand-duc. Vous êtes d'une impudence !... Ce journal de gredins, qui m'insultent journellement, qui vomissent contre moi des injures immondes !...
+
+--- Monseigneur, dit Christophe, je ne l'avais pas lu.
+
+--- Vous mentez ! cria le grand-duc.
+
+--- Je ne veux pas que vous disiez que je mens, dit Christophe. Je ne l'avais pas lu, je ne m'occupe que de musique. Et d'ailleurs, j'ai le droit d'écrire où je veux.
+
+--- Vous n'avez aucun droit, sauf celui de vous taire. J'ai été trop bon pour vous. Je vous ai comblé de mes bienfaits, vous et les vôtres, malgré toutes les raisons que votre inconduite et celle de votre père m'auraient données de me séparer de vous. Je vous défends de continuer à écrire dans un journal qui m'est ennemi. Et de plus, je vous défends, d'une façon générale, d'écrire quoi que ce soit, à l'avenir, sans mon autorisation. J'ai assez de vos polémiques musicales. Je n'admets pas que quelqu'un qui jouit de ma protection passe son temps à attaquer tout ce qui est cher aux gens de goût et de cœur, aux véritables Allemands. Vous ferez mieux d'écrire de meilleure musique, ou, si cela ne vous est pas possible, de travailler vos gammes et vos exercices. Je ne veux pas d'un Bebel musical, qui s'amuse à diffamer toutes les gloires nationales, à jeter le désarroi dans les esprits. Nous savons ce qui est bon, Dieu merci ! Nous n'avons pas attendu que vous nous le disiez, pour le savoir. Donc, à votre piano, Monsieur, et fichez-nous la paix !
+
+Le gros homme, face à face avec Christophe, le dévisageait avec des yeux insultants. Christophe, livide, essayait de parler ; ses lèvres remuaient ; il bégaya :
+
+--- Je ne suis pas votre esclave, je dirai ce que je veux, j'écrirai ce que je veux...
+
+Il suffoquait, il était près de pleurer de honte et de rage ; ses jambes tremblaient. En faisant un brusque mouvement du coude, il renversa un objet sur le meuble près de lui. Il se rendait compte qu'il était ridicule ; et, en effet, il entendit rire : en regardant au fond du salon, il vit, comme au travers d'un brouillard, la princesse qui suivait la scène, en échangeant avec ses voisins des réflexions d'une commisération ironique. Dès lors, il perdit l'exacte conscience de ce qui se passait. Le grand-duc criait. Christophe criait plus fort que lui, sans savoir ce qu'il disait. Le secrétaire du prince et un autre fonctionnaire vinrent vers lui, et tâchèrent de le faire taire : il les repoussa ; il agitait en parlant un cendrier qu'il avait saisi machinalement sur le meuble auquel il était adossé. Il entendait que le secrétaire lui disait :
+
+--- Allons, lâchez cela, lâchez cela !...
+
+et il s'entendait lui-même crier des mots sans suite, et frapper avec le cendrier le rebord de la table.
+
+--- Sortez ! hurla le grand-duc, au comble de la fureur. Sortez ! Sortez ! Je vous chasse !
+
+Les officiers s'étaient approchés du prince, et essayaient de le calmer. Le grand-duc, apoplectique, les yeux hors de la tête, criait qu'on jetât ce chenapan à la porte. Christophe vit rouge : il fut tout près d'appliquer son poing sur le mufle du grand-duc ; mais il était écrasé par un chaos de sentiments contradictoires : la honte, la fureur, un reste de timidité, de loyalisme germanique, de respect traditionnel, d'habitudes humiliées devant le prince. Il voulait parler, il ne pouvait pas parler ; il voulait agir, il ne pouvait pas agir ; il ne voyait plus, il n'entendait plus : il se laissa pousser, et sortit.
+
+Il passa au milieu des domestiques, impassibles, qui, venus près de la porte, n'avaient rien perdu du bruit de la dispute. Les trente pas qu'il eut à faire pour sortir de l'antichambre lui semblèrent durer toute une vie. La galerie s'allongeait, à mesure qu'il avançait. Il ne sortirait jamais !... La lumière du dehors, qu'il voyait luire là-bas, par la porte vitrée, était pour lui le salut. Il descendit l'escalier en trébuchant ; il oubliait qu'il était nu-tête : le vieil huissier le rappela pour prendre son chapeau. Il lui fallut ramasser toutes ses forces pour sortir du château, traverser la cour, regagner sa maison. Il claquait des dents. Quand il ouvrit la porte de chez lui, sa mère fut épouvantée par sa mine et par son tremblement. Il l'écarta, il refusa de répondre à ses questions. Il monta dans sa chambre, s'enferma, et se coucha. Il avait un tel frisson, qu'il n'arrivait pas à se déshabiller ; il avait la respiration coupée et les membres brisés... Ah ! ne plus voir, ne plus sentir, n'avoir plus à soutenir ce misérable corps, à lutter contre l'ignoble vie, tomber, tomber sans souffle, sans pensée, n'être plus, nulle part !... --- Ses habits arrachés avec une peine mortelle, et épars autour de lui, par terre, il se jeta dans son lit, et il s'y enfonça jusqu'aux yeux. Tout bruit cessa dans la chambre : on n'entendit plus que le petit lit de fer, qui tremblait sur le carreau.
+
+Louisa écoutait à la porte ; elle frappa en vain, appela doucement : rien ne répondit ; elle attendit, épiant anxieusement le silence ; puis elle s'éloigna. Une ou deux fois dans le jour, elle revint écouter ; et le soir, encore, avant de se coucher. Le jour passa, la nuit passa : la maison était muette. Christophe tremblait de fièvre ; par moments, il pleurait ; et, dans la nuit, il se soulevait pour montrer le poing au mur. Vers deux heures du matin, dans un accès de folie, il sortit du lit, en nage et à moitié nu : il voulait aller tuer le grand-duc. Il était dévoré de haine et de honte ; son corps et son cœur se tordaient dans la flamme. --- De cette tempête, rien ne s'entendait au dehors : pas un mot, pas un son. Les dents serrées, il renfermait tout en lui.
+
+Le lendemain matin, il redescendit, comme d'habitude. Il était ravagé. Il ne dit rien, et sa mère n'osa rien lui demander : elle savait déjà, par les rapports du voisinage. Tout le jour, il resta sur une chaise, au coin du feu, muet, fiévreux, le dos courbé, comme un petit vieux ; et, quand il était seul, il pleurait en silence.
+
+Vers le soir, le rédacteur du journal socialiste vint le voir. Naturellement, il était au courant, et voulait des détails. Christophe, touché de sa visite, l'interpréta naïvement comme une démarche de sympathie et d'excuses de la part de ceux qui l'avaient compromis ; il mit son amour-propre à ne sembler rien regretter, et il se laissa aller à dire tout ce qu'il avait sur le cœur : c'était un soulagement pour lui de parler librement à un homme qui eût comme lui la haine de l'oppression. L'autre l'excitait à parler : il voyait dans l'événement une bonne affaire pour son journal, l'occasion d'un article scandaleux, dont il attendait que Christophe lui fournît les éléments, à moins que Christophe ne l'écrivît lui-même ; car il comptait qu'après cet éclat, le musicien de la cour mettrait au service de « la cause » son talent de polémiste, qui était fort appréciable, et ses petits documents secrets sur la cour, qui l'étaient encore plus. Comme il ne se piquait pas d'une délicatesse exagérée, il présenta la chose sans artifice, sous le jour le plus cru. Christophe en eut un haut-le-corps ; il déclara qu'il n'écrirait rien, alléguant que toute attaque de sa part contre le grand-duc serait interprétée en ce moment comme un acte de vengeance personnelle, et qu'il était tenu à plus de réserve, maintenant qu'il était libre, que lorsque, ne l'étant pas, il courait des risques en disant ce qu'il pensait. Le journaliste ne comprit rien à ces scrupules ; il jugea Christophe un peu borné et clérical au fond ; il pensa surtout que Christophe avait peur. Il dit :
+
+--- Eh bien, laissez-nous faire : c'est moi qui écrirai. Vous n'aurez à vous occuper de rien.
+
+Christophe le supplia de se taire ; mais il n'avait aucun moyen de l'y contraindre. D'ailleurs, le journaliste lui représenta que l'affaire ne le concernait pas seul : l'insulte atteignait le journal, qui avait le droit de se venger. À cela il n'y avait rien à répondre ; tout ce que put faire Christophe, ce fut de lui demander sa parole qu'il n'abuserait point de certaines confidences faites à l'ami, et non au journaliste. L'autre la lui donna sans difficulté. Christophe n'en fut pas plus rassuré : il se rendait compte trop tard de l'imprudence qu'il avait commise. --- Quand il fut seul, il repassa dans sa tête tout ce qu'il avait dit, et il frémit. Sans réfléchir une minute, il écrivit au journaliste, le conjurant, de nouveau, de ne point répéter ce qu'il lui avait confié : --- (le malheureux le répétait lui-même, en partie, dans sa lettre.)
+
+Le lendemain, la première chose qu'il lut, en ouvrant le journal avec une hâte fiévreuse, ce fut, en première page, son histoire tout au long. Tout ce qu'il avait dit, la veille, s'y retrouvait démesurément grossi, ayant subi cette déformation spéciale à laquelle sont soumis tous les objets qui passent par un cerveau de journaliste. L'article attaquait avec de basses invectives le grand-duc et la cour. Certains détails qu'il donnait étaient trop personnels à Christophe, trop évidemment connus de lui seul, pour qu'on ne lui attribuât point l'article tout entier.
+
+Ce nouveau coup écrasa Christophe. À mesure qu'il lisait, une sueur froide lui montait au visage. Quand il eut fini, il resta affolé. Il voulut courir au journal ; mais sa mère l'en empêcha, redoutant, non sans raison, sa violence. Il la redoutait lui-même ; il sentait que s'il allait là, il ferait quelque sottise ; et il resta, --- pour en faire une autre. Il adressa au journaliste une lettre indignée, où il lui reprochait sa conduite en termes blessants, désavouait l'article, et rompait avec le parti. Le désaveu ne parut pas. Christophe récrivit au journal, le sommant de publier sa lettre. On lui envoya copie de sa première lettre, écrite le soir de l'entretien, et qui en était la confirmation : on lui demandait s'il fallait la publier aussi. Il se sentit dans leurs mains. Là-dessus, il eut le malheur de rencontrer dans la rue l'interviewer indiscret ; il ne put s'empêcher de lui dire le mépris qu'il avait pour lui. Le lendemain, le journal, sans la moindre pudeur, publia un entrefilet insultant, où l'on parlait de ces domestiques de cour, qui, même quand on les a flanqués à la porte, restent toujours des domestiques et ne sont plus capables d'être libres. Quelques allusions à l'événement récent ne permettaient point de douter qu'il ne s'agît de Christophe.
+
+Quand il fut bien évident pour tous que Christophe n'avait plus aucun appui, il se trouva soudain d'une richesse en ennemis qu'il n'eût jamais soupçonnée. Tous ceux qu'il avait blessés, directement ou indirectement, soit par des critiques personnelles, soit en combattant leurs idées et leur goût, prirent aussitôt l'offensive et se vengèrent avec usure. Le gros public, dont Christophe avait essayé de secouer l'apathie, contemplait, fort satisfait, la correction administrée à l'insolent jeune homme, qui avait prétendu réformer l'opinion et troubler le sommeil des gens de bien. Christophe était à l'eau. Chacun fit de son mieux pour lui tenir la tête dessous.
+
+Ils ne fondirent pas tous ensemble sur lui. L'un commença d'abord, pour tâter le terrain. Christophe ne répondant pas, il redoubla ses coups. Alors d'autres suivirent ; et puis, toute la bande. Les uns étaient de la fête par simple divertissement, comme de jeunes chiens, qui s'amusent à déposer leurs incongruités en belle place : c'était l'escadron volant des journalistes incompétents, qui, ne sachant rien, tâchent de le faire oublier, à force d'adulations aux vainqueurs et d'injures aux vaincus. Les autres apportaient là le poids de leurs principes, ils tapaient comme des sourds ; où ils avaient passé, il ne restait rien de rien : c'était la grande critique, --- la critique qui tue.
+
+Par bonheur pour Christophe, il ne lisait pas les journaux. Quelques amis dévoués avaient eu l'attention de lui envoyer les plus injurieux. Mais il les laissait s'empiler sur sa table, sans penser à les ouvrir ; ce ne fut qu'à la fin que ses yeux furent attirés par une grande marque rouge qui encadrait un article : il lut que ses *Lieder* ressemblaient aux grognements d'un animal sauvage, que ses symphonies avaient l'air de sortir d'une maison de fous, que c'était de l'art hystérique, des spasmes d'harmonies, qui voulaient donner le change sur sa sécheresse de cœur et sa nullité de pensée. Le critique, fort connu, terminait ainsi :
+
+« M. Krafft a naguère donné, comme reporter, quelques preuves étonnantes de son style et de son goût, qui excitèrent dans les cercles musicaux une gaieté irrésistible. Il lui fut alors conseillé amicalement de se livrer plutôt à la composition. Les derniers produits de sa muse ont montré que ce conseil, bien intentionné, était mauvais. M. Krafft devrait décidément faire du reportage. »
+
+Après cette lecture, qui empêcha Christophe de travailler pendant toute la matinée, il se mit naturellement à la recherche des autres journaux hostiles, pour achever de se démoraliser. Mais Louisa, qui avait la manie de faire disparaître tout ce qui traînait, sous prétexte de « faire de l'ordre », les avait déjà brûlés. Il en fut irrité d'abord, puis soulagé ; et, tendant à sa mère le journal qui restait, il lui dit qu'elle aurait bien dû en faire autant de celui-là.
+
+D'autres affronts lui furent plus sensibles. Un quatuor, dont il avait envoyé le manuscrit à une société réputée de Francfort, fut refusé à l'unanimité, et sans explications. Une ouverture, qu'un orchestre de Cologne semblait disposé à jouer, lui fut retournée, après des mois d'attente, comme injouable. La pire épreuve lui fut infligée par une société orchestrale de la ville. Le *Kapellmeister* H. Euphrat, qui la dirigeait, était assez bon musicien : mais, comme beaucoup de chefs d'orchestre, il n'avait aucune curiosité d'esprit ; il souffrait --- (ou plutôt il se portait à merveille) --- de cette paresse spéciale à sa corporation, qui consiste à ressasser indéfiniment les œuvres déjà connues, et à fuir comme le feu toute œuvre vraiment nouvelle. Il n'était jamais las d'organiser des Festivals Beethoven, Mozart, ou Schumann : il n'avait, dans ces œuvres, qu'à se laisser porter par le ronron des rythmes familiers. En revanche, la musique de son temps lui était insupportable. Il n'osait pas l'avouer, et il se disait accueillant pour tous les jeunes talents : de vrai, quand on lui apportait une œuvre bâtie sur un patron ancien, --- une sorte de décalque d'œuvres qui avaient été nouvelles, il y avait quelque cinquante ans, --- il la recevait fort bien ; il mettait même de l'ostentation à la jouer, à l'imposer au public. Cela ne dérangeait ni l'ordre de ses effets, ni l'ordre d'après lequel le public avait coutume d'être ému. En revanche, il éprouvait un mélange de mépris et de haine pour tout ce qui menaçait de déranger ce bel ordre et de lui causer une fatigue nouvelle. Le mépris dominait, si le novateur n'avait aucune chance de sortir de son ombre. S'il menaçait de réussir, c'était alors la haine, --- jusqu'au moment, bien entendu, où il avait réussi tout à fait.
+
+Christophe n'en était pas encore là : tant s'en fallait. Aussi, fut-il fort surpris, quand on lui fit savoir, par des ouvertures indirectes, que *Herr* H. Euphrat eût été bien aise de jouer quelque chose de lui. Il avait d'autant moins de raisons de s'y attendre qu'il savait que le *Kapellmeister* était un ami intime de Brahms et de quelques autres qu'il avait fort malmenés dans ses chroniques. Comme il était bon garçon, il prêta à ses adversaires des sentiments généreux, qu'il eût été capable d'avoir. Il supposa que, le voyant accablé, ils voulaient lui prouver qu'ils étaient au-dessus des rancunes mesquines : il en fut touché. Il écrivit un mot plein d'effusion à H. Euphrat, en lui envoyant un poème symphonique. L'autre lui fit répondre, par son secrétaire, une lettre froide, mais polie, lui accusant réception de son envoi, et ajoutant que, suivant la règle de la société, la symphonie serait prochainement distribuée à l'orchestre et soumise à l'épreuve d'une répétition d'ensemble, avant d'être reçue pour l'audition publique. La règle était la règle : Christophe n'avait qu'à s'incliner. Aussi bien, c'était là une pure formalité, qui servait à écarter les élucubrations des amateurs, quelquefois encombrantes.
+
+Deux ou trois semaines après, Christophe reçut avis que son œuvre allait être répétée. En principe, tout se passait à huis clos, et l'auteur même ne pouvait assister à la répétition. Mais une tolérance universellement admise faisait qu'il était toujours là ; seulement, il ne se montrait pas. Chacun le savait, et chacun feignait de ne le point savoir. Au jour dit, un ami vint chercher Christophe, et l'introduisit dans la salle, où il prit place au fond d'une loge. Il fut surpris de voir qu'à cette répétition fermée, la salle --- du moins, les places du bas --- était presque entièrement remplie : une foule de dilettantes, d'oisifs et de critiques s'agitait en caquetant. L'orchestre était censé ignorer leur présence.
+
+On commença par la *Rhapsodie* de Brahms pour voix d'alto, chœur d'hommes, et orchestre, sur un fragment du *Harzreise im Winter* de Gœthe. Christophe, qui détestait la sentimentalité majestueuse de cette œuvre, se dit que c'était peut-être là, de la part des « Brahmines », une façon courtoise de se venger, en le forçant à entendre une composition qu'il avait critiquée irrévérencieusement. Cette idée le fit rire, et sa bonne humeur augmenta, quand, après la *Rhapsodie*, vinrent deux autres productions de musiciens connus, qu'il avait pris à partie : l'intention ne lui sembla pas douteuse. Et, tout en ne pouvant dissimuler quelques grimaces, il pensa que c'était, après tout, de bonne guerre ; et, à défaut de la musique, il apprécia la farce. Il s'amusa même à mêler ses applaudissements ironiques à ceux du public, qui fit pour Brahms et ses congénères une manifestation enthousiaste.
+
+Enfin, ce fut le tour de la symphonie de Christophe. Quelques regards jetés de l'orchestre et de la salle du côté de sa loge lui firent voir qu'on était averti de sa présence. Il se dissimula. Il attendait, avec ce serrement de cœur, que tout musicien éprouve, au moment où la baguette du chef se lève, et où la force du fleuve de musique se ramasse en silence, prête à briser sa digue. Jamais il n'avait encore entendu son œuvre à l'orchestre. Comment les êtres qu'il avait rêvés allaient-ils vivre ? Quel serait le son de leurs voix ? Il les sentait gronder en lui ; et, penché sur le gouffre de sons, il attendait en frémissant ce qui allait sortir.
+
+Ce qui sortit, ce fut une chose sans nom, une bouillie informe. Au lieu des robustes colonnes qui devaient soutenir le fronton de l'édifice, les accords s'écroulaient les uns à côté des autres, comme une bâtisse en ruines ; on n'y distinguait rien qu'une poussière de plâtras. Christophe fut un moment avant d'être bien sûr que c'était lui qu'on jouait. Il recherchait la ligne, le rythme de sa pensée : il ne la reconnaissait plus ; elle allait, bredouillante et titubante, comme un ivrogne qui s'accroche aux murs ; et il était écrasé de honte, comme si on le voyait lui-même en cet état. Il avait beau savoir que ce n'était pas là ce qu'il avait écrit : quand un interprète imbécile dénature votre pensée, on a toujours un moment de doute, on se demande avec consternation si l'on est responsable de cette stupidité. Le public, lui, ne se le demande jamais : il croit à l'interprète, aux chanteurs, à l'orchestre, qu'il est accoutumé d'entendre, comme il croit à son journal : ils ne peuvent pas se tromper ; s'ils disent des absurdités, c'est que l'auteur est absurde. Il en doutait d'autant moins, en ce moment, qu'il avait plaisir à le croire. --- Christophe essayait de se persuader que le *Kapellmeister* se rendait compte du gâchis, qu'il allait arrêter l'orchestre, et faire tout reprendre. Les instruments ne jouaient même plus ensemble. Le cor avait manqué son entrée, et pris une mesure trop tard ; il continua quelques minutes, puis s'arrêta tranquillement, pour vider son instrument. Certains traits de des hautbois avaient totalement disparu. Il était impossible à l'oreille la plus exercée de retrouver le fil de la pensée musicale, ni même d'imaginer qu'il y en eût une. Des fantaisies d'instrumentation, des saillies humoristiques, devinrent grotesques, par le fait de la grossièreté de l'exécution. C'était bête à pleurer, c'était l'œuvre d'un idiot, d'un farceur, qui ne savait pas la musique. Christophe s'arrachait les cheveux. Il voulut interrompre ; mais l'ami qui était avec lui l'en empêcha, l'assurant que *Herr Kapellmeister* saurait bien de lui-même discerner les fautes de l'exécution et tout remettre au point, --- qu'au reste Christophe ne devait pas se montrer, et qu'une observation de lui ferait le plus mauvais effet. Il obligea Christophe à se retirer au fond de la loge. Christophe se laissa faire ; mais il se cognait la tête avec ses poings ; et chaque monstruosité nouvelle lui arrachait un râle d'indignation et de douleur.
+
+--- Les misérables ! Les misérables !...
+
+gémissait-il ; et il se mordait les mains pour ne pas crier.
+
+Maintenant, montait vers lui, avec les fausses notes, la rumeur du public, qui commençait à s'agiter. Ce ne fut d'abord qu'un frémissement ; mais bientôt, Christophe n'eut plus de doute : ils riaient. Les musiciens de l'orchestre avaient donné le signal ; certains ne cachaient point leur hilarité. Le public, assuré dès lors que l'œuvre était risible, se tordit de rire. La joie fut générale ; elle redoublait au retour d'un motif très rythmé, que les contrebasses accentuaient d'une façon burlesque. Seul, le *Kapellmeister*, imperturbable, continuait à marquer la mesure, au milieu du charivari.
+
+Enfin, l'on arriva au bout : --- (les meilleures choses ont une fin.) --- La parole était au public. Il éclata. Ce fut une explosion d'allégresse, qui dura plusieurs minutes. Les uns sifflaient, les autres applaudissaient ironiquement ; les plus spirituels criaient : *bis !* Une voix de basse, venue du fond d'une avant-scène, se mit à imiter le motif grotesque. D'autres farceurs furent pris d'émulation, et l'imitèrent, à leur tour. Quelqu'un cria : « L'auteur ! » --- Il y avait longtemps que ces gens d'esprit ne s'étaient autant amusés.
+
+Après que le tumulte fut un peu calmé, le *Kapellmeister*, impassible, le visage tourné de trois quarts vers le public, mais affectant de ne pas le voir, --- (le public était toujours censé ne pas exister) --- fit à l'orchestre un signe, pour marquer qu'il voulait parler. On cria : « Chut ! » ; et chacun fit silence. Il attendit encore un moment ; puis, --- (sa voix était nette, froide et tranchante) : ---
+
+--- Messieurs, dit-il, je n'aurais certainement pas laissé jouer *cette chose* jusqu'au bout, si je n'avais voulu me donner une fois en spectacle le monsieur qui a osé écrire des turpitudes sur maître Brahms.
+
+Il dit ; et, sautant de son estrade, il sortit au milieu des ovations de la salle en délire. On voulut le rappeler ; les acclamations se prolongèrent pendant une ou deux minutes encore. Mais il ne revint pas. L'orchestre s'en allait. Le public se décida à s'en aller aussi. Le concert était fini.
+
+C'était une bonne journée.
+
+Christophe était sorti déjà. À peine avait-il vu le misérable chef d'orchestre quitter son pupitre, qu'il s'était élancé hors de la loge ; il dégringolait les marches du premier étage, pour le rejoindre et le souffleter. L'ami qui l'avait amené courut après lui, et essaya de le retenir ; mais Christophe le bouscula, et faillit le jeter en bas de l'escalier : --- (il avait des raisons de croire que le personnage était complice dans le traquenard qui lui avait été tendu). --- Heureusement pour H. Euphrat et pour lui-même, la porte qui menait à la scène était fermée ; et ses coups de poing furieux ne purent la faire ouvrir. Cependant, le public commençait à sortir de la salle. Christophe ne pouvait rester là. Il se sauva.
+
+Il était dans un état indescriptible. Il marchait au hasard, agitant les bras, roulant les yeux, parlant tout haut, comme un fou ; il renfonçait ses cris d'indignation et de rage. La rue était à peu près déserte. La salle de concert avait été construite, l'année précédente, dans un quartier nouveau, un peu hors de la ville ; et Christophe, d'instinct, fuyait vers la campagne, à travers les terrains vagues, où s'élevaient des baraques isolées et quelques échafaudages de maisons, entourés de palissade. Il avait des pensées meurtrières, il eût voulu tuer l'homme qui lui avait fait cet affront... Hélas ! Et quand il l'eût tué, y aurait-il eu rien de changé à l'animosité de tous ces gens, dont les rires injurieux retentissaient encore à son oreille ? Ils étaient trop, il ne pouvait rien contre eux ; ils étaient tous d'accord --- eux qui étaient divisés sur tant de choses --- pour l'outrager et l'écraser. C'était plus que de l'incompréhension : il y avait là de la haine. Que leur avait-il donc fait à tous ? Il avait en lui de belles choses, des choses qui font du bien et qui dilatent le cœur ; il avait voulu les dire, en faire jouir les autres ; il croyait qu'ils allaient en être heureux comme lui. Si même ils ne les goûtaient pas, ils devaient tout au moins lui être reconnaissants de l'intention ; ils pouvaient, à la rigueur, lui remontrer amicalement en quoi il s'était trompé ; mais de là à cette joie méchante qu'ils mettaient à insulter ses pensées odieusement travesties, à les fouler aux pieds, à le tuer sous le ridicule, comment était-ce possible ? Dans son exaltation, il s'exagérait encore leur haine ; il lui prêtait un sérieux, que ces êtres médiocres étaient bien incapables d'avoir. Il sanglotait : « Qu'est-ce que je leur ai fait ? » Il étouffait, il se sentait perdu, ainsi que lorsqu'il était enfant, et qu'il avait fait connaissance pour la première fois avec la méchanceté humaine.
+
+Et comme il regardait près de lui, à ses pieds, il s'aperçut brusquement qu'il était arrivé au bord du ruisseau du moulin, à l'endroit où, quelques années avant, son père s'était noyé. Et l'idée lui vint sur-le-champ de se noyer aussi. Sans attendre une minute, il se disposa à sauter.
+
+Mais comme il se penchait sur la berge, fasciné par le calme et clair regard de l'eau, un tout petit oiseau, sur un arbre près de lui, se mit à chanter --- chanter éperdument. Il se tut pour l'écouter. L'eau murmurait. On entendait les frémissements des blés en fleur, ondoyant sous la molle caresse de l'air ; les peupliers frissonnaient. Derrière la haie du chemin, des paniers d'abeilles invisibles, dans un jardin, emplissaient l'air de leur musique parfumée. De l'autre côté du ruisseau, une vache aux beaux yeux bordés d'agate, rêvait. Une fillette blonde, assise sur le rebord d'un mur, une hotte légère à claires-voies sur les épaules, comme un petit ange avec ses ailes, rêvait aussi, en balançant ses jambes nues et chantonnant un air qui n'avait aucun sens. Au loin, dans la prairie, un chien blanc bondissait, décrivant de grands ronds. Christophe, appuyé à un arbre, écoutait, regardait la terre printanière ; il était repris par la paix et la joie de ces êtres : il oubliait, il oubliait... Brusquement, il serra dans ses bras le bel arbre, contre lequel il appuyait sa joue. Il se jeta par terre ; il s'enfonça la tête dans l'herbe ; il riait nerveusement, il riait de bonheur. Toute la beauté, la grâce, le charme de la vie l'enveloppait, l'imbibait, le pénétrait comme une éponge. Il pensait :
+
+--- Pourquoi es-tu si belle, et eux --- les hommes --- si laids ?
+
+N'importe ! Il l'aimait, il l'aimait, il sentait qu'il l'aimerait toujours, que rien ne pourrait l'en déprendre. Il embrassa la terre avec ivresse. Il embrassait la vie :
+
+--- Je t'ai ! Tu es à moi. Ils ne peuvent pas t'enlever à moi. Qu'ils fassent ce qu'ils veulent ! Qu'ils me fassent souffrir !... souffrir, c'est encore vivre !
+
+Christophe se remit courageusement au travail. Il ne voulait plus rien avoir à faire avec les « hommes de lettres » les bien nommés, les phraseurs, les bavards stériles, les journalistes, les critiques, les exploiteurs et les trafiquants de l'art. Quant aux musiciens, il ne perdrait pas son temps davantage à combattre leurs préjugés et leurs jalousies. Ils ne voulaient pas de lui ? --- Soit ! il ne voulait pas d'eux. Il avait son œuvre à faire : il la ferait. La cour lui rendait sa liberté : il l'en remerciait. Il remerciait les gens de leur hostilité : il allait pouvoir travailler en paix.
+
+Louisa l'approuvait de tout son cœur. Elle n'avait aucune ambition ; elle n'était pas une Krafft : elle ne ressemblait ni au père, ni au grand-père. Elle ne tenait aucunement pour son fils aux honneurs et à la réputation. Certes, elle se fût réjouie qu'il fût riche et célèbre ; mais si ces avantages devaient s'acheter au prix de trop de désagréments, elle aimait beaucoup mieux qu'il n'en fût pas question. Elle avait été plus affectée du chagrin de Christophe, à la suite de sa rupture avec le château, que de l'événement même ; et, au fond, elle était ravie qu'il se fût brouillé avec les gens des revues et des journaux. Elle avait pour le papier noirci une méfiance de paysan : tout cela n'était bon qu'à vous faire perdre votre temps et à vous attirer des ennuis. Elle avait entendu quelquefois causer avec Christophe ces petits jeunes gens de la Revue, avec qui il collaborait : elle avait été épouvantée de leur méchanceté ; ils déchiraient tout à belles dents, ils disaient des horreurs de tout ; et plus ils en disaient, plus ils étaient contents. Elle ne les aimait pas. Ils étaient sans doute très intelligents et très savants ; mais ils n'étaient pas bons : elle se réjouissait que son Christophe ne les vît plus. Elle abondait dans son sens : qu'avait-il besoin d'eux ?
+
+--- Ils peuvent dire, écrire et penser de moi ce qu'ils voudront, disait Christophe : ils ne peuvent pas m'empêcher d'être moi-même. Leur art, leur pensée, que m'importe ? Je les nie !
+
+Il est très beau de nier le monde. Mais le monde ne se laisse pas si facilement nier par une forfanterie de jeune homme. Christophe était sincère ; mais il se faisait illusion, il ne se connaissait pas bien. Il n'était pas un moine, il n'avait pas un tempérament à renoncer au monde ; surtout, il n'en avait pas l'âge. Les premiers temps, il ne souffrit pas trop : il était enfoncé dans la composition ; et, tant que ce travail dura, il ne sentit le manque de rien. Mais quand il fut dans la période de dépression, qui suit l'achèvement de l'œuvre, et qui dure jusqu'à ce qu'une nouvelle œuvre s'empare de l'esprit, il regarda autour de lui, et il fut glacé de son abandon. Il se demanda pourquoi il écrivait. Tandis que l'on écrit, la question ne se pose pas : il faut écrire, cela ne se discute point. Ensuite, on se trouve en présence de l'œuvre enfantée ; l'instinct puissant qui l'a fait jaillir des entrailles s'est tu : on ne comprend plus pourquoi elle est née ; à peine s'y reconnaît-on soi-même, elle est presque une étrangère, on aspire à l'oublier. Et cela n'est pas possible, tant qu'elle n'est ni publiée, ni jouée, tant qu'elle ne vit pas de sa vie propre dans le monde. Jusque-là, elle est comme le nouveau-né attaché à la mère, une chose vivante rivée à la chair vivante : il faut l'amputer à tout prix pour vivre. Plus Christophe composait, plus grandissait en lui l'oppression de ces êtres sortis de lui, qui ne pouvaient ni vivre, ni mourir. Il en était hanté. Qui l'en délivrerait ? Une poussée obscure remuait ces enfants de sa pensée ; ils aspiraient désespérément à se détacher de lui, à se répandre dans d'autres âmes comme les semences vivaces et fécondes, que le vent charrie dans l'univers. Resterait-il muré dans sa stérilité ? Il en deviendrait enragé.
+
+Puisque tout débouché : --- théâtres, concerts, --- lui était fermé, et que pour rien au monde il ne se fût abaissé à faire une démarche nouvelle auprès des directeurs qui l'avaient une fois éconduit, il ne lui restait d'autre moyen que de publier ce qu'il avait écrit ; mais il ne pouvait se flatter qu'il trouverait plus facilement un éditeur pour le lancer qu'un orchestre pour le jouer. Les deux ou trois essais qu'il fit, aussi maladroitement que possible, lui suffirent ; plutôt que de s'exposer à un nouveau refus, ou de discuter avec un de ces négociants en musique et de supporter ses airs protecteurs, il préféra faire tous les frais de l'édition. C'était une folie : il avait une petite réserve, qui lui venait de son traitement à la cour et de quelques concerts ; mais la source de cet argent était tarie, et il se passerait longtemps avant qu'il en trouvât une autre ; il eût fallu être assez sage pour ménager ce petit avoir, qui devait l'aider à passer la période difficile où il s'engageait maintenant. Non seulement il ne le fit pas ; mais, cette réserve étant insuffisante à couvrir les dépenses de l'édition, il ne craignit pas de s'endetter. Louisa n'osait rien dire ; elle le trouvait déraisonnable, et ne comprenait pas bien qu'on dépensât de l'argent pour voir son nom sur un livre ; mais puisque c'était un moyen de lui faire prendre patience et de le garder auprès d'elle, elle était trop heureuse qu'il s'en contentât.
+
+Au lieu d'offrir au public des compositions d'un genre connu, de tout repos, où il se sentît chez lui, Christophe fit choix, parmi ses manuscrits, d'une suite d'œuvres, qui lui étaient propres, et auxquelles il tenait beaucoup. C'étaient des pièces pour piano, où s'entremêlaient des *Lieder*, quelques-uns très courts et d'allure populaire, d'autres très développés et presque dramatiques. Le tout formait une suite d'impressions joyeuses ou tristes, qui s'enchaînaient d'une façon naturelle et que traduisait tour à tour le piano seul, et le chant, seul ou accompagné. « Car, disait Christophe, quand je rêve, je ne me formule pas toujours ce que je sens : je souffre, je suis heureux, sans paroles pour le dire ; mais il vient un moment où il faut que je le dise, je chante sans y penser : parfois, ce ne sont que des mots vagues, quelques phrases décousues, parfois des poèmes entiers ; puis, je me remets à rêver. Ainsi, le jour s'écoule : et c'est en effet un jour que j'ai voulu représenter. Pourquoi ces recueils composés uniquement de chants, ou de préludes ? Il n'y a rien de plus factice et de moins harmonieux. Il faut tâcher de rendre le libre jeu de l'âme. » --- Il avait donc nommé la Suite : *Une Journée*. Les diverses parties de l'œuvre portaient des sous-titres, indiquant brièvement la succession des rêves intérieurs. Christophe y avait écrit des dédicaces mystérieuses, des initiales, des dates, que lui seul pouvait comprendre, et qui lui rappelaient le souvenir d'heures poétiques, ou de figures aimées : la rieuse Corinne, la languissante Sabine, et la petite Française inconnue.
+
+En outre de cette œuvre, il choisit une trentaine de ses *Lieder*, --- de ceux qui lui plaisaient le plus, et, par conséquent, qui plaisaient le moins au public. Il s'était bien gardé de prendre ses mélodies les plus « mélodieuses », mais il prit les plus caractéristiques. --- (On sait que les braves gens ont toujours une grande peur de ce qui est « caractéristique ». Ce qui est sans caractère est bien mieux fait pour leur plaire.)
+
+Ces *Lieder* étaient écrits sur des vers de vieux poètes silésiens du dix-septième siècle, que Christophe avait lus par hasard dans une collection populaire, et dont il aimait la loyauté. Deux surtout lui étaient chers, comme des frères, deux êtres pleins de génie, tous deux morts à trente ans : le charmant Paul Fleming, le libre voyageur au Caucase et à Ispahan, qui garda une âme pure, aimante et sereine, au milieu des sauvageries de la guerre, des tristesses de la vie, et de la corruption de son temps, --- et Jean-Christian Günther, le génie déréglé, qui se brûla dans l'orgie et le désespoir, jetant sa vie à tous les vents. De Günther, il avait traduit les cris de provocation et d'ironie vengeresse contre le Dieu ennemi qui l'écrase, ces malédictions furieuses du Titan terrassé, qui retourne la foudre contre le ciel. De Fleming, il avait pris des chants d'amour à Anemone et à Basilene, suaves et doux comme des fleurs, --- et la ronde des étoiles, le *Tanzlied* (chant de danse) des cœurs limpides et joyeux, --- et le sonnet héroïque et tranquille : *À soi-même (An Sich)*, que Christophe se récitait, comme prière du matin.
+
+L'optimisme souriant du pieux Paul Gerhardt charmait aussi Christophe. C'était pour lui un repos, au sortir de ses tristesses. Il aimait cette vision innocente de la nature en Dieu, les prairies fraîches, où les cigognes se promènent gravement au milieu des tulipes et des narcisses blancs, au bord des ruisselets qui chantent sur le sable, l'air transparent où passent les hirondelles aux grandes ailes et le vol des colombes, la gaieté d'un rayon de soleil qui déchire la pluie, et le ciel lumineux qui rit entre les nuées, et la sérénité majestueuse du soir, le repos des forêts, des troupeaux, des villes et des champs. Il avait eu l'impertinence de remettre en musique plusieurs de ces cantiques spirituels, qui étaient encore chantés dans les communautés protestantes. Et il s'était bien gardé de leur conserver leur caractère de choral. Loin de là : il l'avait en horreur ; il leur avait donné une expression libre et vivante. Le vieux Gerhardt eût frémi peut-être de l'orgueil diabolique que respiraient maintenant certaines strophes de son *Lied du Voyageur chrétien*, ou de l'allégresse païenne qui faisait déborder comme un torrent le flot paisible de son *Chant d'été*.
+
+La publication fut faite, et naturellement en dépit du bon sens. L'éditeur, que Christophe payait pour faire l'impression de ses *Lieder* et les garder en dépôt, n'avait d'autre titre à son choix que d'être son voisin. Il n'était pas outillé pour un travail de cette importance ; l'ouvrage traîna, des mois ; il y eut des bévues, des corrections coûteuses. Christophe, qui n'y connaissait rien, se laissait tout compter un tiers plus cher qu'il ne fallait ; les dépenses s'élevèrent bien au-dessus de ce qui avait été prévu. Puis, quand ce fut fini, Christophe se trouva avoir sur les bras une édition énorme, dont il ne savait que faire. L'éditeur était sans clientèle ; il ne fit pas une démarche pour répandre l'œuvre. Son apathie s'accordait d'ailleurs avec l'attitude de Christophe. Comme il lui avait demandé, pour l'acquit de sa conscience, de lui écrire quelques lignes de réclame, Christophe répliqua « qu'il ne voulait pas de réclame : si sa musique était bonne, elle parlerait pour elle-même. » L'autre respecta religieusement sa volonté : il enferma l'édition au fond de son magasin. Elle était bien gardée ; car, en six mois, il ne s'en vendit pas un exemplaire.
+
+En attendant que le public se décidât à venir, Christophe dut trouver un moyen pour réparer la brèche qu'il avait faite à son petit avoir ; et il n'avait pas à être difficile : car il fallait vivre et payer ses dettes. Non seulement celles-ci étaient plus fortes qu'il ne l'avait prévu ; mais il s'aperçut que la réserve sur laquelle il comptait était moins forte qu'il n'avait calculé. Avait-il perdu de l'argent sans s'en douter, ou --- ce qui était infiniment plus probable, --- avait-il mal fait ses comptes ? --- (Jamais il n'avait su faire une addition exacte.) --- Peu importait en tout cas pourquoi l'argent manquait : il manquait, la chose était sûre. Louisa dut se saigner pour venir en aide à son fils. Il en eut un remords cuisant, et il chercha à s'acquitter, au plus tôt, à tout prix. Il se mit en quête de leçons à donner, si pénible qu'il lui fût de se proposer et d'essuyer parfois des refus. Sa faveur était bien tombée : il eut grand mal à retrouver quelques élèves. Aussi, quand on lui parla d'une place dans une école, il fut trop heureux d'accepter.
+
+C'était une institution à demi religieuse. Le directeur, homme fin, avait su voir, sans être musicien, tout le parti qu'on pouvait tirer de Christophe, et à très bon compte, dans la situation actuelle. Il était affable, et payait peu. Christophe ayant risqué une timide observation, le directeur laissa entendre, avec un sourire bienveillant, que Christophe, n'ayant plus de titre officiel, ne pouvait prétendre à plus.
+
+Triste besogne ! Il s'agissait moins d'apprendre la musique aux élèves que de donner l'illusion aux parents et à eux-mêmes qu'ils la savaient. La grande affaire était de les mettre en état de chanter pour les cérémonies où le public était admis. Peu importait le moyen. Christophe en était écœuré ; il n'avait même pas la consolation de se dire, en accomplissant sa tâche, qu'il faisait œuvre utile : sa conscience se la reprochait, comme une hypocrisie. Il essaya de donner aux enfants une instruction plus solide, de leur faire connaître et aimer la sérieuse musique ; mais les élèves ne s'en souciaient point. Christophe ne réussissait pas à se faire écouter ; il manquait d'autorité ; et, en vérité, il n'était pas fait pour enseigner à des enfants. Il ne s'intéressait pas à leurs ânonnements ; il voulait leur expliquer tout de suite la théorie musicale. Quand il avait une leçon de piano à donner, il mettait l'élève à une symphonie de Beethoven, qu'il jouait à quatre mains avec lui. Naturellement, cela ne pouvait marcher ; il éclatait de colère, chassait l'élève du piano, et jouait seul, longuement, à sa place. --- Il n'en usait pas autrement avec ses élèves particuliers, en dehors de l'école. Il n'avait pas une once de patience : il disait, par exemple, à une gentille jeune fille, qui se piquait de distinction aristocratique, qu'elle jouait comme une cuisinière ; ou même, il écrivait à la mère qu'il y renonçait, qu'il finirait par en mourir, s'il devait continuer plus longtemps à s'occuper d'un être aussi dénué de talent. --- Tout cela n'arrangeait pas ses affaires. Ses rares élèves le quittaient ; il ne parvenait pas à en garder un, plus de deux mois. Sa mère le raisonnait, il se raisonnait lui-même. Louisa lui fit promettre qu'il ne se brouillerait pas au moins avec l'institution où il était entré ; car, s'il venait à perdre cette place, il ne savait plus comment il ferait pour vivre. Aussi se contraignait-il, malgré son dégoût : il était d'une ponctualité exemplaire. Mais le moyen de cacher ce qu'il pensait, quand un âne d'élève estropiait pour la dixième fois un passage, ou quand il lui fallait seriner à sa classe, pour le prochain concert, un chœur insipide ! --- (Car on ne lui laissait même pas le choix de son programme : on se défiait de son goût). --- On peut croire qu'il y mettait peu de zèle. Il s'obstinait pourtant, silencieux, renfrogné, ne trahissant sa fureur intime que par quelque coup de poing sur la table, qui faisait ressauter les élèves. Mais parfois, la pilule était trop amère : il n'y pouvait plus tenir. Au milieu du morceau, il interrompait ses chanteurs :
+
+--- Ah ! laissez cela ! laissez cela ! Je vais vous jouer plutôt du Wagner.
+
+Ils ne demandaient pas mieux. Ils jouaient aux cartes derrière son dos. Il s'en trouvait toujours un pour rapporter la chose au directeur ; et Christophe s'entendait rappeler qu'il n'était pas là pour faire aimer la musique à ses élèves, mais pour la leur faire chanter. Il recevait les semonces en frémissant ; mais il les acceptait : il ne voulait pas rompre. --- Qui lui eût dit, il y avait quelques années, quand sa carrière s'annonçait brillante et assurée, (alors qu'il n'avait rien fait), qu'il en serait réduit à ces humiliations, dès l'instant qu'il commencerait à valoir quelque chose ?
+
+Parmi les souffrances d'amour-propre, que lui causa sa charge à l'institution, une des moins pénibles pour lui ne fut pas la corvée des visites obligatoires à ses collègues. Il en fit deux, au hasard ; et cela l'ennuya tellement qu'il n'eut pas le courage de continuer. Les deux privilégiés ne lui en surent aucun gré ; mais les autres se jugèrent personnellement offensés. Tous regardaient Christophe comme leur inférieur, en situation et en intelligence ; et ils prenaient avec lui des manières protectrices. Il en était accablé, par moments : car ils avaient l'air si sûrs d'eux-mêmes et de l'opinion qu'ils avaient de lui, qu'il lui arrivait de la partager ; il se sentait stupide auprès d'eux : qu'eût-il pu trouver à leur dire ? Ils étaient pleins de leur métier, et ne voyaient rien au-delà. Ils n'étaient pas des hommes. Si, du moins, ils avaient été des livres ! Mais ils étaient des notes à des livres, des commentaires philologiques.
+
+Christophe fuyait les occasions de se trouver avec eux. Mais elles lui étaient quelquefois imposées. Le directeur recevait, un jour par mois, dans l'après-midi ; et il tenait à ce que tout son monde fût là. Christophe, qui avait esquivé la première invitation, sans même s'excuser, faisant le mort, dans l'espoir fallacieux que son absence ne serait pas remarquée, fut l'objet, dès le lendemain, d'une observation aigre-douce. La fois suivante, chapitré par sa mère, il se décida à venir ; il y mit autant d'entrain que s'il allait à un enterrement.
+
+Il se trouva dans une réunion de professeurs de l'institution et d'autres écoles de la ville, avec leurs femmes et leurs filles. Entassés dans un salon trop petit, ils étaient hiérarchiquement groupés, et ne firent nulle attention à lui. Le groupe le plus près de lui parlait de pédagogie et de cuisine. Toutes ces femmes de professeurs avaient des recettes culinaires, qu'elles professaient avec un pédantisme exubérant et revêche. Les hommes n'étaient pas moins intéressés par ces questions, et à peine moins compétents. Ils étaient aussi fiers des talents domestiques de leurs femmes, que celles-ci du savoir de leurs époux. Debout, près d'une fenêtre, adossé au mur, ne sachant quelle contenance faire, tantôt tâchant de sourire bêtement, tantôt sombre, l'œil fixe, les traits contractés, Christophe crevait d'ennui. À quelques pas, assise dans l'embrasure de la fenêtre, une jeune femme, à qui personne ne parlait, s'ennuyait comme lui. Tous deux regardaient la salle, et ne se regardaient pas. Ce ne fut qu'après un certain temps qu'ils se remarquèrent, au moment où, n'en pouvant plus ni l'un ni l'autre, ils se détournaient pour bâiller. Juste à cette minute, leurs yeux se rencontrèrent. Ils échangèrent un regard de complicité amicale. Il fit un pas vers elle. Elle lui dit, à mi-voix :
+
+--- On s'amuse ?
+
+Il tourna le dos à la salle, et, regardant la fenêtre, il tira la langue. Elle éclata de rire, et, subitement réveillée, elle lui fit signe de s'asseoir auprès d'elle. Ils firent connaissance : elle était femme du professeur Reinhart, chargé du cours d'histoire naturelle à l'école, et nouvellement arrivé dans la ville, où ils ne connaissaient encore personne. Elle était loin d'être belle, le nez gros, de vilaines dents, peu de fraîcheur, mais des yeux vifs, assez spirituels, et un sourire bon enfant. Elle bavardait comme une pie : il lui donna la réplique avec entrain ; elle avait une franchise amusante, des boutades drôlatiques ; ils échangeaient en riant leurs impressions, tout haut, sans se préoccuper de ceux qui les entouraient. Leurs voisins, qui n'avaient pas daigné s'apercevoir de leur existence, tant qu'il eût été charitable de les aider à sortir de leur isolement, leur jetaient maintenant des regards indiscrets et mécontents : il était de mauvais goût de s'amuser autant... Mais ce qu'on pouvait penser d'eux était indifférent aux deux bavards : ils prenaient leur revanche.
+
+À la fin, madame Reinhart présenta son mari à Christophe. Il était extrêmement laid : une figure blême, glabre, grêlée, un peu macabre, mais un air de grande bonté. Il parlait du fond de la gorge, et articulait les mots d'une manière sentencieuse, ânonnante, en faisant des pauses entre les syllabes.
+
+Ils étaient mariés depuis quelques mois, et ces deux laiderons étaient épris l'un de l'autre : ils avaient une façon affectueuse de se regarder, de se parler, de se prendre la main, au milieu de tout ce monde, --- qui était comique et touchante. Ce que l'un voulait, l'autre le voulait aussi. Tout de suite, ils invitèrent Christophe à venir souper chez eux, au sortir de la réception. Christophe commença par se défendre, en plaisantant ; il disait que, pour ce soir, ce qu'on avait de mieux à faire, c'était d'aller se coucher : on était moulu d'ennui, comme si on avait fait une marche de dix lieues. Mais madame Reinhart répliqua que, précisément, il ne fallait pas en rester là : il serait dangereux de passer la nuit sur ces pensées lugubres. Christophe se laissa faire violence. Dans son isolement, il se sentait heureux d'avoir rencontré ces braves gens, pas très distingués de manières, mais simples et *gemütlich*.
+
+Le petit intérieur des Reinhart était *gemütlich*, comme eux. C'était un *Gemüt* un peu bavard, un *Gemüt* avec inscriptions. Les meubles, les ustensiles, la vaisselle parlaient, répétaient sans se lasser leur joie de recevoir « le cher hôte », s'informaient de sa santé, lui donnaient des conseils affables et vertueux. Sur le sofa, --- qui au reste était fort dur, --- s'étalait un petit coussin, qui murmurait amicalement :
+
+--- Seulement un petit quart d'heure ! *(Nur ein Viertelstündchen !)*
+
+La tasse de café, qu'on offrit à Christophe, insistait pour qu'il en reprît :
+
+--- Encore une petite goutte ! *(Noch ein Schlückchen !)*.
+
+Les assiettes assaisonnaient de morale la cuisine, d'ailleurs excellente. L'une disait :
+
+--- Pense à tout : autrement il ne t'arrivera rien de bon.
+
+L'autre :
+
+--- L'affection et la reconnaissance plaisent. L'ingratitude déplaît à tous.
+
+Bien que Christophe ne fumât point, le cendrier sur la cheminée ne put se tenir de se présenter à lui :
+
+--- Petite place de repos pour les cigares brûlants. *(Ruheplätzchen für brennende Cigarren.)*
+
+Il voulut se laver les mains. Le savon sur la table de toilette dit :
+
+--- Pour notre cher hôte. *(Für unseren lieben Gast.)*
+
+Et l'essuie-mains sentencieux, comme quelqu'un de très poli, qui n'a rien à dire, mais qui se croit obligé à dire tout de même quelque chose, lui fit cette réflexion, pleine de bon sens, mais non pas d'à propos, « qu'il faut se lever de bonne heure, pour jouir de la matinée ».
+
+--- *Morgenstund hat Gold im Mund.*
+
+Christophe finit par ne plus oser se tourner sur sa chaise, de peur de s'entendre interpeller par d'autres voix venues de tous les coins de la chambre. Il avait envie de leur dire :
+
+--- Taisez-vous donc, petits monstres ! On ne s'entend pas ici.
+
+Et il fut pris d'un fou rire, qu'il tâcha d'expliquer à ses hôtes par le souvenir de la réunion de tout à l'heure, à l'école. Pour rien au monde, il n'eût voulu les blesser. Au reste, il n'était pas très sensible au ridicule. Très vite, il s'habitua à la cordialité loquace des choses et des êtres. Que ne leur eût-il passé ! C'étaient de si bonnes gens ! Ils n'étaient pas ennuyeux, d'ailleurs ; s'ils manquaient de goût, ils ne manquaient pas d'intelligence.
+
+Ils se trouvaient un peu perdus dans le pays, où ils venaient d'arriver. La susceptibilité insupportable de la petite ville de province n'admettait point qu'on y entrât, comme dans un moulin, sans avoir sollicité, dans les règles, l'honneur d'en faire partie. Les Reinhart n'avaient pas tenu assez de compte du protocole provincial, qui régit les devoirs des nouveaux arrivants dans une ville, à l'égard de ceux qui y sont installés avant eux. À la rigueur, Reinhart s'y fût soumis machinalement. Mais sa femme, que ces corvées assommaient, et qui n'aimait pas à se gêner, les remettait de jour en jour. Elle avait choisi dans la liste des visites celles qui l'ennuyaient le moins, pour les faire d'abord ; les autres étaient indéfiniment remises. Les notabilités, qui se trouvaient comprises dans cette dernière catégorie, étaient suffoquées d'un tel manque d'égards. Angelika Reinhart --- (son mari la nommait familièrement Lili) --- avait des manières un peu libres ; elle ne parvenait pas à prendre le ton officiel. Elle interpellait familièrement ses supérieures hiérarchiques, qui en rougissaient d'indignation ; elle ne craignait pas, au besoin, de leur donner un démenti. Elle avait la langue bien pendue, et éprouvait le besoin de dire tout ce qui lui passait par la tête : c'étaient parfois des sottises énormes, dont on se moquait derrière son dos ; c'étaient aussi de grosses malices, décochées en pleine poitrine, et qui lui faisaient des ennemis mortels. Elle se mordait la langue, au moment où elle les disait, et elle eût voulu les retenir : mais il était trop tard. Son mari, le plus doux et le plus respectueux des hommes, lui faisait à ce sujet de timides observations. Elle l'embrassait, en lui disant qu'elle était une sotte, et qu'il avait raison. Mais, l'instant d'après, elle recommençait ; et c'était surtout quand et où il fallait le moins dire de certaines choses, qu'aussitôt elle les disait : elle eût crevé, si elle ne les avait pas dites. --- Elle était bien faite pour s'entendre avec Christophe.
+
+Parmi les nombreuses choses saugrenues, qu'il ne fallait pas dire, et que par conséquent elle disait, revenait à tout propos une comparaison déplacée de ce qui se faisait en Allemagne et de ce qui se faisait en France. Allemande elle-même, --- (nulle ne l'était plus qu'elle) --- mais élevée en Alsace, et en rapports d'amitié avec des Alsaciens français, elle avait subi sans doute cette attraction de la civilisation latine, à laquelle ne résistent pas, dans les pays annexés, tant d'Allemands, et de ceux qui semblaient les moins faits pour la subir. Peut-être, pour dire vrai, cette attraction était-elle devenue plus forte, par esprit de contradiction, depuis qu'Angelika avait épousé un Allemand du Nord, et se trouvait avec lui dans un milieu purement germanique.
+
+Dès la première soirée avec Christophe, elle entama son sujet de discussion habituel. Elle vanta l'aimable liberté des conversations françaises. Christophe lui fit écho. La France, pour lui, était Corinne : de beaux yeux lumineux, une jeune bouche rieuse, des manières franches et libres, une voix bien timbrée : il avait grande envie d'en connaître davantage.
+
+Lili Reinhart tapa des mains de se trouver si bien d'accord avec Christophe.
+
+--- C'est dommage, dit-elle, que ma petite amie française ne soit plus ici, mais elle n'a pu y tenir : elle est partie.
+
+L'image de Corinne s'éteignit aussitôt. Comme une fusée qui meurt fait paraître soudain dans le ciel sombre les douces et profondes lueurs des étoiles, une autre image, d'autres yeux apparurent.
+
+--- Qui ? demanda Christophe, sursautant. La petite institutrice ?
+
+--- Comment ! fit madame Reinhart, vous la connaissiez aussi ?
+
+Ils firent sa description : les deux portraits étaient identiques.
+
+--- Vous la connaissiez ? répétait Christophe. Oh ! dites-moi tout ce que vous savez d'elle !...
+
+Madame Reinhart commença par protester qu'elles étaient amies intimes, et qu'elles se confiaient tout. Mais quand il fallut rentrer dans le détail, ce tout se réduisit à fort peu de chose. Elles s'étaient rencontrées d'abord dans une visite. Madame Reinhart avait fait des avances à la jeune fille ; et, avec son habituelle cordialité, elle l'avait invitée à venir la voir. La jeune fille était venue deux ou trois fois, et elles avaient causé. Mais ce n'avait pas été sans peine que la curieuse Lili était parvenue à savoir quelque chose de la vie de la petite Française : la jeune fille était fort réservée ; il fallait lui arracher son histoire, lambeau par lambeau. Madame Reinhart savait tout juste qu'elle se nommait Antoinette Jeannin ; elle n'avait pas de fortune, et, pour toute famille, un jeune frère resté à Paris, qu'elle se dévouait à soutenir. Elle parlait de lui sans cesse : c'était le seul sujet sur lequel elle se montrât un peu expansive ; et Lili Reinhart avait gagné sa confiance, en témoignant une sympathie apitoyée pour le jeune garçon, seul à Paris, sans parents, sans amis, pensionnaire dans un lycée. C'était en partie pour subvenir aux frais de son éducation qu'Antoinette avait accepté une place à l'étranger. Mais les deux pauvres enfants ne pouvaient vivre l'un sans l'autre ; ils s'écrivaient, chaque jour ; et le moindre retard à l'arrivée de la lettre attendue les jetait l'un et l'autre dans une inquiétude maladive. Antoinette ne cessait de se tourmenter pour son frère : l'enfant n'avait pas toujours le courage de lui cacher la tristesse de sa solitude ; chacune de ses plaintes résonnait dans le cœur d'Antoinette avec une intensité déchirante ; elle se torturait à la pensée qu'il souffrait, et elle s'imaginait souvent qu'il était malade, mais qu'il ne voulait pas le dire. La bonne madame Reinhart avait dû bien des fois la rabrouer amicalement, pour ces craintes sans motif ; et elle réussissait, pour un moment, au moins, à lui rendre confiance. --- Sur la famille d'Antoinette, sur sa condition, sur le fond de son âme, elle n'avait rien pu savoir. À la première question, la jeune fille se repliait sur elle-même, avec une timidité farouche. Le peu qu'elle disait montrait qu'elle était instruite, intelligente ; elle paraissait avoir une expérience précoce ; elle semblait à la fois naïve et désabusée, pieuse et sans illusions. Elle n'était pas heureuse ici, dans une famille sans tact et sans bonté. Elle ne s'en plaignait pas, mais on voyait qu'elle en souffrait. --- Comment elle était partie, madame Reinhart ne savait pas au juste. On avait prétendu qu'elle se conduisait mal. Angelika n'en croyait rien ; elle eût mis sa main au feu que c'étaient de dégoûtantes calomnies, bien dignes de cette ville sotte et malfaisante. Mais il y avait eu des histoires : peu importaient lesquelles, n'est-ce pas ?
+
+--- Oui, dit Christophe, qui baissait la tête.
+
+--- Enfin, elle est partie.
+
+--- Et que vous a-t-elle dit, en partant ?
+
+--- Ah ! dit Lili Reinhart, je n'ai pas eu de chance. Justement, j'étais allée à Cologne pour deux jours ! Au retour... *Zu spät !* (Trop tard !)... s'interrompit-elle, pour semoncer sa bonne, qui lui apportait le citron trop tard pour le prendre dans son thé.
+
+Et elle ajouta sentencieusement, avec la solennité naturelle que les vraies âmes allemandes mettent à officier les actes familiers de l'existence quotidienne :
+
+--- Trop tard, comme si souvent dans la vie !
+
+(On ne savait s'il s'agissait du citron, ou de l'histoire interrompue.)
+
+Elle reprit :
+
+--- Au retour, j'ai trouvé un mot d'elle, me remerciant de tout ce que j'avais fait, et me disant qu'elle partait : elle retournait à Paris. Elle ne laissait pas d'adresse.
+
+--- Et elle n'a plus écrit ?
+
+--- Plus rien.
+
+Christophe vit de nouveau disparaître dans la nuit la mélancolique figure, dont les yeux lui étaient réapparus, un moment, tels qu'il les avait vus, pour la dernière fois, le regardant à travers la glace du wagon.
+
+L'énigme de la France se posait de nouveau avec plus d'insistance. Christophe ne se lassait pas d'interroger madame Reinhart sur ce pays qu'elle prétendait connaître. Et madame Reinhart, qui n'y était jamais allée, ne manquait point de le renseigner. Reinhart, excellent patriote, plein de préjugés contre la France, qu'il ne connaissait pas mieux que sa femme, risquait parfois quelques réserves, quand l'enthousiasme de celle-ci devenait trop excessif ; mais elle redoublait ses assertions avec plus d'énergie, et Christophe, sans savoir, de confiance, faisait chorus.
+
+Ce qui lui fut plus précieux encore que les souvenirs de Lili Reinhart, ce furent ses livres. Elle s'était fait une petite bibliothèque de volumes français : des manuels d'école, quelques romans, quelques pièces achetées au hasard. À Christophe, avide de s'instruire et ne connaissant rien de la France, cela parut un trésor, quand Reinhart alla les lui chercher, et les mit obligeamment à sa disposition.
+
+Il prit, pour commencer, des recueils de morceaux choisis, d'anciens manuels scolaires, qui avaient servi à Lili Reinhart ou à son mari, quand ils allaient en classe. Reinhart lui avait assuré qu'il lui fallait débuter par là, s'il voulait apprendre à se débrouiller au milieu de cette littérature, qui lui était totalement inconnue. Christophe, plein de respect pour ceux qui en savaient plus que lui, obéit religieusement ; et, le soir même, il se mit à lire. Il tâcha d'abord de se rendre compte sommairement des richesses qu'il possédait.
+
+Il fit connaissance avec des écrivains français, qui se nommaient : Théodore-Henri Barrau, François Pétis de la Croix, Frédéric Baudry, Émile Delérot, Charles-Auguste-Désiré Filon, Samuel Descombaz, et Prosper Baur. Il lut des poésies de l'abbé Joseph Reyre, de Pierre Lachambaudie, du duc de Nivernois, de André van Hasselt, d'Andrieux, de madame Colet, de Constance-Marie princesse de Salm-Dyck, de Henriette Hollard, de Gabriel-Jean-Baptiste-Ernest-Wilfrid Legouvé, d'Hippolyte Violeau, de Jean Reboul, de Jean Racine, de Jean de Béranger, de Frédéric Béchard, de Gustave Nadaud, d'Édouard Plouvier, d'Eugène Manuel, de Hugo, de Millevoye, de Chênedollé, de James Lacour Delâtre, de Félix Chavannes, de Francis-Édouard-Joachim dit François Coppée, et de Louis Belmontet. Christophe perdu, noyé, submergé dans ce déluge poétique, passa à la prose. Il y trouva Gustave de Molinari, Fléchier, Ferdinand-Édouard Buisson, Mérimée, Malte-Brun, Voltaire, Lamé-Fleury, Dumas père, J.-J. Rousseau, Mézières, Mirabeau, de Mazade, Claretie, Cortambert, Frédéric II, et monsieur de Voguë. L'historien français le plus souvent cité était Maximilien Samson-Frédéric Schœll. Christophe trouva dans cette anthologie française la Proclamation du nouvel Empire d'Allemagne ; et il lut un portrait des Allemands par Frédéric-Constant de Rougemont, où il apprit que « *l'Allemand naissait pour vivre dans le monde de l'âme. Il n'a point la gaieté bruyante et légère du Français. Il a beaucoup d'âme ; ses affections sont tendres, profondes. Il est infatigable dans ses travaux et persévérant dans ses entreprises. Il n'est pas de peuple qui soit plus moral, et chez qui la durée de la vie soit aussi longue. L'Allemagne compte un nombre extraordinaire d'écrivains. Elle a le génie des beaux-arts. Tandis que les habitants des autres pays mettent leur gloire à être Français, Anglais*, *Espagnols, l'Allemand au contraire embrasse dans son amour impartial l'humanité entière. Enfin, par sa position au centre même de l'Europe, la nation allemande semble être à la fois le cœur et la raison supérieure de l'humanité.* »
+
+Christophe, fatigué, étonné, ferma le livre et pensa :
+
+--- Les Français sont de bons garçons ; mais ils ne sont pas forts.
+
+Il prit un autre volume. Celui-ci était d'un niveau supérieur ; il s'adressait aux grandes écoles. Musset y tenait trois pages, et Victor Duruy trente. Lamartine sept pages, et Thiers près de quarante. On donnait *le Cid* tout entier, --- presque tout entier : --- (on avait supprimé simplement les monologues de don Diègue et de Rodrigue, parce qu'ils faisaient longueur.) --- Lanfrey exaltait la Prusse contre Napoléon I^er^ : aussi, la place ne lui avait-elle pas été mesurée ; il en tenait plus, à lui tout seul, que tous les grands classiques du dix-huitième siècle. De copieux récits des défaites françaises de 1870 avaient été puisés dans *la Débâcle* de Zola. On ne voyait là ni Montaigne, ni La Rochefoucauld, ni La Bruyère, ni Diderot, ni Stendhal, ni Balzac, ni Flaubert. En revanche, Pascal, absent de l'autre livre, apparaissait dans celui-ci, à titre de curiosité ; et Christophe apprit en passant que ce convulsionnaire « *faisait partie des pères de Port-Royal, institution de jeunes filles, près de Paris...* »
+
+Christophe fut sur le point d'envoyer tout promener : la tête lui tournait ; il n'y voyait plus rien. Il se disait : « Jamais je ne sortirai de là. » Il était incapable de se formuler un jugement. Il feuilletait au hasard, depuis des heures, sans savoir où il allait. Il ne lisait pas facilement le français ; et, quand il s'était donné bien du mal pour comprendre un passage, c'étaient presque toujours des choses insignifiantes et ronflantes.
+
+Cependant, du milieu de ce chaos, des traits de lumière jaillissaient parfois, des coups d'épée, des mots cinglants et sabrants, des rires héroïques. Peu à peu, une impression se dégageait de cette première lecture, peut-être par le fait du plan tendancieux des recueils. Les éditeurs allemands, volontairement ou non, avaient surtout choisi dans ces morceaux français tout ce qui pouvait établir, au témoignage des Français eux-mêmes, les défauts des Français et la supériorité allemande. Mais ils ne se doutaient pas que ce qu'ils mettaient ainsi en lumière, aux yeux d'un esprit indépendant, comme celui de Christophe, c'était l'étonnante liberté de ces Français, qui critiquaient tout chez eux, et louaient leurs adversaires. Michelet célébrait Frédéric II, Lanfrey les Anglais de Trafalgar, Charras la Prusse de 1813. Nul ennemi de Napoléon n'avait osé en parler d'une façon aussi dure. Les choses les plus respectées n'étaient pas à l'abri de leur esprit frondeur. Jusque sous le grand Roi, les poètes à perruques avaient leur franc-parler. Molière n'épargnait rien. La Fontaine raillait tout. Boileau lui-même flétrissait la noblesse. Voltaire insultait la guerre, fessait la religion, bafouait la patrie. Moralistes, satiriques, pamphlétaires, auteurs comiques, rivalisaient d'audace joyeuse ou sombre. C'était un manque de respect universel. Les honnêtes éditeurs allemands en étaient quelquefois effarés ; ils éprouvaient le besoin de rassurer leur conscience, en cherchant à excuser Pascal, qui mettait dans le même sac les cuisiniers, les crocheteurs, les soldats et les goujats ; ils protestaient, en note, que Pascal n'eût point parlé ainsi, s'il avait connu les nobles armées modernes. Ils ne manquaient pas non plus de rappeler avec quel bonheur Lessing avait corrigé les Fables de La Fontaine, changeant par exemple, d'après le conseil du Genevois Rousseau, le fromage de maître Corbeau en un morceau de viande empoisonnée, dont meurt le vil renard :
+
+« *Puissiez-vous ne jamais obtenir que du poison, maudits flatteurs !* »
+
+Ils clignotaient des yeux devant la vérité nue ; mais Christophe se réjouissait : il aimait la lumière. De ci, de là, il avait bien un petit heurt, lui aussi ; il n'était pas habitué à cette indépendance effrénée, qui, aux yeux de l'Allemand le plus libre, malgré tout habitué à l'ordre et à la discipline, fait l'effet de l'anarchie. Il était dérouté d'ailleurs par l'ironie française : il prenait certaines choses trop au sérieux ; d'autres, qui étaient d'implacables négations, lui semblaient au contraire des paradoxes plaisants. N'importe ! Étonné ou choqué, il était attiré, peu à peu. Il avait renoncé à classer ses impressions ; il passait d'un sentiment à l'autre : il vivait. La gaieté des récits français : --- Chamfort, Ségur, Dumas père, Mérimée, pêle-mêle entassés, --- lui dilatait l'esprit ; et, de temps en temps, par bouffées, montait de quelque page l'odeur enivrante et farouche des Révolutions.
+
+Il était près du matin, quand Louisa, qui dormait dans la chambre voisine, vit, en se réveillant, la lumière filtrer, entre les fentes de la porte de Christophe. Elle frappa au mur, et lui demanda s'il était malade. Une chaise grinça sur le plancher ; la porte s'ouvrit ; et Christophe apparut, blême, en chemise, une bougie et un livre à la main, avec des gestes étranges, solennels et burlesques. Louisa, saisie, se dressa sur son lit, pensant qu'il était fou. Il se mit à rire, et, agitant sa bougie, il déclamait une scène de Molière. Au milieu d'une phrase, il pouffa ; il s'assit au pied du lit de sa mère, pour reprendre haleine ; la lumière tremblait dans sa main. Louisa, rassurée, bougonnait affectueusement :
+
+--- Qu'est-ce qu'il a ? Qu'est-ce qu'il y a ? Veux-tu aller te coucher !... Mon pauvre garçon, tu deviens donc tout à fait idiot ?
+
+Mais il repartait de plus belle :
+
+--- Tu dois écouter cela !
+
+Et, s'installant à son chevet, il se mit à lui lire la pièce, en reprenant depuis le commencement. Il croyait voir Corinne ; il entendait son accent hâbleur, mordant et sonore. Louisa protestait :
+
+--- Va-t'en ! Va-t'en ! Tu vas prendre froid. Tu m'ennuies. Laisse-moi dormir !
+
+Il continuait, inexorable. Il gonflait la voix, il remuait les bras, il s'étranglait de rire ; et il demandait à sa mère si ce n'était pas admirable. Louisa lui avait tourné le dos, et, pelotonnée dans ses couvertures, elle se bouchait les oreilles, et disait :
+
+--- Laisse-moi tranquille !...
+
+Mais elle riait tout bas de l'entendre rire. À la fin, elle cessa de protester. Et, comme Christophe, ayant terminé l'acte, la prenait vainement à témoin de l'intérêt de sa lecture, il se pencha sur elle, et vit qu'elle dormait. Alors, il sourit, lui baisa doucement les cheveux, et rentra chez lui, sans bruit.
+
+Il retourna puiser dans la bibliothèque des Reinhart. Tous les livres y passèrent, pêle-mêle, les uns après les autres. Christophe dévora tout. Il avait un tel désir d'aimer le pays de Corinne et de l'inconnue, tant d'enthousiasme à dépenser, qu'il en trouva l'emploi. Même dans des œuvres de second ordre, telle page, tel mot lui faisait l'effet d'une bouffée d'air libre. Il se l'exagérait, surtout quand il en parlait à madame Reinhart, qui ne manquait pas de surenchérir encore. Bien qu'elle fût ignorante comme une carpe, elle s'amusait souvent à opposer la culture française à la culture allemande, et elle humiliait celle-ci au profit de celle-là, pour faire enrager son mari, et pour se venger des ennuis qu'elle avait à subir de la petite ville.
+
+Reinhart s'indignait. En dehors de sa science, il en était resté aux notions enseignées à l'école. Pour lui, les Français étaient des gens adroits, intelligents dans les choses pratiques, aimables, sachant causer, mais légers, susceptibles, vantards, incapables d'aucun sérieux, d'aucun sentiment fort, d'aucune sincérité, --- un peuple sans musique, sans philosophie, sans poésie, (à part *l'Art poétique*, Béranger, et François Coppée), --- le peuple du pathos, des grands gestes, des mots exagérés, et de la pornographie. Il n'avait pas assez de mots pour flétrir l'immoralité latine ; et, faute de mieux, il revenait toujours à celui de *frivolité*, qui, dans sa bouche, comme dans celle de la plupart de ses compatriotes, prenait un sens particulièrement désobligeant. Et cela se terminait par le couplet habituel en l'honneur du noble peuple allemand, --- le peuple moral (« *Par là*, a dit Herder, *il se distingue de tous les autres peuples* »,) --- le peuple fidèle (*treues Volk... Treu*, cela veut tout dire : sincère, fidèle, loyal, et droit) --- *le Peuple* par excellence, comme dit Fichte, --- la Force allemande, symbole de toute justice et de toute vérité, --- la Pensée allemande, --- le *Gemüt* allemand, --- la langue allemande, seule langue originale, seule conservée pure, comme la race elle-même, --- les femmes allemandes, le vin allemand, et le chant allemand... « *L'Allemagne, l'Allemagne au-dessus de tout, dans le monde !* »
+
+Christophe protestait. Madame Reinhart s'esclaffait. Ils criaient très fort tous les trois. Ils ne s'en entendaient pas moins très bien ensemble : ils savaient bien tous trois qu'ils étaient de bons Allemands.
+
+Christophe venait souvent causer, dîner, se promener avec ses nouveaux amis. Lili Reinhart le choyait, lui faisait des soupers succulents : elle était enchantée de trouver ce prétexte pour satisfaire sa propre gourmandise. Elle avait toutes sortes d'attentions sentimentales et culinaires. Pour l'anniversaire de Christophe, elle lui fit une tarte sur laquelle étaient plantées vingt bougies, et, au milieu, une petite figure en sucre, vêtue à la grecque, qui avait la prétention de représenter Iphigénie, et qui tenait un bouquet. Christophe, profondément Allemand, en dépit qu'il en eût, était touché par ces manifestations un peu bruyantes et pas très raffinées d'une affection véritable.
+
+Les excellents Reinhart savaient trouver d'autres moyens plus délicats de prouver leur active amitié. À l'instigation de sa femme, Reinhart, qui lisait à peine les notes de musique, avait acheté une vingtaine d'exemplaires des *Lieder* de Christophe, --- (les premiers qui fussent sortis de la boutique de l'éditeur) ; --- il les avait répandus en Allemagne, de différents côtés, parmi ses connaissances universitaires ; il en avait fait aussi envoyer un certain nombre à des libraires de Leipzig et de Berlin, avec qui il était en relations pour ses ouvrages de classes. Cette initiative touchante et maladroite, dont Christophe ne sut rien, ne donna d'ailleurs aucun fruit, du moins sur le moment. Les *Lieder* envoyés de côté et d'autre semblèrent avoir fait long feu : personne n'en parla ; et les Reinhart, tout chagrins de cette indifférence, s'applaudissaient d'avoir tenu Christophe en dehors de leurs démarches ; car il en aurait eu plus de peine que de réconfort. --- Mais, en réalité, rien ne se perd, comme on a tant de fois l'occasion de le voir dans la vie ; nul effort ne reste vain. On n'en sait rien, pendant des années ; puis, un jour, on s'aperçoit que la pensée a fait son chemin. Qui pouvait savoir si les *Lieder* de Christophe n'avaient pas été au cœur de quelques braves gens, perdus dans leur province, et trop timides, ou trop las, pour le lui dire ?
+
+Un seul lui écrivit. Deux ou trois mois après les envois de Reinhart, une lettre arriva à Christophe : émue, cérémonieuse, enthousiaste, de formes surannées, elle venait d'une petite ville de Thuringe, et était signée « *Universitätsmusikdirektor Professor D^r^* Peter Schulz ».
+
+Ce fut une grande joie pour Christophe, une plus grande encore pour les Reinhart, quand il ouvrit chez eux la lettre qu'il avait oubliée depuis deux jours dans sa poche. Ils la lurent ensemble. Reinhart échangeait avec sa femme des signes d'intelligence, que ne remarquait pas Christophe. Celui-ci semblait radieux, quand brusquement Reinhart le vit s'assombrir et s'interrompre net, au milieu de sa lecture.
+
+--- Eh bien, pourquoi t'arrêtes-tu ? demanda-t-il.
+
+(Ils se tutoyaient déjà.)
+
+Christophe jeta la lettre sur la table, avec colère.
+
+--- Non, c'est trop fort ! dit-il.
+
+--- Quoi donc ?
+
+--- Lis !
+
+Il tourna le dos à la table, et s'en alla bouder dans un coin.
+
+Reinhart lut, avec sa femme, et ne trouva que les expressions de l'admiration la plus éperdue.
+
+--- Je ne vois pas, dit-il, étonné.
+
+--- Tu ne vois pas ? Tu ne vois pas ?... --- cria Christophe, en reprenant la lettre, et en la lui mettant sous les yeux. --- Mais tu ne sais donc pas lire ? Tu ne vois pas qu'il est aussi un « *Brahmine* » ?
+
+Alors seulement, Reinhart remarqua que le *Universitätsmusikdirektor*, dans une ligne de sa lettre, comparait les *Lieder* de Christophe à ceux de Brahms. --- Christophe se lamentait :
+
+--- Un ami ! Je trouve enfin un ami !... Et à peine je l'ai gagné que je l'ai déjà perdu !...
+
+Il était suffoqué par la comparaison. Si on l'eût laissé faire, sur-le-champ, il eût répondu par une lettre de sottises. Ou, peut-être, à la réflexion, il se fût cru très sage et très généreux, en ne répondant rien du tout. Heureusement, les Reinhart, tout en s'amusant de sa mauvaise humeur, l'empêchèrent de commettre une absurdité de plus. Ils réussirent à lui faire écrire un mot de remerciements. Mais ce mot, écrit en rechignant, était froid et contraint. L'enthousiasme de Peter Schulz n'en fut pas ébranlé : il envoya encore deux ou trois lettres, débordantes d'affection. Christophe n'était pas un bon épistolier ; et, quoiqu'un peu réconcilié avec l'ami inconnu par le ton de sincérité et de vraie sympathie qu'il sentait à travers toutes ses lignes, il laissa tomber la correspondance. Schulz finit par se taire. Christophe n'y pensa plus.
+
+Il voyait maintenant les Reinhart, chaque jour, et souvent, plusieurs fois par jour. Ils passaient presque toutes leurs soirées ensemble. Après une journée, seul, concentré en lui-même, il avait un besoin physique de parler, de dire tout ce qu'il avait en tête, même si on ne le comprenait pas, de rire avec ou sans raison, de se dépenser, de se détendre.
+
+Il leur faisait de la musique. N'ayant pas d'autre moyen de témoigner sa reconnaissance, il se mettait au piano, et jouait pendant des heures. Madame Reinhart n'était pas du tout musicienne, et elle avait grand peine à ne pas bâiller ; mais elle avait de la sympathie pour Christophe, et feignait de s'intéresser à ce qu'il jouait. Reinhart, sans être beaucoup plus musicien que sa femme, était touché, d'une façon toute matérielle, par certains morceaux de musique, certaines pages, certaines mesures ; et alors, il était remué violemment, jusqu'à en avoir les larmes aux yeux : ce qui lui semblait idiot. Le reste du temps, rien : c'était du bruit pour lui. Règle générale, d'ailleurs : il n'était jamais ému que par ce qu'il y avait de moins bon dans l'œuvre, --- des passages tout à fait insignifiants. --- Ils se persuadaient tous deux qu'ils comprenaient Christophe ; et Christophe voulait se le persuader aussi. Il lui prenait bien de temps en temps quelque envie malicieuse de se moquer d'eux : il leur tendait des pièges, il leur jouait des choses qui n'avaient aucun sens, d'ineptes pots-pourris ; et il leur laissait croire que c'était de lui. Puis, quand ils avaient bien admiré, il leur disait ce qui en était. Alors, ils se défiaient ; et, depuis, quand Christophe prenait des airs mystérieux pour leur jouer un morceau, ils s'imaginaient qu'il voulait encore les attraper ; et ils le critiquaient. Christophe les laissait dire, faisait chorus avec eux, convenait que cette musique ne valait pas le diable, puis, brusquement, s'esclaffait :
+
+--- Cré coquins ! Comme vous avez raison !... C'est de moi !
+
+Il était heureux, comme un roi, de les avoir trompés. Madame Reinhart, un peu vexée, venait lui donner une petite tape ; mais il riait de si bon cœur, qu'ils riaient avec lui. Ils ne prétendaient pas à l'infaillibilité. Et comme ils ne savaient plus sur quel pied danser, Lili Reinhart avait pris le parti de tout critiquer, et son mari de tout louer : ainsi, ils étaient bien sûrs que l'un des deux serait toujours de l'avis de Christophe.
+
+Au reste, c'était moins le musicien qui les attirait en Christophe, que le bon garçon, un peu toqué, très affectueux et très vivant. Le mal qu'ils avaient entendu dire de lui les avait plutôt disposés en sa faveur : comme lui, ils étaient oppressés par l'atmosphère de la petite ville ; comme lui, ils étaient francs, ils jugeaient par eux-mêmes, et ils le regardaient comme un grand enfant, pas très habile dans la vie, et victime de sa franchise.
+
+Christophe ne se faisait pas beaucoup d'illusions sur ses nouveaux amis ; et il était un peu mélancolique de se dire qu'ils ne comprenaient pas le plus profond de son être, que jamais ils ne le comprendraient. Mais il était tellement sevré d'amitié, et il en avait tant besoin, qu'il leur avait une gratitude infinie de vouloir bien l'aimer un peu. L'expérience de cette dernière année l'avait instruit : il ne se reconnaissait plus le droit d'être difficile. Deux ans plus tôt, il n'eût pas été si patient : il se rappelait, avec un remords un peu amusé, sa sévérité à l'égard des braves et ennuyeux Euler. Hélas ! comme il était devenu sage ! --- Il en soupirait un peu. Une voix secrète lui soufflait :
+
+--- Oui, mais pour combien de temps ?
+
+Cela le faisait sourire, et le consolait un peu.
+
+Que n'eût-il pas donné pour avoir un ami, un seul qui le comprît et partageât son âme ! --- Mais bien qu'il fût tout jeune encore, il avait assez d'expérience du monde, pour savoir que son vœu était de ceux que la vie réalisait le plus difficilement, et qu'il ne pouvait prétendre à être plus heureux que la plupart des vrais artistes qui l'avaient précédé. Il avait appris à connaître un peu l'histoire de quelques-uns d'entre eux. Certains livres, empruntés à la bibliothèque de Reinhart, lui avaient fait connaître les terribles épreuves par où avaient passé les musiciens allemands du dix-septième siècle, et la tranquille constance, dont telle de ces grandes âmes, --- la plus grande de toutes : l'héroïque Schütz, --- avait fait preuve, continuant inébranlablement sa route, au milieu des guerres, des villes incendiées, des provinces englouties par la peste, de la patrie envahie, foulée aux pieds par les bandes de toute l'Europe, et --- le pire de tout --- brisée, lassée, dégradée par le malheur, n'essayant pas de lutter, indifférente à tout, n'aspirant qu'au repos. Il pensait : « Qui aurait le droit de se plaindre devant un tel exemple ? Ils n'avaient point de public, ils n'avaient point d'avenir ; ils écrivaient pour eux seuls et pour Dieu ; ce qu'ils écrivaient aujourd'hui, le jour qui allait venir peut-être l'anéantirait. Cependant, ils continuaient d'écrire, et ils n'étaient point tristes : rien ne leur faisait perdre leur bonhomie intrépide et joviale ; ils se satisfaisaient de leur chant, et ils ne demandaient à la vie que de vivre, de gagner tout juste leur pain, de se décharger de ce qu'ils pensaient, et de trouver deux ou trois braves gens, simples, vrais, pas artistes, qui sans doute ne les comprenaient pas, mais qui avaient confiance en eux, et en qui ils avaient confiance. --- Comment eût-il osé être plus exigeant qu'eux ? Il y a un minimum de bonheur, que l'on peut demander. Mais nul n'a droit à plus : c'est à soi-même de se donner le surplus de bonheur ; ce n'est pas aux autres. »
+
+Ces pensées le rassérénaient ; et il en aimait mieux ses braves amis Reinhart. Il ne pensait pas qu'on viendrait lui disputer cette dernière affection.
+
+Il comptait sans la méchanceté des petites villes. Leurs rancunes sont tenaces, --- d'autant plus tenaces qu'elles n'ont aucun but. Une bonne haine, qui sait ce qu'elle veut, s'apaise quand elle l'a obtenu. Mais des êtres malfaisants par ennui ne désarment jamais ; car ils s'ennuient toujours. Christophe était une proie offerte à leur désœuvrement. Il était battu, sans doute ; mais il avait l'audace de n'en point paraître accablé. Il n'inquiétait plus personne ; mais il ne s'inquiétait de personne. Il ne demandait rien : on ne pouvait rien contre lui. Il était heureux avec ses nouveaux amis, et indifférent à tout ce qu'on disait ou pensait de lui. Cela ne pouvait se supporter. --- Madame Reinhart irritait encore plus. L'amitié qu'elle affichait pour Christophe, à l'encontre de toute la ville, semblait, comme son attitude, un défi à l'opinion. La bonne Lili Reinhart ne défiait rien, ni personne : elle ne pensait pas à provoquer les autres ; elle faisait ce qui lui semblait bon, sans demander l'avis des autres. C'était là la pire provocation.
+
+On était à l'affût de leurs gestes. Ils ne se méfiaient pas assez. L'un extravagant, et l'autre écervelée, ils manquaient de prudence, quand ils sortaient ensemble, ou même, à la maison, quand, le soir, ils causaient et riaient, accoudés au balcon. Ils se laissaient aller innocemment à une familiarité de paroles et de manières, qui devait fournir sans peine un aliment à la calomnie.
+
+Un matin, Christophe reçut une lettre anonyme. On l'accusait, en termes bassement injurieux, d'être l'amant de madame Reinhart. Les bras lui en tombèrent. Jamais il n'avait eu la moindre pensée d'amour, ni même de flirt, avec elle : il était trop honnête, il avait pour l'adultère une horreur puritaine : la seule idée de ce partage malpropre lui causait une répulsion physique et morale. Prendre la femme d'un ami lui eût semblé un crime ; et Lili Reinhart eût été la première personne du monde avec qui il eût été tenté de le commettre : la pauvre femme n'était point belle, il n'aurait même pas eu l'excuse d'une passion.
+
+Il retourna chez ses amis, honteux et gêné. Il trouva la même gêne. Chacun d'eux, de son côté, avait reçu une lettre analogue ; mais ils n'osaient pas se le dire ; et, tous trois, s'observant l'un l'autre, et s'observant soi-même, ils n'osaient plus ni bouger, ni parler, et ne faisaient que des sottises. Si l'insouciance naturelle de Lili Reinhart reprenait le dessus, un moment, et si elle se remettait à rire et à dire des extravagances, brusquement un regard de son mari, ou de Christophe, l'interloquait ; le souvenir de la lettre lui traversait l'esprit ; elle s'arrêtait au milieu d'un geste familier, elle se troublait ; Christophe et Reinhart se troublaient aussi. Et chacun pensait :
+
+--- Les autres ne savent-ils pas ?
+
+Cependant, ils ne s'en disaient rien, et tâchaient de vivre comme avant.
+
+Mais les lettres anonymes continuèrent, de plus en plus insultantes, ordurières ; elles les jetaient dans un état d'énervement et de honte intolérable. Ils se cachaient, quand ils les recevaient, et ils n'avaient pas la force de les brûler sans les lire : ils les ouvraient d'une main tremblante ; le cœur leur manquait en dépliant la page ; et, quand ils y lisaient ce qu'ils craignaient d'y lire, avec quelque variation nouvelle sur le même thème, --- inventions ingénieuses et ignobles d'un esprit appliqué à nuire, --- ils en pleuraient tout bas. Ils s'épuisaient à chercher quel pouvait être le misérable, qui s'attachait à les poursuivre.
+
+Un jour, madame Reinhart, à bout de forces, avoua à son mari la persécution dont elle était victime ; et il lui avoua, les larmes aux yeux, qu'il la subissait aussi. En parleraient-ils à Christophe ? Ils n'osaient. Il fallait l'avertir pourtant, afin qu'il fût prudent. --- Dès les premiers mots que madame Reinhart lui dit, en rougissant, elle vit avec consternation que Christophe recevait aussi des lettres. Cet acharnement dans la méchanceté les affola. Madame Reinhart ne douta plus que la ville entière ne fût dans le secret. Au lieu de se soutenir mutuellement, ils achevèrent de se démoraliser. Ils ne savaient que faire. Christophe parlait d'aller casser la tête à quelqu'un. --- Mais à qui ? Et puis, ce serait alors que les calomnies auraient beau jeu !... Mettre la police au courant des lettres ? --- Ce serait rendre publiques leurs insinuations... Faire semblant de les ignorer ? Ce n'était plus possible. Leurs rapports d'amitié étaient maintenant troublés. Reinhart avait beau avoir une foi absolue en l'honnêteté de sa femme et de Christophe : il les soupçonnait malgré lui. Il sentait l'absurdité et la honte de ses soupçons ; il s'imposait de n'en pas tenir compte, et de laisser seuls ensemble Christophe et sa femme. Mais il souffrait ; et sa femme le voyait bien.
+
+Pour elle, ce fut encore pis. Jamais elle n'avait pensé à flirter avec Christophe, pas plus que Christophe avec elle. Les calomnies lui insinuèrent la ridicule idée que Christophe, après tout, avait peut-être pour elle un sentiment amoureux ; et, bien qu'il fût à cent lieues de lui en rien montrer, elle crut bon de s'en défendre, non par des allusions précises, mais par des précautions maladroites, que Christophe ne comprit pas d'abord, et qui, lorsqu'il comprit, le mirent hors de lui. C'était à rire et à pleurer, tant cela était bête ! Lui, amoureux de cette brave petite bourgeoise, bonne, mais laide et commune !... Et qu'elle le crût !... Et qu'il ne pût pas se défendre, lui dire, dire à son mari :
+
+--- Allons donc ! Soyez tranquilles ! Il n'y a pas de danger !...
+
+Mais non, il ne pouvait pas offenser ces excellentes gens. Et il se rendait compte, d'ailleurs, que si elle se défendait d'être aimée par lui, c'était qu'elle commençait secrètement à l'aimer : les lettres anonymes avaient eu ce beau résultat de lui en avoir soufflé l'idée sotte et romanesque.
+
+La situation était devenue à la fois si pénible et si niaise, qu'il n'était plus possible de continuer. Au reste, Lili Reinhart, qui, en dépit de ses forfanteries de langage, n'avait aucune force de caractère, perdit la tête devant l'hostilité sourde de la petite ville. Ils se donnèrent des prétextes honteux pour ne plus se voir :
+
+« Madame Reinhart était souffrante... Reinhart avait à travailler... Ils s'absentaient pour quelques jours... »
+
+Mensonges maladroits, que le hasard prenait un malin plaisir à démasquer.
+
+Plus franc, Christophe dit :
+
+--- Séparons-nous, mes pauvres amis. Nous ne sommes pas de force.
+
+Les Reinhart pleurèrent. --- Mais ce fut un soulagement pour eux, après qu'ils eurent rompu.
+
+La ville pouvait triompher. Cette fois, Christophe était bien seul. Elle lui avait volé jusqu'au dernier souffle d'air : --- l'affection, si humble soit-elle, sans laquelle aucun cœur ne peut vivre.
+
+------------------------------------------------------------------------
+
+1.  ↑ Sobriquet, sous lequel les pamphlétaires allemands ont coutume de désigner entre eux S. M. --- (Sa Majesté) : --- l'empereur.
+
+2.  ↑ Les anthologies de la littérature française, que Jean-Christophe emprunte à la bibliothèque de ses amis Reinhart, sont :
+
+    I. --- *Choix de lectures françaises à l'usage des écoles secondaires*, par Hubert H. Wingerath, docteur en philosophie, directeur de l'École réale Saint-Jean à Strasbourg. --- Deuxième partie : classes moyennes. --- 7^e^ édition, 1902. Dumont-Schauberg.
+
+    II. --- L. Herrig et G. F. Burguy : *La France littéraire*, remaniée par F. Tendering, directeur du Real-Gymnasium des Johanneums, Hambourg. --- 1904. Brunswick.
