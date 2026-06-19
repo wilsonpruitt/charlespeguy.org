@@ -5,2710 +5,1106 @@ lang: fr
 title: Jean-Christophe. Le buisson ardent. 2
 author: romain-rolland
 isAvertissement: false
-wordCount: 23924
+wordCount: 38746
+sourceProvenance: "Wikisource (Le Buisson ardent/Texte entier, status=validated; split structural split at book Part I/II, approved 2026-06-19); pulled 2026-06-19"
 ---
-à l'année le printemps,
-Comme les fidèles se passent de main en main l'eau
-Ainsi nous fidèles nous devons nous passer de cœur en
-cœur la parole de Dieu.
-De main en main, de cœur en cœur nous devons nous
-passer la divine
-Il ne suffit pas que nous ayons été créées, que nous
-soyons nées, que nous ayons été faites fidèles.
-Il faut, il dépend de nous que femmes et fidèles,
-Il dépend de nous chrétiennes
-Que l'éternel ne manque point de temporel,
-Que le spirituel ne manque point du charnel,
-Il faut tout dire, c'est incroyable: que l'éternité ne
-manque point d'un temps,
-Du temps, d'un certain temps..
-Que lesprit ne manque point de chair.
-Que l'âme pour ainsi dire ne manque point de corps.
-Que Jésus ne manque point d'Église,
-De son Église. de
-Il faut aller jusqu'au bout: Que Dieu ne manque point
-de sa création.
-
-par C'est-à-dire il dépend de nous: EPAUNSEES
-an #5 Que l'espérance ne mente pas dans le monde.
-C'est-à-dire, il faut le dire, il dépend de nous É'HLTSS
-Que l'infiniment plus ne manque pas de l'infiniment
-Quel'infiniment tout ne manque pas de l'infinimentrien.
-1 dépend de nous que l'infini ne manque pas du fini.
-Que le parfait ne manque pas de l'imparfait.
-“6 C'est une gageure, il manque de nous, il dépend de
-AEFARE nous ‘#4
-Que le grand ne manque pas du petit, - -
-É Que le tout ne manque pas d'une partie, eAE Que l'infiniment grand ne manque pas de l'infiniment
-Que l'éternel ne manque pas du périssable.
-è 11 manque de nous, (c'est une dérision), il manque de
-DRE - nous que le Créateur ES
-Ne manque pas de sa créature. &:.
-‘Ga Et comme le dernier jour il y aura un grand signe
-FRET croix sur le cercueil du monde.
-
-Parce que ce sera le dernier enterrement. SE
-si Ainsi le dernier jour il y aura un grand signe de croix
-de bénédiction. FPS
-Parce que ce sera l'accomplissement, +400
-Le couronnement de l'espérance.
-Grâce unique, un infirme, une créature infirme porte ITS
-Et Dieu peut manquer de cette créature. ASS
-Elle peut manquer dans son compte et dans son ES
-- Quand il compte ses brebis, manquer à son amour et ni Cr.
-LE à son être même, HEC
-Faire mentir son espérance.
-Le couronnement de l'espérance Ses
-Lù_ Qui est le couronnement des rameaux d'un arbre sans
-Jésus-Christ, mon enfant, n'est pas venu pour nous CAE
-conter des fariboles,
-
-le porche es. es.
-Pendant le peu de temps qu'il avait.
-Qu'est-ce que trois ans dans la vie d'un monde.
-Dans l'éternité de ce monde.
-Il n'avait pas de temps à perdre, il n'a pas perdu son
-temps à nous conter des fariboles et à nous donner
-des charades à deviner.
-Des charades très spirituelles.
-Des devinettes de sorcier.
-Avéc des mots à double entente et des malices et de
-misérables finesses de finasseries.
-Non, il n'a pas perdu son temps et sa peine,:
-Il n'avait pas le temps,
-Ses peines, sa grande, sa très grande peine.
-Il n'a pas perdu, il n'a pas dépensé tout cela, tout son
-être, tout.
-Il ne s'est pas dépensé, tout, lui-même, il n'a pas fait
-cette énorme, cette effroyable dépense
-De soi, de son être, (de) tout,;
-Pour venir après ça, avec ça, moyennant ça, à ce prix,
-Pour venir à ce prix-là nous donner de la tablature
-Des malices, de pauvres niaiseries, des quiproquos, des
-roueries spirituelles comme un devin de village.
-Comme un farceur de campagne.
-Comme un saltimbanque ambulant, un charlatan dans
-sa voiture.
-Comme le malin du bourg, comme le gars le plus malin
-
-Mais quand le Fils de Dieu, mon enfant, s'est dérangé
-du Ciel et de la droite de son Père.
-
-Quand il s'est dérangé d'être assis à la droite.
-
-Il n'a point fait, il n'a point fourni cette grande
-
-Il n'a point fait ce grand dérangement pour venir nous
-conter des balivernes
-
-De quatre sous.
-
-Des paroles en l'air.
-
-Et des emberlificotages à n'y rien comprendre.
-
-Mais, à ce prix-là, il est venu nous dire ce qu'il avait à
-nous dire.
-
-N'est-ce pas.
-
-Tout simplement, tout honnêtement.
-
-Tout directement. Tout premièrement.
-
-Comme un honnête homme parle à un honnête homme.
-
-D'homme à hommes.
-
-Il ne s'est pas amusé à entortiller tout ça.
-
-Il avait quelque chose à nous dire, il nous a dit ce qu'il
-avait à nous dire.
-
-Il nous a pas dit autre chose.
-
-Et il ne nous l'a pas dit autrement qu'il n'avait à nous
-le dire.
-
-Comme il avait à dire, il a parlé.
-
-Ce sont les imbéciles qui font le malin.
-
-Et qui cherchent toujours midi à quatorze heures.
-
-Toi quand ta mère t'envoie faire une commission chez
-le boulanger,
-
-Quand tu vas chez le boulanger,
-
-Tu ne te mets pas tout d'un coup à raconter des choses - #4
-Es Tu prends ton pain, tu payes, et tu t'en vas.
-: Lui c'est la même chose il est venu pour nous faire une
-Le Il avait une commission à nous faire de la part de son
-; Il nous a fait sa commission et il s'en est retourné.
-Il ne s'est pas mis à nous raconter des choses extra-
-Rien n'est aussi simple que la parole de Dieu.
-Il ne nous a dit que des choses fort ordinaires.
-à L'incarnation, le salut, la rédemption, la parole de Dieu.
-Trois ou quatre mystères.
-La prière, les sept sacrements.
-Rien n'est aussi simple que la grandeur de Dieu.
-É Il nous a parlé sans détours ni embarbouillements.
-À À Il ne faisait pas des manières, des embarbouillages.
-bi, IL parlait tout uniment, comme un simple homme, tout
-crument, comme un homme dans le bourg,
-É Un homme dans le village. à
-ë. Comme un homme dans la rue qui ne cherche pas ses de
-mots et qui ne fait pas des embarras.
-Aussi, soit qu'il nous parlât et qu'il nous ait parlé direc-
-Soit qu'il nous ait parlé par paraboles,:
-É Que nous nommons en latin des similitudes,
-
-É 4 Puisqu'il n'était point venu pour nous dire des fariboles,
-3. Puisque toujours il nous a parlé directement et pleine-
-Au pied de la lettre,
-- Auras du mur,
-Toujours aussi en réponse nous aussi nous devons
-lécouter et l'entendre au pied de la lettre.
-Directement et pleinement au pied du mur.
-Notre frère, notre grand Frère ne nous a point trompés
-ê pour le plaisir de faire le malin. #1 "#0
-À Nous ne devons point le tromper pour le plaisir de faire:
-. les jacques.
-Et c'est le tromper que de chercher des malices où il
-Que d'entendre, que de chercher, que de vouloir
-5 entendre; que d'imaginer; à
-Que de travailler;
-Ê Que d'entendre sa parole autrement qu'il ne la dite.
-Que d'écouter même autrement qu'il n'a parlé.
-è C'est même la plus grave tromperie que nous puissions
-; lui faire.
-s'est donné.
-C'est la plus grave injure, peut-être la seule injure que
-nous puissions lui faire.
-
-le porche TER
-Une couronne a été faite une fois: c'était une couronne
-Et le front et la tête ont saigné sous cette couronne de
-Et le sang perlait par gouttes et le sang s'est collé dans
-les cheveux.
-Mais une couronne aussi a été faite, une mystérieuse
-Une couronne, un couronnement éternel.
-Toute faite, mon enfant, toute faite de souples rameaux
-; sans épines.
-De rameaux bourgeonneux, de rameaux de fin mars.
-De rameaux d'avril et de mai.
-De rameaux flexibles et qui se tressent bien en couronne.
-Sans une épine.
-Bien obéissants, bien conduits sous le doigt.
-Une couronne a été faite de bourgeons et de boutons.
-De bourgeons de fleurs comme un beau pommier, de
-bourgeons de feuilles, de bourgeons de branches.
-De bourgeons de rameaux.
-De boutons de fleurs pour les fleurs et pour les fruits.!
-Toute bourgeonnante, toute boutonnante une couronne
-Toute éternelle, toute en avance, toute gonflée de sève.
-Toute embaumée, toute fraîche aux tempes, toute tendre
-et embaumante.
-Toute faite pour aujourd'hui, pour en avant, pour À
-Pour éternellement, pour après-demain.
-
-Toute faite de pointes menues, de pointes tendres, de
-commencements de pointes.
-Qui sont les pointes des bourgeons, tendres, fraîches,
-Et qui ont l'odeur et qui ont le goût de la feuille et de
-la fleur.
-Le goût de la pousse, le goût de la terre.
-Le goût de l'arbre.
-Et par avance le goût du fruit.
-Pour calmer le pauvre front battant de fièvre, chargé de
-Afin de rattraper, afin de revaloir le couronnement de
-Pour adoucir, pour apaiser, pour calmer, afin de rafraichir les tempes battantes,
-Le front ardent, le front fiévreux,
-Lourd de fièvre, les tempes chaudes, la migraine et
-l'injure, et le mal de tête et pour calmer la dérision
-même.
-Pour apaiser, pour embaumer, pour étancher le sang
-qui se collait dans les cheveux
-Une couronne aussi a été faite, une couronne de sève,
-une couronne éternelle,
-Et c'est la couronne, le couronnement de l'espérance.
-Comme une mère fait un diadème de ses doigts allongés,
-des doigts conjoints et affrontés de ses deux mains
-
-Autour du front brûlant de son enfant PAPNC TRS
-, Pour apaiser ce front brûlant, cette fièvre,
-CES Ainsi une couronne éternelle a été tressée pour apaiser
-Et c'était une couronne de verdure. Ne
-es Une couronne de feuillage. +40
-Il faut avoir confiance en Dieu mon enfant. ME
-Il faut avoir espérance en Dieu.
-Il faut faire confiance à Dieu.:
-Il faut faire crédit à Dieu.
-Il faut avoir cette confiance en Dieu d'avoir espérance
-Il faut faire cette confiance à Dieu d'avoir espérance
-Il faut faire ce crédit à Dieu d'avoir espérance en lui.
-Il faut faire espérance à Dieu.
-à Il faut espérer en Dieu, il faut avoir foi en Dieu, c'est
-A tout un, c'est tout le même.
-‘es 4 Il faut avoir cette foi en Dieu que d'espérer en lui
-Il faut croire en lui, qui est d'espérer.
-
-Il faut avoir confiance en Dieu, il a bien confiance en
-Il faut faire confiance à Dieu, il nous a bien fait confiance
-nous. à
-…._ Il faut faire espérance à Dieu, il nous a bien fait espérance à nous.
-Il faut faire crédit à Dieu, il nous a bien fait crédit à
-Tous les crédits..
-Le 11 faut faire foi à Dieu, il nous a bien fait foi à nous.
-Singulier mystère, le plus mystérieux,
-- Dieu a pris les devants.:
-Ou plutôt ce n'est pas un mystère, propre; ce n'est pas
-…._ un mystère particulier, c'est un mystère qui porte sur
-tous les mystères. RSS
-“l'est un redoublement, c'est un agrandissement à l'in- ne.
-fini de tous les mystères.
-Be. C'est un miracle. Un miracle perpétuel, un miracle ns,
-d'avance, Dieu a pris les devants, un mystère de tous A
-; - les mystères, Dieu a commencé.
-Un miracle de tous les mystères, singulier, mystérieux
-retournement de tous les mystères.
-Tous les sentiments, tous les mouvements que nous LE
-FE: devons avoir pour Dieu, ne:
-— Dieu les a eus pour nous, il a commencé de les avoir {TUE
-pour nous. #4
-
-le porche se
-Singulier retournement qui court au long de tous les
-Et les redouble, et les agrandit à l'infini,
-Il faut avoir confiance en Dieu, mon enfant, il a bien
-: confiance en nous.
-Il nous a fait cette confiance de nous donner, de nous
-confier son fils unique.
-(Hélas hélas pour ce que nous en avons fait).
-Retournement de tout c'est Dieu qui a commencé.
-C'est Dieu qui nous a fait crédit, qui nous a fait con-
-Qui nous a fait créance, qui a foi en nous. à
-Cette confiance sera-t-elle mal placée, sera-t-il dit que
-cette confiance aura été mal placée.
-, Dieu nous a fait espérance. Il a commencé. Il a espéré
-: que le dernier des pécheurs,
-Que le plus infime des pécheurs au moins travaillerait
-quelque peu à son salut,
-Si peu, si pauvrement que ce fût.
-Qu'il s'en occuperait un peu.
-Il a espéré en nous, sera-t-il dit que nous n'espérerons
-pas en lui.
-Dieu a placé son espérance, sa pauvre espérance en
-chacun de nous, dans le plus infime des pécheurs.
-Sera:t-il dit que nous infimes, que nous pécheurs, ce
-sera nous qui ne placerions pas notre espérance en
-
-Dieu nous a confié son fils, hélas hélas, Dieu nous a
-confié notre salut, le soin de notre salut. IL a fait
-dépendre de nous et son Fils et notre salut et ainsi
-son espérance même; et nous ne mettrions pas notre
-espérance en lui.
-Mystère des mystères, portant sur les mystères mêmes,
-Il a mis en nos mains, en nos faibles mains, son espé-
-En nos mains passagères.
-En nos mains pécheresses.
-Et nous, nous pécheurs, nous ne mettrions pas notre
-En ses éternelles mains.
-La parole de Dieu n'est point un écheveau embrouillé.
-C'est un beau fil de laine qui s'empelotte autour du
-Comme il nous a parlé, ainsi nous devons l'écouter.
-Comme il a parlé à Moïse.
-Comme il nous a parlé par Jésus.
-Comme il nous a parlé tout ainsi nous devons l'entendre.
-Or, mon enfant, s'il en est ainsi, si c'est ainsi que nous
-Que nous devons entendre Dieu.
-
-es Alors mon enfant quel tremblement, quel commandePE ment d'espérance.
-ne écrasement. Les paroles sont là.
-RER Il n'y a pas à ratiociner, quelle ouverture sur la pensée
-Pin Sur les intentions, (dernières), de Dieu.
-Le 4 Abîme d'espérance, quelle ouverture, quel éclair, quelle …
-foudre, quelle avenue.
-Paroles irrévocables, quelle ouverture sur l'Espérance
-Dieu a daigné espérer en nous. Espérer que nous. RS.
-EE: Révélation, quelle révélation incroyable. Sic non est,
-Loet Ainsi n'est pas
-ai Espoir incroyable, espoir inespéré Ainsi n'est pas
-è Voluntas ante Patrem vestrum, la volonté devant votre
-CRE Qui cœlis est. Qui est aux cieux.;
-De ces petits. De pusillis istis.
-
-Et il leur fit cette parabole, disant: RENE
-à Quel homme de vous, qui a cent brebis; A. és.
-(Ceci est selon saint Luc); HSE
-…._ Bis'il en perd une, SE.
-Estce qu'il ne renvoie pas, (ne laisse pas), les quatrevingi-dix-neuf dans le désert, 4 ASE
-Quae perierat, qui était périe, qui avait péri, FÉES
-- C'était fait.: ES
-… Il la place sur ses épaules se réjouissant; TRES
-(la pose) sur ses épaules. LTSARSR
-Et venant à la maison, il convoque, (il appelle), ses amis
-etses voisins, leur disant:
-Réjouissez-vous, (félicitez-vous), avec moi, parce que j'ai Ph:
-trouvé ma brebis qui avait péri?
-il y aura autant de joie dans le ciel: PXCES
-Sur un pécheur faisant pénitence,
-Que sur quatre-vingt-dix-neuf justes qui n'ont pas à a
-besoin de pénitence. _2
-
-le porche
-NE qu'est-ce que la pénitence, mon enfant, qu'est-ce
-qu'il y a donc dans la pénitence. Quelle est donc cette
-à vertu secrète de la pénitence.
-Mon enfant c'est singulier, c'est étrange, c'est inquiétant.
-Qu'est-ce qu'il y a donc d'extraordinaire dans cette
-À 7% Comme c'est inquiétant.
-a Quelle est cette vertu, ce secret, qu'est-ce qu'il faut
-Dans la pénitence,
-pour que ce pécheur,
-Pour que un vaille cent, ou enfin quatre-vingt-dix-neuf,
-2 (Pour compter juste),
-, Pour que ce pécheur vaille autant,
-Pour que ce pécheur, ce seul pécheur qui fait pénitence
-vaille autant, réjouisse, fasse autant de joie dans le
-ù ciel que quatre-vingt-dix-neuf justes qui n'ont pas À
-besoin de pénitence. "4
-Et pour que cette brebis égarée fasse tant de joie au
-Qu'il en laisse dans le désert, deserto, dans un endroit
-? Les quatre-vingt-dix-neuf qui ne s'étaient point égarées.
-En quoi, quel est donc ce mystère,
-En quoi un peut-il valoir quatre-vingt-dix-neuf.
-Ne sommes-nous pas tous enfants de Dieu. Également
-sur le même pied.
-En quoi, comment, pourquoi une brebis vaut-elle
-
-Et surtout pourquoi c'est justement celle qui s'est égarée,
-qui avait péri, qui vaut justement les quatre-vingtdix-neuf autres, les quatre-vingt-dix-neuf qui ne
-s'étaient pas égarées.
-Pourquoi, quel est ce mystère, quel est ce secret, c'est
-suspect, comment, pourquoi, en quoi une âme vaudrait-elle quatre-vingt-dix-neuf âmes, c'est un peu fort.
-C'est tout de même un peu fort, quand on y pense.
-Quelle est cette manigance.
-C'est justement cette âme qui était perdue, qui avait
-péri, qui vaut autant, qui fait autant de joie dans le
-A ciel que ces quatre-vingt-dix-neuf autres.
-Que ces quatre-vingt-dix-neuf qui ne s'étaient point
-Qui ne s'étaient point perdues, qui n'avaient point péri.
-Qui étaient demeurées fermes.
-C'est injuste. Quelle est cette invention, cette nouvelle
-C'est injuste. Voilà une âme, (et c'est justement celle
-qui s'était perdue), qui vaut autant, qui compte autant,
-qui réjouit autant que ces quatre-vingt-dix-neuf
-malheureuses qui étaient demeurées constantes.
-Pourquoi; en quoi; comment. Voilà un qui pèse autant
-dans la balance de Dieu que quatre-vingt-dix-neuf.
-Qui pèse autant? Peut-être qui pèse plus. En secret. On
-ne sait jamais. J'ai bien peur. Secrètement on a l'impression qu'il pèse plus, quand on lit cette parabole.
-Donc voilà un pécheur, disons-le, qui pèse au moins
-autant que quatre-vingt-dix-neuf justes.
-
-le porche - LIRE
-Qui pèse même peut-être plus. On ne sait jamais. Quand
-une fois on est entré dans l'injustice. 2"
-5-4 Disons le mot voilà un infidèle, il faut le dire, il ne faut
-pas avoir peur du mot. au:
-Qui vaut plus que cent, que quatre-vingt-dix-neuf à
-fidèles. Quel est ce mystère.
-Quelle serait donc cette vertu extraordinaire de la
-- Qui passerait cent fois la fidélité même.
-A Il ne faut pas nous en conter. Nous savons très bien
-ce que c'est que la pénitence.
-Un pénitent c'est un monsieur qui n'est pas très fier de
-Qui n'est pas très fier de ce qu'il a fait.
-Parce que ce qu'il a fait, il faut le dire, c'est le
-À Un pénitent c'est un monsieur qui a honte de soi et de
-son péché.
-Le Qui voudrait bien se terrer. Ye:
-EN Surtout qui voudrait bien ne pas l'avoir fait.
-Se cacher, se sauver de la face de Dieu.
-Es Et qu'est-ce aussi que cette drachme qui vaut neuf
-ANEX drachmes, à elle toute seule.
-Qu'est-ce qu'elle vient faire.
-à Et pourtant c'est celui-là, nul autre, c'est cette brebis,
-c'est ce pécheur, c'est ce pénitent, c'est cette âme à
-Que Dieu, que Jésus rapporte sur ses épaules, aban- …
-donnant les autres.
-
-Enfin je veux dire (seulement) les laissant pendant ce
-A temps à elles-mêmes.
-La pénitence, nous le savons, n'est déjà pas si brillant que ça.
-LE n'est pas si reluisant,.;
-à (Il est vrai que Dieu ne quitte jamais personne).,
-C'est un sentiment honteux, je veux dire un sentiment
-PS: d'une honte.
-D'une honte légitime et due. 1 » En somme c'est un acte honteux.
-La pénitence n'est déjà pas si malin que ça. Alors
-Non seulement ce pénitent en vaut un autre, non seuleF ment il vaut un juste, ce qui serait déjà un peu
-Mais il en vaut quatre-vingt-dix-neuf, il en vaut cent, il
-vaut tout le troupeau.;
-: Autant dire.
-Dans le besoin on sent qu'il vaudrait plus et qu'on
-l'aimerait davantage
-Dans le secret du cœur.
-Dans le secret du cœur éternel. Alors quoi.
-. Mon enfant, mon enfant, tu le sais, quoi. C'est justement cela.
-C'est qu'elle avait péri; et qu'elle a été trouvée.
-C'est qu'elle était morte; et qu'elle a revécu.:
-C'est qu'elle était morte et qu'elle est ressuscitée. à
-Puisqu'il faut tout prendre au pied de la lettre, mon:
-
-Littéralement comme Jésus était mort et est ressuscité À
-4 d'entre les morts,
-an Ainsi cette brebis était perdue, ainsi cette brebis était
-. Ainsi cette âme était morte et de sa propre mort elle
-: est ressuscitée d'entre les mortes.
-Elle a fait trembler le cœur même de Dieu.
-: Du tremblement même de la peur.
-Du tremblement d'une inquiétude
-Et en suite, et ainsi, et aussi.
-De ce qui est lié à la crainte, à la peur, à l'inquiétude.
-De ce qui suit la crainte, la peur, l'inquiétude.;
-De ce qui marche avec elles, de ce qui est lié à la.
-D'une liaison indéliable, d'une liaison indéfaisable,
-Temporelle, éternelle, d'un indéfaisable lien
-Elle a fait trembler le cœur de Dieu
-Du tremblement même de l'espérance.
-Elle a introduit au cœur même de Dieu la théologale
-Voilà, mon enfant, quel secret. Voilà quel mystère.;
-. Voilà quelle grandeur, (cachée), quelle source inrs croyable de grandeur il y a dans cette pénitence.
-
-— Dans cette honteuse pénitence. Secrètement, publique-
-- ment honteuse et réellement
-- Peut-être la plus glorieuse de toutes. C'est qu'une pénitence de l'homme
-. Est un couronnement d'une espérance de Dieu.
-Cette honteuse pénitence, honteuse de soi, et qui ne sait
-. où se cacher,
-Où cacher sa tête, honteuse, sa tête rouge de honte,
-pourpre de honte,
-Sa tête couverte de cendre et de terre,
-… En signe de honte et de repentir,
-Où cacher sa honte et son péché.
-Mais Dieu n'a point honte d'elle.
-Car l'attente de cette pénitence,
-L'attente anxieuse, l'espérance de cette pénitence
-A fait jouer l'espérance au cœur de Dieu,
-A fait surgir un sentiment nouveau,
-Presque inconnu, comme inconnu, je sais bien ce que
-je veux dire,
-A fait sourdre, a fait battre un sentiment comme
-inconnu au cœur même de Dieu.
-Au cœur comme nouveau.
-D'un Dieu comme nouveau. Je m'entends, je sais ce que
-je veux dire.
-D'un Dieu éternellement nouveau.
-Et cette pénitence même
-A été pour lui, en lui, le couronnement d'une espérance
-
-le porche FSPISRES
-Car tous les autres Dieu les aime en amour. RS:
-É Mais cette brebis Jésus l'a aimée aussi en espoir.
-Et tous les autres, tout le monde Dieu nous aime en
-Il faut tout prendre au pied de la lettre, mon enfant.
-Dieu a espéré, Dieu a attendu de lui..
-Dieu, qui est tout, a quelque chose à espérer, de lui,.
-point, il s'est mis à ce point, sur ce pied d'avoir à
-espérer, à attendre de ce misérable pécheur.
-Telle est la force de vie de l'espérance, mon enfant,
-La force de vie, la promesse, la vie, la force de vie et
-de promesse qui source au cœur de l'espérance
-Et qui rejaillit dans la pénitence même,
-Dans la basse pénitence.
-Telle la force unique de sève au cœur d'un chêne.
-Nous sommes tous enfants de Dieu, mon enfant, également; sur le même pied.
-Il faut tout entendre au pied de la lettre, mon enfant, «
-
-a littéralement cette âme qui a fait jouer l'espérance de
-Dieu, qui a couronné l'espérance de Dieu.
-Comme Jésus morte (plus morte que Jésus) de sa propre
-: mort est ressuscitée d'entre les mortes.
-BE: (Plus morte que Jésus, infiniment plus morte, éternelleF4 ment plus morte, car elle était morte de la mort
-Comme Jésus elle est ressuscitée d'entre les morts.
-Ê:. Et comme nous sonnons nos Pâques à toute volée pour
-célébrer la résurrection de Jésus,
-Christ est ressuscité!
-ES. 4 Ainsi Dieu pour chacune âme qui se sauve sonne pour
-<4 nous des Pâques éternelles.
-Etildit: Je l'avais bien dit.
-
-Singulier renversement, singulier retournement, c'est le
-Ê monde à l'envers.
-Vertu de l'espérance.
-Tous les sentiments que nous devons avoir pour Dieu,;
-LA C'est Dieu qui a commencé de les avoir pour nous.
-a C'est lui qui s'est mis à ce point, sur ce pied, qui
-été mis, qui a souffert d'y être mis, à ce point, sur ce
-Es ne pied, de commencer de les avoir pour nous.
-Singulière vertu de l'espérance, singulier mystère, elle
-n'est pas une vertu comme les autres, elle est une
-vertu contre les autres.
-Elle prend le contre-pied de toutes les autres. Elle
-de s'adosse pour ainsi dire aux autres, à toutes les autres,
-
-le porche
-Et elle leur tient tête. A toutes les vertus. A tous les
-Elle les remonte pour ainsi dire, elle à contre courant.
-; Elle remonte le courant des autres.
-Elle n'est point une esclave, cette enfant est une forte
-Elle réplique pour ainsi dire à ses sœurs; à toutes les
-vertus, à tous les mystères.
-Quand ils descendent elle remonte, (c'est très bien fait),
-Quand tout descend seule elle remonte et ainsi elle les
-: double, elle les décuple, elle les agrandit à l'infini.
-C'est elle qui a fait ce renversement, ce retournement
-le plus fort de tout,
-(C'est peut-être ce qu'elle a fait de plus fort),
-(Qui eût cru que tant de pouvoir, qu'un pouvoir
-suprême était donné à cette petite
-Ce retournement que tout ce que nous devons faire
-é pour Dieu,;
-C'est Dieu qui prend les devants, qui commence de le
-faire pour nous.
-Tout ce que nous devons lui dire, lui faire, faire envers
-Et tout ce que nous devons avoir pour Dieu,
-C'est Dieu qui commence par l'avoir pour nous.
-Celui qui aime se met, par cela même,
-
-Par cela seulement, dès par cela dans la dépendance,
-
-Celui qui aime tombe dans la servitude de celui qui est
-
-C'est l'habitude, c'est la loi commune.
-
-C'est fatal.
-
-Celui qui aime tombe, se met sous la servitude, sous
-un joug de servitude.
-
-Il dépend de celui qu'il aime.
-
-C'est pourtant cette situation-là, mon enfant, que Dieu
-s'est faite, en nous aimant.
-
-Dieu a daigné espérer en nous, puisqu'il a voulu
-
-espérer de nous, attendre de nous.:
-
-Situation misérable, (en) récompense de quel amour,
-
-« Gage, rançon de quel amour.
-
-Singulière récompense. Et qui était dans la condition,
-
-; dans l'ordre même, dans la nature de cet amour.
-
-; Il s'est mis dans cette singulière situation, retournée,
-dans cette misérable situation que c'est lui qui
-attend de nous, du plus misérable pécheur.
-
-Qui espère du plus misérable pécheur.
-
-Qui ainsi dépend du plus misérable pécheur.
-
-Et nous.
-
-Voilà où il s'est laissé conduire, par son grand amour,
-voilà où il s'est mis, où il a été mis, où enfin il s'est
-
-Où nous devons être, c'est lui qui s'est mis.
-
-A ce point, sur ce pied.
-
-Qu'il a à craindre, à espérer, enfin à attendre du
-dernier des hommes.
-
-Qu'il est aux mains du dernier des pécheurs.
-
-(Mais le corps de Jésus, dans toute église, n'est-il pas
-aux mains du dernier des pécheurs.:
-A la merci du dernier des soldats) À
-Qu'il a à redouter, tout, de nous.
-(Qu'il ait à redouter, c'est déjà trop, c'est déjà tout),
-(Si peu que ce fût, et ici c'est tout)
-: (Si peu que ce fût, quand ce ne serait presque rien, rien
-pour ainsi dire) à
-Telle est la situation où Dieu par la vertu de l'espé-.
-Pour faire le jeu de l'espérance,
-S'est laissé mettre
-En face du pécheur.
-; Il craint de lui, puisqu'il craint pour lui.
-ee: Tu comprends, je dis: Dieu craint du pécheur, puisqu'il craint pour le pécheur.
-Quand on craint pour quelqu'un, on craint de ce quel-
-C'est à cette loi commune que Dieu s'est laissé mettre. À
-A ce niveau commun.;
-C'est à cette loi commune qu'il a souffert d'être mis.
-Il faut qu'il attende le bon plaisir du pécheur.
-, Il s'est mis sur ce pied.
-Il faut qu'il espère dans le pécheur, en nous.
-Il faut, c'est insensé, il faut qu'il espère que nous nous
-Il ne peut rien faire sans nous.
-Il faut qu'il écoute nos fantaisies.
-Il faut qu'il attende que monsieur le pécheur veuille
-. bien un peu penser à son salut.
-
-Voilà la situation que Dieu s'est faite.
-Gelui qui aime tombe sous la servitude de celui qui est
-Celui qui aime tombe sous la servitude de celui qu'il
-Dieu n'a pas voulu échapper à cette loi commune.
-, Et par son amour il est tombé dans la servitude du
-… Retournement de la création, c'est la création à l'envers.
-Le Créateur à présent dépend de sa créature.
-Celui qui est tout s'est mis, a souffert d'être mis, s'est
-laissé mettre sur ce niveau.
-Celui qui est tout dépend, attend, espère de ce qui n'est
-Celui qui peut tout dépend, attend, espère de ce qui ne
-(Et qui peut tout, hélas, car on lui a tout remis,
-On lui a tout confié,
-On lui a tout donné,
-On lui a tout remis, en mains, dans ses mains pécheresses,
-On lui a tout permis.
-En toute confiance.
-On lui a remis, on lui a permis son propre salut, le
-corps de Jésus, l'espérance de Dieu.
-
-le porche
-Dieu s'est mis sur ce pied. Comme la plus misérable
-Soufileter librement la face de Jésus,
-Ainsi la dernière des créatures peut faire mentir Dieu
-Ou lui faire dire vrai.
-Comme Jésus dans les siècles des siècles a remis son
-Dans les pauvres églises
-A la discrétion du dernier des soldats,.
-Ainsi Dieu dans les siècles des siècles a remis son
-A la discrétion du dernier des pécheurs:
-Comme la victime se rend aux mains du bourreau,
-Ainsi Jésus s'est livré en nos mains.
-Comme la victime se livre au bourreau,
-Ainsi Jésus s'est livré à nous.,
-Et comme le prisonnier se livre au gardien de prison,
-Ainsi Dieu s'est livré à nous.,
-Comme le dernier des misérables a souffleter Jésus,
-Ainsi le dernier des pécheurs, un malheureux infirme,
-Le plus infime des pécheurs peut faire avorter, peut
-faire aboutir;
-Une espérance de Dieu;
-Le plus infime des pécheurs peut découronner, peut
-Une espérance de Dieu.
-
-- Et c'est de nous que Dieu attend
-Le couronnement ou le découronnement d'une espérance de lui.
-Le Créateur a besoin de sa créature, s'est mis à avoir
-besoin de sa créature.
-Il ne peut rien faire sans elle.
-C'est un roi qui aurait abdiqué aux mains de chacun
-de ses sujets
-Simplement le pouvoir suprême.
-- Dieu a besoin de nous, Dieu a besoin de sa créature.
-Il s'est pour ainsi dire condamné ainsi, condamné à cela.
-Il manque de nous, il manque de sa créature.
-Celui qui est tout a besoïn de ce qui n'est rien.
-Celui qui peut tout a besoin de ce qui ne peut rien.
-Il a remis ses pleins pouvoirs.
-Celui qui est tout n'est rien sans celui qui n'est rien.
-Celui qui peut tout ne peut rien sans celui qui ne peut
-Ainsi la jeune espérance
-Redresse tous les mystères
-Comme elle redresse toutes les vertus.
-Nous pouvons lui manquer.
-
-Fais Ne pas répondre à son appel. FRE
-Ne pas répondre à son espérance. Faire défaut. Man- Sa
-. quer. Ne pas étre là. Re.
-ES Les calculs de Dieu par nous peuvent ne pas tomber
-Les prévisions, les prévoyances, les providences de
-Par nous peuvent ne pas tomber juste, à à
-‘Les conseils de Dieu par nous peuvent manquer. Se
-La sagesse de Dieu par nous peut défaillir.
-rev Effrayante liberté de l'homme. "5
-per Nous pouvons faire tout manquer. SE
-8 Nous pouvons être absents. à
-(4 Ne pas être le jour qu'on nous appelle.:
-Nous pouvons ne pas répondre à l'appel
-(Excepté dans la vallée du Jugement) a
-Ù Le Nous pouvons manquer à Dieu.
-Hit Voilà le cas où il s'est mis, "3
-MINES Il s'est mis dans le cas d'avoir besoin de nous.
-Bien, mal placée, cela dépend de nous.
-Le quelle force incurable d'espérance.
-pee En nous.
-È Quel dépouillement, de soi, de son pouvoir. «
-
-Nous pouvons faire défaut.
-Nous pouvons faire faute.:
-Nous pouvons être défaillants. à Er, À
-ï Celui qui fait tout s'adresse à celui qui ne peut rien: à
-Celui qui fait tout a besoin de celui qui ne fait rien.
-Et comme nous sonnons à toutes volées nos Pâques,
-Dans nos pauvres, dans nos triomphantes églises,.
-Dans le soleil et le beau temps du jour de Pâques,
-Ainsi Dieu pour chacune âme qui se sauve ge:
-Sonne à pleine volée des Pâques éternelles.
-Es Et dit: Hein, je ne m'étais pas trompé.
-J'avais raison d'avoir confiance dans ce garçon-là.
-C'était une bonne nature. Il était de bonne race.:
-Fils de bonne mère. C'était un Français.
-J'ai raison de lui faire confiance.
-Et nous nous avons nos dimanches,
-Notre beau dimanche, le dimanche de Pâques,
-Et même le mardi de Pâques, qui est aussi fête,:
-Tellement la fête est grande.
-(C'est la fête de saint Loup).:
-Mais Dieu a aussi ses dimanches dans le ciel.
-Son dimanche de Pâques.
-
-le porche
-Et il a aussi des cloches, quand il veut.;
-Et qu'est-ce que c'est aussi que ces dix drachmes.
-LARGES Qui est comme qui dirait dix livres parisis.
-Qu'est-ce que c'est encore que cette affaire des dix
-Qu'est-ce qu'elle vient faire ici cette drachme qui en
-Drôle de calcul, comme qui dirait une livre parisis qui;
-Neuf autres de la même. Quelle drôle d'arithmétique.
-: C'est pourtant ainsi, mon enfant, que sont faits les
-« comptes de Dieu.
-; Ainsi étaient faits, mon enfant, les comptes de Jésus. Il:
-; est indéniable; il ne fait aucun doute qu'il y a deux
-; races de saints dans le ciel.
-Deux sortes de saints.
-(Heureusement qu'ils font bon ménage ensemble).
-De même que les soldats du roi et les capitaines
-Sont d'une race ou d'une autre mais sont tous des
-Et ils font tout de même une seule armée.
-; Et ils sont tous les soldats (de l'armée) du roi, et les
-Mais enfin ils proviennent d'une province ou d'une autre.
-Ou d'une marche, Les uns de l'une, les autres de l'autre.
-
-Ê Ou d'outre Loire ou de par ici de la Loire.
-Ainsi, (et autrement), il faut le dire il y il faut dire
-3 le mot il y a deux races de saints dans le ciel.
-Deux races temporelles.
-É Deux sortes de saints.
-Tout le monde est pécheur. Tout homme est pécheur.
-Mais enfin il y a deux grandes races, il y a deux
-Il y a un double recrutement des saints qui sont dans à
-le ciel.
-y a ceux qui viennent, il y a ceux qui sortent des
-Et il y a ceux qui sortent des pécheurs.
-Et c'est une entreprise difficile.
-C'est une entreprise impossible à l'homme.
-, Que de savoir quels sont les plus grands saints.;
-Ils sont tellement grands les uns et les autres..
-Il y a deux extractions (et tous pourtant, ensemble,
-également ils sont des saints dans le ciel. Sur le:
-même pied) (Des saints de Dieu)
-Il y a deux extractions, ceux qui viennent des justes et
-ceux qui viennent des pécheurs.
-Ceux qui n'ont jamais inspiré d'inquiétudes sérieuses
-Et ceux qui ont inspiré une inquiétude
-Ceux qui n'ont pas fait jouer l'espérance et ceux ont À
-fait jouer l'espérance.
-Ceux dont on n'a jamais rien craint, rien redouté de
-
-Mae sérieux, et ceux dont on a failli désespérer, Dieu
-nous en garde. FFE
-
-Ceux dont on n'a jamais rien entendu dire. SE
-FAN Et ceux dont on a entendu dire Me
-sa deux races de saints dans le ciel.
-
-'$TRs Les saints de Dieu sortent de deux écoles. EE.
-dev. De l'école du juste et de l'école du pécheur. +72
-
-De la vacillante école du péché.
-ni: Heureusement que c'est toujours Dieu qui est le maître
-
-JIlya ceux qui viennent des justes et il y a ceux qui
-
-viennent des pécheurs.
-
-Heureusement qu'il n'y a aucune jalousie dans le ciel. …
-
-ITA Puisqu'il y a la communion des saints.
-HÉNUS Heureusement qu'ils ne sont point jaloux les uns des
-
-autres. Mais tous ensemble au contraire ils sont fiés
-comme les doigts de la main.
-Car tous ensemble ils passent tout leur temps toute À
-1 leur sainte journée ensemble à comploter contre Dieu.
-: Pour que pied à pied la Justice
-Pas à pas cède le pas à la Miséricorde.
-Ils font violence à Dieu. Comme des bons soldats ils;;
-
-… (Is font la guerre à la justice
-…._ (Ils sont bien forcés)
-À Pour le salut des âmes périclitantes.
-Ils tiennent bon. Tout müûs, tout animés d'espérance,
-(Mais aussi ils en ont un appui, un patronage, une
-Quel patron, mes enfants, et quelle patronne.
-
-Quel (autre) complot au-dessus d'eux, couvrant leur
-Patronnant leur grand complot. Mes
-
-Quelle avocate auprès de Dieu.
-Car nos patrons et nos saints, nos patrons les saints; à
-
-Ont eux-mêmes un patron et une patronne.
-Un saint et une sainte.
-Qui est autant
-Se (Et septante fois autant) au-dessus d'eux qu'ils sont
-au-dessus de nous
-
-le porche; à
-Qui est pour eux ce qu'ils sont pour nous, et septante
-fois ce qu'ils sont pour nous.
-Telle est la folie de l'espérance.
-Et couverts, encouragés par ce haut complot,
-Par la protection de ce haut complot,:
-Tout nourris d'espérance ils tiennent bon comme des
-Ils luttent pied à pied, ils défendent le terrain pied à pied.
-; On ne peut pas imaginer tout ce qu'ils font, tout ce
-qu'ils inventent
-Pour le salut des âmes périclitantes.
-Lambeau à lambeau ils vous arrachent
-Au royaume de perdition
-Ainsi Dieu n'a pas voulu, à
-ne lui a pas plu,
-Que dans le concert il n'y eût qu'une voix.
-Et à son contentement.
-Il n'a pas voulu être loué d'une seule voix
-Par un seul chœur
-Mais comme dans une église de campagne il y a plusieurs voix
-Par exemple les hommes et les femmes. ds:
-Ou encore les hommes et les enfants.
-
-, Ainsi dans le ciel il a plu, il a été agréable à sa sagesse.
-Et à son contentement.
-D'être loué, d'être chanté, d'être combattu par deux woix.
-Par deux langages, par deux chœurs.
-; Par les anciens justes et par les anciens pécheurs.
-Pour que pied à pied la Justice reculât
-Devant la Miséricorde.
-Et que la Miséricorde avance.
-Et que la Miséricorde gagne.
-s'en mélait pas,
-Ou quelle femme ayant dix drachmes,
-(C'est encore selon saint Luc, mon enfant,
-Si elle a perdu une drachme,
-: Si elle en perd une,
-Est-ce qu'elle n'allume pas sa chandelle,
-Et balaye sa maison,
-Jusqu'à ce qu'elle trouve?
-Et quand elle a trouvé,
-Elle convoque ses-amies et ses voisines,
-(Is convoquent tout le temps leurs amis et leurs voisins,
-dans ces paraboles),
-Réjouissez-vous avec moi,
-Parce que j'ai trouvé la drachme que j'avais perdue.
-
-- Ainsi.je vous le dis,; “4
-De Il y aura de la joie devant les anges de Dieu,
-Le Sur un pécheur faisant pénitence.
-Il y avait une grande procession; en tête s'avançaient é les trois Similitudes; “3
-la parabole de la brebis égarée;
-la parabole de la drachme égarée
-À la parabole de l'enfant égaré. ne.
-autant qu'un enfant est plus cher qu'une brebis,
-Et infiniment plus cher qu'une drachme,
-Autant qu'un enfant est plus cher au cœur du père,
-(De son père qui est en même temps, qui est déjà,
-d'abord, qui est premièrement son pasteur),
-; Qu'une brebis même n'est chère au cœur du (bon)
-Autant la troisième Similitude, "4
-Autant la parabole de l'enfant égaré
-Est encore plus belle si possible et plus chère,
-Est encore plus grande que les deux Similitudes anté-
-Que la parabole de la brebis égarée,
-Et que la parabole de la drachme égarée,
-
-Toutes les paraboles sont belles, mon enfant, toutes les de
-paraboles sont grandes, toutes les paraboles sont
-Toutes les paraboles sont la parole et le Verbe,
-La parole de Dieu, la parole de Jésus.;
-Elles sont toutes également, elles sont toutes ensemble À
-La parole de Dieu, la parole de Jésus.
-: Sur le même pied.
-(Dieu s'est mis dans ce cas, mon enfant,
-ï Dans ce mauvais cas,
-D'avoir besoïn de nous)
-Toutes elles viennent du cœur, également, et elles vont
-Elles parlent au cœur.
-… Mais entre toutes les trois paraboles de l'espérance
-Et entre toutes elles sont grandes et fidèles, entre toutes
-- elles sont pieuses et affectueuses, entre toutes elles
-sont belles, entre toutes elles sont chères et près du se
-… Entre toutes elles sont près du cœur de l'homme, entre
-toutes elles sont chères au cœur de l'homme.
-Elles ont on ne sait quelle place à part.
-Elles ont peut-être en elles on ne sait quoi qui n'est pas, HAE;
-qui ne serait pas dans les autres.
-C'est peut-être qu'elles ont en elles comme une jeunesse,
-comme une enfance ignorée.
-
-Entre toutes elles sont jeunes, entre toutes elles sont
-fraîches, entre toutes elles sont enfants, entre toutes
-elles sont inusées..
-Depuis treize et quatorze siècles qu'elles servent, et
-depuis deux mille ans, et dans les siècles des siècles;
-jeunes comme au premier jour.;
-Enfants comme au premier jour.
-Et depuis treize cents ans qu'il y a des chrétiens et quatorze cents ans,
-Ces trois paraboles, (que Dieu nous pardonne),
-Ont une place secrète dans le cœur.
-Et que Dieu nous pardonne tant qu'il y aura des chré-
-Aussi longtemps c'est-à-dire éternellement,
-Dans les siècles des siècles il y aura pour cestroispara-.;
-Une place secrète dans le cœur.
-Et toutes les trois elles sont les paraboles de l'espé-
-Entre elles.
-Sœurs entre elles comme trois enfants toutes jeunes.
-
-j. Et comme plus intérieures que toutes les autres.
-Répondant comme à une voix intérieure plus profonde.
-Mais entre toutes; entre toutes les trois voici la troisième
-e. parabole qui s'avance.
-Et celle-là, mon enfant, cette troisième parabole de
-l'espérance,
-Non seulement elle est neuve comme au premier jour.
-Comme les deux autres
-Et dans les siècles elle sera neuve,
-Aussi neuve jusqu'au dernier jour.
-Mais depuis quatorze cents, depuis deux mille ans qu'elle
-Et qu'elle fut contée à des hommes innombrables,
-(Depuis cette première fois qu'elle fut contée),
-A des chrétiens innombrables,
-A moins d'avoir un cœur de pierre, mon enfant, qui
-l'entendrait sans pleurer.
-Depuis quatorze cents, depuis deux mille ans elle a fait
-pleurer des hommes innombrables.
-Dans les siècles et dans les siècles.
-Elle a touché dans le cœur de l'homme un point unique,
-un point secret, un point mystérieux.
-(Elle a touché au cœur).
-Un point inaccessible aux autres.
-On ne sait quel point comme plus intérieur et plus profond.
-Des hommes innombrables, depuis qu'elle sert, des
-chrétiens innombrables ont pleuré sur elle,.
-moins d'avoir un cœur de pierre).
-
-Ont pleuré par elle. ET
-ta Dans les siècles des hommes pleureront.
-Rien que d'y penser, rien que de la voir qui pourrait.
-Qui saurait retenir ses larmes. À
-Dans les siècles, dans l'éternité des hommes pleureront
-à sur elle; par elle,
-Dans l'éternité jusqu'au jugement. Se.
-; Au jugement même, dans le jugement. Et
-, C'est La parole de Jésus qui a porté le plus loin, mon
-C'est celle qui a la plus haute fortune
-ne Elle a éveillé dans le cœur on ne sait quel point de
-Aussi elle a une fortune
-Elle est célèbre même chez les impies.
-A Elle y a trouvé, même, un point d'entrée. Et
-Seule peut-être elle est restée plantée au cœur del'impie
-Comme un clou de tendresse.
-il dit: Un homme avait deux fils:
-Et celui qui l'entend pour la centième fois,;
-- C'est comme si c'était la première fois.
-à Qu'il l'entendrait.
-Un homme avait deux fils. Elle est belle dans Luc, Elle
-est belle partout.
-Elle n'est que dans Luc, elle est partout. ni,
-Elle est belle sur la terre et dans le ciel. Elle est belle
-
-Rien que d'y penser, un sanglot vous en monte à la
-C'est la parole de Jésus qui a le plus grand reten-;
-Dans le monde.
-Qui a trouvé la résonance la plus profonde:
-Dans le monde et dans l'homme.
-Au cœur de l'homme.
-… Quel point sensible a-t-elle trouvé
-… Que nulle n'avait trouvé avant elle,;
-Que nulle n'a trouvé, (autant), depuis,
-Insoupçonné encore,
-… Point de douleur, point de détresse, point d'espérance.
-Point de meurtrissure au cœur de l'homme.
-Point où il ne faut pas appuyer, point de cicatrice,
-point de couture et de cicatrisation.
-Où il ne faut pas que l'on appuie. à
-_Attachement unique, liaison du cœur fidèle,
-… Et du cœur infidèle.
-
-le porche FAR
-: Toutes les paraboles sont belles, mon enfant, toutes les:
-paraboles sont grandes.
-Et notamment les trois paraboles de l'espérance.
-Et toutes les trois paraboles de l'espérance en outre;
-sont jeunes, mon enfant.
-. Mais sur celle-ci des centaines et des milliers d'hommes ont pleuré.
-Des centaines de milliers d'hommes.
-Battus des mêmes sanglots pleuré les mêmes larmes.
-; Se recommençant les uns les autres.
-Roulés des mêmes sanglots
-Dans une communion de larmes.
-Couchés, penchés, soulevés des mêmes sanglots pleuré
-les mêmes larmes.
-Secoués des mêmes sanglots.
-Pleuré comme des enfants. )
-Un homme avait deux fils. De toutes les paroles de Dieu
-C'est celle qui a éveillé l'écho le plus profond.
-Le plus ancien.;
-Le plus vieux, le plus neuf.
-Le plus nouveau.
-Un point d'écho unique.
-: C'est la seule que le pécheur n'a jamais fait taire dans
-son cœur,
-
-: 4 Quand une fois cette parole a mordu au cœur
-Le cœur infidèle et le cœur fidèle,
-Nulle volupté n'effacera plus
-La trace de ses dents.
-Telle est cette parole. C'est une parole qui accom2 pagne. -
-É Elle suit comme un chien
-è Que l'on bat, mais qui reste.
-Comme un chien maltraité, qui revient toujours.
-Fidèle elle reste, elle revient comme un chien fidèle.
-Vous avez beau lui donner des coups de pied et des
-à coups de bâton.
-ù Fidèle elle-même d'une fidélité
-Ainsi elle accompagne l'homme dans ses plus grands
-C'est elle qui enseigne que tout n'est pas perdu.
-Il n'entre pas dans la volonté de Dieu
-Qu'un seul de ces petits périsse.
-C'est un chien fidèle
-Qui mord et qui lèche
-Et les deux retiennent
-Quand le pécheur s'éloigne de Dieu, mon enfant,
-A mesure qu'il s'éloigne, à mesure qu'il s'enfonce dans
-les pays perdus, à mesure qu'il se perd
-Il jette au bord du chemin, dans la ronce et dans les
-Comme inutiles et embarrassants et qui l'embêtent les
-biens les plus précieux. Les biens les plus sacrés.
-La parole de Dieu, les plus purs trésors.
-
-le porche Le
-) Mais il y a une parole de Dieu qu'il ne rejettera point.
-Sur laquelle tout homme a pleuré tant de fois.:
-: Sur laquelle, par la vertu de laquelle. Par laquelle
-Et il est comme les autres, il a pleuré aussi.;
-Il est un trésor de Dieu, quand le pécheur s'éloigne
-Dans les ténèbres grandissantes.
-Quand des ténèbres
-Voilent ses yeux il est un trésor de Dieu qu'ilnejettera
-1 point aux ronces de la route
-Car c'est un mystère qui suit, c'est une parole qui suit …
-Dans les plus grands à
-On n'a pas besoin de s'occuper d'elle, et de la porter.
-Cest elle
-C'est elle qui suit, c'est une parole à la suite, c'est un
-trésor qui accompagne. -
-Les autres paroles de Dieu n'osent pas accompagner
-l'homme à
-; Dans ses plus grands
-Mais en vérité celle-ci est une dévergondée.
-Elle tient l'homme au cœur, en un point qu'elle sait, et “4
-ne le lâche pas.
-Elle n'a pas peur. Elle n'a pas honte. Ne.
-Et si loin qu'aille l'homme, cet homme qui se perd, À
-En quelque pays, À
-Loin du foyer, loin du cœur,
-
-Et quelles que soient les ténèbres où il s'enfonce,
-Les ténèbres qui voilent ses yeux,
-Toujours une lueur veille, toujours une flamme veille,
-: un point de flamme.
-Toujours une lumière veille qui ne sera jamais mise
-… sous le boisseau. Toujours une lampe.
-à Toujours un point de douleur cuit. Un homme avait
-De deux fils. Un point qu'il connaît bien.
-A Dans la fausse quiétude un point d'inquiétude, un point
-4 d'espérance. Toutes les autres paroles de Dieu sont
-pudiques. Elles n'osent point accompagner l'homme
-Es dans les hontes du péché.
-Elles ne vont pas assez avant.
-Dans le cœur, dans les hontes du cœur.
-— Mais celle-ci en vérité n'est pas honteuse.
-On peut dire qu'elle n'a pas froid aux yeux.
-… C'est une petite sœur des pauvres qui n'a pas peur de
-manier un malade et un pauvre.
-Elle a pour ainsi dire
-— Et même réellement porté un défi au pécheur.
-Elle lui a dit: Partout"où tu iras, j'irai.
-On verra bien.
-- Avec moi tu n'auras pas la paix.
-Je ne te laisserai pas la paix. -
-Et c'est vrai, et lui le sait bien. Et au fond il aime son
-Tout à fait au fond, très secrètement.
-Car tout à fait au fond, au fond de sa honte et de son
-péché il aime (mieux) ne pas avoir la paix. Cela le À
-rassure un peu.
-
-le porche
-Un point douloureux demeure, un point de pensée, un
-point d'inquiétude. Un bourgeon d'espérance.
-Une lueur ne s'éteindra point et c'est
-la Parabole troisième,
-4 la tierce parabole de l'espérance. Un homme avait deux
-Il y avait une grande procession. En tête les trois « Similitudes
-_s'avançaient. La foi, dit Dieu, n'est pas malin.
-Tout le monde croit. Je voudrais bien voir comment ils -
-Oui je voudrais savoir comment ils feraient pour ne pas
-Comment ils s'y prendraient.
-J'éclate tellement dans ma création.,
-Jusque dans Îles gouffres de la mer et dans les abîimes
-Dans les profondeurs des gouffres. à
-Dans les éclairs et dans la foudre d'un ciel d'orage, À
-Quand le ciel est lourdement chargé, 4]
-Qui sont comme une déchirure du ciel.
-Et dans le fracas du tonnerre qui est un déchirement « du ciel.
-Et dans le roulement d'un tonnerre lointain.
-Dans le roulement le déroulement d'un tonnerre
-
-Et dans les jours si beaux quandil ne fait pas un souffle
-de vent
-À moins d'être aveugles comment feraient-ils pour ne
-pas me voir.
-- La charité, dit Dieu, n'est pas malin. ne m'étonne
-"3 pas non plus.
-Ces pauvres enfants sont si malheureux qu'à moins
-d'avoir un cœur de pierre
-- Comment n'auraient-ils pas charité de leurs frères.
-Comment n'auraient-ils pas charité les uns des autres.
-Mais l'espérance, dit Dieu, (un homme avait deux fils),
-que ces pauvres enfants voient tous les jours comme
-Et que tous les jours ils croient que ira mieux le
-Justement le lendemain matin.
-Tous les jours depuis qu'il y a des jours.
-Et qu'un soleil se lèvera meilleur.
-Que tous les matins en se levant ils croient que la
-journée sera bonne.
-Et que tous les soirs en se couchant ils croient que le
-Que justement le lendemain, que le jour du lendemain
-
-le ‘porche Tree
-Sera, fera une bonne journée. - FER
-Depuis tant de temps qu'il y a des jours. Hat
-Et que recommence.:
-Que tous les démentis ne comptent pas, tant de démentis qu'ils reçoivent précisément tous les jours.
-? Que les démentis ne soient comme rien, ne les arrêtent
-pas, que les démentis de tous les jours,;
-Innombrables comme les jours,.
-; Innombrables dans les innombrables jours que les;
-à Ne les désabusent pas de cette idée, de cette conviction
-Que le jour d'aujourd'hui sera un jour meilleur,
-Un autre jour, un jour nouveau, un jour frais, un jour
-Un jour levant,
-Un jour enfin, une bonne journée, À
-Un jour pas comme les autres,
-Après tant d'autres qui étaient tous les uns comme les
-Qu'il a même oubliés.
-Oubliés aussitôt que passés.
-._ Oubliés aussitôt que touchés. Le
-Oubliés aussitôt que eus.
-Qu'ils croient que ce matin eh bien marcher.
-À Qu'ils croient quand même, que ce matin bien,
-
-Et je n'en reviens pas moi-même.
-
-… Et il faut que ma grâce soit tellement grande. FRE
-
-Et qu'ils oublient instantanément les jours mauvais.
-
-à Presque avant. Presque d'avance. Ne
-Qu'ils étouffent pour ainsi dire comme d'avance dans es
-leur mémoire les jours mauvais Lire
-… Qu'ils absorbent les jours mauvais presque avant qu'ils
-Avant qu'ils soient écoulés.
-Avant qu'ils soient échus. ne
-- Ayant qu'ils soient tombés.
-. Comme une terre ardente qui absorberaïit les ingrati__ tudes du ciel.,
-- Qu'ils boivent les jours mauvais pour ainsi dire plus
-vite que les jours mauvais ne pleuvent.
-Les jours mauvais qui pleuvent comme une pluie
-
-Comme une pluie grise, comme une infatigable pluie,
-
-Tombant, descendant d'un ciel rayé. Re.
-M. Plus que d'un ciel gris.
-mu. Comme une oblique pluie infatigable.
-Lu... Qu'ils absorbent tout ce qui tombe comme une bonne ES
-terre de Lorraine, si
-Comme une terre généreuse et saine, SE
-- Bien juste, bien à point, bien meuble,
-
-le porche FER
-boit tout ce qui tombe et ne se laisse pas envahir en
-marais et en marécages.
-Et en mares et en bas fonds et en marécages pleins de
-boue et de vase,
-Et du limon de l'âme et de plantes poisseuses y
-Et de bêtes visqueuses. Gluantes.
-Mais qu'au contraire de tout ce qui tombe et des innombrables pluies et des jours mauvais innombrables
-: Aussitôt, instantanément, presque avant ils fassent une
-Une eau vive, une eau claire, une eau douce.
-Une belle eau transparente.
-Une eau pure et qui jaillit et qui coule en ces prés
-Aux rives de Meuse.
-Une belle eau lorraine, une âme d'une belle eau et la
-source même de l'espérance.
-Que ce soit juste avec cette matière, avec ces innombrables jours mauvais qui pleuvent et qui pleuvent à
-Qu'ils fassent, qu'ils jaillissent, qu'ils fassent sortir,
-qu'ils fassent jaillir cette source même de l'espérance.
-Cette innombrable source et'ce fleuve innombrable.
-Ce fleuve le plus grand de tous mes fleuves.
-Voilà ce que j'admire, moi, qui m'y connais pourtant.
-Et qui connais ma création. Et l'œuvre des Six Jours.
-Et le repos du Sept.
-Voilà ce qui m'étonne. Et pourtant je ne suis pas facile
-Voilà ce qui me passe et je n'en reviens pas moi-même.
-
-Et il faut que ma grâce soit tellement grande.
-Les jours mauvais pleuvent; sans se presser; sans se
-à lasser; l'heure après l'heure, le jour après le jour.
-Les jours mauvais pleuvent.
-Et de toute cette eau qui glisse inlassable du ciel, (d'un
-ciel qu'ils pourraient dire mauvais),
-? De toute cette eau qui glisse par terre, de toute cette
-3 (D'autres en feraient des marais et des marécages
-pleins de fièvres et tout peuplés de sales bêtes
-Mais eux, la bonne terre, ma terre meuble et bien
-Ma bonne terre d'âmes, bien labourée par mon Fils
-depuis des siècles et des siècles,
-Ma bonne terre saine de Lorraine ils recueillent toute
-"40 cette eau qui tombe.
-Et merveille ils n'en font point des marais et des boues
-et des vases.
-Et des algues et des scolopendres et des plantes
-Mais merveille c'est cette eau même qu'ils recueillent
-et ils n'en sont point embarrassés.
-Car merveille c'est de cette eau même qu'ils font jaillir
-la source.
-
-le porche FRS
-C'est cette eau, c'est la même eau qui court au ras des
-C'est la même eau saine qui monte aux tiges du blé CE
-pour le Pain.
-C'est la même eau saine qui monte aux sarments pour
-C'est la même eau saine qui monte en l'un et l'autre
-bourgeon, en l'un et l'autre bourgeonnement,:
-En l'une et l'autre Loi.
-C'est la même eau, recueillie, c'est la même eau, saine,
-assainie, qui fait le tour du monde.
-Qui revient, qui reparaît, qui a fait tout le tour de ma
-C'est la même eau recueillie qui rejaillit, qui ressource.
-Dans la nouvelle fontaine, dans le rejaillissement jeune.
-Dans la source et le ressourcement de l'espérance.;
-Vraiment, dit Dieu, mon Fils m'a fait de très bons
-Depuis quatorze siècles qu'il ameublit cette terre
-Depuis quatorze siècles que mon Fils laboure et cultive à À
-cette terre,:
-Il m'a fait de très bons laboureurs et cultivateurs.
-Et des moissonneurs et des vignerons. Des fins vigne
-Ces jours mauvais qui pleuvent et qui pleuvent et qui
-partout ailleurs empoisonneraient des pays entiers.
-Des nations, des peuples entiers, des créations entières.
-
-…_. Ces pluies et ces pluies qui partout ailleurs envahi18 raient,
-Envaseraient d'un limon crasseux la terre végétale,
-. Noïieraient toute pousse et bourgeonnement
-4: Sous les varechs et les vers de vase.
-a Tous ces jours mauvais qui pleuvent et pleuvent
-Partout ailleurs inonderaient, noieraient, de souillures,
-à de bavures,
-La bonne terre végétale,
-: Enliseraient, couvriraient de pestilences à
-a Toute ma création.
-Mais ici, dit Dieu, dans cette douce France, ma plus
-Dans cette saine Lorraine,
-Ici ils sont bons jardiniers.
-: C'est des vieux jardiniers finis, des fins jardiniers depuis
-Es. quatorze siècles qu'ils suivent les leçons de mon Füs.
-Ils ont tout canalisé, tout ameubli dans les jardins de
-De l'eau qui sert à inonder, à empoisonner (riant) eux ils
-5 - s'en servent pour arroser.
-Peuple de mon Fils, peuple plein de grâce, éternelleme ment plein de jeunesse et de grâce.
-Les eaux mêmes ‘du ciel, tu les détournes; pour tes
-Ma colère même, tu la détournes; pour tes mystérieux,
-pour tes merveilleux jardins.
-Les pestilences mêmes tu les détournes et elles ne
-l'atteignent pas et elles ne te servent que de fumier
-È Pour tes mystérieux, pour tes merveilleux jardins.
-O peuple tu as bien appris les leçons de mon Fils.
-
-le porche EME
-Qui était un grand Jardinier.
-Peuple secrètement aimé c'est toi qui as le mieux réussi.
-Peuple jardinier toujours une eau saine arrosera tes
-Peuples; peuple qui ne recules devant aucunes pestilences.
-O mon peuple français, Ô mon peuple lorrain. Peuple
-Peuple laboureur et cultivateur.
-Peuple qui laboures le plus profondément
-Les terres et les âmes.
-Toujours tes eaux seront des eaux vives.
-Et tes sources toujours des fontaines jaillissantes.
-Toujours tes rivières seront des eaux courantes et tes
-Et tes secrètes sources dans tes mystérieux.
-Dans tes merveilleux, dans tes douloureux jardins.
-Toujours une eau courante, une eau saine arrosera tes
-Toujours une eau saine montera dans ton Blé.
-Toujours une eau saine, rare, abondante, une eau précieuse, toujours une eau saine montera dans ta Vigne.
-Peuple qui fais le Pain, peuple qui fais le Vin.:
-O ma terre lorraine, Ô ma terre française,
-Peuple qui suis le mieux, qui as le mieux pris les leçons À
-de mon fils.;
-Peuple accointé à cette petite Espérance.
-Qui jaillit partout dans cette terre.
-À Et dans les mystérieux.
-Dans les merveilleux, dans les très douloureux jardins
-des âmes
-
-4. Peuple jardinier qui as fait pousser les plus belles fleurs
-È Par la grâce de cette petite Espérance.
-k. Peuple qui fais reculer les pestilences
-Par l'ordre. Par la propreté, par la probité; par la clarté.
-Par une vertu qui est en toi, par une vertu propre, par:
-une vertu unique.
-Peuple jardinier, qui laboures et qui herses,
-Qui bêche et qui râtisse,
-Qui ameublit la création même.
-Et je le dis, dit Dieu, je le déclare: Rien n'est aussi pro-
-à fond qu'un labour.
-À Et rien n'est aussi beau, je m'y connais,
-Rien n'est aussi grand dans ma création
-Que ces beaux jardins d'âmes bien ordonnés comme en
-font les Français.
-Toutes les sauvageries du monde, on peut m'en croire,
-je le sais peut-être,
-Toutes les sauvageries du monde ne valent pas un beau
-jardin à la française.
-Jardins très douloureux des âmes françaises.
-Toutes les sauvageries du monde ne valent pas un beau
-C'est que j'ai cueilli mes plus belles âmes.
-
-le porche LISE
-Toutes les sauvageries du monde ne valent pas une
-Peuple honnête, peuple de jardiniers c'est lui qui fait
-pousser les plus belles âmes
-Très douloureux jardins des âmes ont poussé
-Qui ont souffert sans rompre l'alignement
-Le plus dur martyre
-Et c'est qui est difficile; c'est qui est rare
-Le plus recreusé martyre “4
-Sans rompre l'ordonnance. à
-Très douloureux jardins des âmes ont poussé que
-Toutes les sauvageries du monde ne valent pas un bon
-jardin de presbytère.
-Avec ses tournesols.
-Que les enfants appellent des soleils.
-Et c'est des soleils, si je veux.
-Un bon jardin de curé.
-Bien requiet; bien requois.;
-C'est que j'ai cueilli mes plus belles âmes
-Les sauvages diront que ce jardin n'est pas grand et
-qu'il n'est pas profond.
-Mais moi je sais, (dit Dieu), que rien n'est grand
-comme l'ordre et que rien n'est profond comme le
-Peuple honnête, plein de jeunesse,
-
-Les eaux du ciel, tu n'en es point intimidé.
-
-a Tu n'en es point embarrassé, les eaux du ciel tu les
-
-“4 Les jours mauvais pleuvent et pleuvent, ils ne te cor-
-
-Au contraire, peuple qui assainis tout.
-
-France ma fille aînée.
-
-Les jours mauvais tu n'en fais point des corruptions et
-
-des pestilences.
-
-Des eaux corrompues, des eaux mortes.
-
-(4 Les jours mauvais tu n'en fais point des mortes eaux.
-
-Mais jardinier, peuple jardinier tu en fais ces beaux
-
-Qui arrosent les plus beaux jardins
-
-Qu'il y ait jamais au monde.
-
-Qui arrosent les jardins de ma grâce, les éternels
-
-À Moi je sais, dit Dieu, jusqu'où un Français peut se
-
-Sans rompre l'alignement.
-Je sais jusqu'où un Français peut ne pas rompre une
-
-Et ce qu'ils souffrent en dedans, et jusqu'où,
-Quelles épreuves ils portent, sans bouger d'une ligne,
-Comme un beau pont, comme une belle voûte bien
-
-Quels sacrifices ils m'apportent, (en secret), nul sacrifice
-n'est si profond
-. Qu'un labour français.
-
-le porche De
-Une eau pure, une eau saine, une eau courante monte
-Dans les tiges de la loi du Pain.
-Une eau saine, une eau courante monte, une eau rare
-Dans les sarments de la loi du Vin.
-Une eau lorraine, une eau française monte dans le
-De l'une et l'autre loi.
-Français, dit Dieu, c'est vous qui avez inventé ces
-beaux jardins des âmes.
-Je sais quelles fleurs merveilleuses croissent dans vos
-Je sais quelles épreuves;
-Infatigables vous portez.
-Je sais quelles fleurs et quels fruits vous m'apportez en
-C'est vous qui avez inventé le jardin.
-Les autres ne font que des horreurs.
-Vous êtes celui qui dessine le jardin du Roi.
-Aussi je vous le dis en vérité c'est vous qui serez mes
-C'est vous qui dessinerez mes jardins de Paradis.
-Il a y avoir quelque chose, dit Dieu, entre nos Français et cette petite Espérance.:.
-
-Peuple laborieux, peuple du plus profond labeur.
-è Ce n'est pas lui qui stagne-et croupit dans les marais
-de la paresse.
-à Dans les mares stagnantes, dans les fosses, dans les
-Dans les croupissements et dans les boues de la
-Dans les croupissements du désespoir.
-Dans les croupissements et dans les boues du péché.
-Peuple alerte, peuple jardinier les jours mauvais
-Ils ne déposent point, chez lui ne s'extravasent point
-En mares croupissantes mais peuple maraîcher
-Des marais mêmes il fait les plus beaux jardins.
-Il fait pousser les plus beaux légumes, les plus beaux
-Et son âme est toujours une eau courante et une eau
-Et son travail est toujours une eau courante.;
-Et sa prière, je le sais, est toujours une eau courante.
-Singulier peuple, il faut, dit Dieu, qu'il y ait quelque
-Qu'il se soit fait quelque accoïintance entre ce peuple
-et cette petite Espérance.
-Ils y réussissent trop bien.
-
-Il faut qu'ils aient fait entre eux une espèce d'adoption.
-Ils ont adopté l'espérance et l'espérance les a adoptés.
-Non point certes comme un père une fille et comme une
-fille un père.;
-Mais plus familièrement.:
-D'une accointance, d'une adoption plus familière.
-Ils sont avec elle, (je connais les familles à
-Des hommes), comme un oncle avec sa nièce.
-Dans les maisons où il y a un oncle il a avec les
-ANS Et ensemble les enfants ont avec lui
-Une liberté, une familiarité propre
-Que le père n'aura jamais.
-Une connivence, une entente secrète, non déclarée.
-Mais ils n'ont pas besoin de la déclarer.
-Ils n'ont pas besoin de la déclarer à eux-mêmes.:
-De la voir.
-Elle y est.
-Le père est l'ascendant direct, il a le front sourcilleux,
-les yeux froncés, il est tout chargé d'une responsabilité directe.
-Et les enfants le sentent bien.
-Il est au-dessus.
-Et les enfants le sentent bien.
-Le lien du père au fils est un lien sacré, qui pèse, un
-Et les enfants le sentent bien.
-L'oncle a une liberté, (et l'âge en même temps, et
-l'expérience), il fait tout ce qu'il veut, il est pour les
-
-Tout l'amusement de la vie.
-
-Les enfants le savent. Avec lui seul avec lui de lui les
-propos sont amusants, de lui avec lui seul avec lui
-les jeux sont amusants.
-
-Lui seul est familier.
-- C'est ainsi que ces Français se sont mis avec cette
-Elle ne se plaît qu'avec eux.
-Elle écoute tous leurs propos. Il n'y en a que pour eux. -
-Tout ce qu'ils disent est bien. Elle se reconnaît en eux.
-Il n'y a que leurs histoires qui sont bonnes. Elle ne
-quitte pas leurs genoux. Elle se les fait conter vingt
-Voilà comment ces Français se sont mis avec cette
-: enfant Espérance.
-- Singulier peuple toute eau leur est une source vive.
-Toute eau qui tombe leur devient une eau courante.
-
-Par le ministère de l'espérance.
-
-Toute eau, toute eau mauvaise leur devient une eau
-
-Les eaux mauvaises les rendent souvent malades.
-
-Les eaux mauvaises ne les empoisonnent jamais.
-
-Ils boivent impunément de tout.
-
-Par cette accointance qu'ils ont avec cette petite Espéle porche
-On se demande, on dit: Mais comment que se fait
-Que cette fontaine Espérance éternellement coule;
-Qu'elle jaillit éternellement, qu'elle source éternellement,
-Qu'elle coule éternellement,
-Où cette enfant prend-elle tant d'eau pure et tant d'eau
-Tant de jaillissement et tant de ressourcement.
-Est-ce qu'elle les crée? À mesure?;
-— Non, dit Dieu, il n'y a que moi qui crée..
-— Alors où prend-elle toute cette eau.
-Pour cette fontaine jaillissante.
-Comment que se fait que cette éternelle fontaine
-Que cette éternelle source
-Il doit y avoir un secret là-dedans.
-Pour que cette source éternellement ne se trouble point
-Pour qu'éternellement elle ne tarisse point aux ardentes
-ardeurs de juillet.
-— Bonnes gens, dit Dieu, n'est pas malin.
-Son mystère n'est pas malin.
-Et son secret n'est pas difficile.
-Si c'était avec de l'eau pure qu'elle voulût faire des
-Des sources d'eau pure,
-
-Jamais elle n'en trouverait assez, dans (toute) ma
-… Mais c'est justement avec les eaux mauvaises qu'elle
-1 fait ses sources d'eau pure.
-: Et c'est pour cela qu'elle n'en manque jamais.
-Mais aussi c'est pour cela qu'elle est l'Espérance.
-Maintenant comment elle s'y prend pour faire de l'eau
-pure avec de l'eau mauvaise,
-De l'eau jeune avec de l'eau vieille,
-Des jours jeunes avec des vieux jours.
-De l'eau neuve avec de l'eau usée.
-Des sources avec de la vieille eau.;
-Des âmes fraîches avec des vieilles âmes.
-Des sources d'âme avec de la vieille âme.
-De l'eau fraîche avec de l'eau tiède.
-Malheur à celui qui est tiède.
-Des matins jeunes avec des vieux soirs.
-Des âmes claires avec des âmes troubles.
-De l'eau claire avec de l'eau trouble.
-De l'eau, des âmes enfants avec des âmes usées.
-
-; le porche NÉETS
-Des âmes levantes avec des âmes couchantes. à
-Des âmes courantes avec des âmes stagnantes.
-Comment elle y réussit, comment elle s'y prend,
-Ça, mes enfants, c'est mon secret.
-Parce que je suis son Père.
-Des âmes neuves avec des âmes qui ont déjà servi.
-Des jours neufs avec des jours qui ont déjà servi.
-Des âmes transparentes avec des âmes troubles.
-Des âmes levantes avec des âmes couchées.
-Des jours transparents avec des jours troubles.
-Si c'était avec des jours transparents qu'elle fit des
-Si c'était avec des âmes, avec de l'eau claire qu'elle fit
-des sources.
-Avec de l'eau claire qu'elle fit de l'eau claire..
-Si c'était avec de l'âme pure qu'elle fit de l'âme pure, -
-Parbleu, ne serait pas malin. Tout le monde pourrait en faire autant. Et il n'y aurait aucun secret.
-Mais c'est avec une eau souillée, une eau vieillie, une
-Mais c'est d'une âme impure qu'elle fait une âme pure
-et c'est le plus beau secret qu'il y ait dans le jardin
-du monde.
-
-Si c'était avec de l'eau pure qu'elle fit de l'eau pure,
-elle sait bien ce qu'elle fait, elle est maline.
-Si c'était avec de l'eau pure, si c'était de l'eau pure
-qu'elle fit jaillir en source d'eau pure,
-Elle en manquerait tout de suite.
-Elle n'est pas si bête, elle sait bien qu'elle en manquerait tout de suite.
-Mais c'est des eaux mauvaises qu'elle fait une source
-Elle-sait bien qu'elle n'en manquera jamais.
-. La source éternelle de ma grâce même.;
-Elle sait bien qu'elle n'en manquera jamais.
-Et il faut que ma grâce soit tellement grande.
-C'est d'une eau mauvaise qu'elle fait ses fontaines.
-Aussi elle n'en manquera jamais.
-Ses fontaines parfaitement pures.
-C'est du jour impur qu'elle fait le jour pur.
-Elle n'en manquera jamais.
-C'est de l'âme impure qu'elle fait l'âme pure.
-Elle n'en manquera jamais.
-Il y avait une grande procession. C'était la procession
-de la Fête-Dieu. On portait le Saint-Sacrement. Aussi
-- en tête les trois Théologales:
-
-le porche SET
-Marchaient. Voyez, dit Dieu, cette petite, comme elle À
-Regardez-moi voir un peu.
-Les autres, les deux autres marchent comme des
-grandes personnes, ses deux grandes sœurs. Elles
-savent où elles sont. Elles sont décentes. Elles savent
-qu'elles sont dans une procession.
-Surtout une procession de la Fête-Dieu.
-Où l'on porte le Saint-Sacrement.
-Elles savent ce que c'est qu'une procession.
-Et qu'elles sont à la procession, à la tête de la procession.
-Elles vont à la procession. Elles se tiennent bien. Elles
-s'avancent comme des grandes personnes.
-Sérieuses. Qui sont toujours un peu fatiguées.
-Mais elle elle n'est jamais fatiguée. Voyez voir un peu.
-Comment elle marche.
-Elle devant vingt fois, comme un petit chien, elle:
-revient, elle repart, elle fait vingt fois le chemin.
-Elle s'amuse avec les guirlandes de la procession. « Elle joue avec les fleurs et les feuilles
-Comme si ce ne fussent point des guirlandes sacrées.
-Elle jouerait à sauter par dessus les feuillages
-Elle n'écoute rien. Elle ne tient pas en place dans les
-Elle voudrait tout le temps marcher. Aller de l'avant.
-Sauter. Danser. Elle est si heureuse.
-peuple, peuple jardinier, qui pour les processions
-Fais pousser les roses de France.
-Jardinier du roi, jardinier de fleurs et de fruits, jardinier
-
-Peuple tu es mon jardinier.
-Jardinier dans le verger, jardinier dans le potager, jardi3 nier dans le jardin.
-; Jardinier dans le champ même.
-Tes forêts sont plus propres que le parc même du
-Tes bois (les plus sauvages) sont plus propres que le
-verger du roi.
-Tes champs et tes vallons sont plus propres que le
-jardin du roi.
-Dans tes champs les plus étendus je ne vois pas une
-Peuple laborieux j'ai beau regarder tes champs sont
-à purs comme un beau jardin.
-Et tes vallons au loin qui se recourbent mollement.;
-Pleins de fécondité. Bien gonflés sous la main. Avec
-des recreux de secret..
-Peuple diligent la charrue et la herse et le rouleau, la
-et le cordeau
-Ne s'ennuient pas dans tes mains.
-Ne chôment pas dans tes mains.
-Tu n'as pas peur d'y toucher. Tu ne les regardes pas
-de loin avec des cérémonies.
-Mais la charrue et la herse et le rouleau et la pelleetla
-Tu en fais des bonnes honnêtes ouvrières, des outils
-1. d'honnête homme.
-Tu n'as pas peur de les approcher.
-
-le porche
-
-La paume de ta main polit le manche de l'outil, lui
-donne un beau luisant de bois. +22
-
-Le manche de l'outil polit la paume de ta main, lui
-donne un beau luisant de cuir
-
-; Tes outils tu en fais des outils alertes. Des outils diligents. Des outils honnêtes.
-
-Des outils qui vont vite. Et ils sont bien emmanchés.
-
-Peuple premier, tu es le premier dans le potager.
-
-Le premier dans le verger. Le premier dans le jardin.
-
-Le premier dans le champ.
-
-Tu es le seul dans tout cela.:
-
-Tu fais pousser les plus beaux légumes et les plus beaux:
-
-Tu cueilles les plus beaux légumes, tu cueilles les plus
-
-Tu cueilles les plus belles feuilles mêmes.
-
-C'est toi qui couches les plus belles jonchées de feuil- à
-
-Aux pieds des trois Théologales.
-
-Aux pieds graves de ma fille la Foi tu couches les plus
-beaux, les plus sérieux feuillages
-
-Aux pieds saignants de mon ardente fille, de ma fille la
-Charité tu couches les plus beaux, les plus tendres
-
-Les plus frais au pied.
-
-Si frais que la fraîcheur vous en remonte au cœur et
-
-Et qui sont comme un baume au cœur endolori.
-fe. Car ils sont comme un baume au pied endolori
-Au pied saignant, au pied ensanglanté. Aux pieds de.
-Cendrillon de cette enfant ma petite Espérance
-Peuple tu jettes les plus jaiïllissants feuillages
-Jonchés, couchés. Des feuillages plein les rues. Et aux
-; pieds des grandes Processions,
-Peuple, et aux pieds du grand Saint-Sacrement,
-Aux pieds du Très Grand peuple tu sèmes les roses de
-Peuple qui couches aux pieds des grandes Processions
-Les plus grandes Fleurs, les plus grandes Feuilles.
-Les plus belles, les plus grandes fleurs de la terre charj nelle.
-Les plus grandes fleurs du monde
-Les plus grandes fleurs de terre et d'âme.
-Les plus grandes fleurs de race et de terre.
-Et de terre.
-Peuple qui as fait de ton royaume un jardin.
-Jardinier du roi. Royaume du roi.
-Peuple qui as fait de tes champs un jardin.
-Peuple qui sans compter aux pieds du Très Haut
-Jettes les fleurs, jettes les âmes,
-Sachant qu'il en poussera toujours.
-Que tu en feras toujours pousser.
-Péuple, peuple, le seul qui ne comptes jamais avec
-Peuple du roi, peuple roi, je te Le dis, je te prendrai au
-
-le porche ARTS
-Moi aussi je suis roi je te prendrai au roi pour mon
-Jardinier du roi je te prendrai au roi À
-Le jour du Couronnement
-Pour dessiner mes jardins à
-Dans mon royaume de Paradis.:
-Peuple je te ferai mon peuple jardinier.
-Peuple ami du eordeau et du plantoir.
-Et tu me feras de ces belles roses de France.
-Et de ces beaux lys blancs de France À
-Qui portent un col non ployé.
-Peuple de pépiniéristes, pays de roseraies, peuple
-Peuple patient, qui as la patience (et le goût) de
-Peuple qui ne cesses point de désherber. Plus vite et
-plus constant et plus infatigable que la nature même.
-: Plus penché sur la terre, plus courbé, plus penché à
-désherber, toi qui vas plus vite et qui est plus constant et plus infatigable à désherber
-Que la mauvaise herbe à pousser (et ce n'est pas peu
-dire)
-Que la mauvaise nature même à faire pousser la mau-
-Peuple qui suffis plus à arracher la mauvaise herbe
-que la mauvaise nature à la faire pousser.
-(Et ce n'est pas peu dire. Si quelqu'un le sait, c'est
-
-à Peuple plus opiniâtre, plus patient, plus recommençant
-ï. que la mauvaise nature même
-Quand je regarde tes champs j'ai beau regarder je n'y
-: vois pas une mauvaise herbe.
-Ni un chardon pour les ânes. Ni cette ivraie que mon
-Fils nommait la zizanie
-: Et qui lui servit beaucoup pour ses similitudes. Un
-homme avait deux fils.
-Et que vous autres vous nommez de l'ivraie et du
-Peuple laborieux quand je regarde tes champs.
-Ni dans tes moissons cette affreuse maladie.
-Quand les blés ont la maladie. Et surtout les seigles.
-Cet ergot, cette carie du seigle, cette affreuse
-Pourriture sèche qui empoisonne
-Qui ose empoisonner le pain même.
-Quand je regarde vos champs, Français,
-Puissiez-vous désherber ainsi
-Vos âmes aussi;
-De toute cette mauvaise herbe du péché.
-De cette carie, de cette odieuse qui ronge
-Peuple qui jettes par brassées
-Les beaux lys de France au col non ployé,
-Aux pieds de la Très Sainte et de l'Immaculée.
-
-le porche ne.
-Voyez cette petite, dit Dieu, comme elle marche.
-Elle sauterait à la corde dans une procession.
-Elle marcheraït, elle avancerait en sautant à la corde,
-À par quelque gageure.
-Tellement elle est heureuse;
-(Seule de toutes)
-Et tellement elle est sûre de ne jamais se fatiguer.;
-Les enfants marchent tout à fait comme des petits;
-(D'ailleurs ils jouent aussi comme les petits chiens)
-Quand un petit chien se promène avec ses maîtres
-Il fait vingt fois le chemin.
-Vingt fois le trajet.
-C'est qu'en effet il ne pas quelque part.
-Ce sont les maîtres qui vont quelque part.
-Et ce qui l'intéresse, c'est précisément de faire le
-Pareillement les enfants. Quand vous faites une course À
-avec vos enfants
-Ou quand vous allez à la messe ou aux vêpres avec vos
-Ou entre messe et vêpres quand vous allez vous
-promener avec vos enfants
-
-- Ils trottent devant vous comme des petits chiens. Ils
-È avancent, ils reculent. Ils vont, ils viennent. Ils
-Ils font vingt fois le trajet.
-Cest qu'en effet ils ne vont pas quelque part. » 7 ne les intéresse pas d'aller quelque part.
-
-Ils ne vont nulle part.
-
-Ce sont les grandes personnes qui vont quelque part
-
-Les grandes personnes, la Foi, la Charité.
-
-Ce sont les parents qui vont quelque part.
-
-A la messe, aux vépres, au salut.
-
-Qui s'efforcent, qui se travaillent pour aller quelque part
-
-Ou même qui vont se promener quelque part.
-
-Mais les enfants ce qui les intéresse ce n'est que de
-faire le chemin.
-
-D'aller et de venir et de sauter. D'user le chemin avec
-
-De n'en avoir jamais assez. Et de sentir pousser leurs
-
-Ils boïvent le chemin. Ils ont soif du chemin. Ils n'en
-ont jamais assez.
-
-Ils sont plus forts que le chemin. Ils sont plus forts que
-la fatigue.
-
-Ils n'en ont jamais assez (Ainsi est l'espérance) Ils cou-
-
-. rent plus vite que le chemin.
-
-Ils ne vont pas, ils ne courent pas pour arriver. Ils
-arrivent pour courir. Ils arrivent pour aller. Ainsi est
-l'espérance. Ils ne ménagent pas leurs pas. L'idée ne
-
-54 leur viendrait même pas
-
-le porche TES
-De ménager quoi que ce füt.
-sont les grandes personnes qui ménagent. Si
-Hélas elles sont bien forcées. Mais l'enfant Espérance
-Ne ménage jamais rien.;
-Ce sont les parents qui ménagent. Triste vertu, hélas
-qu'ils ne s'en fassent point une vertu. “5
-Ils sont bien forcés. Si solide que soit ma fille la Foi,
-Ferme comme un roc elle est bien forcée de ménager.
-Si ardente que soit ma fille la Charité
-Brûlante comme un beau feu de bois
-._ Qui réchauffe le pauvre dans la cheminée
-Le pauvre et l'enfant et le mourant de faim,
-Elle est bien forcée de ménager.
-La seule enfant Espérance
-Est la seule qui ne ménage jamais rien.
-Elle ne ménage pas ses pas, la petite bougresse, elle ne
-ménage pas les nôtres.
-Comme elle ne ménage point les fleurs et les feuilles
-Et les roses de France et les beaux lys de France
-Ainsi dans la petite, dans la longue procession, dans la
-dure procession de la vie elle ne ménage rien
-Ni ses pas ni les nôtres
-Dans l'ordinaire, dans la grise, dans la commune pro-
-De tous les jours Il
-(Car ce n'est pas tous les jours la Fête-Dieu). -
-Elle ne ménage pas ses pas, et comme elle nous traite
-comme elle
-Elle ne ménage pas non plus les nôtres,
-
-- Elle ne se ménage pas; et pareïllement, ensemble elle
-ne ménage pas non plus les autres.
-: Elle nous fait recommencer vingt fois la même chose.
-; Elle nous fait aller vingt fois au même endroit.
-Qui est généralement un endroit de déception
-lui est bien égal. Elle est comme une enfant. Elle est
-une enfant.
-lui est bien égal de faire marcher les grandes per-
-La sagesse terrestre n'est point son affaire.
-Elle ne calcule point comme nous.
-Elle calcule, ou enfin elle ne calcule pas, elle compte
-(sans s'en apercevoir) comme une enfant.
-Comme une qui a toute la vie devant soi. (
-lui est bien égal de nous faire marcher.
-Elle croit, elle compte que nous sommes comme elle.
-Elle ne ménage point nos peines. Et nos travails. Elle
-Que nous avons toute la vie devant nous.
-Comme elle se trompe. Comme elle a raison
-Car n'avons-nous point toute la Vie devant nous.
-La seule qui compte. Toute la vie Éternelle.
-Et le vieillard n'a-t-il pas autant de vie devant soi que
-l'enfant au berceau.
-Sinon plus. Car pour l'enfant au berceau la Vie
-…. La seule qui compte est masquée par cette misérable
-— Qu'il a devant lui. D'abord. Qui est devant. Par cette
-la misérable vie terrestre.
-
-Il faudra qu'il traverse. Il faudra qu'il passe par toute
-cette misérable vie terrestre
-Avant d'arriver, avant d'atteindre, pour atteindre à
-À la seule vie qui compte. Mais le vieillard il a de la
-Prudent il a mis derrière lui cette misérable vie À
-Qui lui masquaiït la Vie éternelle
-A présent il est débarrassé. Il a mis derrière lui ce qui
-était devant.
-: Il voit clair. Il est plein de vie. Entre la vie et lui il
-a plus rien. Il est au bord de la lumière.
-Il est sur le rivage même. Il est à plein. IL est au bord
-de la vie éternelle.
-On a bien raison de dire que les vieillards sont prudents.
-Ainsi comme cette enfant avait raison de compter;
-Que nous sommes comme elle.
-Que nous avons toute la vie devant nous.
-Nous l'avons autant qu'elle. Que lui importe
-De nous faire faire vingt fois le même trajet. A
-Elle a raison. Ce qui importe
-(Et de nous faire aller vingt fois au même endroit
-Qui est généralement un endroit de déception.
-Terrestre) ce qui importe
-Ce n'est pas d'aller ici ou là, ce n'est pas d'aller quelque
-Terrestre. C'est d'aller, d'aller toujours, et (au contraire)
-de ne pas arriver.
-C'est d'aller petitement dans la petite procession des
-
-Grande pour le salut. Les jours vont en procession
-Et nous nous allons en procession dans les jours. Ce
-qui importe
-C'est d'aller. D'aller toujours. Ce qui compte. Et comme
-C'est le chemin qu'on fait. C'est le trajet lui-même. Et
-comme on le fait.
-Vous faites vingt fois le même chemin terrestre. Pour
-Et vingt fois vous aboutissez, vous parvenez, vous
-Péniblement, laborieusement, difficilement,
-Au même point de déception
-Et vous dites: Cette petite Espérance m'a encore
-- J'aurais me méfier. C'est la vingtième fois qu'elle
-La sagesse (terrestre) n'est point son fait.
-Je ne la croirai plus jamais. (Vous la croirez encore,
-vous la croirez toujours).
-On ne m'y prendra plus jamais. — Sots que vous êtes.
-Qu'importe cet endroit où vous vouliez aller.
-Où vous croyiez aller.
-Voyons, vous n'êtes pas des enfants, vous saviez bien
-Que ce point où vous alliez serait un point de déception
-Terrestre. Qu'il en était un d'avance. Alors pourquoi y
-êtes-vous allé.
-Parce que vous comprenez très bien le manège de cette
-
-LAS le porche à
-
-Pourquoi suuvez-vous toujours cette enfant de déception.,
-Pourquoi donn#z-xous les mains au manège de cette A
-Toujours, et la vingtième fois'.plus premièrement que la
-Pourquoi y allez-vous de vous-mêmes.
-
-; Toujours, et la vingtième fois plus couramment que la
-
-C'est qu'au fond vous savez très bien ce qu'elle est.
-Ce qu'elle fait. Et qu'elle nous trompe.
-Parce qu'elle est la seule qui ne nous trompe pas.
-Et qu'elle nous déçoit
-Toute la vie -
-Parce qu'elle est la seule qui ne déçoit pas
-Pour la Vie.
-Et c'est ainsi qu'elle est la seule à ne point nous décevoir.
-Car ces vingt fois qu'elle nous fait faire le même chemin
-Sur terre pour la sagesse humaine ce sont vingt fois
-
-qui se redoublent
-Qui se recommencent, qui sont la même
-Qui sont vingt fois vaines, qui se superposent
-Parce qu'elles conduisaient par le même chemin
-Au même endroit, parce que c'était le même chemin.
-
-Mais pour la sagesse de Dieu
-Rien n'est jamais rien. Tout est nouveau. Tout est
-Tout est difiérent.
-Au regard de Dieu rien ne se recommence,
-
-; Ces vingt fois qu'elle nous a fait faire le même chemin
-pour arriver au même point
-Pour le regard humain c'est le même point, c'est le
-même chemin, ce sont les vingt mêmes fois.
-Mais c'est cela qui trompe.
-C'est cela qui est le faux calcul et le faux compte
-Étant le compte humain.
-Et voici ce qui ne déçoit point: Ces vingt fois ne sont
-pas la même. Si ces vingt fois sont vingt fois
-d'épreuve(s) et si ce chemin est un chemin de sainteté
-Sur le même chemin la deuxième fois fait le double de
-la première
-Qu'importe d'arriver ici ou là, et toujours au même
-Qui est un endroit de déception à
-C'est le chemin qui importe, et quel chemin on fait, et
-quel étant on le fait
-Comment on le fait.
-C'est le trajet seul qui importe.
-Si le chemin est un chemin de sainteté
-Au regard de Dieu, un chemin d'épreuves
-Celui qui l'a fait deux fois est deux fois plus saint
-Au regard de Dieu et celui qui l'a fait trois fois
-Trois fois plus saint et celui qui l'a fait
-. Vingt fois vingt fois plus saint. C'est comme que
-C'est comme que Dieu voit.
-
-Le même chemin, deuxième n'est plus le même.
-Tous les jours, dites-vous, tous vos jours sont les
-Sur terre, sont le même.
-Partant des mêmes matins vous acheminent aux mêmes
-Mais ils ne vous conduisent point aux mêmes soirs
-Tous les jours, dites-vous, se ressemblent. — Oui, tous
-les jours terrestres.
-Mais rassurez-vous, mes enfants, ils ne ressemblent
-Au dernier jour, à celui qui ne ressemble à nul autre.:
-Tous les jours, dites-vous, se recommencent. — Non ils
-Au trésor éternel des jours.
-Le pain de chaque jour au pain de la veille.
-La souffrance de chaque jour
-(Quand même elle recommencerait la souffrance de la
-Au trésor éternel des souffrances.
-La prière de chaque jour
-(Quand même elle recommencerait la prière de la veille)
-Au trésor éternel des prières.
-Le mérite de chaque jour
-(Quand même il recommencerait le mérite de la veille) LA
-Au trésor éternel des mérites.
-Sur terre tout se recommence. Dans la même matière.
-Mais au ciel tout compte
-Et tout s'additionne. La grâce de chaque jour
-(Quand même elle recommencerait la grâce de la veille) A
-
-; 2 Au trésor éternel des grâces. Et c'est pour cela que la
-È Seule ne ménage rien. Quand Jésus travaillait chez son
-2 père
-à Tous les jours il faisait la même journée.
-Il n'avait pas une seule histoire
-È Excepté une fois.
-C'est pourtant le tissu, dans ces mêmes jours,
-È C'est le réseau de ces mêmes journées
-Qui constitue, qui éternellement constitue
-la Vie admirable de Jésus avant sa prédication
-Sa vie privée
-Sa vie parfaite, sa vie modèle.
-Celle qu'il offre en exemple, en Modèle inimitable à
-; A tout le monde, sans aucune exception, ne laissant
-A quelques rares élus (et encore c'est en outre et non
-pas au contraire)
-Les exemples de sa vie publique à imiter
-Les modèles inimitables de sa Prédication
-(Et de sa Résurrection).
-_Pareïllement, ensemble avec lui, à l'imitation de lui
-Sur terre, sur nos chemins de la terre nos pas effacent
-nos pas.
-Car les chemins de la terre ne peuvent pas garder
-plusieurs couches de traces.
-Mais les chemins du ciel gardent éternellement toutes
-couches de traces
-Toutes traces de pas.
-
-: le porche CARS
-Sur nos chemins de la terre il n'y a qu'une seule à
-matière, la terre,
-Nos chemins de la terre ne sont jamais faits que de la
-même terre,
-Et c'est elle qui sert tout le temps, et elle ne peut servir:
-qu'une fois
-A la fois.
-C'est la même terre qui sert tout le temps.
-Elle ne garde jamais qu'une couche de traces à la fois.
-Pour en recevoir une il faut qu'elle en sacrifie une autre. à
-La précédente. Toujours la précédente.
-Une trace efface l'autre. Un pas efface un pas. Un pied:
-efface un pied. À
-C'est pour cela que nous disons que nous faisons le
-même chemin.
-C'est que ce même chemin est un chemin, un même
-chemin de la même terre.
-Dans la même terre.
-Mais les chemins du ciel reçoivent éternellement des
-Et celui qui passe à la onzième heure dans les chemins
-du ciel (Un homme avait deux fils)
-Pour aller à son travail et celui qui revient de son
-Imprime dans le sol une empreinte neuve à
-Qui est son empreinte propre et éternellement il laisse:
-Intactes les empreintes de tous ceux
-Qui sont passés avant lui. Qui sont passés depuis la à
-
-- Et même et pareillement
-Intactes ses propres empreintes à lui
-Qui est passé avant lui.
-A C'est le miracle même du ciel, le miracle de tous les
-jours du ciel, mais sur terre
-È Celui qui suit efface les traces de celui qui précède.
-- Les pas effacent les pas
-Dans le même sable.
-! Celui qui marche derrière efface les pas de celui qui
-Et nous-mêmes quand nous faisons,
-Quand nous recommencçons vingt fois le même chemin,
-Quand vingt fois nous nous marchons derrière mêmes,
-Nous-mêmes nous effaçons la trace de nos (propres)
-à De nos anciens pas.
-C'est pourtant ce que Jésus a fait
-A son imitation c'est pourtant ce que Jésus, ce que Dieu
-nous demande
-À ceux qui n'ont point reçu de vocations propres
-Et même aux autres.
-À nous qui n'avons point reçu de vocations propres
-Toute la vie.
-Et même à ceux qui ont reçu des vocations propres
-
-le porche
-Pendant toute leur vie privée, et même ailleurs, et même
-Pendant les trente ans de leur vie privée, et même en
-autre temps
-Car dans la vie publique même les jours ressemblent
-Partant des mêmes matins vers les acheminements des
-Car dans toute vie il y a bien peu de jours qui ne ressemblent pas à tous les jours.
-Mais tous ces jours comptent. Dans la vie même de
-Jésus, dans la vie publique même
-Dans la prédication combien de jours n'étaient-ils pas
-les mêmes.
-Combien de prédications n'étaient-elles pas les mêmes
-et temporellement ne se recommençaient-elles pas.
-jour de la Crucifixion. Et un jour de la Résurrection.
-Pendant trente et pendant trois ans tous les autres jours
-Mais tous ces jours comptent. Car sur terre vingt fois
-nous effaçons nos propres traces
-Et nous faisons vingt chemins qui se superposent le
-même.
-Mais dans le ciel ils ne se superposent point. Ils se
-mettent bout à bout. Et ils font le pont
-Qui nous fait arriver de l'autre côté.
-Un seul était trop court. Un seul chemin. Mais vingt
-(Bien que chacun des vingt soit le même que l'autre)
-
-- Sont assez longs. Ainsi quand nous disons que l'espé-
-É rance nous trompe.
-:4 Et quand en même temps secrètement dans notre cœur
-1 nous nous faisons ses complices
-Pour qu'elle nous trompe,
-Au fond nous savons très bien ce que tout cela veut
-à Et que cette sourde complicité que nous avons avec elle
-É Pour qu'elle nous trompe
-Est ce que nous avons en nous
-De plus agréable à Dieu.
-Orelle nous traite comme elle.
-Comme elle se traite elle-même.
-. Comme si nous étions comme elle.
-C'est-à-dire comme si nous étions infatigables.
-ES Et elle nous fait faire vingt fois ce chemin.
-Qui n'est pas le même.
-Comme si nous étions infatigables.
-Les enfants ne pensent même pas à la fatigue.
-Ils courent comme des petits chiens. Ils font le chemin
-- Et par conséquent vingt fois plus de chemin qu'il n'en
-Qu'est-ce que leur fait. Ils savent bien que le soir
-(Mais ils n'y pensent pas)
-Ils tomberont de sommeil
-Dans leur lit ou même à table
-; Et que le sommeil est la fin de tout.
-—. Voilà leur secret, voilà le secret d'être infatigable.
-Infatigable comme les enfants.
-- Infatigable comme l'enfant Espérance.;
-
-Et de recommencer toujours le lendemain. PPS
-Les enfants ne peuvent pas marcher, mais ils savent “4
-très bien courir.
-L'enfant ne pense pas même, ne sait pas qu'il dormira
-; Que le soir il tombera de sommeil. C'est pourtant ce
-Toujours prêt, toujours disponible, toujours présent,
-Toujours en dessous, comme une bonne réserve,
-Celui d'hier et celui de demain, comme une bonne
-Comme un renforcement d'être, comme une réserve —
-Inépuisable. Toujours présente.:
-Celui de ce matin et celui de ce soir
-Qui lui met cette force dans les jarrets.
-Ce sommeil d'avant, ce sommeil d'après;
-C'est ce même sommeil sans fond;
-Continu comme l'être même
-Qui passe d'une nuit à une nuit, d'une nuit à l'autre,
-qui continue d'une nuit à l'autre;
-En passant par dessus les jours
-, En ne laissant les jours que comme des jours, comme
-des ouvertures.
-C'est ce même sommeil où les enfants ensevelissent
-leur être
-Qui leur ‘maintient, qui leur fait tous les jours ces
-Et ce qu'il y a dans des jarrets neufs: ces âmes
-
-. Ces âmes nouvelles, ces âmes fraîches.:
-EE: Fraîches le matin, fraîches à midi, fraîches le soir.
-Fraîches comme les roses de France.
-Ces âmes au col non ployé. Voilà le secret d'être
-He: Cest de dormir. Pourquoi les hommes n'en usent-
-“4 J'ai donné ce secret à tout le monde, dit Dieu. Je ne l'ai:
-pas vendu.
-Celui qui dort bien, vit bien. Celui qui dort, prie.
-à (Aussi celui qui travaille, prie. Mais il y a temps pour
-. Et le travail et le sommeil sont les deux frères. Et ils
-A - s'entendent très bien ensemble.
-L…_ Et le sommeil conduit au travail et le travail conduit
-Celui qui travaille bien dort bien, celui qui dort bien
-travaille bien.
-faut, dit Dieu, qu'il y ait une accointance,
-Qu'il se soit passé quelque chose
-A Entre ce royaume de France et cette petite Espérance.
-Ily a un secret. Ils y réussissent trop bien. Pourtant
-- Qu'il y a des hommes qui ne dorment pas.
-Je n'aime pas celui qui ne dort pas, dit Dieu.
-Le sommeil est l'ami de l'homme.
-Le sommeil est l'ami de Dieu.
-Le sommeil est peut-être ma plus belle création.
-
-le porche
-Et moi-même je me suis reposé le septième jour.
-Celui qui a le cœur pur, dort. Et celui qui dort a le?
-C'est le grand secret d'être infatigable comme un
-enfant.
-D'avoir comme un enfant cette force dans les jarrets.
-Ces jarrets neufs, ces âmes neuves
-Et de recommencer tous les matins, toujours neuf,
-Comme la jeune, comme la neuve
-Espérance. on me dit qu'il y a des hommes
-Qui travaillent bien et qui dorment mal.
-Qui ne dorment pas. Quel manque de confiance en moi.
-C'est presque plus grave que s'ils travaillaient mal à
-mais dormaient bien.
-Que s'ils ne travaillaient pas mais dormaient, car la
-N'est pas un plus grand péché que l'inquiétude
-Et même c'est un moins grand péché que l'inquiétude y
-Et que le désespoir et le manque de confiance en moi. A
-Je ne parle pas, dit Dieu, de ces hommes
-Qui ne travaillent pas et qui ne dorment pas.
-Ceux-là sont des pécheurs, c'est entendu. C'est bien
-fait pour eux. Des grands pécheurs. Ils n'ont qu'à
-Je parle de ceux qui travaillent et qui ne dorment pas.
-Je les plains. Je parle de ceux qui travaillent, et qui
-ainsi
-En ceci suivent mon commandement, les pauvres
-Et qui d'autre part n'ont pas le courage, n'ont pas la
-confiance, ne dorment pas.
-
-Je les plains. Je leur en veux. Un peu. Ils ne me font
-A pas confiance.
-Comme l'enfant se couche innocent dans les bras de sa
-4 mère ainsi ils ne se couchent point
-Innocents dans les bras de ma Providence.
-È Ils ont le courage de travailler. Ils n'ont pas le courage
-de ne rien faire.
-Ils ont la vertu de travailler. Ils n'ont pas la vertu de
-ne rien faire.
-Les malheureux ils ne savent pas ce qui est bon.
-Ils gouvernent très bien leurs affaires pendant le
-Mais ils ne veulent pas m'en confier le gouvernement
-pendant la nuit.:
-Comme si je n'étais pas capable d'en assurer le gouvernement pendant une nuit.
-Celui qui ne dort pas est infidèle à l''Espérance.
-Et c'est la plus grande infidélité.
-; Parce que c'est l'infidélité à la plus grande Foi.
-Pauvres enfants ils administrent dans la journée leurs
-affaires avec sagesse.
-Mais le soir venu ils ne se résolvent point,
-ma sagesse
-L'espace d'une nuit à m'en confier le gouvernement.
-Et l'administration et tout le gouvernement.
-Comme si je n'étais pas capable, peut-être, de m'en
-occuper un peu.
-: De gouverner et d'administrer et tout le tremblement.
-
-11808
-J'en administre bien d'autres, pauvres gens, je gouverne à
-la création, c'est peut-être plus difficile.;
-1 à Vous pourriez peut-être sans grand(s) dommage(s) me
-laisser vos affaires en mains, hommes sages.
-Je suis peut-être aussi sage que vous.;
-Vous pourriez peut-être me les remettre l'espace d'une Ne
-nuit.
-L'espace que vous dormiez
-Et le lendemain matin vous les retrouveriez peut-être #4
-pas trop abimées.
-Le lendemain matin elles ne seraient peut-être pas
-plus mal. EE:
-Je suis peut-être encore capable de les conduire un peu.
-Je parle de ceux qui travaillent
-: Et qui ainsi en ceci suivent mon commandement,
-Et qui ne dorment pas, et qui ainsi en ceci À
-Refusent tout ce qu'il y a de bon dans ma création,
-Le sommeil, tout ce que j'ai créé de bon,
-Et aussi refusent tout de même ici mon commandement “4
-9 - Pauvres enfants quelle ingratitude envers moi
-Que de refuser un aussi bon,
-Un aussi beau commandement.
-Pauvres enfants ils suivent la sagesse humaine.
-La sagesse humaine dit Ne remettez pas au lendemain à
-Ce que vous pouvez faire le jour même.
-Et moi je vous dis Celui qui sait remettre au lendemain
-Est celui qui est le plus agréable à Dieu.
-Celui qui dort comme un enfant
-Est aussi celui qui dort comme ma chère Espérance.
-
-Et moi je vous dis Remettez à demain
-Ces soucis et ces peines qui aujourd'hui vous rongent
-
-3% Et aujourd'hui pourraient vous dévorer.
-
-: Remettez à demain ces sanglots qui vous étouffent
-
-4 - Quand vous voyez le malheur d'aujourd'hui.
-
-à Ces sanglots qui vous montent et qui vous étranglent.
-
-À Remettez à demain ces larmes qui vous emplissent les
-
-yeux et la tête.
-
-Qui vous inondent. Qui vous tombent. Ces larmes qui
-
-vous coulent.
-
-Parce que d'ici demain, moi, Dieu, j'aurai peut-être
-
-LA La sagesse humaine dit: Malheureux qui remet à
-
-Et moi je dis Heureux, heureux qui remet à demain.
-
-Heureux qui remet. C'est-à-dire Heureux qui espère, Et a
-qui dort.
-
-: Et au contraire je dis Malheureux.
-
-- Malheureux celui qui veille et ne me fait pas confiance.
-Quelle défiance de moi. Malheureux celui qui veille. Et
-
-Malheureux celui qui traîne surles soirs et sur ses nuits.
-Sur les avancées du soir et sur les tombées de la nuit.
-Comme une traînée d'escargot sur ces belles avancées.
-
-Comme une traînée de limace sur ces belles tombées.
-
-Mes créatures, ma création.
-
-- Les lents ressouvenirs des soucis quotidiens.
-
-À. Les cuissons, les morsures.
-
-… Les traces sales des soucis, des amertumes et des
-
-le porche GITE
-Les traces de limaces. Sur les fleurs de ma nuit.
-En vérité je vous le dis celui-là fait offense
-A ma chère Espérance.
-Qui ne veut point me confier le gouvernement de sa vie.
-Pendant qu'il dormirait.
-Qui ne veut point me confier le gouvernement de sa
-nuit.
-Comme si je n'avais pas fait mes preuves.
-Qui ne veut pas me confier le gouvernement d'une nuit
-Comme si plus d'un..
-Qui avait laissé ses affaires très mauvaises en se couchant.
-Ne les avait pas trouvées très bonnes en se levant.
-Parce que peut-être j'avais passé par là.
-Les nuits se suivent et se tiennent et pour l'enfant les
-nuits sont continues et elles sont le fond de son être
-C'est qu'il retombe. Elles sont le fond même de sa à
-Elles sont son être même. La nuit est l'endroit, la nuit:
-crée, où il se fait.
-Où il fait son être.
-Où il se refait.
-
-: La nuit est l'endroiït, la nuit est l'être où il se repose,
-Où il rentre. Et il en sort frais. La nuit est ma plus;
-pourquoi l'homme n'en use-t-il pas. On me dit qu'il
-y à des hommes qui ne dorment pas la nuit.
-À La nuit est pour les enfants et pour ma jeune
-Espérance ce qu'elle est réellement. Ce sont les enfants
-qui voient et qui savent. C'est ma jeune espérance
-Qui voit et qui sait. Ce que c'est que l'être.
-que c'est que cet être la nuit. C'est la nuit qui est
-Les enfants savent très bien. Les enfants voient très
-Et ce sont les jours qui sont discontinus. Ce sont les
-jours qui percent, qui rompent la nuit
-Et nullement les nuits qui interrompent le jour.
-C'est le jour qui fait du bruit à la nuit.
-Autrement elle dormirait.
-Qu'il entoure, qu'il cerne, qu'il ensevelit les jours mêmes.
-Qu''ii fait une bordure auguste aux agitations des jours.
-Les enfants ont raison, ma petite Espérance a raison.
-Toutes les nuits ensemble
-Se rejoignent, se joignent comme une belle ronde,
-comme une belle danse
-De nuits qui se tiennent par la main et les maigres
-Ne font qu'une procession qui ne se tient pas par la
-
-Les enfants ont raison, ma petite Espérance a raison.
-: Les nuits toutes ensemble
-, Se rejoignent, se joignent par dessus les bords des
-jours, se tendent la main
-.. Par dessus les jours, font une chaîne et plus qu'une
-Une ronde, une danse, les nuits se prennent la main
-à Par dessus le jour, du matin au soir
-Du bord du matin à celui du soir, se penchant l'une
-vers l'autre.
-Celle qui descend du jour précédent se penche en
-; Celle qui monte
-Du jour suivant
-Et les deux se joignent, joignent leurs mains,,
-: Joignent leur silence et leur ombre; RE.
-Et leur piété et leur auguste solitude
-Par dessus les bords difficiles
-Par dessus les bords du laborieux jour.
-Et toutes ensemble, ainsi se tenant la main, -
-Débordant par dessus les bords, les poignets liés
-Aux poignets toutes les nuits l'une après l'autre
-Ensemble forment la nuit et les jours l'un après l'autre
-Ensemble ne forment pas le jour. Car ils ne sont jamais
-que des maigres jours À
-Qui ne se donnent pas la main. de même que la vie
-En grand (si je puis dire) n'est qu'un passage entre « deux bords
-Une ouverture entre la nuit d'avant et la nuit d'après
-
-- Entre la nuit de ténèbres et la nuit de lumière
-. Ainsi en petit chaque jour n'est qu'une ouverture.
-Un jour.
-
-à Non pas seulement entre la nuit d'avant et la nuit
-Entre les deux bords.
-Mais comme les enfants le voient, comme les enfants le
-sentent, et ma jeune Espérance, comme les enfants le
-- Dans la nuit, dans une seule et même,
-. Dans la seule et même nuit
-Où se retrempe l'être.
-En plein dans la nuit.
-C'est la nuit qui est continue, où se retrempe l'être,
-Cest la nuit qui fait un long tissu continu,
-Un tissu continu sans fin où les jours ne sont que des.
-Ne s'ouvrent que comme des jours.
-… C'est-à-dire comme des trous, dans une étoffe où il y a
-des jours.
-Dans une étoffe, dans un tissu ajouré.
-C'est la nuit qui est ma grande muraille noire
-Où les jours ne s'ouvrent que comme des fenêtres
-D'une inquiète et d'une vacillante
-- Et peut-être d'une fausse lumière.
-Où les jours ne s'ouvrent que comme des jours.
-- Où les jours ne s'ouvrent que comme des lucarnes.
-Car il ne faut point dire que la chaîne des temps
-… Serait une chaîne sans fin
-Où la maille suit la maïlle, où le chaînon suit le chaînon,
-
-Où les jours et les nuits se suivraient égaux dans une
-même chaïne.
-Un chaïnon blane, un chaïnon noir, la nuit accrochant
-le jour, le jour accrochant la nuit.
-Mais ils ne sont point égaux, ils n'ont point la même
-dignité dans cette chaîne.
-C'est la nuit qui est continue. C'est la nuit qui est le
-Du temps, la réserve d'être
-Et le jour n'ouvre dessus que par de méchantes fenétres et des poternes.
-C'est le jour qui rompt et le jour n'ouvre dessus
-Que par de pauvres jours
-; De souffrance. C'est le jour qui crève et les jours sont;
-comme des îles dans la mer.
-Comme des îles interrompues qui interrompent la mer.
-Mais la mer est continue et ce sont les îles qui ont tort. …
-Ainsi ce sont les jours qui ont tort et interrompus ils
-interrompent la nuit.
-Mais ils ont beau faire et eux-mêmes
-Ils baignent dans la nuit.:
-Comme la mer est la réserve d'eau ainsi la nuit est la
-C'est le temps que je me suis réservé. Tous ces jours
-fiévreux ont beau faire.
-: Comme en pleine mer, en plein dans la nuit ils baignent
-en pleine nuit.
-Ce sont eux qui sont dispersés, ce sont eux qui sont
-Les jours sont des Sporades et la nuit est la pleine mer
-Où naviguait saint Paul
-
-Etle bord qui descend de la nuit vers le jour
-Est toujours un bord qui monte
-Un bord abrupt et le bord qui remonte du jour vers la
-Est toujours un bord qui descend. Dans la pleine nuit.
-O nuit, ma plus belle invention, ma création auguste
-entre toutes.
-Ma plus belle créature. Créature de la plus grande
-Qui donnes le plus de matière à l'Espérance.
-. Qui es l'instrument, qui es la matière même et la résidence de l'Espérance.
-Et aussi, (et ainsi), au fond eréature de la plus grande
-Car c'est toi qui berces toute la Création
-… Dans un Sommeil réparateur.
-Comme on couche un enfant dans son petit lit,
-Comme sa mère le couche et comme sa mère le borde
-Et l''embrasse (Elle n'a pas peur de le réveiller.
-Il dort tellement bien).
-Comme sa mère le borde et rit et le baise au front
-Et lui aussi rit, lui rit en réponse en dormant.
-Ainsi, Ô nuit, mère aux yeux noirs, mère universelle,
-Non plus seulement mère des enfants (c'est si facile)
-Mais mère des hommes mêmes et des femmes, ce qui
-est si difficile,
-C'est toi, nuit, qui couches et fais coucher toute la
-- Dans un lit de quelques heures.
-(En attendant). Dans un lit de quelques heures
-
-le porche LRREMENERSERES
-Image, faible image, et promesse et avant réalisation
-du lit de toutes les heures.
-Eee En attendant le lit de toutes les heures. #4
-; Où moi, le Père, je coucherai ma création.
-; O Nuit tu es la nuit. Et tous ces jours ensemble “4
-! Ne sont jamais le jour, ils ne sont jamais que des jours.
-Semés. Ces jours ne sont jamais que des clartés.
-Douteuses, et toi, la nuit, tu es ma grande lumière
-Je m'applaudis d'avoir fait la nuit. Les jours sont des
-flots et des îles
-Qui percent et qui crèvent la mer. à
-Mais il faut bien qu'ils reposent dans la mer profonde.
-Ils sont bien forcés.?
-Ainsi vous autres jours vous êtes bien forcés. “4
-Il faut bien que vous reposiez dans la profonde nuit.
-Et toi nuit tu es la mer profonde
-Où naviguait saint Paul, non plus ce petit lac de Tibé-
-Tous ces jours ne sont jamais que des membres
-Démembrés. Ce sont les jours qui émergent, mais il
-faut bien qu'ils soient assis dans la pleine eau.
-Dans la nuit pleine. Nuit ma plus belle invention c'est « Ê toi qui calmes, c'est toi qui apaises, c'est toi qui fais
-Tout démanchés du travail du jour.
-C'est toi qui calmes, c'est toi qui apaises, c'est toi qui
-
-Les corps meurtris, les membres meurtris du labeur,
-les cœurs meurtris du labeur
-O Nuit, à ma fille la Nuit, la plus religieuse de mes
-La plus pieuse.
-» De mes filles, de mes créatures la plus dans mes mains,
-ù la plus abandonnée.
-Tu me glorifies dans le Sommeil encore plus que ton
-É Frère le Jour ne me glorifie dans le Travail.
-Car l'homme dans le travail ne me glorifie que par son
-Ë. Et dans le sommeil c'est moi qui me glorifie moi-même
-par l'abandonnement de l'homme.
-Et c'est plus sûr, je sais mieux m'y prendre.
-Nuit tu es pour l'homme une nourriture plus nourrissante que le pain et le vin.
-Car celui qui mange et boit, s'il ne dort pas, sa nourri-
-LA ture ne lui profite pas.
-Et lui aïgrit, et lui tourne sur le cœur.
-À Mais s'il dort le pain et le vin deviennent sa chair et
-es son sang.
-Pour travailler. Pour prier. Pour dormir.
-Nuit tu es la seule qui panses les blessures,
-Les cœurs endoloris. Tout démanchés. Tout démembrés.
-ma fille aux yeux noirs, la seule de mes filles qui.
-sois, qui puisses te dire ma complice.;
-Qui sois complice avec moi, car toi et moi, moi par toi
-Ensemble nous faisons tomber l'homme dans le piège
-à de mes bras -
-Et nous le prenons un peu par une surprise. -
-
-le porche
-É Mais on le prend comme on peut. Si quelqu'un le sait,
-c'est moi.
-Nuit tu es une belle invention
-y De ma sagesse.
-Nuit 6 ma fille la Nuit ô ma fille silencieuse
-Au puits de Rébecca, au puits de la Samaritaine
-C'est toi qui puises l'eau la plus profonde
-Dans le puits le plus profond
-O nuit qui berces toutes les créatures
-Dans un sommeil réparateur.
-O nuit qui laves toutes les blessures
-Dass la seule eau fraiche et dans la seule eau profonde
-Au puits de Rébecca tirée du puits le plus profond.
-Amie des enfants, amie et sœur de la jeune Espérance
-O nuit qui panses toutes les blessures
-Au puits de la Samaritaine toi qui tires du puits le plus
-La prière la plus profonde.
-O nuit, à ma fille la Nuit, toi qui sais te taire, Ô ma fille
-Toi qui verses le repos et l'oubli. Toi qui verses le
-baume, et le silence, et l'ombre
-O ma Nuit étoilée je t'ai créée la première.
-Toi qui endors, toi qui ensevelis déjà dans une Ombre:
-Toutes mes créatures
-Les plus inquiètes, le cheval fougueux, la fourmi laborieuse,
-Et l'homme ce monstre d'inquiétude.
-Nuit qui réussis à endormir l'homme -
-
-A lui seul plus inquiet que toute la création ensemble.
-L'homme, ce puits d'inquiétude.
-Comme tu endors l'eau du puits.
-O ma nuit à la grande robe
-Qui prends les enfants et la jeune Espérance
-É Dans le pli de ta robe
-Mais les hommes ne se laissent pas faire.
-O ma belle nuit je t'ai créée la première.
-CET presque avant la première
-Toi par qui descend sur terre un avant goût
-- Toi qui répands de tes mains, toi qui verses sur terre
-Fe: Avant-coureur de la paix éternelle.
-à Avant-coureur du repos éternel.
-A Un premier baume, si frais, une première béatitude
-Avant-coureur de la béatitude éternelle.
-Toi qui apaises, toi qui embaumes, toi qui consoles.
-Toi qui bandes les blessures et les membres meurtris.
-Toi qui endors les cœurs, toi qui endors les corps
-Les cœurs endoloris, les corps endoloris,
-Les membres rompus, les reins brisés
-De fatigue, de soucis, des inquiétudes;
-Toi qui verses le baume aux gorges déchirées d'amertume
-- O ma fille au grand cœur je t'ai créée la première
-
-Presque avant la première, ma fille au sein immense
-Et je savais bien ce que je faisais.?
-Je savais peut-être ce que je faisais.
-Toi qui couches l'enfant au bras de sa mère à à
-: L'enfant tout éclairé d'une ombre de sommeil
-Tout riant en dedans, tout riant secret d'une confiance “2
-Tout riant secret d'un pli des lèvres sérieux
-Toi qui couches l'enfant tout en dedans gonflé, déborFe dant d'innocence
-Le Et de confiance
-Toi qui couchais l'enfant Jésus tous les soirs
-Au bras de la Très Sainte et de l'Immaculée.:
-Toi qui es la sœur tourière de l'espérance.
-O ma fille entre toutes première. Toi qui réussis même,:
-Toi qui réussis quelquefois
-Toi qui couches l'homme au bras de ma Providence >.
-O ma fille étincelante et sombre je te salue
-es Toi qui répares, toi qui nourris, toi qui reposes
-O silence de l'ombre
-Un tel silence régnait avant la création de l'inquiétude.
-Avant le commencement du règne de l'inquiétude.
-Un tel silence régnera, mais un silence de lumière à
-é Quand toute cette inquiétude sera consommée,
-À Quand toute cette inquiétude sera épuisée.
-Quand ils auront tiré toute l'eau du puits.
-É Après la consommation, après l'épuisement de toute À
-: cette inquiétude
-
-Car dans ce règne d'inquiétude tu rappelles, tu com-
-3: mémores, tu rétablis presque,
-Tu fais presque recommencer la Quiétude antérieure:
-. Quand mon esprit planaït sur les eaux.
-Mais aussi ma fille étoilée, ma fille au manteau sombre,
-4 tu es très en avance, tu es très précoce.: Fe.
-. Car tu annonces, car tu représentes, car tu fais presque
-14 commencer d'avance tous les soirs
-Ma grande Quiétude de lumière
-Nuittues sainte, Nuit tu es grande, Nuit tu es belle. à
-Nuit au grand manteau.
-Ln_ grande fille et ma créature 5-24
-3 belle nuit, nuit au grand manteau, ma fille au man-
-Tu me rappelles, à moi-même tu me rappelles ce grand
-silence qu'il y avait
-sa Avant que j'eusse ouvert les écluses d'ingratitude.
-Ettu m'annonces, à moi-même tu m'annonces ce grand?
-Quand je les aurai fermées.;:
-O douce, ô grande, à sainte, 6 belle nuit, peut-être
-plus sainte de mes filles, nuit à la grande robe, à la ce
-Tu me rappelles ce grand silence qu'il y avait dans le:
-monde
-- Ayant le commencement du règne de l'homme.
-Tu m'annonces ce grand silence qu'il y aura (
-
-le porche: se
-Après la fin du règne de l'homme, quand j'aurai repris
-mon sceptre.
-Et j'y pense quelquefois d'avance, car cet homme fait
-vraiment beaucoup de bruit.
-Mais surtout, Nuit, tu me rappelles cette nuit.
-La neuvième heure avait sonné. C'était dans le pays de
-mon peuple d'Israël.
-: Tout était consommé. Cette énorme aventure.
-Depuis la sixième heure il y avait des ténèbres sur
-tout le pays, jusqu'à la neuvième heure.
-Tout était consommé. Ne parlons plus de cela. me
-fait mal.
-Cette incroyable descente de mon fils parmi les hommes.
-Chez les hommes.
-Pour ce qu'ils en ont fait.
-Ces trente ans qu'il fut charpentier chez les hommes.
-Ces trois ans qu'il fut une sorte de prédicateur chez les
-Ces trois jours où il fut une victime chez les hommes,
-; Parmi les hommes.
-Ces trois nuits où il fut un mort chez les hommes.
-Parmi les hommes morts.
-: Ces siècles et ces siècles où il est une hostie chez les
-Tout était consommé, cette incroyable aventure
-Par laquelle, moi, Dieu, j'ai les bras liés pour mon à
-Cette aventure par laquelle mon Fils m'a lié les
+
+##  DEUXIÈME PARTIE
+
+Ils sortirent de Paris. Ils traversèrent les vastes plaines ensevelies dans le brouillard. C'était par un soir semblable que Christophe, dix ans avant, était arrivé à Paris. Il était fugitif alors, comme aujourd'hui. Mais alors, il vivait, celui qui l'avait aimé ; et Christophe fuyait vers lui...
+
+Pendant la première heure, Christophe était encore dans l'excitation de la lutte : il parlait beaucoup et fort ; il racontait, d'une façon saccadée, ce qu'il avait vu et fait ; il était fier de ses prouesses, et n'avait aucun remords. Manousse et Canet parlaient aussi, pour l'étourdir. Peu à peu, la fièvre tomba, et Christophe se tut ; ses deux compagnons continuèrent seuls de parler. Il était un peu ahuri par les aventures de l'après-midi, mais nullement abattu. Il se souvint du temps où il était venu en France, fuyant déjà, fuyant toujours. Cela le fit rire. C'était sans doute sa destinée. Quitter Paris ne lui causait pas de peine : la terre était vaste ; les hommes sont partout les mêmes. Où qu'il fût, il ne lui importait guère, pourvu qu'il fût avec son ami. Il comptait le rejoindre, le matin suivant. On le lui avait promis.
+
+Ils arrivèrent à Laroche. Manousse et Canet ne le quittèrent point qu'ils ne l'eussent vu dans le train qui partait. Christophe se fit répéter l'endroit où il devait descendre, et le nom de l'hôtel, et la poste où il trouverait des nouvelles. Malgré eux, en le quittant, ils avaient des mines funèbres. Christophe leur serra gaiement la main.
+
+--- Allons, leur cria-t-il, ne faites pas ces figures d'enterrement. On se reverra, que diable ! Ce n'est pas une affaire ! Nous vous écrirons demain.
+
+Le train partit. Ils le regardèrent s'éloigner.
+
+--- Le pauvre diable ! dit Manousse.
+
+Ils remontèrent dans l'auto. Ils se taisaient. Au bout de quelque temps, Canet dit à Manousse :
+
+--- Je crois que nous venons de commettre un crime.
+
+Manousse ne répondit rien d'abord, puis il dit :
+
+--- Bah ! les morts sont morts. Il faut sauver les vivants.
+
+Avec la nuit qui était venue, l'excitation de Christophe tomba tout à fait. Rencogné dans un angle de son compartiment, il méditait, dégrisé et glacé. En regardant ses mains, il y vit du sang qui n'était pas le sien. Il eut un frisson de dégoût. La scène du meurtre reparut. Il se rappela qu'il avait tué ; et il ne savait plus pourquoi. Il recommença à se raconter la scène de la bataille ; mais il la voyait, cette fois, avec de tout autres yeux. Il ne comprenait plus comment il y avait été mêlé. Il reprit le récit de la journée, depuis l'instant où il était sorti de la maison avec Olivier ; il refit avec lui le chemin à travers Paris, jusqu'au moment où il avait été aspiré dans le tourbillon. À ce moment, il cessait de comprendre ; la chaîne de ses pensées se rompait : comment avait-il pu crier, frapper, vouloir avec ces hommes dont il désapprouvait la foi ? Ce n'était pas lui, ce n'était pas lui !... Éclipse totale de sa volonté !... Il en était stupéfait et honteux. Il n'était donc pas son maître ? Et qui était son maître ?... Il était emporté par l'express dans la nuit ; et la nuit intérieure où il était emporté n'était pas moins sombre, ni la force inconnue moins vertigineuse... Il s'efforça de secouer son trouble ; mais ce fut pour changer de souci. À mesure qu'il approchait du but, il pensait davantage à Olivier ; et il commençait à avoir une inquiétude, sans raison.
+
+Au moment d'arriver, il regarda par la portière si, sur le quai de la gare, la chère figure connue... Personne. Il descendit, regardant toujours autour de lui. Une ou deux fois, il eut l'illusion... Non, ce n'était pas « lui ». Il alla à l'hôtel convenu. Olivier n'y était point. Christophe n'avait pas lieu d'en être surpris : comment Olivier l'y eût-il devancé ?... Mais dès lors, l'angoisse de l'attente commença.
+
+C'était le matin. Christophe monta dans sa chambre. Il redescendit. Il déjeuna. Il flâna dans les rues. Il affectait d'avoir l'esprit libre ; il regardait le lac, les étalages des boutiques ; il plaisantait avec la fille du restaurant, il feuilletait les journaux illustrés... Il ne s'intéressait à rien. La journée se traînait, lente et lourde. Vers sept heures du soir, Christophe qui, ne sachant que faire, avait dîné plus tôt et de mauvais appétit, remonta dans sa chambre, en priant qu'aussitôt que viendrait l'ami qu'il attendait, on le conduisît chez lui. Il s'assit devant sa table, le dos tourné à la porte. Il n'avait rien pour l'occuper, aucun bagage, aucun livre ; seulement un journal, qu'il venait d'acheter ; il se forçait à le lire ; son attention était ailleurs : il écoutait le bruit des pas dans le corridor. Tous ses sens étaient surexcités par la fatigue d'une journée d'attente et d'une nuit sans sommeil.
+
+Brusquement, il entendit qu'on ouvrait la porte. Un sentiment indéfinissable fit qu'il ne se retourna pas d'abord. Il sentit une main s'appuyer sur son épaule. Alors il se retourna et vit Olivier, qui souriait. Il ne s'en étonna pas, et dit :
+
+--- Ah ! te voilà enfin !
+
+Le mirage s'effaça.
+
+Christophe se leva violemment, repoussant la table et sa chaise, qui tomba. Ses cheveux se hérissaient. Il resta un moment, livide, claquant des dents.
+
+À partir de cette minute, --- (il avait beau ne rien savoir, et se répéter : « Je ne sais rien ») --- il sut tout ; il était sûr de ce qui allait venir.
+
+Il ne put rester dans sa chambre. Il sortit dans la rue, il marcha pendant une heure. À son retour, dans le vestibule de l'hôtel, le portier lui remit une lettre. *La* lettre. Il était sûr qu'elle serait là. Sa main tremblait, en la prenant. Il remonta chez lui pour la lire. Il l'ouvrit, il vit qu'Olivier était mort. Et il s'évanouit.
+
+La lettre était de Manousse. Elle disait qu'en lui cachant ce malheur, la veille, pour hâter son départ, ils n'avaient fait qu'obéir au vœu d'Olivier, qui voulait que son ami fût sauvé, --- qu'il n'eût servi de rien à Christophe de rester, sinon à se perdre aussi, --- qu'il lui fallait se conserver pour la mémoire de son ami, et pour ses autres amis, et pour sa propre gloire... etc... etc... Aurélie avait ajouté trois lignes de sa grosse écriture tremblée, pour dire qu'elle prendrait bien soin du pauvre petit monsieur...
+
+Quand Christophe revint à lui, il eut une crise de fureur. Il voulait tuer Manousse. Il courut à la gare. Le vestibule de l'hôtel était vide, les rues désertes ; dans la nuit, les rares passants attardés ne remarquèrent pas cet homme aux yeux fous, qui haletait. Il était cramponné à son idée fixe, comme un bouledogue avec ses crocs : « Tuer Manousse ! Tuer !... » Il voulut revenir à Paris. Le rapide de nuit était parti, une heure avant. Il fallait attendre au lendemain matin. Impossible d'attendre. Il prit le premier train qui partait dans la direction de Paris. Un train qui s'arrêtait à toutes les stations. Seul, dans le wagon, Christophe criait :
+
+--- Ce n'est pas vrai ! Ce n'est pas vrai !
+
+À la deuxième station après la frontière française, le train s'arrêta tout à fait ; il n'allait pas plus loin. Christophe, frémissant de rage, descendit, demandant un autre train, questionnant, se heurtant à l'indifférence des employés à demi endormis. Quoi qu'il fît, il arriverait trop tard. Trop tard pour Olivier. Il ne parviendrait même pas à rejoindre Manousse. Il serait arrêté avant. Que faire ? Que vouloir ? Continuer ? Revenir ? À quoi bon ? À quoi bon ?... Il songea à se livrer à un gendarme qui passait. Un obscur instinct de vivre le retint, lui conseilla de retourner en Suisse. Aucun train ne partait plus, dans l'une ou l'autre direction, avant deux ou trois heures. Christophe s'assit dans la salle d'attente, ne put rester, sortit de la gare, prit une route au hasard dans la nuit. Il se trouva au milieu de la campagne déserte, --- des prairies, coupées çà et là de bouquets de sapins, avant-garde d'une forêt. Il s'y enfonça. À peine y eut-il fait quelques pas qu'il se jeta par terre, et cria :
+
+--- Olivier !
+
+Il se coucha en travers de la route, et sanglota.
+
+Longtemps après, un sifflet de train, au loin, le fit se relever. Il voulut retourner à la gare. Il se trompa de chemin. Il marcha, toute la nuit. Que lui importait, ici ou là ? Marcher pour ne pas penser, marcher jusqu'à ce qu'on ne pense plus, jusqu'à ce qu'on tombe mort. Ah ! si l'on pouvait être mort !...
+
+À l'aube, il se trouva dans un village français, très loin de la frontière. Toute la nuit il s'en était éloigné. Il entra dans une auberge, mangea voracement, repartit, marcha encore. Dans la journée, il s'écroula au milieu d'un pré, il y resta jusqu'au soir, endormi. Lorsqu'il se réveilla, une nouvelle nuit commençait. Sa fureur était tombée. Il ne lui restait qu'une douleur atroce, irrespirable. Il se traîna jusqu'à une ferme, demanda un morceau de pain, une botte de paille pour dormir. Le fermier le dévisagea, lui coupa une tranche de miche, le conduisit dans l'étable, l'enferma. Couché dans la litière, près des vaches à l'odeur fade, Christophe dévorait son pain. Son visage ruisselait de larmes, sa faim et sa douleur ne pouvaient s'apaiser. Cette nuit encore, le sommeil le délivra, pour quelques heures, de ses peines. Il se réveilla le lendemain, au bruit de la porte qui s'ouvrait. Il resta étendu, sans bouger. Il ne voulait plus revivre. Le fermier s'arrêta devant lui, et le regarda longuement ; il tenait à la main un papier sur lequel il jetait les yeux de temps en temps. Enfin l'homme fit un pas, et mit sous le nez de Christophe un journal. Son portrait, en première page.
+
+--- C'est moi, dit Christophe. Livrez-moi.
+
+--- Levez-vous, dit le fermier.
+
+Christophe se leva. L'homme lui fit signe de le suivre. Ils passèrent derrière la grange, prirent un sentier qui tournait, au milieu des arbres fruitiers. Arrivés à une croix, le fermier montra un chemin à Christophe, et lui dit :
+
+--- La frontière est par là.
+
+Christophe reprit sa route, machinalement. Il ne savait pourquoi il marchait. Il était si las, si brisé de corps et d'âme qu'il avait envie de s'arrêter, à chaque pas. Mais il sentait que s'il s'arrêtait, il ne pourrait plus repartir, il ne pourrait plus bouger de l'endroit où il serait tombé. Il marcha, tout le jour encore. Il n'avait plus un sou pour acheter du pain. D'ailleurs, il évitait de traverser les villages. Par un sentiment bizarre qui échappait à sa raison, cet homme qui voulait mourir avait peur d'être pris ; son corps était comme un animal traqué qui fuit. Ses misères physiques, la fatigue, la faim, une terreur obscure qui se levait de son être épuisé, étouffaient pour l'instant sa détresse morale. Il aspirait seulement à trouver un asile, où il lui fût permis de s'enfermer avec elle et de s'en repaître.
+
+Il passa la frontière. Au loin, il vit une ville que dominaient des tours aux clochetons effilés et des cheminées d'usines, dont les longues fumées, comme des rivières noires, coulaient avec monotonie, toutes dans le même sens, sous la pluie, dans l'air gris. Il était près de tomber. À cet instant, il se rappela qu'il connaissait dans cette ville un docteur de son pays, un certain Erich Braun, qui lui avait écrit, l'an passé, après un de ses succès, pour se rappeler à lui. Si médiocre que fût Braun et si peu qu'il eût été mêlé à sa vie, Christophe, par un instinct de bête blessée, fit un suprême effort pour aller tomber chez quelqu'un qui ne fût pas tout à fait un étranger pour lui.
+
+Sous le voile de fumées et de pluie, il entra dans la ville grise et rouge. Il marcha au travers, sans rien voir, demandant son chemin, se trompant, revenant sur ses pas, errant au hasard. Il était à bout de forces. Par une dernière tension de sa volonté bandée, il lui fallut gravir des ruelles escarpées des escaliers qui montaient au sommet d'une étroite colline, chargée de maisons serrées autour d'une église sombre. Soixante marches en pierre rouge, groupées par trois ou par six. Entre chaque groupe de marches, une plateforme exiguë pour la porte d'une maison. À chacune, Christophe reprenait haleine, en chancelant. Là-haut, au-dessus de la tour des corbeaux tournoyaient.
+
+Enfin, il lut sur une porte le nom qu'il cherchait. Il frappa. --- La ruelle était dans la nuit. De fatigue, il ferma les yeux. Nuit noire en lui... Des siècles passèrent.
+
+La porte étroite s'entr'ouvrit. Sur le seuil parut une femme. Son visage était dans l'ombre ; mais sa silhouette se détachait sur le fond clair d'un petit jardin, que l'on apercevait au bout du long corridor, au couchant. Elle était grande, se tenait droite, sans parler, attendant qu'il parlât. Il ne voyait pas ses yeux ; il sentait leur regard. Il demanda le docteur Erich Braun, et se nomma. Les mots sortaient avec peine de sa gorge. Il était épuisé de fatigue, de soif et de faim. Sans un mot, la femme rentra ; et Christophe la suivit dans une pièce aux volets clos. Dans l'obscurité, il se heurta contre elle ; ses genoux et son ventre frôlèrent ce corps silencieux. Elle sortit et ferma la porte sur lui, le laissant seul, sans lumière. Il restait immobile, de crainte de renverser quelque chose, appuyé au mur, le front contre la paroi lisse ; ses oreilles bourdonnaient ; dans ses yeux, les ténèbres dansaient.
+
+À l'étage au-dessus, une chaise remuée, des exclamations de surprise, une porte fermée avec fracas. De lourds pas descendirent l'escalier.
+
+--- Où est-il ? demandait une voix connue.
+
+La porte de la chambre se rouvrit.
+
+--- Comment ! On l'a laissé dans l'obscurité ! Anna ! Sacrebleu ! Une lumière !
+
+Christophe était si faible, il se sentait si perdu que le son de cette voix bruyante, mais cordiale, lui fit du bien, dans sa misère. Il saisit les mains qu'on lui tendait. La lumière était venue. Les deux hommes se regardèrent. Braun était petit ; il avait la figure rouge avec une barbe noire, dure et mal plantée, de bons yeux qui riaient derrière des lunettes, un large front bosselé, ridé, tourmenté, inexpressif, des cheveux soigneusement collés au crâne et divisés par une raie qui descendait jusqu'à la nuque. Il était parfaitement laid ; mais Christophe éprouvait un bien-être à le regarder et à serrer ses mains. Braun ne cachait pas sa surprise.
+
+--- Bon Dieu ! qu'il est changé ! Dans quel état !
+
+--- Je viens de Paris, dit Christophe. Je me suis sauvé.
+
+--- Je sais, je sais, nous avons vu dans le journal, on disait que vous étiez pris. Dieu soit loué ! Nous avons bien pensé à vous, Anna et moi.
+
+Il s'interrompit, et montrant à Christophe la figure silencieuse qui l'avait accueilli dans la maison :
+
+--- Ma femme.
+
+Elle était restée à l'entrée de la chambre, une lampe à la main. Un visage taciturne, au fort menton. La lumière tombait sur ses cheveux bruns aux reflets roux et sur ses joues, d'un teint mat. Elle tendit la main à Christophe, d'un geste raide, le coude serré au corps ; il la prit sans regarder. Il défaillait.
+
+--- Je suis venu... essaya-t-il d'expliquer J'ai pensé que voudriez bien... si je ne vous gêne pas trop... me recevoir, un jour...
+
+Braun ne le laissa pas achever.
+
+--- Un jour !... Vingt jours, cinquante, autant qu'il vous plaira. Tant que vous serez dans ce pays, vous logerez dans notre maison ; et j'espère que ce sera longtemps. C'est un honneur et un bonheur pour nous.
+
+Ces affectueuses paroles bouleversèrent Christophe. Il se jeta dans les bras de Braun.
+
+--- Mon bon Christophe, mon bon Christophe, disait Braun... Il pleure... Eh bien, qu'est-ce qu'il a donc ?... Anna ! Anna !... Vite, il s'évanouit...
+
+Christophe s'était affaissé dans les bras de son hôte. La syncope qu'il sentait venir depuis quelques heures l'avait terrassé.
+
+Quand il rouvrit les yeux, il était couché dans un grand lit. Une odeur de terre humide montait par la fenêtre ouverte. Braun était penché sur lui.
+
+--- Pardon, balbutia Christophe, en tâchant de se relever.
+
+--- Mais il meurt de faim, cria Braun.
+
+La femme sortit, revint avec une tasse, le fit boire. Braun lui soutenait la tête. Christophe reprenait vie ; mais la fatigue était plus forte que la faim ; à peine la tête remise sur l'oreiller, il s'endormit. Braun et sa femme le veillèrent ; puis, voyant qu'il n'avait besoin que de repos, ils le laissèrent.
+
+C'était un de ces sommeils qui semblent durer des années, sommeil accablé, accablant, comme du plomb au fond d'un lac. On est la proie de la lassitude accumulée et des hallucinations monstrueuses qui rôdent éternellement aux portes de la volonté. Il voulait s'éveiller, brûlant, brisé, perdu dans cette nuit inconnue ; il entendait des horloges sonner d'éternelles demies ; il ne pouvait respirer, ni penser, ni bouger ; il était ligoté, bâillonné, comme un homme que l'on noie, il voulait se débattre et retombait au fond. --- L'aube arriva enfin, l'aube tardive et grise d'un jour pluvieux. L'intolérable chaleur qui le consumait tomba ; mais son corps gisait sous une montagne. Il se réveilla. Réveil terrible.
+
+--- Pourquoi ouvrir les yeux ? Pourquoi me réveiller ? Rester là, comme mon pauvre petit, qui est couché sous la terre...
+
+Étendu sur le dos, il ne faisait pas un mouvement, bien qu'il souffrît de sa position dans le lit ; ses bras et ses jambes étaient lourds comme de la pierre. Il était dans un tombeau. Lumière blafarde. Quelques gouttes de pluie frappaient les carreaux. Un oiseau dans le jardin poussait de petits cris plaintifs. Ô misère de vivre ! Inutilité cruelle !...
+
+Les heures s'écoulèrent. Braun entra. Christophe ne tourna pas la tête. Braun, lui voyant les yeux ouverts, l'interpella joyeusement ; et comme Christophe continuait de fixer le plafond, d'un regard morne, il entreprit de secouer sa mélancolie ; il s'assit sur le lit et bavarda bruyamment. Ce bruit était insupportable à Christophe. Il fit un effort, qui lui sembla surhumain, pour dire :
+
+--- Je vous en prie, laissez-moi.
+
+Le brave homme changea de ton, aussitôt.
+
+--- Vous voulez être seul ? Comment donc ! Certainement. Restez bien tranquillement. Reposez-vous, ne parlez pas, on vous montera les repas, personne ne dira rien.
+
+Mais il lui était impossible d'être bref. Après d'interminables explications, il quitta la chambre sur le bout de ses gros souliers qui faisaient craquer le parquet. Christophe resta de nouveau seul, enfoncé dans sa lassitude mortelle. Sa pensée se diluait dans un brouillard de souffrance. Il s'épuisait à comprendre... « Pourquoi l'avait-il connu ? Pourquoi l'avait-il aimé ? À quoi avait-il servi qu'Antoinette se dévouât ? Quel sens avaient toutes ces vies, toutes ces générations, --- une telle somme d'épreuves et d'espoirs, --- qui aboutissaient à cette vie et s'étaient engouffrées avec elle dans le vide ? »... Non-sens de la vie. Non-sens de la mort. Un être raturé, escamoté, toute une race disparue, sans qu'il en reste aucune trace. On ne sait ce qui l'emporte, de l'odieux ou du grotesque. Il lui venait un rire mauvais, rire de haine et de désespoir. Son impuissance d'une telle douleur, sa douleur d'une telle impuissance, le tuaient. Il avait le cœur broyé...
+
+Nul bruit dans la maison, que les pas du docteur, sortant pour ses visites. Christophe avait perdu toute notion du temps, lorsque Anna parut. Elle portait le dîner sur un plateau. Il la regarda sans faire un mouvement, sans même remuer les lèvres, pour remercier ; mais dans ses yeux fixes, qui semblaient ne rien voir, l'image de la jeune femme se grava avec une netteté photographique. Longtemps après, quand il la connut mieux, c'est ainsi qu'il continua de la voir ; les images plus récentes ne parvinrent pas à effacer ce premier souvenir. Elle avait des cheveux épais, tirés en lourd chignon, le front bombé, de larges joues, le nez court et droit, les yeux obstinément baissés, ou qui, lorsqu'ils rencontraient d'autres yeux, se dérobaient avec une expression peu franche et sans bonté, les lèvres un peu grosses, serrées l'une contre l'autre, l'air butté, presque dur. Elle était grande, elle semblait robuste et bien faite, mais étriquée dans ses vêtements et raide dans ses mouvements. Elle alla sans bruit et sans parole, posa le plateau sur la table près du lit, et repartit, les bras collés au corps, le front baissé. Christophe ne songea pas à s'étonner de cette apparition étrange et un peu ridicule ; il ne toucha pas au dîner et continua de souffrir en silence.
+
+Le jour passa. Le soir revint, et de nouveau Anna avec de nouveaux plats. Elle trouva intacts ceux qu'elle avait apportés, le matin ; et elle les remporta, sans une observation. Elle n'eut pas un de ces mots affectueux que toute femme trouve, d'instinct, pour s'adresser à un malade. Il semblait que Christophe n'existât pas pour elle, ou qu'elle-même existât à peine. Christophe éprouvait une sourde hostilité, en suivant, avec impatience cette fois, ses mouvements gauches et guindés. Pourtant, il lui était reconnaissant de ne pas essayer de parler. --- Il le fut encore plus, quand il eut à subir, après son départ, l'assaut du docteur, qui venait de s'apercevoir que Christophe n'avait pas touché à son premier repas. Indigné contre sa femme de ce qu'elle ne l'eût pas fait manger de force, il voulait y contraindre Christophe. Pour avoir la paix, Christophe dut avaler quelques gorgées de lait. Après quoi, il lui tourna le dos.
+
+La seconde nuit fut plus calme. Le lourd sommeil recouvrit Christophe de son néant. Plus de trace de l'odieuse vie. --- Mais le réveil fut plus asphyxiant encore. Il se remémorait tous les détails de la fatale journée, la répugnance d'Olivier à sortir de la maison, ses instances pour rentrer, et il se disait avec désespoir :
+
+« C'est moi qui l'ai tué. »...
+
+Impossible de rester seul, enfermé, immobile, sous la griffe du sphinx aux yeux féroces, qui continuait de lui souffler au visage le vertige de ses questions, avec son souffle de cadavre. Il se leva, fiévreux ; il se traîna hors de la chambre, il descendit l'escalier ; il avait le besoin instinctif et peureux de se serrer contre d'autres hommes. Et dès qu'il entendit une autre voix, il eût voulu s'enfuir.
+
+Braun était dans la salle à manger. Il accueillit Christophe avec ses démonstrations d'amitié ordinaires. Tout de suite, il se mit à l'interroger sur les événements parisiens. Christophe lui saisit le bras :
+
+--- Non, dit-il, ne me demandez rien. Plus tard... Il ne faut pas m'en vouloir. Je ne puis pas. Je suis las à mourir, je suis las...
+
+--- Je sais, je sais, dit Braun affectueusement. Les nerfs sont ébranlés. Ce sont les émotions des jours précédents. Ne parlez pas. Ne vous contraignez en rien. Vous êtes libre, vous êtes chez vous. On ne s'occupera pas de vous.
+
+Il tint parole. Pour éviter de fatiguer son hôte, il tomba dans l'excès opposé : il n'osait plus causer, devant lui, avec sa femme ; on parlait à voix basse, on marchait sur le bout des pieds ; la maison devint muette. Il fallut que Christophe, agacé par cette affectation de silence chuchotant, priât Braun de continuer à vivre comme par le passé.
+
+Les jours suivants, on ne s'occupa donc plus de Christophe. Il restait assis, pendant des heures, dans le coin d'une chambre, ou bien il circulait à travers la maison, comme un homme qui rêve. À quoi pensait-il ? Il n'eût pu le dire. À peine s'il avait encore la force de souffrir. Il était anéanti. La sécheresse de son cœur lui faisait horreur. Il n'avait qu'un désir : être enterré avec « lui », et que tout fût fini. --- Une fois, il trouva la porte du jardin ouverte, et il sortit. Mais ce lui fut une sensation si pénible de se retrouver dans la lumière qu'il revint précipitamment et se barricada dans sa chambre, volets clos. Les jours de beau temps le torturaient, Il haïssait le soleil. La nature l'accablait de sa brutale sérénité. À table, il mangeait en silence ce que Braun lui servait, et, les yeux fixés sur la table, il restait sans parler. Braun lui montra, un jour, dans le salon, un piano ; Christophe s'en détourna avec terreur Tout bruit lui était odieux. Le silence, le silence, et la nuit !... Il n'y avait plus en lui qu'un vide immense et le besoin du vide. Fini de sa joie de vivre, de ce puissant oiseau de joie qui jadis s'élevait, par élans emportés, en chantant. Des journées, assis dans sa chambre, il n'avait d'autres sensations de sa vie que le pouls boiteux de l'horloge, dans la chambre voisine, qui lui semblait battre dans son cerveau. Et pourtant le sauvage oiseau de joie était encore en lui il avait de brusques envolées, il se cognait aux barreaux ; et c'était au fond de l'âme un affreux tumulte de douleur, --- « le cri de détresse d'un être demeuré seul dans une vaste étendue dépeuplée... »
+
+La misère du monde est qu'on n'y a presque jamais un compagnon. Des compagnes peut-être, et des amis de rencontre. On est prodigue de ce beau nom d'ami. En réalité, on n'a guère qu'un ami dans la vie. Et bien rares, ceux qui l'ont. Mais ce bonheur est si grand qu'on ne sait plus vivre, quand on ne l'a plus. Il remplissait la vie, sans qu'on y eût pris garde. Il s'en va : la vie est vide. Ce n'est pas seulement l'aimé qu'on a perdu, c'est toute raison d'aimer, toute raison d'avoir aimé. Pourquoi a-t-il vécu ? Pourquoi a-t-on vécu ?
+
+Le coup de cette mort était d'autant plus terrible pour Christophe qu'elle le frappait à un moment où son être se trouvait déjà secrètement ébranlé. Il est, dans la vie, des âges où s'opère, au fond de l'organisme, un sourd travail de transformation ; alors, le corps et l'âme sont plus livrés aux atteintes du dehors ; l'esprit se sent affaibli, une tristesse vague le mine, une satiété des choses, un détachement de ce qu'on a fait, une incapacité de voir encore ce qu'on pourra faire d'autre. Aux âges où se produisent ces crises, la plupart des hommes sont liés par les devoirs domestiques : sauvegarde pour eux, qui leur enlève, il est vrai, la liberté d'esprit nécessaire pour se juger, s'orienter, se refaire une forte vie nouvelle. Que de tristesses cachées, que d'amers dégoûts !... ...Marche ! Marche ! Il te faut passer outre... La tâche obligée, le souci de la famille dont on est responsable, tient l'homme ainsi qu'un cheval qui dort debout et continue d'avancer, harassé, entre ses brancards. --- Mais l'homme tout à fait libre n'a rien qui le soutienne, à ses heures de néant, et qui le force à marcher. Il va, par habitude ; il ne sait où il va. Ses forces sont troublées, sa conscience obscurcie. Malheur à lui si, dans ce moment où il est assoupi, un coup de tonnerre vient interrompre sa marche de somnambule ! Il risque de s'écrouler.
+
+Quelques lettres de Paris, qui avaient fini par le joindre, arrachèrent pour un instant Christophe à son apathie désespérée. Elles venaient de Cécile et de madame Arnaud. Elles lui apportaient des consolations. Pauvres consolations. Consolations inutiles. Ceux qui parlent sur la douleur ne sont pas ceux qui souffrent. Elles lui apportaient surtout un écho de la voix disparue... Il n'eut pas le courage de répondre ; et les lettres se turent. Dans son abattement, il cherchait à effacer sa trace. Disparaître... La douleur est injuste : tous ceux qu'il avait aimés n'existaient plus pour lui. Un seul être existait : celui qui n'existait plus. Pendant des semaines, il s'acharna à le faire revivre ; il conversait avec lui ; il lui écrivait :
+
+--- « Mon âme, je n'ai pas reçu ta lettre aujourd'hui. Où es-tu ? Reviens, reviens, parle-moi, écris-moi !... »
+
+Mais la nuit, malgré ses efforts, il ne parvenait pas à le revoir en rêve. On rêve peu à ceux qu'on a perdus, tant que leur perte nous déchire. Ils reparaissent plus tard, quand l'oubli vient.
+
+Cependant, la vie du dehors s'infiltrait peu à peu dans ce tombeau de l'âme. Christophe commença par réentendre les divers bruits de la maison et s'y intéresser sans qu'il s'en aperçût. Il sut à quelle heure la porte s'ouvrait et se fermait, combien de fois dans la journée, et de quelles façons différentes, suivant les visiteurs. Il connut le pas de Braun ; il s'imaginait voir le docteur, au retour de ses visites, arrêté dans le vestibule, et accrochant son chapeau et son manteau, toujours de la même manière méticuleuse et maniaque. Et lorsqu'un des bruits accoutumés cessait de se faire entendre dans l'ordre prévu, il cherchait malgré lui la raison du changement. À table, il se mit à écouter machinalement la conversation. Il s'aperçut que Braun parlait presque toujours seul. Sa femme ne lui faisait que de brèves répliques. Braun n'était pas troublé du manque d'interlocuteurs ; il racontait, avec une bonhomie bavarde, les visites qu'il venait de faire et les commérages recueillis. Il arriva que Christophe le regardât, tandis que Braun parlait ; Braun en était tout heureux, et s'ingéniait à l'intéresser.
+
+Christophe tâcha de se reprendre à la vie... Quelle fatigue ! Il se sentait si vieux, vieux comme le monde !... Le matin, quand il se levait, quand il se voyait dans la glace, il était las de son corps, de ses gestes, de sa forme stupide. Se lever, s'habiller, pourquoi ?... Il fit d'immenses efforts pour travailler : c'était à vomir. À quoi bon créer, puisque tout est destiné au néant ? La musique lui était devenue impossible. On ne juge bien de l'art --- (et du reste) --- que par le malheur. Le malheur est la pierre de touche. Alors seulement, on connaît ceux qui traversent les siècles, ceux qui sont plus forts que la mort. Bien peu résistent. On est frappé de la médiocrité de certaines âmes sur lesquelles on comptait --- (aussi bien des artistes qu'on aimait, que des amis dans la vie). --- Qui surnage ? Comme la beauté du monde sonne creux sous le doigt de la douleur !
+
+Mais la douleur se lasse, et sa main s'engourdit. Les nerfs de Christophe se détendaient. Il dormait, dormait sans cesse. On eût dit qu'il ne parviendrait jamais à assouvir cette faim de dormir.
+
+Et une nuit enfin, il eut un sommeil si profond qu'il ne s'éveilla que dans l'après-midi suivante. La maison était déserte. Braun et sa femme étaient sortis. La fenêtre était ouverte, l'air lumineux riait. Christophe se sentait déchargé d'un poids écrasant. Il se leva et descendit au jardin. Un rectangle étroit, enfermé dans de hauts murs, à l'aspect de couvent. Quelques allées sablées, entre des carrés de gazon et de fleurs bourgeoises ; un berceau où s'enroulaient une treille et des roses. Un filet d'eau minuscule s'égouttait d'une grotte en rocaille ; un acacia adossé au mur penchait ses branches odorantes sur le jardin voisin. Par delà s'élevait la vieille tour de l'église, en grès rouge. Il était quatre heures du soir. Le jardin se trouvait déjà dans l'ombre. Le soleil baignait encore la cime de l'arbre et le clocher rouge. Christophe s'assit sous la tonnelle, le dos tourné au mur, la tête renversée en arrière, regardant le ciel limpide parmi les entrelacs de la vigne et des roses. Il lui semblait s'éveiller d'un cauchemar. Un silence immobile régnait. Au-dessus de sa tête, une liane de roses languissamment pendait. Soudain, la plus belle s'effeuilla, expira ; la neige de ses pétales se répandit dans l'air. C'était comme une belle vie innocente qui mourait. Si simplement !... Dans l'esprit de Christophe, cela prit une signification d'une douceur déchirante. Il suffoqua ; et, se cachant la figure dans ses mains, il sanglota...
+
+Les cloches de la tour sonnèrent. D'une église à l'autre, d'autres voix répondirent... Christophe n'eut pas conscience du temps qui s'écoula. Quand il releva la tête, les cloches s'étaient tues, le soleil avait disparu. Christophe était soulagé par ses larmes ; son esprit était comme lavé. Il écoutait en lui sourdre un filet de musique et regardait le fin croissant de lune glisser dans le ciel du soir. Un bruit de pas qui rentraient l'éveilla. Il remonta dans sa chambre, s'enferma à double tour, et il laissa couler la fontaine de musique. Braun l'appela pour dîner, il frappa à la porte, il essaya d'ouvrir : Christophe ne répondit pas. Braun, inquiet, regarda par la serrure, et se rassura, en voyant Christophe à demi couché sur sa table, au milieu de papiers qu'il noircissait.
+
+Quelques heures après, Christophe, épuisé, descendit, et trouva dans la salle du bas le docteur qui l'attendait patiemment, en lisant. Il l'embrassa, lui demanda pardon de ses façons d'agir depuis son arrivée, et, sans que Braun l'interrogeât, il se mit à lui raconter les dramatiques événements des dernières semaines. Ce fut la seule fois qu'il lui en parla ; encore n'était-il pas sûr que Braun eût bien compris : car Christophe discourait sans suite, la nuit était avancée, et malgré sa curiosité, Braun mourait de sommeil. À la fin, --- (deux heures sonnaient) --- Christophe s'en aperçut. Ils se dirent bonne nuit.
+
+À partir de ce moment, l'existence de Christophe se réorganisa. Il ne se maintint pas dans cet état d'exaltation passagère ; il revint à sa tristesse, mais à une tristesse normale, qui ne l'empêchait pas de vivre. Revivre, il le fallait bien ! Cet homme qui venait de perdre ce qu'il aimait le plus au monde, cet homme que son chagrin minait, qui portait la mort en lui, avait une telle force de vie, abondante, tyrannique, qu'elle éclatait en ses paroles de deuil, elle rayonnait de ses yeux, de sa bouche, de ses gestes. Mais au cœur de cette force, un ver rongeur s'était logé. Christophe avait des accès de désespoir. C'étaient des élancements. Il était calme, il s'efforçait de lire, ou il se promenait : brusquement, le sourire d'Olivier, son visage las et tendre... Un coup de couteau au cœur... Il chancelait, il portait la main à sa poitrine, en gémissant. Une fois, il était au piano, il jouait une page de Beethoven, avec sa fougue d'autrefois... Tout à coup, il s'arrêtait, il se jetait par terre et, s'enfonçant la figure dans les coussins d'un fauteuil, il criait :
+
+--- Mon petit...
+
+Le pire était l'impression de « déjà vécu » : il l'avait, à chaque pas. Incessamment, il retrouvait les mêmes gestes, les mêmes mots, le retour perpétuel des mêmes expériences. Tout lui était connu, il avait tout prévu. Telle figure qui lui rappelait une figure ancienne allait dire --- (il en était sûr d'avance) --- disait les mêmes choses qu'il avait entendu dire à l'autre ; les êtres analogues passaient par des phases analogues, se heurtaient aux mêmes obstacles, et s'y usaient de même. S'il est vrai que « *rien ne lasse de la vie, comme le recommencement de l'amour* », combien plus ce recommencement de tout ! C'était hallucinant. --- Christophe tâchait de n'y pas penser, puisqu'il était nécessaire de n'y pas penser pour vivre, et puisqu'il voulait vivre. Hypocrisie douloureuse, qui ne veut point se connaître, par honte, par piété même, invincible besoin de vivre qui se cache ! Sachant qu'il n'est pas de consolation, il se crée des consolations. Convaincu que la vie n'a pas de raisons d'être, il se forge des raisons de vivre. Il se persuade qu'il faut qu'il vive, alors que personne n'y tient que lui. Au besoin, il inventera que le mort l'encourage à vivre. Et il sait qu'il prête au mort les paroles qu'il veut lui faire dire. Misère !...
+
+Christophe reprit sa route ; son pas sembla retrouver l'ancienne assurance ; sur sa douleur la porte du cœur se referma ; il n'en parlait jamais aux autres ; lui-même, il évitait de se trouver seul avec elle : il paraissait calme.
+
+« *Les peines vraies*, dit Balzac, *sont en apparence tranquilles dans le lit profond qu'elles se sont fait, où elles semblent dormir, mais où elles continuent à corroder l'âme.* »
+
+Qui eût connu Christophe et l'eut bien observé, allant, venant, causant, faisant de la musique, riant même --- (il riait maintenant !) --- eût senti qu'il y avait dans cet homme vigoureux, aux yeux brûlants de vie, quelque chose de détruit, au plus profond de la vie.
+
+Du moment qu'il était rivé à la vie, il devait s'assurer les moyens de vivre. Il ne pouvait être question pour lui de quitter la ville. La Suisse était l'abri le plus sûr ; et où aurait-il trouvé hospitalité plus dévouée ? --- Mais son orgueil ne pouvait s'accommoder de l'idée de rester à la charge d'un ami. Malgré les protestations de Braun, qui ne voulait rien accepter, il ne fut pas tranquille jusqu'à ce qu'il eût quelques leçons de musique qui lui permissent de payer une pension régulière à ses hôtes. Ce ne fut pas chose facile. Le bruit de son équipée révolutionnaire s'était répandu : et les familles bourgeoises répugnaient à introduire chez elles un homme qui passait pour dangereux, ou en tout cas pour extraordinaire, par conséquent pour peu « convenable ». Cependant, sa renommée musicale et les démarches de Braun réussirent à lui ouvrir l'accès de quatre ou cinq maisons moins timorées, ou plus curieuses, peut-être désireuses par snobisme artistique de se singulariser. Elles ne furent pas les moins attentives à le surveiller et à maintenir entre le maître et les élèves des distances respectables.
+
+La vie s'arrangea chez Braun sur un plan méthodiquement réglé. Le matin, chacun allait à ses affaires : le docteur à ses visites, Christophe à ses leçons, M^me^ Braun au marché et à ses œuvres édifiantes. Christophe rentrait vers une heure, d'habitude avant Braun, qui défendait qu'on l'attendît ; et il se mettait à table avec la jeune femme. Cela ne lui était pas agréable : car elle ne lui était pas sympathique, et il ne trouvait rien à lui dire. Elle ne se donnait point de mal pour combattre cette impression, dont il lui était impossible de ne pas avoir conscience ; elle ne se mettait en frais ni de toilette, ni d'esprit ; jamais elle n'adressait la parole à Christophe, la première. La disgrâce spéciale de ses mouvements et de son habillement, sa gaucherie, sa froideur, eussent éloigné tout homme, sensible comme Christophe à la grâce féminine. Quand il se rappelait la spirituelle élégance des Parisiennes, il ne pouvait s'empêcher, en regardant Anna, de penser :
+
+--- Comme elle est laide !
+
+Ce n'était pourtant pas juste ; et il ne tarda pas à remarquer la beauté de ses cheveux, de ses mains, de sa bouche, de ses yeux, --- aux rares instants où il lui arrivait de rencontrer ce regard, qui se dérobait toujours. Mais son jugement n'en était pas modifié. Par politesse, il s'obligeait à lui parler ; il cherchait avec peine des sujets de conversation ; elle ne l'aidait en rien. Deux ou trois fois, il essaya de l'interroger sur sa ville, sur son mari, sur elle-même : il n'en put rien tirer. Elle répondait des choses banales ; elle faisait effort pour sourire ; mais cet effort se sentait d'une façon désagréable ; son sourire était contraint, sa voix sourde ; elle laissait tomber chaque mot ; chaque phrase était suivie d'un silence pénible. Christophe finit par lui parler le moins possible ; et elle lui en sut gré. C'était un soulagement pour tous deux, quand le docteur rentrait. Il était toujours de bonne humeur, bruyant, affairé, vulgaire, excellent homme. Il mangeait, buvait, parlait, riait abondamment. Avec lui, Anna causait un peu ; mais il n'était guère question, dans ce qu'ils disaient ensemble, que des plats qu'on mangeait et du prix de chaque chose. Parfois Braun s'amusait à la taquiner sur ses œuvres pieuses et les sermons du pasteur. Elle prenait alors un air raide, et se taisait, offensée, jusqu'à la fin du repas. Plus souvent, le docteur racontait ses visites ; il se complaisait à décrire certains cas répugnants, avec une joviale minutie qui mettait hors de lui Christophe. Celui-ci jetait sa serviette sur la table, et se levait avec des grimaces de dégoût qui faisaient la joie du narrateur. Braun cessait aussitôt, et apaisait son ami, en riant. Au repas suivant, il recommençait. Ces plaisanteries d'hôpital semblaient avoir le don d'égayer l'impassible Anna. Elle sortait de son silence par un rire brusque et nerveux, qui avait quelque chose d'animal. Peut-être n'éprouvait-elle pas moins de dégoût que Christophe pour ce dont elle riait.
+
+L'après-midi, Christophe avait peu d'élèves. Il restait d'ordinaire à la maison, avec Anna, tandis que le docteur sortait. Ils ne se voyaient pas. Chacun travaillait, de son côté. Au début, Braun avait prié Christophe de donner quelques leçons de piano à sa femme, elle était, suivant lui, assez bonne musicienne. Christophe demanda à Anna de lui jouer quelque chose. Elle ne se fit aucunement prier, malgré le déplaisir qu'elle en avait ; mais elle y apporta son manque de grâce habituel : elle avait un jeu mécanique, d'une insensibilité inimaginable ; toutes les notes étaient égales ; nul accent nulle part ; ayant à tourner la page, elle s'arrêta froidement au milieu d'une phrase, ne se hâta point, et reprit à la note suivante. Christophe en fut si exaspéré qu'il eut peine à ne pas lui dire une grossièreté ; il ne put s'en défendre qu'en sortant avant la fin du morceau. Elle ne s'en troubla point, continua imperturbablement jusqu'à la dernière note, et ne se montra ni mortifiée, ni blessée de cette impolitesse ; à peine sembla-t-elle s'en être aperçue. Mais entre eux, il ne fut plus question de musique. Les après-midi où Christophe sortait, il arrivait que, rentrant à l'improviste, il trouvât Anna qui étudiait au piano, avec une ténacité glaciale et insipide, répétant sans se lasser la même mesure cinquante fois, et ne s'animant jamais. Jamais elle ne faisait de musique, quand elle savait Christophe à la maison. Elle employait aux soins du ménage tout le temps qu'elle ne consacrait pas à ses occupations religieuses. Elle cousait, recousait, reprisait, surveillait la domestique ; elle avait le souci maniaque de l'ordre et de la propreté. Son mari la tenait pour une brave femme, un peu baroque, --- « comme toutes les femmes », disait-il, --- mais, « comme toutes les femmes », dévouée. Sur ce dernier point Christophe faisait *in petto* des réserves : cette psychologie lui semblait trop simpliste ; mais il se disait qu'après tout, c'était l'affaire de Braun ; et il n'y pensait plus.
+
+On se réunissait le soir, après dîner Braun et Christophe causaient. Anna travaillait. Sur les prières de Braun, Christophe avait consenti à se remettre au piano ; et il jouait parfois jusqu'à une heure avancée, dans le grand salon mal éclairé qui donnait sur le jardin. Braun était dans l'extase... Qui ne connaît de ces gens passionnés pour des œuvres qu'ils ne comprennent point, ou qu'ils comprennent à rebours ! --- (c'est bien pour cela qu'ils les aiment !) --- Christophe ne se fâchait plus ; il avait déjà rencontré tant d'imbéciles dans la vie ! Mais, à certaines exclamations d'un enthousiasme saugrenu, il cessait de jouer et il remontait dans sa chambre, sans rien dire. Braun finit par comprendre, et il mit une sourdine à ses réflexions. D'ailleurs, son amour pour la musique était vite repu ; il n'en pouvait écouter avec attention plus d'un quart d'heure de suite ; il prenait son journal, ou bien il somnolait, laissant Christophe tranquille. Anna, assise au fond de la chambre, ne disait mot ; elle avait un ouvrage sur les genoux, et semblait travailler ; mais ses yeux étaient fixes et ses mains immobiles. Parfois, elle sortait sans bruit au milieu du morceau, et on ne la revoyait plus.
+
+Ainsi passaient les journées. Christophe reprenait ses forces. La bonté lourde, mais affectueuse de Braun, le calme de la maison, la régularité reposante de cette vie domestique, le régime de nourriture singulièrement abondant, à la mode germanique, restauraient son robuste tempérament. La santé physique était rétablie ; mais la machine morale était toujours malade. La vigueur renaissante ne faisait qu'accentuer le désarroi de l'esprit qui ne parvenait pas à retrouver son équilibre, comme une barque mal lestée qui sursaute, au moindre choc.
+
+Son isolement était profond. Il ne pouvait avoir aucune intimité intellectuelle avec Braun. Ses rapports avec Anna se réduisaient, à peu de choses près, aux saluts échangés le matin et le soir. Ses relations avec ses élèves étaient plutôt hostiles : car il leur cachait mal que ce qu'ils auraient eu de mieux à faire, c'était de ne plus faire de musique. Il ne connaissait personne. La faute n'en était pas uniquement à lui, qui depuis son deuil se terrait dans son coin. On le tenait à l'écart.
+
+Il était dans une vieille ville, pleine d'intelligence et de force, mais d'orgueil patricien, renfermé en soi et satisfait de soi. Une aristocratie bourgeoise, qui avait le goût du travail et de la haute culture, mais étroite, piétiste, tranquillement convaincue de sa supériorité et de celle de la cité, se complaisait en son isolement familial. De vastes familles aux vastes ramifications. Chaque famille avait son jour de réunion pour les siens. Pour le reste, elle s'entr'ouvrait à peine. Ces puissantes maisons, aux fortunes séculaires, n'éprouvaient nul besoin de montrer leur richesse. Elles se connaissaient : c'était assez ; l'opinion des autres ne comptait point. On voyait des millionnaires, mis comme de petits bourgeois, et parlant leur dialecte rauque aux expressions savoureuses, aller consciencieusement à leur bureau, tous les jours de leur vie, même à l'âge où les plus laborieux s'accordent le droit au repos. Leurs femmes s'enorgueillissaient de leur science domestique. Point de dot donnée aux filles. Les riches laissaient leurs enfants refaire, à leur tour, le dur apprentissage qu'eux-mêmes ils avaient fait. Une stricte économie pour la vie journalière. Mais un emploi très noble de ces grandes fortunes à des collections d'art, à des galeries de tableaux, à des œuvres sociales ; des dons énormes et continuels, presque toujours anonymes, pour des fondations charitables, pour l'enrichissement des musées. Un mélange de grandeur et de ridicules, également d'un autre âge. Ce monde, pour qui le reste du monde ne semblait pas exister, --- (bien qu'il le connût fort bien, par la pratique des affaires, par ses relations étendues, par les longs et lointains voyages d'études auxquels ils obligeaient leurs fils), --- ce monde, pour qui une grande renommée, une célébrité étrangère, ne comptait qu'à partir du jour où elle s'était fait accueillir et reconnaître par lui, --- exerçait sur lui-même la plus rigoureuse des disciplines. Tous se tenaient, et tous se surveillaient. Il en était résulté une conscience collective qui recouvrait les différences individuelles, (plus accusées qu'ailleurs entre ces rudes personnalités), sous le voile de l'uniformité religieuse et morale. Tout le monde pratiquait, tout le monde croyait. Pas un n'avait un doute, ou n'en voulait convenir. Impossible de se rendre compte de ce qui se passait au fond de ces âmes qui se fermaient d'autant plus hermétiquement aux regards qu'elles se savaient environnées d'une surveillance étroite, et que chacun s'arrogeait le droit de regarder dans la conscience d'autrui. On disait que même ceux qui étaient sortis du pays et se croyaient affranchis, --- aussitôt qu'ils y remettaient les pieds, étaient ressaisis par les traditions, les habitudes, l'atmosphère de la ville : les plus incroyants étaient aussitôt contraints de pratiquer et de croire. Ne pas croire leur eût semblé contre nature. Ne pas croire était d'une classe inférieure, qui avait de mauvaises manières. Il n'était pas admis qu'un homme de leur monde se dérobât aux devoirs religieux. Qui ne pratiquait pas se mettait en dehors de sa classe et n'y était plus reçu.
+
+Le poids de cette discipline n'avait pas encore paru suffisant. Ces hommes ne se trouvaient pas assez liés dans leur caste. À l'intérieur de ce grand *Verein*, ils avaient formé une multitude de petits *Vereine*, afin de se ligoter tout à fait. On en comptait plusieurs centaines ; et leur nombre augmentait, chaque année. Il y en avait pour toutes choses : pour la philanthropie, pour les œuvres pieuses, pour les œuvres commerciales, pour les œuvres pieuses et commerciales à la fois, pour les arts, pour les sciences, pour le chant, la musique, pour les exercices spirituels, pour les exercices physiques, pour se réunir, tout simplement, pour se divertir ensemble ; il y avait des *Vereine* de quartiers, de corporations ; il y en avait pour ceux qui avaient le même état, le même chiffre de fortune, qui pesaient le même poids, qui portaient le même prénom. On disait qu'on avait voulu former un *Verein* des *Vereinlosen* (de ceux qui n'appartenaient à aucun *Verein*) : on n'en avait pas trouvé douze.
+
+Sous ce triple corset, de la ville, de la caste, et de l'association, l'âme était ficelée. Une contrainte cachée comprimait les caractères. La plupart y étaient faits depuis l'enfance, --- depuis des siècles ; et ils la trouvaient saine ; ils eussent jugé malséant et malsain de se passer de corset. À voir leur sourire satisfait, nul ne se fut douté de la gêne qu'ils pouvaient éprouver. Mais la nature prenait sa revanche. De loin en loin, il sortait de là quelque individualité révoltée, un vigoureux artiste ou un penseur sans frein, qui brisait brutalement ses liens et qui donnait du fil à retordre aux gardiens de la cité. Ils étaient si intelligents que, quand le révolté n'avait pas été étouffé dans l'œuf, quand il était le plus fort, jamais ils ne s'obstinaient à le combattre --- (le combat eût risqué d'amener des éclats scandaleux) : --- ils l'accaparaient. Peintre, ils le mettaient au musée ; penseur, dans les bibliothèques. Il avait beau s'époumonner à dire des énormités : ils affectaient de ne pas l'entendre. En vain, protestait-il de son indépendance : ils se l'incorporaient. Ainsi, l'effet du poison était neutralisé : c'était le traitement par l'homéopathie. --- Mais ces cas étaient rares, la plupart des révoltes n'arrivaient pas au jour. Ces paisibles maisons renfermaient des tragédies inconnues. Il arrivait qu'un de leurs hôtes s'en allât, de son pas tranquille, sans autre explication, se jeter dans le fleuve. Ou bien l'on s'enfermait pour six mois, on enfermait sa femme dans une maison de santé, afin de se remettre l'esprit. On en parlait sans gêne, comme d'une chose naturelle, avec cette placidité qui était un des beaux traits de la ville, et qu'on savait garder vis-à-vis de la souffrance et de la mort.
+
+Cette solide bourgeoisie, sévère pour elle-même parce qu'elle savait son prix, l'était moins pour les autres parce qu'elle les estimait moins. À l'égard des étrangers qui séjournaient dans la ville, comme Christophe, des professeurs allemands, des réfugiés politiques, elle se montrait même assez libérale : car ils lui étaient indifférents. Et d'ailleurs, elle aimait l'intelligence. Les idées avancées ne l'inquiétaient point : elle savait que sur ses fils elles resteraient sans influence. Elle témoignait à ses hôtes une bonhomie glacée, qui les tenait à distance.
+
+Christophe n'avait pas besoin qu'on insistât. Il se trouvait dans un état de sensibilité frémissante, où son cœur était à nu : il n'était que trop disposé à voir partout l'égoïsme et l'indifférence, et à se replier sur soi.
+
+De plus, la clientèle de Braun, le cercle fort restreint, auquel appartenait sa femme, faisaient partie d'un petit monde protestant, particulièrement rigoriste. Christophe y était doublement mal vu, comme papiste d'origine et comme incroyant de fait. De son côté, il y trouvait beaucoup de choses qui le choquaient. Il avait beau ne plus croire, il portait en lui la marque séculaire de son catholicisme, plus poétique que raisonné, plus indulgent à la nature, et qui ne se tourmentait pas tant d'expliquer ni de comprendre que d'aimer ou de n'aimer point ; et il portait aussi les habitudes de liberté intellectuelle et morale qu'il avait sans le savoir ramassées à Paris. Il devait fatalement se heurter à ce petit monde piétiste, où s'accusaient avec exagération les défauts d'esprit du calvinisme : un rationalisme religieux, qui coupait les ailes de la foi, et la laissait ensuite suspendue sur l'abîme ; car il partait d'un *a priori* aussi discutable que tous les mysticismes : ce n'était plus de la poésie, ce n'était pas de la prose, c'était de la poésie mise en prose. Un orgueil intellectuel, une foi absolue, dangereuse, en la raison, --- en *leur* raison. Ils pouvaient ne pas croire à Dieu, ni à l'immortalité ; mais ils croyaient à la raison, comme un catholique croit au pape, ou un fétichiste à son idole. Il ne leur venait même pas à l'idée de la discuter. La vie avait beau la contredire, ils eussent nié plutôt la vie. Un manque de psychologie, une incompréhension de la nature, des forces cachées, des racines de l'être, de « l'Esprit de la Terre ». Ils se fabriquaient une vie et des êtres enfantins, simplifiés, schématiques. Certains d'entre eux étaient gens instruits et pratiques ; ils avaient beaucoup lu, beaucoup vu. Mais ils ne voyaient, ni ne lisaient aucune chose comme elle était ; ils s'en faisaient des réductions abstraites. Ils étaient pauvres de sang ; ils avaient de hautes qualités morales ; mais ils n'étaient pas assez humains : et c'est le péché suprême. Leur pureté de cœur, très réelle souvent, noble et naïve, parfois comique, devenait malheureusement ; en certains cas, tragique ; elle les menait à une dureté vis-à-vis des autres, à une inhumanité tranquille, sans colère, sûre de soi, qui effarait. Comment eussent-ils hésité ? N'avaient-ils pas la vérité, le droit, la vertu avec eux ? N'en recevaient-ils pas la révélation directe de leur sainte raison ? La raison est un soleil dur ; il éclaire, mais il aveugle. Dans cette lumière sèche, sans vapeurs et sans ombres, les âmes poussent décolorées, le sang de leur cœur est bu.
+
+Or, si quelque chose était en ce moment, pour Christophe, vide de sens, c'était la raison. Ce soleil-là n'éclairait, à ses yeux, que les parois de l'abîme, sans lui montrer les moyens d'en sortir, ni même lui permettre d'en mesurer le fond.
+
+Quant au monde artistique, Christophe avait peu l'occasion et encore moins le désir de frayer avec lui. Les musiciens étaient en général d'honnêtes conservateurs de l'époque néo-schumannienne et « brahmine », contre lesquels Christophe avait jadis rompu des lances. Deux faisaient exception : l'organiste Krebs, qui tenait une confiserie renommée, brave homme, bon musicien, qui l'eût été davantage si, pour reprendre le mot d'un de ses compatriotes, « il n'eût été assis sur un Pégase auquel il donnait trop d'avoine », --- et un jeune compositeur juif, talent original plein de sève vigoureuse et trouble, qui faisait le commerce d'articles suisses : sculptures en bois, chalets et ours de Berne. Plus indépendants que les autres, sans doute parce qu'ils ne faisaient pas de leur art un métier, ils eussent été bien aises de se rapprocher de Christophe ; et, en un autre temps, Christophe eût été curieux de les connaître ; mais à ce moment de sa vie, toute curiosité artistique et humaine était émoussée en lui ; il sentait plus ce qui le séparait des hommes que ce qui l'unissait à eux.
+
+Son seul ami, le confident de ses pensées, était le fleuve qui traversait la ville, --- le même fleuve puissant et paternel, qui là-haut, dans le nord, baignait sa ville natale. Christophe retrouvait auprès de lui les souvenirs de ses rêves d'enfance... Mais dans le deuil qui l'enveloppait, ils prenaient, comme le Rhin lui-même, une teinte funèbre. À la tombée du jour, appuyé sur le parapet d'un quai, il regardait le fleuve fiévreux, cette masse en fusion, lourde, opaque, et hâtive, qui était toujours passée, où l'on ne distinguait rien que de grands crêpes mouvants, des milliers de ruisseaux, de courants, de tourbillons, qui se dessinaient, s'effaçaient : tel, un chaos d'images dans une pensée hallucinée ; éternellement, elles s'ébauchent, et se fondent éternellement. Sur ce songe crépusculaire glissaient comme des cercueils des bacs fantomatiques, sans une forme humaine. La nuit s'épaississait. Le fleuve devenait de bronze. Les lumières de la rive faisaient luire son armure d'un noir d'encre, qui jetait des éclairs sombres. Reflets cuivrés du gaz, reflets lunaires des fanaux électriques, reflets sanglants des bougies derrière les vitres des maisons. Le murmure du fleuve remplissait les ténèbres. Éternel bruissement, plus triste que la mer par sa monotonie...
+
+Christophe aspirait pendant des heures ce chant de mort et d'ennui. Il avait peine à s'en arracher ; il remontait ensuite au logis, par les ruelles escarpées aux marches d'escalier rouges, usées dans le milieu ; le corps et l'âme brisés, il s'accrochait aux rampes de fer, scellées au mur, qui luisaient, éclairées par le réverbère d'en haut sur la place déserte devant l'église vêtue de nuit...
+
+Il ne comprenait plus pourquoi les hommes vivaient. Quand il lui arrivait de se rappeler les luttes dont il avait été le témoin, il admirait amèrement cette humanité avec sa foi chevillée au corps. Les idées succédaient aux idées opposées, les réactions aux actions : --- démocratie, aristocratie ; socialisme, individualisme ; romantisme, classicisme ; progrès, tradition ; --- et ainsi, pour l'éternité. Chaque génération nouvelle, brûlée en moins de dix ans, croyait avec le même entrain être seule arrivée au faîte, et faisait dégringoler ses prédécesseurs, à coups de pierres ; elle s'agitait, criait, se décernait le pouvoir et la gloire, dégringolait à son tour sous les pierres des nouveaux arrivants, disparaissait. À qui le tour ?...
+
+La création musicale n'était plus un refuge pour Christophe ; elle était intermittente, désordonnée, sans but. Écrire ? Pour qui écrire ? Pour les hommes ? Il passait par une crise de misanthropie aiguë. Pour lui ? Il sentait trop la vanité de l'art, incapable de combler le vide de la mort. Seule, sa force aveugle le soulevait, par instants, d'une aile violente, et retombait, brisée. Il était comme une nuée d'orage qui gronde dans les ténèbres. Olivier disparu, il ne restait plus rien. Il s'acharnait contre tout ce qui avait rempli sa vie, contre les sentiments qu'il avait cru partager avec d'autres, contre les pensées qu'il s'imaginait avoir eues en commun avec le reste de l'humanité. Il lui semblait aujourd'hui qu'il avait été le jouet d'une illusion : toute la vie sociale reposait sur un immense malentendu, dont le langage était la source. On croit que la pensée peut communiquer avec les autres pensées. En réalité, il n'y a de rapports qu'entre les mots. On dit et on écoute des mots ; pas un mot n'a le même sens dans deux bouches différentes. Et ce n'est rien encore : pas un mot, pas un seul, n'a tout son sens dans la vie. Les mots débordent la réalité vécue. On parle d'amour et de haine. Il n'y a pas d'amour, pas de haine, pas d'amis, pas d'ennemis, pas de foi, pas de passion, pas de bien, pas de mal. Il n'y a que de froids reflets de ces lumières qui tombent de soleils éteints, d'astres morts depuis des siècles... Des amis ? Il ne manque pas de gens qui revendiquent ce nom. Mais quelle fade réalité représente leur amitié ? Qu'est-ce que l'amitié, au sens du monde ordinaire ? Combien de minutes de sa vie celui qui se croit un ami donne-t-il au pâle souvenir de son ami ? Que lui sacrifierait-il, non pas même de son nécessaire, mais de son superflu, de son oisiveté, de son ennui ? Qu'est-ce que Christophe avait sacrifié à Olivier ? --- (Car il ne s'exceptait point, il exceptait Olivier seul du néant où il englobait tous les êtres humains). --- L'art n'est pas plus vrai que l'amour. Quelle place tient-il réellement dans la vie ? De quel amour l'aiment-ils, ceux qui s'en disent épris ?... La pauvreté des sentiments humains est inimaginable. En dehors de l'instinct de l'espèce, de cette force cosmique, qui est le levier du monde, rien n'existe qu'une poussière d'émotions. La plupart des hommes n'ont pas assez de vie pour se donner tout entiers dans aucune passion. Ils s'économisent, avec une ladrerie prudente. Ils sont de tout, un peu, et ne sont tout à fait de rien. Celui qui se donne sans compter, à tous les moments de sa vie, dans tout ce qu'il fait, dans tout ce qu'il souffre, dans tout ce qu'il aime, dans tout ce qu'il hait, celui-là est un prodige, le plus grand qu'il soit accordé de rencontrer sur terre. La passion est comme le génie : un miracle. Autant dire qu'elle n'existe pas.
+
+Ainsi pensait Christophe ; et la vie s'apprêtait à lui infliger un terrible démenti. Le miracle est partout, comme le feu dans la pierre : un choc le fait jaillir. Nous ne soupçonnons pas les démons qui dorment en nous...
+
+... *Pero non mi destar, deh ! parla basso !*...
+
+Un soir que Christophe improvisait, au piano, Anna se leva et sortit, comme elle faisait souvent, lorsque Christophe jouait. Il semblait que la musique l'ennuyât. Christophe n'y prenait plus garde : il était indifférent à ce qu'elle pouvait penser. Il continua de jouer ; puis, des idées lui venant qu'il désirait noter, il s'interrompit et courut chercher dans sa chambre les papiers dont il avait besoin. Comme il ouvrait la porte de la pièce voisine et, tête baissée, se jetait dans l'obscurité, il se heurta violemment contre un corps immobile et debout, à l'entrée. Anna... Le choc et la surprise arrachèrent un cri à la jeune femme. Christophe, inquiet de savoir s'il lui avait fait mal, lui prit affectueusement les deux mains. Les mains étaient glacées. Elle semblait grelotter, --- sans doute, de saisissement ? Elle murmura une explication vague de sa présence à cette place :
+
+--- Je cherchais dans la salle à manger...
+
+Il n'entendit pas ce qu'elle cherchait ; et peut-être qu'elle ne l'avait point dit. Il lui parut singulier qu'elle se promenât sans lumière, pour chercher quelque chose. Mais il était si habitué aux allures bizarres d'Anna qu'il n'y prêta pas attention.
+
+Une heure après, il était revenu dans le petit salon, où il passait la soirée avec Braun et Anna. Il était assis devant la table, sous la lampe, et il écrivait. Anna, au bout de la table, à droite, cousait, penchée sur son ouvrage. Derrière eux, dans un fauteuil bas, près du feu, Braun lisait une revue. Ils se taisaient tous trois. On entendait, par intermittences, le trottinement de la pluie sur le sable du jardin. Pour s'isoler tout à fait, Christophe, assis de trois quarts, tournait le dos à Anna. En face de lui, au mur, une glace reflétait la table, la lampe, et les deux figures baissées sur leur travail. Il sembla à Christophe que Anna le regardait. Il ne s'en inquiéta point d'abord ; puis, l'insistance de cette idée finissant par le gêner, il leva les yeux vers la glace, et il vit... Elle le regardait, en effet. De quel regard ! Il en resta pétrifié, retenant son souffle, observant. Elle ne savait pas qu'il l'observait. La lumière de la lampe tombait sur sa figure pâle, dont le sérieux et le silence habituels avaient un caractère de violence concentrée. Ses yeux --- ces yeux inconnus, qu'il n'avait jamais pu saisir, --- étaient fixés sur lui : des yeux bleu-sombre, avec de larges prunelles, au regard brûlant et dur ; ils étaient attachés à lui, ils fouillaient en lui, avec une ardeur muette et obstinée. Ses yeux ? Se pouvait-il que ce fussent ses yeux ? Il les voyait, et il n'y croyait pas. Les voyait-il vraiment ? Il se retourna brusquement... Les yeux étaient baissés. Il essaya de lui parler, de la forcer à le regarder en face. L'impassible figure répondit, sans lever de son ouvrage son regard abrité sous l'ombre impénétrable des paupières bleuâtres, aux cils courts et serrés. Si Christophe n'avait été sûr de lui-même, il aurait cru qu'il avait été le jouet d'une illusion. Mais il savait ce qu'il avait vu, et il ne parvenait pas à l'expliquer.
+
+Cependant, comme son esprit était absorbé par le travail et qu'Anna l'intéressait peu, cette étrange impression ne l'occupa point longtemps.
+
+Une semaine plus tard, Christophe essayait au piano un lied qu'il venait de composer. Braun, qui avait la manie, par amour-propre de mari autant que par taquinerie, de tourmenter sa femme pour qu'elle chantât ou jouât, avait été particulièrement insistant, ce soir-là. D'ordinaire, Anna se contentait de dire un non très sec ; après quoi, elle ne se donnait plus la peine de répondre aux demandes, prières, ou plaisanteries ; elle serrait les lèvres, et ne semblait pas entendre. Cette fois, au grand étonnement de Braun et de Christophe, elle plia son ouvrage, se leva et vint près du piano. Elle chanta ce morceau qu'elle n'avait jamais lu. Ce fut une sorte de miracle : --- *le* miracle. Sa voix, d'un timbre profond, ne rappelait en rien la voix un peu rauque et voilée qu'elle avait en parlant. Fermement posée dès la première note, sans une ombre de trouble, sans effort elle donnait à la phrase musicale une grandeur émouvante et pure ; et elle s'éleva à une violence de passion qui fit frémir Christophe : car elle lui parut la voix de son propre cœur. Il la regarda stupéfait, tandis qu'elle chantait, et il la vit enfin, pour la première fois. Il vit ses yeux obscurs, où s'allumait une lueur de sauvagerie, sa grande bouche passionnée aux lèvres bien ourlées, le sourire voluptueux, un peu lourd et cruel, de ses dents saines et blanches, ses belles et fortes mains, dont l'une s'appuyait sur le pupitre du piano, et la robuste charpente d'un corps étriqué par la toilette, amaigri par une vie trop réduite et trop pauvre, mais qu'on devinait jeune, vigoureux, et harmonieux, sous la robe.
+
+Elle cessa de chanter, et alla se rasseoir, les mains posées sur ses genoux. Braun la complimenta ; mais il trouvait qu'elle avait chanté, d'une façon qui manquait de moelleux. Christophe ne lui dit rien. Il la contemplait. Elle souriait vaguement, sachant qu'il la regardait. Il y eut un grand silence entre eux, ce soir-là. Elle se rendait compte qu'elle venait de s'élever au-dessus d'elle-même, ou peut-être, qu'elle avait été « elle », pour la première fois. Elle ne comprenait pas pourquoi.
+
+À partir de ce jour, Christophe se mit à observer attentivement Anna. Elle était retombée dans son mutisme, sa froide indifférence et sa rage de travail, qui agaçait jusqu'à son mari, et où elle endormait les pensées obscures de sa trouble nature. Christophe avait beau la guetter, il ne retrouvait plus en elle que la bourgeoise guindée des premiers temps. À des moments, elle restait absorbée, sans rien faire, les yeux fixes. On la quittait ainsi, on la retrouvait ainsi, un quart d'heure après : elle n'avait point bougé. Quand son mari lui demandait à quoi elle pensait, elle s'éveillait de sa torpeur, souriait, et disait qu'elle ne pensait à rien. Et elle disait vrai.
+
+Rien n'était capable de la faire sortir de sa tranquillité. Un jour qu'elle faisait sa toilette, sa lampe à alcool éclata. En un instant, Anna fut entourée de flammes. La domestique s'enfuit, en hurlant au secours. Braun perdit la tête, s'agita, poussa des cris, et faillit se trouver mal. Anna arracha les agrafes de son peignoir, fit couler de ses hanches sa jupe qui commençait à brûler, et la mit sous ses pieds. Quand Christophe accourut affolé, avec une carafe qu'il avait stupidement saisie, il vit Anna, montée sur une chaise, en jupon et les bras nus, qui éteignait sans trouble les rideaux en feu avec ses mains. Elle se brûla, n'en parla point, et parut seulement dépitée qu'on l'eût vue en ce costume. Elle rougit, se cacha gauchement les épaules avec ses bras, et s'en fut, d'un air de dignité offensée, dans la chambre voisine. Christophe admira son calme ; mais il n'aurait pu dire si ce calme prouvait plus son courage, ou son insensibilité. Il penchait pour cette dernière explication. En vérité, cette femme semblait ne s'intéresser à rien, ni aux autres, ni à elle. Christophe doutait qu'elle eût du cœur.
+
+Il n'eut plus aucun doute, après un fait dont il fut le témoin. Anna avait une petite chienne noire, aux yeux intelligents et doux, qui était l'enfant gâtée de la maison. Braun l'adorait. Christophe la prenait chez lui, quand il s'enfermait dans sa chambre pour travailler ; et, la porte close, au lieu de travailler, souvent, il s'amusait avec elle. Lorsqu'il sortait, elle était là, sur le seuil, le guettant, et s'attachant à ses pas : car il lui fallait un compagnon de promenade. Elle courait devant lui, tricotant de ses quatre pattes qui grattaient la terre si vite qu'elles semblaient voltiger. De temps en temps, elle s'arrêtait, fière d'aller plus vite ; et elle le regardait, bien cambrée, la poitrine en avant. Elle faisait l'importante ; elle aboyait furieusement à un morceau de bois ; mais dès qu'elle apercevait au loin un autre chien, elle fuyait à toute vitesse, et se réfugiait, tremblante, entre les jambes de Christophe. Christophe s'en moquait et l'aimait. Depuis qu'il s'éloignait des hommes, il se sentait plus rapproché des bêtes ; il les trouvait pitoyables et touchantes. Ces pauvres animaux, lorsqu'on est bon pour eux, s'abandonnent à vous avec tant de confiance ! L'homme est tellement le maître de leur vie et de leur mort que celui qui fait du mal à ces faibles qui lui sont livrés commet un abus de pouvoir abominable.
+
+Si aimante que la gentille bête fût pour tous, elle avait une préférence marquée pour Anna. Celle-ci ne faisait rien pour l'attirer ; mais elle la caressait volontiers, la laissait se blottir sur ses genoux, veillait à sa nourriture, et paraissait l'aimer autant qu'elle était capable d'aimer. Un jour, la chienne ne sut pas se garer des roues d'un automobile. Elle fut écrasée, presque sous les yeux de ses maîtres. Elle vivait encore et criait lamentablement. Braun courut hors de la maison, nu-tête ; il ramassa la loque sanglante et il tâchait au moins de soulager ses souffrances. Anna vint, regarda sans se baisser, fit une moue dégoûtée, et s'en alla. Braun, les larmes aux yeux, assistait à l'agonie du petit être. Christophe se promenait à grands pas dans le jardin, et crispait les poings. Il entendit Anna qui donnait tranquillement des ordres à la domestique. Il ne put s'empêcher de lui dire :
+
+--- Cela ne vous fait donc rien, à vous ?
+
+Elle répondit :
+
+--- On n'y peut rien, n'est-ce pas ? C'est mieux de n'y pas penser.
+
+Il se sentit de la haine pour elle ; puis, le burlesque de la réponse le frappa ; et il rit. Il se disait qu'Anna devrait bien lui donner sa recette pour ne pas penser aux choses tristes, et, que la vie était aisée à ceux qui ont la chance d'être dénués de cœur. Il songea que si Braun mourait, Anna n'en serait guère troublée, et il se félicita de n'être point marié. Sa solitude lui semblait moins triste que cette chaîne d'habitudes qui vous attache pour la vie à un être pour qui vous êtes un objet de haine, ou, ce qui est pire, pour qui vous n'êtes rien. Décidément, cette femme n'aimait personne. Elle existait à peine. Le piétisme l'avait desséchée.
+
+Elle surprit Christophe, un jour de la fin d'octobre. --- Ils étaient à table. Il causait avec Braun d'un crime passionnel, dont toute la ville était occupée. Dans la campagne, deux filles italiennes, deux sœurs, s'étaient éprises d'un homme. Ne pouvant, l'une ni l'autre, se sacrifier de plein gré, elles avaient joué au sort qui des deux céderait la place. La vaincue devait tout bonnement se jeter dans le Rhin. Mais quand le sort eut parlé, celle qu'il n'avait pas favorisée montra peu d'empressement à accepter la décision. L'autre fut révoltée par un tel manque de foi. Des injures on en vint aux coups, et même aux coups de couteau ; puis, brusquement, le vent tourna ; on s'embrassa en pleurant, on jura qu'on ne pourrait vivre l'une sans l'autre ; et comme on ne pouvait cependant se résigner à partager le galant, on décida qu'il serait tué. Ainsi fut fait. Une nuit, les deux amoureuses firent venir dans leur chambre l'amant, enorgueilli de sa double bonne fortune ; et tandis que l'une le liait passionnément de ses bras, l'autre non moins passionnément le poignardait dans le dos. Par chance, ses cris furent entendus. On vint, on l'arracha en assez piteux état à l'étreinte de ses amies ; et on les arrêta. Elles protestaient que cela ne regardait personne, qu'elles étaient seules intéressées dans l'affaire, et que du moment qu'elles étaient d'accord pour se débarrasser de ce qui était à elles, nul n'avait à s'en mêler. La victime n'était pas loin d'approuver ce raisonnement ; mais la justice ne le comprit pas. Et Braun ne le comprenait pas, non plus.
+
+--- Ce sont des folles, disait-il. Il faut les enfermer dans un hospice d'aliénés. Ah ! les mâtines !... Je comprends qu'on se tue par amour. Je comprends même qu'on tue l'être qu'on aime et qui vous trompe... C'est-à-dire, je ne l'excuse pas ; mais je l'admets, comme un reste d'atavisme féroce ; c'est barbare, mais logique : on tue qui vous fait souffrir. Mais tuer ce qu'on aime, sans rancune, sans haine, simplement parce que d'autres l'aiment, c'est de la démence... Tu comprends cela, Christophe ?
+
+--- Peuh ! fit Christophe, je suis habitué à ne pas comprendre. Qui dit amour dit déraison.
+
+Anna, qui se taisait sans paraître écouter, leva la tête et dit, de sa voix calme :
+
+--- Il n'y a là rien de déraisonnable. C'est tout naturel. Quand on aime, on veut détruire ce qu'on aime, afin que personne autre ne puisse l'avoir.
+
+Braun regarda sa femme, stupéfait ; il frappa sur la table, se croisa les bras, et dit :
+
+--- Où a-t-elle été pêcher cela ?... Comment ! il faut que tu dises ton mot, toi ? Qu'est-ce que diable tu en sais ?
+
+Anna rougit légèrement, et se tut. Braun reprit :
+
+--- Quand on aime, on veut détruire ?... Voilà une monstrueuse sottise ! Détruire ce qui vous est cher, c'est se détruire soi-même. --- Mais, tout au contraire, quand on aime, le sentiment naturel est de faire du bien à qui vous fait du bien, de le choyer, de le défendre, d'être bon pour lui, d'être bon pour toutes choses. Aimer, c'est le paradis sur terre.
+
+Anna, les yeux fixés dans l'ombre, le laissa parler, et, secouant la tête, elle dit froidement :
+
+--- On n'est pas bon quand on aime.
+
+Christophe ne renouvelait pas l'épreuve d'entendre chanter Anna. Il craignait... une désillusion, ou quoi d'autre ? Il n'eût pas su le dire. Anna avait la même crainte. Elle évitait de se trouver dans le salon, quand il commençait à jouer.
+
+Mais un soir de novembre qu'il lisait auprès du feu, il vit Anna assise, son ouvrage sur ses genoux, et plongée dans une de ses songeries. Elle regardait le vide, et Christophe crut voir passer dans son regard des lueurs de l'ardeur étrange de l'autre soir. Referma son livre. Elle se sentit observée et se remit à coudre. Sous ses paupières baissées, elle voyait toujours tout. Il se leva et dit :
+
+--- Venez.
+
+Elle fixa sur lui ses yeux où flottait encore un peu de trouble, comprit, et le suivit.
+
+--- Où allez-vous ? demanda Braun.
+
+--- Au piano, répondit Christophe.
+
+Il joua. Elle chanta. Aussitôt, il la retrouva telle qu'elle lui était apparue, une première fois. Elle entrait de plain-pied dans ce monde héroïque, comme s'il était le sien. Il continua l'expérience, prenant un second morceau, puis un troisième plus emporté, déchaînant en elle le troupeau des passions, l'exaltant, s'exaltant ; puis, arrivés au paroxysme, il s'arrêta net et lui demanda, les yeux dans les yeux :
+
+--- Mais enfin, qui donc êtes-vous ?
+
+Anna répondit :
+
+--- Je ne sais pas.
+
+Il dit brutalement :
+
+--- Qu'est-ce que vous avez dans le corps, pour chanter ainsi ?
+
+Elle répondit :
+
+--- J'ai ce que vous me faites chanter.
+
+--- Oui ? Eh bien, il n'y est pas déplacé. Je me demande si c'est moi qui l'ai créé, ou si c'est vous. Vous pensez donc des choses comme cela, vous ?
+
+--- Je ne sais pas. Je crois qu'on n'est plus soi, quand on chante.
+
+--- Et moi, je crois que c'est alors seulement que vous êtes vous.
+
+Ils se turent. Elle avait les joues moites d'une légère buée. Son sein se soulevait, en silence. Elle fixait la lumière des flambeaux, et grattait machinalement la bougie qui avait coulé sur le rebord du chandelier. Il tapotait les touches, en la regardant. Ils se dirent encore quelques mots gênés, d'un ton brusque et rude, puis essayèrent de paroles banales, et se turent tout à fait, craignant d'approfondir...
+
+Le lendemain, ils se parlèrent à peine ; ils se regardaient à la dérobée, avec une sorte de peur. Mais ils prirent l'habitude de faire, le soir, de la musique ensemble. Ils en firent même bientôt dans l'après-midi ; et chaque jour, davantage. Toujours la même passion incompréhensible s'emparait d'elle, dès les premiers accords, la brûlait de la tête aux pieds, et faisait de cette petite bourgeoise, pour le temps que durait la musique, une Vénus impérieuse, l'incarnation de toutes les fureurs de l'âme.
+
+Braun, étonné de l'engouement subit d'Anna pour le chant, n'avait pas pris la peine de chercher l'explication de ce caprice de femme ; il assistait à ces petits concerts, marquait la mesure avec sa tête, donnait son avis, et était parfaitement heureux, quoiqu'il eût préféré une musique plus douce : cette dépense de forces lui paraissait exagérée. Christophe respirait dans l'air un danger ; mais la tête lui tournait : affaibli par la crise qu'il venait de traverser, il ne résistait pas, et il perdait conscience de ce qui se passait en lui, sans pénétrer ce qui se passait dans Anna. Une après-midi, au milieu d'un morceau, en plein débordement d'ardeurs frénétiques, elle s'interrompit et, sans explication, elle sortit de la pièce. Christophe l'attendit : elle ne reparut plus. Une demi-heure après, comme il passait dans le corridor, près de la chambre d'Anna, par la porte entr'ouverte il l'aperçut au fond, absorbée dans des prières mornes, la figure glacée.
+
+Cependant, un peu, très peu de confiance s'insinuait entre eux. Il tâchait de la faire parler de son passé ; elle ne disait que des choses banales ; à grand'peine, il lui arrachait morceau par morceau quelques détails précis. Grâce à la bonhomie, facilement indiscrète, de Braun, il réussit à entrevoir le secret de sa vie.
+
+Elle était née dans la ville. De son nom de famille, elle s'appelait Anna-Maria Senfl. Son père, Martin Senfl, appartenait à une vieille maison de marchands, séculaire et millionnaire, où l'orgueil de caste et le rigorisme religieux étaient montés en graine. D'esprit aventureux, il avait, comme beaucoup de ses compatriotes, passé plusieurs années au loin, en Orient, en Amérique du Sud ; il avait même fait des explorations hardies au centre de l'Asie, où le poussaient à la fois les intérêts commerciaux de sa maison, l'amour de la science, et son propre plaisir. À rouler à travers le monde, non seulement il n'avait pas amassé mousse, mais il s'était défait de celle qui le couvrait, de tous ses vieux préjugés. Si bien que, de retour au pays, étant de tempérament chaud et d'esprit entêté, il épousa, aux protestations indignées des siens, la fille d'un fermier des environs, de réputation douteuse, qu'il avait commencé par avoir comme maîtresse. Le mariage avait été le seul moyen qu'il eût trouvé pour garder à soi cette belle fille, dont il ne pouvait plus se passer. La famille, après avoir mis vainement son veto, se ferma tout entière à celui qui méconnaissait son autorité sacro-sainte. La ville, --- tous ceux qui comptaient, se montrant, comme d'habitude, solidaires pour ce qui touchait à la dignité morale de la communauté, prirent parti en masse contre le couple imprudent. L'explorateur apprit à ses dépens qu'il n'y a pas moins de péril à contrecarrer les préjugés des gens, au pays des sectateurs du Christ que chez ceux du Grand Lama. Il n'était pas assez fort pour pouvoir se passer de l'opinion du monde. Il avait plus qu'entamé sa portion de fortune ; il ne trouvait d'emploi nulle part : tout lui était fermé. Il s'usa en colères inutiles contre les avanies de la ville implacable. Sa santé, minée par les excès et par les fièvres, ne put y résister. Il mourut d'un coup de sang, cinq mois après le mariage. Quatre mois plus tard, sa femme, bonne personne, mais faible et de peu de cervelle, qui depuis ses noces n'avait passé aucun jour sans pleurer, mourait en couches, jetant sur la rive qu'elle quittait la petite Anna.
+
+La mère de Martin vivait. Elle n'avait rien pardonné, même sur leur lit de mort, à son fils, ni à celle qu'elle n'avait pas voulu reconnaître pour sa bru. Mais quand celle-ci ne fut plus, --- la vengeance divine étant assouvie, --- elle prit l'enfant et la garda. C'était une femme d'une dévotion étroite ; riche et avare, elle tenait un magasin de soieries dans une rue sombre de la vieille ville. Elle traita la fille de son fils moins comme sa petite-fille que comme une orpheline qu'on recueille par charité et qui vous doit en revanche une demi-domesticité. Pourtant, elle lui fit donner une éducation soignée ; mais elle ne se départit jamais envers elle d'une rigueur méfiante ; il semblait qu'elle considérât l'enfant comme coupable du péché de ses parents et qu'elle s'acharnât à poursuivre le péché en elle. Elle ne lui permit aucune distraction ; elle traquait la nature, comme un crime, dans ses gestes, ses paroles, jusque dans ses pensées. Elle tua la joie dans cette jeune vie. Anna fut habituée, de bonne heure, à s'ennuyer au temple et à ne pas le montrer ; elle fut environnée des terreurs de l'enfer ; ses yeux d'enfant aux paupières sournoises les voyaient, chaque dimanche, à la porte du vieux *Münster*, sous la forme des statues immodestes et contorsionnées qu'un feu brûle entre les jambes et sur qui montent, le long des cuisses, des crapauds et des serpents. Elle s'accoutuma à refouler ses instincts, à se mentir à elle-même. Dès qu'elle fut d'âge à aider sa grand'mère, elle fut employée, du matin au soir, dans le triste et obscur magasin. Elle prit les habitudes qui régnaient autour d'elle, cet esprit d'ordre, d'économie morose, de privations inutiles, cette indifférence ennuyée, cette conception méprisante et maussade de la vie, qui est la conséquence naturelle des croyances religieuses chez ceux qui ne sont pas naturellement religieux. Elle s'absorba dans la dévotion, au point de paraître exagérée même à la vieille femme ; elle abusait des jeûnes et des macérations ; pendant un certain temps, elle s'avisa de porter un corset garni d'épingles qui s'enfonçaient dans sa chair, à chaque mouvement. On la voyait pâlir ; mais on ne savait ce qu'elle avait. À la fin, comme elle défaillait, on fit venir un médecin. Elle refusa de se laisser examiner --- (elle fût morte plutôt que de se déshabiller devant un homme) ; --- mais elle avoua ; et le médecin fit une scène si violente qu'elle promit de ne plus recommencer. La grand'mère, pour plus de sûreté, soumit dès lors sa toilette à des inspections. Anna ne trouvait pas à ces tortures, comme on aurait pu croire, une jouissance mystique ; elle avait peu d'imagination, elle n'eût pas compris la poésie d'un François d'Assise ou d'une sainte Thérèse. Sa dévotion était triste et matérielle. Quand elle se persécutait, ce n'était pas pour les avantages qu'elle en attendait dans la vie future, c'était par un ennui cruel qui se retournait contre elle-même, trouvant un plaisir presque méchant au mal qu'elle se faisait. Par une exception singulière, cet esprit dur et froid, comme celui de l'aïeule, s'ouvrait à la musique, sans qu'elle sût jusqu'à quelle profondeur. Elle était fermée aux autres arts ; elle n'avait peut-être jamais regardé un tableau, de sa vie ; elle semblait n'avoir aucun sens de la beauté plastique, tant elle manquait de goût, par indifférence orgueilleuse et volontaire ; l'idée d'un beau corps n'éveillait en elle que l'idée de la nudité, c'est-à-dire, comme chez le paysan dont parle Tolstoy, un sentiment de répugnance, d'autant plus fort chez Anna qu'elle percevait obscurément, dans ses rapports avec les êtres qui lui plaisaient beaucoup plus le sourd aiguillon du désir que la tranquille impression de jugements esthétiques. Elle ne se doutait pas plus de sa propre beauté que de la force de ses instincts refoulés ; ou plutôt, elle ne voulait pas s'en douter ; et, avec l'habitude du mensonge intérieur, elle réussissait à se donner le change.
+
+Braun la rencontra à un dîner de mariage où elle se trouvait, d'une façon exceptionnelle : car on ne l'invitait guère, à cause de la mauvaise réputation que continuait de lui faire l'indécence de son origine. Elle avait vingt-deux ans. Il la remarqua. Ce n'était pas qu'elle cherchât à se faire remarquer. Assise à côté de lui, à table, raide et mal fagotée, elle ouvrit à peine la bouche pour parler. Mais Braun, qui ne cessa de causer avec elle, c'est-à-dire tout seul, pendant tout le repas, revint enthousiasmé. Avec sa pénétration ordinaire, il avait été frappé de l'air de candeur virginale de sa voisine ; il avait admiré son bon sens et son calme ; il appréciait aussi sa belle santé et les solides qualités de ménagère qu'elle lui parut avoir. Il fit visite à la grand'mère, revint, fit sa demande et fut agréé. Point de dot : M^me^ Senfl léguait à la ville, pour des missions commerciales, la fortune de sa maison.
+
+À aucun moment, la jeune femme n'avait eu d'amour pour son mari : c'était là une pensée dont il ne lui semblait pas qu'il dût être question dans une vie honnête, et qu'il fallait plutôt écarter comme coupable. Mais elle savait le prix de la bonté de Braun ; elle lui était reconnaissante, sans le lui montrer, de ce qu'il l'avait épousée malgré son origine douteuse. Elle avait d'ailleurs un fort sentiment de l'honneur conjugal. Depuis sept ans qu'ils étaient mariés, rien n'avait troublé leur union. Ils vivaient l'un à côté de l'autre, ne se comprenaient point, et ne s'en inquiétaient point : ils étaient, aux yeux du monde, le type d'un ménage modèle. Ils sortaient peu de chez eux. Braun avait une clientèle assez nombreuse ; mais il n'avait pas réussi à y faire agréer sa femme. Elle ne plaisait point ; et la tache de sa naissance n'était pas encore tout à fait effacée. Anna, de son côté, ne faisait nul effort pour être admise. Elle gardait rancune des dédains qui avaient attristé son enfance. Puis, elle était gênée dans le monde, et ne se plaignait pas qu'on l'oubliât. Elle faisait et recevait quelques visites indispensables, qu'exigeait l'intérêt de son mari. Les visiteuses étaient de petites bourgeoises curieuses et médisantes. Leurs commérages n'avaient aucun intérêt pour Anna ; elle ne prenait pas la peine de dissimuler son indifférence. Cela ne se pardonne point. Aussi, les visites s'espaçaient, et Anna restait seule. C'était ce qu'elle voulait : rien ne venait plus troubler le rêve qu'elle ruminait, et le bourdonnement obscur de sa chair.
+
+Cependant, depuis quelques semaines, Anna semblait souffrante. Son visage se creusait, blêmissait. Elle fuyait la présence de Christophe et de Braun. Elle passait ses journées dans sa chambre ; elle s'enfonçait dans ses pensées ; elle ne répondait pas quand on lui parlait. Braun ne s'affectait pas trop, à l'ordinaire, de ces caprices de femme. Il les expliquait à Christophe. Comme presque tous les hommes destinés à être dupes des femmes, il se flattait de les connaître très bien. Et il les connaissait assez bien, en effet : ce qui ne sert à rien. Il savait qu'elles ont souvent des accès de rêverie têtue, de mutisme opiniâtre et hostile ; et il pensait qu'il faut alors les laisser tranquilles, ne pas chercher à faire le jour, ni surtout à ce qu'elles le fassent dans le dangereux monde inconscient où baigne leur esprit. Néanmoins, il commençait à s'inquiéter pour la santé d'Anna. Il jugea que son étiolement venait de son genre de vie, éternellement renfermée, sans jamais sortir de la ville, à peine de la maison. Il voulut qu'elle se promenât. Il ne pouvait guère l'accompagner : le dimanche, elle était prise par ses devoirs de piété ; les autres jours, il avait ses consultations. Quant à Christophe, il évitait de sortir avec elle. Une ou deux fois, ils avaient fait une courte promenade ensemble, aux portes de la ville : ils s'étaient ennuyés à périr. La conversation chômait. La nature semblait ne pas exister pour Anna ; elle ne voyait rien ; tous les pays étaient pour elle de l'herbe et des pierres ; son insensibilité glaçait. Christophe avait tâché de lui faire admirer un beau site. Elle regarda, souri froidement, et dit, faisant effort pour lui être agréable :
+
+--- Oh ! oui, c'est mystique...
+
+De la même façon qu'elle eût dit :
+
+--- Il y a beaucoup de soleil.
+
+D'irritation, Christophe s'était enfoncé les ongles dans la paume des mains. Depuis, il ne lui demandait plus rien ; et lorsqu'elle sortait, il trouvait un prétexte pour rester chez lui.
+
+En réalité, il était faux qu'Anna fût insensible à la nature. Elle n'aimait pas ce qu'on est convenu d'appeler les beaux paysages : elle ne les distinguait pas des autres. Mais elle aimait la campagne, quelle qu'elle fût, --- la terre et l'air. Seulement, elle ne s'en doutait pas plus que de ses autres sentiments les plus forts ; et qui vivait avec elle s'en doutait encore moins.
+
+À force d'insister, Braun décida sa femme à faire une course d'une journée aux environs. Elle céda par ennui, afin d'avoir la paix. On arrangea la promenade pour un dimanche. Au dernier moment, le docteur, qui s'en faisait une joie enfantine, fut retenu par un cas de maladie urgente. Christophe partit avec Anna.
+
+Un beau temps d'hiver, sans neige : air pur et froid, ciel clair, grand soleil, avec une bise glacée. Ils prirent un petit chemin de fer local, qui rejoignait une de ces lignes de collines bleues formant autour de la ville une lointaine auréole. Leur compartiment était plein ; ils furent séparés l'un de l'autre. Ils ne se parlaient pas. Anna était sombre ; la veille, elle avait déclaré, à la surprise de Braun, qu'elle n'irait pas au culte du lendemain. Pour la première fois de sa vie, elle y manquait. Était-ce une révolte ?... Qui eût pu dire les combats qui se livraient en elle ? Elle regardait fixement la banquette devant elle ; elle était blême ; elle se rongeait.
+
+Ils descendirent du train. Leur froideur ennemie ne se dissipa point, durant le commencement de la promenade. Ils marchaient côte à côte ; elle allait d'un pas ferme, ne faisant attention à rien ; elle avait les mains libres ; ses bras se balançaient ; ses talons résonnaient sur la terre gelée. --- Peu à peu, sa figure s'anima. La rapidité de la marche rosissait ses joues pâles. Sa bouche s'entr'ouvrait pour boire la fraîcheur de l'air. Au détour d'un sentier qui montait en lacets, elle se mit à escalader la colline, en ligne droite, comme une chèvre ; le long d'une carrière, au risque de tomber, elle s'accrochait aux arbustes. Christophe la suivit. Elle grimpait plus vite, glissant, se rattrapant, avec les mains, aux herbes. Christophe lui cria de s'arrêter. Elle ne répondit pas, et continua de monter, courbée à quatre pattes. Ils traversèrent les brouillards qui traînaient au-dessus de la vallée, comme une gaze argentée, se déchirant aux buissons ; ils se trouvèrent dans le chaud soleil d'en haut. Arrivée au sommet, elle se retourna ; sa figure s'était éclairée ; sa bouche, ouverte, respirait. Elle regarda, avec des yeux ironiques, Christophe qui gravissait la pente, enleva son manteau, le lui jeta au nez, puis, sans attendre qu'il soufflât, elle reprit sa course. Christophe lui fit la chasse. Ils prenaient goût au jeu ; l'air les grisait. Elle se lança sur une pente rapide ; les pierres roulaient sous ses pieds ; elle ne trébuchait point, elle glissait, sautait, filait comme une flèche. De temps en temps, elle jetait un coup d'œil en arrière, pour mesurer l'avance qu'elle avait sur Christophe. Il se rapprochait d'elle. Elle se jeta dans un bois. Les feuilles mortes craquaient sous leurs pas ; les branches qu'elle avait écartées le fouettaient au visage. Elle butta contre les racines d'un arbre. Il la saisit. Elle se débattit, luttant des pieds et des mains, lui donnant de forts coups, cherchant à le faire tomber ; elle criait et riait. Sa poitrine haletait, appuyée contre lui ; un instant, leurs joues se frôlèrent ; il but la sueur qui mouillait les tempes d'Anna ; il respira l'odeur de ses cheveux humides. D'une robuste poussée, elle se dégagea, et le regarda, sans trouble, de ses yeux qui le défiaient. Il était stupéfait de la force qui était en elle, et dont elle ne faisait rien dans la vie ordinaire.
+
+Ils allèrent au prochain village, foulant allègrement le chaume sec, qui rebondissait sous leurs pas. Devant eux s'envolaient les corbeaux qui fouillaient les champs. Le soleil brûlait, et la bise mordait. Il tenait le bras d'Anna. Elle avait une robe peu épaisse ; il sentait sous l'étoffe le corps moite et baigné de chaleur. Il voulut qu'elle remît son manteau ; elle refusa et, par bravade, défit l'agrafe du col. Ils s'attablèrent à une auberge, dont l'enseigne portait l'image d'un « homme sauvage » (*Zum wilden Mann*). Devant la porte, poussait un petit sapin. La salle était décorée de quatrains allemands, de deux chromos, l'une sentimentale : *Au printemps* (*Im Frühling*), l'autre patriotique : *la bataille de Saint-Jacques*, et d'un crucifix avec un crâne au pied de la croix. Anna avait un appétit vorace, que Christophe ne lui connaissait pas. Ils burent allègrement du petit vin blanc. Après le repas, ils repartirent à travers champs, comme deux bons compagnons. Nulle pensée équivoque. Ils ne songeaient qu'au plaisir de la marche, de leur sang qui chantait, de l'air qui les fouettait. La langue d'Anna s'était déliée. Elle ne se méfiait plus ; elle disait, au hasard, tout ce qui lui venait à l'esprit.
+
+Elle parla de son enfance : sa grand'mère l'emmenait chez une amie qui habitait auprès de la cathédrale ; tandis que les vieilles dames causaient, on l'envoyait dans le grand jardin, sur lequel pesait l'ombre du *Münster*. Elle s'asseyait dans un coin et elle ne bougeait plus ; elle écoutait le frémissement des feuilles, elle épiait le fourmillement des insectes ; et elle avait plaisir et peur. --- (Elle omettait de dire qu'elle avait peur des diables : son imagination en était obsédée ; on lui avait conté qu'ils rôdaient autour des églises, sans oser y entrer ; et elle croyait les voir sous la forme des bêtes : araignées, lézards, fourmis, tout le petit peuple difforme qui grouillait autour d'elle, sous les feuilles, sur la terre, ou dans les fentes des murs). --- Ensuite, elle parla de la maison où elle vivait, de sa chambre sans soleil ; elle s'en souvenait avec plaisir ; elle y passait des nuits sans dormir, à se raconter des choses...
+
+--- Quelles choses ?
+
+--- Des choses folles.
+
+--- Racontez.
+
+Elle secoua la tête, pour dire que non.
+
+--- Pourquoi ?
+
+Elle rougit, puis rit, et ajouta :
+
+--- Et aussi le jour, pendant que je travaillais.
+
+Elle y pensa un moment, rit de nouveau, et conclut :
+
+--- C'étaient des choses folles, des choses mauvaises.
+
+Il dit, en plaisantant :
+
+--- Vous n'aviez donc pas peur ?
+
+--- De quoi ?
+
+--- D'être damnée ?
+
+Sa figure se glaça.
+
+--- Il ne faut pas parler de cela, dit-elle.
+
+Il détourna la conversation. Il admira la force qu'elle avait montrée tout à l'heure, en luttant. Elle reprit son expression confiante et raconta ses prouesses de fillette --- (elle disait : « de garçon », car, lorsqu'elle était enfant, elle eût voulu se mêler aux jeux et aux batailles des garçons). --- Une fois, se trouvant avec un petit camarade, plus grand qu'elle de toute la tête, elle lui avait brusquement lancé un coup de poing, espérant qu'il répondrait. Mais il s'était sauvé, en criant qu'elle le battait. Une autre fois, à la campagne, elle avait grimpé sur le dos d'une vache noire qui paissait ; la bête effarée l'avait jetée contre un arbre : Anna avait failli se tuer. Elle s'avisa aussi de sauter de la fenêtre d'un premier étage, parce qu'elle s'était défiée elle-même de le faire : elle eut la chance d'en être quitte, avec une entorse. Elle inventait des exercices bizarres et dangereux, quand on la laissait seule à la maison ; elle soumettait son corps à des épreuves étranges et variées.
+
+--- Qui croirait cela de vous, dit-il, quand on vous voit si grave ?...
+
+--- Oh ! dit-elle, si l'on me voyait, certains jours, dans ma chambre, quand je suis seule !
+
+--- Quoi ! encore à présent ?
+
+Elle rit. Elle lui demanda --- sautant d'un sujet à l'autre --- s'il chassait. Il protesta que non. Elle dit qu'elle avait une fois tiré un coup de fusil sur un merle et qu'elle l'avait touché. Il s'indigna.
+
+--- Bon ! dit-elle, qu'est-ce que cela fait ?
+
+--- Vous n'avez donc pas de cœur ?
+
+--- Je n'en sais rien.
+
+--- Ne pensez-vous pas que les bêtes sont des êtres comme nous ?
+
+--- Si, dit-elle. Justement, je voulais vous demander : est-ce que vous croyez que les bêtes ont une âme ?
+
+--- Oui, je le crois.
+
+--- Le pasteur dit que non. Et moi, je pense qu'ils en ont une... D'abord, ajouta-t-elle avec un grand sérieux, je crois que j'ai été animal, dans une vie antérieure.
+
+Il se mit à rire.
+
+--- Il n'y a pas de quoi rire, dit-elle. (Elle riait aussi.) C'est là une des histoires que je me racontais, lorsque j'étais petite. Je m'imaginais être chat, chien, oiseau, poulain, génisse. Je me sentais leurs désirs. J'aurais voulu être, une heure, dans leur poil ou leur plume ; il me semblait que j'y étais. Vous ne comprenez pas cela ?
+
+--- Vous êtes une étrange bête. Mais si vous vous sentez cette parenté avec les bêtes, comment pouvez-vous leur faire du mal ?
+
+--- On fait toujours du mal à quelqu'un. Les uns me font du mal, je fais du mal à d'autres. C'est dans l'ordre. Je ne me plains pas. Il ne faut pas être si douillet, dans la vie ! Je me fais bien du mal à moi-même, par plaisir !
+
+--- À vous ?
+
+--- À moi. Regardez. Un jour, avec un marteau, je me suis enfoncé un clou dans cette main.
+
+--- Pourquoi ?
+
+--- Pour rien.
+
+(Elle ne disait pas qu'elle avait voulu se crucifier.)
+
+--- Donnez-moi la main, dit-elle.
+
+--- Qu'en voulez-vous faire ?
+
+--- Donnez.
+
+Il lui donna la main. Elle la saisit et la serra, à le faire crier. Ils jouèrent, comme deux paysans, à se faire le plus de mal possible. Ils étaient heureux, sans arrière-pensée. Tout le reste du monde, les chaînes de leur vie, les tristesses du passé, l'appréhension de l'avenir, l'orage qui s'amassait en eux, tout avait disparu.
+
+Ils avaient fait plusieurs lieues ; ils ne sentaient point la fatigue. Brusquement, elle s'arrêta, elle se jeta par terre, s'étendit sur les chaumes, ne dit plus rien. Couchée sur le dos, les bras derrière la tête, elle regardait le ciel. Quelle paix ! Quelle douceur !... À quelques pas, une fontaine cachée sourdait, avec un jet intermittent, comme une artère qui bat, tantôt faible, tantôt plus forte. L'horizon était nacré. Une buée flottait sur la terre violette, d'où montaient les arbres nus et noirs. Soleil de fin d'hiver, jeune soleil blond pâle qui s'endort. Comme des flèches brillantes, des oiseaux fendaient l'air. Les voix gentilles des cloches paysannes s'appelaient, se répondaient, de village en village... Assis près d'elle, Christophe contemplait Anna. Elle ne songeait pas à lui. Une joie profonde la baignait. Sa belle bouche riait en silence. Il pensait :
+
+--- « Est-ce bien vous ? Je ne vous reconnais plus.
+
+--- « Moi non plus, moi non plus. Je crois que je suis une autre. Je n'ai plus peur ; je n'ai plus peur de Lui... Ah ! comme Il m'étouffait, comme Il m'a fait souffrir ! Il me semble que j'étais clouée dans mon cercueil. ...Maintenant, je respire ; ce corps, ce cœur est à moi. Mon corps. Mon cher corps. Mon cœur libre et aimant. Tant de bonheur en moi ! Et je ne le connaissais pas, je ne me connaissais pas ! Qu'aviez-vous fait de moi ?... »
+
+Ainsi, il croyait l'entendre soupirer doucement. Mais elle ne pensait à rien, sinon qu'elle était heureuse, et que tout était bien.
+
+Le soir tombait déjà. Sous des rideaux de brume grise et lilas, dès quatre heures, le soleil, fatigué de vivre, disparaissait. Christophe se leva, et s'approcha d'Anna. Il se pencha sur elle. Elle tourna vers lui son regard, tout plein encore du vertige du grand ciel sur lequel elle était suspendue. Quelques secondes se passèrent avant qu'elle le reconnût. Alors ses yeux le fixèrent avec un sourire énigmatique qui lui communiqua leur trouble. Afin d'y échapper, un instant il ferma les yeux. Quand il les rouvrit, elle le regardait toujours ; et il lui parut qu'il y avait des jours qu'ils se regardaient ainsi. C'était comme s'ils lisaient dans l'âme l'un de l'autre. Mais ils ne voulurent pas savoir ce qu'ils avaient lu.
+
+Il lui tendit la main. Elle la prit, sans un mot. Ils revinrent au village, dont on voyait là-bas, dans le creux du vallon, les tours coiffées en as de pique ; l'une d'elles portait sur le faîte de son toit de tuile moussue, comme une toque sur le front, un nid vide de cigogne. Au carrefour de deux chemins, près de l'entrée du village, ils passèrent devant une fontaine sur laquelle une petite sainte catholique, une Madeleine en bois, gracieuse, un peu mignarde, se tenait debout, tendant les bras. Répondant à son geste, Anna, d'un mouvement instinctif, lui tendit ses bras aussi, et, montant sur la margelle, elle remplit les mains de la jolie déesse avec des branches de houx et des grappes de sorbiers aux baies rouges, que le bec des oiseaux et le gel avaient épargnées.
+
+Ils croisaient sur la route des groupes de paysans et de paysannes endimanchés. Des femmes à la peau très brune, aux joues très colorées, avec d'épais chignons, enroulés en coquille, robes claires, chapeaux fleuris. Elles avaient des gants blancs et des poignets rouges. Elles chantaient des chants honnêtes, avec des voix aiguës, placides, pas très justes. À l'intérieur d'une étable, une vache meuglait. Un enfant qui avait la coqueluche toussait dans une maison. D'un peu plus loin venaient des sons de clarinette nasillarde et de cornet à piston. On dansait sur la place du village, entre le cabaret et le cimetière. Juchés sur une table, quatre musiciens jouaient. Anna et Christophe s'assirent devant l'auberge et regardèrent les danseurs. Les couples se heurtaient et s'apostrophaient à grand bruit. Les filles poussaient des cris, pour le plaisir de crier. Les buveurs marquaient la mesure sur les tables, avec leurs poings. En un autre temps, cette joie lourde eût dégoûté Anna ; ce soir, elle en jouissait ; elle avait ôté son chapeau, et regardait, la figure animée. Christophe pouffait de la gravité burlesque de la musique et des musiciens. Il chercha dans ses poches, prit un crayon et, sur l'envers d'une note d'auberge, il se mit à tracer des barres et des points : il écrivait des danses. La feuille fut bientôt remplie ; il en demanda d'autres, qu'il couvrit, comme la première, de sa grosse écriture impatiente et maladroite. Anna, la joue près de la sienne, lisait par-dessus son épaule, chantonnant à mi-voix ; elle tâchait de deviner la fin des phrases, et elle battait des mains, quand elle avait deviné, ou quand ses prévisions étaient déroutées par une saillie inattendue. Après avoir fini, Christophe porta aux musiciens ce qu'il venait d'écrire. C'étaient de braves Souabes, qui savaient leur métier : ils déchiffrèrent sans broncher. Les airs étaient d'un humour sentimental et burlesque, avec des rythmes heurtés, comme ponctués d'éclats de rire. Impossible de résister à leur bouffonnerie impétueuse : les jambes dansaient malgré soi. Anna se jeta dans la ronde, elle saisit au hasard deux mains, elle tourna comme une folle ; une épingle d'écaille sauta de ses cheveux ; des boucles se défirent et tombèrent sur ses joues, Christophe ne la quittait pas des yeux ; il admirait ce bel animal robuste, qui avait été condamné jusque-là au silence et à l'immobilité par une discipline impitoyable ; elle lui apparaissait comme nul ne l'avait vue, comme elle était réellement sous le masque emprunté : une Bacchante, ivre de force. Elle l'appela. Il courut à elle et l'empoigna. Ils dansèrent, dansèrent, jusqu'à ce qu'ils allassent se jeter, en tournant, contre un mur. Ils s'arrêtèrent, étourdis. La nuit était complète. Ils se reposèrent un moment, puis prirent congé de la compagnie. Anna, si roide d'ordinaire avec les gens du peuple, par gêne ou par mépris, tendit la main gentiment aux musiciens, à l'hôte, aux garçons du village, à côté de qui elle était dans la ronde.
+
+Ils se retrouvèrent seuls, sous le ciel brillant et glacé, refaisant à travers champs, le chemin qu'ils avaient suivi le matin. Anna était encore tout animée. Peu à peu, elle parla moins, puis elle cessa de parler, comme prise par la fatigue ou par l'émotion mystérieuse de la nuit. Elle s'appuyait affectueusement sur Christophe. En redescendant la pente qu'elle avait grimpée allègrement, quelques heures avant, elle soupira. Ils arrivaient à la station. Près de la première maison, il s'arrêta pour la regarder. Elle le regarda aussi, et lui sourit avec mélancolie. Dans le train, même foule qu'en venant. Ils ne purent causer. Assis en face d'elle, il la couvait des yeux. Elle avait les yeux baissés ; elle les leva vers lui, sentant son regard ; puis elle les détourna, et il ne parvint plus à les attirer de son côté. Elle regardait dehors, dans la nuit. Un vague sourire flottait sur ses lèvres, avec un peu de fatigue aux coins. Puis le sourire disparut. L'expression devint morne. Il crut qu'elle s'absorbait dans le rythme du train, et il essaya de lui parler. Elle répondit froidement, d'un mot, sans tourner la tête. Il tâcha de se persuader que la fatigue était cause de ce changement ; mais il savait bien que la raison était autre. À mesure qu'on se rapprochait de la ville, il voyait le visage d'Anna se figer, la vie s'éteindre, tout ce beau corps à la grâce sauvage rentrer dans sa gaine de pierre. Elle ne s'appuya pas sur la main qu'il lui tendait, en descendant de wagon. Ils revinrent, en silence.
+
+Quelques jours après, vers quatre heures du soir, ils étaient seuls ensemble. Braun était sorti. Depuis la veille, la ville était enveloppée dans un brouillard vert pâle. Le grondement du fleuve invisible montait. Les éclairs des trams électriques éclataient dans la brume. La lumière du jour s'éteignait, étouffée ; elle ne semblait plus d'aucun temps : c'était une de ces heures où se perd toute conscience de la réalité, une heure qui est hors des siècles. Après la brise mordante des jours précédents, l'air humide s'était subitement adouci, était devenu trop tiède et trop mou. La neige gonflait le ciel, qui ployait sous le poids.
+
+Ils étaient seuls ensemble, dans le salon dont le goût froid et étriqué reflétait celui de la maîtresse. Ils ne disaient rien. Il lisait. Elle cousait. Il se leva et alla à la fenêtre ; il appuya sa grosse figure contre les carreaux, et resta à rêver ; cette lumière blafarde qui se répercutait du ciel sombre à la terre livide lui causait un étourdissement ; sa pensée était inquiète ; il essayait en vain de la fixer : elle lui échappait. Une angoisse l'envahit : il se sentait engloutir ; et dans le vide de son être, du fond des ruines amoncelées, un vent brûlant se levait en lents tourbillons. Il tournait le dos à Anna ; elle ne le voyait pas, elle s'absorbait dans sa tâche ; mais un léger frisson lui passait par le corps ; elle se piqua plusieurs fois avec son aiguille, elle ne le sentit point. Ils étaient tous les deux fascinés par l'approche du danger.
+
+Il s'arracha à son engourdissement et fit quelques pas à travers la chambre. Le piano l'attirait et lui faisait peur. Il évitait de le regarder. En passant à côté, sa main ne put résister ; elle toucha une note. Le son vibra comme une voix. Anna tressaillit et laissa tomber son ouvrage. Déjà Christophe s'était assis et jouait. Il perçut, sans la voir, qu'Anna s'était levée, qu'elle venait, qu'elle était là. Avant de se rendre compte de ce qu'il faisait, il reprit l'air religieux et passionné qu'elle avait chanté, la première fois qu'elle s'était révélée à lui ; il improvisa sur le thème de fougueuses variations. Sans qu'il eût dit un mot, elle commença à chanter. Ils perdirent le sentiment de ce qui les entourait. La frénésie sacrée de la musique les emporta dans ses serres...
+
+Ô musique, qui ouvres les abîmes de l'âme ! Tu ruines l'équilibre habituel de l'esprit. Dans la vie ordinaire, les âmes ordinaires sont des chambres fermées ; se fanent, au dedans, les forces sans emploi, les vertus et les vices dont l'usage nous gêne ; la sage raison pratique, le lâche sens commun, tiennent les clefs de la chambre. Ils n'en montrent que quelques placards, bourgeoisement rangés Mais la musique tient le magique rameau qui fait tomber les serrures. Les portes s'ouvrent. Les démons du cœur paraissent. Et l'âme se voit nue, pour la première fois. --- Tant que chante la sirène, tant que vibre sa voix ensorcelante, le dompteur tient sous son regard les fauves. La puissante raison d'un grand musicien fascine les passions qu'il déchaîne. Mais quand la musique s'est tue, quand le dompteur n'est plus là, les passions qu'il a réveillées continuent de gronder dans la cage ébranlée, et elles cherchent leur proie...
+
+La mélodie finit. Silence... Elle avait, en chantant, appuyé sa main sur l'épaule de Christophe. Ils n'osaient plus remuer ; et ils s'aperçurent qu'ils tremblaient. Soudain --- ce fut un éclair --- elle se pencha vers lui, il se retourna vers elle ; leurs bouches se joignirent ; son souffle entra en lui...
+
+Elle le repoussa et s'enfuit. Il resta, sans bouger, dans l'ombre. Braun rentra. Ils se mirent à table. Christophe était incapable de penser. Anna semblait absente ; elle regardait « ailleurs ». Peu après le souper, elle alla dans sa chambre. Christophe, qui n'aurait pu rester seul avec Braun, se retira aussi.
+
+Vers minuit, le docteur étant déjà couché fut appelé auprès d'un malade. Christophe l'entendit descendre l'escalier et sortir. Il neigeait depuis six heures. Les maisons et les rues étaient ensevelies. L'air était comme rembourré d'ouate. Ni pas, ni voiture au dehors. La ville semblait morte. Christophe ne dormait pas. Il sentait une terreur, qui croissait de minute en minute. Il ne pouvait bouger. Cloué dans son lit, sur le dos, il avait les yeux ouverts. Une clarté métallique, qui sortait de la terre et des toits vêtus de blancheur, frottait les parois de la chambre... Un bruit imperceptible le fit tressaillir. Il fallait son oreille fiévreuse pour l'entendre. Un frôlement très doux sur le plancher du couloir. Christophe se dressa dans son lit. Le bruit léger se rapprocha, s'arrêta ; une planche craqua. On était derrière la porte ; on attendait... Une immobilité complète, pendant plusieurs secondes, plusieurs minutes peut-être... Christophe ne respirait plus, il était baigné de sueur. Des flocons de neige, au dehors, effleuraient la vitre, comme une aile. Une main tâtonna sur la porte, qui s'ouvrit. Sur le seuil, une blancheur apparut, elle s'avança lentement ; à quelques pas du lit, elle fit une pause. Christophe ne distinguait rien ; mais il l'entendait respirer ; et il entendait son propre cœur qui battait. Elle vint près du lit. Elle s'arrêta encore. Leurs visages étaient si près que leurs haleines se mêlaient. Leurs regards se cherchaient, sans se trouver, dans l'ombre... Elle tomba sur lui. Ils s'étreignirent en silence, sans un mot, avec rage...
+
+Une heure, deux heures, un siècle après. La porte de la maison s'ouvrit. Anna se détacha de l'étreinte qui les nouait, glissa du lit, et quitta Christophe, sans une parole, comme elle était venue. Il entendit ses pieds nus s'éloigner, frôlant le parquet de leur toucher rapide. Elle regagna sa chambre, où Braun la trouva couchée, paraissant dormir. Ainsi elle resta toute la nuit, les yeux ouverts, sans un souffle, immobile, dans le lit étroit, près de Braun endormi. Que de nuits elle avait déjà passées ainsi !
+
+Christophe ne dormit pas non plus. Il était désespéré. Cet homme apportait aux choses de l'amour et surtout du mariage un sérieux tragique. Il haïssait la légèreté de ces écrivains, dont l'art se fait un piment de l'adultère. L'adultère lui inspirait une répulsion, où se combinaient sa brutalité populaire et sa hauteur morale. Il éprouvait tout ensemble un respect religieux et un dégoût physique pour la femme qui appartient à un autre. La promiscuité de chiens où vit une certaine élite européenne lui soulevait le cœur. L'adultère, consenti par le mari, est une ordure ; à l'insu du mari, c'est un mensonge ignoble de valet crapuleux, qui se cache pour trahir et pour salir son maître. Que de fois il avait méprisé sans pitié ceux qu'il avait vus coupables de cette lâcheté ! Il avait rompu avec des amis qui s'étaient ainsi déshonorés à ses yeux... Et voici qu'à son tour il s'était souillé de la même ignominie ! Les circonstances de son crime le rendaient plus odieux encore. Il était venu dans cette maison, malade et misérable. Un ami l'avait recueilli, secouru, consolé. Jamais sa bonté ne s'était démentie. Rien ne l'avait lassée. Il lui devait de vivre encore. Et en reconnaissance, il venait de voler à cet homme son honneur et son bonheur, son humble bonheur domestique ! Il l'avait trahi bassement, et avec qui ? Avec une femme qu'il ne connaissait pas, qu'il ne comprenait pas, qu'il n'aimait pas... Qu'il n'aimait pas ? Tout son sang se révolta. L'amour était, un mot trop faible pour exprimer le torrent de feu qui le brûlait, dès qu'il pensait à elle. Ce n'était pas de l'amour, et c'était mille fois plus que l'amour... Il passa la nuit dans une tempête. Il se levait, il se trempait la figure dans l'eau glacée, il étouffait et il frissonnait. La crise se termina par un accès de fièvre.
+
+Quand il se leva, brisé, il pensa combien elle devait être, plus encore que lui, accablée de honte. Il alla à sa fenêtre. Le soleil brillait sur la neige éblouissante. Dans le jardin, Anna étendait du linge sur une corde. Attentive à sa tâche, rien ne semblait la troubler. Elle avait une dignité de démarche et de gestes qui lui était toute nouvelle et qui lui faisait trouver, sans y penser, des mouvements de statue.
+
+Au dîner de midi, ils se revirent. Braun était absent, pour toute la journée. Jamais Christophe n'eût supporté de se rencontrer avec lui. Il voulait parler à Anna. Mais ils n'étaient pas seuls ; la domestique allait et venait ; ils devaient se surveiller. Christophe cherchait en vain le regard d'Anna. Elle ne regardait personne. Nul indice de trouble, et toujours dans ses moindres mouvements cette assurance et cette noblesse inhabituelles. Après dîner, il espéra qu'ils pourraient enfin causer ; mais la domestique s'attardait à desservir ; et lorsqu'ils passèrent dans la chambre voisine, elle s'arrangea de façon à les y suivre ; elle avait toujours quelque chose à prendre ou à rapporter ; elle furetait dans le corridor, près de la porte entr'ouverte, qu'Anna ne se pressait point de fermer : on eût dit qu'elle les épiait. Anna s'assit près de la fenêtre, avec son éternel ouvrage. Christophe, enfoncé dans un fauteuil, le dos tourné au jour, avait un livre ouvert, qu'il ne lisait pas. Anna, qui pouvait l'entrevoir de profil, aperçut d'un coup d'œil son visage tourmenté, qui regardait le mur ; et elle sourit, cruelle. Du toit de la maison, de l'arbre du jardin, la neige qui fondait s'égouttait sur le sable avec un tintement fin. Au loin, des rires d'enfants qui se poursuivaient dans la rue, à coups de boules de neige. Anna semblait assoupie. Le silence torturait Christophe ; il eût crié de souffrance.
+
+Enfin, la domestique descendit à l'étage au-dessous, et sortit de la maison. Christophe se leva, il se tourna vers Anna, il allait dire :
+
+--- Anna ! Anna ! qu'avons-nous fait ?
+
+Anna le regardait ; ses yeux, obstinément baissés, venaient de se rouvrir ; ils posaient sur Christophe leur feu dévorant. Christophe reçut le choc dans ses yeux, et chancela ; tout ce qu'il voulait dire fut raturé, d'un trait. Ils allèrent l'un à l'autre, et de nouveau ils se saisirent...
+
+L'ombre du soir se répandait. Leur sang grondait encore. Elle était allongée sur le lit, sa robe arrachée, les bras étendus, sans même faire un geste pour recouvrir son corps. Il s'était enfoncé la figure dans l'oreiller, et gémissait. Elle se souleva vers lui, elle lui souleva la tête, lui caressant les yeux, la bouche avec ses doigts ; elle approcha son visage, elle plongea son regard dans le regard de Christophe. Ses yeux avaient une profondeur de lac ; ils souriaient, indifférents aux peines. La conscience s'effaça. Il se tut. Des frissons les remuaient comme de grandes ondes...
+
+Cette nuit-là, seul, rentré dans sa chambre, Christophe songea à se tuer.
+
+Le jour suivant, à peine levé, il chercha Anna. C'était lui maintenant dont les yeux évitaient les yeux de l'autre. Dès qu'il les rencontrait, ce qu'il avait à dire fuyait de sa pensée. Il fit effort pourtant, et commença à parler de la lâcheté de leur acte. À peine eut-elle compris qu'elle lui ferma violemment la bouche avec sa main. Elle s'écarta de lui, les sourcils contractés, les lèvres serrées, avec une expression mauvaise. Il continua. Elle jeta par terre l'ouvrage qu'elle tenait, et ouvrit la porte, voulut sortir. Il lui empoigna les mains, il referma la porte, il dit amèrement qu'elle était bien heureuse de pouvoir effacer de son esprit toute idée du mal commis. Elle se débattait, comme un animal pris au piège, et elle cria avec colère :
+
+--- Tais-toi !... Lâche, tu ne vois donc pas ce que je souffre !... Je ne veux pas que tu parles. Laisse-moi !
+
+Sa figure s'était creusée, son regard était haineux et peureux, comme celui d'une bête à qui l'on a fait mal ; ses yeux l'auraient tué, s'ils avaient pu. --- Il la lâcha. Elle courut à l'autre coin de la pièce, pour se mettre à l'abri. Il n'avait pas envie de la poursuivre. Il avait le cœur serré d'amertume et d'effroi. Braun rentra. Ils le regardaient, stupides. Hors leur souffrance, rien n'existait pour eux.
+
+Christophe sortit. Braun et Anna se mirent à table. Au milieu du dîner, Braun se leva brusquement pour ouvrir la fenêtre : Anna s'était évanouie.
+
+Christophe disparut, pour quinze jours, de la ville, prétextant un voyage. Anna resta, toute la semaine, enfermée dans sa chambre, sauf aux heures des repas. Elle était reprise par sa conscience, ses habitudes, toute cette vie passée dont elle s'était crue dégagée, dont on ne se dégage jamais. Elle avait beau se fermer les yeux. Chaque jour, le souci cheminait davantage, allait plus loin dans son cœur ; il finit par s'y installer. Le dimanche suivant, elle refusa encore d'aller au temple. Mais le dimanche d'après, elle y retourna, et elle ne le quitta plus. Elle était vaincue, non soumise. Dieu était l'ennemi, --- un ennemi dont elle ne pouvait se délivrer. Elle allait à lui, avec la sourde colère d'un esclave, forcé d'obéir. Son visage, pendant le culte, ne laissait voir qu'une froideur hostile ; mais dans les profondeurs de son âme, toute sa vie religieuse était une lutte farouche, d'une exaspération muette, contre le Maître, dont le reproche la persécutait. Elle feignait de ne pas l'entendre. Il *fallait* qu'elle l'entendît ; et elle discutait âprement avec Dieu, les mâchoires serrées, le front barré d'une ride entêtée, le regard dur. Elle pensait à Christophe avec haine. Elle ne lui pardonnait pas de l'avoir un instant arrachée à la prison de l'âme, et de l'y laisser retomber, en proie à ses bourreaux. Elle ne dormait plus ; elle ressassait, jour et nuit, les mêmes pensées torturantes ; elle ne se plaignait pas ; elle allait, obstinée, continuant de diriger tout dans la maison, de faire toute sa tâche, et gardant jusqu'au bout le caractère intraitable et têtu de sa volonté dans la vie quotidienne, dont elle accomplissait les besognes avec une régularité de machine. Elle s'amaigrissait, elle semblait rongée par un mal intérieur. Braun l'interrogea, avec une affection inquiète ; il voulut l'ausculter. Elle le repoussa rageusement. Plus elle avait de remords envers lui, plus elle lui parlait avec dureté.
+
+Christophe avait résolu de ne plus revenir. Il se brisait de fatigue. Il faisait de grandes courses, des exercices pénibles, il ramait, il marchait, il grimpait des montagnes. Rien ne parvenait à éteindre le feu.
+
+Il était plus livré à la passion que quiconque. C'est une nécessité de la nature des génies. Même les plus chastes, Beethoven, Bruckner, il faut qu'ils aiment constamment ; toutes les forces humaines chez eux sont exaltées ; et comme chez eux les forces sont captées par l'imagination, leur cerveau est la proie de passions perpétuelles. Ce ne sont le plus souvent que des flammes passagères ; l'une détruit l'autre ; et toutes sont absorbées par le grand incendie de l'esprit créateur. Mais que l'ardeur de la forge cesse de remplir l'âme, et l'âme sans défense est livrée aux passions dont elle ne peut se priver ; elle les veut, elle les crée ; il faut qu'elles le dévorent... --- Et puis, à côté de l'âpre désir qui laboure la chair, il y a le besoin de tendresse qui pousse l'homme lassé et déçu par la vie vers les bras maternels de la consolatrice. Un grand homme est plus enfant qu'un autre ; plus qu'un autre, il a besoin de se confier à une femme, de reposer son front sur la paume des mains douces de l'amie, dans le creux de la robe tendue entre ses genoux.
+
+Mais Christophe ne comprenait pas... Il ne croyait pas à la fatalité de la passion, --- cette bêtise des romantiques. Il croyait au devoir et au pouvoir de lutter, à la force de sa volonté... Sa volonté ! Où était-elle ? Il n'en restait plus trace. Il était possédé. L'aiguillon du souvenir le harcelait, jour et nuit. L'odeur du corps d'Anna flottait autour de lui. Il était comme une lourde barque désemparée, sans gouvernail, livrée au vent. En vain, il voulait fuir, il s'épuisait à fuir : il se retrouvait toujours ramené à la même place ; et il criait au vent :
+
+--- Brise-moi donc ! Que veux-tu de moi ?
+
+Il s'interrogeait fiévreusement. Pourquoi, pourquoi cette femme ?... Pourquoi l'aimait-il ? Ce n'était pas pour ses qualités de cœur et d'esprit. Il n'en manquait pas d'autres plus intelligentes et meilleures. Ce n'était pas pour sa chair. Il avait eu d'autres maîtresses, que ses sens préféraient. Qu'était-ce donc ? --- « On aime, parce qu'on aime. » --- Oui, mais il y a une raison, même si elle dépasse la raison ordinaire. Folie ? c'est ne rien dire. Pourquoi cette folie ?
+
+Parce qu'il y a une âme cachée, des puissances aveugles, des démons, que chacun porte emprisonnés en soi. Tout notre effort, depuis que l'humanité existe, a été d'opposer à cette mer intérieure les digues de notre raison et de nos religions. Mais que vienne une tempête, (et les âmes plus riches sont plus sujettes aux tempêtes), que les digues aient cédé, que les démons aient le champ libre, qu'ils se trouvent en présence d'autres âmes que soulèvent des puissances semblables... Ils se jettent l'un sur l'autre. Haine, ou amour ? Fureur de destruction mutuelle ? --- La passion, c'est l'âme de proie.
+
+La mer est déchaînée. Qui la remettra dans son lit ? --- Alors, il faut faire appel à plus puissant que soi. À Neptune, dieu des flots.
+
+Après quinze Jours d'efforts inutiles pour fuir, Christophe revint dans la maison d'Anna. Il ne pouvait plus vivre loin d'elle. Il étouffait.
+
+Cependant, il continuait de lutter. Le soir de son retour, ils trouvèrent des prétextes pour ne pas se voir, pour ne pas dîner ensemble ; la nuit, ils s'enfermèrent à clef, peureusement, chacun dans sa chambre. --- Mais ce fut plus fort que tout. Au milieu de la nuit, elle s'enfuit pieds nus, elle vint frapper à sa porte ; il ouvrit ; elle s'étendit près de lui, glacée. Elle pleurait tout bas. Il sentait sur sa joue couler ces pleurs. Elle tâchait de s'apaiser ; mais sa peine l'emportait ; et elle sanglota, ses lèvres appuyées contre le cou de Christophe. Bouleversé par cette douleur, il oubliait la sienne ; il tentait de la calmer, en lui disant des mots tendres et consolants. Elle gémissait :
+
+--- Je suis malheureuse, je voudrais être morte...
+
+Ses plaintes lui perçaient le cœur. Il voulut l'embrasser. Elle le repoussa :
+
+--- Je vous hais !... Pourquoi êtes-vous venu ?
+
+Elle s'arracha de ses bras, se jeta de l'autre côté du lit. Le lit était étroit. Malgré leurs efforts pour s'éviter, ils se touchaient. Anna tournait le dos à Christophe et tremblait de rage et de douleur. Elle le haïssait, jusqu'à la mort. Christophe se taisait, atterré. Dans le silence, Anna entendit son souffle oppressé ; elle se retourna brusquement, lui mit ses bras autour du cou :
+
+--- Pauvre Christophe ! dit-elle, je te fais souffrir...
+
+Pour la première fois, il lui entendait cette voix de pitié.
+
+--- Pardonne-moi, dit-elle.
+
+Il dit :
+
+--- Pardonnons-nous.
+
+Elle se souleva, comme si elle ne pouvait plus respirer. Assise dans le lit, courbant le dos, accablée, elle dit :
+
+--- Je suis perdue... Dieu l'a voulu. Il m'a livrée... Que puis-je contre Lui ?
+
+Elle resta ainsi longtemps, puis se recoucha, et ne bougea plus. Une faible lueur annonça l'aube. Dans le demi-jour, il vit le douloureux visage qui touchait le sien. Il murmura :
+
+--- Le jour.
+
+Elle ne fit pas un mouvement.
+
+Il dit :
+
+--- Soit. Qu'importe ?
+
+Elle rouvrit les yeux, sortit du lit, avec une expression de lassitude mortelle. Assise sur le bord, elle regardait le plancher. D'une voix sans couleur, elle dit :
+
+--- J'ai pensé le tuer, cette nuit.
+
+Il eut un sursaut d'effroi.
+
+--- Anna ! dit-il.
+
+Elle fixait la fenêtre, d'un air sombre.
+
+--- Anna ! répéta-t-il. Au nom du ciel !... Pas lui !... Il est le meilleur...
+
+Elle répéta :
+
+--- Pas lui. Oui.
+
+Ils se regardèrent.
+
+Il y avait longtemps qu'ils le savaient. Ils savaient quelle était la seule issue. Ils ne pouvaient supporter de vivre dans le mensonge. Et jamais ils n'avaient envisagé même la possibilité de s'enfuir ensemble. Ils n'ignoraient pas que cela ne résoudrait rien : car la pire souffrance n'était pas dans les obstacles extérieurs qui les séparaient, mais en eux, dans leurs âmes différentes. Il leur était aussi impossible de vivre ensemble que de ne pas vivre ensemble. Ils étaient acculés.
+
+À partir de ce moment, ils ne se touchèrent plus : l'ombre de la mort était sur eux ; ils étaient sacrés l'un pour l'autre.
+
+Mais ils évitaient de se fixer un délai. Ils se disaient : « Demain, demain... » Et de ce demain ils détournaient les yeux. L'âme puissante de Christophe avait des sursauts de révolte ; il ne consentait pas à la défaite ; il méprisait le suicide, et il ne pouvait se résigner à cette conclusion piteuse et écourtée d'une grande vie. Quant à Anna, comment eût-elle accepté sans y être contrainte l'idée d'une mort qui menait à la mort éternelle ? Mais la nécessité meurtrière les traquait, et le cercle se resserrait peu à peu autour d'eux.
+
+Ce matin, pour la première fois depuis sa trahison, Christophe se trouva avec Braun. Jusque-là, il avait réussi à l'éviter. Cette rencontre lui était intolérable. Il lui fallut trouver un prétexte pour ne pas manger à table, assis à ses côtés : les morceaux lui restaient dans la gorge. Serrer sa main, manger son pain, le baiser de Judas !... Le plus odieux n'était pas le mépris qu'il éprouvait pour lui-même, c'était l'angoisse de la souffrance de Braun, s'il venait à apprendre... Cette pensée le crucifiait. Il savait trop bien que le pauvre Braun ne se vengerait jamais, qu'il n'aurait peut-être pas même la force de les haïr ; mais quel écroulement !... De quels yeux le regarderait-il ! Christophe se sentait incapable d'affronter le reproche de ces yeux. --- Et il était fatal que tôt ou tard Braun fût averti. Déjà, ne soupçonnait-il rien ? En le revoyant après une absence de quinze jours, Christophe fut frappé du changement : Braun n'était plus le même. Sa gaieté avait disparu, ou elle avait quelque chose de contraint. À table, il jetait à la dérobée des regards sur Anna, qui ne parlait pas, qui ne mangeait pas, qui se consumait comme une lampe. Avec des prévenances timides et touchantes, il essaya de s'occuper d'elle ; elle repoussa ses attentions, âprement ; alors, il baissa le nez sur son assiette et se tut. Au milieu du repas, Anna, qui étouffait, jeta sa serviette sur la table, et sortit. Les deux hommes achevèrent en silence de dîner, ou ils firent semblant ; ils n'osaient pas lever les yeux. Quand ce fut fini, Christophe allait partir, Braun lui prit brusquement le bras avec les deux mains.
+
+--- Christophe !... dit-il.
+
+Christophe, troublé, le regarda.
+
+--- Christophe, répéta Braun, --- (sa voix tremblait), --- sais-tu ce qu'elle a ?
+
+Christophe se sentit transpercé ; il fut un moment sans répondre. Braun le regardait timidement ; très vite, il s'excusait :
+
+--- Tu la vois souvent, elle a confiance en toi...
+
+Christophe fut sur le point d'embrasser les mains de Braun, de lui demander pardon. Braun vit le visage bouleversé de Christophe ; et aussitôt, terrifié, il ne voulut plus voir ; le suppliant du regard, il bredouilla précipitamment, il lui souffla :
+
+--- Non, n'est-ce pas ? tu ne sais rien ?
+
+Christophe, accablé, dit :
+
+--- Non.
+
+Ô douleur de ne pouvoir s'accuser, s'humilier, puisque ce serait déchirer le cœur de celui qu'on a outragé ! Douleur de ne pouvoir dire la vérité, quand on lit dans les yeux de celui qui vous la demande, qu'il ne veut pas, il ne veut pas savoir la vérité !...
+
+--- Bien, bien, merci, je te remercie... fit Braun.
+
+Il restait, les mains accrochées à la manche de Christophe, comme s'il voulait lui demander encore quelque chose, n'osant pas, évitant ses yeux. Puis, il le lâcha, soupira, et s'en alla.
+
+Christophe était écrasé par son nouveau mensonge. Il courut chez Anna. Il lui raconta, en bégayant de trouble, ce qui s'était passé. Anna écouta, d'un air morne, et dit :
+
+--- Eh bien, qu'il sache ! Qu'importe ?
+
+--- Comment pouvez-vous parler ainsi ? cria Christophe. C'est affreux ! À aucun prix, à aucun prix, je ne veux qu'il souffre.
+
+Anna s'emporta.
+
+--- Et quand il souffrirait ? Est-ce que je ne souffre pas, moi ? Qu'il souffre aussi !
+
+Ils se dirent des paroles amères. Il l'accusa de n'aimer qu'elle. Elle lui reprocha de penser plus à son mari qu'à elle.
+
+Mais un moment après, quand il lui dit qu'il ne pouvait plus vivre ainsi, qu'il allait tout avouer à Braun, ce fut elle à son tour qui le traita d'égoïste, criant qu'elle se souciait peu de la conscience de Christophe, mais que Braun ne devait rien savoir.
+
+Malgré ses dures paroles, elle pensait à Braun, autant que Christophe. Sans avoir pour son mari d'affection véritable, elle lui était attachée. Elle avait le respect religieux des liens sociaux et des devoirs qu'ils établissent. Elle ne pensait peut-être pas que l'épouse eût le devoir d'être bonne et d'aimer son mari ; mais elle pensait qu'elle était obligée de remplir scrupuleusement les charges du ménage et de rester fidèle. Il lui semblait ignoble de manquer à cette obligation, ainsi qu'elle avait fait.
+
+Et mieux encore que Christophe, elle savait que Braun devait tout apprendre bientôt. Elle avait quelque mérite à le cacher à Christophe, soit qu'elle ne voulût pas ajouter à son trouble, soit plutôt par fierté.
+
+Si fermée que fût la maison de Braun, si secrète que restât la tragédie bourgeoise qui s'y jouait, quelque chose en avait déjà transpiré, au dehors.
+
+Dans cette ville, nul ne peut se flatter de cacher sa vie. C'est là un fait étrange. Dans les rues, personne ne vous regarde ; les portes des maisons et les volets sont clos. Mais il y a des miroirs accrochés au coin des fenêtres ; et l'on entend, quand on passe, le bruit sec des persiennes qui s'entr'ouvrent et se referment. Personne ne se soucie de vous ; il semble qu'on vous ignore ; mais vous ne tardez pas à vous apercevoir qu'aucune de vos paroles, aucun de vos gestes n'a été perdu : on sait ce que vous avez fait, ce que vous avez dit, ce que vous avez vu, ce que vous avez mangé ; on sait même, on se flatte de savoir ce que vous avez pensé. Une surveillance occulte, universelle, vous enveloppe. Domestiques, fournisseurs, parents, amis, indifférents, passants inconnus, tous collaborent, d'un consentement tacite, à cet espionnage instinctif dont les éléments dispersés se centralisent, on ne sait comment. On n'observe pas seulement vos actes, on scrute votre cœur. Dans cette ville, nul n'a le droit de réserver le secret de sa conscience ; et chacun a le droit de se pencher sur vous, de fouiller dans vos pensées intimes, et, si elles choquent l'opinion, de vous en demander compte. L'invisible despotisme de l'âme collective pèse sur l'individu ; il est, toute sa vie, comme un enfant en tutelle ; rien de lui n'est à lui : il appartient à la ville.
+
+Il avait suffi qu'Anna s'abstînt, deux dimanches de suite, de paraître à l'église, pour éveiller les soupçons. En temps ordinaire, nul ne semblait remarquer sa présence au culte ; elle vivait à l'écart, et la ville, eût-on dit, oubliait qu'elle existât. --- Le soir du premier dimanche où elle n'était pas venue, son absence était partout connue, consignée dans le souvenir. Le dimanche suivant, aucun des pieux regards qui suivaient les paroles saintes dans le Livre, ou sur les lèvres du pasteur, ne parut distrait de sa grave attention ; aucun n'avait omis de constater à l'entrée, de vérifier à la sortie que la place d'Anna était demeurée vide. Le lendemain, Anna commençait à recevoir la visite de personnes qu'elle n'avait point vues depuis plusieurs mois ; elles venaient, sous des prétextes variés, les unes craignant qu'elle ne fût malade, les autres prenant un intérêt nouveau à ses affaires, à son mari, à sa maison ; quelques-unes se montraient singulièrement bien informées de ce qui se passait chez elle ; aucune ne fit allusion --- (par une maladroite adresse) --- à son abstention de deux dimanches au culte. Anna se dit souffrante, parla de ses occupations. Les visiteuses l'écoutaient attentives, approuvaient : Anna savait qu'elles ne croyaient pas un mot de ce qu'elle disait. Leur regard se promenait autour d'elles, dans la chambre, fouillait, notait, enregistrait. Elles ne se départaient pas de leur bonhomie froide, au débit bruyant et affecté ; mais on voyait dans leurs yeux la curiosité indiscrète qui les dévorait. Deux ou trois demandèrent, avec une indifférence exagérée, des nouvelles de M. Krafft.
+
+Quelques jours après, --- (c'était pendant l'absence de Christophe), --- le pasteur vint lui-même. Bel homme, et bonhomme, de santé florissante, affable, avec la tranquillité imperturbable que donne la conscience d'avoir à soi la vérité, toute la vérité. Il s'enquit avec sollicitude de la santé de sa cliente, écouta poli et distrait les excuses qu'elle lui donna, et qu'il ne demandait pas, accepta une tasse de thé, plaisanta agréablement, à propos de boisson émit l'opinion que le vin dont il était fait mention dans la Bible n'était pas une boisson alcoolisée, fit quelques citations, raconta une anecdote, et, au moment de partir, eut une allusion obscure au danger des mauvaises compagnies, à certaines promenades, à l'esprit d'impiété, à l'impureté de la danse, aux sales convoitises. Il paraissait s'adresser au siècle en général, non à Anna. Il se tut un moment, toussa, se leva, chargea Anna de ses compliments cérémonieux pour monsieur Braun, fit une plaisanterie en latin, salua et sortit. --- Anna resta glacée par l'allusion. Était-ce une allusion ? Comment aurait-il pu savoir la promenade de Christophe et d'Anna ? Ils n'avaient rencontré là-bas personne qui les connût. Mais tout ne se sait-il pas, dans cette ville ? Le musicien à la figure caractéristique et la jeune femme en noir qui dansaient à l'auberge s'étaient fait remarquer ; leur signalement avait été donné ; et comme tout se répète, le bruit en était venu en ville, où la malveillance éveillée n'avait pas manqué de reconnaître Anna. Sans doute, ce n'était encore là qu'un soupçon, mais singulièrement attirant, et auquel s'ajoutaient les renseignements fournis par la domestique même d'Anna. La curiosité publique était maintenant aux aguets, attendant qu'ils se compromissent, les épiant par mille yeux invisibles. La ville silencieuse et sournoise les traquait, comme un chat à l'affût.
+
+Malgré le danger, Anna n'eût peut-être pas cédé ; peut-être le sentiment de cette lâche hostilité l'eût-elle poussée à la provoquer rageusement, si elle n'avait porté en elle l'esprit pharisaïque de cette société qui lui était ennemie. L'éducation avait asservi sa nature. Elle avait beau juger la tyrannie et la niaiserie de l'opinion : elle la respectait ; elle souscrivait à ses arrêts, même quand ils la frappaient ; s'ils avaient été en opposition avec sa conscience, elle eût donné tort à sa conscience. Elle méprisait la ville ; et le mépris de la ville lui eût été impossible à supporter.
+
+Or, le moment venait où l'occasion allait s'offrir à la médisance publique de s'épancher. Le carnaval approchait.
+
+Le carnaval, dans cette ville, avait gardé jusqu'au temps où se déroule cette histoire --- (il a bien changé, depuis) --- un caractère de licence et d'âpreté archaïque. Fidèle à ses origines, où il était une détente au dévergondage de l'esprit humain asservi, volontairement ou non, au joug de la raison, nulle part il n'eut plus d'audace qu'aux époques et dans les pays où pesaient le plus lourdement les mœurs et les lois, gardiennes de la raison. Aussi la ville d'Anna devait-elle rester une de ses terres d'élection. Plus le rigorisme moral y paralysait les gestes, y bâillonnait les voix, plus durant quelques jours les gestes étaient hardis et les voix affranchies. Tout ce qui s'amassait dans les bas-fonds de l'âme : jalousies, haines secrètes, curiosité impudique, instincts de malveillance inhérents à la bête sociable, crevaient d'un coup avec le fracas et la joie d'une revanche. Chacun avait le droit de descendre dans la rue et, masqué prudemment, de clouer au pilori, en pleine place publique, celui qu'il détestait, d'étaler aux passants tout ce que lui avait appris un an d'efforts patients, tout son trésor de secrets scandaleux, goutte à goutte amassés. Tel en faisait la parade sur des chars. Tel promenait des lanternes transparentes, où s'affichait en inscriptions et en images l'histoire secrète de la ville. Tel osait même se faire le masque de son ennemi, si facilement reconnaissable que les polissons du ruisseau le désignaient de son nom. Des journaux de médisances paraissaient pendant ces trois jours. Des gens de la société se mêlaient sournoisement à ce jeu de *Pasquino*. Nul contrôle exercé, sauf pour les allusions politiques, --- cette âpre liberté ayant été la cause, à diverses reprises, de contestations entre le gouvernement de la ville et les représentants des États étrangers. Mais rien ne protégeait les citoyens contre les citoyens ; et cette appréhension de l'outrage public, constamment suspendue, ne devait pas peu contribuer à maintenir dans les mœurs l'apparence impeccable dont la ville s'honorait.
+
+Anna était sous le poids de cette peur, --- d'ailleurs injustifiée. Elle avait bien peu de raisons de craindre. Elle tenait trop peu de place dans l'opinion de la ville pour qu'on eût seulement l'idée de l'attaquer. Mais dans l'isolement absolu où elle se murait, dans l'état d'épuisement et de surexcitation nerveuse où l'avaient mise plusieurs semaines d'insomnies et de souffrances morales, son imagination était prête à accueillir les terreurs les plus déraisonnables. Elle s'exagérait l'animosité de ceux qui ne l'aimaient point. Elle se disait que les soupçons étaient sur sa piste ; il suffisait d'un rien pour la perdre ; et qui l'assurait que ce n'était pas chose faite ? Alors, c'était l'injure, le déshabillage sans pitié, l'étalage de son cœur offert en proie aux passants : un déshonneur si cruel qu'Anna mourait de honte en y songeant. On se contait que, quelques années avant, une jeune fille, livrée à cette persécution, avait dû fuir du pays avec les siens... Et l'on ne pouvait rien, rien faire pour se défendre, rien faire pour l'empêcher, rien faire même pour savoir ce qui allait arriver. Le doute était plus affolant encore que la certitude. Anna jetait autour d'elle des yeux de bête aux abois. Dans sa propre maison, elle se savait cernée.
+
+La domestique d'Anna avait passé la quarantaine : elle se nommait Bäbi : grande, forte, la face rétrécie et décharnée aux tempes et au front, large et longue à la base, soufflée sous la mâchoire, telle une poire tapée ; elle avait un sourire perpétuel et des yeux perçants comme des vrilles, enfoncés, sucés en dedans, sous des paupières rouges aux cils invisibles. Elle ne se départait pas d'une expression de gaieté mignarde : toujours enchantée des maîtres, toujours de leur avis, s'inquiétant de leur santé avec un intérêt attendri ; souriant, quand on lui donnait des ordres ; souriant, quand on lui faisait des reproches. Braun la croyait d'un dévouement à toute épreuve. Son air béat faisait contraste avec la froideur d'Anna. En beaucoup de choses pourtant, elle lui ressemblait : comme elle, parlant peu, vêtue d'une façon sévère et soignée ; comme elle, fort dévote, l'accompagnant au culte, accomplissant exactement ses devoirs de piété, ayant le souci scrupuleux de ses devoirs de maison : propreté, ponctualité, mœurs et cuisine sans reproches. Elle était, en un mot, une servante exemplaire, et le type accompli de l'ennemie domestique. Anna, dont l'instinct féminin ne se trompait guère sur les pensées secrètes des femmes, ne se faisait aucune illusion à son égard. Elles se détestaient, le savaient, et ne s'en montraient rien.
+
+La nuit qui suivit le retour de Christophe, lorsque Anna, en proie à ses tourments, alla le retrouver, malgré la résolution qu'elle avait prise de ne plus le revoir jamais, elle venait furtivement, tâtonnant les murs, dans les ténèbres ; elle était près d'entrer dans la chambre de Christophe, quand elle sentit sous ses pieds nus, au lieu du contact habituel du parquet lisse et froid, une poussière tiède qui s'écrasait mollement. Elle se baissa, toucha avec les mains, et comprit : une mince couche de cendres fines avait été répandue dans toute la largeur du couloir, sur un espace de deux à trois mètres. C'était Bäbi qui avait, sans le savoir, retrouvé la vieille ruse employée, au temps des lais bretons, par le nain Frocin pour surprendre Tristan se rendant au lit d'Yseut : tant il est vrai qu'un nombre restreint de types, dans le bien comme dans le mal, servent pour tous les siècles. Grande preuve en faveur de la sage économie de l'univers ! --- Anna n'hésita point ; elle n'en continua pas moins son chemin, par une sorte de bravade méprisante ; elle entra chez Christophe, ne lui parla de rien, malgré son inquiétude ; mais au retour, elle prit le balai du poêle, et effaça soigneusement sur la cendre la trace de ses pas, après qu'elle eut passé. --- Quand Anna et Bäbi se retrouvèrent, dans la matinée, ce fut, l'une avec sa froideur, l'autre avec son sourire accoutumés.
+
+Bäbi recevait parfois la visite d'un parent un peu plus âgé qu'elle ; il remplissait au temple les fonctions de gardien ; on le voyait, à l'heure du *Gottesdienst* (du service divin), faire sentinelle devant la porte de l'église, avec un brassard blanc à raies noires et gland d'argent, appuyé sur un jonc à bec recourbé. De son métier, il était fabricant de cercueils. Il se nommait Sami Witschi. Il était très grand, maigre, la tête un peu penchée, avec une face rasée et sérieuse de vieux paysan. Il était pieux, et connaissait comme pas un tous les bruits qui couraient sur toutes les âmes de sa paroisse. Bäbi et Sami pensaient à s'épouser ; ils appréciaient, l'un dans l'autre, leurs qualités sérieuses, leur foi solide et leur méchanceté. Mais ils ne se pressaient pas de conclure ; ils s'observaient prudemment. --- Dans les derniers temps, les visites de Sami étaient devenues plus fréquentes. Il entrait sans qu'on le sût. Toutes les fois qu'Anna passait près de la cuisine, par la porte vitrée elle apercevait Sami assis près du fourneau, et Bäbi à quelques pas, cousant. Ils avaient beau parler, on n'entendait aucun bruit. On voyait la figure épanouie de Bäbi et ses lèvres qui remuaient ; la grande bouche sévère de Sami se plissait, sans s'ouvrir, d'un rire grimaçant : rien ne sortait du gosier ; la maison semblait muette. Quand Anna entrait dans la cuisine, Sami se levait respectueusement et restait debout, sans parler, jusqu'à ce qu'elle fût sortie. Bäbi, en entendant la porte qui s'ouvrait, interrompait avec affectation un sujet indifférent, et tournait vers Anna un sourire obséquieux, en attendant ses ordres. Anna pensait qu'ils parlaient d'elle ; mais elle les méprisait trop pour s'abaisser à les écouter en cachette.
+
+Le jour après qu'Anna eut déjoué le piège ingénieux des cendres, entrant dans la cuisine, le premier objet qu'elle vit, ce fut, dans les mains de Sami, le petit balai dont elle s'était servie, la nuit, pour effacer l'empreinte de ses pieds nus. Elle l'avait pris dans la chambre de Christophe ; et à cette minute même, elle se ressouvint brusquement qu'elle avait oublié de l'y reporter ; elle l'avait laissé dans sa propre chambre, où les yeux perçants de Bäbi l'avaient aussitôt remarqué. Les deux compères n'avaient pas manqué de reconstituer l'histoire. Anna ne broncha point. Bäbi, suivant le regard de sa maîtresse, sourit avec exagération, et expliqua :
+
+--- Le balai était cassé ; je l'ai donné à Sami, pour qu'il le réparât.
+
+Anna ne se donna pas la peine de relever le grossier mensonge ; elle ne parut même pas entendre ; elle regarda l'ouvrage de Bäbi, fit ses observations, et sortit, impassible. Mais, la porte fermée, elle perdit toute fierté ; elle ne put s'empêcher d'écouter, cachée dans l'angle du corridor --- (elle était humiliée jusqu'à l'âme de recourir à de pareils moyens : la peur la domptait). --- Un gloussement de rire très bref. Puis, un chuchotement, si bas qu'on ne pouvait rien distinguer. Mais, dans son affolement, Anna croyait entendre ; sa terreur lui soufflait les mots qu'elle craignait d'entendre ; elle s'imagina qu'ils parlaient des mascarades prochaines et d'un charivari. Nul doute : ils voulaient y introduire l'épisode des cendres. Probablement, elle se trompait ; mais au point d'exaltation morbide où elle était hantée depuis quinze jours par l'idée fixe de l'avanie, elle ne s'arrêta même pas à considérer l'incertain comme possible, elle le regarda comme certain.
+
+Dès lors, sa décision fut prise.
+
+Le soir du même jour --- (c'était le mercredi qui précède les jours gras), --- Braun fut appelé en consultation, à une vingtaine de kilomètres de la ville : il ne devait revenir que le lendemain matin. Anna ne descendit pas dîner, et resta dans sa chambre. Elle avait choisi cette nuit pour exécuter l'engagement tacite qu'elle avait souscrit. Mais elle avait décidé de l'exécuter seule, sans rien dire à Christophe. Elle le méprisait. Elle pensait :
+
+--- Il a promis. Mais il est homme, il est égoïste et menteur, il a son art, il aura vite oublié.
+
+Et puis, il y avait peut-être, dans ce cœur violent qui semblait inaccessible à la bonté, il y avait peut-être place pour un sentiment de pitié, à l'égard de son compagnon. Mais elle était trop rude et trop passionnée pour se l'avouer.
+
+Bäbi dit à Christophe que sa maîtresse la chargeait de l'excuser, qu'elle était un peu souffrante et voulait se reposer. Christophe soupa donc seul, sous la surveillance de Bäbi, qui le fatiguait de son verbiage, tâchait de le faire parler, et protestait pour Anna d'un zèle si outré que Christophe, malgré la facilité qu'il avait à croire dans la bonne foi des gens, fut mis en défiance. Il comptait justement profiter de cette soirée pour avoir avec Anna un entretien décisif. Lui non plus, il ne pouvait différer davantage. Il n'avait pas oublié l'engagement qu'ils avaient pris ensemble, à l'aube de cette triste journée. Il était prêt à le tenir si Anna l'exigeait. Mais il voyait l'absurdité de cette double mort, qui ne résolvait rien, et dont la douleur et le scandale devaient retomber sur Braun. Il pensait que le mieux était qu'ils s'arrachassent l'un à l'autre, qu'il essayât encore une fois de partir, --- si du moins il avait la force de rester éloigné d'elle : il en doutait, après l'épreuve inutile qu'il venait de faire ; mais il se disait qu'au cas où il ne pourrait le supporter, il aurait toujours le temps de recourir, seul, sans que personne en sût rien, au suprême moyen.
+
+Il espéra qu'après le souper il pourrait s'échapper un moment pour monter dans la chambre d'Anna. Mais Bäbi ne quittait point ses pas. D'habitude, elle terminait de bonne heure son ouvrage ; ce soir-là, elle n'en finit plus de laver la cuisine ; et lorsque Christophe crut en être délivré, elle inventa de ranger un placard dans le corridor qui menait à la chambre d'Anna. Christophe la trouva solidement installée sur un escabeau ; il comprit qu'elle ne délogerait pas, de toute la soirée. Il sentait une furieuse démangeaison de la jeter en bas avec ses piles d'assiettes ; mais il se contint et la pria d'aller voir comment sa maîtresse se trouvait, et s'il ne pourrait lui souhaiter le bonsoir. Bäbi alla, revint, et dit, en l'observant avec une joie maligne, que Madame allait mieux, qu'elle avait sommeil et demandait que personne n'entrât. Christophe, irrité et nerveux, essaya de lire, ne put, et monta dans sa chambre. Bäbi guetta sa lumière jusqu'à ce qu'elle fût éteinte, et monta à son tour, se promettant de veiller ; elle eut la précaution de laisser sa porte entr'ouverte, afin de pouvoir entendre tous les bruits de la maison. Malheureusement pour elle, elle ne pouvait se mettre au lit sans s'endormir aussitôt, et d'un sommeil si puissant que ni le tonnerre, ni sa curiosité même, n'eussent été capables de l'éveiller, avant qu'il fût jour. Ce sommeil n'était un secret pour personne. L'écho en arrivait jusqu'à l'étage au-dessous.
+
+Dès que Christophe entendit ce bruit familier, il alla chez Anna. Il fallait qu'il lui parlât. Une inquiétude le travaillait. Il arriva à la porte, il tourna le bouton : la porte était fermée. Il frappa doucement : point de réponse. Il colla sa bouche contre la serrure, supplia à voix basse, puis avec insistance : nul mouvement, nul bruit. Il avait beau se dire qu'Anna dormait, une angoisse le prit. Et comme, tâchant vainement d'entendre, il appuyait sa joue contre la porte, une odeur le frappa, qui semblait sortir du seuil ; il se pencha, et il la reconnut : c'était l'odeur du gaz. Son sang se glaça. Il secoua la porte, sans penser qu'il pouvait réveiller Bäbi : la porte ne céda pas... Il avait compris : Anna avait, dans le cabinet de toilette attenant à sa chambre, un petit poêle à gaz ; elle l'avait ouvert. Il fallait défoncer la porte ; mais dans son trouble, Christophe garda assez de raison pour se rappeler qu'à aucun prix Bäbi ne devait entendre. Il pesa sur un des battants, d'une énorme poussée, en silence. La porte, solide et bien close, craqua sur ses gonds, mais ne bougea point. Une autre porte donnait accès de la chambre d'Anna au cabinet de Braun. Il y courut. Elle était également fermée ; mais ici, la serrure était en dehors. Il entreprit de l'arracher. Ce n'était pas aisé. Il devait enlever les quatre grosses vis, encastrées dans le bois. Il n'avait que son couteau ; et il ne voyait rien : car il n'osait pas allumer une bougie ; il eût risqué de faire sauter l'appartement. En tâtonnant, il réussit à introduire son couteau dans la tête d'une vis, puis d'une autre, cassant les lames, se coupant ; il lui semblait que les vis étaient d'une longueur diabolique, qu'il ne finirait jamais de les arracher ; et en même temps, dans sa précipitation fébrile qui lui inondait le corps d'une sueur glacée, un souvenir d'enfance lui revenait à l'esprit : il se revoyait, à dix ans, enfermé par punition dans le cabinet noir ; il avait enlevé la serrure et fui de la maison... La dernière vis céda. La serrure sortit, avec un grésillement de sciure de bois. Christophe se précipita dans la chambre, courut à la fenêtre, l'ouvrit. Une nappe d'air froid entra. Christophe, trébuchant aux meubles, dans l'obscurité trouva le lit, tâtonna, rencontra le corps d'Anna, de ses mains frémissantes palpa à travers les draps les jambes immobiles, remonta jusqu'à la taille : Anna était assise sur son lit, et tremblait. Elle n'avait pas eu le temps d'éprouver les premiers effets de l'asphyxie : la chambre était haute de plafond ; l'air circulait par les fentes de la fenêtre et des portes mal jointes. Christophe la prit dans ses bras. Elle se dégagea avec fureur, criant :
+
+--- Allez-vous-en !... Ah ! qu'est-ce que vous avez fait ?
+
+Elle leva les bras pour le frapper ; mais elle était brisée d'émotion : elle retomba sur l'oreiller ; elle sanglotait :
+
+--- Ho ! ho ! tout est à recommencer !
+
+Christophe lui prit les mains, l'embrassant, la grondant, lui disant des paroles tendres et rudes :
+
+--- Mourir ! Et mourir seule, sans moi !
+
+--- Oh ! toi ! dit-elle amèrement.
+
+Son ton disait assez :
+
+--- Toi, tu veux vivre.
+
+Il la rudoya, il voulut violenter sa volonté.
+
+--- Folle ! dit-il, tu ne sais donc pas que tu pouvais faire sauter la maison !
+
+--- C'était ce que je voulais, fit-elle avec rage.
+
+Il tâcha de réveiller ses craintes religieuses : c'était la corde juste. À peine y eut-il touché qu'elle commença à crier, à le supplier de se taire. Il persista sans pitié, pensant que c'était le seul moyen de ramener en elle la volonté de vivre. Elle ne disait plus rien, elle avait des hoquets convulsifs. Quand il eut fini, elle lui dit, d'un ton de haine concentrée :
+
+--- Tu es content maintenant ? Tu as bien travaillé ? Tu as achevé de me désespérer. Et maintenant, qu'est-ce que je vais faire ?
+
+--- Vivre, dit-il.
+
+--- Vivre ! cria-t-elle, mais tu ne sais donc pas que c'est impossible ! Tu ne sais rien ! Tu ne sais rien !
+
+Il demanda :
+
+--- Qu'y a-t-il ?
+
+Elle haussa les épaules :
+
+--- Écoute.
+
+Elle lui raconta, en phrases brèves, hachées, tout ce qu'elle lui avait caché jusqu'à présent : l'espionnage de Bäbi, les cendres, la scène avec Sami, le carnaval, l'affront imminent. Elle ne distinguait plus, en racontant, ce que sa crainte avait forgé de ce qu'elle avait raison de craindre. Il écoutait, consterné, plus incapable qu'elle encore de discerner, dans le récit, le danger réel de l'imaginaire. Il était à mille lieues de soupçonner la chasse qu'on leur faisait. Il cherchait à comprendre ; il ne pouvait rien dire : contre de tels ennemis il était désarmé. Il sentait seulement une fureur aveugle, le désir de frapper. Il dit :
+
+--- Pourquoi n'as-tu pas chassé Bäbi ?
+
+Elle dédaigna de répondre. Bäbi chassée eût été plus venimeuse encore que Bäbi tolérée ; et Christophe comprit le non-sens de sa question. Ses pensées se heurtaient ; il cherchait un parti à prendre, une action immédiate. Il dit, les poings crispés :
+
+--- Je les tuerai.
+
+--- Qui ? fit-elle, méprisante pour ces mots inutiles.
+
+Sa force tomba. Il se sentit perdu dans ce réseau de trahisons obscures, où l'on ne pouvait rien saisir, où tous étaient complices. Il se débattait.
+
+--- Lâches ! cria-t-il, accablé.
+
+Il s'effondra, à genoux devant le lit, son visage pressé contre le corps d'Anna. --- Ils se turent. Elle éprouvait un mélange de mépris et de pitié pour cet homme qui ne savait ni la défendre, ni se défendre. Il sentait contre sa joue trembler de froid les jambes d'Anna. La fenêtre était restée ouverte, et dehors il gelait : on voyait, dans le ciel lisse comme un miroir, frissonner les étoiles glacées.
+
+Quand elle eut savouré l'amère jouissance de le voir brisé comme elle, elle dit, d'un ton dur et lassé :
+
+--- Allumez une bougie.
+
+Il alluma. Anna claquait des dents, ramassée sur elle-même, les bras serrés contre les seins, les genoux repliés sous le menton Il ferma la fenêtre. Il s'assit sur le lit. Il prit dans ses mains les pieds d'Anna, d'un froid de glace, il les réchauffa avec sa bouche, avec ses mains. Elle fut attendrie.
+
+--- Christophe ! dit-elle.
+
+Elle avait des yeux lamentables.
+
+--- Anna ! dit-il.
+
+--- Qu'allons-nous faire ?
+
+Il la regarda, et dit :
+
+--- Mourir.
+
+Elle eut un cri de joie :
+
+--- Oh ! tu veux bien ? tu veux aussi ?... Je ne serai pas seule !
+
+Elle l'embrassait.
+
+--- Croyais-tu donc que j'allais te laisser ?
+
+Elle répondit, à voix basse :
+
+--- Oui.
+
+Il sentit ce qu'elle avait dû souffrir.
+
+Après quelques instants, il l'interrogea du regard. Elle comprit :
+
+--- Dans le bureau, dit-elle. À droite. Le tiroir du bas.
+
+Il alla et chercha. Tout au fond, il vit un revolver. Braun l'avait acheté, quand il était étudiant. Il ne s'en était jamais servi. Dans une boîte crevée, Christophe trouva quelques cartouches. Il les rapporta vers le lit. Anna regarda, et détourna aussitôt les yeux vers la ruelle. Christophe attendit, puis il demanda :
+
+--- Tu ne veux plus ?
+
+Anna se retourna vivement :
+
+--- Je veux... Vite !
+
+Elle pensait :
+
+--- Rien ne peut plus me sauver maintenant de l'abîme éternel. Un peu plus, un peu moins, ce sera toujours de même.
+
+Christophe chargea maladroitement le revolver.
+
+--- Anna, dit-il d'une voix tremblante, l'un des deux verra mourir l'autre.
+
+Elle lui arracha l'arme des mains, et dit avec égoïsme :
+
+--- Moi, d'abord.
+
+Ils se regardèrent encore... Hélas ! dans ce moment même où ils allaient mourir l'un pour l'autre, ils se sentaient si loin l'un de l'autre !... Chacun pensait, avec terreur :
+
+--- Mais qu'est-ce que je fais ? Qu'est-ce que je fais ?
+
+Et chacun le lisait dans les yeux de l'autre. L'absurdité de l'acte frappait surtout Christophe. Toute sa vie, inutile ; inutiles, ses luttes ; inutiles, ses souffrances ; inutiles, ses espoirs ; tout gâché, jeté au vent ; un geste médiocre allait tout effacer... Dans son état normal, il eût arraché le revolver des mains d'Anna, il l'eût jeté par la fenêtre, il eût crié :
+
+--- Non ! non ! Je ne veux pas.
+
+Mais huit mois de souffrances, de doutes et de deuil torturants, et par là-dessus cette rafale de passion démente, avaient ruiné ses forces, brisé sa volonté ; il sentait qu'il n'y pouvait plus rien, il n'était plus le maître... Ah ! qu'importe, après tout ?
+
+Anna, sûre de la mort éternelle, tendait son être dans la possession de cette dernière minute de vie : la figure douloureuse de Christophe, éclairée par la bougie vacillante, les ombres sur le mur, un bruit de pas dans la rue, le contact de l'acier qu'elle tenait dans sa main... Elle s'accrochait à ces sensations, comme un naufragé à l'épave qui s'enfonce avec lui. Après, tout était terreur. Pourquoi ne pas prolonger l'attente ? Mais elle se répéta :
+
+--- Il faut...
+
+Elle dit adieu à Christophe, sans tendresse, avec la hâte d'un voyageur pressé qui craint de manquer le train ; elle ouvrit sa chemise, tâta le cœur, et y appuya le canon du revolver. Christophe, agenouillé, se cachait la figure dans les draps. Au moment de tirer, elle posa sa main gauche sur la main de Christophe. Le geste d'un enfant qui a peur de marcher dans la nuit...
+
+Alors s'écoulèrent quelques secondes effroyables... Anna ne tirait pas. Christophe voulait relever la tête, il voulait lui saisir le bras ; et il craignait que son mouvement même ne la décidât à tirer. Il n'entendait plus rien, il perdait connaissance... Un gémissement d'Anna lui traversa le cœur. Il se redressa. Il vit Anna, le visage décomposé de terreur. Le revolver était tombé sur le lit, devant elle. Elle répétait plaintivement :
+
+--- Christophe !... Le coup n'est pas parti !...
+
+Il prit l'arme ; le long oubli où elle était restée l'avait rouillée ; mais le fonctionnement était bon. Peut-être la cartouche avait-elle été détériorée par l'air. --- Anna tendit la main vers le revolver.
+
+--- Assez ! supplia-t-il.
+
+Elle ordonna :
+
+--- Les cartouches !
+
+Il les lui remit. Elle les examina, en prit une, chargea sans cesser de trembler, appuya de nouveau l'arme sur son sein, et tira. --- Le coup rata encore.
+
+Anna jeta le revolver dans la chambre.
+
+--- Ah ! c'est trop ! c'est trop ! cria-t-elle. *Il* ne veut pas que je meure !
+
+Elle se tordait dans ses draps ; elle était comme folle. Il voulut l'approcher ; elle le repoussa, avec des cris. Enfin, elle eut une attaque de nerfs. Christophe resta près d'elle, jusqu'au matin. Elle finit par se calmer ; mais elle était sans souffle, les yeux fermés, les os du front et les pommettes tendant la peau livide : elle semblait une morte.
+
+Christophe refit le lit bouleversé, ramassa le revolver, remit la serrure arrachée, rangea tout dans la chambre, et partit : car il était sept heures, et Bäbi allait venir.
+
+Quand Braun revint, le matin, il trouva Anna dans le même état de prostration. Il vit bien qu'il s'était passé quelque chose d'extraordinaire ; mais il ne put rien savoir de Bäbi, ni de Christophe. De tout le jour, Anna ne bougea point ; elle n'ouvrit pas les yeux ; son pouls était si faible qu'on le sentait à peine ; par moments, il s'arrêtait, et Braun eut l'angoisse de croire, un instant, que le cœur avait cessé de battre. Son affection le faisait douter de sa science ; il courut chez un confrère, et il le ramena. Les deux hommes examinèrent Anna et ne purent décider s'il s'agissait d'une fièvre qui commençait, ou d'un cas de névrose hystérique : il fallait tenir la malade en observation. Braun ne quitta pas le chevet d'Anna. Il refusa de manger. Vers le soir, le pouls d'Anna n'indiquait pas de fièvre, mais une extrême faiblesse. Braun tâcha de lui introduire dans la bouche quelques cuillerées de lait ; elle les rendit aussitôt. Son corps s'abandonnait dans les bras de son mari, comme un mannequin brisé. Braun passa la nuit, assis auprès d'elle, se levant à tout instant pour l'écouter. Bäbi, que la maladie d'Anna ne troublait guère, mais qui était la femme du devoir, refusa de se coucher, et veilla avec Braun.
+
+Le vendredi, Anna ouvrit les yeux. Braun lui parla ; elle ne prit pas garde à sa présence. Elle restait immobile, les yeux fixés sur un point de la muraille. Vers midi, Braun vit de grosses larmes qui coulaient le long de ses joues maigres ; il les essuya avec douceur ; une à une, les larmes continuaient de couler. De nouveau, Braun essaya de lui faire prendre quelque aliment. Elle se laissa faire, passivement. Dans la soirée, elle se mit à parler : c'étaient des mots sans suite. Il s'agissait du Rhin ; elle voulait se noyer, mais il n'y avait pas assez d'eau. Elle persistait en rêve dans ses tentatives de suicide, imaginant des formes de mort bizarres ; toujours la mort se dérobait. Parfois, elle discutait avec quelqu'un, et sa figure prenait alors une expression de colère et de peur ; elle s'adressait à Dieu, et s'entêtait à lui prouver que la faute était à lui. Ou la flamme d'un désir s'allumait dans ses yeux ; et elle disait des mots impudiques, qu'il ne semblait pas qu'elle pût connaître. Un moment, elle remarqua Bäbi, et lui donna avec précision des ordres pour la lessive du lendemain. Dans la nuit, elle s'assoupit. Tout à coup, elle se souleva ; Braun accourut. Elle le regarda, d'une façon étrange, balbutiant des mots impatients et informes. Il lui demanda :
+
+--- Ma chère Anna, que veux-tu ?
+
+Elle dit, d'une voix âpre :
+
+--- Va le chercher.
+
+--- Qui ? demanda-t-il.
+
+Elle le regarda encore, avec la même expression, brusquement éclata de rire ; puis, elle se passa les mains sur le front, et gémit :
+
+--- Ah ! mon Dieu ! oublier !...
+
+Le sommeil la reprit. Elle fut calme jusqu'au jour. Vers l'aube, elle fit quelque mouvement ; Braun lui souleva la tête, pour lui donner à boire ; elle avala docilement quelques gorgées, et, se penchant vers les mains de Braun, elle les embrassa. Elle s'assoupit de nouveau.
+
+Le samedi matin, elle s'éveilla vers neuf heures. Sans dire un mot, elle sortit les jambes du lit, et voulut descendre. Braun se précipita vers elle et essaya de la recoucher. Elle s'obstina. Il lui demanda ce qu'elle voulait faire. Elle répondit :
+
+--- Aller au culte.
+
+Il essaya de la raisonner, de lui rappeler que ce n'était pas Dimanche, que le temple était fermé. Elle se taisait ; mais assise sur la chaise, près du lit, elle passait ses vêtements, de ses doigts qui grelottaient. Le docteur, ami de Braun, entra. Il joignit ses instances à celles de Braun ; puis, voyant qu'elle ne cédait pas, il l'examina, et finalement consentit. Il prit Braun à part, et lui dit que la maladie de sa femme semblait toute morale, qu'on devait pour l'instant éviter de la contrarier, et qu'il ne voyait pas de danger à ce qu'elle sortît, pourvu que Braun l'accompagnât. Braun dit donc à Anna qu'il irait avec elle. Elle refusa et voulut aller seule. Mais dès les premiers pas dans la chambre, elle trébucha. Alors, sans un mot, elle prit le bras de Braun, et ils sortirent. Elle était très faible et s'arrêtait en route. Plusieurs fois, il lui demanda si elle voulait rentrer. Elle se remit à marcher. Arrivés à l'église, comme il le lui avait dit, ils trouvèrent porte close. Anna s'assit sur un banc, près de l'entrée, et resta, frissonnante, jusqu'à ce que midi sonnât. Puis, elle reprit le bras de Braun, et ils revinrent en silence. Mais le soir, elle voulut retourner à l'église. Les supplications de Braun furent inutiles. Il fallut repartir.
+
+Christophe avait passé ces deux jours, dans l'isolement. Braun était trop inquiet pour songer à lui. Une seule fois, le matin du samedi, cherchant à détourner Anna de son idée fixe de sortir, il lui avait demandé si elle voulait voir Christophe. Elle avait eu une expression d'épouvante et de répulsion si forte qu'il en avait été frappé ; et le nom de Christophe n'avait plus été prononcé.
+
+Christophe s'était enfermé dans sa chambre. Inquiétude, amour, remords, tout un chaos de douleurs s'entrechoquaient en lui. Il s'accusait de tout. Il était écrasé par le dégoût de lui-même. Plusieurs fois, il s'était levé pour tout avouer à Braun, --- aussitôt arrêté par l'idée, en s'accusant, de faire un malheureux de plus. En même temps, la passion ne lui faisait pas grâce. Il rôdait dans le couloir, devant la chambre d'Anna ; et dès qu'il entendait, à l'intérieur, des pas s'approcher de la porte, il s'enfuyait chez lui.
+
+Quand Braun et Anna sortirent, dans l'après-midi, il les guetta, caché derrière le rideau de sa fenêtre. Il vit Anna. Elle, si droite et si fière, elle avait le dos voûté, la tête courbée, le teint jaune ; elle était vieillie, écrasée par le manteau et le châle dont son mari l'avait couverte ; elle était laide. Mais Christophe ne vit pas sa laideur, il ne vit que sa misère ; et son cœur déborda de pitié et d'amour. Il eût voulu courir à elle, se prosterner dans la boue, baiser ces pieds, ce corps ravagé par la passion, implorer son pardon. Et il pensait, la regardant :
+
+--- Mon ouvrage... Le voici !
+
+Mais son regard, dans la glace, rencontra sa propre image ; il vit dans ses yeux, sur ses traits, la même dévastation ; il vit la mort imprimée en lui, comme en elle, et il pensa :
+
+--- Mon ouvrage ? Non pas. L'ouvrage du maître cruel, qui affole et qui tue.
+
+La maison était vide. Bäbi était sortie, pour raconter aux voisins les événements de la journée. Le temps passait. Cinq heures sonnèrent. Une terreur prit Christophe, à l'idée d'Anna qui allait rentrer, et de la nuit qui venait. Il sentit qu'il n'aurait pas la force de rester, cette nuit, sous le même toit. Il sentit sa raison craquer sous le poids de la passion. Il ne savait ce qu'il ferait, il ne savait ce qu'il voulait, sinon qu'il voulait Anna, à quelque prix que ce fût. Il pensa à cette misérable figure qu'il avait vu passer tout à l'heure, sous sa fenêtre, et il se dit :
+
+--- La sauver de moi !...
+
+Un coup de volonté souffla. Il ramassa, par poignées, les liasses de papiers qui traînaient sur sa table, les ficela, prit son chapeau, son manteau, et sortit. Dans le corridor, près de la porte d'Anna, il précipita le pas, pris de peur. En bas, il jeta un dernier coup d'œil sur le jardin désert. Il se sauva comme un voleur. Un brouillard glacé traversait la peau avec des aiguilles. Christophe rasait le mur des maisons, craignant de rencontrer une figure connue. Il alla à la gare. Il monta dans un train qui partait pour Lucerne. À la première station, il écrivit à Braun. Il disait qu'une affaire urgente l'appelait, pour quelques jours, hors de la ville, et qu'il se désolait de le laisser en un pareil moment ; il le priait de lui envoyer des nouvelles, à une adresse qu'il lui indiqua. À Lucerne, il prit le train du Gothard. Dans la nuit, il descendit à une petite station entre Altorf et Gœschenen. Il n'en sut pas le nom, il ne le sut jamais. Il entra dans la première hôtellerie, près de la gare. Des mares d'eau coupaient le chemin. Il pleuvait à torrents ; il plut toute la nuit ; il plut tout le lendemain. Avec un bruit de cataracte, l'eau tombait d'une gouttière crevée. Le ciel et la terre étaient noyés, semblaient dissous, comme sa pensée. Il se coucha dans des draps humides, qui sentaient la fumée du chemin de fer. Il ne put rester couché. L'idée des dangers que courait Anna l'occupait trop pour qu'il eût le temps encore de sentir sa propre souffrance. Il fallait donner le change à la malignité publique, la lancer sur une autre piste. Dans la fièvre où il était, il eut une idée bizarre ; il inventa d'écrire à un des rares musiciens avec qui il se fût un peu lié dans la ville, à Krebs, l'organiste confiseur. Il lui laissa entendre qu'une affaire de cœur l'entraînait en Italie, qu'il subissait déjà cette passion quand il était venu s'installer chez Braun, qu'il avait essayé de s'y soustraire, mais qu'elle était la plus forte. Le tout, en des termes assez clairs pour que Krebs comprît, assez voilés pour qu'il pût y ajouter, de son propre fonds. Christophe priait Krebs de lui garder le secret. Il savait que le brave homme était d'un bavardage maladif, et il comptait --- fort justement --- qu'à peine la nouvelle reçue, Krebs courrait la colporter par toute la ville. Pour achever de détourner l'opinion, Christophe terminait sa lettre par quelques mots très froids, sur Braun et sur la maladie d'Anna.
+
+Il passa le reste de la nuit et la journée suivante, incrusté dans son idée fixe... Anna... Anna... Il revivait avec elle les derniers mois, jour par jour ; il ne la voyait plus comme elle était, il l'enveloppait d'un mirage passionné. Toujours, il l'avait créée à l'image de son désir, lui prêtant une grandeur morale, une conscience tragique, dont il avait besoin pour l'aimer davantage. Ces mensonges de la passion redoublaient d'assurance, maintenant que la présence d'Anna ne les contrôlait plus. Il voyait une saine et libre nature, opprimée, qui se débattait contre ses chaînes, qui aspirait à une vie franche, large, au plein air de l'âme, et puis, qui en avait peur, qui combattait ses rêves, qui s'acharnait contre eux, parce qu'ils ne pouvaient s'accorder avec sa destinée et qu'ils la lui rendaient plus douloureuse encore. Elle lui criait : « À l'aide ! » Il revoyait son beau corps, il l'étreignait. Ses souvenirs le torturaient ; il trouvait un plaisir meurtrier à redoubler leurs blessures. À mesure que la journée avançait, le sentiment de tout ce qu'il avait perdu lui devint si atroce qu'il ne pouvait plus respirer.
+
+Sans savoir ce qu'il faisait, il se leva, sortit, paya l'hôtel, et reprit le premier train qui revenait à la ville d'Anna. Il arriva, en pleine nuit ; il alla droit à la maison. Un mur séparait la ruelle du jardin contigu à celui de Braun. Christophe escalada le mur, sauta dans le jardin étranger, passa de là dans le jardin de Braun. Il se trouvait devant la maison. Tout était dans le noir, sauf une lueur de veilleuse qui teintait d'un reflet d'ocre une fenêtre, --- la fenêtre d'Anna. Anna était là. Elle souffrait là. Il n'avait plus qu'un pas à faire pour entrer. Il avança la main vers la poignée de la porte. Puis, il regarda sa main, la porte, le jardin ; il prit soudain conscience de son acte ; et, s'éveillant de l'hallucination qui le possédait depuis sept à huit heures, il frémit, il s'arracha par un sursaut à la force d'inertie qui lui rivait les pieds au sol ; il courut au mur, le repassa, et s'enfuit.
+
+Dans la même nuit, il quittait la ville, pour la seconde fois ; et le lendemain, il allait se terrer dans un village de montagne, sous des rafales de neige. --- Ensevelir son cœur, endormir sa pensée, oublier, oublier !...
+
+--- « *E però leva su, vinci l'ambascia*
+*con l'animo che çince ogni battaglia,*
+*se col suo grave corpo non s'accascia.* »
+
+*Leva'mi allor, mostrandomi fornito*
+*meglio di lena ch'io non mi sentia ;*
+*e dissi : « Va, ch'io son forte ed ardito.* »
+
+Inf. XXIV.
+
+Mon Dieu, que t'ai-je fait ? Pourquoi m'accables-tu ? Dès l'enfance, tu m'as donné pour lot la misère, la lutte. J'ai lutté sans me plaindre. J'ai aimé ma misère. J'ai tâché de conserver pure cette âme que tu m'avais donnée, de sauver ce feu que tu avais mis en moi... Seigneur, c'est toi, c'est toi qui t'acharnes à détruire ce que tu avais créé, tu as éteint ce feu, tu as souillé cette âme, tu m'as dépouillé de tout ce qui me faisait vivre. J'avais deux seuls trésors au monde : mon ami et mon âme. Je n'ai plus rien, tu m'as tout pris. Un seul être était mien dans le désert du monde, tu me l'as enlevé. Nos cœurs n'en faisaient qu'un, tu les as déchirés, tu ne nous as fait connaître la douceur d'être ensemble que pour nous faire mieux connaître l'horreur de nous être perdus. Tu as creusé le vide autour de moi, tu l'as creusé en moi. J'étais brisé, malade, sans volonté, sans armes, pareil à un enfant qui pleure dans la nuit. Tu as choisi cette heure pour me frapper. Tu es venu à pas sourds, par derrière, comme un traître, et tu m'as poignardé ; tu as lâché sur moi ton chien féroce, la passion ; j'étais sans force, tu le savais, et je ne pouvais lutter ; elle m'a terrassé, elle a tout saccagé en moi, tout sali, tout détruit... J'ai le dégoût de moi-même. Si je pouvais au moins crier ma douleur et ma honte ! ou les oublier, dans le torrent de la force qui crée ! Mais ma force est brisée, ma création desséchée. Je suis un arbre mort... Si je pouvais être mort ! Ô Dieu, délivre-moi, romps ce corps et cette âme, arrache-moi à la terre, ne me laisse pas me débattre dans la fosse, ne me laisse pas agoniser sans fin ! Je crie grâce... Achève-moi !
+
+Ainsi, la douleur de Christophe appelait un Dieu, à qui sa raison ne croyait pas.
+
+Il s'était réfugié dans une ferme, isolée, du Jura suisse. La maison, adossée aux bois, se dissimulait dans le repli d'un haut plateau bossué. Des renflements de terrain la protégeaient des vents du Nord. Par devant, dévalaient des prairies, de longues pentes boisées ; la roche, brusquement, s'arrêtait, tombait à pic ; des sapins contorsionnés s'accrochaient au bord ; des hêtres aux larges bras se rejetaient en arrière. Ciel éteint. Vie disparue. Une étendue abstraite aux lignes effacées. Tout dormait sous la neige. Seuls, la nuit, dans la forêt, les renards glapissaient. C'était la fin de l'hiver. Hiver tardif. Interminable hiver. Lorsqu'il semblait fini, il recommençait toujours.
+
+Cependant, depuis une semaine, la vieille terre engourdie sentait son cœur renaître. Un premier printemps trompeur s'insinuait dans l'air et sous l'écorce glacée. Des branches de hêtres étendues comme des ailes qui planent, la neige s'égouttait. Au travers du manteau blanc qui couvrait les prairies, déjà quelques fils d'herbe d'un vert tendre pointaient ; autour de leurs fines aiguilles, par les déchirures de la neige, comme par de petites bouches, le sol humide et noir respirait. Quelques heures par jour, la voix de l'eau engourdie dans sa robe de glace, de nouveau murmurait. Dans le squelette des bois, quelques oiseaux sifflaient de clairs chants aigrelets.
+
+Christophe ne remarquait rien. Tout était le même pour lui. Il tournait indéfiniment dans sa chambre. Ou il marchait, dehors. Impossible de rester en repos. Son âme était écartelée par les démons intérieurs. Ils s'entre-déchiraient. La passion, refoulée, continuait de battre furieusement les parois de la maison. Le dégoût de la passion n'était pas moins enragé ; ils se mordaient à la gorge ; et dans leur lutte, ils lacéraient le cœur. Et c'étaient en même temps le souvenir d'Olivier, le désespoir de sa mort, la hantise de créer qui ne pouvait se satisfaire, l'orgueil qui se cabrait devant le trou du néant. Tous les diables en lui. Pas un instant de répit. Ou, s'il se produisait une trompeuse accalmie, si les flots soulevés retombaient un moment, il se retrouvait seul, et il ne retrouvait plus rien de lui : pensée, amour, volonté, tout avait été tué.
+
+Créer ! c'était le seul recours. Abandonner aux flots l'épave de sa vie ! Se sauver à la nage dans le rêve de l'art !... Créer ! Il le voulait... Il ne le pouvait plus.
+
+Christophe n'avait jamais eu de méthode de travail. Quand il était fort et sain, il était plutôt gêné de sa surabondance qu'inquiet de la voir s'appauvrir ; il suivait ses caprices ; il travaillait, à sa fantaisie, au hasard des circonstances, sans aucune règle fixe. En réalité, il travaillait en tout lieu, à tout moment ; son cerveau ne cessait d'être occupé. Bien des fois, Olivier, moins riche et plus réfléchi, l'avait averti :
+
+--- Prends garde. Tu te fies trop à ta force. Elle est un torrent des montagnes. Plein aujourd'hui, demain peut-être à sec. Un artiste doit capter son génie ; il ne lui permet pas de s'éparpiller, au hasard. Canalise ta force. Contrains-toi à des habitudes, à une hygiène de travail quotidien, à heures fixes. Elles sont aussi nécessaires à l'artiste que l'habitude des gestes et des pas militaires à l'homme qui doit se battre. Viennent les moments de crise --- (et il en vient toujours) --- cette armature de fer empêche l'âme de tomber. Je le sais bien, moi. Si je ne suis pas mort, c'est qu'elle m'a sauvé.
+
+Mais Christophe riait, et disait :
+
+--- Bon pour toi, mon petit ! Pas de danger que je perde jamais le goût de vivre. J'ai trop bon appétit.
+
+Olivier haussait les épaules :
+
+--- Le trop amène le trop peu. Il n'y a pas de pires malades que les gens trop bien portants.
+
+La parole d'Olivier se vérifiait maintenant. Après la mort de l'ami, la source de vie intérieure ne s'était pas tout de suite tarie ; mais elle était devenue étrangement intermittente ; elle coulait par brusques gorgées, puis se taisait, se perdait sous terre. Christophe n'y prenait pas garde ; que lui importait ? Sa douleur et la passion naissante absorbaient sa pensée. --- Mais après qu'eut passé l'ouragan, lorsqu'il chercha de nouveau la fontaine pour y boire, il ne trouva plus rien. Le désert. Pas un filet d'eau. L'âme était desséchée. En vain, il voulut creuser le sable, faire jaillir l'eau des nappes souterraines, créer à tout prix : la machine de l'esprit refusait d'obéir. Il ne pouvait pas évoquer l'aide de l'habitude, l'alliée fidèle, qui, lorsque toutes les raisons de vivre nous ont fuis, seule, tenace et constante, demeure à nos côtés, et ne dit pas un mot, et ne fait pas un geste, les yeux fixes, les lèvres muettes, mais de sa main très sûre qui ne frémit jamais, nous mène par la main au travers du défilé dangereux, jusqu'à ce que soient revenus la lumière du jour et le goût à la vie. Christophe était sans aide ; et sa main ne rencontrait aucune main, dans la nuit. Il ne pouvait plus revenir à la lumière du jour.
+
+Ce fut l'épreuve suprême. Alors il se sentit aux limites de la folie. Tantôt une lutte absurde et démente contre son cerveau, des obsessions de maniaque, une hantise de nombres : il comptait les planches du parquet, les arbres dans la forêt ; des chiffres et des accords, dont le choix échappait à sa raison, se livraient dans sa tête des batailles rangées. Tantôt un état de prostration, comme un mort.
+
+Personne ne s'occupait de lui. Il habitait une aile de la maison, à l'écart. Il faisait lui-même sa chambre, --- il ne la faisait pas, tous les jours. On lui déposait sa nourriture, en bas ; il ne voyait pas un visage humain. Son hôte, un vieux paysan, taciturne et égoïste, ne s'intéressait pas à lui. Que Christophe mangeât ou ne mangeât point, c'était son affaire. À peine prenait-on garde si, le soir, Christophe était rentré. Une fois, il se trouva perdu dans la forêt, enfoncé dans la neige jusqu'aux cuisses ; il s'en fallut de peu qu'il ne pût revenir. Il cherchait à se tuer de fatigue, pour ne pas penser. Il n'y réussissait pas. Seulement, de loin en loin, quelques heures de sommeil harassé.
+
+Un seul être vivant semblait se soucier de son existence : un vieux chien Saint-Bernard, qui venait poser sa grosse tête aux yeux sanglants sur les genoux de Christophe, lorsque Christophe était assis sur le banc devant la maison. Ils se regardaient longuement. Christophe ne le repoussait pas. Comme le maladif Gœthe, ces yeux ne l'inquiétaient point. Il n'avait pas envie de leur crier, comme lui :
+
+--- Va-t-en !... Tu auras beau faire, larve, tu ne me happeras point !
+
+Il ne demandait qu'à se laisser happer par ces yeux suppliants et somnolents, à leur venir en aide ; il sentait là une âme emprisonnée, qui l'implorait.
+
+Dans ce moment où il était détrempé par la souffrance, arraché tout vivant à la vie, châtré de l'égoïsme humain, il apercevait les victimes de l'homme, le champ de bataille où l'homme triomphe, sur le carnage des autres êtres ; et son cœur était plein de pitié et d'horreur. Même au temps où il était heureux, il avait toujours aimé les bêtes ; il ne pouvait supporter la cruauté à leur égard ; il avait pour la chasse une aversion, qu'il n'osait pas exprimer, par crainte du ridicule ; peut-être même n'osait-il pas en convenir avec lui-même ; mais cette répulsion était la cause secrète de l'éloignement, inexplicable en apparence, qu'il éprouvait pour certains hommes : jamais il n'aurait pu accepter pour ami un homme qui tuait un animal, par plaisir. Nulle sentimentalité : il savait mieux que personne que la vie repose sur une somme de souffrances et de cruauté infinie ; l'on ne peut vivre sans faire souffrir. Il ne s'agit pas de se fermer les yeux et de se payer de mots. Il ne s'agit pas non plus de conclure qu'il faut renoncer à la vie, et de pleurnicher comme un enfant. Non. Il faut tuer pour vivre, s'il n'est pas d'autre moyen de vivre, pour l'instant. Mais celui qui tue pour tuer est un misérable. Un misérable, inconscient, je le sais. Un misérable, tout de même. L'effort perpétuel de l'homme doit être de diminuer la somme de la souffrance et de la cruauté : c'est le premier devoir humain.
+
+Ces pensées, dans la vie ordinaire, restaient ensevelies au fond du cœur de Christophe. Il ne voulait pas y songer. À quoi bon ? Qu'y pouvait-il ? Il lui fallait être Christophe, il lui fallait accomplir son œuvre, vivre à tout prix, vivre aux dépens des plus faibles... Ce n'était pas lui qui avait fait l'univers... N'y pensons pas, n'y pensons pas...
+
+Mais après que le malheur l'eut précipité, lui aussi, dans les rangs des vaincus, il fallut bien qu'il y pensât. Naguère, il avait blâmé Olivier, qui s'enfonçait dans l'inutile remords et la compassion vaine pour tout le malheur que les hommes souffrent et font souffrir. Il allait plus loin que lui, à présent ; avec l'emportement de sa puissante nature, il pénétrait jusqu'au fond de la tragédie de l'univers ; il souffrait de toutes les souffrances du monde, il était comme un écorché. Il ne pouvait plus songer aux animaux sans un frémissement d'angoisse. Il lisait dans les regards de bêtes, il lisait une âme comme la sienne, une âme qui ne pouvait pas parler ; mais les yeux criaient pour elle :
+
+--- Que vous ai-je fait ? Pourquoi me faites-vous mal ?
+
+Le spectacle le plus banal, qu'il avait vu cent fois, --- un petit veau qui se lamentait, enfermé dans une caisse à claires-voies ; ses gros yeux noirs saillants, dont le blanc est bleuâtre, ses paupières roses, ses cils blancs, ses touffes blanches frisées sur le front, son museau violet, ses genoux cagneux ; --- un agneau qu'un paysan emportait par les quatre pattes liées ensemble, la tête pendante, tâchant de se relever, gémissant comme un enfant, et bêlant et tendant sa langue grise ; --- des poules empilées dans un panier ; --- au loin, les hurlements d'un cochon qu'on saignait ; --- sur la table de la cuisine, un poisson que l'on vide... Il ne pouvait plus le supporter. Les tortures sans nom que l'homme inflige à ces innocents lui étreignaient le cœur. Prêtez à l'animal une lueur de raison, imaginez le rêve affreux qu'est le monde pour lui : ces hommes indifférents, aveugles et sourds, qui l'égorgent, l'éventrent, l'étripent, le tronçonnent, le font cuire vivant, parfois s'amusent de ses contorsions de douleur. Y a-t-il rien de plus atroce parmi les cannibales d'Afrique ? La souffrance des animaux a quelque chose de plus intolérable encore pour une conscience libre que la souffrance des hommes. Car, celle-ci du moins, il est admis qu'elle est un mal et ce qui la cause est criminel. Mais des milliers de bêtes sont massacrées inutilement, chaque jour, sans l'ombre d'un remords. Qui y ferait allusion se rendrait ridicule. --- Et cela, c'est le crime irrémissible. À lui seul, il justifie tout ce que l'homme pourra souffrir. Il crie vengeance contre le genre humain. Si Dieu existe et le tolère, il crie vengeance contre Dieu. S'il existe un Dieu bon, la plus humble des âmes vivantes doit être sauvée. Si Dieu n'est bon que pour les plus forts, s'il n'y a pas de justice pour les misérables, pour les êtres inférieurs offerts en sacrifice à l'humanité, il n'y a pas de bonté, il n'y a pas de justice...
+
+Hélas ! Les carnages accomplis par l'homme sont si peu de chose, eux-mêmes, dans la tuerie de l'univers ! Les animaux s'entre-dévorent. Les plantes paisibles, les arbres muets sont entre eux des bêtes féroces. Sérénité des forêts, lieu commun de rhétorique facile pour les littérateurs qui ne connaissent la nature qu'au travers de leurs livres !... Dans la forêt toute proche, à quelques pas de la maison, se livraient des luttes effrayantes. Les hêtres assassins se jetaient sur les sapins au beau corps rosé, enlaçaient leur taille svelte de colonnes antiques, les étouffaient. Ils se ruaient sur les chênes, ils les brisaient, ils s'en forgeaient des béquilles. Les hêtres Briarées aux cent bras, dix arbres dans un arbre ! Ils faisaient la mort autour d'eux. Et quand, faute d'ennemis, ils se rencontraient ensemble, ils se mêlaient avec rage, se perçant, se soudant, se tordant, comme des monstres antédiluviens. Plus bas, dans la forêt, les acacias, partis de la lisière, étaient entrés dans la place, attaquaient la sapinière, étreignaient et griffaient les racines de l'ennemi, les empoisonnaient de leurs sécrétions. Lutte à mort, où le vainqueur s'emparait à la fois de la place et des dépouilles du vaincu. Alors, les petits monstres achevaient l'œuvre des grands. Les champignons, venus entre les racines, suçaient l'arbre malade, qui se vidait peu à peu. Les fourmis noires broyaient le bois qui pourrissait. Des millions d'insectes invisibles rongeaient, perforaient, réduisaient en poussière ce qui avait été la vie... Et le silence de ces combats !... Ô paix de la nature, masque tragique qui recouvre le visage douloureux et cruel de la Vie !
+
+Christophe coulait à pic. Mais il n'était pas homme à se laisser noyer sans lutte, les bras collés au corps. Il avait beau vouloir mourir, il faisait tout ce qu'il pouvait pour vivre. Il était de ceux, comme disait Mozart, « *qui veulent agir, jusqu'à ce qu'enfin il n'y ait plus moyen de rien faire* ». Il se sentait disparaître, et il cherchait dans sa chute, battant des bras, à droite, à gauche, un appui où s'accrocher. Il crut l'avoir trouvé. Il venait de se rappeler le petit enfant d'Olivier. Sur-le-champ, il reporta sur lui toute sa volonté de vivre ; il s'y agrippa. Oui, il devait le rechercher, le réclamer, l'élever, l'aimer, prendre la place du père, faire revivre Olivier dans son fils. Dans son égoïste douleur, comment n'y avait-il pas songé ? Il écrivit à Cécile, qui avait la garde de l'enfant. Il attendit fiévreusement la réponse. Tout son être se tendait vers cette unique pensée. Il se forçait au calme ; une raison d'espérer lui restait. Il avait confiance, il connaissait la bonté de Cécile.
+
+La réponse vint. Cécile disait que, trois mois après la mort d'Olivier, une dame en deuil s'était présentée chez elle, et lui avait dit :
+
+--- Rendez-moi mon enfant !
+
+C'était celle qui avait abandonné naguère son enfant et Olivier, --- Jacqueline, mais si changée qu'on avait peine à la reconnaître. Sa folie d'amour n'avait pas duré. Elle s'était lassée plus vite encore de l'amant que l'amant ne s'était lassé d'elle. Elle était revenue brisée, dégoûtée, vieillie. Le scandale trop bruyant de son aventure lui avait fermé beaucoup de portes. Les moins scrupuleux n'étaient pas les moins sévères. Sa mère elle-même lui avait témoigné un dédain si offensant que Jacqueline n'avait pu rester chez elle. Elle avait vu à fond l'hypocrisie du monde. La mort d'Olivier avait achevé de l'accabler. Elle semblait si douloureuse que Cécile ne s'était pas cru le droit de lui refuser ce qu'elle réclamait. C'était bien dur de rendre un petit être qu'on s'était habitué à regarder comme le sien. Mais comment être plus dur encore pour quelqu'un qui a plus de droits que vous et qui est plus malheureux ? Elle eût voulu écrire à Christophe, lui demander conseil. Mais Christophe n'avait jamais répondu aux lettres qu'elle lui avait écrites, elle ne savait pas son adresse, elle ne savait même pas s'il était vivant ou mort... La joie vient, elle s'en va. Que faire ? Se résigner. L'essentiel était que l'enfant fût heureux et aimé...
+
+La lettre arriva, le soir. Un retour d'hiver tardif avait ramené la neige. Toute la nuit, elle tomba. Dans la forêt, où déjà les feuilles nouvelles étaient apparues, les arbres sous le poids craquaient et se rompaient. C'était comme une bataille d'artillerie. Christophe, seul dans sa chambre, sans lumière, au milieu des ténèbres phosphorescentes, écoutant la forêt tragique, sursautait à chaque coup ; et il était pareil à un de ces arbres qui plie sous le faix et qui craque. Il se disait :
+
+--- Maintenant, tout est fini.
+
+La nuit passa, le jour revint ; l'arbre ne s'était pas rompu. Toute la journée nouvelle, et la nuit qui suivit, et les jours et les nuits d'après, l'arbre continua de plier et de craquer ; mais il ne se rompit point. Christophe n'avait plus aucune raison de vivre ; et il vivait. Il n'avait plus aucun motif de lutter ; et il luttait, pied à pied, corps à corps, avec l'ennemi invisible qui lui broyait l'échine. Tel Jacob avec l'ange. Il n'attendait plus rien de la lutte, il n'attendait plus rien que la fin, le repos ; et il luttait toujours. Et il criait :
+
+--- Mais terrasse-moi donc ! Pourquoi ne me terrasses-tu pas ?
+
+Les jours passèrent. Christophe sortit de là, vidé de sa vie. Il persistait pourtant à se tenir debout, il sortait, il marchait. Heureux, ceux qu'une race forte soutient, dans les éclipses de leur vie ! Les jambes du père et du grand-père portaient le corps du fils tout prêt à s'écrouler ; la poussée des robustes ancêtres soulevait l'âme brisée, comme le cavalier mort que son cheval emporte.
+
+Il allait, par un chemin de crête, entre deux ravins ; il descendait l'étroit sentier aux pierres aiguës, entre lesquelles serpentaient les racines noueuses de petits chênes rabougris ; sans savoir où il allait, et plus sûr de ses pas que si une volonté lucide l'eût mené. Il n'avait pas dormi ; à peine avait-il mangé depuis plusieurs jours. Il avait un brouillard devant les yeux. Il descendait vers la vallée. --- C'était la semaine de Pâques. Jour voilé. Le dernier assaut de l'hiver était vaincu. Le chaud printemps couvait. Des villages d'en bas, les cloches montèrent. De l'un d'abord, blotti, ainsi qu'un nid, dans un creux, au pied de la montagne, avec ses toits de chaumes bariolés, noirs et blonds, revêtus de mousse épaisse, comme du velours. Puis, d'un autre, invisible, sur l'autre versant du mont. Puis, d'autres dans la plaine, au delà d'une rivière. Et le bourdon, très loin, d'une ville qui se perdait dans la brume. Christophe s'arrêta. Son cœur était près de défaillir. Ces voix semblaient lui dire :
+
+--- Viens avec nous. Ici est la paix. Ici, la douleur est morte. Morte, avec la pensée. Nous berçons l'âme si bien qu'elle s'endort dans nos bras. Viens, et repose-toi, tu ne t'éveilleras plus.
+
+Comme il se sentait las ! Qu'il eût voulu dormir ! Mais il secoua la tête, et dit :
+
+--- Ce n'est pas la paix que je cherche, c'est la vie.
+
+Il se remit en marche. Il parcourait des lieues, sans s'en apercevoir. Dans son état de faiblesse hallucinée, les sensations les plus simples lui arrivaient avec des résonnances inattendues. Sa pensée projetait tout autour, sur la terre et dans l'air, des lueurs fantastiques. Une ombre qui courait devant lui, sans qu'il en vît la cause, sur la route blanche et déserte au soleil, le fit tressaillir.
+
+Au débouché d'un bois, il se trouva près d'un village. Il rebroussa chemin : la vue des hommes lui faisait mal. Il ne put éviter pourtant de passer près d'une maison isolée, au-dessus du hameau ; elle était adossée au flanc de la montagne ; elle ressemblait à un sanatorium ; un grand jardin, exposé au soleil, l'entourait ; quelques êtres erraient à pas incertains par les allées sablées. Christophe n'y prit pas garde ; mais à un détour du sentier, il se trouva face à face avec un homme aux yeux pâles, figure grasse et jaune, qui regardait devant lui, affaissé sur un banc, au pied de deux peupliers. Un autre homme était assis, auprès ; ils se taisaient tous deux. Christophe les dépassa. Mais après quatre pas, il s'arrêta : ces yeux lui étaient connus. Il se retourna. L'homme n'avait pas bougé, il continuait de fixer, immobile, un objet devant lui. Mais son compagnon regardait Christophe, qui lui fit signe. Il vint.
+
+--- Qui est-ce ? demanda Christophe.
+
+--- C'est un pensionnaire de la maison de santé, dit l'homme, montrant l'habitation.
+
+--- Je crois le connaître, dit Christophe.
+
+--- C'est possible, fit l'autre. Il était un écrivain très connu en Allemagne.
+
+Christophe dit un nom. --- Oui, c'était bien ce nom-là. --- Il l'avait vu jadis, au temps où il écrivait dans la revue de Mannheim. Alors, ils étaient ennemis ; Christophe ne faisait que débuter, et l'autre était déjà célèbre. C'était l'homme le plus fort, le plus sûr de lui, le plus méprisant de tout ce qui n'était pas lui, un romancier dont l'art réaliste et sensuel dominait la médiocrité des productions courantes. Christophe, qui le détestait, ne pouvait s'empêcher d'admirer la perfection de cet art matériel, sincère et borné.
+
+--- Ça l'a pris, il y a un an, dit le gardien. On l'a soigné, on l'a cru guéri, il est reparti chez lui. Et puis, ça l'a repris. Un soir, il s'est jeté de sa fenêtre. Dans les premiers temps qu'il était ici, il s'agitait et il criait. Maintenant, il est bien tranquille. Il passe ses journées, comme vous le voyez, assis.
+
+--- Que regarde-t-il ? dit Christophe.
+
+Il s'approcha du banc. Il contempla avec pitié la blême figure du vaincu, les grosses paupières qui retombaient sur les yeux ; l'un d'eux était presque fermé. Le fou ne semblait pas savoir que Christophe était là. Christophe l'appela par son nom, lui prit la main, --- la main molle et humide, qui s'abandonnait comme une chose morte ; il n'eut pas le courage de la garder dans ses mains : l'homme leva, un instant vers Christophe ses yeux chavirés, puis se remit à regarder devant lui, avec son sourire hébété. Christophe demanda :
+
+--- Qu'est-ce que vous regardez ?
+
+L'homme, immobile, dit, à mi-voix :
+
+--- J'attends.
+
+--- Quoi ?
+
+--- La Résurrection.
+
+Christophe tressauta. Il partit précipitamment. La parole l'avait pénétré d'un trait de feu.
+
+Il s'enfonça dans la forêt, il remonta les pentes, dans la direction de sa maison. Dans son trouble, il perdit le chemin ; il se trouva au milieu des grands bois de sapins. Ombre et silence. Quelques taches de soleil d'un blond roux, venues on ne savait d'où, tombaient dans les épaisseurs de l'ombre. Christophe était hypnotisé par ces plaques de lumière. Tout semblait nuit, autour. Il allait, sur le tapis d'aiguilles, buttant contre les racines qui saillaient comme des veines gonflées. Au pied des arbres, pas une plante, pas une mousse. Dans les branches, pas un chant d'oiseau. Les rameaux du bas étaient morts. Toute la vie s'était réfugiée en haut, où était le soleil. Bientôt, cette vie même s'éteignit. Christophe entra dans une partie du bois que rongeait un mal mystérieux. Des sortes de lichens longs et fins, comme des toiles d'araignées, enveloppaient de leurs résilles les branches de sapins rouges, les ligotaient des pieds à la tête, passaient d'un arbre à l'autre, étouffaient la forêt. On eût dit des algues sous-marines aux tentacules sournoises. Et c'était le silence des profondeurs océaniques. En haut, le soleil pâlissait. Des brouillards, qui s'étaient insidieusement glissés au travers de la forêt morte, cernèrent Christophe. Tout disparut ; il n'y eut plus rien. Pendant une demi-heure, Christophe erra au hasard, dans le réseau de brume blanche, qui peu à peu se resserrait, noircissait, lui entrait dans la gorge ; il croyait marcher droit, et il tournait en cercle sous les gigantesques toiles d'araignées qui pendaient des sapins étouffés ; le brouillard, en les traversant, y laissait attachées des gouttes grelottantes. Enfin, les mailles se détendirent, une trouée se fit, et Christophe réussit à sortir de la forêt sous-marine. Il retrouva les bois vivants et la lutte silencieuse des sapins et des hêtres. Mais c'était toujours même immobilité. Ce silence qui couvait depuis des heures angoissait. Christophe s'arrêta pour l'entendre...
+
+Soudain, ce fut au loin une houle qui venait. Un coup de vent précurseur se levait du fond de la forêt. Comme un cheval au galop, il arriva sur les cimes des arbres qui ondulaient. Tel le Dieu de Michel-Ange, qui passe dans une trombe. Il passa au-dessus de la tête de Christophe. La forêt et le cœur de Christophe frémirent. C'était l'annonciateur...
+
+Le silence retomba. Christophe, en proie à une terreur sacrée, hâtivement rentra, les jambes flageolantes. Sur le seuil de la maison, comme un homme poursuivi, il jeta un coup d'œil inquiet derrière lui. La nature semblait morte. Les forêts qui couvraient les pentes de la montagne dormaient, appesanties sous une lourde tristesse. L'air immobile avait une transparence magique. Nul bruit. Seule, la musique funèbre d'un torrent --- l'eau qui ronge le roc --- sonnait le glas de la terre. Christophe se coucha, avec la fièvre. Dans l'étable voisine, les bêtes, inquiètes comme lui, s'agitaient...
+
+La nuit. Il s'était assoupi. Dans le silence, la houle lointaine de nouveau se leva. Le vent revenait, en ouragan cette fois, --- le *fœhn* du printemps, qui réchauffe de sa brûlante haleine la terre frileuse qui dort encore, le *fœhn* qui fond les glaces et amasse les pluies fécondes. Il grondait, comme le tonnerre, dans les forêts de l'autre côté du ravin. Il se rapprocha, s'enfla, monta les pentes au pas de charge ; la montagne tout entière mugit. Dans l'étable, un cheval hennit et les vaches meuglèrent. Christophe, dressé sur son lit, les cheveux hérissés, écoutait. La rafale arriva, hulula, fit battre les volets, fit grincer les girouettes, fit voler des tuiles du toit, fit trembler la maison. Un pot de fleurs tomba et se brisa. La fenêtre de Christophe, mal fermée, s'ouvrit avec fracas. Et le vent chaud entra. Christophe le reçut en pleine face et sur sa poitrine nue. Il sauta du lit, la bouche ouverte, suffoqué. C'était comme si dans son âme vide se ruait le Dieu vivant. La Résurrection !... L'air entrait dans sa gorge, le flot de vie nouvelle le pénétrait jusqu'au fond des entrailles. Il se sentait éclater, il voulait crier, crier de douleur et de joie ; et il ne sortait de sa bouche que des sons inarticulés. Il trébuchait, il frappait les murs de ses bras, au milieu des papiers que l'ouragan faisait voler. Il s'abattit, au milieu de la chambre, en criant :
+
+--- Ô toi, toi ! Tu es enfin revenu !
+
+--- Tu es revenu, tu es revenu ! Ô toi, que j'avais perdu !... Pourquoi m'as-tu abandonné ?
+
+--- Pour accomplir ma tâche, que tu as abandonnée.
+
+--- Quelle tâche ?
+
+--- Combattre.
+
+--- Qu'as-tu besoin de combattre ? N'es-tu pas le maître de tout ?
+
+--- Je ne suis pas le maître.
+
+--- N'es-tu pas Tout ce qui Est ?
+
+--- Je ne suis pas tout ce qui est. Je suis la Vie qui combat le Néant. Je ne suis pas le Néant. Je suis le Feu qui brûle dans la Nuit. Je ne suis pas la Nuit. Je suis le Combat éternel ; et nul destin éternel ne plane sur le combat. Je suis la Volonté libre, qui lutte éternellement. Lutte et brûle avec moi.
+
+--- Je suis vaincu. Je ne suis plus bon à rien.
+
+--- Tu es vaincu ? Tout te semble perdu ? D'autres seront vainqueurs. Ne pense pas à toi, pense à ton armée.
+
+--- Je suis seul, je n'ai que moi, et je n'ai pas d'armée.
+
+--- Tu n'es pas seul, et tu n'es pas à toi. Tu es une de mes voix, tu es un de mes bras. Parle et frappe pour moi. Mais si le bras est rompu, si la voix est brisée, moi, je reste debout ; je combats par d'autres voix, d'autres bras que les tiens. Vaincu, tu fais partie de l'armée qui n'est jamais vaincue. Souviens-toi, et tu vaincras jusque dans ta mort.
+
+--- Seigneur, je souffre tant !
+
+--- Crois-tu que je ne souffre pas aussi ? Depuis les siècles, la mort me traque et le néant me guette. Ce n'est qu'à coups de victoires que je me fraie le chemin. Le fleuve de la vie est rouge de mon sang.
+
+--- Combattre, toujours combattre ?
+
+--- Il faut toujours combattre. Dieu combat, lui aussi. Dieu est un conquérant. Il est un lion qui dévore. Le néant l'enserre, et Dieu le terrasse. Et le rythme du combat fait l'harmonie suprême. Cette harmonie n'est pas pour tes oreilles mortelles. Il suffit que tu saches qu'elle existe. Fais ton devoir en paix, et laisse faire aux Dieux.
+
+--- Je n'ai plus de forces.
+
+--- Chante pour ceux qui sont forts.
+
+--- Ma voix est brisée.
+
+--- Prie.
+
+--- Mon cœur est souillé.
+
+--- Arrache-le. Prends le mien.
+
+--- Seigneur, ce n'est rien de s'oublier soi-même, de rejeter son âme morte. Mais puis-je rejeter mes morts, puis-je oublier mes aimés ?
+
+--- Abandonne-les, morts, avec ton âme morte. Tu les retrouveras, vivants, avec mon âme vivante.
+
+--- Ô toi qui m'as laissé, me laisseras-tu encore ?
+
+--- Je te laisserai encore. N'en doute point. C'est à toi de ne me plus laisser.
+
+--- Mais si ma vie s'éteint ?
+
+--- Allumes-en d'autres.
+
+--- Si la mort est en moi ?
+
+--- La vie est ailleurs. Va, ouvre-lui tes portes. Insensé, qui t'enfermes dans ta maison en ruines ! Sors de toi. Il est d'autres demeures.
+
+--- Ô vie, ô vie ! Je vois... Je te cherchais en moi, dans mon âme vide et close. Mon âme se brise ; par les fenêtres de mes blessures, l'air afflue ; je respire, je te retrouve, ô vie !...
+
+--- Je te retrouve... Tais-toi, et écoute.
+
+Et Christophe entendit, comme un murmure de source, le chant de la vie qui revenait en lui. Penché sur le bord de sa fenêtre, il vit la forêt, morte hier, qui dans le soleil et le vent bouillonnait, soulevée comme l'Océan. Sur l'échine des arbres, tels des frissons de joie, des vagues de vent passaient ; et les branches ployées tendaient leurs bras d'extase vers le ciel éclatant. Et le torrent sonnait comme une cloche rieuse. Le même paysage, hier dans le tombeau, était ressuscité ; la vie venait d'y rentrer, en même temps que l'amour dans le cœur de Christophe. Miracle de l'âme que la grâce a touchée, qui se réveille à la vie ! Tout revit autour d'elle. Le cœur se remet à battre. L'œil de l'esprit s'est rouvert. Les fontaines taries recommencent à couler.
+
+Et Christophe rentra dans la bataille divine... Comme ses propres combats, comme les combats humains se perdaient au milieu de cette mêlée gigantesque, où pleuvent les soleils comme des flocons de neige que balaye l'ouragan !... Il avait dépouillé son âme. Ainsi que dans ces rêves où l'on est suspendu dans l'espace, il se sentait planer au-dessus de lui-même, il se voyait d'en haut, dans l'ensemble des choses ; et le sens de ses efforts, le prix de ses souffrances, d'un regard, lui apparurent. Ses luttes faisaient partie du grand combat des mondes. Sa déroute était l'épisode d'un instant, aussitôt réparé. Comme il luttait pour tous, tous luttaient pour lui. Ils avaient part à ses épreuves, il avait part à leur gloire.
+
+--- « Compagnons, ennemis, marchez sur moi, écrasez-moi, que je sente sur mon corps passer les roues des canons qui vaincront ! Je ne pense pas au fer qui me laboure la chair, je ne pense pas au pied qui me foule la tête, je pense à mon Vengeur, au Maître, au Chef de l'innombrable armée. Mon sang sera le ciment de sa victoire future... »
+
+Dieu n'était pas pour lui le Créateur impassible, le Néron qui contemple, du haut de sa tour d'airain, l'incendie de la Ville que lui-même alluma. Dieu luttait. Dieu souffrait. Avec tous ceux qui luttent et pour tous ceux qui souffrent. Car il était la Vie, la goutte de lumière tombée dans les ténèbres, qui s'élargit, s'étend, par qui la nuit est bue. Mais la nuit est sans bornes, et le combat divin ne s'arrête jamais ; et nul ne peut savoir quelle en sera l'issue. Symphonie héroïque, où les dissonnances même qui se heurtent et se mêlent forment un concert serein ! Comme la forêt de hêtres qui livre dans le silence des combats furieux, ainsi guerroie la Vie dans l'éternelle paix.
+
+Ces combats, cette paix, résonnaient dans Christophe. Il était comme un coquillage où l'océan bruit. Des cris épiques passaient, des appels de trompettes, des rafales de sons, que menaient des rythmes souverains. Car tout se muait en sons dans cette âme sonore. Elle chantait la lumière. Elle chantait la nuit. Et la vie. Et la mort. Elle chantait pour ceux qui étaient vainqueurs dans la bataille. Elle chantait pour lui-même, vaincu et terrassé. Elle chantait. Tout était chant. Elle n'était plus que chant.
+
+Son ivresse était telle qu'elle ne s'entendait pas chanter. Comme les pluies de printemps, les torrents de musique s'engouffraient dans ce sol crevassé par l'hiver. Hontes, chagrins, amertumes, révélaient à présent leur mystérieuse mission : elles avaient décomposé la terre, et elles l'avaient fertilisée ; le soc de la douleur, en déchirant le cœur, avait ouvert de nouvelles sources de vie. La lande refleurissait. Mais ce n'étaient plus les fleurs de l'autre printemps. Une autre âme était née.
+
+Elle naissait, à chaque instant. Car elle n'était pas encore ossifiée et formée, comme sont les âmes parvenues au terme de leur croissance, les âmes qui vont mourir. Elle n'était pas la statue. Elle était le métal en fusion. Chaque seconde faisait d'elle un nouvel univers. Christophe ne songeait pas à fixer ses limites. Il s'abandonnait à cette joie de l'homme qui, rejetant derrière lui le poids de son passé, part pour un long voyage, le sang jeune, le cœur libre, et respire l'air marin, et pense que le voyage n'aura jamais de fin. À présent qu'il était repris par la force créatrice qui coule dans le monde, la richesse du monde le prenait à la gorge, comme une extase. Il aimait, il *était* son prochain comme lui-même. Et tout lui était « prochain », de l'herbe qu'il foulait à la main qu'il serrait. Un bel arbre, l'ombre d'un nuage sur la montagne, l'haleine des prairies apportée par le vent, la nuit la ruche du ciel bourdonnante des essaims de soleils... c'était un tourbillon de sang... il n'avait pas envie de parler, ni de penser, il n'avait plus envie que de rire et de pleurer, et de se fondre dans cette merveille vivante. Écrire, pourquoi écrire ? Est-ce qu'on peut écrire l'indicible ?... Mais que cela fût possible ou non, il fallait qu'il écrivît. C'était sa loi. Les idées le frappaient, par éclairs, en quelque lieu qu'il fût, le plus souvent en promenades. Impossible d'attendre. Alors, il écrivait, avec n'importe quoi, sur n'importe quoi ; et il eût été incapable souvent de dire ce que signifiaient ces phrases qui jaillissaient de lui, dans un élan irrésistible ; et voici que pendant qu'il écrivait, d'autres idées lui venaient, et d'autres ; et il écrivait, il écrivait, sur ses manches de chemise, sur la coiffe de son chapeau ; si vite qu'il écrivît, sa pensée allait plus vite, il devait user d'une sorte de sténographie.
+
+Ce n'étaient là que des notes informes. La difficulté commençait lorsqu'il voulait couler ces idées dans les formes musicales ordinaires ; il faisait la découverte qu'aucun des moules anciens ne pouvait leur convenir ; s'il voulait fixer ses visions avec fidélité, il devait commencer par oublier toute musique entendue, tout ce qu'il avait écrit, faire table rase de tout formalisme appris, de la technique traditionnelle, rejeter ces béquilles de l'esprit impotent, ce lit tout fait pour la paresse de ceux qui, fuyant la fatigue de penser par eux-mêmes, se couchent dans la pensée des autres. Naguère, lorsqu'il se croyait arrivé à la maturité de sa vie et de son art, --- (en fait, il n'était qu'au bout d'une de ses vies et d'une de ses incarnations en art), --- il s'exprimait dans une langue préexistante à sa pensée ; son sentiment se soumettait sans révolte à une logique de développement préétablie, qui d'avance lui dictait une partie de ses phrases et le menait docilement, par les chemins frayés, au terme convenu où le public l'attendait. À présent, plus de route, c'était au sentiment de la frayer lui-même ; l'esprit n'avait qu'à suivre. Son rôle n'était même plus de décrire la passion, ou de l'analyser ; il devait faire corps avec elle, il tâchait d'en épouser la loi intérieure.
+
+Du même coup, tombaient les contradictions où Christophe se débattait depuis longtemps, sans vouloir en convenir. Car, bien qu'il fût un pur artiste, il avait mêlé souvent à son art des préoccupations étrangères à l'art ; il lui attribuait une mission sociale. Et il ne s'apercevait pas qu'il y avait deux hommes en lui : l'artiste qui créait, sans se soucier d'aucune fin morale, et l'homme d'action, raisonneur, qui voulait que son art fût moral et social. Ils se mettaient parfois l'un l'autre dans un étrange embarras. À présent que toute idée créatrice s'imposait à lui, avec sa loi organique, comme une réalité supérieure à toute réalité, il était arraché à la servitude de la raison pratique. Certes, il n'abdiquait rien de son mépris pour l'immoralisme veule et dépravé du temps ; certes, il pensait toujours que l'art impur et malsain est le dernier degré de l'art, parce qu'il en est une maladie, un champignon qui pousse sur un tronc pourri ; mais si l'art pour le plaisir est la prostitution de l'art, Christophe ne lui opposait pas l'utilitarisme à courte vue de l'art pour la morale, ce Pégase sans ailes qui traîne la charrue. L'art le plus haut, le seul digne de ce nom, est au-dessus des lois d'un jour : il est une comète lancée à travers l'infini. Il se peut que cette force soit utile, il se peut qu'elle semble inutile ou dangereuse, dans l'ordre des choses pratiques ; mais elle est la force, elle est le mouvement et le feu ; elle est l'éclair jailli du ciel ; et par là, elle est sacrée, par là elle est bienfaisante. Ses bienfaits peuvent être même de l'ordre pratique ; mais ses vrais, ses divins bienfaits sont, comme la foi, de l'ordre surnaturel. Elle est pareille au soleil, dont elle est issue. Le soleil n'est ni moral, ni immoral. Il est Celui qui Est. Il éclaire la nuit des espaces. Ainsi, l'art.
+
+Alors Christophe, qui lui était livré, eut la stupeur de voir surgir de lui des puissances inconnues, qu'il n'eût pas soupçonnées : tout autre chose que ses passions, ses tristesses, son âme consciente, mais une âme étrangère, indifférente à ce qu'il avait aimé et souffert, à sa vie tout entière, une âme joyeuse, fantasque, sauvage, incompréhensible. Elle le chevauchait, elle lui labourait les flancs à coups d'éperons. Et, dans les rares moments où il pouvait reprendre haleine, il se demandait, relisant ce qu'il venait d'écrire :
+
+--- Comment cela, cela a-t-il pu sortir de mon corps ?
+
+Il était en proie à ce délire de l'esprit, que connaît tout génie, à cette volonté indépendante de la volonté, « *cette énigme indicible du monde et de la vie* », que Goethe appelait « *le démoniaque* », et contre laquelle il restait armé, mais qui le soumettait.
+
+Et Christophe écrivait, écrivait. Pendant des jours, des semaines. Il y a des périodes où l'esprit, fécondé, peut se nourrir uniquement de soi, et continue de produire, d'une façon presque indéfinie. Il suffit du plus délicat effleurement des choses, d'un pollen apporté par le vent, pour que les germes intérieurs, les myriades de germes lèvent et fleurissent. Christophe n'avait pas le temps de penser, il n'avait pas le temps de vivre. Sur les ruines de la vie, l'âme créatrice régnait.
+
+Et puis, cela s'arrêta. Christophe sortit de là, brisé, brûlé, vieilli de dix ans, --- mais sauvé. Il avait laissé Christophe, il avait émigré en Dieu.
+
+Des touffes de cheveux blancs étaient brusquement apparues dans la chevelure noire, comme ces fleurs d'automne qui surgissent des prairies en une nuit de septembre. Des rides nouvelles sabraient les joues. Mais les yeux avaient reconquis leur calme, et la bouche s'était résignée. Il était apaisé. Il comprenait, maintenant. Il comprenait la vanité de son orgueil, la vanité de l'orgueil humain, sous le poing redoutable de la Force qui meut les mondes. Nul n'est maître de soi, avec certitude. Il faut veiller. Car si l'on s'endort, la Force se rue en nous et nous emporte... dans quels abîmes ? Ou le torrent qui nous charrie se retire et nous laisse dans son lit à sec. Il ne suffit même pas de vouloir, pour lutter. Il faut s'humilier devant le Dieu inconnu, qui *flat ubi vult*, qui souffle quand il veut, où il veut, l'amour, la mort, ou la vie. La volonté humaine ne peut rien sans la sienne. Une seconde lui suffit pour anéantir des années de labeur et d'efforts. Et, s'il lui plaît, il peut faire surgir l'éternel de la poussière et de la boue. Nul, plus que l'artiste qui crée, ne se sent à sa merci : car, s'il est vraiment grand, il ne dit que ce que l'Esprit lui dicte.
+
+Et Christophe comprit la sagesse du vieux Haydn, se mettant à genoux, chaque matin, avant de prendre la plume... *Vigila et Ora*, Veillez et priez. Priez le Dieu, afin qu'il soit avec vous. Restez en communion amoureuse et pieuse avec l'Esprit de vie.
+
+Vers la fin de l'été, un ami parisien qui passait en Suisse découvrit la retraite de Christophe. Il vint le voir. C'était un critique musical, qui s'était toujours montré le meilleur juge de ses compositions. Il était accompagné d'un peintre connu, qui se disait mélomane et admirateur, lui aussi, de Christophe. Ils lui apprirent le succès considérable de ses œuvres : on les jouait partout, en Europe. Christophe témoigna peu d'intérêt à cette nouvelle : le passé était mort pour lui, ces œuvres ne comptaient plus. Sur la demande de son visiteur, il lui montra ce qu'il avait écrit récemment. L'autre n'y comprit rien. Il pensa que Christophe était devenu fou.
+
+--- Pas de mélodie, pas de mesure, pas de travail thématique ; une sorte de noyau liquide, de matière en fusion qui n'est pas refroidie, qui prend toutes les formes et qui n'en a aucune ; ça ne ressemble à rien : des lueurs dans un chaos.
+
+Christophe sourit :
+
+--- C'est à peu près cela, dit-il. « *Les yeux du chaos qui luisent à travers le voile de l'ordre...* »
+
+Mais l'autre ne comprit pas le mot de Novalis :
+
+(--- Il est vidé, pensa-t-il.)
+
+Christophe ne chercha pas à se faire comprendre.
+
+Quand ses hôtes prirent congé, il les accompagna un peu, afin de leur faire les honneurs de sa montagne. Mais il n'alla pas bien loin. À propos d'une prairie, le critique musical évoquait des décors de théâtre parisien ; et le peintre notait des tons, sans indulgence pour la maladresse de leurs combinaisons, qu'il trouvait d'un goût suisse, tarte à la rhubarbe, aigres et plates, à la Hodler ; il affichait d'ailleurs, à l'égard de la nature, une indifférence qui n'était pas tout à fait simulée. Il feignait de l'ignorer.
+
+--- La nature ! qu'est-ce que c'est que ça ? Connais pas. Lumière, couleur, à la bonne heure ! La nature, je m'en fous.
+
+Christophe leur serra la main et les laissa partir. Tout cela ne l'affectait plus. Ils étaient de l'autre côté du ravin. C'était bien. Il ne dirait à personne :
+
+--- Pour venir jusqu'à moi, prenez le même chemin.
+
+Le feu créateur qui l'avait brûlé pendant des mois était tombé. Mais Christophe en gardait dans son cœur la chaleur bienfaisante. Il savait que le feu renaîtrait : si ce n'était en lui, ce serait autour de lui. Où que ce fût, il l'aimerait autant : ce serait toujours le même feu. En cette fin de journée de septembre, il le sentait répandu dans la nature entière.
+
+Il remonta vers sa maison. Il y avait eu un orage. C'était maintenant le soleil. Les prairies fumaient. Des pommiers les fruits mûrs tombaient dans l'herbe humide. Tendues aux branches des sapins, des toiles d'araignées, brillantes encore de pluie, étaient pareilles aux roues archaïques de chariots mycéniens. À l'orée de la forêt mouillée, le pivert secouait son rire saccadé. Et des myriades de petites guêpes, qui dansaient dans les rayons de soleil, remplissaient la voûte des bois de leur pédale d'orgue continue et profonde.
+
+Christophe se trouva dans une clairière, au creux d'un plissement de la montagne, un vallon fermé, d'un ovale régulier, que le soleil couchant inondait de sa lumière : terre rouge ; au milieu, un petit champ doré, blés tardifs, et joncs couleur de rouille. Tout autour, une ceinture de bois, que l'automne mûrissait : hêtres de cuivre rouge, châtaigniers blonds, sorbiers aux grappes de corail, flammes des cerisiers aux petites langues de feu, broussailles de myrtils aux feuilles orange, cédrat, brun, amadou brûlé. Tel, un buisson ardent. Et du centre de cette coupe enflammée, une alouette, ivre de grain et de soleil, montait.
+
+Et l'âme de Christophe était comme l'alouette. Elle savait qu'elle retomberait tout à l'heure, et bien des fois encore. Mais elle savait aussi qu'infatigablement elle remonterait dans le feu, chantant son tireli, qui parle à ceux qui sont en bas de la lumière des cieux.
