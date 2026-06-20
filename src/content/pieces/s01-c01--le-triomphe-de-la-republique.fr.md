@@ -5,8 +5,8 @@ lang: fr
 title: le "triomphe de la République"
 author: charles-peguy
 isAvertissement: false
-wordCount: 6442
-sourceProvenance: "Archive.org s1cahiersdelaquinz1pg leaves 30–54 (printed p.24–48), vision re-OCR (Opus 4.8) 2026-06-20 — replaces truncated/mis-bounded prior OCR"
+wordCount: 6891
+sourceProvenance: "Archive.org s1cahiersdelaquinz1pg leaves 30–55 (printed p.24–49), vision re-OCR (Opus 4.8) 2026-06-20 — replaces truncated/mis-bounded prior OCR"
 ---
 
 La République avait triomphé le 11 novembre par la décision de la Haute Cour : 157 juges contre 91 avaient ce jour-là repoussé les conclusions de la défense, présentées et défendues la veille par Mᵉ Devin, tendant à faire déclarer l’incompétence. Puis la République avait triomphé le jeudi 16 par le vote de la Chambre : 317 députés contre 212 avaient voté l’ordre du jour, présenté par les Gauches, « approuvant les actes de défense républicaine du Gouvernement »; les mots *de défense républicaine* avaient été proposés par M. Vaillant et plusieurs socialistes, et acceptés d’eux par le Président du Conseil.
@@ -80,3 +80,37 @@ Je n’oublierai jamais ce qui fut le plus beau de la journée : la descente du 
 La dislocation eut lieu pour nous place de la Bastille. Ceux de la rive gauche s’en allèrent par le boulevard Henri IV. Groupés en gros bouquets aux lueurs de la nuit, les drapeaux rouges regagnaient de compagnie leurs quartiers et leurs maisons. Les bals commençaient bientôt.
 
 Avec la fatigue de la journée, des inquiétudes et des scrupules me venaient. Je sais bien qu’il n’y a plus de *lanternes*, je sais bien que les bourgeois ont fait construire par des ouvriers des becs de gaz qui ne sont plus des lanternes, sans les anciennes cordes et sans les anciennes potences. Plusieurs des refrains de la journée ne me trottaient pas moins par la tête, violents et laids. Sera-t-il dit que cette Révolution d’amour social et de solidarité sera faite avec ces vieilles paroles de violence, de haine, et de laideur. Cela se peut. Il se peut que nous ayons parfait la Révolution sociale avant qu’un architecte de génie nous ait donné la maison du peuple nouveau, avant qu’un poète de génie nous ait donné le poème ou le chant de la révolution nouvelle, de la cité nouvelle. Ce ne sera pas la première fois qu’il en sera ainsi, que le flot de la vie universelle aura devancé les maturations de l’art individuel. En attendant, *l’Internationale* de Pottier est et demeure un des plus beaux hymnes révolutionnaires qu’un peuple ait jamais chanté. Groupons-nous autour de *l’Internationale*.
+
+Des incidents de la journée continuaient à m’attrister quand le soir, dans le train, j’ouvris une petite brochure dont j’avais bourré mes poches, pour la distribuer, comme on le doit. C’était la petite brochure de Le Pic, intitulée : *Pour la République !* (revue politique mensuelle, numéro 1, novembre 1899), où il entreprend *le Petit Journal* sur ses infamies du Panama et sur ses atrocités de l’Arménie. Voilà la vraie brochure de propagande. L’auteur ne commence pas par supposer que son lecteur connaît aussi bien que lui ce qu’il veut lui dire. Il ne suppose pas que le lecteur sait. Il ne procède pas par allusions. Il procède par narration. Il annonce la narration : Je vais vous conter une histoire qui est arrivée. Il annonce : « De quels crimes est capable l’infâme *Petit Journal*, je vais le montrer par une preuve unique (1) mais décisive, par le relevé des sommes qu’il a touchées pour faire tomber l’argent de ses malheureux lecteurs dans la grande escroquerie du Panama. » Plus loin il annonce : « Vous pensez qu’en jetant ces milliers d’humbles à la ruine pour gagner sa commission de 630,000 francs, il a atteint à la limite du crime et de l’infamie ? Eh bien ! il a trouvé moyen d’être plus criminel et plus infâme encore !
+
+(1) Cela ne l’empêche pas de donner une seconde preuve, justement comme dans les histoires bien faites.
+
+» Écoutez et retenez cette histoire : »
+
+Suit l’histoire de M. Marinoni et du Sultan.
+
+L’auteur procède comme il faut. Une brochure bien faite ressemble à une histoire de grand-père contée à la veillée :
+
+Il y avait une fois, au pays des Infidèles, un méchant roi qui fit massacrer, dans les supplices les plus effroyables, trois cent mille de ses sujets chrétiens. — Le grand-père n’insiste pas sur les supplices, pour ménager l’imagination des petits.
+
+— Pourquoi donc que le pape n’est pas allé à leur secours, grand-père ?
+
+— Je ne sais pas, mes enfants.
+
+— Et le roi de France, pourquoi donc qu’il n’y a pas été ?
+
+— Parce qu’il n’y a pas de roi de France.
+
+— Et les Français qui ne sont pas rois ?
+
+— Parce que le mauvais roi avait donné de l’argent au *Petit Journal* pour faire croire aux Français que c’étaient les chrétiens qui s’étaient révoltés.
+
+— C’est le même *Petit Journal* qu’on achète au bourg chez l’épicier ?
+
+— Oui mon garçon.
+
+— Ah vrai !
+
+La brochure de Le Pic invite à cette imagination.
+
+Je lus passionnément cette brochure bien faite. Et quand je revis contre quelles sournoiseries, contre quelles sauvageries, contre quelles atrocités, contre quelles barbaries ce peuple révolutionnaire avait conduit dans Paris ce triomphe de la République, cette inoubliable manifestation me sembla toute saine et toute bonne, et les scrupules de détail que j’avais eus me semblèrent vains.
