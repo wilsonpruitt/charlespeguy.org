@@ -5,352 +5,98 @@ lang: fr
 title: Louis de Gonzague (matière éditoriale)
 author: charles-peguy
 isAvertissement: false
-wordCount: 3286
-ocrSource: "Trimmed 2026-05-25 from prior conflated OCR. Original file contained Spire poetry (now in et-vous-riez.fr.md) + this Péguy editorial back-matter."
-translationNotes: "ATTENTION : Ce texte n'est PAS l'essai *Louis de Gonzague* (sur le saint Louis de Gonzague) que la table des matières du cahier annonce à la p. XIII. Il s'agit de la matière éditoriale de Péguy à la fin du cahier (errata, *Les suppliants parallèles*, note sur Gapone). Le vrai essai *Louis de Gonzague*, qui commence au feuillet 19 du volume archive.org `s7cahiersdelaquinz08pg`, reste à OCR-iser."
+wordCount: 4862
+sourceProvenance: "Archive.org s7cahiersdelaquinz08pg leaves 21-38 (printed p.19-36), vision re-OCR (Opus 4.8) 2026-06-20 — 1-batch transcription; replaces noisy prior OCR"
 ---
-Même cahier, page 46, premier paragraphe, c'est
-moi qui ai commis la phrase suivante: « Et lui-même
-Leconte de Lisle, voici comme on m'écrit qu'il nomme à
-les sept tragédies de Sophocle: Oidipous-Roi, Oidipous
-Vous vous demandez peut-être ce que cette phrase a
-de si extraordinaire. Et vous me le demandez. Ne vous;
-le demandez plus. Je vais vous le dire. Cette phrase a
-ceci de particulier que les noms de tragédies qui sont è À
-alignés en italiques forment un total de six, et non
-point de sept. C'est ici la revanche des méthodes historiques. Mon ami, devinant que j'aurais à utiliser ce:
-renseignement, m'avait de lui-même envoyé à mon labo- à
-ratoire au dernier moment une carte postale ainsi
-énoncée: « Leconte de Lisle dans la traduction de
-On sait ce que c'est qu'une carte postale. Cette addition à six, qui paraît évidente dans une colonne typo- à
-graphique, ne me frappa point dans le désarroi manuscrit d'une carte postale. Comme j'avais la tête pleine
-des sept tragédies de Sophocle, je mis hardiment: Ne
-voici comme on m'écrit qu'il nomme les sept tragédies
-de Sophocle. Et voilà ce que c'est que d'être un orgueilleux, et un mauvais, déjà nommé, qui un jour a parlé
-È mal contre les méthodes historiques.
 
-La carte de mon ami était toute sage et prudente; il
-ne parlait pas de sept tragédies, lui; mais sachant que
-je travaillais sur Œdipe roi, il avait commencé de
-noter à Oidipous-Roi et il avait tranquillement continué.
-C'est moi qui, la tête pleine de traductions et de transcriptions, et de ce nombre 7, ai tant considéré l'orthographe que j'en ai oublié le nombre. J'ai joué au naturel
-cette innocente facétie par laquelle on ne prend plus
-guère aujourd'hui que les enfants au-dessous de dix
-ans et les inspecteurs généraux de l'enseignement supérieur de l'État: On dit à l'enfant dessus dit, qui peut être
-un inspecteur en chef de l'enseignement général: Mon
-ami, comment prononcez-vous sept et trois font onze?
-Faut-il aspirer, ou faire la liaison? Enfin faut-il prononcer
-sept et trois font honze, ou sept et trois font tonze. Et
-quand l'autre a fait son choix, honze s'il entend rester
-peuple, tonze s'il est devenu cuistre, on lui répond doucement: monsieur l'inspecteur, moi je prononce que:
-sept et trois font dix.
+*Avec les bons souhaits des cahiers pour cette nouvelle année de travail :* c’est en ces termes que je m’étais permis de souhaiter la bonne année aux abonnés des cahiers dans le cahier de René Salomé, rappelé ci-dessus, *monsieur Matou et les circonstances de sa vie,* huitième cahier, *premier janvier* de la quatrième série, un cahier blanc de 96 pages, bon à tirer du samedi 27, fini d’imprimer du mardi 30 décembre 1902, deux francs. *Avec les bons souhaits des cahiers pour cette année nouvelle,* c’est tout ce que nous pouvons nous permettre de souhaiter aujourd’hui, car nous ne savons pas si cette année nouvelle sera une année de travail.
 
-Moi j'avais compté que trois et trois font sept. J'étais
-d'autant plus sot d'omettre les Trakhiniennes que c'est
-un des titres de Sophocle transcrits par Leconte de
-Lisle qui prouvaient le plus pour ce que je m'étais mis
-en devoir d'avancer: que lui-même Leconte de Lisle,
-même traducteur, il ne se conforme point jusqu'au bout
-à sa doctrine. Traduire en effet ai Tozyivat par les
-Trakhiniennes, c'est s'acharner à transcrire le commencement du mot, la partie que dans les anciennes grammaires on nommait le radical, et c'est traduire, au
-contraire, traduire tout bonnement et tout uniment la
-fin du mot, la désinence, la terminaison. Aïnsi sa
-méthode le conduit à ce point: qu'il transcrit le mot
+Du temps de Salomé, pour l’année 1903, il ne s’agissait peut-être que de travail. Aujourd’hui, et pour cette année 1906, nous ne savons absolument pas s’il s’agira de travail ou s’il ne s’agira point de quelque fortune inaccoutumée.
 
-par un bout, qu'il traduit le mot, le même mot,
-V'autre bout. Et s'il ne traduisait pas, s'il transcrivait
-cette déclinaison, comment nous la ferait-il prononcer?
-Car nous touchons par là, nous parvenons à ce cas
-maximum, à ce cas éminent, à ce cas particulièrement à
-aigu: que pour les mêmes lettres, pour les mêmes syl- “4
-labes son système, sa méthode le conduit à spéculer « sur ce malentendu: qu'il adopte une orthographe, une
-écriture telle que l'écriture de la syllabe est transcrite.
-et que la prononciation de la même syllabe est traduite.
-Quand on traduit ou plutôt quand on transcrit ai Moïpeu
-, par les Moires, et qu'ensuite on fait rimer Moires par
-exemple avec noires, — on pourrait le faire même
-rimer avec le nom commun des moires, — on joue, on
-spécule vraiment sur l'écriture et sur la prononciation Es
-du mot les Moires. On fait presque littéralement un A
-calembour, entre l'écriture et la prononciation d'un
-même mot, de la même syllabe, entre l'écriture, qui
-affecte d'être transcription pure, et la prononciation,
-; qui est, sournoisement, édition, traduction ordinaire.
-Je reviens, malgré moi, à cette question du prix
-de la Vie heureuse, et plus généralement à toute cette
-question des prix littéraires. C'est une des questions où
-lhypocrisie moderne se donne le plus généreusement
-libre cours. Des hommes qui commettent journellement
-les infamies les plus basses pour gagner quelques sales ne.
-sous chez les plus infâmes éditeurs, — et ils ne peuvent
-le faire qu'en ayant un public, en obtenant un public,
-ils ne peuvent le faire qu'en apportant un public à cet
-éditeur, c'est-à-dire en flattant dans ses ignominies les
-plus basses le public le plus bête et le plus bas que l'on
+*Avec les bons souhaits des cahiers pour cette nouvelle année de travail,* c’est ainsi que je m’étais permis de souhaiter la bonne année pour l’année 1903. Je crois bien que depuis d’année en année j’avais négligé de renouveler cette salutation, qui fût devenue annuellement comme une formalité officielle, une sorte d’abonnement à la salutation. Aujourd’hui hâtons-nous de recommencer. Car il faut aujourd’hui recommencer à nous souhaiter la bonne année.
 
-ait jamais connu, — de tels hommes ne manquent
-jamais de faire les mijaurées en parlant des prix littéraires, et d'invoquer à ce propos la bien connue dignité
-de l'art. C'est tout ce qu'ils ont retenu de leur maître et
-de leur père Zola, qui eut un acte de courage inoublia-
-« ble, — civique, — mais qui n'avait atteint des tirages
-de cent mille, de cent vingt mille, et même de cent quarante mille, que parce que sous le nom de naturalisme
-ses volumes étaient pleins, plus ou moins consciemment,
-des plus basses grossièretés. Pour moi je suis de ceux
-qui applaudissent entièrement et sans aucune réserve à
-de telles désignations, et à de telles institutions, pourvu
-qu'elles fassent de telles désignations. De telles désignations sont également honorables, et pour la compagnie qui en est l'auteur, et pour l'homme qui en est
-l'objet. Quand une compagnie fait de telles désignations, elle justifie son institution, son existence, elle se
-justifie, elle se prouve entièrement. Elle se justifie d'être.
-Il ne faut pas discuter abstraitement, il ne s'agit pas de
-Savoir en théorie aprioristique si telle ou telle Académie
-vaut mieux ou si ce ne serait pas telle ou telle institution. En fait c'est l'institution qui aura le mieux choisi,
-et le plus constamment, qui sera la meilleure, et qui
-aura raison. Supposez que la Vie heureuse fasse
-pendant plusieurs années des choix aussi marqués. IL
-est évident que par ces choix mêmes cette institution
-non seulement se justifierait mais au bout de très peu
-de temps qu'elle se glorifierait. Elle se donnerait une
-véritable, une légitime autorité morale.
+La bonne année; il en est de ces vieilles habitudes sociales comme des sentiments et des passions de la nature : on croit les connaître touts, et tout d’un coup on s’aperçoit que voilà qu’on n’en connaissait rien du tout; la bonne année, vieille habitude désuète, naïve, inoffensive, et que l’on croyait bonne enfant. Et tout d’un coup voilà que l’on s’aperçoit que tout à l’heure, quand nos petits enfants viendront nativement nous souhaiter la bonne année, cette habitude usée, mais cette habitude usée, dans l’ignorance totale où nous sommes de ce que nous serons dans un an, et d’abord si nous serons, cette habitude que l’on croyait épuisée prendra tout-à-coup une fraîcheur et un sens inattendu. En vérité nul ne supposait que cette habitude pût jamais redevenir une non habitude; nul ne s’imaginait que cette habitude redeviendrait un jour une nouveauté, une innovation, un acte nouveau et premier, un point d’origine et de commencement de série; et quand nos petits enfants parleront tout à l’heure, et comme eux tant de grandes personnes, ils diront des paroles que littéralement ils ne comprendront pas, ils parleront un langage qu’ils ne sauront pas, ils auront le don de prophétie, ou encore ils seront comme ces messagers de l’antiquité qui portaient un message, qui le faisaient tenir, qui le prononçaient, et qui ne savaient nullement ni ce qu’ils avaient dit, ni ce qu’ils avaient apporté. Ils ont une langue et des lèvres, et ils n’entendent point.
 
-J'ajoute que mes renseignements particuliers me permettent d'affirmer que l'administration de la Vie heureuse à été dans l'administration de son choix et dans
+Nous au contraire, nous qui savons, quand tout à l’heure nous nous souhaiterons la bonne année, nous nous la souhaiterons rituellement, nous ne dirons pas un mot de plus, mais demi-souriants nous ferons les avantageux, parce que prononçant des paroles rituelles et modestes nous saurons que nous signifions, que nous portons infiniment au delà de nos propres paroles.
 
-l'administration de la récompense consécutive d'une
-discrétion parfaite et de la meilleure bonne tenue.
-C'est un procédé qui a son prix, quand tant d'entreprises et d'institutions officielles courent elles-mêmes
-après la réclame et la manifestation. Il ne faut point
-oublier que le commencement de tout ceci a été simplement que madame de Broutelles avait le Jean- -
-Christophe dans l'exemplaire que lui avait prêté un PE.
-ami; que ni Rolland ni nous ses éditeurs n'avons point
-fait même un semblant de démarche. Cette spontanéité
-de celui qui a la charge et la responsabilité de choisir
-et d'attribuer m'enchante. Cette histoire invraisemblable m'enchante comme une histoire du temps passé.
-Elle est vraie, pourtant. Et elle est présente. Je ne sais
-pas si elle est unique. Mais je crois bien que bien peu
-de désignations académiques et littéraires pourraient
-en dire autant, pourraient sortir une histoire naïve À
-comme celle-ci.
-On ne doit pas moins en féliciter l'auteur. C'est ici la
-question même du principe qui se pose, du principe en
-vertu duquel fonctionnent de telles institutions. Puisque
-nous n'avons plus les pensions du roi et puisque les "3
-pensions de la République, devenues les sinécures de
-l'État et les faveurs du gouvernement, s'égarent on ne
-sait sur quelles têtes, ou plutôt on sait trop sur qui,
-notamment sur la horde innombrable et famélique des
-sociologues, il est bon, et l'on doit se féliciter sans au- À
-cune réserve et sans aucune arrière-pensée que des
-institutions particulières, que des initiatives privées
-maintiennent ou restituent parmi nous quelques traces
-de ces anciennes mœurs. Quand on pense qu'un prix de
-cinq mille francs peut représenter douze ou seize mois
+Souhaitons-nous comme nos pères la bonne année; au commencement de cette année de fortune ou de fatalité, amis souhaitons-nous une bonne année. Si nous étions des anciens, nous pourrions nous réduire à nous souhaiter que cette année 1906, aujourd’hui commençante, soit une année heureuse. Mais puisque nous sommes des modernes, issus des quatre disciplines, hébraïque, hellénique, chrétienne, et française, ayons au moins les vertus de nos vices. N’oublions pas que l’humanité n’a point connu seulement Platon, qu’elle n’a point connu seulement ce plus grand philosophe de l’antiquité, mais qu’elle a connu aussi les grands philosophes modernes, Descartes, Kant, Bergson.
 
-de sécurité pour le travail en repos et pour le loisir:
-calme d'un honnête homme et d'un homme qui a fait
-ses preuves qu'il savait travailler, et que par conséquent nous pouvons devoir à ce prix une œuvre de plus
-ou deux, on se prend à respecter comme il convient
-l'attribution d'un tel prix.
+Héritiers, autant que nous le pouvons, de la culture antique, autant et même un peu plus que nous n’en sommes dignes, souhaitons-nous que cette année soit une année heureuse et qui nous réussisse, mais souhaitons-le-nous sans aucun orgueil, sans aucune présomption, sans aucune anticipation; sans aucune usurpation; c’est-à-dire croyons que la fortune et que le bonheur considéré comme la réussite de l’événement est un élément capital de toute vie, et ne méprisons point la réussite, ni cette réussite qui se nomme la paix et le maintien de la paix, ni cette réussite qui se nomme la victoire; mais souhaitons-la-nous de telle sorte et dans un langage tel que nous n’attirions sur nos têtes ni la jalousie des dieux ni la vengeance de la fatalité; ne faisons point comme l’autre qui brave.
 
-D'ailleurs il faut se méfier comme du feu de ces
-hommes qui affectent d'ignorer, ou de mépriser les
-questions d'argent. Tout homme qui vit a des questions
-d'argent, puisque tout homme qui vit a un budget: un
-budget individuel ou un budget de famille, et un budget
-de citoyen, riche, misérable, ou pauvre.
+Héritiers autant que nous le pouvons, autant que nous le voulons, et quelquefois même un peu plus, de la discipline hébraïque, héritiers des Juifs anciens, cohéritier des Juifs anciens avec les Juifs modernes, au moins avec certains d’entre eux, ami de certains Juifs nouveaux, particulièrement qualifiés, des plus nobles, des plus dévoués, des plus dignes de leur éternité terrestre et de leur incomparable race, — commensaux des Juifs, c’est-à-dire aujourd’hui mangeant à la table de la même cité, — de la discipline hébraïque, des anciens et des nouveaux Juifs recevons cet enseignement que le salut temporel de l’humanité a un prix infini, que la survivance d’une race, que la survivance terrestre et temporelle d’une race, que la survivance infatigable et linéaire d’une race à travers toutes les vagues de tous les âges, que le maintien d’une race est une œuvre, une opération d’un prix infini, que l’immortalité terrestre et temporelle d’une race élue, quand même ce serait une race humaine simplement, et surtout quand c’est une race comme cette race la seule visiblement élue de toutes les races modernes, la race française, que ce maintien et que cette immortalité est un objet, une proposition d’un prix infini, qui paie tous les sacrifices. Et je place ce paragraphe sous l’invocation de la mémoire que nous avons gardée du grand Bernard-Lazare.
 
-C'estici une des fausses politesses bourgeoïses les plus
-dégoûtantes, une des hypocrisies modernes et mondaines
-les plus véritablement révoltantes. Tout le monde a son
-budget. Tout homme a un budget, particulier, privé,
-public. Et loin de les en blämer on doit approuver, hautement, les hommes d'initiative et de travail qui en outre
-ont un budget d'entreprise ou budget industriel. Être
-honnête homme, ce n'est point ne pas être mêlé, comme
-on dit, aux questions d'argent; car on y est toujours
-mêlé; ce n'est point n'avoir pas de budget; car on en a
-toujours un. C'est simplement être honnête dans l'administration de son budget. Du budget que l'on a ou du
-budget que l'on s'est fait.
+Héritiers autant que nous le pouvons et plus que nous ne le méritons de la discipline antique, des anciens recevons cet enseignement que nous sommes des citoyens, que la cité a une valeur propre, une valeur en elle-même, une valeur éminente, qu’elle est une institution, une proposition d’un prix parfait, que la survivance et que la conservation, que l’immortalité poussée toujours plus loin de la cité est une œuvre, une opération qui est elle-même d’un prix parfait.
 
-Une vraie coquille. — Enfin dans ce même cahier,
-page 88, ligne troisième, un très grand nombre de personnes ont remarqué, au premier coup d'œil, — car les
-coquilles paraissent de préférence en belle place, naissent et prospèrent aux pages qui s'ouvrent d'elles-mêmes
-quand on ouvre le cahier, — que le initial de militaire a été violemment ou insidieusement reporté sur
-force. On doit penser qu'une aussi grosse coquille ne
-nous aurait point échappé, ni à Payen ni à moi. Eten À
-effet, me reportant au dossier de la fabrication de ce
-cahier, je constate que cette faute n'existait ni en pla- à
-cards, ni en mise, ni en tierce, qu'elle n'existait ainsi À
-à aucun degré, dans aucune des épreuves successives,
-par où nous sommes obligés de passer, qui défont les!
-yeux des misérables fonctionnaires, enfin qu'elle n'existait pas dans ce bon à tirer définitif après lequel, toute LE
-la cause étant entendue, les machines roulent. Ainsi;
-elle n'existait point au moment où l'irrévocable com- À
-mencer. Je ne veux point rechercher pour établir les
-responsabilités ni ce qu'on nomme les fautes lourdes.
-Quand un tel crime a été commis, le plus sûr est de ne À
-pas faire d'enquête. Tous les gouvernements le savent;
-bien. Et c'est alors qu'il faut qu'un silence éternel cache
-ce souvenir. On obtient généralement ce silence en;
+Héritiers des chrétiens, nos pères, de Pascal recevons cet enseignement que le salut éternel est d’un prix infiniment infini; c’est-à-dire que dans le même temps que nous ferons tout ce qui nous sera possible humainement pour assurer la perpétuité, la survivance de cette race et la conservation de cette cité, nous nous garderons scrupuleusement de rien commettre qui soit attentatoire, nous rappelant que tout ce qui tient à la sainteté est d’un ordre infiniment supérieur; *la distance infinie des corps aux esprits figure la distance infiniment plus infinie des esprits à la charité, car elle est surnaturelle.*
 
-disant que c'est un accident de tirage.
-Pourtant, et sans chercher à établir de vaines res-;;
-ponsabilités individuelles, je suis bien forcé de m'apercevoir que cette fois le bénéfice de la faute revient tout
-entière encore au personnel ouvrier. Payen et moi nous;
-nous étions conjurés ici pour donner bon à tirer un
-texte propre. Cette ligne était marquée seulement à
-réespacer, parce que les espaces étaient un peu inéga- à
-lement réparties. Donc il faut qu'en la réespaçant le
-corrigeur ait mal remis ses espaces, coupant mal ses;
-mots. Et il faut que le reviseur ait seulement revisé les
-espacements marqués, au lieu de lire et de revisertoute
-la ligne, comme c'est un principe, une règle, un moyen;
-de contrôle formellement recommandé, prescrit même (re
+Platoniciens nous saurons toute notre cité, kantiens nous saurons tout notre devoir. Platoniciens, ou héritiers des anciens platoniciens, nous saurons toute notre République et nous saurons toutes nos lois. Kantiens ou héritiers des — nouveaux — kantiens, nous saurons toutes nos obligations morales. Mais nous demanderons aux anciens que ces obligations morales demeurent belles, nous demanderons aux chrétiens que ces obligations morales demeurent saintes, demeurent charitables, aux messianiques nous demanderons qu’elles demeurent ardentes, aux cartésiens nous demanderons qu’elles demeurent distinctes et claires, aux bergsoniens nous demanderons qu’elles demeurent profondes, intérieures et vivantes, mouvantes et réelles.
 
-dans l'art de la typographie. Car une fois que le corrigeur à touché à une ligne, on n'a plus aucune sécurité
-pour aucune partie, pour aucun élément de cette ligne,
-et la ligne tou! entière est sujette à revision.
+Et réciproquement aux kantiens nous emprunterons que la cité soit morale, que la République demeure morale, que l’action, que l’idée, que la race, que la sainteté même et la charité, que la vie, l’intérieur et la profondeur, que le mouvement et la réalité demeure humainement et absolument morale.
 
-Cette règle essentielle n'avait pas été appliquée dans
-l'espèce. On me pardonnera d'entrer dans ces détails
-de fabrication industrielle, dans ces détails de métier.
-Et si on ne me le pardonne pas j'en prendrai mon parti
-aisément. Et si on ne me le pardonne pas cela me sera
+Français, héritier de nos pères, à celui qui fit les guerres d’Allemagne, à tant de Français qui firent la guerre et qui plusieurs fois combattirent et chacun une fois moururent pour la liberté du monde nous demanderons cette forme de courage si particulière et si éminente que l’historien sera contraint de nommer le courage français, ce courage essentiellement fait de calme et de clarté, de non épatement, ce courage classique, essentiellement fait de non romantisme.
 
-bien égal. Et quand je dis qu'on me le pardonnera, ou
-quand je demande qu'on me le pardonne, c'est une
-façon de causer, et encore une politesse, car je sais au
+*J’étais alors en Allemagne, où l’occasion des guerres qui n’y sont pas encore finies m’avait appelé; et, comme je retournais du couronnement de l’empereur vers l’armée, le commencement de l’hiver m’arrêta en un quartier où, ne trouvant aucune conversation qui me divertît, et n’ayant d’ailleurs, par bonheur, aucuns soins ni passions qui me troublassent, je demeurais tout le jour enfermé seul dans un poêle, où j’avais tout le loisir de m’entretenir de mes pensées.*
 
-contraire que nous ne valons rien, au contraire, et que
+Ce courage qui ne consiste ni à ignorer ni à mépriser, — mépriser, c’est-à-dire ne pas tenir compte du prix, mal estimer le prix, — mais à savoir très exactement, et très exactement à n’avoir point peur et à continuer très exactement. Et à cette seule fin que nous ne soyons pas exposés à la tentation de l’orgueil national, ce n’est point dans la vie d’un Français que nous trouverons un symbole éminent et parfait de ce courage français, mais c’est dans la vie d’un saint qui avait, je pense, plus de l’Allemand ou de l’Italien du Nord et même du Sud ou de l’Espagnol que du Français qu’il nous faut le chercher et qu’exactement nous le trouverons, et que nous en trouverons la formule même.
 
-nous ne faisons rien bon que par notre métier, par
+Un étranger s’étonnerait qu’étant sous le coup de cette menace et le sachant parfaitement nous continuions à publier des poèmes, des proses, des œuvres :
 
-le ministère de notre métier, par le métier que chacun
+Louis de Gonzague, on conte que saint Louis de Gonzague étant novice, pendant une récréation ses camarades, ou ses compagnons, je ne sais pas comme il faut dire, — s’amusèrent, — mettons, pour me plaire, qu’ils jouaient à la balle au chasseur, — s’amusèrent tout à coup à se poser cette question, qui doit faire le fond d’une plaisanterie traditionnelle de séminaire. Ils se posèrent donc tout à coup cette question, qui fait, si l’on veut, un jeu de société, mais qui est, quand même on ne le voudrait pas, une interrogation formidable. Ils se dirent, entre eux, tout à coup, ils se demandèrent mutuellement : « Si nous apprenions tout d’un coup, en ce moment même, que le jugement dernier aura lieu dans vingt-cinq minutes, il est onze heures dix-sept, l’horloge est là, qu’est-ce que vous feriez ? » Ils ne parlaient peut-être point aussi bref, et sans doute ils parlaient un peu plus comme des moines et comme des catholiques, mais enfin le sens était le même. Alors les uns imaginaient des exercices, les uns imaginaient des prières, les uns imaginaient des macérations, tous couraient au tribunal de la pénitence, les uns se recommandaient à notre Dame, et les uns en outre se recommandaient à leur saint patron. Louis de Gonzague dit : Je continuerais à jouer à la balle au chasseur.
 
-nous faisons.
+Ne me demandez pas si cette histoire est authentique. Il me suffit qu’elle soit une des histoires les plus admirables du monde. Je serais bien embarrassé de vous donner des références. On peut donner des références pour du Hugo. Pour les saints c’est beaucoup plus difficile. C’est une histoire qui est vulgaire chez les catholiques. Elle court les catéchismes. Parlez-en à un catholique. Son premier mouvement sera de vous rire au nez. Parbleu, si je la connais, votre histoire. D’ailleurs il n’en mesure point l’immense amplitude, comme le paysan ne sent pas l’odeur de la terre, parce qu’il y est habitué. Son deuxième mouvement, surtout s’il est un peu un catholique savant, comme il y en a tant aujourd’hui, sera d’avoir un peu honte et de vous dire, négligemment et sur un certain ton qu’ils ont pris afin d’imiter la Sorbonne : D’ailleurs c’est une anecdote qui est attribuée à plusieurs autres saints. Les catholiques sont à battre, avec un gros bâton, quand ils se mettent à parler sur un certain ton scientifique de leurs admirables légendes, afin de se mettre, de se hisser, à la hauteur de deux philologues traitant de trois versions d’un même épisode homérique. Son troisième mouvement est de courir chercher dans les textes et de vous rapporter enfin qu’il n’y a trouvé aucune trace de cette légende. Ce troisième mouvement est le plus décidément le mauvais.
 
-Ce métier, cet art de typographie, cet art et métier
-entre tous nous donne un exemple, éminent, une représentation, et comme un schème, un symbole de l'imperfection originelle et comme essentielle de tout travail
+Je ne suis pas comme lui, moi. J’affirme que cette histoire est authentique, et ceci me suffit, parce qu’elle est une des histoires les plus admirables que je connaisse. Moi aussi je pourrais vous dire qu’elle me paraît dépasser de beaucoup ce petit saint assez niais qui me paraît avoir été un des plus fréquents exemplaires, un des plus communs échantillons du petit saint jésuite. Mais c’est l’avantage des saints sur nous autres hommes qu’ils ont des paroles qui les dépassent infiniment, qui viennent d’ailleurs, qui ne viennent point d’eux, qui viennent de leur sainteté, non point d’eux-mêmes.
 
-humain. Et comment nous ne parvenons jamais, comment
+Il ne s’agit donc point de savoir si cette parole le dépasse ou même si elle est de lui ou même si elle est de quelqu’un et si elle a jamais été prononcée. Comme elle est, c’est une des histoires les plus admirables, un des schèmes les plus exacts, un des symboles vraiment les plus rares et les plus pleins de sens, une formule incomparable pour tout ce qui tient à la règle de la vie et à l’administration du devoir.
 
-nous ne pourrons jamais atteindre qu'à des fractions
+Quelque étranger s’étonnerait que sous le coup de cette menace, appelés à comparaître d’un moment à l’autre, ayant depuis six mois connu d’une connaissance immédiate, saisi d’une pleine saisie et d’un total saisissement qu’une menace capitale militaire était sur nous, dans ces cahiers nous continuions à publier comme devant des documents et des renseignements, des textes et des commentaires, des dossiers et des contributions, des travaux et des œuvres, que nous ayons cette année même entrepris des travaux de longue haleine. Un Français ne s’y trompa pas : nous continuons à jouer à la balle au chasseur. Les poèmes de Spire qu’on lira plus loin ont été faits, comme leurs dates le portent, de 1903 à 1905. C’est dire qu’ils sont à cheval sur le commencement de cette crise, les uns antérieurs au commencement de la crise, les autres contemporains de la crise elle-même. Et pourtant je défie bien qu’on réussisse à noter dans ces poèmes quelque part une rupture, du ton, une brisure, une lézarde, une altération quelconque, une paille dans le métal, un brisé décélateur de quelque appréhension sournoise. Et pourtant Spire appartient à la lourde aristocratie des artilleurs. Mais poète son souci de poète est resté entier, son métier est resté intact, sa technique est demeurée pure. Il n’a point cessé un seul instant, pour cela, d’avoir même goût et le même soin et la même attention et le même souci aux mêmes rythmes, à la même technique, au même travail, au même métier, au même office. Il n’en a pas cessé un seul instant de s’appliquer autant à sa même technique de poète et à la même notation exacte des mêmes sentiments.
 
-; de fractions de certitude et de sécurité. Nous auteurs
+Ce qui l’intéresse, lui poète, et particulièrement en un certain sens poète social, ce sont des sentiments, ce sont ses sentiments, plus que des efforts, c’est une action, et particulièrement ce sont des efforts sociaux. On me permettra, connaissant Spire comme on le connaît, de dire que c’est un peu et même beaucoup l’histoire de ses anciens efforts sociaux. Après comme avant il est le même. Nulle trace dans son œuvre d’une infiltration quelconque. Laquelle serait toujours, en dernière analyse, un symptôme de la peur, quelque infiltration de quelque peur.
 
-nous commençons par faire dans la copie un certain
-nombre de fautes. Peu ou beaucoup, et tous les degrés
+Il ne dépend pas de nous que l’événement se déclanche; nous sommes des petits seigneurs; nous ne sommes à aucun degré du gouvernement; et il est déjà beau et c’est déjà beaucoup que nous ayons l’impression que nous sommes assez bien représentés dans le gouvernement de la guerre et dans le gouvernement des affaires étrangères.
 
-intercalaires, selon ce que nous savons, et surtout selon
+Il ne dépend pas de nous, il ne dépend pas même de notre peuple que l’événement se déclanche; pour maintenir la paix, il faut être au moins deux; celui qui a fait la menace peut toujours la mettre à exécution; il peut toujours passer de la menace à l’accomplissement de la menace.
 
-ce que nous sommes. Pour la consolation des hérétiques
+Il ne dépend pas de nous que l’événement se déclanche; mais il dépend de nous d’y faire face. Mais pour y faire face nous n’avons ni à nous tendre, ni à nous altérer, ni à nous travailler particulièrement. Nous ne sommes point du gouvernement, nous sommes des petites gens de l’armée. Quand nous avons bien regardé notre feuille de route ou notre lettre de service et que nous nous sommes procuré quelques paires de chaussettes de laine, quelques bonnes paires de bonnes chaussettes de grosse laine neuves, pour ne point laisser nos pieds en morceaux aux hasards des étapes, quand nous nous sommes entretenus en bon état d’entraînement et de santé, quand nous sommes restés bons marcheurs, bons coureurs, bons vivants, nous avons fait tout ce que nous avons à faire. Nous n’avons ni à rompre ni à altérer nos métiers, ni à rompre ni à altérer nos vies ordinaires.
 
-je dois dire ici qu'il résulte d'une expérience de sept
+Si quelque appréhension de ce qu’une intolérable menace militaire peut un jour être réalisée, se glissant sournoisement ou insolemment dans nos consciences, nous faisait introduire dans nos métiers, dans nos vies, dans nos formes, dans la forme de notre race et je dirai dans la forme de notre vie intérieure la moindre altération, c’est là ce qui serait déjà, c’est là ce qui serait alors une défaite, c’est là ce qui serait déjà un commencement de la défaite, un essai de la défaite, un commencement d’invasion, et sans aucun doute la pire de toutes les invasions.
 
-années, commencée même avant, qu'il n'y a pas un seul
+Si nous avions jamais pu trouver quelque chose de plus ou de mieux, à faire, que ces cahiers, par définition nous eussions fait ce quelque chose; si nous avions jamais pu imaginer quelque œuvre ou quelque vie meilleure ou plus utile, par définition nous nous serions proposé d’opérer cette œuvre et de vivre cette vie; mais c’est justement parce que nous n’avons rien trouvé ni rien imaginé de mieux à faire que ces cahiers que nous avons fait ces cahiers; cela était vrai quand nous n’étions ou quand nous croyions que nous n’étions sous aucune menace; loin que cela devienne moins vrai parce que nous sommes sous l’ombre portée d’une menace, au contraire cela est devenu d’autant plus intensément et d’autant plus apparemment vrai que nous sommes aujourd’hui sous cette ombre portée.
 
-des auteurs qui veulent bien collaborer avec nous qui
-sache l'orthographe, j'entends qui la sache exactement
+Je ne veux rien faire qui ait l’aspect d’une confession dans un cahier où je conte une histoire dont un des mérites est précisément de supprimer toute confession entre l’instant présent et l’instant futur, entre l’instant présent de vie honnête ordinaire et l’instant futur d’une menace capitale réalisée. Je veux dire seulement que depuis que je me connais je n’ai jamais cessé de me proposer de rendre mon *maximum,* et, je puis le dire, mon *optimum;* s’il se peut que je me sois trompé souvent dans l’application; mais je ne me suis jamais trompé dans le même sens, qui était d’accorder beaucoup trop de confiance à des hommes qui ne la méritaient pas; je n’ai jamais cessé de me proposer de rendre mon *maximum* et mon *optimum;* il se peut que ce n’ait été ni beaucoup ni très bon, mais en bonne justice, en bonne morale, en bonne vie, en tout bon système, c’est à cela seulement que nous pouvons être tenus, c’est cela seulement que nous pouvons devoir. Et donc c’est cela seulement que nous pouvons et devons continuer.
 
-et pleinement. Mais que les hérétiques ne se hâtent
+Évitons jusqu’à ces formes un peu solennelles et jusqu’à ces formules de testament, évitons bonnement tout cela dans un cahier où je conte une histoire dont un des mérites est précisément qu’elle supprime tout testament entre l’heure présente et l’éternité prête; quand un peuple de culture est menacé d’une invasion militaire par un peuple barbare, ou par un gouvernement barbare qui a toujours fait marcher son peuple, quand un peuple libre est, dans ces conditions au moins, menacé d’une invasion militaire par un peuple de servitude, le peuple de culture, le peuple libre n’a qu’à préparer parfaitement sa mobilisation militaire nationale, et sa mobilisation une fois préparée, il n’a qu’à continuer le plus tranquillement du monde, le plus aisément et de son mieux son existence de culture et de liberté; toute altération de cette existence par l’introduction de quelque élément de peur, d’appréhension, ou même d’attente, serait déjà une réussite, un essai, un commencement de cette invasion, militaire, barbare et de servitude, littéralement une défaite, littéralement une conquête, une entrée dedans, puisque ce serait un commencement de barbarie et un commencement de servitude, la plus dangereuse des invasions, l’invasion qui entre en dedans, l’invasion de la vie intérieure, infiniment plus dangereuse pour un peuple qu’une invasion, qu’une occupation territoriale.
 
-É pas de raison pour que les auteurs et généralement les:
-hommes soient plus forts ailleurs qu'ils ne le sont dans de,
-cette maison. Je ne connais pas un homme qui ne soit
-contraint de temps en temps, füt-ce de loin en loin,
-d'aller demander une consultation quasi gratuite à ces
-vieil ami le seul inépuisable que nous nommons Le petit ne
+Pareillement un simple citoyen, quand il a mis prête et quand il tient prête sa petite mobilisation individuelle, il n’a plus qu’à continuer de son mieux son petit train-train de vie d’honnête homme; car il n’y a rien de mieux au monde qu’une vie d’honnête homme; il n’y a rien de meilleur que le pain cuit des devoirs quotidiens.
 
-; Larousse. En vente à la librairie des cahiers. #4
+Les poèmes que l’on va lire sont construits selon une technique particulière, nouvelle, bien qu’au premier abord elle ne paraisse point nouvelle après tant de nouveautés. Cette technique inquiétera peut-être, à ce premier abord, les personnes qui sont, comme je le suis, partisans déterminés et irréductibles du vers classique. Mais je suis d’autant moins suspect quand j’écris que cette technique nouvelle forcera, retiendra l’attention, forcera, retiendra l’estime des personnes qui dans le principe seraient les plus prévenues encontre, des personnes qui dans le principe lui seraient le plus hostiles, étant le plus délibérément hostiles à toute nouveauté en ces matières. Je ne m’adresse point ici aux personnes qui admettent les nouveautés techniques et particulièrement les nouveautés rythmiques. Je suis assuré en effet que ces poèmes emporteront les suffrages de toutes ces personnes. Je me réserve, comme de juste, pour les personnes qui me ressemblent, qui sont naturellement rebelles à toute nouveauté technique, particulièrement rebelles à toute nouveauté rythmique, invinciblement attachées au rythme et à la forme du vers classique, et je me permets de dire à ces personnes : attention.
 
-Je ne connais point d'homme qui dans cet ordre, qui
-représente pour moi tous les autres ordres, puisse pré.
-tendre à une certitude, à une sécurité hermétique. Ily
-a toujours quelque fuite. Le total se partagetoujoursen.
+Attention. Gardez-vous surtout de croire que le rythme et la technique de Spire sont obtenus par une altération, par une déformation, par une décadence, en particulier par un grossissement, enfin par une corruption du vers classique, de la technique et du rythme classique. Le vers, la technique, le rythme de Spire n’est pas plus du vers, de la technique, du rythme classique corrompu que le français n’est du latin corrompu. Filial du classique, fils ou filleul, il forme aujourd’hui, dans sa pleine maturité, en pleine connaissance de cause, en toute volonté, un tout autre système, indépendant et libre, existant en lui-même et qu’il faut connaître, apprécier, juger, goûter en lui-même.
 
-RE: deux parties, l'entier se partage toujours en deux frac
-tions dont l'une, plus ou moins grande, est celle dela.
-sécurité, dont l'autre plus où moins petite, mais réelle =.
-toujours et toujours positive, constitue le domaine de
+Ce serait donc nous-mêmes commettre un grossier contre-sens, nous les tenants irréductibles du vers classique, ce serait commettre un contre-sens injurieux, injuste, que de nous imaginer qu’il faudrait partir en esprit du vers classique pour dégénérer, descendre aux vers qui suivent par la voie de quelque corruption. Nous devons prendre ce système lui-même, en lui-même et à partir de lui-même, fraîchement, et j’ose dire que nous en serons récompensés.
 
-Nul homme n'est sans érreur, nul homme n'est sans
-faute, sans quelque faute industrielle. Apportantila.
-copie aux compositeurs, nous partons donc d'une cer-! De
-taine proportion, initiale, d'une certaine fraction, d'un 5%
+Nous n’avons pas affaire ici à un homme qui ait plus ou moins consciemment, plus ou moins effrontément, plus ou moins par dépit ou par un goût malsain d’innovation brisé, altéré, corrompu, désossé, démembré, désarticulé, défait le système, le vers classique, mais à un homme qui a très délibérément monté son système à lui, créé, inventé, monté par lui, et à qui nous devons donc de le lire en lui-même.
 
-certain pour cent de fautes. Les compositeurs travaillent
+Nous avons affaire à un homme qui s’est mis résolument aux questions de phonétique, à un homme qui y a acquis quelque compétence, à un homme enfin qui travaille très régulièrement au laboratoire de M. l’abbé Rousselot.
 
-sur cette certaine fraction, partent de cette certaine
-proportion, de ce certain pour cent. Ils corrigent naturel-.
-lement quelques fautes, mais, quand même ils s'y appli.
+M. l’abbé Rousselot n’est pas saint Louis de Gonzague et je ne prétends pas que ce soit la science qui fasse l’art. Mais tout de même, quand un poète introduit un système nouveau, il est loyal, il est sérieux, et c’est pour nous une garantie qu’il cherche dans une science véritable, dans une science authentique, une base d’appui profonde et sérieuse pour sa technique nouvelle; c’est un cas nouveau, c’est un nouveau cas particulier de ce qu’on nomme un peu improprement l’application de la science aux arts et métiers et qui est bien plutôt la recherche, la justification, la poursuite, la revendication des arts et métiers dans la science, à l’intérieur et dans les profondeurs toujours creusées, creusées tous les jours plus avant, de la science.
 
-queraient, — et ils ne s'y appliquent point, et en effet.
-ce n'est pas leur office, en fait ce n'est aucunement leur. 3 Le
-métier, — quand même ils s'y appliqueraient ilsne
-pourraient jamais en corriger eux-mêmes qu'un certain
-nombre, une certaine fraction, une certaine proportion,
-un certain pour cent. Et comme eux-mêmes ils retra
+Car cette phonétique n’est pas comme la sociologie, une science qui n’existe pas. Elle est une science qui existe, c’est-à-dire qui travaille sur une réalité. Et à ce titre elle est respectable. Elle est instructive. Elle est consultative. Elle travaille sur la réalité de la prononciation.
 
-vaillent sur tout l'ensemble, puisqu'ils ont à compose
+Spire avait eu un instant l’idée de mettre lui-même en tête de son cahier un bref exposé de sa technique, ou de demander ce bref exposé à quelque un de ses camarades et de ses collaborateurs au laboratoire de phonétique. Au dernier moment, il a renoncé à cette idée. Il a eu cent fois raison. Il est poète, que diable. Il nous a donné son œuvre. Une œuvre se défend toute seule. Une œuvre affirme son rythme et prouve sa technique. Sans préface ni commentaires. Et son œuvre à lui se défend mieux que toute autre.
 
-tout l'ensemble, ils commettent sur tout cet ensemble:
-leur pour cent propre et humain de fautes, qui sont des
-fautes de composition. Ainsi toute opération qui consiste
-CORRE corriger les fautes commises, de degré en degré ne
-peut jamais donner que des proportions de proportions,
-À des pour cent de pour cent, des fractions de fractions.
-é -Je veux dire que dans cette sorte d'opération tout degré
-c. ultérieur et supérieur de lopération ne peut jamais
-rendre, ne rend jamais qu'une fraction d'erreurs, en.
--mettant tout pour le mieux, une fraction du résidu
-d'erreurs qui demeurait au degré précédent, au degré
-antérieur et inférieur. Elle ne parvient jamais au zéro,?
-3 elle ne rend jamais le zéro d'erreurs. Et toute opération
+Ce silence de l’auteur m’imposerait peut-être le devoir de parler un peu en sa place pour lui si je connaissais un peu mon métier de gérant. Mais je ne suis point de ces prévôts qui ont des lumières de tout et malheureusement je n’ai point de compétence dans ces questions de rythmes nouveaux, de systèmes prosodiques, de techniques et de techniciens. Ma faible compétence est bornée aux questions de prose française. Et encore dans ces limites… Je suis ainsi mis dans l’impossibilité, à mon grand regret, de faire aujourd’hui mon office. Il faudrait introduire ici, ce serait le moment d’introduire les quelques poètes qui entrant successivement dans ces cahiers ont bien voulu y devenir des collaborateurs attitrés : Pierre Baudouin, le plus ancien de tous, et le plus parfaitement ignoré, le récent Porché, Marix, enfin le nouveau Spire. Ils nous parleraient avec de la compétence. Mais ils se battraient au bout d’un quart d’heure. Et ce serait dommage pour un jour de nouvel an.
 
-au contraire qui consiste à pouvoir commettre des fautes
+Tout ce que je suis en situation de dire moi prosateur, c’est que la technique de Spire et son rythme reposent essentiellement sur le principe de ce qu’ils nomment la prononciation réelle ou la prononciation vraie, c’est-à-dire de la prononciation comme on prononce naturellement quand on ne fait pas exprès de prononcer parce que ce sont des vers et pour que ce soient des vers.
 
-porte au contraire sur tout l'ensemble du‘travail. Elle
-fait donc à chaque fois fonctionner un pour cent?
+Ce que donne ce système, il ne m’appartient pas de le dire; je puis parler, un peu et mal, de la technique; je puis parler de la métrique et de la prosodie; de la forme; il y a de la loyauté à parler de la technique, nouvelle; il y aurait de la grossièreté à parler de l’effet obtenu. Je ne lui ai jamais fait parler des cahiers. Si ces vers n’étaient pas beaux, ils ne seraient point ici. J’ai dit que de les lire et d’accepter ce système, au moins provisoirement, pour le temps de la lecture, et sous bénéfice d’inventaire, on serait récompensé. C’est déjà de ma part, étant donné le langage que l’on parle ici, un grand engagement.
 
-d'ensemble, de cet ensemble, calculé sur tout cet
-Je n'insisterais point tant sur cette analyse du travail
-“industriel et sur cette théorie de la quantité de l'erreur
-dans le travail industriel, je n'insisterais pas tant sur
-ces infirmités humaines, si toute la sociologie et toute
+Une preuve est faite, en tout cas, et c’est une preuve souveraine en matière de métrique et de prosodie, et c’est à celle-là sans doute que Spire tient le plus, et il a bien raison, et cela j’ai le droit de le dire : dans les poèmes qui suivent il n’y a sans doute pas une rime et le système est tout différent du vers classique. Il n’en est pas moins acquis que dans tout ce cahier il n’y a pas un seul vers dont on ne voie au premier abord, dont on ne sente profondément à la lecture qu’en effet il est bien un vers.
 
-Jhistoire moderne; dans leur obscure et trouble et plus;
-3 « ou moins inconsciente métaphysique, ne reposaient sur
-ce postulat profondément inavoué, que le travail humain A
-7 donne des sécurités hermétiques, des certitudes métaphysiquement ‘absolues et totales. Par où je vois bien
+CHARLES PÉGUY
 
-que j'ai tort d'entrer incidemment dans un aussi
+Louis de Gonzague. — Surtout gardons ce trésor des humbles, cette sorte de joie entendue qui est la fleur de la vie, cette sorte de saine gaieté qui est la vertu même et plus vertueuse que la vertu même.
 
-grave débat, que j'aurais mieux fait de me taire, et
-qu'il.faut réserver toutes ces recherches, toutes ces
+Il ne dépend pas de nous que l’événement se déclanche, mais il dépend de nous de faire face à l’événement; et aujourd’hui déjà nous sommes en situation de dire que si l’événement ne s’est pas déclanché il y a six mois, la raison à beaucoup près la principale en est qu’après quelques hésitations brèves nous nous sommes tous mis, chacun pour sa part d’homme et pour sa part de citoyen, matériellement et moralement, rapidement en devoir et en état d’y faire face.
 
-5 études préparatoires pour la préparation de la thèse
-
-que je me suis permis d'annoncer.
-
-Les suppliants parallèles. — Dans le Matin daté du
-mercredi 13 décembre 1905 et paraissant ce même
-jour, il a paru un entretien avec Gapon, plus ou moins
-authentique, et peut-être plus ou moins suspect, mais:
-qui présente avec une partie de ce que j'ai dit générale
-ment de la prétendue révolution russe et particulière
-ment de la situation de Gapone, et notamment de la
-situation de Gapone auprès des révolutionnaires, des … ee.
-rapprochements à faire et même des coïncidences telles …
-que je suis forcé de rappeler que les cahiers étant un
-périodique broché, généralement assez épais, le cahier
-qui tombe chez nos abonnés le samedi matin pour
-le lendemain dimanche est généralement fini d'écrire le ne.
-dimanche précédent, qu'il est généralement fini d'imprimer ou pour le moins donné bon à tirer le mardi,
-comme le portent nos indications de date, qu'il est
-généralement rendu chez le brocheur le mercredi matin,
-et qu'il en part généralement le jeudi soir pour ceux de
-nos abonnés qui demeurent dans les pays les plus éloignés. Ce qui revient à dire, une fois de plus, que nous
-sommes des cahiers de la quinzaine, et non pas des: à
-Au demeurant, il faut avouer que le cas du prêtre
-Gapone est très singulier. Mais qu'est-ce qui n'est pas
-singulier, pour nous Occidentaux, pour nous Français,
-dans tout ce qui vient non seulement du mouvement
-russe, de ce mouvement russe, mais généralement
-de tout le caractère et de toute la vie de ce peuple.
+Il ne dépend pas de nous que l’événement se déclanche. Mais il dépend de nous de faire gaieté notre devoir.
