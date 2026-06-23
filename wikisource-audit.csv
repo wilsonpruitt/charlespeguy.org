@@ -1,0 +1,269 @@
+cahier,pieceSlug,author,title,wordCount,isAvertissement,tier,wikisource_url,wikisource_status,current_fr_source,fr_file,action
+s01-c01,l-affaire-liebknecht,charles-peguy,L'affaire Liebknecht,27262,false,T1,,,,src/content/pieces/s01-c01--l-affaire-liebknecht.fr.md,done-reocr
+s01-c01,le-triomphe-de-la-republique,charles-peguy,"le ""triomphe de la République",4234,false,T1,,,,src/content/pieces/s01-c01--le-triomphe-de-la-republique.fr.md,done-reocr
+s01-c01,lettre-du-provincial,charles-peguy,Lettre du Provincial,4932,false,T1,,,,src/content/pieces/s01-c01--lettre-du-provincial.fr.md,done-reocr
+s01-c01,reponse-au-provincial,charles-peguy,Réponse au Provincial,3195,false,T1,,,,src/content/pieces/s01-c01--reponse-au-provincial.fr.md,done-reocr
+s01-c02,du-second-provincial-reponse-provisoire-la-preparation-du-congres-socialiste-national,charles-peguy,Du second Provincial. Réponse provisoire. La préparation du congrès socialiste,40150,false,T1,,,,src/content/pieces/s01-c02--du-second-provincial-reponse-provisoire-la-preparation-du-congres-socialiste-national.fr.md,skip-editorial
+s01-c03,pour-ou-contre-le-socialisme-la-preparation-du-congres-socialiste-national,charles-peguy,Pour ou contre le socialisme. La préparation du congrès socialiste national,39751,false,T1,,,,src/content/pieces/s01-c03--pour-ou-contre-le-socialisme-la-preparation-du-congres-socialiste-national.fr.md,skip-editorial
+s01-c04,de-la-grippe,charles-peguy,De la grippe,5092,false,T1,,,,src/content/pieces/s01-c04--de-la-grippe.fr.md,verify-peguy
+s01-c05,la-consultation-internationale-ouverte-a-la-petite-republique-sur-l-affaire-dreyfus-et-le-cas-millerand,charles-peguy,La Consultation internationale ouverte à la Petite République sur l'affaire,23844,false,T1,,,,src/content/pieces/s01-c05--la-consultation-internationale-ouverte-a-la-petite-republique-sur-l-affaire-dreyfus-et-le-cas-millerand.fr.md,done-reocr
+s01-c06,de-la-grippe,charles-peguy,De la grippe,13062,false,T1,,,,src/content/pieces/s01-c06--de-la-grippe.fr.md,verify-peguy
+s01-c06,la-meme-consultation-internationale,charles-peguy,La même consultation internationale,8182,false,T1,,,,src/content/pieces/s01-c06--la-meme-consultation-internationale.fr.md,verify-peguy
+s01-c07,annonce-au-provincial-toujours-de-la-grippe,charles-peguy,"Annonce au Provincial, Toujours de la grippe",14267,false,T1,,,,src/content/pieces/s01-c07--annonce-au-provincial-toujours-de-la-grippe.fr.md,verify-peguy
+s01-c07,la-lumiere,jerome-et-jean-tharaud,La lumière,3854,false,T3,,,,src/content/pieces/s01-c07--la-lumiere.fr.md,skip
+s01-c08,la-lumiere,jerome-et-jean-tharaud,La lumière,5001,false,T3,,,,src/content/pieces/s01-c08--la-lumiere.fr.md,skip
+s01-c08,premiere-annonce-deuxieme-annonce-la-meme-consultation-internationale,charles-peguy,"Première annonce, deuxième annonce. La même Consultation internationale",11855,false,T1,,,,src/content/pieces/s01-c08--premiere-annonce-deuxieme-annonce-la-meme-consultation-internationale.fr.md,verify-peguy
+s01-c09,entre-deux-trains,charles-peguy,Entre deux trains,12675,false,T1,,,,src/content/pieces/s01-c09--entre-deux-trains.fr.md,verify-peguy
+s01-c09,le-socialisme-et-les-intellectuels,paul-lafargue,Le Socialisme et les intellectuels,21031,false,T2,,,,src/content/pieces/s01-c09--le-socialisme-et-les-intellectuels.fr.md,verify
+s01-c10,communications-les-petits-teigneux,charles-peguy,Communications. Les Petits Teigneux,13436,false,T1,,,,src/content/pieces/s01-c10--communications-les-petits-teigneux.fr.md,skip-editorial
+s01-c10,socialisme-et-collectivisme,emile-vandervelde,Socialisme et collectivisme,9002,false,T3,,,,src/content/pieces/s01-c10--socialisme-et-collectivisme.fr.md,skip
+s01-c11,le-socialisme-et-les-intellectuels,charles-peguy,Le Socialisme et les intellectuels,10477,false,T1,,,,src/content/pieces/s01-c11--le-socialisme-et-les-intellectuels.fr.md,verify-peguy
+s01-c11,reponse-breve-a-jaures,charles-peguy,Réponse brève à Jaurès,17507,false,T1,,,,src/content/pieces/s01-c11--reponse-breve-a-jaures.fr.md,verify-peguy
+s01-c12,administration,charles-peguy,Administration,757,false,T1,,,,src/content/pieces/s01-c12--administration.fr.md,verify-peguy
+s01-c12,deuxieme-serie-au-provincial,charles-peguy,Deuxième série au Provincial,3806,false,T1,,,,src/content/pieces/s01-c12--deuxieme-serie-au-provincial.fr.md,done-reocr
+s01-c12,nouvelles-communications,charles-peguy,Nouvelles communications,16840,false,T1,,,,src/content/pieces/s01-c12--nouvelles-communications.fr.md,verify-peguy
+s02-c01,ajournement,charles-peguy,Ajournement,1203,false,T1,,,,src/content/pieces/s02-c01--ajournement.fr.md,verify-peguy
+s02-c01,nos-annonces,charles-peguy,nos annonces,14233,false,T1,,,,src/content/pieces/s02-c01--nos-annonces.fr.md,verify-peguy
+s02-c01,nouvelles-communications,charles-peguy,Nouvelles communications,6426,false,T1,,,,src/content/pieces/s02-c01--nouvelles-communications.fr.md,verify-peguy
+s02-c02,vers-l-action,rene-salome,Vers l'action,21070,false,T3,,,,src/content/pieces/s02-c02--vers-l-action.fr.md,skip
+s02-c03,administration,charles-peguy,Administration,10820,false,T1,,,,src/content/pieces/s02-c03--administration.fr.md,verify-peguy
+s02-c03,le-theatre-social,jean-jaures,Le théâtre social,5051,false,T2,,,,src/content/pieces/s02-c03--le-theatre-social.fr.md,verify
+s02-c03,pour-ma-maison,charles-peguy,Pour ma maison,1967,false,T1,,,,src/content/pieces/s02-c03--pour-ma-maison.fr.md,verify-peguy
+s02-c04,l-amnistie-et-les-socialistes,hubert-lagardelle,L'amnistie et les socialistes,2280,false,T3,,,,src/content/pieces/s02-c04--l-amnistie-et-les-socialistes.fr.md,skip
+s02-c04,les-intellectuels-devant-le-socialisme,hubert-lagardelle,Les Intellectuels devant le socialisme,11577,false,T3,,,,src/content/pieces/s02-c04--les-intellectuels-devant-le-socialisme.fr.md,skip
+s02-c05,contribution-aux-preuves,charles-peguy,Contribution aux Preuves,3395,false,T1,,,,src/content/pieces/s02-c05--contribution-aux-preuves.fr.md,done-reocr
+s02-c05,courrier-de-chine,lionel-landry,Courrier de Chine,3083,false,T3,,,,src/content/pieces/s02-c05--courrier-de-chine.fr.md,skip
+s02-c05,pour-moi,charles-peguy,Pour moi,13625,false,T1,,,,src/content/pieces/s02-c05--pour-moi.fr.md,done-reocr
+s02-c06,danton-trois-actes,romain-rolland,"Danton, trois actes",25225,false,T1,https://fr.wikisource.org/wiki/Danton_(Romain_Rolland),validated,,src/content/pieces/s02-c06--danton-trois-actes.fr.md,use-wikisource
+s02-c07,administration,charles-peguy,Administration,85,false,T1,,,"Ingéré depuis ~/charlespeguy.com/raw/s02-c07-administration-casse-cou.txt (queue de l'OCR), 2026-05-25",src/content/pieces/s02-c07--administration.fr.md,verify-peguy
+s02-c07,casse-cou,charles-peguy,Casse-cou,14227,false,T1,,,,src/content/pieces/s02-c07--casse-cou.fr.md,verify-peguy
+s02-c07,librairie-des-cahiers,charles-peguy,librairie des cahiers,3495,false,T1,,,,src/content/pieces/s02-c07--librairie-des-cahiers.fr.md,verify-peguy
+s02-c07,pour-et-contre-diderot,charles-peguy,Pour et contre Diderot,2440,false,T1,,,,src/content/pieces/s02-c07--pour-et-contre-diderot.fr.md,verify-peguy
+s02-c08,bacchus-trois-actes,lionel-landry,"Bacchus, trois actes",14519,false,T3,,,,src/content/pieces/s02-c08--bacchus-trois-actes.fr.md,skip
+s02-c09,intellectuels-et-socialisme,paul-mantoux-charles-guieysse,Intellectuels et socialisme,6921,false,T3,,,,src/content/pieces/s02-c09--intellectuels-et-socialisme.fr.md,skip
+s02-c09,proces-verbaux,charles-peguy,Procès-verbaux,3348,false,T1,,,,src/content/pieces/s02-c09--proces-verbaux.fr.md,verify-peguy
+s02-c09,quatre-jours-a-montceau,andre-bourgeois,Quatre jours à Montceau,8519,false,T3,,,,src/content/pieces/s02-c09--quatre-jours-a-montceau.fr.md,skip
+s02-c10,cahier-d-annonces,charles-peguy,Cahier d'annonces,16854,false,T1,,,,src/content/pieces/s02-c10--cahier-d-annonces.fr.md,verify-peguy
+s02-c11,compte-rendu-de-mandat,charles-peguy,Compte rendu de mandat,19532,false,T1,,,,src/content/pieces/s02-c11--compte-rendu-de-mandat.fr.md,done-reocr
+s02-c12,jean-coste-ou-l-instituteur-de-village,antonin-lavergne,Jean Coste ou l'instituteur de village,59542,false,T3,,,,src/content/pieces/s02-c12--jean-coste-ou-l-instituteur-de-village.fr.md,skip
+s02-c13,librairie-des-cahiers,charles-peguy,Librairie des cahiers,4405,false,T1,,,,src/content/pieces/s02-c13--librairie-des-cahiers.fr.md,verify-peguy
+s02-c13,quelques-mots-sur-proudhon,georges-sorel,Quelques mots sur Proudhon,12198,false,T2,,,,src/content/pieces/s02-c13--quelques-mots-sur-proudhon.fr.md,verify
+s02-c14,boecklin-chez-les-francais,leon-deshairs,Boecklin chez les Français,2195,false,T3,,,,src/content/pieces/s02-c14--boecklin-chez-les-francais.fr.md,skip
+s02-c14,congres-de-lyon,louise-levi,Congrès de Lyon,13560,false,T3,,,,src/content/pieces/s02-c14--congres-de-lyon.fr.md,skip
+s02-c14,courrier-de-chine,lionel-landry,Courrier de Chine,1639,false,T3,,,Extracted 2026-05-25 from conflated ~/charlespeguy.com/raw/s02-c14-expulsion-de-nicolas-paouli.txt lines 2994–3279; identified by running headers 'Lionel Landry / COURRIER DE CHINE' and Tien-Tsin datelines.,src/content/pieces/s02-c14--courrier-de-chine.fr.md,skip
+s02-c14,expulsion-de-nicolas-paouli,charles-peguy,Expulsion de Nicolas Paouli,2618,false,T1,,,,src/content/pieces/s02-c14--expulsion-de-nicolas-paouli.fr.md,verify-peguy
+s02-c15,memoires-et-dossiers-pour-les-libertes-du-personnel-enseignant-en-france,charles-peguy,Mémoires et dossiers pour les libertés du personnel enseignant en France,20213,false,T1,,,,src/content/pieces/s02-c15--memoires-et-dossiers-pour-les-libertes-du-personnel-enseignant-en-france.fr.md,verify-peguy
+s02-c16,congres-socialiste-international-paris-1900,charles-peguy,Congrès socialiste international Paris 1900,61859,false,T1,,,,src/content/pieces/s02-c16--congres-socialiste-international-paris-1900.fr.md,skip-editorial
+s03-c01,compte-rendu-de-congres,charles-peguy,Compte rendu de congrès,18629,false,T1,,,,src/content/pieces/s03-c01--compte-rendu-de-congres.fr.md,done-reocr
+s03-c02,les-universites-populaires,charles-guieysse,Les Universités Populaires,11872,false,T3,,,"Archive.org vision OCR 2026-05-25 (Round 8). Volume s3cahiersdelaquinz01pg, leaves 0096–0153. Performed by 4 parallel general-purpose subagents reading the IIIF JPGs.",src/content/pieces/s03-c02--les-universites-populaires.fr.md,skip
+s03-c02,vraiment-vrai,charles-peguy,Vraiment vrai,800,false,T1,,,,src/content/pieces/s03-c02--vraiment-vrai.fr.md,verify-peguy
+s03-c03,de-l-eglise-et-de-l-etat-fragments,georges-sorel,"De l'Église et de l'État, fragments",20338,false,T2,,,,src/content/pieces/s03-c03--de-l-eglise-et-de-l-etat-fragments.fr.md,verify
+s03-c04,de-la-raison,charles-peguy,De la raison,7618,false,T1,https://fr.wikisource.org/wiki/Études_socialistes/De_la_Raison,validated,,src/content/pieces/s03-c04--de-la-raison.fr.md,use-wikisource
+s03-c04,etudes-socialistes,jean-jaures,Études socialistes,71346,false,T2,,,"fr.wikisource.org — Études socialistes (Cahiers de la Quinzaine, 1901), texte entier 2026-05-25",src/content/pieces/s03-c04--etudes-socialistes.fr.md,verify
+s03-c05,juifs,georges-delahache,Juifs,18828,false,T3,,,,src/content/pieces/s03-c05--juifs.fr.md,skip
+s03-c06,la-greve-trois-actes,jean-hugues,"La Grève, trois actes",16636,false,T3,,,,src/content/pieces/s03-c06--la-greve-trois-actes.fr.md,skip
+s03-c07,m-gustave-tery,charles-peguy,M. Gustave Téry,19637,false,T1,,,,src/content/pieces/s03-c07--m-gustave-tery.fr.md,verify-peguy
+s03-c08,les-juifs-en-roumanie,bernard-lazare,Les Juifs en Roumanie,32052,false,T2,,,,src/content/pieces/s03-c08--les-juifs-en-roumanie.fr.md,verify
+s03-c09,une-lettre-inedite-a-romain-rolland,leon-tolstoi,Une lettre inédite à Romain Rolland,8386,false,T1,,,,src/content/pieces/s03-c09--une-lettre-inedite-a-romain-rolland.fr.md,verify-tolstoi
+s03-c10,les-universites-populaires-1900-1901-paris-et-banlieue,charles-guieysse,"Les Universités Populaires 1900-1901, Paris et banlieue",16444,false,T3,,,,src/content/pieces/s03-c10--les-universites-populaires-1900-1901-paris-et-banlieue.fr.md,skip
+s03-c11,le-14-juillet-action-populaire-trois-actes,romain-rolland,"Le 14 Juillet, action populaire, trois actes",45894,false,T1,,,,src/content/pieces/s03-c11--le-14-juillet-action-populaire-trois-actes.fr.md,verify-rolland
+s03-c12,monographies-personnalites,charles-peguy,Monographies. Personnalités,19423,false,T1,,,,src/content/pieces/s03-c12--monographies-personnalites.fr.md,done-reocr
+s03-c13,dingley-l-illustre-ecrivain,jerome-et-jean-tharaud,"Dingley, l'illustre écrivain",15121,false,T3,,,,src/content/pieces/s03-c13--dingley-l-illustre-ecrivain.fr.md,skip
+s03-c14,socialismes-nationaux,georges-sorel,Socialismes nationaux,18931,false,T2,,,,src/content/pieces/s03-c14--socialismes-nationaux.fr.md,verify
+s03-c15,cahiers-de-la-quinzaine,anatole-france,Cahiers de la Quinzaine,9863,false,T2,,,,src/content/pieces/s03-c15--cahiers-de-la-quinzaine.fr.md,verify
+s03-c16,les-elections,charles-peguy,Les élections,18861,false,T1,,,,src/content/pieces/s03-c16--les-elections.fr.md,verify-peguy
+s03-c17,cahier-de-courriers,felicien-challaye,Cahier de courriers,18129,false,T2,,,,src/content/pieces/s03-c17--cahier-de-courriers.fr.md,verify
+s03-c18,personnalites-monographies,charles-peguy,Personnalités. Monographies,18599,false,T1,,,,src/content/pieces/s03-c18--personnalites-monographies.fr.md,verify-peguy
+s03-c19,pour-l-armenie,pierre-quillard,Pour l'Arménie,43229,false,T3,,,,src/content/pieces/s03-c19--pour-l-armenie.fr.md,skip
+s03-c20,les-universites-populaires-1900-1901-departements,charles-guieysse,"Les Universités Populaires 1900-1901, Départements",43087,false,T3,,,,src/content/pieces/s03-c20--les-universites-populaires-1900-1901-departements.fr.md,skip
+s03-c21,pour-la-finlande,jean-deck,Pour la Finlande,66105,false,T3,,,,src/content/pieces/s03-c21--pour-la-finlande.fr.md,skip
+s04-c01,l-affaire-crainquebille-edition-complete,anatole-france,"L'affaire Crainquebille, édition complète",15211,false,T2,,,,src/content/pieces/s04-c01--l-affaire-crainquebille-edition-complete.fr.md,check-wikisource
+s04-c02,l-aube-fraternelle,emile-moselly,L'aube fraternelle,22152,false,T3,,,,src/content/pieces/s04-c02--l-aube-fraternelle.fr.md,skip
+s04-c03,de-jean-coste,charles-peguy,De Jean Coste,19450,false,T1,https://fr.wikisource.org/wiki/De_Jean_Coste_(Péguy),proofread,,src/content/pieces/s04-c03--de-jean-coste.fr.md,use-wikisource
+s04-c04,la-medaille,antonin-lavergne,La médaille,28987,false,T3,,,,src/content/pieces/s04-c04--la-medaille.fr.md,skip
+s04-c05,textes-et-commentaires-emile-zola,charles-peguy,Textes et commentaires. Emile Zola,36430,false,T1,,,,src/content/pieces/s04-c05--textes-et-commentaires-emile-zola.fr.md,filter-blocked
+s04-c06,inventaire-des-cahiers,charles-peguy,Inventaire des Cahiers,14396,false,T1,,,,src/content/pieces/s04-c06--inventaire-des-cahiers.fr.md,verify-peguy
+s04-c07,villon-tolstoi-tharaud-gillet-cahier-de-noel,charles-peguy,"Villon, Tolstoi, Tharaud, Gillet. Cahier de Noël",17071,false,T1,,,,src/content/pieces/s04-c07--villon-tolstoi-tharaud-gillet-cahier-de-noel.fr.md,verify-peguy
+s04-c08,monsieur-matou,rene-salome,Monsieur Matou,18475,false,T3,,,,src/content/pieces/s04-c08--monsieur-matou.fr.md,skip
+s04-c09,almanach-des-cahiers-pour-l-an-1903,charles-peguy,Almanach des cahiers pour l'an 1903,18659,false,T1,,,,src/content/pieces/s04-c09--almanach-des-cahiers-pour-l-an-1903.fr.md,verify-peguy
+s04-c10,vie-des-hommes-illustres-beethoven,romain-rolland,"Vie des hommes illustres, Beethoven",26532,false,T1,,,,src/content/pieces/s04-c10--vie-des-hommes-illustres-beethoven.fr.md,verify-rolland
+s04-c11,la-politique-clericale-et-le-socialisme,edouard-berth,La politique cléricale et le socialisme,15595,false,T2,,,,src/content/pieces/s04-c11--la-politique-clericale-et-le-socialisme.fr.md,verify
+s04-c12,introduction-a-la-metaphysique,henri-bergson,Introduction à la métaphysique,20686,false,T2,,,,src/content/pieces/s04-c12--introduction-a-la-metaphysique.fr.md,check-wikisource
+s04-c13,impressions-sur-java,felicien-challaye,Impressions sur Java,19687,false,T2,,,,src/content/pieces/s04-c13--impressions-sur-java.fr.md,verify
+s04-c14,le-temps-viendra-trois-actes,romain-rolland,"Le temps viendra, trois actes",26469,false,T1,,,,src/content/pieces/s04-c14--le-temps-viendra-trois-actes.fr.md,verify-rolland
+s04-c15,la-chanson-du-roi-dagobert,pierre-baudouin,La chanson du roi Dagobert,9308,false,T3,,,,src/content/pieces/s04-c15--la-chanson-du-roi-dagobert.fr.md,skip
+s04-c16,les-vaincus-joseph-d-arimathee,gabriel-trarieux,Les Vaincus. Joseph d'Arimathée,20074,false,T3,,,,src/content/pieces/s04-c16--les-vaincus-joseph-d-arimathee.fr.md,skip
+s04-c17,affaire-dreyfus-debats-parlementaires,charles-peguy,Affaire Dreyfus. Débats parlementaires,76926,false,T1,,,,src/content/pieces/s04-c17--affaire-dreyfus-debats-parlementaires.fr.md,skip-editorial
+s04-c18,affaire-dreyfus-cahiers-de-la-quinzaine,charles-peguy,Affaire Dreyfus. Cahiers de la Quinzaine,21448,false,T1,,,,src/content/pieces/s04-c18--affaire-dreyfus-cahiers-de-la-quinzaine.fr.md,filter-blocked
+s04-c19,le-rhin-allemand,gaston-raphael,Le Rhin allemand,24148,false,T3,,,,src/content/pieces/s04-c19--le-rhin-allemand.fr.md,skip
+s04-c20,affaire-dreyfus-reprise-politique-parlementaire,charles-peguy,Affaire Dreyfus. Reprise politique parlementaire,37554,false,T1,,,,src/content/pieces/s04-c20--affaire-dreyfus-reprise-politique-parlementaire.fr.md,verify-peguy
+s04-c21,edgar-quinet,henry-michel,Edgar Quinet,28054,false,T2,,,,src/content/pieces/s04-c21--edgar-quinet.fr.md,verify
+s04-c22,courriers-de-macedoine,maurice-kahn,Courriers de Macédoine,31484,false,T3,,,,src/content/pieces/s04-c22--courriers-de-macedoine.fr.md,skip
+s05-c01,les-massacres-de-kichinef,henri-dagan,Les massacres de Kichinef,33799,false,T3,,,,src/content/pieces/s05-c01--les-massacres-de-kichinef.fr.md,skip
+s05-c02,la-vie-d-evariste-galois,paul-dupuy,La vie d'Evariste Galois,28868,false,T3,,,,src/content/pieces/s05-c02--la-vie-d-evariste-galois.fr.md,skip
+s05-c03,le-monument-de-renan,charles-peguy,Le monument de Renan,30011,false,T1,,,,src/content/pieces/s05-c03--le-monument-de-renan.fr.md,verify-peguy
+s05-c04,le-theatre-du-peuple,romain-rolland,Le Théâtre du Peuple,59518,false,T1,https://fr.wikisource.org/wiki/Le_Théâtre_du_peuple_(Romain_Rolland),validated,,src/content/pieces/s05-c04--le-theatre-du-peuple.fr.md,use-wikisource
+s05-c05,discours-pour-la-liberte,georges-clemenceau,Discours pour la liberté,45730,false,T2,,,,src/content/pieces/s05-c05--discours-pour-la-liberte.fr.md,verify
+s05-c06,histoire-de-quatre-ans-1997-2001,daniel-halevy,"Histoire de quatre ans, 1997-2001",29136,false,T2,,,,src/content/pieces/s05-c06--histoire-de-quatre-ans-1997-2001.fr.md,verify
+s05-c07,moines-de-l-athos,jerome-et-jean-tharaud,Moines de l'Athos,15075,false,T3,,,Extracted 2026-05-25 from conflated s05-c07--notes-sur-la-hollande.fr.md (lines 1125–3019; running header 'Lebeau et Tharaud' identifies these lines).,src/content/pieces/s05-c07--moines-de-l-athos.fr.md,skip
+s05-c07,notes-sur-la-hollande,henri-michel,Notes sur la Hollande,20605,false,T2,,,Trimmed 2026-05-25; original conflated file held three pieces (Notes sur la Hollande + Moines de l'Athos + Bulletin Tisseurs d'Armentières) plus publisher back-matter.,src/content/pieces/s05-c07--notes-sur-la-hollande.fr.md,verify
+s05-c08,maximilien-robespierre,karl-brunnemann,Maximilien Robespierre,55431,false,T3,,,,src/content/pieces/s05-c08--maximilien-robespierre.fr.md,skip
+s05-c09,jean-christophe-i-l-aube,romain-rolland,Jean-Christophe. I. L'aube,44858,false,T1,https://fr.wikisource.org/wiki/L%E2%80%99Aube_(Jean-Christophe),validated,,src/content/pieces/s05-c09--jean-christophe-i-l-aube.fr.md,use-wikisource-jc
+s05-c10,jean-christophe,romain-rolland,Jean-Christophe. II. Le matin,44365,false,T1,https://fr.wikisource.org/wiki/Le_Matin_(Jean-Christophe),validated,,src/content/pieces/s05-c10--jean-christophe.fr.md,use-wikisource-jc
+s05-c11,le-monde-sans-dieu,mangasarian,Le monde sans Dieu,39546,false,T3,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s05-c11--le-monde-sans-dieu.fr.md,skip
+s05-c12,petites-garnisons,charles-peguy,Petites garnisons,43137,false,T1,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s05-c12--petites-garnisons.fr.md,verify-peguy
+s05-c13,les-vaincus-hypathie,gabriel-trarieux,Les Vaincus. Hypathie,5564,false,T3,,,,src/content/pieces/s05-c13--les-vaincus-hypathie.fr.md,skip
+s05-c14,gaston-paris,joseph-bedier,Gaston Paris,8931,false,T2,,,,src/content/pieces/s05-c14--gaston-paris.fr.md,verify
+s05-c15,jean-des-brebis,emile-moselly,Jean des Brebis,51701,false,T3,,,,src/content/pieces/s05-c15--jean-des-brebis.fr.md,skip
+s05-c16,le-congres-de-dresde-edition-gaston-raphael,charles-peguy,"Le congrès de Dresde, édition GASTON RAPHAEL",72841,false,T1,,,,src/content/pieces/s05-c16--le-congres-de-dresde-edition-gaston-raphael.fr.md,done-reocr
+s05-c17,a-chaque-jour,francois-porche,A chaque jour,2316,false,T3,,,,src/content/pieces/s05-c17--a-chaque-jour.fr.md,skip
+s05-c18,prologue-d-une-revolution,louis-menard,Prologue d'une Révolution,94113,false,T3,,,,src/content/pieces/s05-c18--prologue-d-une-revolution.fr.md,skip
+s05-c19,les-hobereaux,jerome-et-jean-tharaud,Les hobereaux,16466,false,T3,,,,src/content/pieces/s05-c19--les-hobereaux.fr.md,skip
+s05-c20,congres-des-u-p-mai-1904,charles-peguy,Congrès des U.P. mai 1904,42405,false,T1,,,,src/content/pieces/s05-c20--congres-des-u-p-mai-1904.fr.md,skip-editorial
+s06-c01,texte-sans-commentaires-catalogue-analytique-sommaire,charles-peguy,Texte sans commentaires. Catalogue analytique sommaire,48717,false,T1,,,,src/content/pieces/s06-c01--texte-sans-commentaires-catalogue-analytique-sommaire.fr.md,skip-editorial
+s06-c02,l-egalite-devant-l-instruction,alexis-bertrand,L'égalité devant l'instruction,87947,false,T3,,,,src/content/pieces/s06-c02--l-egalite-devant-l-instruction.fr.md,skip
+s06-c03,chad-gadya,israel-zangwill,Chad Gadya!,6900,false,T3,,,Wikisource ws-export 2026-05-25,src/content/pieces/s06-c03--chad-gadya.fr.md,skip
+s06-c03,zangwill,charles-peguy,Zangwill,23774,false,T1,https://fr.wikisource.org/wiki/Zangwill,proofread,,src/content/pieces/s06-c03--zangwill.fr.md,use-wikisource
+s06-c04,l-enseignement-primaire-a-madagascar,raoul-allier,L'enseignement primaire des indigènes à Madagascar,34693,false,T2,,,Extracted 2026-05-25 from conflated s06-c04--un-essai-de-monopole.fr.md (lines 1449-5502).,src/content/pieces/s06-c04--l-enseignement-primaire-a-madagascar.fr.md,verify
+s06-c04,un-essai-de-monopole,charles-peguy,Un essai de monopole,16307,false,T1,,,Trimmed 2026-05-25; the Madagascar cahier by Allier (lines 1449-5502) was extracted to s06-c04--l-enseignement-primaire-a-madagascar.fr.md.,src/content/pieces/s06-c04--un-essai-de-monopole.fr.md,done-reocr
+s06-c05,le-testament-politique-de-waldeck-rousseau,charles-peguy,Le testament politique de Waldeck-Rousseau,100961,false,T1,,,,src/content/pieces/s06-c05--le-testament-politique-de-waldeck-rousseau.fr.md,verify-peguy
+s06-c06,juifs-russes,georges-delahache,Juifs russes,5313,false,T3,,,,src/content/pieces/s06-c06--juifs-russes.fr.md,skip
+s06-c07,les-primitifs-francais-contes-de-la-vierge,jerome-et-jean-tharaud,"Les primitifs français, contes de la Vierge",36463,false,T3,,,,src/content/pieces/s06-c07--les-primitifs-francais-contes-de-la-vierge.fr.md,skip
+s06-c08,jean-christophe,romain-rolland,Jean-Christophe. III. L'adolescent,58803,false,T1,https://fr.wikisource.org/wiki/L%E2%80%99Adolescent_(Jean-Christophe),validated,,src/content/pieces/s06-c08--jean-christophe.fr.md,use-wikisource-jc
+s06-c09,la-delation-aux-droits-de-l-homme,charles-peguy,La délation aux Droits de l'Homme,49792,false,T1,,,,src/content/pieces/s06-c09--la-delation-aux-droits-de-l-homme.fr.md,done-reocr
+s06-c10,yves-madec-professeur-de-college,brenn,Yves Madec professeur de collège,13590,false,T3,,,,src/content/pieces/s06-c10--yves-madec-professeur-de-college.fr.md,skip
+s06-c11,la-tragedie-d-elektre-et-oreste,andre-suares,La tragédie d'Elektre et Oreste,129535,false,T2,,,,src/content/pieces/s06-c11--la-tragedie-d-elektre-et-oreste.fr.md,verify
+s06-c12,spartacus,urbain-gohier,Spartacus,12077,false,T3,,,,src/content/pieces/s06-c12--spartacus.fr.md,skip
+s06-c13,l-eglise-et-l-etat,leon-tolstoi,L'Eglise et l'Etat,13712,false,T1,,,,src/content/pieces/s06-c13--l-eglise-et-l-etat.fr.md,verify-tolstoi
+s06-c13,les-evenements-actuels-en-russie,leon-tolstoi,Les Événements actuels en Russie,4003,false,T1,,,Wikisource ws-export 2026-05-25,src/content/pieces/s06-c13--les-evenements-actuels-en-russie.fr.md,verify-tolstoi
+s06-c14,la-separation-des-eglises-et-de-l-etat,raoul-allier,La séparation des Eglises et de l'Etat,173424,false,T2,,,,src/content/pieces/s06-c14--la-separation-des-eglises-et-de-l-etat.fr.md,verify
+s06-c15,la-tragedie-de-tristan-et-iseut,eddy-marix,La tragédie de Tristan et Iseut,30634,false,T3,,,,src/content/pieces/s06-c15--la-tragedie-de-tristan-et-iseut.fr.md,skip
+s06-c16,la-vie-et-les-propheties-du-comte-de-gobineau,robert-dreyfus,La vie et les prophéties du comte de Gobineau,82153,false,T3,,,,src/content/pieces/s06-c16--la-vie-et-les-propheties-du-comte-de-gobineau.fr.md,skip
+s06-c17,catholicisme-et-critique,paul-desjardins,Catholicisme et critique,34897,false,T2,,,,src/content/pieces/s06-c17--catholicisme-et-critique.fr.md,verify
+s07-c01,petit-index-alphabetique,charles-peguy,Petit index alphabétique,16597,false,T1,,,,src/content/pieces/s07-c01--petit-index-alphabetique.fr.md,verify-peguy
+s07-c02,la-paix-et-la-guerre,charles-richet,La paix et la guerre,19878,false,T3,,,,src/content/pieces/s07-c02--la-paix-et-la-guerre.fr.md,skip
+s07-c03,notre-patrie,charles-peguy,Notre patrie,19050,false,T1,https://fr.wikisource.org/wiki/Notre_Patrie,proofread,,src/content/pieces/s07-c03--notre-patrie.fr.md,use-wikisource
+s07-c04,la-separation-au-senat,raoul-allier,La séparation au Sénat,88338,false,T2,,,,src/content/pieces/s07-c04--la-separation-au-senat.fr.md,verify
+s07-c05,courrier-de-russie,charles-peguy,Courrier de Russie,8115,false,T1,,,Trimmed 2026-05-25; Avenard's 22 janvier narrative (lines 882-8943) extracted to sister file.,src/content/pieces/s07-c05--courrier-de-russie.fr.md,filter-blocked
+s07-c05,le-22-janvier,etienne-avenard,Le 22 janvier,70524,false,T3,,,Extracted 2026-05-25 from conflated s07-c05--courrier-de-russie.fr.md (lines 882-8943; Avenard's narrative from 'à la frontière russe' through the appendix documents).,src/content/pieces/s07-c05--le-22-janvier.fr.md,skip
+s07-c06,le-congo-leopoldien,morel-et-pierre-mille,Le Congo léopoldien,58378,false,T3,,,,src/content/pieces/s07-c06--le-congo-leopoldien.fr.md,skip
+s07-c07,les-suppliants-paralleles,charles-peguy,Les suppliants parallèles,25592,false,T1,https://fr.wikisource.org/wiki/Les_Suppliants_parallèles,proofread,Trimmed 2026-05-25; Porché's poem Les suppliants (lines 2965-3175) extracted to sister file.,src/content/pieces/s07-c07--les-suppliants-paralleles.fr.md,use-wikisource
+s07-c07,les-suppliants,francois-porche,Les suppliants,1888,false,T3,,,"Extracted 2026-05-25 from conflated s07-c07--les-suppliants-paralleles.fr.md (lines 2965-3175 — Porché's poem, which appeared at the end of the cahier following Péguy's commentary).",src/content/pieces/s07-c07--les-suppliants.fr.md,skip
+s07-c08,et-vous-riez,andre-spire,Et vous riez,4797,false,T2,,,Extracted 2026-05-25 from conflated s07-c08--louis-de-gonzague.fr.md (running header 'André Spire' identifies these lines). Text is heavy-OCR-garble — needs cleanup pass.,src/content/pieces/s07-c08--et-vous-riez.fr.md,verify
+s07-c08,louis-de-gonzague,charles-peguy,Louis de Gonzague (matière éditoriale),3286,false,T1,,,Trimmed 2026-05-25 from prior conflated OCR. Original file contained Spire poetry (now in et-vous-riez.fr.md) + this Péguy editorial back-matter.,src/content/pieces/s07-c08--louis-de-gonzague.fr.md,done-reocr
+s07-c09,de-la-situation-faite-a-l-enseignement-superieur-i,ferdinand-lot,De la situation faite à l'enseignement supérieur. I,37318,false,T2,,,,src/content/pieces/s07-c09--de-la-situation-faite-a-l-enseignement-superieur-i.fr.md,verify
+s07-c10,les-freres-ennemis,jerome-et-jean-tharaud,Les frères ennemis,25727,false,T3,,,,src/content/pieces/s07-c10--les-freres-ennemis.fr.md,skip
+s07-c11,de-la-situation-faite-a-l-enseignement-superieur,ferdinand-lot,De la situation faite à l'enseignement supérieur,42441,false,T2,,,,src/content/pieces/s07-c11--de-la-situation-faite-a-l-enseignement-superieur.fr.md,verify
+s07-c12,le-congo-francais,felicien-challaye,Le Congo français,37565,false,T2,,,,src/content/pieces/s07-c12--le-congo-francais.fr.md,verify
+s07-c13,de-la-situation-faite-a-la-defense-militaire,georges-picquart,De la situation faite à la défense militaire,29244,false,T3,,,,src/content/pieces/s07-c13--de-la-situation-faite-a-la-defense-militaire.fr.md,skip
+s07-c14,les-vaincus-savonarole,gabriel-trarieux,Les Vaincus. Savonarole,37662,false,T3,,,,src/content/pieces/s07-c14--les-vaincus-savonarole.fr.md,skip
+s07-c15,les-cahiers-d-arnold-scherer,charles-peguy,Les cahiers d'Arnold Scherer,39441,false,T1,,,,src/content/pieces/s07-c15--les-cahiers-d-arnold-scherer.fr.md,verify-peguy
+s07-c16,les-deux-congos,pierre-mille,Les deux Congos,27894,false,T3,,,,src/content/pieces/s07-c16--les-deux-congos.fr.md,skip
+s07-c17,heureux-qui-comme-ulysse,jean-schlumberger,Heureux qui comme Ulysse,20028,false,T2,,,,src/content/pieces/s07-c17--heureux-qui-comme-ulysse.fr.md,verify
+s07-c18,la-vie-de-michel-ange-i-la-lutte,romain-rolland,La vie de Michel-Ange. I. La lutte,31869,false,T1,https://fr.wikisource.org/wiki/Vie_de_Michel-Ange,proofread,,src/content/pieces/s07-c18--la-vie-de-michel-ange-i-la-lutte.fr.md,use-wikisource
+s07-c19,les-retours-les-haleurs-le-soldat,emile-moselly,"Les retours. Les haleurs, le soldat",17470,false,T3,,,,src/content/pieces/s07-c19--les-retours-les-haleurs-le-soldat.fr.md,skip
+s08-c01,petit-index-alphabetique,charles-peguy,Petit index alphabétique,22693,false,T1,,,,src/content/pieces/s08-c01--petit-index-alphabetique.fr.md,verify-peguy
+s08-c02,l-abdication,romain-rolland,Vie de Michel-Ange. II — L'abdication,22177,false,T1,,,"fr.wikisource.org — Vie de Michel-Ange, Partie II (Hachette, 1908), subpages Amour/Foi/Solitude 2026-05-25",src/content/pieces/s08-c02--l-abdication.fr.md,verify-rolland
+s08-c02,la-vie-de-michel-ange,romain-rolland,La vie de Michel-Ange,18986,false,T1,https://fr.wikisource.org/wiki/Vie_de_Michel-Ange,proofread,,src/content/pieces/s08-c02--la-vie-de-michel-ange.fr.md,use-wikisource
+s08-c03,de-la-situation-faite-a-l-histoire-et-a-la-sociologie,charles-peguy,De la situation faite à l'histoire et à la sociologie,19435,false,T1,,,,src/content/pieces/s08-c03--de-la-situation-faite-a-l-histoire-et-a-la-sociologie.fr.md,verify-peguy
+s08-c04,jean-christophe,romain-rolland,Jean-Christophe. IV. La révolte. 1. Sables mouvants,39348,false,T1,https://fr.wikisource.org/wiki/La_Révolte_(Jean-Christophe),validated,,src/content/pieces/s08-c04--jean-christophe.fr.md,use-wikisource-jc
+s08-c05,de-la-situation-faite-au-parti-intellectuel,charles-peguy,De la situation faite au parti intellectuel,22743,false,T1,,,,src/content/pieces/s08-c05--de-la-situation-faite-au-parti-intellectuel.fr.md,done-reocr
+s08-c06,jean-christophe,romain-rolland,Jean-Christophe. IV. La révolte. 2. L'enlisement,18264,false,T1,https://fr.wikisource.org/wiki/La_Révolte_(Jean-Christophe),validated,,src/content/pieces/s08-c06--jean-christophe.fr.md,use-wikisource-jc
+s08-c07,les-sonnets-de-shakespeare-i,marie-garnier,Les sonnets de Shakespeare. I,12690,false,T3,,,"Moved 2026-05-25 from s08-c07--untitled.fr.md (mis-slugged by migration parser as 'untitled'; the OCR content is Marie Garnier's French translation of Shakespeare's Sonnets, which is the labeled piece of this cahier).",src/content/pieces/s08-c07--les-sonnets-de-shakespeare-i.fr.md,skip
+s08-c08,le-livre-des-livres,jean-bonnerot,Le livre des livres,14106,false,T3,,,,src/content/pieces/s08-c08--le-livre-des-livres.fr.md,skip
+s08-c09,jean-christophe,romain-rolland,Jean-Christophe. IV. La révolte. 3. La délivrance,3795,false,T1,https://fr.wikisource.org/wiki/La_Révolte_(Jean-Christophe),validated,,src/content/pieces/s08-c09--jean-christophe.fr.md,use-wikisource-jc
+s08-c10,polonais-et-prussiens-i,edmond-bernus,Polonais et Prussiens. I,75228,false,T3,,,,src/content/pieces/s08-c10--polonais-et-prussiens-i.fr.md,skip
+s08-c11,bar-cochebas-notre-honneur,jerome-et-jean-tharaud,"Bar-Cochebas, notre honneur",20495,false,T3,,,,src/content/pieces/s08-c11--bar-cochebas-notre-honneur.fr.md,skip
+s08-c12,polonais-et-prussiens,edmond-bernus,Polonais et Prussiens,19891,false,T3,,,,src/content/pieces/s08-c12--polonais-et-prussiens.fr.md,skip
+s08-c13,swift,henriette-cordelet,Swift,16992,false,T3,,,,src/content/pieces/s08-c13--swift.fr.md,skip
+s08-c14,polonais-et-prussiens,edmond-bernus,Polonais et Prussiens,29784,false,T3,,,,src/content/pieces/s08-c14--polonais-et-prussiens.fr.md,skip
+s08-c15,les-sonnets-de-shakespeare,marie-garnier,Les sonnets de Shakespeare,15444,false,T3,,,"Moved 2026-05-25 from s08-c15--untitled.fr.md (mis-slugged by migration parser as 'untitled'; the OCR content is Marie Garnier's French translation of Shakespeare's Sonnets, which is the labeled piece of this cahier).",src/content/pieces/s08-c15--les-sonnets-de-shakespeare.fr.md,skip
+s08-c16,les-preoccupations-metaphysiques-des-physiciens-modernes,georges-sorel,Les préoccupations métaphysiques des physiciens modernes,27289,false,T2,,,,src/content/pieces/s08-c16--les-preoccupations-metaphysiques-des-physiciens-modernes.fr.md,verify
+s09-c01,de-la-situation-faite-au-parti-intellectuel-devant-les-accidents-de-la-gloire-temporelle,charles-peguy,De la situation faite au parti intellectuel devant les accidents de la gloire,43057,false,T1,,,,src/content/pieces/s09-c01--de-la-situation-faite-au-parti-intellectuel-devant-les-accidents-de-la-gloire-temporelle.fr.md,filter-blocked
+s09-c02,quarante-huit,robert-dreyfus,Quarante-Huit,39742,false,T3,,,,src/content/pieces/s09-c02--quarante-huit.fr.md,skip
+s09-c03,the-socialist-party-and-the-trade-unions,etienne-buisson,Le parti socialiste et les syndicats,30415,false,T3,,,Existing charlespeguy.com vision OCR (raw/s09-c03-ocr.txt); ingested 2026-05-25,src/content/pieces/s09-c03--the-socialist-party-and-the-trade-unions.fr.md,skip
+s09-c04,le-rouet-d-ivoire,emile-moselly,Le rouet d'ivoire,39866,false,T3,,,,src/content/pieces/s09-c04--le-rouet-d-ivoire.fr.md,skip
+s09-c05,la-representation-proportionnelle,von-wendt,La représentation proportionnelle,25403,false,T3,,,,src/content/pieces/s09-c05--la-representation-proportionnelle.fr.md,skip
+s09-c06,un-episode,daniel-halevy,Un épisode,12397,false,T2,,,,src/content/pieces/s09-c06--un-episode.fr.md,verify
+s09-c07,par-le-chemin-des-souvenances,rene-salome,Par le chemin des souvenances,10745,false,T3,,,,src/content/pieces/s09-c07--par-le-chemin-des-souvenances.fr.md,skip
+s09-c08,der-professor-ist-die-deutsche-nationalkrankheit,gaston-raphael,Der Professor ist die deutsche Nationalkrankheit,30096,false,T3,,,,src/content/pieces/s09-c08--der-professor-ist-die-deutsche-nationalkrankheit.fr.md,skip
+s09-c09,alexandre-weill-ou-le-prophete-du-faubourg-saint-honore,robert-dreyfus,"Alexandre Weill, ou le prophète du Faubourg Saint-Honoré",20834,false,T3,,,,src/content/pieces/s09-c09--alexandre-weill-ou-le-prophete-du-faubourg-saint-honore.fr.md,skip
+s09-c10,mes-cahiers-rouges-i,maxime-vuillaume,Mes cahiers rouges. I,13851,false,T3,,,,src/content/pieces/s09-c10--mes-cahiers-rouges-i.fr.md,skip
+s09-c11,mes-cahiers-rouges,maxime-vuillaume,Mes cahiers rouges,18904,false,T3,,,,src/content/pieces/s09-c11--mes-cahiers-rouges.fr.md,skip
+s09-c12,mes-cahiers-rouges,maxime-vuillaume,Mes cahiers rouges,31516,false,T3,,,,src/content/pieces/s09-c12--mes-cahiers-rouges.fr.md,skip
+s09-c13,jean-christophe-a-paris-i-la-foire-sur-la-place-1,romain-rolland,Jean-Christophe à Paris. I. La foire sur la Place. 1,38266,false,T1,https://fr.wikisource.org/wiki/La_Foire_sur_la_place,validated,,src/content/pieces/s09-c13--jean-christophe-a-paris-i-la-foire-sur-la-place-1.fr.md,use-wikisource-jc
+s09-c14,jean-christophe-in-paris-i-the-fair-on-the-square-2,romain-rolland,Jean-Christophe in Paris. I. The Fair on the Square. 2,41469,false,T1,https://fr.wikisource.org/wiki/La_Foire_sur_la_place,validated,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s09-c14--jean-christophe-in-paris-i-the-fair-on-the-square-2.fr.md,use-wikisource-jc
+s09-c15,jean-christophe-a-paris-antoinette,romain-rolland,Jean-Christophe à Paris. Antoinette,39960,false,T1,https://fr.wikisource.org/wiki/Antoinette,validated,,src/content/pieces/s09-c15--jean-christophe-a-paris-antoinette.fr.md,use-wikisource-jc
+s09-c16,quand-panurge-ressuscita,pierre-mille,Quand Panurge ressuscita,36042,false,T3,,,,src/content/pieces/s09-c16--quand-panurge-ressuscita.fr.md,skip
+s10-c01,l-enfant-et-la-reine-morte,pierre-mille,L'enfant et la reine morte,55955,false,T3,,,,src/content/pieces/s10-c01--l-enfant-et-la-reine-morte.fr.md,skip
+s10-c02,dix-contes-ecrits-dans-le-nord,pierre-hamp,Dix contes écrits dans le Nord,27268,false,T3,,,,src/content/pieces/s10-c02--dix-contes-ecrits-dans-le-nord.fr.md,skip
+s10-c03,la-peine-des-hommes-i-maree-fraiche,pierre-hamp,La peine des hommes. I. Marée fraîche,23589,false,T3,,,,src/content/pieces/s10-c03--la-peine-des-hommes-i-maree-fraiche.fr.md,skip
+s10-c04,vin-de-champagne,pierre-hamp,Vin de Champagne,37901,false,T3,,,Moved 2026-05-25 from conflated s10-c04--la-peine-des-hommes.fr.md (entire cahier OCR; running headers alternate 'la peine des hommes' [series title] / 'VIN DE CHAMPAGNE' [volume title]). The cahier is in fact a single Hamp novel titled Vin de Champagne in the series La peine des hommes.,src/content/pieces/s10-c04--vin-de-champagne.fr.md,skip
+s10-c05,le-portrait-d-ibsen,andre-suares,Le portrait d'Ibsen,44732,false,T2,https://fr.wikisource.org/wiki/Ibsen_(RDDM),validated,,src/content/pieces/s10-c05--le-portrait-d-ibsen.fr.md,use-wikisource
+s10-c06,plus-pres-des-choses,rene-salome,Plus près des choses,23578,false,T3,,,,src/content/pieces/s10-c06--plus-pres-des-choses.fr.md,skip
+s10-c07,mes-cahiers-rouges,maxime-vuillaume,Mes cahiers rouges,33643,false,T3,,,,src/content/pieces/s10-c07--mes-cahiers-rouges.fr.md,skip
+s10-c08,mes-cahiers-rouges-v,maxime-vuillaume,Mes cahiers rouges. V,28309,false,T3,,,,src/content/pieces/s10-c08--mes-cahiers-rouges-v.fr.md,skip
+s10-c09,dans-la-maison-1,romain-rolland,Jean-Christophe à Paris. III — Dans la maison (texte intégral),58920,false,T1,https://fr.wikisource.org/wiki/Dans_la_maison,validated,"fr.wikisource.org — Dans la maison (Paul Ollendorff, 1908, Tome 3) 2026-05-25",src/content/pieces/s10-c09--dans-la-maison-1.fr.md,use-wikisource-jc
+s10-c09,jean-christophe-a-paris,romain-rolland,Jean-Christophe à Paris,2045,false,T1,https://fr.wikisource.org/wiki/Dans_la_maison,validated,,src/content/pieces/s10-c09--jean-christophe-a-paris.fr.md,use-wikisource-jc
+s10-c10,jean-christophe-a-paris,romain-rolland,Jean-Christophe à Paris. II. Dans la maison. 2,76519,false,T1,https://fr.wikisource.org/wiki/Dans_la_maison,validated,,src/content/pieces/s10-c10--jean-christophe-a-paris.fr.md,use-wikisource-jc
+s10-c11,mes-cahiers-rouges,maxime-vuillaume,Mes cahiers rouges,6316,false,T3,,,,src/content/pieces/s10-c11--mes-cahiers-rouges.fr.md,skip
+s10-c12,le-travail-de-zarathoustra,daniel-halevy,Le travail de Zarathoustra,27,false,T2,,,,src/content/pieces/s10-c12--le-travail-de-zarathoustra.fr.md,verify
+s10-c13,a-nos-amis-a-nos-abonnes,charles-peguy,"A nos amis, à nos abonnés",45596,false,T1,,,,src/content/pieces/s10-c13--a-nos-amis-a-nos-abonnes.fr.md,skip-editorial
+s11-c01,visite-a-pascal,andre-suares,Visite à Pascal,21379,false,T2,https://fr.wikisource.org/wiki/Visite_à_Pascal,validated,,src/content/pieces/s11-c01--visite-a-pascal.fr.md,use-wikisource
+s11-c02,le-portique,gabriel-trarieux,Le portique,21988,false,T3,,,,src/content/pieces/s11-c02--le-portique.fr.md,skip
+s11-c03,l-homme-en-proie-aux-enfants,albert-thierry,L'homme en proie aux enfants,47033,false,T3,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s11-c03--l-homme-en-proie-aux-enfants.fr.md,skip
+s11-c04,la-carte-au-lisere-vert,georges-delahache,La carte au liseré vert,66384,false,T3,,,,src/content/pieces/s11-c04--la-carte-au-lisere-vert.fr.md,skip
+s11-c05,israel-zangwill,andre-spire,Israël Zangwill,23843,false,T2,,,,src/content/pieces/s11-c05--israel-zangwill.fr.md,verify
+s11-c06,le-mystere-de-la-charite-de-jeanne-d-arc,charles-peguy,Le mystère de la charité de Jeanne d'Arc,47409,false,T1,https://fr.wikisource.org/wiki/Le_Mystère_de_la_charité_de_Jeanne_d'Arc,proofread,"fr.wikisource.org — Œuvres complètes, Tome 5 (NRF 1918), 2026-05-25",src/content/pieces/s11-c06--le-mystere-de-la-charite-de-jeanne-d-arc.fr.md,use-wikisource
+s11-c07,jean-christophe,romain-rolland,Jean-Christophe. III. La fin du voyage. I. Les amies. 1,31485,false,T1,https://fr.wikisource.org/wiki/Les_Amies_(Jean-Christophe),validated,,src/content/pieces/s11-c07--jean-christophe.fr.md,use-wikisource-jc
+s11-c08,jean-christophe,romain-rolland,Jean-Christophe. III. La fin du voyage. I. Les amies. 2,32427,false,T1,https://fr.wikisource.org/wiki/Les_Amies_(Jean-Christophe),validated,,src/content/pieces/s11-c08--jean-christophe.fr.md,use-wikisource-jc
+s11-c09,mes-cahiers-rouges,maxime-vuillaume,Mes cahiers rouges,42043,false,T3,,,,src/content/pieces/s11-c09--mes-cahiers-rouges.fr.md,skip
+s11-c10,apologie-pour-notre-passe,daniel-halevy,Apologie pour notre passé,28638,false,T2,,,,src/content/pieces/s11-c10--apologie-pour-notre-passe.fr.md,verify
+s11-c11,la-maison-vers-le-lac,joseph-melon,La maison vers le lac,14322,false,T3,,,,src/content/pieces/s11-c11--la-maison-vers-le-lac.fr.md,skip
+s11-c12,notre-jeunesse-les-milliet,charles-peguy,Notre jeunesse. Les Milliet,67110,false,T1,,,,src/content/pieces/s11-c12--notre-jeunesse-les-milliet.fr.md,verify-peguy
+s11-c13,the-milliets-i-up-to-the-threshold-of-exile,paul-milliet,Les Milliet. I — Jusqu'au seuil de l'exil,21455,false,T3,,,Existing charlespeguy.com vision OCR (raw/s11-c13-ocr.txt); ingested 2026-05-25,src/content/pieces/s11-c13--the-milliets-i-up-to-the-threshold-of-exile.fr.md,skip
+s11-c14,the-milliets-ii-farewells,paul-milliet,Les Milliet. II — Adieux,21713,false,T3,,,Existing charlespeguy.com vision OCR (raw/s11-c14-ocr.txt); ingested 2026-05-25,src/content/pieces/s11-c14--the-milliets-ii-farewells.fr.md,skip
+s12-c01,victor-marie-comte-hugo,charles-peguy,"Victor-Marie, comte Hugo",69436,false,T1,"https://fr.wikisource.org/wiki/Victor-Marie,_comte_Hugo",proofread,,src/content/pieces/s12-c01--victor-marie-comte-hugo.fr.md,use-wikisource
+s12-c02,les-amis-des-cahiers,paul-milliet,"""Les amis des cahiers""",28,false,T3,,,,src/content/pieces/s12-c02--les-amis-des-cahiers.fr.md,skip
+s12-c03,my-first-testament,julien-benda,Mon premier testament,12563,false,T2,,,Existing charlespeguy.com vision OCR (raw/s12-c03-ocr.txt); ingested 2026-05-25,src/content/pieces/s12-c03--my-first-testament.fr.md,verify
+s12-c04,vies-paralleles,paul-milliet,Vies parallèles,34241,false,T3,,,,src/content/pieces/s12-c04--vies-paralleles.fr.md,skip
+s12-c05,dialogue-d-eleuthere,julien-benda,Dialogue d'Eleuthère,22851,false,T2,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s12-c05--dialogue-d-eleuthere.fr.md,verify
+s12-c06,les-milliet-v-jours-heureux,paul-milliet,Les Milliet. V. Jours heureux,66490,false,T3,,,,src/content/pieces/s12-c06--les-milliet-v-jours-heureux.fr.md,skip
+s12-c07,tolstoi-vivant,andre-suares,Tolstoi vivant,47984,false,T2,,,,src/content/pieces/s12-c07--tolstoi-vivant.fr.md,verify
+s12-c08,mes-maitres-et-mes-amis,paul-milliet,Mes maîtres et mes amis,39700,false,T3,,,,src/content/pieces/s12-c08--mes-maitres-et-mes-amis.fr.md,skip
+s12-c09,l-ordination,julien-benda,L'ordination,17411,false,T2,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s12-c09--l-ordination.fr.md,verify
+s12-c10,les-milliet,paul-milliet,Les Milliet,41747,false,T3,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s12-c10--les-milliet.fr.md,skip
+s12-c10,oeuvres-choisies-postface,charles-peguy,Œuvres choisies (postface),6024,false,T1,,,"Existing s12-c10-ocr.txt vision OCR (charlespeguy.com), pp.149-174, 2026-05-25",src/content/pieces/s12-c10--oeuvres-choisies-postface.fr.md,verify-peguy
+s13-c01,voyage-d-etudes-en-italie,paul-milliet,Voyage d'études en Italie,36595,false,T3,,,,src/content/pieces/s13-c01--voyage-d-etudes-en-italie.fr.md,skip
+s13-c02,a-new-theologian-m-fernand-laudet,charles-peguy,"Un nouveau théologien, M. Fernand Laudet",75800,false,T1,,,Existing charlespeguy.com vision OCR (raw/s13-c02-ocr.txt); ingested 2026-05-25,src/content/pieces/s13-c02--a-new-theologian-m-fernand-laudet.fr.md,verify-peguy
+s13-c03,la-guerre-de-france,ix,La guerre de France,485,false,T3,,,,src/content/pieces/s13-c03--la-guerre-de-france.fr.md,skip
+s13-c04,le-porche-du-mystere-de-la-deuxieme-vertu,charles-peguy,Le porche du mystère de la deuxième vertu,38928,false,T1,https://fr.wikisource.org/wiki/Le_Porche_du_mystère_de_la_deuxième_vertu,proofread,,src/content/pieces/s13-c04--le-porche-du-mystere-de-la-deuxieme-vertu.fr.md,use-wikisource
+s13-c05,jean-christophe-le-buisson-ardent-1,romain-rolland,Jean-Christophe. Le buisson ardent. 1,74416,false,T1,https://fr.wikisource.org/wiki/Le_Buisson_ardent,validated,,src/content/pieces/s13-c05--jean-christophe-le-buisson-ardent-1.fr.md,use-wikisource-jc
+s13-c06,jean-christophe-le-buisson-ardent-2,romain-rolland,Jean-Christophe. Le buisson ardent. 2,23924,false,T1,https://fr.wikisource.org/wiki/Le_Buisson_ardent,validated,,src/content/pieces/s13-c06--jean-christophe-le-buisson-ardent-2.fr.md,use-wikisource-jc
+s13-c07,the-milliets-x-the-commune-and-the-second-siege-of-paris,paul-milliet,Les Milliet. X — La Commune et le second siège de Paris,28532,false,T3,,,Existing charlespeguy.com vision OCR (raw/s13-c07-ocr.txt); ingested 2026-05-25,src/content/pieces/s13-c07--the-milliets-x-the-commune-and-the-second-siege-of-paris.fr.md,skip
+s13-c08,dostoievski,andre-suares,Dostoïevski,29151,false,T2,https://fr.wikisource.org/wiki/Dostoïevski_(Suarès),validated,,src/content/pieces/s13-c08--dostoievski.fr.md,use-wikisource
+s13-c09,un-cas-de-conscience,paul-milliet,Un cas de conscience,155,false,T3,,,,src/content/pieces/s13-c09--un-cas-de-conscience.fr.md,skip
+s13-c10,l-ami-desabuse,joseph-melon,L'ami désabusé,70033,false,T3,,,,src/content/pieces/s13-c10--l-ami-desabuse.fr.md,skip
+s13-c11,deux-drames,maxime-vuillaume,Mes cahiers rouges. VIII. Deux drames,42755,false,T3,,,"Archive.org vision OCR 2026-05-24; HathiTrust alt-scan splice for pp.20-21, 118-121 (see PROGRESS.md §1)",src/content/pieces/s13-c11--deux-drames.fr.md,skip
+s13-c12,le-mystere-des-saints-innocents,charles-peguy,Le mystère des saints Innocents,43261,false,T1,https://fr.wikisource.org/wiki/Le_Mystère_des_saints_innocents,partial,"fr.wikisource.org — Œuvres complètes, Tome 6 (NRF 1919), 2026-05-25",src/content/pieces/s13-c12--le-mystere-des-saints-innocents.fr.md,use-wikisource
+s14-c01,de-napoleon,andre-suares,De Napoléon,9226,false,T2,,,,src/content/pieces/s14-c01--de-napoleon.fr.md,verify
+s14-c02,jean-christophe-la-nouvelle-journee-1,romain-rolland,Jean-Christophe. La nouvelle journée. 1,40022,false,T1,https://fr.wikisource.org/wiki/La_Nouvelle_Journée,validated,,src/content/pieces/s14-c02--jean-christophe-la-nouvelle-journee-1.fr.md,use-wikisource-jc
+s14-c03,jean-christophe-la-nouvelle-journee-2,romain-rolland,Jean-Christophe. La nouvelle journée. 2,2293,false,T1,https://fr.wikisource.org/wiki/La_Nouvelle_Journée,validated,,src/content/pieces/s14-c03--jean-christophe-la-nouvelle-journee-2.fr.md,use-wikisource-jc
+s14-c04,l-ordination,julien-benda,L'ordination. II — La chute,10312,false,T2,,,Replacement: existing charlespeguy.com vision OCR (raw/s14-c04-ocr.txt) — overwrote prior Tesseract-garbage migration body 2026-05-25,src/content/pieces/s14-c04--l-ordination.fr.md,verify
+s14-c05,la-tapisserie-de-sainte-genevieve-et-de-jeanne-d-arc,charles-peguy,La tapisserie de sainte Geneviève et de Jeanne d'Arc,24439,false,T1,https://fr.wikisource.org/wiki/La_Tapisserie_de_sainte_Geneviève_et_de_Jeanne_d'Arc,validated,,src/content/pieces/s14-c05--la-tapisserie-de-sainte-genevieve-et-de-jeanne-d-arc.fr.md,use-wikisource
+s14-c06,l-argent,charles-peguy,L'argent,28610,false,T1,https://fr.wikisource.org/wiki/L’Argent_(Péguy),validated,,src/content/pieces/s14-c06--l-argent.fr.md,use-wikisource
+s14-c07,depuis-1880-l-enseignement-primaire,naudy,"Depuis 1880, l'enseignement primaire",34322,false,T3,,,,src/content/pieces/s14-c07--depuis-1880-l-enseignement-primaire.fr.md,skip
+s14-c08,les-chants-de-l-ame-reveillee,rene-salome,Les chants de l'âme réveillée,11750,false,T3,,,Existing charlespeguy.com vision OCR (raw/s14-c08-ocr.txt); ingested 2026-05-25,src/content/pieces/s14-c08--les-chants-de-l-ame-reveillee.fr.md,skip
+s14-c09,l-argent-suite,charles-peguy,L'argent suite,71577,false,T1,https://fr.wikisource.org/wiki/L’Argent_suite,proofread,,src/content/pieces/s14-c09--l-argent-suite.fr.md,use-wikisource
+s14-c10,la-tapisserie-de-notre-dame,charles-peguy,La tapisserie de Notre Dame,21559,false,T1,https://fr.wikisource.org/wiki/La_Tapisserie_de_Notre_Dame,validated,,src/content/pieces/s14-c10--la-tapisserie-de-notre-dame.fr.md,use-wikisource
+s14-c11,mes-cahiers-rouges,maxime-vuillaume,Mes cahiers rouges. IX — Lettres et témoignages,30161,false,T3,,,"Existing charlespeguy.com vision OCR (raw/s14-c11-ocr.txt, leaves 0373-0535) 2026-04-21; ingested 2026-05-25",src/content/pieces/s14-c11--mes-cahiers-rouges.fr.md,skip
+s15-c01,ecoute-israel,edmond-fleg,Ecoute Israël,24183,false,T2,,,,src/content/pieces/s15-c01--ecoute-israel.fr.md,verify
+s15-c02,une-philosophie-pathetique,julien-benda,Une philosophie pathétique,34416,false,T2,,,,src/content/pieces/s15-c02--une-philosophie-pathetique.fr.md,verify
+s15-c03,la-loi-militaire,joseph-reinach,La loi militaire,75895,false,T2,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s15-c03--la-loi-militaire.fr.md,verify
+s15-c04,eve,charles-peguy,Eve,80410,false,T1,https://fr.wikisource.org/wiki/Ève_(Péguy),validated,,src/content/pieces/s15-c04--eve.fr.md,use-wikisource
+s15-c05,francois-villon,andre-suares,François Villon,19213,false,T2,,,,src/content/pieces/s15-c05--francois-villon.fr.md,verify
+s15-c06,l-exode,georges-delahache,L'Exode,56433,false,T3,,,Existing charlespeguy.com vision OCR (raw/s15-c06-ocr.txt); ingested 2026-05-25,src/content/pieces/s15-c06--l-exode.fr.md,skip
+s15-c07,notre-pays,rene-salome,Notre pays,22140,false,T3,,,,src/content/pieces/s15-c07--notre-pays.fr.md,skip
+s15-c08,note-sur-m-bergson-et-la-philosophie-bergsonienne,charles-peguy,Note sur M. Bergson et la philosophie bergsonienne,13044,false,T1,https://fr.wikisource.org/wiki/Note_sur_M._Bergson,proofread,,src/content/pieces/s15-c08--note-sur-m-bergson-et-la-philosophie-bergsonienne.fr.md,use-wikisource
+s15-c09,mes-cahiers-rouges-x-proscrits,maxime-vuillaume,Mes cahiers rouges. X. Proscrits,51409,false,T3,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s15-c09--mes-cahiers-rouges-x-proscrits.fr.md,skip
+s15-c10,nous,francois-porche,Nous,14151,false,T3,,,Existing charlespeguy.com vision OCR (raw/s15-c10-ocr.txt); ingested 2026-05-25,src/content/pieces/s15-c10--nous.fr.md,skip
