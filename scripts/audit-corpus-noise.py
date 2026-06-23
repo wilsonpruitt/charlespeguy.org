@@ -23,8 +23,12 @@ ROOT = Path(__file__).resolve().parents[1]
 PIECES = ROOT / "src" / "content" / "pieces"
 OUT = ROOT / "audit-screens"
 
-LEADING_DIGIT_CAP = re.compile(r"^\s{0,3}\d{1,3}\s+[A-ZÀÂÇÉÈÊËÎÏÔÛÙÜŸÑÆŒ]")
-LEADING_MD = re.compile(r"^\s*[#>|]")
+UPPER_ACC = "A-ZÀÂÄÇÉÈÊËÎÏÔÖÛÙÜŸÑÆŒ"  # uppercase only — NOT the À-Ÿ range (it spans lowercase accents)
+LEADING_DIGIT_CAP = re.compile(rf"^\s{{0,3}}\d{{1,3}}\s+[{UPPER_ACC}]")
+# Well-formed markdown (`> quote`, `## heading`) is legitimate re-OCR output, NOT noise.
+# Only flag a leading table-pipe (never used here) or a `#`/`>` glued to a letter
+# (OCR margin-mark misread, e.g. ">qui", "#de").
+LEADING_MD = re.compile(r"^\s*\||^\s*[#>][^\s#>]")
 CARET_BRACKET = re.compile(r"[\^\\\[\]]")
 MIXED_AD = re.compile(r"\b[a-zàâçéèêëîïôûùüÿñæœ]+\d+[a-zàâçéèêëîïôûùüÿñæœ]*|\b\d+[a-zàâçéèêëîïôûùüÿñæœ]{2,}", re.I)
 LONG_TOKEN = re.compile(r"\S{26,}")
@@ -40,8 +44,9 @@ def is_garble(tok):
     low = tok.lower().strip("'’")
     if len(low) < 4:
         return False
-    # uppercase letter mid-word (OCR case confusion: J'aflirme, supEi'be)
-    if re.search(r"[A-ZÀ-Ÿ]", tok[1:]) and not tok.isupper():
+    # uppercase letter mid-word (OCR case confusion: J'aflirme, supEi'be).
+    # Use the explicit uppercase set — NOT [À-Ÿ], whose range includes lowercase accents.
+    if re.search(rf"[{UPPER_ACC}]", tok[1:]) and not tok.isupper():
         return True
     core = "".join(c for c in low if c.isalpha())
     if len(core) < 4:
@@ -80,9 +85,11 @@ def analyse(stem):
     nt = len(toks) or 1
     garble = sum(1 for tk in toks if is_garble(tk))
     garble_pct = garble / nt * 100
-    penalty = 15 if flags["BACK-MATTER"] >= 2 else 0
+    # No separate back-matter penalty: BACK-MATTER already counts into line_density,
+    # so a genuine colophon/subscription STUB scores high via density, while a few
+    # scattered prose mentions of "cahier"/"abonnement" in a long polemic stay low.
     # garble weighted 3x: it's the true re-OCR signal
-    score = round(line_density + garble_pct * 3 + penalty, 1)
+    score = round(line_density + garble_pct * 3, 1)
     return n, nt, flags, round(line_density, 1), round(garble_pct, 2), score, has_prov
 
 
