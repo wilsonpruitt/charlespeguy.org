@@ -88,6 +88,8 @@ SEAM RULES (critical — you are a middle slice):
 ${k === nbatches ? '- This is the LAST slice: stop before the publisher colophon/back-matter.' : ''}
 
 3. Write the transcription to raw/reocr/${stem}.part${k}.md (create dirs if needed). Body text only.
+   Then VERIFY the file is non-empty (wc -c). If it is empty/tiny, your transcription was lost —
+   redo it; only report ok:true once the file actually contains the transcribed prose.
 4. If the API blocks your output (content filter), STOP and report blocked:true — do not retry.
 
 Return ONLY the structured result.`
