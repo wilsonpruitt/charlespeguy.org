@@ -66,7 +66,7 @@ s03-c07,m-gustave-tery,charles-peguy,M. Gustave Téry,19637,false,T1,,,,src/cont
 s03-c08,les-juifs-en-roumanie,bernard-lazare,Les Juifs en Roumanie,32052,false,T2,,,,src/content/pieces/s03-c08--les-juifs-en-roumanie.fr.md,verify
 s03-c09,une-lettre-inedite-a-romain-rolland,leon-tolstoi,Une lettre inédite à Romain Rolland,8386,false,T1,,,,src/content/pieces/s03-c09--une-lettre-inedite-a-romain-rolland.fr.md,verify-tolstoi
 s03-c10,les-universites-populaires-1900-1901-paris-et-banlieue,charles-guieysse,"Les Universités Populaires 1900-1901, Paris et banlieue",16444,false,T3,,,,src/content/pieces/s03-c10--les-universites-populaires-1900-1901-paris-et-banlieue.fr.md,skip
-s03-c11,le-14-juillet-action-populaire-trois-actes,romain-rolland,"Le 14 Juillet, action populaire, trois actes",45894,false,T1,,,,src/content/pieces/s03-c11--le-14-juillet-action-populaire-trois-actes.fr.md,verify-rolland
+s03-c11,le-14-juillet-action-populaire-trois-actes,romain-rolland,"Le 14 Juillet, action populaire, trois actes",45894,false,T1,,,,src/content/pieces/s03-c11--le-14-juillet-action-populaire-trois-actes.fr.md,done-reocr
 s03-c12,monographies-personnalites,charles-peguy,Monographies. Personnalités,19423,false,T1,,,,src/content/pieces/s03-c12--monographies-personnalites.fr.md,done-reocr
 s03-c13,dingley-l-illustre-ecrivain,jerome-et-jean-tharaud,"Dingley, l'illustre écrivain",15121,false,T3,,,,src/content/pieces/s03-c13--dingley-l-illustre-ecrivain.fr.md,skip
 s03-c14,socialismes-nationaux,georges-sorel,Socialismes nationaux,18931,false,T2,,,,src/content/pieces/s03-c14--socialismes-nationaux.fr.md,verify
@@ -77,7 +77,7 @@ s03-c18,personnalites-monographies,charles-peguy,Personnalités. Monographies,18
 s03-c19,pour-l-armenie,pierre-quillard,Pour l'Arménie,43229,false,T3,,,,src/content/pieces/s03-c19--pour-l-armenie.fr.md,skip
 s03-c20,les-universites-populaires-1900-1901-departements,charles-guieysse,"Les Universités Populaires 1900-1901, Départements",43087,false,T3,,,,src/content/pieces/s03-c20--les-universites-populaires-1900-1901-departements.fr.md,skip
 s03-c21,pour-la-finlande,jean-deck,Pour la Finlande,66105,false,T3,,,,src/content/pieces/s03-c21--pour-la-finlande.fr.md,skip
-s04-c01,l-affaire-crainquebille-edition-complete,anatole-france,"L'affaire Crainquebille, édition complète",15211,false,T2,,,,src/content/pieces/s04-c01--l-affaire-crainquebille-edition-complete.fr.md,check-wikisource
+s04-c01,l-affaire-crainquebille-edition-complete,anatole-france,"L'affaire Crainquebille, édition complète",15211,false,T2,,,,src/content/pieces/s04-c01--l-affaire-crainquebille-edition-complete.fr.md,filter-blocked
 s04-c02,l-aube-fraternelle,emile-moselly,L'aube fraternelle,22152,false,T3,,,,src/content/pieces/s04-c02--l-aube-fraternelle.fr.md,skip
 s04-c03,de-jean-coste,charles-peguy,De Jean Coste,19450,false,T1,https://fr.wikisource.org/wiki/De_Jean_Coste_(Péguy),proofread,,src/content/pieces/s04-c03--de-jean-coste.fr.md,use-wikisource
 s04-c04,la-medaille,antonin-lavergne,La médaille,28987,false,T3,,,,src/content/pieces/s04-c04--la-medaille.fr.md,skip
@@ -86,7 +86,7 @@ s04-c06,inventaire-des-cahiers,charles-peguy,Inventaire des Cahiers,14396,false,
 s04-c07,villon-tolstoi-tharaud-gillet-cahier-de-noel,charles-peguy,"Villon, Tolstoi, Tharaud, Gillet. Cahier de Noël",17071,false,T1,,,,src/content/pieces/s04-c07--villon-tolstoi-tharaud-gillet-cahier-de-noel.fr.md,verify-peguy
 s04-c08,monsieur-matou,rene-salome,Monsieur Matou,18475,false,T3,,,,src/content/pieces/s04-c08--monsieur-matou.fr.md,skip
 s04-c09,almanach-des-cahiers-pour-l-an-1903,charles-peguy,Almanach des cahiers pour l'an 1903,18659,false,T1,,,,src/content/pieces/s04-c09--almanach-des-cahiers-pour-l-an-1903.fr.md,verify-peguy
-s04-c10,vie-des-hommes-illustres-beethoven,romain-rolland,"Vie des hommes illustres, Beethoven",26532,false,T1,,,,src/content/pieces/s04-c10--vie-des-hommes-illustres-beethoven.fr.md,verify-rolland
+s04-c10,vie-des-hommes-illustres-beethoven,romain-rolland,"Vie des hommes illustres, Beethoven",26532,false,T1,,,,src/content/pieces/s04-c10--vie-des-hommes-illustres-beethoven.fr.md,done-reocr
 s04-c11,la-politique-clericale-et-le-socialisme,edouard-berth,La politique cléricale et le socialisme,15595,false,T2,,,,src/content/pieces/s04-c11--la-politique-clericale-et-le-socialisme.fr.md,verify
 s04-c12,introduction-a-la-metaphysique,henri-bergson,Introduction à la métaphysique,20686,false,T2,,,,src/content/pieces/s04-c12--introduction-a-la-metaphysique.fr.md,check-wikisource
 s04-c13,impressions-sur-java,felicien-challaye,Impressions sur Java,19687,false,T2,,,,src/content/pieces/s04-c13--impressions-sur-java.fr.md,verify
@@ -104,7 +104,7 @@ s05-c02,la-vie-d-evariste-galois,paul-dupuy,La vie d'Evariste Galois,28868,false
 s05-c03,le-monument-de-renan,charles-peguy,Le monument de Renan,30011,false,T1,,,,src/content/pieces/s05-c03--le-monument-de-renan.fr.md,verify-peguy
 s05-c04,le-theatre-du-peuple,romain-rolland,Le Théâtre du Peuple,59518,false,T1,https://fr.wikisource.org/wiki/Le_Théâtre_du_peuple_(Romain_Rolland),validated,,src/content/pieces/s05-c04--le-theatre-du-peuple.fr.md,use-wikisource
 s05-c05,discours-pour-la-liberte,georges-clemenceau,Discours pour la liberté,45730,false,T2,,,,src/content/pieces/s05-c05--discours-pour-la-liberte.fr.md,verify
-s05-c06,histoire-de-quatre-ans-1997-2001,daniel-halevy,"Histoire de quatre ans, 1997-2001",29136,false,T2,,,,src/content/pieces/s05-c06--histoire-de-quatre-ans-1997-2001.fr.md,verify
+s05-c06,histoire-de-quatre-ans-1997-2001,daniel-halevy,"Histoire de quatre ans, 1997-2001",29136,false,T2,,,,src/content/pieces/s05-c06--histoire-de-quatre-ans-1997-2001.fr.md,done-reocr
 s05-c07,moines-de-l-athos,jerome-et-jean-tharaud,Moines de l'Athos,15075,false,T3,,,Extracted 2026-05-25 from conflated s05-c07--notes-sur-la-hollande.fr.md (lines 1125–3019; running header 'Lebeau et Tharaud' identifies these lines).,src/content/pieces/s05-c07--moines-de-l-athos.fr.md,skip
 s05-c07,notes-sur-la-hollande,henri-michel,Notes sur la Hollande,20605,false,T2,,,Trimmed 2026-05-25; original conflated file held three pieces (Notes sur la Hollande + Moines de l'Athos + Bulletin Tisseurs d'Armentières) plus publisher back-matter.,src/content/pieces/s05-c07--notes-sur-la-hollande.fr.md,verify
 s05-c08,maximilien-robespierre,karl-brunnemann,Maximilien Robespierre,55431,false,T3,,,,src/content/pieces/s05-c08--maximilien-robespierre.fr.md,skip
@@ -124,7 +124,7 @@ s06-c01,texte-sans-commentaires-catalogue-analytique-sommaire,charles-peguy,Text
 s06-c02,l-egalite-devant-l-instruction,alexis-bertrand,L'égalité devant l'instruction,87947,false,T3,,,,src/content/pieces/s06-c02--l-egalite-devant-l-instruction.fr.md,skip
 s06-c03,chad-gadya,israel-zangwill,Chad Gadya!,6900,false,T3,,,Wikisource ws-export 2026-05-25,src/content/pieces/s06-c03--chad-gadya.fr.md,skip
 s06-c03,zangwill,charles-peguy,Zangwill,23774,false,T1,https://fr.wikisource.org/wiki/Zangwill,proofread,,src/content/pieces/s06-c03--zangwill.fr.md,use-wikisource
-s06-c04,l-enseignement-primaire-a-madagascar,raoul-allier,L'enseignement primaire des indigènes à Madagascar,34693,false,T2,,,Extracted 2026-05-25 from conflated s06-c04--un-essai-de-monopole.fr.md (lines 1449-5502).,src/content/pieces/s06-c04--l-enseignement-primaire-a-madagascar.fr.md,verify
+s06-c04,l-enseignement-primaire-a-madagascar,raoul-allier,L'enseignement primaire des indigènes à Madagascar,34693,false,T2,,,Extracted 2026-05-25 from conflated s06-c04--un-essai-de-monopole.fr.md (lines 1449-5502).,src/content/pieces/s06-c04--l-enseignement-primaire-a-madagascar.fr.md,done-reocr
 s06-c04,un-essai-de-monopole,charles-peguy,Un essai de monopole,16307,false,T1,,,Trimmed 2026-05-25; the Madagascar cahier by Allier (lines 1449-5502) was extracted to s06-c04--l-enseignement-primaire-a-madagascar.fr.md.,src/content/pieces/s06-c04--un-essai-de-monopole.fr.md,done-reocr
 s06-c05,le-testament-politique-de-waldeck-rousseau,charles-peguy,Le testament politique de Waldeck-Rousseau,100961,false,T1,,,,src/content/pieces/s06-c05--le-testament-politique-de-waldeck-rousseau.fr.md,verify-peguy
 s06-c06,juifs-russes,georges-delahache,Juifs russes,5313,false,T3,,,,src/content/pieces/s06-c06--juifs-russes.fr.md,skip
@@ -154,7 +154,7 @@ s07-c08,louis-de-gonzague,charles-peguy,Louis de Gonzague (matière éditoriale)
 s07-c09,de-la-situation-faite-a-l-enseignement-superieur-i,ferdinand-lot,De la situation faite à l'enseignement supérieur. I,37318,false,T2,,,,src/content/pieces/s07-c09--de-la-situation-faite-a-l-enseignement-superieur-i.fr.md,verify
 s07-c10,les-freres-ennemis,jerome-et-jean-tharaud,Les frères ennemis,25727,false,T3,,,,src/content/pieces/s07-c10--les-freres-ennemis.fr.md,skip
 s07-c11,de-la-situation-faite-a-l-enseignement-superieur,ferdinand-lot,De la situation faite à l'enseignement supérieur,42441,false,T2,,,,src/content/pieces/s07-c11--de-la-situation-faite-a-l-enseignement-superieur.fr.md,verify
-s07-c12,le-congo-francais,felicien-challaye,Le Congo français,37565,false,T2,,,,src/content/pieces/s07-c12--le-congo-francais.fr.md,verify
+s07-c12,le-congo-francais,felicien-challaye,Le Congo français,37565,false,T2,,,,src/content/pieces/s07-c12--le-congo-francais.fr.md,done-reocr
 s07-c13,de-la-situation-faite-a-la-defense-militaire,georges-picquart,De la situation faite à la défense militaire,29244,false,T3,,,,src/content/pieces/s07-c13--de-la-situation-faite-a-la-defense-militaire.fr.md,skip
 s07-c14,les-vaincus-savonarole,gabriel-trarieux,Les Vaincus. Savonarole,37662,false,T3,,,,src/content/pieces/s07-c14--les-vaincus-savonarole.fr.md,skip
 s07-c15,les-cahiers-d-arnold-scherer,charles-peguy,Les cahiers d'Arnold Scherer,39441,false,T1,,,,src/content/pieces/s07-c15--les-cahiers-d-arnold-scherer.fr.md,verify-peguy
@@ -218,7 +218,7 @@ s11-c06,le-mystere-de-la-charite-de-jeanne-d-arc,charles-peguy,Le mystère de la
 s11-c07,jean-christophe,romain-rolland,Jean-Christophe. III. La fin du voyage. I. Les amies. 1,31485,false,T1,https://fr.wikisource.org/wiki/Les_Amies_(Jean-Christophe),validated,,src/content/pieces/s11-c07--jean-christophe.fr.md,use-wikisource-jc
 s11-c08,jean-christophe,romain-rolland,Jean-Christophe. III. La fin du voyage. I. Les amies. 2,32427,false,T1,https://fr.wikisource.org/wiki/Les_Amies_(Jean-Christophe),validated,,src/content/pieces/s11-c08--jean-christophe.fr.md,use-wikisource-jc
 s11-c09,mes-cahiers-rouges,maxime-vuillaume,Mes cahiers rouges,42043,false,T3,,,,src/content/pieces/s11-c09--mes-cahiers-rouges.fr.md,skip
-s11-c10,apologie-pour-notre-passe,daniel-halevy,Apologie pour notre passé,28638,false,T2,,,,src/content/pieces/s11-c10--apologie-pour-notre-passe.fr.md,verify
+s11-c10,apologie-pour-notre-passe,daniel-halevy,Apologie pour notre passé,28638,false,T2,,,,src/content/pieces/s11-c10--apologie-pour-notre-passe.fr.md,done-reocr
 s11-c11,la-maison-vers-le-lac,joseph-melon,La maison vers le lac,14322,false,T3,,,,src/content/pieces/s11-c11--la-maison-vers-le-lac.fr.md,skip
 s11-c12,notre-jeunesse-les-milliet,charles-peguy,Notre jeunesse. Les Milliet,67110,false,T1,,,,src/content/pieces/s11-c12--notre-jeunesse-les-milliet.fr.md,verify-peguy
 s11-c13,the-milliets-i-up-to-the-threshold-of-exile,paul-milliet,Les Milliet. I — Jusqu'au seuil de l'exil,21455,false,T3,,,Existing charlespeguy.com vision OCR (raw/s11-c13-ocr.txt); ingested 2026-05-25,src/content/pieces/s11-c13--the-milliets-i-up-to-the-threshold-of-exile.fr.md,skip
@@ -229,7 +229,7 @@ s12-c03,my-first-testament,julien-benda,Mon premier testament,12563,false,T2,,,E
 s12-c04,vies-paralleles,paul-milliet,Vies parallèles,34241,false,T3,,,,src/content/pieces/s12-c04--vies-paralleles.fr.md,skip
 s12-c05,dialogue-d-eleuthere,julien-benda,Dialogue d'Eleuthère,22851,false,T2,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s12-c05--dialogue-d-eleuthere.fr.md,verify
 s12-c06,les-milliet-v-jours-heureux,paul-milliet,Les Milliet. V. Jours heureux,66490,false,T3,,,,src/content/pieces/s12-c06--les-milliet-v-jours-heureux.fr.md,skip
-s12-c07,tolstoi-vivant,andre-suares,Tolstoi vivant,47984,false,T2,,,,src/content/pieces/s12-c07--tolstoi-vivant.fr.md,verify
+s12-c07,tolstoi-vivant,andre-suares,Tolstoi vivant,47984,false,T2,,,,src/content/pieces/s12-c07--tolstoi-vivant.fr.md,done-reocr
 s12-c08,mes-maitres-et-mes-amis,paul-milliet,Mes maîtres et mes amis,39700,false,T3,,,,src/content/pieces/s12-c08--mes-maitres-et-mes-amis.fr.md,skip
 s12-c09,l-ordination,julien-benda,L'ordination,17411,false,T2,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s12-c09--l-ordination.fr.md,verify
 s12-c10,les-milliet,paul-milliet,Les Milliet,41747,false,T3,,,Archive.org vision OCR 2026-05-24 (see PROGRESS.md),src/content/pieces/s12-c10--les-milliet.fr.md,skip
