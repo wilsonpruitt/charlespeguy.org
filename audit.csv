@@ -59,7 +59,7 @@ s03-c02,vraiment-vrai,Vraiment vrai,charles-peguy,63,0.91,19,0.83,
 s03-c02,les-universites-populaires,Les Universités Populaires,charles-guieysse,234,0.99,206,0.97,
 s03-c03,de-l-eglise-et-de-l-etat-fragments,"De l'Église et de l'État, fragments",georges-sorel,1781,0.94,159,0.90,
 s03-c04,de-la-raison,De la raison,charles-peguy,41,0.98,41,0.95,
-s03-c04,etudes-socialistes,Études Socialistes,jean-jaures,5296,0.95,0,0.00,EMPTY_EN
+s03-c04,etudes-socialistes,Études Socialistes,jean-jaures,5296,0.95,679,0.92,
 s03-c05,juifs,Juifs,georges-delahache,1634,0.95,169,0.88,
 s03-c06,la-greve-trois-actes,"La Grève, trois actes",jean-hugues,1372,0.89,508,0.69,
 s03-c07,m-gustave-tery,M. Gustave Téry,charles-peguy,1767,0.94,323,0.86,
@@ -235,7 +235,7 @@ s12-c10,les-milliet,"Les Milliet (VII — Adrien de Tucé, Cinq ans au Mexique)"
 s12-c10,oeuvres-choisies-postface,Œuvres choisies (postface),charles-peguy,479,0.93,0,,COM_MISSING|NO_EN
 s13-c01,voyage-d-etudes-en-italie,Voyage d'études en Italie,paul-milliet,2814,0.96,618,0.83,COM_PLACEHOLDER
 s13-c02,a-new-theologian-m-fernand-laudet,"Un nouveau théologien, M. Fernand Laudet",charles-peguy,834,0.97,770,0.95,COM_MISSING
-s13-c03,la-guerre-de-france,La guerre de France,ix,920,0.81,818,0.81,COM_PLACEHOLDER
+s13-c03,la-guerre-de-france,La guerre de France,paul-milliet,920,0.81,818,0.81,COM_PLACEHOLDER
 s13-c04,le-porche-du-mystere-de-la-deuxieme-vertu,Le porche du mystère de la deuxième vertu,charles-peguy,3698,0.89,3525,0.85,COM_PLACEHOLDER
 s13-c05,jean-christophe-le-buisson-ardent-1,Jean-Christophe. Le buisson ardent. 1,romain-rolland,283,0.86,271,0.83,
 s13-c06,jean-christophe-le-buisson-ardent-2,Jean-Christophe. Le buisson ardent. 2,romain-rolland,479,0.87,444,0.80,COM_PLACEHOLDER

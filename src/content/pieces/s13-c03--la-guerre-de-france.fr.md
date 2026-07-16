@@ -3,7 +3,7 @@ cahier: s13-c03
 pieceSlug: la-guerre-de-france
 lang: fr
 title: La guerre de France
-author: ix
+author: paul-milliet
 isAvertissement: false
 wordCount: 36703
 ocrSource: "Archive.org s13cahiersdelaqui01pg leaves 435-605 (printed p.1-171), vision re-OCR (Sonnet 5) 2026-07-16 — replaces empty prior entry"

@@ -5,7 +5,7 @@
 - **COM_PLACEHOLDER**: 34
 - **LOW_PROSE_EN**: 17
 - **COM_MISSING**: 16
-- **EMPTY_EN**: 10
+- **EMPTY_EN**: 9
 - **NO_EN**: 6
 - **AUTHOR_MISMATCH**: 4
 
@@ -57,7 +57,7 @@
 - s12-c08--mes-maitres-et-mes-amis: Mes maîtres et mes amis  *paul-milliet*
 - s12-c09--l-ordination: L'ordination  *julien-benda*
 - s13-c01--voyage-d-etudes-en-italie: Voyage d'études en Italie  *paul-milliet*
-- s13-c03--la-guerre-de-france: La guerre de France  *ix*
+- s13-c03--la-guerre-de-france: La guerre de France  *paul-milliet*
 - s13-c04--le-porche-du-mystere-de-la-deuxieme-vertu: Le porche du mystère de la deuxième vertu  *charles-peguy*
 - s13-c06--jean-christophe-le-buisson-ardent-2: Jean-Christophe. Le buisson ardent. 2  *romain-rolland*
 - s13-c08--dostoievski: Dostoïevski  *andre-suares*
@@ -81,7 +81,6 @@
 - s01-c11--le-socialisme-et-les-intellectuels: Le Socialisme et les intellectuels  *charles-peguy*
 - s02-c01--nos-annonces: nos annonces  *charles-peguy*
 - s02-c14--courrier-de-chine: Courrier de Chine  *lionel-landry*
-- s03-c04--etudes-socialistes: Études Socialistes  *jean-jaures*
 - s07-c07--les-suppliants: Les suppliants  *francois-porche*
 - s08-c02--l-abdication: L'abdication  *romain-rolland*
 - s10-c04--vin-de-champagne: Vin de Champagne  *pierre-hamp*
