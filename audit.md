@@ -1,14 +1,13 @@
-# Pieces audit — 268 (cahier, piece) entries
+# Pieces audit — 267 (cahier, piece) entries
 
 ## Flag counts
 
 - **COM_PLACEHOLDER**: 34
 - **LOW_PROSE_EN**: 17
 - **COM_MISSING**: 16
-- **EMPTY_EN**: 11
-- **NO_EN**: 8
+- **EMPTY_EN**: 10
+- **NO_EN**: 6
 - **AUTHOR_MISMATCH**: 4
-- **LOW_PROSE_FR**: 2
 
 
 ## AUTHOR_MISMATCH
@@ -86,19 +85,18 @@
 - s07-c07--les-suppliants: Les suppliants  *francois-porche*
 - s08-c02--l-abdication: L'abdication  *romain-rolland*
 - s10-c04--vin-de-champagne: Vin de Champagne  *pierre-hamp*
-- s10-c09--dans-la-maison-1: Dans la maison. 1  *romain-rolland*
 
 ## LOW_PROSE_EN
 
 - s01-c10--communications-les-petits-teigneux: Communications. Les Petits Teigneux  *charles-peguy*
 - s02-c01--nouvelles-communications: Nouvelles communications  *charles-peguy*
+- s02-c06--danton-trois-actes: Danton, trois actes  *romain-rolland*
 - s02-c07--administration: Administration  *charles-peguy*
 - s04-c14--le-temps-viendra-trois-actes: Le temps viendra, trois actes  *romain-rolland*
 - s04-c16--les-vaincus-joseph-d-arimathee: Les Vaincus. Joseph d'Arimathée  *gabriel-trarieux*
 - s06-c14--la-separation-des-eglises-et-de-l-etat: La séparation des Eglises et de l'Etat  *raoul-allier*
 - s06-c15--la-tragedie-de-tristan-et-iseut: La tragédie de Tristan et Iseut  *eddy-marix*
 - s07-c14--les-vaincus-savonarole: Les Vaincus. Savonarole  *gabriel-trarieux*
-- s08-c06--jean-christophe: Jean-Christophe. IV. La révolte. 2. L'enlisement  *romain-rolland*
 - s08-c12--polonais-et-prussiens: Polonais et Prussiens  *edmond-bernus*
 - s08-c14--polonais-et-prussiens: Polonais et Prussiens  *edmond-bernus*
 - s08-c16--les-preoccupations-metaphysiques-des-physiciens-modernes: Les préoccupations métaphysiques des physiciens modernes  *georges-sorel*
@@ -108,17 +106,10 @@
 - s15-c07--notre-pays: Notre pays  *rene-salome*
 - s15-c09--mes-cahiers-rouges-x-proscrits: Mes cahiers rouges. X. Proscrits  *maxime-vuillaume*
 
-## LOW_PROSE_FR
-
-- s10-c12--le-travail-de-zarathoustra: Le travail de Zarathoustra  *daniel-halevy*
-- s12-c02--les-amis-des-cahiers: "Les amis des cahiers"  *paul-milliet*
-
 ## NO_EN
 
-- s11-c06--le-mystere-de-la-charite-de-jeanne-d-arc: Le mystère de la charité de Jeanne d'Arc  *charles-peguy*
 - s12-c10--les-milliet: Les Milliet (VII — Adrien de Tucé, Cinq ans au Mexique)  *paul-milliet*
 - s12-c10--oeuvres-choisies-postface: Œuvres choisies (postface)  *charles-peguy*
-- s13-c12--le-mystere-des-saints-innocents: Le mystère des saints Innocents  *charles-peguy*
 - s14-c08--les-chants-de-l-ame-reveillee: Les chants de l'âme réveillée  *rene-salome*
 - s14-c11--mes-cahiers-rouges: Mes cahiers rouges. IX — Lettres et témoignages  *maxime-vuillaume*
 - s15-c03--la-loi-militaire: La loi militaire  *joseph-reinach*
