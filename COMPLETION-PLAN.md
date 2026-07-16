@@ -45,15 +45,36 @@ not the tracker.
 Order matters: FR is the source of truth; translating dirty FR bakes
 noise into EN. A+B before C.
 
-- [ ] `s10-c12` Le travail de Zarathoustra (Halévy) — EMPTY_FR **and**
+- [x] `s10-c12` Le travail de Zarathoustra (Halévy) — EMPTY_FR **and**
       #1 dirtiest on the noise ledger; fresh vision OCR from scans.
-- [ ] `s13-c03` La guerre de France — EMPTY_FR, vision OCR.
-- [ ] `s13-c09` Un cas de conscience (Milliet) — EMPTY_FR, vision OCR.
-- [ ] `s12-c02` "Les amis des cahiers" — LOW_PROSE_FR, repair.
+      **DONE 2026-07-16**: 18,170 words, vision re-OCR (Sonnet), noise
+      ledger entry cleared.
+- [x] `s13-c03` La guerre de France — EMPTY_FR, vision OCR.
+      **DONE 2026-07-16**: 36,703 words. Also fixed a metadata bug found
+      along the way — `author: ix` was a mis-parsed chapter numeral, not
+      a person; corrected to `paul-milliet` (this is chapter IX of his
+      "Une famille de républicains fouriéristes" memoir series).
+- [x] `s13-c09` Un cas de conscience (Milliet) — EMPTY_FR, vision OCR.
+      **DONE 2026-07-16**: 39,367 words. Two self-flagged transcription
+      risk spots re-verified against source scans before finalizing.
+- [x] `s12-c02` "Les amis des cahiers" — LOW_PROSE_FR, repair.
+      **DONE 2026-07-16**: 18,209 words. Caught and fixed a real
+      batch-boundary gap (17 pages, incl. the start of the "Les amis
+      des cahiers" bulletin itself, nearly dropped between two agents).
 - [ ] `s11-c09` Vuillaume — **Wilson supplies content-filter splices**
       (manual transcription of blocked pages); splice + finalize.
-- [ ] Salvage the two `.com` migration gaps (s03-c04, s14-c02) — split
+      **BLOCKED on Wilson — he expects to have the splice text ready
+      the week of 2026-07-20.**
+- [x] Salvage the two `.com` migration gaps (s03-c04, s14-c02) — split
       existing EN into piece files; no retranslation.
+      **DONE 2026-07-16**: s03-c04 études-socialistes — ported the
+      existing 72k-word `.com` translation (verified matching the FR
+      text's scope/structure at 4 checkpoints), clears EMPTY_EN.
+      s14-c02 — investigated, found no real gap: `.com`'s 60k-word file
+      was s14-c02+s14-c03 concatenated under an older cataloging
+      scheme, not a longer translation of s14-c02 alone; `.org`'s
+      existing 35,143-word EN was already complete and correct scope.
+      No change needed there.
 - Standing rules: ≤5 parallel vision agents (8 GB RAM), never invent
   text, check conflated siblings before fresh OCR, `/clear` between
   cahiers, duplicate-scan and short-tail-leaf checks per memory.
